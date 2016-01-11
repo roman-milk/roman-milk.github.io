@@ -1,8 +1,7 @@
-#1 
+A Babysitter Gets Control
+=========================
 
- 
-
- ****** A Babysitter Gets Control ****** bydawn1958© Pamela was 19 and wise beyond her years. She was not only smart, but also extremely devious and was one who got what she wanted one way or other. Most called her Pam and the closest person in her life was her twin brother, Paul. If there was such a thing as identical twins who were of the opposite sex, Pam and Paul were it. Each would do anything for the other and often did because of their love for each other. 
+Pamela was 19 and wise beyond her years. She was not only smart, but also extremely devious and was one who got what she wanted one way or other. Most called her Pam and the closest person in her life was her twin brother, Paul. If there was such a thing as identical twins who were of the opposite sex, Pam and Paul were it. Each would do anything for the other and often did because of their love for each other. 
 
  Paul was the typical guy and was horny all of the time. Pam on the other hand loved sex, but her main goal was in control and domination of a partner. In high school and university she had flings or brief intimate affairs with girls, but she eventually found far more satisfaction in affairs with older guys. Pam considered it far more challenging to dominate men rather than boys or teenagers who would do anything for a sexy woman. 
 
@@ -49,8 +48,6 @@
  "You wish! Dream on, bro." 
 
  The twins huddled and discussed various possibilities. It was Pam who suggested one that they both loved. "Everyone is sympathetic to breakups. I know Lori is loving and caring and she would do anything for someone who is suffering. I could cry on her shoulder and say that my heart was broken by some fucking asshole," she said, as they both laughed and wrestled. 
-
- *** 
 
  Pam got the call to babysit and she was the happiest person in the world. "Paul sweetie, I'm seeing her tonight. I'm going to do it... make Lori our slave... you'll see," she told her brother and rushed down the block to the Thompson's. The twins had waited days for the opportunity to put their devious plan into effect and both were extremely excited. 
 
@@ -168,15 +165,13 @@
 
  Lori watched the girl get dressed and quietly leave for home. She rolled over and stared straight up at the blank ceiling. "Oh my, what have I done? What have I done?" 
 
- *** 
-
  With the couple needing a babysitter once a week and sometimes twice, Pam was in seventh heaven while working to make the gorgeous mother her submissive slave. After the first illicit encounter, it was impossible for Lori to refuse any request from her babysitter. Pam was delighted with her progress of making Lori a devoted slave, but there was more to her devious scheming. She decided it was time. 
 
- Pam recalled her brother's fantasy and it became her ultimate goal. She was going to get complete control over Lori and then offer her lover to Paul. Pam's plan was simple. First she was going to turn the mother into a submissive slave so Lori couldn't refuse any demand. Each successive babysitting session was eventful and Pam used them to submit Lori to bondage and even some light S&M. Report_Story #2 
+ Pam recalled her brother's fantasy and it became her ultimate goal. She was going to get complete control over Lori and then offer her lover to Paul. Pam's plan was simple. First she was going to turn the mother into a submissive slave so Lori couldn't refuse any demand. Each successive babysitting session was eventful and Pam used them to submit Lori to bondage and even some light S&M. 
 
- 
+===
 
- ****** A Babysitter Gets Control ****** bydawn1958© Lori was extremely reluctant to try bondage yet eventually she agreed. Being tied up and bound to the bed was scary, but Pam made sure she didn't use any radical force or extreme sexual measures. When Pam introduced pussy spanking, it turned into one of the hottest and most satisfying encounters, as Lori creamed prematurely and so fast the climax was unbelievable. 
+Lori was extremely reluctant to try bondage yet eventually she agreed. Being tied up and bound to the bed was scary, but Pam made sure she didn't use any radical force or extreme sexual measures. When Pam introduced pussy spanking, it turned into one of the hottest and most satisfying encounters, as Lori creamed prematurely and so fast the climax was unbelievable. 
 
  It happened on a Friday night when Brad was away and Pam was free to stay all night. They had already tried bondage on each other and Pam decided to ramp it up a little. Once Lori was handcuffed and tied to the four corners of the bed, she whispered in Lori's ear. "Lori, my love, you've been a very bad girl," Pam said. "You need to be punished." 
 
@@ -338,11 +333,11 @@
 
  Paul straightened his arms and raised his pelvis until only the tip of his illustrious cock was inside the inferno. He glanced straight down his chest at the head of his extended cock-shaft that was covered with glistening juices. Then he lowered his body, feeling the immense satisfaction of embedding his cock in Lori's womanly chamber. He paused and let the intense heat consume his willpower, but build his gratification. 
 
- When his guts started churning, Paul knew he had to slowdown, or else. He slowly pumped his ramrod in and out a few times and then pulled out. Pam dreamed about the encounter for days and there was no one more cunning than her. She grabbed the keys and unlocked the handcuff on Lori's right arm. "I want you to feel Paul before you cum all over his big cock," she whispered in a burning ear. "Paul, move over here so Lori can feel your man-cock." Report_Story #3 
+ When his guts started churning, Paul knew he had to slowdown, or else. He slowly pumped his ramrod in and out a few times and then pulled out. Pam dreamed about the encounter for days and there was no one more cunning than her. She grabbed the keys and unlocked the handcuff on Lori's right arm. "I want you to feel Paul before you cum all over his big cock," she whispered in a burning ear. "Paul, move over here so Lori can feel your man-cock."  
 
- 
+===
 
- ****** A Babysitter Gets Control ****** bydawn1958© Just the tone of Pam's voice sent shivers all through Lori. She was determined not to oblige the girl and remained perfectly still. Then something hot brushed across the palm of hand and she flinched, but someone grabbed her hand. Pam moved Lori's hand sideways until the fingers rested on the middle of her brother's lengthy penis. "Mmmm, yes, wrap your fingers around Paul's cock and keep it nice and hard." 
+Just the tone of Pam's voice sent shivers all through Lori. She was determined not to oblige the girl and remained perfectly still. Then something hot brushed across the palm of hand and she flinched, but someone grabbed her hand. Pam moved Lori's hand sideways until the fingers rested on the middle of her brother's lengthy penis. "Mmmm, yes, wrap your fingers around Paul's cock and keep it nice and hard." 
 
  Lori felt the hot shaft and at first it didn't feel right. Her fingers slowly shifted back and forth, as Pam guided her hand to keep it touching the searing penis. The cock was not only hot but much bigger than anything she had experienced. When Pam forced her fingers to wrap around the burning shaft, Lori cringed because it felt extremely thick and long. 
 
@@ -568,11 +563,11 @@
 
  "Paul is leaving for university next week so we won't have him around to love and enjoy," Pam informed the nervous woman. "When he comes back for break, we'll celebrate... the three of us." 
 
- Lori didn't know what to say and she merely put a faint smile on her face. She held the sheets over her nudity and watched the twins get dressed. When they motioned to leave, Lori breathed a big sigh of relief. Lori shivered when the teenager made a quick about-turn and returned to the edge of the bed. "From now on whenever we're alone, you'll call me Mistress. If you disobey or forget, I'll punish you," Pam stated and stared straight into Lori's eyes. Report_Story #4 
-
+ Lori didn't know what to say and she merely put a faint smile on her face. She held the sheets over her nudity and watched the twins get dressed. When they motioned to leave, Lori breathed a big sigh of relief. Lori shivered when the teenager made a quick about-turn and returned to the edge of the bed. "From now on whenever we're alone, you'll call me Mistress. If you disobey or forget, I'll punish you," Pam stated and stared straight into Lori's eyes. 
  
+===
 
- ****** A Babysitter Gets Control ****** bydawn1958© "Eh, yes," Lori whispered and instantly found out who was in-charge. 
+"Eh, yes," Lori whispered and instantly found out who was in-charge. 
 
  Pam playfully slapped Lori's cheek and it was hard enough to jerk the head to the side. "Maybe you think I'm not serious. Obey, or else," she said in a threatening manner. "What did I order you to call me?" 
 
@@ -614,4 +609,4 @@
 
  The exhaustion was too much. Lori fell asleep and woke with the biggest start. She glanced at the clock on the nightstand and frantically jumped out of bed. "Holy crap, Brad will be home in less than an hour," she said and ran for the bathroom shower. 
 
- THE END Report_Story 
+===
