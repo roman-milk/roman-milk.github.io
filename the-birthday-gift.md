@@ -172,7 +172,7 @@
 
  "My God old man, how the fuck can I go back to boys my own age after that?" 
 
- Before I could say anything in answer to that question I heard a scream from outside the bedroom and I sat bolt upright on the bed, snatched off the blindfold and headed out of the bedroom. The house was dark, but I saw light coming out from under the door to the spare bedroom and I hurried down the hallway, opened the door and then froze in my tracks. There on the bed in front of me was Cookie with a boy I didn't recognize and he was fucking Cookie from behind while Cookie ate Beth's pussy as Beth was sucking the cock of her current boyfriend. Behind me I heard the front door close as my birthday present got out of the house before the shit hit the fan. Report_Story #1 
+ Before I could say anything in answer to that question I heard a scream from outside the bedroom and I sat bolt upright on the bed, snatched off the blindfold and headed out of the bedroom. The house was dark, but I saw light coming out from under the door to the spare bedroom and I hurried down the hallway, opened the door and then froze in my tracks. There on the bed in front of me was Cookie with a boy I didn't recognize and he was fucking Cookie from behind while Cookie ate Beth's pussy as Beth was sucking the cock of her current boyfriend. Behind me I heard the front door close as my birthday present got out of the house before the shit hit the fan.  
 
  
 

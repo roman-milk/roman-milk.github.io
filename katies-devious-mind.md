@@ -104,7 +104,7 @@
 
  Jackie finished her shower and started to dry her body. After having an amazing orgasm and almost getting caught she would have thought her arousal would be gone. But every touch of the towel to her nipples and pussy caused her to throb with desire. "How could her body be reacting this way? And what am I going to tell Katie? Should she tell her the truth or just pass it off? I guess I'll just play it by ear and see if she pushes it."Jackie thought as she walked to her room and grabbed a nightgown. After taking a couple of deep breaths she walked down to visit with Katie. 
 
- Katie was sitting at the kitchen table munching on some cookies when Jackie walked in. "Boy I feel better. There's nothing like a refreshing shower to relax you." . Report_Story #2 
+ Katie was sitting at the kitchen table munching on some cookies when Jackie walked in. "Boy I feel better. There's nothing like a refreshing shower to relax you." .  
 
  
 
@@ -266,7 +266,7 @@
 
  Jackie couldn't answer; she just nodded and sat down. Oh my god what did she mean by punish me? She thought.As she sat down on the bench she scooted over to the middle of the seat, her dress worked its way up her legs. The slit that was down the side was now right at her crotch and exposing everything to the world. She quickly started to adjust it when Katie said, "Just leave it. I will let you know when you can cover yourself." 
 
- Katie thought for sure that her mother would finally bulk at the last command. Katie wanted to push her to the breaking point and refuse to do as told. She would then work to push her past that barrier and work to find the next one. After each barrier was crossed the more submissive her mother would be, and the less likely she could refuse to obey. Report_Story #3 
+ Katie thought for sure that her mother would finally bulk at the last command. Katie wanted to push her to the breaking point and refuse to do as told. She would then work to push her past that barrier and work to find the next one. After each barrier was crossed the more submissive her mother would be, and the less likely she could refuse to obey.  
 
  
 
@@ -354,7 +354,7 @@
 
  "I'll let you know. I want to plan it. I don't want to waste the opportunity." He answered. 
 
- "I agree" Katie replied, "It's all in the planning." Report_Story #1 
+ "I agree" Katie replied, "It's all in the planning."  
 
  
 
@@ -522,7 +522,7 @@
 
  Katie watched in fascination as her mother's orgasm coursed through her body. After about a minute all movement stopped as Jackie blacked out. Katie wondered if she pushed her too far when she heard a faint moan. A minute later Jackie rolled over and looked at the phone. "Thank you master, may I try to get back into my house now?" 
 
- "Yes slut, crawl over to the fence, climb over it into your other neighbor's yard. Go around front, do you have a garden hose in front?" Report_Story #2 
+ "Yes slut, crawl over to the fence, climb over it into your other neighbor's yard. Go around front, do you have a garden hose in front?"  
 
  
 
@@ -656,7 +656,7 @@
 
  Jackie moaned and started to pant. Her body, already excited from exposing her body to her student and watching the video, was now craving the commands. She did as she was told and locked the keys in the strong box and turned the combination knob. "OK master I did it." Jackie whispered. 
 
- "Now your punishment starts. Now I want you to put one pair of cuffs on your ankles." Katie said as she watched her mom kneel down and do as she was told. Report_Story #3 
+ "Now your punishment starts. Now I want you to put one pair of cuffs on your ankles." Katie said as she watched her mom kneel down and do as she was told.  
 
  
 
@@ -730,7 +730,7 @@
 
  Sarah took full advantage of her mother's stupor, turned her head and shoved her tongue deep into the folds of her mother's cunt. Jackie gasped and took both her hands and pushed down on her daughter's head and started to fuck her face. Sarah was now rapidly running her tongue up and down the folds till she found Jackie's clit. She immediately sucked it into her mouth and bit down. Jackie screamed as a massive climax exploded out from deep within and coursed out to all her extremities curling her toes as her muscles clinched trapping Sarah's head between her legs. Sarah's face was covered with Jackie's juices as they flooded from her pussy. She drank them down loving the flavor of her mom's fluids. 
 
- Katie moaned as her plan was working. She now had her step mom and step sister in an incestuous relationship. That pushed Katie's climax over the top and an orgasm pulsed out from her cunt throughout her body. She knew that now was the time to take things further and take complete control. Report_Story #1 
+ Katie moaned as her plan was working. She now had her step mom and step sister in an incestuous relationship. That pushed Katie's climax over the top and an orgasm pulsed out from her cunt throughout her body. She knew that now was the time to take things further and take complete control.  
 
  
 
@@ -910,7 +910,7 @@
 
  Katie watched as Sarah brought her hand back to deliver another blow when she said, "Cunt stop! Slut you want to stop your punishment?" 
 
- "OH YES MASTER PLEASE STOP IT. I'M BEGGING YOU." Report_Story #2 
+ "OH YES MASTER PLEASE STOP IT. I'M BEGGING YOU."  
 
  
 
@@ -1048,7 +1048,7 @@
 
  "Now turn around and thank cunt for properly punishing you by kneeling down and pleasuring her with your slutty tongue." 
 
- Jackie dropped to the floor and crawled over to her nearly naked daughter and pulled down her shorts. Sarah bent at the waist to give her mother access to her dripping cunt. Jackie extended her tongue and lightly licked up and down Sarah's labia. Sarah moaned as her arousal started to climb and her clit hardened and started to protrude from its hood. Jackie slipped her tongue deep inside her folds and swallowed her nectar relishing the taste and wondering what was wrong with her. She then slid up to Sarah's exposed clit and sucked it into her mouth, rapidly running her tongue over the end. Sarah was now pushing back forcing her cunt onto her mother's face. Jackie sucked the clit between her teeth and bit down. The effect was immediate as Sarah screamed, "Please master let this lowly cunt cum! Oh God Please, Please, Please let me cum master." Report_Story #3 
+ Jackie dropped to the floor and crawled over to her nearly naked daughter and pulled down her shorts. Sarah bent at the waist to give her mother access to her dripping cunt. Jackie extended her tongue and lightly licked up and down Sarah's labia. Sarah moaned as her arousal started to climb and her clit hardened and started to protrude from its hood. Jackie slipped her tongue deep inside her folds and swallowed her nectar relishing the taste and wondering what was wrong with her. She then slid up to Sarah's exposed clit and sucked it into her mouth, rapidly running her tongue over the end. Sarah was now pushing back forcing her cunt onto her mother's face. Jackie sucked the clit between her teeth and bit down. The effect was immediate as Sarah screamed, "Please master let this lowly cunt cum! Oh God Please, Please, Please let me cum master."  
 
  
 
@@ -1064,7 +1064,7 @@
 
  Both women were moving very carefully as almost anything would set them off and causing them to climax. The fear of another punishment was in the forefront of their minds and each slave was doing everything she could to please their master. Any thoughts of resistance were gone. The only thing that mattered was to get ready to drive to Karen's house to deliver cunt to her BFF mistress. 
 
- Ten minutes later, Jackie and Sarah climbed into Jackie's car, pulled out of the garage, and headed over the Karen's house. Report_Story #1 
+ Ten minutes later, Jackie and Sarah climbed into Jackie's car, pulled out of the garage, and headed over the Karen's house.  
 
  
 
@@ -1186,7 +1186,7 @@
 
  Marsha almost climaxed right there as she watched Jackie Meyer, teacher, respected mother debased herself and begged to be her slave. 
 
- "Well slave let's start with you using your talented tongue. Get up over here and eat me. I need to relieve some stress." Marsha said as she sat down on the bed and pulled up her dress. Jackie followed her mistress across the floor keeping her head down by her feet. When Marsha sat on the bed she lavished her tongue slowly up her ankles working her way up her legs. Using her hands she massaged her calves while kissing her way to the junction and her center. Marsha moaned and lay back, stretching her arms above her head, relishing the attention of her new slave. When Jackie reached Marsha's box, a moan escaped her lips as Jackie licked up and down her labia. Jackie used her hands to push her legs apart giving her total access, spreading her lips wide. Jackie's own arousal was now taking hold as she drove her tongue deep inside her mistress, drinking her fluids and loving her taste. As she slid her tongue up her slit finding her mistress's clit, she slid two fingers deep inside her. Marsha was now trembling with excitement as her body was now out of control. When the slave's fingers curled inside her and pressed her G spot her hands grabbed the back of her head using the slaves face to increase her pleasure. Just then Jackie's mouth found her clit and sucked it into her mouth, clamping her teeth down on the sensitive nub pushing Marsha over the top into an explosive orgasm. Jackie's face was now pressed into Marsha's cunt cutting off all oxygen as her head was now trapped between Marsha's legs. Jackie struggled to keep licking and sucking the pulsing center of her mistress as the world around her slowly turned black. Report_Story #2 
+ "Well slave let's start with you using your talented tongue. Get up over here and eat me. I need to relieve some stress." Marsha said as she sat down on the bed and pulled up her dress. Jackie followed her mistress across the floor keeping her head down by her feet. When Marsha sat on the bed she lavished her tongue slowly up her ankles working her way up her legs. Using her hands she massaged her calves while kissing her way to the junction and her center. Marsha moaned and lay back, stretching her arms above her head, relishing the attention of her new slave. When Jackie reached Marsha's box, a moan escaped her lips as Jackie licked up and down her labia. Jackie used her hands to push her legs apart giving her total access, spreading her lips wide. Jackie's own arousal was now taking hold as she drove her tongue deep inside her mistress, drinking her fluids and loving her taste. As she slid her tongue up her slit finding her mistress's clit, she slid two fingers deep inside her. Marsha was now trembling with excitement as her body was now out of control. When the slave's fingers curled inside her and pressed her G spot her hands grabbed the back of her head using the slaves face to increase her pleasure. Just then Jackie's mouth found her clit and sucked it into her mouth, clamping her teeth down on the sensitive nub pushing Marsha over the top into an explosive orgasm. Jackie's face was now pressed into Marsha's cunt cutting off all oxygen as her head was now trapped between Marsha's legs. Jackie struggled to keep licking and sucking the pulsing center of her mistress as the world around her slowly turned black.  
 
  
 
@@ -1288,7 +1288,7 @@
 
  Marsha was totally taken aback by her daughter actions. Although she did fantasize about submitting to another woman she never thought it would be her daughter. Now pinned against the wall as Karen mauled her tits, her arousal was climbing and her pussy was wet. "How can I be excited by Karen? How can I let this happen, do I really want to stop this? 
 
- Marsha started squirm and escape Karen's grasp, but all she was able to do was spin around and was now facing the wall with her hand pulled up behind her back. As Karen pushed Marsha hand higher up her back, Marsha was now openly crying and begging Karen to let her go. Karen then grabbed her mother's collar and pulled her over to the couch. She then pushed her over the back and pushed her legs apart. Marsha was now helpless, her head almost to the cushion and her legs spread wide. She had no leverage as Karen kept her arm firmly behind her back. As Marsha brought her other hand behind her to try to free her hand, Karen quickly pulled out a pair of handcuffs out of her pocket and cuffed her mother's hands behind her back. Karen now had her mother helpless and pulled her skirt up to her waist. She then pulled her belt out of her shorts, doubled it and brought it down on Marsha's exposed ass. Report_Story #1 
+ Marsha started squirm and escape Karen's grasp, but all she was able to do was spin around and was now facing the wall with her hand pulled up behind her back. As Karen pushed Marsha hand higher up her back, Marsha was now openly crying and begging Karen to let her go. Karen then grabbed her mother's collar and pulled her over to the couch. She then pushed her over the back and pushed her legs apart. Marsha was now helpless, her head almost to the cushion and her legs spread wide. She had no leverage as Karen kept her arm firmly behind her back. As Marsha brought her other hand behind her to try to free her hand, Karen quickly pulled out a pair of handcuffs out of her pocket and cuffed her mother's hands behind her back. Karen now had her mother helpless and pulled her skirt up to her waist. She then pulled her belt out of her shorts, doubled it and brought it down on Marsha's exposed ass.  
 
  
 
@@ -1418,7 +1418,7 @@
 
  Jackie bowed her head and said, "Yes Mistress." 
 
- Marsha closed the trunk and handed Karen Sarah's clothes if you could call them clothes. Karen grabbed a top and tied it around Sarah's tits. It consisted of a sheer veil six inches long and one foot wide. Attached to the top corners were two strings that tied around her body. The "SLUT" tattoo was in plain view. Karen then grabbed the skirt, which was in essence just a loincloth. It was two pieces of the same sheer veil material, eight inches wide and ten inches long. Each piece had two strings so they could be tied around the waist. Although they felt they were covered, the sheer material hid nothing. Report_Story #2 
+ Marsha closed the trunk and handed Karen Sarah's clothes if you could call them clothes. Karen grabbed a top and tied it around Sarah's tits. It consisted of a sheer veil six inches long and one foot wide. Attached to the top corners were two strings that tied around her body. The "SLUT" tattoo was in plain view. Karen then grabbed the skirt, which was in essence just a loincloth. It was two pieces of the same sheer veil material, eight inches wide and ten inches long. Each piece had two strings so they could be tied around the waist. Although they felt they were covered, the sheer material hid nothing.  
 
  
 
@@ -1472,7 +1472,7 @@
 
  Jackie heard Karen expose her and Sarah. She was still writhing in the floor coming down from the massive orgasm. When she heard their names her mind exploded with humiliation causing another orgasm. She felt she was no longer Jackie Meyer, teacher, but nothing more than a slut slave. 
 
- Sarah hearing Karen speaking and introducing them as slaves was just the opposite. She felt at peace. She no longer needed to hide her true self. She could now freely serve her master, as she was now truly happy and satisfied. Report_Story #1 
+ Sarah hearing Karen speaking and introducing them as slaves was just the opposite. She felt at peace. She no longer needed to hide her true self. She could now freely serve her master, as she was now truly happy and satisfied.  
 
  
 
@@ -1602,7 +1602,7 @@
 
  After the guys left, Katie walked into the hall. Jackie and Sarah were kneeling beside the door with their hands behind their heads. Katie grabbed her voice synthesizer and spoke to her slaves. I'm going to take out your contacts. Please shut your eyes when I remove them. I will let you know when you can open them. Both slaves answered in unison, "Yes Master." 
 
- Katie knelt down in front of Sarah and carefully removed each contact. Sarah obeyed and closed her eyes. She moved in front of Jackie and did the same. Katie stood and paced for a minute before she spoke again. I want you to know that I never wanted you to be outed to the world. I made a huge mistake trusting those two women. I will make it up to you. When I tell you, I want you to open your eyes. I'll then explain everything to you." Report_Story #2 
+ Katie knelt down in front of Sarah and carefully removed each contact. Sarah obeyed and closed her eyes. She moved in front of Jackie and did the same. Katie stood and paced for a minute before she spoke again. I want you to know that I never wanted you to be outed to the world. I made a huge mistake trusting those two women. I will make it up to you. When I tell you, I want you to open your eyes. I'll then explain everything to you."  
 
  
 
@@ -1610,7 +1610,7 @@
 
  Both slaves opened their eyes and blinked trying to focus. When they looked up both women gasped as they saw Katie. 
 
- "KATIE?" Report_Story #1 
+ "KATIE?"  
 
  
 

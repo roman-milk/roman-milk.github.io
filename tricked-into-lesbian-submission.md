@@ -356,7 +356,7 @@
 
  "Tell us, sweetheart, do you want to come home with us?" Chantelle asked, strange since she just told me I was going home with them. 
 
- "I don't know," I answered, which was the truth. Part of me was completely at the whim of these two...my desire to get off driving me wild and making me reckless; on the other hand, I wasn't a lesbian and even though I had had a few drinks and was definitely intoxicated, I wasn't one to make reckless choices. Report_Story #2 
+ "I don't know," I answered, which was the truth. Part of me was completely at the whim of these two...my desire to get off driving me wild and making me reckless; on the other hand, I wasn't a lesbian and even though I had had a few drinks and was definitely intoxicated, I wasn't one to make reckless choices.  
 
  
 
@@ -640,7 +640,7 @@
 
  The words sounded so strange, yet I again obeyed, leaning forward, extending my tongue and licking. It was slightly sweaty, but didn't have the appalling taste I expected. I licked it for only a few seconds before Chantelle put a harness on my head. She explained, "Laura loves getting her, what did you call it, arse fucked. So while I take your anal cherry, you will fuck hers." 
 
- I sat still until the harness was moved lower onto my mouth and I realized I now had a plastic cock poking straight out of my face. The surreal evening just continued to get more surreal, like I was living the longest, strangest dream of my life. Report_Story #3 
+ I sat still until the harness was moved lower onto my mouth and I realized I now had a plastic cock poking straight out of my face. The surreal evening just continued to get more surreal, like I was living the longest, strangest dream of my life.  
 
  
 
@@ -970,7 +970,7 @@
 
  "She was?" I asked, in complete awe of everything. 
 
- Chantelle laughed, "For such a smart girl, you can be rather dense sometimes." Report_Story #4 
+ Chantelle laughed, "For such a smart girl, you can be rather dense sometimes."  
 
  
 

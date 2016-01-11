@@ -156,7 +156,7 @@
 
  I pulled the door and was confronted by yet another door. Of course there would be two doors back to back... Damn, the disappointment bubble popped and I felt a wave of frustration at this second barrier. Maybe it was for the best? I felt a shiver of alarm when I realised fully the consequences of spying on my aunt... It was too terrible to think about. The results would have been devastating. 
 
- I was just closing the door from my side when I noticed that Adele's door was actually ajar. The door itself could only be a few millimetres out of the jamb, but it was definitely open. Once again my heart pounded, my breathing was fast and shallow and my throat went suddenly dry. All prior thoughts about consequences vanished like a magician's sleight of hand as I gazed at that tiny, tiny gap. Report_Story #2 
+ I was just closing the door from my side when I noticed that Adele's door was actually ajar. The door itself could only be a few millimetres out of the jamb, but it was definitely open. Once again my heart pounded, my breathing was fast and shallow and my throat went suddenly dry. All prior thoughts about consequences vanished like a magician's sleight of hand as I gazed at that tiny, tiny gap.  
 
  
 
@@ -342,7 +342,7 @@
 
  Adele slurped hungrily at my cock after her little outburst. She pushed me to the bed impatiently and took me into her mouth. She massaged my balls gently and slobbered her saliva over the dome of me and let the stuff dribble down my shaft until it pooled wetly at the base of my cock. Adele fellated me vigorously and I saw a silver string of goo bridging her lips and my cock when she stopped sucking for a moment. The thread linked us momentarily before the fragile strand broke, and I saw my aunt's pretty features stained with my ooze. 
 
- Report_Story #3 
+  
 
  
 

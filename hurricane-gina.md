@@ -162,7 +162,7 @@
 
  "What I am saying is that your wife might sense this lack of complete fulfillment, and she worried that you may seek it somewhere else." 
 
- "Absolutely not. I would never cheat on Jenny" I said emphatically. She nodded. Report_Story #2 
+ "Absolutely not. I would never cheat on Jenny" I said emphatically. She nodded.  
 
  
 
@@ -440,7 +440,7 @@
 
  "I'm going the speed limit." I told her. We were on a little used highway on the outskirts of town, and it was pretty deserted. 
 
- "C'mon, Matt. Live a little." Gina said, "Please, for me?" She added with a little pout. I stepped on the pedal and sped up to ten miles over the limit. Report_Story #3 
+ "C'mon, Matt. Live a little." Gina said, "Please, for me?" She added with a little pout. I stepped on the pedal and sped up to ten miles over the limit.  
 
  
 
@@ -570,7 +570,7 @@
 
  Matt's jaw was on the floor. This woman was pure evil. 
 
- "But it won't stop with the fucking. No, it'll go farther than that. With the amount of fucking we'll be doing, it'll be inevitable that I'll end up pregnant. Imagine, your mother-in-law's belly growing with your children, while your wife wonders why she just can't get pregnant too. It'll be because I'm going to leave no sperm in those balls. I'm going to milk you dry." Report_Story #4 
+ "But it won't stop with the fucking. No, it'll go farther than that. With the amount of fucking we'll be doing, it'll be inevitable that I'll end up pregnant. Imagine, your mother-in-law's belly growing with your children, while your wife wonders why she just can't get pregnant too. It'll be because I'm going to leave no sperm in those balls. I'm going to milk you dry."  
 
  
 
@@ -670,7 +670,7 @@
 
  "Yes. YES! I'll do whatever you want! Just fuck me." I screamed out, my voice hoarse. 
 
- "But, just so were clear." Kiss. "You want to get me pregnant, right?" Kiss. "You want me to have your babies?" Kiss. "You want to breed with me?" Kiss. "Breed with your own mother-in-law?" Kiss. "You want your mother-in-law to be the mother of your children?" Kiss. "Is that what you want?" Kiss. Report_Story #5 
+ "But, just so were clear." Kiss. "You want to get me pregnant, right?" Kiss. "You want me to have your babies?" Kiss. "You want to breed with me?" Kiss. "Breed with your own mother-in-law?" Kiss. "You want your mother-in-law to be the mother of your children?" Kiss. "Is that what you want?" Kiss.  
 
  
 
@@ -800,7 +800,7 @@
 
  "Cum in me now! Do it!" she commanded. I couldn't disobey and I started to cum, hard. I was exhausted by the time I finished. Dr. White checked on Jenny. She then called an ambulance. 
 
- I didn't realize the extent of Gina's plan till we got to the hospital. Jenny was fine, physically. But Gina told me to lie, to tell her that I had been in the room alone when she came in and passed out. Dr. White backed up the story, telling her that she had a recurrence of a dream, this time as a hallucination. She suggested she check into a mental health institute for some tests. Jenny seemed skeptical at first but she then believed us. She trusted us. I couldn't believe what happened. Jenny had caught me fucking her mom, and we had convinced her she had dreamt it all up. When I realized how naïve Jenny truly was, I realized my love for her was fading. Report_Story #6 
+ I didn't realize the extent of Gina's plan till we got to the hospital. Jenny was fine, physically. But Gina told me to lie, to tell her that I had been in the room alone when she came in and passed out. Dr. White backed up the story, telling her that she had a recurrence of a dream, this time as a hallucination. She suggested she check into a mental health institute for some tests. Jenny seemed skeptical at first but she then believed us. She trusted us. I couldn't believe what happened. Jenny had caught me fucking her mom, and we had convinced her she had dreamt it all up. When I realized how naïve Jenny truly was, I realized my love for her was fading.  
 
  
 

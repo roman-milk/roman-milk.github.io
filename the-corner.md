@@ -136,7 +136,7 @@
 
  The nightshirt goes over my head and falls down to just below my bare cheeks. His girlfriend must be shorter than me. Next, he has me step into the Tinker Belle panty, which is tight around my cheeks. It is exposes the bottom of my buttocks. He then gets a pacifier and secures it in my mouth. It has an elastic band, which he secures around the backs of head, so the pacifier cannot slip out of my mouth. He then secures locking mittens on my hands, so I cannot masturbate he explains. 
 
- I am led to bed and enter it with a loud slap to my lower cheeks. "Do not get up until someone comes for you Young Lady," He orders. I just shake my head totally submissive and controlled by my Master. Ten minutes later I am fast asleep. Report_Story #1 
+ I am led to bed and enter it with a loud slap to my lower cheeks. "Do not get up until someone comes for you Young Lady," He orders. I just shake my head totally submissive and controlled by my Master. Ten minutes later I am fast asleep.  
 
  
 
@@ -262,7 +262,7 @@
 
  Paddles Restaurant was named after the owner Susan Paddles, who was 48 with slightly wide hips, but a beautiful figure. She was a single Mother of two 25 year old twin girls. Master indicated he has spanked all three upon occasion, so he expected and received much respect. As we reached the restaurant Master gave us a look as if to say 'be on your best behavior.' 
 
- We entered the restaurant and are met by the owner "Hello Sir." She acknowledged Master, and ignored us. "Your regular table is ready as you requested Sir," She said and curtsied low, as she quickly raised her short skirt giving us a flash of what looked like white cotton panties. Report_Story #2 
+ We entered the restaurant and are met by the owner "Hello Sir." She acknowledged Master, and ignored us. "Your regular table is ready as you requested Sir," She said and curtsied low, as she quickly raised her short skirt giving us a flash of what looked like white cotton panties.  
 
  
 

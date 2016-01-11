@@ -288,7 +288,7 @@
 
  "No Rob, none of that. There were two conventions and a seminar going on at the hotel where I was staying. The people I was there seeing took me to dinner and we ended up in the hotel lounge. The place was packed because of the conventions and seminar and there were no empty tables. Elise saw someone she knew sitting at a table and there were three empty seats which would work for Elise, Bev and me so Elise walked over and asked if we could join him. There were two guys sitting there, Ralph, who was the guy she knew and Stu. We ordered drinks and talked for a bit. The guys asked us to dance and it did seem only fair since they did let us join them. I danced several dances with both men and then Elise had to go. Half an hour later Bev and Ralph, who had apparently connected, got up and left. 
 
- "I was enjoying myself and was in no hurry to go up to my room so I stayed at the table with Stu. We danced some more and now that we were alone he started putting some moves on me. At first I didn't care because I knew he wasn't going to get anywhere, but as the evening wore on I started thinking "why not?" It would be exciting and no one would be hurt by it. Just a little illicit sex with a guy I'd never see again. Just the thought of cheating had my panties wet. Finally I just looked him in the eye and asked him if he was going to keep on playing games or was he going to ask me up to his room. Ten minutes later I was naked on his bed. I won't lie to you Rob. The sex was awesome. I had three strong orgasms before we finished and as I walked back to my room I had a big smile on my face. Report_Story #2 
+ "I was enjoying myself and was in no hurry to go up to my room so I stayed at the table with Stu. We danced some more and now that we were alone he started putting some moves on me. At first I didn't care because I knew he wasn't going to get anywhere, but as the evening wore on I started thinking "why not?" It would be exciting and no one would be hurt by it. Just a little illicit sex with a guy I'd never see again. Just the thought of cheating had my panties wet. Finally I just looked him in the eye and asked him if he was going to keep on playing games or was he going to ask me up to his room. Ten minutes later I was naked on his bed. I won't lie to you Rob. The sex was awesome. I had three strong orgasms before we finished and as I walked back to my room I had a big smile on my face.  
 
  
 
@@ -324,7 +324,7 @@
 
  I got up and went out to the garage to find something that would keep me busy and away from Ellen. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -508,7 +508,7 @@
 
  The morning? Oh yes. He stayed with me until one o'clock the next afternoon and when he left my room I was one satisfied lady. At one point he said: 
 
- "I see that the good life is catching up with you" and he pointed at the slight bulge of my stomach. "It is sexy. Good food?" Report_Story #2 
+ "I see that the good life is catching up with you" and he pointed at the slight bulge of my stomach. "It is sexy. Good food?"  
 
  
 
@@ -556,7 +556,7 @@
 
  I smiled and lowered my head to his cock. After Stu had gone and I was taking a shower I convinced myself that I wouldn't have let Stu in the room if Rob and I were still together. At least I think I convinced myself. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -862,7 +862,7 @@
 
  "Can't help it babe, it is true. Even at eight months pregnant you are still the sexiest woman I've ever seen. How could any man in his right mind let you go?" 
 
- "I'm serious Stu; leave him alone. The only reason you are where you are right now is that I haven't been laid since the last time you were here and being pregnant has made me even hornier than I usually am. Settle for what you have Stu and if you want me to stay you will not mention Rob again. Are we clear on that?" Report_Story #2 
+ "I'm serious Stu; leave him alone. The only reason you are where you are right now is that I haven't been laid since the last time you were here and being pregnant has made me even hornier than I usually am. Settle for what you have Stu and if you want me to stay you will not mention Rob again. Are we clear on that?"  
 
  
 

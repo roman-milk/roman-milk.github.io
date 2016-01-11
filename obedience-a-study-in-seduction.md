@@ -262,7 +262,7 @@
 
  "I only want the best of everything, Mindy," Carolyn said, sliding her hand out from underneath the girl's dress, and standing up. "And I think you may very well fit into the descriptor." 
 
- Mindy was speechless. She looked up at the pretty woman, a sudden disappointment that she was leaving filling her. Report_Story #2 
+ Mindy was speechless. She looked up at the pretty woman, a sudden disappointment that she was leaving filling her.  
 
  
 
@@ -546,7 +546,7 @@
 
  Mindy moved to the sash, her hands trembling slightly. She undid the robe slowly. 
 
- Carolyn watched with satisfaction at the young woman's nervousness and yet also completely intoxicated facial expression. A look that could only happen that first time... like the first time you ate chocolate or a pussy. Report_Story #3 
+ Carolyn watched with satisfaction at the young woman's nervousness and yet also completely intoxicated facial expression. A look that could only happen that first time... like the first time you ate chocolate or a pussy.  
 
  
 
@@ -810,7 +810,7 @@
 
  Carolyn allowed her pet to enjoy the orgasm before getting up and going to her suitcase for what she never left home without... her strap-on cock. (Now that would be a great American Express commercial) 
 
- Mindy felt her Mistress leave and yet she didn't move at all. The orgasm seemed to just keep going and going, and she refused to move until it ended. Report_Story #4 
+ Mindy felt her Mistress leave and yet she didn't move at all. The orgasm seemed to just keep going and going, and she refused to move until it ended.  
 
  
 
@@ -1066,7 +1066,7 @@
 
  "Come finish what Chloe started," Samantha ordered, her legs still spread open. 
 
- Report_Story #5 
+  
 
  
 
@@ -1314,7 +1314,7 @@
 
  "Thank you, Treena," Scarlett said, taking the package. 
 
- Scarlett moved her leg back down and opened the package. Report_Story #6 
+ Scarlett moved her leg back down and opened the package.  
 
  
 

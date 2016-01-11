@@ -132,7 +132,7 @@
 
  "Better?" he asked. 
 
- "Yes, thank you Captain," she replied with a smile. "Much better." Report_Story #2 
+ "Yes, thank you Captain," she replied with a smile. "Much better."  
 
  
 

@@ -160,7 +160,7 @@
 
  Louise knelt at one side of the couple and indicated for me to take a position next to her. 'Let's watch this together, Ricky,' she whispered to me and kissed me fast and hard on the mouth. I put my arms around her trim body and felt my aching cock butt against her belly where it was sandwiched between us. Louise looked down between our bodies and giggled. 'Looks like you're gonna burst soon, baby. That's a nice sized cock you've got there too. I bet it's gonna feel so good inside me.' She kissed me again and then turned her attention to her husband and my girlfriend. 
 
- I could only watch and take comfort from the proximity of the desirable woman next to me. I was dimly aware that if I were to realise my urgent ambition to possess the American, then I would have to surrender any right to Carol. Anyway, that question seemed academic since Carol was so eagerly offering herself to Lee. Report_Story #2 
+ I could only watch and take comfort from the proximity of the desirable woman next to me. I was dimly aware that if I were to realise my urgent ambition to possess the American, then I would have to surrender any right to Carol. Anyway, that question seemed academic since Carol was so eagerly offering herself to Lee.  
 
  
 

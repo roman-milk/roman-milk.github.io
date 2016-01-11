@@ -110,7 +110,7 @@
 
  Watching Mom fucking David, I just knew in my heart, my Daddy needed me to fuck him. It was just meant to be! 
 
- Mom had her hand reached down to her pussy, rubbing her clit or spreading her lips or something, as she humped David's dick. She had her other arm straight out in front of her, the hand on the wall behind the sofa, keeping her torso upright while she smashed her big fake tits into his mouth. I could hear David moaning and licking her tits, probably sucking her hard nipples, while my Mom's cunt rode his hard adult erection. The two of them were energetic, moaning loudly and gyrating together in unison on the leather sofa, feeling the tightness of her pussy surrounding his throbbing big dick. Report_Story #2 
+ Mom had her hand reached down to her pussy, rubbing her clit or spreading her lips or something, as she humped David's dick. She had her other arm straight out in front of her, the hand on the wall behind the sofa, keeping her torso upright while she smashed her big fake tits into his mouth. I could hear David moaning and licking her tits, probably sucking her hard nipples, while my Mom's cunt rode his hard adult erection. The two of them were energetic, moaning loudly and gyrating together in unison on the leather sofa, feeling the tightness of her pussy surrounding his throbbing big dick.  
 
  
 

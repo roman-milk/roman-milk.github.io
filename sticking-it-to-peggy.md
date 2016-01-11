@@ -148,7 +148,7 @@
 
  "Don't worry Rob; it will be okay. I promise." 
 
- That afternoon I got a call from Tom asking me to have a drink with him after work. Talk about awkward. Try sitting down with a guy you have known for twenty years, who is a good friend and whose wife you have just screwed with his knowledge. He must have known what I was thinking so he cut right to it. Report_Story #2 
+ That afternoon I got a call from Tom asking me to have a drink with him after work. Talk about awkward. Try sitting down with a guy you have known for twenty years, who is a good friend and whose wife you have just screwed with his knowledge. He must have known what I was thinking so he cut right to it.  
 
  
 
@@ -294,7 +294,7 @@
 
  "Doesn't matter what they say Peg. Here is the way it will work. You will have to get a lawyer and sue me for divorce to get me into court so the court can issue an order as to the division of assets. As soon as you sue I will counter sue. A good lawyer can stall things for six to eight months and during that time you will be paying your lawyer. Can you afford to pay him to get nothing? I have all the evidence I need to fight you in court and if I win you will take it in the ass. Worst case scenario for me is that I'm ordered to split the assets. I say "okay judge" and leave the court. 
 
- "You and your lawyer wait and wait and wait for the money, but the money never comes. You call me, but I don't take your calls so your lawyer, who you are still paying, goes back to court and gets a court order telling me to pay by such and such time. You and the lawyer wait and wait and when the deadline arrives you still haven't gotten a dime from me. Report_Story #3 
+ "You and your lawyer wait and wait and wait for the money, but the money never comes. You call me, but I don't take your calls so your lawyer, who you are still paying, goes back to court and gets a court order telling me to pay by such and such time. You and the lawyer wait and wait and when the deadline arrives you still haven't gotten a dime from me.  
 
  
 

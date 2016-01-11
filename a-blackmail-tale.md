@@ -182,7 +182,7 @@
 
  ====== 
 
- Won't you take just a moment out to vote? Thanks! Report_Story #1 
+ Won't you take just a moment out to vote? Thanks!  
 
  
 
@@ -484,7 +484,7 @@
 
  When I felt I was fully hard, I rolled over with her beneath me. I lifted her legs up over my shoulders, and gave her another leisurely fuck, this time taking my time enjoying the amazing sensation of my prick slowly piercing her over and over. I looked down and took in the view of my wet pole disappearing inside her. She was malleable and loose, almost semi-conscious, when I rolled her on her side, and continued in that position. Now I was doing the fucking, using her, and enjoying every stroke I laid to her. 
 
- She looked beautiful and disheveled, and the thought of being able to use her on demand, and some of the things I had in mind for her started to get my blood boiling again. I turned her again, on her belly this time, and tucked her legs up under her, exposing her completely to my desires. I re-entered her from behind and pounded away, holding her by the hips and pulling her back against my forward thrusts. I leaned forward, grabbing her shoulders and pulling her back against my thrusts, arching her back. My hands traveled down her shoulders, across her upper arms, down to her wrists. I pulled her wrists back behind her, forcing her upper body down against the mattress. I could see the edge of her big tits splayed out to each side as they were crushed against the sheets. I took both her wrists in one of my hands at the small of her back, using it for leverage as I continued my pummelling of her previously unspoiled pussy. Report_Story #2 
+ She looked beautiful and disheveled, and the thought of being able to use her on demand, and some of the things I had in mind for her started to get my blood boiling again. I turned her again, on her belly this time, and tucked her legs up under her, exposing her completely to my desires. I re-entered her from behind and pounded away, holding her by the hips and pulling her back against my forward thrusts. I leaned forward, grabbing her shoulders and pulling her back against my thrusts, arching her back. My hands traveled down her shoulders, across her upper arms, down to her wrists. I pulled her wrists back behind her, forcing her upper body down against the mattress. I could see the edge of her big tits splayed out to each side as they were crushed against the sheets. I took both her wrists in one of my hands at the small of her back, using it for leverage as I continued my pummelling of her previously unspoiled pussy.  
 
  
 
@@ -508,7 +508,7 @@
 
  ---------------------- 
 
- I enjoyed writing this little vignette. If you enjoyed reading it let me know! A vote works great. As does email. Thanks to all. Report_Story #1 
+ I enjoyed writing this little vignette. If you enjoyed reading it let me know! A vote works great. As does email. Thanks to all.  
 
  
 
@@ -738,7 +738,7 @@
 
  "It's not always like that, is it? I mean, doing the butt thingy." She asked curiously. 
 
- "Hardly. Never really. Not even close. You were pretty incredible," I told her. She was stretched out beside me, laying on her belly, and I reached down to rub those curvaceous cheeks of her tempting tail. My finger had a mind of it's own, as it preceded to lodge itself inside her butt again. She just gave a delicious little 'mmmm', and wiggled so I could get it a little deeper. Report_Story #2 
+ "Hardly. Never really. Not even close. You were pretty incredible," I told her. She was stretched out beside me, laying on her belly, and I reached down to rub those curvaceous cheeks of her tempting tail. My finger had a mind of it's own, as it preceded to lodge itself inside her butt again. She just gave a delicious little 'mmmm', and wiggled so I could get it a little deeper.  
 
  
 
@@ -758,7 +758,7 @@
 
  ================ 
 
- Hope you liked it. If you did, won't you vote? Report_Story #1 
+ Hope you liked it. If you did, won't you vote?  
 
  
 
@@ -992,7 +992,7 @@
 
  "No way buddy! Your 30 minutes are up." She laughed. Then she leaned in and kissed me again. 
 
- When we broke I teased her, "We're here, you're naked, the deed's done. Let's just play for a bit longer. All debts are paid, this is just because we can." Report_Story #2 
+ When we broke I teased her, "We're here, you're naked, the deed's done. Let's just play for a bit longer. All debts are paid, this is just because we can."  
 
  
 
@@ -1040,7 +1040,7 @@
 
  ------ 
 
- The confrontation, next. Thanks for the encouragement and keep voting! Report_Story #1 
+ The confrontation, next. Thanks for the encouragement and keep voting!  
 
  
 
@@ -1226,7 +1226,7 @@
 
  I lifted Donna's top leg up over my shoulder and I started working her pussy over. I closed my eyes and just enjoyed the feelings, the sensation of being inside this sweet young thing. I didn't try anything fancy, just fucked away, slow and steady, my entire being distilled into the point of contact where I entered and filled her. 
 
- Krista was moaning her encouragement to her novice fur-licker. I sped up, lost in the feeling, a tension building under my balls, knowing I could come like this. I had no reason to hold back, and sped up yet again, now pounding her hard, fiercely, feeling the tension spreading to my thighs, up my abs, gathering in my buns. Report_Story #2 
+ Krista was moaning her encouragement to her novice fur-licker. I sped up, lost in the feeling, a tension building under my balls, knowing I could come like this. I had no reason to hold back, and sped up yet again, now pounding her hard, fiercely, feeling the tension spreading to my thighs, up my abs, gathering in my buns.  
 
  
 
@@ -1286,7 +1286,7 @@
 
  ---- 
 
- Enjoyed the story? Please vote. And watch for the next story in the cycle, which will be out soon. Report_Story #1 
+ Enjoyed the story? Please vote. And watch for the next story in the cycle, which will be out soon.  
 
  
 
@@ -1500,7 +1500,7 @@
 
  Abby leaned over and as she reached out to touch Rich's member, Krista pulled her hand away. Abby stroked him slowly at first, and then finally she leaned in and took him in her mouth. She sucked his little cock tentatively at first, and then more and more aggressively. And all the while, Krista spoke to him. 
 
- "You like that? You like that strange mouth sucking your cock. Taking that whole dirty cock of yours in her nasty mouth. You'd like me to do that wouldn't you? You want me to let you poke your dick in my mouth. That and in my butt, too, right? She takes it in her dirty little ass. I bet she'd let you fuck her there. In her filthy tight little butt-hole. Is that why you had to have her? Because I wouldn't suck you? Because I wouldn't let you stick that prick of yours in my butt? Is that why? She doesn't mind though, does she. She likes it that way. She likes to have a cock in her mouth. Slut." Krista's monologue was spoken softly, and almost without feeling. Report_Story #2 
+ "You like that? You like that strange mouth sucking your cock. Taking that whole dirty cock of yours in her nasty mouth. You'd like me to do that wouldn't you? You want me to let you poke your dick in my mouth. That and in my butt, too, right? She takes it in her dirty little ass. I bet she'd let you fuck her there. In her filthy tight little butt-hole. Is that why you had to have her? Because I wouldn't suck you? Because I wouldn't let you stick that prick of yours in my butt? Is that why? She doesn't mind though, does she. She likes it that way. She likes to have a cock in her mouth. Slut." Krista's monologue was spoken softly, and almost without feeling.  
 
  
 
@@ -1594,7 +1594,7 @@
 
  ---------- 
 
- How crazy can things get? If you're enjoying the story, please vote. Report_Story #1 
+ How crazy can things get? If you're enjoying the story, please vote.  
 
  
 
@@ -1840,7 +1840,7 @@
 
  She enjoyed tooling around the open field beside the parking lot, getting a feel for the throttle and braking. She was a bit exposed, wearing a skirt as she was. At first she was constantly grabbing at it, trying to hold it down, sitting on it, trying to keep it from flapping in the wind. It was a hopeless case, and she eventually gave up. After that it was almost constantly up around her waist, leaving her completely exposed. 
 
- When I felt she had a feel for the ride, I indicated a main trail to head down. Obviously not very used, it wasn't in horrible shape, and taking it slow it was a pretty easy ride. While we rolled slowly along, I let my hands wander up under her shirt, and eventually pulled it up over her breasts, leaving her exposed both top and bottom. She gave no resistance. Far from it, she leaned into my hands while I toyed with her breasts. About a mile up the trail it opened into another clearing and I had her stop. Report_Story #2 
+ When I felt she had a feel for the ride, I indicated a main trail to head down. Obviously not very used, it wasn't in horrible shape, and taking it slow it was a pretty easy ride. While we rolled slowly along, I let my hands wander up under her shirt, and eventually pulled it up over her breasts, leaving her exposed both top and bottom. She gave no resistance. Far from it, she leaned into my hands while I toyed with her breasts. About a mile up the trail it opened into another clearing and I had her stop.  
 
  
 
@@ -2074,7 +2074,7 @@
 
  ------------- 
 
- Go ahead, Vote. You know you want to do it. Report_Story #1 
+ Go ahead, Vote. You know you want to do it.  
 
  
 
@@ -2390,7 +2390,7 @@
 
  "Master has a deeper meaning than that. Complete servitude, ownership." I tried to explain. "If you want to have a term of respect for me, you can just call me, Sir." 
 
- Buried in her tight twat, once again I played with her butthole, while she squirmed underneath me. The next stroke of her pussy, I matched with a finger deep penetration of her ass. Report_Story #2 
+ Buried in her tight twat, once again I played with her butthole, while she squirmed underneath me. The next stroke of her pussy, I matched with a finger deep penetration of her ass.  
 
  
 
@@ -2528,7 +2528,7 @@
 
  Where from here? Will Krista be welcomed into the marriage bed? Will Donna behave? Will Abby continue to expose her seamier side. 
 
- Voting is certainly one way to indicate you'd like to read more, (hint). Report_Story #1 
+ Voting is certainly one way to indicate you'd like to read more, (hint).  
 
  
 
@@ -2734,7 +2734,7 @@
 
  "I'm a slut for his cock, his big fat tasty cock," she moaned. 
 
- Krista reached behind her and pushed me away, holding me just out of reach. She reached her hand around the head of my clock, squeezing it, stopping me from sliding back into our pretty little blonde friend. "Beg for it, you dirty little slut. Beg me for my husband's thick cock. Beg me to let him fuck you," Krista growled. Report_Story #2 
+ Krista reached behind her and pushed me away, holding me just out of reach. She reached her hand around the head of my clock, squeezing it, stopping me from sliding back into our pretty little blonde friend. "Beg for it, you dirty little slut. Beg me for my husband's thick cock. Beg me to let him fuck you," Krista growled.  
 
  
 
@@ -2882,7 +2882,7 @@
 
  ======= 
 
- I hope you enjoyed that as much as I did. I know it's not likely, what with me having the lovely Misty, Krista and Abby helping at this end. Still, if you did enjoy it, please vote. Report_Story #1 
+ I hope you enjoyed that as much as I did. I know it's not likely, what with me having the lovely Misty, Krista and Abby helping at this end. Still, if you did enjoy it, please vote.  
 
  
 
@@ -3126,7 +3126,7 @@
 
  "I almost wish Misty was here, I couldn't believe how easily she took him," Abby said, stroking my cock while they talked. 
 
- "Fuck her," Krista said almost angrily, "I don't want her here - if she's in bed with us, I can't help wondering if we're screwing half of Plano. God only knows who she's been with." Report_Story #2 
+ "Fuck her," Krista said almost angrily, "I don't want her here - if she's in bed with us, I can't help wondering if we're screwing half of Plano. God only knows who she's been with."  
 
  
 
@@ -3218,7 +3218,7 @@
 
  ============= 
 
- Votes, comments and emails are the only way we can tell if we're delivering what you'd like to read. If you enjoy the story, please let us know. Report_Story #1 
+ Votes, comments and emails are the only way we can tell if we're delivering what you'd like to read. If you enjoy the story, please let us know.  
 
  
 
@@ -3438,7 +3438,7 @@
 
  "Someday, I think. You are learning," I told her, grabbing Krista's hips I started to long stroke her incredibly tight asshole. 
 
- "Now if you'll just lay down in front of her, I'm sure Krista will thank you for taking care of her." Report_Story #2 
+ "Now if you'll just lay down in front of her, I'm sure Krista will thank you for taking care of her."  
 
  
 
@@ -3630,7 +3630,7 @@
 
  Hope you enjoyed this installment. Don't you love it when a plan comes together? 
 
- And remember, votes are always welcome! Report_Story #1 
+ And remember, votes are always welcome!  
 
  
 
@@ -3922,7 +3922,7 @@
 
  I did my best, screwing her standing, then laying her down on the side and taking her like that, finally bending her over the side and fucking her from behind, much as I had done with Misty. She had a wonderful full ass, and I reveled in squeezing her full butt cheeks while plowing her from behind. I finally found a wonderful rhythm, giving her several minutes of long deep strokes, which had her coming for me again, almost crying now. 
 
- "I'm almost there," I warned her. "Can I come in you?" Report_Story #2 
+ "I'm almost there," I warned her. "Can I come in you?"  
 
  
 
@@ -4052,7 +4052,7 @@
 
  Is it really possible to have your cake and eat it too? The story is developing and the next two chapters are almost complete. 
 
- And as always - please vote. Thanks. Report_Story #1 
+ And as always - please vote. Thanks.  
 
  
 

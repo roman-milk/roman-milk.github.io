@@ -170,7 +170,7 @@
 
  But he was sure he'd clicked on the Properties tab and selected Hidden in the appropriate menu. Although, there it was plain as day against the black background of the desktop: a yellow folder entitled Incest. It couldn't be any more obvious; he hadn't even tried to disguise the folder with another name. 
 
- "Oh ... Oh, shit," Carl moaned, appalled at the lapse, mortified by the potential for discovery by a third party. Report_Story #2 
+ "Oh ... Oh, shit," Carl moaned, appalled at the lapse, mortified by the potential for discovery by a third party.  
 
  
 
@@ -348,7 +348,7 @@
 
  WHEN HIS mother returned home, Carl was in front of the computer. He'd lost track of the time, keen to get on and write some more of his Valentine's Day saga. He used the medium to exorcise his fantasies about his mother, combining what he saw in the videos with her physical features. 
 
- "Shit," Carl muttered, the pointer on the screen going up to the top right-hand corner. When the box opened up in front of him, Carl chose the Save option, and then went through the slightly convoluted process of hiding his folder -- He really should get round to buying that flash-drive. Report_Story #3 
+ "Shit," Carl muttered, the pointer on the screen going up to the top right-hand corner. When the box opened up in front of him, Carl chose the Save option, and then went through the slightly convoluted process of hiding his folder -- He really should get round to buying that flash-drive.  
 
  
 
@@ -532,7 +532,7 @@
 
  The unfamiliarly depilated state of her vulva felt cool and vulnerable as Louise sat at the kitchen table, the brief denim skirt high on her thighs, its brevity as short as her confidence. She couldn't help but sip red wine, surprising herself by downing an entire bottle, a third of her stock but which left her unusually unaffected. 
 
- For Louise, although she couldn't know it, the day dragged along in the same way it did for her son. She thought the half-hour would never arrive, Carl's usual knock-off time of five-thirty. But then it arrived and she waited some more, and, like Carl, she wondered where the time had gone. The day had passed in a fugue. Report_Story #4 
+ For Louise, although she couldn't know it, the day dragged along in the same way it did for her son. She thought the half-hour would never arrive, Carl's usual knock-off time of five-thirty. But then it arrived and she waited some more, and, like Carl, she wondered where the time had gone. The day had passed in a fugue.  
 
  
 

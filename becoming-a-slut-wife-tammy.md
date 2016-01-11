@@ -204,7 +204,7 @@
 
  "I'm guessing that somehow you told Barney about it?" 
 
- "He saw her when she was out on one of her dates and like a good friend he told me about it and then I had to explain to him that it was okay with me." Report_Story #2 
+ "He saw her when she was out on one of her dates and like a good friend he told me about it and then I had to explain to him that it was okay with me."  
 
  
 
@@ -412,7 +412,7 @@
 
  Things were a little cool around our house for the couple of days. Barney knew I was pissed so he stepped lightly around me. I was pissed, but not for the reason he thought. He thought I was mad over him pushing me into something I didn't want to do and he was partly right. I hadn't wanted to do it because I knew deep in my brain that he couldn't handle it, but what I was really pissed over was that he made it happen - awoke the demons inside me - and then didn't want to continue. I couldn't let him know that though. I was just going to have to force my slut side back into the dungeon where I'd kept her since the day I married Barney. 
 
- But how was I supposed to bury my inner slut when every waking minute I was thinking of Stan's cock in my mouth, my pussy and especially, in my ass? Don't misunderstand me here, I wasn't thinking of Stan, I was thinking of his cock. Stan was a nobody to me, but I had loved having a cock in my ass after all those years and I'd had marvelous orgasms when I was doubly penetrated and several times over the next to days thinking about it ended up with me in the bathroom masturbating. Report_Story #3 
+ But how was I supposed to bury my inner slut when every waking minute I was thinking of Stan's cock in my mouth, my pussy and especially, in my ass? Don't misunderstand me here, I wasn't thinking of Stan, I was thinking of his cock. Stan was a nobody to me, but I had loved having a cock in my ass after all those years and I'd had marvelous orgasms when I was doubly penetrated and several times over the next to days thinking about it ended up with me in the bathroom masturbating.  
 
  
 

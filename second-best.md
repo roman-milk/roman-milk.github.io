@@ -216,7 +216,7 @@
 
  "Mom and dad keep an eye on their house while they are gone. Dale's mom and dad call and check in with my folks about once a week. They called the middle of last week and one of the things they told my mom when she talked with them was that they had made a last minute change in their summer travel plans. They didn't go to California. They went up to Canada instead. They called from Quebec. Dale was never in San Diego. Dale was never in California at all. Belinda lied to you." 
 
- Even in the dark car I could see her face pale as the realization of what I'd just said hit her. Report_Story #2 
+ Even in the dark car I could see her face pale as the realization of what I'd just said hit her.  
 
  
 
@@ -402,7 +402,7 @@
 
  At the end of a couple of months it was obvious to me that, unless they had found some way to do it at work, that physically Grace had not cheated on me. But it was equally obvious to me as evidenced by the longer and hotter make out sessions that she eventually would. I spent many sleepless nights lying there in our bed and thinking about it. Confrontation was not an option for me. Confrontation would force things out into the open and I did not want that. I had to know what Grace would choose and that meant that I had to let her run free. All I could do was watch and wait and hope that she chose me. Easier said than done. 
 
- As time went by and I saw the kisses getting longer and longer it was obvious to me that Grace was making her choice and it wasn't going to be me. For me it boiled down to confrontation or just walking away. But what if confrontation made her feel guilty and she stayed with me because of that guilt? What if she stayed with me, but forever held it against me for keeping her from what she would have really preferred? There were so many of those damned "what ifs" and the bottom line was that I couldn't stay with some one who didn't want me and the longer and longer make out sessions between Grace and Dale told me that she would rather be with him than me and she just hadn't yet got to the point where it was time to tell me. Report_Story #3 
+ As time went by and I saw the kisses getting longer and longer it was obvious to me that Grace was making her choice and it wasn't going to be me. For me it boiled down to confrontation or just walking away. But what if confrontation made her feel guilty and she stayed with me because of that guilt? What if she stayed with me, but forever held it against me for keeping her from what she would have really preferred? There were so many of those damned "what ifs" and the bottom line was that I couldn't stay with some one who didn't want me and the longer and longer make out sessions between Grace and Dale told me that she would rather be with him than me and she just hadn't yet got to the point where it was time to tell me.  
 
  
 
@@ -586,7 +586,7 @@
 
  The bed shifted and it woke me up and I started to sit up, but an arm went across my chest and Grace's voice came at me out of the darkness. 
 
- "Relax baby, it is just me." She snuggled up next to me and said, "This is where I'm supposed to be baby; this is where I need to be." Report_Story #4 
+ "Relax baby, it is just me." She snuggled up next to me and said, "This is where I'm supposed to be baby; this is where I need to be."  
 
  
 

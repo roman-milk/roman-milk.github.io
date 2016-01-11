@@ -228,7 +228,7 @@
 
  "Well you are right about one thing Amy, you are certainly going to need the security because we are through. There might have been a chance -- a real small one -- that we might have survived your having an affair. I could maybe understand and forgive that. But I can't accept what you have been doing, no way." 
 
- "If you try to divorce me Sam I'll fight you every step of the way. I'll get the best divorce lawyer around and I'll fight it. I love you and I know that you love me and I know that we can work through this." Report_Story #2 
+ "If you try to divorce me Sam I'll fight you every step of the way. I'll get the best divorce lawyer around and I'll fight it. I love you and I know that you love me and I know that we can work through this."  
 
  
 

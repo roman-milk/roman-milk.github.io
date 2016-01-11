@@ -256,7 +256,7 @@
 
  "In what way?" 
 
- "We haven't done any anal yet baby, and there are still some positions we didn't get to. How about we get together Tuesday? Call me tomorrow around four and we can set it up." Report_Story #2 
+ "We haven't done any anal yet baby, and there are still some positions we didn't get to. How about we get together Tuesday? Call me tomorrow around four and we can set it up."  
 
  
 
@@ -328,7 +328,7 @@
 
  Life was good. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -536,7 +536,7 @@
 
  Jennie had just enough wine in her to let it all come out and when she was done Alice said: 
 
- "Oh you poor kid. I'm sorry and I'll talk to the other girls. We like Martin. He's a good looking guy and he's fun to flirt with and if he wasn't married to you a lot of the girls would probably be fighting to see who could land him, but none of us are going to try and steal your man. As far as the rest of it goes I don't know. Maybe we need to give Martin a wake up call." Report_Story #2 
+ "Oh you poor kid. I'm sorry and I'll talk to the other girls. We like Martin. He's a good looking guy and he's fun to flirt with and if he wasn't married to you a lot of the girls would probably be fighting to see who could land him, but none of us are going to try and steal your man. As far as the rest of it goes I don't know. Maybe we need to give Martin a wake up call."  
 
  
 
@@ -732,7 +732,7 @@
 
  "Hello Frank. Busy tonight, or could you stop by." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -986,7 +986,7 @@
 
  "Thanks for the thought, but a raise to regional managers pay isn't going to be all that significant." 
 
- "Maybe not a regional managers pay, but that's not what I intend to give you. You won't take a promotion to vice president, but you are going to get a vice presidents salary and benefits. You saved my company sweetie. You can "Aw shucks, it wasn't really me" all you want, but it wouldn't have happened without you and you know it. It all happened because you - you Martin - you said you would help me with my Angela problem. Everything that happened came out of your agreeing to help me and you will never convince me otherwise so don't even try." Report_Story #2 
+ "Maybe not a regional managers pay, but that's not what I intend to give you. You won't take a promotion to vice president, but you are going to get a vice presidents salary and benefits. You saved my company sweetie. You can "Aw shucks, it wasn't really me" all you want, but it wouldn't have happened without you and you know it. It all happened because you - you Martin - you said you would help me with my Angela problem. Everything that happened came out of your agreeing to help me and you will never convince me otherwise so don't even try."  
 
  
 
@@ -1148,7 +1148,7 @@
 
  "Hey, what are friends for? So, how does it feel knowing that you are going to be a daddy?" 
 
- "It still hasn't caught up to me yet. Come on. Let's get the other two and play some Euchre." Report_Story #1 
+ "It still hasn't caught up to me yet. Come on. Let's get the other two and play some Euchre."  
 
  
 
@@ -1358,7 +1358,7 @@
 
  Jennie had just enough wine in her to let it all come out and when she was done Alice said: 
 
- "Oh you poor kid. I'm sorry and I'll talk to the other girls. We like Martin. He's a good looking guy and he's fun to flirt with and if he wasn't married to you a lot of the girls would probably be fighting to see who could land him, but none of us are going to try and steal your man. As far as the rest of it goes I don't know. Maybe we need to give Martin a wake up call." Report_Story #2 
+ "Oh you poor kid. I'm sorry and I'll talk to the other girls. We like Martin. He's a good looking guy and he's fun to flirt with and if he wasn't married to you a lot of the girls would probably be fighting to see who could land him, but none of us are going to try and steal your man. As far as the rest of it goes I don't know. Maybe we need to give Martin a wake up call."  
 
  
 
@@ -1554,7 +1554,7 @@
 
  "Hello Frank. Busy tonight, or could you stop by." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1808,7 +1808,7 @@
 
  "Thanks for the thought, but a raise to regional managers pay isn't going to be all that significant." 
 
- "Maybe not a regional managers pay, but that's not what I intend to give you. You won't take a promotion to vice president, but you are going to get a vice presidents salary and benefits. You saved my company sweetie. You can "Aw shucks, it wasn't really me" all you want, but it wouldn't have happened without you and you know it. It all happened because you - you Martin - you said you would help me with my Angela problem. Everything that happened came out of your agreeing to help me and you will never convince me otherwise so don't even try." Report_Story #2 
+ "Maybe not a regional managers pay, but that's not what I intend to give you. You won't take a promotion to vice president, but you are going to get a vice presidents salary and benefits. You saved my company sweetie. You can "Aw shucks, it wasn't really me" all you want, but it wouldn't have happened without you and you know it. It all happened because you - you Martin - you said you would help me with my Angela problem. Everything that happened came out of your agreeing to help me and you will never convince me otherwise so don't even try."  
 
  
 

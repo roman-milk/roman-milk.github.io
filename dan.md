@@ -236,7 +236,7 @@
 
  I looked over at Dan and he gave me a slight nod indicating that I should go ahead and so I walked over to Mark and went to my knees in front of him. I cupped his ass with my hands and pulled his hard nine inches into my mouth with one eye on Dan to see how he was taking it. I couldn't read his expression, but his eyes were locked on us. 
 
- I licked and sucked Mark's cock, occasionally taking my mouth off of him to stroke him with my hand. My tongue swirled around the glans and then I licked him from the tip to the base and back again as one hand fondled his balls. After several minutes of that Mark's hands grabbed the back of my head and he moaned as he shot his cream into my mouth. I gulped and swallowed and tried to get it all, but some of it escaped my mouth and dribbled down my chin. I took my mouth off of Mark, looked over at Dan, smiled at him and then wiped my mouth with the back of my hand. Report_Story #2 
+ I licked and sucked Mark's cock, occasionally taking my mouth off of him to stroke him with my hand. My tongue swirled around the glans and then I licked him from the tip to the base and back again as one hand fondled his balls. After several minutes of that Mark's hands grabbed the back of my head and he moaned as he shot his cream into my mouth. I gulped and swallowed and tried to get it all, but some of it escaped my mouth and dribbled down my chin. I took my mouth off of Mark, looked over at Dan, smiled at him and then wiped my mouth with the back of my hand.  
 
  
 

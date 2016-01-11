@@ -168,7 +168,7 @@
 
  "Okay," she agreed, feeling a sudden emptiness as his fingers moved away. 
 
- "Unfortunately, I am meeting up with Ryan tonight," Kevin reluctantly said, looking at the clock and realizing he was going to be late, annoyed he had already made plans. "Actually, I'm going to be late." Report_Story #2 
+ "Unfortunately, I am meeting up with Ryan tonight," Kevin reluctantly said, looking at the clock and realizing he was going to be late, annoyed he had already made plans. "Actually, I'm going to be late."  
 
  
 

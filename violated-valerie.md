@@ -202,7 +202,7 @@
 
  Then, suddenly, Val lifted her leg over my head and rolled onto her front. 'Please,' she begged and pushed her buttocks into the air. 'Please, finger my cunt and lick my arse, I'm fucking begging you…' 
 
- I was a little surprised, but in no way disgusted and I parted the cheeks of Val's round bottom with the thumb and finger of one hand. I fingered her deep and hard as she indicated as I examined the dirty stain of her anus. As Val squirmed under my probing fingers, I dabbed my tongue at the rosebud of her arse and wriggled my tongue into her. Report_Story #2 
+ I was a little surprised, but in no way disgusted and I parted the cheeks of Val's round bottom with the thumb and finger of one hand. I fingered her deep and hard as she indicated as I examined the dirty stain of her anus. As Val squirmed under my probing fingers, I dabbed my tongue at the rosebud of her arse and wriggled my tongue into her.  
 
  
 

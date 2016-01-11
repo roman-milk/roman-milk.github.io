@@ -240,7 +240,7 @@
 
  Jasmine couldn't help but smile at the reality she was being seduced and dommed by her own words. "Yes, Mistress," she again agreed, although knowing holding back from orgasmic bliss was going to be a challenge, as it was much easier written than done. 
 
- The waitress returned and Jasmine looked down. Dana slipped her finger out of Jasmine's cunt and took the bill allowing Jasmine's cunt scent to be noticed by the waitress. Report_Story #2 
+ The waitress returned and Jasmine looked down. Dana slipped her finger out of Jasmine's cunt and took the bill allowing Jasmine's cunt scent to be noticed by the waitress.  
 
  
 
@@ -512,7 +512,7 @@
 
  "Of course, silly," Dana chuckled, impressed by just how obedient the MILF was. "Now get over here and unclasp your Mistress." 
 
- Jasmine quickly obeyed, reaching around to Dana's back fumbling with the clasp, her excitement only making the simplistic task more difficult. Finally the clasp came undone and Dana's 36G breasts were directly in Jasmine's face. Report_Story #3 
+ Jasmine quickly obeyed, reaching around to Dana's back fumbling with the clasp, her excitement only making the simplistic task more difficult. Finally the clasp came undone and Dana's 36G breasts were directly in Jasmine's face.  
 
  
 
@@ -824,7 +824,7 @@
 
  Simultaneously, a sexual miracle occurred as Jasmine's orgasm triggered and she screamed, "I'm coooooooooming tooooooooooo, Mistress." 
 
- Both girl's shook, quaked and writhed as they had the biggest, most explosive, most body chilling, earth shaking orgasms of their lives. They collapsed onto their backs and allowed the pure ecstasy of the orgasm to flow through them. Dana, eyes closed, couldn't believe she had seduced and dommed the Jasmine Walker. Jasmine, meanwhile, couldn't believe she had achieved multiple orgasms after years of trying, the second orgasm hitting her with even more intensity than the first. Silence, other than heavy breathing, continued for a few minutes as both women recovered from a sexual experience like no other. Report_Story #4 
+ Both girl's shook, quaked and writhed as they had the biggest, most explosive, most body chilling, earth shaking orgasms of their lives. They collapsed onto their backs and allowed the pure ecstasy of the orgasm to flow through them. Dana, eyes closed, couldn't believe she had seduced and dommed the Jasmine Walker. Jasmine, meanwhile, couldn't believe she had achieved multiple orgasms after years of trying, the second orgasm hitting her with even more intensity than the first. Silence, other than heavy breathing, continued for a few minutes as both women recovered from a sexual experience like no other.  
 
  
 

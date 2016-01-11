@@ -164,7 +164,7 @@
 
  "You're no whore!" 
 
- That was what they really wanted her to be. They wanted her to suck and fuck all of them. Report_Story #2 
+ That was what they really wanted her to be. They wanted her to suck and fuck all of them.  
 
  
 
@@ -344,7 +344,7 @@
 
  Vanessa looked like a deer caught in the headlights, fear clearly visible in her eyes. She had never deep throated any dick and she wasn't keen on doing so. But she knew he'd do it anyway so she positioned her hands against his strong thighs and opened her mouth waiting for the intrusion. 
 
- The guy didn't wait long pushing her mouth down onto his shaft in one swift motion. There was a little resistance when he hit the entrance to her throat but he simply went on pushing her face towards his balls. Vanessa had to gag violently. She pressed her arms against his thighs trying to get her head off the cock but to no avail. He was far stronger then her and her struggling made her gag even more violently. The guy seemed to enjoy her discomfort as the gripping motions of her throat muscles massaged his dick. Report_Story #3 
+ The guy didn't wait long pushing her mouth down onto his shaft in one swift motion. There was a little resistance when he hit the entrance to her throat but he simply went on pushing her face towards his balls. Vanessa had to gag violently. She pressed her arms against his thighs trying to get her head off the cock but to no avail. He was far stronger then her and her struggling made her gag even more violently. The guy seemed to enjoy her discomfort as the gripping motions of her throat muscles massaged his dick.  
 
  
 
@@ -470,7 +470,7 @@
 
  to be continued .... 
 
- The job interview is not over yet by far... Report_Story #1 
+ The job interview is not over yet by far...  
 
  
 
@@ -664,7 +664,7 @@
 
  "Do you think you have anything to say here, whore? I will fuck you wherever I want to!" 
 
- He spread Vanessa's ass cheeks apart and mounted her ass cramming his hard shaft deep into her sore rear hole. She opened her eyes wide and gasped loudly. He had to be at least 10" big and as thick as her wrist. Vanessa was begging and pleading. Report_Story #2 
+ He spread Vanessa's ass cheeks apart and mounted her ass cramming his hard shaft deep into her sore rear hole. She opened her eyes wide and gasped loudly. He had to be at least 10" big and as thick as her wrist. Vanessa was begging and pleading.  
 
  
 
@@ -706,7 +706,7 @@
 
  To be continued ... 
 
- First day at the office... Report_Story #1 
+ First day at the office...  
 
  
 
@@ -904,7 +904,7 @@
 
  But instantly, she knew that Miller would go on playing with her and next time he would further increase the thrill. She couldn't imagine what he had planned for the next time. All she knew was that she wouldn't come away so easily again. 
 
- Strangely, this realisation sent a new shiver of anticipation through her spine. She was still yearning for relief. Report_Story #2 
+ Strangely, this realisation sent a new shiver of anticipation through her spine. She was still yearning for relief.  
 
  
 
@@ -964,7 +964,7 @@
 
  Vanessa becomes the present for a freshly signed deal with some new clients... 
 
- *** I always appreciate feedback so tell me what you think about this story. *** Report_Story #1 
+ *** I always appreciate feedback so tell me what you think about this story. ***  
 
  
 
@@ -1162,7 +1162,7 @@
 
  Relentlessly, he crammed his large thick cock into her throat his balls slapping against her nose shutting it close. He pounded her throat like it was a cunt causing gurgling sounds to escape Vanessa's throat. She was gagging and choking constantly without any chance to stop it, tears springing into her eyes. With every thrust in, spit dabbled out of her mouth. Thick white drool started running up her face in rivers. It ran into her nose and into her eyes making it impossible for her to see. 
 
- After some minutes of this throat pumping, he groaned out load and his rod exploded inside her mouth. He shot wad after wad of sperm down her throat. Report_Story #2 
+ After some minutes of this throat pumping, he groaned out load and his rod exploded inside her mouth. He shot wad after wad of sperm down her throat.  
 
  
 
@@ -1354,7 +1354,7 @@
 
  As soon as Stanton and Trent came pumping her holes full of gooey cum, they were replaced by Tony and Curtis. Tony sat down on the couch and pulled her backwards onto his hard member sliding it into her pink gaping asshole. There was no resistance left from her anal ring and with her legs spread her pussy stood wide open. This lasted only a few seconds though as Curtis drove his 13" cock straight into her juicy cunt. Vanessa shrieked out loud. He was so much bigger than Stanton before and filled her cunt to its capacity. 
 
- She would have never been able to take him in there if she hadn't been fisted before, she thought, thanking Curtis retrospectively for this favour. Again, she felt a little pride as there couldn't be a lot of girls able to take him balls deep in all three holes. Report_Story #3 
+ She would have never been able to take him in there if she hadn't been fisted before, she thought, thanking Curtis retrospectively for this favour. Again, she felt a little pride as there couldn't be a lot of girls able to take him balls deep in all three holes.  
 
  
 
@@ -1406,7 +1406,7 @@
 
  To be continued... 
 
- Vanessa gets to know a whole new life but will it be as great as imagined? Report_Story #1 
+ Vanessa gets to know a whole new life but will it be as great as imagined?  
 
  
 
@@ -1654,7 +1654,7 @@
 
  "If you go on behaving like a spoiled bitch though, it'll be all over tomorrow. We don't need no useless sluts." he remarked sternly. 
 
- "No more money, no more expansive accessory bullshit you love so much and no country club any more. Hmm, what do you want? You better decide quickly!" he continued talking into her mind. Report_Story #2 
+ "No more money, no more expansive accessory bullshit you love so much and no country club any more. Hmm, what do you want? You better decide quickly!" he continued talking into her mind.  
 
  
 
@@ -1890,7 +1890,7 @@
 
  Vanessa cockily raised her eyebrows. A lascivious smile danced on her lips. She knew that she was a dirty slut. And she loved proving this to men astonishing them over and over again. 
 
- She remembered the last time she had eaten cum from her ass. She would never forget the taste. But this day seemed like an eternity ago. Back then it seemed like an act only the lowest and filthiest whore would perform. She hadn't known about the immense power a slut possessed over men though. And the enormous satisfaction a slut could get from male attraction. Report_Story #3 
+ She remembered the last time she had eaten cum from her ass. She would never forget the taste. But this day seemed like an eternity ago. Back then it seemed like an act only the lowest and filthiest whore would perform. She hadn't known about the immense power a slut possessed over men though. And the enormous satisfaction a slut could get from male attraction.  
 
  
 
@@ -1974,7 +1974,7 @@
 
  Vanessa has to make sure that she is still the posh ice-queen but what will she find out? 
 
- ***I always appreciate feedback. Tell me what you'd like to read happening to Vanessa next.*** Report_Story #1 
+ ***I always appreciate feedback. Tell me what you'd like to read happening to Vanessa next.***  
 
  
 
@@ -2228,7 +2228,7 @@
 
  Vanessa couldn't tell for sure. She could only pray that they hadn't seen it. It had been pretty dark in the corridor and she had only briefly turned around Vanessa told herself in order to calm herself down. She couldn't deal with it right now anyways. She had other things on hand. 
 
- She had to fuck this sleazy piece of trailer trash. She even had to go out with him in public. And she had to do anything he wanted. There was no way around it, this man grossed her out. She didn't even want to think of the dirty thoughts that must have been running wild inside his head. Report_Story #2 
+ She had to fuck this sleazy piece of trailer trash. She even had to go out with him in public. And she had to do anything he wanted. There was no way around it, this man grossed her out. She didn't even want to think of the dirty thoughts that must have been running wild inside his head.  
 
  
 
@@ -2470,7 +2470,7 @@
 
  It wouldn't be worse than sucking dick fresh from her ass, would it? It would get him off faster! That was the only goal at hand right now. 
 
- Slowly, she lifted his dick up and lowered her face to his balls. She could smell him. The biting stench burned in her nose. Sticking her tongue out, it touched the hairy flesh. Report_Story #3 
+ Slowly, she lifted his dick up and lowered her face to his balls. She could smell him. The biting stench burned in her nose. Sticking her tongue out, it touched the hairy flesh.  
 
  
 
@@ -2576,7 +2576,7 @@
 
  To be continued... 
 
- Vanessa's day as a whore for the sleazy messenger goes on. Report_Story #1 
+ Vanessa's day as a whore for the sleazy messenger goes on.  
 
  
 
@@ -2828,7 +2828,7 @@
 
  When the balls of the two sleazebags were eventually drained, Johnny grabbed Vanessa's hair and pushed her forward. With all her power, Vanessa tried resisting. She pressed her hands against the back of the couch to keep her face from touching the soaked fabric again. 
 
- It was in vain. Tommy Boy simply slapped her arms away like an annoying fly. Vanessa growled at him furiously trying to slap Johnny Report_Story #2 
+ It was in vain. Tommy Boy simply slapped her arms away like an annoying fly. Vanessa growled at him furiously trying to slap Johnny  
 
  
 
@@ -2968,7 +2968,7 @@
 
  To be continued... 
 
- Vanessa gets her tattoo and becomes a convention slut Report_Story #1 
+ Vanessa gets her tattoo and becomes a convention slut  
 
  
 
@@ -3182,7 +3182,7 @@
 
  When the barkeeper finally brought the cocktail, Erickson took her hand and led her to the sofa corner. Still, the other lawyers were sitting there. Raising her hand, Erickson made Vanessa turn a pirouette. This way, his friends could see every curve – and of course ink – of her body in full detail. 
 
- Then he placed her right in the middle of a couch between two of them while he sat down on the second couch. He started talking with one of his friends not regarding Vanessa any further. Report_Story #2 
+ Then he placed her right in the middle of a couch between two of them while he sat down on the second couch. He started talking with one of his friends not regarding Vanessa any further.  
 
  
 
@@ -3466,7 +3466,7 @@
 
  While admiring the architecture of the exclusive hotel, Erickson had stepped next to her. Now, he leaned over to her and told her 
 
- "Do you remember the annual secretaries-party?" Report_Story #3 
+ "Do you remember the annual secretaries-party?"  
 
  
 
@@ -3730,7 +3730,7 @@
 
  As he was in better shape than Erickson, his ass didn't look as chubby and wobbly. But still, it was pale and hairy – definitely not an inviting sight! 
 
- Vanessa didn't need another request anymore. She still didn't like what she was about to do but it was part of being a slut. And she was eager to do anything that didn't involve getting her throat bashed. After having her head held tight for such a long time, she was even looking forward to munching on his dirty asshole as she was the one in control. Report_Story #4 
+ Vanessa didn't need another request anymore. She still didn't like what she was about to do but it was part of being a slut. And she was eager to do anything that didn't involve getting her throat bashed. After having her head held tight for such a long time, she was even looking forward to munching on his dirty asshole as she was the one in control.  
 
  
 
@@ -3936,7 +3936,7 @@
 
  To be continued... 
 
- Vanessa's world is turned upside down when their little secret is revealed. Report_Story #1 
+ Vanessa's world is turned upside down when their little secret is revealed.  
 
  
 
@@ -4174,7 +4174,7 @@
 
  He led her into the gents' room this time. Although almost impossible, it was in an even shittier condition. To be honest, it was an absolute disgrace. 
 
- This place must have been clean once but which previous decade that had been was not obvious. Everything was horribly filthy and brownish. Vanessa didn't know what was worse, the nauseous smell that permeated the place or puddles of piss that formed on the tiled floor which was one complete layer of slime. Report_Story #2 
+ This place must have been clean once but which previous decade that had been was not obvious. Everything was horribly filthy and brownish. Vanessa didn't know what was worse, the nauseous smell that permeated the place or puddles of piss that formed on the tiled floor which was one complete layer of slime.  
 
  
 
@@ -4434,7 +4434,7 @@
 
  It was the first time he ever cussed at her. His face was red from anger. He seemed ready to explode. 
 
- "Do you know what it feels like to find out that you're girlfriend is not only betraying you? No, she's whoring herself out to anyone!" Report_Story #3 
+ "Do you know what it feels like to find out that you're girlfriend is not only betraying you? No, she's whoring herself out to anyone!"  
 
  
 
@@ -4718,7 +4718,7 @@
 
  The single whacks didn't feel as biting anymore. Instead, each blow added to the glowing in her chest. This fire gnawed at her but also ignited an arousing warmth that spread from her tits all over her body. 
 
- Vanessa was flushed with sweat from bucking so wildly on Stanton's cock. He hadn't cum yet. Although she was giving her poor sphincter and tight ass chute a wrecking workout, he held out longer than Vanessa had expected. Report_Story #4 
+ Vanessa was flushed with sweat from bucking so wildly on Stanton's cock. He hadn't cum yet. Although she was giving her poor sphincter and tight ass chute a wrecking workout, he held out longer than Vanessa had expected.  
 
  
 
@@ -4906,7 +4906,7 @@
 
  Vanessa finds out what her new job will be. But will she like it? 
 
- *** Give me some comments and ideas if you want to read more. *** Report_Story #1 
+ *** Give me some comments and ideas if you want to read more. ***  
 
  
 
@@ -5174,7 +5174,7 @@
 
  By now, Vanessa had reached full slut-mode. She felt so nasty performing this perverted act in public and it was even naughtier to pleasure a guy that looked like he only got a girl if he paid her. 
 
- She reached around his hips gripping each of his buttocks with her hands. Then she pushed him forward burying even more of his raging hard-on in her gullet. She started sliding up and down his cock in fast speed. She worked his dick like crazy grunting like a wild beast. Spit and slobber splattered out of her mouth coating the entire length of his shaft. Report_Story #2 
+ She reached around his hips gripping each of his buttocks with her hands. Then she pushed him forward burying even more of his raging hard-on in her gullet. She started sliding up and down his cock in fast speed. She worked his dick like crazy grunting like a wild beast. Spit and slobber splattered out of her mouth coating the entire length of his shaft.  
 
  
 
@@ -5438,7 +5438,7 @@
 
  Vanessa immediately dropped onto her knees. Clasping her hands behind her back, she said 
 
- "Please, Sir! Show me what a cheap whore I am!" Report_Story #3 
+ "Please, Sir! Show me what a cheap whore I am!"  
 
  
 
@@ -5692,7 +5692,7 @@
 
  The bouncer was manhandling her juggs roughly. As long as Vanessa went along the movement though, there was no real pain. It was more like a sweet biting that made her tits glow warmly. At the same time, she had to give her own cunt a major workout. 
 
- She felt like her tits were exploding every time the bouncer pushed up or down --an explosion of prickling and tingling sensations rippling through her. The sweet torture drove her mad. A mixture of shrieks and grunts echoed through the club every time the guy pushed her face off his dick. Report_Story #4 
+ She felt like her tits were exploding every time the bouncer pushed up or down --an explosion of prickling and tingling sensations rippling through her. The sweet torture drove her mad. A mixture of shrieks and grunts echoed through the club every time the guy pushed her face off his dick.  
 
  
 
@@ -5960,7 +5960,7 @@
 
  By now, the rest of the crowd was so turned on from the perverted show that they weren't able to hold out any longer. For more than an hour, men after men stepped in front of Vanessa. They were all in a frenzy extremely turned on from the filthy acts she had been put through. Vanessa was deeply grateful for their attention as they were totally focused onto her, the strippers completely out of their minds. 
 
- Cock after cock was shoved down her throat. Load after load was shot into her greedy mouth. Report_Story #5 
+ Cock after cock was shoved down her throat. Load after load was shot into her greedy mouth.  
 
  
 
@@ -6044,7 +6044,7 @@
 
  To be continued... 
 
- The initiation goes on with Vanessa getting more decorations. Report_Story #1 
+ The initiation goes on with Vanessa getting more decorations.  
 
  
 
@@ -6346,7 +6346,7 @@
 
  "Aaahhh! ... Yaaahhh! ... Ooouuuhhh! ... Aaarrggh!" 
 
- Vanessa only responded with even louder screams. The tingling sensations rushed up from her crotch. Halfway to her mind, they intermixed with the excruciating pain from her breasts until a completely new dimension of bliss exploded in her head. Report_Story #2 
+ Vanessa only responded with even louder screams. The tingling sensations rushed up from her crotch. Halfway to her mind, they intermixed with the excruciating pain from her breasts until a completely new dimension of bliss exploded in her head.  
 
  
 
@@ -6612,7 +6612,7 @@
 
  Following his command, the black haired guy didn't hesitate for long. Instead, he pushed four fingers into her cunt. Between her moans, Vanessa gasped from the sudden intrusion into her snatch. Still, the four fingers went in smoothly. Turning and twisting his hand for a while, the guy finally drove his entire fist home. 
 
- Vanessa let out another deep grunt coming from far within. The anal assault had already created warm lustful arousal inside of her. But when the guy filled her cunt and fucked his fist into it, ecstatic waves of orgasmic energy ripped through her body. She felt so wonderfully stuffed that she could only moan out her pleasure. Report_Story #3 
+ Vanessa let out another deep grunt coming from far within. The anal assault had already created warm lustful arousal inside of her. But when the guy filled her cunt and fucked his fist into it, ecstatic waves of orgasmic energy ripped through her body. She felt so wonderfully stuffed that she could only moan out her pleasure.  
 
  
 
@@ -6836,7 +6836,7 @@
 
  To be continued??? 
 
- ***Give me some comments and ideas if you want more. Feedback is always appreciated *** Report_Story #1 
+ ***Give me some comments and ideas if you want more. Feedback is always appreciated ***  
 
  
 
@@ -7072,7 +7072,7 @@
 
  Surprisingly, her anxiety of being called a whore was mixed with another feeling this time. She felt some strange gratitude. They were taking notice of her again! 
 
- Somehow, these feelings started running wild inside Vanessa. She still wanted to get out of the country club as fast as possible. She felt like she couldn't stand the gnawing nervousness any longer. But she also had to win back their attention! She needed to prove what a great reliable slut she was. Report_Story #2 
+ Somehow, these feelings started running wild inside Vanessa. She still wanted to get out of the country club as fast as possible. She felt like she couldn't stand the gnawing nervousness any longer. But she also had to win back their attention! She needed to prove what a great reliable slut she was.  
 
  
 
@@ -7336,7 +7336,7 @@
 
  "Time to get out of the water! It's getting cold." he simply commented. 
 
- Vanessa had to walk back to their lounge chairs with the beads deeply implanted inside her ass. With every step, she felt them shifting around in her bowels giving her strange sensations. Report_Story #3 
+ Vanessa had to walk back to their lounge chairs with the beads deeply implanted inside her ass. With every step, she felt them shifting around in her bowels giving her strange sensations.  
 
  
 
@@ -7590,7 +7590,7 @@
 
  "Show them your decorated face, dirty dishrag!" he remarked. 
 
- Vanessa was startled by the sudden action. Out of the blue, she was looking right at Stanton and Miller. They must have come up to the Jacuzzi and watched her act as an easy fuckslut! She had been so engrossed in her performance she hadn't even noticed them. Report_Story #4 
+ Vanessa was startled by the sudden action. Out of the blue, she was looking right at Stanton and Miller. They must have come up to the Jacuzzi and watched her act as an easy fuckslut! She had been so engrossed in her performance she hadn't even noticed them.  
 
  
 
@@ -7862,7 +7862,7 @@
 
  To be continued... 
 
- Vanessa relives her first week as the 'Red Rose Whore' Report_Story #1 
+ Vanessa relives her first week as the 'Red Rose Whore'  
 
  
 
@@ -8098,7 +8098,7 @@
 
  "Don't need the service of such a skanky ho." he spat at her his face clearly displaying the contempt he felt towards her. "Got my fine wife at home." 
 
- His words caused a humiliating sting to Vanessa's heart. For a moment, she was speechless. She felt so embarrassed. He only saw a 'skanky ho' in her, not a pretty slut he was able to fuck. Shame burned on her cheeks while she forced a smile at him and apologized for her importunity. Report_Story #2 
+ His words caused a humiliating sting to Vanessa's heart. For a moment, she was speechless. She felt so embarrassed. He only saw a 'skanky ho' in her, not a pretty slut he was able to fuck. Shame burned on her cheeks while she forced a smile at him and apologized for her importunity.  
 
  
 
@@ -8348,7 +8348,7 @@
 
  Sweat covered her body when she approached the next table. He had to take her offer! Not by any stretch of imagination did she know what she would do otherwise.. 
 
- A blond guy was sitting at the table. With his biker rags, his long greasy ponytail and beard, he looked like a brute member of a motorcycle gang. But right now, Vanessa didn't care. The only thing important was to win him over. She needed his admiration. Report_Story #3 
+ A blond guy was sitting at the table. With his biker rags, his long greasy ponytail and beard, he looked like a brute member of a motorcycle gang. But right now, Vanessa didn't care. The only thing important was to win him over. She needed his admiration.  
 
  
 
@@ -8564,7 +8564,7 @@
 
  With his entire hand inside her snatch, the guy suddenly did something completely unexpected. 
 
- He wrapped his fist around his dick! Then he started jerking himself off inside Vanessa with his hand deep in her cunt. Vanessa was totally helpless. She felt like her whole body got speared leaving herself unable to move. Only her butt started awkwardly twitching and jerking around the two cunt invaders all on its own. She couldn't even scream anymore. All she was capable of was to groan and grunt from the immense pressure. Report_Story #4 
+ He wrapped his fist around his dick! Then he started jerking himself off inside Vanessa with his hand deep in her cunt. Vanessa was totally helpless. She felt like her whole body got speared leaving herself unable to move. Only her butt started awkwardly twitching and jerking around the two cunt invaders all on its own. She couldn't even scream anymore. All she was capable of was to groan and grunt from the immense pressure.  
 
  
 
@@ -8576,7 +8576,7 @@
 
  to be continued ... 
 
- *Vanessa's first week as 'The Red Rose Whore' goes on* Report_Story #1 
+ *Vanessa's first week as 'The Red Rose Whore' goes on*  
 
  
 
@@ -8806,7 +8806,7 @@
 
  "Open!" the constructer finally ordered with a voice that didn't allow any protest. 
 
- After last night, Vanessa knew her position too well. Still, it took all her strength to overcome her disgust. Report_Story #2 
+ After last night, Vanessa knew her position too well. Still, it took all her strength to overcome her disgust.  
 
  
 
@@ -9054,7 +9054,7 @@
 
  Pulling on the rings, her cunt opened and the pink inner flesh of her snatch became visible. 
 
- At one go, the guy pushed his rough fingers into her fuckorifice. He used three fingers at once making Vanessa yelp from the sudden stretching. With relish, he turned and twisted them. He started pushing his fingers back and forth. But as he had crooked his fingers before, they didn't slip out. Instead, Vanessa's entire body was moved around on the bed any way it was directed by his fingers. Report_Story #3 
+ At one go, the guy pushed his rough fingers into her fuckorifice. He used three fingers at once making Vanessa yelp from the sudden stretching. With relish, he turned and twisted them. He started pushing his fingers back and forth. But as he had crooked his fingers before, they didn't slip out. Instead, Vanessa's entire body was moved around on the bed any way it was directed by his fingers.  
 
  
 
@@ -9306,7 +9306,7 @@
 
  Walking into the club, Vanessa only cared for one thing. She needed to convince Pavone that she couldn't do anal during this shift. So she stormed straight into his office to confront him. 
 
- She simply burst into his office without even knowing. Pavone was having a meeting with another guy but Vanessa didn't care. Report_Story #4 
+ She simply burst into his office without even knowing. Pavone was having a meeting with another guy but Vanessa didn't care.  
 
  
 
@@ -9562,7 +9562,7 @@
 
  The man must have known exactly how humiliating the scene must have been for the clubwhore as he slowly walked along all tables in wiggly lines making sure that every guest got a good look at the fuckpony chained to his cock. 
 
- The exertion of being dragged through the entire club made Vanessa choke and gag even harder causing her to fill the club room with pitiful throat noises. Report_Story #5 
+ The exertion of being dragged through the entire club made Vanessa choke and gag even harder causing her to fill the club room with pitiful throat noises.  
 
  
 
@@ -9682,7 +9682,7 @@
 
  *to be continued ...* 
 
- *Vanessa's first weekend as 'The Red Rose Whore' is impending and some old friends want a piece of the fun.* Report_Story #1 
+ *Vanessa's first weekend as 'The Red Rose Whore' is impending and some old friends want a piece of the fun.*  
 
  
 
@@ -9960,7 +9960,7 @@
 
  
 
- Report_Story #2 
+  
 
  
 
@@ -10224,7 +10224,7 @@
 
  Instead, he shot his entire load onto the fender of the old battered car-wreck. The sperm coated it like a new, glistening paint. 
 
- The janitor's cock had barely stopped spurting when he roughly grabbed Vanessa's head with a hand on each side dragging the slut over to the car so she kneeled right in front of the fender. Report_Story #3 
+ The janitor's cock had barely stopped spurting when he roughly grabbed Vanessa's head with a hand on each side dragging the slut over to the car so she kneeled right in front of the fender.  
 
  
 
@@ -10294,7 +10294,7 @@
 
  *to be continued...* 
 
- *Vanessa finally arrives at the law-office only to be greeted with a completely unexpected surprise.* Report_Story #1 
+ *Vanessa finally arrives at the law-office only to be greeted with a completely unexpected surprise.*  
 
  
 
@@ -10506,7 +10506,7 @@
 
  The drive to the restaurant went down unspectacularly. Vanessa had to sit on the passenger seat of Erickson's car while Maria rode in Miller's car. Erickson didn't pay any attention to Vanessa probably because he had just come from Maria sucking him off. He didn't even say a word to her instead concentrating on the traffic. 
 
- They were the last ones arriving on the restaurant's parking-lot. Stanton and Miller were already standing at their cars with Miller holding Maria by the leash. Immediately, goose bumps formed on Vanessa's skin as she realized that she was about to get led by a leash over the parking-lot. Report_Story #2 
+ They were the last ones arriving on the restaurant's parking-lot. Stanton and Miller were already standing at their cars with Miller holding Maria by the leash. Immediately, goose bumps formed on Vanessa's skin as she realized that she was about to get led by a leash over the parking-lot.  
 
  
 
@@ -10716,7 +10716,7 @@
 
  The sight of the kneeling slut trying desperately to swing the opener onto the bottle with her pussy was almost too much for the guys to take. They were roaring with laughter unable to stop. 
 
- To Vanessa, the 5 minutes of fruitless work felt like hours. Eventually, she gave up and tried another approach. Getting up from her knees, she squatted directly over the bottle letting the opener hang down from her cunt. Then she slowly lowered herself down until the opener was placed at one side of the crown cork. Report_Story #3 
+ To Vanessa, the 5 minutes of fruitless work felt like hours. Eventually, she gave up and tried another approach. Getting up from her knees, she squatted directly over the bottle letting the opener hang down from her cunt. Then she slowly lowered herself down until the opener was placed at one side of the crown cork.  
 
  
 
@@ -10958,7 +10958,7 @@
 
  Maria winced from the pain but continued pushing her ass against the vibrator with all her might. Spreading her butt cheeks wide helped opening the tight, little sphincter a bit. 
 
- Vanessa could see sweat forming on the blonde's forehead from the effort. With several forceful jerks her asshole finally surrendered. Getting her anal ring widened caused a mixture of relief and discomfort to appear on her face. Report_Story #4 
+ Vanessa could see sweat forming on the blonde's forehead from the effort. With several forceful jerks her asshole finally surrendered. Getting her anal ring widened caused a mixture of relief and discomfort to appear on her face.  
 
  
 
@@ -11240,7 +11240,7 @@
 
  "Ooooohhhhh!" the blonde bitch immediately groaned out in pleasure while Vanessa tasted her pussy juice on her tongue. 
 
- This loud grunt tore Vanessa out of her own ecstatic reverie. She didn't want to give any pleasure to that dumb bitch. Her defeat had turned Maria into her worst enemy. Report_Story #5 
+ This loud grunt tore Vanessa out of her own ecstatic reverie. She didn't want to give any pleasure to that dumb bitch. Her defeat had turned Maria into her worst enemy.  
 
  
 
@@ -11448,7 +11448,7 @@
 
  Erickson and Connor didn't help her getting any relief either. Instead, the two started passing the time playing around with the human footrest. 
 
- While Miller was fucking Maria's pussy, Erickson stepped behind the kneeling redhead and began to play with the vibrator. He pushed it out of Vanessa's asshole flicking it against her sensitive clit for a split second before shoving it back into her shitter. Then he turned the vibrations onto the highest level. Report_Story #6 
+ While Miller was fucking Maria's pussy, Erickson stepped behind the kneeling redhead and began to play with the vibrator. He pushed it out of Vanessa's asshole flicking it against her sensitive clit for a split second before shoving it back into her shitter. Then he turned the vibrations onto the highest level.  
 
  
 
@@ -11548,7 +11548,7 @@
 
  *to be continued...* 
 
- *Weekends at the 'Red Rose Club' are special events and they hold more surprises in store for Vanessa.* Report_Story #1 
+ *Weekends at the 'Red Rose Club' are special events and they hold more surprises in store for Vanessa.*  
 
  
 
@@ -11726,7 +11726,7 @@
 
  But the worst thing of it all had been losing her role as office slut. She had been driven down another peg on the status ladder. In the eyes of Stanton, Miller and Erickson, she was now a low hooker working her ass off in the 'Red Rose Club' once and for all. 
 
- And they were right. She wasn't needed as a secretary and neither as the office slut anymore. Her only duty was to put her fuckholes on the chopping block for the quick satisfaction of sleazy lowlifes in order to pay back her contractual penalty. Report_Story #2 
+ And they were right. She wasn't needed as a secretary and neither as the office slut anymore. Her only duty was to put her fuckholes on the chopping block for the quick satisfaction of sleazy lowlifes in order to pay back her contractual penalty.  
 
  
 
@@ -11946,7 +11946,7 @@
 
  
 
- He used the chain to make his puppet dance on the strings. He pulled Vanessa's fat fucktits and juicy pussy lips to each side forcing her body to follow helplessly. He turned the redhead into a marionette that was giving him the most vulgar, obscene dance possible. Report_Story #3 
+ He used the chain to make his puppet dance on the strings. He pulled Vanessa's fat fucktits and juicy pussy lips to each side forcing her body to follow helplessly. He turned the redhead into a marionette that was giving him the most vulgar, obscene dance possible.  
 
  
 
@@ -12168,7 +12168,7 @@
 
  Her bottom started jabbing backwards towards the slashes welcoming each lash. Finally, the wave broke and her orgasm washed over her. Vanessa shouted out a primal scream while tears of pain ran down her face. 
 
- All while Vanessa was riding the waves of her orgasm, Maria continued lashing her blistered bottom. By now, the redhead's ass had been turned into raw meat. It was beyond glowing. If she would be able to sit for the next week without pain Vanessa would be more than lucky. Report_Story #4 
+ All while Vanessa was riding the waves of her orgasm, Maria continued lashing her blistered bottom. By now, the redhead's ass had been turned into raw meat. It was beyond glowing. If she would be able to sit for the next week without pain Vanessa would be more than lucky.  
 
  
 
@@ -12348,7 +12348,7 @@
 
  Maria was about to give the crowd a pole dance fucking herself to the music. And the rhythm of the fucking would be regulated by the two bikers. While the blonde bimbo was standing on her tiptoes, the two bikers presented their objects to the mob. The tattoo-sleeve guy was holding a 'Magic Wand' while baldhead held a 'Violet Wand' in his hand. 
 
- The Magic Wand was a powerful electric massager. With its strong vibrations, it could drive any women's arousal to new heights. In contrast, the Violet Wand was an electrostimulation toy with a long thin glass tube that glowed purple and shot sparks when it was activated by a button on the handle. The electric shocks were giving short but intense stings. Report_Story #5 
+ The Magic Wand was a powerful electric massager. With its strong vibrations, it could drive any women's arousal to new heights. In contrast, the Violet Wand was an electrostimulation toy with a long thin glass tube that glowed purple and shot sparks when it was activated by a button on the handle. The electric shocks were giving short but intense stings.  
 
  
 
@@ -12526,7 +12526,7 @@
 
  "Please sir!" Vanessa begged. "Spare this whore's ass. Give the slut another try. I'll be a good slut for youuuhhh." 
 
- She didn't even manage to finish her pleads before the biker's hand landed on her fiery red ass making her scream. And the mob erupted with cheers. They loved watching the naughty schoolgirl get punished while struggling in vain. Vanessa's ass went into a bottom-wiggling dance. Report_Story #6 
+ She didn't even manage to finish her pleads before the biker's hand landed on her fiery red ass making her scream. And the mob erupted with cheers. They loved watching the naughty schoolgirl get punished while struggling in vain. Vanessa's ass went into a bottom-wiggling dance.  
 
  
 
@@ -12720,7 +12720,7 @@
 
  It was an incredible combination of sensations surging through Vanessa's body. The grinding of the soft tissue, the merciless stretching of her constricted ass chute and the strain from the pussy plug were driving her nuts. It was an extreme mixture of pleasure and pain. A mixture her body had been conditioned to react to with the most ecstatic orgasms Vanessa could achieve. A mixture the redhead loved by now. 
 
- The ecstatic feelings were overwhelming her reducing her to a steadily moaning doll. If the young bloke hadn't held her arms, she would have slipped off the bar stool. Report_Story #7 
+ The ecstatic feelings were overwhelming her reducing her to a steadily moaning doll. If the young bloke hadn't held her arms, she would have slipped off the bar stool.  
 
  
 
@@ -12834,7 +12834,7 @@
 
  *to be continued...* 
 
- *The security guard makes full use of his knowledge jeopardizing Vanessa's lady self.* Report_Story #1 
+ *The security guard makes full use of his knowledge jeopardizing Vanessa's lady self.*  
 
  
 
@@ -12998,7 +12998,7 @@
 
  "Ooohhhh!" Vanessa sighed when Tucker shoved his eight fingers back up her dripping fuckhole. 
 
- She humped the spear for a couple more minutes until her shrieks turned into one long cry of pleasure. She slumped down onto the bed. A mind-blowing orgasm overwhelmed her. The electric jolts exploded all over her body and left her unable to move. Report_Story #2 
+ She humped the spear for a couple more minutes until her shrieks turned into one long cry of pleasure. She slumped down onto the bed. A mind-blowing orgasm overwhelmed her. The electric jolts exploded all over her body and left her unable to move.  
 
  
 
@@ -13196,7 +13196,7 @@
 
  "Hehehe!" he teased his dogbitch. "Seems like someone's enjoying his new role as fuckpet!" 
 
- Vanessa couldn't believe how easily she was embracing Tucker's abysmal humiliations. But her body was a junkie for degradations. It was hardly surprising that it reacted to this utter debasement with agitation although it was happening in her precious country club by the loathed security guard. Or were those two factors only contributing to the excitement? Vanessa was too aroused to ponder this question at the moment. Report_Story #3 
+ Vanessa couldn't believe how easily she was embracing Tucker's abysmal humiliations. But her body was a junkie for degradations. It was hardly surprising that it reacted to this utter debasement with agitation although it was happening in her precious country club by the loathed security guard. Or were those two factors only contributing to the excitement? Vanessa was too aroused to ponder this question at the moment.  
 
  
 
@@ -13330,7 +13330,7 @@
 
  *to be continued* 
 
- *The storm is about to break loose during an exclusive cocktail party in the country club.* Report_Story #1 
+ *The storm is about to break loose during an exclusive cocktail party in the country club.*  
 
  
 
@@ -13454,7 +13454,7 @@
 
  The moment she had comprehended the situation, the world kicked back into overdrive. Her heart exploded and throbbed in rapid speed. Cold sweat covered her body in an instant. She was freaking out. 
 
- She couldn't even react as fast as she wished. Holding a plate with hors d'oeuvres in her hand, she couldn't reach up and cover her juggs! She almost let the plate fall to the floor. She was barely able to stop herself at the last second. Instead, she shrieked out loud. Report_Story #2 
+ She couldn't even react as fast as she wished. Holding a plate with hors d'oeuvres in her hand, she couldn't reach up and cover her juggs! She almost let the plate fall to the floor. She was barely able to stop herself at the last second. Instead, she shrieked out loud.  
 
  
 
@@ -13642,7 +13642,7 @@
 
  The other two guys hollered and howled with laughter at this suggestion. Vanessa wasn't in a state to argue with the guys any longer. She was only glad that the players at the other poker table had a heated game going on. They were so loud that their noise drowned out the laughter from the three new clients. 
 
- The flame-haired knockout stepped in front of the massive footballer and started dancing. This time, she made sure that her dancing looked as enthusiastically as possible. She seductively gyrated her hips in an exaggerated manner and ran her French-nailed fingers over her bare left leg. Then she turned around and bent over the table. She pushed her apple bottom back until it was almost in Lineman's face. In the skintight, white gown, her juicy ass curves clearly stood out. Vanessa began shaking and wiggling her buttocks invitingly. Meanwhile, she slowly pushed the gown to the right side. The dress opened like a curtain revealing more and more skin. Finally, her terrific ass was on full display. Report_Story #3 
+ The flame-haired knockout stepped in front of the massive footballer and started dancing. This time, she made sure that her dancing looked as enthusiastically as possible. She seductively gyrated her hips in an exaggerated manner and ran her French-nailed fingers over her bare left leg. Then she turned around and bent over the table. She pushed her apple bottom back until it was almost in Lineman's face. In the skintight, white gown, her juicy ass curves clearly stood out. Vanessa began shaking and wiggling her buttocks invitingly. Meanwhile, she slowly pushed the gown to the right side. The dress opened like a curtain revealing more and more skin. Finally, her terrific ass was on full display.  
 
  
 
@@ -13820,7 +13820,7 @@
 
  It was such a perverse action that it further fuelled the fire burning in Vanessa's loins. With her excitement increasing, her naughtiness increased exponentially. She started mauling her titflesh while pumping it up and down Beardman's dick. Thereby, the pressure on his cock increased. 
 
- Vanessa's irritated, scratched boobs reacted to the rough treatment by sending waves of pain through her body. The anguish mixed with the pleasure and became an ecstatic surge. It spurred the redhead on even further. She mauled and kneaded her titflesh mercilessly while continuing to lick the drool off the dickhead. Report_Story #4 
+ Vanessa's irritated, scratched boobs reacted to the rough treatment by sending waves of pain through her body. The anguish mixed with the pleasure and became an ecstatic surge. It spurred the redhead on even further. She mauled and kneaded her titflesh mercilessly while continuing to lick the drool off the dickhead.  
 
  
 
@@ -14022,7 +14022,7 @@
 
  All three guys had their dicks stuffed into one of her fuckholes by now. She sucked on one cock while her cunt and ass were pounded with reckless abandon. They mercilessly rubbed the thin tissue separating her pussy and ass pipe. This new sensation drove Vanessa wild. 
 
- The double pounding was intense and it didn't take long until she came again. This set-off Lineman. Abruptly, he pulled his cock out of Vanessa's pussy and turned away. Her drilled out snatch remained open invitingly. Her glistening pissflaps alluringly fluttered around the open fuckhole. Report_Story #5 
+ The double pounding was intense and it didn't take long until she came again. This set-off Lineman. Abruptly, he pulled his cock out of Vanessa's pussy and turned away. Her drilled out snatch remained open invitingly. Her glistening pissflaps alluringly fluttered around the open fuckhole.  
 
  
 
@@ -14194,7 +14194,7 @@
 
  
 
- *to be continued* *Tucker has to intervene to prevent a scandal...* Report_Story #1 
+ *to be continued* *Tucker has to intervene to prevent a scandal...*  
 
  
 
@@ -14390,7 +14390,7 @@
 
  Vanessa was too scared to react. Did he really expect her to tell them about her life as the 'Red Rose Whore'? That would destroy the last ounce of respect those guys had left for her. She was Tucker's low fuckpet. But after this confession, she would be the entire staff's fucktoy. 
 
- Exposing the truth to those two sleazy workers seemed especially horrible. Ramirez was a smug prick. He was so full of himself that he hit on everything with a heartbeat. He had even chatted up Vanessa before. She had considered it completely inappropriate as she was a club member and he was a working stiff. So she had given him a sharp, vocal brush-off which he still considered a personal affront. McKenzie was a typical blue-collar workman who loathed the club member's snobbish, haughty attitude. He had clashed with Vanessa before and her posh, arrogant behaviour had driven him nuts. Report_Story #2 
+ Exposing the truth to those two sleazy workers seemed especially horrible. Ramirez was a smug prick. He was so full of himself that he hit on everything with a heartbeat. He had even chatted up Vanessa before. She had considered it completely inappropriate as she was a club member and he was a working stiff. So she had given him a sharp, vocal brush-off which he still considered a personal affront. McKenzie was a typical blue-collar workman who loathed the club member's snobbish, haughty attitude. He had clashed with Vanessa before and her posh, arrogant behaviour had driven him nuts.  
 
  
 
@@ -14596,7 +14596,7 @@
 
  "That's how you clean a dirty floor!" Griffin stated when he passed the other staff members. "These dumb fuckpets are only useful as mops!" 
 
- "Get back to work, fuckwhores!" he ordered when they had reached their starting point. "Hump that stick! Or you wanna go for another spin as my human mop cart?" Report_Story #3 
+ "Get back to work, fuckwhores!" he ordered when they had reached their starting point. "Hump that stick! Or you wanna go for another spin as my human mop cart?"  
 
  
 
@@ -14762,7 +14762,7 @@
 
  "You know Miss Arrogance, don't you? Obviously, this slut can't even suck a decent cock without making a fuss!" the young bloke chided the glamour bitch kneeling to his feet. 
 
- Then he roughly shoved her mouth back over his cock and proceeded to use her soft lips like a fist to jack off. All the while, the waiter remained bent over the counter and watched the obscene spectacle. Report_Story #4 
+ Then he roughly shoved her mouth back over his cock and proceeded to use her soft lips like a fist to jack off. All the while, the waiter remained bent over the counter and watched the obscene spectacle.  
 
  
 
@@ -14916,7 +14916,7 @@
 
  With the slick, smelly rubber in her mouth, Megan had to walk two more rounds up and down the bench in the high cadenced walk. All the while, she chewed on the condom with a disgusted expression on her face. 
 
- When the skanky pony finally came to a halt in front of Vanessa, she spat the rubber onto the tiled floor. It was empty. Megan had sucked all the caky cum out of it. But it had only been the first of three cum-filled rubbers. Report_Story #5 
+ When the skanky pony finally came to a halt in front of Vanessa, she spat the rubber onto the tiled floor. It was empty. Megan had sucked all the caky cum out of it. But it had only been the first of three cum-filled rubbers.  
 
  
 
@@ -15092,7 +15092,7 @@
 
  After a few minutes, Ramirez pulled his cock from Megan's pussy with a slurping sound. He instantly plunged his thick tool up Vanessa's cunt. Now, it was Queeny's turn to groan uninhibitedly while her body got pushed around on Missy's back. The three co-workers got treated to an obscene sight. They had a perfect view to Miss Gold Digger's wide open pussy and jagged, gaping asshole as well as Miss Arrogance's plugged cunt. 
 
- After a few thrusts, Ramirez pulled out of Vanessa's snatch. It was time to ravage the glamour bitches' assholes. Without hesitating, he hammered his thick cock through Megan's sphincter and went balls deep. Once again, the riding pony reared up and her flame-haired rider almost fell out of the saddle. Report_Story #6 
+ After a few thrusts, Ramirez pulled out of Vanessa's snatch. It was time to ravage the glamour bitches' assholes. Without hesitating, he hammered his thick cock through Megan's sphincter and went balls deep. Once again, the riding pony reared up and her flame-haired rider almost fell out of the saddle.  
 
  
 
@@ -15238,7 +15238,7 @@
 
  The jerking bodies and twitching assholes were finally too much for the guys to handle. With load groans, they pulled their cocks out. Griffin pushed his massive tool down and emptied his balls directly onto Vanessa's face. Two bursts shot straight into the redhead's screaming mouth while the following wads plastered her face. Meanwhile, Tucker held his dick up and sprayed Megan's face with sticky spunk. In the end, the two sluts looked as if a bucket of glue had been poured over their faces. 
 
- Miss Arrogance and Miss Gold Digger were so messed-up and besmeared with creamy sludge and gooey spunk that they got a few minutes to clean themselves up before the next round started. When they returned to the locker room, the glass bowl was back on the ground. Once again, it was Megan's turn to draw the act. As McKenzie was the only guy left, she solely drew a white bit of paper. Report_Story #7 
+ Miss Arrogance and Miss Gold Digger were so messed-up and besmeared with creamy sludge and gooey spunk that they got a few minutes to clean themselves up before the next round started. When they returned to the locker room, the glass bowl was back on the ground. Once again, it was Megan's turn to draw the act. As McKenzie was the only guy left, she solely drew a white bit of paper.  
 
  
 
@@ -15334,7 +15334,7 @@
 
  *to be continued* 
 
- *Vanessa finds out about Steve's role in the plot and her journey finally comes to an end.* Report_Story #1 
+ *Vanessa finds out about Steve's role in the plot and her journey finally comes to an end.*  
 
  
 
@@ -15516,7 +15516,7 @@
 
  Apparently, Steve liked the deranged, obscene make-over of the 'Red Rose Whore' as he went the extra mile. He positioned Vanessa on her ass with her back against the toilet bowl. Then he used the handcuffs to chain her arms behind the bowl. Finally, he took a marker and wrote something onto her forehead. 
 
- Once again, Vanessa found herself in an extremely uncomfortable position with her body chained to the toilet, her ass on the cold tiles, and her back against the hard bowl. In the mirror, she could see her vulgar appearance with her voluptuous funbags locked together, her cheeks and busty rack shimmering in a coating of piss, and the piss-soaked toilet paper stuffed up her mouth. However, the worst thing she saw was the writing on her forehead. Report_Story #2 
+ Once again, Vanessa found herself in an extremely uncomfortable position with her body chained to the toilet, her ass on the cold tiles, and her back against the hard bowl. In the mirror, she could see her vulgar appearance with her voluptuous funbags locked together, her cheeks and busty rack shimmering in a coating of piss, and the piss-soaked toilet paper stuffed up her mouth. However, the worst thing she saw was the writing on her forehead.  
 
  
 
@@ -15680,7 +15680,7 @@
 
  "C'mon pissmop!" Steve ordered. "Piss from your ass! Show us what a great piss sprinkler you are!" 
 
- While the guys laughed, Vanessa didn't react. This was too demeaning! She wouldn't do it! When the guys noticed her disobedience, they went for another round of swats. By now, her bottom was turning into raw crimson meat. The pressure on her buttocks only added to the pressure on her bowels. Report_Story #3 
+ While the guys laughed, Vanessa didn't react. This was too demeaning! She wouldn't do it! When the guys noticed her disobedience, they went for another round of swats. By now, her bottom was turning into raw crimson meat. The pressure on her buttocks only added to the pressure on her bowels.  
 
  
 
@@ -15826,7 +15826,7 @@
 
  
 
- Instead, a tattoo artist had redesigned them. He had filled out the flame-ring tattoo around her bellybutton with ink. This way, the unflattering 'Trailer Trash Whore' inscription was gone. He had also redesigned the 'Property of Pavone' stamp above her crotch. Nowadays, it was reading 'Property of Passion'. Finally, he had added two letters to her 'Queeny Ho' tramp stamp so it was reading 'Queeny Hott' now. Report_Story #4 
+ Instead, a tattoo artist had redesigned them. He had filled out the flame-ring tattoo around her bellybutton with ink. This way, the unflattering 'Trailer Trash Whore' inscription was gone. He had also redesigned the 'Property of Pavone' stamp above her crotch. Nowadays, it was reading 'Property of Passion'. Finally, he had added two letters to her 'Queeny Ho' tramp stamp so it was reading 'Queeny Hott' now.  
 
  
 
@@ -16014,7 +16014,7 @@
 
  "What the fuck!" Vanessa instantly shot back. 
 
- The stripper had to be out of her mind. She would never pay so much money for such worthless junk. But before the flame-haired knockout had a chance to argue, the dancer grabbed the top of the tube dress and pulled it down, exposing Vanessa's big, ample melons. The stripper was about to forcefully pull the dress completely off the redhead when Vanessa backed down. She couldn't risk coming back to Mark without any appropriate hooker wear. Report_Story #5 
+ The stripper had to be out of her mind. She would never pay so much money for such worthless junk. But before the flame-haired knockout had a chance to argue, the dancer grabbed the top of the tube dress and pulled it down, exposing Vanessa's big, ample melons. The stripper was about to forcefully pull the dress completely off the redhead when Vanessa backed down. She couldn't risk coming back to Mark without any appropriate hooker wear.  
 
  
 
@@ -16190,7 +16190,7 @@
 
  Before Vanessa had a chance to reply, he opened the zipper of his greasy, oil- stained overall and pulled his cock out. The flame-haired knockout eagerly opened her mouth without awaiting any order. More and more, she felt her submissive side spreading through her body and suppressing any hint of the posh lady bitch. 
 
- The next moment, Vanessa gagged heavily. Mr. Watchdog had thrust his cock down her throat at the first go. He hadn't stopped pushing until the stunning redhead's nose was buried in his oil-daubed overall. Report_Story #6 
+ The next moment, Vanessa gagged heavily. Mr. Watchdog had thrust his cock down her throat at the first go. He hadn't stopped pushing until the stunning redhead's nose was buried in his oil-daubed overall.  
 
  
 
@@ -16362,7 +16362,7 @@
 
  "One!... Two!..." she counted out the spanks. 
 
- "Phhh!" young cop snorted in response. "That's what you call a lash? That's pathetic! There's barely a red stripe visible." Report_Story #7 
+ "Phhh!" young cop snorted in response. "That's what you call a lash? That's pathetic! There's barely a red stripe visible."  
 
  
 

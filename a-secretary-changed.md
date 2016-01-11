@@ -154,7 +154,7 @@
 
  "Yes Mistress."was the only reply as Mrs. Anders, Becca now, slid out and slipped away to the office, just a tinge of regret for, giving, me to Miss Jane. 
 
- (to be continued)... Report_Story #1 
+ (to be continued)...  
 
  
 
@@ -332,7 +332,7 @@
 
  "After you clean up, little miss big tits, we can begin."....... 
 
- (to be continued).... Report_Story #1 
+ (to be continued)....  
 
  
 
@@ -526,7 +526,7 @@
 
  That's when the rules were given to me..... 
 
- (to be continued. ..let me know what you think so far....) Report_Story #1 
+ (to be continued. ..let me know what you think so far....)  
 
  
 
@@ -700,7 +700,7 @@
 
  My new Mistress had so many lessons to teach me about sadism...cruelty....torture. ... 
 
- (to be continued)..... Report_Story #1 
+ (to be continued).....  
 
  
 
@@ -910,7 +910,7 @@
 
  
 
- ( to be continued. .don't forget to vote..mmmmmwah).... Report_Story #1 
+ ( to be continued. .don't forget to vote..mmmmmwah)....  
 
  
 
@@ -1118,7 +1118,7 @@
 
  With a grin Mistress Jane cupped his balls, his cock now rock hard again. Pulling my head down with her free hand she gripped his shaft and rubbed the tip across my lips like some kind of kinky lipstick. 
 
- "Now watch and learn precious," she said. Just inches from my face, Mistress Jane bent down. Her lips parted. My eyes wide in disbelief as she slid his entire length down her throat. Every hard black inch disappearing before my very eyes. Report_Story #2 
+ "Now watch and learn precious," she said. Just inches from my face, Mistress Jane bent down. Her lips parted. My eyes wide in disbelief as she slid his entire length down her throat. Every hard black inch disappearing before my very eyes.  
 
  
 
@@ -1146,7 +1146,7 @@
 
  As I felt the first lash of her whip... 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -1332,7 +1332,7 @@
 
  She cleaned the room. I was almost impressed by her professionalism. Then I noticed she was collared. Her collar black and locked on just like mine. I sighed and realized there would be no help from the help as it were. 
 
- She quietly went about the room. Cleaning. Dusting. Then disappeared from my view and I heard scrubbing. With a surge of humiliation it dawned on me. She was scrubbing the carpet from my earlier escapades. Scrubbing my juices from the deep pile shag. God. Report_Story #2 
+ She quietly went about the room. Cleaning. Dusting. Then disappeared from my view and I heard scrubbing. With a surge of humiliation it dawned on me. She was scrubbing the carpet from my earlier escapades. Scrubbing my juices from the deep pile shag. God.  
 
  
 
@@ -1342,7 +1342,7 @@
 
  As I closed my eyes and begin to drift, I sighed softly. Sobbed a bit. And so my first day with Mistress Jane, first day of my new life, came to an end. 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -1488,7 +1488,7 @@
 
  And what a sweet sweet life it's been... 
 
- (to be continued?...let me know if you dear readers want more of Mistress Jane's adventures) Report_Story #1 
+ (to be continued?...let me know if you dear readers want more of Mistress Jane's adventures)  
 
  
 
@@ -1688,7 +1688,7 @@
 
  "Not too bad little miss big tits, you'll get lots of practice though, and you'll become an expert at the art of kissing," she told me. For some reason I pouted, thinking I was something of a good kisser and kind of disappointed she didn't seem to feel the same. 
 
- "Speaking of practice pet, it's time for some," she said, walking to the dresser and taking some things out. "There are some skills we need you to develop, and you're going to need practice pet. Put these on, behind your back," she ordered, handing me some shiny steel handcuffs. Whimpering quietly, in silent dread, I put my hands behind me and cuffed my own wrists. Having no experience in such things, of course I clicked them on too tight. Painfully tight. But I knew better now then to complain. Report_Story #2 
+ "Speaking of practice pet, it's time for some," she said, walking to the dresser and taking some things out. "There are some skills we need you to develop, and you're going to need practice pet. Put these on, behind your back," she ordered, handing me some shiny steel handcuffs. Whimpering quietly, in silent dread, I put my hands behind me and cuffed my own wrists. Having no experience in such things, of course I clicked them on too tight. Painfully tight. But I knew better now then to complain.  
 
  
 
@@ -1698,7 +1698,7 @@
 
  Kneeling, naked and collared, wrists cuffed behind me, I knew there would be no stopping until those big rubber balls were resting on my chin. It was going to be a long morning...... 
 
- (to be continued.....) Report_Story #1 
+ (to be continued.....)  
 
  
 
@@ -1868,7 +1868,7 @@
 
  "Either way, I'm putting you on that protein diet," she said as she removed my blindfold. Blinking, I looked at the dresser. Seeing an empty pint glass, with a coating of some thick white substance. 
 
- "May I ask what it was I was drinking Mistress?" I said, my voice low and subdued. Almost dreading the answer, having come to realize she wasn't going to do anything unless it was twisted and kinky. Report_Story #2 
+ "May I ask what it was I was drinking Mistress?" I said, my voice low and subdued. Almost dreading the answer, having come to realize she wasn't going to do anything unless it was twisted and kinky.  
 
  
 
@@ -1914,7 +1914,7 @@
 
  As I watched her leave, I heard the door lock, and I knew I wasn't going anywhere for a long time to come... 
 
- (to be continued...let me know what you think, and please vote. Mmmmmwah xoxo)... Report_Story #1 
+ (to be continued...let me know what you think, and please vote. Mmmmmwah xoxo)...  
 
  
 
@@ -2036,7 +2036,7 @@
 
  As I lay on the floor of the car, curled up, naked and collared and sobbing quietly, my wrists still tied, feeling his thick copious load drying on my face, tits, hair and neck, I realized my old life was gone and my new life was just beginning. 
 
- (to be continued...)... Report_Story #1 
+ (to be continued...)...  
 
  
 
@@ -2164,7 +2164,7 @@
 
  I explained how I would be working late. How I missed him. How we should have a nice dinner out tomorrow night to make up for my busy schedule. As we chatted, Mistress used the pointy toe of her high heel to push my knees apart. Wide. Looking up at her, she mouthed the word, "Masturbate." 
 
- With one hand I reached down, once again rubbing my clit in slow circles. Apparently it wasn't good enough for Mistress as she proceeded to reach into some hidden compartment next to her and magically once again produced a thick rubber cock. Big, thick, long and black. I kept talking to my loving fiancee Finley, as she handed it to me. Her grin from ear to ear. Report_Story #2 
+ With one hand I reached down, once again rubbing my clit in slow circles. Apparently it wasn't good enough for Mistress as she proceeded to reach into some hidden compartment next to her and magically once again produced a thick rubber cock. Big, thick, long and black. I kept talking to my loving fiancee Finley, as she handed it to me. Her grin from ear to ear.  
 
  
 
@@ -2212,7 +2212,7 @@
 
  I knew I was in for a long night. 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -2344,7 +2344,7 @@
 
  I heard Miss Tanya step in front of me, and I felt hands opening my ass up. I asssumed it was that Kiana sister, spreading my cheeks apart. My well lubed and oiled up cheeks. Miss Tanya then leaned down and whispered, "I like you pledge, don't disappoint me, take this like a good little slut." 
 
- Before I could process that, I felt a thick object wiggling its way up my ass. Very thick. I groaned a bit and arched my back. The very truth of the matter was that despite being very sexual, I had never done anything anal. For my first time, I was taking a very thick, very long plug up my tight virgin ass. Report_Story #2 
+ Before I could process that, I felt a thick object wiggling its way up my ass. Very thick. I groaned a bit and arched my back. The very truth of the matter was that despite being very sexual, I had never done anything anal. For my first time, I was taking a very thick, very long plug up my tight virgin ass.  
 
  
 
@@ -2438,7 +2438,7 @@
 
  Of course it goes without saying that by the next year, I was president of the Delta house. Keeping the traditions alive and such. 
 
- And of course, the lovely little Taylor did become a special project of mine. And she still is. Report_Story #1 
+ And of course, the lovely little Taylor did become a special project of mine. And she still is.  
 
  
 
@@ -2594,7 +2594,7 @@
 
  "Good girl!" Mistress exclaimed with a giggle, before smacking the bottoms of my upturned breasts at least five times each. I lost count what with all my yelping like a beaten dog. 
 
- Sitting back and crossing her legs, Mistress put down the hairbrush. As I wiped my tears she sneered down at me. Kicking the bag towards me, she simply said, "Get dressed slut." Report_Story #2 
+ Sitting back and crossing her legs, Mistress put down the hairbrush. As I wiped my tears she sneered down at me. Kicking the bag towards me, she simply said, "Get dressed slut."  
 
  
 
@@ -2622,7 +2622,7 @@
 
  Almost. 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -2762,7 +2762,7 @@
 
  "The nipples and clit?" Chloe asked. As she slipped on latex gloves and took out a bottle of the numbing lube, some swabs, and a long slender needle. "For now, yes," Mistress replied, as she tugged my pink nipples. Making them stiffen even more than they already were. "She can get the tattoos later, before her wedding," she continued, as she held my left breast and pulled my nipple out firmly. 
 
- As Mistress Jane smiled, Chloe started to use the numbing, oily lube on my stiff pink nipples. As I tried to look down, Mistress Jane moved up and straddled my face. Lowering her pussy to my mouth. I watched her slit slowly descend and knew I'd be tasting my Mistress for the first time. Report_Story #2 
+ As Mistress Jane smiled, Chloe started to use the numbing, oily lube on my stiff pink nipples. As I tried to look down, Mistress Jane moved up and straddled my face. Lowering her pussy to my mouth. I watched her slit slowly descend and knew I'd be tasting my Mistress for the first time.  
 
  
 
@@ -2802,7 +2802,7 @@
 
  I started to get ready, and was soon on my way to complete my next task. 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -2968,7 +2968,7 @@
 
  I couldn't believe what she was wearing... 
 
- Me and Max sat, drinking. Well he was having a few. When he ordered me a second martini I started to take very small sips. Already tipsy, I wanted to remember what I was doing. And I wanted to remember it tomorrow. Report_Story #2 
+ Me and Max sat, drinking. Well he was having a few. When he ordered me a second martini I started to take very small sips. Already tipsy, I wanted to remember what I was doing. And I wanted to remember it tomorrow.  
 
  
 
@@ -3048,7 +3048,7 @@
 
  How things have changed for me in the past week... 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -3216,7 +3216,7 @@
 
  "What do you think Chris?" she asked as she jiggled my big tits for her amusement. Chris sneered and said, "Not too shabby," in a sort of husky voice. I blushed and gave her a half smile. 
 
- "Now precious, while you and Chris consumate your new status as a hot wife, Bill here is going to explain why you're going to keep doing everything you're told," Mistress explained, as she tweaked and twisted my pink nipples by their rings. Report_Story #2 
+ "Now precious, while you and Chris consumate your new status as a hot wife, Bill here is going to explain why you're going to keep doing everything you're told," Mistress explained, as she tweaked and twisted my pink nipples by their rings.  
 
  
 
@@ -3260,7 +3260,7 @@
 
  So that decided it, first thing tomorrow after her husband left for work, Ashley would call this Jane Kessler and make an appointment. Looking at the card, reading the name again. Miss Jane Kessler. Yeah, what harm could it possibly do? 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -3434,7 +3434,7 @@
 
  Mistress Jane has such wonderful plans for Ashley. 
 
- Leaving the salon, I have to admit I felt a bit different. I don't know what came over me, but my hair looked the same. My nails were done nicely, a sweet pink color on my fingers and little toes. Report_Story #2 
+ Leaving the salon, I have to admit I felt a bit different. I don't know what came over me, but my hair looked the same. My nails were done nicely, a sweet pink color on my fingers and little toes.  
 
  
 
@@ -3466,7 +3466,7 @@
 
  "Of course not slut, so long as you keep doing as you're told," Mistress Jane said to her. "Just remember, you fuck who I say, when I say, and we will do just fine," she finished. Punctuated with a deep slow kiss. 
 
- (To be continued...) Report_Story #1 
+ (To be continued...)  
 
  
 
@@ -3622,7 +3622,7 @@
 
  After I set the phone down I looked at my naked body in my bedroom's full length mirror. My long blonde curls needed refreshing and I decided a quick shower was in order. I had an hour to be at the Pink Partridge and my husband would be home in two hours. My brain was a jumble of thoughts but I knew I needed to get ready quickly. 
 
- So a quick shower, and a quick rub to try and sneak in at least one orgasm. To no avail. My frustration was escalating and I really needed some relief soon. I really wasn't sure what I was doing as I brushed my blonde hair and put on my makeup. Once again very heavy lipstick and eye shadow. All in pink and glitter. Looking at myself in the mirror I actually thought I looked fuckable. Giggling as I posed a few times. Picking out a cute pink thong, I stopped before I slipped it on. Something in my head. Oh yes, that song. Report_Story #2 
+ So a quick shower, and a quick rub to try and sneak in at least one orgasm. To no avail. My frustration was escalating and I really needed some relief soon. I really wasn't sure what I was doing as I brushed my blonde hair and put on my makeup. Once again very heavy lipstick and eye shadow. All in pink and glitter. Looking at myself in the mirror I actually thought I looked fuckable. Giggling as I posed a few times. Picking out a cute pink thong, I stopped before I slipped it on. Something in my head. Oh yes, that song.  
 
  
 
@@ -3678,7 +3678,7 @@
 
  Ashley smiled back, and the next phase of her training began in earnest... 
 
- (to be continued...) Report_Story #1 
+ (to be continued...)  
 
  
 
@@ -3812,7 +3812,7 @@
 
  Ashley had never felt so full, and she couldn't help but to squeal and moan and writhe about under Hans like a madwoman. For his part, Hans was loving the tight married pussy gripping his cock and holding it like a silken glove with each thrust. Mistress Jane was loving every bit of it, her smile wide from ear to ear as she recorded the defiling of the beautiful young wife. 
 
- Moving up on the bed, higher up on Ashley's body, Hans gripped her ankles and pushed them up and back. Her time as a college cheerleader helped a bit, though she wasn't as limber as Jenna, and she was quickly bent in half. Her ankles pressed against her ears and head, and Hans in a very strong, dominating position. Report_Story #2 
+ Moving up on the bed, higher up on Ashley's body, Hans gripped her ankles and pushed them up and back. Her time as a college cheerleader helped a bit, though she wasn't as limber as Jenna, and she was quickly bent in half. Her ankles pressed against her ears and head, and Hans in a very strong, dominating position.  
 
  
 
@@ -3914,7 +3914,7 @@
 
  We didn't have long to wait, and I could suddenly hear Tabitha's muffled whimpers and sucking sounds next to me. I realized her first cock was in her mouth and pouted that I was already behind. 
 
- Whoever he was, he didn't last long, and I could hear Tabitha choking it down as she swallowed when he finished. I squirmed a bit, the clamps on my nipples were really unpleasant. Then once again I heard Tabitha next to me, sucking noises filling my ears. I whimpered at the thought that now I was two behind. At no point did I realize what was really going on. You see, I found out later the contest wasn't fair. Mistress Jane had said that our pictures were placed at each table and around the club to let men decide which hole they wanted to use. But what she had failed to mention, was that the pictures also indicated that Tabitha was a lesbian. And for some reason the men at the strip club were loving the thought of shoving a hard cock down a lesbian's throat. So really, I was quite at a disadvantage. Report_Story #3 
+ Whoever he was, he didn't last long, and I could hear Tabitha choking it down as she swallowed when he finished. I squirmed a bit, the clamps on my nipples were really unpleasant. Then once again I heard Tabitha next to me, sucking noises filling my ears. I whimpered at the thought that now I was two behind. At no point did I realize what was really going on. You see, I found out later the contest wasn't fair. Mistress Jane had said that our pictures were placed at each table and around the club to let men decide which hole they wanted to use. But what she had failed to mention, was that the pictures also indicated that Tabitha was a lesbian. And for some reason the men at the strip club were loving the thought of shoving a hard cock down a lesbian's throat. So really, I was quite at a disadvantage.  
 
  
 
@@ -3934,7 +3934,7 @@
 
  While I sucked cock, and she slapped my ass, Tabitha was released. One by one each cuff and every chain binding her fell to the floor next to me, and her whimpers of relief were quiet and weak. And just like that she was gone. Leaving me with Mistress Jane. Helpless and sucking as she described what my week in the brothel would be like. Helpless and whimpering. Helpless and completely in her clutches. 
 
- (to be continued... ) Report_Story #1 
+ (to be continued... )  
 
  
 
@@ -4064,7 +4064,7 @@
 
  She walked away from me as I stood and took stock of the living room. It was spacious with several sofas and chairs and spread throughout were several girls in various states of undress. They all looked at me with bored expressions and I smiled. I felt so ashamed just being there, and these girls all looked right at home. One girl got up and came over to me. A busty redhead that looked about Mistress Jane's age. 
 
- "Hi, I'm Taylor," she said. Shaking my hand and smiling. Pointing around the room, she introduced the girls to me. "That's Stephanie, that's Helen, that one there is Elizabeth, and that one playing Xbox over there is Katelyn. She's new here too." Report_Story #2 
+ "Hi, I'm Taylor," she said. Shaking my hand and smiling. Pointing around the room, she introduced the girls to me. "That's Stephanie, that's Helen, that one there is Elizabeth, and that one playing Xbox over there is Katelyn. She's new here too."  
 
  
 

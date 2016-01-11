@@ -146,7 +146,7 @@
 
  "Oh yes, sweetie. His big cock is locked inside of you and he's filling your belly with cum." 
 
- Debbie was a picture of animal passion. Her head rested on the floor with her cheek lying on the carpet, while drool ran out of her mouth onto the carpet. Her eyes were wide open and staring off into blank space, as her ass was pointed high in the air. "Whaaa... whaaat?" Report_Story #2 
+ Debbie was a picture of animal passion. Her head rested on the floor with her cheek lying on the carpet, while drool ran out of her mouth onto the carpet. Her eyes were wide open and staring off into blank space, as her ass was pointed high in the air. "Whaaa... whaaat?"  
 
  
 
@@ -348,7 +348,7 @@
 
  "Huuuggg. What?" 
 
- Kelly jerked the leash and pulled Linda back to the big armchair. "Sit down! I was going to take it easy on you. Take my time turning you into my newest slave, but hearing your pathetic pleas has changed my mind," she whispered. Report_Story #3 
+ Kelly jerked the leash and pulled Linda back to the big armchair. "Sit down! I was going to take it easy on you. Take my time turning you into my newest slave, but hearing your pathetic pleas has changed my mind," she whispered.  
 
  
 
@@ -554,7 +554,7 @@
 
  When the fingers squeezed her clit, Linda protested. "Debbie, please don't. I'm not ready... just not ready," she whispered. 
 
- Deb felt strong and in control. All of her life she was submissive and let others control what happened, but with Linda it was different. The woman needed someone strong and powerful and Debbie took charge. "Let me show you. Spread your legs... I want to make love to you," she whispered. Report_Story #4 
+ Deb felt strong and in control. All of her life she was submissive and let others control what happened, but with Linda it was different. The woman needed someone strong and powerful and Debbie took charge. "Let me show you. Spread your legs... I want to make love to you," she whispered.  
 
  
 

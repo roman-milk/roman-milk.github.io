@@ -152,7 +152,7 @@
 
  She could do nothing but obey him for there was no option. She would have to do as she was told, something quit foreign to her. The questions circled around in her mind until she thought it madness; a nightmare unfolding in her mind. She was too tired, hungry and thirsty to think straight. 
 
- With those bungs in her body she couldn't eat or visit the bathroom unless he undid them. On hearing the door open she braced herself for what he might want or do to her. Report_Story #2 
+ With those bungs in her body she couldn't eat or visit the bathroom unless he undid them. On hearing the door open she braced herself for what he might want or do to her.  
 
  
 
@@ -200,7 +200,7 @@
 
  The damn machine hadn't finished with her! More warm water gushed into her but this time it was partially sucked out then fresh water spurted in. It was like some dreadful wash cycle. Her ass was filled with water followed by suction producing a pushing and pulling motion in her ass. 
 
- Eventually she was completely drained. The chains slowly unwound from the mechanism attached to the bars allowing her to back up to a mattress where she collapsed. Physically and mentally drained she was asleep in seconds. Report_Story #1 
+ Eventually she was completely drained. The chains slowly unwound from the mechanism attached to the bars allowing her to back up to a mattress where she collapsed. Physically and mentally drained she was asleep in seconds.  
 
  
 
@@ -374,7 +374,7 @@
 
  Blinking back salty tears she concentrated on speaking clearly. "My name is Cock-hole, Master." This was particularly hard to say after gaining some self- worth when told she was to leave the basement with her master. Being reminded in this way of her role in life was unnecessarily cruel. She knew what she was. She was nothing more than a sex object. 
 
- Recognising this lowly position meant she had to rein back all feelings, so as to become nothing more than the name implied. 'Cock-hole', she repeated to herself silently. With just a moment's hesitation, that would have earned a punishment if she were not behind him out of sight, she quickly moved to be directly behind him at the door. Report_Story #2 
+ Recognising this lowly position meant she had to rein back all feelings, so as to become nothing more than the name implied. 'Cock-hole', she repeated to herself silently. With just a moment's hesitation, that would have earned a punishment if she were not behind him out of sight, she quickly moved to be directly behind him at the door.  
 
  
 
@@ -448,7 +448,7 @@
 
  Able to respond in only one way, she said all she could, "Yes, Master." Her mind was racing. Was she at last able to pleasure the wonderful master with her sex? 
 
- One thing was for sure, she was there to present her body for his use. Report_Story #1 
+ One thing was for sure, she was there to present her body for his use.  
 
  
 

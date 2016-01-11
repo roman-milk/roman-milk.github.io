@@ -196,7 +196,7 @@
 
  That would have been at least eight trips. And Frank had never mentioned it. Warning bells were ringing. I remembered the last time I saw Gloria. I'd been out shopping and I'd stopped in to see if Frank wanted to have lunch with me. I walked into his office and found Gloria bent forward over his desk going through some papers and pointing out things to Frank who was sitting on the other side of his desk and smiling. Gloria was about the same size as I was, but she did have larger breasts. When she stood up and turned I could see that the top two buttons of her blouse were undone and when she walked out of the office the way her breasts swayed made it obvious that she wasn't wearing a bra. 
 
- I knew Frank was a tit man so with her bent forward over the desk the way she was with her blouse partially unfastened Frank would have been able to see all the way down to her belly button. No wonder he was smiling. At the time I thought nothing of it, but after Caroline told me that Gloria traveled with Frank it all came back to me and I just knew that Gloria flashing her tits at Frank wasn't an accident and it probably wasn't even the first time. I certainly had questions for Chad the next time I saw him and questions I would be asking Jerry when I seduced him. Report_Story #2 
+ I knew Frank was a tit man so with her bent forward over the desk the way she was with her blouse partially unfastened Frank would have been able to see all the way down to her belly button. No wonder he was smiling. At the time I thought nothing of it, but after Caroline told me that Gloria traveled with Frank it all came back to me and I just knew that Gloria flashing her tits at Frank wasn't an accident and it probably wasn't even the first time. I certainly had questions for Chad the next time I saw him and questions I would be asking Jerry when I seduced him.  
 
  
 
@@ -468,7 +468,7 @@
 
  "Tell him to be here at ten and he can stay till five." 
 
- Jerry passed the message, put away the phone and started to strip. It was an energetic session and Jerry did get me off three times, but as we were getting dressed I realized that most of what I was getting emotionally out of meetings with Chad and Jerry was because of the excitement of cheating. I was getting off more on the thought of fucking other men behind Frank's back than I was from the sex itself. Frank was a much better lover than either Chad or Jerry. Why couldn't he have just kept his pecker in his pants? Report_Story #3 
+ Jerry passed the message, put away the phone and started to strip. It was an energetic session and Jerry did get me off three times, but as we were getting dressed I realized that most of what I was getting emotionally out of meetings with Chad and Jerry was because of the excitement of cheating. I was getting off more on the thought of fucking other men behind Frank's back than I was from the sex itself. Frank was a much better lover than either Chad or Jerry. Why couldn't he have just kept his pecker in his pants?  
 
  
 
@@ -574,7 +574,7 @@
 
  "That brings us to the favors I mentioned last night." 
 
- To be continued.... Report_Story #1 
+ To be continued....  
 
  
 

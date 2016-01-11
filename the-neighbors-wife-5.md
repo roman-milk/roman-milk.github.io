@@ -210,7 +210,7 @@
 
  "It is, and it pays well. I'll bet you've done some modeling yourself." 
 
- "I did," she said brightly. "Print work, of course, and some commercials, nothing national though." I wondered if Amanda had been with another woman. From the female models I knew, I guessed she had. Report_Story #2 
+ "I did," she said brightly. "Print work, of course, and some commercials, nothing national though." I wondered if Amanda had been with another woman. From the female models I knew, I guessed she had.  
 
  
 
@@ -502,7 +502,7 @@
 
  I had the urge to run to the nearest jewelry store. She smiled as if she had read my thoughts, leaned over, and sucked my cock into her mouth. When I was fully erect, she said, "Can I be on top? I've never done it that way." I welcomed her. Our lovemaking was softer and sweeter and slower paced that night, but while the intensity of the heat was less, the pleasure was at least as great. 
 
- We didn't have sex for a week. She was too sore Tuesday and Arthur came home Wednesday. But from there forward, we were together as much as time and circumstances would allow, which meant we spent most every day with each other. Sometimes, we studied. Sometimes, we fucked. Sometimes, we made love. Report_Story #3 
+ We didn't have sex for a week. She was too sore Tuesday and Arthur came home Wednesday. But from there forward, we were together as much as time and circumstances would allow, which meant we spent most every day with each other. Sometimes, we studied. Sometimes, we fucked. Sometimes, we made love.  
 
  
 

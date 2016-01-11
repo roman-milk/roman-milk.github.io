@@ -296,7 +296,7 @@
 
  "Yep. It's a ritual of our hunting. The heart gives us the deer's power. You'll feel it tonight." 
 
- "I've never been deer fucked before. That should be special." Report_Story #2 
+ "I've never been deer fucked before. That should be special."  
 
  
 

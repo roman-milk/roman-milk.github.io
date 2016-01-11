@@ -88,7 +88,7 @@
 
  "More slut?" I ask again, watching you nod your head, you are once again just concentrating on the sensations I am generating within your body. "Good, because I am going to give you more than you've ever taken", and with that, I force my little finger to join the others in your cunt, pulling it open so wide, while sliding a second finger inside your arse, leaving them inside, fluttering the fingers to tease the thin walls inside. 
 
- You pant now, body getting slick with sweat. You know I won't stop here, and already your cunt feels so stretched, burning with heat, so full, yet needing so much more. You imaging how hot it must look, your cunt stretched open for me to see. Your whole body feels like it is one big hole, being fucked by my hands. I know you can't take much more, that it will only take moments to make you cum, one last dirty moment, so I do it. Balling my fingers into a fist, I push it against your cunt, slowly building pressure, harder, harder, slowly forcing its way inside those sensitive walls, opening you up beyond your fantasies. You push back.. willing my whole fist inside, to be ripped apart if that's what it takes, 'More... more' you will, my muscles straining on my arm with the effort, looking down upon my opened up slut. Report_Story #2 
+ You pant now, body getting slick with sweat. You know I won't stop here, and already your cunt feels so stretched, burning with heat, so full, yet needing so much more. You imaging how hot it must look, your cunt stretched open for me to see. Your whole body feels like it is one big hole, being fucked by my hands. I know you can't take much more, that it will only take moments to make you cum, one last dirty moment, so I do it. Balling my fingers into a fist, I push it against your cunt, slowly building pressure, harder, harder, slowly forcing its way inside those sensitive walls, opening you up beyond your fantasies. You push back.. willing my whole fist inside, to be ripped apart if that's what it takes, 'More... more' you will, my muscles straining on my arm with the effort, looking down upon my opened up slut.  
 
  
 
@@ -156,7 +156,7 @@
 
  When he has completely relieved himself, I order everyone out, knowing you have finally had enough, watching your abused body lower itself down, laying in the combined filth. Seeing you so dirty and spent, I know I have one load left. I wank furiously standing over you, looking down into your eyes, your cum covered face, I softly call to you, "have you enjoyed yourself slut?" I ask, my own cum boiling in my balls now. 
 
- "Yes master", you murmur, your hand still rubbing your sore clit, looking into my eyes, then watching my hand sliding over my cock. Report_Story #3 
+ "Yes master", you murmur, your hand still rubbing your sore clit, looking into my eyes, then watching my hand sliding over my cock.  
 
  
 
@@ -294,7 +294,7 @@
 
  "I'm sorry master, please forgive me, I have been bad, and you should punish me" she gasped, slightly out of breath from the suddenness of my move and from the fingers around her delicate throat. 
 
- "Oh I will slut, I'm going to rip your nasty cunt and arse open for that" I promised, pulling her mouth open with my fingers, I spat into her mouth, my fingers rubbing my saliva around her open orifice, stuffing four fingers inside, making her gag. As if in answer, she licks and sucks my fingers, moaning as if she was getting the cock she needs. I knew full well that anything stuffed into her three holes turned her on, and the rougher and more degrading the abuse, the wetter her cunt became. Report_Story #4 
+ "Oh I will slut, I'm going to rip your nasty cunt and arse open for that" I promised, pulling her mouth open with my fingers, I spat into her mouth, my fingers rubbing my saliva around her open orifice, stuffing four fingers inside, making her gag. As if in answer, she licks and sucks my fingers, moaning as if she was getting the cock she needs. I knew full well that anything stuffed into her three holes turned her on, and the rougher and more degrading the abuse, the wetter her cunt became.  
 
  
 
@@ -398,7 +398,7 @@
 
  
 
- I stripped quickly, watching her laying head down arse up, enjoying making her wait, her body quivering with nervous excitement, arse still red from the spanking. I again rushed her, taking her by surprise, my rough fingers groping and squeezing the cheeks of her arse, pulling the wide open, using my tongue to tease her puckered hole. My oral assault on her arse was hard and fast, as I used the full length of my tensed tongue to probe and fuck her arse, making her gasp. I slid my fingers up her thighs, and when I reached her dripping hot pussy I rubbed hard, circling her clit, spreading her lips, then forcing fingers deep inside, pumping in and out, sawing into her depths. Report_Story #5 
+ I stripped quickly, watching her laying head down arse up, enjoying making her wait, her body quivering with nervous excitement, arse still red from the spanking. I again rushed her, taking her by surprise, my rough fingers groping and squeezing the cheeks of her arse, pulling the wide open, using my tongue to tease her puckered hole. My oral assault on her arse was hard and fast, as I used the full length of my tensed tongue to probe and fuck her arse, making her gasp. I slid my fingers up her thighs, and when I reached her dripping hot pussy I rubbed hard, circling her clit, spreading her lips, then forcing fingers deep inside, pumping in and out, sawing into her depths.  
 
  
 
@@ -420,7 +420,7 @@
 
  I hope you enjoyed this very dirty story - all inspired by a slut i know and use ;-) 
 
- I'm always happy to hear from women who are excited by some of what they read. Report_Story #1 
+ I'm always happy to hear from women who are excited by some of what they read.  
 
  
 
@@ -486,7 +486,7 @@
 
  ** ---- ** 
 
- More to cum, please let me know if you've enjoyed this continuation. You may be excited to know it's based very much on reality. D.G. Report_Story #1 
+ More to cum, please let me know if you've enjoyed this continuation. You may be excited to know it's based very much on reality. D.G.  
 
  
 
@@ -584,13 +584,13 @@
 
  Another cock pushed to her face, and I let it enter her, watching the new sex crazed man slap her face as he roughly used her, holding his hands around her throat to feel his cock head invade her, marvelling at her deep throat abilities. She thrashed in her chair, legs pulling vainly against her shackles, as the guy fucking her had pulled his cock from her cunt, only to ram it into her prepared stretched arse. He fucked her hot forbidden hole ruthlessly, filling her backside to its limits. Other men stepped forwards, no longer to hold back anymore, standing up on tiptoes as their orgasms ran through their bodies, tightening the muscles as the ripples ran through them. It was like my slut was being pissed over, the amount of cum that started to shoot over her body. I lost count as I myself came over her, my hands rubbing all the cum into her tits, and up her throat, rubbing cum covered hands all over her face, smearing her features with the dirty mess. 
 
- The crazed man fucking her arse now swapped back and forth, a couple of rough strokes in her arse, then several deep into her red raw pussy. As he got close to cumming, many hands, lead by mine, pulled her legs up, opening her arse up as far as we could, revealing her red sensitive insides. "Cum in her arse, fill her up!" I urged, knowing she loved having cum fill every hole. The men left around her slapped, pinched, and spat on her nasty body, now covered in all our fluids. I could tell she was cumming again hard, silently screwing her face up as she felt the final man cum into her gaping arse, spewing his hot cum in ribbons over and into her bowls. Report_Story #2 
+ The crazed man fucking her arse now swapped back and forth, a couple of rough strokes in her arse, then several deep into her red raw pussy. As he got close to cumming, many hands, lead by mine, pulled her legs up, opening her arse up as far as we could, revealing her red sensitive insides. "Cum in her arse, fill her up!" I urged, knowing she loved having cum fill every hole. The men left around her slapped, pinched, and spat on her nasty body, now covered in all our fluids. I could tell she was cumming again hard, silently screwing her face up as she felt the final man cum into her gaping arse, spewing his hot cum in ribbons over and into her bowls.  
 
  
 
  ****** A Slut Visits Ch. 03 ****** bydirty_geezer© Stepping away, the unknown arse fucker grinned and tucked his cock away, nodding to me as he left us. It was the cue for everyone else to melt away back into the darkness, their cocks drained of their lust. I was left with my slut, a nasty fucking mess before me, still writing on her seat, pussy dripping with cum, her face a nasty mask of cum. 
 
- I gently un-cuffed her, massaging her legs to let the blood get flowing again. "Well done my good slut," I rewarded her, gently stroking her cum stained hair. "You have done very well." Report_Story #1 
+ I gently un-cuffed her, massaging her legs to let the blood get flowing again. "Well done my good slut," I rewarded her, gently stroking her cum stained hair. "You have done very well."  
 
  
 

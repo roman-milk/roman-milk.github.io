@@ -146,7 +146,7 @@
 
  By now the urge to masturbate was growing ever more urgent. I can feel the shame heating my cheeks even now, some thirty-four years after the event. Just as I'm ashamed to admit I succumbed to those urges in subsequent years - - whenever I lifted the illicit copy of that album from its hiding place. 
 
- Annabel lay face down with the man draped across her back. I could see his buttocks clenching as he pumped like a piston into Annabel's body. The Lady herself scratched at the covering of the chaise as her climax again began to boil. She clawed and wailed, with her hair falling in disarray about her face as the sordid scene reached a violent and noisy crescendo. Report_Story #2 
+ Annabel lay face down with the man draped across her back. I could see his buttocks clenching as he pumped like a piston into Annabel's body. The Lady herself scratched at the covering of the chaise as her climax again began to boil. She clawed and wailed, with her hair falling in disarray about her face as the sordid scene reached a violent and noisy crescendo.  
 
  
 

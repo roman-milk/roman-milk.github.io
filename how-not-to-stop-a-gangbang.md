@@ -204,7 +204,7 @@
 
  "Well gosh golly, I'm awfully sorry ma'am. From whom shall I be getting ass fucked next for you, M'lady?" I responded with, as you may have supposed, heavy sarcasm. 
 
- Sheila ignored my tone. She continued, "It's one of our biggest accounts, but the girl I usually send ran off with a tattoo artist and I'm in a bind because my only free A-lister just got picked up for a parole violation." Report_Story #2 
+ Sheila ignored my tone. She continued, "It's one of our biggest accounts, but the girl I usually send ran off with a tattoo artist and I'm in a bind because my only free A-lister just got picked up for a parole violation."  
 
  
 
@@ -414,7 +414,7 @@
 
  "Naww, I'm just kidding you guys!" I laughed, gently punching one in the shoulder. 
 
- Boy oh boy, those Japanese love a good Whore Eaten By A Giant Squid joke. The room exploded in laughter as they repeated it to each other, gave me the thumbs up and patted me on the back and on the ass; mostly the ass. Sake was brought out and mock toasts were drank to poor Cindy; rest in peace in that giant squid, dear girl. Report_Story #3 
+ Boy oh boy, those Japanese love a good Whore Eaten By A Giant Squid joke. The room exploded in laughter as they repeated it to each other, gave me the thumbs up and patted me on the back and on the ass; mostly the ass. Sake was brought out and mock toasts were drank to poor Cindy; rest in peace in that giant squid, dear girl.  
 
  
 
@@ -588,7 +588,7 @@
 
  About halfway home my cell phone started ringing. It was work. I turned it off. Now was no time for trifles. 
 
- No one was home when I got there so I scurried up to mom's sewing room and grabbed the wedding dress. That's right, I was going to surprise those fucks by showing up in my wedding dress to cancel their gang bang. It's quite poetic if you think about it. Everything was falling into place. I was actually laughing wickedly as I laboriously pulled it on. Report_Story #4 
+ No one was home when I got there so I scurried up to mom's sewing room and grabbed the wedding dress. That's right, I was going to surprise those fucks by showing up in my wedding dress to cancel their gang bang. It's quite poetic if you think about it. Everything was falling into place. I was actually laughing wickedly as I laboriously pulled it on.  
 
  
 

@@ -184,7 +184,7 @@
 
  At the airport I suffered through the usual TSA bullshit, got to the Delta counter, checked in and then sat down in the boarding area to wait for my flight to be called. As I sat there I thought over what the attorney had told me. I lied and told Ellsworth that the reason I needed the order was that I'd overheard Ralph tell Lois that if I gave her any grief over finding out they were fucking that "He would make me see reason." 
 
- "I'll beat the little wimp until he sees reason" is what I told Ellsworth. And then I said I'd heard Lois say: Report_Story #2 
+ "I'll beat the little wimp until he sees reason" is what I told Ellsworth. And then I said I'd heard Lois say:  
 
  
 
@@ -472,7 +472,7 @@
 
  "I've never done that!" 
 
- "Of course you have. Just think back over the last six months. Just how often did you grant me, most times reluctantly I might add, your sexual favors? Hell! Just think back over the last three weeks. I listened to your excuses night after night and went without while all the time you were fucking some one else. That's what you call loving me and only me?" Report_Story #3 
+ "Of course you have. Just think back over the last six months. Just how often did you grant me, most times reluctantly I might add, your sexual favors? Hell! Just think back over the last three weeks. I listened to your excuses night after night and went without while all the time you were fucking some one else. That's what you call loving me and only me?"  
 
  
 
@@ -732,7 +732,7 @@
 
  The grandfather was surprised that she would ask such a question, but then he decided that if she was old enough to ask the question she was old enough to get a straight answer. Steeling himself to leave nothing out he proceeded to tell the young girl all about human reproduction and the joys and responsibilities of intercourse. 
 
- When he finished explaining the little girl was looking at him with her mouth hanging open and with eyes wide in amazement. Seeing the look on her face the grandfather asked her: Report_Story #4 
+ When he finished explaining the little girl was looking at him with her mouth hanging open and with eyes wide in amazement. Seeing the look on her face the grandfather asked her:  
 
  
 
@@ -974,7 +974,7 @@
 
  Once that happened we were going to have another problem to face. Myra was damned good at her job and didn't want to give it up. The problem was that the company we worked for had a policy of family members not being allowed to work together. We could both still work for the company but one of us would have to transfer. The problem with that is that the closest company facility we could transfer to was ninety miles away and that just wasn't going to work for us. 
 
- We decided to lie. We just wouldn't tell the company that we were married. Myra wouldn't change her name and would keep her company health insurance. We would do it until we were caught (if we were) and then Myra would resign and find another job. If she wanted to. She really didn't need to work since I was very well compensated for what I did. Report_Story #5 
+ We decided to lie. We just wouldn't tell the company that we were married. Myra wouldn't change her name and would keep her company health insurance. We would do it until we were caught (if we were) and then Myra would resign and find another job. If she wanted to. She really didn't need to work since I was very well compensated for what I did.  
 
  
 

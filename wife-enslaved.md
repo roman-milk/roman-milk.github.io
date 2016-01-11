@@ -236,7 +236,7 @@
 
  
 
- 'Take a shower, and I'll sort something out for you to wear,' he commanded. Report_Story #2 
+ 'Take a shower, and I'll sort something out for you to wear,' he commanded.  
 
  
 
@@ -474,7 +474,7 @@
 
  This time Riana loudly screeched. She tugged at her chains, desperately trying to reach her sex. It stung more than the shoulder, like a dozen bee stings. 
 
- She started crying, and Jimmy wiped away the tears. If she could have, she would have bitten his hand. It was some small comfort that they weren't going to rape her. They thought she was a slave, so were marking her with a slave number. It was perfectly reasonable, except she wasn't a slave. She was only pretending, after being mistaken for one. She tried to tell them, only the gag made it impossible. Report_Story #3 
+ She started crying, and Jimmy wiped away the tears. If she could have, she would have bitten his hand. It was some small comfort that they weren't going to rape her. They thought she was a slave, so were marking her with a slave number. It was perfectly reasonable, except she wasn't a slave. She was only pretending, after being mistaken for one. She tried to tell them, only the gag made it impossible.  
 
  
 
@@ -530,7 +530,7 @@
 
  When he came to collect her, she would make him pay for this. She reckoned he was regretting the decision already. It would take him a few hours to gather the courage to back down, and confront Jimmy. He would have to pay Jimmy dearly to get her back, and that would only be a small part of her retribution. 
 
- Instead of being awkward, she would be a co-operative and valuable slave. That would put her price up to Adrian. She figured he would be phoning later this evening, or by the latest tomorrow morning. Report_Story #1 
+ Instead of being awkward, she would be a co-operative and valuable slave. That would put her price up to Adrian. She figured he would be phoning later this evening, or by the latest tomorrow morning.  
 
  
 
@@ -736,7 +736,7 @@
 
  'Take out my cock, and suck it while I work,' he said. 
 
- At that moment she felt foolish for not guessing why she was there. She hesitated, wondering if she could carry out such a demeaning task. Never before had she sucked on a man's penis. To avoid upsetting her master, she quickly undid his fly. Delving into his trousers was easier that doing nothing. Pulling out his penis, she found it shrivelled, and therefore less threatening. Report_Story #2 
+ At that moment she felt foolish for not guessing why she was there. She hesitated, wondering if she could carry out such a demeaning task. Never before had she sucked on a man's penis. To avoid upsetting her master, she quickly undid his fly. Delving into his trousers was easier that doing nothing. Pulling out his penis, she found it shrivelled, and therefore less threatening.  
 
  
 
@@ -954,7 +954,7 @@
 
  He gently kissed her lips, her eyes, her nose, until her whole face was being smothered with kisses. Instead of just having sex, they might make love this time. She wrapped her arms around his neck and kissed him back. His lips kissed their way down her neck, to her breasts. He carefully sucked on a nipple, while his finger tips stroked her back. 
 
- She pushed her breasts into his mouth. Before sitting on his lap she was aching for his touch, and now the need was being fulfilled. One moment they were sitting, the next they were on the floor, writhing with pure pleasure. Heavy breathing was all that broke the silence, as they explored each others' body. Clothes were peeled away exposing skin to caress. Report_Story #3 
+ She pushed her breasts into his mouth. Before sitting on his lap she was aching for his touch, and now the need was being fulfilled. One moment they were sitting, the next they were on the floor, writhing with pure pleasure. Heavy breathing was all that broke the silence, as they explored each others' body. Clothes were peeled away exposing skin to caress.  
 
  
 
@@ -1222,7 +1222,7 @@
 
  'Alright,' he said, but was determined to make her his wife. 
 
- They shared loving caresses, and cuddled warmly. She wondered what might happen in the future. A handsome young man with prospects, wasn't someone to be kept waiting. He was much younger, which might prove a problem sooner or later. She didn't want to make another mistake. She was happy being his slave girl, and didn't want to take a chance of spoiling it. Report_Story #1 
+ They shared loving caresses, and cuddled warmly. She wondered what might happen in the future. A handsome young man with prospects, wasn't someone to be kept waiting. He was much younger, which might prove a problem sooner or later. She didn't want to make another mistake. She was happy being his slave girl, and didn't want to take a chance of spoiling it.  
 
  
 
@@ -1434,7 +1434,7 @@
 
  The sophisticated society woman had been transformed into a Barbie doll. Riana certainly wouldn't be recognised now. 
 
- Riana had survived in the dining room without the expected disparaging remarks. In the kitchen she helped Beatrice as best she could, to prepare cocktails and more straight forward drinks for the men. She reminded herself of what each of them ordered, and sorted the glasses on a tray accordingly. Report_Story #2 
+ Riana had survived in the dining room without the expected disparaging remarks. In the kitchen she helped Beatrice as best she could, to prepare cocktails and more straight forward drinks for the men. She reminded herself of what each of them ordered, and sorted the glasses on a tray accordingly.  
 
  
 
@@ -1674,7 +1674,7 @@
 
  Riana desperately needed to make up for last night, and keep him from selling her. She just couldn't get it out of her head that he would become bored with her, as an older woman, and sell her. At least this master was nice and looked after her. 
 
- To avoid being sold, she set her mind to being a perfect and obedient slave girl. She would avoid upsetting him by going on about her husband buying her back. After all, Adrian was no longer her husband, and she was officially Jimmy's slave. Report_Story #3 
+ To avoid being sold, she set her mind to being a perfect and obedient slave girl. She would avoid upsetting him by going on about her husband buying her back. After all, Adrian was no longer her husband, and she was officially Jimmy's slave.  
 
  
 

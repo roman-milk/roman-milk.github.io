@@ -316,7 +316,7 @@
 
  "All part of the complete package," she agreed. 
 
- "So I'm learning," I said, feeling such a rush of excitement that went directly to my pussy. I was really struggling to understand both my need for her approval and the undeniable impact her words had on me. I wasn't a lesbian, but I was beginning to think I'd be one for her. As soon as the thought popped into my head, I shook it out, thinking I needed to focus on the real reason I was here...to get a full time job at the most prestigious firm in the city. Report_Story #2 
+ "So I'm learning," I said, feeling such a rush of excitement that went directly to my pussy. I was really struggling to understand both my need for her approval and the undeniable impact her words had on me. I wasn't a lesbian, but I was beginning to think I'd be one for her. As soon as the thought popped into my head, I shook it out, thinking I needed to focus on the real reason I was here...to get a full time job at the most prestigious firm in the city.  
 
  
 
@@ -674,7 +674,7 @@
 
  The first photo I took was replaying the scene of my interview with Mrs. Parks when she put her stocking-clad heel on my leg. 
 
- I remembered how soft her nylons were, how strange it felt to touch them and yet how equally erotic it was. Report_Story #3 
+ I remembered how soft her nylons were, how strange it felt to touch them and yet how equally erotic it was.  
 
  
 
@@ -1008,7 +1008,7 @@
 
  bosss-pet30.jpg]I woke up filled with trepidation. What if I was reading the signs wrong and she didn't have any sexual interest in me? 
 
- On the flipside, what if she did? Report_Story #4 
+ On the flipside, what if she did?  
 
  
 
@@ -1398,7 +1398,7 @@
 
  "Show me your best pout," she ordered. "I imagine you have mastered the pout with lips like those." 
 
- I laughed to myself, because I had manipulated my dad with what he called 'the pout', I had manipulated most boyfriends with 'the pout' and had got out of more than one speeding ticket with 'the pout'. Report_Story #5 
+ I laughed to myself, because I had manipulated my dad with what he called 'the pout', I had manipulated most boyfriends with 'the pout' and had got out of more than one speeding ticket with 'the pout'.  
 
  
 
@@ -1822,7 +1822,7 @@
 
  "Lay back down," she ordered. 
 
- I again obeyed, eager to find out what she planned to do to me next. Report_Story #6 
+ I again obeyed, eager to find out what she planned to do to me next.  
 
  
 
@@ -2266,7 +2266,7 @@
 
  
 
- bosss-pet56.jpg]Used to what happened next, I opened my mouth as she stroked her cock, aimed directly at me. Report_Story #7 
+ bosss-pet56.jpg]Used to what happened next, I opened my mouth as she stroked her cock, aimed directly at me.  
 
  
 
@@ -2652,7 +2652,7 @@
 
  PS: Lily and I are already at work planning a second picture story with her...so be sure to tell me what you thought of the story and my beautiful model. 
 
- JASMINE MARCH 2015 Report_Story #1 
+ JASMINE MARCH 2015  
 
  
 
@@ -2920,7 +2920,7 @@
 
  "Knees," he ordered. 
 
- "Here?" I asked, all our fucking so far being in my bedroom, except for a blow job once in his car while he drove. Report_Story #2 
+ "Here?" I asked, all our fucking so far being in my bedroom, except for a blow job once in his car while he drove.  
 
  
 
@@ -3226,7 +3226,7 @@
 
  "Maybe I just don't want to hurt your feelings," she countered. 
 
- "And the staring at my crotch?" I asked. Report_Story #3 
+ "And the staring at my crotch?" I asked.  
 
  
 
@@ -3504,7 +3504,7 @@
 
  When they first met it was the wrong place, the wrong time. 
 
- This time though, it was the right place, and the right time. Report_Story #4 
+ This time though, it was the right place, and the right time.  
 
  
 
@@ -3544,7 +3544,7 @@
 
  THE END 
 
- Author's Note: Thanks again to HOUSEWIFE KELLY for the generous use of her photos. Report_Story #1 
+ Author's Note: Thanks again to HOUSEWIFE KELLY for the generous use of her photos.  
 
  
 
@@ -3794,7 +3794,7 @@
 
  Once at his feet, he looked down at me and asked, "Are you sure you are ready for this?" 
 
- I didn't know if he meant the job or the blow job, but the answer was the same either way. Not remotely hiding my hunger to submit unconditionally, I moaned, my insatiable hunger to obey, to please, "Oh God, yes." Report_Story #2 
+ I didn't know if he meant the job or the blow job, but the answer was the same either way. Not remotely hiding my hunger to submit unconditionally, I moaned, my insatiable hunger to obey, to please, "Oh God, yes."  
 
  
 
@@ -4076,7 +4076,7 @@
 
  "Eight, tell me what you are," he ordered. 
 
- "Your slut, your slave, your fuckatary," I declared, happy with my wit, thinking this was the longest countdown in the history of time. Report_Story #3 
+ "Your slut, your slave, your fuckatary," I declared, happy with my wit, thinking this was the longest countdown in the history of time.  
 
  
 
@@ -4192,7 +4192,7 @@
 
  Again a special thanks to the beautiful Vanessa for posing for the pictures. Check out the comments section to learn where you can go to Vanessa's Literotica Amateur Pictures Feedback Forum and see more pictures of her and even leave comments. 
 
- Jasmine Report_Story #1 
+ Jasmine  
 
  
 
@@ -4628,7 +4628,7 @@
 
  Another text: 
 
- I can leave you alone. But that will mean I am putting these pictures on the internet. Maybe creating a website. Report_Story #2 
+ I can leave you alone. But that will mean I am putting these pictures on the internet. Maybe creating a website.  
 
  
 
@@ -5164,7 +5164,7 @@
 
  "Fine," I again sighed, stood up and moved the laptop to a new position. It took a couple of tries, but I got the laptop in the right position. 
 
- "Good, now show me that sole. Put your foot right up in the air." Report_Story #3 
+ "Good, now show me that sole. Put your foot right up in the air."  
 
  
 
@@ -5736,7 +5736,7 @@
 
  "It likely is," I nodded. 
 
- "Well, that is definitely my cue to leave," he said, moving to me and kissing me for the first time. Report_Story #4 
+ "Well, that is definitely my cue to leave," he said, moving to me and kissing me for the first time.  
 
  
 

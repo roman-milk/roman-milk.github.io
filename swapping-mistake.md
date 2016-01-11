@@ -288,7 +288,7 @@
 
  "Why don't you suck on it a while and see if you can get it hard." 
 
- I move down and take it in both hands. I lick all our juice off it and start sucking and licking it. I feel it swelling just like I want. In just a few minutes it's full hard. I roll off and get on my knees. He grabs me by my hip bones and pulls me up. I feel his cock head searching for my pussy. He finds it and slowly pushes in. My pussy stretches open for him. He pulls me back and I feel him touch my cervix. We both push and I feel it tight against his cock. He flexes and I cum hard. He grabs my hair and pulls me back. He pushes down on my back and a little more cock goes in. He is in position for me and I start working his cock over. I hear him groan. Report_Story #2 
+ I move down and take it in both hands. I lick all our juice off it and start sucking and licking it. I feel it swelling just like I want. In just a few minutes it's full hard. I roll off and get on my knees. He grabs me by my hip bones and pulls me up. I feel his cock head searching for my pussy. He finds it and slowly pushes in. My pussy stretches open for him. He pulls me back and I feel him touch my cervix. We both push and I feel it tight against his cock. He flexes and I cum hard. He grabs my hair and pulls me back. He pushes down on my back and a little more cock goes in. He is in position for me and I start working his cock over. I hear him groan.  
 
  
 
@@ -596,7 +596,7 @@
 
  I wake the next morning. My eyes are swollen and painful. I make it to the bathroom and shower. I put a cold wet cloth on my eyes. After a few minutes they feel better and I take a Tylenol. I make my way to the kitchen and make some coffee and toast. I realize I can't go to work in this condition so I call in sick and I want the rest of the week off. 
 
- So, there I sit debating whether to call Eric now or wait. I know I'll have to do it sooner or later. I suck it up and call him. He doesn't answer. I send him a text, "Please call me. I need to talk to you." He doesn't respond. I don't want to tell him over the phone, but I may have to if he won't take my calls. I decide to wait. Report_Story #3 
+ So, there I sit debating whether to call Eric now or wait. I know I'll have to do it sooner or later. I suck it up and call him. He doesn't answer. I send him a text, "Please call me. I need to talk to you." He doesn't respond. I don't want to tell him over the phone, but I may have to if he won't take my calls. I decide to wait.  
 
  
 
@@ -894,7 +894,7 @@
 
  She starts back to work on my cock. She throats me and cups my balls. I can feel the tingling in my loins. She stay on it running her tongue up and down the underside of my cock. I feel it flare in her throat and I unload a massive load of cum in her. She sucks and swallows every drop. She falls beside me and I take her in my arms. 
 
- "Looks like we're gonna have a fun weekend, huh?" Report_Story #4 
+ "Looks like we're gonna have a fun weekend, huh?"  
 
  
 
@@ -1196,7 +1196,7 @@
 
  "I know you still love her. I can see that in your eyes." 
 
- "I still do, but she may have moved on. If I go back and she has it will just stir all the bad feelings up for her." Report_Story #5 
+ "I still do, but she may have moved on. If I go back and she has it will just stir all the bad feelings up for her."  
 
  
 

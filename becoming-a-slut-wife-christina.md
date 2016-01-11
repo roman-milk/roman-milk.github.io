@@ -128,7 +128,7 @@
 
  NIGHT OUT WITH KAREN 
 
- On the next night, Friday, I went out with Karen. We had dinner at her country club and talked about the previous night. She said her husband's rule was "What he didn't know wouldn't hurt him" and as a result he never asked her questions about where she went or what she did. We stayed and danced for a while and then, after midnight, she drove us to a downtown mega-bar. It was in an old warehouse or something and it had a different themed bar on each of its four floors. We went right to the 4th floor where there was a dark lounge that was furnished with couches and love seats and where soft, quiet music was being played. There was no dance floor, everyone just sat around in those little private areas and talked. Report_Story #2 
+ On the next night, Friday, I went out with Karen. We had dinner at her country club and talked about the previous night. She said her husband's rule was "What he didn't know wouldn't hurt him" and as a result he never asked her questions about where she went or what she did. We stayed and danced for a while and then, after midnight, she drove us to a downtown mega-bar. It was in an old warehouse or something and it had a different themed bar on each of its four floors. We went right to the 4th floor where there was a dark lounge that was furnished with couches and love seats and where soft, quiet music was being played. There was no dance floor, everyone just sat around in those little private areas and talked.  
 
  
 
@@ -258,7 +258,7 @@
 
  Our tongues were dueling and he had his fingers back in my pussy and I had just worked his dick out of his pants when suddenly he asked me to stand up so he could open his pants to get his zipper out of the way. I stood up and he pushed his pants down toward his knees and I went to sit back down and he grabbed me by the waist and pulled me down. I don't think he was trying to do it and I know for sure I wasn't trying, but when I hit his lap his cock went right into my wet pussy. I started to rise up, but he had his hands on my waist and he pulled me back down. I tried again and he pulled me back down again. Up, down, up, down, it was just like fucking. The third time when he pulled me down his cock rubbed my G-spot and I stopped trying to get away and I started riding him. 
 
- I couldn't believe that I was doing it. On a couch in a room full of people I was riding the cock of a guy whose name I didn't even know. Every time I pushed down on him his cock would touch my G-spot and my body quivered with orgasms. I felt his stiff cock get even harder as he pushed up at me as I pushed down on him. I knew he would be cumming inside me soon. He wrapped his arms around me and rolled me over onto my back and started fucking me hard. Someone started sucking on my left breast and I moaned and shoved my pussy up at the guy. I heard a woman say, "You go girl" and another one say, "I wish I had the guts to do something like that." A mouth latched onto my right breast and I moaned again. Suddenly the guy groaned and he pushed deep inside me and I felt the pulsations of his cock as he dumped his sperm inside me. He pumped several more times before I felt him lift himself off me. Report_Story #3 
+ I couldn't believe that I was doing it. On a couch in a room full of people I was riding the cock of a guy whose name I didn't even know. Every time I pushed down on him his cock would touch my G-spot and my body quivered with orgasms. I felt his stiff cock get even harder as he pushed up at me as I pushed down on him. I knew he would be cumming inside me soon. He wrapped his arms around me and rolled me over onto my back and started fucking me hard. Someone started sucking on my left breast and I moaned and shoved my pussy up at the guy. I heard a woman say, "You go girl" and another one say, "I wish I had the guts to do something like that." A mouth latched onto my right breast and I moaned again. Suddenly the guy groaned and he pushed deep inside me and I felt the pulsations of his cock as he dumped his sperm inside me. He pumped several more times before I felt him lift himself off me.  
 
  
 
@@ -280,7 +280,7 @@
 
  "I got fucked sweetie, I got fucked real good." 
 
- Nothing (extra-marital) has happened since that party. Is this enough for you to work with to do a story? Report_Story #1 
+ Nothing (extra-marital) has happened since that party. Is this enough for you to work with to do a story?  
 
  
 
@@ -482,7 +482,7 @@
 
  "Okay, now it is my turn to have some strange" but he hasn't. I don't know what I'll do if he does. I don't mind spreading my legs to give him what he wants, but I'm not that way - I DON'T SHARE! If Gary strayed I don't know if I'd cut his dick off or not, but he would damned sure find out just how pissed I was. 
 
- Hubby accepted an invitation from our asshole neighbor to watch the Final Four on his gigantic big screen TV. You remember? The dipshit who mauled my tits and told me I was the neighborhood MILF? Well, after the games were over he was in the hall when I came out of the bathroom (again!) and I told him if he touched my tits I'd scream loud enough to wake up the neighborhood. He put on a pout and told me what a poor sport I was, how he was just kidding, and couldn't I take a joke, blah, blah, blah. But he didn't touch my tits. Report_Story #2 
+ Hubby accepted an invitation from our asshole neighbor to watch the Final Four on his gigantic big screen TV. You remember? The dipshit who mauled my tits and told me I was the neighborhood MILF? Well, after the games were over he was in the hall when I came out of the bathroom (again!) and I told him if he touched my tits I'd scream loud enough to wake up the neighborhood. He put on a pout and told me what a poor sport I was, how he was just kidding, and couldn't I take a joke, blah, blah, blah. But he didn't touch my tits.  
 
  
 
@@ -492,7 +492,7 @@
 
  Sorry, nothing to report about April First Friday. A group of us went to Applebee's and after pre-dinner and post-dinner margaritas I got pretty wasted. After everybody else left I went and sat at the bar and had a couple of coffees while I flirted with the bartender. He offered to drive me home, but I was too tired to wait for the end of his shift so he called me a cab and stuffed his phone number in my purse. He was kind of hunky and I didn't throw his number away. 
 
- Today I took our son to the "Y" for free swim time and met a very nice father who was there with his daughter. He was charming and the time flew and we exchanged numbers so we could set up another swim date. Hmmm... Report_Story #1 
+ Today I took our son to the "Y" for free swim time and met a very nice father who was there with his daughter. He was charming and the time flew and we exchanged numbers so we could set up another swim date. Hmmm...  
 
  
 
@@ -764,7 +764,7 @@
 
  And then I rode him, God did I ever ride him. I couldn't remember ever before being in such a sexual frenzy. I came twice before he told me he was going to cum and then I rammed myself down on him and felt him let go. God it was good. 
 
- We fucked and suck late into the night. When we fell asleep one of us would wake up and then wake up the other and then we would go at it again. In the morning he ran out for some McDonald's breakfasts and then we fucked again until I had to shower, get dressed and meet my team in the lobby for the last office visit. Report_Story #2 
+ We fucked and suck late into the night. When we fell asleep one of us would wake up and then wake up the other and then we would go at it again. In the morning he ran out for some McDonald's breakfasts and then we fucked again until I had to shower, get dressed and meet my team in the lobby for the last office visit.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  "How did we get there?" 
 
- "I was warned about you and the wreckage you leave in your wake." Report_Story #3 
+ "I was warned about you and the wreckage you leave in your wake."  
 
  
 
@@ -1068,7 +1068,7 @@
 
  Love you, Chris 
 
- To Be Continued?? Report_Story #1 
+ To Be Continued??  
 
  
 
@@ -1364,7 +1364,7 @@
 
  "A little later I'm heading to "Annie's." It's a nice bar and tonight they are having a good blues band. Do you like the blues?" 
 
- Did I? Of course I knew who B. B. King and Muddy Waters were, but did I like the blues? Maybe, maybe not, but I did like Dave's smile and his demeanor. "Sure Dave, I like the blues. Who doesn't? How do I get to Annie's from here? Can I follow you?" Report_Story #2 
+ Did I? Of course I knew who B. B. King and Muddy Waters were, but did I like the blues? Maybe, maybe not, but I did like Dave's smile and his demeanor. "Sure Dave, I like the blues. Who doesn't? How do I get to Annie's from here? Can I follow you?"  
 
  
 
@@ -1478,7 +1478,7 @@
 
  Love you, Chris 
 
- To be continued? Report_Story #1 
+ To be continued?  
 
  
 
@@ -1796,7 +1796,7 @@
 
  Last night hubby played it just right - he was upset because I was upset and he didn't say anything that could be construed as a "hot wife" topic (even if he was thinking about it). 
 
- Anyway, Matt called me to say that he had been invited up for an interview, but he told me he had just accepted his "dream" job down in Miami. Then he said if it was possible that we could hook up again he would still come up for the interview. I told him I'd love to se him again. After he called HR back he called me back and said he was scheduled for an interview on Friday 12/8 and then he asked if he could book his return flight for Saturday instead of Friday. I told him that even though I could not make any promises about my weekend availability that if he felt lucky he might want to book the flight for Sunday. I am such a slut!!! Anyway, crisis averted and maybe some adventures coming to relate to you and hubby. Report_Story #2 
+ Anyway, Matt called me to say that he had been invited up for an interview, but he told me he had just accepted his "dream" job down in Miami. Then he said if it was possible that we could hook up again he would still come up for the interview. I told him I'd love to se him again. After he called HR back he called me back and said he was scheduled for an interview on Friday 12/8 and then he asked if he could book his return flight for Saturday instead of Friday. I told him that even though I could not make any promises about my weekend availability that if he felt lucky he might want to book the flight for Sunday. I am such a slut!!! Anyway, crisis averted and maybe some adventures coming to relate to you and hubby.  
 
  
 
@@ -1936,7 +1936,7 @@
 
  Love you baby, Chris 
 
- To be continued??? Report_Story #1 
+ To be continued???  
 
  
 
@@ -2140,7 +2140,7 @@
 
  And that boss, is why I'm late getting in today!!! You aren't going to dock my pay, are you? 
 
- Anyway, that's how I remember it and THIS IS MY LAST TIME - NO MORE! I can't keep being a slut even if my husband does want me to be one (Gary is looking over my shoulder and snickering as I type this - he doesn't think I can do it) BUT I MEAN IT!!!! NO MORE!! Report_Story #2 
+ Anyway, that's how I remember it and THIS IS MY LAST TIME - NO MORE! I can't keep being a slut even if my husband does want me to be one (Gary is looking over my shoulder and snickering as I type this - he doesn't think I can do it) BUT I MEAN IT!!!! NO MORE!!  
 
  
 

@@ -330,4 +330,4 @@
 
  She breaks away and climbs on top of him. She feels his wet cock between her legs. She kisses him and gives him a big smile. 
 
- "It's time to get rid of my gag reflex and start my throating lessons. I won't stop till I take all of your big hard cock down my neck." Report_Story #3 
+ "It's time to get rid of my gag reflex and start my throating lessons. I won't stop till I take all of your big hard cock down my neck."  

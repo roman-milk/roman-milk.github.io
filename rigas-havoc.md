@@ -156,7 +156,7 @@
 
  The man balked at this, obviously reluctant. He was happy enough to watch two dollies going at it in the back of his cab, but to expose himself – the law wouldn't take too kindly to that. 
 
- 'Do it,' Riga's voice was quiet but insistent, and the man unzipped his jeans and groped inside. It poked from the zip of the man's jeans, pale and flaccid, and Riga spoke again. 'Ladies,' he said and both women looked towards him, lipstick smeared and hair in disarray. 'Help our friend please.' He indicated the driver sat on the opposite folding chair. Report_Story #2 
+ 'Do it,' Riga's voice was quiet but insistent, and the man unzipped his jeans and groped inside. It poked from the zip of the man's jeans, pale and flaccid, and Riga spoke again. 'Ladies,' he said and both women looked towards him, lipstick smeared and hair in disarray. 'Help our friend please.' He indicated the driver sat on the opposite folding chair.  
 
  
 
@@ -264,7 +264,7 @@
 
  The use of the obscenity from Chrissie's cultured mouth sounded alien, as if a woman of such refined accent had no business using such a crude word. Riga felt the conflict between the texture of the word and Chrissie's English tones was perfect, like light and dark, complete opposites but each complimented the other, just as the use of such depraved language in such an accent fired the blood in Riga's veins to a higher temperature, and he felt his semen rise quickly along the shaft of his cock. 
 
- 'Oh yes!' Chrissie called loudly. 'You're going to get me off. Oh you beautiful bitch, fuck me with it, bang me, yes!' Chrissie's hands moved up and down Jennifer's arms as her orgasm threatened. She was lifting her hips from the bed and forcing as much of the cock into her body as could be found. The rubber cock was smeared with her lust, shining along its length as it disappeared and reappeared with Jennifer's generous thrusting movement. A thick residue had formed around the base of the shaft, like a tide mark, an indicator of just how much of the phallus Chrissie's body was swallowing. The cream had gathered, thick and white, and more of the stuff was continuing to build up as Jennifer kept pounding relentlessly. Report_Story #3 
+ 'Oh yes!' Chrissie called loudly. 'You're going to get me off. Oh you beautiful bitch, fuck me with it, bang me, yes!' Chrissie's hands moved up and down Jennifer's arms as her orgasm threatened. She was lifting her hips from the bed and forcing as much of the cock into her body as could be found. The rubber cock was smeared with her lust, shining along its length as it disappeared and reappeared with Jennifer's generous thrusting movement. A thick residue had formed around the base of the shaft, like a tide mark, an indicator of just how much of the phallus Chrissie's body was swallowing. The cream had gathered, thick and white, and more of the stuff was continuing to build up as Jennifer kept pounding relentlessly.  
 
  
 

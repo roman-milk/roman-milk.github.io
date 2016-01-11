@@ -220,7 +220,7 @@
 
  "He's the one being the asshole. Make him come to you." 
 
- Benny asked me if I was ready for another beer, but my good mood had evaporated so I told him no and he moved to the other end of the bar to take care of a customer. I finished my beer and left without looking over at the table where the girls were sitting. Report_Story #2 
+ Benny asked me if I was ready for another beer, but my good mood had evaporated so I told him no and he moved to the other end of the bar to take care of a customer. I finished my beer and left without looking over at the table where the girls were sitting.  
 
  
 
@@ -472,7 +472,7 @@
 
  ++++++++++++++++++++++ 
 
- The rest of the week was uneventful although on Friday I did get a call from Nancy Abbott. She apologized for the way she had behaved toward me. Report_Story #3 
+ The rest of the week was uneventful although on Friday I did get a call from Nancy Abbott. She apologized for the way she had behaved toward me.  
 
  
 
@@ -676,7 +676,7 @@
 
  +++++++++++++++ 
 
- It hasn't been easy. It took a while, but we have been able to make it work. Even though she is based out of Colorado now and has turned one of our bedrooms into an office she is still on the road a good bit. The 'goodbyes' before she leaves and the 'hellos' when she gets back are probably going to kill me some day, but oh Lord, what a way to go. Right now we are living together until her divorce becomes final. In order for her to get it I had to go down to her home town one weekend so her husband could 'catch' us in a local motel. Report_Story #4 
+ It hasn't been easy. It took a while, but we have been able to make it work. Even though she is based out of Colorado now and has turned one of our bedrooms into an office she is still on the road a good bit. The 'goodbyes' before she leaves and the 'hellos' when she gets back are probably going to kill me some day, but oh Lord, what a way to go. Right now we are living together until her divorce becomes final. In order for her to get it I had to go down to her home town one weekend so her husband could 'catch' us in a local motel.  
 
  
 

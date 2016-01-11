@@ -294,7 +294,7 @@
 
  The look on her face does it. My mother gazes up into my eyes, blowing me a kiss before beaming a huge smile, the expression melting to shock when she realises I'm coming. 
 
- "Kiss me," she groans, head lolling back as her own climax claims her and the spasms take hold. Report_Story #2 
+ "Kiss me," she groans, head lolling back as her own climax claims her and the spasms take hold.  
 
  
 
@@ -622,7 +622,7 @@
 
  "It's all right, Sean," she assures me, moving even closer. 
 
- But to my mind it most definitely isn't. It's very far from 'all right'. I'm not too impressed by my mother walking in on me mid-wank, even if she is the principal focus of the masturbatory frenzy I was so heavily involved in. Report_Story #3 
+ But to my mind it most definitely isn't. It's very far from 'all right'. I'm not too impressed by my mother walking in on me mid-wank, even if she is the principal focus of the masturbatory frenzy I was so heavily involved in.  
 
  
 

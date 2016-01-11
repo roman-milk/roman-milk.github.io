@@ -168,7 +168,7 @@
 
  A year passed and while things didn't get any better they never got any worse. But even though I didn't notice them noticing other people saw that things were not right between Camryn and me. I was at my parent's house for my dad's birthday and I'd managed to get myself half in the bag. When my dad asked me to join him in his study I should have found an excuse not to go if for no other reason than I'd been drinking too much and I know that my mouth runs away on me when I'm like that. 
 
- He cut right to the chase. Report_Story #2 
+ He cut right to the chase.  
 
  
 

@@ -136,7 +136,7 @@
 
  Samuel pulled away from the Lady's face in anticipation and as soon as his friend had pulled wetly from her dripping quim he pushed his cock deep into the oozing slit. 
 
- Samuel pounded away vigorously at her now, Levi's spunk leaking from around the sides of his own thrusting cock. He angled his length so that the Lady's clitoris was taking some friction from his thrusting, causing her climax to bubble on and on. Report_Story #2 
+ Samuel pounded away vigorously at her now, Levi's spunk leaking from around the sides of his own thrusting cock. He angled his length so that the Lady's clitoris was taking some friction from his thrusting, causing her climax to bubble on and on.  
 
  
 
@@ -262,7 +262,7 @@
 
  Archer dressed, ignoring Simon completely and left the chamber to attend to normal day to day matters about the house. His head was spinning with the recent events, Amelia begging for his seed and the untimely discovery by the sweet, innocent Amy. 
 
- He hoped against hope that Amelia could resolve matters regarding Amy but he was disturbed deeply by her wanting for his child. Report_Story #1 
+ He hoped against hope that Amelia could resolve matters regarding Amy but he was disturbed deeply by her wanting for his child.  
 
  
 

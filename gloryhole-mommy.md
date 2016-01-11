@@ -382,7 +382,7 @@
 
  I froze in utter shock. 
 
- My mouth dropped open like in a Looney Tunes cartoon. Report_Story #2 
+ My mouth dropped open like in a Looney Tunes cartoon.  
 
  
 

@@ -260,7 +260,7 @@
 
  "You haven't seen a doctor about the baby yet?" 
 
- "No money. When Rory split things got really tight for me." Report_Story #2 
+ "No money. When Rory split things got really tight for me."  
 
  
 
@@ -528,7 +528,7 @@
 
  The police came and it went the way that I hoped it would. They separated Gwen and me and interviewed us. Gwen told me later that it never got to the point where she needed to ask for an attorney. 
 
- The main question for me was how did I just happen to have my Colt so handy that I was able to get to things before Rory was even ten feet inside the house. I explained that Rory had threatened me a couple of days earlier. I told them what happened at the restaurant when I caught him grabbing Gwen. Report_Story #3 
+ The main question for me was how did I just happen to have my Colt so handy that I was able to get to things before Rory was even ten feet inside the house. I explained that Rory had threatened me a couple of days earlier. I told them what happened at the restaurant when I caught him grabbing Gwen.  
 
  
 

@@ -64,7 +64,7 @@
 
  I looked at him as if he were nuts and he laughed, "If you don't want her dude, I'll take a shot at it. Hell man, I'll do you a deal. I'll swap you my mom for yours." 
 
- That would be interesting. Troy's mom was every bit the fox that mine was. But that was a pipe dream and I knew it. The rest of the day what Troy said bounced around in my head. Was Troy right? Was my mom trying to get me to make a move on her? Report_Story #1 
+ That would be interesting. Troy's mom was every bit the fox that mine was. But that was a pipe dream and I knew it. The rest of the day what Troy said bounced around in my head. Was Troy right? Was my mom trying to get me to make a move on her?  
 
  
 
@@ -112,7 +112,7 @@
 
  I got home at my normal time and mom had dinner ready. She made small talk about how my day had gone and then she asked me to do the dishes while she took a shower. I was just hanging up the dishtowel when she called down, "Daniel, could you come up here for a minute?" 
 
- I went upstairs and found her standing in front of her mirror in heels, hose and nothing else. She had a pair of pink panties in one hand and a pair of black ones in the other. "What do you think baby? Which ones are the sexiest?" I pointed at the black. "Do you really think so?" She looked at them and then back at me. "Should I model them for you or would you rather not waste your time taking them off me?" She saw the look on my face and I saw that little smile as she said, "I thought so." She tossed the panties aside and walked toward me. Report_Story #1 
+ I went upstairs and found her standing in front of her mirror in heels, hose and nothing else. She had a pair of pink panties in one hand and a pair of black ones in the other. "What do you think baby? Which ones are the sexiest?" I pointed at the black. "Do you really think so?" She looked at them and then back at me. "Should I model them for you or would you rather not waste your time taking them off me?" She saw the look on my face and I saw that little smile as she said, "I thought so." She tossed the panties aside and walked toward me.  
 
  
 
@@ -146,7 +146,7 @@
 
  I looked into Monica's face and Monica saw that indeed Daniel would like a taste and she gave me the strangest look. Mom helped her wash her hair and then we got her out of the tub. Mom made her douche and helped her get dressed. Then I drove the two women to where Monica's car was parked and then mom drove her to within a block of her house. Monica drove the last block herself and then I picked up mom and we headed home. Mom slid over next to me and started to unzip my pants. As she took out my cock she said, "Would you have fucked her baby? If she had let you would you have cheated on your poor mommy?" Then she laughed, "Of course you would have. Maybe next time." 
 
- Later that night as I was buried in mom's pussy she asked between moans, "Who are you fucking now baby, Monica or me." Report_Story #1 
+ Later that night as I was buried in mom's pussy she asked between moans, "Who are you fucking now baby, Monica or me."  
 
  
 
@@ -192,7 +192,7 @@
 
  "You slut you." 
 
- She patted my cheek, "Yes baby, but that's what you love about me, isn't it?" Report_Story #1 
+ She patted my cheek, "Yes baby, but that's what you love about me, isn't it?"  
 
  
 
@@ -314,7 +314,7 @@
 
  Monica and Dale divorced and Monica moved to California to live with her family. Troy stayed just long enough to graduate and then he followed her. Mom changed the locks on the house so dad couldn't sneak back and catch her at anything. She stopped going out, stayed home and did her best to fuck Troy and me to death until he left to follow Monica. When I graduated I took a job that took me out of state. Mom and dad divorced and then she remarried. She comes to visit me several times a year and then she spreads her legs and tries to make up for lost time. It is real interesting when I go back to see her; she lucked out and married a guy who not only believes in open marriages, but who also likes to hide in the closet and watch. Mom told me about him, but she didn't tell him that she told me. Every time I go back to visit Eddie is in the closet watching as I put it to mom. Once, Troy and I managed to be back in town at the same time and Eddie got to see us double team her. 
 
- My association with mom and Monica twisted me somehow so that I can't seem to get along with "good girls." I've dated a lot of beautiful, smart and witty women of good morals, but I've never been able to form a lasting relationship with one of them. I seem attracted to the sluts - the girls with round heels that just give it away to everybody. I'm engaged to a girl I met at a gangbang, as big a cock-loving slut as you could ever hope to meet. She let me know up front that if we married she was still going to fuck other guys and she still intended to do the occasional gangbang. I haven't introduced Wendy to mom yet, but I think the two of them will really hit it off. I can just picture Wendy taking mom with her to one of her gangbangs. That would be so cool. Report_Story #1 
+ My association with mom and Monica twisted me somehow so that I can't seem to get along with "good girls." I've dated a lot of beautiful, smart and witty women of good morals, but I've never been able to form a lasting relationship with one of them. I seem attracted to the sluts - the girls with round heels that just give it away to everybody. I'm engaged to a girl I met at a gangbang, as big a cock-loving slut as you could ever hope to meet. She let me know up front that if we married she was still going to fuck other guys and she still intended to do the occasional gangbang. I haven't introduced Wendy to mom yet, but I think the two of them will really hit it off. I can just picture Wendy taking mom with her to one of her gangbangs. That would be so cool.  
 
  
 

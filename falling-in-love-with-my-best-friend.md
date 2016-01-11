@@ -262,7 +262,7 @@
 
  After one more tug, she moved back to her chair. I was holding her soiled panties in my hand. I instantly felt a gush in my own panties and stammered, standing up as I urgently tugged up my jeans, "I-I-I have to go." 
 
- I scurried out and went directly to the washroom. As soon as I got in the stall, I tugged my jeans down and began frantically rubbing myself. Getting close, I pulled her wet panties out of my jean pocket and put them to my nose, wanting to smell her scent. That was all it took and my orgasm rushed out of me as I screamed, "Fuuuuuuck," not caring if anyone else was in the washroom. Report_Story #2 
+ I scurried out and went directly to the washroom. As soon as I got in the stall, I tugged my jeans down and began frantically rubbing myself. Getting close, I pulled her wet panties out of my jean pocket and put them to my nose, wanting to smell her scent. That was all it took and my orgasm rushed out of me as I screamed, "Fuuuuuuck," not caring if anyone else was in the washroom.  
 
  
 

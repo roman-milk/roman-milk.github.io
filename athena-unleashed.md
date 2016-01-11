@@ -152,7 +152,7 @@
 
  The idea intrigued her. She swung her legs to the side and stood to let him take position face up on the lounger. She smiled at her previous partner who sat close at by, his hand massaging his reawakening phallus. He took the opportunity to lean in and kiss and nip at her ass before she swung her leg over his friend's reclining body. 
 
- She lowered herself to meet his stiff tool. Taking it in hand she took the opportunity to admire the strangeness of it; of its inner rigidity, its outer softness. She guided it to the soggy lips of her pussy, sliding the head over her clit, down the crevice of her sex to her eager orifice. She sighed as she lowered herself onto the shaft. In control now, she began riding it, shifting her position slightly this way and that until she was hitting her sweet spot on every stroke. He sat up so his face met her bouncing, swaying tits. Taking a nipple in his mouth he bit lightly, tugging at her with his teeth. Report_Story #2 
+ She lowered herself to meet his stiff tool. Taking it in hand she took the opportunity to admire the strangeness of it; of its inner rigidity, its outer softness. She guided it to the soggy lips of her pussy, sliding the head over her clit, down the crevice of her sex to her eager orifice. She sighed as she lowered herself onto the shaft. In control now, she began riding it, shifting her position slightly this way and that until she was hitting her sweet spot on every stroke. He sat up so his face met her bouncing, swaying tits. Taking a nipple in his mouth he bit lightly, tugging at her with his teeth.  
 
  
 

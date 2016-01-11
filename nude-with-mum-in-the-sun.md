@@ -226,7 +226,7 @@
 
  'Stop it, Mum. I'm getting hard.' 
 
- Margot laughed and walked on, leading her son by the hand. 'I've got an idea,' she said suddenly. With a nod of her head she indicated the sand dunes. 'Let's go into the dunes. We can make love out in the open.' Report_Story #2 
+ Margot laughed and walked on, leading her son by the hand. 'I've got an idea,' she said suddenly. With a nod of her head she indicated the sand dunes. 'Let's go into the dunes. We can make love out in the open.'  
 
  
 

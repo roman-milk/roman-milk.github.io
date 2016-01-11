@@ -178,7 +178,7 @@
 
  She seated herself at a table off to the side and out of their direct line of sight. A waitress promptly brought her a drink and menu and Cori asked her to please let Gerald know she was there whenever he had time to talk to her. She had just ordered a shrimp salad when she heard the commotion. It was coming from the bar and, no surprise, the three jerks were in the middle of it. The surprise was that poor Gerald was the most recent target of their abuse. 
 
- He was picking himself up off the floor and Cori quickly surmised that he had collided with one of the men -- not Sam, but one of the others. He was one of those guys who you couldn't tell how old he was because he had completely white hair, but the face of a much younger man. Because of the age of the other two guys, Cori had guessed him to be in his mid 40s to early 50s, but who knew? Apparently, his name was Miles Crawford -- or Crawford Miles -- because the other guys were referring to him either as "Miles" or "Crawford" with comments like, "are you going to take that from him, Miles?" and "I don't think he knows who you are, Crawford." Report_Story #2 
+ He was picking himself up off the floor and Cori quickly surmised that he had collided with one of the men -- not Sam, but one of the others. He was one of those guys who you couldn't tell how old he was because he had completely white hair, but the face of a much younger man. Because of the age of the other two guys, Cori had guessed him to be in his mid 40s to early 50s, but who knew? Apparently, his name was Miles Crawford -- or Crawford Miles -- because the other guys were referring to him either as "Miles" or "Crawford" with comments like, "are you going to take that from him, Miles?" and "I don't think he knows who you are, Crawford."  
 
  
 
@@ -404,7 +404,7 @@
 
  "Hmm, now you're asking a little much, aren't you?" Sam said. "I mean, you're pretty, but you're saying you're a $3,000 a day hooker." 
 
- "No, I'm not," Cori said. "Frankly, I don't understand why you guys don't just find someone else. You're rich and attractive. I'm sure you can find plenty of women. But, the truth is that Gerald and his family need this and, regardless of what you think, he deserves it. I know $10,000 is nothing to you, but it's a new life for him. I know I'm not worth that much, but I'm asking you as a favor. Write it off on your taxes, put it in your philanthropic newsletters, nominate each other for man of the year, I don't care. Just do something nice. I promise, if you do, I will be as good for you as I can be." Report_Story #3 
+ "No, I'm not," Cori said. "Frankly, I don't understand why you guys don't just find someone else. You're rich and attractive. I'm sure you can find plenty of women. But, the truth is that Gerald and his family need this and, regardless of what you think, he deserves it. I know $10,000 is nothing to you, but it's a new life for him. I know I'm not worth that much, but I'm asking you as a favor. Write it off on your taxes, put it in your philanthropic newsletters, nominate each other for man of the year, I don't care. Just do something nice. I promise, if you do, I will be as good for you as I can be."  
 
  
 
@@ -464,7 +464,7 @@
 
  "Gentlemen, thank you for your time," Rudin interrupted, escorting them to the door. "Please, do treat her with some respect. It took a lot of courage for her to do this. I know you want to have your fun and will do so. I know I have little control here, but I would consider it a personal favor if you honored her guidelines." 
 
- "Don't worry," Sam smiled, "If pussy is good to me, I'm good to it. We'll wear her out, but we won't hurt her." He was already planning his day with Cori. So much to do, so little time, he chuckled. Report_Story #1 
+ "Don't worry," Sam smiled, "If pussy is good to me, I'm good to it. We'll wear her out, but we won't hurt her." He was already planning his day with Cori. So much to do, so little time, he chuckled.  
 
  
 
@@ -592,7 +592,7 @@
 
  "Spread your pussy," he said. She reached both hands between her legs and pulled at the soft pussy lips, spreading herself for him. Again, what she thought was going to happen didn't. No tongue or finger or cock touched her pussy next. Instead, it was her bikini bottom, being stuff up inside of her. He pushed it further and further. "Let go," he said. She did and her pussy went shut. "Not a hint of it in sight," he said, nodding as if she had done a great job. 
 
- Just then there was a knock on the door. Cori froze, but Sam admonished her, "keep playing with yourself." She kept both hands on her crotch holding herself up by stabbing fingers inside herself or holding the insides of her thighs. She leaned over and watched Sam go to the door, completely naked, and open the door for two maids who came in, their big bare tits jiggling. They were both fairly young -- under 30 at least -- with dark, smooth skin that suggested to Cori they were probably locals. Apparently seeing another naked women with her feet tied to the ceiling fan wasn't an unusual sight, for they hardly seemed surprised to see her. They both acknowledged her, saying hello and Cori said hello back, finding it hysterical to be having a conversation with two topless women in this situation. How bizarre! Report_Story #2 
+ Just then there was a knock on the door. Cori froze, but Sam admonished her, "keep playing with yourself." She kept both hands on her crotch holding herself up by stabbing fingers inside herself or holding the insides of her thighs. She leaned over and watched Sam go to the door, completely naked, and open the door for two maids who came in, their big bare tits jiggling. They were both fairly young -- under 30 at least -- with dark, smooth skin that suggested to Cori they were probably locals. Apparently seeing another naked women with her feet tied to the ceiling fan wasn't an unusual sight, for they hardly seemed surprised to see her. They both acknowledged her, saying hello and Cori said hello back, finding it hysterical to be having a conversation with two topless women in this situation. How bizarre!  
 
  
 
@@ -762,7 +762,7 @@
 
  Cori slipped off her bikini bottoms while Sam watched, not even asking if she could take off her heels. She knew better by now. Cori was surprised that she had never worn an outfit quite like this before. She had worn fishnet and she had worn slings, but never a fishnet sling. This was made of a bright white, stretchy nylon string, about a quarter inch in diameter. The holes in the netting were full inch squares -- similar to the spacing in a volleyball net - - and there was no extra fabric to cover her nipples. 
 
- The sling was unlike any she had seen before in the way that it connected behind her neck. Like most slings, the top was split into two columns that went over her breasts vertically, leaving her belly bared as they joined forces at her crotch. She was thankful that the crotch was a dense cluster of the soft nylon and formed a comfortable, if very snug, cup that actually did a pretty good of covering her pussy lips, though her landing strip was not covered by the patch and was thus visible through the holes in the netting. Separating her ass cheeks was only one strand of the thin rope, which was stretched so tight that it stood out several inches from her bare back, touching at the base of her spine and at the base of her neck, but nowhere in between. Report_Story #3 
+ The sling was unlike any she had seen before in the way that it connected behind her neck. Like most slings, the top was split into two columns that went over her breasts vertically, leaving her belly bared as they joined forces at her crotch. She was thankful that the crotch was a dense cluster of the soft nylon and formed a comfortable, if very snug, cup that actually did a pretty good of covering her pussy lips, though her landing strip was not covered by the patch and was thus visible through the holes in the netting. Separating her ass cheeks was only one strand of the thin rope, which was stretched so tight that it stood out several inches from her bare back, touching at the base of her spine and at the base of her neck, but nowhere in between.  
 
  
 
@@ -928,7 +928,7 @@
 
  "Time." 
 
- "Oooh," Cori whimpered, letting her butt fall back to the deck. Report_Story #4 
+ "Oooh," Cori whimpered, letting her butt fall back to the deck.  
 
  
 
@@ -978,7 +978,7 @@
 
  Sam slammed back into her, holding one hip in his hand and waving to the crowd with the other. He noticed that several people were waving back, some watching through binoculars. Cori came almost immediately and, yes, it was as powerful an orgasm as she'd ever had. She screamed and rocked against him with all her might. Her pussy gushed liquid, which was soon mixed with his own stream of cum, all of it spilling out onto the deck as Sam pulled out and smacked her on the ass. He waved to the boat again and stepped away, quickly pulling on his swim trunks. 
 
- Cori felt the rope give and realized that someone had cut it. She fell backward onto the deck, landing in their own pool of cum. She lay there, squishing against the side of the boat, trying to hide from the onlookers while she basked in the glow of a beautiful orgasm. She might be mad later -- they had broken almost every rule already, public sex, multiple partners -- but right now everything felt good. Report_Story #1 
+ Cori felt the rope give and realized that someone had cut it. She fell backward onto the deck, landing in their own pool of cum. She lay there, squishing against the side of the boat, trying to hide from the onlookers while she basked in the glow of a beautiful orgasm. She might be mad later -- they had broken almost every rule already, public sex, multiple partners -- but right now everything felt good.  
 
  
 
@@ -1086,7 +1086,7 @@
 
  Now the girl on top was wriggling around, too, and Cori was being slid back and forth between these two hot women. The girl on top was sliding back and forth so far that her breasts were sliding across Cori's face. Cori kept her mouth closed, trying not to get any of the oil in her mouth, but the girl below her whispered in her ear "it's edible ... and yummy." Cori took the cue, opened her mouth and sucked the woman's tit into her mouth the next time it slid by. Indeed, the oil had a sweet, berry flavor too it and Cori was happy to suck it off the woman's erect nipple. 
 
- She twisted her head in search of the other nipple, but suddenly she slid off the girl below her and they all sprawled across the oily surface in a wet heap of tits and pussy. Cori's blindfold flew off and she looked around, her eyes adjusting quickly in the darkened room. She recognized the brunette twins - - the skanks, Sam had called them -- instantly. She also recognized the maids. She should have knows. Sam had enlisted the help of his staff and his sluts of the week in creating a little lesbian love show for his own amusement. Well, that was fine with her. Right now, these women had her on fire and she had never wanted to embrace another woman -- or women -- like she did now. Report_Story #2 
+ She twisted her head in search of the other nipple, but suddenly she slid off the girl below her and they all sprawled across the oily surface in a wet heap of tits and pussy. Cori's blindfold flew off and she looked around, her eyes adjusting quickly in the darkened room. She recognized the brunette twins - - the skanks, Sam had called them -- instantly. She also recognized the maids. She should have knows. Sam had enlisted the help of his staff and his sluts of the week in creating a little lesbian love show for his own amusement. Well, that was fine with her. Right now, these women had her on fire and she had never wanted to embrace another woman -- or women -- like she did now.  
 
  
 
@@ -1152,7 +1152,7 @@
 
  Cori woke up around 4 a.m. with Sam straddling her face, his cock slapping against her cheek. Obviously, a few hours sleep had done him some good. She opened up and sucked him as he fucked her face. He never said a word, just fucked her face, came in her mouth and went back to sleep. She awoke the next morning unsure if she had dreamed it or not until she tasted the salty aftertaste of cum in her mouth. 
 
- There was no time for another fuck and Sam didn't attempt it. She went back to her room and showered and dressed for Miles. She felt surprisingly good -- not sore at all. Just refreshed and strong and ready for another day. A couple of huge orgasms could do wonders for a girl, Cori mused. She wondered if more would be in store for her with Miles. Whatever was about to happen, she was ready. Report_Story #1 
+ There was no time for another fuck and Sam didn't attempt it. She went back to her room and showered and dressed for Miles. She felt surprisingly good -- not sore at all. Just refreshed and strong and ready for another day. A couple of huge orgasms could do wonders for a girl, Cori mused. She wondered if more would be in store for her with Miles. Whatever was about to happen, she was ready.  
 
  
 
@@ -1306,7 +1306,7 @@
 
  "I think I just did, too!" someone else said. 
 
- Cori grunted and sprinted and bounced around the court for about five more minutes, her body now drenched with water and sweat with a little pussy juice on her thighs for good measure. She loved playing tennis and she liked showing off. This was the best of both worlds. For the second day in a row, to her surprise, she was having a blast. She was watching Miles intently, knowing he would probably signal her soon. Sure enough, his eyes locked on hers and he gave a faint nod, tapping his thigh lightly but pointedly with his racket. Report_Story #2 
+ Cori grunted and sprinted and bounced around the court for about five more minutes, her body now drenched with water and sweat with a little pussy juice on her thighs for good measure. She loved playing tennis and she liked showing off. This was the best of both worlds. For the second day in a row, to her surprise, she was having a blast. She was watching Miles intently, knowing he would probably signal her soon. Sure enough, his eyes locked on hers and he gave a faint nod, tapping his thigh lightly but pointedly with his racket.  
 
  
 
@@ -1466,7 +1466,7 @@
 
  "Good, take over for me here. Nice and gentle. That's it. Now, you two," Miles pointed at tall man with a bald head and thick beard and another man with wire- rim glasses and an Oxford shirt. They looked like a biker and a professor and made for quite an odd couple, but he was going to give them a simple job. "Come here and spread her legs as far as you can. I need to have room to work here. I tell ya, this medical stuff is very tricky." 
 
- They all chuckled, well aware now that this was no attempt to fix Cori's leg, which they realized probably wasn't even hurt. This was about making a hot girl cum and, they hoped, getting a chance to fuck her themselves. The two men took their places, grabbing her ankles and pulling her legs wide apart until she was doing the splits. Report_Story #3 
+ They all chuckled, well aware now that this was no attempt to fix Cori's leg, which they realized probably wasn't even hurt. This was about making a hot girl cum and, they hoped, getting a chance to fuck her themselves. The two men took their places, grabbing her ankles and pulling her legs wide apart until she was doing the splits.  
 
  
 
@@ -1586,7 +1586,7 @@
 
  "It was a thong," Miles corrected matter-of-factly, "and yes, it ripped unfortunately. I apologize if it offends anyone here, but pulled and strained muscles are nothing to mess around with. If you're too immature to handle the site of adult woman receiving medical care, I feel sorry for you." 
 
- Miles' speech was condescending and arrogant, delivered in a mocking tone that he found funny. The other men seemed to appreciate it to. It shut the woman up as she just looked away, forcing her husband to look away too, even though he clearly didn't want to. It bothered Cori a little bit, reminding her of how cold and mean-spirited these guys could be. They hadn't been that way with her yet, but she had maintained the right attitude, not giving them reason to be. And, she thought, even though they had shown no respect for the boundaries she set on Day One, maybe she had earned just enough respect so far to keep them from becoming mean or violent with her. She hoped that was the case. Report_Story #4 
+ Miles' speech was condescending and arrogant, delivered in a mocking tone that he found funny. The other men seemed to appreciate it to. It shut the woman up as she just looked away, forcing her husband to look away too, even though he clearly didn't want to. It bothered Cori a little bit, reminding her of how cold and mean-spirited these guys could be. They hadn't been that way with her yet, but she had maintained the right attitude, not giving them reason to be. And, she thought, even though they had shown no respect for the boundaries she set on Day One, maybe she had earned just enough respect so far to keep them from becoming mean or violent with her. She hoped that was the case.  
 
  
 
@@ -1720,7 +1720,7 @@
 
  "Wouldn't be a bad job for you if you wanted to stay here," Sam said. "Of course, you'd probably be pretty uncomfortable. That's a lot more clothes than you're used to wearing I bet." 
 
- "I think I could get used to it if it meant living here," Cori said. She was joking, but a quick thought ran through her head. Could she just stay here year round? She could do this job and probably live off the tips -- rich guys always gave pretty girls lots of money for doing nothing more than looking pretty and maybe flashing a little skin. She could make ends meet and wouldn't have to worry about taking care of anyone but herself. It was tempting, but only for a fleeting moment. She wanted more from life. She knew she was smart enough and talented enough to do more than be a pretty toy for rich guys. And, while she had several good years left, she wouldn't be the hot young flavor of the month forever. Then what? No, she needed to start thinking about the future now. She had come here to get away, relax and refocus her life and that was what she was going to do ... as soon as she spent another day and a half as the personal, private entertainment for these three men. Report_Story #5 
+ "I think I could get used to it if it meant living here," Cori said. She was joking, but a quick thought ran through her head. Could she just stay here year round? She could do this job and probably live off the tips -- rich guys always gave pretty girls lots of money for doing nothing more than looking pretty and maybe flashing a little skin. She could make ends meet and wouldn't have to worry about taking care of anyone but herself. It was tempting, but only for a fleeting moment. She wanted more from life. She knew she was smart enough and talented enough to do more than be a pretty toy for rich guys. And, while she had several good years left, she wouldn't be the hot young flavor of the month forever. Then what? No, she needed to start thinking about the future now. She had come here to get away, relax and refocus her life and that was what she was going to do ... as soon as she spent another day and a half as the personal, private entertainment for these three men.  
 
  
 
@@ -1880,7 +1880,7 @@
 
  "Thank you so much," Cori said, their eyes connecting. She glanced and realized that Miles and Sam were already setting up on the next tee. They hadn't realized the seriousness of this exchange to Cori. But there was Victor, right with her. She didn't feel any romantic connection to him or anything like that, but she felt a connection. Maybe it was almost father-like -- an elder who seemed to truly understand and respect her, even if he did have every intention of fucking her five or six different ways in the next day and a half. Ben at the shop had been like a big brother. John had been like a grandfather, even though he wasn't that old. And Ty had been the party friend. Her step-dad had been a jerk, Crisp a near rapist and Tony a savior. Gerald was sweet and harmless. But no one had been like a father to her. Maybe he hadn't been yesterday and maybe he wouldn't be tomorrow, but right then, in that moment, Victor had been the best father she had ever had. She didn't know how to tell him that, so they walked silently toward the next green, ready to continue. 
 
- She could see by the gleam in his eye that Sam already had an idea. He had moved on from the encounters with the guys and the beer girls. His mind remained focus on one thing -- Cori and her body and, more specifically, how to show it off for his own amusement. Miles seemed to be of a like mind and was certainly in good spirits, thanks to the incomparable feeling of having received two world-class blowjobs in the past couple of hours -- both in front of a jealous audience. Report_Story #6 
+ She could see by the gleam in his eye that Sam already had an idea. He had moved on from the encounters with the guys and the beer girls. His mind remained focus on one thing -- Cori and her body and, more specifically, how to show it off for his own amusement. Miles seemed to be of a like mind and was certainly in good spirits, thanks to the incomparable feeling of having received two world-class blowjobs in the past couple of hours -- both in front of a jealous audience.  
 
  
 
@@ -2026,7 +2026,7 @@
 
  Cori stood up and Sam and Victor stepped up, taking the wet leg warmers out of her hands. 
 
- "We'll take care of this," Victor smiled. He manned her left breast while Sam took the right. First, they both squeezed the excess water out of the leg warmers, letting it spill over her breasts, immediately washing away much of the sand. Then, gently but with enough firmness to scrub off the particularly sticky spots, they held and rubbed her breasts, wiping away sand and cum. Report_Story #7 
+ "We'll take care of this," Victor smiled. He manned her left breast while Sam took the right. First, they both squeezed the excess water out of the leg warmers, letting it spill over her breasts, immediately washing away much of the sand. Then, gently but with enough firmness to scrub off the particularly sticky spots, they held and rubbed her breasts, wiping away sand and cum.  
 
  
 
@@ -2168,7 +2168,7 @@
 
  Cori shook her head, laughing again. Oh my god, these guys were determined to drive her crazy. She knew the cold wouldn't help at all. It was only going to make her nipples harder, more sensitive, her horniness growing to levels she had seldom reached. But again, she was calm as she dipped her right nipple into the soft, cool ice cream. It was vanilla and the white dessert looked fantastic against her dark skin as she raised her breast to her mouth and sucked the ice cream off, remnants clinging to her lips and chin, in no way a subtle reminder to the guys of how their cum looked on her face. 
 
- She looked at Hildebrand and was surprised to see that he was rubbing his crotch. She had this effect on guys before, of course, but she didn't expect it from the manager of such a prestigious club, a man who seemed so calm and professional. He wasn't even trying to hide it and, she noted, he had reason to be proud. His bulge was sizable. Uncharacteristically for her, she felt an urge to see it. To lick it. To make it so hard that it feel like a piece of steel inside her pussy and she would ride it for hours while she came over and over again, finally getting the release she needed. Report_Story #8 
+ She looked at Hildebrand and was surprised to see that he was rubbing his crotch. She had this effect on guys before, of course, but she didn't expect it from the manager of such a prestigious club, a man who seemed so calm and professional. He wasn't even trying to hide it and, she noted, he had reason to be proud. His bulge was sizable. Uncharacteristically for her, she felt an urge to see it. To lick it. To make it so hard that it feel like a piece of steel inside her pussy and she would ride it for hours while she came over and over again, finally getting the release she needed.  
 
  
 
@@ -2308,7 +2308,7 @@
 
  She wasn't surprised when he woke her up at 3 a.m., spreading her legs and fucking her for about 10 minutes before shooting inside her and rolling back over and going to sleep. He woke her up again at 6:30, tapping his cock against her cheek until she woke up and gave him the cock-swallowing blowjob every man deserves first thing in the morning. She swallowed it all, then got dressed and went back to her suite. She took a hot shower, taking extra time on her hair, then check her messages as she got ready for the day, putting on more lotion, a little makeup and brushing her teeth. 
 
- Victor was on the machine, and he had instructions for her. Report_Story #1 
+ Victor was on the machine, and he had instructions for her.  
 
  
 
@@ -2462,7 +2462,7 @@
 
  Just then, he heard Victor's voice and turned to see him walking up the sidewalk. "She's ready for you, man," Coffman said. 
 
- "Good," Victor said. He jogged forward, grabbed Cori by the rest and pulled her inside, leaving the door open. Coffman figured it was an invitation to watch the show and followed them inside. Victor hadn't been kidding about wasting no time. By the time Coffman got to the bedroom, all he saw was Cori's heels high in the air and Victor's ass pumping away. Coffman walked around to get a better view and watched Cori's tits bounce all over her chest as Victor gave her a good hard screwing. Technically, she was still clothed, as Victor had simply pushed the straps over her breasts aside and had done likewise with the thong strap. Report_Story #2 
+ "Good," Victor said. He jogged forward, grabbed Cori by the rest and pulled her inside, leaving the door open. Coffman figured it was an invitation to watch the show and followed them inside. Victor hadn't been kidding about wasting no time. By the time Coffman got to the bedroom, all he saw was Cori's heels high in the air and Victor's ass pumping away. Coffman walked around to get a better view and watched Cori's tits bounce all over her chest as Victor gave her a good hard screwing. Technically, she was still clothed, as Victor had simply pushed the straps over her breasts aside and had done likewise with the thong strap.  
 
  
 
@@ -2630,7 +2630,7 @@
 
  Cori looked around, noting that there were a lot more people out and about now. It was mid-morning and people were done sleeping in or eating breakfast and were getting on with their day. That was good and bad. More people to deal with looking at her or potentially intercepting her, but also more people to serve as witnesses -- and deterrents -- to anyone looking for trouble. 
 
- A couple of people stared at her as she walked by, one woman offering to help her or call someone for her, but she stumbled onward. She saw two men sitting on a bench ahead and thought they could be the ones. As she approached, she heard them talking about boats and fish and she noted that they both appeared to be in their 50s or 60s, their sun-baked leather skin a clear indicator of lives spent outdoors. She wondered why they were here. Locals wouldn't come to a place like this, but they certainly weren't Midwesterners, either. Maybe they had come down from Florida or the Carolinas for a break from their charter fishing businesses. Not that it mattered, but Cori found herself curious about people, who they were, how they got where they were. If she knew more about them, she might have a better idea how they would respond to her. Were they religious men who would scold her for her scandalous attire? Were they dirty old men who would be thrilled by her presence? Were they old Boy Scouts who would kindly escort her home? Who knew? But she was about to find out. Report_Story #3 
+ A couple of people stared at her as she walked by, one woman offering to help her or call someone for her, but she stumbled onward. She saw two men sitting on a bench ahead and thought they could be the ones. As she approached, she heard them talking about boats and fish and she noted that they both appeared to be in their 50s or 60s, their sun-baked leather skin a clear indicator of lives spent outdoors. She wondered why they were here. Locals wouldn't come to a place like this, but they certainly weren't Midwesterners, either. Maybe they had come down from Florida or the Carolinas for a break from their charter fishing businesses. Not that it mattered, but Cori found herself curious about people, who they were, how they got where they were. If she knew more about them, she might have a better idea how they would respond to her. Were they religious men who would scold her for her scandalous attire? Were they dirty old men who would be thrilled by her presence? Were they old Boy Scouts who would kindly escort her home? Who knew? But she was about to find out.  
 
  
 
@@ -2804,7 +2804,7 @@
 
  "What's the problem?" Ponytail said, pulling his cock out and quickly putting his pants back on. "She needed fluids and I gave them to her. She's not going to remember. She swallowed the evidence, so he'll never know. I'm happy and they'll neither one ever know or care." 
 
- AJ shrugged his shoulders and followed suit, putting his cock against Cori's lips, gently parting them. "Suck the straw, baby," he cooed, stroking her cheek and her hair. She sucked hard as if trying to get a drink, not the head- bobbing, tongue-wrapping style she would normally employ for a blowjob. While not her best work, it certainly produced results. Report_Story #4 
+ AJ shrugged his shoulders and followed suit, putting his cock against Cori's lips, gently parting them. "Suck the straw, baby," he cooed, stroking her cheek and her hair. She sucked hard as if trying to get a drink, not the head- bobbing, tongue-wrapping style she would normally employ for a blowjob. While not her best work, it certainly produced results.  
 
  
 
@@ -2968,7 +2968,7 @@
 
  "As you can see," Victor began his commentary, "her ass and legs are perfect. Look how tan and toned her legs are -- very athletic and feminine at the same time. And her ass is just as smooth and firm and round as it looks on this video." Still filming, he reached out and squeezed her ass cheek, then pulled on the string splitting her ass, tugging into deeper between her legs. Cori never broke stride. 
 
- "If you enjoy looking at this ass, think how much fun it is to touch and play with any time you want," Victor continued. "Of course, the view is pretty good from the front, too." He moved around to the front of the treadmill, keeping the camera focused at her waist so that he now had a tight shot of her bare belly and the camel toe created by the taut sling. "I don't think I have any words to do that justice," Victor continued. "Perfection is the best I can offer. And these are mighty fine, too." He panned up now to her tits, letting the camera record her jiggling knockers for a few moments before reaching out and pulling the straps to the outsides of her breasts. Her hard nipples pointed straight at the camera, bouncing lightly atop her firm breasts. Report_Story #5 
+ "If you enjoy looking at this ass, think how much fun it is to touch and play with any time you want," Victor continued. "Of course, the view is pretty good from the front, too." He moved around to the front of the treadmill, keeping the camera focused at her waist so that he now had a tight shot of her bare belly and the camel toe created by the taut sling. "I don't think I have any words to do that justice," Victor continued. "Perfection is the best I can offer. And these are mighty fine, too." He panned up now to her tits, letting the camera record her jiggling knockers for a few moments before reaching out and pulling the straps to the outsides of her breasts. Her hard nipples pointed straight at the camera, bouncing lightly atop her firm breasts.  
 
  
 
@@ -3044,7 +3044,7 @@
 
  "Now that's a hungry little bitch," Sam laughed, putting his hand on the back of her head and thrusting his cock into her mouth. "Get a good mouthful of that, you little slut." 
 
- Cori licked and sucked as quickly as her lips and tongue could work. She filled her cheeks with as much chocolate as she could, continually fighting the reflex to swallow. Funny, it had taken her a while to learn to control her gag reflex, but seldom did she have to deal with not swallowing -- except for when a guy wanted her to hold his cum in her mouth for a while. Anyway, she had planned to get as much chocolate as she could from both cocks, but realized that she couldn't possibly hold this gooey chocolate syrup in her mouth without spilling or swallowing it while she opened her mouth to suck Miles. She'd have to empty her mouth first. She quickly scrambled back and spit the chocolate out onto the ice cream, disappointed at how little it looked like. She looked at Sam's cock as she headed back and was surprised to see that a lot of chocolate still remained. Report_Story #6 
+ Cori licked and sucked as quickly as her lips and tongue could work. She filled her cheeks with as much chocolate as she could, continually fighting the reflex to swallow. Funny, it had taken her a while to learn to control her gag reflex, but seldom did she have to deal with not swallowing -- except for when a guy wanted her to hold his cum in her mouth for a while. Anyway, she had planned to get as much chocolate as she could from both cocks, but realized that she couldn't possibly hold this gooey chocolate syrup in her mouth without spilling or swallowing it while she opened her mouth to suck Miles. She'd have to empty her mouth first. She quickly scrambled back and spit the chocolate out onto the ice cream, disappointed at how little it looked like. She looked at Sam's cock as she headed back and was surprised to see that a lot of chocolate still remained.  
 
  
 
@@ -3174,7 +3174,7 @@
 
  She slept all day. She didn't even here the maids enter and leave. She heard nothing, dead to the world for almost 12 hours. Finally, she woke to a pounding on the door. Had one of the guys missed their flight? She hoped not. Barefoot, she stumbled to the door, her white sling still molded to her nearly nude body. She peeped through the hole in the door and saw Gerald's smiling face. She opened the door, smiling, happy to see him. Mr. Rudin was behind him as well. 
 
- "Hey!" she said, her voice hoarse after just waking up and going all day with no liquids. She realized that probably the last thing she drank or ate would have been the multiple loads of cum Victor had dumped down her throat. She hadn't eaten or drank anything else in the last 24 hours. Suddenly, she realized she was very hungry and thirsty. She opened the door wide and let her guests enter. "Come on in, guys!" Report_Story #7 
+ "Hey!" she said, her voice hoarse after just waking up and going all day with no liquids. She realized that probably the last thing she drank or ate would have been the multiple loads of cum Victor had dumped down her throat. She hadn't eaten or drank anything else in the last 24 hours. Suddenly, she realized she was very hungry and thirsty. She opened the door wide and let her guests enter. "Come on in, guys!"  
 
  
 
@@ -3238,7 +3238,7 @@
 
  Rudin unzipped his pants and Cori knelt down in front of him, quickly turning his semi-erect cock into a throbbing 7-inch piece of steel-hard meat. He didn't come close to lasting 15 minutes -- about five -- before he filled her mouth with a prodigious load of cum. Cori realized that the man obviously hadn't had sex for a while and felt a little sorry for him. Though she had told herself she wasn't going to make decisions based on being sorry for someone else anymore, it still made her feel better about her decision, knowing that she was giving a nice man rare moments of pure pleasure. It was a remarkable gift to be able to offer and she suddenly felt very powerful. 
 
- She swallowed his load happily, then left with a bounce in her step, promising to visit again soon. Report_Story #1 
+ She swallowed his load happily, then left with a bounce in her step, promising to visit again soon.  
 
  
 
@@ -3350,7 +3350,7 @@
 
  "Of course," Harris said. 
 
- Cori walked out of the office and out into the quad, plopping down under a tree. She thought about the last few months. All the great times at the shop where she had enjoyed virtually every minute of every day. That was all sex, all the time and she loved. Then, Chad and her step-dad and Crisp and others had nearly ruined it for her. Maybe they had. She had hated the sundae-making race the guys had put her through, but she had enjoyed being publicly flaunted and fucked on the golf course. Maybe it was she, not the guys in her life, who was mixed up. Maybe she needed to see a counselor. That might help, but she knew that ultimately her happiness was up to her. She realized she had often found excuses and justifications for acting the way she did. It was OK to let herself be tied to a boat and fucked because it was helping Gerald. Letting herself off the hook allowed her enjoy it. Report_Story #2 
+ Cori walked out of the office and out into the quad, plopping down under a tree. She thought about the last few months. All the great times at the shop where she had enjoyed virtually every minute of every day. That was all sex, all the time and she loved. Then, Chad and her step-dad and Crisp and others had nearly ruined it for her. Maybe they had. She had hated the sundae-making race the guys had put her through, but she had enjoyed being publicly flaunted and fucked on the golf course. Maybe it was she, not the guys in her life, who was mixed up. Maybe she needed to see a counselor. That might help, but she knew that ultimately her happiness was up to her. She realized she had often found excuses and justifications for acting the way she did. It was OK to let herself be tied to a boat and fucked because it was helping Gerald. Letting herself off the hook allowed her enjoy it.  
 
  
 
@@ -3454,7 +3454,7 @@
 
  Her pussy was dripping and heating up fast. Yes, giving had its rewards, too, she thought. Oh yes, if they could keep this up for a few more minutes, she'd be cumming hard. They had very seldom triple-teamed her like this, but she now wished they would have done it more often. It felt so good to be completely filled by rock hard cocks, feeling their smooth shafts and mushroom heads slide against the linings of her throat, ass and pussy, the veiny pricks throbbing and pulsing inside her full of life and power. Their heavy balls, round and hard and full of cum, slapped against her, getting closer to injecting their seed into her with every thrust. 
 
- She arched her back drove her hips downward while she pushed back against Ty's cock. She wanted to make sure she was as full as she could get. She missed these cocks so much and she wanted to take every inch now. Her nipples were being teased and tormented by John, who lay virtually motionless beneath her, letting her hips and Ty's thrusts provide the energy and friction for his cock in her pussy. The angle was just right and Cori felt John's cock hitting exactly the right spot, that mushroom head softly caressing her most sensitive areas. Report_Story #3 
+ She arched her back drove her hips downward while she pushed back against Ty's cock. She wanted to make sure she was as full as she could get. She missed these cocks so much and she wanted to take every inch now. Her nipples were being teased and tormented by John, who lay virtually motionless beneath her, letting her hips and Ty's thrusts provide the energy and friction for his cock in her pussy. The angle was just right and Cori felt John's cock hitting exactly the right spot, that mushroom head softly caressing her most sensitive areas.  
 
  
 
@@ -3596,7 +3596,7 @@
 
  It all started with the feet and just got better as you went up. She wore bright red heels with straps over the toes and around the ankle. She also wore white bobbi socks, the frills just above the ankle strap. Her long, sculpted legs were on display in her extreme mini red and black plaid skirt. It was just long enough to cover her ass when she was standing up and just touched the tops of her thighs, covering her pussy as well. She wore a white g-string underneath, wearing it high on her hips to make sure that her whale tail was visible at all times. Guys loved that, she knew. Her shirt had been specially tailored. It was a white blouse like a schoolgirl might wear, with three major modifications. One, it had no buttons. Two, it was cut so short that it only reached to just below her breasts. And three, it was too small to even reach in the front. The guys had always bought Cori's clothes a size or two too small, but in this case, they had gone extreme. So, there were two options to hold it closed. One was to tie the ends together at the bottom. They barely reached and the knot was constantly being strained by the force and strain of her tits pushing to bust free. So, she often went with the other option, which was to clip the bottom ends together with a safety pin. She chose a bright red one which matched her shoes and skirt and also stood out against the white top, drawing added attention to the fact that one tiny little pin was all that was keeping her tits in check. Her nipples stretched the shirt even further and her nipple rings were clearly evident. 
 
- She wore a thin red leather choker that said, in white letters, "S is for Slut." Her lipstick was bright red and she had her hair in a ponytail with bright red ribbon. For effect, she had a red plastic lollipop as well. It had a cherry flavored coating on it which made it enjoyable to suck on and the fact that it was plastic made it possible for her to suck on it all day long. They guys had found it in a sex toy magazine and had ordered a case of them. She had packed about a dozen in her bag since they took up little room and always seemed to be crowd pleaser. She was confident Harris would enjoy watching her wrap her lips and tongue around this one. She might even stuff it inside her pussy for him, then lick off her juices. She was feeling horny already. This outfit always made her feel sexy. Report_Story #4 
+ She wore a thin red leather choker that said, in white letters, "S is for Slut." Her lipstick was bright red and she had her hair in a ponytail with bright red ribbon. For effect, she had a red plastic lollipop as well. It had a cherry flavored coating on it which made it enjoyable to suck on and the fact that it was plastic made it possible for her to suck on it all day long. They guys had found it in a sex toy magazine and had ordered a case of them. She had packed about a dozen in her bag since they took up little room and always seemed to be crowd pleaser. She was confident Harris would enjoy watching her wrap her lips and tongue around this one. She might even stuff it inside her pussy for him, then lick off her juices. She was feeling horny already. This outfit always made her feel sexy.  
 
  
 
@@ -3770,7 +3770,7 @@
 
  "I would have taken you in the front yard and around the block," Harris said, watching his pet crawl obediently behind him, "but I can't risk being seen with you like this. We'll have to keep our public appearances to a minimum and they must always appear to be perfectly normal administrator-student interaction. Understand?" 
 
- "Arf!" Cori yelped. Already this was a change of pace. She was used to being shown off as much as possible. She had no doubt Harris wished to do the same - - all men seemed to like that -- but she understood why he couldn't. She found herself a bit disappointed that she wouldn't be prancing around for him in public, displaying herself as his trophy. Of course, she knew Ty would still do that when time permitted. She wondered what the other administrators from the university Harris had spoken of would do with her. Discretion would be key for them too. Plus, Harris had said he wanted her to appear and act like a regular student. Yes, this was going to be different indeed. Well, she'd have time to get used to it, with a few months working a regular job in a real office where sex played no role. She was both anxious and nervous to see how it would go. She always felt like she was smart enough to do the job, but now she was going to be walking on the high-wire without her safety net -- her body. Could she really hold up in a professional setting using nothing more than her brains and intuition and personality? Report_Story #5 
+ "Arf!" Cori yelped. Already this was a change of pace. She was used to being shown off as much as possible. She had no doubt Harris wished to do the same - - all men seemed to like that -- but she understood why he couldn't. She found herself a bit disappointed that she wouldn't be prancing around for him in public, displaying herself as his trophy. Of course, she knew Ty would still do that when time permitted. She wondered what the other administrators from the university Harris had spoken of would do with her. Discretion would be key for them too. Plus, Harris had said he wanted her to appear and act like a regular student. Yes, this was going to be different indeed. Well, she'd have time to get used to it, with a few months working a regular job in a real office where sex played no role. She was both anxious and nervous to see how it would go. She always felt like she was smart enough to do the job, but now she was going to be walking on the high-wire without her safety net -- her body. Could she really hold up in a professional setting using nothing more than her brains and intuition and personality?  
 
  
 
@@ -3820,7 +3820,7 @@
 
  "Shut that dog up!" a neighbor yelled. Cori kept barking until Harris pinched her ass and she yelped as if someone had jerked her chain. She stopped barking, but Harris didn't stop pounding. He made sure she knew who the master was, dominating her ass with a powerful flurry of piston-like strokes that eventually climaxed in flood of cum. He splattered it all into the empty water dish while Cori turned around and offered to clean him with her mouth. He accepted the offer and then led her back to the patio. He turned on the patio light and sat the dish full of cum on the patio. 
 
- "Drink up, bitch," he said, patting her head. Cori dipped her head to the dish and lapped at the pools of cum that had collected there, looking up at him each time she got a mouthful, showing it to him before she swallowed and went back for more. Report_Story #1 
+ "Drink up, bitch," he said, patting her head. Cori dipped her head to the dish and lapped at the pools of cum that had collected there, looking up at him each time she got a mouthful, showing it to him before she swallowed and went back for more.  
 
  
 
@@ -3964,7 +3964,7 @@
 
  The three main offices -- Claire's, Ted's and Barry's -- were located in the corridor to the left away from the reception area where Douglas' desk sat. Directly behind the reception area, however, separated by a glass wall decorated with pictures of famous athletes Cori assumed were clients, was a large open area. In it were a conference table, two large video monitors, a library of books and media materials, a drawing table and a lone desk with a computer on it. To the right of this large area were three more rooms -- the large office housing the account reps, a room which held the copy machine and other office supplies and a break room with lunch tables, a refrigerator and vending machines. A hallway out the back side of the room led to the restrooms. 
 
- The lone desk in the middle of the large room, Cori, learned, was to be hers. While the others all had name tags on their doors, Cori's desk had a simple sign that said "Staff Assistant". Obviously, this was where they always put their interns. Which made sense, since this allowed her to see and hear a lot of what was going on and to be accessible to anyone needing her help. Report_Story #2 
+ The lone desk in the middle of the large room, Cori, learned, was to be hers. While the others all had name tags on their doors, Cori's desk had a simple sign that said "Staff Assistant". Obviously, this was where they always put their interns. Which made sense, since this allowed her to see and hear a lot of what was going on and to be accessible to anyone needing her help.  
 
  
 
@@ -4160,7 +4160,7 @@
 
  Ms. Chloe rang up the total -- which was more than most cars cost, Cori thought -- and then Molly came up and said, "Cori, do you have a nice bag for work?" 
 
- "No," Cori said. "But..." Report_Story #3 
+ "No," Cori said. "But..."  
 
  
 
@@ -4296,7 +4296,7 @@
 
  She found herself looking ahead, trying to anticipate the next bump or bounce. So, she closed her eyes, giving her body over to the mercy of the truck and her bonds and this brutal yet wonderful terrain. These rocks had never been put to a better purpose, she thought, as her pussy warmed and began to cream, slowly at first, then building into a churning tunnel of juice that bubbled and surged, ready to spill all over that wonderful dildo. 
 
- Suddenly, the truck stopped and Cori moaned. Denied again, she thought. But Ty was looking at her, smiling with lust. "They call this the gauntlet," he said, pointing ahead to a long series of rocks that had been moved into sort of course. She could see the rocks were a mixture of large and small and they seemed to go on for over 200 yards. She could practically feel the truck rocking up and down like a ship in a storm and thought about that dildo thrusting relentlessly in and out of her. She nearly came then as she nodded her approval for Ty to proceed. He gunned the engine and they were off, lifting off the ground several times, then crashing back down as that eight-inch dildo felt like it went nine inches deep. She came half way through the gauntlet and came three more times by the time Ty had completed his third pass. Report_Story #4 
+ Suddenly, the truck stopped and Cori moaned. Denied again, she thought. But Ty was looking at her, smiling with lust. "They call this the gauntlet," he said, pointing ahead to a long series of rocks that had been moved into sort of course. She could see the rocks were a mixture of large and small and they seemed to go on for over 200 yards. She could practically feel the truck rocking up and down like a ship in a storm and thought about that dildo thrusting relentlessly in and out of her. She nearly came then as she nodded her approval for Ty to proceed. He gunned the engine and they were off, lifting off the ground several times, then crashing back down as that eight-inch dildo felt like it went nine inches deep. She came half way through the gauntlet and came three more times by the time Ty had completed his third pass.  
 
  
 
@@ -4362,7 +4362,7 @@
 
  As Ty typically did, especially when fucking her ass, he banged her violently. He slapped her ass and pulled her hair and held her head down, making it hard for her to breath. Cori knew Ty would never hurt her on purpose, but she always worried in the back of her mind that he might do it by accident. He was so obsessed and possessed when he got like this that restraint was gone. He put 100 percent effort into his fucking, an aggression that was attractive and stimulating, but also scary. Cori was a strong, flexible girl, but she was no match for a wild and powerful Ty. She had long ago learned not to fight his thrusts. She let her body go as limp as she could and simply took it -- all his weight and energy and power seemingly concentrated into that 10-inch rod that pistoned relentlessly in and out of her. Finally, he pulled out, turned her over and sprayed his load all over her belly and tits and face, not bothering to aim in the dark, just happy that he was drenching her with his cum. 
 
- Cori didn't even bother to get up and clean off. She simply fell back asleep, the cum sticking to her body as it dried. She awoke two hours later to the sound of the alarm. The short, fuck-filled night was over. It was time to go to work. Report_Story #1 
+ Cori didn't even bother to get up and clean off. She simply fell back asleep, the cum sticking to her body as it dried. She awoke two hours later to the sound of the alarm. The short, fuck-filled night was over. It was time to go to work.  
 
  
 
@@ -4516,7 +4516,7 @@
 
  Cori didn't feel the list bit nervous about this. She was in control. She had made her own decision, no one had forced her. They had given her every reason to trust them and she felt this was a good way to show she was a good sport and a good friend. Being uptight about it wouldn't help and they had given her no reason to be. 
 
- The first outfit was classic: black thigh-highs with garters, black silk panties and a black bustier. Since the bustier was made for a less-busty woman, Cori had a hard time keeping her tits inside and had to settle for concealing her nipples while allowing ample amounts of cleavage to spill into view. She walked out into the big open room to find the guys had formed a mini runway with their chairs. Playing along, she went into fashion model mode, complete with the blank stare, hands on the hips and exaggerated walk, stepping high, one foot directly in front of the other. She walked past them, looked over her shoulder to see them all looking at her ass, then turned and walked back, laughing at herself and how ridiculous she felt. She didn't know how fashion models could be so serious when they looked so silly. Report_Story #2 
+ The first outfit was classic: black thigh-highs with garters, black silk panties and a black bustier. Since the bustier was made for a less-busty woman, Cori had a hard time keeping her tits inside and had to settle for concealing her nipples while allowing ample amounts of cleavage to spill into view. She walked out into the big open room to find the guys had formed a mini runway with their chairs. Playing along, she went into fashion model mode, complete with the blank stare, hands on the hips and exaggerated walk, stepping high, one foot directly in front of the other. She walked past them, looked over her shoulder to see them all looking at her ass, then turned and walked back, laughing at herself and how ridiculous she felt. She didn't know how fashion models could be so serious when they looked so silly.  
 
  
 
@@ -4682,7 +4682,7 @@
 
  "Thanks," Cori said. "Guess it's a little tight for this sort of exercise. Maybe I should just take it off." She unsnapped the front and wriggled out of her skirt, wagging her hips too and fro, her thigh-highs swishing together as she squeezed her knees together and let the skirt slide down her long legs. She stepped out of to much applause, doing her next leg stretch wearing just the white blouse, black thong, black thigh-highs and black heels. Then, she climbed onto the counter, facing away from them as she did the splits, her ass at eye level. 
 
- Knowing they were distracted by her ass and legs and probably craning to get a look between her legs at her pussy mound, Cori deftly ripped the button off her blouse, then arched her back, tossing the button on the floor at the same time, making them think that her tits had popped the button off. Report_Story #3 
+ Knowing they were distracted by her ass and legs and probably craning to get a look between her legs at her pussy mound, Cori deftly ripped the button off her blouse, then arched her back, tossing the button on the floor at the same time, making them think that her tits had popped the button off.  
 
  
 
@@ -4796,7 +4796,7 @@
 
  "Just making sure there's nothing else in there," Wes said, matter-of-factly. "Hmm, looks like there's a ring or something." He knew what it was, of course, and grinned. "Hey, did anyone lose a ring," he yelled out so Barry and Douglas could hear him. "If so, Cori's got it in her panties." Moments later, Barry and Douglas had joined them in the account reps' office, not wanting to miss the unveiling of the clit ring, if indeed it was going to be unveiled. 
 
- Wes finished signing the document and relieved his stress by wrapping both hands around her stress-ball breast like a quarterback dropping back to throw a pass. "Take this rubber band and paper to Jason," he said. He took another rubber band -- this one smaller than one currently wrapped around the base of her breast -- and placed it over her breast, only about half way on so that two bands almost formed rings. Then he stuffed the paper roughly down inside one of her stocks, pushing her toward Jason, who retrieved the document by simply ripping the stocking and pulling it off. He followed suit with the other leg, leaving her now in only heels and the black thong. Report_Story #4 
+ Wes finished signing the document and relieved his stress by wrapping both hands around her stress-ball breast like a quarterback dropping back to throw a pass. "Take this rubber band and paper to Jason," he said. He took another rubber band -- this one smaller than one currently wrapped around the base of her breast -- and placed it over her breast, only about half way on so that two bands almost formed rings. Then he stuffed the paper roughly down inside one of her stocks, pushing her toward Jason, who retrieved the document by simply ripping the stocking and pulling it off. He followed suit with the other leg, leaving her now in only heels and the black thong.  
 
  
 
@@ -4882,7 +4882,7 @@
 
  Barry read it over carefully, smiling and nodding, obviously pleased with her work. "This is excellent work," Barry said. "And because of your attitude and obvious ability to handle all of these job duties, I hereby pronounce you our official Office Slut in Training." 
 
- Cori smiled and pointed to her mouth, eyebrows raised in question. "Not yet," Barry said, taking her hand and leading her into the open room they called the Bullpen. "Hey guys," he said, "Cori has convinced me that she should be our office Office Slut. She'll email you her job description. I'm sure you'll find it quite thorough and to your liking. If you have additional suggestions, please be prepared to discuss them during tomorrow morning's staff meeting. Now, Cori, do you still have something in your mouth?" Report_Story #5 
+ Cori smiled and pointed to her mouth, eyebrows raised in question. "Not yet," Barry said, taking her hand and leading her into the open room they called the Bullpen. "Hey guys," he said, "Cori has convinced me that she should be our office Office Slut. She'll email you her job description. I'm sure you'll find it quite thorough and to your liking. If you have additional suggestions, please be prepared to discuss them during tomorrow morning's staff meeting. Now, Cori, do you still have something in your mouth?"  
 
  
 
@@ -5070,7 +5070,7 @@
 
  "That young golf star?" Ty asked. 
 
- "Yeah," Cori said. "She just turned 18 and she's going straight on the tour. She's beautiful and very talented. She's the female Tiger Woods. Three years from now, she'll be huge. She has no deal yet and she's just sitting there, waiting. Her dad was a two-timing drunk, so it's just her and her mom. Word is her mom's very protective and very untrusting of men. If Mrs. Benson could make the call to get me in the door, I know I could close that deal." Report_Story #6 
+ "Yeah," Cori said. "She just turned 18 and she's going straight on the tour. She's beautiful and very talented. She's the female Tiger Woods. Three years from now, she'll be huge. She has no deal yet and she's just sitting there, waiting. Her dad was a two-timing drunk, so it's just her and her mom. Word is her mom's very protective and very untrusting of men. If Mrs. Benson could make the call to get me in the door, I know I could close that deal."  
 
  
 
@@ -5126,7 +5126,7 @@
 
  "I think you're learning a lot about yourself, Cori," Harris said honestly. "It takes a lot of maturity to recognize and accept who you are and embrace it. You have a gift. Like a pianist was born to play or an artist was born to paint, you were born to fuck. And the fact that you realize that's not something to be ashamed of is a huge step forward. Use that gift as much as you can, let it carry you and you'll do just fine. Now, give me the gift of your mouth before I blow my load all over Ty's workshop." 
 
- They undressed Cori, including the pussy purse, and lay the outfit carefully to the side before spending the next hour utilizing her "gift" in a variety of ways and positions. Then Harris carried her upstairs and enjoyed her talents one more time before falling asleep with a shriveled but very happy penis resting on Cori's cheek. Report_Story #1 
+ They undressed Cori, including the pussy purse, and lay the outfit carefully to the side before spending the next hour utilizing her "gift" in a variety of ways and positions. Then Harris carried her upstairs and enjoyed her talents one more time before falling asleep with a shriveled but very happy penis resting on Cori's cheek.  
 
  
 
@@ -5254,7 +5254,7 @@
 
  "You've got to be kidding," Walt said, catching Cori's gaze, looking for any sign that she was being held against her will. She gave none. "Is this true, Miss?" 
 
- "Yes, sir," Cori said. "Well, except for me looking amazing. But yeah, it's a great opportunity, you know? A friend of mine used to tell me that to get ahead in this world, sometimes you had to give some time. And I kinda like it, anyway, so I really don't mind." She giggled like a silly airhead for effect. Report_Story #2 
+ "Yes, sir," Cori said. "Well, except for me looking amazing. But yeah, it's a great opportunity, you know? A friend of mine used to tell me that to get ahead in this world, sometimes you had to give some time. And I kinda like it, anyway, so I really don't mind." She giggled like a silly airhead for effect.  
 
  
 
@@ -5384,7 +5384,7 @@
 
  "Well, I think so," Harold said, eyeing her carefully. Cori wondered if he would notice any of the marks. Surely, he had to suspect something was going on. A girl didn't just walk in with a skirt on and then lose it in the stairway without there being a helluva story behind it. "Mind if I ask how you lost it?" 
 
- "Long story," Cori said, unable to think up a credible story off the top of her head. She should have thought this through before she came downstairs. "One of those silly things. You wouldn't believe me if I told you." Report_Story #3 
+ "Long story," Cori said, unable to think up a credible story off the top of her head. She should have thought this through before she came downstairs. "One of those silly things. You wouldn't believe me if I told you."  
 
  
 
@@ -5536,7 +5536,7 @@
 
  "Nah," Cori lied. Douglas seemed OK, but best not to let him or anyone know that Harold was looking out for her. If they did have ulterior motives and knew Harold was on her side, it would be much easier for them to plan around him. "I mean, I'm sure he wondered why I didn't have a skirt, but I told him I dropped it out of my gym bag. He was busy, so I don't think he thought much about it." 
 
- He unclipped her other breast and she thought he was going to get her up and fuck her. She hoped so. But no, he wrapped both nipple chains around his fists, stepped forward and tucked his cock between her breasts. She dumped more lotion on her breasts and his cock and he squeezed between them, sliding his cock up toward her chin while pressing hard on the outsides of her breasts, wrapping his cock in firm, warm tit meat. Normally, she would have bent her head to kiss and lick the head, but her neck restraint prevented her. He continued titty fucking her for a few minutes, then stepped back and gave her the cup of coffee. Then, aiming carefully, he gave her not one but three full shots of cream. Cori used the stir stick to mix it in, noting the bit of creamy foam that surfaced. Report_Story #4 
+ He unclipped her other breast and she thought he was going to get her up and fuck her. She hoped so. But no, he wrapped both nipple chains around his fists, stepped forward and tucked his cock between her breasts. She dumped more lotion on her breasts and his cock and he squeezed between them, sliding his cock up toward her chin while pressing hard on the outsides of her breasts, wrapping his cock in firm, warm tit meat. Normally, she would have bent her head to kiss and lick the head, but her neck restraint prevented her. He continued titty fucking her for a few minutes, then stepped back and gave her the cup of coffee. Then, aiming carefully, he gave her not one but three full shots of cream. Cori used the stir stick to mix it in, noting the bit of creamy foam that surfaced.  
 
  
 
@@ -5670,7 +5670,7 @@
 
  Cori thought about Club Cori at home and how similar it was to this. And wondered if she'd be dancing like that for Ty and Harris tonight. She watched the girl closely, admiring her ability, trying to pick up some new moves. 
 
- The guys pulled together two small tables in one of the dark recesses of the club. They all filled their plates with the pedestrian offering of chicken strips, pasta, grilled chicken and vegetables that populated the buffet. Gourmet dining it wasn't, but Cori knew they weren't here for the food. This was one place they could bring her and keep her naked. They could probably get away with touching her, playing with her, might even make her dance. She ate quickly, certain that once whatever game they had in mind started, she wouldn't get another chance to eat. Report_Story #5 
+ The guys pulled together two small tables in one of the dark recesses of the club. They all filled their plates with the pedestrian offering of chicken strips, pasta, grilled chicken and vegetables that populated the buffet. Gourmet dining it wasn't, but Cori knew they weren't here for the food. This was one place they could bring her and keep her naked. They could probably get away with touching her, playing with her, might even make her dance. She ate quickly, certain that once whatever game they had in mind started, she wouldn't get another chance to eat.  
 
  
 
@@ -5786,7 +5786,7 @@
 
  They all dressed and Cori got the numbers for both Peaches and Penny, feeling like they might be very good friend material. If there was ever a night when she had some free time, she'd like to call them, talk girl stuff. Penny gave her a thin white tank top with the strip club's logo on it for her to wear back to the office. 
 
- Cori rode back stretched across the men's laps in the back seat, dreading the return to the office and the scrutiny she would likely receive from others in the building. But she was also happy. She had made potential friends and had an odd but great feeling about Wes. Plus, she had been very well fucked and had many orgasms already today. There was plenty to be happy about. She looked up at Wes, whose dopey grin told her that he was just as happy. She hoped it was for some of the same reasons. Report_Story #6 
+ Cori rode back stretched across the men's laps in the back seat, dreading the return to the office and the scrutiny she would likely receive from others in the building. But she was also happy. She had made potential friends and had an odd but great feeling about Wes. Plus, she had been very well fucked and had many orgasms already today. There was plenty to be happy about. She looked up at Wes, whose dopey grin told her that he was just as happy. She hoped it was for some of the same reasons.  
 
  
 
@@ -5796,7 +5796,7 @@
 
  "All that will be there tomorrow," Barry assured her. "And tomorrow's the big Halloween party. It should be a very fun day. You'll need your rest, though. Go home, do whatever you have to do for Ty and Harris and then try to get some rest." 
 
- "OK," Cori said. She lifted her head to see where they were. "Turn left here." Report_Story #1 
+ "OK," Cori said. She lifted her head to see where they were. "Turn left here."  
 
  
 
@@ -5930,7 +5930,7 @@
 
  Ty shucked his boxers and sat naked on the leather couch nearest the stage. He watched the girls intently, studying their round breasts, toned thighs, tight asses and flat stomachs as they bumped and grinded on the stage, freely touching one another or taking turns mounting the pole. He knew they would do the same with his pole and felt his cock reach full erection, pointing right at his two prizes. They looked over at him frequently, posing and writhing for him, occasionally brushing their breasts or lips together or playfully slapping each other's asses. He wanted them so badly. He wished there was a way he could just fuck them all night, no breaks, his erection never failing despite orgasm after orgasm. He imagined his hard cock just taking one tight, warm, inviting hole after another, stretching it, making it his own and marking his territory with load after load of thick white jism. 
 
- He was so hard, he wanted to touch his cock, stroke it, but he knew he'd cum and he wanted to make sure the girls were there to do the work, feel his power and accept his creamy gift. He resisted his urges, waiting, being patient. They were so tempting, so perfect at teasing him, bumping and gyrating their bodies, teasing him to the beat. He reciprocated, flexing his cock to the same beat, making it dance for them as he showcased the size and strength of his impressive member. It was long and thick and hard as iron. Report_Story #2 
+ He was so hard, he wanted to touch his cock, stroke it, but he knew he'd cum and he wanted to make sure the girls were there to do the work, feel his power and accept his creamy gift. He resisted his urges, waiting, being patient. They were so tempting, so perfect at teasing him, bumping and gyrating their bodies, teasing him to the beat. He reciprocated, flexing his cock to the same beat, making it dance for them as he showcased the size and strength of his impressive member. It was long and thick and hard as iron.  
 
  
 
@@ -6000,7 +6000,7 @@
 
  Cori watched her new friend being ravaged by Ty and gained a new perspective on just how powerful, crazed and relentless he was. He was manhandling Jordan, his muscular body dominating her, owning her tits and her ass, driving her across the stage with his thrusts. Occasionally, he would lean back and pick her up off the stage, only to slam back down, his cock somehow going even deeper inside her. He was like a grizzly bear playing with a rag doll. It was a total mismatch. It was so hot watching Ty fuck, Cori was jealous. Oh, how she loved to be at his mercy, feeling his grace and power and desire. She looked at Jordan and it was obvious she was cumming, her body now fully relaxed, completely dominated and controlled by Ty. Jordan had relinquished all control to him and her reward was a long, body-shaking orgasm. 
 
- Cori wasn't surprised when Ty pulled out of Jordan's ass and straddled her face. She knew Ty loved the idea of a girl sucking his cock right after it had been in her ass. It was obviously a power and control thing with him -- and a lot of guys, she assumed. Just knowing that not only would a girl offer her ass to him just for the pleasure of having his cock, but then would be nasty enough to suck his cock afterward was a power trip. It was a sign of total submission by the girl and an indicator that she was just as susceptible to giving in to lust as he was. Report_Story #3 
+ Cori wasn't surprised when Ty pulled out of Jordan's ass and straddled her face. She knew Ty loved the idea of a girl sucking his cock right after it had been in her ass. It was obviously a power and control thing with him -- and a lot of guys, she assumed. Just knowing that not only would a girl offer her ass to him just for the pleasure of having his cock, but then would be nasty enough to suck his cock afterward was a power trip. It was a sign of total submission by the girl and an indicator that she was just as susceptible to giving in to lust as he was.  
 
  
 
@@ -6044,7 +6044,7 @@
 
  Cori wanted to at least change places so she could get her head out of this bag and get some fresh, cool air. She was suddenly thirsty and imagined a nice cold glass of iced tea. Just as she was thinking about taking a long, cool drink, she was forced to take a series of short, hot ones as Ty pumped his load into her mouth. It was smaller than usual, due no doubt to the number of orgasms he'd had already tonight. But the man is a fucking machine, she thought -- even when his balls are worn out, his giant cock is still ready for more. 
 
- She climbed out of the sleeping bag and lay on top of it, the air cool and fresh on her damp skin. "If you're going to lay outside the bag, at least let me use your tits as a pillow," Ty said. Cori maneuvered underneath him and Ty turned on his side, his face resting on her right breast. Jordan curled up behind Ty and pressed her breasts into his back and they all fell asleep. Report_Story #1 
+ She climbed out of the sleeping bag and lay on top of it, the air cool and fresh on her damp skin. "If you're going to lay outside the bag, at least let me use your tits as a pillow," Ty said. Cori maneuvered underneath him and Ty turned on his side, his face resting on her right breast. Jordan curled up behind Ty and pressed her breasts into his back and they all fell asleep.  
 
  
 
@@ -6158,7 +6158,7 @@
 
  
 
- It opened at the waist with a zipper up the back, so Wes started by sliding it up her long legs, gently tugging and pulling it tight so her toes pointed and stretched against the material. The others all gathered around, watching Wes dress his doll. They took note, no doubt of her moist pussy lips and engorged clit and erect nipples – Cori couldn't have hidden her desire if she wanted to. They were all respectful of Wes' time, however, even though it hadn't officially begun yet. They all kept their hands to themselves – and their cocks – and gave Wes room to work and play as he liked. Report_Story #2 
+ It opened at the waist with a zipper up the back, so Wes started by sliding it up her long legs, gently tugging and pulling it tight so her toes pointed and stretched against the material. The others all gathered around, watching Wes dress his doll. They took note, no doubt of her moist pussy lips and engorged clit and erect nipples – Cori couldn't have hidden her desire if she wanted to. They were all respectful of Wes' time, however, even though it hadn't officially begun yet. They all kept their hands to themselves – and their cocks – and gave Wes room to work and play as he liked.  
 
  
 
@@ -6284,7 +6284,7 @@
 
  Cori couldn't see where the cum was, of course, so she licked up and down and around the sides – everywhere her tongue could reach. A glob dripped off the top and landed on the side of her nose, eventually running into her mouth. She got all of it she could and then Greg pulled off the jock strap and cup and tossed them aside without even inspecting the contents. He knew she would do as told and he'd seen her swallow several mouthfuls. 
 
- "That was fun," Greg said. "Coach is good at football, but he's even better at making hot daughters. Damn, those are some fine titties." Greg came around the table, his cock mostly soft now, but not for long, Cori guessed. He made Cori slide her arms inside the sides of the tube top, then gradually worked it up her arms until he got it over her shoulders. The elastic material snapped around her neck just as he hoped, forming a tight sling that wrapped around her neck and cupped her tits, pulling them up and together in a mass of tit flesh right under her throat. He grabbed the strap of material on the back of her neck and, using it like a handle, pulled up and down, watching her tits bounce around inside the makeshift sling. He liked this show so much he ordered her back on the floor where he could get more leverage. She did the splits again and he stood over her now, pulling the tube top up as high as he could – lifting her part way off the floor with it – placing more and more strain on her firm tits until the top finally gave way and Cori slumped to the floor, banging her head against one of the conference table chairs. Report_Story #3 
+ "That was fun," Greg said. "Coach is good at football, but he's even better at making hot daughters. Damn, those are some fine titties." Greg came around the table, his cock mostly soft now, but not for long, Cori guessed. He made Cori slide her arms inside the sides of the tube top, then gradually worked it up her arms until he got it over her shoulders. The elastic material snapped around her neck just as he hoped, forming a tight sling that wrapped around her neck and cupped her tits, pulling them up and together in a mass of tit flesh right under her throat. He grabbed the strap of material on the back of her neck and, using it like a handle, pulled up and down, watching her tits bounce around inside the makeshift sling. He liked this show so much he ordered her back on the floor where he could get more leverage. She did the splits again and he stood over her now, pulling the tube top up as high as he could – lifting her part way off the floor with it – placing more and more strain on her firm tits until the top finally gave way and Cori slumped to the floor, banging her head against one of the conference table chairs.  
 
  
 
@@ -6384,7 +6384,7 @@
 
  She was surprised he wasn't banging her, trying to knock out one load quickly and get two in his 30 minutes like the others had done. But she wasn't complaining. He was taking his time and he was good at what he was doing. He was the most handsome of all the guys and probably the best lover, too, she thought, though something about Wes got her off every time. Douglas was well on his way to making her pop, too, as his fangs now bit gently into her breasts, just enough to dent the skin and leave little red marks around her nipples. 
 
- He tossed the blanket on the floor and pulled her legs apart. Here comes the fucking, she assumed, but to her surprise, it was a soft tongue instead of a hard cock that she felt on her pussy lips. This really was a vampire who liked to suck pussy. Hallelujah! Using mostly his tongue and lips, he gently sucked and licked on her lips and clit, but every so often he'd nip her with the sharp fangs. It was just the right mix of pain and pleasure and she thrust her hips upward, urging him to feed on her and he didn't disappoint. He made a full meal out of her tender pussy. Her lips were the appetizer, her clit was the main course and for dessert she gave him a warm mouthful of her sweet juice as she came, whimpering softly, trying to act like she was still asleep and failing miserably. She didn't care. It felt too good. Report_Story #4 
+ He tossed the blanket on the floor and pulled her legs apart. Here comes the fucking, she assumed, but to her surprise, it was a soft tongue instead of a hard cock that she felt on her pussy lips. This really was a vampire who liked to suck pussy. Hallelujah! Using mostly his tongue and lips, he gently sucked and licked on her lips and clit, but every so often he'd nip her with the sharp fangs. It was just the right mix of pain and pleasure and she thrust her hips upward, urging him to feed on her and he didn't disappoint. He made a full meal out of her tender pussy. Her lips were the appetizer, her clit was the main course and for dessert she gave him a warm mouthful of her sweet juice as she came, whimpering softly, trying to act like she was still asleep and failing miserably. She didn't care. It felt too good.  
 
  
 
@@ -6538,7 +6538,7 @@
 
  He sunk his cock into her pussy, his hands on her hips as he bore into her. He moaned, feeling her perfect pussy for the first time. Little did Cori know it wouldn't be the last. He took his time, savoring the feel of her wrapped around him. He ran his hands along her ribs and cupped her breasts. He kissed the back of her neck and put his fingers in her mouth. He stroked her hair and lightly traced his fingers down her back. Cori couldn't believe this heavy-set, balding 50-year-old man was getting her hot, but he was. He didn't have the body, but he had some moves. He was firm but gentle, in control but not forceful. He pulled his cock out of her slowly, spread her ass cheeks and gently pressed against her anus, which opened willingly, squeezing tightly around him. He had a full 15 minutes left on his time and was now showing terrific control and stamina. He fucked her with slow, long thrusts, telling her how beautiful she was, how hot she was. She thanked him and drove her hips back against him, wishing he'd fuck her pussy some more. He must have sensed that's what she wanted, because he pulled out of her ass and stuck his cock back into her smoldering snatch. 
 
- Hugh sensed Cori's growing arousal and picked up the pace, poking her with shorter, harder thrusts that increased the friction on her clit and made her breasts bobble back and forth with her nipples rubbing against the carpet. Cori's mouth was open and she was panting, telling him "Yes, more, faster." Like an engine, he just kept going, maintaining his rhythmic pace, stoking her fire, igniting little sparks inside her pussy, the heat growing, the sparks becoming electrical jolts as the sensitive nerves in her clit fired non-stop. Pleasure coursed through her. She cried out and came as tremors racked her body with an intensity she didn't expect. Her pussy tightened around him like a velvet sleeve and the moist heat made his cock expand and finally burst. He pulled out just in time and Cori wheeled around, catching it on her tongue and lips, then covering his cock and devouring the rest of his load. Report_Story #5 
+ Hugh sensed Cori's growing arousal and picked up the pace, poking her with shorter, harder thrusts that increased the friction on her clit and made her breasts bobble back and forth with her nipples rubbing against the carpet. Cori's mouth was open and she was panting, telling him "Yes, more, faster." Like an engine, he just kept going, maintaining his rhythmic pace, stoking her fire, igniting little sparks inside her pussy, the heat growing, the sparks becoming electrical jolts as the sensitive nerves in her clit fired non-stop. Pleasure coursed through her. She cried out and came as tremors racked her body with an intensity she didn't expect. Her pussy tightened around him like a velvet sleeve and the moist heat made his cock expand and finally burst. He pulled out just in time and Cori wheeled around, catching it on her tongue and lips, then covering his cock and devouring the rest of his load.  
 
  
 
@@ -6652,7 +6652,7 @@
 
  "Man, I hope you don't mind me saying, but that was awesome walking out with you like that," Wes said. "Just showing you off to those other guys, knowing they want what I have – even though I know it's only for a few more minutes." 
 
- "It's OK," Cori said. "I know guys like that. There's nothing wrong with it – it's something in your genes. Every guy dreams of the trophy wife or girlfriend. I never thought of myself as a trophy, but I'm flattered that you think that way about me." Report_Story #6 
+ "It's OK," Cori said. "I know guys like that. There's nothing wrong with it – it's something in your genes. Every guy dreams of the trophy wife or girlfriend. I never thought of myself as a trophy, but I'm flattered that you think that way about me."  
 
  
 
@@ -6828,7 +6828,7 @@
 
  "I just like to be neighborly," Cori said. "I think good neighbors help each other and are open and honest with each other. Some neighbors want to borrow a cup of milk, some just need a hand from time to time." 
 
- "Well, you're quite handy," Waters said. "A little faster please. And would you mind licking my balls some more?" Report_Story #7 
+ "Well, you're quite handy," Waters said. "A little faster please. And would you mind licking my balls some more?"  
 
  
 
@@ -6860,7 +6860,7 @@
 
  "Let me tie you to the bed and do nasty things to you?" 
 
- "I thought you'd never ask," Cori grinned. Report_Story #1 
+ "I thought you'd never ask," Cori grinned.  
 
  
 
@@ -6990,7 +6990,7 @@
 
  He blew on them a little more until he was satisfied the clay wouldn't break down when they put her shirt on. He helped her pull her the white tank top back down, careful to make sure that both nipples were covered by part of the material. Cori knotted the bottom under her breasts again and Waters set about sticking the shirt to her areola. 
 
- Starting with her left breasts, he smoothed the tank top over her nipple, stretching it tight, then pinched the fabric around the base of her nipple, pressing it firmly against the wet ring of clay there. Sure enough, it stuck like brick and mortar. Cori felt the moist clay ooze and grab onto the fabric as he pressed it against her. The rest of the fabric was pulled taut over her nipple, encasing it in a sheath of white cotton. Waters did the same thing with the other nipple, then stood back and admired his work. Even a half-inch longer made her already large nipples look almost cartoonish, especially the way the dark, reddish-brown clay showed through her thin white top. The obscene erectness of her nipples, the way the top clung to her nipples and the way they were so visible made it look like she was wearing a wet t-shirt, only it wasn't wet. Report_Story #2 
+ Starting with her left breasts, he smoothed the tank top over her nipple, stretching it tight, then pinched the fabric around the base of her nipple, pressing it firmly against the wet ring of clay there. Sure enough, it stuck like brick and mortar. Cori felt the moist clay ooze and grab onto the fabric as he pressed it against her. The rest of the fabric was pulled taut over her nipple, encasing it in a sheath of white cotton. Waters did the same thing with the other nipple, then stood back and admired his work. Even a half-inch longer made her already large nipples look almost cartoonish, especially the way the dark, reddish-brown clay showed through her thin white top. The obscene erectness of her nipples, the way the top clung to her nipples and the way they were so visible made it look like she was wearing a wet t-shirt, only it wasn't wet.  
 
  
 
@@ -7152,7 +7152,7 @@
 
  "I'm there," Waters said. "Let's see it." 
 
- Cori led him downstairs and Waters nodded, imagining Cori stripping and twirling around that pole. He'd see that another day for sure. For right now, he had a vision -- a very naughty vision. He'd taken some of his coed toys down the road to bondage, but it had never gone far or lasted long. They tended to freak out. Cori, he thought, wasn't the type to freak out. Hell, she suggested it. He figured Ty would want exactly what he would. A good view of the game and access to Cori from all angles, plus a good view of her while he rested between fucks. While the stage and pole were tempting, he realized the ideal spot was on the other end of the basement where there was a small lounge type area with a leather couch and straight back chair and a coffee table in front of a wide screen TV. Report_Story #3 
+ Cori led him downstairs and Waters nodded, imagining Cori stripping and twirling around that pole. He'd see that another day for sure. For right now, he had a vision -- a very naughty vision. He'd taken some of his coed toys down the road to bondage, but it had never gone far or lasted long. They tended to freak out. Cori, he thought, wasn't the type to freak out. Hell, she suggested it. He figured Ty would want exactly what he would. A good view of the game and access to Cori from all angles, plus a good view of her while he rested between fucks. While the stage and pole were tempting, he realized the ideal spot was on the other end of the basement where there was a small lounge type area with a leather couch and straight back chair and a coffee table in front of a wide screen TV.  
 
  
 
@@ -7242,7 +7242,7 @@
 
  He plugged her mouth with his cock, fucking her face. He held the back of her head as his cock threatened to punch a hole through the back of her skull. As his cock forced her head back, the chains linking her tits and choker were strained and she felt her nipples being stretched uncomfortably, then painfully. He cupped the undersides of her breasts, squeezing them but providing no relief for her tortured nipples. 
 
- He mashed his balls against her nose and, with his cock clogging her throat, she struggled to breathe. Nonetheless, she kept her lips and tongue working on his cock and even snorted through her nose, wondering if the warm air would feel good on his ball sac. Apparently, it did, as she felt him jerk, then cum, his cock pouring a impressively large load into the back of throat. Like drinking a glass of water upside down, it threatened to cum out her nose. Ty anticipated the problem and pinched her nose shut while she swallowed rapidly, trying to send the creamy load into her gullet. When he finally let her up, she raised her head as far as her bonds would allow and coughed and sputtered but never lost a drop of precious jism, managing to swallow it all. A second later, the ball gag was back in her mouth. Report_Story #4 
+ He mashed his balls against her nose and, with his cock clogging her throat, she struggled to breathe. Nonetheless, she kept her lips and tongue working on his cock and even snorted through her nose, wondering if the warm air would feel good on his ball sac. Apparently, it did, as she felt him jerk, then cum, his cock pouring a impressively large load into the back of throat. Like drinking a glass of water upside down, it threatened to cum out her nose. Ty anticipated the problem and pinched her nose shut while she swallowed rapidly, trying to send the creamy load into her gullet. When he finally let her up, she raised her head as far as her bonds would allow and coughed and sputtered but never lost a drop of precious jism, managing to swallow it all. A second later, the ball gag was back in her mouth.  
 
  
 

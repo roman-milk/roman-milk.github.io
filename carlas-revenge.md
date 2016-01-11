@@ -200,7 +200,7 @@
 
  "It is already done. I went online and found out how to do it and I already had a recorder that I could use." 
 
- At that point Shelly stuck her head in the door and said, "I'm leaving Mr. B and I'll see you in the morning." Report_Story #2 
+ At that point Shelly stuck her head in the door and said, "I'm leaving Mr. B and I'll see you in the morning."  
 
  
 
@@ -462,7 +462,7 @@
 
  "Is that your roundabout way of saying that we are going to keep on going?" 
 
- "You heard the tape. They've gotten away with it for a little over a year and you and I have only been at it for a couple of months. They owe us another ten or twelve months and then of course there are the penalties and interest that could make it even longer." Report_Story #3 
+ "You heard the tape. They've gotten away with it for a little over a year and you and I have only been at it for a couple of months. They owe us another ten or twelve months and then of course there are the penalties and interest that could make it even longer."  
 
  
 

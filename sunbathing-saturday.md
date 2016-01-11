@@ -124,7 +124,7 @@
 
  On the other hand I was somehow detached. I can still recall, with great clarity, the way Patricia's big, heavy tits swayed and wobbled as she fucked up and down on my cock. I can still see the puckered texture of her nipples, as they stood out long and thickly erect with her excitement, and the look of ecstasy on her contorted features. Patricia's eyes were tightly shut, her mouth open in a silent scream as she let herself be taken by the feeling of my hardness deep in her belly. 
 
- I reached up to feel Patricia's breasts, and she opened her eyes to smile down at me when she felt my hands upon her skin. 'You feel lovely baby,' she said. 'So thick, you're stretching me open. It's divine.' Patricia continued to slap her fleshy buttocks down hard against my thighs, the sound of our fucking cracking sharply with each thrust. Report_Story #2 
+ I reached up to feel Patricia's breasts, and she opened her eyes to smile down at me when she felt my hands upon her skin. 'You feel lovely baby,' she said. 'So thick, you're stretching me open. It's divine.' Patricia continued to slap her fleshy buttocks down hard against my thighs, the sound of our fucking cracking sharply with each thrust.  
 
  
 

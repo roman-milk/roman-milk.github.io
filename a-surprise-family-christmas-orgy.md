@@ -346,7 +346,7 @@
 
  "I can't help it," I shrugged, trying to play the doting boyfriend, "She's just so fucking hot." 
 
- "You know just the right words to say, baby," she purred. I tried to keep a straight face as I focused on not coming under the table. Report_Story #2 
+ "You know just the right words to say, baby," she purred. I tried to keep a straight face as I focused on not coming under the table.  
 
  
 
@@ -714,7 +714,7 @@
 
  "Like what?" I asked, instantly curious. 
 
- "Another time, baby," Jasmine responded, while letting out a soft moan. Report_Story #3 
+ "Another time, baby," Jasmine responded, while letting out a soft moan.  
 
  
 
@@ -1198,7 +1198,7 @@
 
  "Wow," I said. 
 
- "Are you going to fuck me?" Connie asked. Report_Story #4 
+ "Are you going to fuck me?" Connie asked.  
 
  
 

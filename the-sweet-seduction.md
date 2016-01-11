@@ -174,7 +174,7 @@
 
  I smiled, "You are welcome Afaf." I then kissed her passionately. 
 
- The night ended with Sadie taking Afaf home with her, where Afaf ate her pussy over and over again. Professor Wilson spent the night between my legs. Report_Story #2 
+ The night ended with Sadie taking Afaf home with her, where Afaf ate her pussy over and over again. Professor Wilson spent the night between my legs.  
 
  
 

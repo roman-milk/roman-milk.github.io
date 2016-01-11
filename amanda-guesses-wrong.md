@@ -252,7 +252,7 @@
 
  "Make sure that your room is straight before you go. Just in case you are not home by nine in the morning. There is a couple coming to look at the house at ten. Good night. Have fun on your date. I sure hope it is worth what it cost you." 
 
- She started crying as I left the room and there once was a time when it would have caused me to rush to her, take her in my arms and comfort her. But that was then. Report_Story #2 
+ She started crying as I left the room and there once was a time when it would have caused me to rush to her, take her in my arms and comfort her. But that was then.  
 
  
 

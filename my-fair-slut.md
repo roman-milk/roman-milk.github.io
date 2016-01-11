@@ -200,7 +200,7 @@
 
  That was my first blowjob from my wife. The second one she gave me woke me up the next morning. I have to say that I really can't think of a better way to wake up than to open your eyes and see the sexiest woman you know bobbing her head up and down your shaft and smiling like she loves it. 
 
- After cumming in her mouth again, I went to shower. She got in shortly afterwards and coaxed my cock back to full erection so I could fuck her under the hot water. I was almost too tired to go to work, but I knew if I stayed she'd just wear me out some more. Report_Story #2 
+ After cumming in her mouth again, I went to shower. She got in shortly afterwards and coaxed my cock back to full erection so I could fuck her under the hot water. I was almost too tired to go to work, but I knew if I stayed she'd just wear me out some more.  
 
  
 
@@ -342,7 +342,7 @@
 
  "Ha ha. I love doing that!" 
 
- I could only imagine what would come next... Report_Story #1 
+ I could only imagine what would come next...  
 
  
 
@@ -488,7 +488,7 @@
 
  “You know! And you haven’t done anything? After what he did to us?!” I exclaim. 
 
- “First of all, dear husband, you are the one that did this to me. You weren’t happy with the wife you had. You brought home the tape. You changed me into the slut I am. What you didn’t get is if you actually tried to introduce me to all this normally you and I would have both found out that I love it. I really do. I’ve never felt so alive, so sexual, so desirable. And Paul gives me everything I want: men and women to fuck, you as my personal slave, His magnificent cock, and discipline. Oh I do so love when He disciplines me.” Report_Story #2 
+ “First of all, dear husband, you are the one that did this to me. You weren’t happy with the wife you had. You brought home the tape. You changed me into the slut I am. What you didn’t get is if you actually tried to introduce me to all this normally you and I would have both found out that I love it. I really do. I’ve never felt so alive, so sexual, so desirable. And Paul gives me everything I want: men and women to fuck, you as my personal slave, His magnificent cock, and discipline. Oh I do so love when He disciplines me.”  
 
  
 
@@ -534,7 +534,7 @@
 
  “Such a nice sight to be greeted with.” Master says. Then He stares right at me and says, “Trance.” 
 
- To be continued… Report_Story #1 
+ To be continued…  
 
  
 
@@ -830,7 +830,7 @@
 
  "U-uh-uh." Was all she could get out. 
 
- I reached down and twisted her clit. "I said is this what you want?" Report_Story #2 
+ I reached down and twisted her clit. "I said is this what you want?"  
 
  
 
@@ -1100,7 +1100,7 @@
 
  "Yes." 
 
- "Don't be afraid to explore your fantasies. Whenever you are with me you will feel safe, as safe as you feel in the A.V. room. You will know that nothing bad will happen while I am with you and that you can try out any fantasy you want as long as you have my approval. Do you understand, Becky?" Report_Story #3 
+ "Don't be afraid to explore your fantasies. Whenever you are with me you will feel safe, as safe as you feel in the A.V. room. You will know that nothing bad will happen while I am with you and that you can try out any fantasy you want as long as you have my approval. Do you understand, Becky?"  
 
  
 
@@ -1436,7 +1436,7 @@
 
  "It might be interesting to fuck three." I said and her face went red. 
 
- "Is that what you were thinking, Melissa?" I asked as my fingers trace her body from her face down her neck over a breast and to her tummy. Report_Story #4 
+ "Is that what you were thinking, Melissa?" I asked as my fingers trace her body from her face down her neck over a breast and to her tummy.  
 
  
 
@@ -1730,7 +1730,7 @@
 
  -- 
 
- Mrs. Capelli remained a great slut for the rest of the summer and prompted me to visit the houses of all the girls I've fucked to see what other mothers had been affected and which ones I wanted to be affected. It was not all fun and games. I was attacked by two horny mothers who I wanted nothing to do with and one grandmother. Report_Story #5 
+ Mrs. Capelli remained a great slut for the rest of the summer and prompted me to visit the houses of all the girls I've fucked to see what other mothers had been affected and which ones I wanted to be affected. It was not all fun and games. I was attacked by two horny mothers who I wanted nothing to do with and one grandmother.  
 
  
 
@@ -2062,7 +2062,7 @@
 
  "First of all we don't fuck. We make love. It's intimate and sensuous. Something you wouldn't know about." 
 
- I laughed again. "I think you'd be surprised. But if you don't like the way I fuck you, why come back for more?" Report_Story #6 
+ I laughed again. "I think you'd be surprised. But if you don't like the way I fuck you, why come back for more?"  
 
  
 
@@ -2308,7 +2308,7 @@
 
  I graduated and started up my own business with funds from Mrs. Capelli and a few of the other rich wives I controlled. During the start up year of my business Kathy and I made several new slaves through tapes and hypnosis. Kathy always insisted on watching me hypnotize a new victim. It turned her on to no end. Luckily for me, it also made her more and more susceptible with each session. I eventually had her but there was no way I was going to make her a slut like the rest. So I made her a slut only when addressing me directly and only in sexual situations. It was perfect. We were equals in life, in conversations, challenges, arguments, everything. But when things heated up she was the ultimate Bitch Mistress and I was her Master. 
 
- We picked staff with the appropriate skills and looks (or the looks of their spouses) for the office. Training videos conditioned them all. Friday's at 3 there would be a group orgy that I never seemed to tire of. And we would spice it up with various guest sluts. They were all very happy and therefore also very productive. No one wanted to lose their job and miss out on all the action, even though they didn't remember most of it (all of it for some) but the feeling was there. Report_Story #7 
+ We picked staff with the appropriate skills and looks (or the looks of their spouses) for the office. Training videos conditioned them all. Friday's at 3 there would be a group orgy that I never seemed to tire of. And we would spice it up with various guest sluts. They were all very happy and therefore also very productive. No one wanted to lose their job and miss out on all the action, even though they didn't remember most of it (all of it for some) but the feeling was there.  
 
  
 
@@ -2316,7 +2316,7 @@
 
  We were in business a few years when I knew I needed a second in command. I did a lot of interviews and eventually hired Jim. Now Jim was a different kind of guy. He was completely straight up and incredibly smart with great business savvy. He was so nice I didn't have the heart to put under and had to give him Friday afternoons off to avoid the 3pm orgy. He was fast becoming a friend and that's something I realized that I really hadn't had since this whole adventure started: an honest friend who liked me for me. Things got bad when I met his wife. She was stunning even though she tried to hide it under frumpy housewife clothes. Kathy begged me for her as well as Jim but I wanted to keep Jim out of this. I was really enjoying having a friend. 
 
- It was Jim himself who screwed things up. He came in one day and asked how he could make his wife a little sluttier like Kathy. Well, she'd have to be a lot sluttier to be like Kathy but you get the idea. Soon Jim became my next project. After getting him and his wife under control with some tapes I set about splitting his personality so that I could have my friend and Kathy could have her sluts. Unfortunately, Jim found out about his wife while he was in "friend" mode and I had to fix that up. I ended up splitting him yet again making a third personality. This one was the real Jim who knew everything and hated me for it. I'd never done that with a guy before and making three personalities in someone was another first for me. I'll admit, if something went wrong he might have ended up in the mental ward but this third personality gave me a power rush when we confronted each other. He was my mortal foe and prisoner during the short times I allowed his existence. But then, somehow, he got word of his situation to his other personality, my "friend" Jim and ruined it all again. Damn, he's good. So now I'm on my way to his house and I have to decide what to do with my best friend, best male slut and most formidable enemy... Report_Story #1 
+ It was Jim himself who screwed things up. He came in one day and asked how he could make his wife a little sluttier like Kathy. Well, she'd have to be a lot sluttier to be like Kathy but you get the idea. Soon Jim became my next project. After getting him and his wife under control with some tapes I set about splitting his personality so that I could have my friend and Kathy could have her sluts. Unfortunately, Jim found out about his wife while he was in "friend" mode and I had to fix that up. I ended up splitting him yet again making a third personality. This one was the real Jim who knew everything and hated me for it. I'd never done that with a guy before and making three personalities in someone was another first for me. I'll admit, if something went wrong he might have ended up in the mental ward but this third personality gave me a power rush when we confronted each other. He was my mortal foe and prisoner during the short times I allowed his existence. But then, somehow, he got word of his situation to his other personality, my "friend" Jim and ruined it all again. Damn, he's good. So now I'm on my way to his house and I have to decide what to do with my best friend, best male slut and most formidable enemy...  
 
  
 
@@ -2532,7 +2532,7 @@
 
  "How should I know? Maybe we have to get his memories first. Do you need some more time to recover?" 
 
- "Yes, but I'm not going to take it. I want this over with as soon as possible." Report_Story #2 
+ "Yes, but I'm not going to take it. I want this over with as soon as possible."  
 
  
 
@@ -2808,7 +2808,7 @@
 
  Liz had managed to get his belt undone and the zipper came down easily. Jeff seemed to struggle half-heartedly wanting and not wanting it at the same time. When Liz closed her lips around him, though, it was over. I watched My wife pleasure him. She did it enthusiastically and very skillfully and she would occasionally glance over at Me to make sure I was watching and then smile proudly. I no longer felt disgust or shame about it. This was no longer My wife cheating on Me or humiliating Me. This was My slut showing off for her Master, trying to make Him proud of her. 
 
- Jeff came in her mouth and she drank down every drop. She cleaned his cock and then rose and kissed him and said thank you. Then she came and knelt by Me, nuzzling against My leg for comfort and security. Report_Story #3 
+ Jeff came in her mouth and she drank down every drop. She cleaned his cock and then rose and kissed him and said thank you. Then she came and knelt by Me, nuzzling against My leg for comfort and security.  
 
  
 
@@ -2820,7 +2820,7 @@
 
  "I don't understand. After what he's done? Not only to you but several others. You have to wipe out his mind-controlled empire. You can't let him continue." 
 
- "Oh I don't plan to. But I think jail would only slow Paul down, not stop him. He's very resourceful and I'm sure he's planned ahead in case someone reported him. No, Jeff, I'm not going to destroy his little empire. I'm going to take it from him." Report_Story #1 
+ "Oh I don't plan to. But I think jail would only slow Paul down, not stop him. He's very resourceful and I'm sure he's planned ahead in case someone reported him. No, Jeff, I'm not going to destroy his little empire. I'm going to take it from him."  
 
  
 
@@ -2968,7 +2968,7 @@
 
  "I guess I did." I replied softly. 
 
- By the end of the day I had replayed the scene in the office in my head about a hundred times and was horny as hell. I knew I was supposed to start my discipline tomorrow but I found myself making an excuse not to go out with Alisha after school and made my way back to the headmaster's office. The staff had already cleared out and his door was closed. My heart dropped as the prospect of having him inside me again seemed to have left with the rest of the staff. Then I heard a girl's voice. I crept up to the door and listened. A girl was panting and moaning. He was fucking another student! Report_Story #2 
+ By the end of the day I had replayed the scene in the office in my head about a hundred times and was horny as hell. I knew I was supposed to start my discipline tomorrow but I found myself making an excuse not to go out with Alisha after school and made my way back to the headmaster's office. The staff had already cleared out and his door was closed. My heart dropped as the prospect of having him inside me again seemed to have left with the rest of the staff. Then I heard a girl's voice. I crept up to the door and listened. A girl was panting and moaning. He was fucking another student!  
 
  
 
@@ -3204,7 +3204,7 @@
 
  "No, that's not it." I stopped him. "I want to. Oh god I want to, Jim. I love you, Jim. I'm in love with you." 
 
- Surprise spread over his face. I smiled and giggled, "What's so hard to believe? You're an amazing man. You're the first real man I've ever met. I love you so much! But I don't want to be your rebound. If we ever get together I want it to be because you love me." Report_Story #3 
+ Surprise spread over his face. I smiled and giggled, "What's so hard to believe? You're an amazing man. You're the first real man I've ever met. I love you so much! But I don't want to be your rebound. If we ever get together I want it to be because you love me."  
 
  
 
@@ -3454,7 +3454,7 @@
 
  "You do, sir." 
 
- He shoved his fingers inside me and pumped them. The belt came down on me twice more and I came. I couldn't believe how strong it was. Telling him he owned me made me hotter for some reason. He waited for me to sufficiently recover and then had me strip. Report_Story #4 
+ He shoved his fingers inside me and pumped them. The belt came down on me twice more and I came. I couldn't believe how strong it was. Telling him he owned me made me hotter for some reason. He waited for me to sufficiently recover and then had me strip.  
 
  
 
@@ -3660,7 +3660,7 @@
 
  "Listen guys." I said. "I appreciate the flattery and the small talk but I really need to be fucked well. Think you can help me out?" 
 
- Their faces lit up and they led me to one of the other rooms. Eric grabbed me just after we got in and started kissing me. He wasn't that good but I kissed him back and made him feel like he was an expert. The other two watched for a while but grew quickly impatient. Carl pulled Eric away and took his place. Isaac, instead, got behind me and reached under my skirt to grab my ass. I purred when he touched me. Carl began to unbutton my blouse. I worked on his shirt. Isaac, having copped a good feel, slid my skirt down. I had no panties on. Eric in the meantime began to undress himself. It wasn't long before we were all naked. Eric had joined Carl at my chest and the each enjoyed a breast. I had a cock in each hand and jacked them off. Isaac went back to my ass but reached under and shoved his fingers in my pussy every so often. It was making me making me very hot. Report_Story #5 
+ Their faces lit up and they led me to one of the other rooms. Eric grabbed me just after we got in and started kissing me. He wasn't that good but I kissed him back and made him feel like he was an expert. The other two watched for a while but grew quickly impatient. Carl pulled Eric away and took his place. Isaac, instead, got behind me and reached under my skirt to grab my ass. I purred when he touched me. Carl began to unbutton my blouse. I worked on his shirt. Isaac, having copped a good feel, slid my skirt down. I had no panties on. Eric in the meantime began to undress himself. It wasn't long before we were all naked. Eric had joined Carl at my chest and the each enjoyed a breast. I had a cock in each hand and jacked them off. Isaac went back to my ass but reached under and shoved his fingers in my pussy every so often. It was making me making me very hot.  
 
  
 
@@ -3872,7 +3872,7 @@
 
  "She is to men that are weaker than her." He said bluntly. 
 
- Then Jeff started to talk to me and somehow a couple hours passed. In that time I realized something: Mom was wrong about something else too. Just because he knows you're a slut doesn't mean your man won't love you. In Jim I could have it all: friend, husband, Master. Love when I wanted it, lust when I craved it, discipline when I needed it. I'd been such and idiot. He'd always been my perfect match and I'd just never seen it! Barriers that had been placed by Paul shattered and fell away. My love and trust of Jim rushed back from where it had been stored, but not only that. More of those barriers seemed to be gone, even ones from years past. I felt complete. I felt like just me. No restrictions from anyone and no false ideas. I was Jim's of my own free will and a slut because I craved it and very, very much in love with my husband, my Master. I had never felt happier. Report_Story #6 
+ Then Jeff started to talk to me and somehow a couple hours passed. In that time I realized something: Mom was wrong about something else too. Just because he knows you're a slut doesn't mean your man won't love you. In Jim I could have it all: friend, husband, Master. Love when I wanted it, lust when I craved it, discipline when I needed it. I'd been such and idiot. He'd always been my perfect match and I'd just never seen it! Barriers that had been placed by Paul shattered and fell away. My love and trust of Jim rushed back from where it had been stored, but not only that. More of those barriers seemed to be gone, even ones from years past. I felt complete. I felt like just me. No restrictions from anyone and no false ideas. I was Jim's of my own free will and a slut because I craved it and very, very much in love with my husband, my Master. I had never felt happier.  
 
  
 
@@ -3906,7 +3906,7 @@
 
  Yes, yes, I did it again. I delayed the confrontation I know you're waiting for. Well, don't worry, next chapter it's on! Or maybe it's just beginning. I don't know. This story seems to be writing itself. You want to know how it ends? Well so do I! Please vote before you go (it's just 2 clicks!) and feedback is greatly appreciated. 
 
- Boratus. Report_Story #1 
+ Boratus.  
 
  
 
@@ -4154,7 +4154,7 @@
 
  What’s the point of this little story? I just wanted to let you know what kind of a man I was just so it doesn’t come as a surprise that when my friend Jim asked me to overthrow his boss’s little slut empire I agreed without much of a moral debate. 
 
- I couldn’t believe what that man had put Jim through. He had turned my friend into a male slut and used him to entertain and coax unscrupulous clients. Under hypnosis, Jim had filled me in on many of the details and then struggled to become the man he used to be again. It didn’t work. Jim had always been a confident man, a “go-getter” so to speak but after coming to terms with his slut side he had somehow changed. Confident didn’t encompass him any more. He was dominant, driven and somewhat angry, though not at the world. His anger is focused, rightfully, at his boss Paul. Paul hadn’t only turned Jim into a slut but his wife Liz as well along with many of Jim’s co-workers and their spouses. The entire office basically doubled as a whorehouse. I have to admit I’m impressed with the man. It makes me think about hypnotizing Carol. She’s an average looking woman and a little plump but sometimes I just need a blowjob during the day and I wouldn’t mind her lips being wrapped around me to get one. Report_Story #2 
+ I couldn’t believe what that man had put Jim through. He had turned my friend into a male slut and used him to entertain and coax unscrupulous clients. Under hypnosis, Jim had filled me in on many of the details and then struggled to become the man he used to be again. It didn’t work. Jim had always been a confident man, a “go-getter” so to speak but after coming to terms with his slut side he had somehow changed. Confident didn’t encompass him any more. He was dominant, driven and somewhat angry, though not at the world. His anger is focused, rightfully, at his boss Paul. Paul hadn’t only turned Jim into a slut but his wife Liz as well along with many of Jim’s co-workers and their spouses. The entire office basically doubled as a whorehouse. I have to admit I’m impressed with the man. It makes me think about hypnotizing Carol. She’s an average looking woman and a little plump but sometimes I just need a blowjob during the day and I wouldn’t mind her lips being wrapped around me to get one.  
 
  
 
@@ -4480,7 +4480,7 @@
 
  “Liked that, did you bitch?” Shaun asked and then spanked her again. I watched his black hand smack her tanned ass again and again. She slowed reddened and squealed each time he got her with a really hard one. Meanwhile Liz’s eyes almost popped out of her head. Her legs began to tremble and she grabbed Kathy’s head through her skirt. 
 
- Her knuckles started to go white as she began to chant. “Fuck. Fuck. Fuck. Fuck! Fuck! Fuck! FUCK! FUCK! FUUUUUUUUUUUUUUCK!” If she wasn’t having an orgasm then she could fake it with the best of them. She collapsed to her knees forcing Kathy’s trapped head down in the process. Report_Story #3 
+ Her knuckles started to go white as she began to chant. “Fuck. Fuck. Fuck. Fuck! Fuck! Fuck! FUCK! FUCK! FUUUUUUUUUUUUUUCK!” If she wasn’t having an orgasm then she could fake it with the best of them. She collapsed to her knees forcing Kathy’s trapped head down in the process.  
 
  
 
@@ -4588,7 +4588,7 @@
 
  FYI, 1/100 people vote on stories on average and 1/10 of those send feedback. We authors thrive on feedback. It helps us improve our work and inspires us to write more. In fact, there probably wouldn’t have been a chapter 3 if I hadn’t gotten this on March 29th: “When oh When are you going to write more on the 'My Fair Slut' and 'Seduction by Phone' stories!? I can't wait to read more!!!” I’d really like to thank that reader! I didn’t think anyone was really following my work until then. And now I try My best to get you a new chapter each month. So please try and vote and send feedback to all the authors. I know, even I think it’s tedious sometimes, but compare the minute or two it takes you to the hours the writers here have put into those stories to entertain and arouse you. Ok, I’ll shut up now. ;-) 
 
- Boratus. Report_Story #1 
+ Boratus.  
 
  
 
@@ -4698,7 +4698,7 @@
 
  “Yes, Sir.” I echoed. I’d say anything he wanted. You have no idea how badly I wanted to taste that cock. 
 
- He started me off licking. He explained how it was more sensitive underneath especially just under the head. He showed me how to fondle and lick balls. Then he let me suck him. There was no way I could get him all the way in my mouth so I had to stroke him with my hand as well. Within weeks he would have me deep- throating him. My efforts were apparently good enough because he came all over my face and the clothes I was wearing. He made me keep sucking to clean him up and get him hard again then he fucked me like a dog on the floor. I begged him to do it. Report_Story #2 
+ He started me off licking. He explained how it was more sensitive underneath especially just under the head. He showed me how to fondle and lick balls. Then he let me suck him. There was no way I could get him all the way in my mouth so I had to stroke him with my hand as well. Within weeks he would have me deep- throating him. My efforts were apparently good enough because he came all over my face and the clothes I was wearing. He made me keep sucking to clean him up and get him hard again then he fucked me like a dog on the floor. I begged him to do it.  
 
  
 
@@ -4900,7 +4900,7 @@
 
  “Tammy, come lick my pussy. Jenny, suck on my tits.” I ordered. The crawled over quickly and virtually attacked me. Tammy pulled off my thong with a kind of desperation and Jenny did her best to strip be of my bodice but I had to help her in the end. Now, I have to tell you, Damien’s tongue was amazing as tongues go. He knew what to do and learned my body very well during our time together but a woman knows right from the start what a woman wants. The work those two did on my body put me close to heaven. After my second orgasm I needed to taste those girls’ pussies as well. The three of us fucked and sucked all night in every position three girls could get into. I’ll admit there were times when I lost control and moaned like a slut when they fucked me with their fingers or tongue but they didn’t seem to notice. It just turned them on all the more. We fell asleep at sunrise and woke in the early afternoon. Their first duty was to make me cum and they fulfilled it beautifully. I got their home number and I knew their address. As I left I made a mental note to return with a strap on dildo. I decided that my “coming out” night was a success. 
 
- Within a month the girls submitted to me formally. About 3 months after that I had a business man named Joseph swear himself to me along with everything he had. He became but bank note. I won’t use the term sugar daddy because, if anything, he was the child and I was his bitch momma. This also made things easy for me financially, not that I wasn’t without money, having well-off parents, but now I could spend so much more on my outfits and toys and equipment. Joseph owned a house which the girls and I moved into. I took over the master bedroom. The girls shared and room and Joseph slept in a cage at the foot of my bed. There was another bedroom which I let Joseph keep his clothes in but he essentially became our dog when he was home. I was good to him. I patted his head when he was good and made sure one of the girls put food in his dish at mealtime. When I was particularly horny I’d ride his cock and if I enjoyed myself on him I’d let one of the girls suck him off. Sometimes I wondered if he really loved his new life but mostly I didn’t really give a shit about him. He was money and a cock. Apparently he had bought the house back when he thought he’d have a wife and kids someday. Maybe if I got tired of him he’d try again. But at the moment I didn’t care what he wanted. I wanted a dungeon. Report_Story #3 
+ Within a month the girls submitted to me formally. About 3 months after that I had a business man named Joseph swear himself to me along with everything he had. He became but bank note. I won’t use the term sugar daddy because, if anything, he was the child and I was his bitch momma. This also made things easy for me financially, not that I wasn’t without money, having well-off parents, but now I could spend so much more on my outfits and toys and equipment. Joseph owned a house which the girls and I moved into. I took over the master bedroom. The girls shared and room and Joseph slept in a cage at the foot of my bed. There was another bedroom which I let Joseph keep his clothes in but he essentially became our dog when he was home. I was good to him. I patted his head when he was good and made sure one of the girls put food in his dish at mealtime. When I was particularly horny I’d ride his cock and if I enjoyed myself on him I’d let one of the girls suck him off. Sometimes I wondered if he really loved his new life but mostly I didn’t really give a shit about him. He was money and a cock. Apparently he had bought the house back when he thought he’d have a wife and kids someday. Maybe if I got tired of him he’d try again. But at the moment I didn’t care what he wanted. I wanted a dungeon.  
 
  
 
@@ -5058,7 +5058,7 @@
 
  *** 
 
- To be concluded… Report_Story #1 
+ To be concluded…  
 
  
 
@@ -5404,7 +5404,7 @@
 
  “Fuck!” Angela moaned. Her plan shattered with the smack. They would keep her on the edge of orgasm until she relented. She didn’t know what to do. She was a slut. She knew it but a slut to her daughter? She thought about the implications. This was crazy. But then she thought about what Liz promised her. Being fucked all the time. Serving these two. Being away from her husband. Fucked all the time. All the time. 
 
- “Please, Mistress, let me cum.” Report_Story #2 
+ “Please, Mistress, let me cum.”  
 
  
 

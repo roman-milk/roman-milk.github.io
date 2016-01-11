@@ -180,7 +180,7 @@
 
  I could hear her moan when I called her names, "You like being a cocksucking slut for your son don't you mom?" 
 
- All she could do was nod her head several times enthusiastically. I pulled her off my cock lifted her face to look at me and asked, "Where does my nasty fucking slut of a mother want her son's cock?" Report_Story #2 
+ All she could do was nod her head several times enthusiastically. I pulled her off my cock lifted her face to look at me and asked, "Where does my nasty fucking slut of a mother want her son's cock?"  
 
  
 
@@ -268,7 +268,7 @@
 
  Laughing to myself, "I need to rethink this leaving when I graduate now that I have an entirely different mom." 
 
- Next I break in my little sister... Report_Story #1 
+ Next I break in my little sister...  
 
  
 
@@ -488,7 +488,7 @@
 
  Kim looked me in the eyes, and pleaded, "Please fuck your mother, Goddddd I love that, I want to see a son fuck his mother's cunt." 
 
- I smiled at her as the head of my throbbing cock parted my mothers pussy, pushing half way in, she groaned, grunted and pushed back into me. She lifted her head from Kim's juicy fuckholes, looked over her shoulder and whimpered, "Fuck mommy baby, fuck your mothers cunt, the same hole you came out of." Report_Story #2 
+ I smiled at her as the head of my throbbing cock parted my mothers pussy, pushing half way in, she groaned, grunted and pushed back into me. She lifted her head from Kim's juicy fuckholes, looked over her shoulder and whimpered, "Fuck mommy baby, fuck your mothers cunt, the same hole you came out of."  
 
  
 
@@ -636,7 +636,7 @@
 
  "So where were you and mom today?" 
 
- I laughed, "We did a little shopping." Report_Story #1 
+ I laughed, "We did a little shopping."  
 
  
 
@@ -834,7 +834,7 @@
 
  Kip moved to her back, massaging the muscles pushing her thumbs in and working them around, sliding her hands down her sides, paying particular attention to the sides of mom's full breasts. 
 
- When Kips hands massages the soft skin on the side of mothers tits, mom moaned a little louder. Kip smiled knowing mother was getting turned on. I laughed at myself knowing mother was already fucking horny before Kip started. Report_Story #2 
+ When Kips hands massages the soft skin on the side of mothers tits, mom moaned a little louder. Kip smiled knowing mother was getting turned on. I laughed at myself knowing mother was already fucking horny before Kip started.  
 
  
 
@@ -1028,7 +1028,7 @@
 
  Mom, got up and looked at dad, "Dicky is sleeping with me, if that is OK with you my Master." lowering her eyes at me. 
 
- I grabbed her hand, "Good night dad, sweet dreams, sis." Report_Story #1 
+ I grabbed her hand, "Good night dad, sweet dreams, sis."  
 
  
 
@@ -1260,7 +1260,7 @@
 
  Fifteen or twenty minutes went by and Johnny was really getting into the movie, he grabbed a throw and placed it over his lap, had his pants off and was stroking his cock. 
 
- I was laying down pretending to be asleep when out of the corner of my eye I saw Kim peeking around the door watching the movie. Report_Story #2 
+ I was laying down pretending to be asleep when out of the corner of my eye I saw Kim peeking around the door watching the movie.  
 
  
 
@@ -1550,7 +1550,7 @@
 
  I was silently laughing watching my Dad go back to his chair, his cock obviously hard, as he sat down adjusting himself. 
 
- Suzi was doing a great job teasing as she brought Dad his tea, leaning over in front of him, her blouse gaping open. Suzi took it a step farther than I told her, and wasn't wearing a bra. Report_Story #3 
+ Suzi was doing a great job teasing as she brought Dad his tea, leaning over in front of him, her blouse gaping open. Suzi took it a step farther than I told her, and wasn't wearing a bra.  
 
  
 

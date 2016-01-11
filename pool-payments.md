@@ -100,7 +100,7 @@
 
  * * * * 
 
- Yes, there's more to come. If you could find the time to cast a vote below, it would be greatly appreciated. Report_Story #1 
+ Yes, there's more to come. If you could find the time to cast a vote below, it would be greatly appreciated.  
 
  
 
@@ -250,7 +250,7 @@
 
  ----- 
 
- What should I do? What did I do? Stay tuned - and remember - please vote! Report_Story #1 
+ What should I do? What did I do? Stay tuned - and remember - please vote!  
 
  
 
@@ -424,7 +424,7 @@
 
  * * * * * 
 
- Thanks for reading my little story. I hope you're enjoying it, and if you did, won't you please vote and let me know? Report_Story #1 
+ Thanks for reading my little story. I hope you're enjoying it, and if you did, won't you please vote and let me know?  
 
  
 
@@ -554,7 +554,7 @@
 
  * * * * * 
 
- It's not too late for you to vote. Go ahead, it feels good. Report_Story #1 
+ It's not too late for you to vote. Go ahead, it feels good.  
 
  
 
@@ -766,7 +766,7 @@
 
  In response I only fingered her a little more forcefully, the meat of my thumb pressuring her clit. 
 
- "That feels so wild," she whispered, pushing back just a bit. She released my cock, and brought her hands up to her breasts, holding them. "Oh, God, Alex, just like that." Report_Story #2 
+ "That feels so wild," she whispered, pushing back just a bit. She released my cock, and brought her hands up to her breasts, holding them. "Oh, God, Alex, just like that."  
 
  
 
@@ -838,7 +838,7 @@
 
  * * * * * 
 
- Will you take a moment now, and grade Kayla's first exam, with a vote of encouragement? Report_Story #1 
+ Will you take a moment now, and grade Kayla's first exam, with a vote of encouragement?  
 
  
 
@@ -966,7 +966,7 @@
 
  * * * * * 
 
- Things are really getting interesting. Can three play together as well as two? Find out in the next chapter. And if you remember, please vote. Report_Story #1 
+ Things are really getting interesting. Can three play together as well as two? Find out in the next chapter. And if you remember, please vote.  
 
  
 
@@ -1216,7 +1216,7 @@
 
  "Oh, shit," she laughed, and Kayla laughed with her. 
 
- Kayla got a second lesson that morning, as I fucked the living daylights out of Beth. Having come twice in the previous half-hour, I was able to go on forever. We tried half-a-dozen positions, with me on top, her on top, on our sides, off the edge of the bed. Kayla was fascinated, touching us all over, and caressing me where I entered Beth. We ended up with me behind Beth, on her hands and knees, and I screwed her for a good 10 minutes. Even then, I wasn't quite ready to come and she was nearly worn out. Report_Story #2 
+ Kayla got a second lesson that morning, as I fucked the living daylights out of Beth. Having come twice in the previous half-hour, I was able to go on forever. We tried half-a-dozen positions, with me on top, her on top, on our sides, off the edge of the bed. Kayla was fascinated, touching us all over, and caressing me where I entered Beth. We ended up with me behind Beth, on her hands and knees, and I screwed her for a good 10 minutes. Even then, I wasn't quite ready to come and she was nearly worn out.  
 
  
 
@@ -1252,7 +1252,7 @@
 
  * * * * * 
 
- Hope you enjoyed Kayla's induction. The next chapter is on its way. Report_Story #1 
+ Hope you enjoyed Kayla's induction. The next chapter is on its way.  
 
  
 
@@ -1520,7 +1520,7 @@
 
  ========== 
 
- Lisa's turn. And she pays for being late. Report_Story #1 
+ Lisa's turn. And she pays for being late.  
 
  
 
@@ -1758,7 +1758,7 @@
 
  Beth was licking my cock, just playing around. "This thing should be registered as a lethal weapon. I thought you were going to kill her." 
 
- "It looked like she enjoyed it," I said. Report_Story #2 
+ "It looked like she enjoyed it," I said.  
 
  
 
@@ -1828,7 +1828,7 @@
 
  ====== 
 
- Hope you enjoyed the story. At least half as much at this crowd did! And remember, votes are appreciated! Report_Story #1 
+ Hope you enjoyed the story. At least half as much at this crowd did! And remember, votes are appreciated!  
 
  
 
@@ -2074,7 +2074,7 @@
 
  I pushed her legs back even further, tilting her hips up. I lowered my own and started fucking up into her, shorter strokes, feeling the pressure on the head of my cock as I rubbed the front wall of her tight young pussy, aiming for her g-spot. 
 
- I knew when I found it, she reacted like she'd been shocked, grunting and whimpering. Tracking the target, I fucked into her hard and fast, pounding her weakness, while she lost control. Report_Story #2 
+ I knew when I found it, she reacted like she'd been shocked, grunting and whimpering. Tracking the target, I fucked into her hard and fast, pounding her weakness, while she lost control.  
 
  
 
@@ -2284,7 +2284,7 @@
 
  ----- 
 
- What next? What will the morning bring? I'll give you a hint - things finally start to clear up for Alex. Stay tuned! And Vote! Report_Story #1 
+ What next? What will the morning bring? I'll give you a hint - things finally start to clear up for Alex. Stay tuned! And Vote!  
 
  
 
@@ -2634,7 +2634,7 @@
 
  My wife took Andrea by the hand, and led her to the bathroom. "That's it for you. Let's get you cleaned up." She looked over at me, and I was expecting another glare, but received a wink instead. "Let her get you hard again." She nodded toward Beth. 
 
- Beth was moaning, but took my cock in her mouth when I kneeled in front of her and raised her head up. I was messy, but she took care of that easily enough, and it didn't take long for her to get a rise out of me. I held her head and fucked her mouth while Greg used her from behind. Report_Story #2 
+ Beth was moaning, but took my cock in her mouth when I kneeled in front of her and raised her head up. I was messy, but she took care of that easily enough, and it didn't take long for her to get a rise out of me. I held her head and fucked her mouth while Greg used her from behind.  
 
  
 
@@ -2712,7 +2712,7 @@
 
  ===== 
 
- One more Chapter to go. I hope you enjoyed this installment, and thanks for the continued support. If you like the story, please vote. Thanks. Report_Story #1 
+ One more Chapter to go. I hope you enjoyed this installment, and thanks for the continued support. If you like the story, please vote. Thanks.  
 
  
 

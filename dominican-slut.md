@@ -236,7 +236,7 @@
 
  Somehow his words actually made me love him more. He saw me as hot and sexy, something that only enhanced my willingness to continually give myself to him. 
 
- Lying in my bed an hour later, I was riddled with guilt at getting so turned on and then actually enhancing the racial play by degrading myself. Report_Story #2 
+ Lying in my bed an hour later, I was riddled with guilt at getting so turned on and then actually enhancing the racial play by degrading myself.  
 
  
 
@@ -338,7 +338,7 @@
 
  THE END OF CHAPTER 1 
 
- Coming in May of 2015: Blackmailed Report_Story #1 
+ Coming in May of 2015: Blackmailed  
 
  
 
@@ -646,7 +646,7 @@
 
  A moment later, he said, "Keep sucking slut." 
 
- Petrified of getting caught, yet exhilarated at the risk like I used to get with Vaughn, I began slowly sucking his cock. Report_Story #2 
+ Petrified of getting caught, yet exhilarated at the risk like I used to get with Vaughn, I began slowly sucking his cock.  
 
  
 
@@ -874,7 +874,7 @@
 
  The End of Chapter 2. 
 
- Coming Next: Dominican Slut: Cunt Muncher Report_Story #1 
+ Coming Next: Dominican Slut: Cunt Muncher  
 
  
 
@@ -1174,7 +1174,7 @@
 
  I barely had time to really even think about what all this implied when I was startled by Cameron Abbey, Bryce's secretary. 
 
- "Well, its time I see if you are as good at munching cunt as you are at sucking cock," the secretary bluntly said. Report_Story #2 
+ "Well, its time I see if you are as good at munching cunt as you are at sucking cock," the secretary bluntly said.  
 
  
 
@@ -1474,7 +1474,7 @@
 
  The end of Chapter 3. 
 
- Coming Next: Dominican Slut: Humiliated Pet Report_Story #1 
+ Coming Next: Dominican Slut: Humiliated Pet  
 
  
 
@@ -1858,7 +1858,7 @@
 
  "Woof," I barked, shame continuing to course through me. 
 
- "Now whine like a puppy," she ordered. Report_Story #2 
+ "Now whine like a puppy," she ordered.  
 
  
 
@@ -2120,7 +2120,7 @@
 
  THE END...for now. 
 
- Coming next: Dominican Slut: Janitor Gangbang Report_Story #1 
+ Coming next: Dominican Slut: Janitor Gangbang  
 
  
 
@@ -2470,7 +2470,7 @@
 
  She walked out and I weakly got up and went to the washroom to clean myself up and go pee myself. 
 
- When I returned, the last two men, two more Haitians, were waiting. They got me on all fours, put the flag over the top of me, and took turns fucking my mouth and cunt. Report_Story #2 
+ When I returned, the last two men, two more Haitians, were waiting. They got me on all fours, put the flag over the top of me, and took turns fucking my mouth and cunt.  
 
  
 
@@ -2488,7 +2488,7 @@
 
  THE END... for now. 
 
- Coming next: Dominican Slut: Office Cocksucker Report_Story #1 
+ Coming next: Dominican Slut: Office Cocksucker  
 
  
 
@@ -2810,7 +2810,7 @@
 
  "Yes, Master," I nodded, wanting his cock in my mouth, my ass and cunt. Willing to spread my legs wide open and accept his dominant seed, allow myself the risk of becoming pregnant with a white man's child. 
 
- "And what about your husband?" he asked, tapping his cock on my lips. Report_Story #2 
+ "And what about your husband?" he asked, tapping his cock on my lips.  
 
  
 
@@ -2992,7 +2992,7 @@
 
  THE END... for now. 
 
- Coming next: Dominican Slut: Office Sluts Report_Story #1 
+ Coming next: Dominican Slut: Office Sluts  
 
  
 
@@ -3346,7 +3346,7 @@
 
  "Do you want me to be a culo puta for white men and women?" I asked, looking at him. 
 
- "Yes, baby, don't fight it. Don't feel guilty. Don't blame yourself for being weak," he said, "Be proud to finally allow yourself, for us, to be who we really are." Report_Story #2 
+ "Yes, baby, don't fight it. Don't feel guilty. Don't blame yourself for being weak," he said, "Be proud to finally allow yourself, for us, to be who we really are."  
 
  
 
@@ -3428,7 +3428,7 @@
 
  THE END... for now. 
 
- Coming next: Dominican Slut: Orgy Report_Story #1 
+ Coming next: Dominican Slut: Orgy  
 
  
 
@@ -3756,7 +3756,7 @@
 
  "It was too intimate," Johnathan admitted. 
 
- "So fucking her face, coming all over her face, filling her unprotected womb with dominant cum, pounding her wide ass and using her as a three-hole cum bucket for whites is okay, but kissing her isn't?" Bryce asked, the question clearly meant to humiliate, to make the already clear situation even clearer. Report_Story #2 
+ "So fucking her face, coming all over her face, filling her unprotected womb with dominant cum, pounding her wide ass and using her as a three-hole cum bucket for whites is okay, but kissing her isn't?" Bryce asked, the question clearly meant to humiliate, to make the already clear situation even clearer.  
 
  
 
@@ -4092,7 +4092,7 @@
 
  I looked around and saw that Candace was no longer on the machine but on her knees with Elmer, Jeremy, Walker and Mr. Goldstein, who I hadn't seen since he came in me, all circled around her. She was sucking one cock, while stroking two others. I again shook my head realizing that it wasn't just Dominicans that would submit to their basic carnal submissive desires given the right opportunity. Candace did not seem to be forced anymore, but rather just giving in to the pleasure of submission and pleasing others. 
 
- Ms. Goldstein was watching from her desk and Juliette was near Bryce continuing her belittling of my husband. Report_Story #3 
+ Ms. Goldstein was watching from her desk and Juliette was near Bryce continuing her belittling of my husband.  
 
  
 

@@ -180,7 +180,7 @@
 
  "I got you your hit man girlfriend. Your troubles will soon be over." 
 
- "Oh sweet Jesus Hillary, how could you do that to me?" Report_Story #2 
+ "Oh sweet Jesus Hillary, how could you do that to me?"  
 
  
 

@@ -244,7 +244,7 @@
 
  After I disconnected from Bea I got on the phone and started calling all the names on my list. Most were shocked to find out that Bea had cheated on me, but two weren't surprised. One said "Finally caught her huh?" and the other said "I always had the idea that you had one of them open marriage things. She was always going off with some guy and you never said nothing about it." I guessed I could cross those two off of my list of friends. 
 
- The two that the information hit the hardest and who tried to tell me that I must be wrong were Bea's parents. I had always liked them and they had treated me almost like the son they never had, but I was not going to let Bea tell them and make it out to be all my fault. If I allowed that to happen they would not think well of me and I didn't want that. Report_Story #2 
+ The two that the information hit the hardest and who tried to tell me that I must be wrong were Bea's parents. I had always liked them and they had treated me almost like the son they never had, but I was not going to let Bea tell them and make it out to be all my fault. If I allowed that to happen they would not think well of me and I didn't want that.  
 
  
 

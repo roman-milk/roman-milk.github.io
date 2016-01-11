@@ -138,7 +138,7 @@
 
  "No... yes, it is nice to unwind," Lori responded and felt her stomach churning like mad. 
 
- Sue looked her friend straight in the eyes and noticed Lori's anxiety. "Jim's the best. He always knows how to manipulate every sore muscle... he'll get us girls ready for tomorrow," Sue said. "Jump up on the table so we can get this over with and then have something to eat. I'm starving!" Report_Story #2 
+ Sue looked her friend straight in the eyes and noticed Lori's anxiety. "Jim's the best. He always knows how to manipulate every sore muscle... he'll get us girls ready for tomorrow," Sue said. "Jump up on the table so we can get this over with and then have something to eat. I'm starving!"  
 
  
 
@@ -358,7 +358,7 @@
 
  "Oooohhhh... oooohhhh!" 
 
- Susan watched her husband grab the bony hips and yank them backwards, as hard as he could. When Jim embedded his cock, he did it with one tremendous thrust, which took all of the air out of Lori's lungs. "Baby, oh baby, you're fucking. You're fucking Jim," Sue stated, but her words fell on deaf ears. Report_Story #3 
+ Susan watched her husband grab the bony hips and yank them backwards, as hard as he could. When Jim embedded his cock, he did it with one tremendous thrust, which took all of the air out of Lori's lungs. "Baby, oh baby, you're fucking. You're fucking Jim," Sue stated, but her words fell on deaf ears.  
 
  
 
@@ -564,7 +564,7 @@
 
  "No, no, please Sue, no," Lori replied. 
 
- "You pulled my hand away... now you can touch yourself," Sue whispered, as she grabbed Lori's hand and shoved it into the sweaty crotch. "Pinch that clitty and show Jim how much you want his cock!" Report_Story #4 
+ "You pulled my hand away... now you can touch yourself," Sue whispered, as she grabbed Lori's hand and shoved it into the sweaty crotch. "Pinch that clitty and show Jim how much you want his cock!"  
 
  
 

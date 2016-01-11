@@ -252,7 +252,7 @@
 
  "The police still have your DNA from when the hospital did the rape kit testing. And don't think you will get away because the sperm of the four of you was too mixed to get a good read. Remember Ben, you were the one who thought it was funny to cum in my hair and you were the only one to do that. Ted is the only one who pulled out of my ass and shot all over my back. So you two are easily identified. Fuck with me Ben and go to jail for rape. Now get the fuck out of here." 
 
- As she got ready for bed she thought back over the week and what she had done. She didn't even know if her plan would work, but just the doing gave her closure. She thought about how easy it had been. Sleeping powder mixed in their beer and then strenuous fucking to exhaust them and cause them to fall into a deep sleep. While they slept she injected them with one cc of the blood from the second vial she had brought home from the hospital and then the next morning she had fucked them hard to make them overlook any discomfort that the injection might have caused. Report_Story #2 
+ As she got ready for bed she thought back over the week and what she had done. She didn't even know if her plan would work, but just the doing gave her closure. She thought about how easy it had been. Sleeping powder mixed in their beer and then strenuous fucking to exhaust them and cause them to fall into a deep sleep. While they slept she injected them with one cc of the blood from the second vial she had brought home from the hospital and then the next morning she had fucked them hard to make them overlook any discomfort that the injection might have caused.  
 
  
 

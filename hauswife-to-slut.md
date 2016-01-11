@@ -166,7 +166,7 @@
 
  Suddenly I was aware of Dale's hand sliding up my thigh, and him whispering "watch this it is just getting interesting." As he finished speaking he didn't remove his hand, he left it at mid thigh and slowly caressed my exposed flesh. 
 
- I was starting to get angry. I would never want to embarrass Mike, but this was going too far. I was about to say something, when the screen flashed to a local high school, I recognized it immediately. It was the sister school to the one that my own children went to in town. The scene showed a young man exiting the school with a lettermen jacket on. The date on the jacket showed him as graduated this past year. This young man was getting into a car, just then the camera did a close up. I gasped out loud. It was the young man I was with this afternoon. Report_Story #2 
+ I was starting to get angry. I would never want to embarrass Mike, but this was going too far. I was about to say something, when the screen flashed to a local high school, I recognized it immediately. It was the sister school to the one that my own children went to in town. The scene showed a young man exiting the school with a lettermen jacket on. The date on the jacket showed him as graduated this past year. This young man was getting into a car, just then the camera did a close up. I gasped out loud. It was the young man I was with this afternoon.  
 
  
 
@@ -200,7 +200,7 @@
 
  "Mike, baby, I'll do anything to make this up to you, anything at all!!" I insisted with tears running down my cheeks, smearing my make up. 
 
- "Oh I am completely sure of that, anything at all." Report_Story #1 
+ "Oh I am completely sure of that, anything at all."  
 
  
 
@@ -406,7 +406,7 @@
 
  After several minutes of panting and catching my breath, we disengaged. Mike told me to get freshened up and dressed. 
 
- "Don't thank me yet," Mike said as I started to leave the room, "this is only day one." Report_Story #1 
+ "Don't thank me yet," Mike said as I started to leave the room, "this is only day one."  
 
  
 
@@ -602,7 +602,7 @@
 
  "Absolutely!" I answered with a chuckle. 
 
- "Well I didn't want to interrupt you," Mike continued, "but Gil is out of the running and David is down to $18 million." Report_Story #2 
+ "Well I didn't want to interrupt you," Mike continued, "but Gil is out of the running and David is down to $18 million."  
 
  
 

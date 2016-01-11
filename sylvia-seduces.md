@@ -124,7 +124,7 @@
 
  It was Saturday night, his mother was out and it was Sylvia's night off. There was the usual crap on television, and Justin had planned to stay in his room, with occasional forays to the parlour for his Sylvia fix, whereupon he thought of penning a fresh note. 
 
- And Sylvia looked even better than usual tonight. Her black hair, bobbed, shone; she was lightly made-up, unusual for a casual evening in, as was her choice of clothing. Sylvia had dressed as though for work, in her too short skirt and her too tight blouse. The blouse itself was something else, unbuttoned to an unprecedented third button. If Justin angled it just right he could look down into Sylvia's cleavage to a depth never plumbed before. Dizzying and delicious, and Justin's cock was thick and hard in his jeans at the sight. Report_Story #2 
+ And Sylvia looked even better than usual tonight. Her black hair, bobbed, shone; she was lightly made-up, unusual for a casual evening in, as was her choice of clothing. Sylvia had dressed as though for work, in her too short skirt and her too tight blouse. The blouse itself was something else, unbuttoned to an unprecedented third button. If Justin angled it just right he could look down into Sylvia's cleavage to a depth never plumbed before. Dizzying and delicious, and Justin's cock was thick and hard in his jeans at the sight.  
 
  
 

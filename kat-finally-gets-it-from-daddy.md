@@ -92,7 +92,7 @@
 
  Kat pushed down her shorts and thong and squatted on the toilet. No, better to hurry and finish this, then go out for supper with Daddy. She'd take a long bath or shower tonight, and up front tell Daddy it would take a while. Then she'd do herself crazy in the tub, what her body wanted all day long. 
 
- Catching herself looking at her thong, she saw it was soaked. It had been pressed against her oozing vagina and clitoris all day, resulting in the pale pink thong turned a much deeper shade and even pooled with visible drips. The sight of her wet thong reminded Kat just how badly her pussy had wanted attention ealier in the car. Shit, she realized she'd been staring at her father's huge cock all afternoon. That couldn't have been me! she bemused, not really disappointed in herself, just more surprised. Report_Story #2 
+ Catching herself looking at her thong, she saw it was soaked. It had been pressed against her oozing vagina and clitoris all day, resulting in the pale pink thong turned a much deeper shade and even pooled with visible drips. The sight of her wet thong reminded Kat just how badly her pussy had wanted attention ealier in the car. Shit, she realized she'd been staring at her father's huge cock all afternoon. That couldn't have been me! she bemused, not really disappointed in herself, just more surprised.  
 
  
 
@@ -182,7 +182,7 @@
 
  The man was leaving, but walking slowly past Kat. For a split second, Kat grew embarrassed, thinking she might actually have to say something to him. Or maybe he'd say something to her? But all he gave her was a smile, then a last look at her breasts in her light-blue bikini top. Her nipples pointed at him. She could hear him sigh, then he exited out the door and out of her life. 
 
- Kat immediately wondered if she should have said something. In an aroused state, she imagined what he might have done if she pulled her top up to show off her breasts; or if she rubbed her body against his cock. All sexy thoughts, but moot now. Report_Story #3 
+ Kat immediately wondered if she should have said something. In an aroused state, she imagined what he might have done if she pulled her top up to show off her breasts; or if she rubbed her body against his cock. All sexy thoughts, but moot now.  
 
  
 
@@ -264,7 +264,7 @@
 
  How long to stay here? Kat felt the throbbing inside her thong, her vagina demanding attention. It was getting more desperate to be fucked, knowing she was exhibiting her femininity for her father, and knowing he was looking. Time to get into the bathroom and get off. "Nope, not here," Kat reported with a sound of finality, pushing back and standing up again. Her eyes immediately fixated on his underwear, and his penis was as big and beautiful as a few moments earlier. But she couldn't stare at it; almost right away she looked up at her father, trying to appear confused about her missing lotion. "Yeah, maybe I lost it." 
 
- "Here." Her father gave her a very common glare, the kind that a male gives to the female that is always losing things. Mom was like that. Dad, however, didn't seem mad at all, unlike with her Mom. Instead, he had a very reassuring manner at the moment, as if he was confident he was going to find what she'd lost. "Let's pull everything out." Daddy stepped next to Kat, and she found herself now within arm's reach of his bulging cock in the tight underwear. Daddy was so close, in fact, she could peer down and inside the space between his underwear and skin. To her disappointment, it was too dark to see anything inside, but she knew what was there. Her eyes had to be pointed at it, just unable to see it is all. Report_Story #4 
+ "Here." Her father gave her a very common glare, the kind that a male gives to the female that is always losing things. Mom was like that. Dad, however, didn't seem mad at all, unlike with her Mom. Instead, he had a very reassuring manner at the moment, as if he was confident he was going to find what she'd lost. "Let's pull everything out." Daddy stepped next to Kat, and she found herself now within arm's reach of his bulging cock in the tight underwear. Daddy was so close, in fact, she could peer down and inside the space between his underwear and skin. To her disappointment, it was too dark to see anything inside, but she knew what was there. Her eyes had to be pointed at it, just unable to see it is all.  
 
  
 
@@ -362,7 +362,7 @@
 
  Kat laughed back, smiling hard enough she had to take his cock out for a moment. "Geez, you think, Daddy?" 
 
- "Yeah, I think." Daddy was staring back at her hard, eye to eye, and he pushed his torso up with elbows behind himself. "And you can suck it anytime you want, trust me." He leaned up more, and as his face approached, Kat knew what was coming, and she wanted it. It was a thought she'd never, ever had before, so the moment came entirely fresh. Daddy reached a hand out, slipping it over her shoulders, holding her torso steady, as he planted his lips on her lips. Kat kissed her father for the billionth time of her life, but for the first time ever, it was a KISS. Not just a peck from a parent. A kiss of lust. His lips were wet and soft; they felt good against hers. She sunk into his embrace, holding his penis softly in a fist but not stroking it, while their lips merged into one. Report_Story #5 
+ "Yeah, I think." Daddy was staring back at her hard, eye to eye, and he pushed his torso up with elbows behind himself. "And you can suck it anytime you want, trust me." He leaned up more, and as his face approached, Kat knew what was coming, and she wanted it. It was a thought she'd never, ever had before, so the moment came entirely fresh. Daddy reached a hand out, slipping it over her shoulders, holding her torso steady, as he planted his lips on her lips. Kat kissed her father for the billionth time of her life, but for the first time ever, it was a KISS. Not just a peck from a parent. A kiss of lust. His lips were wet and soft; they felt good against hers. She sunk into his embrace, holding his penis softly in a fist but not stroking it, while their lips merged into one.  
 
  
 
@@ -474,7 +474,7 @@
 
  "You won't get tired of fucking me for three days, will you?" Daddy giggled. 
 
- "Hah! No way!" Kat let go of his neck for a moment to brush some of her strawberry-blonde hair out of her eyes, then she returned to hanging from his strong neck by both hands. "Your cock is awesome, Daddy, I love fucking it!" Report_Story #6 
+ "Hah! No way!" Kat let go of his neck for a moment to brush some of her strawberry-blonde hair out of her eyes, then she returned to hanging from his strong neck by both hands. "Your cock is awesome, Daddy, I love fucking it!"  
 
  
 
@@ -612,7 +612,7 @@
 
  He nodded. "I like licking a shaved pussy!" 
 
- He winked, and she squirmed at the idea. None of her boyfriends had been all that good at licking her. The image of her father's handsome face buried between her thighs, his strong tongue deep in her pussy, seemed like a great way to pass an hour or so. "Well Daddy, in the morning I'll shave it all off - - if you promise!" Report_Story #7 
+ He winked, and she squirmed at the idea. None of her boyfriends had been all that good at licking her. The image of her father's handsome face buried between her thighs, his strong tongue deep in her pussy, seemed like a great way to pass an hour or so. "Well Daddy, in the morning I'll shave it all off - - if you promise!"  
 
  
 

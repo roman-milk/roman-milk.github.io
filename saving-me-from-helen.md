@@ -202,7 +202,7 @@
 
  "Honestly baby" she said, as she was climbing over the seat back, "That is no way for you to talk to your mother." 
 
- Dad was home six days and mom did her best to fit me in where she could while he was home. Her theory - her reason - for climbing into my bed was to see that I got a steady supply of pussy to replace what she thought I had been getting from Helen. I never told her that even the hit or miss sex I was getting from her while dad was home was more than I was getting from Helen. In fact, before my dad got home, I was getting more from mom in one night than I got from Helen in a week. Then dad was off on a nine day run and he was no sooner out of sight when mom grabbed me. Report_Story #2 
+ Dad was home six days and mom did her best to fit me in where she could while he was home. Her theory - her reason - for climbing into my bed was to see that I got a steady supply of pussy to replace what she thought I had been getting from Helen. I never told her that even the hit or miss sex I was getting from her while dad was home was more than I was getting from Helen. In fact, before my dad got home, I was getting more from mom in one night than I got from Helen in a week. Then dad was off on a nine day run and he was no sooner out of sight when mom grabbed me.  
 
  
 

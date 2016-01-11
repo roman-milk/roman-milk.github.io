@@ -208,7 +208,7 @@
 
  "Yes..." (gulp) "...Master." 
 
- I did as ordered, opening my legs so the lips of my womanhood parted. I began slipping the knobby pink device up and down my crease, letting the buzzing thing tease me into wetness. I raised my left hand, tickling myself with my fingertips as I brought them up my torso to my breasts to linger on my soft feminine flesh and swirl around my hardening areolas. I let the purring machine drop to the gates of my sex and began to push it inside me. I felt the vibrating latex knobs as they poked and prodded my wet and sensitive flesh before slipping into my body, prying me open, filling me with wicked pleasure. Further and further, the machine disappeared inside me. I began twisting it, pumping it, rocking it back and forth to hit my g-spot as I thumbed the dial to a faster, more urgent buzz. I let a spare finger find my clit. I gasped aloud at the tsunami of pleasure I was raising within me. Report_Story #2 
+ I did as ordered, opening my legs so the lips of my womanhood parted. I began slipping the knobby pink device up and down my crease, letting the buzzing thing tease me into wetness. I raised my left hand, tickling myself with my fingertips as I brought them up my torso to my breasts to linger on my soft feminine flesh and swirl around my hardening areolas. I let the purring machine drop to the gates of my sex and began to push it inside me. I felt the vibrating latex knobs as they poked and prodded my wet and sensitive flesh before slipping into my body, prying me open, filling me with wicked pleasure. Further and further, the machine disappeared inside me. I began twisting it, pumping it, rocking it back and forth to hit my g-spot as I thumbed the dial to a faster, more urgent buzz. I let a spare finger find my clit. I gasped aloud at the tsunami of pleasure I was raising within me.  
 
  
 
@@ -378,7 +378,7 @@
 
  4. The Arrival 
 
- It's hard to judge time and distance when you're hanging upside down over the sea while the downdraft of a helicopter is pummeling your skin and tearing at your clothes. If I had to guess the distance of the flight I would say it felt like seven hundred million miles. If I had to guess how long it took, I would say two lifetimes. Whatever the truth of the matter, by the time it was over I was a different person. I knew pure terror and I was willing to do whatever it took to avoid it in the future. I just wanted to survive and I was beginning to doubt that I would. Report_Story #3 
+ It's hard to judge time and distance when you're hanging upside down over the sea while the downdraft of a helicopter is pummeling your skin and tearing at your clothes. If I had to guess the distance of the flight I would say it felt like seven hundred million miles. If I had to guess how long it took, I would say two lifetimes. Whatever the truth of the matter, by the time it was over I was a different person. I knew pure terror and I was willing to do whatever it took to avoid it in the future. I just wanted to survive and I was beginning to doubt that I would.  
 
  
 
@@ -554,7 +554,7 @@
 
  The two slaves removed my gag and pulled me to my feet. As Mistress Black barked orders they bound me. My wrists were tied together in front of me, hooked to a cord hanging from the ceiling and hoisted up over my head. Leather cuffs were then attached to each of my ankles. The left was shackled to a ring bolt in the floor. The right was fastened to another strap hanging from the ceiling. This was raised until my leg was suspended above the level of my hips. It took a fearsome degree of concentration to keep for losing my balance. It was like yoga except that Mistress Black kept snapping me in the ass, breasts and vulva with a slim, yard long bamboo cane. It was painful. I clenched my tongue in my teeth to keep from crying out. Occasionally I tasted blood. 
 
- Trapped in that awkward position, I was bathed. The two girls soaped and rinsed every inch of my body with large sea-sponges and soapy, lavender scented water. Their touches on my quivering, straining muscles were pleasurable and mixed strangely with the awful cramps that were clawing up and down my legs. When Mistress Black snapped me in the back of my left knee with her cane, it buckled. I was left hanging in my bonds as she shouted at me, struck me and called me a clumsy pig. The other girls had to help me back onto my foot. Report_Story #4 
+ Trapped in that awkward position, I was bathed. The two girls soaped and rinsed every inch of my body with large sea-sponges and soapy, lavender scented water. Their touches on my quivering, straining muscles were pleasurable and mixed strangely with the awful cramps that were clawing up and down my legs. When Mistress Black snapped me in the back of my left knee with her cane, it buckled. I was left hanging in my bonds as she shouted at me, struck me and called me a clumsy pig. The other girls had to help me back onto my foot.  
 
  
 
@@ -712,7 +712,7 @@
 
  I hesitated, looking up at them with wide, reluctant eyes. My tongue still hurt: a lot. I didn't want to give it to them. 
 
- Paolo pulled a pair of fold-down pliers from his back pocket and unfurled it in front of my face. "OK, bitch. I don't mind doing it the hard way, if that's what you want," he said. Report_Story #5 
+ Paolo pulled a pair of fold-down pliers from his back pocket and unfurled it in front of my face. "OK, bitch. I don't mind doing it the hard way, if that's what you want," he said.  
 
  
 
@@ -860,7 +860,7 @@
 
  I looked down. Below me was a tangle of wickedly thorned bushes. I didn't recognize the plant but its mass of plum colored spikes that ran up the canes of its tangled tendrils foretold a painful landing and even more painful extraction if I decided to risk the drop. I looked up. The eaves were close enough to touch. They extended a yard from the outer wall of the building. To my right and left, similar windows showed as dark stripes in the structure's plain facade. I could see why they had not bothered to bar the windows. There would be no escape via this route. 
 
- Below, beyond the tangle of thorny vines, five shirtless men in khaki trousers were milling about while one of the lieutenants, a black one I hadn't seen before, spoke to them in Spanish. He spoke slowly and carefully. The men he was speaking to nodded their heads and lined up to each accept a handful of what looked like American currency. They were swarthy and scrawny: peasants. As they retreated to opposing corners of the grassy quadrangle the Black lieutenant stuffed a fat roll of money in a small pouch and left it sitting on the grass. He too withdrew to the edge of the lawn. They waited without speaking or moving while the clouds dropped lower and the air further congealed to the consistency of a steamy meringue. Report_Story #6 
+ Below, beyond the tangle of thorny vines, five shirtless men in khaki trousers were milling about while one of the lieutenants, a black one I hadn't seen before, spoke to them in Spanish. He spoke slowly and carefully. The men he was speaking to nodded their heads and lined up to each accept a handful of what looked like American currency. They were swarthy and scrawny: peasants. As they retreated to opposing corners of the grassy quadrangle the Black lieutenant stuffed a fat roll of money in a small pouch and left it sitting on the grass. He too withdrew to the edge of the lawn. They waited without speaking or moving while the clouds dropped lower and the air further congealed to the consistency of a steamy meringue.  
 
  
 
@@ -976,7 +976,7 @@
 
  Finally I was back in my cage. Aching inside and out and chilled to the bone from the cold water. I wasn't able to fall back to sleep again that night. The next day I got selected at auction but I fell asleep in my client's room and earned my first punishment: a full day in the stocks. 
 
- The stocks were uncomfortable but otherwise unremarkable. Each of the lieutenants showed up at various times of the day to fuck me. Some took me in the mouth or the ass or the pussy. Lieutenant Paolo did all three. That night in my cage I waited for Mistress Black to return and bring me back to the Machine shop but she didn't. Report_Story #7 
+ The stocks were uncomfortable but otherwise unremarkable. Each of the lieutenants showed up at various times of the day to fuck me. Some took me in the mouth or the ass or the pussy. Lieutenant Paolo did all three. That night in my cage I waited for Mistress Black to return and bring me back to the Machine shop but she didn't.  
 
  
 
@@ -1140,7 +1140,7 @@
 
  It was another beautiful room, but this one looked more lived in or, more accurately, worked in. It was an office. Stacks of papers were piled here and there around a large oaken desk. Two laptops hummed quietly on the credenza behind. Master had already stood and was heading towards the door but Murphy leveled the gun at him and he stopped short. 
 
- "What the hell do you think you're doing Nicky?" he said coldly. Report_Story #8 
+ "What the hell do you think you're doing Nicky?" he said coldly.  
 
  
 
@@ -1336,7 +1336,7 @@
 
  The second dose of adrenaline hit his heart. It stopped. 
 
- I stood and returned to his briefcase. I found the external hard drive Rene always carried. All the logistics information for the Marseilles slavery market was on there. Poor Rene, he wasn't a bad guy really, but this data was dynamite. Nearly every woman kidnapped and sold into sex servitude in Western Europe passed through his boss' network. When this info started leaking to Interpol there would be a lot of recriminations. There would be war in the underworld. Heads would roll and the industry would suffer for years. Report_Story #9 
+ I stood and returned to his briefcase. I found the external hard drive Rene always carried. All the logistics information for the Marseilles slavery market was on there. Poor Rene, he wasn't a bad guy really, but this data was dynamite. Nearly every woman kidnapped and sold into sex servitude in Western Europe passed through his boss' network. When this info started leaking to Interpol there would be a lot of recriminations. There would be war in the underworld. Heads would roll and the industry would suffer for years.  
 
  
 

@@ -166,7 +166,7 @@
 
  Chili and beer made up our lunch, while we watched the half-time highlights. As we all eased back from our chow bowls, Lori stood and removed the t-shirt she'd been wearing. During her effort, the jersey underneath pulled up almost to her armpits, exposing her bra to all of us for a few moments, before it settled back down onto her body. And again I was reminded what a nice body it was. Too bad she'd kept it hidden so successfully throughout the years. 
 
- After the kickoff, the Redskins looked like they were going to get back to their patented smash-mouth football running game which Joe Gibbs has always liked so much. Portis had a couple of nice runs, one of which was nullified by holding, but then they tried a couple passes that ended incomplete. Report_Story #2 
+ After the kickoff, the Redskins looked like they were going to get back to their patented smash-mouth football running game which Joe Gibbs has always liked so much. Portis had a couple of nice runs, one of which was nullified by holding, but then they tried a couple passes that ended incomplete.  
 
  
 
@@ -420,7 +420,7 @@
 
  Lori jumped up and danced. "That was it. You're toast. You can kiss your sweet shirt goodbye. I hope you have a big bottle of lotion handy. Wouldn't want you getting blisters tonight, all alone in your bed, dreaming about what might have been." 
 
- I was afraid she was right. Time was ticking away, and even though nothing was happening in the other game, with a little over two minutes to go, I was afraid I'd lost. The Ravens had a goose egg for the fourth, and Jamal ended with under 40 yards. Unfortunately, I needed four more points and the bad guys had the ball. Even if they scored a field goal I'd be short. A couple of Denver first downs would probably seal it. Report_Story #3 
+ I was afraid she was right. Time was ticking away, and even though nothing was happening in the other game, with a little over two minutes to go, I was afraid I'd lost. The Ravens had a goose egg for the fourth, and Jamal ended with under 40 yards. Unfortunately, I needed four more points and the bad guys had the ball. Even if they scored a field goal I'd be short. A couple of Denver first downs would probably seal it.  
 
  
 
@@ -762,7 +762,7 @@
 
  I worked down her abs, to the little soft belly just under her cute little 'inny' of a belly-button. My hands were glued to her breasts, while I kissed and licked her, offsetting the ticklish actions with tweaks of her nipples. Poking my tongue into her belly button made her squirm and giggle, until I gave her nipples a sharp tug, making her gasp. 
 
- My lips traveled down her soft skin, exploring from side to side, massaging the hollows of her hips. I spent a few moments playing with her short curly browns, a small triangle of teasing possibility, just above her small slit. I let my tongue brush over her clit for just a moment, unable to resist, before continuing my journey. Report_Story #4 
+ My lips traveled down her soft skin, exploring from side to side, massaging the hollows of her hips. I spent a few moments playing with her short curly browns, a small triangle of teasing possibility, just above her small slit. I let my tongue brush over her clit for just a moment, unable to resist, before continuing my journey.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  I groaned. "In bed?" 
 
- "No. C'mon, lazy, our time is ticking away. You're not bored with me yet are you." Report_Story #5 
+ "No. C'mon, lazy, our time is ticking away. You're not bored with me yet are you."  
 
  
 

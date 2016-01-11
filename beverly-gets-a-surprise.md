@@ -236,7 +236,7 @@
 
  "Separate? For God's sake Rob, it was only a dinner!" 
 
- "So you say, but I don't believe I and you are wasting my time and yours by continuing to say it. Now if you will excuse me I brought some contracts home that I have to review" and I walked away from her and into the den. Report_Story #2 
+ "So you say, but I don't believe I and you are wasting my time and yours by continuing to say it. Now if you will excuse me I brought some contracts home that I have to review" and I walked away from her and into the den.  
 
  
 

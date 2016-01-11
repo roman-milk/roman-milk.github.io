@@ -328,7 +328,7 @@
 
  "You as well, Mr. Jones," the man replied. 
 
- The next eternity, probably only fifteen minutes, was a conversation about another building project hours away. Such information would have been great evidence for my cause if my cause hadn't been completely derailed already. Not having sucked cock in years, my jaw was already getting stiff and I prayed this would end soon. I began to wonder if I got him off, would I be able to go? Report_Story #2 
+ The next eternity, probably only fifteen minutes, was a conversation about another building project hours away. Such information would have been great evidence for my cause if my cause hadn't been completely derailed already. Not having sucked cock in years, my jaw was already getting stiff and I prayed this would end soon. I began to wonder if I got him off, would I be able to go?  
 
  
 

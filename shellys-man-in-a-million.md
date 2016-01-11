@@ -176,7 +176,7 @@
 
  "I'm very particular about who I'm willing to entrust my most precious possession to. I know you have your own stable, but I don't know them very well and there are even one or two I don't like. I've known these guys most of my life and I trust every one of them implicitly. Brad has agreed to be my best man and the other guys will be ushers. You can set up any schedule you like with them and they have all promised me that they will do their very best for you. I just need two things from you. One, they want you to be the entertainment at my bachelor party, and two, in order for there to be a bachelor party I need you to agree to be my wife." 
 
- I went down on one knee and said, "Shelly Byrns, will you do me the honor of becoming my wife?" Report_Story #2 
+ I went down on one knee and said, "Shelly Byrns, will you do me the honor of becoming my wife?"  
 
  
 

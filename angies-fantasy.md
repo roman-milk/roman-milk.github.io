@@ -158,7 +158,7 @@
 
  And then suddenly, virtually over night, Angie turned moody on me. Tuesday night she fucked me like a woman possessed, but on Wednesday she pushed me away. Thursday we made love, but it wasn't the frenzied coupling of the previous three months. We went back to having sex twice a week, but only once a night instead of the three or four we had been doing and she wouldn't let me eat her pussy anymore. She became quiet around me and once in a while I would catch her looking at me and as soon as our eyes would meet she would avert her gaze. This went on for a couple of weeks and I don't know how much longer it might have gone on had I not come home from work an hour early one day to find her lying on our bed and crying. I sat down on the bed next to her and asked her what was wrong as I reached out and touched her face. She gave a loud sob and turned away from me. 
 
- "I don't want to talk about it." Report_Story #2 
+ "I don't want to talk about it."  
 
  
 

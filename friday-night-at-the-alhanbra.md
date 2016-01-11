@@ -230,7 +230,7 @@
 
  "Peaceful. Apparently Vykki hasn't heard from your husband. Either that or she is one hell of an actress, but when I stop to think about it I guess she is. She has had me convinced for years that she was a faithful and loving wife. Oh well, live and learn. Did Sam tell you when he would have your papers ready?" 
 
- "He said he would file with the court first thing in the morning and have Jim served whenever I wanted. I don't know what your plans are, but I told him to serve Jim at work sometime in the afternoon." Report_Story #2 
+ "He said he would file with the court first thing in the morning and have Jim served whenever I wanted. I don't know what your plans are, but I told him to serve Jim at work sometime in the afternoon."  
 
  
 
@@ -458,7 +458,7 @@
 
  ++++++++++++++++++++++++++++ 
 
- Over the next two months I did take Norma out to dinner once a week. It hurt like hell not being able to take things where I really wanted to go, but I forced myself to keep my distance. Over the same period I was getting three or four calls a week from Vykki begging me to talk to her and pleading with me to come home. I just hung up on her without saying a word. Report_Story #3 
+ Over the next two months I did take Norma out to dinner once a week. It hurt like hell not being able to take things where I really wanted to go, but I forced myself to keep my distance. Over the same period I was getting three or four calls a week from Vykki begging me to talk to her and pleading with me to come home. I just hung up on her without saying a word.  
 
  
 

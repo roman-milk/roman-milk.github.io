@@ -230,7 +230,7 @@
 
   "Thanks, Miss," Brian brightly beamed. It took him a moment to realise she was mistaking their attention to her body for concentration on work. She was right in a way. William and Julian had them working hard at lunchtimes, and even over the weekend. Still, if it kept the sex bomb happy, why not.  
 
-  She picked up the note from William's desk and read it on her tour of desks. Report_Story #2  
+  She picked up the note from William's desk and read it on her tour of desks.   
 
  
 
@@ -430,7 +430,7 @@
 
   "Thank you everyone for the interest you showed this evening. Tomorrow is Friday and another test will be set. Make sure your notes are up to date, and that you revise well," Miss Grant firmly said.  
 
-  She got dressed and a left school feeling happy. The nagging doubts had left her, and she felt all was well in the world. She giggled, and pressed a hand over a breast. They felt so sensitive. She was going to have to do something this evening. A naughty thought crossed her mind about a bath, and an intimate toy. It had been some time since resorting to a vibrator. She would have to stop on the way home for batteries. Report_Story #1 
+  She got dressed and a left school feeling happy. The nagging doubts had left her, and she felt all was well in the world. She giggled, and pressed a hand over a breast. They felt so sensitive. She was going to have to do something this evening. A naughty thought crossed her mind about a bath, and an intimate toy. It had been some time since resorting to a vibrator. She would have to stop on the way home for batteries.  
 
  
 
@@ -660,7 +660,7 @@
 
  "Thanks, Miss," Brian brightly beamed. It took him a moment to realise she was mistaking their attention to her body for concentration on work. She was right in a way. William and Julian had them working hard at lunchtimes, and even over the weekend. Still, if it kept the sex bomb happy, why not. 
 
- She picked up the note from William's desk and read it on her tour of desks. Report_Story #2 
+ She picked up the note from William's desk and read it on her tour of desks.  
 
  
 
@@ -856,7 +856,7 @@
 
  "Thank you everyone for the interest you showed this evening. Tomorrow is Friday and another test will be set. Make sure your notes are up to date, and that you revise well," Miss Grant firmly said. 
 
- She got dressed and a left school feeling happy. The nagging doubts had left her, and she felt all was well in the world. She giggled, and pressed a hand over a breast. They felt so sensitive. She was going to have to do something this evening. A naughty thought crossed her mind about a bath, and an intimate toy. It had been some time since resorting to a vibrator. She would have to stop on the way home for batteries. Report_Story #1  
+ She got dressed and a left school feeling happy. The nagging doubts had left her, and she felt all was well in the world. She giggled, and pressed a hand over a breast. They felt so sensitive. She was going to have to do something this evening. A naughty thought crossed her mind about a bath, and an intimate toy. It had been some time since resorting to a vibrator. She would have to stop on the way home for batteries.   
 
  
 
@@ -1050,7 +1050,7 @@
 
   Both hands were fondling her. One was underneath, playing with her pussy. The other was stroking her bottom, pushing between the cheeks, teasing her asshole. It was impossible to resist touching his teacher. Fingers wandered around her lips, and over her thighs. Up to her lips again, to part her red sea. Her lips were wet and glistening. This was no biology lesson his teacher was giving, yet even without instruction it was easy to see she was aroused.  
 
-  May had to escape, yet the fingers seemed to drain every ounce of energy from her body. She couldn't move. Her legs were trembling. It had been so long since having sex, and even longer since receiving such intense foreplay, that it made her helpless to resist. Report_Story #2  
+  May had to escape, yet the fingers seemed to drain every ounce of energy from her body. She couldn't move. Her legs were trembling. It had been so long since having sex, and even longer since receiving such intense foreplay, that it made her helpless to resist.   
 
  
 
@@ -1138,7 +1138,7 @@
 
   "I'll come round tomorrow, to make sure you're alright," he said.  
 
-  "Thank you William. I just know you'll help me do the right thing," she gushed. Report_Story #1 
+  "Thank you William. I just know you'll help me do the right thing," she gushed.  
 
  
 
@@ -1330,7 +1330,7 @@
 
  Both hands were fondling her. One was underneath, playing with her pussy. The other was stroking her bottom, pushing between the cheeks, teasing her asshole. It was impossible to resist touching his teacher. Fingers wandered around her lips, and over her thighs. Up to her lips again, to part her red sea. Her lips were wet and glistening. This was no biology lesson his teacher was giving, yet even without instruction it was easy to see she was aroused. 
 
- May had to escape, yet the fingers seemed to drain every ounce of energy from her body. She couldn't move. Her legs were trembling. It had been so long since having sex, and even longer since receiving such intense foreplay, that it made her helpless to resist. Report_Story #2 
+ May had to escape, yet the fingers seemed to drain every ounce of energy from her body. She couldn't move. Her legs were trembling. It had been so long since having sex, and even longer since receiving such intense foreplay, that it made her helpless to resist.  
 
  
 
@@ -1416,7 +1416,7 @@
 
  "I'll come round tomorrow, to make sure you're alright," he said. 
 
- "Thank you William. I just know you'll help me do the right thing," she gushed. Report_Story #1  
+ "Thank you William. I just know you'll help me do the right thing," she gushed.   
 
  
 
@@ -1658,7 +1658,7 @@
 
   "Thank you, William. I wanted so much to please you after helping me decide what to wear," she simpered.  
 
-  He kissed and licked an ear. Following her neck to her face with caresses, he pulled her lips with his teeth. His hands tightly held her bare bottom, while they smooched. Her kisses became more frantic. He felt a wet pussy rubbing hard against his leg. It took awhile for him to guess what she was doing. Report_Story #2  
+  He kissed and licked an ear. Following her neck to her face with caresses, he pulled her lips with his teeth. His hands tightly held her bare bottom, while they smooched. Her kisses became more frantic. He felt a wet pussy rubbing hard against his leg. It took awhile for him to guess what she was doing.   
 
  
 
@@ -1762,7 +1762,7 @@
 
   She sounded so sincere and pathetically reliant upon him, he really did want to keep her safe. He again thought of keeping her for himself. The problem was, what to do about the others. If they were cut out of the game, they might inform on him. He would have to be careful.  
 
-  He wanted to go all the way with her, but that couldn't happen, just yet. If what happened in class was discovered, they might get away with just being expelled. If what he did just now was revealed, it could be considered assault, or worse. He looked into her eyes, studying her. She was so beautiful and vulnerable. He would have find a way to protect her, and keep her for himself. Report_Story #1 
+  He wanted to go all the way with her, but that couldn't happen, just yet. If what happened in class was discovered, they might get away with just being expelled. If what he did just now was revealed, it could be considered assault, or worse. He looked into her eyes, studying her. She was so beautiful and vulnerable. He would have find a way to protect her, and keep her for himself.  
 
  
 
@@ -2002,7 +2002,7 @@
 
  "Thank you, William. I wanted so much to please you after helping me decide what to wear," she simpered. 
 
- He kissed and licked an ear. Following her neck to her face with caresses, he pulled her lips with his teeth. His hands tightly held her bare bottom, while they smooched. Her kisses became more frantic. He felt a wet pussy rubbing hard against his leg. It took awhile for him to guess what she was doing. Report_Story #2 
+ He kissed and licked an ear. Following her neck to her face with caresses, he pulled her lips with his teeth. His hands tightly held her bare bottom, while they smooched. Her kisses became more frantic. He felt a wet pussy rubbing hard against his leg. It took awhile for him to guess what she was doing.  
 
  
 
@@ -2104,7 +2104,7 @@
 
  She sounded so sincere and pathetically reliant upon him, he really did want to keep her safe. He again thought of keeping her for himself. The problem was, what to do about the others. If they were cut out of the game, they might inform on him. He would have to be careful. 
 
- He wanted to go all the way with her, but that couldn't happen, just yet. If what happened in class was discovered, they might get away with just being expelled. If what he did just now was revealed, it could be considered assault, or worse. He looked into her eyes, studying her. She was so beautiful and vulnerable. He would have find a way to protect her, and keep her for himself. Report_Story #1  
+ He wanted to go all the way with her, but that couldn't happen, just yet. If what happened in class was discovered, they might get away with just being expelled. If what he did just now was revealed, it could be considered assault, or worse. He looked into her eyes, studying her. She was so beautiful and vulnerable. He would have find a way to protect her, and keep her for himself.   
 
  
 
@@ -2344,7 +2344,7 @@
 
   "Calm down, May. I'm glad you invited her. She needs my help. You need to listen carefully to what you have to do," he firmly told her.  
 
-  He spent the next half hour instructing his teacher, until satisfied she would carry out the commands as planned. He gave it a lot of thought during the day, and it seemed foolproof. There was no telling how a person might react, though he knew the subject well enough to guess she would be a suitable subject. Report_Story #2  
+  He spent the next half hour instructing his teacher, until satisfied she would carry out the commands as planned. He gave it a lot of thought during the day, and it seemed foolproof. There was no telling how a person might react, though he knew the subject well enough to guess she would be a suitable subject.   
 
  
 
@@ -2520,7 +2520,7 @@
 
   One arm was caught under his sleeping weight, and she wanted to be trapped by him, kept there, forever by his side. With her free hand she stroked his face, exploring it with a palm and tingling fingertips, still sensitive from the afterglow of a deep orgasm.  
 
-  "I'm yours now. I have you to look after me, and tell me what to do," she murmured, and fell asleep. Report_Story #1 
+  "I'm yours now. I have you to look after me, and tell me what to do," she murmured, and fell asleep.  
 
  
 
@@ -2756,7 +2756,7 @@
 
  "Calm down, May. I'm glad you invited her. She needs my help. You need to listen carefully to what you have to do," he firmly told her. 
 
- He spent the next half hour instructing his teacher, until satisfied she would carry out the commands as planned. He gave it a lot of thought during the day, and it seemed foolproof. There was no telling how a person might react, though he knew the subject well enough to guess she would be a suitable subject. Report_Story #2 
+ He spent the next half hour instructing his teacher, until satisfied she would carry out the commands as planned. He gave it a lot of thought during the day, and it seemed foolproof. There was no telling how a person might react, though he knew the subject well enough to guess she would be a suitable subject.  
 
  
 
@@ -2928,7 +2928,7 @@
 
  One arm was caught under his sleeping weight, and she wanted to be trapped by him, kept there, forever by his side. With her free hand she stroked his face, exploring it with a palm and tingling fingertips, still sensitive from the afterglow of a deep orgasm. 
 
- "I'm yours now. I have you to look after me, and tell me what to do," she murmured, and fell asleep. Report_Story #1  
+ "I'm yours now. I have you to look after me, and tell me what to do," she murmured, and fell asleep.   
 
  
 
@@ -3204,7 +3204,7 @@
 
   A finger automatically went behind her, grazing her bare bottom, on its way to pull the panties from between her cheeks. Her hand was whipped back and she leaned heavily on William's desk. She shivered in fright, and closed her eyes tight. She wondered what she was doing in class, blatantly adjusting her panties.  
 
-  'It's alright Vicky, try to relax. Remember what I told you last night. Take a deep breath. Just follow Miss Grant's lead, follow your instructions, and you will be alright. Miss Grant will show you the way, and I'm here to help you, just remember that, and you'll do just fine,' William reassured her. Report_Story #2  
+  'It's alright Vicky, try to relax. Remember what I told you last night. Take a deep breath. Just follow Miss Grant's lead, follow your instructions, and you will be alright. Miss Grant will show you the way, and I'm here to help you, just remember that, and you'll do just fine,' William reassured her.   
 
  
 
@@ -3400,7 +3400,7 @@
 
   'You can both fix something to eat,' he told them.  
 
-  Watching them scuttle out, hurrying to the kitchen to please him, was fascinating. Vicky's breasts were very firm, and bounced delightfully. He wondered if she was ready to let him fondle them. Report_Story #1 
+  Watching them scuttle out, hurrying to the kitchen to please him, was fascinating. Vicky's breasts were very firm, and bounced delightfully. He wondered if she was ready to let him fondle them.  
 
  
 
@@ -3674,7 +3674,7 @@
 
  A finger automatically went behind her, grazing her bare bottom, on its way to pull the panties from between her cheeks. Her hand was whipped back and she leaned heavily on William's desk. She shivered in fright, and closed her eyes tight. She wondered what she was doing in class, blatantly adjusting her panties. 
 
- 'It's alright Vicky, try to relax. Remember what I told you last night. Take a deep breath. Just follow Miss Grant's lead, follow your instructions, and you will be alright. Miss Grant will show you the way, and I'm here to help you, just remember that, and you'll do just fine,' William reassured her. Report_Story #2 
+ 'It's alright Vicky, try to relax. Remember what I told you last night. Take a deep breath. Just follow Miss Grant's lead, follow your instructions, and you will be alright. Miss Grant will show you the way, and I'm here to help you, just remember that, and you'll do just fine,' William reassured her.  
 
  
 
@@ -3868,7 +3868,7 @@
 
  'You can both fix something to eat,' he told them. 
 
- Watching them scuttle out, hurrying to the kitchen to please him, was fascinating. Vicky's breasts were very firm, and bounced delightfully. He wondered if she was ready to let him fondle them. Report_Story #1  
+ Watching them scuttle out, hurrying to the kitchen to please him, was fascinating. Vicky's breasts were very firm, and bounced delightfully. He wondered if she was ready to let him fondle them.   
 
  
 
@@ -4154,7 +4154,7 @@
 
   'Well, it could do. You were only hypnotised for a moment, and were aware of everything. Maybe you felt so relaxed it helped you feel calm and happy. It has that effect sometimes. A lot of times, my uncle said,' William lied.  
 
-  'So, that might be why I feel you can help me overcome my worries?' she asked. Report_Story #2  
+  'So, that might be why I feel you can help me overcome my worries?' she asked.   
 
  
 
@@ -4396,7 +4396,7 @@
 
   'Don't stop, sir,' May absently murmured.  
 
-  Only when Vicky announced dinner was ready did they part. Even then William was close behind her, pushing her bottom, encouraging her to hurry. Of course she dallied, so he would carry on pressing her bottom. Report_Story #1 
+  Only when Vicky announced dinner was ready did they part. Even then William was close behind her, pushing her bottom, encouraging her to hurry. Of course she dallied, so he would carry on pressing her bottom.  
 
  
 
@@ -4680,7 +4680,7 @@
 
  'Well, it could do. You were only hypnotised for a moment, and were aware of everything. Maybe you felt so relaxed it helped you feel calm and happy. It has that effect sometimes. A lot of times, my uncle said,' William lied. 
 
- 'So, that might be why I feel you can help me overcome my worries?' she asked. Report_Story #2 
+ 'So, that might be why I feel you can help me overcome my worries?' she asked.  
 
  
 
@@ -4920,7 +4920,7 @@
 
  'Don't stop, sir,' May absently murmured. 
 
- Only when Vicky announced dinner was ready did they part. Even then William was close behind her, pushing her bottom, encouraging her to hurry. Of course she dallied, so he would carry on pressing her bottom. Report_Story #1  
+ Only when Vicky announced dinner was ready did they part. Even then William was close behind her, pushing her bottom, encouraging her to hurry. Of course she dallied, so he would carry on pressing her bottom.   
 
  
 
@@ -5154,7 +5154,7 @@
 
   'It's alright, Vicky, I'll look after you. You can tell me everything, take your time,' William reassured her.  
 
-  'I was in a store looking at dresses, and found a nice floral print. It wasn't short so I could wear it straight away. I wasn't wearing panties as usual. I'd left off wearing a bra by then. Anyway, I wore it to go browsing around the mall. I really didn't know how transparent it was in the sunshine, honestly, I didn't,' she miserably said. Report_Story #2  
+  'I was in a store looking at dresses, and found a nice floral print. It wasn't short so I could wear it straight away. I wasn't wearing panties as usual. I'd left off wearing a bra by then. Anyway, I wore it to go browsing around the mall. I really didn't know how transparent it was in the sunshine, honestly, I didn't,' she miserably said.   
 
  
 
@@ -5362,7 +5362,7 @@
 
   May helped Vicky manoeuvre onto his penis, with a hand guiding it in. Vicky sank down its length, with her weight pushing it right up inside her. William and Vicky sighed with satisfaction. Before she could lift herself up its length, May straightened her legs either side of him, with her feet beside his head. Vicky let out a heartfelt whimper.  
 
-  'Oh! God! It's so deep, I can't move,' Vicky moaned. Report_Story #3  
+  'Oh! God! It's so deep, I can't move,' Vicky moaned.   
 
  
 
@@ -5434,7 +5434,7 @@
 
   Before they fell off to sleep, he was going to get to the bottom of this. Why it was they had so easily accepted his commands, and weren't fighting off his control. They had both just fucked him, not the other way around. There must be a reason for this, and he wanted to know what it was.  
 
-  They murmured their apologies and promised to behave themselves. Before they could tell him anything useful, he fell asleep. The women smiled at each other, and gently kissed his lips, careful not to wake him. They snuggled close, now willing to share him, knowing they were going to get what they wanted. After only a short while they too fell asleep. Report_Story #1 
+  They murmured their apologies and promised to behave themselves. Before they could tell him anything useful, he fell asleep. The women smiled at each other, and gently kissed his lips, careful not to wake him. They snuggled close, now willing to share him, knowing they were going to get what they wanted. After only a short while they too fell asleep.  
 
  
 
@@ -5666,7 +5666,7 @@
 
  'It's alright, Vicky, I'll look after you. You can tell me everything, take your time,' William reassured her. 
 
- 'I was in a store looking at dresses, and found a nice floral print. It wasn't short so I could wear it straight away. I wasn't wearing panties as usual. I'd left off wearing a bra by then. Anyway, I wore it to go browsing around the mall. I really didn't know how transparent it was in the sunshine, honestly, I didn't,' she miserably said. Report_Story #2 
+ 'I was in a store looking at dresses, and found a nice floral print. It wasn't short so I could wear it straight away. I wasn't wearing panties as usual. I'd left off wearing a bra by then. Anyway, I wore it to go browsing around the mall. I really didn't know how transparent it was in the sunshine, honestly, I didn't,' she miserably said.  
 
  
 
@@ -5872,7 +5872,7 @@
 
  May helped Vicky manoeuvre onto his penis, with a hand guiding it in. Vicky sank down its length, with her weight pushing it right up inside her. William and Vicky sighed with satisfaction. Before she could lift herself up its length, May straightened her legs either side of him, with her feet beside his head. Vicky let out a heartfelt whimper. 
 
- 'Oh! God! It's so deep, I can't move,' Vicky moaned. Report_Story #3 
+ 'Oh! God! It's so deep, I can't move,' Vicky moaned.  
 
  
 
@@ -5942,7 +5942,7 @@
 
  Before they fell off to sleep, he was going to get to the bottom of this. Why it was they had so easily accepted his commands, and weren't fighting off his control. They had both just fucked him, not the other way around. There must be a reason for this, and he wanted to know what it was. 
 
- They murmured their apologies and promised to behave themselves. Before they could tell him anything useful, he fell asleep. The women smiled at each other, and gently kissed his lips, careful not to wake him. They snuggled close, now willing to share him, knowing they were going to get what they wanted. After only a short while they too fell asleep. Report_Story #1  
+ They murmured their apologies and promised to behave themselves. Before they could tell him anything useful, he fell asleep. The women smiled at each other, and gently kissed his lips, careful not to wake him. They snuggled close, now willing to share him, knowing they were going to get what they wanted. After only a short while they too fell asleep.   
 
  
 
@@ -6226,7 +6226,7 @@
 
   'Can't you tell? Dam it! Your penis is nudging me. William, please be careful.' she hissed. 'Don't wake her up, I don't want her knowing.'  
 
-  'Don't panic. I'll help push you up the bed,' he calmly spoke. Report_Story #2  
+  'Don't panic. I'll help push you up the bed,' he calmly spoke.   
 
  
 
@@ -6546,7 +6546,7 @@
 
   Clothes and ornaments were scattered everywhere, with boxes torn open haphazardly. There wasn't the slightest organisation to the job.  
 
-  'I'll put these unopened boxes to one side, while you two put the clothes on the bed. Put the kitchen stuff in these empty boxes,' he told them. Report_Story #3  
+  'I'll put these unopened boxes to one side, while you two put the clothes on the bed. Put the kitchen stuff in these empty boxes,' he told them.   
 
  
 
@@ -6834,7 +6834,7 @@
 
   'Haven't you got any with you?' he asked, sounding more harsh than he should have done.  
 
-  'No. I'm so naughty, what must you think of me. You mustn't tell anyone, please. You're the only one who knows. It's a bit of a problem I've had for awhile. You've helped me in other ways, perhaps this too?' she said, and gave him a guilty look. Report_Story #4  
+  'No. I'm so naughty, what must you think of me. You mustn't tell anyone, please. You're the only one who knows. It's a bit of a problem I've had for awhile. You've helped me in other ways, perhaps this too?' she said, and gave him a guilty look.   
 
  
 
@@ -6996,7 +6996,7 @@
 
   He was way over his head, with two teachers behaving badly. Was he taking advantage of them, or were they taking advantage of him? He started the car up and smiled at the idea of being worn out by two very sexy, experienced women. Of course he was doing his utmost to keep them happy. He had come to realise that looking after them was important too.  
 
-  'So this is what responsibility feels like. It's heavy,' he quietly said to himself. Report_Story #1 
+  'So this is what responsibility feels like. It's heavy,' he quietly said to himself.  
 
  
 
@@ -7278,7 +7278,7 @@
 
  'Can't you tell? Dam it! Your penis is nudging me. William, please be careful.' she hissed. 'Don't wake her up, I don't want her knowing.' 
 
- 'Don't panic. I'll help push you up the bed,' he calmly spoke. Report_Story #2 
+ 'Don't panic. I'll help push you up the bed,' he calmly spoke.  
 
  
 
@@ -7596,7 +7596,7 @@
 
  Clothes and ornaments were scattered everywhere, with boxes torn open haphazardly. There wasn't the slightest organisation to the job. 
 
- 'I'll put these unopened boxes to one side, while you two put the clothes on the bed. Put the kitchen stuff in these empty boxes,' he told them. Report_Story #3 
+ 'I'll put these unopened boxes to one side, while you two put the clothes on the bed. Put the kitchen stuff in these empty boxes,' he told them.  
 
  
 
@@ -7880,7 +7880,7 @@
 
  'Haven't you got any with you?' he asked, sounding more harsh than he should have done. 
 
- 'No. I'm so naughty, what must you think of me. You mustn't tell anyone, please. You're the only one who knows. It's a bit of a problem I've had for awhile. You've helped me in other ways, perhaps this too?' she said, and gave him a guilty look. Report_Story #4 
+ 'No. I'm so naughty, what must you think of me. You mustn't tell anyone, please. You're the only one who knows. It's a bit of a problem I've had for awhile. You've helped me in other ways, perhaps this too?' she said, and gave him a guilty look.  
 
  
 
@@ -8040,7 +8040,7 @@
 
  He was way over his head, with two teachers behaving badly. Was he taking advantage of them, or were they taking advantage of him? He started the car up and smiled at the idea of being worn out by two very sexy, experienced women. Of course he was doing his utmost to keep them happy. He had come to realise that looking after them was important too. 
 
- 'So this is what responsibility feels like. It's heavy,' he quietly said to himself. Report_Story #1  
+ 'So this is what responsibility feels like. It's heavy,' he quietly said to himself.   
 
  
 
@@ -8344,7 +8344,7 @@
 
   She took a hold if his head and forcibly kissed him. She invaded his mouth, exploring it, taking it. Not gently this time, but with pent up passion. Still kissing him, she unzipped his jeans, and pulled out his cock. She pushed him back on the bed, flat on his back. With knees and hands pinning him down, she manoeuvred on top of him.  
 
-  Shoving down hard onto his cock, feeling it penetrate, she used her full weight to impale herself. A groan of satisfaction rumbled from her throat. After such a long abstinence, the feeling of being filled was overwhelming. For a moment she remembered William making love to her while hypnotised, and the feeling of satisfaction that brought, then it was gone. Report_Story #2  
+  Shoving down hard onto his cock, feeling it penetrate, she used her full weight to impale herself. A groan of satisfaction rumbled from her throat. After such a long abstinence, the feeling of being filled was overwhelming. For a moment she remembered William making love to her while hypnotised, and the feeling of satisfaction that brought, then it was gone.   
 
  
 
@@ -8694,7 +8694,7 @@
 
   For a moment he thought that was the end of it. But, no. Well, maybe the three of them could moderate what was happening. Damn! He laughed, at the thought of pulling a butt plug from his teachers ass, and in a classroom too. It wasn't funny really, because she must have been very frightened. He laughed again. What if the guys had seen Miss Grant with a butt plug up her ass!  
 
-  At lunch time he had a request to see Miss Bourbon. If it had been Miss Grant, it would have been a summons. He closed the door behind him and walked to her desk where she sat, smiling at him. A different welcome from Miss Grant's, though still worrying. What had she got up to he wondered. Report_Story #3  
+  At lunch time he had a request to see Miss Bourbon. If it had been Miss Grant, it would have been a summons. He closed the door behind him and walked to her desk where she sat, smiling at him. A different welcome from Miss Grant's, though still worrying. What had she got up to he wondered.   
 
  
 
@@ -8888,7 +8888,7 @@
 
   Maybe he shouldn't have become so involved. Otherwise, it would have been easy to share them with his friends. It was too late now. As time went by, they expected more, and he resented it all the more. He couldn't bear them mauling his. . . His what? What were they to him. Were they close friends. Was he in love with them. Could he be in love with two women at the same time? May was right, he was too young to be responsible for a mature woman.  
 
-  He would have to put things right, and that meant breaking the hypnotic influence. Did that mean simply not invoking it? He hadn't paid attention to the ending routine with his uncle. He looked at his watch. It was time to call upon his two good friends. Report_Story #1 
+  He would have to put things right, and that meant breaking the hypnotic influence. Did that mean simply not invoking it? He hadn't paid attention to the ending routine with his uncle. He looked at his watch. It was time to call upon his two good friends.  
 
  
 
@@ -9190,7 +9190,7 @@
 
  She took a hold if his head and forcibly kissed him. She invaded his mouth, exploring it, taking it. Not gently this time, but with pent up passion. Still kissing him, she unzipped his jeans, and pulled out his cock. She pushed him back on the bed, flat on his back. With knees and hands pinning him down, she manoeuvred on top of him. 
 
- Shoving down hard onto his cock, feeling it penetrate, she used her full weight to impale herself. A groan of satisfaction rumbled from her throat. After such a long abstinence, the feeling of being filled was overwhelming. For a moment she remembered William making love to her while hypnotised, and the feeling of satisfaction that brought, then it was gone. Report_Story #2 
+ Shoving down hard onto his cock, feeling it penetrate, she used her full weight to impale herself. A groan of satisfaction rumbled from her throat. After such a long abstinence, the feeling of being filled was overwhelming. For a moment she remembered William making love to her while hypnotised, and the feeling of satisfaction that brought, then it was gone.  
 
  
 
@@ -9536,7 +9536,7 @@
 
  For a moment he thought that was the end of it. But, no. Well, maybe the three of them could moderate what was happening. Damn! He laughed, at the thought of pulling a butt plug from his teachers ass, and in a classroom too. It wasn't funny really, because she must have been very frightened. He laughed again. What if the guys had seen Miss Grant with a butt plug up her ass! 
 
- At lunch time he had a request to see Miss Bourbon. If it had been Miss Grant, it would have been a summons. He closed the door behind him and walked to her desk where she sat, smiling at him. A different welcome from Miss Grant's, though still worrying. What had she got up to he wondered. Report_Story #3 
+ At lunch time he had a request to see Miss Bourbon. If it had been Miss Grant, it would have been a summons. He closed the door behind him and walked to her desk where she sat, smiling at him. A different welcome from Miss Grant's, though still worrying. What had she got up to he wondered.  
 
  
 
@@ -9728,7 +9728,7 @@
 
  Maybe he shouldn't have become so involved. Otherwise, it would have been easy to share them with his friends. It was too late now. As time went by, they expected more, and he resented it all the more. He couldn't bear them mauling his. . . His what? What were they to him. Were they close friends. Was he in love with them. Could he be in love with two women at the same time? May was right, he was too young to be responsible for a mature woman. 
 
- He would have to put things right, and that meant breaking the hypnotic influence. Did that mean simply not invoking it? He hadn't paid attention to the ending routine with his uncle. He looked at his watch. It was time to call upon his two good friends. Report_Story #1  
+ He would have to put things right, and that meant breaking the hypnotic influence. Did that mean simply not invoking it? He hadn't paid attention to the ending routine with his uncle. He looked at his watch. It was time to call upon his two good friends.   
 
  
 
@@ -9982,7 +9982,7 @@
 
   He gently pushed, entering her smoothly. Her vagina was tight, gripping him strongly. It felt as though it were flexing, rippling over his cock as he entered deeper still. He pushed harder, stretching her sex, needing to reach in all the way.  
 
-  Slowly he pulled back, a long leisurely stroke. Under him she pulled back too, then thrust up, with a mighty heave of her hips. He got the message. He thrust in, deep and fast. Report_Story #2  
+  Slowly he pulled back, a long leisurely stroke. Under him she pulled back too, then thrust up, with a mighty heave of her hips. He got the message. He thrust in, deep and fast.   
 
  
 
@@ -10304,7 +10304,7 @@
 
   'I'll see you at first break. I'll decide then if you can remove it or not,' he told her.  
 
-  He thought for a moment she might reject the whole thing. She was contemplating refusing his order, but then relaxed and gave in. Report_Story #3  
+  He thought for a moment she might reject the whole thing. She was contemplating refusing his order, but then relaxed and gave in.   
 
  
 
@@ -10522,7 +10522,7 @@
 
   William had both his teachers while they weren't hypnotised. As long as they didn't go too far, he didn't feel he could tell his friends off while the teachers were hypnotised. He would have to let this annoying behaviour continue for awhile, as much as it hurt him. He sat writing a set of instruction to reinforce the evenings cavorting, so the teachers wouldn't remember it.  
 
-  Julian watched William writing, and guessed they were instructions for both teachers. When he looked over William's shoulder yesterday, he'd glanced disinterestedly at the notes. He recalled seeing something at the top of the page, and tried to remember it. They were dates of battles, from history. He delved into his bag for a history book. It took a while, but he came across one of them, then the other. Report_Story #4  
+  Julian watched William writing, and guessed they were instructions for both teachers. When he looked over William's shoulder yesterday, he'd glanced disinterestedly at the notes. He recalled seeing something at the top of the page, and tried to remember it. They were dates of battles, from history. He delved into his bag for a history book. It took a while, but he came across one of them, then the other.   
 
  
 
@@ -10588,7 +10588,7 @@
 
   On the drive to May's apartment, he wondered what he could do to get them free of the daily classroom romp. He hated what the guys were doing to his women. He had them to himself once he arrived, so he couldn't complain, much. Both his teachers were aware they had been hypnotised, and accepted it. They were willingly sleeping with him now, and both had a crush on him.  
 
-  The difficult situation over them being hypnotising at home had been resolved. The guys were happy, he was happy, and so were his teachers, so what could go wrong? Report_Story #1 
+  The difficult situation over them being hypnotising at home had been resolved. The guys were happy, he was happy, and so were his teachers, so what could go wrong?  
 
  
 
@@ -10840,7 +10840,7 @@
 
  He gently pushed, entering her smoothly. Her vagina was tight, gripping him strongly. It felt as though it were flexing, rippling over his cock as he entered deeper still. He pushed harder, stretching her sex, needing to reach in all the way. 
 
- Slowly he pulled back, a long leisurely stroke. Under him she pulled back too, then thrust up, with a mighty heave of her hips. He got the message. He thrust in, deep and fast. Report_Story #2 
+ Slowly he pulled back, a long leisurely stroke. Under him she pulled back too, then thrust up, with a mighty heave of her hips. He got the message. He thrust in, deep and fast.  
 
  
 
@@ -11160,7 +11160,7 @@
 
  'I'll see you at first break. I'll decide then if you can remove it or not,' he told her. 
 
- He thought for a moment she might reject the whole thing. She was contemplating refusing his order, but then relaxed and gave in. Report_Story #3 
+ He thought for a moment she might reject the whole thing. She was contemplating refusing his order, but then relaxed and gave in.  
 
  
 
@@ -11376,7 +11376,7 @@
 
  William had both his teachers while they weren't hypnotised. As long as they didn't go too far, he didn't feel he could tell his friends off while the teachers were hypnotised. He would have to let this annoying behaviour continue for awhile, as much as it hurt him. He sat writing a set of instruction to reinforce the evenings cavorting, so the teachers wouldn't remember it. 
 
- Julian watched William writing, and guessed they were instructions for both teachers. When he looked over William's shoulder yesterday, he'd glanced disinterestedly at the notes. He recalled seeing something at the top of the page, and tried to remember it. They were dates of battles, from history. He delved into his bag for a history book. It took a while, but he came across one of them, then the other. Report_Story #4 
+ Julian watched William writing, and guessed they were instructions for both teachers. When he looked over William's shoulder yesterday, he'd glanced disinterestedly at the notes. He recalled seeing something at the top of the page, and tried to remember it. They were dates of battles, from history. He delved into his bag for a history book. It took a while, but he came across one of them, then the other.  
 
  
 
@@ -11440,7 +11440,7 @@
 
  On the drive to May's apartment, he wondered what he could do to get them free of the daily classroom romp. He hated what the guys were doing to his women. He had them to himself once he arrived, so he couldn't complain, much. Both his teachers were aware they had been hypnotised, and accepted it. They were willingly sleeping with him now, and both had a crush on him. 
 
- The difficult situation over them being hypnotising at home had been resolved. The guys were happy, he was happy, and so were his teachers, so what could go wrong? Report_Story #1  
+ The difficult situation over them being hypnotising at home had been resolved. The guys were happy, he was happy, and so were his teachers, so what could go wrong?   
 
  
 
@@ -11712,7 +11712,7 @@
 
   The two teachers were standing either side of the desk, well apart from each other, as usual. Though they hadn't removed the dresses, as they would have previously. It looked as though everyone would be disappointed, and he would have to take the hassle. He preferred that, to seeing them being mauled by his friends.  
 
-  They looked at each other, and Miss Bourbon nodded to Miss Grant. Miss Grant turned away from her colleague, looking nervous. How different this was from when Miss Bourbon joined this classroom. Vicky was now the confident one, in her history classroom, and this one. Report_Story #2  
+  They looked at each other, and Miss Bourbon nodded to Miss Grant. Miss Grant turned away from her colleague, looking nervous. How different this was from when Miss Bourbon joined this classroom. Vicky was now the confident one, in her history classroom, and this one.   
 
  
 
@@ -11904,7 +11904,7 @@
 
   'Yes, for sure. I was screwed up before you did things to me,' Vicky acknowledged.  
 
-  'Do things to you? You mean I hypnotised you and took advantage of you. Both of you. Wasn't that wrong?' he asked. Report_Story #3  
+  'Do things to you? You mean I hypnotised you and took advantage of you. Both of you. Wasn't that wrong?' he asked.   
 
  
 
@@ -11966,7 +11966,7 @@
 
   'Come here, slaves,' he chuckled.  
 
-  They hastily joined him on the sofa for a threesome hug. He meant what he said. He would be strict with them, and demand they obey his rules. Being treated like slaves wasn't exactly going to help them recover from the hypnosis. Though it would be a bit of fun for awhile. He laughed happily. He had to reminded himself these were his teachers, and how very lucky he was to have them as sex pets. Report_Story #1 
+  They hastily joined him on the sofa for a threesome hug. He meant what he said. He would be strict with them, and demand they obey his rules. Being treated like slaves wasn't exactly going to help them recover from the hypnosis. Though it would be a bit of fun for awhile. He laughed happily. He had to reminded himself these were his teachers, and how very lucky he was to have them as sex pets.  
 
  
 
@@ -12236,7 +12236,7 @@
 
  The two teachers were standing either side of the desk, well apart from each other, as usual. Though they hadn't removed the dresses, as they would have previously. It looked as though everyone would be disappointed, and he would have to take the hassle. He preferred that, to seeing them being mauled by his friends. 
 
- They looked at each other, and Miss Bourbon nodded to Miss Grant. Miss Grant turned away from her colleague, looking nervous. How different this was from when Miss Bourbon joined this classroom. Vicky was now the confident one, in her history classroom, and this one. Report_Story #2 
+ They looked at each other, and Miss Bourbon nodded to Miss Grant. Miss Grant turned away from her colleague, looking nervous. How different this was from when Miss Bourbon joined this classroom. Vicky was now the confident one, in her history classroom, and this one.  
 
  
 
@@ -12426,7 +12426,7 @@
 
  'Yes, for sure. I was screwed up before you did things to me,' Vicky acknowledged. 
 
- 'Do things to you? You mean I hypnotised you and took advantage of you. Both of you. Wasn't that wrong?' he asked. Report_Story #3 
+ 'Do things to you? You mean I hypnotised you and took advantage of you. Both of you. Wasn't that wrong?' he asked.  
 
  
 

@@ -176,7 +176,7 @@
 
  Her son certainly had a penchant for the more mature woman it seemed, and Annette found that she was feeling decidedly envious as the busty blonde woman on screen received oral attention from her fit, muscular young lover. The tension that had built up during the day, coupled with the images Annette was watching on screen soon had the woman writhing and groaning on her bed. 
 
- Her fingers swirled around the loose flaps of her labia and tickled her attentive, aching clit and very quickly Annette was lost in a deep fantasy that involved her being licked to a climax by a virile, young stud. Report_Story #2 
+ Her fingers swirled around the loose flaps of her labia and tickled her attentive, aching clit and very quickly Annette was lost in a deep fantasy that involved her being licked to a climax by a virile, young stud.  
 
  
 

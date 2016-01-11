@@ -150,7 +150,7 @@
 
  "Easy enough to answer. I moved out, I didn't want to talk to you and I don't want to be with you anymore." 
 
- "What? Why? Is there someone else?" Report_Story #2 
+ "What? Why? Is there someone else?"  
 
  
 

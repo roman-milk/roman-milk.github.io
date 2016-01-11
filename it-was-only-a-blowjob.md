@@ -316,7 +316,7 @@
 
  "Later, I promise. Thanks for your help." I hung up on her, and looked over at my cheating wife. 
 
- Wendy didn't look the least remorseful. "That's stupid. Of course she'd say that. Their sex life is shit. She's never blown Tom. What does she know?" Report_Story #2 
+ Wendy didn't look the least remorseful. "That's stupid. Of course she'd say that. Their sex life is shit. She's never blown Tom. What does she know?"  
 
  
 
@@ -560,7 +560,7 @@
 
  "Relax, I'm not a cop. How old are you?" Damn if she didn't look like she was 16. 
 
- I turned onto 7th St., headed North, and was surprised when she pushed a driver's license in front of my face. "I'm 18. Since October. Satisfied?" She sounded angry, tucking her license away, before I even got a chance to look at it. "I thought you old guys liked the young girls anyway. I can be 13 for you." Report_Story #3 
+ I turned onto 7th St., headed North, and was surprised when she pushed a driver's license in front of my face. "I'm 18. Since October. Satisfied?" She sounded angry, tucking her license away, before I even got a chance to look at it. "I thought you old guys liked the young girls anyway. I can be 13 for you."  
 
  
 
@@ -856,7 +856,7 @@
 
  "Why is she still here?" Wendy asked. 
 
- I looked over and saw that Kelly was peeling her own shirt off, exposing a pair of perfect little B cup tender young tits. "She's going to stay overnight. I'll take her home later, after we're done not cheating." Report_Story #4 
+ I looked over and saw that Kelly was peeling her own shirt off, exposing a pair of perfect little B cup tender young tits. "She's going to stay overnight. I'll take her home later, after we're done not cheating."  
 
  
 
@@ -1208,7 +1208,7 @@
 
  Wendy shrank away from me and finally had the good sense to shut the hell up. Every time I thought things were getting better, she had to cock it up again. 
 
- Kelly came waltzing into the room, with bottles of water in one hand, and a half-eaten sandwich in the other. She tossed two of the bottles onto the bed, did a cute little spin, and practically danced into the bathroom. Report_Story #5 
+ Kelly came waltzing into the room, with bottles of water in one hand, and a half-eaten sandwich in the other. She tossed two of the bottles onto the bed, did a cute little spin, and practically danced into the bathroom.  
 
  
 
@@ -1252,7 +1252,7 @@
 
  ====================== 
 
- I hope you enjoyed it so far. I've submitted a few chapters at once, so they should probably come out on subsequent days. As always, your votes and comments are welcome and appreciated. Report_Story #1 
+ I hope you enjoyed it so far. I've submitted a few chapters at once, so they should probably come out on subsequent days. As always, your votes and comments are welcome and appreciated.  
 
  
 
@@ -1612,7 +1612,7 @@
 
  Kelly hopped off the bed and met me at the door. "I'm sorry it's taking so long. I think we're going to be a lot longer. Is that Ok?" 
 
- "Of course. I think I'll order out for dinner. Chinese for everyone?" Report_Story #2 
+ "Of course. I think I'll order out for dinner. Chinese for everyone?"  
 
  
 
@@ -1938,7 +1938,7 @@
 
  "Thank you," is all she said, before returning to the bathroom and the tub. 
 
- Wendy was in my arms, almost as fast as Kelly was out of sight. She was as naked as I was. "Make love to me, John? Please?" Report_Story #3 
+ Wendy was in my arms, almost as fast as Kelly was out of sight. She was as naked as I was. "Make love to me, John? Please?"  
 
  
 
@@ -2242,7 +2242,7 @@
 
  "Do I have to go over that again? Because I want to, and I can. That should be reason enough." 
 
- She scrambled out of my lap, when Wendy returned with Jeannie in her arms. My wife put my daughter in my arms, and I looked down at her happy smiling face. I loved putting my finger in her hand, and watching her grab it. She was getting stronger, and had a nice little grip. Report_Story #4 
+ She scrambled out of my lap, when Wendy returned with Jeannie in her arms. My wife put my daughter in my arms, and I looked down at her happy smiling face. I loved putting my finger in her hand, and watching her grab it. She was getting stronger, and had a nice little grip.  
 
  
 
@@ -2358,7 +2358,7 @@
 
  =================== 
 
- Lots of issues still to resolve. I hope you enjoyed this chapter, and appreciate all the votes, comments and emails. Thanks. Report_Story #1 
+ Lots of issues still to resolve. I hope you enjoyed this chapter, and appreciate all the votes, comments and emails. Thanks.  
 
  
 
@@ -2668,7 +2668,7 @@
 
  "I appreciate you telling me," I said, honestly. 
 
- "No problem. If anyone said crap about my wife that way, I'd want to know it, and I'd probably have to take matters into my own hands." Report_Story #2 
+ "No problem. If anyone said crap about my wife that way, I'd want to know it, and I'd probably have to take matters into my own hands."  
 
  
 
@@ -2936,7 +2936,7 @@
 
  "First and last." 
 
- Kelly smiled. "We'll see about that. You'll never have to give her one this bad again, but I have no doubt she'll earn another. She's an ornery girl." Report_Story #3 
+ Kelly smiled. "We'll see about that. You'll never have to give her one this bad again, but I have no doubt she'll earn another. She's an ornery girl."  
 
  
 
@@ -3214,7 +3214,7 @@
 
  "More than Ok." 
 
- That got me another nice long suck. "Good. Sex is out of the picture. Besides, I don't think she's ready for that. She doesn't equate sex with anything good, right now. It would probably mess things up." Report_Story #4 
+ That got me another nice long suck. "Good. Sex is out of the picture. Besides, I don't think she's ready for that. She doesn't equate sex with anything good, right now. It would probably mess things up."  
 
  
 
@@ -3410,7 +3410,7 @@
 
  Kelly provided the comfort she could, quietly, her hand caressing us both gently, lovingly. Helping in the only way she could, in silent, warm support. 
 
- ========================== Report_Story #1 
+ ==========================  
 
  
 
@@ -3750,7 +3750,7 @@
 
  "Any stranger than a teenager blowing your husband in front of both of us? Go ahead. Have fun." 
 
- Wendy got up and walked around the bed, delivering our girl to her mother. Carol laid the towel over her shoulder, then rested Jeannie against it, rubbing and patting her back gently. Report_Story #2 
+ Wendy got up and walked around the bed, delivering our girl to her mother. Carol laid the towel over her shoulder, then rested Jeannie against it, rubbing and patting her back gently.  
 
  
 
@@ -4084,7 +4084,7 @@
 
  I begged off, so I could do some present wrapping, when the girls called out to me from the hall. "You've got baby duty. I just put her down. We have an errand to run. Shouldn't take too long." 
 
- "Got it. Have fun," I told them. I could use the privacy. I was not the world's best gift wrapper. Report_Story #3 
+ "Got it. Have fun," I told them. I could use the privacy. I was not the world's best gift wrapper.  
 
  
 
@@ -4274,7 +4274,7 @@
 
  "Make it good. It's showtime." 
 
- =============================== Report_Story #1 
+ ===============================  
 
  
 
@@ -4570,7 +4570,7 @@
 
  I sipped my beer, pondering the great question. What to do about Tom? 
 
- It was more difficult than it should have been. The essence of the issue was I had no desire to hurt Marie in any way. She was a great friend, and a nice person, who had done nothing wrong. Report_Story #2 
+ It was more difficult than it should have been. The essence of the issue was I had no desire to hurt Marie in any way. She was a great friend, and a nice person, who had done nothing wrong.  
 
  
 
@@ -4816,7 +4816,7 @@
 
  Wendy must have been half-awake. She turned her head slightly and kissed my chest, then snuggled in. My hand caressing her back traveled further, gently rubbing her curvaceous bottom. I reminded myself to make sure I got some of that aloe on her butt. I was feeling a little guilty about how bruised she'd looked. Not that she hadn't earned it. 
 
- Kelly was moving around, and I felt her face nuzzle up against my crotch. It didn't take more than a few seconds for me to respond. I looked down, and saw her wiggle her head in tighter, until my shaft was pressed against her lower face. A small kiss pressed against my flesh, then her lips parted, moving around my shaft, the tip of her tongue teasing me. Looking at her, I could swear she was still asleep. Report_Story #3 
+ Kelly was moving around, and I felt her face nuzzle up against my crotch. It didn't take more than a few seconds for me to respond. I looked down, and saw her wiggle her head in tighter, until my shaft was pressed against her lower face. A small kiss pressed against my flesh, then her lips parted, moving around my shaft, the tip of her tongue teasing me. Looking at her, I could swear she was still asleep.  
 
  
 
@@ -5090,7 +5090,7 @@
 
  "I know. You don't have to say it. It's over, and you have nothing more to be sorry about, Ok? Don't even think about it. It happened, and if anything, we're better for it. I know you'll never cheat on me. As much as I know anything in my life." 
 
- She nodded. "Good. I'd die without you." She kissed me, and made a face. "Jesus, we need to clean up, don't we?" Report_Story #4 
+ She nodded. "Good. I'd die without you." She kissed me, and made a face. "Jesus, we need to clean up, don't we?"  
 
  
 

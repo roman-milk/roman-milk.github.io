@@ -204,7 +204,7 @@
 
  My offer was refused as I knew it would be and then I was told to go sit in a squad car with one of the regular policemen and I understood that it was going to be his job to sit on me and make sure that I stayed out of the way. As I sat there I wondered how it would go down. Would the SWAT team assault the house using the element of surprise and if they did would Annie somehow end up as collateral damage? One could only hope. 
 
- Would they call the assholes on the telephone and try to negotiate? If the two assholes were taken alive would they roll over on Annie? Would she be the one to roll over? Then I had a nasty thought. What if the two guys decided that they were toast any way it went and decided to do the 'gentlemanly thing' and not give up Annie? She would get a free pass and keep on pretending to be my loving wife. What would I do then? Too fucking bad I didn't have a tape recorder with me when I was listening in on them. Report_Story #2 
+ Would they call the assholes on the telephone and try to negotiate? If the two assholes were taken alive would they roll over on Annie? Would she be the one to roll over? Then I had a nasty thought. What if the two guys decided that they were toast any way it went and decided to do the 'gentlemanly thing' and not give up Annie? She would get a free pass and keep on pretending to be my loving wife. What would I do then? Too fucking bad I didn't have a tape recorder with me when I was listening in on them.  
 
  
 

@@ -208,7 +208,7 @@
 
  "Come on out of there, bath times over," he cajoled her. 
 
- He wrapped his arms around her, and pulled her from the bath. She wrapped her legs around his, and started humping his leg. She was rubbing her sex against him, needing to cum. Report_Story #2 
+ He wrapped his arms around her, and pulled her from the bath. She wrapped her legs around his, and started humping his leg. She was rubbing her sex against him, needing to cum.  
 
  
 

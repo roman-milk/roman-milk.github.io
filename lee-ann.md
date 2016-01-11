@@ -202,7 +202,7 @@
 
  "No, he has the Bimbo for the evening. Though maybe, I'll see. If it's any good at fucking I might keep it," Robert casually answered. 
 
- Lee Ann whined. She had tried to say something, in protest. All she managed was a mewling sound. It was partly from when the second man stroked her between the legs, and partly from fear. Surely he didn't mean it? Robert couldn't just swap her for the bimbo, like a car or set of tools. He couldn't keep her, could he? Report_Story #2 
+ Lee Ann whined. She had tried to say something, in protest. All she managed was a mewling sound. It was partly from when the second man stroked her between the legs, and partly from fear. Surely he didn't mean it? Robert couldn't just swap her for the bimbo, like a car or set of tools. He couldn't keep her, could he?  
 
  
 
@@ -408,13 +408,13 @@
 
  "Please, master, get me out of here. Please take me home," she begged. It would be necessary to spend the night in the spare room, away from Jim. Could she ever bring herself to tell him what she had done? It was bad enough being aware of it herself. 
 
- Richard took a hold of her arm, guiding her to a back door. She was relieved not to go anywhere near the bar. Getting into his car, she was a little disappointed it was all over. She had never ever experienced such intense feelings before and would probably never again. She had been this mans sex slave, and revelled in the feeling of being used in such a humble role. Of course it couldn't last, it simply couldn't. It was just a game. Just a nasty game they had played in the club. Report_Story #3 
+ Richard took a hold of her arm, guiding her to a back door. She was relieved not to go anywhere near the bar. Getting into his car, she was a little disappointed it was all over. She had never ever experienced such intense feelings before and would probably never again. She had been this mans sex slave, and revelled in the feeling of being used in such a humble role. Of course it couldn't last, it simply couldn't. It was just a game. Just a nasty game they had played in the club.  
 
  
 
  ****** Lee Ann Ch. 01 ****** byStoryTeller07© "Please, master, get me out of here. Please take me home," she begged. It would be necessary to spend the night in the spare room, away from Jim. Could she ever bring herself to tell him what she had done? It was bad enough being aware of it herself. 
 
- Richard took a hold of her arm, guiding her to a back door. She was relieved not to go anywhere near the bar. Getting into his car, she was a little disappointed it was all over. She had never ever experienced such intense feelings before and would probably never again. She had been this mans sex slave, and revelled in the feeling of being used in such a humble role. Of course it couldn't last, it simply couldn't. It was just a game. Just a nasty game they had played in the club. Report_Story #1 
+ Richard took a hold of her arm, guiding her to a back door. She was relieved not to go anywhere near the bar. Getting into his car, she was a little disappointed it was all over. She had never ever experienced such intense feelings before and would probably never again. She had been this mans sex slave, and revelled in the feeling of being used in such a humble role. Of course it couldn't last, it simply couldn't. It was just a game. Just a nasty game they had played in the club.  
 
  
 
@@ -636,7 +636,7 @@
 
  Lee Ann was out of breath, panting heavily from exertion. She lay there defeated. She could feel the woman's bare arm tightly fitting over her bare lips, where the bikini had slipped awry. The top had been shoved up exposing her breasts, during a scrabble for a hold. 
 
- She could feel her pussy wet against the woman's arm, hoping no one would notice. The exhibition of her naked body was turning her on. A bunch of raucous strangers could see her body and how turned-on she was. She couldn't get out of her mind how embarrassing it would be, displaying her naked hot body before a bunch of young guys, like Nelly had. Report_Story #2 
+ She could feel her pussy wet against the woman's arm, hoping no one would notice. The exhibition of her naked body was turning her on. A bunch of raucous strangers could see her body and how turned-on she was. She couldn't get out of her mind how embarrassing it would be, displaying her naked hot body before a bunch of young guys, like Nelly had.  
 
  
 

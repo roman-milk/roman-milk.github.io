@@ -288,7 +288,7 @@
 
  A hint of a smile played across her lips. Perhaps she was testing these in more ways than one. 
 
- I slipped off the couch and knelt beside her; I slowly bent over and kissed the near nipple. Report_Story #2 
+ I slipped off the couch and knelt beside her; I slowly bent over and kissed the near nipple.  
 
  
 
@@ -514,7 +514,7 @@
 
  "Oh, I'm enjoying it; I am." She assures me. 
 
- She's impatient, and sitting up she spins around so she's facing my feet, and starts fucking herself on my cock again, harder now, slamming herself up and down. I grab each delicious cheek, and lift her on each up stroke, letting her lower herself back down. Her ass looks so good; I have to play with her little butt-hole. Report_Story #3 
+ She's impatient, and sitting up she spins around so she's facing my feet, and starts fucking herself on my cock again, harder now, slamming herself up and down. I grab each delicious cheek, and lift her on each up stroke, letting her lower herself back down. Her ass looks so good; I have to play with her little butt-hole.  
 
  
 
@@ -622,7 +622,7 @@
 
  I finish the cleaning and place two large glasses of ice water beside the bed before I go through the bag of toys. I finally settle on some leather restraints, a large vibrator, and a butt-plug for the morning. 
 
- I turn out the lights, curl up behind her, and reach around to hold one of her sweet new tits. I fall asleep with visions of her cumming under my ministrations dancing through my head. Report_Story #1 
+ I turn out the lights, curl up behind her, and reach around to hold one of her sweet new tits. I fall asleep with visions of her cumming under my ministrations dancing through my head.  
 
  
 
@@ -818,7 +818,7 @@
 
  Jen lay beside us, and kissed us both while I slowly screwed her friend. She finally kissed me hard, then looking into my eyes she spoke. "Fuck her, Steve. Show her what a big dick can do. Fuck the shit out of her." 
 
- Marisa agreed. "Yes, Uuuunnngh, FUCK, God you fill me so tight. I want to come on your big, thick cock again. Gaaawwwwd, damn you feel good." Report_Story #2 
+ Marisa agreed. "Yes, Uuuunnngh, FUCK, God you fill me so tight. I want to come on your big, thick cock again. Gaaawwwwd, damn you feel good."  
 
  
 
@@ -944,7 +944,7 @@
 
  I am such a soft touch. Within the month Jen went back to Dr. Bardon, and I paid for her nose job. I also got the LASIK eye surgery. I'm still bare of hair on most of my body now, and am dieting down to competition weight to see how I'll look. 
 
- Maybe we're taking this body-beautiful thing too far, but hey, it's working for me so far. Report_Story #1 
+ Maybe we're taking this body-beautiful thing too far, but hey, it's working for me so far.  
 
  
 
@@ -1116,7 +1116,7 @@
 
  
 
- I looked over to see Jack heading to the shower, leaving a large white pool dripping down the sauna glass door. Report_Story #2 
+ I looked over to see Jack heading to the shower, leaving a large white pool dripping down the sauna glass door.  
 
  
 
@@ -1344,7 +1344,7 @@
 
  I was so comfortable with Jen by now we commonly had these conversations during our sex. We could talk about anything, and never lose a stroke. I had worked my knees under her legs a bit and was sitting a bit more upright. I had returned to massaging her butt cheeks, while I long-stroked her. 
 
- "Oh, that's nice, right there," she responded to my latest adjustment. "I don't know Steve, dating is such a pain, and things are going so well with us now, I don't want to fuck things up either." Report_Story #3 
+ "Oh, that's nice, right there," she responded to my latest adjustment. "I don't know Steve, dating is such a pain, and things are going so well with us now, I don't want to fuck things up either."  
 
  
 
@@ -1534,7 +1534,7 @@
 
  "How was her mouth? Tell me." She panted. 
 
- "She was nice. She didn't have any great technique, but she's so pretty, seeing my cock disappearing into that sweet face was a huge turn-on. I was very close to blowing my load in her throat when she stopped. You should have seen her, eyes closed, just enjoying sucking my cock. She easily took the width, which surprised me. No, I wouldn't mind a blowjob from her. God that was hot! And when she looked into my eyes, her mouth stretched wide by my demanding cock, I wish you could have seen that." Report_Story #4 
+ "She was nice. She didn't have any great technique, but she's so pretty, seeing my cock disappearing into that sweet face was a huge turn-on. I was very close to blowing my load in her throat when she stopped. You should have seen her, eyes closed, just enjoying sucking my cock. She easily took the width, which surprised me. No, I wouldn't mind a blowjob from her. God that was hot! And when she looked into my eyes, her mouth stretched wide by my demanding cock, I wish you could have seen that."  
 
  
 
@@ -1688,7 +1688,7 @@
 
  "Night, sis," Cheryl managed. 
 
- "Night Jen, we love you too." I hung up the phone. Report_Story #1 
+ "Night Jen, we love you too." I hung up the phone.  
 
  
 
@@ -1916,7 +1916,7 @@
 
  "Yeah, I think she's ready for it. Go for it buddy." I reached behind her with the vibrator, and by feel, started working it in her butt. "Of course it's tight, you're her first back there, and I'm already inside, filling half the available space." Jenny was finally starting to moan louder, and to stop herself she was chewing on my shoulder. 
 
- "Ok Jack, I agree, lets fuck her ragged." I was fucking her hard from below, and working about 4 inches of the vibrator in and out of her ass. She was biting me hard, her fingernails digging into me. Her breath was gasping and suddenly I could feel her coming, her pussy clenching at my stiff cock. She was squealing into my shoulder. I turned the vibrator from low to high, and held it deep in her ass, as I fucked her as hard as I could from below. She was slamming her cunt down onto me. I reached over to her head, pulled her off my shoulder by her hair, placed her mouth over mine, and stuck my tongue half way down her throat. I could feel the end coming and finally pulled the vibrator from her butt, as I unloaded a huge amount of cum inside her. With each stream I lifted her several inches off the bed. On the third lunge she tore her face off mine, arched her back and screamed as a huge orgasm shook her body. I reached up and squeezed her erect nipples, as the final remnants of my own orgasm finally subsided. Report_Story #2 
+ "Ok Jack, I agree, lets fuck her ragged." I was fucking her hard from below, and working about 4 inches of the vibrator in and out of her ass. She was biting me hard, her fingernails digging into me. Her breath was gasping and suddenly I could feel her coming, her pussy clenching at my stiff cock. She was squealing into my shoulder. I turned the vibrator from low to high, and held it deep in her ass, as I fucked her as hard as I could from below. She was slamming her cunt down onto me. I reached over to her head, pulled her off my shoulder by her hair, placed her mouth over mine, and stuck my tongue half way down her throat. I could feel the end coming and finally pulled the vibrator from her butt, as I unloaded a huge amount of cum inside her. With each stream I lifted her several inches off the bed. On the third lunge she tore her face off mine, arched her back and screamed as a huge orgasm shook her body. I reached up and squeezed her erect nipples, as the final remnants of my own orgasm finally subsided.  
 
  
 
@@ -2124,7 +2124,7 @@
 
  "You certainly have earned it," Cheryl said, still on track from our conversation. "If not with Denise, I'll see what we can do about right afterwards. Ok, lover?" 
 
- "More than Ok." I let my mind wander back to the blowjob contest, with Denise in the lead, but Jenny eager to take her turn, as I dozed off. Report_Story #1 
+ "More than Ok." I let my mind wander back to the blowjob contest, with Denise in the lead, but Jenny eager to take her turn, as I dozed off.  
 
  
 
@@ -2282,7 +2282,7 @@
 
  "Please, hold it there," she begged, while she tried to grow accustomed to the oversized invader. "Ok, now slowly, fuck my hot ass." 
 
- "Marisa, you are an incredible fuck. I love this little tattoo. I need to see this more often." I told her, as I started driving her ass, still slowly but with long strokes and a nice steady pace. Report_Story #2 
+ "Marisa, you are an incredible fuck. I love this little tattoo. I need to see this more often." I told her, as I started driving her ass, still slowly but with long strokes and a nice steady pace.  
 
  
 

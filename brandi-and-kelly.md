@@ -218,7 +218,7 @@
 
  "You agreed to be paraded around and that is exactly what I shall do. You don't know the rules or etiquette here so you'll have to act as a submissive. That way you won't have to talk to anyone and spoil things. As you belong to me," he started to say. 
 
- "No way! I don't BELONG to anyone! That's demeaning," she retorted. Report_Story #2 
+ "No way! I don't BELONG to anyone! That's demeaning," she retorted.  
 
  
 
@@ -452,7 +452,7 @@
 
  She slept well and knew it for it was so hard to rise. When she moved, a wet patch was felt and she giggled. Last night's episode flooded her mind to turn the giggle to a look of worry. 'What did they do to me?' 
 
- On the drive into college she fingered the miniature locks, glancing in the mirror, checking that her hair covered them. Brandi didn't know whether to laugh or cry. "It's done now so live with it," she told herself. The holes would close up soon enough and anyway they would be hidden in her long hair. Report_Story #3 
+ On the drive into college she fingered the miniature locks, glancing in the mirror, checking that her hair covered them. Brandi didn't know whether to laugh or cry. "It's done now so live with it," she told herself. The holes would close up soon enough and anyway they would be hidden in her long hair.  
 
  
 
@@ -656,7 +656,7 @@
 
  The woman was trotting around in a circle while a man stood in the middle holding onto reins in one hand and a whip in the other. Whenever she made a mistake the whip would flick out stinging her rump. 
 
- Kelly had an awful feeling she might me expected to perform out there next. A shudder rippled through her body. She concentrated on how the woman lifted her legs in a pony trotting exercise. Occasionally she even lifted her head snorting like one. Report_Story #1 
+ Kelly had an awful feeling she might me expected to perform out there next. A shudder rippled through her body. She concentrated on how the woman lifted her legs in a pony trotting exercise. Occasionally she even lifted her head snorting like one.  
 
  
 
@@ -890,7 +890,7 @@
 
  In an agony of disbelief she watched him smooth shaving cream between her legs. It would have been a fun feeling under different circumstances but here and now it was alarming. It was terrible knowing the very idea of being shaved was stoking her up. At least her lips were hidden under white foam but she could feel them responding to his attention. 
 
- 'Damn him, damn him! Doesn't he know what he's doing to me?' "ease aster," she pleaded, with an expression of urgency upon her face intended to communicate a need for mercy. Report_Story #2 
+ 'Damn him, damn him! Doesn't he know what he's doing to me?' "ease aster," she pleaded, with an expression of urgency upon her face intended to communicate a need for mercy.  
 
  
 
@@ -1106,7 +1106,7 @@
 
  Both friends were led over to one of the stalls. On hands and knees they crawled over the straw to a large cage. Brandi stopped dead with the leash pulling tight on the collar. 'No fucking way!' she thought. 
 
- Her friend too baulked at this indignity but a whip to her rump had her scuttling into it. Brandi refused. Another whip lashed her friend eliciting a pony like whiny. Brandi relented for the sake of her friend and crawled in. Report_Story #3 
+ Her friend too baulked at this indignity but a whip to her rump had her scuttling into it. Brandi refused. Another whip lashed her friend eliciting a pony like whiny. Brandi relented for the sake of her friend and crawled in.  
 
  
 
@@ -1342,7 +1342,7 @@
 
  Brandi felt the slaps to her butt in an agony of embarrassment. They stung rather than pained her ass but the humiliation of being over his knee being spanked like a naughty schoolgirl was painful. 
 
- He hesitated between slaps drawing out the humiliation to what seemed an age of agony. She tried not to whimper or cry out in shame over the ordeal. Biting her tongue she managed to endure the humiliation before these strangers. Report_Story #4 
+ He hesitated between slaps drawing out the humiliation to what seemed an age of agony. She tried not to whimper or cry out in shame over the ordeal. Biting her tongue she managed to endure the humiliation before these strangers.  
 
  
 
@@ -1356,7 +1356,7 @@
 
  Her face was crimson from embarrassment, her cheeks streaked with tears but she tried to hold herself together with what was left of a dented dignity. She determined to behave for the rest of the weekend to avoid another shameful episode needing to hold on to the shreds of self-worth. 
 
- John stood over her large and dominating. "I had better go help the others see to the ponies. I'll leave you to it. Well done pet. You have done well. Soon you will be good enough to earn a slave name and your collar." Report_Story #1 
+ John stood over her large and dominating. "I had better go help the others see to the ponies. I'll leave you to it. Well done pet. You have done well. Soon you will be good enough to earn a slave name and your collar."  
 
  
 
@@ -1582,7 +1582,7 @@
 
  Brandi was so on fire it was difficult to think straight. It was as though she had been struck dumb when Kevin led her around the stable showing off his new pet. She timidly walked on the end of the leash with head down trying to hide the embarrassment in long black hair. 
 
- The men were used to seeing a hot naked slave but could see Kevin's pride in the achievement so took time to examine the newly trained slave. They commented on its luscious bottom and good manners. They examined its pierced nipples and made suggestions as to what to do next. Report_Story #2 
+ The men were used to seeing a hot naked slave but could see Kevin's pride in the achievement so took time to examine the newly trained slave. They commented on its luscious bottom and good manners. They examined its pierced nipples and made suggestions as to what to do next.  
 
  
 
@@ -1782,7 +1782,7 @@
 
  *** 
 
- Carefully soaping the sore nipples was turning her on. "Damn him!" she cursed. It was despicable to have her body damaged with those little innocent looking rings through both nipples. They were terrible yet seemed to stoke her up with every touch. Report_Story #3 
+ Carefully soaping the sore nipples was turning her on. "Damn him!" she cursed. It was despicable to have her body damaged with those little innocent looking rings through both nipples. They were terrible yet seemed to stoke her up with every touch.  
 
  
 
@@ -1850,7 +1850,7 @@
 
  He jerked his hips again and again. She felt as though he were filling her with gallons of seed. In a blank dark mind phrases lit up brightly in neon; my master's cock has taken me, master is filling me with his cum - I belong to my master's cock. 
 
- The phrases were burning into her subconscious. The slave had been taken by her master. The master believed she belonged to him now and the slave believed she was owned by him. Brandi was his slave. There was nothing she could do but submit to his wishes. She knew this with all her heart and mind. She wanted it to be so. Report_Story #1 
+ The phrases were burning into her subconscious. The slave had been taken by her master. The master believed she belonged to him now and the slave believed she was owned by him. Brandi was his slave. There was nothing she could do but submit to his wishes. She knew this with all her heart and mind. She wanted it to be so.  
 
  
 
@@ -2040,7 +2040,7 @@
 
  So now he knew how low she had been brought. It had spoilt that new found relationship formed from giving Master her virginity. What would he think of her now? 
 
- "He offered to buy her. Is that possible? What would stop her from just walking away?" Kevin asked. The words tumbled from him revealing what he had been thinking about while they had been silent in their own little world within the party. Report_Story #2 
+ "He offered to buy her. Is that possible? What would stop her from just walking away?" Kevin asked. The words tumbled from him revealing what he had been thinking about while they had been silent in their own little world within the party.  
 
  
 
@@ -2206,7 +2206,7 @@
 
  "I don't know what the big deal is, I'm already wearing a collar, so give me a name and we can go." 
 
- "That's not how it works. You have to make a commitment to me. It's sort of like a marriage. By wearing the collar and accepting a new name you're promising to be my slave and obey me. You're giving me your freedom." He held out a thin steel collar and told her. Report_Story #3 
+ "That's not how it works. You have to make a commitment to me. It's sort of like a marriage. By wearing the collar and accepting a new name you're promising to be my slave and obey me. You're giving me your freedom." He held out a thin steel collar and told her.  
 
  
 
@@ -2396,7 +2396,7 @@
 
  "I said 'spread em', unless you want me to pull those nipple rings even harder," Cindy warned. She decided to try it anyway and lifted Brandi onto tiptoe by tugging on both nipple rings. 
 
- "Damn that's a close shaved pussy and more rings too! You're quite the little slave, aren't you, Brandi dear. Am I missing anything, a tat or brand or something else? Kevin must have trained you well for you to accept all this." Report_Story #4 
+ "Damn that's a close shaved pussy and more rings too! You're quite the little slave, aren't you, Brandi dear. Am I missing anything, a tat or brand or something else? Kevin must have trained you well for you to accept all this."  
 
  
 
@@ -2564,7 +2564,7 @@
 
  Brandi didn't think about the indignity of him taking her back as his slave as it seemed such a natural thing to be, especially as he had rescued her from those bitches. Her master had saved her from such a dreadful fate she was happy to think of herself as a slave gyrl under his protection. 
 
- After such intensive training and being so stoked up it was easy to accept a master dressing her ready to be returned to a slave farm. Report_Story #1 
+ After such intensive training and being so stoked up it was easy to accept a master dressing her ready to be returned to a slave farm.  
 
  
 
@@ -2754,7 +2754,7 @@
 
  John and a colleague searched the large building knowing nothing but the harness remained behind. 
 
- John phoned Kevin then another colleague, each time reporting a switch had been made and comparing notes with each of them. Not one of them had seen anything. John stood in the warehouse looking around hoping for a clue yet knowing there was nothing there to link Brandi with her new master. Report_Story #2 
+ John phoned Kevin then another colleague, each time reporting a switch had been made and comparing notes with each of them. Not one of them had seen anything. John stood in the warehouse looking around hoping for a clue yet knowing there was nothing there to link Brandi with her new master.  
 
  
 
@@ -2944,7 +2944,7 @@
 
  Kelly cleared her throat to speak. "Slaves must always obey master and try harder to please master's every whim." There was a look of sympathy in her eyes but her face remained passive. It didn't look as though she needed to wear shackles as she wasn't likely to disobey or fight back. They seemed more for effect, to intimidate Brandi. 
 
- Thomas shook a cover from what looked like a stool. There was an evil looking black phallus sticking up from the seat and Brandi gasped. It was big with a small extension designed to rub the clitoris. Report_Story #3 
+ Thomas shook a cover from what looked like a stool. There was an evil looking black phallus sticking up from the seat and Brandi gasped. It was big with a small extension designed to rub the clitoris.  
 
  
 
@@ -2976,7 +2976,7 @@
 
  "I've got contacts watching him for the export of furniture. That's how he gets them out of the country. I just hope that doesn't happen, I've no contacts in the Far East. In Europe we have pretty good co-operation. We've got a little time yet as it will take more than a few days to train Brandi, she's tough and resilient. Don't worry Kevin we'll find them, we'll get her back for you." John felt less confident than he sounded but needed everyone to think positive. 
 
- Even if they got them back he wondered what state they would be in. Thomas had a bad reputation for training slaves for he broke their will turning them into docile obedient pets. John smiled at the thought of Brandi giving Thomas a hard time. She would fight back for sure. Report_Story #1 
+ Even if they got them back he wondered what state they would be in. Thomas had a bad reputation for training slaves for he broke their will turning them into docile obedient pets. John smiled at the thought of Brandi giving Thomas a hard time. She would fight back for sure.  
 
  
 
@@ -3156,7 +3156,7 @@
 
  Right above her face the master thrust deeper into Kelly's asshole in a last push to the finish. He spurted into her and Brandi waited in trepidation for his juices to run from her to add to the dire humiliation. In shock all she could think of was, it was a good thing Kelly had a cleansing enema this morning. 
 
- An inch above her face Brandi watched the master pull his cock free of the tight asshole. Cum dripped onto her face but both hands were secured tight to the mat so it had to be endured. The off-white cream ran down both cheeks like tears reflecting the humiliation. Report_Story #2 
+ An inch above her face Brandi watched the master pull his cock free of the tight asshole. Cum dripped onto her face but both hands were secured tight to the mat so it had to be endured. The off-white cream ran down both cheeks like tears reflecting the humiliation.  
 
  
 
@@ -3350,7 +3350,7 @@
 
  *** 
 
- Her room seemed so plain and ordinary. Everything did. Cereal was tasteless, strong coffee ineffective. It was safe here but empty. Friends couldn't be chatted with on the phone to catch up on silly banalities. She knew they would be shocked if she tried to share the past two weeks and didn't want to let go of such intense living so didn't phone them. Report_Story #3 
+ Her room seemed so plain and ordinary. Everything did. Cereal was tasteless, strong coffee ineffective. It was safe here but empty. Friends couldn't be chatted with on the phone to catch up on silly banalities. She knew they would be shocked if she tried to share the past two weeks and didn't want to let go of such intense living so didn't phone them.  
 
  
 
@@ -3532,7 +3532,7 @@
 
  Brandi was naked except for the slave collar, splashing her face with cool refreshing water. The deliriously happy feeling that made life so wonderful couldn't be washed away or lost easily. 
 
- Master knew what she wanted and was ready to tease and punish and reward her for the rest of the day. Slave could hardly believe her master would spend the whole day with her, pleasuring himself with her body. It promised to be a perfect day. Report_Story #1 
+ Master knew what she wanted and was ready to tease and punish and reward her for the rest of the day. Slave could hardly believe her master would spend the whole day with her, pleasuring himself with her body. It promised to be a perfect day.  
 
  
 
@@ -3752,7 +3752,7 @@
 
  Safely in the car they relaxed. It was almost a pity no-one had seen their little pet for she would have turned heads the way she was dressed and they felt she needed to be humiliated. After all she and her friend had snubbed them in class before everyone, too often. 
 
- Cindy kept Brandi hidden, stretched out on the back seat of the small compact. "You think you're above us don't you," Cindy told her. Report_Story #2 
+ Cindy kept Brandi hidden, stretched out on the back seat of the small compact. "You think you're above us don't you," Cindy told her.  
 
  
 
@@ -3890,7 +3890,7 @@
 
  Suddenly she wailed like a wild animal. Her body didn't want to be torn asunder so allowed her to collapse without the usual tremor in her legs. A rush of base sensations swamped her mind flooding out the last vestiges of thought allowing the escape. Brandi had cum powerfully. 
 
- She slumped unconscious on the floor with a wetness seeping from a gapping hole. There was no sign of damage but the body being such a powerful tool it would soon heal the unseen bruises. Would her mind though? Report_Story #1 
+ She slumped unconscious on the floor with a wetness seeping from a gapping hole. There was no sign of damage but the body being such a powerful tool it would soon heal the unseen bruises. Would her mind though?  
 
  
 
@@ -4086,7 +4086,7 @@
 
  He obviously didn't like it but couldn't do a thing about it. The two girls nudged each other, suppressing giggles, delighted at the guy's discomfort. The girls couldn't see exactly what was going on in the poor lighting but the leash guy was pressing up against the bar shaking his head. 
 
- From their positions he wasn't fucking the leash guy but something was going on. The leash was thrown over a hook above the bar where slaves could be parked up, meaning he couldn't walk away, so had to suffer the indignity of being pestered. Report_Story #2 
+ From their positions he wasn't fucking the leash guy but something was going on. The leash was thrown over a hook above the bar where slaves could be parked up, meaning he couldn't walk away, so had to suffer the indignity of being pestered.  
 
  
 
@@ -4296,7 +4296,7 @@
 
  Teresa hadn't been able to call her a slave in front of him, still unsure of what was something strange and unfamiliar. It was so very satisfying to hear her submit in front of her boyfriend. It meant her hold over the stupid girl was stronger than his influence. 
 
- Teresa felt so satisfied at having caught them both in their own strange game she laughed out loud. Brandi and Kevin, she mistakenly thought, had worked together to put her into this condition and she had accidently found them out. Report_Story #3 
+ Teresa felt so satisfied at having caught them both in their own strange game she laughed out loud. Brandi and Kevin, she mistakenly thought, had worked together to put her into this condition and she had accidently found them out.  
 
  
 
@@ -4448,7 +4448,7 @@
 
  Brandi could feel something quietly fading away, a sense of self was slipping from her grasp. Brandi clamped her eyes shut trying to concentrate, not wanting to let go. 'Please, not this, not now, not with her. Let something remain," she pleaded. 
 
- Opening her eyes she saw Teresa staring at her. Brandi was no longer afraid, she needed nothing now, no need for freedom or escape for she was a pretty little pet slave squatting before her mistress. Report_Story #1 
+ Opening her eyes she saw Teresa staring at her. Brandi was no longer afraid, she needed nothing now, no need for freedom or escape for she was a pretty little pet slave squatting before her mistress.  
 
  
 
@@ -4612,7 +4612,7 @@
 
  "If only the class could see us now," Teresa whispered. 
 
- Brandi rolled up in a ball holding herself tight with the same thought in her head only it didn't make her laugh it made her cry with humiliation. The two friends were falling off to sleep and Brandi too was exhausted. Her collar was fastened to a leg of the bed so she quietly slipped onto the floor as she didn't want to fall in the night and strangle herself. Report_Story #2 
+ Brandi rolled up in a ball holding herself tight with the same thought in her head only it didn't make her laugh it made her cry with humiliation. The two friends were falling off to sleep and Brandi too was exhausted. Her collar was fastened to a leg of the bed so she quietly slipped onto the floor as she didn't want to fall in the night and strangle herself.  
 
  
 
@@ -4774,7 +4774,7 @@
 
  The rasp of scissors struggling through one layer of clothing at a time abated with the young girl standing naked. A Sirik was fitted and the chains pulled tight. Janet returned from a cabinet with some expensive jewellery though the young girls couldn't see what it was. Brandi hoped it wasn't large loop earrings or piercing bars. 
 
- Brandi saw the woman lift the loop of bright metal toward Cindy and gasped. As much as she hated the bitch Brandi wanted to shout a warning. She opened her mouth but couldn't bring herself to even whisper the slightest sound. It would do no good as Cindy was trapped by her wrists. Perhaps if she knew what was being done to her she might have resisted, even dared to run outside naked. Report_Story #3 
+ Brandi saw the woman lift the loop of bright metal toward Cindy and gasped. As much as she hated the bitch Brandi wanted to shout a warning. She opened her mouth but couldn't bring herself to even whisper the slightest sound. It would do no good as Cindy was trapped by her wrists. Perhaps if she knew what was being done to her she might have resisted, even dared to run outside naked.  
 
  
 
@@ -4932,7 +4932,7 @@
 
  With those two young women giving off such a potent stream of pheromones she had swooned, becoming intoxicated and overwhelmed. She had become so smitten she was prepared to abuse her body just for him. That voluptuous body was his for the taking and although reluctant she was preparing her asshole too. Would the opportunity ever present itself again, where a woman was ready to give him everything and do anything, to even become his sex slave? 
 
- He looked at the too young girls, almost his age, thinking it had been the scent of their sex that had subdued this woman. Could he use this secret again? The woman, he didn't even know her name, had rationalised it was his power as a man rather than face the truth of it. Report_Story #4 
+ He looked at the too young girls, almost his age, thinking it had been the scent of their sex that had subdued this woman. Could he use this secret again? The woman, he didn't even know her name, had rationalised it was his power as a man rather than face the truth of it.  
 
  
 
@@ -5104,7 +5104,7 @@
 
  "Oh! Yea! She was a really awkward bitch. I made her into a slave whore. Oops, didn't mean to let you know that," Nelly said. 
 
- Janet looked at Nelly with a stern glare. "Have you still got her?" Janet asked. Report_Story #5 
+ Janet looked at Nelly with a stern glare. "Have you still got her?" Janet asked.  
 
  
 
@@ -5144,7 +5144,7 @@
 
  Brandi had kept her pussy clean and perfectly bald for her master but hadn't shaved that morning for Teresa hadn't thought of it. She was partly right this woman was experienced in keeping a slave girl. 
 
- "Come on kitten, jump up on the bed," Janet told her. Report_Story #1 
+ "Come on kitten, jump up on the bed," Janet told her.  
 
  
 
@@ -5314,7 +5314,7 @@
 
  She reluctantly opened her mouth and tasted the combination of rubber and spit from Cindy. Knowing why he was doing this, she produced as much saliva as she could, to wet it thoroughly. She knew what he was up to and wanted to make it as wet as possible. 
 
- How different was this from when she was with Kevin. She would no longer complain about anything Kevin wanted to do to her, however depraved it might be, for surely it couldn't be as bad as this. The old guy went behind her and started on her pussy. It didn't take long and it wasn't in any way erotic. Thankfully he gave up on her asshole. Report_Story #2 
+ How different was this from when she was with Kevin. She would no longer complain about anything Kevin wanted to do to her, however depraved it might be, for surely it couldn't be as bad as this. The old guy went behind her and started on her pussy. It didn't take long and it wasn't in any way erotic. Thankfully he gave up on her asshole.  
 
  
 
@@ -5380,7 +5380,7 @@
 
  Avidly she watched Teresa. The young woman hadn't even walked over to them. What was going on? Teresa was standing in the doorway cursing Janet. "No! Please don't leave us," Brandi shouted, but it was too late, the door had banged shut. So unused to talking above a whisper it hadn't been much of a shout anyway. 
 
- Brandi quietly sobbed. She thought she could stand all this abuse, but the sight of a classmate walking away after believing she was here to rescue them, was heart wrenching. Her chest thumped from the agony of disappointment. Perhaps it would be better to give in to that woman, to quickly forget about her previous life and to become a contented, mindless little pet. Report_Story #1 
+ Brandi quietly sobbed. She thought she could stand all this abuse, but the sight of a classmate walking away after believing she was here to rescue them, was heart wrenching. Her chest thumped from the agony of disappointment. Perhaps it would be better to give in to that woman, to quickly forget about her previous life and to become a contented, mindless little pet.  
 
  
 
@@ -5578,7 +5578,7 @@
 
  "Brandi, sometimes things just happen to you. All you can do is make the most of it, and try to get on with what you've got. I've got a big pair of tits and an insatiable appetite for sex. Not the best of assets out there in the vanilla world," she laughed raucously, and Brandi joined in. 
 
- "Try to surround yourself with people that make you feel good, that's some advice I learnt along the way. You won't want to hear the boring advice. Get yourself a good education. Go out there and get a good job to make money. I'm thirty-five and have a few good years yet. Who knows, make enough money and you might consider buying me as your slave-slut," she teased. Report_Story #2 
+ "Try to surround yourself with people that make you feel good, that's some advice I learnt along the way. You won't want to hear the boring advice. Get yourself a good education. Go out there and get a good job to make money. I'm thirty-five and have a few good years yet. Who knows, make enough money and you might consider buying me as your slave-slut," she teased.  
 
  
 

@@ -244,7 +244,7 @@
 
  "In what way Maeve? What would change other than I would go from being your man three quarters of the time to being your man full time? What would change other than your having to give up being curious and satisfying that curiosity?" 
 
- She was silent for several seconds and then she said, "You couldn't live with me full time Rob; I'm too much of a controlling bitch. What was it you once told me? That I had a touch of "My way or the highway" in me? It is more than a touch Rob, way more than a touch. I have to be in charge Rob. My father was the original male chauvinistic pig. As far as he was concerned women were put on this Earth for one reason and one reason only – to serve men. Lick my boots, fetch my pipe and slippers, get into the kitchen and get dinner ready. Why my mother never killed him I'll never understand, but I grew up promising myself that I'd never let a man control me that way. Unfortunately I went too far the other way and became the female counterpart to my father. Although maybe not quite as bad. Report_Story #2 
+ She was silent for several seconds and then she said, "You couldn't live with me full time Rob; I'm too much of a controlling bitch. What was it you once told me? That I had a touch of "My way or the highway" in me? It is more than a touch Rob, way more than a touch. I have to be in charge Rob. My father was the original male chauvinistic pig. As far as he was concerned women were put on this Earth for one reason and one reason only – to serve men. Lick my boots, fetch my pipe and slippers, get into the kitchen and get dinner ready. Why my mother never killed him I'll never understand, but I grew up promising myself that I'd never let a man control me that way. Unfortunately I went too far the other way and became the female counterpart to my father. Although maybe not quite as bad.  
 
  
 
@@ -442,7 +442,7 @@
 
  Watching her walk out the door was one of the hardest things I'd ever had to do, but it had to be done. The Maeve I thought I knew did not exist." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -624,7 +624,7 @@
 
  "I don't believe that Maeve." 
 
- "Why don't you believe it? It is true." Report_Story #2 
+ "Why don't you believe it? It is true."  
 
  
 

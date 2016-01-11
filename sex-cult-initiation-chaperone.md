@@ -198,7 +198,7 @@
 
  Finally, I retrieved my purse and pulled out the cherry-wood box. Janie looked over and her eyebrows rose up her forehead. 
 
- "Already? I only just got used to the last one." Report_Story #2 
+ "Already? I only just got used to the last one."  
 
  
 
@@ -428,7 +428,7 @@
 
  We turned away from the main concourse and moved down the shabby little corridor deeper into the bowels of the airport. Janie led our little group, her leash held firmly by Tom while Theresa directed her to turn this way or that by barking commands and occasionally swatting her across the ass with a riding crop. Janie squawked a couple of times at being struck but this always eliciting another swat for complaining so she generally kept quiet and followed direction. I brought up the rear, slumping along and feeling miserable. 
 
- We reached a scratched and dented metal door bedecked with serious-looking signs in a foreign language. Theresa ordered Janie to halt as Tom fumbled a key out of his pocket and opened the door. We went down a small stair into a big noisy room where a couple dozen coarse, sweaty men manhandled luggage and freight between various mechanical methods of conveyance. The noise quickly fell off in expanding concentric circles as the men stopped their activity to stare at our strange little group. Report_Story #3 
+ We reached a scratched and dented metal door bedecked with serious-looking signs in a foreign language. Theresa ordered Janie to halt as Tom fumbled a key out of his pocket and opened the door. We went down a small stair into a big noisy room where a couple dozen coarse, sweaty men manhandled luggage and freight between various mechanical methods of conveyance. The noise quickly fell off in expanding concentric circles as the men stopped their activity to stare at our strange little group.  
 
  
 
@@ -578,7 +578,7 @@
 
  "You're a pig." 
 
- "Well, forgive me for pointing out that you are throwing rocks from a very fragile glass house, my dear." Report_Story #4 
+ "Well, forgive me for pointing out that you are throwing rocks from a very fragile glass house, my dear."  
 
  
 
@@ -726,7 +726,7 @@
 
  I was shackled with a wrist locked in each dangling manacle so I was standing on my tip-toes, stretched out and exposed, but they weren't done. A soft nylon rope was brought out, my right knee was bound and the rope was thrown over the right beam to be pulled tight so that my leg was lifted to about the height of my abdomen. A half dozen men and women were gathered around me now and they looked me over with eyes burning with fevered desire. As they watched, Theresa grabbed me from behind. I could feel her thick, steel hard cock probing for my gates of paradise. Finally one of the partiers dropped to her knees and helped Theresa slide into me. As Theresa began to pump, the woman on her knees began to eagerly suck my clit. I gasped luridly around my gag as pleasure washed through me. 
 
- I must have been blinded in that storm of reluctant ecstasy because when Janie -- pink skinned, damp and wild eyed -- was dumped on the floor in front of me it was something of a surprise. I watched as a man came forward from the encircling crowd and lay down beneath me. Janie was guided over his pelvis and down onto his cock. Her face was pushed against my pussy and she began to mouth my weeping folds of feminine flesh as Theresa rogered me hard with a slow grinding rhythm. Looking down I watched as another man crouched behind Janie and began threading his cock into her ass. With her tongue hard against my clit she moaned loudly, transmitting delicious vibrations against my tender, distended nub. I could resist the explosion of pleasure no longer. Hanging there helplessly and being screwed by a she-male while everyone's eyes focused on my double-penetrated daughter lapping hungrily at my clit, I came with such force that I saw stars swarm in the periphery of my vision as I nearly lost consciousness. My clenching, cumming pussy finally pushed Theresa over the edge too and I felt her massive dick begin to pump within me, drenching my womb in her spunk. As Theresa backed away I heard Janie beneath me, greedily slurping the sperm that rained from my body. I looked down and our eyes met. She cocked an eyebrow and shot me an honest, messy grin. Report_Story #5 
+ I must have been blinded in that storm of reluctant ecstasy because when Janie -- pink skinned, damp and wild eyed -- was dumped on the floor in front of me it was something of a surprise. I watched as a man came forward from the encircling crowd and lay down beneath me. Janie was guided over his pelvis and down onto his cock. Her face was pushed against my pussy and she began to mouth my weeping folds of feminine flesh as Theresa rogered me hard with a slow grinding rhythm. Looking down I watched as another man crouched behind Janie and began threading his cock into her ass. With her tongue hard against my clit she moaned loudly, transmitting delicious vibrations against my tender, distended nub. I could resist the explosion of pleasure no longer. Hanging there helplessly and being screwed by a she-male while everyone's eyes focused on my double-penetrated daughter lapping hungrily at my clit, I came with such force that I saw stars swarm in the periphery of my vision as I nearly lost consciousness. My clenching, cumming pussy finally pushed Theresa over the edge too and I felt her massive dick begin to pump within me, drenching my womb in her spunk. As Theresa backed away I heard Janie beneath me, greedily slurping the sperm that rained from my body. I looked down and our eyes met. She cocked an eyebrow and shot me an honest, messy grin.  
 
  
 

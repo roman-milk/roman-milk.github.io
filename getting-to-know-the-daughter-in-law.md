@@ -218,7 +218,7 @@
 
  But the day she finally knew that Tiffany had indeed drug her down was the night she went home to her husband after having been fucked by three men. She had gotten him up out of a sound sleep with a blow job and then had sat on his face and lied to him about her wet pussy. 
 
- "I've been horny all day thinking about you honey and my natural juices are flowing. I'm sorry to wake you, but I can't wait until tomorrow. I just have to be fucked right now." Report_Story #2 
+ "I've been horny all day thinking about you honey and my natural juices are flowing. I'm sorry to wake you, but I can't wait until tomorrow. I just have to be fucked right now."  
 
  
 

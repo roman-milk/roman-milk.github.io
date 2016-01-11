@@ -248,7 +248,7 @@
 
  Once Heather had moved, Ashley was right back at it, cuddling right up against me. "We're gonna be best friends, Alex. Alright?" 
 
- Her open kindness, guileless look, and easy affection was hard to fight. "Nothing I'd like better," I said. Report_Story #2 
+ Her open kindness, guileless look, and easy affection was hard to fight. "Nothing I'd like better," I said.  
 
  
 
@@ -494,7 +494,7 @@
 
  "Shit, I'm not gonna mess with her. I don't need to chase someone who says no. I figured it was over. No more trouble, I swear." 
 
- "Fine. If you see her, you will apologize, and leave her alone. This can end here, but if I hear anything bad, I'll make it my life's mission to fuck you over so bad, you'll wish you'd never been born. Are we understood?" Report_Story #3 
+ "Fine. If you see her, you will apologize, and leave her alone. This can end here, but if I hear anything bad, I'll make it my life's mission to fuck you over so bad, you'll wish you'd never been born. Are we understood?"  
 
  
 
@@ -862,7 +862,7 @@
 
  The pepper-encrusted pan-seared inch and a half thick tenderloins had been resting in the warm oven, covered in foil. I plated them, with the decadent mashed potatoes - more Idaho potatoes, heavy cream and lots of butter. A small serving of roasted asparagus finished the main entree. 
 
- We were halfway through the meal, when I heard the front door slam. Ashley came crashing into the room. "Well that sucked!" she said, then stopped, staring at the table. Report_Story #4 
+ We were halfway through the meal, when I heard the front door slam. Ashley came crashing into the room. "Well that sucked!" she said, then stopped, staring at the table.  
 
  
 

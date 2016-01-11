@@ -152,7 +152,7 @@
 
  Man it was sensuous. The chick knew how to do a man right. She licked gingerly from the tip, around the head, down the soft part of the shaft, around my balls, even to the tuff nut at base of my scrotum. Then she licked back to the top and swallowed the head. I was fucking ready to pump her mouth by now. I put my hands on my sides on the sofa, relaxing back, and tried to keep myself from moving too rapidly while the teenager started to give me great head. Candice's young mouth sucked my fat prickhead into her lips where her spit and tongue coated it all over, then she began sliding more of it into her mouth. 
 
- "Fuck baby yeah," I groaned instinctively watching my cock disappear into her mouth. Her jaw really had to open wide; she moaned, more from the surprise of knowing a cock could be this thick. Candice slurped on my penis, making loud suckling noises, her head and pulled-back hair bobbing up and down on my in slow, intense rhythms. I rotated my ass slowly meeting her pace, and as a few minutes passed, she had virtually all of my cock deep in her mouth and even penetrating her throat briefly each time her head bounced down. Her eyes were almost closed, more like she was wincing, and she seemed determined to get all of my penis into her mouth eventually. She had only one finger almost (not quite) meeting her thumb around the very base of the cock, right above my balls, while her lips stretched around the shaft worked their way lower, lower, lower, closer to her finger and thumb each time. Report_Story #2 
+ "Fuck baby yeah," I groaned instinctively watching my cock disappear into her mouth. Her jaw really had to open wide; she moaned, more from the surprise of knowing a cock could be this thick. Candice slurped on my penis, making loud suckling noises, her head and pulled-back hair bobbing up and down on my in slow, intense rhythms. I rotated my ass slowly meeting her pace, and as a few minutes passed, she had virtually all of my cock deep in her mouth and even penetrating her throat briefly each time her head bounced down. Her eyes were almost closed, more like she was wincing, and she seemed determined to get all of my penis into her mouth eventually. She had only one finger almost (not quite) meeting her thumb around the very base of the cock, right above my balls, while her lips stretched around the shaft worked their way lower, lower, lower, closer to her finger and thumb each time.  
 
  
 
@@ -270,7 +270,7 @@
 
  With her legs still spread open, her twin cunt-and-ass orifices glowed ruby red. My one hand remained covered in her lubrication from her orgasm, so I stuck out one of those fingers and touched her butthole. Her eyelids half- closed, her body shivered, and she let out a soft girly "oooh!" She bit her lip and looked at me with a huge playful sneer, knowing what was next. Yup. I slipped that finger into her tight asshole and, man, her ass just sucked it in. 
 
- I leaned forward, putting an elbow on her tummy, bending my other hand back to her pussy. I stuck out my thumb and began softly rubbing her clit and the petals around it, while slowly digging my finger into her anus. Candice squirmed, purring for me, even grinning, feeling me filling her butt. Her clit must have been aching because she pushed it up into my thumb, trying to grind on it. I was licking her cum on my lips while I watched my thumb masteurbate her. As I twirled my thumb faster around her clit, rubbing harder, she closed her eyes and started moving her hips more and more rapidly in circles. Her breaths again got shorter, she was exhaling audibly with "uhh -- uhh -- uhh" noises. I could tell another orgasm approached. Report_Story #3 
+ I leaned forward, putting an elbow on her tummy, bending my other hand back to her pussy. I stuck out my thumb and began softly rubbing her clit and the petals around it, while slowly digging my finger into her anus. Candice squirmed, purring for me, even grinning, feeling me filling her butt. Her clit must have been aching because she pushed it up into my thumb, trying to grind on it. I was licking her cum on my lips while I watched my thumb masteurbate her. As I twirled my thumb faster around her clit, rubbing harder, she closed her eyes and started moving her hips more and more rapidly in circles. Her breaths again got shorter, she was exhaling audibly with "uhh -- uhh -- uhh" noises. I could tell another orgasm approached.  
 
  
 
@@ -376,7 +376,7 @@
 
  As I watched her step into her pants -- hiding that divine teenage cunt and ass for the time being -- I giggled at her formality. "Now that we're fucking each other," I bemused, again inferring this would be an ongoing endeavor, "you can call me Jack, Candice." 
 
- The big-titted topless teen winked at me. "Ok JACK," she said with myrth, "and you can call me ... well ... you can just call me any time." Report_Story #4 
+ The big-titted topless teen winked at me. "Ok JACK," she said with myrth, "and you can call me ... well ... you can just call me any time."  
 
  
 

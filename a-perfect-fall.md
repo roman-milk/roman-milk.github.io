@@ -216,7 +216,7 @@
 
  "It's OK sugar, you can be yourself around me." Amy looks at her watch and says, "Oh shit, my next client is in 20 minutes and I need to shower so I don't smell like I just got fucked. Let yourself out sweetie." 
 
- I left and spent the rest of the day in a stunned haze. I masturbated twice that day and that night I threw Martin on the bed and sucked his cock and then rode him like a cowboy on a buckinghorse. After awhile, I jumped off and took it back in my mouth tasting my own juices for the first time ever. I sucked it with feverous abandon until he shot a hot load of semen down my throat. Not unpleasant at all, I continued to bob up and down until his cock became limp in my mouth. I then, in my first dominant moment in the bedroom ever, demanded he eat me out. After a great orgasm, I slipped into a blissful slumber. Report_Story #2 
+ I left and spent the rest of the day in a stunned haze. I masturbated twice that day and that night I threw Martin on the bed and sucked his cock and then rode him like a cowboy on a buckinghorse. After awhile, I jumped off and took it back in my mouth tasting my own juices for the first time ever. I sucked it with feverous abandon until he shot a hot load of semen down my throat. Not unpleasant at all, I continued to bob up and down until his cock became limp in my mouth. I then, in my first dominant moment in the bedroom ever, demanded he eat me out. After a great orgasm, I slipped into a blissful slumber.  
 
  
 
@@ -354,7 +354,7 @@
 
  Derek laughed and said, "There are 5 cameras in this room taping all this." 
 
- I shook my head, "Figures. OK here it goes. Mistress Amy, please allow me to be your whore. I want to do everything for you. I want to eat your pussy,please your man whenever he wishes, I want to give you my daughter as a gift. I want to eat your pussy and any pussy you want me to until I am the best cunt muncher you have ever had. I am a rich white whore whose only purpose in life for now on is to service black pussy and cock. I want to swallow black cum, I want to savoir black pussy, and I want to feel a cock in my ass and please allow me to eat out my daughter. I want to be more than just another slut for you. I want to be more than Karen is to you. I want to be your dirtiest slut, your kinkiest whore, your most obiedant slave." Report_Story #3 
+ I shook my head, "Figures. OK here it goes. Mistress Amy, please allow me to be your whore. I want to do everything for you. I want to eat your pussy,please your man whenever he wishes, I want to give you my daughter as a gift. I want to eat your pussy and any pussy you want me to until I am the best cunt muncher you have ever had. I am a rich white whore whose only purpose in life for now on is to service black pussy and cock. I want to swallow black cum, I want to savoir black pussy, and I want to feel a cock in my ass and please allow me to eat out my daughter. I want to be more than just another slut for you. I want to be more than Karen is to you. I want to be your dirtiest slut, your kinkiest whore, your most obiedant slave."  
 
  
 
@@ -444,7 +444,7 @@
 
  Lauren let out a small chuckle, "I have also become addicted to eating pussy, and Jill, Carla and Brittany have been using me as their personal pussy pleaser every day since. " 
 
- "Well enough fucking storytime," Karen declared, "I have to fuck my friend's ass. Jessica bend over the stool there. " I obeyed. Karen continued, "I am going to love this. Is the tape ready Jill?" Jill replied of course and then Karen yanked off my skirt and after a little gentle insertion to get me lubed, she plunged her strap-on in my ass. Did I enjoy it at first, not really, but as the strokes continued the original pain subsided and a strange pleasure replaced it. I began to meet her strokes and the whole plastic cock disappeared in my ass. The show went on for 15 minutes or so and the next couple hours blurred in lesbian debauchery. I ate out Heidi, I fucked Jill, Lauren and I 69'd and Heidi's mom finished the night by fisting me until I passed out. I eventually staggered home tired and sore, knowing that tomorrow was even going to be crazier. Report_Story #1 
+ "Well enough fucking storytime," Karen declared, "I have to fuck my friend's ass. Jessica bend over the stool there. " I obeyed. Karen continued, "I am going to love this. Is the tape ready Jill?" Jill replied of course and then Karen yanked off my skirt and after a little gentle insertion to get me lubed, she plunged her strap-on in my ass. Did I enjoy it at first, not really, but as the strokes continued the original pain subsided and a strange pleasure replaced it. I began to meet her strokes and the whole plastic cock disappeared in my ass. The show went on for 15 minutes or so and the next couple hours blurred in lesbian debauchery. I ate out Heidi, I fucked Jill, Lauren and I 69'd and Heidi's mom finished the night by fisting me until I passed out. I eventually staggered home tired and sore, knowing that tomorrow was even going to be crazier.  
 
  
 
@@ -622,7 +622,7 @@
 
  Tears filled her eyes as she walked over to her daughter and buried her tongue in her daughter's just fucked ass. The camcorder taped the incestual situation as Zelda then got onto her back, grabbed her mother and shoved her mother's face into her pussy. Zelda was a dirty little bitch who verbally abused her mother, "Oh yes mommy slut, suck my cunt. Mistress is taping this and you are now her slave too. You have eaten cunt before haven't you mommy, finger me mommy. I am going to be using you every night mommy. Oh mommy, you are making your baby so wet, my cunt is wet from your lesbo tongue mommy. Make me cum. Yes...." 
 
- Amy, now in charge, said, "Well welcome guests. Betting will begin on round 3 asap. Third round is who can resist an orgasm for the longest. After two rounds the score is Becky 9, Ashley 6, Abby 6, Jessica 6 and Zelda 3. Sluts lie down and spread em." Report_Story #2 
+ Amy, now in charge, said, "Well welcome guests. Betting will begin on round 3 asap. Third round is who can resist an orgasm for the longest. After two rounds the score is Becky 9, Ashley 6, Abby 6, Jessica 6 and Zelda 3. Sluts lie down and spread em."  
 
  
 

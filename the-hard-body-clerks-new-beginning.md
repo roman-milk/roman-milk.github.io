@@ -142,7 +142,7 @@
 
  Roy was picking up the pace now, reaching around to grab Cori's tits as he drove his cock into the depths of her pussy time and time again. He was surprised he was lasting this long, but he wasn't complaining. Every second was pure pleasure. He didn't want it to end, but when it did, he pulled out and shot his wad straight up in the air, most of it landing on the underside of Cori's tits and on her belly. 
 
- "Didn't want you to have to have sloppy seconds," Roy said to Jake, "and I couldn't hold back long enough to make her suck it." Report_Story #2 
+ "Didn't want you to have to have sloppy seconds," Roy said to Jake, "and I couldn't hold back long enough to make her suck it."  
 
  
 
@@ -334,7 +334,7 @@
 
  "I understand," Cori said, biting her lip. "It's a fair offer. I just don't know." 
 
- "Well, decide quick," the deputy said. "The motel is right over there. My house is about a five miles on down the road. Either way, it's time to make a choice." Report_Story #3 
+ "Well, decide quick," the deputy said. "The motel is right over there. My house is about a five miles on down the road. Either way, it's time to make a choice."  
 
  
 
@@ -414,7 +414,7 @@
 
  "You may wash up now," the old man said as they prepared to land. "You should look nice for your step-father. I hope he gets better. Here's my card. If you ever need a ride, please don't hesitate to call me. Unlike my cock, my rates don't go up." 
 
- "Thank you, sir," Cori said. "You and your nephew saved me. I can't thank you enough." Report_Story #1 
+ "Thank you, sir," Cori said. "You and your nephew saved me. I can't thank you enough."  
 
  
 
@@ -588,7 +588,7 @@
 
  When she was done, she put down an old sheet and placed the wheelchair on it. She started with the hair in the back and he was surprised to find even the touch of her hands on his head arousing. A few times, her heavy tits brushed against the back of his neck and he felt her hardened nipples poking against him. He held his hands in his lap, covering his erection, which sprang to life when she came around to the side and one big boob filled his vision while she trimmed around his ears. Moments later, he could see nothing but terry cloth and cleavage as she stood in front of him, both round mammaries bobbling just inches from his eyes. He smiled to himself at the thought of having his eyes poked out by those pointy nipples. 
 
- While Norm was enjoying the show, Cori was oblivious to what she was doing to him. She had displayed her body so openly for so long, she had long ago lost her modesty. It didn't occur to her that her tits were in his face or that she might be exposing too much to him. She was aware of those types of things when she was trying to tease the guys where she worked -- she'd bend over certain ways, walk a certain way, etc. and she knew how to push their buttons. But she was doing none of that here -- at least not intentionally. Report_Story #2 
+ While Norm was enjoying the show, Cori was oblivious to what she was doing to him. She had displayed her body so openly for so long, she had long ago lost her modesty. It didn't occur to her that her tits were in his face or that she might be exposing too much to him. She was aware of those types of things when she was trying to tease the guys where she worked -- she'd bend over certain ways, walk a certain way, etc. and she knew how to push their buttons. But she was doing none of that here -- at least not intentionally.  
 
  
 
@@ -692,7 +692,7 @@
 
  Cori was exhausted and went right to bed. She didn't bother to try to find anything to sleep in -- she simply shucked off her clothes and climbed nude under the covers. She thought about her step-dad. She worried about his health and his finances. She felt sad for him and wondered how long it had been since he'd had sex. He'd certainly been aroused by her earlier. She'd have to be more careful. He said she could wear what she wanted, but maybe it would be better if she stuck to her original plan to be less exposed. It was clear now that she was going to be here and she wanted to make sure things didn't get awkward. He was a sweet man who didn't deserve any undue stress. 
 
- For his part, Norm was feeling anything but stressed. Cori's arrival had given him a new lease on life, at least for one day. She had jacked him off and man, did she look good doing it. He couldn't wait to see her again. He didn't dare to imagine further sexual encounters with her, but just found himself looking forward to tomorrow for the first time in a long time. In his sleep, his inhibitions faded and he dreamt about various sexual couplings with his gorgeous step-daughter. Report_Story #1 
+ For his part, Norm was feeling anything but stressed. Cori's arrival had given him a new lease on life, at least for one day. She had jacked him off and man, did she look good doing it. He couldn't wait to see her again. He didn't dare to imagine further sexual encounters with her, but just found himself looking forward to tomorrow for the first time in a long time. In his sleep, his inhibitions faded and he dreamt about various sexual couplings with his gorgeous step-daughter.  
 
  
 
@@ -846,7 +846,7 @@
 
  He couldn't wait any longer, poking his index finger into her, finding her to be even warmer and wetter than expected. Her pussy welcomed his finger, squeezing tight around it while at the same time seeming to pull it further into her. This was just too good for only one finger to enjoy, so Norm added his middle and ring fingers to the party, pushing them all the way inside her, then spreading them out, exploring her thoroughly. She moaned a little and he looked up to see his step-daughter with her head back, her lips parted, her nostrils flaring slightly. Impossibly, her nipples were longer and harder than before. She's getting off on this, he thought. 
 
- Rather than risk her feeling guilty or changing her mind, Norm remained quiet, simply focusing on the task at hand, which, in this case, was finger-fucking her until she came. Man, how he wanted to see her cum. He continued rubbing and penetrating her pussy, feeling the temperature rise and the watching the fluids begin to ooze out of her. She started lifting her hips a bit, humping up and down, urging him to finger-bang her. He realized there was no reason to stop at three fingers now, so he added a fourth. When she just moaned and squealed instead of protesting, he decided to go all the way. Report_Story #2 
+ Rather than risk her feeling guilty or changing her mind, Norm remained quiet, simply focusing on the task at hand, which, in this case, was finger-fucking her until she came. Man, how he wanted to see her cum. He continued rubbing and penetrating her pussy, feeling the temperature rise and the watching the fluids begin to ooze out of her. She started lifting her hips a bit, humping up and down, urging him to finger-bang her. He realized there was no reason to stop at three fingers now, so he added a fourth. When she just moaned and squealed instead of protesting, he decided to go all the way.  
 
  
 
@@ -956,7 +956,7 @@
 
  Cori helped Norm into his wheelchair. She offered to push, but Norm didn't want to miss the show, so he said he'd control it with the motor instead. Riding along just behind her, Norm had an eye-level view of her ass as well as a great vantage point to watch people's reaction to her. Pretty girls dressed in revealing attire wasn't new here, so few did more than glance initially. But it was the second, long, leering looks that told Norm he had achieved the desired effect. They were noticing that Cori was more than just pretty. She was stunning. They were noticing that she had more than nice breasts, they were perfectly shaped and her nipples were sticking up and out as if straining to be freed from their constraints. They were noticing that her sweater was more than sweater and that her ass was hanging out the back. They were noticing that her legs were long, tan and slender. 
 
- They were noticing that, among all the hot girls around, Cori was simply a little bit hotter. And, he was sure, they were noticing that she was accompanied by a man three times her age. They no doubt assumed the truth which was that he was her father -- or step-father -- so Norm decided he needed to make it clear that this relationship was very sexual. As they passed by other guys, he would make eye contact and point to her ass and give a thumbs up sign. Or he'd point to her and then his groin and nod with a big grin on his face. Most of the guys just smiled back, nodding, not sure what to think. Some raised their eyebrows with questioning looks as if to say, "Really? You and her?" Norm loved it! Report_Story #3 
+ They were noticing that, among all the hot girls around, Cori was simply a little bit hotter. And, he was sure, they were noticing that she was accompanied by a man three times her age. They no doubt assumed the truth which was that he was her father -- or step-father -- so Norm decided he needed to make it clear that this relationship was very sexual. As they passed by other guys, he would make eye contact and point to her ass and give a thumbs up sign. Or he'd point to her and then his groin and nod with a big grin on his face. Most of the guys just smiled back, nodding, not sure what to think. Some raised their eyebrows with questioning looks as if to say, "Really? You and her?" Norm loved it!  
 
  
 
@@ -1016,7 +1016,7 @@
 
  As soon as he was in his seat, Cori pulled her top up and hurried around to the driver's side, ignoring but not offended by the catcalls that followed. Amazingly, she had kept the lollipop in her mouth the entire time and was still sucking away as they pulled out of the lot. 
 
- As excited as he was by the whole turn of events, Norm was also touched by Cori's pure heart. She had no hidden agenda. She had no false pride. She wanted only to take care of him and make him happy. She was sweet and he should feel guilty about taking advantage of her. Oddly, though, he didn't. All his life Norm had been a good guy. He'd done the right things, been fair, honest and law-abiding. He was a good friend and good citizen. He'd never treated women with anything but respect. And he respected Cori as much as any person he had ever met. So why was he doing this? Because he could? Because he felt like he deserved it? Because it just felt so damn good to be bad for once? He didn't know, but he glanced at Cori's bare thigh, pictured her again covered in baby oil and any doubts went out the window. He was going to fuck her tonight. And tomorrow. And the next day. And he wasn't going to feel the least bit guilty about it. Report_Story #1 
+ As excited as he was by the whole turn of events, Norm was also touched by Cori's pure heart. She had no hidden agenda. She had no false pride. She wanted only to take care of him and make him happy. She was sweet and he should feel guilty about taking advantage of her. Oddly, though, he didn't. All his life Norm had been a good guy. He'd done the right things, been fair, honest and law-abiding. He was a good friend and good citizen. He'd never treated women with anything but respect. And he respected Cori as much as any person he had ever met. So why was he doing this? Because he could? Because he felt like he deserved it? Because it just felt so damn good to be bad for once? He didn't know, but he glanced at Cori's bare thigh, pictured her again covered in baby oil and any doubts went out the window. He was going to fuck her tonight. And tomorrow. And the next day. And he wasn't going to feel the least bit guilty about it.  
 
  
 
@@ -1170,7 +1170,7 @@
 
  The second ball soon bounced out on the ottoman next to the first and all that remained was the largest ball. Norm watched intently as it lodged between her pussy lips, then squeezed through amid a small spray of cunt cream. Damn, she's soaking wet, Norm thought, happy to see that a little kinky foreplay and exhibitionism seemed to suit his step-daughter's sexual urges just fine. He wondered just how far she had been before. How kinky had she gotten? How much did she like? Did she have a limit? If so, what was it? He thought it would be awful fun to find out. Whether or not he'd be so cruel as to push her past that limit or not, he didn't know. He'd make that decision if and when the time came. 
 
- Cori followed directions well and picked up all three balls. She moved them quickly toward her mouth, but not before a few more precious drops of pussy juice fell on to the ottoman. She stuck the large one in her mouth first. It was still warm from simmering in her pussy for the past 10 minutes and the juices oozed over her tongue and down her throat. It was far from the first time Cori had tasted her own pussy. She neither liked nor disliked the taste. But it was always exciting, both to her and to the guy watching. That's what made it fun to do. She spit out the large ball and replaced it with the two smaller balls, fitting both in her mouth at the same time, each one filling a cheek. Norm could help but picture a cock down her throat and two testicles stuffed inside her cheeks. Report_Story #2 
+ Cori followed directions well and picked up all three balls. She moved them quickly toward her mouth, but not before a few more precious drops of pussy juice fell on to the ottoman. She stuck the large one in her mouth first. It was still warm from simmering in her pussy for the past 10 minutes and the juices oozed over her tongue and down her throat. It was far from the first time Cori had tasted her own pussy. She neither liked nor disliked the taste. But it was always exciting, both to her and to the guy watching. That's what made it fun to do. She spit out the large ball and replaced it with the two smaller balls, fitting both in her mouth at the same time, each one filling a cheek. Norm could help but picture a cock down her throat and two testicles stuffed inside her cheeks.  
 
  
 
@@ -1230,7 +1230,7 @@
 
  "I'll tell you in the morning," Norm said. "Now, as much as I know you want more of this," he nodded toward his cock, "I'm a sick man and I need my rest. Thanks to you, I don't have to clean up. But you go ahead and clean up, but you're sleeping here. Nude." 
 
- "All right," Cori said. A few minutes later, she kicked off her shoes and curled up next to him under the thin sheet, her breasts pressed against his side. She fell asleep almost instantly and Norm chuckled to himself. Rode hard and put away wet, he thought. My little bitch is going to sleep good tonight. Report_Story #1 
+ "All right," Cori said. A few minutes later, she kicked off her shoes and curled up next to him under the thin sheet, her breasts pressed against his side. She fell asleep almost instantly and Norm chuckled to himself. Rode hard and put away wet, he thought. My little bitch is going to sleep good tonight.  
 
  
 
@@ -1340,7 +1340,7 @@
 
  Unlike last night when she had been exhausted, this time Cori was invigorated by her good night's sleep and sexy start to the day. She jumped out of bed. "That was great! Now, what are we going to do today, Pap?" 
 
- "I'm glad you're so energetic," Norm said. "We need to do some housework and run some errands. Go take your shower and I'll find something good for you to wear." Report_Story #1 
+ "I'm glad you're so energetic," Norm said. "We need to do some housework and run some errands. Go take your shower and I'll find something good for you to wear."  
 
  
 
@@ -1492,7 +1492,7 @@
 
  "Hey," Cori snapped, spinning quickly and slapping the hand on her pussy away. Despite the groping hands, Cori was very fit, her long legs were lean and toned, but also strong. She kicked quickly at the guy tugging on her g-string, digging her heel into his gut and pushing him back. She felt an arm grab her around the waist and yank her back. She started to yell, but was relieved when she landed squarely on Norm's lap. He had grabbed her with his left arm and pulled her away from the horny throng and into his lap. Still, they were surrounded. 
 
- She had landed on Norm facing toward him and away from the crowd, and to keep her weight off him, she had spread her legs out to rest on the arm rests. This caused her g-string to dig into her ass and pussy even deeper as the position forced her to stick her butt up and out. As short as her skirt was, she was now basically showing off her asshole and pussy to the world, and more than one brave hand reached in to dip in a finger as they slowly picked up speed and moved through the crowd. Report_Story #2 
+ She had landed on Norm facing toward him and away from the crowd, and to keep her weight off him, she had spread her legs out to rest on the arm rests. This caused her g-string to dig into her ass and pussy even deeper as the position forced her to stick her butt up and out. As short as her skirt was, she was now basically showing off her asshole and pussy to the world, and more than one brave hand reached in to dip in a finger as they slowly picked up speed and moved through the crowd.  
 
  
 
@@ -1672,7 +1672,7 @@
 
  "No harm in a couple pictures," Norm chuckled. "What did you have in mind?" 
 
- "One with just us standing together," Ricky said, thinking quickly, staring at Cori as he pictured the images. "One of her kissing me. One of her bending over in front of me, flipping up her skirt. One of me holding her tits. One of my with my fingers in her pussy. And one with my cock in front of her face like she's getting ready to suck it." Report_Story #3 
+ "One with just us standing together," Ricky said, thinking quickly, staring at Cori as he pictured the images. "One of her kissing me. One of her bending over in front of me, flipping up her skirt. One of me holding her tits. One of my with my fingers in her pussy. And one with my cock in front of her face like she's getting ready to suck it."  
 
  
 
@@ -1794,7 +1794,7 @@
 
  'Thanks," Ricky said. "Will she be there, too?" 
 
- Norm just looked at Cori and shrugged, "You never know." But already, the ideas for how to make the restaurant a success again were percolating in his head. Report_Story #1 
+ Norm just looked at Cori and shrugged, "You never know." But already, the ideas for how to make the restaurant a success again were percolating in his head.  
 
  
 
@@ -1926,7 +1926,7 @@
 
  It was this kernel of information that sparked Norm's idea. He wanted to show Cori off. He wanted a new deck. When he told Crisp about his step-daughter and made his proposal, Crisp had been skeptical. Despite his love and appreciation for good pussy, he wasn't one to mix business with pleasure and he wasn't one to do jobs for free. Still, his imagination had been piqued by Norm's idea and he decided it was worth a shot. 
 
- "Hey Norm," Crisp said, extending his hand. Norm shrugged, indicating he couldn't use his right hand but extended his left. He thought Crisp probably let up, but it still felt like his hand was being crushed by the powerful man. "Good to see you again. Ed told me about your stroke. You doin' all right?" Report_Story #2 
+ "Hey Norm," Crisp said, extending his hand. Norm shrugged, indicating he couldn't use his right hand but extended his left. He thought Crisp probably let up, but it still felt like his hand was being crushed by the powerful man. "Good to see you again. Ed told me about your stroke. You doin' all right?"  
 
  
 
@@ -2088,7 +2088,7 @@
 
  "Really?" Cruz said. "I usually like to let the bitches do the eating, if you know what I'm saying. But if you say so, let's see." He tore off piece of bread from his sandwich and dipped it between her pussy lips, letting the bread soak up her juices. Then he popped it in his mouth. "Mmm," he nodded. "That's fucking sweet! Tastes like candy. I've never tasted a pussy that good before." 
 
- "What the fuck are you talking about?" Waters said. "You never eat pussy anyway. Now me, I love to chew on a good snatch. Gets them so fucking hot, they fuck you twice as good. Let me be the judge of how this bitch tastes." Report_Story #3 
+ "What the fuck are you talking about?" Waters said. "You never eat pussy anyway. Now me, I love to chew on a good snatch. Gets them so fucking hot, they fuck you twice as good. Let me be the judge of how this bitch tastes."  
 
  
 
@@ -2252,11 +2252,11 @@
 
  Cori kicked off her shoes and, with all eyes on her, did a perfect dive into the pool. She kicked to the surface and looked back at her crowd, pushing her hair out her eyes. They applauded and went back to work while she rubbed her hands over her body, helping the cool water wash away the several layers of cum and lotion that coated her skin. She felt the gentle waves pushing and pulling on her rings and pins. In all the excitement – she went from waking up to sucking cock and catching cum in what seemed like a matter of minutes – she hadn't really thought about how much she was being stimulated. Now, however, she was certainly noticing. The cool water combined with the rings and pins to make her nipples achingly hard. And every swish of the water flowed across her exposed clit, which was signaling her that it was definitely ready for some attention. 
 
- The guys at the shop had put her in a few situations like this before – she remembered a cookout at John's that had resulted in her being shared and enjoyed by many of John's neighbors. But these types of events had been few and far between. Usually it was public displays and one-on-one fucking. That's what she usually preferred. It allowed her to feel like a real girlfriend instead of a slut. It allowed her to have a close relationship with the men in her life. Group things took away from that and she generally would prefer to avoid them. So, it was odd to her that she found herself really looking forward to the rest of the evening. She didn't know if it was being so overwhelmed by Norm's thoughtfulness and generosity, the impressive group of guys and their hard cocks or the constant exposure and stimulation of her body, but whatever it was, she was ready. Report_Story #4 
+ The guys at the shop had put her in a few situations like this before – she remembered a cookout at John's that had resulted in her being shared and enjoyed by many of John's neighbors. But these types of events had been few and far between. Usually it was public displays and one-on-one fucking. That's what she usually preferred. It allowed her to feel like a real girlfriend instead of a slut. It allowed her to have a close relationship with the men in her life. Group things took away from that and she generally would prefer to avoid them. So, it was odd to her that she found herself really looking forward to the rest of the evening. She didn't know if it was being so overwhelmed by Norm's thoughtfulness and generosity, the impressive group of guys and their hard cocks or the constant exposure and stimulation of her body, but whatever it was, she was ready.  
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 07 ****** bydlsloan© She got out of the pool and Norm ushered her inside. "Now that you're not disgusting," he said, "take a shower and really clean up. I'll pick out a good outfit for you to entertain our guests in." Report_Story #1 
+ ****** The Hard Body Clerk's New Beginning Ch. 07 ****** bydlsloan© She got out of the pool and Norm ushered her inside. "Now that you're not disgusting," he said, "take a shower and really clean up. I'll pick out a good outfit for you to entertain our guests in."  
 
  
 
@@ -2384,7 +2384,7 @@
 
  Crisp pushed the step aside and pushed Cori forward over the edge of the bench so that her tits hung freely over the other side. "Bring me that cushion or we're going to rub the skin right off her," Crisp said, pointing to one of the cushions on the outdoor chairs. Cruz brought it over and they laid it under Cori's belly, protecting her soft skin from the wood. 
 
- Cho's ingenious design included several movable pieces of wood, one of which was a large, round pillar rising about four inches above the bench near one end. Crisp lifted Cori's legs and instructed Cruz to put the pillar under her hips. "Slide it up against the bench," he instructed. When Crisp let Cori's legs down, he spread them wide over the sides of the pillar, letting her feet dangle. Her ass and pussy were now sticking straight up in the air, her torso angled downward, laying across the bench. Cori started to slide forward, so Crisp and Sanders secured her ankles to two of the pegs with bungee cords, snapping the clips at the end of the cords around the heels of her stilettos. The cords would allow her enough movement to be pushed back and forth while being fucked and preventing her from sliding forward over the bench. Report_Story #2 
+ Cho's ingenious design included several movable pieces of wood, one of which was a large, round pillar rising about four inches above the bench near one end. Crisp lifted Cori's legs and instructed Cruz to put the pillar under her hips. "Slide it up against the bench," he instructed. When Crisp let Cori's legs down, he spread them wide over the sides of the pillar, letting her feet dangle. Her ass and pussy were now sticking straight up in the air, her torso angled downward, laying across the bench. Cori started to slide forward, so Crisp and Sanders secured her ankles to two of the pegs with bungee cords, snapping the clips at the end of the cords around the heels of her stilettos. The cords would allow her enough movement to be pushed back and forth while being fucked and preventing her from sliding forward over the bench.  
 
  
 
@@ -2546,7 +2546,7 @@
 
  "Feels great so far," Norm said. 
 
- "Somebody stick her tit in his mouth," Crisp said. Sanders followed orders, grabbing Cori's right breast, squeezing it as he pushed her torso forward. Norm opened his mouth and sucked on her nipple, catching the ring in his tongue and pulling on it. He nibbled on her tit and buried his face between her firm breasts. Report_Story #3 
+ "Somebody stick her tit in his mouth," Crisp said. Sanders followed orders, grabbing Cori's right breast, squeezing it as he pushed her torso forward. Norm opened his mouth and sucked on her nipple, catching the ring in his tongue and pulling on it. He nibbled on her tit and buried his face between her firm breasts.  
 
  
 
@@ -2562,7 +2562,7 @@
 
  "Sweet dreams, old man," Crisp said, giving Cori's bare ass a final slap. "Sleep fast, because I think you're going to like that view when you wake up." 
 
- Crisp and his crew left and Norm and Cori fell asleep almost instantly, her laying on top of him, her still-hard nipples press against his chest. Norm had sweet dreams all right, but nothing that compared to the reality of this day. Report_Story #1 
+ Crisp and his crew left and Norm and Cori fell asleep almost instantly, her laying on top of him, her still-hard nipples press against his chest. Norm had sweet dreams all right, but nothing that compared to the reality of this day.  
 
  
 
@@ -2676,7 +2676,7 @@
 
  "These guys all talk on their radios all the time," Cori said, thinking out loud. "The first thing we have to do is win back the truckers. They're your core demographic. And the best way to get them is by word of mouth. We need to create an experience they really enjoy and want to tell their buddies about. From the prices on the menu, I think we're already offering pretty good value. That's obviously not enough." 
 
- Cori knew the simple, quick answer for how to draw guys in was, of course, pretty women. The problem was, she didn't want to do that -- for a number of reasons. One, she wasn't going to be here long enough to do something like she did at the Body Shop -- she could draw them in for a few days, but once she was gone, the customers would be too. Two, she didn't want to give Norm the satisfaction of seeing her dress and act like a slut again -- in his mind at least that would be validation that he was right about her. Report_Story #2 
+ Cori knew the simple, quick answer for how to draw guys in was, of course, pretty women. The problem was, she didn't want to do that -- for a number of reasons. One, she wasn't going to be here long enough to do something like she did at the Body Shop -- she could draw them in for a few days, but once she was gone, the customers would be too. Two, she didn't want to give Norm the satisfaction of seeing her dress and act like a slut again -- in his mind at least that would be validation that he was right about her.  
 
  
 
@@ -2760,7 +2760,7 @@
 
  As she lay back and tried to go back to sleep, Cori reflected on how much she was changing. It wasn't just because she could have an orgasm without a man's touch, but because she was acting and thinking differently, more clearly, more confidently, Cori realized that she was becoming more independent. She found herself wanting to be bolder, to try new things, to see what she could really do, not only with her body, but with her mind as well. Any man who didn't respect her mind would be cast aside, much like Norm. Any man who realized that she was more than T and A would be the recipient of all the amazing gifts she had to offer. 
 
- Suddenly, she felt like she had millions of options. She had assumed she'd go back to Georgia when she left her. Obviously, she missed her boys very much and would be happy to be back there. But part of her wanted to see what else was out there. What else could she do? She thought about going back to school. Or what about getting an office job, maybe with an advertising firm? Or what about starting her own business? Maybe a restaurant or a clothing store? Her mind was still racing when the sun came up. She got out bed, ready to tackle the day, focused on getting the job done over these next few days and then getting on with her life. Report_Story #1 
+ Suddenly, she felt like she had millions of options. She had assumed she'd go back to Georgia when she left her. Obviously, she missed her boys very much and would be happy to be back there. But part of her wanted to see what else was out there. What else could she do? She thought about going back to school. Or what about getting an office job, maybe with an advertising firm? Or what about starting her own business? Maybe a restaurant or a clothing store? Her mind was still racing when the sun came up. She got out bed, ready to tackle the day, focused on getting the job done over these next few days and then getting on with her life.  
 
  
 
@@ -2910,7 +2910,7 @@
 
  "I don't care if you believe me or not," Tony said. 
 
- "Well, hell, I believe you," another guy said. "If you can get a bitch this hot to dress like that and deep throat you in public, I'm willing to believe about anything you say." Report_Story #2 
+ "Well, hell, I believe you," another guy said. "If you can get a bitch this hot to dress like that and deep throat you in public, I'm willing to believe about anything you say."  
 
  
 
@@ -3082,7 +3082,7 @@
 
  "Hold on," Tony laughed, "I was kinda counting on you keeping that 'do anything to please' attitude for at least the rest of the night." 
 
- "Don't worry," Cori laughed. "This has been the best night I've had in a long time. I'm not going anywhere and you're still running the show." Report_Story #3 
+ "Don't worry," Cori laughed. "This has been the best night I've had in a long time. I'm not going anywhere and you're still running the show."  
 
  
 
@@ -3104,7 +3104,7 @@
 
  "I don't know," Cori frowned. "I mean, with being selfish and all, I guess you'll just have to do it out of the goodness of your heart. Of course, I suppose I could start being selfish after I leave town..." 
 
- Tony pulled the top of her dress down and squeezed her breasts. "Yes, after you leave town, please." Report_Story #1 
+ Tony pulled the top of her dress down and squeezed her breasts. "Yes, after you leave town, please."  
 
  
 
@@ -3252,7 +3252,7 @@
 
  "I love 'em!" Amber exclaimed, "but they're so expensive." 
 
- "Price isn't an option today, ladies," Cori interjected. "If we want to present our restaurant as a first-class place with first-class atmosphere, you need to dress first-class. We want to look hot and sexy and a little slutty, but not cheap. Those shoes are amazing on you with your legs. Get at least two pair - - and if they have multi colors, get all you can." Report_Story #2 
+ "Price isn't an option today, ladies," Cori interjected. "If we want to present our restaurant as a first-class place with first-class atmosphere, you need to dress first-class. We want to look hot and sexy and a little slutty, but not cheap. Those shoes are amazing on you with your legs. Get at least two pair - - and if they have multi colors, get all you can."  
 
  
 

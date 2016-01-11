@@ -126,7 +126,7 @@
 
  Henry checked his watch. Janice should be in the motel room by now and he couldn't wait to get off work and get to her. It had been almost a week since they had last gotten together and Henry was getting eager. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

@@ -186,7 +186,7 @@
 
  A woman's voice cooed wordlessly in agreement. Then there were fingers touching her, lips and tongue caressing her sticky flesh and a smooth, feminine face moving into her raw, tender vulva. Her head pivoted as she slipped beneath Claire. She slurped noisily at Claire's distended lips. Claire groaned. 
 
- Trying to grab a fistful of Claire's hair to pull her head back, the man behind her accidentally yanked her wig off. She grabbed it and rose up on her knees to pull it back on. The woman sucking hungrily at her pussy sputtered as Claire felt the viscous slime within her flow out to fill the woman's upturned mouth. Report_Story #2 
+ Trying to grab a fistful of Claire's hair to pull her head back, the man behind her accidentally yanked her wig off. She grabbed it and rose up on her knees to pull it back on. The woman sucking hungrily at her pussy sputtered as Claire felt the viscous slime within her flow out to fill the woman's upturned mouth.  
 
  
 

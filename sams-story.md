@@ -32,7 +32,7 @@
 
  She was silent for a moment and then she said, "I don't honestly know. I love you and I hope you believe that, but I love Ron's cock too and he can have me any time he wants me and if it means I have to fuck all his buddies to get him to give it to me I will." 
 
- So now I have a decision to make. Can I live with the fact that the woman I love is a slut for another man - an asshole with a big cock - who can make her fuck whoever and however many he wants? Or do I say goodbye to twenty years of marriage and the only woman I have ever loved? Report_Story #1 
+ So now I have a decision to make. Can I live with the fact that the woman I love is a slut for another man - an asshole with a big cock - who can make her fuck whoever and however many he wants? Or do I say goodbye to twenty years of marriage and the only woman I have ever loved?  
 
  
 
@@ -238,7 +238,7 @@
 
  "He won't. He thinks everything that happened is my fault." 
 
- "That wasn't my question Sam. He's a man and you are a good piece of ass. If he comes back to town and needs to get laid while he is here he will call you and you know it. When he waves his big cock at you and says, "Come here Sam" are you going to turn and run away from him?" Report_Story #2 
+ "That wasn't my question Sam. He's a man and you are a good piece of ass. If he comes back to town and needs to get laid while he is here he will call you and you know it. When he waves his big cock at you and says, "Come here Sam" are you going to turn and run away from him?"  
 
  
 

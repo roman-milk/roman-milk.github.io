@@ -192,7 +192,7 @@
 
  My eyes had adjusted to the darkness, as I opened the door, and slipped in, gently closing it, and slipped on my mask. I stood there for a minute. I was in the laundry room. I made my way into the kitchen, there were a few night lights scattered around, and that was just enough light to make my way around the house. 
 
- There was not a sound in the house as I explored each door, not only looking for her but exploring a way out in case I had to make a quick exit. I found a home office then a guest bedroom. Report_Story #2 
+ There was not a sound in the house as I explored each door, not only looking for her but exploring a way out in case I had to make a quick exit. I found a home office then a guest bedroom.  
 
  
 
@@ -460,7 +460,7 @@
 
  "Fuck the shit out of me baby, fuck your nasty fucking cum dump whore, I am nothing but a worthless piece of fuck meat for you to use." 
 
- That pushed me over the edge and I started to unload in her bowels, dumping load after hot load in her asshole. She immediately started cumming with me, both of us ramming into each other as wave after wave washed over us and we spent every last ounce of energy we had with that last orgasm. Report_Story #3 
+ That pushed me over the edge and I started to unload in her bowels, dumping load after hot load in her asshole. She immediately started cumming with me, both of us ramming into each other as wave after wave washed over us and we spent every last ounce of energy we had with that last orgasm.  
 
  
 
@@ -476,7 +476,7 @@
 
  I downloaded the video on my laptop, and emailed a copy to Lilly, with a note "Now you don't have to watch porno's of strangers my three holed slut." 
 
- I picked up my phone and sent a text to Lilly. "Well slut was it as good as you imagined?" Report_Story #1 
+ I picked up my phone and sent a text to Lilly. "Well slut was it as good as you imagined?"  
 
  
 
@@ -698,7 +698,7 @@
 
  Laughing as I kneel on the bed and pulled her face to my cock by her hair. "Open your mouth slut and suck it like the whore you are." 
 
- I grabbed the flogger in one hand and my thick cock in the other, rubbing my cock head against her face, smearing my precum on her lips. "Lick it first slut." Report_Story #2 
+ I grabbed the flogger in one hand and my thick cock in the other, rubbing my cock head against her face, smearing my precum on her lips. "Lick it first slut."  
 
  
 

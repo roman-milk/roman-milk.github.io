@@ -382,7 +382,7 @@
 
  "Yes, dammit," I admitted frustrated that ,she continued to be right. 
 
- "And you want to be a good pet," she continued, sliding a finger into her cunt. Report_Story #2 
+ "And you want to be a good pet," she continued, sliding a finger into her cunt.  
 
  
 
@@ -712,7 +712,7 @@
 
  The answer should have been yes. Because of one trivial act I had been forced to eat my son's girlfriend's cunt, filmed fucking myself with a cucumber, dominated by the principal, sodomized and then given as a sexual gift...yet the answer out of my mouth, as my cunt began to beg for attention yet again.. .was, "No, Mistress." 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -1064,7 +1064,7 @@
 
  I opened my legs, still amazed I was about to let someone other than my husband, particularly a woman, eat me. 
 
- Looking up at me, she leaned forward and clamped her mouth on my pussy. I couldn't explain it. I experienced pleasure overload. She looked directly into my eyes. My soul. And I felt an undeniable connection I had only ever felt with my husband. I just lost myself in the pleasure Kathryn was giving me. Her tongue was like a magic wand, as she pushed me to the brink of euphoria in seconds. "Oh God, oh God, fuck," I babbled, as her tongue seemed to be everywhere. Report_Story #2 
+ Looking up at me, she leaned forward and clamped her mouth on my pussy. I couldn't explain it. I experienced pleasure overload. She looked directly into my eyes. My soul. And I felt an undeniable connection I had only ever felt with my husband. I just lost myself in the pleasure Kathryn was giving me. Her tongue was like a magic wand, as she pushed me to the brink of euphoria in seconds. "Oh God, oh God, fuck," I babbled, as her tongue seemed to be everywhere.  
 
  
 

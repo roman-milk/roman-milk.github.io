@@ -196,7 +196,7 @@
 
  As soon as we were in the garage Trish was trying to open the door and was saying, "Hurry baby, hurry. I'm horny baby and I need it." Luckily the kids were staying the night with Trisha's folks so they wouldn't see their mother in the condition she was in. I helped her into the bedroom and as soon as we were there she pulled away from me and started taking off her clothes. When her panties hit the floor I saw that the crotch was soaking wet. That Trish could just drop them in front of me when they were in that condition and be so ready to make love to me while she was still leaking Tim's juices was just one more thing that led me to believe that she was still so out of it that she didn't know what was going on. I mean what just fucked woman was going to willingly fuck her significant other knowing that she was still leaking the cum of her lover? 
 
- Once stripped Trish turned and pulled down the bed covers and as she did I saw a trace of cum running down the inside of her left thigh. It was sick of me and I know it, but suddenly I wanted to know what my wife would feel like after just having been fucked by another man. While Trish got on the bed, laid back and spread her legs I quickly undressed and got on the bed. Normally when Trish and I make love I start by eating her pussy and when I got between her legs her hands went to my head to guide me down. I don't know if it was just reflex because that was the way we always did it or because she knew she was full of another man and wanted to see what it would be like to have me taste him, but I wasn't going to go there. No way! I might have been sick enough to want to know what it would be like to take sloppy seconds, but I was in no way curious about what she would taste like. Report_Story #2 
+ Once stripped Trish turned and pulled down the bed covers and as she did I saw a trace of cum running down the inside of her left thigh. It was sick of me and I know it, but suddenly I wanted to know what my wife would feel like after just having been fucked by another man. While Trish got on the bed, laid back and spread her legs I quickly undressed and got on the bed. Normally when Trish and I make love I start by eating her pussy and when I got between her legs her hands went to my head to guide me down. I don't know if it was just reflex because that was the way we always did it or because she knew she was full of another man and wanted to see what it would be like to have me taste him, but I wasn't going to go there. No way! I might have been sick enough to want to know what it would be like to take sloppy seconds, but I was in no way curious about what she would taste like.  
 
  
 
@@ -472,7 +472,7 @@
 
  Trish had dinner ready when I got home. I didn't say anything to Trish; I just sat down and ate. I talked with the kids about how there day went and after dinner I helped the two youngest with their homework. That done I went down to my basement workshop to putter around until bedtime. 
 
- When I walked into the bedroom I found Trish in my favorite black lace nightgown. Normally I would have started stripping my clothes off with a huge smile on my face, but this time all I did was take my wallet out of my pocket, take a twenty out of it and hand it to Trish. Report_Story #3 
+ When I walked into the bedroom I found Trish in my favorite black lace nightgown. Normally I would have started stripping my clothes off with a huge smile on my face, but this time all I did was take my wallet out of my pocket, take a twenty out of it and hand it to Trish.  
 
  
 

@@ -446,7 +446,7 @@
 
  They grind and grind. She cums and cums. Her screams echo though the house. His balls boil again and he feels it coming. She feels it too, and pushes down on him. 
 
- "Yes, I feel it coming. Give it to me. Give me that hot cum. Please." Report_Story #2 
+ "Yes, I feel it coming. Give it to me. Give me that hot cum. Please."  
 
  
 
@@ -918,7 +918,7 @@
 
  "Why don't you put in for two weeks. We can fly to Vegas." 
 
- "Wow, you are really spoiling me." Report_Story #3 
+ "Wow, you are really spoiling me."  
 
  
 

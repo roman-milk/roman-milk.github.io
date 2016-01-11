@@ -276,7 +276,7 @@
 
  "Hmmmmm," she paused, her hand going to my very wet panties. "Your cunt disagrees with your words." 
 
- I didn't answer, as no good answer could defeat the evidence. Report_Story #2 
+ I didn't answer, as no good answer could defeat the evidence.  
 
  
 
@@ -534,7 +534,7 @@
 
  "Excellent, and make sure to wear those stay up stockings. Have fun with the cum," she finished, leaving me alone and mortified. 
 
- I again quickly packed up my things and went home. Although the temptation was there to smell her scent, I ignored it throughout the evening. Unfortunately, at bedtime, I tossed and turned, my thoughts continually teasing me. After an hour of restlessness, I gave in to my temptations. I got up, grabbed the soiled panties and returned to bed. I lay back on my bed and began pleasuring myself as my other hand moved her panties to my nose. The scent was different, but still intoxicating. I moved the panties inside out and looked at the dried stain. I put it to my mouth and sucked on her panties while sliding two fingers inside my fiery vagina. The naughty act made me even hotter. I came hard from my feeling of moral degradation and the filthy act I was performing. I spit the panties out, and, past exhaustion, fell asleep in seconds. Report_Story #3 
+ I again quickly packed up my things and went home. Although the temptation was there to smell her scent, I ignored it throughout the evening. Unfortunately, at bedtime, I tossed and turned, my thoughts continually teasing me. After an hour of restlessness, I gave in to my temptations. I got up, grabbed the soiled panties and returned to bed. I lay back on my bed and began pleasuring myself as my other hand moved her panties to my nose. The scent was different, but still intoxicating. I moved the panties inside out and looked at the dried stain. I put it to my mouth and sucked on her panties while sliding two fingers inside my fiery vagina. The naughty act made me even hotter. I came hard from my feeling of moral degradation and the filthy act I was performing. I spit the panties out, and, past exhaustion, fell asleep in seconds.  
 
  
 

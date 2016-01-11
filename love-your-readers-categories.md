@@ -180,7 +180,7 @@
 
  This is a partial 'trump' category. Crossdressing may well make it under another category, and often shows up in fetish, but Transsexual elements should place your story in this category. Depending on your readers, some may believe this story element trumps all others, but according to site policy, the Incest and NonCon categories are the only hard trumps. 
 
- Transgender with a male, is most often categorized as Transsexual & Crossdresser, and not as Gay Male, further blurring the lines. If the category was Transsexual only, it would trump Gay Male. Futanari stories can be placed in either this category, or Sci-Fi & Fantasy. Report_Story #2 
+ Transgender with a male, is most often categorized as Transsexual & Crossdresser, and not as Gay Male, further blurring the lines. If the category was Transsexual only, it would trump Gay Male. Futanari stories can be placed in either this category, or Sci-Fi & Fantasy.  
 
  
 

@@ -204,7 +204,7 @@
 
  "It doesn't matter to you that I love you and I don't want a divorce from you?" 
 
- "No, you said it yourself the night I busted you. You said you needed more sex than any two or three men can give you and I will not stay married to a whore. Do I miss you? Hell yes, but that doesn't change the fact that you cheated on me wholesale and with a bunch of assholes who were supposed to be my friends. I'd never trust you again and I can't live with some one I can't trust." Report_Story #2 
+ "No, you said it yourself the night I busted you. You said you needed more sex than any two or three men can give you and I will not stay married to a whore. Do I miss you? Hell yes, but that doesn't change the fact that you cheated on me wholesale and with a bunch of assholes who were supposed to be my friends. I'd never trust you again and I can't live with some one I can't trust."  
 
  
 

@@ -250,7 +250,7 @@
 
  "Goodness!" Marcy said, and I'm sure I blushed three different shades of red. 
 
- "Oh! That would have been a BIG disappointment to miss," Brenda said. Report_Story #2 
+ "Oh! That would have been a BIG disappointment to miss," Brenda said.  
 
  
 

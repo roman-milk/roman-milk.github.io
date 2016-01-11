@@ -88,7 +88,7 @@
 
   "Fuck! That was amazing!" Joe exclaimed.  
 
-  Shaun grinned at him. "Wait'll you see the half-time show." Report_Story #1 
+  Shaun grinned at him. "Wait'll you see the half-time show."  
 
  
 

@@ -202,7 +202,7 @@
 
  She pouted and said, "I left a little tuft of hair right at the top." Her eyes lifted to meet Michael's hot stare. "It looks cute, don't you think?" 
 
- A jut of her hips and Amy's mound was thrust towards him, the delicate flaps of the labia minora peeping from the plumper outer folds. Report_Story #2 
+ A jut of her hips and Amy's mound was thrust towards him, the delicate flaps of the labia minora peeping from the plumper outer folds.  
 
  
 
@@ -424,7 +424,7 @@
 
  And then, finally, after all that blagging, it came: "Well ... Okay..." 
 
- Susan grinned and mouthed a 'Yes' to the high blue sky. "I'll put some bottles in the chiller." Report_Story #3 
+ Susan grinned and mouthed a 'Yes' to the high blue sky. "I'll put some bottles in the chiller."  
 
  
 
@@ -652,7 +652,7 @@
 
  John opened the door on his side. "Anyway, let's get on with, shall we, boys? I want to see her mate. The fit bird." 
 
- "Hello, lads," Susan said. She beamed a delighted smile, her tone husky as she surveyed the delicious array of manhood as the trio climbed the steps towards her. "You must be Omar," she added, the leer an indication that she'd heard good things about him. Report_Story #4 
+ "Hello, lads," Susan said. She beamed a delighted smile, her tone husky as she surveyed the delicious array of manhood as the trio climbed the steps towards her. "You must be Omar," she added, the leer an indication that she'd heard good things about him.  
 
  
 
@@ -888,7 +888,7 @@
 
  In the ensuing cacophony, a babble of voices, some overriding others, with John's attention diverted to Amy, Michael slipped his arm free. 
 
- "I thought I told you to stay in the car," he snapped at the girl. Report_Story #5 
+ "I thought I told you to stay in the car," he snapped at the girl.  
 
  
 
@@ -1112,7 +1112,7 @@
 
  Amy was yelping and crying out with delight when she felt Omar thrust deep. He was doing it, flooding her with his seed! 
 
- "Yes!" Amy shouted, her stomach tensed as she looked down along her body to where she could see her Daddy's cock, balls deep inside her. "Come inside me," she cried. "Give it to me. All of it!" Report_Story #6 
+ "Yes!" Amy shouted, her stomach tensed as she looked down along her body to where she could see her Daddy's cock, balls deep inside her. "Come inside me," she cried. "Give it to me. All of it!"  
 
  
 
@@ -1326,7 +1326,7 @@
 
  On this occasion Omar was allowed to spread his seed indiscriminately, with Amy's need for his sperm temporarily satisfied. 
 
- The girl herself laid with John, the older man spooning behind her, his penis inside her pussy, while Ray had his hands full, literally, with Susan. Ray loved having the blonde astride him, her jugs in his face, his fingers overflowing with breast-flesh while he sucked and slobbered at them, his erection buried deep in Susan's body. Report_Story #7 
+ The girl herself laid with John, the older man spooning behind her, his penis inside her pussy, while Ray had his hands full, literally, with Susan. Ray loved having the blonde astride him, her jugs in his face, his fingers overflowing with breast-flesh while he sucked and slobbered at them, his erection buried deep in Susan's body.  
 
  
 

@@ -212,7 +212,7 @@
 
  I whispered back, "Ok, but in the other room, just you and me, and a looooong kiss." 
 
- "Ok" she didn't hesitate a moment. I was amazed she hadn't dropped out. I figured my odds had gone from 1 in 10 to about 50-50. Report_Story #2 
+ "Ok" she didn't hesitate a moment. I was amazed she hadn't dropped out. I figured my odds had gone from 1 in 10 to about 50-50.  
 
  
 
@@ -422,7 +422,7 @@
 
  Sheri pulled her head off my cock, "NOW, NOW, fuck me NOW, someone fuck me, Bill fuck me, fuck me, fuck my Ass, FUCK MEEEEE." Lisa pulled her fingers out of Sheri's ass, and it slowly started to dilate. 
 
- "Ok Bill, you heard the woman", I told him, as I once again filled her mouth with my cock. He edged up to her, and stuck the head of his resurgent cock into her, gently, stopping when the glans popped past her tight opening. Her hand was stroking the back of Lisa's head, which was licking her breast while watching the penetration. Report_Story #3 
+ "Ok Bill, you heard the woman", I told him, as I once again filled her mouth with my cock. He edged up to her, and stuck the head of his resurgent cock into her, gently, stopping when the glans popped past her tight opening. Her hand was stroking the back of Lisa's head, which was licking her breast while watching the penetration.  
 
  
 
@@ -650,7 +650,7 @@
 
  "That's good," I told her, "Keep me happy, Lyssete, my darling pleasure slave, and you'll be happier, trust me." I accentuated my comment with a couple of good slaps to her ass. 
 
- I grabbed her hair and pulled her head back hard, as I fucked her harder and harder. She was trembling and moaning now. Report_Story #4 
+ I grabbed her hair and pulled her head back hard, as I fucked her harder and harder. She was trembling and moaning now.  
 
  
 
@@ -902,7 +902,7 @@
 
  Bill was conversing softly with Lisa, who appeared half-asleep, and deeply relaxed. He was running his fingers through her hair, and caressing her face and shoulders. There was a smile plastered across her face, that I fantasized would remain long after she slowly faded from view. 
 
- Turning back to Sheri, I saw she also was taking in the tender view at the foot of our bed. Report_Story #5 
+ Turning back to Sheri, I saw she also was taking in the tender view at the foot of our bed.  
 
  
 

@@ -176,7 +176,7 @@
 
  "Marty, we nee...." And one of the guys in the booth said, "Take a number asshole, the bitch is with us." 
 
- I grabbed him by his long hair, jerked him out of the booth and dumped him on the floor. I kicked him hard in the ribs and then looked down at him, "I'll just take your number sperm breath and if you ever call my wife a bitch again I'll stomp your head into jelly and if you come up off that floor any way but peaceful I'll do it anyway." Report_Story #2 
+ I grabbed him by his long hair, jerked him out of the booth and dumped him on the floor. I kicked him hard in the ribs and then looked down at him, "I'll just take your number sperm breath and if you ever call my wife a bitch again I'll stomp your head into jelly and if you come up off that floor any way but peaceful I'll do it anyway."  
 
  
 
@@ -420,7 +420,7 @@
 
  "That's not true baby. You've got it all wrong." 
 
- "You came out of your sexual fog pretty damned quick when you though I was leaving you there. When I got up and left you had to know what I was thinking, what was going on in my mind. But did you grab your clothes and your purse and come after me? No Marty, all you were worried about was your ride home. If you really gave a shit about me you would never have gone back into that motel room and let me leave feeling the way that I did." Report_Story #3 
+ "You came out of your sexual fog pretty damned quick when you though I was leaving you there. When I got up and left you had to know what I was thinking, what was going on in my mind. But did you grab your clothes and your purse and come after me? No Marty, all you were worried about was your ride home. If you really gave a shit about me you would never have gone back into that motel room and let me leave feeling the way that I did."  
 
  
 

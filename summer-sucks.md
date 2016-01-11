@@ -196,7 +196,7 @@
 
  "SANDRA," I cried out, squeezing my ass cheeks together, before making one last thrust into her mouth. 
 
- Sandra pulled away, almost cat like, and pointed my loaded gun over her glass table. I felt my insides clench like a fist, and painfully settle their tightness around my balls, before ejecting a stream of white goo halfway down the table. She praised me, like one would a small child, or a pet, while her hand drew my seed out, launching a half-dozen more streams across the clear surface. The furthest drops were nearly three quarters the way down the table. I'd come hard before, usually into a paper towel or old sock, but never like that. No way. Report_Story #2 
+ Sandra pulled away, almost cat like, and pointed my loaded gun over her glass table. I felt my insides clench like a fist, and painfully settle their tightness around my balls, before ejecting a stream of white goo halfway down the table. She praised me, like one would a small child, or a pet, while her hand drew my seed out, launching a half-dozen more streams across the clear surface. The furthest drops were nearly three quarters the way down the table. I'd come hard before, usually into a paper towel or old sock, but never like that. No way.  
 
  
 
@@ -374,7 +374,7 @@
 
  I felt fingers running through my hair from behind, and Sandra's voice was whispering in my other ear, "It's Ok Peter, give it to her." 
 
- I pulled her down hard against my hips and erupted, grunting a loud "YES!" as I filled her, buried to the hilt, my shaft contracting repeatedly, blasting my juices into her. After several long moments, I gasped and settled back down to the couch, insanely content. Report_Story #3 
+ I pulled her down hard against my hips and erupted, grunting a loud "YES!" as I filled her, buried to the hilt, my shaft contracting repeatedly, blasting my juices into her. After several long moments, I gasped and settled back down to the couch, insanely content.  
 
  
 
@@ -702,7 +702,7 @@
 
  "No, silly. Last night." 
 
- "Incredible. Completely mind-shattering. You were my first you know." Report_Story #4 
+ "Incredible. Completely mind-shattering. You were my first you know."  
 
  
 

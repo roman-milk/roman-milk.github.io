@@ -162,7 +162,7 @@
 
  "I'm still a little weak, but he says I should be strong enough to go to work on Monday. He doesn't want me to do anything but rest this weekend." 
 
- Sabrina touched my cheek and said, "Rest up and get your strength back lover, you are going to need it. I've been deprived and I need to play catch up" and then she left for work. I got dressed and left the house to do more research. By the end of the day I knew that Ron's wife was a legal secretary and that she hadn't been at the party because she was out of town visiting a sick mother. Mark's wife sold real estate and she had missed the party because she was trying to close a deal on a two million dollar property. Both marriages seemed stable, but I guessed that was because neither woman knew about what their hubby's were up too. I would correct that and soon. Report_Story #2 
+ Sabrina touched my cheek and said, "Rest up and get your strength back lover, you are going to need it. I've been deprived and I need to play catch up" and then she left for work. I got dressed and left the house to do more research. By the end of the day I knew that Ron's wife was a legal secretary and that she hadn't been at the party because she was out of town visiting a sick mother. Mark's wife sold real estate and she had missed the party because she was trying to close a deal on a two million dollar property. Both marriages seemed stable, but I guessed that was because neither woman knew about what their hubby's were up too. I would correct that and soon.  
 
  
 

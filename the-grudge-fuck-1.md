@@ -190,7 +190,7 @@
 
  "Geo? I was playing for the Honda Prelude." 
 
- "No you weren't. You were playing for, and these are your exact words, "The car you are working on." I finished the Prelude last Friday and sold it to Frank for his daughter on Saturday. Monday I bought a trashed out Geo for a hundred bucks and started tearing it down yesterday. You'll need a trailer to pick it up because you damned sure aren't going to be borrowing mine." Report_Story #2 
+ "No you weren't. You were playing for, and these are your exact words, "The car you are working on." I finished the Prelude last Friday and sold it to Frank for his daughter on Saturday. Monday I bought a trashed out Geo for a hundred bucks and started tearing it down yesterday. You'll need a trailer to pick it up because you damned sure aren't going to be borrowing mine."  
 
  
 

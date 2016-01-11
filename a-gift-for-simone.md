@@ -192,7 +192,7 @@
 
  Did you leave me a little gift on Wednesday? Something delicate? 
 
- If so, please respond to this email at your convenience. I would like to discuss this matter further and in greater detail, but not by the usual means available to us. Please, if you would, subscribe to a savernet.comemail address. That way we can maintain the absolute discretion such a sensitive issue demands. Report_Story #2 
+ If so, please respond to this email at your convenience. I would like to discuss this matter further and in greater detail, but not by the usual means available to us. Please, if you would, subscribe to a savernet.comemail address. That way we can maintain the absolute discretion such a sensitive issue demands.  
 
  
 
@@ -484,7 +484,7 @@
 
  "Fuck," she mumbled, chewing on her bottom lip in an effort to stifle the moans bubbling out of her. "Oh ... Fuck..." 
 
- Simone's pussy was sodden beneath her fingers, desire sluicing from her opening. She rubbed her clit between the tips of a forefinger and thumb, rolling the flesh and wishing she could wank it like a cock. Looking down at herself, labia heavy and pouting, her core swollen, and with lust bubbling at the opening, hot and scarlet and yearning, Simone moaned. Report_Story #3 
+ Simone's pussy was sodden beneath her fingers, desire sluicing from her opening. She rubbed her clit between the tips of a forefinger and thumb, rolling the flesh and wishing she could wank it like a cock. Looking down at herself, labia heavy and pouting, her core swollen, and with lust bubbling at the opening, hot and scarlet and yearning, Simone moaned.  
 
  
 
@@ -732,7 +732,7 @@
 
  Finally, with no decision made, simply allowing herself to be pulled along by forces she herself had set in motion, when the taxi arrived outside the façade of the hotel, Simone paid the cabbie and alighted. She walked through the foyer and made her way to the room the man had indicated. 
 
- Feeling dazed, edgy and unable to concentrate, Simone's limbs trembled when, after another pause and a deep breath, she watched her fingers curl into a fist. Report_Story #4 
+ Feeling dazed, edgy and unable to concentrate, Simone's limbs trembled when, after another pause and a deep breath, she watched her fingers curl into a fist.  
 
  
 

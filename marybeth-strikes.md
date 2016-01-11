@@ -222,7 +222,7 @@
 
  +++++++++++++++++++++++++++++++++++++++++++++++ 
 
- Two weeks after the pool and tennis court were finished John had a pool party and invited a host of friends, neighbors and people that he and I worked with. Tammy was there and she was just so nice to me that it was sickening, but I smiled all the way through the party. I made sure that I was always close to where she was or where John was so they couldn't sneak off together. I didn't want John to get laid because I had plans for him. Report_Story #2 
+ Two weeks after the pool and tennis court were finished John had a pool party and invited a host of friends, neighbors and people that he and I worked with. Tammy was there and she was just so nice to me that it was sickening, but I smiled all the way through the party. I made sure that I was always close to where she was or where John was so they couldn't sneak off together. I didn't want John to get laid because I had plans for him.  
 
  
 

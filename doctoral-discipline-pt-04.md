@@ -188,7 +188,7 @@
 
  "Good cocksucker your practice is paying off." 
 
- "Sir thank you Sir," she replied gratefully. Report_Story #2 
+ "Sir thank you Sir," she replied gratefully.  
 
  
 

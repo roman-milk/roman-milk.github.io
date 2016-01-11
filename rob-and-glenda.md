@@ -206,7 +206,7 @@
 
  "Jesus Rob, where the hell have you been? I've been trying to get you all day. We need to talk buddy." 
 
- "Don't you "buddy" me you worthless piece of shit. The only thing we need to do is make sure that you never get close enough to me to let me get my hands on you. The last thing I need right now is to go to prison for killing your sorry ass." Report_Story #2 
+ "Don't you "buddy" me you worthless piece of shit. The only thing we need to do is make sure that you never get close enough to me to let me get my hands on you. The last thing I need right now is to go to prison for killing your sorry ass."  
 
  
 
@@ -436,7 +436,7 @@
 
  "I appreciate the offer Alice. God knows I have fantasized about you since the day I met you. You are one of the sexiest women I have ever seen and you don't know how hard it is for me to turn you down, but I like you and I'd like to stay friends with you, but I think we would have trouble meeting each others eyes a month from now if I did what you are asking. As far as Ben asking me is concerned all I can say is that it isn't very likely. I warned him to never get close enough for me to get my hands on him and I meant it. I guess you will have to find some other way to de-nut him." 
 
- "Nope. He either gets you to bed me or he ends up divorced. Of course there is another option." Report_Story #3 
+ "Nope. He either gets you to bed me or he ends up divorced. Of course there is another option."  
 
  
 

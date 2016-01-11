@@ -146,7 +146,7 @@
 
  'No, Tina ... no,' the man objected weakly, uselessly, for it was too late, his daughtert had taken the whole length in one effortless slide. 
 
- Fabric rent beneath Valentina's shifting feet. She reached back, straight armed, palms down against the chair arms to support her own weight. Baxter, in a reflex action, wrapped his hands around his daughter's narrow waist. The skirt bunched under his palms as he looked up at the impossible sight of his daughter's bare back bridged above him. He moaned softly when Valentina then began to slide up and down on his cock. She was so tight, so wet, soft velvet clenching around his girth. Report_Story #2 
+ Fabric rent beneath Valentina's shifting feet. She reached back, straight armed, palms down against the chair arms to support her own weight. Baxter, in a reflex action, wrapped his hands around his daughter's narrow waist. The skirt bunched under his palms as he looked up at the impossible sight of his daughter's bare back bridged above him. He moaned softly when Valentina then began to slide up and down on his cock. She was so tight, so wet, soft velvet clenching around his girth.  
 
  
 

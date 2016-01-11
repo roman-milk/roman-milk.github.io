@@ -126,7 +126,7 @@
 
  Not answering Charles right away, I kiss Sam hard on the mouth, tasting where my cum has just been. "Fuck him my beautiful slut, fuck him good and hard," I encourage her. 
 
- Sam jumps at the chance, sitting forward on the sofa's edge she spreads her legs as wide as possible, running her hands up her thighs, now wet with her own dripping wet pussy. "Come and get it Charles," she purrs, dipping her own finger into her hot hole, urging Charles on by then sucking the wetness slowly off her finger. Charles doesn't need asking twice, he has his rock hard thick cock sliding up and down her puffy pussy lips within seconds, teasing her with his hardness. "Oooh yes Charles, give me that cock," Sam begs, hands sliding around his back, pulling him into her. Report_Story #2 
+ Sam jumps at the chance, sitting forward on the sofa's edge she spreads her legs as wide as possible, running her hands up her thighs, now wet with her own dripping wet pussy. "Come and get it Charles," she purrs, dipping her own finger into her hot hole, urging Charles on by then sucking the wetness slowly off her finger. Charles doesn't need asking twice, he has his rock hard thick cock sliding up and down her puffy pussy lips within seconds, teasing her with his hardness. "Oooh yes Charles, give me that cock," Sam begs, hands sliding around his back, pulling him into her.  
 
  
 
@@ -142,7 +142,7 @@
 
  Charles breathing heavily, scoops up some of his sperm, feeding into her mouth, forcing his slimy fingers into her mouth, and Sam eats it up greedily, obviously wanting to play her new part as a slut to the hilt. 
 
- What we have just done hits me, and I sink into the sofa, taking a deep breath. "Well now, I think we can say that was a fun evening," I laugh, wondering where we will go next now Sam's full sexual nature had been unlocked… Report_Story #1 
+ What we have just done hits me, and I sink into the sofa, taking a deep breath. "Well now, I think we can say that was a fun evening," I laugh, wondering where we will go next now Sam's full sexual nature had been unlocked…  
 
  
 
@@ -252,7 +252,7 @@
 
  And if there's some of you with ideas what me and Sam should get up to next, drop me a line! 
 
- Oh and I LOVE to hear from wives, girlfriends, or even single women who are turned on by my words and fanasies – send me some feedback and I promise to reply. Report_Story #1 
+ Oh and I LOVE to hear from wives, girlfriends, or even single women who are turned on by my words and fanasies – send me some feedback and I promise to reply.  
 
  
 

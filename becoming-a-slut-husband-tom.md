@@ -244,7 +244,7 @@
 
  "Oh my God, oh my God" she moaned and her hands went to my head and held me as if she thought I might try to get away. I locked my lips around her clit and sucked hard. "Oh, oh, oh, oh" Becky moaned as she trashed around. My tongue and mouth pushed harder and worked on every square inch of Becky's pussy that they could and she continued to twist and turn and squirm while I continued to lick and suck. 
 
- Her body started trembling and she arched her back and screamed, "OH GOD!" as she experienced her first orally induced orgasm. I gave her a few seconds to collect herself and then said: Report_Story #2 
+ Her body started trembling and she arched her back and screamed, "OH GOD!" as she experienced her first orally induced orgasm. I gave her a few seconds to collect herself and then said:  
 
  
 
@@ -352,7 +352,7 @@
 
  That was my first time cheating on Madge, but it wasn't to be the last. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 

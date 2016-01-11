@@ -190,7 +190,7 @@
 
  Never underestimate the power of the female fraternity. It was two days after being slapped by Becca and Pauline and I had just finished a very satisfying sixty-nine. I was feeling all warm and fuzzy in the afterglow of my orgasm when Pauline said: 
 
- "I had a talk with your old girlfriend yesterday." Report_Story #2 
+ "I had a talk with your old girlfriend yesterday."  
 
  
 
@@ -436,7 +436,7 @@
 
  "He was good. He had a lot of staying power and was quick to recover. He was like the Energizer Bunny -- he just kept on going and going -- and before you even ask, yes I did enjoy it. In the morning he asked if we could do it again and I told him I didn't think so, but he gave me his cell number and told me to give him a call if I changed my mind. The next Wednesday I called Helen and she said that the bridge group was gone. I remembered the hard fucking I got from Phil and you weren't expecting me home anyway so I called him. He was just as good that night so I told him I'd see him the next Wednesday. 
 
- "He was doing me when Mel walked in. Phil told me he'd told Mel how hot I was and Mel had said that he wanted a taste. Phil finished and I tried to get up and leave, but Phil held me down while Mel took me. Then Phil pushed his cock in my mouth and they both used me. I liked it. No, that isn't true -- I loved it. They didn't care what I wanted only what they wanted. They took me over and over and I had some screaming orgasms. There was another week of Mel and Phil and then Mel and Phil took me to a swinger's party and after that it was a group grope every Wednesday. Two of the group hard fairly large cocks and I discovered that I was a size queen. I just couldn't get enough of the full feeling I got when Stan and Russ took me." Report_Story #3 
+ "He was doing me when Mel walked in. Phil told me he'd told Mel how hot I was and Mel had said that he wanted a taste. Phil finished and I tried to get up and leave, but Phil held me down while Mel took me. Then Phil pushed his cock in my mouth and they both used me. I liked it. No, that isn't true -- I loved it. They didn't care what I wanted only what they wanted. They took me over and over and I had some screaming orgasms. There was another week of Mel and Phil and then Mel and Phil took me to a swinger's party and after that it was a group grope every Wednesday. Two of the group hard fairly large cocks and I discovered that I was a size queen. I just couldn't get enough of the full feeling I got when Stan and Russ took me."  
 
  
 

@@ -182,7 +182,7 @@
 
  "Liking sex. The fake orgasms, the way you act, all that shaking. Does my cum really taste horrible? Does it hurt when I stick it in you? Do you have to—" 
 
- "Hold your horses, Travis, and settle down. Why the hell would you think that? Do you honestly believe I would lie to you about everything? You're really hurting my feelings right now." Report_Story #2 
+ "Hold your horses, Travis, and settle down. Why the hell would you think that? Do you honestly believe I would lie to you about everything? You're really hurting my feelings right now."  
 
  
 
@@ -476,7 +476,7 @@
 
  * * * 
 
- It wasn't going to be that night. It was the last day of classes. There was supposed to be a big party at one of the houses, and Teri said she'd be coming home late. I guess she was going to try what Mom had taught her with Kyle. I'll be honest, the idea pissed me off a little. Report_Story #3 
+ It wasn't going to be that night. It was the last day of classes. There was supposed to be a big party at one of the houses, and Teri said she'd be coming home late. I guess she was going to try what Mom had taught her with Kyle. I'll be honest, the idea pissed me off a little.  
 
  
 
@@ -686,7 +686,7 @@
 
  I gave her a hug. "It's not your fault, Teri. The guy's a complete ass. That's not how you treat a girlfriend. He didn't take care of you at all, didn't concern himself with your pleasure. Damn it, Teri! You don't let a guy do whatever he wants, even if he's your boyfriend. If he doesn't treat you right, you stop him. He used you, like a complete bastard. All guys aren't like that. Geez - I hope that most guys aren't. It's no surprise you didn't like it." 
 
- I wiped her tears away, and brushed her hair back. "Rachel says that there's a few reasons a girl might not like it. They're not ready for it, the guys doesn't know what he's doing, or some women need a lot of attention and time getting warmed up before enjoying it. Some women find it more difficult to find pleasure. I guess your problem with the asshole is all three. I'm sorry it was lousy for you. You need to dump that jerk, and find a better guy." Report_Story #4 
+ I wiped her tears away, and brushed her hair back. "Rachel says that there's a few reasons a girl might not like it. They're not ready for it, the guys doesn't know what he's doing, or some women need a lot of attention and time getting warmed up before enjoying it. Some women find it more difficult to find pleasure. I guess your problem with the asshole is all three. I'm sorry it was lousy for you. You need to dump that jerk, and find a better guy."  
 
  
 
@@ -1014,7 +1014,7 @@
 
  * * * 
 
- Mom was angry about the fighting, but not as much as I expected. Teri was a little pissed, but I could tell she was happy I'd dealt with the asshole. She was overly affectionate, kissing my 'owies', telling me the jerk wasn't worth it. Report_Story #5 
+ Mom was angry about the fighting, but not as much as I expected. Teri was a little pissed, but I could tell she was happy I'd dealt with the asshole. She was overly affectionate, kissing my 'owies', telling me the jerk wasn't worth it.  
 
  
 
@@ -1292,7 +1292,7 @@
 
  I nodded. "That Kyle is a complete asshole. She deserves a lot better." 
 
- Mom came over and sat beside me, taking my hand in hers. "You're right, honey. I received a call from his mother, late last night. She was mortified, to say the least. Thank you for standing up for your sister. I'm not sure that was the best way to go about it, but I guess it's better than beating him up again." Report_Story #6 
+ Mom came over and sat beside me, taking my hand in hers. "You're right, honey. I received a call from his mother, late last night. She was mortified, to say the least. Thank you for standing up for your sister. I'm not sure that was the best way to go about it, but I guess it's better than beating him up again."  
 
  
 
@@ -1560,7 +1560,7 @@
 
  "But this is incest, baby. It's wrong," Mom said. 
 
- "No, we've never had sex. He was just showing me, teaching me that sex could be good. That I could get excited. I don't need to put up with it. I now know that with the right man it will be wonderful." Report_Story #7 
+ "No, we've never had sex. He was just showing me, teaching me that sex could be good. That I could get excited. I don't need to put up with it. I now know that with the right man it will be wonderful."  
 
  
 
@@ -1852,7 +1852,7 @@
 
  I returned to her clit, giving it the attention it needed. I was silent, enjoying her touch, working through my repertoire, reaching down to check my progress by how wet she was getting. It was good. I was pretty sure I'd be able to get her off. I wet my fingers from her pussy, and brought them to her lips. "Sexy Mom. Taste yourself. You're on fire." 
 
- She moaned, sucking my fingers before I went back to her clit. On the way, I gave Teri's head a nudge, pushing downward. I saw her suck up a mouthful of Mom's tit, earning us another moan. Report_Story #8 
+ She moaned, sucking my fingers before I went back to her clit. On the way, I gave Teri's head a nudge, pushing downward. I saw her suck up a mouthful of Mom's tit, earning us another moan.  
 
  
 

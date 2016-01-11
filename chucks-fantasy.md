@@ -76,7 +76,7 @@
 
  That's when the penny dropped. I remembered Chuck's facination with the way Randy watched Alice, the way he was dressing me to grab other men's attention, and now this - books on wife watching. Chuck wanted to watch me! 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -294,7 +294,7 @@
 
  "Why not?" 
 
- "Get serious Chuck, you couldn't handle seeing felt up and being kissed. The fact that I stroked Mark's cock bent you all out of shape; there is no way you could handle seeing me fuck another man." Report_Story #2 
+ "Get serious Chuck, you couldn't handle seeing felt up and being kissed. The fact that I stroked Mark's cock bent you all out of shape; there is no way you could handle seeing me fuck another man."  
 
  
 
@@ -388,7 +388,7 @@
 
  "Better hurry then, I only have so much time before Chuck misses me and comes looking." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -616,7 +616,7 @@
 
  It was evil of me and I know it, but I wanted to give Chuck a present for letting me do what I was doing and I remembered how angry he had been at Mark for what Mark had done at the first party. I goaded Mark a little more, "Come on lover, come on, hurry, Chuck is on the way, but I need to cum. Faster baby, fuck me faster, hurry baby, hurry, make me cum." 
 
- The little head was winning the fight with the big head and he was breathing hard and ramming me hard when suddenly I rolled out from under him and scrambled off the bed. Mark's cock was bobbing up and down and he had a confused look on his face. What had just happened hadn't made its way to the big head yet. Report_Story #2 
+ The little head was winning the fight with the big head and he was breathing hard and ramming me hard when suddenly I rolled out from under him and scrambled off the bed. Mark's cock was bobbing up and down and he had a confused look on his face. What had just happened hadn't made its way to the big head yet.  
 
  
 
@@ -636,7 +636,7 @@
 
  Chuck had gotten himself off so many times in the closet that I was only able to get him up twice more that night and after he fell asleep I lay there looking up at the ceiling and I thought about what Chuck had said when I mentioned a half dozen more. "I just may give you the chance," he'd said. Would he? More to the point, would I if he gave me the chance? 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -830,7 +830,7 @@
 
  "Okay lover, bring em on; just remember, I do them and you do your imitation of a Hoover vacuum cleaner when they are done." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1036,7 +1036,7 @@
 
  Chuck was in a sour mood when I got home that night. Randy was keeping up the pressure on him to do Alice 'the favor' and he had finally lost it when he and Harry had been in the bathroom together. Harry was at the urinal next to Chuck and they were both peeing. When they were done Harry gave his dick a couple of shakes and then had said to Chuck, "How about it guy. Were alone and I've already have it out." Chuck had broken Harry's nose and had probably bruised or broken a rib when he had worked Harry over. Randy had taken him in the office and asked what the hell had happened and Chuck told him the story. Randy said he didn't want any more violence in the work place: 
 
- "One of them might get in a lucky punch and hurt you. I'm not sure that Alice would forgive me if I let that happen. She is looking forward to seeing you again." Report_Story #2 
+ "One of them might get in a lucky punch and hurt you. I'm not sure that Alice would forgive me if I let that happen. She is looking forward to seeing you again."  
 
  
 
@@ -1084,7 +1084,7 @@
 
  "So the question now is, "Do you want to be a vice president?" 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1312,7 +1312,7 @@
 
  "I told him that I didn't want him or Alice calling you anymore." 
 
- "You never told me that and if I don't know why would I say no to either Randy or Alice when they call?" Report_Story #2 
+ "You never told me that and if I don't know why would I say no to either Randy or Alice when they call?"  
 
  
 

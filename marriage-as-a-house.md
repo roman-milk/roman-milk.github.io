@@ -236,7 +236,7 @@
 
  She nodded nervously. "I never meant for it to happen. I'm sorry." 
 
- "Forgiven." I whispered, reaching a hand up to gently caress her cheek. "Forgiven, but not forgotten, not yet." Report_Story #2 
+ "Forgiven." I whispered, reaching a hand up to gently caress her cheek. "Forgiven, but not forgotten, not yet."  
 
  
 
@@ -468,7 +468,7 @@
 
  "I have too much free time on my hands. I'd like to do something to keep busy. The kids will both be in school next semester. I think I want to get a job, or at least do some kind of volunteer work." 
 
- "That's a great idea. We don't need the money, so that shouldn't be a consideration. You can get a job if you like, pursue some schooling, or volunteer. I'll support you in any endeavor. You're a smart woman. I'm sure you'll succeed at whatever you choose." Report_Story #3 
+ "That's a great idea. We don't need the money, so that shouldn't be a consideration. You can get a job if you like, pursue some schooling, or volunteer. I'll support you in any endeavor. You're a smart woman. I'm sure you'll succeed at whatever you choose."  
 
  
 
@@ -780,7 +780,7 @@
 
  I was questioned about it, but had a better than average alibi. Dumb luck. Dinner out with Jill and her husband Roger, with only about a hundred witnesses, and video surveillance. The police only asked once. I had mixed feelings. I had wanted to extract that kind of revenge up close and in person, now the associated risk was much greater. On the other hand, it looked like it was a serious ass whipping, with broken ribs and severely bruised testicles. I backed off at the time. It's like they say, revenge is a dish best served cold. 
 
- Karen and Jerome are separated. She's seeing a shrink, and they're both seeing a marriage counselor. I don't know how he does it, living with what she did to their marriage. I've put off any more revenge against her, at least for now. The loss of her best friend, most of their common friends, and the state of their marriage are pretty hard on her. She's put on weight. Jerome is paying for her apartment, and has it wired to the rafters. We talk regularly, and he's over for dinner at least every couple of weeks. He makes sure that Karen knows that as well. According to Jerome, she hasn't been with anyone since he gave her the divorce papers. Maybe it was the wakeup call she needed. He's still not sure if he's going to follow through on it. I guess love is a pretty powerful thing. Whether it's trying to get him back, or the meds the doctors have her on, she's at least putting on the semblance of being faithful. Personally, I don't think it's going to last. Report_Story #4 
+ Karen and Jerome are separated. She's seeing a shrink, and they're both seeing a marriage counselor. I don't know how he does it, living with what she did to their marriage. I've put off any more revenge against her, at least for now. The loss of her best friend, most of their common friends, and the state of their marriage are pretty hard on her. She's put on weight. Jerome is paying for her apartment, and has it wired to the rafters. We talk regularly, and he's over for dinner at least every couple of weeks. He makes sure that Karen knows that as well. According to Jerome, she hasn't been with anyone since he gave her the divorce papers. Maybe it was the wakeup call she needed. He's still not sure if he's going to follow through on it. I guess love is a pretty powerful thing. Whether it's trying to get him back, or the meds the doctors have her on, she's at least putting on the semblance of being faithful. Personally, I don't think it's going to last.  
 
  
 

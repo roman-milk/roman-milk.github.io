@@ -238,7 +238,7 @@
 
  ..... 
 
- The next morning, well afternoon truthfully, having woken up at 12:30, I stretched and headed to the kitchen finding a note on the dining room table which said: Report_Story #2 
+ The next morning, well afternoon truthfully, having woken up at 12:30, I stretched and headed to the kitchen finding a note on the dining room table which said:  
 
  
 
@@ -614,7 +614,7 @@
 
  "Sure," I agreed, my cunt still burning and if dad wasn't going to use his hose to squelch the fire I may have to find another way. Plus, I wanted him to be jealous like I was feeling. I called to Dad, "Going out with Tia," and turned around before I could see his face. 
 
- I really didn't know what I was getting myself into going out with a woman who obviously was a lesbian and obviously had her eyes set on me, but the idea of being wanted always got me wet and I was ready for an adventure and hopefully a release for my needy cunt. Report_Story #3 
+ I really didn't know what I was getting myself into going out with a woman who obviously was a lesbian and obviously had her eyes set on me, but the idea of being wanted always got me wet and I was ready for an adventure and hopefully a release for my needy cunt.  
 
  
 
@@ -934,7 +934,7 @@
 
  "Get Daddy ready for that wet cunt of yours, Josie," he ordered, his semi-erect cock directly in my face. 
 
- I didn't hesitate as I opened my mouth determined to get his cock hard as a rock so it could soon be in my cunt fucking me. "Good, slut," he complimented, as I sucked his quickly stiffening cock. Report_Story #4 
+ I didn't hesitate as I opened my mouth determined to get his cock hard as a rock so it could soon be in my cunt fucking me. "Good, slut," he complimented, as I sucked his quickly stiffening cock.  
 
  
 

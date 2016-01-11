@@ -120,7 +120,7 @@
 
  After a couple of minutes of heavy breathing Penny kissed me passionately and then in a husky voice she said, "Now that my lover is gone you have to do your part hubby dear" and she put a hand on my head and pushed me. It was obvious what she wanted, but it was also something that I had never done before. I'd eaten Penny's pussy, I'd eaten it a lot, but never with cum in it. I hesitated, not wanting to ruin the night by rushing to the bathroom and barfing. Penny pushed and moaned, "Come on baby, I want it. Take care of me baby, be like Steve. Pretend you're Steve and I'm Marsha baby. Do it for me" and I quit fighting it and did it. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -292,7 +292,7 @@
 
  I was about to say "Separation, what separation?" but decided to keep my mouth shut before I made things any worse. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -412,7 +412,7 @@
 
  "I don't know Penny, all I know is that somehow we will work it out and get through this." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -604,7 +604,7 @@
 
  "Mark has the same schedule as Penny." 
 
- "I guess I'll have to come back on Wednesday then." Report_Story #2 
+ "I guess I'll have to come back on Wednesday then."  
 
  
 

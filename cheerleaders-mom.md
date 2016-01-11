@@ -238,7 +238,7 @@
 
  "I can't do that," the mortified Mother replied to her domineering daughter. 
 
- "First, I wasn't asking your opinion, Mommy-pet," Allie replied, adding, "secondly, it's the least you can do since she already munched on your box, and thirdly, you already have one punishment coming, do you really want a second?" Report_Story #2 
+ "First, I wasn't asking your opinion, Mommy-pet," Allie replied, adding, "secondly, it's the least you can do since she already munched on your box, and thirdly, you already have one punishment coming, do you really want a second?"  
 
  
 
@@ -428,7 +428,7 @@
 
  
 
- power-shift10.jpg] Report_Story #1 
+ power-shift10.jpg]  
 
  
 
@@ -806,7 +806,7 @@
 
  "Now clean my stocking," Allie demanded. 
 
- The mom, her eyes never leaving her daughter's pussy, took her daughter's ankle, lifted it up and took it in her mouth again. This time she could indeed smell her sex, taste her sex. It only added to the humiliation, although the mother had long ago crossed the line of that being significant. She couldn't explain it, but obeying her daughter, no matter how ludicrous and demeaning, seemed a must. It made her feel good, it made her want to obey. Report_Story #2 
+ The mom, her eyes never leaving her daughter's pussy, took her daughter's ankle, lifted it up and took it in her mouth again. This time she could indeed smell her sex, taste her sex. It only added to the humiliation, although the mother had long ago crossed the line of that being significant. She couldn't explain it, but obeying her daughter, no matter how ludicrous and demeaning, seemed a must. It made her feel good, it made her want to obey.  
 
  
 

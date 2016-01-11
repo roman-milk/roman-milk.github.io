@@ -416,7 +416,7 @@
 
  "Damn, mom. You look so hot. Can I have another hug." 
 
- "Of course, baby. I have lots of hug for you. You are my baby boy." Report_Story #2 
+ "Of course, baby. I have lots of hug for you. You are my baby boy."  
 
  
 
@@ -850,7 +850,7 @@
 
  "Just right. They will love this." 
 
- They walk into the living room. Both boys eyes pop open. They look at each other and grin. Carol sits by Carl and Jan sits on Dan's lap. Report_Story #3 
+ They walk into the living room. Both boys eyes pop open. They look at each other and grin. Carol sits by Carl and Jan sits on Dan's lap.  
 
  
 
@@ -1014,7 +1014,7 @@
 
  Both girls give birth to bouncing baby boys. 
 
- The all agree that incest is best. Report_Story #1 
+ The all agree that incest is best.  
 
  
 
@@ -1458,7 +1458,7 @@
 
  "Daddy. I need to go run today. I want to be ready for the start of the season. Oh, and I have cheerleader practice this afternoon." 
 
- "OK, baby. I'll see you later. I'm going to take a nap." Report_Story #2 
+ "OK, baby. I'll see you later. I'm going to take a nap."  
 
  
 
@@ -1924,7 +1924,7 @@
 
  He twists one and gently bites the other. She cries out. 
 
- "Yes, yes. Bite them. More. More. Suck and bite them. It makes my pussy so hot." Report_Story #3 
+ "Yes, yes. Bite them. More. More. Suck and bite them. It makes my pussy so hot."  
 
  
 
@@ -2180,7 +2180,7 @@
 
  The end. 
 
- I'm thinking of maybe another chapter. Report_Story #1 
+ I'm thinking of maybe another chapter.  
 
  
 
@@ -2594,7 +2594,7 @@
 
  "Suck his cock, Jan. get it all wet for your pussy." 
 
- Jan slides off his lap and holds his balls. She licks and sucks them. She moves her mouth to the head of his cock and slowly takes it in her mouth. Glenn groans.. Carol and J get in position. Jan moves up and slides down, taking his cock up in her pussy. Glenn pinches both of her nipples as she hits bottom. She cries out and cums. Glenn starts stroking up in her and she meets his thrusts. Her mouth is open and her eyes have rolled back in her head. Glenn holds her down on his bone and grinds her to two fast orgasms. She is losing control. Carol and J latch on to each nipple. Jan screams and cums. Report_Story #2 
+ Jan slides off his lap and holds his balls. She licks and sucks them. She moves her mouth to the head of his cock and slowly takes it in her mouth. Glenn groans.. Carol and J get in position. Jan moves up and slides down, taking his cock up in her pussy. Glenn pinches both of her nipples as she hits bottom. She cries out and cums. Glenn starts stroking up in her and she meets his thrusts. Her mouth is open and her eyes have rolled back in her head. Glenn holds her down on his bone and grinds her to two fast orgasms. She is losing control. Carol and J latch on to each nipple. Jan screams and cums.  
 
  
 
@@ -2984,7 +2984,7 @@
 
  "That was pretty fast. How did she come out on it?" 
 
- "She said she got her asking price. I think it was almost paid off. She had to split with her ex. I think she came out ok." Report_Story #3 
+ "She said she got her asking price. I think it was almost paid off. She had to split with her ex. I think she came out ok."  
 
  
 

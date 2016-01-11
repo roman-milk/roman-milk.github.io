@@ -190,7 +190,7 @@
 
  "Next up for your entertainment we have Jerry Oskham. Tonight's topic is a fitting one for Jerry as he is a pre-med student at Hoskins. Let's have a big welcome for Jerry." 
 
- I handed the mike off to Jerry and walked over and took my seat at the bar. Instead of looking in the mirror I swiveled around on my stool so I could check out the crowd. As I looked out over the patrons Melody came up behind me. Report_Story #2 
+ I handed the mike off to Jerry and walked over and took my seat at the bar. Instead of looking in the mirror I swiveled around on my stool so I could check out the crowd. As I looked out over the patrons Melody came up behind me.  
 
  
 
@@ -406,7 +406,7 @@
 
  "Your badge, show him your badge!" 
 
- I got a good laugh out of it and when it died down I said, "Tonight will see a change in the festivities. It has been tradition for me to start the show by hitting the crowd with a blond joke before turning the mike over to the first performer, but my wife, who is blond by the way, has finally managed to get me to give that part of the night up." Report_Story #3 
+ I got a good laugh out of it and when it died down I said, "Tonight will see a change in the festivities. It has been tradition for me to start the show by hitting the crowd with a blond joke before turning the mike over to the first performer, but my wife, who is blond by the way, has finally managed to get me to give that part of the night up."  
 
  
 

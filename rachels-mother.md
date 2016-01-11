@@ -148,13 +148,13 @@
 
  As I got dressed I told her that she was to leave the balls in her ass all night and she was not to wash herself until morning. She had to lie in bed all dirty so that she would remember just what a dirty slut she was. Before I left she said 
 
- "Thank you for using me and making me feel like a worthless cheap whore – my ex husband tried – he did make me feel cheap but he never hurt me or made me feel like the total slut that you did tonight - anytime you want to use me just let me know – I will do anything for you – you can fuck me, hurt me, humiliate me and abuse me as much as you want – please let me be your personal slut." Report_Story #2 
+ "Thank you for using me and making me feel like a worthless cheap whore – my ex husband tried – he did make me feel cheap but he never hurt me or made me feel like the total slut that you did tonight - anytime you want to use me just let me know – I will do anything for you – you can fuck me, hurt me, humiliate me and abuse me as much as you want – please let me be your personal slut."  
 
  
 
  ****** Rachel's Mother: My Slut ****** bypainmaster© Walking out I said, 
 
- "I'll be here at 9 o'clock tomorrow morning – be ready to go shopping, wear a see through dress, g-string and high heels. Report_Story #1 
+ "I'll be here at 9 o'clock tomorrow morning – be ready to go shopping, wear a see through dress, g-string and high heels.  
 
  
 
@@ -326,7 +326,7 @@
 
  I told you I would do anything for you – anytime you want to use me just do it – I know Rachel won't give you what you want, but I will – you can fuck me, hit me, rape me, do anything you want to me – I want to be your personal fuck toy 
 
- As I walked out the door I wondered what it was going to be like when I went over for dinner on Monday night. Report_Story #1 
+ As I walked out the door I wondered what it was going to be like when I went over for dinner on Monday night.  
 
  
 

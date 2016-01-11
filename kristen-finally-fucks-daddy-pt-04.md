@@ -114,7 +114,7 @@
 
  Um -- yes. 
 
- I put on the panty, and it was something really of a thong. It covered probably about the top third of my ass; I turned and looked at it in the mirror, and fuck yeah, it looked hot -- small, curvy, tight, soft. Then I wrapped the bra around myself, and my brown nipples were obviously little circles in the black fabric. The bra fit pretty fucking good, I might add. Report_Story #2 
+ I put on the panty, and it was something really of a thong. It covered probably about the top third of my ass; I turned and looked at it in the mirror, and fuck yeah, it looked hot -- small, curvy, tight, soft. Then I wrapped the bra around myself, and my brown nipples were obviously little circles in the black fabric. The bra fit pretty fucking good, I might add.  
 
  
 

@@ -196,7 +196,7 @@
 
  "Pardon me for saying this, but bullshit! You were perfectly willing to spend every Saturday evening with Mark even though he'd been fucking mom. Is facing him across the dinner table going to be any different? As for mom, if it had been any body else you would have forgiven her by now and we both know it. You love her dad and she loves you. So she did a stupid thing, but don't forget that she did it for me. She did what a mother is supposed to do, try and protect her babies." 
 
- "Maybe if I hadn't seen them with my own eyes it would be different, but I did see them. I saw it and I doubt that I can ever forget it. Seeing Mark on a Saturday is a hell of a lot different than seeing Mark and your mother together at the dinner table every day." Report_Story #2 
+ "Maybe if I hadn't seen them with my own eyes it would be different, but I did see them. I saw it and I doubt that I can ever forget it. Seeing Mark on a Saturday is a hell of a lot different than seeing Mark and your mother together at the dinner table every day."  
 
  
 

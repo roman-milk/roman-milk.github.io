@@ -162,7 +162,7 @@
 
  During working hours it was difficult to keep my hands to myself, especially in the hour or two leading in to closing. But sometimes, when business was slow she would lead me to the dry store, lift the hem of her dress and have me lap at her sex. Occasionally she would use her fist on my length, tugging me to completion, jizm spattering onto the tiles, with me mopping up the mess a few minutes later while she went calmly about the business of doling up the refreshments to customers unaware of what had been going on. 
 
- After work we usually tumbled naked across her bed, often with her riding me, my hands full of her. I think it was three times I stayed with her for the entire night, our pleasure mostly frantic bouts of delightfully hot and urgent sex before the last bus passed through the village. Sometimes, on Sundays or when my day off fell during the week, when her need was on her, she would drive to town to visit me in the bedsit. During those times she would arrive with a bottle of red wine in hand and a glint in her eye, libido snarling and her pussy invariably sodden. Pleasantly squiffy on the wine and always naked we'd make love, sometimes tender and full of emotion but usually with an animal intensity that left us both spent and breathless and blinking, stunned, like victims of some violent crime. Report_Story #2 
+ After work we usually tumbled naked across her bed, often with her riding me, my hands full of her. I think it was three times I stayed with her for the entire night, our pleasure mostly frantic bouts of delightfully hot and urgent sex before the last bus passed through the village. Sometimes, on Sundays or when my day off fell during the week, when her need was on her, she would drive to town to visit me in the bedsit. During those times she would arrive with a bottle of red wine in hand and a glint in her eye, libido snarling and her pussy invariably sodden. Pleasantly squiffy on the wine and always naked we'd make love, sometimes tender and full of emotion but usually with an animal intensity that left us both spent and breathless and blinking, stunned, like victims of some violent crime.  
 
  
 
@@ -334,7 +334,7 @@
 
  One night she surprised me by turning up, her husband at home just down the hall watching football on television. It was a frantic and extremely urgent coupling, me thrusting at Terri from behind, my hands on her hipbones, her buttocks thwack-thwack-smacking against my thighs as we fucked. 
 
- Terri braced herself against the wall, resting on her forearms as she angled her pelvis to take me as deep as she needed me to be. Report_Story #3 
+ Terri braced herself against the wall, resting on her forearms as she angled her pelvis to take me as deep as she needed me to be.  
 
  
 

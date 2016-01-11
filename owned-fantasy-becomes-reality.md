@@ -398,7 +398,7 @@
 
  I quickly took off my shoes, revealing my nylon covered feet. 
 
- "Interesting," he said, his rage completely dissipated. "I assume if you are wearing the pink stockings, you are wearing the pink panties and bra?" Report_Story #2 
+ "Interesting," he said, his rage completely dissipated. "I assume if you are wearing the pink stockings, you are wearing the pink panties and bra?"  
 
  
 
@@ -764,7 +764,7 @@
 
  When I went returned from the washroom right before dinner, my wife's face was very flushed. I wondered why, but didn't think too much of it. 
 
- Eventually we were having a glass of wine when things got strange. Rod asked "Maryanne, please don't be offended, but I have to ask. You are amazingly attractive. Why did you settle for someone like Dave?" Report_Story #3 
+ Eventually we were having a glass of wine when things got strange. Rod asked "Maryanne, please don't be offended, but I have to ask. You are amazingly attractive. Why did you settle for someone like Dave?"  
 
  
 

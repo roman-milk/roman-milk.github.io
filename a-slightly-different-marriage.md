@@ -214,7 +214,7 @@
 
  "I know. I've asked around about you. So, what is it about me that had you staring at me?" 
 
- Well, she wanted to know so I told her. She laughed at me. "You can't be serious. That is an old wives tale; nothing like that ever happens for real." Report_Story #2 
+ Well, she wanted to know so I told her. She laughed at me. "You can't be serious. That is an old wives tale; nothing like that ever happens for real."  
 
  
 
@@ -460,7 +460,7 @@
 
  +++++++++++++++++++++++++++ 
 
- Sam had left the house early to have a breakfast meeting with two of her managers and as I was putting my breakfast dishes in the dishwasher I noticed her day planner on the counter. I didn't know if she would need it or not, but I had to drive right by her office on my way to work so I thought I would drop it off. Report_Story #3 
+ Sam had left the house early to have a breakfast meeting with two of her managers and as I was putting my breakfast dishes in the dishwasher I noticed her day planner on the counter. I didn't know if she would need it or not, but I had to drive right by her office on my way to work so I thought I would drop it off.  
 
  
 
@@ -664,7 +664,7 @@
 
  "There is another thing. You start seeing just one guy and he is going to press for more of your time. He isn't going to want to be limited to just one night a week." 
 
- "He would have to accept it. He would know that I'm married and that I couldn't get out of the house all that often without making my husband suspicious, but there is something else. There are times I know you wish I would leave you alone. Don't bother denying it; I can always tell when that happens. When you are in one of those periods I could call my current boyfriend and tell him that I could sneak away if he was interested. It is just a thought baby." Report_Story #4 
+ "He would have to accept it. He would know that I'm married and that I couldn't get out of the house all that often without making my husband suspicious, but there is something else. There are times I know you wish I would leave you alone. Don't bother denying it; I can always tell when that happens. When you are in one of those periods I could call my current boyfriend and tell him that I could sneak away if he was interested. It is just a thought baby."  
 
  
 
@@ -836,7 +836,7 @@
 
  "I didn't see it that way Samantha. Laura hasn't lied to me and humiliated me in front of others. I feel comfortable around a woman like that." 
 
- "Damn it Rob! Why won't you see that it doesn't mean anything? It was just fun. You know that none of what those guys said is true. I got off, they got off and I know that you got off with Laura. As for humiliation? So fucking what! Does anything that those people might think of you matter? You don't know any of them and other than at the parties you never have any interaction with any of them. Do you care what the mailman or the garbage man think of you? How about the check out clerk at the grocery store? Those people mean nothing to you so why do you give a fuck about what they think! Report_Story #5 
+ "Damn it Rob! Why won't you see that it doesn't mean anything? It was just fun. You know that none of what those guys said is true. I got off, they got off and I know that you got off with Laura. As for humiliation? So fucking what! Does anything that those people might think of you matter? You don't know any of them and other than at the parties you never have any interaction with any of them. Do you care what the mailman or the garbage man think of you? How about the check out clerk at the grocery store? Those people mean nothing to you so why do you give a fuck about what they think!  
 
  
 
@@ -998,7 +998,7 @@
 
  "I didn't say you could either. I had to take a leak and had planned to talk it over when I got back, but you were gone when I got back. If I had agreed there were ways it could have been handled without making me look like a fool. He could have left and then a bit later we could have left and you could have met up with him. 
 
- "This time really grinds me. Did we talk about it ahead of time? No we didn't. You set it up and were just going to drop it on me. I will not be humiliated Samantha. I just will not! This asshole you were planning to meet has had plenty of time to tell all his buddies about the hot married woman he fucked while her husband sat in the bar and waited for him to bring her back. You can bet that he has told all of them that her wimpy assed husband is bringing her back up so he can fuck her again and you can bet everything that you own on the fact that some of those buddies are going to be sitting there in the bar just to see if he is telling the truth. Report_Story #6 
+ "This time really grinds me. Did we talk about it ahead of time? No we didn't. You set it up and were just going to drop it on me. I will not be humiliated Samantha. I just will not! This asshole you were planning to meet has had plenty of time to tell all his buddies about the hot married woman he fucked while her husband sat in the bar and waited for him to bring her back. You can bet that he has told all of them that her wimpy assed husband is bringing her back up so he can fuck her again and you can bet everything that you own on the fact that some of those buddies are going to be sitting there in the bar just to see if he is telling the truth.  
 
  
 

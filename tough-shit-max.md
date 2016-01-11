@@ -220,7 +220,7 @@
 
  "I' glad you asked." I proceeded to tell them everything that I'd found out at the game and at the hospital. "You all ganged up on me and railroaded me last time, but it isn't going to happen again. She is running around just as she did before we were forced to get married and even though I'm not even eighteen yet I do know that I do not have to put up with a cheating wife." 
 
- I turned to my dad and said, "You are right. This is your house and you get to make the rules, but she is not living with me any more. You bring her back into this house and I'll move out. If she needs a place to live it can be with her folks or with the guy whose car she was half naked in last night, but she is not living with me." Report_Story #2 
+ I turned to my dad and said, "You are right. This is your house and you get to make the rules, but she is not living with me any more. You bring her back into this house and I'll move out. If she needs a place to live it can be with her folks or with the guy whose car she was half naked in last night, but she is not living with me."  
 
  
 
@@ -476,7 +476,7 @@
 
  I drove home in a highly confused state. I was still married to Maxi? Cold it really be true? Then I remembered that I had dropped the divorce papers unread into the trash can. If I was supposed to sign them I never did. Now what the hell should I do? When I woke up the next morning I had no better idea than I'd had before going to bed, but one thing I did know; pussy was pussy and as pussy Maxi was head and shoulders above what I'd been getting since I got home. I was going to take advantage of the fact that she had told me that I had 'certain rights.' 
 
- I called her Monday and we had dinner and ended up at my place. I had something to do Tuesday night, but I made a date for Wednesday. When I picked her up I met Merrily for the first time. She shook my hand when Maxi told her to, but she didn't smile and when I tried talking to her she scooted over next to Maxi and hugged her leg while staring at me. When we left I asked Maxi where she would like to go and she said: Report_Story #3 
+ I called her Monday and we had dinner and ended up at my place. I had something to do Tuesday night, but I made a date for Wednesday. When I picked her up I met Merrily for the first time. She shook my hand when Maxi told her to, but she didn't smile and when I tried talking to her she scooted over next to Maxi and hugged her leg while staring at me. When we left I asked Maxi where she would like to go and she said:  
 
  
 
@@ -700,7 +700,7 @@
 
  "You just said I was super in the bedroom." 
 
- "That had nothing to do with it lover. The one thing I could not get from you was the God awful rush I got from cheating. The sex I got from the others didn't even come close to what I got from you, but the cheating gave me orgasms you wouldn't believe. I'd lay there and look up at whoever's turn it was and think, "That's it, fuck my married pussy. Drive that cock into my cheating cunt" and I'd have one hell of an orgasm. I'd say things like "You get off knowing you're fucking another man's wife don't you?" and when they would say "Yes you fucking slut, I do" I would cum buckets. It was the same when I ran around on you just after we got married. The rush, the charge, the high all came from knowing that I was cheating." Report_Story #4 
+ "That had nothing to do with it lover. The one thing I could not get from you was the God awful rush I got from cheating. The sex I got from the others didn't even come close to what I got from you, but the cheating gave me orgasms you wouldn't believe. I'd lay there and look up at whoever's turn it was and think, "That's it, fuck my married pussy. Drive that cock into my cheating cunt" and I'd have one hell of an orgasm. I'd say things like "You get off knowing you're fucking another man's wife don't you?" and when they would say "Yes you fucking slut, I do" I would cum buckets. It was the same when I ran around on you just after we got married. The rush, the charge, the high all came from knowing that I was cheating."  
 
  
 
@@ -926,7 +926,7 @@
 
  +++++++++++++++ 
 
- Another two weeks went by. Satisfied that Maxine was okay I stopped calling her at work. She made no attempt to reach either Merrily or me and I had no idea what I would say if she did. I doubted very much that it would be "Hurry home, I've missed you" and I said as much to Merrily over dinner one night and she laughed and said: Report_Story #5 
+ Another two weeks went by. Satisfied that Maxine was okay I stopped calling her at work. She made no attempt to reach either Merrily or me and I had no idea what I would say if she did. I doubted very much that it would be "Hurry home, I've missed you" and I said as much to Merrily over dinner one night and she laughed and said:  
 
  
 

@@ -140,7 +140,7 @@
 
  "Yeah, Ashley…yeah baby…" 
 
- He was fucking my mouth again; that wonderful, hard rod plowing into my mouth, stabbing against my tongue and my lips. His fingers were buried to the knuckle in my twat, and my pussy rang out with pleasure, sending sparks of lust that raced through my body and made me twitch and shudder in joy. Gently, slowly, he began to slide his fingers in and out of my soaked twat, pumping my aching flesh, stretching me with every motion. I let out a wild moan of approval, my eyes wide with ecstasy as the pleasure raced through my body. Report_Story #2 
+ He was fucking my mouth again; that wonderful, hard rod plowing into my mouth, stabbing against my tongue and my lips. His fingers were buried to the knuckle in my twat, and my pussy rang out with pleasure, sending sparks of lust that raced through my body and made me twitch and shudder in joy. Gently, slowly, he began to slide his fingers in and out of my soaked twat, pumping my aching flesh, stretching me with every motion. I let out a wild moan of approval, my eyes wide with ecstasy as the pleasure raced through my body.  
 
  
 

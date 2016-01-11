@@ -444,7 +444,7 @@
 
  "Take your clothes off for me, baby. I want to see that beautiful body. Show it to me." 
 
- She blushes and slowly unzips her dress. She pulls the straps and it fall around her feet. She puts her hands behind her head and gently sways her breasts for him. She walks up to him and he puts a finger on each nipple. She gasps and holds his hands to her. He takes one in his mouth and sucks on it. His hands move to her panties and he slowly pulls them down. They fall around her feet. He holds her ass cheeks in his hand. He switches and sucks her other nipple. She holds his head to her. His hand finds her wet pussy and he gently caresses her lips. She opens her legs to give him better access. One finger slowly pushes into her wet folds. She gasps as he pushes it in. He gently bites her nipple and her pussy clenches on his finger. Report_Story #2 
+ She blushes and slowly unzips her dress. She pulls the straps and it fall around her feet. She puts her hands behind her head and gently sways her breasts for him. She walks up to him and he puts a finger on each nipple. She gasps and holds his hands to her. He takes one in his mouth and sucks on it. His hands move to her panties and he slowly pulls them down. They fall around her feet. He holds her ass cheeks in his hand. He switches and sucks her other nipple. She holds his head to her. His hand finds her wet pussy and he gently caresses her lips. She opens her legs to give him better access. One finger slowly pushes into her wet folds. She gasps as he pushes it in. He gently bites her nipple and her pussy clenches on his finger.  
 
  
 
@@ -910,7 +910,7 @@
 
  "OK, now that the excitement is over where we going." 
 
- "How about Dad's place. I think they are at your place. I'll call Dad and find out." Report_Story #3 
+ "How about Dad's place. I think they are at your place. I'll call Dad and find out."  
 
  
 

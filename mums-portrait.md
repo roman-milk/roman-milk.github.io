@@ -156,7 +156,7 @@
 
  Billy tongued, licked and fingered his mother, following every urgent command, every whispered instruction as he pushed his beautiful mum further towards her orgasm. 
 
- 'Oh, fuck...Fuck...I'm going to come.' Jenny panted, her thighs awash with her juice as Billy continued in his efforts between them. 'Lick my cunt. OH! You beautiful bastard... Lick my cunt baby,' she cried as her thighs quivered and trembled, her orgasm rushing her. Report_Story #2 
+ 'Oh, fuck...Fuck...I'm going to come.' Jenny panted, her thighs awash with her juice as Billy continued in his efforts between them. 'Lick my cunt. OH! You beautiful bastard... Lick my cunt baby,' she cried as her thighs quivered and trembled, her orgasm rushing her.  
 
  
 

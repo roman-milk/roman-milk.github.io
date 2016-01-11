@@ -208,7 +208,7 @@
 
  "I don't know. I can't run around like this until it does." She said. "I'll try something of yours. In the meantime stop looking at me like that." 
 
- "Here. This t-shirt is my favourite." Timmy said. Report_Story #2 
+ "Here. This t-shirt is my favourite." Timmy said.  
 
  
 
@@ -286,7 +286,7 @@
 
  This time she did all the work. When he spurted into her mouth she was ready and sucked at it swallowing fiercely not wanting to gag and wanting it to be over quickly. 
 
- She was angry at getting into such a shameful state; angry at herself. There was a dark side she had never ever suspected for she had somehow enjoyed this awful abuse. It was obvious if she didn't find the strength to stop them they would continue to mistreat her in ever more shameful acts. Report_Story #1 
+ She was angry at getting into such a shameful state; angry at herself. There was a dark side she had never ever suspected for she had somehow enjoyed this awful abuse. It was obvious if she didn't find the strength to stop them they would continue to mistreat her in ever more shameful acts.  
 
  
 
@@ -514,7 +514,7 @@
 
  The lone bee became a hive of activity. They squirmed and wriggled and vibrated deep inside her. Unable to resist, her whole body took on the increased rhythm. She lifted her hips and squeezed her thighs then dropped down on to the bed to once again move under its insistent influence. 
 
- "Ahhh!" She emitted a long wail as a probe pulsed at her clitoris. It pushed her over the edge for a deep orgasm. The orgasm lasted a glorious time spreading tendrils of heat throughout her body. Her toes curled and her nipples throbbed. As she began to calm the constant rhythm kept her on the edge. Report_Story #2 
+ "Ahhh!" She emitted a long wail as a probe pulsed at her clitoris. It pushed her over the edge for a deep orgasm. The orgasm lasted a glorious time spreading tendrils of heat throughout her body. Her toes curled and her nipples throbbed. As she began to calm the constant rhythm kept her on the edge.  
 
  
 
@@ -550,7 +550,7 @@
 
  She would need a rest after yesterday's frantic action. He wasn't proud of what he had done to her but just couldn't help himself. His friend had called it a sex pentathlon and they had spurred each other on. 
 
- Maybe he should encourage Bobby to give her more time to unwind alone. He relaxed and sat back enjoying the rays. At least right now she wasn't being pestered for sex all the time. Report_Story #1 
+ Maybe he should encourage Bobby to give her more time to unwind alone. He relaxed and sat back enjoying the rays. At least right now she wasn't being pestered for sex all the time.  
 
  
 
@@ -730,7 +730,7 @@
 
  In turn she used her body to satisfy them not caring they sometimes missed a part of a television program. She was blissfully unaware of anything but what seemed an endless orgasm. 
 
- More food was needed to sustain the busy hungry three. They worked together in the kitchen clearing and cleaning. Lara threw the new clothes they had bought into the washer with everything else as they had become soiled with her and their sweat and special juices. She now knew what a biological wash was for. Report_Story #2 
+ More food was needed to sustain the busy hungry three. They worked together in the kitchen clearing and cleaning. Lara threw the new clothes they had bought into the washer with everything else as they had become soiled with her and their sweat and special juices. She now knew what a biological wash was for.  
 
  
 

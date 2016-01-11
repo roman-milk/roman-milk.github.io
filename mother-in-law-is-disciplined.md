@@ -174,7 +174,7 @@
 
  Katherine nodded her head as much as my hand would allow. I withdrew the soap and allowed her to spit out the remains into the sink. It would do no good; the soapy taste would remain in her mouth for hours. 
 
- "All right Young Lady!" I stated emphatically. "Its time for the next part of your lesson! You have been a very naughty girl, treating her as if she were 8 instead of 48, Now Young Lady march yourself into the living room, find the nearest corner, put your nose flat against the wall and place your hands on top of your head." I told her. Report_Story #2 
+ "All right Young Lady!" I stated emphatically. "Its time for the next part of your lesson! You have been a very naughty girl, treating her as if she were 8 instead of 48, Now Young Lady march yourself into the living room, find the nearest corner, put your nose flat against the wall and place your hands on top of your head." I told her.  
 
  
 
@@ -182,7 +182,7 @@
 
  Once she reached the corner I took the bar of Ivory and pinching her nose to have her open her mouth. I inserted the soap into her mouth. I knew we had two very sorry girls. One with a red bottom bent over her spanking stool, pj's on, bare bottom up, panties over her head. The other one was in the corner with a bar of soap in her mouth. 
 
- "Girls tomorrow we will go shopping for punishment clothes for you Kathy." Report_Story #1 
+ "Girls tomorrow we will go shopping for punishment clothes for you Kathy."  
 
  
 
@@ -336,7 +336,7 @@
 
  "Yes Mommy," She answered. 
 
- My 48 year old Mother-In-Law and her daughter were completely embarrassed and got into the car as quickly as possible. "Both of you sit on your bare bottoms, your punishment is far from over," I ordered. Report_Story #1 
+ My 48 year old Mother-In-Law and her daughter were completely embarrassed and got into the car as quickly as possible. "Both of you sit on your bare bottoms, your punishment is far from over," I ordered.  
 
  
 
@@ -456,7 +456,7 @@
 
  "Is that clear young lady?" I say just as I hear the doorbell ring downstairs. 
 
- 'Yes Daddy" I hear Karen, as I go downstairs to answer the doorbell. Report_Story #1 
+ 'Yes Daddy" I hear Karen, as I go downstairs to answer the doorbell.  
 
  
 
@@ -606,7 +606,7 @@
 
  "Please Sir I feel better no need for an enema, she pleads. I ignore her tapping lightly on her fanny cheeks. 
 
- "Now Young lady some questions has your Mother ever spanked you?" I ask. Report_Story #2 
+ "Now Young lady some questions has your Mother ever spanked you?" I ask.  
 
  
 
@@ -740,7 +740,7 @@
 
  I hear my wife call from upstairs "Daddy may we get up from our nap." 
 
- "I will be right up Little One." Report_Story #1 
+ "I will be right up Little One."  
 
  
 

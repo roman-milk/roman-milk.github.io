@@ -266,7 +266,7 @@
 
  -- 
 
- Julius picked up various test tubes and flung them around. Their contents sprayed across the table, the walls and the floor. He then picked up the beaker with Donald's latest formula. Donald froze. Report_Story #2 
+ Julius picked up various test tubes and flung them around. Their contents sprayed across the table, the walls and the floor. He then picked up the beaker with Donald's latest formula. Donald froze.  
 
  
 
@@ -352,7 +352,7 @@
 
  -- 
 
- Did you enjoy it? Did you think it sucked? Send Feedback! And don't forget to vote! Report_Story #1 
+ Did you enjoy it? Did you think it sucked? Send Feedback! And don't forget to vote!  
 
  
 
@@ -750,7 +750,7 @@
 
  -- 
 
- The Shoreline was packed as it usually was on a Friday night. Donald felt like a pinball as he got bumped around trying to find Tyson. He finally spotted him standing by a support pillar, talking to a sexy Pilipino girl with hair to the middle of her back, a slightly big but smooth and round ass and surprisingly large breasts for someone her size. She wore a white two-piece outfit with dozens of tassels hanging from both the top and bottom, making it almost look like a cowgirl outfit. Her top could barely contain her breasts and Donald saw Tyson's gaze continually move from her eyes to her breasts and back as though he were watching a vertical tennis match. Donald moved in sheepishly so as not to disturb Tyson's game, but Tyson stopped the girl in mid-sentence when he saw is buddy. Report_Story #2 
+ The Shoreline was packed as it usually was on a Friday night. Donald felt like a pinball as he got bumped around trying to find Tyson. He finally spotted him standing by a support pillar, talking to a sexy Pilipino girl with hair to the middle of her back, a slightly big but smooth and round ass and surprisingly large breasts for someone her size. She wore a white two-piece outfit with dozens of tassels hanging from both the top and bottom, making it almost look like a cowgirl outfit. Her top could barely contain her breasts and Donald saw Tyson's gaze continually move from her eyes to her breasts and back as though he were watching a vertical tennis match. Donald moved in sheepishly so as not to disturb Tyson's game, but Tyson stopped the girl in mid-sentence when he saw is buddy.  
 
  
 
@@ -900,7 +900,7 @@
 
  "Yes, husband." she replied. Mariko got up, got dressed and finished her chores. She massaged her husband's shoulders and watched TV with him. Later, they fucked again. This time, he was quicker than before. She didn't care. She had made a decision that night that brought a comforting happiness to her. Next week, she was going over to Donald's apartment and she was going to seduce him. 
 
- Vote. Write feedback. Inspire me to write more! ;-) Report_Story #1 
+ Vote. Write feedback. Inspire me to write more! ;-)  
 
  
 
@@ -1134,7 +1134,7 @@
 
  "What is it you want?" he asked. 
 
- She didn't reply. She lay there trying to will herself to orgasm and when that didn't work, she willed it to go away. She shouldn't have bothered. As soon as she calmed down, he was on her again. She moaned loudly now, but she tried to hide how close she was getting. She'd cum before he realized how close she actually was. She'd just relax herself when she felt it coming. There was a grin on her face as it built, but he stopped again. Just in time. Report_Story #2 
+ She didn't reply. She lay there trying to will herself to orgasm and when that didn't work, she willed it to go away. She shouldn't have bothered. As soon as she calmed down, he was on her again. She moaned loudly now, but she tried to hide how close she was getting. She'd cum before he realized how close she actually was. She'd just relax herself when she felt it coming. There was a grin on her face as it built, but he stopped again. Just in time.  
 
  
 
@@ -1408,7 +1408,7 @@
 
  His cum sprayed into her mouth but the vibrators never turned on. She swallowed his load and waited. Her eyes looked up at him, pleading while his cock sat in her mouth. He just smiled down. She didn't dare do anything until she had cleaned his cock. When he pulled it from her mouth, she looked up and whimpered "Please." 
 
- "I though you weren't in the mood." Richard accused. Report_Story #3 
+ "I though you weren't in the mood." Richard accused.  
 
  
 
@@ -1450,7 +1450,7 @@
 
  When I began this chapter, I really only had the last two sections in mind. But, when my fingers started typing, that whole Carol meets Richard section just poured out. I hope you enjoyed it. 
 
- Boratus. Report_Story #1 
+ Boratus.  
 
  
 
@@ -1748,7 +1748,7 @@
 
  "But you don't drink," she responded. "So you'll just do the driving later." 
 
- "OK." he agreed and summoned enough courage to put his hands on her hips. "Where did you want to . . .I mean . . .Let's go to the Devil's Martini." Report_Story #2 
+ "OK." he agreed and summoned enough courage to put his hands on her hips. "Where did you want to . . .I mean . . .Let's go to the Devil's Martini."  
 
  
 
@@ -1848,7 +1848,7 @@
 
  "YESSSSSSSSSS!!!!" She screamed and bright colours flashed in her head. She gave a few more hard thrusts on the stick shift and then dropped the brush. She grabbed onto the roof opening with both hands to keep from collapsing and enjoy the night air at the same time. Then she realized that the lights in her head had not stopped flashing. She opened her eyes to see a police cruiser parking behind her. The sound of a throat clearing made her turn to see an officer standing next to the car watching her. She went red at first, wondering how she must look with her shirt and bra open and her naked tits hanging with hair clips on them, her naked bottom impaled on the stick shift and cum dripping out from under her, her hair messed and snagged on the sunroof window, and a "just fucked" look in her eyes. She knew she was pretty much fucked. So she said the only thing she could think of. 
 
- "What seems to be the problem, Officer?" Report_Story #1 
+ "What seems to be the problem, Officer?"  
 
  
 
@@ -2140,7 +2140,7 @@
 
  Kazumi thrust his cock into Mariko again and again. He loved the feel of her tight little pussy around his throbbing cock. He just wished she was a little more animated. He could not complain much though. She willingly let him prop her body into whatever position was best for him and then held that position until her moved her again, or until he came. She let out sweet little moans beneath him, letting him know how much he pleasured her. She was lucky to have a man such as him: faithful, dedicated and skilled. He decided to surprise her tonight and grabbed one of her breasts tightly as he came in her. She gasped at the feel of him. He was sure she came with him. Her nipple hardening at his touch was a sure sign. He knew she came whenever she let out a little squeaks or large gasps. He knew he was very good at making his wife happy. Satisfied, he rolled off her and fell asleep almost immediately. 
 
- Mariko lay in bed listening to her husband snore. He had grabbed her breast unexpectedly and she thought it was going to be the start of something spontaneous and different in bed, not the end. The grab had aroused her. It was the first time in years her husband had done anything to arouse her and it was his last act before rolling off her. She climbed out of bed and went into the living room. Her thoughts drifted back to the other night when she played with herself for the first time, when she came for the first time. She felt guilty about it. She should not do such things, but it had been so pleasurable that her head still swan in thoughts of it. Report_Story #2 
+ Mariko lay in bed listening to her husband snore. He had grabbed her breast unexpectedly and she thought it was going to be the start of something spontaneous and different in bed, not the end. The grab had aroused her. It was the first time in years her husband had done anything to arouse her and it was his last act before rolling off her. She climbed out of bed and went into the living room. Her thoughts drifted back to the other night when she played with herself for the first time, when she came for the first time. She felt guilty about it. She should not do such things, but it had been so pleasurable that her head still swan in thoughts of it.  
 
  
 
@@ -2360,7 +2360,7 @@
 
  "I just hope some jerk doesn't hurt her like that again." Kevin said and then stayed quiet for the rest of the drive. 
 
- Donald was relieved to get out of the car. If Kevin knew anything, he didn't say and not knowing seemed to be worse than just coming clean about what had happened. He went back into his building and up the elevator to his floor, remembering his run in with Mariko on the way up. He walked down the hall and entered his apartment to find his biggest surprise yet. Report_Story #1 
+ Donald was relieved to get out of the car. If Kevin knew anything, he didn't say and not knowing seemed to be worse than just coming clean about what had happened. He went back into his building and up the elevator to his floor, remembering his run in with Mariko on the way up. He walked down the hall and entered his apartment to find his biggest surprise yet.  
 
  
 
@@ -2594,7 +2594,7 @@
 
  With that, he rammed his cock all the way into her. 
 
- "Fuck!" she screamed, after which she buried her face in the sheets to scream some more. Tyson began to pound her hard and gave her ass the occasional slap. She barely noticed the slaps. She was lost in a euphoric world as his cock brought on orgasm after orgasm. Her head came back up and she moaned, calling out obscenities that heightened the experience for her and spurred Tyson on. She didn't know sex could be like this. She might have gone the rest of her life not knowing and being content, but the last few days had changed all of that. She would do anything to have this man keep fucking her. Report_Story #2 
+ "Fuck!" she screamed, after which she buried her face in the sheets to scream some more. Tyson began to pound her hard and gave her ass the occasional slap. She barely noticed the slaps. She was lost in a euphoric world as his cock brought on orgasm after orgasm. Her head came back up and she moaned, calling out obscenities that heightened the experience for her and spurred Tyson on. She didn't know sex could be like this. She might have gone the rest of her life not knowing and being content, but the last few days had changed all of that. She would do anything to have this man keep fucking her.  
 
  
 
@@ -2746,7 +2746,7 @@
 
  Soon, Tyson and the girls were wet and lathered. Tyson's hard-on was evident and the girls giggled at it but didn't touch him except to wash his back. Tyson kept touching them but they pulled away, as if they wanted to keep things very much only business. What business, Tyson didn't know. 
 
- "So what happened to you last night?" Nancy asked him. Report_Story #3 
+ "So what happened to you last night?" Nancy asked him.  
 
  
 
@@ -2828,7 +2828,7 @@
 
  He looked around the room and then at his deflating cock. 
 
- "You got off easy with the girls. They could have done much worse." He thought, then suddenly realized that he had to pee. Report_Story #1 
+ "You got off easy with the girls. They could have done much worse." He thought, then suddenly realized that he had to pee.  
 
  
 
@@ -3110,7 +3110,7 @@
 
  "Yes, Sir," she replied. Before she could turn to leave, Sunny grabbed her by the arm and pulled her in to him. He kissed her deeply, then pushed her away. She left on weak legs, using the furniture and walls to steady herself as she exited. 
 
- Sunny turned back to Mrs. Acton who was lost in a world of pleasure. He wasn't even sure if she was aware that Daya had come and gone. He expected she would have been embarrassed by her maid's presence, but she seemed oblivious. He whispered instructions into her ear. Report_Story #2 
+ Sunny turned back to Mrs. Acton who was lost in a world of pleasure. He wasn't even sure if she was aware that Daya had come and gone. He expected she would have been embarrassed by her maid's presence, but she seemed oblivious. He whispered instructions into her ear.  
 
  
 
@@ -3296,7 +3296,7 @@
 
  -- 
 
- Tyson lay on his floor, still tied to his chair, in the dark. His efforts to free himself had failed and the sun had long since set. His pants were soaked with piss and there was a little puddle leaking out from his crotch. He was starving now. He hoped that Kara hadn't forgotten about him. All he could do was try to get some sleep. Report_Story #1 
+ Tyson lay on his floor, still tied to his chair, in the dark. His efforts to free himself had failed and the sun had long since set. His pants were soaked with piss and there was a little puddle leaking out from his crotch. He was starving now. He hoped that Kara hadn't forgotten about him. All he could do was try to get some sleep.  
 
  
 
@@ -3588,7 +3588,7 @@
 
  Dominique's breasts pushed gently into Natalie's back and her pelvis spooned her butt. The French temptress began to sway and Natalie let her body move with her. It was just a swish of the hips but the slow subtle movement was both alien and enticing to her. Soon her hips were rocking from side to side in a figure eight motion to the rhythm of the music. Natalie closed her eyes and enjoyed not only the motion of her body, but also the sensuous touch of the woman guiding her. She felt Dominique's knees bend into hers and tensed for a moment. A sultry, "Just go with it," unlocked her body again and a slight dip was added to their duet. 
 
- Dominique took hold of Natalie's hands and guided them down the sides of her body. Dominique's breasts pressed harder, making Natalie bend forward and allowing her hands to roam farther down. Report_Story #2 
+ Dominique took hold of Natalie's hands and guided them down the sides of her body. Dominique's breasts pressed harder, making Natalie bend forward and allowing her hands to roam farther down.  
 
  
 
@@ -3840,7 +3840,7 @@
 
  Donny realized that both he and his apartment were saturated with the pheromones. 
 
- "Oh Shit!" Report_Story #1 
+ "Oh Shit!"  
 
  
 
@@ -4046,7 +4046,7 @@
 
  Daphne surprised Ahn later that day at their tutoring session. He moved in to kiss her, but she only offered her cheek before making him sit down. When asked her what was wrong she replied, "Nothing, but this is important to you, to your future plans. So until you get through the lesson we are tutor and tutee. After that you can kiss me." 
 
- He didn't think he could love her more until that moment. After the session she moved in to kiss him and this time he stopped her. Report_Story #2 
+ He didn't think he could love her more until that moment. After the session she moved in to kiss him and this time he stopped her.  
 
  
 
@@ -4282,7 +4282,7 @@
 
  "Yeah." 
 
- "You sure?" Report_Story #3 
+ "You sure?"  
 
  
 
@@ -4488,7 +4488,7 @@
 
  -- 
 
- Thanks for the great response to this series. Please see my profile for information on upcoming chapters. – B. Report_Story #1 
+ Thanks for the great response to this series. Please see my profile for information on upcoming chapters. – B.  
 
  
 
@@ -4926,7 +4926,7 @@
 
  "Strange how?" 
 
- "I'm not sure. He seems a little out of it." Report_Story #2 
+ "I'm not sure. He seems a little out of it."  
 
  
 
@@ -5406,7 +5406,7 @@
 
  "Excuse me?" 
 
- "I just decided. My stripper name, it's Raven." Report_Story #1 
+ "I just decided. My stripper name, it's Raven."  
 
  
 
@@ -5636,7 +5636,7 @@
 
  "Yes, Sunny." she smiled and hurriedly lost her jacket, blouse and skirt. She kept her high heels on. Moments later Angelina's head rolled back as Alice's tongue explored the area between her legs. When Alice realized Sunny had cum in her, she eagerly licked the juices out of Angelina's pussy. Angelina grabbed Alice's head and pushed her face in farther. Less than a minute later she came again. 
 
- She looked over at Sunny who was beginning to get hard again. "Come over here and I'll suck your cock for you, Sunny." she offered. Report_Story #2 
+ She looked over at Sunny who was beginning to get hard again. "Come over here and I'll suck your cock for you, Sunny." she offered.  
 
  
 
@@ -5840,7 +5840,7 @@
 
  -- 
 
- Kazumi drove home with a purpose. This was the earliest he'd left work in months. The other employees were sure to think that something was wrong at home. It was the opposite, though. Something was right. Mariko had changed over the past week. It had been an emotional week for Kazumi as a result. He'd realized he was a terrible lover even though his wife had not come right out and said it. His wife had probably not been satisfied in bed until this week, not until she decided to take control and show him how to fuck her. In doing so, his sexual experience had risen to new heights. When it came right down to it, his wife had been an awful lover too. He was angry when he felt that she had the audacity to show HIMhow to fuck. He was embarrassed and ashamed when he realized he needed to be shown. He was curious as to what brought the change about in his wife. Had she just reached the breaking point or was it something else? Now he was happy, god was he happy. It wasn't just because the sex was great. It was like some tension had lifted in his household, tension he had never known was there. There was laughter and playfulness now. There was affection and closeness. When they fell asleep Mariko would cuddle up in his arms. He couldn't remember how long it had been since she'd done that. So he left work, not early, but he didn't linger for the sake of show as usual. He was feeling yet another emotion. He was fucking horny. Report_Story #3 
+ Kazumi drove home with a purpose. This was the earliest he'd left work in months. The other employees were sure to think that something was wrong at home. It was the opposite, though. Something was right. Mariko had changed over the past week. It had been an emotional week for Kazumi as a result. He'd realized he was a terrible lover even though his wife had not come right out and said it. His wife had probably not been satisfied in bed until this week, not until she decided to take control and show him how to fuck her. In doing so, his sexual experience had risen to new heights. When it came right down to it, his wife had been an awful lover too. He was angry when he felt that she had the audacity to show HIMhow to fuck. He was embarrassed and ashamed when he realized he needed to be shown. He was curious as to what brought the change about in his wife. Had she just reached the breaking point or was it something else? Now he was happy, god was he happy. It wasn't just because the sex was great. It was like some tension had lifted in his household, tension he had never known was there. There was laughter and playfulness now. There was affection and closeness. When they fell asleep Mariko would cuddle up in his arms. He couldn't remember how long it had been since she'd done that. So he left work, not early, but he didn't linger for the sake of show as usual. He was feeling yet another emotion. He was fucking horny.  
 
  
 

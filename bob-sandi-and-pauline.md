@@ -172,7 +172,7 @@
 
  "All I could do was wait until you brought it up again and then pretend to reluctantly give in and then suddenly discover that it wasn't bad at all. 
 
- "It was an uncomfortable flight back home. Both Dale and I knew we had crossed a line and even though we had adjoining seats we didn't talk. When we got home I took three days off and considered resigning, but then said to hell with it. It was a one time thing and it would never happen again. Not only that, but you would never know. Report_Story #2 
+ "It was an uncomfortable flight back home. Both Dale and I knew we had crossed a line and even though we had adjoining seats we didn't talk. When we got home I took three days off and considered resigning, but then said to hell with it. It was a one time thing and it would never happen again. Not only that, but you would never know.  
 
  
 
@@ -250,7 +250,7 @@
 
  She got up and left the room crying. I didn't sleep all that well that night. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -466,7 +466,7 @@
 
  She went up and came down hard and made the sounds that she makes when she orgasms and moaned: 
 
- "So good, so good; oh yeah baby, so fucking good." Report_Story #2 
+ "So good, so good; oh yeah baby, so fucking good."  
 
  
 
@@ -564,7 +564,7 @@
 
  Once back in my apartment as I was making myself dinner it finally hit me. I was without Sandi in my life for the first time in twenty-three years. It was upsetting because I did love her. Not that I had loved her, but that I still did love her. I probably always would, but I just could not accept what she had done and put it behind me. I just wasn't wired that way. I knew I was going to miss her in the coming months, but there was no going back for me. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -776,7 +776,7 @@
 
  "Remember Brian? The scales are being balanced. I liked him and I'm going to do my best to see him some more." 
 
- "Just don't tell her about the recording. She is a pretty good PA and I want to keep her around. Also I'll let her keep my bed warm until she finally figures out that I'm not going to marry her." Report_Story #2 
+ "Just don't tell her about the recording. She is a pretty good PA and I want to keep her around. Also I'll let her keep my bed warm until she finally figures out that I'm not going to marry her."  
 
  
 
@@ -960,7 +960,7 @@
 
  ++++++++++++++++++++++++ 
 
- It was a Tuesday and Pauline wouldn't be over that night. Off 'visiting her sister' she said. I'd swung by the house and had picked up the latest from the recorder and I sat down and had a beer while I listened to the phone tape and watched the video. There was nothing on the phone tape -- there never was - - just normal calls and the occasional call from Neubert setting up a date. The video showed that Neubert had been there Sunday and I watched as they sucked and fucked and then it got interesting. Report_Story #3 
+ It was a Tuesday and Pauline wouldn't be over that night. Off 'visiting her sister' she said. I'd swung by the house and had picked up the latest from the recorder and I sat down and had a beer while I listened to the phone tape and watched the video. There was nothing on the phone tape -- there never was - - just normal calls and the occasional call from Neubert setting up a date. The video showed that Neubert had been there Sunday and I watched as they sucked and fucked and then it got interesting.  
 
  
 

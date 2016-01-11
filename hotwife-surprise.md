@@ -220,7 +220,7 @@
 
  "You really like it?" Cleo breathed, obviously eager for her husband's approval. 
 
- Nodding again, Malcolm said, "Oh yes, Cleo." He nudged his chin at her. "But you're going to have it fastened up properly at the dinner, yeah?" Report_Story #2 
+ Nodding again, Malcolm said, "Oh yes, Cleo." He nudged his chin at her. "But you're going to have it fastened up properly at the dinner, yeah?"  
 
  
 
@@ -418,7 +418,7 @@
 
  She went at him with her hand and mouth, cranking Malcolm's cock while sucking his knob-end, the dildo still dangling from her cunt. 
 
- "Oh shit," Malcolm moaned, his attention fixed on Cleo's labia clinging to the latex shaft, the length of it daubed with splotches of creamy residue, evidence of the woman's state of high agitation. "That was just..." he groaned, shaking his head, expression stunned. Report_Story #3 
+ "Oh shit," Malcolm moaned, his attention fixed on Cleo's labia clinging to the latex shaft, the length of it daubed with splotches of creamy residue, evidence of the woman's state of high agitation. "That was just..." he groaned, shaking his head, expression stunned.  
 
  
 

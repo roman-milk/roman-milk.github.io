@@ -250,7 +250,7 @@
 
  She stood up and offered me her hand. I looked at mom and she winked at me. I stood up, took Linda's hand and she led me to the elevators. 
 
- I can't even begin to describe the trip to paradise that Linda took me on that night. She had me undress her slowly and then she undressed me. She told me not to be embarrassed because the first couple of times would be quick, but my recovery time would also be quick. She went to her knees and sucked my cock and I'm embarrassed to say that I was indeed quick. She swallowed my output and as she stood she said: Report_Story #2 
+ I can't even begin to describe the trip to paradise that Linda took me on that night. She had me undress her slowly and then she undressed me. She told me not to be embarrassed because the first couple of times would be quick, but my recovery time would also be quick. She went to her knees and sucked my cock and I'm embarrassed to say that I was indeed quick. She swallowed my output and as she stood she said:  
 
  
 
@@ -554,7 +554,7 @@
 
  I gave him a nasty look and said, "She's in the kitchen" and then I walked away from him. As I walked away he said: 
 
- "Hey ass wipe! It isn't my fault that you can't do the job and your wife has to come to me to get what she needs." Report_Story #3 
+ "Hey ass wipe! It isn't my fault that you can't do the job and your wife has to come to me to get what she needs."  
 
  
 
@@ -790,7 +790,7 @@
 
  "Then depending on how well the series is received we may do a couple more to extend the series. That's what I have in mind. Do you have any ideas?" 
 
- "A couple. These guys at the poker game are obviously guys I work with or friends of some sort so it would be natural for one or two of them to take me aside and ask me why I put up what you do. I can say something like I love you, can't live without you and the only way I can keep you is by letting you have your way. Another would be for Bobby to get some pussy behind your back. It would be normal, at least to my mind, for Bobby, even though he is in love with you, to resent what you are doing and strike back even if you don't know he is doing it. Have him get laid some night after work and before the game starts so he comes home in a good mood. Then of course you will tear that mood down during and after the game." Report_Story #4 
+ "A couple. These guys at the poker game are obviously guys I work with or friends of some sort so it would be natural for one or two of them to take me aside and ask me why I put up what you do. I can say something like I love you, can't live without you and the only way I can keep you is by letting you have your way. Another would be for Bobby to get some pussy behind your back. It would be normal, at least to my mind, for Bobby, even though he is in love with you, to resent what you are doing and strike back even if you don't know he is doing it. Have him get laid some night after work and before the game starts so he comes home in a good mood. Then of course you will tear that mood down during and after the game."  
 
  
 
@@ -802,7 +802,7 @@
 
  I turned and saw Linda standing there. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1038,7 +1038,7 @@
 
  I had to turn the phone off before I went into my class and I didn't remember to turn it back on until I was on my way home after my last class. I had two missed messages and a voicemail. I listened to the voicemail first and it was from a furniture store wanting to set up a delivery date. They were also one of the missed messages. I called and set up a time for them to make their delivery on Thursday. I called the other missed message and found that it was from Merry Maids and I set up a time to meet their representative at the same time as the furniture delivery. 
 
- Wednesday after classes and my cafeteria shift I went over to Sam's place and got there an hour and a half early. She greeted me in a bathrobe and I could see that she had on high heels and nylons. When the door closed behind me I heard her say, "Herm?" and I turned to look at her and saw that the bathrobe was on the floor. Report_Story #2 
+ Wednesday after classes and my cafeteria shift I went over to Sam's place and got there an hour and a half early. She greeted me in a bathrobe and I could see that she had on high heels and nylons. When the door closed behind me I heard her say, "Herm?" and I turned to look at her and saw that the bathrobe was on the floor.  
 
  
 
@@ -1342,7 +1342,7 @@
 
  "The next episode will be all me and another girl. We will make it look like it has been going on for a while. The bedroom at the end of the hall is set up as a home office and we can make it look like a work place. We can so it so that it looks like I'm setting up a date with a girl I work with. We can make my patio look like a sidewalk café where the girl and I have lunch and I tell her my woes and have it go from there. 
 
- "We can do the sex scenes at my place and make it look like the girl and I have gotten it on several times -- changes of clothes and things like that -- and that will set up my confrontation with Bonnie. The last episode will be the confrontation between the two of you. If we do it right the series will end with me looking like I've got a set of balls. That way if while working for Linda I ever deal with some one who has seen the series they won't think of me as a hopeless wuss." Report_Story #3 
+ "We can do the sex scenes at my place and make it look like the girl and I have gotten it on several times -- changes of clothes and things like that -- and that will set up my confrontation with Bonnie. The last episode will be the confrontation between the two of you. If we do it right the series will end with me looking like I've got a set of balls. That way if while working for Linda I ever deal with some one who has seen the series they won't think of me as a hopeless wuss."  
 
  
 
@@ -1692,7 +1692,7 @@
 
  "You have? Tell us about him." 
 
- "I can't just yet. I think he is the perfect man, but I need to find out a little more about him before I'm sure." Report_Story #4 
+ "I can't just yet. I think he is the perfect man, but I need to find out a little more about him before I'm sure."  
 
  
 
@@ -1746,7 +1746,7 @@
 
  "See you in two weeks lover" and she got out of the car. A porter took her bags and she waved just before disappearing into the terminal. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -2006,7 +2006,7 @@
 
  "I need a very big favor from you guys." 
 
- Report_Story #2 
+  
 
  
 
@@ -2268,7 +2268,7 @@
 
  We moved to the kitchen and sat down and then Sam said, "I thought long and hard over this and I had just about decided to mind my own business and then Herm told me about a conversation he had with you. The one where you told him why you preferred young studs instead of pussy hounds that might just be after you for your money. He didn't tell me this until after you and John were over for dinner and gave us your news. 
 
- "I've known John for a little over four years. How we hooked up is immaterial, but we have worked together on my porn business the entire time I've known him. John has money. Not serious money like you" she said to Linda, "but he has a lot. What he told me was that when his parents died he ended up with over five million in life insurance and money from a wrongful death suit against the company whose drug impaired driver had killed his parents. He didn't go out on a spending spree, but invested a good part of it. Report_Story #3 
+ "I've known John for a little over four years. How we hooked up is immaterial, but we have worked together on my porn business the entire time I've known him. John has money. Not serious money like you" she said to Linda, "but he has a lot. What he told me was that when his parents died he ended up with over five million in life insurance and money from a wrongful death suit against the company whose drug impaired driver had killed his parents. He didn't go out on a spending spree, but invested a good part of it.  
 
  
 

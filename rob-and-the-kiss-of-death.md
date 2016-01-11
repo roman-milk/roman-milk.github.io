@@ -330,7 +330,7 @@
 
  "There was a bright side to it. I was so out of it that I never felt the pain of losing my cherry. How about you Rob? What have you been up to?" 
 
- She delivered that line in such a 'chipper' tone of voice that I was stunned. She saw the look on my face and said: Report_Story #2 
+ She delivered that line in such a 'chipper' tone of voice that I was stunned. She saw the look on my face and said:  
 
  
 
@@ -546,7 +546,7 @@
 
  "No baby, you got it right. Come on in." 
 
- She closed the door behind me and said "Rob" in a husky voice. I turned to face her and she let the robe slip off her shoulders and fall to the floor. She stood there in thigh highs and heels and nothing else. Report_Story #3 
+ She closed the door behind me and said "Rob" in a husky voice. I turned to face her and she let the robe slip off her shoulders and fall to the floor. She stood there in thigh highs and heels and nothing else.  
 
  
 
@@ -730,7 +730,7 @@
 
  On the screen I saw an eighth man enter the room carrying a boom box. He set it on the table and looked at Bently. Bently nodded and the eighth man pushed a button on the boom box and what I can only call 'bump and grind' music started playing. The door opened and Mary Ellen made an entrance similar to what a stripper would make at an adult club. Actually, it was exactly how a stripper would have done it and Mary Ellen proceeded to do a strip number that would have had them stamping their feet, clapping their hands and hollering and whistling at one of those clubs. When she was down to thigh highs and heels she danced over and sat down on the edge of the sofa-bed. 
 
- One of the men brought out a deck of cards, shuffled them and then spread them out in a fan on the conference room table. While he was doing that the others stripped down. Each man drew a card and then they compared them. The man who drew the highest card walked over to Mary Ellen and she took his cock in her mouth and worked on it for a minute or so and then she laid back on the sofa bed and the man mounted her. After that it was just changing bodies and repetitive sex. One fucked her while she sucked another. The part that I liked best was when Bently fucked Mary Ellen in her ass and the reason that I liked it was that sodomy was still on the books as a crime in our state. Several of the others had her ass also and a couple of times she had a man in her mouth, a man in her cunt and a man in her ass at the same time. Report_Story #4 
+ One of the men brought out a deck of cards, shuffled them and then spread them out in a fan on the conference room table. While he was doing that the others stripped down. Each man drew a card and then they compared them. The man who drew the highest card walked over to Mary Ellen and she took his cock in her mouth and worked on it for a minute or so and then she laid back on the sofa bed and the man mounted her. After that it was just changing bodies and repetitive sex. One fucked her while she sucked another. The part that I liked best was when Bently fucked Mary Ellen in her ass and the reason that I liked it was that sodomy was still on the books as a crime in our state. Several of the others had her ass also and a couple of times she had a man in her mouth, a man in her cunt and a man in her ass at the same time.  
 
  
 

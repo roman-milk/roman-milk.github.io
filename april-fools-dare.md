@@ -262,7 +262,7 @@
 
  Zoe's eyes caught mine. She held my stare for a few achingly long seconds before turning her face to Cate. "Well?" she asked. "What do you think?" 
 
- Cate looked up, eyes wide. She nodded, pouting. "I'm a slut," she smirked. Report_Story #2 
+ Cate looked up, eyes wide. She nodded, pouting. "I'm a slut," she smirked.  
 
  
 
@@ -490,7 +490,7 @@
 
  *** 
 
- It was an all-too-brief moment as I tried to suck up the experience, to hold each detail in my mind as I savoured the instant before my cock penetrated the lovely girl. Zoe's face was a mask of anxious anticipation as she looked back at me, her sex offered in what I realised was the last opportunity of my life. Her mouth hung slack, eyes oddly dull and somehow lifeless, glazed with whatever emotions surged inside her at the time. To me, her body was a work of art, Zoe's dark hair loose and flowing. I absorbed her, sucking her in with my mind while fully appreciating the curve of her back where it swept in towards her tight waist. I moaned out loud while gazing at the beautiful feminine symmetry of her hips and buttocks. Zoe was divine, so lovely, so full of life and vigour -- so fucking perfect. Report_Story #3 
+ It was an all-too-brief moment as I tried to suck up the experience, to hold each detail in my mind as I savoured the instant before my cock penetrated the lovely girl. Zoe's face was a mask of anxious anticipation as she looked back at me, her sex offered in what I realised was the last opportunity of my life. Her mouth hung slack, eyes oddly dull and somehow lifeless, glazed with whatever emotions surged inside her at the time. To me, her body was a work of art, Zoe's dark hair loose and flowing. I absorbed her, sucking her in with my mind while fully appreciating the curve of her back where it swept in towards her tight waist. I moaned out loud while gazing at the beautiful feminine symmetry of her hips and buttocks. Zoe was divine, so lovely, so full of life and vigour -- so fucking perfect.  
 
  
 

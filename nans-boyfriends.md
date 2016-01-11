@@ -206,7 +206,7 @@
 
  "Are you sure you won't stay for a while Ben? At least long enough for me to take care of your problem?" 
 
- I just shook my head no as I walked out the bedroom door and left the house. Report_Story #2 
+ I just shook my head no as I walked out the bedroom door and left the house.  
 
  
 

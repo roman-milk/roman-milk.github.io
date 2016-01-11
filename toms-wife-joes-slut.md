@@ -92,7 +92,7 @@
 
  "Yes Joe." 
 
- "Good" and he turned to leave, but he stopped when he reached the door and turned back to me, "Oh, by the way, staying on my good side and keeping me happy means that you need to keep Ralph, Paulie and Steve happy too" and then he laughed, "And maybe one or two others" and then he opened the door and left the room. I turned and looked at Paul, Steve and Ralph and they were giving me big grins. Report_Story #1 
+ "Good" and he turned to leave, but he stopped when he reached the door and turned back to me, "Oh, by the way, staying on my good side and keeping me happy means that you need to keep Ralph, Paulie and Steve happy too" and then he laughed, "And maybe one or two others" and then he opened the door and left the room. I turned and looked at Paul, Steve and Ralph and they were giving me big grins.  
 
  
 

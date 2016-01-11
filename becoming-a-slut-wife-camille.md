@@ -194,7 +194,7 @@
 
  "I don't know. I have no idea how the tables are numbered." 
 
- "You were with Bill's wife, right?" Report_Story #2 
+ "You were with Bill's wife, right?"  
 
  
 

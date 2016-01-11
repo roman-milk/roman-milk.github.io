@@ -222,7 +222,7 @@
 
  "That's it my little girl, beg for it in your ass," he grunted. 
 
- Lilly knew that meant they were shifting into role play, something they often did, especially lately, and now she was no longer his wife, but his daughter. "Oh yes, Daddy, fuck your baby girl's ass, cleanse my sin with your magic wand." Report_Story #2 
+ Lilly knew that meant they were shifting into role play, something they often did, especially lately, and now she was no longer his wife, but his daughter. "Oh yes, Daddy, fuck your baby girl's ass, cleanse my sin with your magic wand."  
 
  
 
@@ -498,7 +498,7 @@
 
  Eve was speechless. Her parents were both naked in the kitchen, her mother was giving her father oral sex, and her father wanted to see her naked. 
 
- "Naked I came from my mother's womb, and naked shall I return," Dylan spoke scripture to her. "The Lord created us as bodies of beauty and there is no need for modesty in this home. Is that clear, my dear?" Report_Story #3 
+ "Naked I came from my mother's womb, and naked shall I return," Dylan spoke scripture to her. "The Lord created us as bodies of beauty and there is no need for modesty in this home. Is that clear, my dear?"  
 
  
 
@@ -758,7 +758,7 @@
 
  Although her pussy was on fire both because she loved having a cock in her mouth and at the scenario of ordering Eve to eat her. Although a constant fantasy, however, she couldn't fathom actually saying the words. 
 
- He pulled his cock out and asked, "Do you understand?" Report_Story #4 
+ He pulled his cock out and asked, "Do you understand?"  
 
  
 
@@ -1032,7 +1032,7 @@
 
  Eve laughed, "I don't feel that way." 
 
- Beth pulled Eve up and kissed her, tasting herself on her best friend's lips. Report_Story #5 
+ Beth pulled Eve up and kissed her, tasting herself on her best friend's lips.  
 
  
 
@@ -1330,7 +1330,7 @@
 
  "Okay, Daddy," she nodded, standing up. The egg inside her moved and a slight tease hit her. She sighed to herself understanding it wasn't done yet. "Can I take this devil's device out of me, Daddy?" 
 
- "Soon, honey," he smiled. "But not until the third task is about to begin. We must let the devil think he is winning, that he has you in his grasp." Report_Story #6 
+ "Soon, honey," he smiled. "But not until the third task is about to begin. We must let the devil think he is winning, that he has you in his grasp."  
 
  
 
@@ -1648,7 +1648,7 @@
 
  "Okay, Daddy," she nodded, feeling the end of her journey to the Lord was moments away. 
 
- "Now to finish the extradition, I must put a crucifix in both your mouth and your ass, to kill the evil inside you," Dylan said. Report_Story #7 
+ "Now to finish the extradition, I must put a crucifix in both your mouth and your ass, to kill the evil inside you," Dylan said.  
 
  
 

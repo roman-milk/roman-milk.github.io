@@ -102,7 +102,7 @@
 
  No "why did you do this to me?" No "I'll get even with you bastards" or "I'll make you pay for this" just a matter of fact "I can always come here." Tyrone and I looked at each other in stunned disbelief as Sandy loaded up her two babies and left. 
 
- When Ty was ready to leave I walked him to the door and as he walked out on the porch Helen was walking by pushing her baby buggy. I waved at her and she waved back and Tyrone said, "Let's do her next." Report_Story #1 
+ When Ty was ready to leave I walked him to the door and as he walked out on the porch Helen was walking by pushing her baby buggy. I waved at her and she waved back and Tyrone said, "Let's do her next."  
 
  
 
@@ -242,7 +242,7 @@
 
  "The gate to the backyard is never locked. Make yourself at home." 
 
- She kissed me and I watched as she headed on down toward her end of the street. Report_Story #1 
+ She kissed me and I watched as she headed on down toward her end of the street.  
 
  
 
@@ -318,7 +318,7 @@
 
  "Yeah, but only on Bev. Helen won't be taking any and she wants to go as soon as she gets here." 
 
- "I'll see what I can do my man, I'll just have to see what I can do." Report_Story #1 
+ "I'll see what I can do my man, I'll just have to see what I can do."  
 
  
 
@@ -358,7 +358,7 @@
 
  "No. I've got my yearly physical tomorrow and then I have some errands to run. I'll be gone fishing this weekend so it will be Monday before you can stop by again." 
 
- "Okay, but if I have to wait that long you had better have some help when I get here." Report_Story #1 
+ "Okay, but if I have to wait that long you had better have some help when I get here."  
 
  
 

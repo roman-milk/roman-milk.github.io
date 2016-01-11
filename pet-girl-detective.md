@@ -176,7 +176,7 @@
 
  This evening the innocent young guy had duped her. 
 
- He reduced her to a ridiculous pet on a leash. She still couldn't comprehend how effectively he had trapped her. She was his pathetic sex pet now, his little plaything. He had whispered this in her ear and she believed it. He told her she would learn to be an obedient pet, to simply obey everything he asked of her. She tried not to believe it, though something in his manner told her it was possible, even probable. Report_Story #2 
+ He reduced her to a ridiculous pet on a leash. She still couldn't comprehend how effectively he had trapped her. She was his pathetic sex pet now, his little plaything. He had whispered this in her ear and she believed it. He told her she would learn to be an obedient pet, to simply obey everything he asked of her. She tried not to believe it, though something in his manner told her it was possible, even probable.  
 
  
 
@@ -184,7 +184,7 @@
 
  He described some of the little tricks he would teach her. Silly harmless pet tricks to demonstrate her new position in life, that she was just a silly little dumb pet. She didn't want to believe this either, though of course, when she became an obedient pet, completely submissive, she would be performing any thing he wanted. 
 
- He described a nasty obscene trick, and she started to breath heavily. Her head drooped almost touching the floor in resignation, knowing there was nothing to stop her becoming his little sex pet, pandering to the dictates of his warped imagination. Report_Story #1 
+ He described a nasty obscene trick, and she started to breath heavily. Her head drooped almost touching the floor in resignation, knowing there was nothing to stop her becoming his little sex pet, pandering to the dictates of his warped imagination.  
 
  
 
@@ -404,7 +404,7 @@
 
  Underestimating him, as a mere eighteen year old, had cost her dearly. Everything had been stripped away. Clothes, dignity, and her freedom was lost. He intended to take her persona, and mold it to fit his needs. It was more than being subsumed into a possessive marriage, or a melding of two lovers. 
 
- At that moment she was willing to submit, even if it was crudely called mating. Even if she had to call him master. After all, he had captured her, and mastered her. She could feel basic animal instincts taking over, swamping the frail veneer of civilized behavior. She was on heat, needing to be mated, wanting to be his bitch. Report_Story #2 
+ At that moment she was willing to submit, even if it was crudely called mating. Even if she had to call him master. After all, he had captured her, and mastered her. She could feel basic animal instincts taking over, swamping the frail veneer of civilized behavior. She was on heat, needing to be mated, wanting to be his bitch.  
 
  
 

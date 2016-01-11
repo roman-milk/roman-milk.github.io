@@ -210,7 +210,7 @@
 
  "I'll answer that for you before the night is over, but for now, let's just dance." 
 
- She moved in close to me and then suddenly pulled back in faked shock surprise and said in an equally faked Southern accent, "Well I do declare Ryan sweetie, it seems that not all of you thinks of me as a little girl" and then she moved back in close and ground herself into my erection. She kept me on the floor until the band took a break and then we went back to our table were we sat and engaged in more general conversation. Mellisa excused herself to go to the ladies room and the band came back while she was gone. Mary Ellen said, "You haven't danced with me yet Ryan. Let's get out there and see if we can make your girl friend jealous." Report_Story #2 
+ She moved in close to me and then suddenly pulled back in faked shock surprise and said in an equally faked Southern accent, "Well I do declare Ryan sweetie, it seems that not all of you thinks of me as a little girl" and then she moved back in close and ground herself into my erection. She kept me on the floor until the band took a break and then we went back to our table were we sat and engaged in more general conversation. Mellisa excused herself to go to the ladies room and the band came back while she was gone. Mary Ellen said, "You haven't danced with me yet Ryan. Let's get out there and see if we can make your girl friend jealous."  
 
  
 
@@ -318,7 +318,7 @@
 
  "Oh no Ryan. I told daddy we were going steady. Besides, we haven't done anal yet. Don't be late" and she got out of the car and headed up the walk to the house. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -618,7 +618,7 @@
 
  "If he ever decides to try oral sex sugar I'd never see you again. I'd miss you, but I'd never leave home if Ron would take care of me." 
 
- Then came the day I had been expecting ever since my breakup with Mellisa. I had practiced my speech and I was ready. Ron asked me to stop by his office after work. After the niceties were out of the way he said, "Mellisa tells me that you broke up with her." Report_Story #2 
+ Then came the day I had been expecting ever since my breakup with Mellisa. I had practiced my speech and I was ready. Ron asked me to stop by his office after work. After the niceties were out of the way he said, "Mellisa tells me that you broke up with her."  
 
  
 
@@ -658,7 +658,7 @@
 
  Ron smiled, stood up and offered me his hand. "Good man. You won't regret this Ryan. I take care of my friends." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -954,7 +954,7 @@
 
  "Do you go dow.... Wait a fucking minute here! You see Ryan every Monday and Thursday and I know, because you and dad are so damned noisy, that he makes love to you before he leaves for his club meetings. Is Ryan eating your pussy with daddy's cum still in you?" 
 
- Mary Ellen shrugged and Mellisa turned to me, "You miserable fucking hypocrite. You dumped me over it, but it is all right for you to do it with my mother? You know how much I loved it and how much it turned me on and you can't do it for me, but you can do it for her?" Report_Story #2 
+ Mary Ellen shrugged and Mellisa turned to me, "You miserable fucking hypocrite. You dumped me over it, but it is all right for you to do it with my mother? You know how much I loved it and how much it turned me on and you can't do it for me, but you can do it for her?"  
 
  
 

@@ -308,7 +308,7 @@
 
  Gareth reached into the inside pocket of his suit jacket. He pulled out cigarettes and put one in his mouth. 
 
- "No thanks," Amy said when her offered the packet to her. Report_Story #2 
+ "No thanks," Amy said when her offered the packet to her.  
 
  
 

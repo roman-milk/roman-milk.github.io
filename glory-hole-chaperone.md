@@ -210,7 +210,7 @@
 
  "Hmf," grunted Janie. 
 
- I pulled out onto the road and across to the park. Janie didn't say anything but she looked at me quizzically as I parked the car. Report_Story #2 
+ I pulled out onto the road and across to the park. Janie didn't say anything but she looked at me quizzically as I parked the car.  
 
  
 
@@ -456,7 +456,7 @@
 
  Her body tensed and trembled as my Janie came spectacularly under my torrent of obscenities. "YEEESSS!" she gulped. "God Yes! Take my hot lezzy fuck, Sis. Take it all!" 
 
- "Holy shit!" said the crowd of cops, speaking as one. Report_Story #3 
+ "Holy shit!" said the crowd of cops, speaking as one.  
 
  
 

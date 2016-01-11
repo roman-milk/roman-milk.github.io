@@ -190,7 +190,7 @@
 
  "I don't follow the logic in that. You knew my position on Randy and even though you as good as called me a liar you knew what I believed everyone else was thinking and how it upset and humiliated me and still you kept on. Why did you expect me to get pissed when what I said was going to happen happened?" 
 
- "I said it wasn't one of my smarter moves. You were right all along, but I just didn't see it. Randy did try to seduce me, but he tried to do it using revenge as a lever. He told me that you were having an affair with Gloria in accounting and suggested that I could get even by having a fling with him. I didn't believe him and I told him so. He went and got Gloria and brought her to me and she confessed that you hit on her and threatened to get her fired if she didn't give in to you so she did. I'm ashamed to admit that I believed her, after all, why would she lie about something like that? I thought that it was your way of getting back at me over Randy. Report_Story #2 
+ "I said it wasn't one of my smarter moves. You were right all along, but I just didn't see it. Randy did try to seduce me, but he tried to do it using revenge as a lever. He told me that you were having an affair with Gloria in accounting and suggested that I could get even by having a fling with him. I didn't believe him and I told him so. He went and got Gloria and brought her to me and she confessed that you hit on her and threatened to get her fired if she didn't give in to you so she did. I'm ashamed to admit that I believed her, after all, why would she lie about something like that? I thought that it was your way of getting back at me over Randy.  
 
  
 

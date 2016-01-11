@@ -322,7 +322,7 @@
 
  I couldn't believe he had just used the 'N' word. Yet, somehow the word only enhanced how naughty and taboo this was. I obeyed, shifting from slow and concentrated sucking, to faster bobs. The extra saliva I created I hoped enhanced the blow job. His groans increased as did his dirty talk...which again only increased my sudden insatiable hunger to please him. 
 
- "That's it, bitch," and "You will never want to suck your husband after this," and "You're pretty good for a white slut," and "I bet your kids would be proud to learn their mommy is a nigger lover." Report_Story #2 
+ "That's it, bitch," and "You will never want to suck your husband after this," and "You're pretty good for a white slut," and "I bet your kids would be proud to learn their mommy is a nigger lover."  
 
  
 
@@ -642,7 +642,7 @@
 
  I looked up, again surprised by her words; yet again I obeyed, moving to her cunt. I paused briefly, before leaning forward, extending my tongue, and licking my best friend's pussy in front of three black men. I had no idea what to expect when I first tasted her, but it was a pleasant surprise...a sweetness I wasn't expecting and instantly enjoyed. 
 
- "That's it, Mikaela," Samantha moaned, "eat my cunt. Become a good little pussy pleaser just like Candace." Report_Story #3 
+ "That's it, Mikaela," Samantha moaned, "eat my cunt. Become a good little pussy pleaser just like Candace."  
 
  
 
@@ -916,7 +916,7 @@
 
  "Yes, Master," I replied, suddenly feeling guilty that I had potentially disrespected him. 
 
- I leaned forward, put my hands on the top of the couch, clenched my teeth and prepared for an intense pain that had already coursed through me. Then on one backwards push, I took all his ten inches in my ass. Report_Story #4 
+ I leaned forward, put my hands on the top of the couch, clenched my teeth and prepared for an intense pain that had already coursed through me. Then on one backwards push, I took all his ten inches in my ass.  
 
  
 

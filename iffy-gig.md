@@ -266,7 +266,7 @@
 
  The warm waves of lust we been churning up surged into a fierce, disorienting tide. Before I knew it Maddy had pushed me back to one of the tables on which lay a deep cushion of high end formal wear. I let her reach around and pull the down the zipper on my little red dress. Soon she was tugging it off me and I was eagerly helping. The men moved in closer, standing in a ring no more than a yard away as I lay back on the table, naked but for my panties, which Maddy immediately tore away. I opened my thighs and reached out with my legs to pull her to me. Her face sank down. Her lips met my labia and her tongue began to work a circuitous route up to my clit. I moaned deeply as I took double handfuls of her golden hair and pulled her tightly to my pussy. 
 
- Time was suspended as Maddy worked her magic down below. My mind was blank but for the thrilling pulse of pleasure that throbbed through my body. When she suddenly stopped (AGAIN!) I opened my eyes in annoyance and was surprised to be reminded that we were doing this in an old warehouse, for an audience. I blushed as I looked up at their strained expressions. Maddy's glistening face rose from between my thighs to catch my eye. Report_Story #2 
+ Time was suspended as Maddy worked her magic down below. My mind was blank but for the thrilling pulse of pleasure that throbbed through my body. When she suddenly stopped (AGAIN!) I opened my eyes in annoyance and was surprised to be reminded that we were doing this in an old warehouse, for an audience. I blushed as I looked up at their strained expressions. Maddy's glistening face rose from between my thighs to catch my eye.  
 
  
 

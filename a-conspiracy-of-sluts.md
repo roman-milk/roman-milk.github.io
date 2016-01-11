@@ -258,7 +258,7 @@
 
  "Aren't you going to invite me in?" asked Marie. 
 
- "Why? Are you a vampire or something?" asked Paige with a nervous laugh. Report_Story #2 
+ "Why? Are you a vampire or something?" asked Paige with a nervous laugh.  
 
  
 
@@ -374,7 +374,7 @@
 
  "And afterwards, we'll do that again?" 
 
- "We're gonna be doing it all night, baby-pop," Marie laughed. "And that's just the beginning." Report_Story #1 
+ "We're gonna be doing it all night, baby-pop," Marie laughed. "And that's just the beginning."  
 
  
 
@@ -570,7 +570,7 @@
 
  "Yeah... Take it deep, girl." 
 
- Their voices were rasping grunts. Their hands plucked at her bra straps, slipping them off her shoulders. Tony exposed her breasts, pushed them together and squatted before her to thread his shaft into the warm crease of her cleavage. Neil leaned her head back and continued to pump a slow fuck along her tongue. Paige dropped her hand to her belly and slipped her fingers into her panties. Her fingers brushed her clit, teased along her lips. Oh God, she was so wet. Paige heard herself moan lividly. Report_Story #2 
+ Their voices were rasping grunts. Their hands plucked at her bra straps, slipping them off her shoulders. Tony exposed her breasts, pushed them together and squatted before her to thread his shaft into the warm crease of her cleavage. Neil leaned her head back and continued to pump a slow fuck along her tongue. Paige dropped her hand to her belly and slipped her fingers into her panties. Her fingers brushed her clit, teased along her lips. Oh God, she was so wet. Paige heard herself moan lividly.  
 
  
 
@@ -688,7 +688,7 @@
 
  So, briefly, she did, but her thoughts were uneasy. Odd, wasn't it, that Tony and Neil would sneak off to smoke pot in the west stairway when Tony's apartment was on the east side of the building. Then she recalled the pretty black girl standing by the elevators, looking right at her while speaking on the phone. "No, the west one," she had said. That was weird... 
 
- Paige took out the cranberry juice and vodka from last night and poured herself a stiff drink. She sat and watched an "Ace of Cakes" Marathon on TV for three hours without seeing or hearing a damn thing. Report_Story #1 
+ Paige took out the cranberry juice and vodka from last night and poured herself a stiff drink. She sat and watched an "Ace of Cakes" Marathon on TV for three hours without seeing or hearing a damn thing.  
 
  
 
@@ -978,7 +978,7 @@
 
  He got in close, his face inches from hers. "As much as I can get away with." 
 
- His palms were on her shoulders now. She left her hand where it was, still cradling his manhood through his pants. She could feel it grow as she gave it a gentle squeeze. She felt herself go wet at the sensation. Report_Story #2 
+ His palms were on her shoulders now. She left her hand where it was, still cradling his manhood through his pants. She could feel it grow as she gave it a gentle squeeze. She felt herself go wet at the sensation.  
 
  
 
@@ -1090,7 +1090,7 @@
 
  He smiled a big smile. "Is that so? Well, have a good day now, ma'am." He reached over and pushed her out of the car with a powerful shove. She tumbled out into the midday crowd of pedestrians and came to rest on her back. As he drove away she grabbed a chip of concrete off the crumbled sidewalk and threw it after the car. It missed, skittering harmlessly into traffic. 
 
- "I know something's going on, you fucking asshole!" she shouted as Luke Burr pulled away. Report_Story #1 
+ "I know something's going on, you fucking asshole!" she shouted as Luke Burr pulled away.  
 
  
 
@@ -1306,7 +1306,7 @@
 
  Of course, during her long, life-threatening illness Paige didn't think of the Chastanet Tower Project -- as it was known around Oreskos Corp -- at all. But in the few weeks since Paige had returned to work but she had already noticed that the property was still bleeding serious money. Occupancy was good but costs were bizarrely high. At the time she'd wondered if that had anything to do with the current occupant of the property's penthouse, a certain Miss A. Oreskos. 
 
- And now she knew... that's where she was: the penthouse of the Chastanet Tower, the guest of the young "Mistress" Oreskos, her boss. It all fit together so fucking neatly. Report_Story #2 
+ And now she knew... that's where she was: the penthouse of the Chastanet Tower, the guest of the young "Mistress" Oreskos, her boss. It all fit together so fucking neatly.  
 
  
 
@@ -1476,7 +1476,7 @@
 
  "Tell me!" 
 
- He swatted at her hand but Paige scooted back. Noticing an opportunity, she grabbed his now-limp cock in her left hand and brought the sharp edge of the glass to the base of his penis. He became very still very quickly. Report_Story #3 
+ He swatted at her hand but Paige scooted back. Noticing an opportunity, she grabbed his now-limp cock in her left hand and brought the sharp edge of the glass to the base of his penis. He became very still very quickly.  
 
  
 
@@ -1488,7 +1488,7 @@
 
  Malcolm kicked. His foot landed hard in Paige's stomach and her breath left her all at once. The force threw her backward off the bed, her body clattered into the blinds and her head smacked against the tempered glass of the big window with a reverberating thunk. 
 
- All went dark. Report_Story #1 
+ All went dark.  
 
  
 
@@ -1716,7 +1716,7 @@
 
  "I..." Paige paused to gulp. "I just don't know if I'm cut out to be one of your... orgy people." 
 
- "And now you never will," said Athena, sitting back. Report_Story #2 
+ "And now you never will," said Athena, sitting back.  
 
  
 

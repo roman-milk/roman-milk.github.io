@@ -146,7 +146,7 @@
 
  It was Pete who was the first to deliver a load onto Marisa's pretty face. He had been one of the first to stuff his prick into Marisa's mouth. The sensation of her snaking tongue on the underside of his shaft was too much for Pete and he pulled his cock from her and tugged frantically at himself to tease the cum from his cock. 
 
- 'Yes baby, that's good,' Marisa cried with delight as Pete's spunk spattered onto her cheeks. 'Mmm,' she sighed, 'Let me taste your cum, spit it in my mouth honey.' Marisa opened her mouth and stuck her tongue out as Pete aimed his cock at her face. Thick gobs of his semen landed on the curve of Marisa's tongue and the woman swallowed enthusiastically as the viscous gloop spurted from the eye of Pete's fat cock. Report_Story #2 
+ 'Yes baby, that's good,' Marisa cried with delight as Pete's spunk spattered onto her cheeks. 'Mmm,' she sighed, 'Let me taste your cum, spit it in my mouth honey.' Marisa opened her mouth and stuck her tongue out as Pete aimed his cock at her face. Thick gobs of his semen landed on the curve of Marisa's tongue and the woman swallowed enthusiastically as the viscous gloop spurted from the eye of Pete's fat cock.  
 
  
 

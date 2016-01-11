@@ -54,7 +54,7 @@
 
  Lao loved the power he had. Take your slut to the bar Tom and ask if anyone wants to feel her Tits and cunt. Tom looked at Lao but did what he was told. He took his beautiful wife to the bar and asked who wants to feel my wife's tits and cunt. For the next 10 mins Five men and one woman took full advantage. The dress was opened and hands pulled, pushed, pinched and entered every hole. When Ellie went to complain Lao told her to shut up and open her legs and stand still. She did just that. Even as the Older Asian woman stuck 3 fingers into her she said and did nothing. All was recorded on phone. 
 
- Satisfied with what he had done Lao stopped the" show" and told Tom to fasten a few buttons and then led them away and into a taxi. As they walked out in the street the market was still open and many stared at the beautiful Ellie walking with her dress only half closed. Lao gave no address in the taxi because the driver already knew where they going. Report_Story #1 
+ Satisfied with what he had done Lao stopped the" show" and told Tom to fasten a few buttons and then led them away and into a taxi. As they walked out in the street the market was still open and many stared at the beautiful Ellie walking with her dress only half closed. Lao gave no address in the taxi because the driver already knew where they going.  
 
  
 
@@ -132,7 +132,7 @@
 
  Brady asked. Where are all those whores now Tom. In Bangkok some, but could you find them. Pattaya others and many other towns. Some across borders to Burma or Vietnam. Could you find Ellie Tom once she was sold. Shanghai if sold to the Chinaman. Would you want to find her after a thousand men had used her. Fucked every hole over and over. COULD YOU FIND HER. Oh God No he said. No I couldn't. You know I couldn't. Please I'll get your money. Brady said yes you will Tom. You have one chance to buy her before the Chinaman. Put your clothes on Ellie. Shows over. Ellie wept as she dressed. Then back to their prison warehouse. They slept very little due to fear and Ellie cried a lot. 
 
- Next morning Tom and Ellie hugged and kissed, goodbyes were said. Tom begged Brady not to harm her until he returned with the money. Brady replied be quick and be good Tom. It's all with you. With his heart aching and stomach knotted Tom headed for the airport and Seoul. Report_Story #1 
+ Next morning Tom and Ellie hugged and kissed, goodbyes were said. Tom begged Brady not to harm her until he returned with the money. Brady replied be quick and be good Tom. It's all with you. With his heart aching and stomach knotted Tom headed for the airport and Seoul.  
 
  
 
@@ -262,7 +262,7 @@
 
  Brady laughed aloud and declared "what a slut." That brought Ellie to a halt. Bright red with blushing she turned towards them. 
 
- "Mai Li see she is shaved clean. Not a hair below her neck. Then bathe her and have her ready in one and half hours. And do not let her cum." Sort out her luggage. You know what to do with it. When we leave, we won't be back. Report_Story #1 
+ "Mai Li see she is shaved clean. Not a hair below her neck. Then bathe her and have her ready in one and half hours. And do not let her cum." Sort out her luggage. You know what to do with it. When we leave, we won't be back.  
 
  
 
@@ -384,7 +384,7 @@
 
  She opened her eyes and saw Mr Lee smiling. 
 
- "Get down you whore I want sucking dry." Report_Story #1 
+ "Get down you whore I want sucking dry."  
 
  
 
@@ -480,7 +480,7 @@
 
  "Haven't I done enough. You have humiliated me. Displayed me like a piece of meat. Let others touch me in public. I danced like a whore for you and you have raped my mouth. Please let us go." 
 
- "I sign in the morning and then he can return and set you free. Tonight you are mine. Now sit." Report_Story #1 
+ "I sign in the morning and then he can return and set you free. Tonight you are mine. Now sit."  
 
  
 
@@ -610,7 +610,7 @@
 
  Ellie was horrified. She was now all alone and naked, locked in a room God knows where, in a city far from home. She could only hope Tom would return quickly and she could go home. 
 
- She saw a table and water jug, a bed and a toilet. Ellie lay on the bed and wept. Report_Story #1 
+ She saw a table and water jug, a bed and a toilet. Ellie lay on the bed and wept.  
 
  
 
@@ -714,7 +714,7 @@
 
  She rocked a little and then sat still on Elli's face almost suffocating her. In a moment she started to climb off. Ellie's face was drenched with the woman's fluids. Standing up she pulled the pillow and placed it on Ellie's face to smother her screams as she brought the flogger down real hard on each of Ellie's tits. Ellie's hand tried to cover her tits which is when she absolutely thrashed one final down stroke between Ellie's thighs. It landed without pity and Ellie's world exploded. 
 
- The pillow deadened most of the piercing scream and was then removed. As Ellie lay trying to cover herself too late from this torture the woman undid the leg ties from the bed. She grabbed Ellie's hair and told her to leave the butt plug in until she returned or she would flog her cunt without mercy. Then she sprayed Ellie's face with spit, slapped her again and left the room. Ellie lay on the bed with her legs spread for quite some time and sobbed uncontrollably before getting up and washing all the filth from her face. Report_Story #1 
+ The pillow deadened most of the piercing scream and was then removed. As Ellie lay trying to cover herself too late from this torture the woman undid the leg ties from the bed. She grabbed Ellie's hair and told her to leave the butt plug in until she returned or she would flog her cunt without mercy. Then she sprayed Ellie's face with spit, slapped her again and left the room. Ellie lay on the bed with her legs spread for quite some time and sobbed uncontrollably before getting up and washing all the filth from her face.  
 
  
 

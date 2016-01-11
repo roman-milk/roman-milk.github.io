@@ -386,7 +386,7 @@
 
  "Once a month," she shrugged, before adding, "and what are you talking about? You're not wearing panties either." 
 
- I shrugged, "I'm trying to discover my own wild side." Report_Story #2 
+ I shrugged, "I'm trying to discover my own wild side."  
 
  
 
@@ -872,7 +872,7 @@
 
  
 
- tradition-lezmas-eve20.jpg] Report_Story #3 
+ tradition-lezmas-eve20.jpg]  
 
  
 

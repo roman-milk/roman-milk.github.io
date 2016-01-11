@@ -218,7 +218,7 @@
 
  "I don't know anything kid. They just told me she was there and to hurry and get you there." 
 
- We got there and I rushed in and found that Sammi had fallen down a flight of stairs while hurrying to a class. She felt a sharp pain and started bleeding and she was rushed to the hospital. The fall caused her to miscarry and the doctor told me that there were complications and Sammi wouldn't be able to have any more children. It was a downer and it was driven home by the looks of pity that I got from all the nurses and orderlies. Report_Story #2 
+ We got there and I rushed in and found that Sammi had fallen down a flight of stairs while hurrying to a class. She felt a sharp pain and started bleeding and she was rushed to the hospital. The fall caused her to miscarry and the doctor told me that there were complications and Sammi wouldn't be able to have any more children. It was a downer and it was driven home by the looks of pity that I got from all the nurses and orderlies.  
 
  
 
@@ -410,7 +410,7 @@
 
  +++++++++++++++++++++++++ 
 
- The next three days slid by and then one evening as I was watching a TV program there was a knock on my door. Thinking that it might be Samantha I looked through the peep hole in the door. It wasn't Samantha; it was a cop. I opened the door and saw two of them standing there. One of them asked: Report_Story #3 
+ The next three days slid by and then one evening as I was watching a TV program there was a knock on my door. Thinking that it might be Samantha I looked through the peep hole in the door. It wasn't Samantha; it was a cop. I opened the door and saw two of them standing there. One of them asked:  
 
  
 
@@ -472,7 +472,7 @@
 
  "Where do I sign." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -728,7 +728,7 @@
 
  "Read that and then tell me again about how I seduced your innocent wife. I'll give you some time with that and then I'll be back. I've got some calls to make." 
 
- He left the room and I opened the file and saw that he did indeed have an extremely good investigator working for him. He had gone all the way back to high school. Samantha had been a round heeled slut. I had been so hung up over her that I had never noticed. I knew that she had dated several other guys before settling on me, but I hadn't known that she had fucked most of them. Even after starting to go steady with me she was fucking other guys. She fucked other guys after we were married and she fucked other guys all through her pregnancy. Report_Story #2 
+ He left the room and I opened the file and saw that he did indeed have an extremely good investigator working for him. He had gone all the way back to high school. Samantha had been a round heeled slut. I had been so hung up over her that I had never noticed. I knew that she had dated several other guys before settling on me, but I hadn't known that she had fucked most of them. Even after starting to go steady with me she was fucking other guys. She fucked other guys after we were married and she fucked other guys all through her pregnancy.  
 
  
 
@@ -930,7 +930,7 @@
 
  ++++++++++++++++++ 
 
- For the next three weeks she spent two or three nights a week at my place and we spent our week ends looking at houses. We found a few that I liked, but she didn't and a few that she liked and that I didn't. She was thinking big like where she had grown up and I was looking for something smaller and with in my budget. I wasn't worried much about the cost as I still had a lot of the insurance money in the bank, but the maintenance and upkeep on some of the houses Connie wanted would have wiped me out. I didn't need a four car garage, tennis courts, stables and lots of acreage. A simple three or four bedroom with an in ground pool and a hot tub was more my style. Report_Story #3 
+ For the next three weeks she spent two or three nights a week at my place and we spent our week ends looking at houses. We found a few that I liked, but she didn't and a few that she liked and that I didn't. She was thinking big like where she had grown up and I was looking for something smaller and with in my budget. I wasn't worried much about the cost as I still had a lot of the insurance money in the bank, but the maintenance and upkeep on some of the houses Connie wanted would have wiped me out. I didn't need a four car garage, tennis courts, stables and lots of acreage. A simple three or four bedroom with an in ground pool and a hot tub was more my style.  
 
  
 
@@ -1014,7 +1014,7 @@
 
  Accordingly I steered the car toward my apartment and what followed was another exhausting night. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1278,7 +1278,7 @@
 
  She got up and left and she wasn't in the room when I got there. I took a shower and went to bed. I slept soundly and didn't wake up when Connie came in, but she was in bed next to me when I woke up. She didn't wake up when I got up or while I was dressing. I left her ticket on the bedside stand and went down to have breakfast. 
 
- After breakfast I headed for the beach and the dive shop that the girl behind the reception desk told me about. It was close to two o'clock when I got back to the room and surprise, surprise, Connie was in the room. Report_Story #2 
+ After breakfast I headed for the beach and the dive shop that the girl behind the reception desk told me about. It was close to two o'clock when I got back to the room and surprise, surprise, Connie was in the room.  
 
  
 
@@ -1598,7 +1598,7 @@
 
  There was another pause and then she said, "I will tell you this. Jessica was right. Once you do threesomes and foursomes and like them you are always going to want to do them again. I do want to do them again, but the only way I ever will is if you are one of the men." 
 
- "Then you are shit out of luck my little sex bomb, because I am just not wound that way." Report_Story #3 
+ "Then you are shit out of luck my little sex bomb, because I am just not wound that way."  
 
  
 

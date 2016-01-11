@@ -170,7 +170,7 @@
 
  Rachel sat up and took Mike's face in her hands. "Anytime Roger's not here, you just come over and help yourself." 
 
- She kissed him full on the lips, her tongue sliding into his open mouth in a long sensuous kiss. "He'll be gone by seven in the morning." Report_Story #1 
+ She kissed him full on the lips, her tongue sliding into his open mouth in a long sensuous kiss. "He'll be gone by seven in the morning."  
 
  
 
@@ -352,7 +352,7 @@
 
  He quickly grabbed the tube and put a large dollop on the end of his finger. He could see that the tiny hole had not quite closed up and he placed his finger against the opening and easily slid it in. He slid his finger back and forth several times pushing deeper and deeper into her ass, while Rachel pulled steadily on his cock. 
 
- Mike watched his finger sliding easily in and out of her ass; sliding in as far as it would go. He felt Rachel release his hot prick momentarily, as she squeezed a generous amount of jell over it. Her hand returned to his hard shaft and began to spread the slippery jell along its full length Report_Story #2 
+ Mike watched his finger sliding easily in and out of her ass; sliding in as far as it would go. He felt Rachel release his hot prick momentarily, as she squeezed a generous amount of jell over it. Her hand returned to his hard shaft and began to spread the slippery jell along its full length  
 
  
 
@@ -554,7 +554,7 @@
 
  "As long as we do it on the desk," agreed Nicky. 
 
- Mike helped her to move to one side of the desk and clambered up and rolled onto his back in the middle of the large desk. The leather inlay stuck to his back and ass, but it was a small price to pay for such a hot fuck. Report_Story #3 
+ Mike helped her to move to one side of the desk and clambered up and rolled onto his back in the middle of the large desk. The leather inlay stuck to his back and ass, but it was a small price to pay for such a hot fuck.  
 
  
 
@@ -584,7 +584,7 @@
 
  He had met with Nicky three times since then, repeating his exploits with Rachel the following day. He was pleased with events so far, except Nicky would not let him fuck her ass. Therefore he had not been able to fuck Rachel's ass either under the current rules of engagement. 
 
- During the past week, Mike had come to realize that Rachel was right. Fucking the two sisters was damn good fun, but there were other women he wanted to plunge his cock into, so he had decide it was time to find other young ladies to satisfy his ever growing lust. Alexis Morrison, who had frustrated his carnal desires for so long was to be his first target. Mike's cock would be the first to invade her virgin cunt. Report_Story #1 
+ During the past week, Mike had come to realize that Rachel was right. Fucking the two sisters was damn good fun, but there were other women he wanted to plunge his cock into, so he had decide it was time to find other young ladies to satisfy his ever growing lust. Alexis Morrison, who had frustrated his carnal desires for so long was to be his first target. Mike's cock would be the first to invade her virgin cunt.  
 
  
 
@@ -760,7 +760,7 @@
 
  His cock empty and soft Mike pulled away and Leah immediately latched her mouth onto Rachel's neglected cunt. Mike maneuvered around Leah and offered his cum covered prick to Rachel, who inhaled it into her mouth. She delighted at the tart taste of cum and virgin cunt and quickly licked it clean. 
 
- Mike's fingers went to work on her nipples, pulling on them vigorously, hearing muffled squeals from the cock filled mouth. Leah pushed two fingers into Rachel and massaged her G spot as she sucked gently on her clit. Thirty seconds later Rachel's body began to shudder as her orgasm ripped through her from head to toe. While not the best she had experienced, it was right up there as the young mother thrust her pulsing pussy against Leah's mouth. Report_Story #2 
+ Mike's fingers went to work on her nipples, pulling on them vigorously, hearing muffled squeals from the cock filled mouth. Leah pushed two fingers into Rachel and massaged her G spot as she sucked gently on her clit. Thirty seconds later Rachel's body began to shudder as her orgasm ripped through her from head to toe. While not the best she had experienced, it was right up there as the young mother thrust her pulsing pussy against Leah's mouth.  
 
  
 
@@ -980,7 +980,7 @@
 
  As Mike watched the three women make their way into the house an idea began to ferment in his mind. He waited until the band finished the set and watched Wheeler hurry into the house. 
 
- Mike turned to Steve, "Have a great night Steve. I'm going to cut out. I'll call you tomorrow." Report_Story #3 
+ Mike turned to Steve, "Have a great night Steve. I'm going to cut out. I'll call you tomorrow."  
 
  
 

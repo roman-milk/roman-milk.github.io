@@ -166,7 +166,7 @@
 
   "You will stand there 30 minutes because you were late 30 minutes." 'Is that correct Ms. Baker?" I asked.  
 
-  "Yes Sir." Report_Story #1 
+  "Yes Sir."  
 
  
 
@@ -332,7 +332,7 @@
 
  "You will stand there 30 minutes because you were late 30 minutes." 'Is that correct Ms. Baker?" I asked. 
 
- "Yes Sir." Report_Story #1  
+ "Yes Sir."   
 
  
 
@@ -424,7 +424,7 @@
 
   She did, tears streaming down her face, wanting to rub her very red and sore bottom. She hobbled stiff-legged over to the corner. She was both embarrassed and extremely sore.  
 
-  In the opposite corner of my office, Susan stood with her hands on her head. Her skirt was tucked into her waistband and her panties were at her knees. Her nose was pressed into the wall, awaiting the rest of her punishment. She still had 5 minutes to wait before her second spanking would begin. She stood at attention not wanting anymore of a punishment then she was due. Report_Story #1 
+  In the opposite corner of my office, Susan stood with her hands on her head. Her skirt was tucked into her waistband and her panties were at her knees. Her nose was pressed into the wall, awaiting the rest of her punishment. She still had 5 minutes to wait before her second spanking would begin. She stood at attention not wanting anymore of a punishment then she was due.  
 
  
 
@@ -514,7 +514,7 @@
 
  She did, tears streaming down her face, wanting to rub her very red and sore bottom. She hobbled stiff-legged over to the corner. She was both embarrassed and extremely sore. 
 
- In the opposite corner of my office, Susan stood with her hands on her head. Her skirt was tucked into her waistband and her panties were at her knees. Her nose was pressed into the wall, awaiting the rest of her punishment. She still had 5 minutes to wait before her second spanking would begin. She stood at attention not wanting anymore of a punishment then she was due. Report_Story #1  
+ In the opposite corner of my office, Susan stood with her hands on her head. Her skirt was tucked into her waistband and her panties were at her knees. Her nose was pressed into the wall, awaiting the rest of her punishment. She still had 5 minutes to wait before her second spanking would begin. She stood at attention not wanting anymore of a punishment then she was due.   
 
  
 
@@ -578,7 +578,7 @@
 
   Respectfully, Obediently, and Submissively  
 
-  Susan Report_Story #1 
+  Susan  
 
  
 
@@ -640,7 +640,7 @@
 
  Respectfully, Obediently, and Submissively 
 
- Susan Report_Story #1  
+ Susan   
 
  
 
@@ -728,7 +728,7 @@
 
   After I read my letter in front of everyone and then apologized to all, I spent the entire day either sitting on a hard wooden chair or in the corner standing with my skirt pinned and my panties on display for a full 8 hours. Doing my work while having my skirt pinned felt both strange and embarrassing. It also stung like crazy, my bottom was a fire engine red and every time I moved it hurt even more. To top it off, Mr. Gray would visit me every so often have me bend over my desk and swat me two or three times. He called it his touch up sessions.  
 
-  When I wasn't working I reported to Elizabeth Delany, who would take me by the hand as if I were a child and march me over to the corner. Sometimes I had to stand with my hands on top of my head and my nose touching the wall. Other times Mrs. Delany would get a small stool meant for a child and had me sit on it. Once she took my undies down so that my panties were at my knees. My bare bottom was on the hard wood of the kindergarten chair. This punishment lasted for a full 8 hours and ended with a question and answer session while I was over Mr. Gray's knees in front of everyone. He asked me if I think I had learned my lesson. I quickly answered yes sir; I was then dismissed for the day with hard swat and a promise to myself to be a good girl in the future. Report_Story #1 
+  When I wasn't working I reported to Elizabeth Delany, who would take me by the hand as if I were a child and march me over to the corner. Sometimes I had to stand with my hands on top of my head and my nose touching the wall. Other times Mrs. Delany would get a small stool meant for a child and had me sit on it. Once she took my undies down so that my panties were at my knees. My bare bottom was on the hard wood of the kindergarten chair. This punishment lasted for a full 8 hours and ended with a question and answer session while I was over Mr. Gray's knees in front of everyone. He asked me if I think I had learned my lesson. I quickly answered yes sir; I was then dismissed for the day with hard swat and a promise to myself to be a good girl in the future.  
 
  
 
@@ -814,7 +814,7 @@
 
  After I read my letter in front of everyone and then apologized to all, I spent the entire day either sitting on a hard wooden chair or in the corner standing with my skirt pinned and my panties on display for a full 8 hours. Doing my work while having my skirt pinned felt both strange and embarrassing. It also stung like crazy, my bottom was a fire engine red and every time I moved it hurt even more. To top it off, Mr. Gray would visit me every so often have me bend over my desk and swat me two or three times. He called it his touch up sessions. 
 
- When I wasn't working I reported to Elizabeth Delany, who would take me by the hand as if I were a child and march me over to the corner. Sometimes I had to stand with my hands on top of my head and my nose touching the wall. Other times Mrs. Delany would get a small stool meant for a child and had me sit on it. Once she took my undies down so that my panties were at my knees. My bare bottom was on the hard wood of the kindergarten chair. This punishment lasted for a full 8 hours and ended with a question and answer session while I was over Mr. Gray's knees in front of everyone. He asked me if I think I had learned my lesson. I quickly answered yes sir; I was then dismissed for the day with hard swat and a promise to myself to be a good girl in the future. Report_Story #1  
+ When I wasn't working I reported to Elizabeth Delany, who would take me by the hand as if I were a child and march me over to the corner. Sometimes I had to stand with my hands on top of my head and my nose touching the wall. Other times Mrs. Delany would get a small stool meant for a child and had me sit on it. Once she took my undies down so that my panties were at my knees. My bare bottom was on the hard wood of the kindergarten chair. This punishment lasted for a full 8 hours and ended with a question and answer session while I was over Mr. Gray's knees in front of everyone. He asked me if I think I had learned my lesson. I quickly answered yes sir; I was then dismissed for the day with hard swat and a promise to myself to be a good girl in the future.   
 
  
 
@@ -978,7 +978,7 @@
 
   "Put your PJ's on you are spending the rest of the night in the corner," I said.  
 
-  Laura slowly got to her feet, a very contrite, humbled, sore, young lady. She started towards her mother rubbing her fanny and sobbing. Laura's I'm to old attitude gone. Report_Story #1 
+  Laura slowly got to her feet, a very contrite, humbled, sore, young lady. She started towards her mother rubbing her fanny and sobbing. Laura's I'm to old attitude gone.  
 
  
 
@@ -1140,7 +1140,7 @@
 
  "Put your PJ's on you are spending the rest of the night in the corner," I said. 
 
- Laura slowly got to her feet, a very contrite, humbled, sore, young lady. She started towards her mother rubbing her fanny and sobbing. Laura's I'm to old attitude gone. Report_Story #1  
+ Laura slowly got to her feet, a very contrite, humbled, sore, young lady. She started towards her mother rubbing her fanny and sobbing. Laura's I'm to old attitude gone.   
 
  
 
@@ -1352,7 +1352,7 @@
 
   I gave her one solid swat on her panty girdle to send her on her way.  
 
-  "Okay, Elizabeth come out here and explain to me what is going on with Cassie and be quick about it," I said. Report_Story #1 
+  "Okay, Elizabeth come out here and explain to me what is going on with Cassie and be quick about it," I said.  
 
  
 
@@ -1562,7 +1562,7 @@
 
  I gave her one solid swat on her panty girdle to send her on her way. 
 
- "Okay, Elizabeth come out here and explain to me what is going on with Cassie and be quick about it," I said. Report_Story #1  
+ "Okay, Elizabeth come out here and explain to me what is going on with Cassie and be quick about it," I said.   
 
  
 
@@ -1746,7 +1746,7 @@
 
   "Come here, Missy."  
 
-  "Across my knee young lady you want to act like a spoiled little girl you are going to be treated like one," Cassie sniffled as she bent at the knees and lowered herself over my lap. I took in the sight of her draped across my lap, her legs stretched out, and her toes on the floor. Her head with the pony tail draped down her back and her arms stretched to balance herself. Her short skirt raised in the back exposing her bare buttocks, her panties still tangled at her ankles. Report_Story #2  
+  "Across my knee young lady you want to act like a spoiled little girl you are going to be treated like one," Cassie sniffled as she bent at the knees and lowered herself over my lap. I took in the sight of her draped across my lap, her legs stretched out, and her toes on the floor. Her head with the pony tail draped down her back and her arms stretched to balance herself. Her short skirt raised in the back exposing her bare buttocks, her panties still tangled at her ankles.   
 
  
 
@@ -1764,7 +1764,7 @@
 
   At the corner I told her to sit down on her bare bottom and to face the wall. The small chair left her with her knees bunched under her chin and her head, just barely reaching my waist. I bent down and kissed her on the top of her head and told her she was to stay like that until dinner time. She could do her schoolwork, eat dinner, and her sister and herself would be going to bed no later than 8 o'clock.  
 
-  'Ok Elizabeth I have to go make sure they follow the instructions and dress them in footed jammies for bed. I will see you Monday,' I said as I left. Report_Story #1 
+  'Ok Elizabeth I have to go make sure they follow the instructions and dress them in footed jammies for bed. I will see you Monday,' I said as I left.  
 
  
 
@@ -1944,7 +1944,7 @@
 
  "Come here, Missy." 
 
- "Across my knee young lady you want to act like a spoiled little girl you are going to be treated like one," Cassie sniffled as she bent at the knees and lowered herself over my lap. I took in the sight of her draped across my lap, her legs stretched out, and her toes on the floor. Her head with the pony tail draped down her back and her arms stretched to balance herself. Her short skirt raised in the back exposing her bare buttocks, her panties still tangled at her ankles. Report_Story #2 
+ "Across my knee young lady you want to act like a spoiled little girl you are going to be treated like one," Cassie sniffled as she bent at the knees and lowered herself over my lap. I took in the sight of her draped across my lap, her legs stretched out, and her toes on the floor. Her head with the pony tail draped down her back and her arms stretched to balance herself. Her short skirt raised in the back exposing her bare buttocks, her panties still tangled at her ankles.  
 
  
 

@@ -208,7 +208,7 @@
 
  Elaine stopped her loving attention for a moment and grinned up at me. 'Happy?' she asked. 
 
- 'Very,' I replied, gently lifting my wife up so I could kiss her sweet lips. I was overcome by a wave of feeling for this delicate creature. I loved her at that moment; she knew that her sexy lingerie would make me hard and that her provocative behaviour would turn the wanting into a burning desire. Report_Story #2 
+ 'Very,' I replied, gently lifting my wife up so I could kiss her sweet lips. I was overcome by a wave of feeling for this delicate creature. I loved her at that moment; she knew that her sexy lingerie would make me hard and that her provocative behaviour would turn the wanting into a burning desire.  
 
  
 

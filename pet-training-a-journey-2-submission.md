@@ -192,7 +192,7 @@
 
  Breanne's orgasm exploded out of her for a third time that day and like the other two brought her a euphoria she had seldom felt. She laid there for an eternity the toy still buzzing in her cunt, and the used pantyhose still on her head. Finally, she pulled the pantyhose off her head and the toy out of her still wet, leaking pussy and curiously, did something she had never did before, she tasted herself. She cleaned all her juices from her new toy and was pleasantly surprised by her own taste. Exhausted from the early morning shift and the triple pleasure pulses of perfection she gave herself, Breanne fell asleep, not waking up until her alarm went off almost twelve hours later. 
 
- Breanne woke up, worked out, showered, dressed in Zandi's nurse scrubs and after brief consideration put on the pantyhose Zandi had given her, hoping it would be one more subtle hint to Breanne's willingness to submit. Breanne also wore three inch heels, something she never did, too replicate Zandi's usual look. Report_Story #2 
+ Breanne woke up, worked out, showered, dressed in Zandi's nurse scrubs and after brief consideration put on the pantyhose Zandi had given her, hoping it would be one more subtle hint to Breanne's willingness to submit. Breanne also wore three inch heels, something she never did, too replicate Zandi's usual look.  
 
  
 
@@ -488,7 +488,7 @@
 
  "Go ahead, my pet would love that," Zandi's replied. 
 
- Breanne's eyes went big and she began to turn around to see what she supposedly would like when she was severely reprimanded. Report_Story #3 
+ Breanne's eyes went big and she began to turn around to see what she supposedly would like when she was severely reprimanded.  
 
  
 

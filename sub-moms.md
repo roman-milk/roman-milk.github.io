@@ -202,7 +202,7 @@
 
  Now half dressed, Layla dismissed the confused older woman, "Just leave. I will have one of my loyal obedient sluts take you home." 
 
- Mrs. Jones stood dumbfounded while Layla made a call on her cell. Report_Story #2 
+ Mrs. Jones stood dumbfounded while Layla made a call on her cell.  
 
  
 
@@ -474,7 +474,7 @@
 
  The MILF called out for Layla, but eventually quit. The buzzing down below was really getting her horny, a constant buzz, yet not enough to get her off. Resigned to her fate, she tried to move around so she could make herself come. Unfortunately, no matter how she moved, she couldn't get to the next level. Frustration built inside her. 
 
- Meanwhile, Layla had not actually left but was in Tiffany's room snooping. Layla searched for a diary, but there was none to find. She went onto the young girl's computer and chuckled when it had no password protection. The first thing she did was search the sites she had recently been on. She was a Yahoo junkie it seemed. She also recently visited a site on soccer goaltending. Going back a few days Layla found what she was looking for. One site she was regularly on was called Literotica. As Layla continued scavenging through the different stories the young redhead goalie had recently read, she smiled. As expected, the majority of the vast majority of the stories were lesbian stories: Bedding the Babysitter, Training Teacher, Soccer Moms, and Presidential Powers. She seemed to like submissive characters and Layla smiled knowing that she would be an easy prey if she wanted...and she wanted. Layla went downstairs and got herself a glass of wine. She flipped on the TV and turned to a soccer match between the Americans and Germans. It was still scoreless with ten minutes left. Layla watched the end of the match that ended in a draw. She hated that. In her mind, there would be no shootouts, just straight overtime until someone scored. It might take hours, but that is what happens in hockey and she sure couldn't see why a soccer game couldn't be the same. Endurance and fitness were the two keys to success and soccer and it ticked her off when fate would decide the outcome after a lengthy game. She shut off the TV, went to the fridge and grabbed an impressively thick and long cucumber, some whipped cream, and a bottle of wine. She grabbed a couple of wine glasses and made her way back to her bound submissive mommy. Report_Story #3 
+ Meanwhile, Layla had not actually left but was in Tiffany's room snooping. Layla searched for a diary, but there was none to find. She went onto the young girl's computer and chuckled when it had no password protection. The first thing she did was search the sites she had recently been on. She was a Yahoo junkie it seemed. She also recently visited a site on soccer goaltending. Going back a few days Layla found what she was looking for. One site she was regularly on was called Literotica. As Layla continued scavenging through the different stories the young redhead goalie had recently read, she smiled. As expected, the majority of the vast majority of the stories were lesbian stories: Bedding the Babysitter, Training Teacher, Soccer Moms, and Presidential Powers. She seemed to like submissive characters and Layla smiled knowing that she would be an easy prey if she wanted...and she wanted. Layla went downstairs and got herself a glass of wine. She flipped on the TV and turned to a soccer match between the Americans and Germans. It was still scoreless with ten minutes left. Layla watched the end of the match that ended in a draw. She hated that. In her mind, there would be no shootouts, just straight overtime until someone scored. It might take hours, but that is what happens in hockey and she sure couldn't see why a soccer game couldn't be the same. Endurance and fitness were the two keys to success and soccer and it ticked her off when fate would decide the outcome after a lengthy game. She shut off the TV, went to the fridge and grabbed an impressively thick and long cucumber, some whipped cream, and a bottle of wine. She grabbed a couple of wine glasses and made her way back to her bound submissive mommy.  
 
  
 
@@ -596,7 +596,7 @@
 
  Layla smiled at the complete subservient obedience of her prize possession. Tomorrow she would try her other seductive move: sweet and sensitive. Tomorrow she would seduce the adorably cute Clara Walsh. 
 
- THE END... Report_Story #1 
+ THE END...  
 
  
 
@@ -844,7 +844,7 @@
 
  Layla ignored Clara's plea and began to fuck the MILF with the toy while taking the MILF's hard clit into her mouth. 
 
- Clara's moans increased again as she crossed past the tickle tingle phase after an amazing orgasm and her body shifted into multiple orgasm mode. Report_Story #2 
+ Clara's moans increased again as she crossed past the tickle tingle phase after an amazing orgasm and her body shifted into multiple orgasm mode.  
 
  
 

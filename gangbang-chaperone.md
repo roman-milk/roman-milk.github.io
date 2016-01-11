@@ -212,7 +212,7 @@
 
  I handed the test results back to Tom. "Is it really that important that you don't wear condoms?" 
 
- "We would greatly prefer it. But it is important to Jane. She's told me she's never experienced many of the tactile facets of, um, let's call it 'primitive' sex. She has fetishized semen as a missing piece of her sexual life. It would probably be best for her if she has this experience now, while it's safe." Report_Story #2 
+ "We would greatly prefer it. But it is important to Jane. She's told me she's never experienced many of the tactile facets of, um, let's call it 'primitive' sex. She has fetishized semen as a missing piece of her sexual life. It would probably be best for her if she has this experience now, while it's safe."  
 
  
 

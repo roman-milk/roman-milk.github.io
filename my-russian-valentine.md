@@ -234,7 +234,7 @@
 
  I moved away from between the girl's legs. I wanted to see her tits and suck on them; I wanted to kiss her and finger her until I had her gasping and writhing. 
 
- She sat up and slipped the bootlace straps of her bikini top over her shoulders. Leaving the thing fastened she just pushed it over her narrow brisket to reveal her apple-sized breasts. Kneeling in the sand I leaned down and sucked at one upturned nipple, swirling my tongue over the swelling before doing the same to the other. I kissed the girl's mouth, my fingers between her legs exploring the slippery folds of her labia before I slid a forefinger inside her. Report_Story #2 
+ She sat up and slipped the bootlace straps of her bikini top over her shoulders. Leaving the thing fastened she just pushed it over her narrow brisket to reveal her apple-sized breasts. Kneeling in the sand I leaned down and sucked at one upturned nipple, swirling my tongue over the swelling before doing the same to the other. I kissed the girl's mouth, my fingers between her legs exploring the slippery folds of her labia before I slid a forefinger inside her.  
 
  
 
@@ -440,7 +440,7 @@
 
  Finally I grunted and leaned low over the woman's back, cursing and panting as I felt the hot stuff ooze out of me. 
 
- They left me there struggling to breathe after the blonde quickly pulled on her bikini ad rearranged her messed up hair. When I left the sanctuary of the rock enclave, I saw the woman in the sea washing my semen from her chest and face. Report_Story #3 
+ They left me there struggling to breathe after the blonde quickly pulled on her bikini ad rearranged her messed up hair. When I left the sanctuary of the rock enclave, I saw the woman in the sea washing my semen from her chest and face.  
 
  
 
@@ -664,7 +664,7 @@
 
  "I'll fuck you later," I groaned. "I want you all night. This woman is just a fuck, but you're special. I like you very, very much. When I do this to you we'll make love. It won't all be crazy fucking." 
 
- "You not speak now," the girl replied, two fingers inside her body. "Later you speak with me. When we alone." Report_Story #4 
+ "You not speak now," the girl replied, two fingers inside her body. "Later you speak with me. When we alone."  
 
  
 
@@ -870,7 +870,7 @@
 
  "She say for you to lie down," Katia interpreted when the older woman spoke. 
 
- When I complied Galya straddled my thighs, squatting over me so the long muscles in her thighs flexed and then tightened in a way that pleased my eye. With her back to me she took hold of my root to hold me perpendicular before, with the soles of her feet flat against the bed, she rubbed the head of my cock through the floppy lips of her pussy. The wet heat of her closed over me, making me groan and gasp, eyes widening as her body slid over the length of my cock. Galya leaned back, resting on her hands as her long hair swept my face. Report_Story #5 
+ When I complied Galya straddled my thighs, squatting over me so the long muscles in her thighs flexed and then tightened in a way that pleased my eye. With her back to me she took hold of my root to hold me perpendicular before, with the soles of her feet flat against the bed, she rubbed the head of my cock through the floppy lips of her pussy. The wet heat of her closed over me, making me groan and gasp, eyes widening as her body slid over the length of my cock. Galya leaned back, resting on her hands as her long hair swept my face.  
 
  
 
@@ -1080,7 +1080,7 @@
 
  My girlfriend looked beautiful in a powder-blue dress that matched her pale eyes. Her blonde hair, longer than at the beach four months before, was held up by a long, needle-nosed clasp. The girl's eyes shimmered as she smiled gently at me and I felt such a rush of tenderness for her that I went to her and lay my lips softly against her exposed and slender neck. 
 
- "You look beautiful," I whispered to Katia as the other two chattered in Russian and put on thick coats against the cold. Report_Story #6 
+ "You look beautiful," I whispered to Katia as the other two chattered in Russian and put on thick coats against the cold.  
 
  
 
@@ -1286,7 +1286,7 @@
 
  Six -- A Year Later 
 
- Brad met me at the airport. Report_Story #7 
+ Brad met me at the airport.  
 
  
 

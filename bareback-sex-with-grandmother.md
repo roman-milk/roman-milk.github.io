@@ -288,7 +288,7 @@
 
  His grandmother stroked her chin, and then tapped it with a forefinger while she pretended to ponder the question. 
 
- "I can't be sure," she added with a smirk, "but I think I must have been sucking your father's cock for a couple of minutes." Report_Story #2 
+ "I can't be sure," she added with a smirk, "but I think I must have been sucking your father's cock for a couple of minutes."  
 
  
 
@@ -540,7 +540,7 @@
 
  He could only gulp and mumble a vague response. Nate groaned, his hips jerking with small uncontrolled thrusts. 
 
- "You do like it, don't you?" Madeline's voice squeaked with expectation. "Fuck my hand, Nate. Yes, you dirty boy, fuck my fist." Report_Story #3 
+ "You do like it, don't you?" Madeline's voice squeaked with expectation. "Fuck my hand, Nate. Yes, you dirty boy, fuck my fist."  
 
  
 
@@ -820,7 +820,7 @@
 
  A whisper from Madeline: "The three of us, darling. My two beautiful daughters and me." 
 
- With love, Madeline slid her tongue into her grandson's mouth. Report_Story #4 
+ With love, Madeline slid her tongue into her grandson's mouth.  
 
  
 

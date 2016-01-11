@@ -82,7 +82,7 @@
 
  His snarled, it was a delicious noise. He was so into the fantasy now. "You fuckin' bitch -- making a married man so hard -- Kelli, I'm going to fuck you harder than I've ever fucked my wife!" 
 
- This was how excited I'd made him. When he fucked me, normally he NEVER said anything verbally -- he'd kiss me, or suck my neck or tits or something. But talking nasty was not part of our lovemaking. I always thought, he was squeamish about using dirty words, or something, at least during sex. But when I was playing as teenager Kelli? Suddenly he was a new man -- talking to me like I was a rented whore! And -- it was like men online during cybersex, it was turning me on too! Report_Story #2 
+ This was how excited I'd made him. When he fucked me, normally he NEVER said anything verbally -- he'd kiss me, or suck my neck or tits or something. But talking nasty was not part of our lovemaking. I always thought, he was squeamish about using dirty words, or something, at least during sex. But when I was playing as teenager Kelli? Suddenly he was a new man -- talking to me like I was a rented whore! And -- it was like men online during cybersex, it was turning me on too!  
 
  
 
@@ -188,7 +188,7 @@
 
  Yeah, I was nervous as shit -- this was all new to me! 
 
- Not knowing what to expect, I let her take the lead. When she had me as naked as her, her mouth slid off my tits, and she licked up my neck, down my jaw, and right to my mouth. Mmm, I was going to kiss another female! Our lips touched, and just like that, we began making out -- jaws opened, tongues thrust forward, we were sucking each other's breaths, licking tongues, French kissing like lovers! I'd never kissed a girl like that before, compared to probably over a dozen guys. She was soft, definitely feminine; instead of feeling like the object of a man's desire, I was sharing a mutual desire. A totally different feeling; it made me smile, the novelty of this wonderful experience. I mean, well, how do I explain? When a guy makes out with me, it's like, it feels good because a man and a woman are meant to combine, it affirms my femininity. I don't mind giving into a guy's stronger will power, that kind of submissiveness turns me on, especially if I'd been seducing him, so in a way, it's what I want too. But here's this girl kissing me; we were both just basically horny, and it felt good. I could hear my mom screaming in my ear -- you dirty lesbian! But I wasn't a lesbian, I was just kissing a sexy woman, was all. Felt great! Report_Story #3 
+ Not knowing what to expect, I let her take the lead. When she had me as naked as her, her mouth slid off my tits, and she licked up my neck, down my jaw, and right to my mouth. Mmm, I was going to kiss another female! Our lips touched, and just like that, we began making out -- jaws opened, tongues thrust forward, we were sucking each other's breaths, licking tongues, French kissing like lovers! I'd never kissed a girl like that before, compared to probably over a dozen guys. She was soft, definitely feminine; instead of feeling like the object of a man's desire, I was sharing a mutual desire. A totally different feeling; it made me smile, the novelty of this wonderful experience. I mean, well, how do I explain? When a guy makes out with me, it's like, it feels good because a man and a woman are meant to combine, it affirms my femininity. I don't mind giving into a guy's stronger will power, that kind of submissiveness turns me on, especially if I'd been seducing him, so in a way, it's what I want too. But here's this girl kissing me; we were both just basically horny, and it felt good. I could hear my mom screaming in my ear -- you dirty lesbian! But I wasn't a lesbian, I was just kissing a sexy woman, was all. Felt great!  
 
  
 
@@ -270,7 +270,7 @@
 
  Amy's great -- petite, hot, nice tits, only 31 years old, seven years less than me -- but she can be controlling. I think, between the hot sex and my disdain for confrontation, I allowed the marriage to continue so I wouldn't have to go through some yelling matches if we got divorced. It crimped my sex life, but between Susan, Haley (the young-20's receptionist at the company), and Alexa (a 30 year old dancer, whose dance studio I remodeled), I still had plenty of cunt to keep my throbbing dick happy most weeks. I just had to fit in the sex between the demands of running my own business and the expectations of my blissfully ignorant wife. 
 
- Again wanting to avoid confrontation on the home front, I reached down to pull up my pants and fish out my cellphone -- while not stopping the sex with Susan. The blonde slut quieted down, smiling to herself, allowing my time to talk to wifey while blondie kept getting my erection shoved up her pussy. I might have been a little testy with Amy, as I answered the call, but I defended myself right away -- saying, I'm at an appointment, I told you that. My tone didn't phase Amy; she seemed in an unnaturally good mood. Still coming home by 5? I said, maybe 5:30 or 6. Amy actually giggled at my response -- she just said, the earlier I get home, the more I'd be happy, but it was up to me when I could get home. Report_Story #4 
+ Again wanting to avoid confrontation on the home front, I reached down to pull up my pants and fish out my cellphone -- while not stopping the sex with Susan. The blonde slut quieted down, smiling to herself, allowing my time to talk to wifey while blondie kept getting my erection shoved up her pussy. I might have been a little testy with Amy, as I answered the call, but I defended myself right away -- saying, I'm at an appointment, I told you that. My tone didn't phase Amy; she seemed in an unnaturally good mood. Still coming home by 5? I said, maybe 5:30 or 6. Amy actually giggled at my response -- she just said, the earlier I get home, the more I'd be happy, but it was up to me when I could get home.  
 
  
 
@@ -354,7 +354,7 @@
 
  Kelli wasn't resisting whatsoever. Leaning back in her chair in front of me, she reached her hands to her bosom, grasping her string bikini, and in one motion she ripped it off of herself. Both of those huge teen tits sat on her skinny torso like balloons -- round, soft, creamy, and pale, with huge, light- pink areolas and very long, super-stiff nipples. The girl was proud of them, as she should be, arching her back to show them off, looking at my to be sure I was approving. 
 
- I was so approving, licking my lips at the sight of Kelli's breasts. I couldn't wait to get naked too, although a small part of me was very hesitant because Amy and I had never played with another girl before. I wasn't sure what had gotten into Amy -- but I wasn't arguing either. Report_Story #5 
+ I was so approving, licking my lips at the sight of Kelli's breasts. I couldn't wait to get naked too, although a small part of me was very hesitant because Amy and I had never played with another girl before. I wasn't sure what had gotten into Amy -- but I wasn't arguing either.  
 
  
 
@@ -438,7 +438,7 @@
 
  The blonde with long waves of curly hair gave me a toothy smile and firm nod, agreeing with my diagnosis. But I winced, wondering if I was showing off a bit too much in front of my wife. Nah! Right next to me, Amy watched attentively, her eyes mostly glued to the sight of my penis disappearing inside the teen. Four inches, five inches, six; soon I was almost all the way inside. But I couldn't get it all the way in, the last inch or so didn't want to go. It was like a wall inside the girl's body, my cockhead pounded against it, repeatedly, but I couldn't shove more inside her. 
 
- As I drove it into her more and more, Kelli was fucking going nuts - - screaming, thrashing. Her nails dug into my shoulders, then she ran her fingers through the thick curls of hair on my chest, almost pulling it out as she held onto me. Her thin legs bounced uselessly in the air, each time I pounded against her little body; soon, she had her legs wrapped around my waist, feeling me using her little twat for my pleasure. Amy couldn't watch the sex directly now, so she just watched Kelli's face as it contorted in pleasure and pain, the effects of that supremely deep fucking inside her little body. Report_Story #6 
+ As I drove it into her more and more, Kelli was fucking going nuts - - screaming, thrashing. Her nails dug into my shoulders, then she ran her fingers through the thick curls of hair on my chest, almost pulling it out as she held onto me. Her thin legs bounced uselessly in the air, each time I pounded against her little body; soon, she had her legs wrapped around my waist, feeling me using her little twat for my pleasure. Amy couldn't watch the sex directly now, so she just watched Kelli's face as it contorted in pleasure and pain, the effects of that supremely deep fucking inside her little body.  
 
  
 
@@ -516,7 +516,7 @@
 
  My dick was on fire, squirting semen into the deepest parts of her pussy; there wasn't even room for that cum, it seemed, so the pressure grew enormously just as the sensitivity of my cock increased too. I fought the pain to unload every last drop of my third orgasm of the night inside Kelli, then I had no choice but to pull out -- my dick was violently hurting. As my cock popped out of her wet cunt with a squishy noise, Kelli's cries turned into a gasp of relief, but she kept tearing her cheeks while her pussy spasmed from the deep fucking, her lips still gaping open from the damage my cock inflicted on her. 
 
- "Holy shit!" the girl cried to me, virtually her first words since she'd started sucking my dick back on the patio deck, "that was -- I can't believe it -- no one's ever done me that good -- ever!" Report_Story #7 
+ "Holy shit!" the girl cried to me, virtually her first words since she'd started sucking my dick back on the patio deck, "that was -- I can't believe it -- no one's ever done me that good -- ever!"  
 
  
 
@@ -596,7 +596,7 @@
 
  It was past 9 o'clock now, and Kelli started to muse that she should be getting home sometime soon. At 18, she could say out late, but she stilled lived at home and didn't want to explain where she was past midnight or something. My cock was sore from four orgasms and a lot of deep fucking, so I wasn't upset about her leaving for the night -- she'd promised repeat opportunities, after all, in the two weeks before she would leave for college. 
 
- But then Kelli said something like, she should shoulder to get the "stench" off of her. Amy and I looked at each other, and my wife immediately picked up the offer. Amy said, "Paul here gives great showers, huh!" My foxy brunette wife climbed off the bed, her petite, nude body sore and damp from sex, but she wasn't finished for the night. Pulling naked Kelli to the floor too, my wife led my newest fuck buddy out of the guest bedroom and up the stairway to the first floor of the house, then the second floor. Weary, I followed behind, my cock twitching (a little painfully) at the sight of their cute, naked butts ahead of me on the stairs. Report_Story #8 
+ But then Kelli said something like, she should shoulder to get the "stench" off of her. Amy and I looked at each other, and my wife immediately picked up the offer. Amy said, "Paul here gives great showers, huh!" My foxy brunette wife climbed off the bed, her petite, nude body sore and damp from sex, but she wasn't finished for the night. Pulling naked Kelli to the floor too, my wife led my newest fuck buddy out of the guest bedroom and up the stairway to the first floor of the house, then the second floor. Weary, I followed behind, my cock twitching (a little painfully) at the sight of their cute, naked butts ahead of me on the stairs.  
 
  
 

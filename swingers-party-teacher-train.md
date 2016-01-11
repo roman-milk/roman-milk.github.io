@@ -212,7 +212,7 @@
 
  "That will surely be tested tonight," Heather predicted. 
 
- In the heat of sexual bliss I had forgotten that I was some sort of special toy for the evening. Amy handed me another glass of wine. I quickly shot half of it. Amy looked me over for what seemed like forever before she decided, "I think the cheerleading costume will be better for the rest of tonight's entertainment." Report_Story #2 
+ In the heat of sexual bliss I had forgotten that I was some sort of special toy for the evening. Amy handed me another glass of wine. I quickly shot half of it. Amy looked me over for what seemed like forever before she decided, "I think the cheerleading costume will be better for the rest of tonight's entertainment."  
 
  
 

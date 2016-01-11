@@ -108,7 +108,7 @@
 
  'Oh, yes!' she cried. 'I've been wanting this for hours. Yes! Suck my clit, oh baby, tongue me, please.' 
 
- Anton held Susie's legs behind her knees and pushed them back as far as he dared. He lapped at Susie's exposed cunt and savoured the syrup that trickled from her body. He loved the feel of her stockings under his fingers, and could feel his penis jerking in anticipation as his excitement increased. Pre cum and perhaps even the first trickles of semen hung in a long silver thread from the weeping eye, and Anton felt the cold thread stick to his leg as he knelt in front of Susie. Report_Story #2 
+ Anton held Susie's legs behind her knees and pushed them back as far as he dared. He lapped at Susie's exposed cunt and savoured the syrup that trickled from her body. He loved the feel of her stockings under his fingers, and could feel his penis jerking in anticipation as his excitement increased. Pre cum and perhaps even the first trickles of semen hung in a long silver thread from the weeping eye, and Anton felt the cold thread stick to his leg as he knelt in front of Susie.  
 
  
 
@@ -218,7 +218,7 @@
 
  Dazed by Susie's sudden switching of the power struggle, Anton found himself knelt on the bed next to Susie's face as she sucked at his slowly rejuvenating cock with vigour. As his cock grew, so did Anton's lust, and before long he was back to almost full size. Of course it was Susie's words that had as much of a revitalising effect than anything. She was a vocal as before in her description of what she was doing and what she wanted. 
 
- In between long, slurping tonguing of Anton's meat, Susie kept up her now familiar torrent of obscenity. 'Look at it,' she whispered lovingly as Anton's big cock slipped from her mouth. 'It's so fucking big; it's so fucking dirty with my cunt. It's got my juice all over it… Mmm, I love to taste it. I love to suck the spunk from the shaft and from the end.' Susie looked up at Anton and continued, 'Fuck my mouth with it. Fuck my mouth while I fuck myself with this dildo. God, it's so depraved. I love it.' Report_Story #3 
+ In between long, slurping tonguing of Anton's meat, Susie kept up her now familiar torrent of obscenity. 'Look at it,' she whispered lovingly as Anton's big cock slipped from her mouth. 'It's so fucking big; it's so fucking dirty with my cunt. It's got my juice all over it… Mmm, I love to taste it. I love to suck the spunk from the shaft and from the end.' Susie looked up at Anton and continued, 'Fuck my mouth with it. Fuck my mouth while I fuck myself with this dildo. God, it's so depraved. I love it.'  
 
  
 

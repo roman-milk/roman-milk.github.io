@@ -52,7 +52,7 @@
 
  At last Daren had become bored with watching the teasing of her body so with a quick word to the owner she was returned to him still dressed in lipstick graffiti. "Don't sit, we're off." He told her. "Yes, Sir." She replied with a sigh of relief. She had wanted to scream and cry and beg for relief the tension had built so high she thought the hypnotic spell would surely release her but instead she had dutifully carried out the humiliating tasks to the letter. Too busy with the thought of escape she cared little that her body was on show as they left. On the drive to wherever he was taking her she was mortified to find how the evening had left her bereft of control. She wanted to beg him to take her. No one had even touched her body, at least not directly; even Daren had merely held her hands, yet she was tormented with a desperate need. It didn't matter where he was taking her, whatever he wanted her to perform, just so as long as the all consuming need was satisfied. 
 
- "Here we are. A customer has been arranged for you. You must go in there and perform for him. Whatever he wants, however sordid, you will do it. You've been bought and paid for. Understand?" Daren asked. Not even able to give her usual reply she nodded her head trembling with fear. She had been sold to a stranger knowing even without the hypnotic command she would debase herself before him in the hope she too would be satisfied. It terrified her that some stranger was going to use her as whore for the night. Trying desperately not to feel pleased that at last she was going to be taken she failed miserably when her legs defying her took up a faster stride. Not looking to see if there was anyone on the street she walked directly up the steps to find an open door. Report_Story #2 
+ "Here we are. A customer has been arranged for you. You must go in there and perform for him. Whatever he wants, however sordid, you will do it. You've been bought and paid for. Understand?" Daren asked. Not even able to give her usual reply she nodded her head trembling with fear. She had been sold to a stranger knowing even without the hypnotic command she would debase herself before him in the hope she too would be satisfied. It terrified her that some stranger was going to use her as whore for the night. Trying desperately not to feel pleased that at last she was going to be taken she failed miserably when her legs defying her took up a faster stride. Not looking to see if there was anyone on the street she walked directly up the steps to find an open door.  
 
  
 
@@ -70,7 +70,7 @@
 
  In the taxi home she had time to reflect on these words. Whoever he was he knew her name and presumably how to contact her. Did he also know of the hypnotic phrase? Was that what he meant. He could phone her and summon her to be used again. She handed over the wages to the taxi driver, which amounted to the fare with only a reasonable tip. She had only been a cheap whore. He looked at her as he had the whole trip with a smirk on his face not saying a word. What he thought of her she cared not. Stumbling up the path she entered the house only then becoming conscious and rational. In bare feet she approached their bedroom to see their bed hadn't been slept in. A small mercy! Bob hadn't returned from the office. What was this going to do to their relationship dare not be thought of. 
 
- With head down, both hands gripping the sink she tried not to think. The whole night was of her making and she was going to have to live with it. When the stranger called her again, for she knew he would, she would have to somehow deal with it. Having programmed herself to respond it would be impossible to refuse. What rocked her conscience was that such a large part of her mind was saying, "Yes!" She looked up into the mirror and gripped the sink with all her might. Across her face in red lipstick was written in unmistakable handwriting the words. 'Happy anniversary Aury!' Report_Story #1 
+ With head down, both hands gripping the sink she tried not to think. The whole night was of her making and she was going to have to live with it. When the stranger called her again, for she knew he would, she would have to somehow deal with it. Having programmed herself to respond it would be impossible to refuse. What rocked her conscience was that such a large part of her mind was saying, "Yes!" She looked up into the mirror and gripped the sink with all her might. Across her face in red lipstick was written in unmistakable handwriting the words. 'Happy anniversary Aury!'  
 
  
 
@@ -122,7 +122,7 @@
 
  "I'm sorry. Did that hurt?" He asked. Without thinking she replied honestly for that is all she could do. "No. It just took me by surprise." As though this were approval of his exploration a hand came round to a breast softly cupping it then exploring its nipple. His other hand was exploring the depths of the crotch scratching a distended lip with a fingernail sending shudders through her already overwrought senses. He found the bobbles doing the same to her clit. Her body was at a heightened state of attention uncontrollably sensitive to the light touches of his fingers. Without instructions to obey this man she should have been able to walk away, only the intensity of feelings left her helplessly leaning against the rack for him to explore her body. With a slight trembling in her legs she felt it begin. 
 
- For the third time this evening she had been in this state only this time there would be no escape. With eyes tightly shut her senses concentrated on the sensations his fingers bore into her body. Her breasts were glowing pinpricks of heat. At last after an evening of stimulation she was coming. Little mewing sounds emanated from her mouth. A long slow exhaust of breath blew between clenched teeth with every thrust of a finger at her hole. Her thighs were in spasm in time with her whole body trembling to his touch. At last she came. Like a leaf her mind floated gently down to earth. Like a deflating doll she slumped against the rack where he held on to her still massaging her body. Report_Story #2 
+ For the third time this evening she had been in this state only this time there would be no escape. With eyes tightly shut her senses concentrated on the sensations his fingers bore into her body. Her breasts were glowing pinpricks of heat. At last after an evening of stimulation she was coming. Little mewing sounds emanated from her mouth. A long slow exhaust of breath blew between clenched teeth with every thrust of a finger at her hole. Her thighs were in spasm in time with her whole body trembling to his touch. At last she came. Like a leaf her mind floated gently down to earth. Like a deflating doll she slumped against the rack where he held on to her still massaging her body.  
 
  
 
@@ -160,7 +160,7 @@
 
  "You can get rid of that thing now. Try this." Lynne had strapped on a large black dildo and sat before Aurora. "Here snuggle up girly." Pulling Aurora toward her she lifted her easily then lowered her down onto it. Aurora felt the huge thing enter her with all her weight forcing it right up inside. 'How could I have been so stupid?' She thought. 'The woman's a lesbian. Why didn't I see that?' Lying back Lynne thrust her hips, lifting Aurora, eliciting a heart felt moan. "Oh!" Aurora squealed as the dildo penetrated deep. "Come when I come girly." Lynne panted. With each thrust the dildo lifted her body until at one point it was all that held her up. At last the tormentor began her orgasm so she too had to come. They both writhed on the floor a moment then laid still intimately connected by a piece of rubbery plastic and the embrace of Lynne's strong arms. 
 
- Lynne ran her fingers through Aurora's hair breathing quietly. "So! You're going to be my little girly. I'll teach you all the things I like. It'll be just perfect. I'll dress you up in nice cute little outfits. I'll get you some pretty bows for you hair." She laughed quietly. "I might even get you some panties. Little frilly ones! I'll do your hair and makeup. I'll have you looking like a Barbie doll in no time." Lynne cooed at her. Aurora felt fearful of this young woman wishing it had been some dirty old man that had taken her rather than her. The plans she was talking about sounded as if she meant to keep her like some doll used for pleasure. There would be no escape until that certain phrase was used to break her out of this hypnotic state and Lynne didn't know or care what it was. Aurora wondered how long she would have to bear this torture. If no one knew where she was, what then? Report_Story #1 
+ Lynne ran her fingers through Aurora's hair breathing quietly. "So! You're going to be my little girly. I'll teach you all the things I like. It'll be just perfect. I'll dress you up in nice cute little outfits. I'll get you some pretty bows for you hair." She laughed quietly. "I might even get you some panties. Little frilly ones! I'll do your hair and makeup. I'll have you looking like a Barbie doll in no time." Lynne cooed at her. Aurora felt fearful of this young woman wishing it had been some dirty old man that had taken her rather than her. The plans she was talking about sounded as if she meant to keep her like some doll used for pleasure. There would be no escape until that certain phrase was used to break her out of this hypnotic state and Lynne didn't know or care what it was. Aurora wondered how long she would have to bear this torture. If no one knew where she was, what then?  
 
  
 
@@ -284,7 +284,7 @@
 
  Swaying her hips to the music she moved close to each of them in turn regretting the earlier tease about lap dancing. The zip was down and the dress was off. Continuing to gyrate her hips seductively in bra and panties she moved Charlie's knees apart to stand between them thrusting at him. Shaking her hair out of the clips she whipped him with it. Moving onto Reginald was some little relief on seeing his ashen face. 
 
- He was more frightened than she was so perhaps she could frighten them all into submission. "Sit down, sit down, man." She heard Charlie say, knowing it must be her husband finally returning. Report_Story #2 
+ He was more frightened than she was so perhaps she could frighten them all into submission. "Sit down, sit down, man." She heard Charlie say, knowing it must be her husband finally returning.  
 
  
 
@@ -324,7 +324,7 @@
 
  He surmised all this unaware of how carried away they had become. No one mentioned the dance or the sudden disappearance of the maid. They didn't even allude to it merely nodding to their host as they quietly left. 
 
- Next morning over breakfast at the hotel they would begin to unwind, beginning by reliving the dance, until Charlie had the nerve to mention how tight and eager she had been. Report_Story #1 
+ Next morning over breakfast at the hotel they would begin to unwind, beginning by reliving the dance, until Charlie had the nerve to mention how tight and eager she had been.  
 
  
 
@@ -422,7 +422,7 @@
 
  The leash had been tied to a chair with her facing it whereupon he began to pull apart the poppers to expose her crotch. In some panic she thought Daren had got it wrong this man wanted to take her after all. Even worse she felt him massaging grease into her bottom. Had she been tricked into being this mans doggy whore? She could have objected in Daren's office only now it was too late as she had willingly read the command to obey this stranger. She was in a helpless condition with this man who had paid Daren for her to be his whore and he was going to do whatever he liked with her. 
 
- "Now lets get this done, hold still." He said, trying to mollify his nervous pet. With a slight pain she felt something enter her bottom. It was definitely not his penis, which brought some relief not to be buggered, but what was it? He led her round the room on a leash with her trying to figure out what he had done to her. "Wiggle that tale pet. Go on, sway your hips." He told her. It dawned upon her that she was sporting a puppy tail and he wanted her to wag it. Relief from discovering what it was allowed her to wiggle it with some enthusiasm. Led round the room once more she wondered why she was so pleased at having a butt plug shoved up her arse, but perhaps it was better than being buggered. It was all turning into a nightmare. The humiliation of being this stranger's pet was far greater than the teasing she had endured in the café or the sex shop. Still frustrated from the club she felt the slight stimulation from the butt plug an annoyance for she really did want to have her sex filled where this was close but not close enough. While at heel he patted her talking nonsense at her. "You're a good puppy. Yes you are." Report_Story #2 
+ "Now lets get this done, hold still." He said, trying to mollify his nervous pet. With a slight pain she felt something enter her bottom. It was definitely not his penis, which brought some relief not to be buggered, but what was it? He led her round the room on a leash with her trying to figure out what he had done to her. "Wiggle that tale pet. Go on, sway your hips." He told her. It dawned upon her that she was sporting a puppy tail and he wanted her to wag it. Relief from discovering what it was allowed her to wiggle it with some enthusiasm. Led round the room once more she wondered why she was so pleased at having a butt plug shoved up her arse, but perhaps it was better than being buggered. It was all turning into a nightmare. The humiliation of being this stranger's pet was far greater than the teasing she had endured in the café or the sex shop. Still frustrated from the club she felt the slight stimulation from the butt plug an annoyance for she really did want to have her sex filled where this was close but not close enough. While at heel he patted her talking nonsense at her. "You're a good puppy. Yes you are."  
 
  
 
@@ -438,7 +438,7 @@
 
  Had her husband left her with Daren for the whole weekend? This was something new. It was too late to remind him she was still hypnotised; he had gone before it had occurred to her so used to it had she become. Well she had been ordered to obey him and he had told her to get a good nights rest. Too exhausted to even attempt to bring some self-satisfaction she slipped quietly to sleep. 
 
- Earlier that evening Daren had tried to convince Bob to carry on with the court case but he had refused saying it was useless to fight on. Daren would have to settle out of court after all the money spent on fees. It was going to cost a bundle of money and the plans for expanding his business would have to go on hold. After letting him down Bob had the audacity to ask Daren to baby-sit the wife. Well, one of them was going to pay. It didn't take him long to figure out how. If the idea went well he would recoup his losses and teach that college boy not to take him for a fool. Report_Story #1 
+ Earlier that evening Daren had tried to convince Bob to carry on with the court case but he had refused saying it was useless to fight on. Daren would have to settle out of court after all the money spent on fees. It was going to cost a bundle of money and the plans for expanding his business would have to go on hold. After letting him down Bob had the audacity to ask Daren to baby-sit the wife. Well, one of them was going to pay. It didn't take him long to figure out how. If the idea went well he would recoup his losses and teach that college boy not to take him for a fool.  
 
  
 
@@ -560,7 +560,7 @@
 
  "Hubert, can you talk? Can you manage another session tonight? With Aurora, who else? Good. Then be there and we'll talk. After." Daren dropped the phone onto its cradle giving the man no time to think, leaving him happily surprised and eager. 
 
- "Sharon, it's Daren. Don't worry about the room your fee is covered. Dog man is on a leash for a while. Come over tomorrow night and I'll explain. You can collect your usual fee then. I'll be in the office." Daren again casually dropped the phone onto its cradle. Report_Story #2 
+ "Sharon, it's Daren. Don't worry about the room your fee is covered. Dog man is on a leash for a while. Come over tomorrow night and I'll explain. You can collect your usual fee then. I'll be in the office." Daren again casually dropped the phone onto its cradle.  
 
  
 
@@ -680,11 +680,11 @@
 
  "Well?" She asked. 
 
- Was she asking at last where they were going? "Well what?" He stated flatly. Her hands, perfectly manicured long soft hands, swept over her body once more. He had been busy thinking about her character rather than her body. He decided he had seen too many naked women for he should have taken notice. An advantage of first class was plenty of legroom, which she used so elegantly. Her breasts weren't so big but a slim waist emphasised what she had. Just the slightest touch of make up to a smooth clear skin left the word elegance hanging from his lips. "You scrub up well." Report_Story #3 
+ Was she asking at last where they were going? "Well what?" He stated flatly. Her hands, perfectly manicured long soft hands, swept over her body once more. He had been busy thinking about her character rather than her body. He decided he had seen too many naked women for he should have taken notice. An advantage of first class was plenty of legroom, which she used so elegantly. Her breasts weren't so big but a slim waist emphasised what she had. Just the slightest touch of make up to a smooth clear skin left the word elegance hanging from his lips. "You scrub up well."  
 
  
 
- ****** Anniversary Ch. 05 ****** byStoryTeller07© She laughed a throaty sound that was most pleasant. He wondered what kind of trouble he had stirred up this time and if there was someway of changing his career by getting into something safe like snake charming. Report_Story #1 
+ ****** Anniversary Ch. 05 ****** byStoryTeller07© She laughed a throaty sound that was most pleasant. He wondered what kind of trouble he had stirred up this time and if there was someway of changing his career by getting into something safe like snake charming.  
 
  
 

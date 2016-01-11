@@ -260,7 +260,7 @@
 
  Four month later, she is showing a baby bump. Bill notices. He confronts her. 
 
- "How did you get pregnant. I know it's not mine. Who were you fucking." Report_Story #2 
+ "How did you get pregnant. I know it's not mine. Who were you fucking."  
 
  
 

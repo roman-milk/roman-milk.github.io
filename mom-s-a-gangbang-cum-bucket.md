@@ -346,7 +346,7 @@
 
  "You want to have sex with your Mom?" she asked, surprised and yet clearly flattered. 
 
- "You have two holes I haven't explored," I smiled, being my suave self. Report_Story #2 
+ "You have two holes I haven't explored," I smiled, being my suave self.  
 
  
 

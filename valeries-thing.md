@@ -210,7 +210,7 @@
 
  "What the fuck!" he exclaimed as he stepped back away from Valerie." 
 
- Valerie looked up in surprise and then she noticed me. She still had her hand on the man's cock and she didn't let go of it as she said, "Don't sweat it lover. It is only my husband and I doubt that he will bother you. No reason why he should. The only reason that you are here is because he doesn't want me, right Harv? Why are you here Harv, isn't a weekend at the races supposed to be more exciting and more important than me?" Report_Story #2 
+ Valerie looked up in surprise and then she noticed me. She still had her hand on the man's cock and she didn't let go of it as she said, "Don't sweat it lover. It is only my husband and I doubt that he will bother you. No reason why he should. The only reason that you are here is because he doesn't want me, right Harv? Why are you here Harv, isn't a weekend at the races supposed to be more exciting and more important than me?"  
 
  
 

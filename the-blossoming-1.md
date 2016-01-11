@@ -168,7 +168,7 @@
 
  'Mrs Blythe,' Mathilda gasped when the kiss broke. 'What's happening?' 
 
- 'The Blossoming, my dear little girl.' Mrs Blythe leaned towards the girl's breasts, squeezing the fruit together and sucking at each nipple in turn. 'The Blossoming. And you're so lucky to have this beautiful, black penis for your adventure. When I went through the Blossoming,' she revealed, 'I didn't have such luck.' Report_Story #2 
+ 'The Blossoming, my dear little girl.' Mrs Blythe leaned towards the girl's breasts, squeezing the fruit together and sucking at each nipple in turn. 'The Blossoming. And you're so lucky to have this beautiful, black penis for your adventure. When I went through the Blossoming,' she revealed, 'I didn't have such luck.'  
 
  
 

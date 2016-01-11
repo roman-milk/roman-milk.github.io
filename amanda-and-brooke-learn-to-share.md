@@ -198,7 +198,7 @@
 
  Brooke turned to me, greasy white smears of my jizz on her lips and chin, and said, "That's the idea dummy." 
 
- Amanda laughed and settled back to enjoy being thoroughly cleaned out by Brooke's probing tongue and fingers. She seemed to enjoy having me watch as I masturbated. As I slowly worked myself back to firmness she squirmed and moaned until finally she came again with a stifled scream. Report_Story #2 
+ Amanda laughed and settled back to enjoy being thoroughly cleaned out by Brooke's probing tongue and fingers. She seemed to enjoy having me watch as I masturbated. As I slowly worked myself back to firmness she squirmed and moaned until finally she came again with a stifled scream.  
 
  
 

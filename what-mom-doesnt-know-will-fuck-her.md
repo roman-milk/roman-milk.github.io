@@ -210,7 +210,7 @@
 
  "Oh my Baby, that feels so fucking good," my Mom purred, her breathing changing slightly. 
 
- I spent a few minutes kissing, licking, nibbling and massaging my mother's perfect silk-covered feet before I slowly moved up her leg, my tongue moving up, ever so softly, wanting this fantasy-come-true to never end. I reached her pussy, her scent giving away her excitement. My tongue grazed her clit and she involuntarily shook. She begged, "Please Baby, lick my cunt. I need to come so fucking bad." Report_Story #2 
+ I spent a few minutes kissing, licking, nibbling and massaging my mother's perfect silk-covered feet before I slowly moved up her leg, my tongue moving up, ever so softly, wanting this fantasy-come-true to never end. I reached her pussy, her scent giving away her excitement. My tongue grazed her clit and she involuntarily shook. She begged, "Please Baby, lick my cunt. I need to come so fucking bad."  
 
  
 

@@ -204,7 +204,7 @@
 
  "No dice Sandi. If you want to talk to me those are my conditions. We do it my way or we don't do it at all." 
 
- On Wednesday evening I was sitting at the kitchen table with my brother and Reverend Thomas when Sandi arrived. I pointed at a seat and told her to get on with it. She looked from me to Tom, to Dan Thomas and then back to me. Report_Story #2 
+ On Wednesday evening I was sitting at the kitchen table with my brother and Reverend Thomas when Sandi arrived. I pointed at a seat and told her to get on with it. She looked from me to Tom, to Dan Thomas and then back to me.  
 
  
 

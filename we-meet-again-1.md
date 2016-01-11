@@ -192,7 +192,7 @@
 
  I held myself above Erika on my outstretched arms and watched her features contorting as we fucked. 
 
- Erika slid her hands up and down my back, squeezing my sides and then wrapped her legs around me tightly, as she tried to force more of me inside. She was becoming frantic, moving her hips against my thrusts, groaning, arching her back, her face contorted into a mask of what looked to be almost pain. Report_Story #2 
+ Erika slid her hands up and down my back, squeezing my sides and then wrapped her legs around me tightly, as she tried to force more of me inside. She was becoming frantic, moving her hips against my thrusts, groaning, arching her back, her face contorted into a mask of what looked to be almost pain.  
 
  
 

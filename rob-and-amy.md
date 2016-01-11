@@ -222,7 +222,7 @@
 
  At ten I called Mike Hooper, a good friend who was also an attorney and told him my sad story and then asked if I could make an appointment to see him and talk divorce. He told me he would meet me at Bud's Bar at five-thirty. I plugged my cell phone into my computer and transferred al the photos I had taken of Amy and Bartram and then I printed three sets and put them in envelopes. 
 
- At noon I arrived at Mario's and saw that Janet was already there. She rose to meet me and I kissed her cheek and said, "I wish we were meeting under happier circumstances." We made small talk until after we ordered and then I described what happened the previous day. I passed her an envelope with the photos I'd taken and she took them out and looked at them. I was surprised at how calm she was as she went over them. She slid them back into the envelope and said: Report_Story #2 
+ At noon I arrived at Mario's and saw that Janet was already there. She rose to meet me and I kissed her cheek and said, "I wish we were meeting under happier circumstances." We made small talk until after we ordered and then I described what happened the previous day. I passed her an envelope with the photos I'd taken and she took them out and looked at them. I was surprised at how calm she was as she went over them. She slid them back into the envelope and said:  
 
  
 
@@ -436,7 +436,7 @@
 
  "Cash the check as soon as you get it and put the money somewhere where Amy can't get to it." 
 
- At the end of my first month I had a surprise visitor. Amy came down to see me. When you are in jail they don't let just anyone visit you. You have to give them a list of people you are willing to see and if anyone not on that list comes to see you they come to you and ask you if you want to see that person. Amy was not on my list, but curiosity made me agree to see her. Report_Story #3 
+ At the end of my first month I had a surprise visitor. Amy came down to see me. When you are in jail they don't let just anyone visit you. You have to give them a list of people you are willing to see and if anyone not on that list comes to see you they come to you and ask you if you want to see that person. Amy was not on my list, but curiosity made me agree to see her.  
 
  
 
@@ -650,7 +650,7 @@
 
  "You going to see the kids?" 
 
- "Probably not. Amy did a pretty good job of brain washing them and seeing them would involve seeing Amy and my automatic reflex would be to wrap my fingers around her throat and squeeze." Report_Story #4 
+ "Probably not. Amy did a pretty good job of brain washing them and seeing them would involve seeing Amy and my automatic reflex would be to wrap my fingers around her throat and squeeze."  
 
  
 

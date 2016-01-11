@@ -218,7 +218,7 @@
 
  "Fuck her," Amanda whispered and knelt in front of the couple. She ran her hands over Samuel's back and down to his taut, bunched, and thrusting buttocks. "Give it to her, Sammy. Do it to your lovely wife." 
 
- I hope he stretches me like he's stretching her, Amanda thought after manoeuvring herself to where she could see Samuel's cock distending the younger woman's sex. She's so tight around him. It looks like she's going to split ... She's all purple for fuck's sake! But listen to her moan. And how wet she is, the stuff's trickling down the crack in her arse ...That stain's never going to wash out. Report_Story #2 
+ I hope he stretches me like he's stretching her, Amanda thought after manoeuvring herself to where she could see Samuel's cock distending the younger woman's sex. She's so tight around him. It looks like she's going to split ... She's all purple for fuck's sake! But listen to her moan. And how wet she is, the stuff's trickling down the crack in her arse ...That stain's never going to wash out.  
 
  
 

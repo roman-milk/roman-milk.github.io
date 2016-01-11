@@ -226,7 +226,7 @@
 
  "Let me cover myself up. Please!" she said, not pleading but with anger in her tone. 
 
- Past thinking straight, he reacted by bending her over the table and slapped her ass a couple of times. It didn't make him feel any better. Knowing he had gone way too far he stomped out of the house feeling worse than he had before going to see the spoilt bitch. Report_Story #2 
+ Past thinking straight, he reacted by bending her over the table and slapped her ass a couple of times. It didn't make him feel any better. Knowing he had gone way too far he stomped out of the house feeling worse than he had before going to see the spoilt bitch.  
 
  
 
@@ -240,7 +240,7 @@
 
  The bitch needed a sharp lesson on the streets to teach her how unfair and cruel life could be. It wouldn't happen though. This family was too rich to even imagine how hard it was for the likes of him. 
 
- He didn't want to get chucked out onto the street so hurried away before he did something the bitch could use against him. Report_Story #1 
+ He didn't want to get chucked out onto the street so hurried away before he did something the bitch could use against him.  
 
  
 
@@ -460,7 +460,7 @@
 
  He slid it between her legs nudging her lips then heaved his cock into her. 
 
- "Oh! No! Please no. You bastard, take it out, bastard, no! Please don't fuck me, sir." she cried out. Report_Story #2 
+ "Oh! No! Please no. You bastard, take it out, bastard, no! Please don't fuck me, sir." she cried out.  
 
  
 
@@ -484,7 +484,7 @@
 
  Her legs gave way leaving her hanging by the wrists, used, abused and defeated. There was a vague awareness of being cut down and a pair of arms lowering her to the cold floor. She screwed her body up into a foetal position the only protection from those terrible staring eyes. 
 
- Olivia wasn't relieved it was over. She was too afraid to feel anything. She just wished they would go and leave her to recover. If that could ever be possible. Report_Story #1 
+ Olivia wasn't relieved it was over. She was too afraid to feel anything. She just wished they would go and leave her to recover. If that could ever be possible.  
 
  
 
@@ -640,7 +640,7 @@
 
  Gone were the designer clothes to be replaced by a cheap blouse and a skirt a hooker would be embarrassed wearing. With lurid make-up plastered on the image was too real. She had helped transform herself into the cheapest of whores. 
 
- After such ill use and the way she had reacted, offering herself to them in a most vile way, she felt empty. She felt her self-esteem crumble to nothing knowing whatever they had planned would be submitted to. However vile the chore, she would carry it out like the obedient little slut she had become. Report_Story #1 
+ After such ill use and the way she had reacted, offering herself to them in a most vile way, she felt empty. She felt her self-esteem crumble to nothing knowing whatever they had planned would be submitted to. However vile the chore, she would carry it out like the obedient little slut she had become.  
 
  
 
@@ -846,13 +846,13 @@
 
  "Maybe we can escape," Olivia started to say. 
 
- "No going back for me. I'm addicted to sperm. Got to have it! That bread and water in your cage, that's all you're getting tonight so eat it. In the morning some soup then it's up to you to milk as much sperm from them as possible. Yeah! All the protein you can squeeze outa their balls, gyrl. You'll get used to the taste then grow to like it. After awhile you won't remember what good food tastes like. You'll start to forget what life you had before this. Or maybe you will want to because it hurts to remember." Report_Story #2 
+ "No going back for me. I'm addicted to sperm. Got to have it! That bread and water in your cage, that's all you're getting tonight so eat it. In the morning some soup then it's up to you to milk as much sperm from them as possible. Yeah! All the protein you can squeeze outa their balls, gyrl. You'll get used to the taste then grow to like it. After awhile you won't remember what good food tastes like. You'll start to forget what life you had before this. Or maybe you will want to because it hurts to remember."  
 
  
 
  ****** Olivia Ch. 04 ****** byStoryTeller07© A hard look crossed her features and Olivia had to look away. If this was the life ahead of her then maybe it should be ended right now. Surely they couldn't break her so completely as that. On the ride here she had been so overwhelmed by what had happened earlier she had already become completely submissive to them. 
 
- Olivia dreaded what might happen to her over a couple of months with these callous men using her as a sex object. Olivia looked at the young woman in the cage, agonizing over what might happen. She had a wealthy pampered upbringing, so would she still be as sane as that young woman in a year's time? Report_Story #1 
+ Olivia dreaded what might happen to her over a couple of months with these callous men using her as a sex object. Olivia looked at the young woman in the cage, agonizing over what might happen. She had a wealthy pampered upbringing, so would she still be as sane as that young woman in a year's time?  
 
  
 
@@ -1052,7 +1052,7 @@
 
  Keeping her hungry and face fucking so often had made it habitual. It probably started as a defense mechanism, where she had to like it or lose her mind. In some ways she had lost her mind, or at least lost all moral standards. Unable to object to the mistreatment she made herself enjoy it. Eventually she really did like the taste of sperm, and so, became hooked on sucking cocks for it. 
 
- Frank extracted the outlines of what had happened to her over the last three months. She didn't seem to remember a previous life. Again, it must be a defense mechanism, protecting her mind from the truth of how far her morals had collapsed. Report_Story #2 
+ Frank extracted the outlines of what had happened to her over the last three months. She didn't seem to remember a previous life. Again, it must be a defense mechanism, protecting her mind from the truth of how far her morals had collapsed.  
 
  
 

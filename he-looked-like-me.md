@@ -304,7 +304,7 @@
 
  She grabbed my hand and put it between her legs. She wasn't lying. 
 
- "I'd love to share you, Dana. You sure you want to do it now? Are you up to it? You could barely stay awake." Report_Story #2 
+ "I'd love to share you, Dana. You sure you want to do it now? Are you up to it? You could barely stay awake."  
 
  
 
@@ -682,7 +682,7 @@
 
  ========================== 
 
- I know, the first chapter is quite the tease. The second chapter, I promise is the complete payoff. I hope you enjoy both. Report_Story #1 
+ I know, the first chapter is quite the tease. The second chapter, I promise is the complete payoff. I hope you enjoy both.  
 
  
 
@@ -1014,7 +1014,7 @@
 
  She nodded, and slammed her head down roughly. This time she didn't stop. She bobbed her head on the last couple of inches, keeping me in her throat. Each movement had me entering her throat again, a little hitch in the action, like popping the head of my cock through a tight ring. The nasty noises started, a sort of 'guh, guh, guh', driving me crazy. 
 
- "Fuck!" I cried out, when I couldn't hold back a second longer, erupting powerfully. The first shot went straight down her throat, then she pulled back, her nostrils flaring, as I finished inside that incredible mouth. Report_Story #2 
+ "Fuck!" I cried out, when I couldn't hold back a second longer, erupting powerfully. The first shot went straight down her throat, then she pulled back, her nostrils flaring, as I finished inside that incredible mouth.  
 
  
 
@@ -1314,7 +1314,7 @@
 
  I kissed her pretty face. "You gonna come for us?" 
 
- She shook her head. "Don't think so. It's wild, but a little uncomfortable. Every time it starts feeling good, something will hurt, putting me off." Report_Story #3 
+ She shook her head. "Don't think so. It's wild, but a little uncomfortable. Every time it starts feeling good, something will hurt, putting me off."  
 
  
 
@@ -1690,7 +1690,7 @@
 
  "I do. Wish I didn't. Soon." 
 
- She nodded. "Thank you. Leave your number and address. We have to stay in touch." Report_Story #4 
+ She nodded. "Thank you. Leave your number and address. We have to stay in touch."  
 
  
 

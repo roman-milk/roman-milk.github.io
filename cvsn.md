@@ -172,7 +172,7 @@
 
  Finally 5:00pm arrived. I never get to work by 9:00, and I never leave before 6:00, but today I was willing to make an exception. I walked out to the cars with Karen. 
 
- "Debbie is working really hard to make tonight special. Say something nice when you get there," she advised me as we got to our cars. Report_Story #2 
+ "Debbie is working really hard to make tonight special. Say something nice when you get there," she advised me as we got to our cars.  
 
  
 
@@ -418,7 +418,7 @@
 
  Harder and harder, faster and firmer, I plunged into her. I never tore my eyes from her pretty face. Her eyes were wide, looking at me almost uncomprehendingly. I allowed my countenance to reflect the full heat of my desire. Her mouth opened, and released a silent scream, as she trembled underneath my body. Now I did see something that looked almost like fear in her eyes, as she continued the gasping silent cry, and surrendered to my lust. 
 
- I could hold back no longer; with a cry, I claimed her for my own, depositing my seed deep inside her. The exquisite release was so overwhelming, a series of continuous orgasms, that it brought tears to my eyes. Report_Story #3 
+ I could hold back no longer; with a cry, I claimed her for my own, depositing my seed deep inside her. The exquisite release was so overwhelming, a series of continuous orgasms, that it brought tears to my eyes.  
 
  
 
@@ -452,7 +452,7 @@
 
  P.S. If I didn't reply to an email of yours, feedback or otherwise, it's because 1) no return address, or 2) the return address was broken (this has happened twice). 
 
- If you didn't get a response, just wanted to say thanks. And Denise, look for your name in an upcoming release. ;-) Report_Story #1 
+ If you didn't get a response, just wanted to say thanks. And Denise, look for your name in an upcoming release. ;-)  
 
  
 
@@ -682,7 +682,7 @@
 
  "God. She looks so hot Jack. Is that what I look like with a big cock in my mouth. Isn't she pretty? I bet that gets you so hot, watching that pretty face and that little mouth stretching wide to take you in. I bet you'd like to see up both down there, sucking your cock, wouldn't you?" 
 
- Taking my grunts for assent, Karen took up position beside Debbie, grasping my cock in her hand, locking her other hand in Debbie's hair. She pulled Debbie back off my cock. For the first time since she'd opened her mouth, Debbie looked away from my face, and turned her head to see Karen. Report_Story #2 
+ Taking my grunts for assent, Karen took up position beside Debbie, grasping my cock in her hand, locking her other hand in Debbie's hair. She pulled Debbie back off my cock. For the first time since she'd opened her mouth, Debbie looked away from my face, and turned her head to see Karen.  
 
  
 
@@ -760,7 +760,7 @@
 
  I woke to find both girls gone, the house in immaculate order, and a note telling me they'd had to leave to pick up their girls, but they'd be back Sunday for dinner, with girls in tow. Debbie would take the little ones home and Karen would be spending the night. 
 
- I rolled over, my self-satisfied grin almost too large to share the bed with me. I drifted back to sleep, telling myself I needed to conserve my energy. Report_Story #1 
+ I rolled over, my self-satisfied grin almost too large to share the bed with me. I drifted back to sleep, telling myself I needed to conserve my energy.  
 
  
 
@@ -914,7 +914,7 @@
 
  I walked out, ready to go back to the carport and face the music. Beth was just walking out of the garage with an armload of wood remnants. She had a big wheelbarrow there, and was loading it with the trash. I thought I'd find her back at the carport, filling the others in on the vile behavior of the incredibly lecherous Jack of the Low Morals. 
 
- I approached her. She shot daggers at me with her glance, then turned back into the garage. I was on some kind of friggin' roller coaster of emotions that day. Up and down, up and down. Once again I felt like the miserable cur I was, knowing I should have broken things off with this girl, or at least given her some inkling of what was going on. Report_Story #2 
+ I approached her. She shot daggers at me with her glance, then turned back into the garage. I was on some kind of friggin' roller coaster of emotions that day. Up and down, up and down. Once again I felt like the miserable cur I was, knowing I should have broken things off with this girl, or at least given her some inkling of what was going on.  
 
  
 
@@ -1106,7 +1106,7 @@
 
  As soon as we were in the door, I turned her to face me. Grasping her hair in my fist, I kissed her mouth hard. She grabbed my shirt and pulled at it, freeing it. Then I was pulling it over my head, and she was fighting with my belt to get into my pants. She was bent over at the waist, leaning over, and tugging at them. I stepped back, kicking off my shoes, and stepped out of my pants. I was not wearing underwear, and my fully hard cock sprung free. 
 
- Cathy dropped to her knees and looking up into my eyes, licked the length of my cock, before taking it into her mouth. She was a consummate cock-sucker, playing with my balls, stroking my cock, laving the head with her tongue, and taking me deep in her mouth. She seemed to anticipate my desires, knowing when to speed things up, when to tease, when to stroke me hard and fast. Her eyes would lock onto mine for long seconds, and then her attention would return to the simple feat of servicing my cock, with every bit of her essence dedicated to that effort. Report_Story #3 
+ Cathy dropped to her knees and looking up into my eyes, licked the length of my cock, before taking it into her mouth. She was a consummate cock-sucker, playing with my balls, stroking my cock, laving the head with her tongue, and taking me deep in her mouth. She seemed to anticipate my desires, knowing when to speed things up, when to tease, when to stroke me hard and fast. Her eyes would lock onto mine for long seconds, and then her attention would return to the simple feat of servicing my cock, with every bit of her essence dedicated to that effort.  
 
  
 
@@ -1182,7 +1182,7 @@
 
  Thanks to everyone who keeps emailing me and encouraging me to continue this story. Time constraints have been difficult lately. I’m really going to try hard to come out with the next portion soon and not leave you hanging too long. 
 
- And thanks for the pictures from those who sent them unsolicited. They were very nice and greatly appreciated. They make for great inspiration. Report_Story #1 
+ And thanks for the pictures from those who sent them unsolicited. They were very nice and greatly appreciated. They make for great inspiration.  
 
  
 
@@ -1354,7 +1354,7 @@
 
  I hated to see her pleading. "Beth. You don't want this. Throwing yourself away on someone like me." 
 
- "You are the only one I've ever really wanted to be with. I want to be with you. Tonight. And I want to be in your life, however I can. I hate myself for it. I just want to be with you, so bad. I can't sleep just thinking about you. I keep thinking about you with them. You with her, like that, like I saw you. Please, Jack." Report_Story #2 
+ "You are the only one I've ever really wanted to be with. I want to be with you. Tonight. And I want to be in your life, however I can. I hate myself for it. I just want to be with you, so bad. I can't sleep just thinking about you. I keep thinking about you with them. You with her, like that, like I saw you. Please, Jack."  
 
  
 
@@ -1604,7 +1604,7 @@
 
  I hugged her firmly. I ran my hand down her back, caressing the small of her back, before settling on her right butt cheek. With my other hand, I pulled her hair back, so I could kiss her forehead. 
 
- After a few moments, I tensed up the muscle that allows me to raise and lower my cock. I could feel my cock swelling inside her, pushing up against her. Report_Story #3 
+ After a few moments, I tensed up the muscle that allows me to raise and lower my cock. I could feel my cock swelling inside her, pushing up against her.  
 
  
 
@@ -1686,7 +1686,7 @@
 
  I woke from the intensity of cumming inside her so strongly. The sun was high in the sky, and was warm on my skin. Beth was still soundly asleep, moaning softly in her dreams, arms and legs akimbo, her body stretched out on mine. I could feel her pussy pulsing around my cock, as I delivered my seed inside of her. I placed my hands on her ass, as I finished cumming, stroking her sweet cheeks, smiling to myself. My cock never fully softened, as I stayed lodged inside her, semi-hard, her legs curling around and under mine, locking her hips against mine. 
 
- * * * * Report_Story #1 
+ * * * *  
 
  
 
@@ -1940,7 +1940,7 @@
 
  Both my girls were giggling, competing to kiss and suck Joe's cock. He had a substantial member, long and thin, leaving lots of room for the girls to play with. He watched the two young beauties eventually take turns gobbling him. Debbie was on her hands and knees, and her ass was well within my reach. I reached out and squeezed her cheeks, then slipped a couple of fingers up inside her. 
 
- Joe looked over to see me plowing his wife, and his tender side peeked out for just a moment, as he reached over, and brushed her hair from her face. She reached out and took that hand in hers, holding it tight, while she bounced under my unrelenting attention. Report_Story #2 
+ Joe looked over to see me plowing his wife, and his tender side peeked out for just a moment, as he reached over, and brushed her hair from her face. She reached out and took that hand in hers, holding it tight, while she bounced under my unrelenting attention.  
 
  
 
@@ -2034,7 +2034,7 @@
 
  "I'll do it again." I told her, pulling her mouth to mine, and kissing her deeply. She responded passionately, until I pulled away, to try to catch my breath. 
 
- "I know you will. Whenever you want." She whispered, pressing her lips to my neck. Report_Story #1 
+ "I know you will. Whenever you want." She whispered, pressing her lips to my neck.  
 
  
 
@@ -2236,7 +2236,7 @@
 
  "Ok, there's not much. I don't have any way to pack it though." She sounded amazingly calm. 
 
- "Just take a bed sheet and lay it on the floor upstairs. Throw everything in the middle of it. I'll come up and get it when you're done. Just yell for me." Report_Story #2 
+ "Just take a bed sheet and lay it on the floor upstairs. Throw everything in the middle of it. I'll come up and get it when you're done. Just yell for me."  
 
  
 
@@ -2456,7 +2456,7 @@
 
  The shampooing was slow going, and she was done with the kitchen before I had finished the living room. 
 
- "Wow, are you done already? That's fast. It's not even 11:00 yet," I said. Report_Story #3 
+ "Wow, are you done already? That's fast. It's not even 11:00 yet," I said.  
 
  
 
@@ -2656,7 +2656,7 @@
 
  Beth approached me and stood up on her toes to whisper to me. "Your pants are on inside out." 
 
- I could feel myself blushing. Report_Story #1 
+ I could feel myself blushing.  
 
  
 
@@ -2886,7 +2886,7 @@
 
  "Ok, so Karen is no big deal, but how about Debbie?" 
 
- "My heart breaks for her. I want to take care of her. She's possibly the prettiest girl I've ever known, and every time I look at her my pulse races. It's crazy, I know. I feel I'm walking on eggshells around her sometimes, and I'm always afraid that I'm going to hurt her in some way. And yet, I can't look at her without wanting to make love to her." Instead, I was making love to Beth, easily, almost casually, as I told her that the girl in the room directly above us was what I desired more than anything. Maybe I really was as foolish as Cathy claimed. Report_Story #2 
+ "My heart breaks for her. I want to take care of her. She's possibly the prettiest girl I've ever known, and every time I look at her my pulse races. It's crazy, I know. I feel I'm walking on eggshells around her sometimes, and I'm always afraid that I'm going to hurt her in some way. And yet, I can't look at her without wanting to make love to her." Instead, I was making love to Beth, easily, almost casually, as I told her that the girl in the room directly above us was what I desired more than anything. Maybe I really was as foolish as Cathy claimed.  
 
  
 
@@ -3080,7 +3080,7 @@
 
  I was so confused. 
 
- "Beth, I'm not sure what you expect here. Do you think that just because she works with us she has to sleep with me?" I was getting a little ticked off. Report_Story #3 
+ "Beth, I'm not sure what you expect here. Do you think that just because she works with us she has to sleep with me?" I was getting a little ticked off.  
 
  
 
@@ -3196,7 +3196,7 @@
 
  * * * * 
 
- If you liked this story, please vote. It's the perfect feedback, and is greatly appreciated. And keep those great emails coming. Thanks. Report_Story #1 
+ If you liked this story, please vote. It's the perfect feedback, and is greatly appreciated. And keep those great emails coming. Thanks.  
 
  
 
@@ -3402,7 +3402,7 @@
 
  "C'mon Jimbo, bring that sweet thing to mama." She told him, rocking back and forth on my thrusting cock. 
 
- I reached up and played with her breasts, as Jim approached her. He was already getting hard again and within a few moments she had him back in her mouth. With her improved position, she was fucking his cock aggressively with her mouth. It's shorter length let her take it all the way to the back of throat, when she pressed her face into his pubes. I figure he couldn't have been five inches long, but he was pretty damn thick around, at least as wide as me. Report_Story #2 
+ I reached up and played with her breasts, as Jim approached her. He was already getting hard again and within a few moments she had him back in her mouth. With her improved position, she was fucking his cock aggressively with her mouth. It's shorter length let her take it all the way to the back of throat, when she pressed her face into his pubes. I figure he couldn't have been five inches long, but he was pretty damn thick around, at least as wide as me.  
 
  
 
@@ -3664,7 +3664,7 @@
 
  "Oh God, I can't believe I'm inside you. Oh God Karen, you are incredible. You are so beautiful, your pussy tastes so great, I can't believe how tight you are. God, I love this." His eyes were like saucers and he was almost babbling. 
 
- She pulled up a little bit, reached down with her hands and pulled her pussy lips apart, settling down even further on his cock. Report_Story #3 
+ She pulled up a little bit, reached down with her hands and pulled her pussy lips apart, settling down even further on his cock.  
 
  
 
@@ -3828,7 +3828,7 @@
 
  * * * * 
 
- I know you're reading these stories. They are read in the 10's of thousands. Won't you take a few seconds to vote (I prefer that little '5' at the bottom). I'd appreciate it, and you'll be rewarded by more antics of "Jack", that's me, when I had more stamina then good sense, and a bizarre opportunity thrust on me. God I hope my Mom doesn't read this. She still thinks I just had boarders. Any questions, comments? Go ahead and email me. Thanks. Report_Story #1 
+ I know you're reading these stories. They are read in the 10's of thousands. Won't you take a few seconds to vote (I prefer that little '5' at the bottom). I'd appreciate it, and you'll be rewarded by more antics of "Jack", that's me, when I had more stamina then good sense, and a bizarre opportunity thrust on me. God I hope my Mom doesn't read this. She still thinks I just had boarders. Any questions, comments? Go ahead and email me. Thanks.  
 
  
 
@@ -4072,7 +4072,7 @@
 
  "I'll suck to that," Beth answered with a drunken giggle, and bobbed her head up and down on my cock several times before passing my cock to Debbie. 
 
- Debbie laughed, and did the same, sucking me deeply and fully several times, then pulling away and pointing my cock at Karen. Karen again shook her head laughing and then took my cock in her mouth and pushed her face down on it achingly slow, eyes locked on mine. She pulled back up and bobbed her head up and down, as the other two had, and then pulled her head away. Report_Story #2 
+ Debbie laughed, and did the same, sucking me deeply and fully several times, then pulling away and pointing my cock at Karen. Karen again shook her head laughing and then took my cock in her mouth and pushed her face down on it achingly slow, eyes locked on mine. She pulled back up and bobbed her head up and down, as the other two had, and then pulled her head away.  
 
  
 
@@ -4294,7 +4294,7 @@
 
  That appeared to piss her off, and I knew I'd slipped up. "That was uncalled for. I thought he was like your best friend," she told me icily. 
 
- "He is. He and Joe. I'm sorry; that was mean of me. But I've tried so hard in the past to get him hooked up and he always self-destructs. I keep waiting for him to really screw up, knowing it can't last." Report_Story #3 
+ "He is. He and Joe. I'm sorry; that was mean of me. But I've tried so hard in the past to get him hooked up and he always self-destructs. I keep waiting for him to really screw up, knowing it can't last."  
 
  
 
@@ -4376,7 +4376,7 @@
 
  * * * * 
 
- Thanks for all the votes! I can't believe how great you readers are. Keep voting, and thanks again! Report_Story #1 
+ Thanks for all the votes! I can't believe how great you readers are. Keep voting, and thanks again!  
 
  
 
@@ -4570,7 +4570,7 @@
 
  Robin took a pencil and started making some changes almost immediately. Where I had a large arch that led into both of the new rooms, Robin created a series of doors changing the flow completely, and making it a little easier to close off the family room, ideal for when the little girls where camped out in there. As for upstairs, I didn't really have a good idea of how to make it work, and Robin changed things drastically. Her version looked to be a lot more work, but it would work out with a large playroom that the girls rooms opened into, and adding a large bedroom with bath and walk-in closet for Beth. 
 
- She was just explaining the reasoning for laying it out that way, and how the plumbing would be much simplified, when Beth walked in the door. Debbie excused herself to the kitchen with an announcement that dinner would be ready in just a minute. We had just a minute to start explaining the layout to Beth, when dinner was served. Debbie set the girls up TV trays in the living room, while the 6 adults crowded around our table. Report_Story #2 
+ She was just explaining the reasoning for laying it out that way, and how the plumbing would be much simplified, when Beth walked in the door. Debbie excused herself to the kitchen with an announcement that dinner would be ready in just a minute. We had just a minute to start explaining the layout to Beth, when dinner was served. Debbie set the girls up TV trays in the living room, while the 6 adults crowded around our table.  
 
  
 
@@ -4684,7 +4684,7 @@
 
  * * * * End of Jack's Shack Chapter 10 Family Complications * * * * 
 
- Thanks for all the votes! Several new chapters and stories are on their way - Let me know if you enjoy them - just press the vote button! :-) Report_Story #1 
+ Thanks for all the votes! Several new chapters and stories are on their way - Let me know if you enjoy them - just press the vote button! :-)  
 
  
 
@@ -4890,7 +4890,7 @@
 
  "All I know is, if you do anything, and I mean ANYTHING with Robin without Karen's knowledge and agreement, you might as well kiss that relationship goodbye." I told him. 
 
- "How come? You can do all these girls, why couldn't I be with both?" He asked, almost defiantly. Report_Story #2 
+ "How come? You can do all these girls, why couldn't I be with both?" He asked, almost defiantly.  
 
  
 
@@ -5006,7 +5006,7 @@
 
  ----------------------- 
 
- Thanks for all the great comments on the previous stories - and remember to keep voting! Thanks. Report_Story #1 
+ Thanks for all the great comments on the previous stories - and remember to keep voting! Thanks.  
 
  
 
@@ -5264,7 +5264,7 @@
 
  I needn't have worried. Debbie gave Beth the kind of attention she usually reserves for me. Her every action screamed love and adoration. She didn't ask for anything in response, she just worshipped that sexy little teen hard-body. They ended up in a tight embrace, their legs interlocked, their sex pressed together. I watched their hips remain in action, grinding against each other, while Debbie whispered to Beth, words not meant for us to share. Debbie had Beth worked up like a raw nerve, when she broke away, and laid her out across the mattress, her head just at the foot of the bed. 
 
- "We're almost ready for you Joe. Are you ready for us?" Debbie asked, as she climbed on top of Beth, head-to-toe, in the classic 69 position. She lowered her face to Beth's waiting warmth, once again working to bring her back to that hairy edge of excitement. She was imminently in control, and I was enthralled as I watched her slowly lower her hips, her pink opening settling closer and closer to Beth's face. Report_Story #2 
+ "We're almost ready for you Joe. Are you ready for us?" Debbie asked, as she climbed on top of Beth, head-to-toe, in the classic 69 position. She lowered her face to Beth's waiting warmth, once again working to bring her back to that hairy edge of excitement. She was imminently in control, and I was enthralled as I watched her slowly lower her hips, her pink opening settling closer and closer to Beth's face.  
 
  
 
@@ -5438,7 +5438,7 @@
 
  --------------- 
 
- Thanks as always for reading my work, and watch for yet another lovely joining in soon! And, as always, your vote is appreciated. Report_Story #1 
+ Thanks as always for reading my work, and watch for yet another lovely joining in soon! And, as always, your vote is appreciated.  
 
  
 
@@ -5672,7 +5672,7 @@
 
  "Survived the event, did you?" She asked concernedly. 
 
- "Barely, but the Mom has her claws out." Report_Story #2 
+ "Barely, but the Mom has her claws out."  
 
  
 
@@ -5906,7 +5906,7 @@
 
  ========================= 
 
- Hope you enjoyed it. It's been a while in the works. But the next one should be ready soon. If you liked it, please consider voting. Report_Story #1 
+ Hope you enjoyed it. It's been a while in the works. But the next one should be ready soon. If you liked it, please consider voting.  
 
  
 
@@ -6112,7 +6112,7 @@
 
  Any further discussion was preempted by her taking the head of my cock into her mouth. 
 
- Chris was nice. It was a fun blow-job, without the skill of Debbie or Beth, we won't even mention the remarkable Cathy's ability. But she put quite a bit of enthusiasm into it which made up for a lot. And of course there was the factor that this was our first sexual contact, and you know how exciting that can be. She didn't take me too deep, but her hand was a very nice addition. After a few minutes she took a break, stroking me while she caught her breath. Report_Story #2 
+ Chris was nice. It was a fun blow-job, without the skill of Debbie or Beth, we won't even mention the remarkable Cathy's ability. But she put quite a bit of enthusiasm into it which made up for a lot. And of course there was the factor that this was our first sexual contact, and you know how exciting that can be. She didn't take me too deep, but her hand was a very nice addition. After a few minutes she took a break, stroking me while she caught her breath.  
 
  
 
@@ -6378,7 +6378,7 @@
 
  =============== 
 
- I hope you enjoyed this chapter of Jack and the house that lust built. Please vote. Report_Story #1 
+ I hope you enjoyed this chapter of Jack and the house that lust built. Please vote.  
 
  
 
@@ -6558,7 +6558,7 @@
 
  * * * 
 
- Dressed and satisfied for the moment, Beth took me on a tour of the work. I could see that Jim was still outside at work, and knew that Robin had retreated upstairs. I still hadn't seen hide nor hair of the other two women, and I said so. Report_Story #2 
+ Dressed and satisfied for the moment, Beth took me on a tour of the work. I could see that Jim was still outside at work, and knew that Robin had retreated upstairs. I still hadn't seen hide nor hair of the other two women, and I said so.  
 
  
 
@@ -6724,7 +6724,7 @@
 
  * * * 
 
- Sorry for the long absence, hope you enjoyed this installment of the CvsN series. There are three more completed and they'll be coming along soon. Report_Story #1 
+ Sorry for the long absence, hope you enjoyed this installment of the CvsN series. There are three more completed and they'll be coming along soon.  
 
  
 
@@ -6988,7 +6988,7 @@
 
  I peeled the shirt off of her, exposing her breasts, and pulled her close enough for a taste. After a minute or two, I undid her pants and lowered those as well. She was going commando, no surprise there. I stood, picked her up and laid her out on the bed. Within minutes I was between her legs, getting my first taste of her. Feeling a shift on the bed, I looked over to see that Jim was back to his old tricks, playing follow the leader. Still half-dressed, he was going down on Karen. 
 
- My purpose was simple enough, and after a couple of minutes of fun, when I had Robin really worked up, I climbed off of her and got undressed. She bounced off the bed and helped me, then dropped to her knees and I once more had a chance to sample her excellent oral skills. Report_Story #2 
+ My purpose was simple enough, and after a couple of minutes of fun, when I had Robin really worked up, I climbed off of her and got undressed. She bounced off the bed and helped me, then dropped to her knees and I once more had a chance to sample her excellent oral skills.  
 
  
 
@@ -7254,7 +7254,7 @@
 
  "God, I'm not. I don't know if I ever came that hard. We are SO going to be doing that again, once I've recovered. Debbie's going to have to see this." Then she turned to her friend. "This was all your idea, you know. Making him rape my ass. I swear I'm going to cheer him on when he splits you open like that." 
 
- Amie leaned in and kissed her again. "It may kill me, but when we play again, I'll let him take that cherry, if you'll help." Then she leaned over Beth and kissed me. "Would you like that, Jack? Would you fuck my virgin ass, and make me cry for you? Stick that beast of a cock so far up my butt that I can taste it?" Report_Story #3 
+ Amie leaned in and kissed her again. "It may kill me, but when we play again, I'll let him take that cherry, if you'll help." Then she leaned over Beth and kissed me. "Would you like that, Jack? Would you fuck my virgin ass, and make me cry for you? Stick that beast of a cock so far up my butt that I can taste it?"  
 
  
 
@@ -7276,7 +7276,7 @@
 
  * * * * 
 
- I hope you enjoyed this new chapter. Watch out for that Amie, though, she's trouble. Oh yeah, and as always, if you liked it, please vote. Report_Story #1 
+ I hope you enjoyed this new chapter. Watch out for that Amie, though, she's trouble. Oh yeah, and as always, if you liked it, please vote.  
 
  
 
@@ -7526,7 +7526,7 @@
 
  "Can we quick clean up?" she asked me, gasping. "I want to see them." 
 
- I pulled out of her and turned her around under the water. "Two minute shower. Get to it," I told her rubbing her back down, making sure to get her ass and legs. Then we switched positions while she did my back and I did my front. It was a shame, I very rarely got to shower with Karen, and here we were, done and drying off faster than I could have even gotten decently worked up. My face must have shown my disappointment. Report_Story #2 
+ I pulled out of her and turned her around under the water. "Two minute shower. Get to it," I told her rubbing her back down, making sure to get her ass and legs. Then we switched positions while she did my back and I did my front. It was a shame, I very rarely got to shower with Karen, and here we were, done and drying off faster than I could have even gotten decently worked up. My face must have shown my disappointment.  
 
  
 
@@ -7702,7 +7702,7 @@
 
  "Tomorrow's Saturday, you can sleep in," I reminded her. I fucked her harder, long full strokes, bottoming out in her virgin butt, to an endless array of moans. I was finally ready. "Here it comes," I warned her, shoving my cock as deep as I could, and thoroughly coating her insides with my seed. 
 
- Having come, I still didn't want this to end. Beth started crawling onto the bed, and seeing her sweet ass hanging over the side, I rolled away from Amie and grabbed Beth's hips before she could get away. I planted my mouth on her sweet, abused pussy, and she groaned, "Jack, it's too much. Too much." Report_Story #3 
+ Having come, I still didn't want this to end. Beth started crawling onto the bed, and seeing her sweet ass hanging over the side, I rolled away from Amie and grabbed Beth's hips before she could get away. I planted my mouth on her sweet, abused pussy, and she groaned, "Jack, it's too much. Too much."  
 
  
 
@@ -7722,7 +7722,7 @@
 
  ---- 
 
- I hope you enjoyed this chapter. Things take an interesting change in the next one, when some more family members take an interest in the goings on at the house that lust built. And as always, if you enjoyed the story, please vote. Report_Story #1 
+ I hope you enjoyed this chapter. Things take an interesting change in the next one, when some more family members take an interest in the goings on at the house that lust built. And as always, if you enjoyed the story, please vote.  
 
  
 
@@ -7950,7 +7950,7 @@
 
  "Don't let the spoiled one stop you," he teased, hugging her back, with what looked like less-than-honorable attentions. 
 
- "Ooh, Amie. I like your Dad." Robin sighed, rubbing herself against him. She ground her hips against him, putting her arms around his neck and looking up into his eyes. "Maybe you and I can discuss just what a mouthful is later." Report_Story #2 
+ "Ooh, Amie. I like your Dad." Robin sighed, rubbing herself against him. She ground her hips against him, putting her arms around his neck and looking up into his eyes. "Maybe you and I can discuss just what a mouthful is later."  
 
  
 
@@ -8196,7 +8196,7 @@
 
  Not too long however. Robin came over and went down on me, not to too much effect, but the effort was nice. She did finally manage to get me hard enough for her to crawl back on top of me and stuff herself with what was available. Then she laid down on me, finally relaxing. "Damn. My entire mouth is numb. You guys play hard." 
 
- I stayed hard enough to enjoy being in her, and nudged my hips back forth, playing inside her. I firmed up for a while, and fucked her a little more thoroughly, but my buddy was letting me down, and I finally gave up. Report_Story #3 
+ I stayed hard enough to enjoy being in her, and nudged my hips back forth, playing inside her. I firmed up for a while, and fucked her a little more thoroughly, but my buddy was letting me down, and I finally gave up.  
 
  
 
@@ -8204,7 +8204,7 @@
 
  ---- 
 
- Things are getting interesting. How do Ron and Amie fit in? Find out more in the next chapter. And please remember to vote! Report_Story #1 
+ Things are getting interesting. How do Ron and Amie fit in? Find out more in the next chapter. And please remember to vote!  
 
  
 
@@ -8434,7 +8434,7 @@
 
  "Can't tear his eyes off of you," I confirmed. 
 
- "God, this is so bad," she said, kissing me hard. She slowly rose up off my cock, then turned around, faced the loveseat, and settled back down, fucking herself on my steel shaft, on full display. There was definitely an exhibitionist streak inside this wild child. Report_Story #2 
+ "God, this is so bad," she said, kissing me hard. She slowly rose up off my cock, then turned around, faced the loveseat, and settled back down, fucking herself on my steel shaft, on full display. There was definitely an exhibitionist streak inside this wild child.  
 
  
 
@@ -8642,7 +8642,7 @@
 
  --- 
 
- What will the night bring on? Even more wildness? And what about Amie and her father? How far is that going to go? Stay tuned. And vote! Report_Story #1 
+ What will the night bring on? Even more wildness? And what about Amie and her father? How far is that going to go? Stay tuned. And vote!  
 
  
 
@@ -8848,7 +8848,7 @@
 
  Dinner was fabulous, and a sensuous treat to watch all those sexy girls sucking on bones and licking their fingers, all of them trying to outdo each other with innuendo. 
 
- We had 'adult' milk shakes for dessert, and by the time we'd cleaned up the mess, and put the young ones to bed, the room was crackling with anticipation. Report_Story #2 
+ We had 'adult' milk shakes for dessert, and by the time we'd cleaned up the mess, and put the young ones to bed, the room was crackling with anticipation.  
 
  
 
@@ -9022,7 +9022,7 @@
 
  Since her daddy was watching, I went along, taking a couple of minutes of leisurely fucking before I was finally balls deep in her. Debbie lay down beside us and played with Amie's pussy. "You did good, sweetie. You can lick me anytime." She leaned over and kissed our friend while I picked up the pace, fucking that tight little butt a little more thoroughly. 
 
- During a break with Deb, Amie smiled for me. "You like that, don't you Jack. You like my ass, I can tell. It's all yours, whenever you want. Fuck my dirty little butt-hole, Jack. Fill my ass with that gargantuan cock." Report_Story #3 
+ During a break with Deb, Amie smiled for me. "You like that, don't you Jack. You like my ass, I can tell. It's all yours, whenever you want. Fuck my dirty little butt-hole, Jack. Fill my ass with that gargantuan cock."  
 
  
 
@@ -9106,7 +9106,7 @@
 
  ===== 
 
- I hope you enjoyed the story. I know that Amie's actions with her old man were a bit surprising, at least to me, but I could understand his reaction. Stay tuned for the next chapter where things get a bit strained. And remember - all of us authors love to see your votes and comments. Report_Story #1 
+ I hope you enjoyed the story. I know that Amie's actions with her old man were a bit surprising, at least to me, but I could understand his reaction. Stay tuned for the next chapter where things get a bit strained. And remember - all of us authors love to see your votes and comments.  
 
  
 
@@ -9258,7 +9258,7 @@
 
  When she finally started to calm down, I heard Ron ask, "Why didn't you tell me about college, baby? You could confide in me?" 
 
- She wrapped her legs tightly around my waist, pulling me deep before turning her torso to face her father. "I couldn't Dad, not after high-school. I was worried you'd do something stupid, something dangerous. And Martin wasn't bad; he was just a stupid jerk man, like all men." She hesitated, "Not like you guys, I mean. I mean he was bad, but you're not jerks. Or stupid. Oh shit, shit, shit, SHIT!" Report_Story #2 
+ She wrapped her legs tightly around my waist, pulling me deep before turning her torso to face her father. "I couldn't Dad, not after high-school. I was worried you'd do something stupid, something dangerous. And Martin wasn't bad; he was just a stupid jerk man, like all men." She hesitated, "Not like you guys, I mean. I mean he was bad, but you're not jerks. Or stupid. Oh shit, shit, shit, SHIT!"  
 
  
 
@@ -9528,7 +9528,7 @@
 
  "Your slut. Only yours. Your dirty little slut, your cum whore, that's all I am. Fuck me, use me," she gasped, pushing back against my intrusion. 
 
- After several minutes of reaming her, I started to feel just the tiniest bit guilty. I knew it would be a long time until I came, after what we'd just been through, and I was just enjoying the feeling. Even fucking her harder, breaking her away from her kissing, and setting her body shaking only made it more delicious, but didn't bring me any closer to coming. In the end, I was just too worn out, and I finally pulled out, much of my hardness gone, and collapsed back on the bed, gasping. Report_Story #3 
+ After several minutes of reaming her, I started to feel just the tiniest bit guilty. I knew it would be a long time until I came, after what we'd just been through, and I was just enjoying the feeling. Even fucking her harder, breaking her away from her kissing, and setting her body shaking only made it more delicious, but didn't bring me any closer to coming. In the end, I was just too worn out, and I finally pulled out, much of my hardness gone, and collapsed back on the bed, gasping.  
 
  
 
@@ -9558,7 +9558,7 @@
 
  ===== 
 
- Hope you enjoyed this chapter. Next one is on its way! Report_Story #1 
+ Hope you enjoyed this chapter. Next one is on its way!  
 
  
 
@@ -9806,7 +9806,7 @@
 
  "Lightning strike me if it ain't the truth," I vowed. 
 
- Beth came up behind me and gave me a hug. "I think we're going to have to get you back on an exercise program soon, if you don't learn to say no to seconds and thirds. All the bedroom workout in the world can't compete with Deb's cooking." Report_Story #2 
+ Beth came up behind me and gave me a hug. "I think we're going to have to get you back on an exercise program soon, if you don't learn to say no to seconds and thirds. All the bedroom workout in the world can't compete with Deb's cooking."  
 
  
 
@@ -10074,7 +10074,7 @@
 
  Debbie sidled up next to me, her leg over mine. "Thanks Jack, that was sweet." 
 
- Beth got up to use the bathroom and came back to our bed, cuddling up as close as Debbie. A king size bed, and we weren't even using half of it. Report_Story #3 
+ Beth got up to use the bathroom and came back to our bed, cuddling up as close as Debbie. A king size bed, and we weren't even using half of it.  
 
  
 
@@ -10088,7 +10088,7 @@
 
  ===== 
 
- Things are coming together again, but there's travel in Jack's near future. Stay tuned. And Vote. Report_Story #1 
+ Things are coming together again, but there's travel in Jack's near future. Stay tuned. And Vote.  
 
  
 
@@ -10326,7 +10326,7 @@
 
  "But the Swiss planes are outfitted completely differently, and we don't have the issues with tying into the manufacturing database we had with the Spanish." 
 
- I reached over, pulled out my pad, and started listing the parts of the system that would require refactoring, and the layout of the different display systems that would be required. We talked about a few options, and within 30 minutes, had the whole process mapped out. Report_Story #2 
+ I reached over, pulled out my pad, and started listing the parts of the system that would require refactoring, and the layout of the different display systems that would be required. We talked about a few options, and within 30 minutes, had the whole process mapped out.  
 
  
 
@@ -10594,7 +10594,7 @@
 
  If I listened carefully, I could hear her hissing, "Yes, yes" just below a whisper. 
 
- It was wonderful, but her legs were too short for me, and I had to bend down to do her. It was starting to tell on my thighs, so I pulled out, letting her turn around. I took one of the towels off the shelf, and put it on the sink edge, more careful of my pants this time, and lifted her up to sit her there. With the added space in this bathroom, I was able to spread her legs wide, and leaned down for a taste, just a couple of minute's worth, before I renewed my assault. I fucked her on that sink for an eternity, moving her legs around, holding them wide, then lifting them up onto my shoulders. It felt so incredible I never wanted it to end. She hadn't come yet, and I didn't want her to miss out on that, so I spread her legs wide again, and played with her clit while I pumped her. I bent my knees a bit, thrusting up into her tight pussy, slowing the pace, and pulling almost out to the opening, fucking her with just the first few inches, targeting her elusive g-spot. Report_Story #3 
+ It was wonderful, but her legs were too short for me, and I had to bend down to do her. It was starting to tell on my thighs, so I pulled out, letting her turn around. I took one of the towels off the shelf, and put it on the sink edge, more careful of my pants this time, and lifted her up to sit her there. With the added space in this bathroom, I was able to spread her legs wide, and leaned down for a taste, just a couple of minute's worth, before I renewed my assault. I fucked her on that sink for an eternity, moving her legs around, holding them wide, then lifting them up onto my shoulders. It felt so incredible I never wanted it to end. She hadn't come yet, and I didn't want her to miss out on that, so I spread her legs wide again, and played with her clit while I pumped her. I bent my knees a bit, thrusting up into her tight pussy, slowing the pace, and pulling almost out to the opening, fucking her with just the first few inches, targeting her elusive g-spot.  
 
  
 
@@ -10660,7 +10660,7 @@
 
  ======= 
 
- The city of Madrid awaits, patient reader. Follow in the footsteps of Hemingway, and young Jack. And don't forget to vote, if you enjoyed the story, and generous Leanne! Report_Story #1 
+ The city of Madrid awaits, patient reader. Follow in the footsteps of Hemingway, and young Jack. And don't forget to vote, if you enjoyed the story, and generous Leanne!  
 
  
 
@@ -10892,7 +10892,7 @@
 
  --- 
 
- In the morning, we had another leisurely liaison, before she headed off to the bathroom. As much as I hated to do it, I headed down to the tiny room they called a gym, and spent 30 minutes on the treadmill imagining catching Amie and having my way with her. Back in the room I took a quick shower, and did a quick email check, notifying the team of our progress. Report_Story #2 
+ In the morning, we had another leisurely liaison, before she headed off to the bathroom. As much as I hated to do it, I headed down to the tiny room they called a gym, and spent 30 minutes on the treadmill imagining catching Amie and having my way with her. Back in the room I took a quick shower, and did a quick email check, notifying the team of our progress.  
 
  
 
@@ -11146,7 +11146,7 @@
 
  She had on nearly see-through black panties and bra. Intricate designs covered the bra, with a lacy scalloped top, and embroidered pink roses between her pert breasts, and where the strap met the cup on one side. The rose motif was continued on the panties, which were a little less transparent in front, with lacy sides embracing her hips. The garter around her waist ended just above the panties, hiding nothing, with long straps reaching several inches down her thighs to hold up her sheer stockings. The stockings alone probably cost at much as my whole wardrobe. 
 
- I was dumb-struck. She seemed to be waiting for a comment but I was helpless before her stunning sexiness. "Words. There are no words..." was all I could mumble. Report_Story #3 
+ I was dumb-struck. She seemed to be waiting for a comment but I was helpless before her stunning sexiness. "Words. There are no words..." was all I could mumble.  
 
  
 
@@ -11256,7 +11256,7 @@
 
  * * * * 
 
- Where to from here? You'll have to read on to find out! And remember, as they say in Chicago, Vote, and vote often! (Except for the often part, just once is good enough) Report_Story #1 
+ Where to from here? You'll have to read on to find out! And remember, as they say in Chicago, Vote, and vote often! (Except for the often part, just once is good enough)  
 
  
 
@@ -11530,7 +11530,7 @@
 
  "And was my favorite Major eavesdropping?" I asked. 
 
- She leaned back on the bed, looking devastating. "Just a little. Am I really your favorite Major?" Report_Story #2 
+ She leaned back on the bed, looking devastating. "Just a little. Am I really your favorite Major?"  
 
  
 
@@ -11802,7 +11802,7 @@
 
  "Hard as a rock, Beth. God, I'd love to feel your mouth on me." 
 
- Chris took that as an invitation, sucking me deeply. Report_Story #3 
+ Chris took that as an invitation, sucking me deeply.  
 
  
 
@@ -11862,7 +11862,7 @@
 
  * * * * * 
 
- The trip is almost over, but the fun is just starting. Hope you enjoyed this chapter! Report_Story #1 
+ The trip is almost over, but the fun is just starting. Hope you enjoyed this chapter!  
 
  
 
@@ -12138,7 +12138,7 @@
 
  I finished my champagne, and pulled her close. She slipped into my arms, and I kissed her, deeply, fantasizing for the moment what it could be like if things were different. If we weren't from such different social classes. If I weren't leaving the following day. If I didn't have my soul-mate waiting for me at home. 
 
- I rarely thought about Debbie, or Beth, when I was with another woman. I recognized my own fallibility when it came to being with other women, never thinking it more than an act I performed, in between being with the women I loved. It wasn't something intentional, but my mind usually just blocked them out. And I pursued my amorous perfidy without a thought for the consequences. Either at home, or with the object of my short term obsession. Report_Story #2 
+ I rarely thought about Debbie, or Beth, when I was with another woman. I recognized my own fallibility when it came to being with other women, never thinking it more than an act I performed, in between being with the women I loved. It wasn't something intentional, but my mind usually just blocked them out. And I pursued my amorous perfidy without a thought for the consequences. Either at home, or with the object of my short term obsession.  
 
  
 
@@ -12426,7 +12426,7 @@
 
  ============ 
 
- Thanks for reading my story. Another change up back at the house is coming. As always, votes and comments are greatly appreciated. Report_Story #1 
+ Thanks for reading my story. Another change up back at the house is coming. As always, votes and comments are greatly appreciated.  
 
  
 
@@ -12672,7 +12672,7 @@
 
  "Why would you even want me?" I asked plaintively. 
 
- "Because I love you. And I thought you loved me. I hoped you did." I could now see the moisture in her eyes, and I felt my heart shattering. Report_Story #2 
+ "Because I love you. And I thought you loved me. I hoped you did." I could now see the moisture in her eyes, and I felt my heart shattering.  
 
  
 
@@ -12960,7 +12960,7 @@
 
  I concentrated on the task ahead of me, pounding her the way she liked it, deep and fast. I turned her over and pulled her to the end of the bed, poising her sweet cheeks on the edge, and fucked her hard. I pushed her legs back, opening her up, and slammed into her, giving her the rough fucking she enjoyed. The position was working for her and I felt her first orgasm building. I lowered my hips, dragging my cock against the top of her pussy, using long even strokes. It did its magic, and she came for me, so sweetly. 
 
- After that I concentrated on my own release, finding just the right rhythm and pressure, building up to a good one. She was talking dirty to me, telling me what she liked, and how she liked it. "You like fucking my married pussy, you bastard, don't you? You love the fact that you were the first to take my ass too, I bet. Do you remember our first time, when you dragged me to your room and fucked the shit out of me, just for spite? God you were a monster. Forcing me to suck you and then fucking me senseless and dragging me back in front of all those people with your hot cum seeping out of me. I had those bruises for days." Report_Story #3 
+ After that I concentrated on my own release, finding just the right rhythm and pressure, building up to a good one. She was talking dirty to me, telling me what she liked, and how she liked it. "You like fucking my married pussy, you bastard, don't you? You love the fact that you were the first to take my ass too, I bet. Do you remember our first time, when you dragged me to your room and fucked the shit out of me, just for spite? God you were a monster. Forcing me to suck you and then fucking me senseless and dragging me back in front of all those people with your hot cum seeping out of me. I had those bruises for days."  
 
  
 
@@ -13112,7 +13112,7 @@
 
  ================= 
 
- Thanks for being patient. I know this installment was stalled for far too long. Times are changing for Jack and his girls. Stay tuned - and as always, thanks for votes, comments and emails. Report_Story #1 
+ Thanks for being patient. I know this installment was stalled for far too long. Times are changing for Jack and his girls. Stay tuned - and as always, thanks for votes, comments and emails.  
 
  
 
@@ -13360,7 +13360,7 @@
 
  It was one of the most exciting things I'd ever seen, and any chance of my hardness wilting was eradicated. 
 
- Amie moved down closer, her head sideway, her mouth open for me again. She was a little minx. I pulled out and gave her a taste, before returning to Debbie's warm nether embrace. Report_Story #2 
+ Amie moved down closer, her head sideway, her mouth open for me again. She was a little minx. I pulled out and gave her a taste, before returning to Debbie's warm nether embrace.  
 
  
 
@@ -13664,7 +13664,7 @@
 
  "No, as much as I'd like too." I stood and took her in my arms, kissing her. "You planning on doing it? Moving in with Ron?" 
 
- She gave me a hug, then beat me to the bathroom. I followed her, turning on the shower. "I think so. This Friday. I don't know if it will stick. I'm still going back to school in less than a month. At least we can give it a try." Report_Story #3 
+ She gave me a hug, then beat me to the bathroom. I followed her, turning on the shower. "I think so. This Friday. I don't know if it will stick. I'm still going back to school in less than a month. At least we can give it a try."  
 
  
 
@@ -13744,7 +13744,7 @@
 
  ========== 
 
- Thanks for taking the time to read this, the latest chapter of Convenience Vs. Need. Report_Story #1 
+ Thanks for taking the time to read this, the latest chapter of Convenience Vs. Need.  
 
  
 
@@ -13976,7 +13976,7 @@
 
  I sat up, running my hands over her body, soothing her, while her whole body orgasm continued unabated. "Shhh," I whispered, pulling her hips back in line when she moved too abruptly. She slowly calmed down, trembling every time I touched her, gasping and whimpering so beautifully. 
 
- I laid down next to her, holding her, kissing her pretty face. "That was beautiful," I told her, my hands gently caressing her side. Report_Story #2 
+ I laid down next to her, holding her, kissing her pretty face. "That was beautiful," I told her, my hands gently caressing her side.  
 
  
 
@@ -14282,7 +14282,7 @@
 
  "This is a big step," she said softly. 
 
- "You said you were mine totally. It was up to me. Let me get you pregnant. Carry my first-born." Report_Story #3 
+ "You said you were mine totally. It was up to me. Let me get you pregnant. Carry my first-born."  
 
  
 

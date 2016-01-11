@@ -136,7 +136,7 @@
 
  Susan couldn't remember being so out of control. She desperately wanted to prolong the wonderful sensations yet her body refused to listen. Her legs were pressed tightly together, but the crafty young woman still found enough space to royally molest the throbbing clitoris. Each time her clitty slipped between the skilled fingertips, Susan secreted more womanly juices until lewd slurping sounds filled the room. 
 
- Her head rolled backwards and rested on the shorter woman's shoulder. Susan couldn't imagine a more shameless scene, as she experienced the most explosive orgasm of her life. She didn't think it was possible to climax while in a standing position, but the assumption was swiftly dispelled, as severe convulsions roared through her stomach. Much to Sue's horror, the sly young woman rotated her body and pushed her head forward so that she stared straight into a large mirror, which displayed the wicked lust. Sue was powerless. She stared at the blatant fingertips, as they rolled the slippery clitty around, and noticed her feet were apart enough to expose her crotch to the world. Report_Story #2 
+ Her head rolled backwards and rested on the shorter woman's shoulder. Susan couldn't imagine a more shameless scene, as she experienced the most explosive orgasm of her life. She didn't think it was possible to climax while in a standing position, but the assumption was swiftly dispelled, as severe convulsions roared through her stomach. Much to Sue's horror, the sly young woman rotated her body and pushed her head forward so that she stared straight into a large mirror, which displayed the wicked lust. Sue was powerless. She stared at the blatant fingertips, as they rolled the slippery clitty around, and noticed her feet were apart enough to expose her crotch to the world.  
 
  
 
@@ -298,7 +298,7 @@
 
  Sue's body jerked wildly when the cunning young woman pinched the most sensitive clitoris between her fingers. "Please Nadine, please don't... don't do that." 
 
- Nadine nodded her head and gave the go ahead to her boyfriend. Susan's heart stopped when the young man brushed up against her backside and it was obvious he wasn't wearing clothes. Kenny's raging hardon pushed directly into the crack of her ass and he wiggled his hips until the entire shaft was inside the ass- crack. "Can you feel it... feel Kenny pushing his cock against your ass," Nadine asked? Report_Story #3 
+ Nadine nodded her head and gave the go ahead to her boyfriend. Susan's heart stopped when the young man brushed up against her backside and it was obvious he wasn't wearing clothes. Kenny's raging hardon pushed directly into the crack of her ass and he wiggled his hips until the entire shaft was inside the ass- crack. "Can you feel it... feel Kenny pushing his cock against your ass," Nadine asked?  
 
  
 
@@ -448,7 +448,7 @@
 
  Kenny tightened his fingers on each side of her slender waist and his firm grip caused Susan great despair, as she felt helpless. The young man poked her in the crotch. Kenny threatened to hit the target, as he stabbed her narrow crevice over and over until her heart beat out of control. When the flared head pierced her wet opening, Susan lifted her head and twisted her upper body so she could look back at Kenny. "No... no, I have to go. It's midnight... I'll be late," she pleaded. 
 
- A thousand things went through her mind, as she stared at the naked young man whose muscles were plainly visible on his arms and chest. Her mouth hung open and she was going to say more, but then Kenny rammed his hips at her. His cock sliced through her well-oiled opening and embedded inside her deepest reaches. Susan wondered if another orgasm was possible, as a few unsettling tremors erupted in her inner being. Report_Story #4 
+ A thousand things went through her mind, as she stared at the naked young man whose muscles were plainly visible on his arms and chest. Her mouth hung open and she was going to say more, but then Kenny rammed his hips at her. His cock sliced through her well-oiled opening and embedded inside her deepest reaches. Susan wondered if another orgasm was possible, as a few unsettling tremors erupted in her inner being.  
 
  
 
@@ -476,7 +476,7 @@
 
  THE END 
 
- I plan writing one more chapter about Susan's submissive adventure and hopefully readers are excited by her sexual journey. Report_Story #1 
+ I plan writing one more chapter about Susan's submissive adventure and hopefully readers are excited by her sexual journey.  
 
  
 
@@ -656,7 +656,7 @@
 
  Emma stared between the splayed legs and her heart almost pounded out of her chest. She noticed the pink slit and the puffy pussy-lips that were overly swollen because of the savage spanking. She already knew why the woman was shaven and that Mistress Nadine had been the one to do it. The very tip of Sue's precious clitoris poked through the labia and Sally knew exactly where to strike next. She spanked the bare crotch and made sure each slap hit directly on the exposed slit with one or two fingers striking the vulnerable clit. 
 
- The tears were enough indication that the woman had succumbed to the humiliation and that Susan's spirit was broken. Emma could have stopped the spanking, but she decided to administer the utmost punishment, as the loud sound of each slap echoed in the room. Ella was far too worked up to wait. When her sister's hand moved up to get ready for another slap, she slipped her hand into Sue's dripping crotch. There was no hesitation or delay when her fingers surrounded the swollen clitoris and squeezed. Report_Story #2 
+ The tears were enough indication that the woman had succumbed to the humiliation and that Susan's spirit was broken. Emma could have stopped the spanking, but she decided to administer the utmost punishment, as the loud sound of each slap echoed in the room. Ella was far too worked up to wait. When her sister's hand moved up to get ready for another slap, she slipped her hand into Sue's dripping crotch. There was no hesitation or delay when her fingers surrounded the swollen clitoris and squeezed.  
 
  
 
@@ -774,7 +774,7 @@
 
  "Oh baby, you have to... show me how you want to make Mistress Nadine happy." 
 
- "Please make her stop... no more." Report_Story #3 
+ "Please make her stop... no more."  
 
  
 
@@ -950,7 +950,7 @@
 
  Emma pinned Sue's legs spread and Ella performed a most admirable cunnilingus. There was an almost instant gratification and Sue climaxed sending a river of womanly cum into the hungry twin's mouth. Ella nibbled on the exposed clitty and finger-fucked Sue like a raving madwoman, as her finger pumped in and out at a furious tempo. Sue arched her back and tried to shift her hips away from Ella, but her struggle was futile. Severe tremors roared through her loins and the orgasm seemed to wash away any doubts or hesitations. 
 
- Sue was totally exhausted and didn't think another sexual encounter was possible. She sort of drifted off to sleep after the untimely orgasm, but the rest was very short-lived, as three overly determined women had one goal in mind. Nadine lay up against her slave and made sure Sue's right arm was securely pinned under her torso. She kissed the side of Sue's flushed face and relished how submissive the woman appeared. "Try and sleep... rest those tired muscles," she whispered. Report_Story #4 
+ Sue was totally exhausted and didn't think another sexual encounter was possible. She sort of drifted off to sleep after the untimely orgasm, but the rest was very short-lived, as three overly determined women had one goal in mind. Nadine lay up against her slave and made sure Sue's right arm was securely pinned under her torso. She kissed the side of Sue's flushed face and relished how submissive the woman appeared. "Try and sleep... rest those tired muscles," she whispered.  
 
  
 
@@ -1002,7 +1002,7 @@
 
  THE END 
 
- I am planning at least one more chapter and receiving comments and feedback from readers on the first two chapters can be very helpful in deciding the direction of the story. Report_Story #1 
+ I am planning at least one more chapter and receiving comments and feedback from readers on the first two chapters can be very helpful in deciding the direction of the story.  
 
  
 
@@ -1126,7 +1126,7 @@
 
  *** 
 
- Nadine didn't want to wait, but she wanted to ensure ultimate success in having Sue surrender to the most unfaithful temptation. She fully realized that all she had to do was give permission to her cousin for him to have intercourse with Susan. Instead, Nadine implemented a devious scheme to achieve another decisive goal. She had stressed to Darren before the session started that this part was crucial and that he must follow her directions to a 'T'. "Spread her out... do it. Eat her... do the cunnilingus just like we discussed," she whispered to her cousin. Report_Story #2 
+ Nadine didn't want to wait, but she wanted to ensure ultimate success in having Sue surrender to the most unfaithful temptation. She fully realized that all she had to do was give permission to her cousin for him to have intercourse with Susan. Instead, Nadine implemented a devious scheme to achieve another decisive goal. She had stressed to Darren before the session started that this part was crucial and that he must follow her directions to a 'T'. "Spread her out... do it. Eat her... do the cunnilingus just like we discussed," she whispered to her cousin.  
 
  
 
@@ -1288,7 +1288,7 @@
 
  What made matters worse for Sue was the way Nadine forced her to talk. As strange as it seemed at first, by the end of the evening Sue was blabbing all of her intimate emotions and feelings to the young woman. She would never forget the most dramatic and illustrious intercourse when she actually asked the teenager to ram his big cock into her. Sue knew it was wrong yet she virtually begged the teenager to fuck her. When Darren screwed her, she creamed just like the schoolgirl Nadine wanted her to be. 
 
- Her self-control was gone and so was her willpower to fight. After Darren's sexual encounter, Jeffery rode her hard and fast. Nadine remained close enough to her so that she whispered in her ear during the entire episode. The young woman demanded Sue fulfill another sexual fantasy by climaxing all over the teen's uncircumcised cock. Much to Sue's dismay, she cooperated and willingly experienced a dramatic orgasm right in front of Nadine and Darren. Report_Story #3 
+ Her self-control was gone and so was her willpower to fight. After Darren's sexual encounter, Jeffery rode her hard and fast. Nadine remained close enough to her so that she whispered in her ear during the entire episode. The young woman demanded Sue fulfill another sexual fantasy by climaxing all over the teen's uncircumcised cock. Much to Sue's dismay, she cooperated and willingly experienced a dramatic orgasm right in front of Nadine and Darren.  
 
  
 
@@ -1406,7 +1406,7 @@
 
  One last push and her face brushed across the upraised pelvis until the aroma was definitely strong enough to make her dizzy. Her mouth was over top of the leaking honey-hole and Sue formed her lips around the wet opening. Sue jabbed her tongue into the puffy labia and she heard the young woman cry. Without warning there was an abundance of juices and Sue sucked as hard as she could to make the young woman happy. 
 
- Nadine never intended on climaxing so swiftly. She wanted to prolong the fantastic cunnilingus, but as soon as Sue's hot mouth closed over her gushing opening, convulsions started erupting deep inside her belly. Having the wife clean her husband's cum out of another woman's cunt was something Nadine wanted Ben to know. "Yes... fuck yes, eat me. Eat your husband's cum," she moaned. "I'm cumming... so hard. Drink my cum and Ben's cum." Report_Story #4 
+ Nadine never intended on climaxing so swiftly. She wanted to prolong the fantastic cunnilingus, but as soon as Sue's hot mouth closed over her gushing opening, convulsions started erupting deep inside her belly. Having the wife clean her husband's cum out of another woman's cunt was something Nadine wanted Ben to know. "Yes... fuck yes, eat me. Eat your husband's cum," she moaned. "I'm cumming... so hard. Drink my cum and Ben's cum."  
 
  
 

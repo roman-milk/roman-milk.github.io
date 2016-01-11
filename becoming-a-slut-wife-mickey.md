@@ -198,7 +198,7 @@
 
  Bad move. 
 
- Everywhere I went I saw overtones of sex. Young girls flaunting their bodies, hunky studs checking out anything female to see if it had bed potential. I saw them looking at me and I saw, or thought I did, the desire in their eyes. Several I saw I wondered about; what would they be like. Report_Story #2 
+ Everywhere I went I saw overtones of sex. Young girls flaunting their bodies, hunky studs checking out anything female to see if it had bed potential. I saw them looking at me and I saw, or thought I did, the desire in their eyes. Several I saw I wondered about; what would they be like.  
 
  
 

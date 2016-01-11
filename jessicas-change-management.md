@@ -168,7 +168,7 @@
 
  I stopped in confusion. What the fuck was he talking about? My backyard was separated from my neighbors' property by a hedge that was head-high. It wasn't possible to peek into my backyard from their porch. And besides, they were away on vacation anyways. 
 
- Following his finger with my eyes, I saw him pointing at a window on the first floor. And my eyes grew wide in shock. There was a plumber leaning out of an open window watching us! Report_Story #2 
+ Following his finger with my eyes, I saw him pointing at a window on the first floor. And my eyes grew wide in shock. There was a plumber leaning out of an open window watching us!  
 
  
 
@@ -376,7 +376,7 @@
 
  "Yesss!" I purred without thinking. "Pleassse, fill your prick-tease's pussy!" 
 
- "I bet dat plumber can help cha wit it, Miss Tease!" D-Rod replied with a chuckle. "Ya want cha cunt filled? Ya get his cock or nufin'!" Report_Story #3 
+ "I bet dat plumber can help cha wit it, Miss Tease!" D-Rod replied with a chuckle. "Ya want cha cunt filled? Ya get his cock or nufin'!"  
 
  
 
@@ -504,7 +504,7 @@
 
  It was Danny Rodriguez! The Latin pool boy! And he greeted me with a wide smile. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -678,7 +678,7 @@
 
  Still, my decision was firm. As an exec I was used to making decisions and following them through. I had decided to do my share to save my career, and I was dead set on seeing it through to the finish. It would be like any other project. There were always bumps in the road, but I had successfully finished every project so far. I was planning to do the same in this particular case. 
 
- Fortunately, D-Rod wasn't in the interns' office. However, he wasn't in any other office either. Where the hell was he? He was waiting for my decision, right? He wouldn't leave me hanging out to dry, would he? Had I taken too long to approach him? Was he thinking I would tell him to fuck off? Was he already publishing the photos? Report_Story #2 
+ Fortunately, D-Rod wasn't in the interns' office. However, he wasn't in any other office either. Where the hell was he? He was waiting for my decision, right? He wouldn't leave me hanging out to dry, would he? Had I taken too long to approach him? Was he thinking I would tell him to fuck off? Was he already publishing the photos?  
 
  
 
@@ -872,7 +872,7 @@
 
  "Awww!" A loud round of sneers from his homies accompanied D-Rod deleting the photo. 
 
- By now, all the loud noise had attracted the neighbors' attention. Some of them had come out of their houses and were standing on their front porches watching us. The men were blatantly checking me out, ogling my bulging juggs that were barely getting contained by my black bra. I was beyond embarrassment by now. I simply wanted to go home. Report_Story #3 
+ By now, all the loud noise had attracted the neighbors' attention. Some of them had come out of their houses and were standing on their front porches watching us. The men were blatantly checking me out, ogling my bulging juggs that were barely getting contained by my black bra. I was beyond embarrassment by now. I simply wanted to go home.  
 
  
 
@@ -1038,7 +1038,7 @@
 
  I felt like a slutty top model doing a runway show in the shabby strip mall. Every look made my skin tingle. I felt so needy and desperate after coming within a whisker of a crashing orgasm during the car ride. All this attention was getting to my head -- or rather to my pussy. I was upset about it, yet completely powerless against it at the same time. 
 
- Half way down the food court, I suddenly stumbled! The vibrations had started once more! D-Rod had activated the vibrating egg! Report_Story #4 
+ Half way down the food court, I suddenly stumbled! The vibrations had started once more! D-Rod had activated the vibrating egg!  
 
  
 
@@ -1174,7 +1174,7 @@
 
  I was more than glad when I was finally allowed to scrape the dried spunk off my face and feed it to myself. It tasted dreadfully, and I was barely able to swallow the gooey, slimy mass. But that was nothing in comparison to the relief of finally having the demeaning face frosting gone and being allowed to head home. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -1316,7 +1316,7 @@
 
  "Good start, lil hussy!" D-Rod spoke up. "But it's not me to decide." 
 
- "Time for da votes, eses!" He addressed his three buddies. "Dis hot coug got what it takes to be our nu barrio hoodrat or not? Ya decide!" Report_Story #2 
+ "Time for da votes, eses!" He addressed his three buddies. "Dis hot coug got what it takes to be our nu barrio hoodrat or not? Ya decide!"  
 
  
 
@@ -1482,7 +1482,7 @@
 
  I didn't know if I should be proud or grossed out by his observation that I got good stripper skills. Anyways, I repeated the sexy striptease for Garza and Flaco. With each guy, my moves got smoother and my attitude sassier. Lucho had been right. I felt like a stripper teasing these guys like a pro. I felt so cheap and easy but also so naughty! The powerful business exec willingly reducing herself to a stripper for some rude, young gangbangers to get her hands on some career-threatening pics. I knew that it was a necessary evil, but it still left a bad taste in my mouth. 
 
- After fueling each Latino's lust to the peak, I was back in front of Lucho. I looked at his long, hard cock. His size was impressive. Shit! It made my mouth drool. My slutty display had reawaken my lust. It was embarrassing how much I wanted his hard shaft inside of me. It was embarrassing how desperately I wanted to cum again. Report_Story #3 
+ After fueling each Latino's lust to the peak, I was back in front of Lucho. I looked at his long, hard cock. His size was impressive. Shit! It made my mouth drool. My slutty display had reawaken my lust. It was embarrassing how much I wanted his hard shaft inside of me. It was embarrassing how desperately I wanted to cum again.  
 
  
 
@@ -1648,7 +1648,7 @@
 
  My plan had worked. All the pics were gone! I was free of D-Rod's blackmail. It had been a long way to get there, and the Latino gangbangers had truly put me through the wringer. Yet, I couldn't deny that it had made me cum several times. 
 
- *to be continued...* Report_Story #1 
+ *to be continued...*  
 
  
 
@@ -1824,7 +1824,7 @@
 
  "Why am I here?" He asked when I nervously faced him. 
 
- I flinched. The macho prick appeared absolutely calm and in control. Still, he wasn't making a move. It was obvious what was about to happen, wasn't it? There was no need to elaborate on it. Why didn't he just kick things off? Whatever he was about to do, I simply wanted to get it over with. I knew, however, that he was toying with me, letting me feel his dominance and power. Report_Story #2 
+ I flinched. The macho prick appeared absolutely calm and in control. Still, he wasn't making a move. It was obvious what was about to happen, wasn't it? There was no need to elaborate on it. Why didn't he just kick things off? Whatever he was about to do, I simply wanted to get it over with. I knew, however, that he was toying with me, letting me feel his dominance and power.  
 
  
 
@@ -1996,7 +1996,7 @@
 
  "Hehehe!" D-Rod chuckled in delight. "That's a good reaction there, Miss Ho- Worker. That ass is glowing bright enough, though. Time to get me off!" 
 
- He pushed the panties back into my mouth and stepped behind me. A few seconds later, I felt him slapping his hard cock against my burning ass cheeks. Each slap made me wince from the sting. Report_Story #3 
+ He pushed the panties back into my mouth and stepped behind me. A few seconds later, I felt him slapping his hard cock against my burning ass cheeks. Each slap made me wince from the sting.  
 
  
 
@@ -2024,7 +2024,7 @@
 
  It troubled me, however, how easily I had surrendered to D-Rod today. There was no denying it. In his dominating presence, I had slipped into a submissive demeanor by default, and once again, I had reveled in my sub nature. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -2216,7 +2216,7 @@
 
  He could see my agitation. He could see my arousal. Yet, he wanted me to say it loud. I tried to avoid eye contact, as I was too embarrassed to admit it. He didn't let me off the hook, though, waiting for me to reply. This was too much for me to bear. I could barely remain on my feet. I was so dizzy with lust. 
 
- "Sir, I need relief! Please sir, let your office pet cum!" I blurted out in spite of myself and felt an instant pinch of shame for this burst of vulgarity. Report_Story #2 
+ "Sir, I need relief! Please sir, let your office pet cum!" I blurted out in spite of myself and felt an instant pinch of shame for this burst of vulgarity.  
 
  
 
@@ -2396,7 +2396,7 @@
 
  In front of D-Rod, I came to a halt. Fortunately, the cube shielded me from the other interns' looks. Standing there, I flexed my back to push my tits out and let the young Latino give me a look-over from head to toe. Then I placed my left foot on his office chair, right between his legs, pushed my caramel pencil skirt up, and spread my legs apart. This way, he had a clear view of my pantyless, shaved pussy. 
 
- D-Rod ran his hand over my black, seamed, hold-up stockings. Any moment, he was about to reach my pussy. It was already throbbing with anticipation. And the day had just begun! I closed my eyes getting ready for the touch I was longing for. Report_Story #3 
+ D-Rod ran his hand over my black, seamed, hold-up stockings. Any moment, he was about to reach my pussy. It was already throbbing with anticipation. And the day had just begun! I closed my eyes getting ready for the touch I was longing for.  
 
  
 
@@ -2608,7 +2608,7 @@
 
  I could feel the dirt on my hands! I desperately wanted to shake the filth off my hands. Mustering all my will power, though, I remained in position. 
 
- Making matters worse, I felt my pinned-up, caramel skirt rise up over my bubble butt exposing my ass cheeks. Knowing what D-Rod expected of me, I didn't want him cooking up some more humiliating ideas. Resigned to my fate, I pulled my tits from my silky, black blouse letting them hang out. Report_Story #4 
+ Making matters worse, I felt my pinned-up, caramel skirt rise up over my bubble butt exposing my ass cheeks. Knowing what D-Rod expected of me, I didn't want him cooking up some more humiliating ideas. Resigned to my fate, I pulled my tits from my silky, black blouse letting them hang out.  
 
  
 
@@ -2776,7 +2776,7 @@
 
  When I had rearranged my face and returned to my office, D-Rod was gone. I packed my stuff as well. There was no way of getting any more work done anyways. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -2926,7 +2926,7 @@
 
  Just then, the alarm went off. The five minutes were over. I couldn't tell if I was happy or sad about it, though. It left me totally on the edge. The public humiliation and my slutty appearance were getting to my head. I wanted to cum so badly but knew that I wasn't allowed to. 
 
- After buying several outfits in the store, the two Latino gangbangers took me to a shoe store. It was even more degrading as we were getting attended upon by a young salesgirl. I can't even describe the condescending looks she shot at me when the two young thugs took over the sales talk while I remained silent. My face must have been crimson from shame! Report_Story #2 
+ After buying several outfits in the store, the two Latino gangbangers took me to a shoe store. It was even more degrading as we were getting attended upon by a young salesgirl. I can't even describe the condescending looks she shot at me when the two young thugs took over the sales talk while I remained silent. My face must have been crimson from shame!  
 
  
 
@@ -3108,7 +3108,7 @@
 
  I felt more than vulnerable when she finally took the spray gun and sprayed my body. She repeated the procedure three times, and each time, my skin took on a darker shade. Stepping out of the booth, I checked myself in the mirror. D-Rod had picked a color level that didn't look too orange or too fake. Instead, my skin gleamed in a nice bronze tan that looked really tasty. 
 
- Turning around, however, I gasped loudly. The moment, I saw the pale bow stamp on my lower back, I had to struggle to keep my composure. It was larger than expected and prominently visible. The knot was directly above the top of my ass crack almost reaching from hip to hip and the ribbon spread down to cover the upper half of my ass cheeks. As my white, halter top was really short, it got exposed with every move. Report_Story #3 
+ Turning around, however, I gasped loudly. The moment, I saw the pale bow stamp on my lower back, I had to struggle to keep my composure. It was larger than expected and prominently visible. The knot was directly above the top of my ass crack almost reaching from hip to hip and the ribbon spread down to cover the upper half of my ass cheeks. As my white, halter top was really short, it got exposed with every move.  
 
  
 
@@ -3338,7 +3338,7 @@
 
  Not just that! The longer I kept my tongue out the more my saliva production increased. Eventually, it seemed to have multiplied by five and drool was simply pouring out! So gross! 
 
- It was such a torrent that Checo began pushing my nipples to the left and right. This way, he was directing the streams of slobber all over my fat fleshcans until all my tit flesh was drenched in drool. It looked and felt so yucky! Report_Story #4 
+ It was such a torrent that Checo began pushing my nipples to the left and right. This way, he was directing the streams of slobber all over my fat fleshcans until all my tit flesh was drenched in drool. It looked and felt so yucky!  
 
  
 
@@ -3562,7 +3562,7 @@
 
  While I continued eating my cold, yucky meal, the Latin gangbanger pulled his cell phone from his pocket and called someone. 
 
- "D-Rod, my homie!" He talked into the phone letting me know that he had called my intern. "Dat was a helluva surprise, ese! Gotta say ya got cha hands on a real nasty ho there." Report_Story #5 
+ "D-Rod, my homie!" He talked into the phone letting me know that he had called my intern. "Dat was a helluva surprise, ese! Gotta say ya got cha hands on a real nasty ho there."  
 
  
 
@@ -3738,7 +3738,7 @@
 
  Trying hard to blank out the scene in my head, I kissed D-Rod's right ass cheek with a loud smacking sound. Moving to his left butt cheek, I gave it the same loud smooch. Then I started showering each of his buns with quick pecks, trying my best to stay as far away as possible from his ass crack. Nonetheless, the feeling of submission was overwhelming. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -3910,7 +3910,7 @@
 
  His sudden appearance startled me so much that I instantly straightened up and froze on the spot. Letting the skirt and banana go, my black leather skirt slid down and covered my bare pussy. Fortunately, my cunt enjoyed the hard fruit so much that it gripped it tightly, refusing to let it go. 
 
- Only seconds later, Stephen brushed past D-Rod and stepped inside the kitchen. He shortly greeted me before turning his attention to the coffee machine. Report_Story #2 
+ Only seconds later, Stephen brushed past D-Rod and stepped inside the kitchen. He shortly greeted me before turning his attention to the coffee machine.  
 
  
 
@@ -4134,7 +4134,7 @@
 
  "Yeah, everything's fine!" He told Justin instead. "Miss Addams just dropped the sharpie, you know." 
 
- For a moment, everything was silent. No one said a word. I almost heard my heart pounding in my chest. Obviously, the interns were thinking about D-Rod's reply. The slap had sounded like anything but a pen hitting the ground. I prayed for them to buy the lie. Report_Story #3 
+ For a moment, everything was silent. No one said a word. I almost heard my heart pounding in my chest. Obviously, the interns were thinking about D-Rod's reply. The slap had sounded like anything but a pen hitting the ground. I prayed for them to buy the lie.  
 
  
 
@@ -4370,7 +4370,7 @@
 
  "There's a catch, though." He continued explaining the dare. "You're not allowed to use your hands. You gotta jump on the spot 'n shake that ass. Geddit?" 
 
- No hands? Jump up and down? Shake and bounce? Fucking shit! That sounded as dirty as difficult. Report_Story #4 
+ No hands? Jump up and down? Shake and bounce? Fucking shit! That sounded as dirty as difficult.  
 
  
 
@@ -4596,7 +4596,7 @@
 
  He then grabbed my chestnut tresses and pulled me back onto my hands and knees. He wasn't done boasting with his office pet. 
 
- "So Miss Ho-Worker, glad you were allowed to cum?" D-Rod addressed me when he had led me back to the worn-out couch. Report_Story #5 
+ "So Miss Ho-Worker, glad you were allowed to cum?" D-Rod addressed me when he had led me back to the worn-out couch.  
 
  
 
@@ -4816,7 +4816,7 @@
 
  With the speed he was drilling my asshole, Justin didn't hold out very long. With a loud grunt, his balls erupted pumping load after load of spunk up my ass chute. I felt the hot cum coating my anal walls, filling my ass to the brim. 
 
- There wasn't much time to catch a breath for me after Justin was spent. Matt and Taylor had repositioned themselves in front of my face while D-Rod got to work on my pussy. With his cockhead, he scooped up some wetness from my crotch to coat his dick and easily slid up my pussy as he only met slight resistance. Getting my cunt filled balls deep. I was in heaven and started unabashedly moaning around Matt's cock filling my mouth. Report_Story #6 
+ There wasn't much time to catch a breath for me after Justin was spent. Matt and Taylor had repositioned themselves in front of my face while D-Rod got to work on my pussy. With his cockhead, he scooped up some wetness from my crotch to coat his dick and easily slid up my pussy as he only met slight resistance. Getting my cunt filled balls deep. I was in heaven and started unabashedly moaning around Matt's cock filling my mouth.  
 
  
 
@@ -4856,7 +4856,7 @@
 
  His orders should have made me panic but I was too exhausted to even reply. Everything that had happened today seemed like a haze. One thing was clear to me, though. I was the interns' luxury toy now. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -5034,7 +5034,7 @@
 
  Woah! He had just caught me off guard. I thought I had put him down a notch but the opposite was true. My revolt had only made him angry. 
 
- "That's the right word there!" Matt took over turning the dice. Report_Story #2 
+ "That's the right word there!" Matt took over turning the dice.  
 
  
 
@@ -5266,7 +5266,7 @@
 
  OMG! D-Rod had really corrupted me for me to have such thoughts. Even worse, these thoughts filled me with pride! 
 
- Nonetheless, I had stepped into Matt's trap and personally made me choke on the dildo. I had done it myself! A fact we were both fully aware of as the evil smile on his face told me. Report_Story #3 
+ Nonetheless, I had stepped into Matt's trap and personally made me choke on the dildo. I had done it myself! A fact we were both fully aware of as the evil smile on his face told me.  
 
  
 
@@ -5500,7 +5500,7 @@
 
  How was I supposed to react? How could I get out of this situation? How could I avoid getting detected by Blake? 
 
- All these thoughts bombarded and tormented me. The worst case scenario had happened. A co-worker had walked in on us. It was only a matter of time before he would find out about my relationship with the interns. At least, the table was so large that I remained hidden underneath. As long as Blake didn't sit down at the table, he couldn't see me. Report_Story #4 
+ All these thoughts bombarded and tormented me. The worst case scenario had happened. A co-worker had walked in on us. It was only a matter of time before he would find out about my relationship with the interns. At least, the table was so large that I remained hidden underneath. As long as Blake didn't sit down at the table, he couldn't see me.  
 
  
 
@@ -5714,7 +5714,7 @@
 
  "You know what's the best part of the dildo, lil hussy?" He asked with a smirk. "That stick really comes in handy as a handle." 
 
- With that, he walked over to my desk. I had a wooden business card holder standing next to my notebook. It looked very luxurious and better than those plastic holders. It was quite massive and comprised 10 thin compartments, each holding about 10 cards. The Latin macho, however, was about to turn this elegant office equipment into something entirely different. Report_Story #5 
+ With that, he walked over to my desk. I had a wooden business card holder standing next to my notebook. It looked very luxurious and better than those plastic holders. It was quite massive and comprised 10 thin compartments, each holding about 10 cards. The Latin macho, however, was about to turn this elegant office equipment into something entirely different.  
 
  
 
@@ -5932,7 +5932,7 @@
 
  Looking over my shoulder, I saw the guys staring at my gaping asshole. They were transfixed by the perverse show. 
 
- I was pressing so firmly that my ass was constricting heavily but barely any cum dribbled out. Fuck! Getting watched while taking a cum dump felt so lewd. Taking a deep breath, I pressed as hard as I could. Report_Story #6 
+ I was pressing so firmly that my ass was constricting heavily but barely any cum dribbled out. Fuck! Getting watched while taking a cum dump felt so lewd. Taking a deep breath, I pressed as hard as I could.  
 
  
 
@@ -6024,7 +6024,7 @@
 
  I didn't respond letting his praise wash over me while scraping the Latino's jizz off my face and feeding it to myself. I really started enjoying the taste of his cum. Just as much as the caring side he had shown lately. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -6204,7 +6204,7 @@
 
  "Here I thought you might have understood your role by now, petdoll." He continued mocking me. "Guess you're still just a wannabe bimbo." 
 
- Nervously, I looked over to D-Rod. He couldn't let that happen! He was my man after all. He was the one calling the shots! The young Latino, however, simply leaned back on his chair and enjoyed the sight of me struggling under the other intern's thumb. It seemed to entertain him. Report_Story #2 
+ Nervously, I looked over to D-Rod. He couldn't let that happen! He was my man after all. He was the one calling the shots! The young Latino, however, simply leaned back on his chair and enjoyed the sight of me struggling under the other intern's thumb. It seemed to entertain him.  
 
  
 
@@ -6404,7 +6404,7 @@
 
  The senior consultant must have been standing in the door! He had come back after getting a coffee! Panic seized me again and I quickly moved to crawl under Matt's desk. 
 
- Lambert hadn't seen me yet. Matt's cubicle was on the other side of the room so I was hidden by the cube wall. But what if the consultant came across the room to check on the presentation again? Report_Story #3 
+ Lambert hadn't seen me yet. Matt's cubicle was on the other side of the room so I was hidden by the cube wall. But what if the consultant came across the room to check on the presentation again?  
 
  
 
@@ -6610,7 +6610,7 @@
 
  "Clean that off, you stupid bitch! Can't have you soiling our moderation material!" The rude slimebag hissed while pulling his neck tie from my mouth. 
 
- Grabbing my chestnut hair, he pushed my face over the flip chart. Dutifully, I licked my sweet juices off the metal while struggling with the fact that Justin had easily made my juices flow while riding the infernal device. As if the ass kisser knew that my pussy was still throbbing, he pushed two fingers up my juicy cunt and started finger fucking me while I was bent over the flip chart. Report_Story #4 
+ Grabbing my chestnut hair, he pushed my face over the flip chart. Dutifully, I licked my sweet juices off the metal while struggling with the fact that Justin had easily made my juices flow while riding the infernal device. As if the ass kisser knew that my pussy was still throbbing, he pushed two fingers up my juicy cunt and started finger fucking me while I was bent over the flip chart.  
 
  
 
@@ -6810,7 +6810,7 @@
 
  In this position with my legs next to my head, my pussy was completely open and exposed. Whatever Matt wanted to do with me, I was at his mercy and he knew it. So he didn't do anything at first. Instead, he slumped back on the couch and started eating his sandwich. 
 
- The four guys were happily munching away on their lunch and chatting about the next big Football game while leaving me tied up on the coffee table. All my holes were easily accessible for all of them, and still they totally ignored me. Report_Story #5 
+ The four guys were happily munching away on their lunch and chatting about the next big Football game while leaving me tied up on the coffee table. All my holes were easily accessible for all of them, and still they totally ignored me.  
 
  
 
@@ -7016,7 +7016,7 @@
 
  Accepting this menial task without much objection pushed me even further into subspace and I spent most of the following hour in fantasy thoughts of me serving as the official office fucktoy for the consultants. 
 
- D-Rod left me alone for the next hour. During that time, my phone rang twice. I didn't recognize the number so it must have been a call for Ortega. As edged out as I was, there was still too much pride and defiance left in me. Maybe, he had caught me off guard with his presumptuous request. Still, I wouldn't bend that easily to his will. I wouldn't serve as his receptionist! So I didn't pick up the phone. It wasn't my fault if Ortega missed an important call. After all, I wasn't working for him! Report_Story #6 
+ D-Rod left me alone for the next hour. During that time, my phone rang twice. I didn't recognize the number so it must have been a call for Ortega. As edged out as I was, there was still too much pride and defiance left in me. Maybe, he had caught me off guard with his presumptuous request. Still, I wouldn't bend that easily to his will. I wouldn't serve as his receptionist! So I didn't pick up the phone. It wasn't my fault if Ortega missed an important call. After all, I wasn't working for him!  
 
  
 
@@ -7234,7 +7234,7 @@
 
  I grunted out loud. My moans, however, were instantly muffled by Taylor feeding his massive pole to my mouth. While his cockhead slid down my throat, I felt the thick veins of his massive shaft against my lips, tongue, and gullet. He placed his hands on my head to guide my movements although it wasn't necessary. I didn't relent anyways. The urge to please the boys was overwhelming. 
 
- D-Rod rutted me mercilessly from behind pistoning his tool in and out of my pussy. Tied to the chair, I got spit-roasted from both sides. His thrusts up my leaking slit were so forceful that the office chair got pushed back and forth impaling my mouth on Taylor's massive shaft with each stroke up my cunt. My tits felt like they were about to fly off my chest, obscenely rocking back and forth and slapping against the back of the chair. Report_Story #7 
+ D-Rod rutted me mercilessly from behind pistoning his tool in and out of my pussy. Tied to the chair, I got spit-roasted from both sides. His thrusts up my leaking slit were so forceful that the office chair got pushed back and forth impaling my mouth on Taylor's massive shaft with each stroke up my cunt. My tits felt like they were about to fly off my chest, obscenely rocking back and forth and slapping against the back of the chair.  
 
  
 
@@ -7376,7 +7376,7 @@
 
  The interruption also had the side benefit of calming Lambert down. After telling the interns that he would keep an eye on them the next days, he left the office. We had survived the day although I wasn't so sure how much longer we could continue like that. D-Rod's plan better had to be successful and it better had to happen soon. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -7544,7 +7544,7 @@
 
  RING 
 
- About 15 minutes later, I received a call on my smartphone. Report_Story #2 
+ About 15 minutes later, I received a call on my smartphone.  
 
  
 
@@ -7746,7 +7746,7 @@
 
  The round, hard ball really filled my cunt up. The Latinos, however, didn't give a fuck about me getting used to the big size. As soon as my pussy had engulfed the knob, they pulled my nipples up. 
 
- They kept dragging on my nips until I whimpered anew. Yet, they reached their goal as I followed their lead and pushed my body upwards until the 8-Ball almost slipped out of my pussy. Report_Story #3 
+ They kept dragging on my nips until I whimpered anew. Yet, they reached their goal as I followed their lead and pushed my body upwards until the 8-Ball almost slipped out of my pussy.  
 
  
 
@@ -7974,7 +7974,7 @@
 
  With my ass leaning against the car trunk, he pulled on my chestnut-golden tresses making me look up. Holding the beer bottle over my face, he made me open my mouth and stick out my tongue to welcome the sticky goo. Slowly, the stringy spunk dribbled out of the bottle. 
 
- The ex-con guided the bottle left and right, trying to catch me off-guard, but I quickly followed his movements with my tongue straining myself to catch every drop of cum. It was most important for me to prevent the spunk from dripping down and staining my gray skirt or black top that were bunched up around my waist. Fortunately, I managed to catch it all and kept my clothes clean. Report_Story #4 
+ The ex-con guided the bottle left and right, trying to catch me off-guard, but I quickly followed his movements with my tongue straining myself to catch every drop of cum. It was most important for me to prevent the spunk from dripping down and staining my gray skirt or black top that were bunched up around my waist. Fortunately, I managed to catch it all and kept my clothes clean.  
 
  
 
@@ -8170,7 +8170,7 @@
 
  When I had forgotten another of Ortega's questions, I leaned forward to hear his voice better. Remaining in this position, I suddenly saw one of the business man at the next table giving his colleague a slap to the shoulder. Seconds later, they were both eyeballing me. But why? 
 
- Following their looks, I noticed that my gray blazer had slipped back and the biggest cum stain had become visible. Shit, shit, shit! Hastily, I straightened back up and pushed the blazer back into place. Report_Story #5 
+ Following their looks, I noticed that my gray blazer had slipped back and the biggest cum stain had become visible. Shit, shit, shit! Hastily, I straightened back up and pushed the blazer back into place.  
 
  
 
@@ -8186,7 +8186,7 @@
 
  Walking out of the restaurant, I ran into a woman with a black updo. It was the woman from the back alley! After bumping together, she looked at me and furrowed her brows. Shirking from her look, I quickly hurried outside. I couldn't tell if she had recognized me or if she had looked down her nose at me and my ditzy behavior. Either way, her gaze instantly made my skin prickle anew despite my recent orgasm. 
 
- *to be continued* Report_Story #1 
+ *to be continued*  
 
  
 
@@ -8368,7 +8368,7 @@
 
  I didn't play along, though. The coeds' scorn had made me remember what I had pledged myself. I wouldn't cross the boundaries I had set. I was still highly insecure about attending the birthday bash without D-Rod's protection, so I wanted to inform Matt about my limits. 
 
- "I'm not some pass-around slut. I'm only here for you, Matt." I said right out. Report_Story #2 
+ "I'm not some pass-around slut. I'm only here for you, Matt." I said right out.  
 
  
 
@@ -8588,7 +8588,7 @@
 
  At least, all the running gave me time to check out the frat boys. Basically, they all acted like preppy, over-privileged brats. No doubt, they were popular by a certain kind of women. My impression, however, remained that they were mostly jocky douchebags. 
 
- With all the beer flowing freely, the mood was getting boozier. The fratsters were slowly losing any kinds of inhibitions. When I reached the large wooden table in the clubroom on my next beer round, Ben, one of Matt's top bros, had a new idea. Report_Story #3 
+ With all the beer flowing freely, the mood was getting boozier. The fratsters were slowly losing any kinds of inhibitions. When I reached the large wooden table in the clubroom on my next beer round, Ben, one of Matt's top bros, had a new idea.  
 
  
 
@@ -8830,7 +8830,7 @@
 
  "Wed-gie!" 
 
- I yelled so loud that I raised my arms to cover my mouth and didn't notice what was happening before it was too late. Lifting my arms, the chains pushed my white tank top so far up that both my titties slipped out. Report_Story #4 
+ I yelled so loud that I raised my arms to cover my mouth and didn't notice what was happening before it was too late. Lifting my arms, the chains pushed my white tank top so far up that both my titties slipped out.  
 
  
 
@@ -9094,7 +9094,7 @@
 
  "Hehehe! If camelhoe's too stupid for her service job, she gotta clean up her mess." Matt told Gel-Boy while continuing to ram me like a bull. 
 
- My body was shaking and trembling from the violent impacts of his thrusts but also from embarrassment and pleasure. Even though my pussy felt almost numb from the thick shaft filling it, my cunny throbbed uncontrollably. Report_Story #5 
+ My body was shaking and trembling from the violent impacts of his thrusts but also from embarrassment and pleasure. Even though my pussy felt almost numb from the thick shaft filling it, my cunny throbbed uncontrollably.  
 
  
 
@@ -9328,7 +9328,7 @@
 
  "Come here, Hooters." He stressed his request, pointing to the spot in between the two interns. 
 
- Dancing is dancing is dancing, right? Shrugging to myself, I sashayed over to the sofa. Rocking my hips, I started dancing on the spot for them. With arms akimbo, my motions got more frenzied while I bopped my head to the beat until my ponytail wagged wildly. Oh, and my boobies were jiggling just as much, which the boys clearly noticed. Tihi! Report_Story #6 
+ Dancing is dancing is dancing, right? Shrugging to myself, I sashayed over to the sofa. Rocking my hips, I started dancing on the spot for them. With arms akimbo, my motions got more frenzied while I bopped my head to the beat until my ponytail wagged wildly. Oh, and my boobies were jiggling just as much, which the boys clearly noticed. Tihi!  
 
  
 
@@ -9576,7 +9576,7 @@
 
  Come again? Ugh! What a prospect! I so didn't like it. I so didn't want to suck his cock, not after he had just finished peeing. In the presence of his overpowering dominance, however, I didn't think twice about it at all. 
 
- Really pliably, I stroked his dick a couple of times until it was becoming semi-hard and lifted it to my mouth. I could see a drop of piss dangling off the tip of his cockhead. Closing my eyes, I tried to blend it out. I was simply sucking a dick. I was simply sucking a dick. Nothing more. Reciting this mantra, like literally nonstop, I pushed my lips over his shaft. Report_Story #7 
+ Really pliably, I stroked his dick a couple of times until it was becoming semi-hard and lifted it to my mouth. I could see a drop of piss dangling off the tip of his cockhead. Closing my eyes, I tried to blend it out. I was simply sucking a dick. I was simply sucking a dick. Nothing more. Reciting this mantra, like literally nonstop, I pushed my lips over his shaft.  
 
  
 
@@ -9624,7 +9624,7 @@
 
  
 
- *to be continued Report_Story #1 
+ *to be continued  
 
  
 
@@ -9850,7 +9850,7 @@
 
  "Eeewww!" I whined anew when he hit the second toss. 
 
- Again, right into my face! This time, my left cheek had been his target. What an über-douche! I wanted to run around the table and slap that super nasty behavior right out of that dude. Instead, I was trapped in my position, condemned to wait for his next throw really helplessly. No way, he would do it a third time, right? Report_Story #2 
+ Again, right into my face! This time, my left cheek had been his target. What an über-douche! I wanted to run around the table and slap that super nasty behavior right out of that dude. Instead, I was trapped in my position, condemned to wait for his next throw really helplessly. No way, he would do it a third time, right?  
 
  
 
@@ -10088,7 +10088,7 @@
 
  With the pull on the chains, he pushed my squeezed titties up really painfully. More importantly, though, he pushed my mouth over his hard cock. He continued until his hard shaft slipped way past my uvula and was buried down my throat way deep. 
 
- His cock was way deep down my gullet so my throat muscles quickly began convulsing super heavily. My throat pipe really tightened and relaxed in turns, squeezing the slimeball's shaft and giving him a deluxe cock-massage. Report_Story #3 
+ His cock was way deep down my gullet so my throat muscles quickly began convulsing super heavily. My throat pipe really tightened and relaxed in turns, squeezing the slimeball's shaft and giving him a deluxe cock-massage.  
 
  
 
@@ -10308,7 +10308,7 @@
 
  "Ahahaha! How cool's that! Ahahaha! A gapefarting slut." The dudes laughed their asses off. 
 
- Their laughter so didn't reduce my embarrassment, like not at all. I felt so unladylike. I felt so nasty. I felt so humiliated. Totally not cool! No matter what, though, I had succeeded and blown bimbo bubbles. Report_Story #4 
+ Their laughter so didn't reduce my embarrassment, like not at all. I felt so unladylike. I felt so nasty. I felt so humiliated. Totally not cool! No matter what, though, I had succeeded and blown bimbo bubbles.  
 
  
 
@@ -10532,7 +10532,7 @@
 
  "Umph!" I grunted really deeply when I felt the pressure on my well-used sphincter. 
 
- As if my poor asshole hadn't seen enough action today, it still wasn't loose enough for the big, round ball. My ass muscle totally resisted getting further distended. Stretching my buns super wide, I tried to relax to the max. Report_Story #5 
+ As if my poor asshole hadn't seen enough action today, it still wasn't loose enough for the big, round ball. My ass muscle totally resisted getting further distended. Stretching my buns super wide, I tried to relax to the max.  
 
  
 
@@ -10728,7 +10728,7 @@
 
  "Whoa! You're blitzed for real. So much you're mind went blank, didn't it, Missy?" D-Rod shook his head. 
 
- "If we can't film them in the house, we gotta get them out of it." My man started making a new plan. "We got a surprise for Matt anyways. We need to use that to distract the guys." Report_Story #6 
+ "If we can't film them in the house, we gotta get them out of it." My man started making a new plan. "We got a surprise for Matt anyways. We need to use that to distract the guys."  
 
  
 
@@ -10886,7 +10886,7 @@
 
  Upending the jaegger bottle, I jammed it in between my juicy juggies. As a result, I had a beer bottle stuck in my hemline and an inverted jaegger bottle pinched into my cleavage for sure. Right away, the rest of the dark liqueur gushed out and ran down my tummy. Of course, the least of the fluid ended up in the beer bottle. But that didn't really matter. 
 
- Continuing my sexy dance, I strutted over to Spike-Boy, that freshman who had tried to expose my titties with the toasting-trick during the 'Bus Driver' game. Now, he was about to get the full tit service. Report_Story #7 
+ Continuing my sexy dance, I strutted over to Spike-Boy, that freshman who had tried to expose my titties with the toasting-trick during the 'Bus Driver' game. Now, he was about to get the full tit service.  
 
  
 
@@ -11098,7 +11098,7 @@
 
  I guess he couldn't leave that challenge unanswered. However, my man wasn't about to relent 'cause the plan totally depended on him riling the birthday boy up to the max. 
 
- "Maybe, we should take a bitch with us." D-Rod continued. "That might encourage your bros, don't you agree Matt? A bro 'n a hoe. Hehehe! That still leaves a hoe to entertain the rest of the band." Report_Story #8 
+ "Maybe, we should take a bitch with us." D-Rod continued. "That might encourage your bros, don't you agree Matt? A bro 'n a hoe. Hehehe! That still leaves a hoe to entertain the rest of the band."  
 
  
 

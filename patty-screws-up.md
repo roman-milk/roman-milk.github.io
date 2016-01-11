@@ -294,7 +294,7 @@
 
  "Why didn't you say something? I'm only doing what you seemed to want to do. All you had to do was say, "Whoa up girl" and I would have stopped. You sow your wild oats when you are young honey, but I know there comes a time when you have to stop and grow up." 
 
- Just that quick the wildness was gone, but deep down in my heart I knew it was still there. It was suppressed, but it was still there, but I loved Patty and I pushed the worry aside and we got married. Report_Story #2 
+ Just that quick the wildness was gone, but deep down in my heart I knew it was still there. It was suppressed, but it was still there, but I loved Patty and I pushed the worry aside and we got married.  
 
  
 

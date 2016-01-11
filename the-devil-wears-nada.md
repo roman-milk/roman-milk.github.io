@@ -166,7 +166,7 @@
 
  The worst, by far, was Nina. She was even worse than advertised. It wasn't that she was outwardly mean. She was extremely well spoken and rarely raised her voice. But the way she dealt with Abby seemed evil. Her style of humiliating Abby was more psychological. She gave Abby tasks that she had no idea how to do. She would make snide comments about Abby's failures. Abby got the impression that Nina enjoyed the humiliation. 
 
- Abby would go retrieve a steak for Nina for lunch from her favorite restaurant, only for Nina to disapprove, it not being cooked to her liking. She would send Abby to various designers to retrieve items of clothing, but Nina would tell her she retrieved the wrong items. She tried to have Abby arrange a private flight from Miami when she was stuck down there during a hurricane, even when the airport was closed. It was an impossible job! The worst was the fact that Nina refused to learn her name. She repeatedly called her Pamela. That really pissed Abby off, but there was nothing she could do about it. Nina was the boss. Also, Nina throwing her coat and bag into her face everyday didn't help matters. Report_Story #2 
+ Abby would go retrieve a steak for Nina for lunch from her favorite restaurant, only for Nina to disapprove, it not being cooked to her liking. She would send Abby to various designers to retrieve items of clothing, but Nina would tell her she retrieved the wrong items. She tried to have Abby arrange a private flight from Miami when she was stuck down there during a hurricane, even when the airport was closed. It was an impossible job! The worst was the fact that Nina refused to learn her name. She repeatedly called her Pamela. That really pissed Abby off, but there was nothing she could do about it. Nina was the boss. Also, Nina throwing her coat and bag into her face everyday didn't help matters.  
 
  
 
@@ -410,7 +410,7 @@
 
  "Well, what good is it to me here?" Nina said. 
 
- "Don't worry. I made two copies and took them to your home. The manuscripts are in your daughters' hands as we speak." Abby said, knowing she was a step ahead of Nina for once. Nina looked at her. Abby saw a flash of emotion on her face, a look that showed she was impressed. Report_Story #3 
+ "Don't worry. I made two copies and took them to your home. The manuscripts are in your daughters' hands as we speak." Abby said, knowing she was a step ahead of Nina for once. Nina looked at her. Abby saw a flash of emotion on her face, a look that showed she was impressed.  
 
  
 
@@ -572,7 +572,7 @@
 
  Abby thought that her relationship had evolved after the previous night, but if it did, Nina showed no sign of it. She was as businesslike as ever. Abby was happy to notice that Nina was not outwardly mean to her. Small steps, Abby thought. 
 
- Nina was disappointed in herself for the previous night. She had had a moment of weakness, and Abby had been there to see the whole thing. Nina was disappointed that the mystique was now gone to Abby. Abby had evidence that Nina was a real human being. Abby had power over her, even if she didn't realize it. This was not satisfactory to her. Nina's instinct was to push her away, to treat her worse, but part of her felt affection for Abby. Abby had shown herself to be a quick learner and a hell of a worker. She had shown herself to be trustworthy, so Nina knew Abby wouldn't go blabbing to everyone that she had seen Nina cry. For now, Nina was safe. Report_Story #4 
+ Nina was disappointed in herself for the previous night. She had had a moment of weakness, and Abby had been there to see the whole thing. Nina was disappointed that the mystique was now gone to Abby. Abby had evidence that Nina was a real human being. Abby had power over her, even if she didn't realize it. This was not satisfactory to her. Nina's instinct was to push her away, to treat her worse, but part of her felt affection for Abby. Abby had shown herself to be a quick learner and a hell of a worker. She had shown herself to be trustworthy, so Nina knew Abby wouldn't go blabbing to everyone that she had seen Nina cry. For now, Nina was safe.  
 
  
 
@@ -734,7 +734,7 @@
 
  "I, um... I wanted to meet you. Abby has said so much about you. I wanted to meet you myself." Nathan said, nervously. He couldn't understand why he was so nervous around this woman. Nina looked at him and her lips curled up into a look of almost disgust. 
 
- "Nathan, I demand one thing of all the people around me, and that is complete honesty. I know why you are here. If you are not completely honest with me and you do not get to the real reason you are here, I will have you removed from the building... and I will fire your wife. Now tell me, why are you here?" Nina demanded. Report_Story #5 
+ "Nathan, I demand one thing of all the people around me, and that is complete honesty. I know why you are here. If you are not completely honest with me and you do not get to the real reason you are here, I will have you removed from the building... and I will fire your wife. Now tell me, why are you here?" Nina demanded.  
 
  
 
@@ -854,7 +854,7 @@
 
  He gathered oil from her back and spread to her ass, painting her ass cheeks with the smooth substance. He lightly spread the oil until he had no choice to give her ass-cheeks a healthy squeeze. He couldn't contain the groan that escaped his mouth. Her ass felt so good. It was perfectly round and firm in just the right way. The flesh poured through his fingers, rebounding against his touch. He looked up at Nina, and he saw her bite her lip. 
 
- Nathan worked her ass over, starting at the top and working his way down. He knew she liked hard massages, so he rubbed and squeezed her ass hard. Report_Story #6 
+ Nathan worked her ass over, starting at the top and working his way down. He knew she liked hard massages, so he rubbed and squeezed her ass hard.  
 
  
 
@@ -970,7 +970,7 @@
 
  Nathan attacked her breasts with his mouth and hands, now in a big-breast induced frenzy. He reached over, grabbed the bottle of oil, and emptied it all over her breasts. Her tits were now absolutely covered with the smooth oil. The oil only made her tits feel better. He couldn't stop squeezing. He couldn't stop sucking. He couldn't resist the urge to stick his face between her breasts and smother himself in their softness. If Nina didn't start pushing on his head with her hands, he could have gotten lost in her tits forever. 
 
- Report_Story #7 
+  
 
  
 
@@ -1154,7 +1154,7 @@
 
  Abby had dwelled on Nathan and Nina after that incident. She wondered how it had happened. Abby realized that she was easily used. She was an easy mark. Simon had used her to make a play for the magazine. Nina had used her to steal her man. Abby vowed never to be used again. 
 
- As she looked up facts about spark plugs, she thought about how much she hated this job. After awhile she started to consider going to Nina and doing what she said, simply to get better work. But to do so, to thank her for stealing her man, would require her to swallow her pride in a big way. Report_Story #8 
+ As she looked up facts about spark plugs, she thought about how much she hated this job. After awhile she started to consider going to Nina and doing what she said, simply to get better work. But to do so, to thank her for stealing her man, would require her to swallow her pride in a big way.  
 
  
 

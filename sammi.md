@@ -276,7 +276,7 @@
 
  "You pull that shit on me and I'll just get up and walk away from you, go home and throw all your shit out on the front lawn." 
 
- Sammi hasn't seen a lawyer yet and as far as I know neither has Fred so even though she is living with me she is still married to him. Report_Story #2 
+ Sammi hasn't seen a lawyer yet and as far as I know neither has Fred so even though she is living with me she is still married to him.  
 
  
 

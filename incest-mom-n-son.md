@@ -362,7 +362,7 @@
 
  Simon was pumping away too. The long held fantasy of fucking his mother was no longer a silly boy fantasy, but a real possibility. 
 
- Makingmommymine: Mommy-pet. Report_Story #2 
+ Makingmommymine: Mommy-pet.  
 
  
 
@@ -802,7 +802,7 @@
 
  "You dooooooo?" Simon asked, surprised. 
 
- "It's natural," Sara shrugged, before adding, "at least according to that theory you were telling me about yesterday." Report_Story #3 
+ "It's natural," Sara shrugged, before adding, "at least according to that theory you were telling me about yesterday."  
 
  
 
@@ -1162,7 +1162,7 @@
 
  Glenda, Sara's mother, responded, "Hi, honey. What's new?" 
 
- She wanted to answer, 'I just became a Mommy-slut for your grandson', but instead replied, "Not much, just spending a pleasant evening home alone with Simon." Report_Story #4 
+ She wanted to answer, 'I just became a Mommy-slut for your grandson', but instead replied, "Not much, just spending a pleasant evening home alone with Simon."  
 
  
 
@@ -1352,7 +1352,7 @@
 
  Sara added, before taking her son's cock back in her mouth, not remotely phased that it had last been in her ass, "Plus, you still have one more fuck hole to cum in." 
 
- The end Report_Story #1 
+ The end  
 
  
 
@@ -1658,7 +1658,7 @@
 
  Simon, realizing he may have gone too far, apologized, "I'm so sorry, Nana." 
 
- Glenda burst out laughing, "I'm just kidding. I'd eat cunt in a heartbeat if given the opportunity." Report_Story #2 
+ Glenda burst out laughing, "I'm just kidding. I'd eat cunt in a heartbeat if given the opportunity."  
 
  
 

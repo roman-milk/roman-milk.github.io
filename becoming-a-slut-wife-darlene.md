@@ -148,7 +148,7 @@
 
  Tina was there and she said, "Pull your knees back as far as you can baby, it will make it go easier. He will go slow baby, he knows you need time to adjust." 
 
- Mark put the head of his monster tool against the lips of Darlene's pussy and gave a little push and Darlene's entire body shook as the glans suddenly popped inside. Inch by inch Mark pushed into her and when he was almost two thirds in he started a gentle fucking motion and bit by bit the rest of him disappeared. Darlene's eyes were glazed and her legs came up and locked behind Mark's and she began to moan. Report_Story #2 
+ Mark put the head of his monster tool against the lips of Darlene's pussy and gave a little push and Darlene's entire body shook as the glans suddenly popped inside. Inch by inch Mark pushed into her and when he was almost two thirds in he started a gentle fucking motion and bit by bit the rest of him disappeared. Darlene's eyes were glazed and her legs came up and locked behind Mark's and she began to moan.  
 
  
 

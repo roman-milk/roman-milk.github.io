@@ -192,7 +192,7 @@
 
  "Take a look. She's in their cabin. Look behind her. You can see that book guy, the one who's always reading in the canteen. The bunk she's standing by. It's the same as ours." 
 
- "Yea, your right. I recognise her face too. She's a teacher. Why is she just standing there, naked, letting them see her like that, she must be a slut?" Report_Story #2 
+ "Yea, your right. I recognise her face too. She's a teacher. Why is she just standing there, naked, letting them see her like that, she must be a slut?"  
 
  
 
@@ -222,7 +222,7 @@
 
  She came to twisting her head from side to side. Where was she? What was happening? She looked up and in the firelight saw her hands were tied to a post. Lara became aware of figures silhouetted in the darkness. The brats had taken her to their fort. Where was Brian? Why hadn't he stopped them or at least warned her? 
 
- She knew each of the groups had a fort in the woods but had never seen them. She had kept away from the other teachers preferring to sunbath at their own cabin. This was going to be another threat as their way of telling her to join in the group activities. Well this time she would give in and tell them tomorrow it would all be different. 'This is obviously my group's fort.' She thought wrongly. Report_Story #1 
+ She knew each of the groups had a fort in the woods but had never seen them. She had kept away from the other teachers preferring to sunbath at their own cabin. This was going to be another threat as their way of telling her to join in the group activities. Well this time she would give in and tell them tomorrow it would all be different. 'This is obviously my group's fort.' She thought wrongly.  
 
  
 
@@ -428,7 +428,7 @@
 
  Her mind tumbled around in circles madly trying to find a way out. Could she ever be his wonderful teacher again? She felt his weight on her and tensed. 
 
- He fumbled around unsure of what to do. She grabbed his penis and gently guided it between her wet lips. She needed to be made love to. She needed a gentle loving kindness that was a comfort shared between them both. She knew she wouldn't orgasm but this was his reward not hers. For her it was a test. Could she bear it? Report_Story #2 
+ He fumbled around unsure of what to do. She grabbed his penis and gently guided it between her wet lips. She needed to be made love to. She needed a gentle loving kindness that was a comfort shared between them both. She knew she wouldn't orgasm but this was his reward not hers. For her it was a test. Could she bear it?  
 
  
 
@@ -454,7 +454,7 @@
 
  On and on she felt his cock nearly choke her then recede from her throat then back again. Between each thrust she breathed desperately. This was a punishment, a penance and a cleansing of her body. 
 
- "You have fucked me Brian. Not just made love you have fucked me insensible. You have fucked your teacher you wonderful hero." She breathed out every word in a terrible desperate sound. He had cleansed her body but above all else she hoped he had cleansed her mind of those dreadful images. Only time would tell. Report_Story #1 
+ "You have fucked me Brian. Not just made love you have fucked me insensible. You have fucked your teacher you wonderful hero." She breathed out every word in a terrible desperate sound. He had cleansed her body but above all else she hoped he had cleansed her mind of those dreadful images. Only time would tell.  
 
  
 
@@ -648,7 +648,7 @@
 
  Someone behind lifted her by the breasts to lower her onto Rodriguez. The weight of her body pressed her belly against his hard cock and she shivered in fear. 
 
- There was no way she would ride him it was too terrible to contemplate yet he laid there motionless. From over his shoulder one of the others took hold of her head and opened her mouth with his dirty fingernails and she moaned in trepidation at the sight of his penis. He was holding her mouth ready and she contemplated biting it but couldn't find the courage. Report_Story #2 
+ There was no way she would ride him it was too terrible to contemplate yet he laid there motionless. From over his shoulder one of the others took hold of her head and opened her mouth with his dirty fingernails and she moaned in trepidation at the sight of his penis. He was holding her mouth ready and she contemplated biting it but couldn't find the courage.  
 
  
 
@@ -838,7 +838,7 @@
 
  Again the words she had cried out reverberated through her mind. 'I deserve to be punished.' Those callous youths had done this to her. The experiences at camp had changed her so now she seemed addicted to being abused. Brian had sensed this and was fulfilling that sordid dirty need she had developed perhaps even furthering it. 
 
- Everyone had their heads down quietly studying. Brian beckoned her over and like a devoted maid she hurried over to him. At least he was at the back of the class now so no one would see her bare ass if she bent over. Report_Story #3 
+ Everyone had their heads down quietly studying. Brian beckoned her over and like a devoted maid she hurried over to him. At least he was at the back of the class now so no one would see her bare ass if she bent over.  
 
  
 
@@ -1032,7 +1032,7 @@
 
  "No idea. We could try going round the front and joining the queue. At least you can, I'd be recognized. If you can get in I'll wait here for you. Let's get back round there and see what's going down." *** 
 
- Lara had been pushed and shoved from the car into an old abandoned warehouse. There was no one on the street to see her naked body but that wasn't something she was considering at the moment. Report_Story #4 
+ Lara had been pushed and shoved from the car into an old abandoned warehouse. There was no one on the street to see her naked body but that wasn't something she was considering at the moment.  
 
  
 

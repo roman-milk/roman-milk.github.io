@@ -212,7 +212,7 @@
 
  'That if you ever do go for it, call me; I'd love to be part of it. I'd love to be one of the cocks that you take.' 
 
- Abigail felt her insides clench and her pussy begin to oil. The combination of wine, Mick's handling of her sensitive skin and his borderline lewdness was turning her on. Report_Story #2 
+ Abigail felt her insides clench and her pussy begin to oil. The combination of wine, Mick's handling of her sensitive skin and his borderline lewdness was turning her on.  
 
  
 
@@ -438,7 +438,7 @@
 
  With tears rolling down her cheeks she confessed. 
 
- 'You stupid, stupid bastard,' she sobbed. 'If you hadn't... If you hadn't played such an insanely idiotic trick...' Abigail broke into a real fit of sobbing now. Her shoulders heaved and her head fell forward while the big, fat tears plopped wetly onto the kitchen floor. 'I never would have met him... Never would have slept with him...' Report_Story #3 
+ 'You stupid, stupid bastard,' she sobbed. 'If you hadn't... If you hadn't played such an insanely idiotic trick...' Abigail broke into a real fit of sobbing now. Her shoulders heaved and her head fell forward while the big, fat tears plopped wetly onto the kitchen floor. 'I never would have met him... Never would have slept with him...'  
 
  
 

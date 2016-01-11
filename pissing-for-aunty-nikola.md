@@ -234,7 +234,7 @@
 
  After clambering onto the bed I settled myself over Nikola's body and gazed at the crinkled folds of her depilated vulva. The woman opened herself to me again, peeling back the prepuce to reveal the nub of her clit, all taut and pink. 
 
- It was as I pushed Nikola's thighs apart and began to suck her clitoris that I felt the swelling in my bladder. I shifted position to ease the pressure, which only worked for a little while. I tried to ignore the sensation as I worked my tongue into Nikola's opening, drawing gasps and sighs from the woman's throat as she squirmed her backside around on the bed. Report_Story #2 
+ It was as I pushed Nikola's thighs apart and began to suck her clitoris that I felt the swelling in my bladder. I shifted position to ease the pressure, which only worked for a little while. I tried to ignore the sensation as I worked my tongue into Nikola's opening, drawing gasps and sighs from the woman's throat as she squirmed her backside around on the bed.  
 
  
 

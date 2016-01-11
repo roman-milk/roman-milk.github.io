@@ -170,7 +170,7 @@
 
  Chris looked up at me and I saw the lust in her eyes and I took her head in my hands and pulled her mouth onto my cock. I felt her tongue swirl around my shaft and I let go of her head and stood there while she rode Monte's cock and sucked mine. I came first and moved out of the way and Harry took my place. Then Monte came and when Chris got up from his limp cock Carl quickly slid onto the chair and pulled Chris down onto his hard on. 
 
- While Carl was fucking her and Harry was face fucking her Dave was blowing up an air mattress. By the time Carl came Dave was lying on his back and Chris was pulled over to the mattress and placed on her knees with her head over Dave's erect pole. As she lowered her head to take it in her mouth Harv moved in behind her and slid his cock into her cum filled pussy. After that Chris was one very busy bus driver as all fourteen guys paid homage at her shrines. Report_Story #2 
+ While Carl was fucking her and Harry was face fucking her Dave was blowing up an air mattress. By the time Carl came Dave was lying on his back and Chris was pulled over to the mattress and placed on her knees with her head over Dave's erect pole. As she lowered her head to take it in her mouth Harv moved in behind her and slid his cock into her cum filled pussy. After that Chris was one very busy bus driver as all fourteen guys paid homage at her shrines.  
 
  
 

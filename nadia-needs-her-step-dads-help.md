@@ -94,7 +94,7 @@
 
  The brunette tossed her slender head back, her long sweaty hair falling between herself and Paul lying behind her. Her answer was delicious. "Oh I hope they do Daddy!" she roared, turning her face to look back at Paul behind herself, as she felt his fat erection pushing into her cunt, with her daddy watching the bedsheet covering the sex. "Daddy -- you have no idea, I fucking love cum shooting in me, and covering me all over too!" 
 
- She was so like her mother, I gasped. Her mom might have even said those very fucking words, any number of times. I was shaking my head in amazed disbelief, watching and smelling her and Paul fucking under the bedsheet in front of me, and barely beginning to think of what that beach house will look like with my nude daughter and FOUR naked adult men -- and their huge throbbing cocks. "Frak it, Nadia, you're going to have SO much fun. You'll probably end up getting fucked on the car ride to the beach!" Report_Story #2 
+ She was so like her mother, I gasped. Her mom might have even said those very fucking words, any number of times. I was shaking my head in amazed disbelief, watching and smelling her and Paul fucking under the bedsheet in front of me, and barely beginning to think of what that beach house will look like with my nude daughter and FOUR naked adult men -- and their huge throbbing cocks. "Frak it, Nadia, you're going to have SO much fun. You'll probably end up getting fucked on the car ride to the beach!"  
 
  
 
@@ -240,7 +240,7 @@
 
  With her step-daddy watching in amazement, I saw Nadia seize and spasm with a hard orgasm, her slender messy body shaking and vibrating while she groaned and squealed. Paul kept fucking herhard through the orgasm, as she screamed into the phone for her friend to hear it. 
 
- As her cum subsided, Nadia look over at me, flustered, and she giggle into the phone. "Oh fuck yeah, he's watching it all," she answered to something Marissa asked, "he's right here." Then she paused to listen to Marissa again, and whatever was said made her smile. She blew some sweaty long dark hair that had creeped into her mouth for a moment, and she said to Marissa, "Okay, sure." Then she handed the phone back to me. Report_Story #3 
+ As her cum subsided, Nadia look over at me, flustered, and she giggle into the phone. "Oh fuck yeah, he's watching it all," she answered to something Marissa asked, "he's right here." Then she paused to listen to Marissa again, and whatever was said made her smile. She blew some sweaty long dark hair that had creeped into her mouth for a moment, and she said to Marissa, "Okay, sure." Then she handed the phone back to me.  
 
  
 
@@ -400,7 +400,7 @@
 
  * * * * 
 
- There wasn't much else to tell about that evening. I was passed out asleep in front of the TV by about midnight, not having seen Nadia or her male fuckbuddy for the rest of the evening. I heard plenty of thumping and moaning noises, however, time to time, and even the shower I think. I guess he slipped out to go home to his wifey after I dozed off. Report_Story #4 
+ There wasn't much else to tell about that evening. I was passed out asleep in front of the TV by about midnight, not having seen Nadia or her male fuckbuddy for the rest of the evening. I heard plenty of thumping and moaning noises, however, time to time, and even the shower I think. I guess he slipped out to go home to his wifey after I dozed off.  
 
  
 
@@ -544,7 +544,7 @@
 
  So, I went for it! 
 
- "Sure is hot," I agreed needlessly, standing up and stepping towards her. "And, see, it's perfect for the car ride." I sat on the bed and then pulled her hand until she was sitting next to me, and she didn't fight me. "See, when you're next to the men in the car, you only have to do this to show off these hot tits." I reached my hand over to her tummy, and with fingers pinching the knot she only just now tied, I pulled it loose, unfastening it. And I pushed her blouse open, showing off her tits again. Report_Story #5 
+ "Sure is hot," I agreed needlessly, standing up and stepping towards her. "And, see, it's perfect for the car ride." I sat on the bed and then pulled her hand until she was sitting next to me, and she didn't fight me. "See, when you're next to the men in the car, you only have to do this to show off these hot tits." I reached my hand over to her tummy, and with fingers pinching the knot she only just now tied, I pulled it loose, unfastening it. And I pushed her blouse open, showing off her tits again.  
 
  
 

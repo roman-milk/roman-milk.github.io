@@ -374,7 +374,7 @@
 
  She didn't get her degree until she was twenty-nine and although she was furious about being cheated on, she considered it a blessing in disguise. 
 
- Both her children were in college. Her daughter Suzanne going into her third year at Oxford in the fall and her son, who I vaguely knew because he was in my graduating class but we didn't hang in the same circles, was going to MIT for computer programming. Report_Story #2 
+ Both her children were in college. Her daughter Suzanne going into her third year at Oxford in the fall and her son, who I vaguely knew because he was in my graduating class but we didn't hang in the same circles, was going to MIT for computer programming.  
 
  
 
@@ -874,7 +874,7 @@
 
  "No better place than the present," she shrugged, as she lowered herself on my already stiff cock impressively smoothly considering her intoxicated state. 
 
- "Fuck, I love how quickly you recover. My ex was one and done." Report_Story #3 
+ "Fuck, I love how quickly you recover. My ex was one and done."  
 
  
 

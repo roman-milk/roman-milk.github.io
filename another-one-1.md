@@ -276,7 +276,7 @@
 
  "Are you ever going to ask me out again?" 
 
- "I don't know Audrey. To be honest about it I was pretty much stuck on you, but twice you burned me because of Monica and you still run with her. I don't feel much like setting myself up to get dumped on again." Report_Story #2 
+ "I don't know Audrey. To be honest about it I was pretty much stuck on you, but twice you burned me because of Monica and you still run with her. I don't feel much like setting myself up to get dumped on again."  
 
  
 
@@ -514,7 +514,7 @@
 
  I was going to say no? Best friends for two-thirds of her life and I was going to say "I'd much rather you didn't" to her? I could just imagine what things would be like around the house if I did that. I didn't say a word, but I did give her a long look that told her that I had reservations based on previous experience and I hoped she would take those reservations to heart. Silly me. I should have told her exactly what I was thinking and taken the heat. 
 
- She was home by eight-thirty and told me she'd had a good time talking with her girlfriends and being brought up to date on the happenings in their lives. Then she took me to bed and did her level best to turn me into a total wreck. It was not our normal way. We usually made love three or four times a week, but normally it was some foreplay, some mutual oral, do it one time and then cuddle up and go to sleep. That night we went three times and Aud was doing her best to try and get me up for a fourth, but I just could not answer the call. As we lay there cuddling I asked her what had gotten in to her. Report_Story #3 
+ She was home by eight-thirty and told me she'd had a good time talking with her girlfriends and being brought up to date on the happenings in their lives. Then she took me to bed and did her level best to turn me into a total wreck. It was not our normal way. We usually made love three or four times a week, but normally it was some foreplay, some mutual oral, do it one time and then cuddle up and go to sleep. That night we went three times and Aud was doing her best to try and get me up for a fourth, but I just could not answer the call. As we lay there cuddling I asked her what had gotten in to her.  
 
  
 

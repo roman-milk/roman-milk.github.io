@@ -270,7 +270,7 @@
 
  She laughed and moved in closer. "Ooooooooh, bad Bradley" she said when her leg felt my hard on. 
 
- I danced most of the other dances with Joleen and it might have been my imagination, but she seemed to feel the need to press herself against me during the slow numbers. I didn't protest. Report_Story #2 
+ I danced most of the other dances with Joleen and it might have been my imagination, but she seemed to feel the need to press herself against me during the slow numbers. I didn't protest.  
 
  
 
@@ -478,7 +478,7 @@
 
  Eight months after Jolene signed the papers and moved out I was back on the playing field. I finished the season with good stats and in the next two years I made it back to the Pro Bowl twice. 
 
- Contract renewal time came and I was offered a hell of a sweet deal, but after serious consideration I turned it down and left football behind me. I had more than enough to give me a good life and I saw no sense in waiting for another injury that was bound to come along. I set myself up in business and got on with life. Report_Story #3 
+ Contract renewal time came and I was offered a hell of a sweet deal, but after serious consideration I turned it down and left football behind me. I had more than enough to give me a good life and I saw no sense in waiting for another injury that was bound to come along. I set myself up in business and got on with life.  
 
  
 

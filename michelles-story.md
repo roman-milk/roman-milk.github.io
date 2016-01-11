@@ -104,7 +104,7 @@
 
  Sarge came out of the bathroom wearing a velvet robe, which was loosely tied at the waist, and he slowly walked towards the frightened woman. Michelle stood up before Sarge reached her. She desperately wanted to run and escape any dreaded affair with such a devious man. Her legs vibrated so viciously that it was very hard to remain standing. She stared up at the big man and into his dark, mystic eyes, which seemed to stop her protests. 
 
- When his hand came up and reached for her blouse, she merely stopped breathing. Sarge slowly and purposely took his time unbuttoning the garment enjoying the way her body shivered. He thought it was quite amusing that Michelle had re- buttoned the blouse even though her plight was hopeless. Report_Story #2 
+ When his hand came up and reached for her blouse, she merely stopped breathing. Sarge slowly and purposely took his time unbuttoning the garment enjoying the way her body shivered. He thought it was quite amusing that Michelle had re- buttoned the blouse even though her plight was hopeless.  
 
  
 
@@ -212,7 +212,7 @@
 
  Sarge grinned when he shifted with the intention of getting closer to Michelle. He put his mouth next to her ear and whispered. "You good white ass. Hubby like seeing his wife fuck... fuck big Blackman." Sarge put his fingers in her hair and yanked so that her head faced the reflective glass. "Husband watch wife fuck... you save his sorry ass when you fuck Emu. You cum ... again ... and make Sarge happy." 
 
- Michelle's eyes opened wide when she stared at the uncanny reflections. She stared into the mirror knowing she was looking into Rodney's eyes. Michelle imagined her husband on the other side of the glass watching her demise, but she didn't know how to fight the mean, dominant Sarge. She didn't know how to show Rodney that she was being forced and suddenly realized she couldn't fool any of the men. Report_Story #3 
+ Michelle's eyes opened wide when she stared at the uncanny reflections. She stared into the mirror knowing she was looking into Rodney's eyes. Michelle imagined her husband on the other side of the glass watching her demise, but she didn't know how to fight the mean, dominant Sarge. She didn't know how to show Rodney that she was being forced and suddenly realized she couldn't fool any of the men.  
 
  
 
@@ -316,7 +316,7 @@
 
  Sarge was relentless. "Not worry. I took the liberty to notify the international committee of your change of plans," he said handing Rodney a copy of his notification to the committee. Rodney stared at the document having a hard time focusing on the small print. 
 
- All of a sudden he noticed the time Sarge sent the notification. In bold, black print was 1530 hours, which meant Sarge had sent the message before their plane even landed in the country. Suddenly Rodney realized the man was fully capable of anything and that Sarge was shrewd and extremely manipulative. Report_Story #4 
+ All of a sudden he noticed the time Sarge sent the notification. In bold, black print was 1530 hours, which meant Sarge had sent the message before their plane even landed in the country. Suddenly Rodney realized the man was fully capable of anything and that Sarge was shrewd and extremely manipulative.  
 
  
 
@@ -334,7 +334,7 @@
 
  THE END 
 
- I hope you like Michelle's story. Please send me your feedback, as I always enjoy reading comments and suggestions about my stories. Report_Story #1 
+ I hope you like Michelle's story. Please send me your feedback, as I always enjoy reading comments and suggestions about my stories.  
 
  
 
@@ -444,7 +444,7 @@
 
  Both women looked across the room. Kato was facing them and there was a large teepee in the front of his pajamas. His mother merely smiled, relishing the fact her dear son was maturing into a real man. Michelle's eyes opened with sheer shock when she noticed the obvious aroused state of the boy and she expected Zelda to scold her son. The front of her entire body was covered with goose bumps when Kato slowly walked over to give his mother a goodnight kiss on the cheek. 
 
- With a mad rush, all the girls ran up to their mother, also saying goodnight with a peck on the cheek. The kids did not speak much English, but they did have some understanding of the language. "Say goodnight to Michelle... she is a welcomed guest in our house," Zelda said. "You girls be quiet... don't make all that silly noise and keep us awake. You too Kato! You kids can stay in the room, but if you don't go to sleep... I'll send you to another room." Report_Story #2 
+ With a mad rush, all the girls ran up to their mother, also saying goodnight with a peck on the cheek. The kids did not speak much English, but they did have some understanding of the language. "Say goodnight to Michelle... she is a welcomed guest in our house," Zelda said. "You girls be quiet... don't make all that silly noise and keep us awake. You too Kato! You kids can stay in the room, but if you don't go to sleep... I'll send you to another room."  
 
  
 
@@ -564,7 +564,7 @@
 
  Sarge held Michelle by the hand making it appear like they were together and suddenly he moved his hand towards his boss. It was a slick maneuver that placed her dainty hand in Buru's fist. "You dance... dance with our lovely guest," Sarge whispered. "You see... she best. Much better than others I bring to you." 
 
- Buru was a stately, upright dancer and he left no doubt that he was in-charge. Michelle did everything possible to keep her distance, but it seemed impossible at times. Luckily Buru was not about to get overly brazen with so many spectators, but he did ensure that she was aware of his manly endowment. Michelle kept glancing at her husband and she could see the concerned look on Rodney's unhappy face. Report_Story #3 
+ Buru was a stately, upright dancer and he left no doubt that he was in-charge. Michelle did everything possible to keep her distance, but it seemed impossible at times. Luckily Buru was not about to get overly brazen with so many spectators, but he did ensure that she was aware of his manly endowment. Michelle kept glancing at her husband and she could see the concerned look on Rodney's unhappy face.  
 
  
 
@@ -672,7 +672,7 @@
 
  Suddenly Sarge let go of her hands and stood waiting. He knew exactly what she would do and decided to let her dig her own downfall. "Go to hell... you bastard," she hissed at the overpowering man. Her hands moved with lightning speed, but were no match for the speed of the devil. Just has her hands reached the sides of his face, Sarge slapped her arms outward. He swung hard with his right hand and slapped Michelle hard on the left cheek snapping her head to the side. 
 
- Her head jerked in a violent fashion and before she could catch her balance, she fell. She didn't have time to consider what was next, as Sarge's angry face was right in front of her. "You want fight... we fight!" His voice said it all. Report_Story #4 
+ Her head jerked in a violent fashion and before she could catch her balance, she fell. She didn't have time to consider what was next, as Sarge's angry face was right in front of her. "You want fight... we fight!" His voice said it all.  
 
  
 
@@ -802,7 +802,7 @@
 
  Her recollection started with the gala celebration and commenced with her going with Sarge to meet all of his guests. She remembered being greeted warmly by many people and how everyone complimented her on her beautiful attire and appearance. 
 
- The meal was definitely different and there were many unusual and African foods. Following the meal, Sarge's boss serenaded her around the dance floor, but Michelle never suspected what was actually in store for her. The man eventually escorted her from the celebration and took her to a room specifically setup for his planned escapade. She shuttered remembering how Buru exploited her vulnerable position. Report_Story #5 
+ The meal was definitely different and there were many unusual and African foods. Following the meal, Sarge's boss serenaded her around the dance floor, but Michelle never suspected what was actually in store for her. The man eventually escorted her from the celebration and took her to a room specifically setup for his planned escapade. She shuttered remembering how Buru exploited her vulnerable position.  
 
  
 
@@ -834,7 +834,7 @@
 
  This chapter kept getting longer and longer so I decided to end it at this point. I have the next chapter almost ready with a new, exciting twist. One of the suggestions from a reader was to include a female celebrity in the story and I may try to do that in another subsequent chapter. Of course the woman would not be anyone we know... just a celebrity that the reader can put anyone's name on. 
 
- Please send me your comments and suggestion, as I appreciate feedback from readers. Report_Story #1 
+ Please send me your comments and suggestion, as I appreciate feedback from readers.  
 
  
 
@@ -932,7 +932,7 @@
 
  The day after the wedding was the true test of inner strength for any tribal warrior or woman. It was the custom for all true warriors to have tattoos put on their chest, arms and sometimes on their face depending on the warrior's status. The man, who showed no pain when the tattoos were cut into his flesh, would bring honor to his entire family. The tattoos were not like ones from Western society, but rather they were African scarifications. They used a razor-sharp knife to cut the skin and then inserted a black pigment of wood ash into the slit to form a raised tattoo when the cut healed. 
 
- Tattoos were put on a woman for her quest of beauty. Not all females were lucky enough to be scared and the chief of the tribe selected only a few women. The chief also picked the tattoos, as each one indicated a particular status in the tribe. Zuberi had already decided that Thema was of Queen class and she would have the scarifications put on the side of her neck and on a portion of her chest. The neck tattoo was the sign of royalty and it would always be seen no matter what the woman wore. The scar on the chest was the sign of beauty and it was placed high on the left breast so that when the woman aged and her boobs began to sag, the tattoo still retained its native beauty. Report_Story #2 
+ Tattoos were put on a woman for her quest of beauty. Not all females were lucky enough to be scared and the chief of the tribe selected only a few women. The chief also picked the tattoos, as each one indicated a particular status in the tribe. Zuberi had already decided that Thema was of Queen class and she would have the scarifications put on the side of her neck and on a portion of her chest. The neck tattoo was the sign of royalty and it would always be seen no matter what the woman wore. The scar on the chest was the sign of beauty and it was placed high on the left breast so that when the woman aged and her boobs began to sag, the tattoo still retained its native beauty.  
 
  
 
@@ -1030,7 +1030,7 @@
 
  The proceedings took place near the ceremonial statue in the village square and it all appeared extremely interesting to Michelle who watched in awe, at first. She had never witnessed anything like the African ceremonies and she stared at the tribal weddings, as they got underway. Nia moved closer and suddenly her arm was around Michelle's back, as she pulled the woman into her youthful body. Michelle struggled not wanting such intimate contact but something swiftly changed her mind. 
 
- Nia put her face against the side of Michelle's flustered face and said something. "You white whore... you slave. I see when you have sex with Thema. You my slave... Thema say I have you," she whispered. The shock of hearing English come from her lips was totally surprising to Michelle, as she thought no one spoke her language. "You no fight... or else! I feed you to dogs. I let dogs have white ass!" Report_Story #3 
+ Nia put her face against the side of Michelle's flustered face and said something. "You white whore... you slave. I see when you have sex with Thema. You my slave... Thema say I have you," she whispered. The shock of hearing English come from her lips was totally surprising to Michelle, as she thought no one spoke her language. "You no fight... or else! I feed you to dogs. I let dogs have white ass!"  
 
  
 
@@ -1138,7 +1138,7 @@
 
  Michelle had no idea what Thema was saying, as the young woman tried to explain. "I am sorry... that my sister treated you badly. She jealous; she see us together. Now I realize she want force you. Force you have sex... with her and evil friends. Nia wants power... more power than what is good for her." 
 
- Michelle wondered what on earth was wrong. She was a grown, mature woman who had a mind of her own. Yet, she felt overwhelmed by the overly dramatic African girl who seemed to order her to do things she would not normally do. All of a sudden the girl indicated that Michelle should get down. Not to sit down, but get down on her knees. Not wishing to feel the wrath of an angry Thema, Michelle slowly dropped to her knees. She tilted her head back and looked up to see the look of approval on Thema's pretty face. Report_Story #4 
+ Michelle wondered what on earth was wrong. She was a grown, mature woman who had a mind of her own. Yet, she felt overwhelmed by the overly dramatic African girl who seemed to order her to do things she would not normally do. All of a sudden the girl indicated that Michelle should get down. Not to sit down, but get down on her knees. Not wishing to feel the wrath of an angry Thema, Michelle slowly dropped to her knees. She tilted her head back and looked up to see the look of approval on Thema's pretty face.  
 
  
 
@@ -1244,7 +1244,7 @@
 
  Thema hid her displeasure well and she smiled at the two who rummaged for something to cover their nakedness after she woke them. She looked at the surprised couple and knew what must have transpired following last night's tribal rituals. She had spent the night in her new abode with Baako and Thema was well aware of her father's desire for Michelle. Her last vision from last night was watching Michelle being led away from the ceremonial theater by Zuberi. 
 
- Thema and Baako had gotten up much later than usual. As soon as Baako departed with the tribal warriors, Thema rushed around the village until she found Michelle. Suddenly she stared at the white woman becoming more aware that she envied her sister's devotion of Michelle. Thema's heart rate increased, as she slowly walked across the room. She approached Nia's side of the bed and sat down next to her sister. Report_Story #5 
+ Thema and Baako had gotten up much later than usual. As soon as Baako departed with the tribal warriors, Thema rushed around the village until she found Michelle. Suddenly she stared at the white woman becoming more aware that she envied her sister's devotion of Michelle. Thema's heart rate increased, as she slowly walked across the room. She approached Nia's side of the bed and sat down next to her sister.  
 
  
 

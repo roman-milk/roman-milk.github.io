@@ -140,7 +140,7 @@
 
  "It doesn't matter, Michael," his grandmother said kindly. "We all do it." 
 
- "Gran ..." Michael groaned, closing his eyes, shutting her out. "Please, this is just too embarrassing. We shouldn't talk like this. Let's just put it behind us ... Please?" Report_Story #2 
+ "Gran ..." Michael groaned, closing his eyes, shutting her out. "Please, this is just too embarrassing. We shouldn't talk like this. Let's just put it behind us ... Please?"  
 
  
 

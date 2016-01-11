@@ -124,7 +124,7 @@
 
  I stood in the family room and looked out at Amber sitting on the patio. I saw her glance at me and I knew that I was reading her expression right. Deuce was out of town on a project for his company and Bev was in Atlanta visiting one of her agency's big clients. Amber smiled at me, stood up and started unbuttoning her blouse as she walked toward me and I could not get over how sexy she looked being seven months pregnant. She positively glowed and my cock was suddenly hard and aching. She glanced at my bulge and giggled and I glanced at hers and wondered if I was going to be a father or a grandfather. 
 
- To be continued Report_Story #1 
+ To be continued  
 
  
 
@@ -396,7 +396,7 @@
 
  "Why? What makes you think that she is the right girl for me?" 
 
- "She is gorgeous; she comes from money, is intelligent, has a good sense of humor and thinks guys her own age are immature. You are four years older than she is and there is definitely nothing immature about you." Report_Story #2 
+ "She is gorgeous; she comes from money, is intelligent, has a good sense of humor and thinks guys her own age are immature. You are four years older than she is and there is definitely nothing immature about you."  
 
  
 
@@ -520,7 +520,7 @@
 
  And then my plan came together. Five weeks after returning from our honeymoon I told Bobby I was pregnant. I swear, that boy acted like he'd just won the Nobel Prize. What I didn't tell Bobby was that the baby wasn't his. I went off the pill two months before the wedding, but whenever I made love to Bobby or fucked Jason or Bobby's father I had my diaphragm in. Until after the honeymoon. Then only Daddy Abbott got to plow my fertile fields without protection. 
 
- Bobby would father all the rest of our children, but my first born would be my insurance against ever living poor again. If Bobby ever wanted to get rid of me - and he might since I wasn't going to give up Jason and I could possibly get caught - I'd have a little talk with Daddy Abbott who would no doubt see to it that I did not walk away empty handed. I was sure that he wouldn't want his wife and son to see the DNA test or know about his dalliance with his son's wife. Which by the way is still continuing. Daddy Abbott just loves fucking his pregnant daughter in law. Report_Story #1 
+ Bobby would father all the rest of our children, but my first born would be my insurance against ever living poor again. If Bobby ever wanted to get rid of me - and he might since I wasn't going to give up Jason and I could possibly get caught - I'd have a little talk with Daddy Abbott who would no doubt see to it that I did not walk away empty handed. I was sure that he wouldn't want his wife and son to see the DNA test or know about his dalliance with his son's wife. Which by the way is still continuing. Daddy Abbott just loves fucking his pregnant daughter in law.  
 
  
 
@@ -706,7 +706,7 @@
 
  As I watched Steph walk down the aisle on the arm of her father toward a waiting Jason I wondered if I could summon the courage it would take to do what I knew I must. If I did it I would earn the hatred of Stephanie Anne and it would destroy my marriage to Robert. I sat there and waited for the minister to reach the part where he would ask: 
 
- "If there anyone here who knows of any reason why these two should not be wed speak now or forever hold your peace." Report_Story #1 
+ "If there anyone here who knows of any reason why these two should not be wed speak now or forever hold your peace."  
 
  
 
@@ -862,7 +862,7 @@
 
  I hadn't been looking forward to three weeks without sex anyway and we would be on the other side of the world so what the hell. 
 
- Stan screwed me three times in London, four times in Belfast and twice on our first night in Edinburgh. It was in Edinburgh that things changed. When I heard the soft knock at the door I opened it to let Stan come in and saw that he had Rick, another guy on the tour, with him. Before I could say "What the hell?" Stan moved into the room followed by Rick. Stan told me that Rick had been bugging him to set me up with him and Stan told me he knew how much I had loved the gangbangs at the Pi Kappa Alpha house so he decided to bring him along. When I asked how Rick knew to ask, Stan broke out laughing and said: Report_Story #2 
+ Stan screwed me three times in London, four times in Belfast and twice on our first night in Edinburgh. It was in Edinburgh that things changed. When I heard the soft knock at the door I opened it to let Stan come in and saw that he had Rick, another guy on the tour, with him. Before I could say "What the hell?" Stan moved into the room followed by Rick. Stan told me that Rick had been bugging him to set me up with him and Stan told me he knew how much I had loved the gangbangs at the Pi Kappa Alpha house so he decided to bring him along. When I asked how Rick knew to ask, Stan broke out laughing and said:  
 
  
 

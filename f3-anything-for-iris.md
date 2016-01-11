@@ -186,7 +186,7 @@
 
  "Always. I don't think I'll ever be able to stay mad at the father of our girl, not for long." 
 
- They moved apart, and made their way to the ladder. Cameron watched Sierra climb up first, hoping a few moments respite would hide the evidence of just how strongly the last few minutes had affected him. He felt guilty, for pressing the limits, beyond what he'd promised. By the time he climbed out, he wasn't too embarrassed. They rinsed themselves off, and their gear, put the batteries on the charger, and connected the Iris units to the computer, dumping the results of their test. Report_Story #2 
+ They moved apart, and made their way to the ladder. Cameron watched Sierra climb up first, hoping a few moments respite would hide the evidence of just how strongly the last few minutes had affected him. He felt guilty, for pressing the limits, beyond what he'd promised. By the time he climbed out, he wasn't too embarrassed. They rinsed themselves off, and their gear, put the batteries on the charger, and connected the Iris units to the computer, dumping the results of their test.  
 
  
 
@@ -390,7 +390,7 @@
 
  Sierra was surprised when he stopped abruptly, turning her and pulling her into his arms. "Hardly. You are without a doubt the most exceptional woman I've ever met, and a genius with your AI." 
 
- She braced herself for the kiss, when his face lowered toward hers. His lips glided past her mouth, brushing her cheek along the way. "We have an audience," he whispered, nibbling her ear. "At the concierge area." Report_Story #3 
+ She braced herself for the kiss, when his face lowered toward hers. His lips glided past her mouth, brushing her cheek along the way. "We have an audience," he whispered, nibbling her ear. "At the concierge area."  
 
  
 
@@ -648,7 +648,7 @@
 
  "You're just horny," she teased. 
 
- "Stop it. Accept the compliment. How can you not see it?" Report_Story #4 
+ "Stop it. Accept the compliment. How can you not see it?"  
 
  
 
@@ -916,7 +916,7 @@
 
  Alan laughed, slapping her ass, watching the alabaster cheek shiver. "I'll fuck you however I want." 
 
- The words, so matter of fact, so adamant, drove Janine to her first orgasm, moaning loudly, while her husband pounded long easy strokes into her molten tunnel. She raised her head, opened her eyes, and gazed across the water. Report_Story #5 
+ The words, so matter of fact, so adamant, drove Janine to her first orgasm, moaning loudly, while her husband pounded long easy strokes into her molten tunnel. She raised her head, opened her eyes, and gazed across the water.  
 
  
 

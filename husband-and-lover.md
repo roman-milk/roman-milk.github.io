@@ -468,7 +468,7 @@
 
  "Thanks, Cindy. You are good for me. I appreciate what you are doing for me." 
 
- He gets his clothes from the motel and he stays with her the next few days. She is trying to restore him. She has him doing man things. Fix that. Lift that heavy thing. Open this tight lid. It's working. He is smiling again and she feels him coming around. She has an innate way of making a man feel like a man. Report_Story #2 
+ He gets his clothes from the motel and he stays with her the next few days. She is trying to restore him. She has him doing man things. Fix that. Lift that heavy thing. Open this tight lid. It's working. He is smiling again and she feels him coming around. She has an innate way of making a man feel like a man.  
 
  
 

@@ -246,7 +246,7 @@
 
  There I was, not quite believing just what was going on, lust spurring me on, reckless with longing when I heard the woman call out in alarm. The next I knew she was muttering on, pulling back, with those big boobs hastily covered. 
 
- I had to admit, the quarter-bra thing is a great invention. It supported her tits but left most of them exposed, the line of her clothing, as she'd said, pleasing to the eye. To all intents and purposes she was naked under the flimsy top. The only clue she had a bra on at all being the black straps over her shoulders. Report_Story #2 
+ I had to admit, the quarter-bra thing is a great invention. It supported her tits but left most of them exposed, the line of her clothing, as she'd said, pleasing to the eye. To all intents and purposes she was naked under the flimsy top. The only clue she had a bra on at all being the black straps over her shoulders.  
 
  
 
@@ -506,7 +506,7 @@
 
  Then her mouth closed on her lover's lips while her pelvis corkscrewed, with Marion's mons grinding against Jon's pubic bone. Marion sobbed her delight into his mouth, Jon's arm curling around her so he could hold Marion tight. 
 
- Next, while the climax swelled inside Marion like milk boiling on a hot stove, Jon heaved and rolled the moaning, wall-eyed woman onto her back. Report_Story #3 
+ Next, while the climax swelled inside Marion like milk boiling on a hot stove, Jon heaved and rolled the moaning, wall-eyed woman onto her back.  
 
  
 

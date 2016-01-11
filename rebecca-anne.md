@@ -152,7 +152,7 @@
 
  "You bitch! You miserable fucking whore! That's my husband you are with, my husband you fucking whore!" and she slammed Becky's head into the door post again. 
 
- By then Stan was out of the car and pulling his wife off Becky. Elaine kneed him in the balls and when he doubled up and tried to cover up she grabbed his head and slammed it into the side of the car three times. He fell to the ground and she started kicking him and calling him every name in the book. I figured I'd seen enough so I started up my car and drove on home. As I pulled out of the lot I was looking in my rear view and saw Becky staggering toward her car and Elaine still kicking Stan. Report_Story #2 
+ By then Stan was out of the car and pulling his wife off Becky. Elaine kneed him in the balls and when he doubled up and tried to cover up she grabbed his head and slammed it into the side of the car three times. He fell to the ground and she started kicking him and calling him every name in the book. I figured I'd seen enough so I started up my car and drove on home. As I pulled out of the lot I was looking in my rear view and saw Becky staggering toward her car and Elaine still kicking Stan.  
 
  
 

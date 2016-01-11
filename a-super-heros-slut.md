@@ -120,7 +120,7 @@
 
  "I'm beat from pounding the pavement all day looking for work Tiger. If you are going to make love to me better hurry up. That super orgasm you just gave me took a lot out of me and I don't want to fall asleep on you." 
 
- Peter mounted her and as was usually the case she didn't even know he was in her, but he was humping so she made the requisite noises and moans and moved her body around in simulated passion while she thought about which of her many lovers she would see the next day. Report_Story #1 
+ Peter mounted her and as was usually the case she didn't even know he was in her, but he was humping so she made the requisite noises and moans and moved her body around in simulated passion while she thought about which of her many lovers she would see the next day.  
 
  
 
@@ -364,7 +364,7 @@
 
  Peter was driving himself crazy wondering what his wife was doing with Kraven. Seeing her come out of Adolpho's on Kraven's arm was a shock to his system, but nothing compared to the feelings he was having after seeing her go into a mid- town hotel with Kraven. How did she meet him? Why was she with him at all, let alone be in a hotel with him. She knew that he had been responsible for sending Kraven to prison and at the time she had even congratulated him on doing it. And now she was with him? 
 
- He went into the hotel and checked out the restaurant, the bar, and even the meeting rooms, but he didn't find either his wife or Kraven. He really didn't want to do it, but it was the only way he could think of to find out what was going on. He went to the front desk and showed his press pass to the desk clerk. Report_Story #2 
+ He went into the hotel and checked out the restaurant, the bar, and even the meeting rooms, but he didn't find either his wife or Kraven. He really didn't want to do it, but it was the only way he could think of to find out what was going on. He went to the front desk and showed his press pass to the desk clerk.  
 
  
 
@@ -418,7 +418,7 @@
 
  * * * * * 
 
- Next: "The Man Just Down The Hall." Report_Story #1 
+ Next: "The Man Just Down The Hall."  
 
  
 
@@ -510,7 +510,7 @@
 
  Kraven looked down on the insatiable slut and thought that he might just have to change his plans for her. He just might want to keep her around for a while. 
 
- Next: Peter gets hot swamp soup. Report_Story #1 
+ Next: Peter gets hot swamp soup.  
 
  
 
@@ -658,7 +658,7 @@
 
  Mary Jane was already building to an orgasm at just the thought of Spider-Man sucking up Kraven's special sauce and when Peter's tongue touched her pussy she cried out, "Oh yes Tiger, oh God yes" and images of Kraven's and Joe's big cocks danced in her head as her husband ate her pussy. 
 
- Next: A ride down Fifth Avenue. Report_Story #1 
+ Next: A ride down Fifth Avenue.  
 
  
 
@@ -854,7 +854,7 @@
 
  Max smiled inwardly as he thought to himself, "A lot sooner than you think missy, and without that fucking raincoat." 
 
- Next: Mary Jane on film. Report_Story #1 
+ Next: Mary Jane on film.  
 
  
 

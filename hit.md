@@ -266,7 +266,7 @@
 
  He brought back just the right thing. "You don't need to wear the bra, do you?" he asked. 
 
- Thinking he was referring to them being too small she almost poked him in the ribs. The look on his face told a different story. It was unusual for her to give in to anyone but so far she had so decided to continue until she found out what he was up to. She shrugged her shoulders and quickly pulled on the panties. Report_Story #2 
+ Thinking he was referring to them being too small she almost poked him in the ribs. The look on his face told a different story. It was unusual for her to give in to anyone but so far she had so decided to continue until she found out what he was up to. She shrugged her shoulders and quickly pulled on the panties.  
 
  
 
@@ -350,7 +350,7 @@
 
  She snuggled up in his arms kissing his chest. She smiled at him then looked around. "We're in your van," she said. Her face changed as though everything had suddenly come flooding back. Not just the heat of the moment decorated her cheeks but embarrassment tinged them bright red. 
 
- She looked at him as though to say, 'what's next', and he wondered if he had opened Pandora's Box. A wicked smile lit his face wondering if hers might be opened too. This wasn't the moment to take her virgin ass but it would be worth waiting for. Report_Story #1 
+ She looked at him as though to say, 'what's next', and he wondered if he had opened Pandora's Box. A wicked smile lit his face wondering if hers might be opened too. This wasn't the moment to take her virgin ass but it would be worth waiting for.  
 
  
 
@@ -536,7 +536,7 @@
 
  "I'm tempted. You're not wearing panties so I could just lift the back of that little light summer dress and slam into you. I can almost smell your sex from here. You're ready for it," he paused, seeing her listening intently and the imperceptible nod of agreement. 
 
- "You'd be easy to take, being all worked up. I bet your wet an open, just ready for my dick," he said, and cocked his head to one side, turning it into a question. Report_Story #2 
+ "You'd be easy to take, being all worked up. I bet your wet an open, just ready for my dick," he said, and cocked his head to one side, turning it into a question.  
 
  
 
@@ -698,7 +698,7 @@
 
  They travelled a few miles before curiosity got the better of her. "What's it like?" 
 
- "No idea, never been. Don't worry I'll keep a close eye on you," he chuckled. Report_Story #1 
+ "No idea, never been. Don't worry I'll keep a close eye on you," he chuckled.  
 
  
 
@@ -890,7 +890,7 @@
 
  Again the woman vigorously wagged her tail bumping Josie's hip. Josie was exasperated over the act so pulled on Pete's jeans interrupting the conversation. "We both want a drink," she stated, with no respect at all. 
 
- The stranger looked at her in dismay. Josie looked back at him as though she was about to stick out her tongue. Looking at dog woman it was evident she was a little disappointed with the direct approach, preferring to play the game. Of course, how stupid, the slaves are sometimes the motivating force behind the game! Pete had told her this and she had only half understood the concept until now. Report_Story #2 
+ The stranger looked at her in dismay. Josie looked back at him as though she was about to stick out her tongue. Looking at dog woman it was evident she was a little disappointed with the direct approach, preferring to play the game. Of course, how stupid, the slaves are sometimes the motivating force behind the game! Pete had told her this and she had only half understood the concept until now.  
 
  
 
@@ -1056,7 +1056,7 @@
 
  "Master, help me!" she exclaimed. He watched her hand pull at something between the legs. 
 
- He turned her over to discover a black rubber thing stuck to her asshole. He fiddled with it while she whimpered into the cushions. She kept pleading with him but he didn't know what she wanted or what to do. Report_Story #3 
+ He turned her over to discover a black rubber thing stuck to her asshole. He fiddled with it while she whimpered into the cushions. She kept pleading with him but he didn't know what she wanted or what to do.  
 
  
 

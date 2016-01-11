@@ -332,7 +332,7 @@
 
  She loves the taste of cum; she seemed disappointed when she told me the taste of my cum had changed after my vasectomy. There will be days while I'm watching television, working on the car, or doing some menial task and I snap my fingers, point to my crotch, and she will immediately drop to her knees, suck me off, swallow my load and then leave. 
 
- Also, for a woman of such gentle demeanour, she likes her sex a little rough. She loves getting her ass smacked, loves having her nipples pinched, and I mean hard, and even loves it when I'm holding her head to the mattress with her ass in the air. Report_Story #2 
+ Also, for a woman of such gentle demeanour, she likes her sex a little rough. She loves getting her ass smacked, loves having her nipples pinched, and I mean hard, and even loves it when I'm holding her head to the mattress with her ass in the air.  
 
  
 
@@ -688,7 +688,7 @@
 
  "Is he even legal?" I asked, as if that mattered in this fucked up story. 
 
- "He's eighteen," Andy nodded; his face beet red like it was when I caught him. Report_Story #3 
+ "He's eighteen," Andy nodded; his face beet red like it was when I caught him.  
 
  
 
@@ -1074,7 +1074,7 @@
 
  "Tell me, cocksucker," he ordered, "Did you enjoy your first of many cocksucking experiences?" 
 
- "Yes," I whispered, a sudden shame at my current reality hitting me. Report_Story #4 
+ "Yes," I whispered, a sudden shame at my current reality hitting me.  
 
  
 
@@ -1340,7 +1340,7 @@
 
  Black Cock: 10 Inch Cock Training 
 
- Greg is trained to take all ten inches at a variety of risky locations and then trained to be a submissive bottom. Meanwhile, his wife slowly takes control in the bedroom. Report_Story #1 
+ Greg is trained to take all ten inches at a variety of risky locations and then trained to be a submissive bottom. Meanwhile, his wife slowly takes control in the bedroom.  
 
  
 
@@ -1734,7 +1734,7 @@
 
  Realizing the other two were apparently in a stall and that I could scurry out without being caught, I quickly stood up and began to leave. Yet, even though I knew I shouldn't, I couldn't resist looking at the open stall. 
 
- And I froze. Report_Story #2 
+ And I froze.  
 
  
 
@@ -2156,7 +2156,7 @@
 
  "Good, slave," Marcia purred. 
 
- "Thank you, Mistress," I absurdly replied, as I finished licking my hand clean, like a dog licks clean his food bowl. Report_Story #3 
+ "Thank you, Mistress," I absurdly replied, as I finished licking my hand clean, like a dog licks clean his food bowl.  
 
  
 
@@ -2604,7 +2604,7 @@
 
  "Do you enjoy it?" I asked. 
 
- "Do you?" he countered, looking at me for the first time. Report_Story #4 
+ "Do you?" he countered, looking at me for the first time.  
 
  
 
@@ -3004,7 +3004,7 @@
 
  I instantly thought of James. Yet, I sighed, "Damn kid." 
 
- "Don't worry," she promised, standing up and squeezing my cock, "I plan to literally rock your world." Report_Story #5 
+ "Don't worry," she promised, standing up and squeezing my cock, "I plan to literally rock your world."  
 
  
 
@@ -3484,7 +3484,7 @@
 
  "With some huge tits," he added, ignoring my request. 
 
- "Please don't talk about my wife in such a way," I requested. Report_Story #6 
+ "Please don't talk about my wife in such a way," I requested.  
 
  
 
@@ -3936,7 +3936,7 @@
 
  That night, after dinner, Marcia asked, "Going through withdrawal, slut?" 
 
- I smiled, Carol gone to the lake for the weekend, "Yes, Mistress." Report_Story #7 
+ I smiled, Carol gone to the lake for the weekend, "Yes, Mistress."  
 
  
 
@@ -3968,7 +3968,7 @@
 
  Big Black Cock: Cuckold Training 
 
- Malcolm adds wife to his collection of submissives while making Greg a cuckold. Report_Story #1 
+ Malcolm adds wife to his collection of submissives while making Greg a cuckold.  
 
  
 
@@ -4374,7 +4374,7 @@
 
  After a couple of minutes, she ordered, "Go put my strap-on on, I need to be fucked by a real cock that lasts more than five seconds." 
 
- The humiliation continued, as I got off the bed, grabbed her strap-on and put it on. I struggled and she sighed, "Get over here. You really are a useless fuck slut." Report_Story #2 
+ The humiliation continued, as I got off the bed, grabbed her strap-on and put it on. I struggled and she sighed, "Get over here. You really are a useless fuck slut."  
 
  
 
@@ -4880,7 +4880,7 @@
 
  I obeyed, my face burning with shame. 
 
- "Just sit there until I am ready for your mouth, cocksucker," he demanded. Report_Story #3 
+ "Just sit there until I am ready for your mouth, cocksucker," he demanded.  
 
  
 
@@ -5354,7 +5354,7 @@
 
  That night, to my surprise, Marcia didn't initiate sex at all, nor did she tell me about her afternoon rendezvous with Malcolm. Actually, she seemed distant. I had a hunch she was trying to come to grips with her decision, just like I had. 
 
- Report_Story #4 
+  
 
  
 
@@ -5828,7 +5828,7 @@
 
  "I love salty appies," Marcia quipped. 
 
- Malcolm left and Marcia quipped, "God, I can't believe you have been sucking cock behind my back." Report_Story #5 
+ Malcolm left and Marcia quipped, "God, I can't believe you have been sucking cock behind my back."  
 
  
 

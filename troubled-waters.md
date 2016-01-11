@@ -154,7 +154,7 @@
 
  "I'll be fine." 
 
- Zdrokov went down the line and introduced the girls by name: Suzie (the fake titted blond), Lucy (the blue eyed, black haired beauty), Rae (the pretty, lithe Asian), Desiree (the athletic black girl with big boobs), Lori (his goddamned sister!!) and Candi (the sort, cute strawberry blond). He then turned to Ranjit and told him he had the privilege of first selection. Alex waited with white knuckled terror as Ranjit looked up and down the line. Finally he picked the girl next to Lorelei, the last one in line; Candi, a short, young looking girl with long, straight strawberry-blond hair, porcelain skin and green eyes. She strutted over to Ranjit and sat on his lap. He had to rearrange his huge dick to make room for her. Report_Story #2 
+ Zdrokov went down the line and introduced the girls by name: Suzie (the fake titted blond), Lucy (the blue eyed, black haired beauty), Rae (the pretty, lithe Asian), Desiree (the athletic black girl with big boobs), Lori (his goddamned sister!!) and Candi (the sort, cute strawberry blond). He then turned to Ranjit and told him he had the privilege of first selection. Alex waited with white knuckled terror as Ranjit looked up and down the line. Finally he picked the girl next to Lorelei, the last one in line; Candi, a short, young looking girl with long, straight strawberry-blond hair, porcelain skin and green eyes. She strutted over to Ranjit and sat on his lap. He had to rearrange his huge dick to make room for her.  
 
  
 
@@ -332,7 +332,7 @@
 
  He knew he didn't, but he said yes anyway. 
 
- "OK, fine. Yes, we had an orgy after dinner and I got fucked by both Mario and Toru. Oh, and I ate Candi's pussy too. Feel better?" Report_Story #3 
+ "OK, fine. Yes, we had an orgy after dinner and I got fucked by both Mario and Toru. Oh, and I ate Candi's pussy too. Feel better?"  
 
  
 
@@ -398,7 +398,7 @@
 
  ================================= 
 
- Like it? Hate it? I sure would like to know and I would especially like to knowwhy. Feedback to the authors is the best way to improve our output so, please, leave a comment or send me an email. I respond enthusiastically to praise and courteously to criticism, so don't feel like you need to stay anonymous to point out problems or make suggestions. But if anonymous is your thing, that's fine too. If you want to tell me I'm a sick bastard who should commit a messy suicide without delay, well, I've already received many messages to that effect so you don't really need to waste your time, but if it makes you feel better or gets you off, go ahead, I can take it. Thanks. See you in a week with part 2. Report_Story #1 
+ Like it? Hate it? I sure would like to know and I would especially like to knowwhy. Feedback to the authors is the best way to improve our output so, please, leave a comment or send me an email. I respond enthusiastically to praise and courteously to criticism, so don't feel like you need to stay anonymous to point out problems or make suggestions. But if anonymous is your thing, that's fine too. If you want to tell me I'm a sick bastard who should commit a messy suicide without delay, well, I've already received many messages to that effect so you don't really need to waste your time, but if it makes you feel better or gets you off, go ahead, I can take it. Thanks. See you in a week with part 2.  
 
  
 
@@ -548,7 +548,7 @@
 
  Irina walked Alex to his room and told him to change back into his robe. She waited while he did so and took his luggage again when she left. After lying on the bed for a few minutes he decided to search the boat for Lorelei. He knew he should stay away from her, there was less chance that someone might figure out their relationship if they kept apart, but Zdrokov's answer about the missing black whore had made him extremely nervous. He convinced himself he needed to warn Lorelei to be careful, but mostly he just had an aching need to see her. That's why it seemed like an answered prayer when he opened the door to his room to find her standing there in tiny white shorts and a blue bikini top. 
 
- She launched herself into his arms, burying her face in his shoulder and bursting into tears. He pulled her closer to him, nearly forcing the air from her with his overenthusiastic embrace. Report_Story #2 
+ She launched herself into his arms, burying her face in his shoulder and bursting into tears. He pulled her closer to him, nearly forcing the air from her with his overenthusiastic embrace.  
 
  
 
@@ -698,7 +698,7 @@
 
  Lucy strutted up next to him. Her voluptuous body was poured into a black fishnet body stocking that was interrupted at the hips by garter-like straps that allowed full access to her ass and pussy. She ground her bare pubis into his thigh as her hands encircled his body and ran up his tall frame. She pressed her face to his chest, looked up with devilish blue eyes through errant strands of her dark hair and purred, "I can see why Lori's been keeping you to herself. But after I'm done fucking you, you won't want any more of that lanky skanky spunk junkie." 
 
- She and several of the girls laughed. Alex, looked up at Lorelei again but she blushed and looked away. He remembered Lorelei's tearful confession about her unsavory appetite; apparently it was not only true, it was overt enough so that she had a reputation among the other girls. To Alex, Lucy seemed suddenly irritating and unappealing. He wanted to shrug her off his body and twist away from her embrace, but the watching eyes surrounding him kept him in place. Report_Story #3 
+ She and several of the girls laughed. Alex, looked up at Lorelei again but she blushed and looked away. He remembered Lorelei's tearful confession about her unsavory appetite; apparently it was not only true, it was overt enough so that she had a reputation among the other girls. To Alex, Lucy seemed suddenly irritating and unappealing. He wanted to shrug her off his body and twist away from her embrace, but the watching eyes surrounding him kept him in place.  
 
  
 
@@ -832,7 +832,7 @@
 
  ============================= 
 
- How do you like it so far? I sure would like to know and I would especially like to knowwhy. We authors live for feedback and your suggestions make us better, so, please, leave a comment or send me an email. I respond enthusiastically to praise and courteously to criticism, so don't feel like you need to stay anonymous to point out problems or make suggestions. But if anonymous is your thing, that's fine too. If you want to tell me I have a diseased mind and should be locked away, well, I freely admit you probably have a point so you don't really need to waste your time, but if abusing the unpaid authors of free smut makes you feel warm and happy, go ahead, I can take it. Thanks. See you in a week with finale. Report_Story #1 
+ How do you like it so far? I sure would like to know and I would especially like to knowwhy. We authors live for feedback and your suggestions make us better, so, please, leave a comment or send me an email. I respond enthusiastically to praise and courteously to criticism, so don't feel like you need to stay anonymous to point out problems or make suggestions. But if anonymous is your thing, that's fine too. If you want to tell me I have a diseased mind and should be locked away, well, I freely admit you probably have a point so you don't really need to waste your time, but if abusing the unpaid authors of free smut makes you feel warm and happy, go ahead, I can take it. Thanks. See you in a week with finale.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  "OK, granted. We're in your fucking power. What the hell do you want?" 
 
- "Our friend Mr. Thompson was a troublesome guest. He caused some unpleasantness with that nigger whore, and that had to be dealt with. He unwittingly provoked you to violence by urinating on your sister. And this morning, he stole a flare gun from one of the life boats and fired it inside my ship. All of which I can forgive, but he was threatening to sue me for the trouble he caused and, with my plans coming to fruition, I cannot afford the cost of such a lawsuit nor the attendant bad publicity. When you pushed him down the stairs you did me a favor. I'm sure the authorities will understand your plea of self defense when they learn that Mr. Thompson shot at you and stabbed you with a knife. It was unfortunate that he fell down the stairs and broke his miserable neck as you tried to hold him off. An open and shut case, no?" Report_Story #2 
+ "Our friend Mr. Thompson was a troublesome guest. He caused some unpleasantness with that nigger whore, and that had to be dealt with. He unwittingly provoked you to violence by urinating on your sister. And this morning, he stole a flare gun from one of the life boats and fired it inside my ship. All of which I can forgive, but he was threatening to sue me for the trouble he caused and, with my plans coming to fruition, I cannot afford the cost of such a lawsuit nor the attendant bad publicity. When you pushed him down the stairs you did me a favor. I'm sure the authorities will understand your plea of self defense when they learn that Mr. Thompson shot at you and stabbed you with a knife. It was unfortunate that he fell down the stairs and broke his miserable neck as you tried to hold him off. An open and shut case, no?"  
 
  
 
@@ -1220,7 +1220,7 @@
 
  *** 
 
- Later took a long time to come. After a helicopter flight along the southern coast of Long Island they landed at a helipad in downtown Manhattan and were split up to be questioned separately. Alex found himself in a dingy room with no windows and a large mirror that ran the length of one wall. He answered their questions honestly and watched as his interrogators went from polite to hostile as he revealed the depths of sin to which he and his sister had sunk in the course of three stressful days. After several hours of questioning he was taken to a hotel and shut inside a room with a guard at the door. Still confused, he lay down to watch the news. There was nothing about Zdrokov, just a lot of talk about a scandal involving a politician who'd been sleeping with a young staff member. Report_Story #3 
+ Later took a long time to come. After a helicopter flight along the southern coast of Long Island they landed at a helipad in downtown Manhattan and were split up to be questioned separately. Alex found himself in a dingy room with no windows and a large mirror that ran the length of one wall. He answered their questions honestly and watched as his interrogators went from polite to hostile as he revealed the depths of sin to which he and his sister had sunk in the course of three stressful days. After several hours of questioning he was taken to a hotel and shut inside a room with a guard at the door. Still confused, he lay down to watch the news. There was nothing about Zdrokov, just a lot of talk about a scandal involving a politician who'd been sleeping with a young staff member.  
 
  
 

@@ -148,7 +148,7 @@
 
  There was a long silence. The interval lengthened to the point that I thought my mother had silently left the room. I uncovered my face and opened my eyes. She was still there however; sat on my bed, looking at me with a strange expression on her face. 
 
- "Those photos did turn you on; I know they did." My mother sighed deeply. "Then you know how it is for me, David. That's the same feeling I have when your father's away. Like an addiction, a craving; I've got to have it." She sighed and gave that wan smile. "Is that how it was, Davey? Am I right?" I couldn't answer, the words refused to come. "What did you think when you saw me in those pictures, Davey? How did they make you feel? I know how it feels for me. I have to touch myself. If I don't have a man... then I have to touch myself." Her voice cracked and became a whisper. "Did you touch yourself? " She paused and then added, "I think you did. I found the evidence on my bed." Report_Story #2 
+ "Those photos did turn you on; I know they did." My mother sighed deeply. "Then you know how it is for me, David. That's the same feeling I have when your father's away. Like an addiction, a craving; I've got to have it." She sighed and gave that wan smile. "Is that how it was, Davey? Am I right?" I couldn't answer, the words refused to come. "What did you think when you saw me in those pictures, Davey? How did they make you feel? I know how it feels for me. I have to touch myself. If I don't have a man... then I have to touch myself." Her voice cracked and became a whisper. "Did you touch yourself? " She paused and then added, "I think you did. I found the evidence on my bed."  
 
  
 

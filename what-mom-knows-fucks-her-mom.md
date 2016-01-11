@@ -318,7 +318,7 @@
 
  She scoffed. 
 
- "I wasn't kidding, or bargaining," I firmly said. "Mom is my slut, she will give you up if I tell her to. I know that and you know that. Let's be honest, the last time Mom had to choose between a man and you...you lost." I know this was harsh and blunt, but with Ellie that was how you had to play the game. Report_Story #2 
+ "I wasn't kidding, or bargaining," I firmly said. "Mom is my slut, she will give you up if I tell her to. I know that and you know that. Let's be honest, the last time Mom had to choose between a man and you...you lost." I know this was harsh and blunt, but with Ellie that was how you had to play the game.  
 
  
 
@@ -676,7 +676,7 @@
 
  "Hard to believe you're moving out soon," she said, once we broke the kiss. 
 
- "Trust me," I promised, "I'll still be back here often." Report_Story #3 
+ "Trust me," I promised, "I'll still be back here often."  
 
  
 
@@ -1104,7 +1104,7 @@
 
  I pumped my cock and in seconds the first spray hit Nana directly in the face and she moaned on contact like a good slut should. I turned slightly and allowed my second full stream to hit Mom, before turning back to Nana to receive the remaining smaller squirts of my white goo. 
 
- As soon as my last small squirt hit Nana's chin, she leaned forward and took my cock back in her mouth. I quipped, "I tell you one thing, when it comes to retrieving every last speck of cum, it's definitely like mother, like daughter." Report_Story #4 
+ As soon as my last small squirt hit Nana's chin, she leaned forward and took my cock back in her mouth. I quipped, "I tell you one thing, when it comes to retrieving every last speck of cum, it's definitely like mother, like daughter."  
 
  
 

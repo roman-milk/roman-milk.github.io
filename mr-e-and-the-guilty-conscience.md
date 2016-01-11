@@ -198,7 +198,7 @@
 
  "Desperately. Could you do something for me? I know it's going to sound weird..." 
 
- It was. Katy Ross became my Pillow Princess. Forty seven years old, and so far above my station it was ridiculous. Elegant, attractive and brilliant, she fascinated me. She invited me to spend my nights with her. I serviced her orally, every night. She never reciprocated. The best she'd allow was for me to play with myself while touching her. Five long months, I pleasured her. In exchange she mentored me, got me the choicest lab assignments, and made me part of the 'in' group. Report_Story #2 
+ It was. Katy Ross became my Pillow Princess. Forty seven years old, and so far above my station it was ridiculous. Elegant, attractive and brilliant, she fascinated me. She invited me to spend my nights with her. I serviced her orally, every night. She never reciprocated. The best she'd allow was for me to play with myself while touching her. Five long months, I pleasured her. In exchange she mentored me, got me the choicest lab assignments, and made me part of the 'in' group.  
 
  
 
@@ -478,7 +478,7 @@
 
  * * * Now * * * 
 
- We ate around our outdoor table, and my failed joke with the throwing knife seemed to be forgotten. We were all laughing at Dale's stories. Damn, I wish I could be half as entertaining. Then again, I hadn't done a tenth of the stuff he had. As was my way, I kept pretty closed mouthed, and just listened. Report_Story #3 
+ We ate around our outdoor table, and my failed joke with the throwing knife seemed to be forgotten. We were all laughing at Dale's stories. Damn, I wish I could be half as entertaining. Then again, I hadn't done a tenth of the stuff he had. As was my way, I kept pretty closed mouthed, and just listened.  
 
  
 
@@ -854,7 +854,7 @@
 
  She stopped, looking up at me nervously. "I swear, I'll never give you cause to worry about that again." 
 
- As her mouth engulfed my cock, I reached down and brushed her hair back to see her beautiful face. Damn, she was good at that. Report_Story #4 
+ As her mouth engulfed my cock, I reached down and brushed her hair back to see her beautiful face. Damn, she was good at that.  
 
  
 

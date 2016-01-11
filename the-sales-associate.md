@@ -154,7 +154,7 @@
 
  From the instant Holly met Martin, she knew she liked him. He was 48 years old, 6 feet, three inches tall with gray and black hair, a good build for his age and a warm smile. Yes, she liked him, but not in a romantic way. She couldn't imagine it ever being like that. But, he seemed nice, gentle and decent. Oh, he checked her out the instant he opened the door, but not then and not since had he ever really harmed her. He was generally respectful, though he certainly took advantage of her presence every chance he got. She knew he appreciated what she was doing to help him, and that made her usually willing – and sometimes happy – to please him. 
 
- She had accepted the job 20 minutes later. While Holly knelt before him, Martin called Josky to give him the news, explaining that Holly insisted on sucking his cock as a way of getting started. They had hit the ground running on day one and now, 6 months later, they were still getting along fine. Report_Story #2 
+ She had accepted the job 20 minutes later. While Holly knelt before him, Martin called Josky to give him the news, explaining that Holly insisted on sucking his cock as a way of getting started. They had hit the ground running on day one and now, 6 months later, they were still getting along fine.  
 
  
 
@@ -268,7 +268,7 @@
 
  "Have a good night, gentlemen," Martin said, smiling. "I know I will." 
 
- "I'll be damned," Torston said, shaking his head. "Lucky bastard." Report_Story #1 
+ "I'll be damned," Torston said, shaking his head. "Lucky bastard."  
 
  
 
@@ -392,7 +392,7 @@
 
  "Hell yes!" was the general response, just as Martin knew it would be. 
 
- "Let's go to my office and talk numbers," Torston said. Report_Story #1 
+ "Let's go to my office and talk numbers," Torston said.  
 
  
 
@@ -444,7 +444,7 @@
 
  As Torston rolled off the table, Martin pulled out of Holly's pussy and added his own load to Martin's, forming a creamy pool of cum all over and in between Holly's tits. Martin then offered her his cock and she cleaned it for him while Torston watched. Then, just to seal the deal, Holly lifted one breast, then the other to her mouth and licked off as much of the cum mixture as she could. Torston's jaw dropped open as he watched her lick and swallow both loads with a smile on her face. 
 
- "Hell, did I say three?" he asked. "Give me four of everything you got." Report_Story #1 
+ "Hell, did I say three?" he asked. "Give me four of everything you got."  
 
  
 
@@ -640,7 +640,7 @@
 
  "No, ma'am," Nate said. "It's clear those belong inside you. I wouldn't want to do anything to prevent that. You two have a safe flight and if you ever come back through here again, just ask for me and Bobby. We'll make sure you don't have any hassles." 
 
- PART 7: FLYING HIGH The company, ever appreciative of what Martin and Holly were doing, always paid for first-class airfare and the flight to Las Vegas was no different. Martin also usually requested they have the middle and window seats if the plane had three or more seats on a side. That was the case with this one and, when they saw a sharp-dressed businessman sitting in the aisle, Holly knew exactly what Martin wanted her to do. Martin sat down first, squeezing past the man and sitting next to the window. Already, the man had noticed Holly and was no doubt trying to figure out how to discreetly steal a peek. Report_Story #2 
+ PART 7: FLYING HIGH The company, ever appreciative of what Martin and Holly were doing, always paid for first-class airfare and the flight to Las Vegas was no different. Martin also usually requested they have the middle and window seats if the plane had three or more seats on a side. That was the case with this one and, when they saw a sharp-dressed businessman sitting in the aisle, Holly knew exactly what Martin wanted her to do. Martin sat down first, squeezing past the man and sitting next to the window. Already, the man had noticed Holly and was no doubt trying to figure out how to discreetly steal a peek.  
 
  
 
@@ -740,7 +740,7 @@
 
  "No problem," Martin said. "You can make it up to me later." 
 
- After another hour of gambling, they went back to their room and Holly more than made it up. She gave him a long, slow blowjob including lots of ball and ass licking. It was a great way to end the day. She just hoped tomorrow would be as fun. For some reason, though, she wasn't looking forward to seeing Josky. Report_Story #1 
+ After another hour of gambling, they went back to their room and Holly more than made it up. She gave him a long, slow blowjob including lots of ball and ass licking. It was a great way to end the day. She just hoped tomorrow would be as fun. For some reason, though, she wasn't looking forward to seeing Josky.  
 
  
 
@@ -916,11 +916,11 @@
 
  Martin turned his back to the group and prepared to throw the first thong. He tossed it over his shoulder and half the guys clamored for it. He tossed the other over the other should and soon a rugby scrum had broken out, 23 men clamoring over two tiny strips of fabric. Holly and Staci bolted from the bathroom and were out the door in a flash. "Where are they going?" one guy asked, but Martin pointed to a thong which had just been ripped from one man's hands and the guy was quickly drawn back into fray without an answer. 
 
- Martin made his way to the door slowly, quietly slipping out, catching Josky's eye as he closed the door. Martin knew Josky had seen him. Now, how much time did he have? Would Josky really try to stop them? He didn't know for sure, but he didn't want to find out. He hurried to the elevators and in moments was heading out the front door, tossing the room key to the clerk as he ran by. He flagged down a cab and five minutes later, Martin, Holly and Staci were leaving the parking lot, hitting the highway and heading out of town. Report_Story #2 
+ Martin made his way to the door slowly, quietly slipping out, catching Josky's eye as he closed the door. Martin knew Josky had seen him. Now, how much time did he have? Would Josky really try to stop them? He didn't know for sure, but he didn't want to find out. He hurried to the elevators and in moments was heading out the front door, tossing the room key to the clerk as he ran by. He flagged down a cab and five minutes later, Martin, Holly and Staci were leaving the parking lot, hitting the highway and heading out of town.  
 
  
 
- ****** The Sales Associate Ch. 08-09 ****** bydlsloan© No jobs, no luggage and only the clothes -- skimpy and torn in the girls' case -- on their back. But they were away from Josky. That was enough to make anyone happy. Report_Story #1 
+ ****** The Sales Associate Ch. 08-09 ****** bydlsloan© No jobs, no luggage and only the clothes -- skimpy and torn in the girls' case -- on their back. But they were away from Josky. That was enough to make anyone happy.  
 
  
 

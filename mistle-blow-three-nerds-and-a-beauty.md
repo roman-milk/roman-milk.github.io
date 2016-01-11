@@ -346,7 +346,7 @@
 
  I took my eight inches and in one thrust forward I filled her pussy. It was so warm, so wet and unlike anything I could possibly have imagined. I didn't want to move, I just wanted to enjoy the moment and feeling. 
 
- "Hmmmm," she moaned, as my cock filled her. "You are so much bigger than that bastard ex-boyfriend of mine." Report_Story #2 
+ "Hmmmm," she moaned, as my cock filled her. "You are so much bigger than that bastard ex-boyfriend of mine."  
 
  
 

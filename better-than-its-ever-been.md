@@ -110,7 +110,7 @@
 
  I let myself go at that moment. There would be no more holding back, no more withdrawing, no more retribution. I was completely his, and I wanted to be. My arms were wrapped desperately around his waist, pulling him to me as much as I was being pulled to him. I lost track of how long the embrace lasted. 
 
- Suddenly, like before, he spun me back around to face away from him, once again pulling my hips tightly to his. He began to lightly kiss my bare shoulders, his lips tracing delightful path from one side to the other, sending tingles all the way down my spine and the backs of my legs, and fueling the warmth that was building between my legs. Report_Story #2 
+ Suddenly, like before, he spun me back around to face away from him, once again pulling my hips tightly to his. He began to lightly kiss my bare shoulders, his lips tracing delightful path from one side to the other, sending tingles all the way down my spine and the backs of my legs, and fueling the warmth that was building between my legs.  
 
  
 

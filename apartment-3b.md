@@ -204,7 +204,7 @@
 
  "I was a bit skeptical, but dad told me that he used them to keep his cigarettes and matches dry when he went fishing and sometimes when he played golf and it looked like it might rain. I asked him if he really expected me to believe that and he told me that he played golf in a tee shirt and shorts and the only place he could put his cigarettes was on the tray across the front of the golf cart where they would get wet when it rained or if the sprinklers came on when they weren't supposed to. He used a condom to keep them dry. He suggested that I do nothing, but to keep a close eye on Nick to see if I could come up with anything else." 
 
- "Your dad was right about them being used for other purposes. When I was in the Army I used them to blouse my trousers, keep water out of the barrel of my rifle and to keep some things dry when we were on marches in bad weather." Report_Story #2 
+ "Your dad was right about them being used for other purposes. When I was in the Army I used them to blouse my trousers, keep water out of the barrel of my rifle and to keep some things dry when we were on marches in bad weather."  
 
  
 
@@ -344,7 +344,7 @@
 
  I had to stop two more times before we got to San Diego. We had a fabulous six days in Diego and I tried to talk her into going to San Francisco with me, but she said that she could only get off the one week that she had just spent with me. I spent one last night with her in a motel in Escondido and then I headed for San Fran and then home. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -608,7 +608,7 @@
 
  "Why not Rob? Why are you being such a hard ass toward her?" 
 
- "Her asshole husband is going to fuck her up again as soon as he doesn't have to pretend being grateful for her help anymore and it will be because of what I did to him. He will see it as all her fault and he will take it out on her. I'm not going to give him even more ammunition to use against her." Report_Story #2 
+ "Her asshole husband is going to fuck her up again as soon as he doesn't have to pretend being grateful for her help anymore and it will be because of what I did to him. He will see it as all her fault and he will take it out on her. I'm not going to give him even more ammunition to use against her."  
 
  
 
@@ -812,7 +812,7 @@
 
  "Wrong answer Carol. Somehow, despite all you have said and despite what I heard on the tape I'm having a huge amount of trouble believing it if you can be so quick to get to your lover." 
 
- "Do not doubt me on this Rob, you are my only lover. The only thing important to me is that I don't lose you. If you tell me that you aren't kicking me out and the price of keeping you is to sit here and suffer while you are gone I will – underscore the will – sit here and suffer. If you want me to quit my job so that I'm no longer around Jason I'll pick up the phone and do it right now. Whatever I have to do to keep you I will do. No qualifiers Rob. Whatever I have to do. But no lies either. You give me the freedom to see Jason and I will see Jason. You tell me that a boyfriend is okay as long as it isn't Jason then Jason is history. I can not be clear enough on this Rob; the only important thing to me is that I do not lose you. I'm astounded that you have known as long as you have and that we are still together. That gives me hope. What you have said to me so far gives me hope, but with everything that has been said and brought out into the open it is clear to me that we need to get it all out right now. We need to move away from today with both of us absolutely clear on things." Report_Story #3 
+ "Do not doubt me on this Rob, you are my only lover. The only thing important to me is that I don't lose you. If you tell me that you aren't kicking me out and the price of keeping you is to sit here and suffer while you are gone I will – underscore the will – sit here and suffer. If you want me to quit my job so that I'm no longer around Jason I'll pick up the phone and do it right now. Whatever I have to do to keep you I will do. No qualifiers Rob. Whatever I have to do. But no lies either. You give me the freedom to see Jason and I will see Jason. You tell me that a boyfriend is okay as long as it isn't Jason then Jason is history. I can not be clear enough on this Rob; the only important thing to me is that I do not lose you. I'm astounded that you have known as long as you have and that we are still together. That gives me hope. What you have said to me so far gives me hope, but with everything that has been said and brought out into the open it is clear to me that we need to get it all out right now. We need to move away from today with both of us absolutely clear on things."  
 
  
 

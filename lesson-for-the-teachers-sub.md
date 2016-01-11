@@ -204,7 +204,7 @@
 
  She started by strapping each of his ankles into shackles mounted to the edge near one end of the table. She tightened the leather buckles roughly, forcing his feet apart by the width of the table (about two and a half feet). She walked over to the wall of contraptions and retrieved a pair of leather wrist cuffs, which she promptly put in place on her slave. Using two small oval- shaped climbing carabineers she secured the rings in the cuffs to two rings on opposite sides of the table near chest level and slightly behind him. This caused the slaves arms to be drawn up and bent, with his elbows sticking straight out. 
 
- "There, that should do for now," Mistress said, stepping back to observe her handiwork. She then moved into position at the foot of the table between his feet and stood staring into his eyes. As she stared, she very slowly began to unbutton her shirt. With each new open button, the slave strained to get a glimpse of what was hidden beneath her clothing. When all the buttons were undone she stood with the shirt front open less than an inch. Report_Story #2 
+ "There, that should do for now," Mistress said, stepping back to observe her handiwork. She then moved into position at the foot of the table between his feet and stood staring into his eyes. As she stared, she very slowly began to unbutton her shirt. With each new open button, the slave strained to get a glimpse of what was hidden beneath her clothing. When all the buttons were undone she stood with the shirt front open less than an inch.  
 
  
 

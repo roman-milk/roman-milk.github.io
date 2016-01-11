@@ -230,7 +230,7 @@
 
  "So is this," Aunt Cassie replied sultrily, snapping her fingers. 
 
- "Not here, what if Christian comes down," Mom protested. Report_Story #2 
+ "Not here, what if Christian comes down," Mom protested.  
 
  
 
@@ -564,7 +564,7 @@
 
  Mom gasped. 
 
- Cassie ordered, taking control of the situation, "Slut, your son is talking to you." Report_Story #3 
+ Cassie ordered, taking control of the situation, "Slut, your son is talking to you."  
 
  
 

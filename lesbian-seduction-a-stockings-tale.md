@@ -410,7 +410,7 @@
 
  Silkstockings18: and u have been with a lot of women? 
 
- Milflezinnylons: just 2, both one time each, using craigslist Report_Story #2 
+ Milflezinnylons: just 2, both one time each, using craigslist  
 
  
 
@@ -760,7 +760,7 @@
 
  Milflezinnylons: I'll take a picture if u wish 
 
- Heather eagerly wanted a photo...something to solve the mystery that was driving her nuts. Report_Story #3 
+ Heather eagerly wanted a photo...something to solve the mystery that was driving her nuts.  
 
  
 
@@ -1170,7 +1170,7 @@
 
  The redhead continued licking her teen Mistress, humility never a factor once she got a taste of pussy. 
 
- Heather, clearly in a hurry, grabbed the MILF's head, and began grinding on her face. Imagining it was Maureen on her knees licking her, she came, flooding her pet with her pussy juice. Report_Story #4 
+ Heather, clearly in a hurry, grabbed the MILF's head, and began grinding on her face. Imagining it was Maureen on her knees licking her, she came, flooding her pet with her pussy juice.  
 
  
 
@@ -1440,7 +1440,7 @@
 
  Maureen blushed and her cunt got instantly wet. 
 
- Milflezinnylons: and I would serve u without hesitation Report_Story #5 
+ Milflezinnylons: and I would serve u without hesitation  
 
  
 
@@ -1820,7 +1820,7 @@
 
  Milflezinnylons: An ass licking, arse taking lesbo willing to use all three of my holes for my Mistress's pleasure. 
 
- Standing up, she started walking around, but really had to focus and clench her ass cheeks to make sure the plug didn't just fall out. Report_Story #6 
+ Standing up, she started walking around, but really had to focus and clench her ass cheeks to make sure the plug didn't just fall out.  
 
  
 
@@ -2192,7 +2192,7 @@
 
  Milflezinnylons: Yes, Mistress. 
 
- Maureen took a deep breath and slowly lowered herself onto the anal empaler. Like the last time, a new pain burned in her ass as it was widened more than ever before. She started slow, but then decided to go all in quickly... like jumping into the cold water at a pool. Report_Story #7 
+ Maureen took a deep breath and slowly lowered herself onto the anal empaler. Like the last time, a new pain burned in her ass as it was widened more than ever before. She started slow, but then decided to go all in quickly... like jumping into the cold water at a pool.  
 
  
 
@@ -2594,7 +2594,7 @@
 
  8. FINAL SUBMISSION 
 
- Heather was home when Maureen came over, hiding in her parents' room dressed only in black thigh highs, five-inch heels and a strap-on cock... hidden by a robe. Report_Story #8 
+ Heather was home when Maureen came over, hiding in her parents' room dressed only in black thigh highs, five-inch heels and a strap-on cock... hidden by a robe.  
 
  
 

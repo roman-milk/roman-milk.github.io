@@ -82,7 +82,7 @@
 
  What the hell, she was a whore, right? 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -274,7 +274,7 @@
 
  It was three days before I saw Annabelle again. I was in bed asleep when she came home and she slid into bed with me and woke me up with a blow job. When I was both hard and awake she climbed over me and guided me into and then forcibly shoved herself down on me until I was all the way in: 
 
- "Get used to this you bastard. Your cock is sliding into sloppy seconds for the first time in our marriage and it is going to happen to you a lot from now on. It will be my gift to you every time you whore me out to someone. God it is such a turn on to be fucking another man while knowing that your husband sent you to do it. I got off big time knowing that you knew I was fucking George, that I was sucking his cock and taking him deep in my ass. I was an absolute whore for him. I sucked him off in the back of a cab; I fucked him in the men's room at Angelo's, I took him in my ass while bent over the rail of the balcony off his room where anyone who looked up could have seen me. God it was wild. He fucked me thirty minutes ago, just before he put me in a cab and sent me home. Can you feel him? Do you like the feeling of your cock soaking in another man's juices? It feels so wicked to fuck you only thirty minutes after another man fucked me. But you had better be careful of who you whore me out to, I almost cost you a customer. George is an older man and I'm not sure about his heart. I think I almost – literally – fucked him to death." Report_Story #2 
+ "Get used to this you bastard. Your cock is sliding into sloppy seconds for the first time in our marriage and it is going to happen to you a lot from now on. It will be my gift to you every time you whore me out to someone. God it is such a turn on to be fucking another man while knowing that your husband sent you to do it. I got off big time knowing that you knew I was fucking George, that I was sucking his cock and taking him deep in my ass. I was an absolute whore for him. I sucked him off in the back of a cab; I fucked him in the men's room at Angelo's, I took him in my ass while bent over the rail of the balcony off his room where anyone who looked up could have seen me. God it was wild. He fucked me thirty minutes ago, just before he put me in a cab and sent me home. Can you feel him? Do you like the feeling of your cock soaking in another man's juices? It feels so wicked to fuck you only thirty minutes after another man fucked me. But you had better be careful of who you whore me out to, I almost cost you a customer. George is an older man and I'm not sure about his heart. I think I almost – literally – fucked him to death."  
 
  
 

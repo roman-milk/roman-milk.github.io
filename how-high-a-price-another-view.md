@@ -234,7 +234,7 @@
 
  "Why?" Early asked. 
 
- "As a witness that you didn't do any harm to her after you confronted her?" Wells asked. Report_Story #2 
+ "As a witness that you didn't do any harm to her after you confronted her?" Wells asked.  
 
  
 

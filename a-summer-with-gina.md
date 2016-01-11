@@ -220,7 +220,7 @@
 
  The call came and, after telling Gina the place was hers, I took Buster upstairs. A few minutes later I had to place a calming hand on the dog's head when he heard the front door open, his more sensitive hearing picking up the sounds of entry. Not long afterwards, with the dog calmed by my touch, I was able to make out muffled voices coming to us from the floor below. 
 
- Buster settled, adopting his usual recumbent position -- that dog would sleep his life away if he had the chance. Report_Story #2 
+ Buster settled, adopting his usual recumbent position -- that dog would sleep his life away if he had the chance.  
 
  
 
@@ -416,7 +416,7 @@
 
  "Lift me," the girl gurgled, looking at the man once again. "Use your arms. Lift me up and down on it. Fuck me." 
 
- I vaguely wondered how much strength it would take to satisfy the girl's demand when the young man complied with Gina's instruction. Not much, probably; she was only tiny, and it seemed to be well within the boy's capabilities. Report_Story #3 
+ I vaguely wondered how much strength it would take to satisfy the girl's demand when the young man complied with Gina's instruction. Not much, probably; she was only tiny, and it seemed to be well within the boy's capabilities.  
 
  
 
@@ -706,7 +706,7 @@
 
  "...I've been excited since I saw you in the park," I finished. 
 
- Gina got vocal, moaning and gasping, her hand moving rapidly as the sobs rose from her chest. She sat on the carpet in front of me and leaned back against one straight arm, feet coming up from the floor, hips jerking while her body squelched around those probing digits. Report_Story #4 
+ Gina got vocal, moaning and gasping, her hand moving rapidly as the sobs rose from her chest. She sat on the carpet in front of me and leaned back against one straight arm, feet coming up from the floor, hips jerking while her body squelched around those probing digits.  
 
  
 
@@ -992,7 +992,7 @@
 
  Fortunately she was so slightly built that it was no real effort to take her weight, and while her constant wriggling threatened to unbalance us both, I held on tight and managed to manoeuvre us closer to the fence. 
 
- After that, with Gina holding onto me with one arm still curled around my neck, her other hand clutching the wooden horizontal support on the fence, I could then concentrate on keeping the pair of us upright while savouring the exquisite moment. Report_Story #5 
+ After that, with Gina holding onto me with one arm still curled around my neck, her other hand clutching the wooden horizontal support on the fence, I could then concentrate on keeping the pair of us upright while savouring the exquisite moment.  
 
  
 
@@ -1236,7 +1236,7 @@
 
  It ended with me crying out in delight, semen pumping into Gina while Claire clawed at the bed and bellowed she was coming as well. It felt like the stuff would never stop pouring out, my orgasm rocking me while Gina mumbled and babbled about everything she was experiencing in that moment. 
 
- That climax saw my involvement over for the time being. The two ladies carried on while all I could do was sit there, cock drooping and oozing cum, transfixed by the sight of Claire fingering Gina's gloopy opening. Report_Story #6 
+ That climax saw my involvement over for the time being. The two ladies carried on while all I could do was sit there, cock drooping and oozing cum, transfixed by the sight of Claire fingering Gina's gloopy opening.  
 
  
 

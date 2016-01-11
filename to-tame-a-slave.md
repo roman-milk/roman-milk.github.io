@@ -64,7 +64,7 @@
 
  "What?" 
 
- I never found out if he answered or not, because the next moment my vision began to go dim again, and then everything was black. Report_Story #1 
+ I never found out if he answered or not, because the next moment my vision began to go dim again, and then everything was black.  
 
  
 
@@ -140,7 +140,7 @@
 
  Once in a while, the orc would look at me for a very long period, appearing to be thinking. Every day that passed with me quiet, every day that I didn't have an outburst, or flinch at his leer, or snap at the people around me, his stare became more worried. 
 
- But by the end of the week, I just didn't care anymore. Report_Story #1 
+ But by the end of the week, I just didn't care anymore.  
 
  
 
@@ -320,7 +320,7 @@
 
  -- 
 
- My dreams that night were strange, involving a man and a woman, her with pink hair that I was insanely jealous of, and they seemed to be discussing magic. It flipped then through various scenes I couldn't understand, a man and woman in armor, children who seemed way more powerful than they appeared, a pleasure house full of strange and fantastical creatures, and finally, a man. The scene started with him sitting at a table, reading a book that he held in his lap. His head was turned down and his silver hair fell around his face, further obscuring my view. As I watched, beautiful white and silver wings extended from his back, moving as if they had a mind of their own. His head slowly swung up, and I was pierced by the clearest blue eyes I had every seen. Report_Story #2 
+ My dreams that night were strange, involving a man and a woman, her with pink hair that I was insanely jealous of, and they seemed to be discussing magic. It flipped then through various scenes I couldn't understand, a man and woman in armor, children who seemed way more powerful than they appeared, a pleasure house full of strange and fantastical creatures, and finally, a man. The scene started with him sitting at a table, reading a book that he held in his lap. His head was turned down and his silver hair fell around his face, further obscuring my view. As I watched, beautiful white and silver wings extended from his back, moving as if they had a mind of their own. His head slowly swung up, and I was pierced by the clearest blue eyes I had every seen.  
 
  
 
@@ -328,7 +328,7 @@
 
  My eyes blinked open slowly, squinting into the harsh sunlight. 
 
- "Are you aware that sleeping next to you is like sleeping on a bonfire?" Drell grumbled. I sighed. This was going to be a very long day. Report_Story #1 
+ "Are you aware that sleeping next to you is like sleeping on a bonfire?" Drell grumbled. I sighed. This was going to be a very long day.  
 
  
 
@@ -504,7 +504,7 @@
 
  His chest shook with laughter. "I think I can work with that, little human." I pinched him, hard, but it only made him laugh more. "I'm going to have to find a new endearment for you. But for now, I imagine you want a bath." 
 
- At the thought of a bath, I nearly kissed him, but before the urge took over, my stomach rumbled, loud enough to startle us both. Report_Story #2 
+ At the thought of a bath, I nearly kissed him, but before the urge took over, my stomach rumbled, loud enough to startle us both.  
 
  
 
@@ -512,7 +512,7 @@
 
  "I'll return in a few minutes with some food, and then we can draw you a bath." He left then, and I flopped across the incredibly comfortable bed. 
 
- "At least you're not in an actual cage anymore," I sighed, eyes slipping shut. I was asleep well before my new owner returned. Report_Story #1 
+ "At least you're not in an actual cage anymore," I sighed, eyes slipping shut. I was asleep well before my new owner returned.  
 
  
 
@@ -706,7 +706,7 @@
 
  After a moment, I pushed away from him, nearly stumbling but catching myself before his hands could reach for me. 
 
- "Shall I show you to a more pleasing room?" He didn't bother concealing the amusement on his face, so I simply nodded. There was no way I could verbally respond without swearing. Report_Story #2 
+ "Shall I show you to a more pleasing room?" He didn't bother concealing the amusement on his face, so I simply nodded. There was no way I could verbally respond without swearing.  
 
  
 
@@ -810,7 +810,7 @@
 
  I shook my head firmly. "N-no!" My voice trembled, making my words sound uncertain, and he responded with a low laugh. Those fingers delved between my lips, continuing to rub without any real pressure, making me bite my lip against a whimper. They slowly increased pressure, one long finger slipping inside of me, rubbing against my walls. Another finger slid in with the first, unerringly finding my g-spot and curling his fingers into it. They teased and rubbed until I was writhing, the teeth in my lip nearly drawing blood as I resisted giving in and begging. His fingers uncurled, and he began to pump them hard and fast, drawing a cry from my lips as I came quickly, my body arching and tense. 
 
- His fingers slowed down until they were resting inside of me, and then simply rubbing lightly along my lips, allowing me to gently come down and relax. "Good girl," he whispered in my ear, kissing it and removing his hand, wrapping it around my waist instead. My leg was released and nudged forward so that I could curl up more comfortably, too exhausted to push away. He hummed soothingly, arm drawing me against him so that I was melded into his front, his warmth and voice lulling me into a deep sleep. Report_Story #1 
+ His fingers slowed down until they were resting inside of me, and then simply rubbing lightly along my lips, allowing me to gently come down and relax. "Good girl," he whispered in my ear, kissing it and removing his hand, wrapping it around my waist instead. My leg was released and nudged forward so that I could curl up more comfortably, too exhausted to push away. He hummed soothingly, arm drawing me against him so that I was melded into his front, his warmth and voice lulling me into a deep sleep.  
 
  
 
@@ -982,7 +982,7 @@
 
  "That sounds excellent," I responded, smiling up at him. He returned it, and those damned butterflies in my stomach started to flit around again. 
 
- Lunch passed uneventfully. His garden was small, but quite pretty, with a number of bushes and flowers that I'd never seen before. Tucked away in a small alcove was a beautifully wrought iron table with matching chairs. At the center of the garden was a lovely statue, surrounded by a fish pond. The statue was of a young woman, exact age indeterminate, wearing flowing robes and holding a couple of books under her arm. I questioned Anthony about it, and he informed me that it was a statue of Knowledge, one of the deities he worshipped. When I asked why it wasn't of Life, who'd resurrected him, he laughed and told me that while she was important, she was too hard and fierce of a woman to fit with such a soft and pretty garden. The rest of our time was spent chatting about his home here, his home in the country, the marketplace, and other nobles who lived in the area. It was informative and interesting, but I probably wouldn't remember most of it later. Report_Story #2 
+ Lunch passed uneventfully. His garden was small, but quite pretty, with a number of bushes and flowers that I'd never seen before. Tucked away in a small alcove was a beautifully wrought iron table with matching chairs. At the center of the garden was a lovely statue, surrounded by a fish pond. The statue was of a young woman, exact age indeterminate, wearing flowing robes and holding a couple of books under her arm. I questioned Anthony about it, and he informed me that it was a statue of Knowledge, one of the deities he worshipped. When I asked why it wasn't of Life, who'd resurrected him, he laughed and told me that while she was important, she was too hard and fierce of a woman to fit with such a soft and pretty garden. The rest of our time was spent chatting about his home here, his home in the country, the marketplace, and other nobles who lived in the area. It was informative and interesting, but I probably wouldn't remember most of it later.  
 
  
 

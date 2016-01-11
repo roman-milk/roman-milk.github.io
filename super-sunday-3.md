@@ -266,7 +266,7 @@
 
  Suddenly, out of nowhere, she pulled her fingers out of my pussy and slid a wet finger of hers in my ass. 
 
- She began tapping on my clit with her other hand as she fingered my ass. Also out of nowhere she began to talk nasty. "Come for me baby, come like the little lesbian slut you have always wanted to be. You have wanted to be my little lez pet forever, haven't you slut. You are my slut, my pretty lesbian slut. Now come for me, now!" Report_Story #2 
+ She began tapping on my clit with her other hand as she fingered my ass. Also out of nowhere she began to talk nasty. "Come for me baby, come like the little lesbian slut you have always wanted to be. You have wanted to be my little lez pet forever, haven't you slut. You are my slut, my pretty lesbian slut. Now come for me, now!"  
 
  
 

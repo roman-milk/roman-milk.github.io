@@ -186,7 +186,7 @@
 
  "You like the smell, eh, bitch?" asked Angelo into her ear as her eyes began watering from the vapor. 
 
- "Hey, she looks like the girl in the Evinrude poster!" said Billy. Report_Story #2 
+ "Hey, she looks like the girl in the Evinrude poster!" said Billy.  
 
  
 
@@ -402,7 +402,7 @@
 
  They rested against her as they let their cocks shrink inside her and she huffed their odor like a junkie attempting to prolong a fix. But finally they stepped back and Jodi was left hanging alone. She could feel their cum dripping out of her and saw that Wally and Billy were smeared with grease rubbed from her body. She was filthy; as dirty as a girl could be. And she loved it. 
 
- The brothers began the anticlimactic process of unwrapping her limps and easing her down. She was too physically devastated to stand, so she sank to the floor. Looking down she saw the pearly puddle of jism that had accumulated beneath where she had hung. She looked up at Billy, then at Wally. Without a word she brought her face down to lap the spent sperm from the shop floor. Report_Story #3 
+ The brothers began the anticlimactic process of unwrapping her limps and easing her down. She was too physically devastated to stand, so she sank to the floor. Looking down she saw the pearly puddle of jism that had accumulated beneath where she had hung. She looked up at Billy, then at Wally. Without a word she brought her face down to lap the spent sperm from the shop floor.  
 
  
 

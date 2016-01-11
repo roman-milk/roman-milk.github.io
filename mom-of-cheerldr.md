@@ -124,7 +124,7 @@
 
  What followed was the most enthralling yet suspenseful event of her entire life. Her submission would be forever etched on the innermost part of her very being and lay there to torment her soul forever. Dani got into her car and started the engine. She remained completely motionless and merely let the car idle, as her mind contemplated all of the possibilities. Ken listened and even chuckled out loud when the car remained in his driveway. He stood behind the front door and waited for the sound of feathery footsteps. 
 
- Dani's shoulders sort of slumped and she shut off the car in a definite sign of defeat. She slowly got out and virtually pushed the door closed rather than make any noise. Her legs wobbled, which made it difficult to walk up the sidewalk to the petrifying house. The door opened before she reached the doorbell and thankfully the warm expression on Ken's rugged face made her feel he wasn't gloating over her downfall. Report_Story #2 
+ Dani's shoulders sort of slumped and she shut off the car in a definite sign of defeat. She slowly got out and virtually pushed the door closed rather than make any noise. Her legs wobbled, which made it difficult to walk up the sidewalk to the petrifying house. The door opened before she reached the doorbell and thankfully the warm expression on Ken's rugged face made her feel he wasn't gloating over her downfall.  
 
  
 
@@ -274,7 +274,7 @@
 
  Sweat covered her body and she wasn't able to move. Ken released her beaten clitoris, which felt raw and swollen, and immediately rolled on top of her outstretched torso. He pressed his knees between her legs and managed to spread them wide. His hips dropped into the empty space and Dani shivered wildly when she felt something poking her crotch. 
 
- "Dear gawd, no, please you can't. I've never... never... nev...," she pleaded. Dani wanted to tell the man that she was a loving, faithful wife who had never strayed. Somehow the remarks didn't seem relevant. She felt her puffy labia spread and the man's dexterity amazed her. Dani twisted and jerked her hips trying to evade Ken's thrust, but that only enabled him to insert the head of his monster into her opening. Report_Story #3 
+ "Dear gawd, no, please you can't. I've never... never... nev...," she pleaded. Dani wanted to tell the man that she was a loving, faithful wife who had never strayed. Somehow the remarks didn't seem relevant. She felt her puffy labia spread and the man's dexterity amazed her. Dani twisted and jerked her hips trying to evade Ken's thrust, but that only enabled him to insert the head of his monster into her opening.  
 
  
 
@@ -398,7 +398,7 @@
 
  "Go. Tell her that your tryout was terrific... that you're coming home with me for some extra lessons," Sarah said. 
 
- Julie glanced back at her coach and noticed a big smile of satisfaction on the woman's face. She fully realized that there was no way to refuse the implied invitation for more illicit encounters and her stomach churned with a little panic. "Yes... I better before she has a heart attach," Julie whispered, as she recalled the earlier incident following her tryout. Report_Story #4 
+ Julie glanced back at her coach and noticed a big smile of satisfaction on the woman's face. She fully realized that there was no way to refuse the implied invitation for more illicit encounters and her stomach churned with a little panic. "Yes... I better before she has a heart attach," Julie whispered, as she recalled the earlier incident following her tryout.  
 
  
 
@@ -508,7 +508,7 @@
 
  THE END 
 
- This is the end of chapter one, but as you can hopefully determine from the story, there will be more from Ken and Sarah. I do appreciate feedback so please send your comments to me. Report_Story #1 
+ This is the end of chapter one, but as you can hopefully determine from the story, there will be more from Ken and Sarah. I do appreciate feedback so please send your comments to me.  
 
  
 
@@ -678,7 +678,7 @@
 
  Dani tried hard to control her breathing and to stop her tummy from heaving. The dark eyes glared at her and demanded she answer. "Yes, Mistress. I'll wait." 
 
- Her body stopped moving and Sarah knew it was time to renew her assault. She yanked the swollen clit out of the hideaway and twirled it around and around as vigorously as she could. "Good girl. Do you know you didn't have to have sex with Mr. Kristy? Julie would have made the team without your interfering." Report_Story #2 
+ Her body stopped moving and Sarah knew it was time to renew her assault. She yanked the swollen clit out of the hideaway and twirled it around and around as vigorously as she could. "Good girl. Do you know you didn't have to have sex with Mr. Kristy? Julie would have made the team without your interfering."  
 
  
 
@@ -826,7 +826,7 @@
 
  "Mi... Mis... Mistress," Dani whispered. "Finger me, please finger me, Mistress." 
 
- Julie had never acted dominant or in any way to overpower anyone in her life. Suddenly she was filled with confidence and a willingness to please her coach. What daughter didn't want to rebel against her mother? Without being told, Julie leaned over and sucked one of the illustrious nipples and marveled at how wonderful the bud felt inside her mouth. She toyed with the hard nipple with her tongue and then switched over to the neglected one until it too was fully erect. Report_Story #3 
+ Julie had never acted dominant or in any way to overpower anyone in her life. Suddenly she was filled with confidence and a willingness to please her coach. What daughter didn't want to rebel against her mother? Without being told, Julie leaned over and sucked one of the illustrious nipples and marveled at how wonderful the bud felt inside her mouth. She toyed with the hard nipple with her tongue and then switched over to the neglected one until it too was fully erect.  
 
  
 
@@ -984,7 +984,7 @@
 
  Sarah stared in wonderment at the demanding cheerleaders who stripped their clothes and each donned a black leather outfit and one of the large strapon cocks. When Katie rubbed a dildo all over Dani's arm and shoulder, Jill did the same to Dani's other side. The compelling seduction sent shivers through Sarah and also Julie who was mesmerized by her teammates' planned dominance. 
 
- Dani forgot all about the harsh pain until Katie tugged on one of her swollen nipples. The girl slowly removed the nipple clamps and then the one on her clit, which sent waves of great relief through Dani's brain. Katie untied the ropes binding her ankles and arms to the chair, but left her hands tied behind her back. Dani welcomed the temporary freedom, but it didn't last long. Report_Story #4 
+ Dani forgot all about the harsh pain until Katie tugged on one of her swollen nipples. The girl slowly removed the nipple clamps and then the one on her clit, which sent waves of great relief through Dani's brain. Katie untied the ropes binding her ankles and arms to the chair, but left her hands tied behind her back. Dani welcomed the temporary freedom, but it didn't last long.  
 
  
 
@@ -1126,7 +1126,7 @@
 
  The fourth orgasm was the most memorable. It was the very first time Dani experienced anal sex and Katie brazenly made it happen. At the time Dani never realized what was in store for her when she was ordered to sit on top of an outstretched Katie. The intimidating strapon was held straight up in the air and Dani assumed she was supposed to sit on top of the menacing cock to experience the final orgasm. 
 
- When she precariously sat above of the cock, Dani momentarily held the cock head directly touching her open slit. She faced away from the girl and was about to lower her torso and penetrate her opening with the cock when the two cheerleaders took over. They shifted her torso forward and Katie positioned the tip of the cock at the unspoiled backdoor. Dani tried to twist around and protest to the girl just as something fierce exploded in her head. Report_Story #5 
+ When she precariously sat above of the cock, Dani momentarily held the cock head directly touching her open slit. She faced away from the girl and was about to lower her torso and penetrate her opening with the cock when the two cheerleaders took over. They shifted her torso forward and Katie positioned the tip of the cock at the unspoiled backdoor. Dani tried to twist around and protest to the girl just as something fierce exploded in her head.  
 
  
 
@@ -1170,7 +1170,7 @@
 
  THE END 
 
- I plan on posting at least one more chapter so if you have any comments or suggestions, please email me. As you may notice, Danica's life will change drastically in the next chapter. Report_Story #1 
+ I plan on posting at least one more chapter so if you have any comments or suggestions, please email me. As you may notice, Danica's life will change drastically in the next chapter.  
 
  
 
@@ -1300,7 +1300,7 @@
 
  Dani was totally distraught. What alternative did she have, she wondered, as having sex with all of the men was too demoralizing? She closed her eyes and tried to fantasize about being alone and not with a bunch of savages. "Oh gawd, oh gawd." 
 
- Dani felt hands touching her all over and she would have been thoroughly amazed if she could see herself. Her body bounced freely up and down on Ken's lap and her boobs were a sea of furious motion. Her nipples were free game to anyone who was brave enough to grope and so was the rest of her body. She would never know how her arm got free. Suddenly her hand was between her legs and she was determined to find utopia in an effort to satisfy Ken's depraved demands. Report_Story #2 
+ Dani felt hands touching her all over and she would have been thoroughly amazed if she could see herself. Her body bounced freely up and down on Ken's lap and her boobs were a sea of furious motion. Her nipples were free game to anyone who was brave enough to grope and so was the rest of her body. She would never know how her arm got free. Suddenly her hand was between her legs and she was determined to find utopia in an effort to satisfy Ken's depraved demands.  
 
  
 
@@ -1436,7 +1436,7 @@
 
  Sarah grinned and waved her hand at the attire. "You look lovely... very sexy. We're going to the mall and do some shopping." 
 
- Dani let out a moan of despair when she realized they were going out in public and she would be brazenly showing her boobs. To make matters worse, her nipples remained incensed due to the unfamiliar situation and the erect buds would be very hard to miss. The one saving grace was Sarah allowing her to wear a jacket, which thankfully covered up the fact she was braless and exposed. Report_Story #3 
+ Dani let out a moan of despair when she realized they were going out in public and she would be brazenly showing her boobs. To make matters worse, her nipples remained incensed due to the unfamiliar situation and the erect buds would be very hard to miss. The one saving grace was Sarah allowing her to wear a jacket, which thankfully covered up the fact she was braless and exposed.  
 
  
 
@@ -1642,7 +1642,7 @@
 
  "You're his slut... cumming all over his dick like a slut." 
 
- Sarah squeezed the clit harder and twisted for all she was worth. Dani couldn't keep her chest up any longer and she collapsed. Her body rocked back and forth as if rolling on top of her big boobs and the assault went on forever. Report_Story #4 
+ Sarah squeezed the clit harder and twisted for all she was worth. Dani couldn't keep her chest up any longer and she collapsed. Her body rocked back and forth as if rolling on top of her big boobs and the assault went on forever.  
 
  
 
@@ -1680,7 +1680,7 @@
 
  THE END 
 
- I plan on posting at least one more chapter so if you have any comments or suggestions, please email me. Thanks to a couple of devoted readers who have sent me suggestions that will be included in chapter four. As you may notice, Danica's humiliation will continue. Report_Story #1 
+ I plan on posting at least one more chapter so if you have any comments or suggestions, please email me. Thanks to a couple of devoted readers who have sent me suggestions that will be included in chapter four. As you may notice, Danica's humiliation will continue.  
 
  
 
@@ -1918,7 +1918,7 @@
 
  ***Backseat sex 
 
- Dani realized her life was being controlled not only by the devious coach, but also by her daughter. Two weeks passed and every emotion under the sun went through her head, as she felt overwhelmed by what had happened. At first there was relief that the traumatizing time was over, but then anxiety hit as she contemplated what Sarah and Julie might do to her. It took two weeks before she felt well enough to go out by herself and by then the fear had somehow changed into a longing or strange desire to be under the control of the powerful Sarah. Report_Story #2 
+ Dani realized her life was being controlled not only by the devious coach, but also by her daughter. Two weeks passed and every emotion under the sun went through her head, as she felt overwhelmed by what had happened. At first there was relief that the traumatizing time was over, but then anxiety hit as she contemplated what Sarah and Julie might do to her. It took two weeks before she felt well enough to go out by herself and by then the fear had somehow changed into a longing or strange desire to be under the control of the powerful Sarah.  
 
  
 
@@ -2106,7 +2106,7 @@
 
  ***Shower room with teenage girls 
 
- Every year the university offered a weekend training session to local high school cheerleading teams. Sarah didn't mind spending a couple of days on these sessions because they paid dividends, as some of the girls continued on to become members of the university's squad. No more than ten minutes into the first hour and Sarah recognized one of the high school cheerleaders was different. Not in a weird way, but along the same orientation as herself and Sarah formed an instant bond with the girl. What made the chance encounter even more unique was when the girl put her faith and trust in Sarah by explaining her most secret emotions. Report_Story #3 
+ Every year the university offered a weekend training session to local high school cheerleading teams. Sarah didn't mind spending a couple of days on these sessions because they paid dividends, as some of the girls continued on to become members of the university's squad. No more than ten minutes into the first hour and Sarah recognized one of the high school cheerleaders was different. Not in a weird way, but along the same orientation as herself and Sarah formed an instant bond with the girl. What made the chance encounter even more unique was when the girl put her faith and trust in Sarah by explaining her most secret emotions.  
 
  
 
@@ -2254,7 +2254,7 @@
 
  THE END 
 
- I am considering another chapter so please send me requests if you wish to see more. Report_Story #1 
+ I am considering another chapter so please send me requests if you wish to see more.  
 
  
 
@@ -2422,7 +2422,7 @@
 
  Since a person's eyesight was likely the most vital sense, any communication would prove difficult in a pitch-black room because they couldn't see a thing for the entire hour. They were required to use their sense of feel, touch, hearing, smell and of course speech to converse with each other. The person in the room waiting for the rookie was normally one of the members of the cheerleading team, usually one of the senior girls, but Sarah shrewdly made an exception this year. 
 
- Sarah arranged for Julia and Dayna's initiation to be with two of the senior girls while she scheduled Lara's mystery date to be with Dani. Both Sarah and Julie were extremely excited to break the news to Julie's mother. Immediately after the last performance, the coach and daughter rushed back to see Dani at the hotel room. Dani was worn to a frazzle as she waited and fretted hours for the return of the dominating pair. Report_Story #2 
+ Sarah arranged for Julia and Dayna's initiation to be with two of the senior girls while she scheduled Lara's mystery date to be with Dani. Both Sarah and Julie were extremely excited to break the news to Julie's mother. Immediately after the last performance, the coach and daughter rushed back to see Dani at the hotel room. Dani was worn to a frazzle as she waited and fretted hours for the return of the dominating pair.  
 
  
 
@@ -2574,7 +2574,7 @@
 
  "Look at the nipples... they're so big... bloody huge," Julie replied. 
 
- Lara stared into the teary eyes. "That's it, my love. Cry! I want to see your tears and then I want to watch you cum," she whispered ever so softly. "Will you cum for me?" Report_Story #3 
+ Lara stared into the teary eyes. "That's it, my love. Cry! I want to see your tears and then I want to watch you cum," she whispered ever so softly. "Will you cum for me?"  
 
  
 
@@ -2722,7 +2722,7 @@
 
  "Good girl. Now put your fingers around Andrew's cock. Feel the cock that is going to make you a real woman," Wendy said. "You are going to make Mistress very happy." 
 
- Her fingers were perfectly straight when the cock brushed against the palm of hand, but then they curled around the thick shaft. Without looking, the woman reached to the side and waved her whip in Julie's face, but she didn't take her eyes off Dani. "Strip! Take off all your clothes, my pet, before I get mad," she stated in a clear concise voice. "I want my pet ready when I'm finished with mommy." Report_Story #4 
+ Her fingers were perfectly straight when the cock brushed against the palm of hand, but then they curled around the thick shaft. Without looking, the woman reached to the side and waved her whip in Julie's face, but she didn't take her eyes off Dani. "Strip! Take off all your clothes, my pet, before I get mad," she stated in a clear concise voice. "I want my pet ready when I'm finished with mommy."  
 
  
 
@@ -2926,7 +2926,7 @@
 
  Andy slammed his hips at Dani and thrust his cock to the hilt. Dani was on her tiptoes and she felt the threatening beat of the blood surging through the man's erection. She could feel Andy's heartbeat through his pecker and the dangerous situation made her sweat. "No, please make him stop." 
 
- "He will, my love, right after you show Mistress that you're her loyal slave," Wendy said and smiled at the distraught woman. "Orgasm for Mistress." Report_Story #5 
+ "He will, my love, right after you show Mistress that you're her loyal slave," Wendy said and smiled at the distraught woman. "Orgasm for Mistress."  
 
  
 

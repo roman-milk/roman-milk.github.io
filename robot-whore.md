@@ -128,7 +128,7 @@
 
  Bob contacted the supplier for more details on the new model but on the other side of the planet it was night so all he could manage to raise was the help line. "If it is an emergency I can put you through to the duty officer." The computer responded. It was no use reasoning with a computer even to a sophisticated model that could solve problems with questions and answers. 
 
- He would have to wait until it was morning over there. He didn't have the new model reference and it didn't seem to be on their records or on the delivery note. Without a model number there wasn't much chance of getting its specifications. He dare not put it to work without knowing what it was capable of. If it hurt someone there would be trouble, maybe even loss of business revenue. On the other hand if it turned out to be a popular model then extra charges could be levered out of the customers. Report_Story #2 
+ He would have to wait until it was morning over there. He didn't have the new model reference and it didn't seem to be on their records or on the delivery note. Without a model number there wasn't much chance of getting its specifications. He dare not put it to work without knowing what it was capable of. If it hurt someone there would be trouble, maybe even loss of business revenue. On the other hand if it turned out to be a popular model then extra charges could be levered out of the customers.  
 
  
 

@@ -278,7 +278,7 @@
 
  "Is big brother going to fuck his sister's assssss?" She asked, playing along, as I began pushing forward and slowly breaking past her tight anal entrance. 
 
- "Does baby sister like her brother's cock in her back door?" I asked, stunned by the warmth as I slowly pushed deeper inside her ass. Report_Story #2 
+ "Does baby sister like her brother's cock in her back door?" I asked, stunned by the warmth as I slowly pushed deeper inside her ass.  
 
  
 

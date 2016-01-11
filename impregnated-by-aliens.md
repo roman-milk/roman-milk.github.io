@@ -258,7 +258,7 @@
 
  In her room she experimented with the device, breaking off for a meal occasionally. Feeling tired she watched an old movie. All the worlds channels were available, as well as a ships archive. Eventually she dozed, awakening with a start, hoping she hadn't missed the meeting. 
 
- Mary had only been governor for a few weeks, but was used to being reminded and guided from meeting to meeting. It had been the same in business, and on the campaign trail. Report_Story #2 
+ Mary had only been governor for a few weeks, but was used to being reminded and guided from meeting to meeting. It had been the same in business, and on the campaign trail.  
 
  
 

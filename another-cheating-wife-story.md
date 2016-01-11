@@ -402,7 +402,7 @@
 
  As I wander through my house, everything reminds me of what a wonderful marriage I had. It's all gone now. I know in my heart that Eric will never be here with me again. My whole world has crashed around me and it's all my fault. 
 
- Just as I pour another cup of coffee I hear a car pull into the driveway. This isn't going to be pretty. I'm sure they talked to Eric and know what I did. Report_Story #2 
+ Just as I pour another cup of coffee I hear a car pull into the driveway. This isn't going to be pretty. I'm sure they talked to Eric and know what I did.  
 
  
 
@@ -696,7 +696,7 @@
 
  ******************* 
 
- For the next few months Tina and I got together every weekend. We almost succeeded in fucking each other to death. She was way more woman than I could handle. I never asked what she did during the week and she never told me. I didn't think she was seeing anyone else. I'm not sure how I would have reacted if she was. Report_Story #3 
+ For the next few months Tina and I got together every weekend. We almost succeeded in fucking each other to death. She was way more woman than I could handle. I never asked what she did during the week and she never told me. I didn't think she was seeing anyone else. I'm not sure how I would have reacted if she was.  
 
  
 

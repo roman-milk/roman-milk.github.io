@@ -252,7 +252,7 @@
 
  We had to use some of my hand lotion for lube, but it got the job done. 
 
- We showered together and once his cock was clean I tried to suck him hard again, but given the BJ when we first arrived and the three times before the shower he was done. We fell asleep snuggled up with each other. Report_Story #2 
+ We showered together and once his cock was clean I tried to suck him hard again, but given the BJ when we first arrived and the three times before the shower he was done. We fell asleep snuggled up with each other.  
 
  
 
@@ -526,7 +526,7 @@
 
  "I'm a fairly open minded guy. I like what we did on our last trip too." 
 
- "Just how open minded are you? Bear in mind I have no intention of giving up my job and you already know that you don't always go on all my trips with me. Could you handle seeing me go off for two or three days with Mike or someone else from the department knowing full well what would likely happen? How about once I'm divorced and I don't have to limit myself to out of town trips? What if neither of you went with me and I wanted to pick up some guy in the hotel lounge?" Report_Story #3 
+ "Just how open minded are you? Bear in mind I have no intention of giving up my job and you already know that you don't always go on all my trips with me. Could you handle seeing me go off for two or three days with Mike or someone else from the department knowing full well what would likely happen? How about once I'm divorced and I don't have to limit myself to out of town trips? What if neither of you went with me and I wanted to pick up some guy in the hotel lounge?"  
 
  
 

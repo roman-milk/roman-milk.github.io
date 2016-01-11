@@ -160,7 +160,7 @@
 
  'Come here you bastard.' She growled. 'I want to suck your big cock.' 
 
- I stood next to the bed and Mrs Ramsey sat on the edge, her face inches from my hard prick as it jutted at an acute angle from my body. 'Fuck it's lovely.' She purred. 'So thick and veiny, I do love cocks that are veiny and knobbly, they're just my favourite,' she said as she took my member in hand once more. Report_Story #2 
+ I stood next to the bed and Mrs Ramsey sat on the edge, her face inches from my hard prick as it jutted at an acute angle from my body. 'Fuck it's lovely.' She purred. 'So thick and veiny, I do love cocks that are veiny and knobbly, they're just my favourite,' she said as she took my member in hand once more.  
 
  
 

@@ -230,7 +230,7 @@
 
  It only took me a few seconds to line up behind her, and sink my cock to the root. She gasped, and purred like a kitten when I started fucking her slowly. Any thoughts of impropriety or inappropriateness disappeared out the door. I fucked that little blonde bombshell like my life depended on it. Her first sweet orgasm made me feel like a god. I had her on her back, driving it home, when her second hit, in between a series of gasped "Oh-my-god!s." 
 
- I slowed down, never wanting to stop, and feasted on her incredible tits. Then I moved down further and had a tasted of that teen slice, until I had her screaming my name. "Adam!" she shrieked, over and over again, clutching my head. Report_Story #2 
+ I slowed down, never wanting to stop, and feasted on her incredible tits. Then I moved down further and had a tasted of that teen slice, until I had her screaming my name. "Adam!" she shrieked, over and over again, clutching my head.  
 
  
 
@@ -492,7 +492,7 @@
 
  She leaned in and gave me a quick kiss. "Later then. Maybe you'll save a dance for me tomorrow night." 
 
- Tina was giving me the stink eye when my visitor got up. I think young Tina was as shocked as me when the sultry redhead caressed her shoulder in passing, leaning in to whisper something. My girl turned almost as red as our visitor's hair. Report_Story #3 
+ Tina was giving me the stink eye when my visitor got up. I think young Tina was as shocked as me when the sultry redhead caressed her shoulder in passing, leaning in to whisper something. My girl turned almost as red as our visitor's hair.  
 
  
 
@@ -804,7 +804,7 @@
 
  "Does it bother you?" Tina asked. "That me and Wendy ..." 
 
- Frankly, it did, a little. "It's ... I guess I'm just surprised." Report_Story #4 
+ Frankly, it did, a little. "It's ... I guess I'm just surprised."  
 
  
 

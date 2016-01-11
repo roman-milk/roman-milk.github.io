@@ -332,7 +332,7 @@
 
  Looking at the shiny face of her new pet, Janet smiled, "Oh you silly slut, we are just getting started." 
 
- As the black woman moved between her legs, Candace pointed out, "I can't have multiple orgasms." Report_Story #2 
+ As the black woman moved between her legs, Candace pointed out, "I can't have multiple orgasms."  
 
  
 
@@ -576,7 +576,7 @@
 
  Straight White Girls: Valedictorian (flashback story) 
 
- Black seductress dommes brilliant, but racist young lady Report_Story #1 
+ Black seductress dommes brilliant, but racist young lady  
 
  
 
@@ -778,7 +778,7 @@
 
  Janet had seen eager white pussy pleasers, had created quite a few herself through training, but none had been as obedient, eager and thorough as this white teacher. She knew she would be a long term pet addition and also knew she would obey and submit to her daughter if told to. Once her orgasm was done, she gently pushed the still licking pet away and asked, "Are your panties wet?" 
 
- Jasmine no longer the teacher of this woman's daughter, but rather the submissive pet of this black woman and feeling totally at home on her knees, and wanting to impress and shock her new Mistress answered with a playful smile, looking up from her submissive position, "My panties can't be wet." Report_Story #2 
+ Jasmine no longer the teacher of this woman's daughter, but rather the submissive pet of this black woman and feeling totally at home on her knees, and wanting to impress and shock her new Mistress answered with a playful smile, looking up from her submissive position, "My panties can't be wet."  
 
  
 
@@ -868,7 +868,7 @@
 
  As the white teacher pet again licked her, Janet smiled as she knew she would indeed be the best present ever for Bethany. 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -1184,7 +1184,7 @@
 
  Frustration riddled her. Everything Tamara said was a hundred percent correct. She knew this was wrong, that her daddy and husband would be mortified and disown her if they could see her at this moment, yet her body betrayed her and her mouth did water at the appetizing vagina in front of her. "Yes," she whispered meeker than a mouse. 
 
- "Yes, what?" Janet asked, loving this moment. The moment of admittance when the pretentious white bitch accepts and declares her new reality. The look in the white woman's eyes, one of confusion and insatiable lust, was always amusing. Report_Story #2 
+ "Yes, what?" Janet asked, loving this moment. The moment of admittance when the pretentious white bitch accepts and declares her new reality. The look in the white woman's eyes, one of confusion and insatiable lust, was always amusing.  
 
  
 
@@ -1438,7 +1438,7 @@
 
  Completely spent, Tammi couldn't fight her off if she tried, plus she wouldn't disobey Janet after all that had transpired today. Instead, she began licking her second pussy of the hour. 
 
- Janet said, as she slipped into her heels, "Tammi, you will not come until you bring me Carolyn. Once you do, you will be rewarded very generously." Report_Story #3 
+ Janet said, as she slipped into her heels, "Tammi, you will not come until you bring me Carolyn. Once you do, you will be rewarded very generously."  
 
  
 

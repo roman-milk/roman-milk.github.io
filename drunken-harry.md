@@ -164,7 +164,7 @@
 
  Yes, he slid. 
 
- I was wetter than I knew. My body and my mind had not been working together. My mind was saying "No, no, this can't happen" and my body was crying out "Give it to me, give it to me." It was happening and as reluctant as I had been once it started my body responded. I felt the tingling start in my core and I shoved myself back on Ken's cock and he laughed. Report_Story #2 
+ I was wetter than I knew. My body and my mind had not been working together. My mind was saying "No, no, this can't happen" and my body was crying out "Give it to me, give it to me." It was happening and as reluctant as I had been once it started my body responded. I felt the tingling start in my core and I shoved myself back on Ken's cock and he laughed.  
 
  
 
@@ -370,7 +370,7 @@
 
  Part of me wanted to holler "Nooooo, I want more, don't go" but fortunately the larger part of me was saying "Get your ass in gear and get ready for Harry to come home." As the group dressed Gary told me to shower and as I headed for the bathroom he was pulling the cum soaked sheet off the bed. Fortunately I had been smart enough to put a plastic sheet under the cotton sheet or the mattress cover and probably the mattress would have also been soaked. 
 
- As I made the bed I knew that there was no way I could let Harry make love to me that night. My pussy would be way too loose and my butthole wasn't likely to be much tighter. Luckily my period was due in a day or two and I could tell harry that it was my time of the month. But I would still take care of my man. I'd suck him until his eyes rolled back in his head and nothing but dust came out of his pecker. Report_Story #3 
+ As I made the bed I knew that there was no way I could let Harry make love to me that night. My pussy would be way too loose and my butthole wasn't likely to be much tighter. Luckily my period was due in a day or two and I could tell harry that it was my time of the month. But I would still take care of my man. I'd suck him until his eyes rolled back in his head and nothing but dust came out of his pecker.  
 
  
 

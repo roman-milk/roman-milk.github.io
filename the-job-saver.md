@@ -152,7 +152,7 @@
 
  "But that would be the same as telling me that he didn't care if he had to lock the doors or not." 
 
- "What can I say? Dad is old fashioned. He believes in honesty, ethics and in everything being above board. He isn't in tune with modern times. He is right in that his way is the way it should be done, but sadly, he is definitely in the minority. What are you going to do?" Report_Story #2 
+ "What can I say? Dad is old fashioned. He believes in honesty, ethics and in everything being above board. He isn't in tune with modern times. He is right in that his way is the way it should be done, but sadly, he is definitely in the minority. What are you going to do?"  
 
  
 

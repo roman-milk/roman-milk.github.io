@@ -162,7 +162,7 @@
 
  I took my mouth off Tony's cock and said, "What she just said goes for me too." 
 
- While he took off his shirt and shoes I dropped my skirt and panties and got on the bed. I still had on my thigh high nylons and high heels and I knew just how hot I looked as I spread myself for him. I was wet enough to float a battleship and Tony slid his cock into me with no trouble. My hands went to his ass and I dug my nails in and pulled him hard against me. "Oh baby, you are one hot bitch" he breathed into my ear and he was right. I was hot! I was as hot as any woman who had gone without sex for as long as I had. Report_Story #2 
+ While he took off his shirt and shoes I dropped my skirt and panties and got on the bed. I still had on my thigh high nylons and high heels and I knew just how hot I looked as I spread myself for him. I was wet enough to float a battleship and Tony slid his cock into me with no trouble. My hands went to his ass and I dug my nails in and pulled him hard against me. "Oh baby, you are one hot bitch" he breathed into my ear and he was right. I was hot! I was as hot as any woman who had gone without sex for as long as I had.  
 
  
 
@@ -442,7 +442,7 @@
 
  "I've been looking for a woman like you all my adult life. Let's go." 
 
- We left our booth, walked down the hallway to the restrooms, looked to make sure that no one was watching and ducked into the men's room. The door had a lock on it and he reached for it and I quickly said: Report_Story #3 
+ We left our booth, walked down the hallway to the restrooms, looked to make sure that no one was watching and ducked into the men's room. The door had a lock on it and he reached for it and I quickly said:  
 
  
 
@@ -658,7 +658,7 @@
 
  "That certainly is incentive for me to take the day off. Just me or would you like to have Terry there also?" 
 
- I had to think about that for a few seconds. Walter and Terry together would leave me pretty stretched out, but I should tighten up by Wednesday. Report_Story #4 
+ I had to think about that for a few seconds. Walter and Terry together would leave me pretty stretched out, but I should tighten up by Wednesday.  
 
  
 

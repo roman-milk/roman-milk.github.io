@@ -204,7 +204,7 @@
 
  'Beautiful,' Madison sighed and shook his head in wonder when Selena was fully nude in front of him. He was naked as well and sat in his seat and slowly ran his fist up and down the length of his cock. 
 
- She really was put together well, truly superb. Her legs were long and shapely. Her hips excitingly broad, he loved the shape of a woman's body, especially the broad hips and the sweep inwards to her waist. Selena's breasts were tight and round with sweet, coral pink tips that were slightly pointed upward. Report_Story #2 
+ She really was put together well, truly superb. Her legs were long and shapely. Her hips excitingly broad, he loved the shape of a woman's body, especially the broad hips and the sweep inwards to her waist. Selena's breasts were tight and round with sweet, coral pink tips that were slightly pointed upward.  
 
  
 
@@ -254,7 +254,7 @@
 
  As Selena shouted her pleasure, Madison felt his semen spurt from his cock. He groaned heavily and fell against Selena's body as his seed washed her womb. 
 
- He had found the girl. She was all he required and more. She would need careful handling perhaps, but he was confident that soon she could be persuaded to be his willing whore and he looked forward to the coming sexual adventures with relish. Report_Story #1 
+ He had found the girl. She was all he required and more. She would need careful handling perhaps, but he was confident that soon she could be persuaded to be his willing whore and he looked forward to the coming sexual adventures with relish.  
 
  
 
@@ -442,7 +442,7 @@
 
  Francesca used her hand to stroke Madison's long thick cock and watched her husband's face as he slid his erect penis into Selena's sex. 
 
- 'Fuck the little bitch, darling,' she hissed when the Ambassador groaned loudly. 'Fill her with your cock and fuck her… Tell me when you're going to come.' Report_Story #2 
+ 'Fuck the little bitch, darling,' she hissed when the Ambassador groaned loudly. 'Fill her with your cock and fuck her… Tell me when you're going to come.'  
 
  
 

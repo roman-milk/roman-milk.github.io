@@ -192,7 +192,7 @@
 
  "You have to promise me you'll come here tomorrow, and tell me everything, everything!" Barbara said, with a firm voice. She was older than her friend, who often confided in her, seeking advice. 
 
- "Yes sure. I will, I promise," Suzanne answered. She was worried because her friend hadn't promised not to tell anyone. Their conversation moved on to clothes and the local gossip. It took her mind off what had happened for short awhile. Report_Story #1 
+ "Yes sure. I will, I promise," Suzanne answered. She was worried because her friend hadn't promised not to tell anyone. Their conversation moved on to clothes and the local gossip. It took her mind off what had happened for short awhile.  
 
  
 
@@ -396,7 +396,7 @@
 
  "I'm just a little slut, your little slut, please sir," she whimpered. 
 
- James managed to awkwardly get onto the floor with her. He wrapped his arms around her, tensely gripping her frail frame. Her breasts were still lewdly on show, where he had pulled them free. He held them in one large hand, pushing them together, caressing them. He couldn't work out what had happened, why she was acting this way. He didn't care. Report_Story #2 
+ James managed to awkwardly get onto the floor with her. He wrapped his arms around her, tensely gripping her frail frame. Her breasts were still lewdly on show, where he had pulled them free. He held them in one large hand, pushing them together, caressing them. He couldn't work out what had happened, why she was acting this way. He didn't care.  
 
  
 

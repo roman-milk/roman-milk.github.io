@@ -224,7 +224,7 @@
 
  "Yes you may, Miranda Collington," I replied, using her name on camera. 
 
- Staring at the camera, she agreed, "Yes, I am Miranda Collington, and I would definitely say, it is really hot in here." She frantically rubbed herself before looking away from the camera and getting a devious smile. She quickly got up, grabbed an empty wine bottle from our drunken bender last night, and returned to her submissive position on the floor. Placing the bottle standing up, she asked me, her sexy smile so deviously naughty my cock began to stiffen again (truth be told it never really shrunk) and asked me, "May I fuck myself with this bottle, Master Curtis?" Report_Story #2 
+ Staring at the camera, she agreed, "Yes, I am Miranda Collington, and I would definitely say, it is really hot in here." She frantically rubbed herself before looking away from the camera and getting a devious smile. She quickly got up, grabbed an empty wine bottle from our drunken bender last night, and returned to her submissive position on the floor. Placing the bottle standing up, she asked me, her sexy smile so deviously naughty my cock began to stiffen again (truth be told it never really shrunk) and asked me, "May I fuck myself with this bottle, Master Curtis?"  
 
  
 
@@ -546,7 +546,7 @@
 
  We all drank to our New Year's Eve type resolution, each of us with different ideas of what new beginnings really meant. 
 
- A couple of cocktails later, we were all chatting about life, politics and when music stopped being good or original. We all agreed it was the end of the Eighties, when our flight was announced as boarding. Miranda called for one more round of shots which we quickly did, and in a bit of a daze headed for our flight. Report_Story #3 
+ A couple of cocktails later, we were all chatting about life, politics and when music stopped being good or original. We all agreed it was the end of the Eighties, when our flight was announced as boarding. Miranda called for one more round of shots which we quickly did, and in a bit of a daze headed for our flight.  
 
  
 
@@ -934,7 +934,7 @@
 
  "And Alexis you want to be able to fuck your son as you please and also submit to Ellie, correct?" 
 
- Mom looked at me, then to Ellie, her mind clearly riddled with doubt, something I had never seen on Mom in my whole life. "Yes, I think so," she finally admitted. Report_Story #4 
+ Mom looked at me, then to Ellie, her mind clearly riddled with doubt, something I had never seen on Mom in my whole life. "Yes, I think so," she finally admitted.  
 
  
 

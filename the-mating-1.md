@@ -266,7 +266,7 @@
 
  "I wonder if I have a baby in me. We should probably make sure. Don't you think?" 
 
- He picks her up and carries her inside. He puts her down and slowly takes her clothes off. He admires her beautiful body. She takes his off and holds his cock. It fills with blood and she shivers. He sits on the bed and takes her astride his lap. He lifts her and lets her down on his cock. She moans and cums. He kisses her nipples. Her head falls back and her mouth opens. Report_Story #2 
+ He picks her up and carries her inside. He puts her down and slowly takes her clothes off. He admires her beautiful body. She takes his off and holds his cock. It fills with blood and she shivers. He sits on the bed and takes her astride his lap. He lifts her and lets her down on his cock. She moans and cums. He kisses her nipples. Her head falls back and her mouth opens.  
 
  
 

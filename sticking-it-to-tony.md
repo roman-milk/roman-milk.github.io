@@ -204,7 +204,7 @@
 
  "Oh no you don't. I haven't thought of anything else for days" and she pulled me to her and kissed me. 
 
- I glanced at the table and saw Tony glaring at me, but I also saw half a dozen people who had seen Angela stop me and kiss me. So much for the preliminaries. The next step was to put Tony down. I had called in a favor from a friend who had a younger brother in college and he managed to score me some date rape drug and date rape drugs work just as well on men as they do on women. Tony had gone to the bathroom and Angela was out on the dance floor. I checked to make sure no one was watching and I laced Tony's drink. Tony had been drinking doubles for almost two hours and he was half in the bag all ready so the drug should put him down in fifteen or twenty minutes. Report_Story #2 
+ I glanced at the table and saw Tony glaring at me, but I also saw half a dozen people who had seen Angela stop me and kiss me. So much for the preliminaries. The next step was to put Tony down. I had called in a favor from a friend who had a younger brother in college and he managed to score me some date rape drug and date rape drugs work just as well on men as they do on women. Tony had gone to the bathroom and Angela was out on the dance floor. I checked to make sure no one was watching and I laced Tony's drink. Tony had been drinking doubles for almost two hours and he was half in the bag all ready so the drug should put him down in fifteen or twenty minutes.  
 
  
 

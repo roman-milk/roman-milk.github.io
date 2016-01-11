@@ -210,7 +210,7 @@
 
  "I'm sorry for crying." Tina sobbed, her tears falling onto her sister's designer blouse. 
 
- "Oh, it's okay." Bridget said, wiping away her own tear filled eyes. Report_Story #2 
+ "Oh, it's okay." Bridget said, wiping away her own tear filled eyes.  
 
  
 
@@ -506,7 +506,7 @@
 
  Her pussy tightened around Kevin's thick bare cock as she came. 
 
- "YESSSSSSSSSSSSSSSS!" Bridget squealed, her body jerking as she rode out her orgasm, her tight cunt squeezing her brother-in-law's pumping cock, trying to coax the cum out. Report_Story #3 
+ "YESSSSSSSSSSSSSSSS!" Bridget squealed, her body jerking as she rode out her orgasm, her tight cunt squeezing her brother-in-law's pumping cock, trying to coax the cum out.  
 
  
 

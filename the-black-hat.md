@@ -154,7 +154,7 @@
 
  We spent three hours at The Pit and then I took her to a motel. I can't speak for Dawn, but I enjoyed the hell out of it. So much so that I asked her if we could make it a standing date to do the same thing every Thursday from then on and she said yes. I took her home and then went back to the motel and got a good night's sleep. 
 
- Friday afternoon I sat in the offices of AAA Investigations and listened as they described Mary Alice's activities while I was in St. Louis. Tuesday night Herb spent the night at my house. Mary Alice spent Wednesday night at Herb's and Thursday night Herb over-nighted at my place. I made arrangements to let some of AAA's people into the house to plant some surveillance equipment and then I went home to my "loving wife." When I got home Mary Alice acted like she hadn't even known I had been gone. The rest of the weekend was normal except that I made no attempt to try and talk Mary Alice into making love. Not that she would have anyway, but it was something that I usually did. I wondered if she even noticed that I didn't bother. Report_Story #2 
+ Friday afternoon I sat in the offices of AAA Investigations and listened as they described Mary Alice's activities while I was in St. Louis. Tuesday night Herb spent the night at my house. Mary Alice spent Wednesday night at Herb's and Thursday night Herb over-nighted at my place. I made arrangements to let some of AAA's people into the house to plant some surveillance equipment and then I went home to my "loving wife." When I got home Mary Alice acted like she hadn't even known I had been gone. The rest of the weekend was normal except that I made no attempt to try and talk Mary Alice into making love. Not that she would have anyway, but it was something that I usually did. I wondered if she even noticed that I didn't bother.  
 
  
 
@@ -432,7 +432,7 @@
 
  "You moved here and only attended high school here your senior year so you weren't really in tune with things. I was born here and raised here Bobby and you can't hide much in a small town." 
 
- She waved the waitress over and asked for a 'doggie bag.' She saw the confused look on my face and said: Report_Story #3 
+ She waved the waitress over and asked for a 'doggie bag.' She saw the confused look on my face and said:  
 
  
 

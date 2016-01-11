@@ -148,7 +148,7 @@
 
  She turned away from me then and walked into the suite. 'Come here lover,' she beckoned. I was powerless to resist - I didn't want to resist and I let the mature, infinitely more experienced woman, albeit her experience being singular, take control. I walked to her, Gillian locking her gaze with mine as she unbuttoned my trousers. My erection was sudden and all consuming, as I felt Gillian fumble with the buttons and I felt a surge of affection as I noticed her bottom lip held between her white teeth as she focussed her concentration on that obstinate sliver of metal. 
 
- With a cry of triumph Gillian unbuttoned me and pulled my trousers down low enough that my cock sprang out, thick and terrible in it's stiffness. 'Oh my,' Gillian said in appreciation. 'My, oh my, oh my... we do have a very fine specimen here.' She touched my inflamed cock with her hand and I almost hit the ceiling at her cool touch. Report_Story #2 
+ With a cry of triumph Gillian unbuttoned me and pulled my trousers down low enough that my cock sprang out, thick and terrible in it's stiffness. 'Oh my,' Gillian said in appreciation. 'My, oh my, oh my... we do have a very fine specimen here.' She touched my inflamed cock with her hand and I almost hit the ceiling at her cool touch.  
 
  
 
@@ -294,7 +294,7 @@
 
  We went back up to her suite and no sooner had the door closed than Gillian was kissing me passionately. I had a feeling of déjà vu, the circumstances were a repetition of our first entry into the suite earlier that afternoon. The difference now, however was that I had grown in confidence and was returning my lover's kiss eagerly. 
 
- I ran my hands over Gillian's voluptuous curves, cupping her breasts and squeezing her buttocks as my cock threatened to burst free from its prison. Report_Story #3 
+ I ran my hands over Gillian's voluptuous curves, cupping her breasts and squeezing her buttocks as my cock threatened to burst free from its prison.  
 
  
 

@@ -246,7 +246,7 @@
 
  "Right. I thought I'd earned love and faithfulness." 
 
- "You have. I've never cheated on you, and I never will. John's devastated, Alex. First that horrible divorce, losing his kids, and then getting called up to the reserves barely a month after his divorce is final. He's dying. If he goes over there like that, I don't think he'll ever come back." Report_Story #2 
+ "You have. I've never cheated on you, and I never will. John's devastated, Alex. First that horrible divorce, losing his kids, and then getting called up to the reserves barely a month after his divorce is final. He's dying. If he goes over there like that, I don't think he'll ever come back."  
 
  
 
@@ -440,7 +440,7 @@
 
  I took her at her word, and leaned across the leg in front of me, nibbling a morsel off the far thigh. Sheri was giggling before I was done. 
 
- "God, that looked hot," she said softly, and then her arms were around my neck, and she was kissing me. Report_Story #3 
+ "God, that looked hot," she said softly, and then her arms were around my neck, and she was kissing me.  
 
  
 
@@ -712,7 +712,7 @@
 
  What the hell. I started the shower, and dropped my shorts. Joanie was watching me in the mirror. I caught her looking and she smiled. "Looking good, Alex. I'm getting more and more jealous," she teased. 
 
- "Ditto, beautiful," I laughed, and climbed into the enclosure. After a quick wash and shampoo, I got out and dried myself, wrapping the towel around my waist. She pouted cutely. I got in front of my sink, did the shave and teeth brushing thing, then ran a brush through my hair. Less than 5 minutes all told. She was still working at putting on her face. Report_Story #4 
+ "Ditto, beautiful," I laughed, and climbed into the enclosure. After a quick wash and shampoo, I got out and dried myself, wrapping the towel around my waist. She pouted cutely. I got in front of my sink, did the shave and teeth brushing thing, then ran a brush through my hair. Less than 5 minutes all told. She was still working at putting on her face.  
 
  
 
@@ -986,7 +986,7 @@
 
  I chuckled. "Thank you. I was afraid I'd be taking another cold shower." 
 
- "I was thinking a hot shower together, but all attention above the waist. Do you think you could manage that? Not get too crazy?" Report_Story #5 
+ "I was thinking a hot shower together, but all attention above the waist. Do you think you could manage that? Not get too crazy?"  
 
  
 
@@ -1348,7 +1348,7 @@
 
  She turned and gave me a kiss. "Joanie, John and I are going to breakfast, one last trip to the museum, then I'm taking him to the airport. I'll be home when you get off work." She gave me a squeeze. "I love you." 
 
- "I love you too," I said, then was surprised to be kissing Joanie. "You guys are the best," she whispered, leaving me stunned. Report_Story #6 
+ "I love you too," I said, then was surprised to be kissing Joanie. "You guys are the best," she whispered, leaving me stunned.  
 
  
 

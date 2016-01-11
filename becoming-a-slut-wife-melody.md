@@ -188,7 +188,7 @@
 
  "I needed leverage. I videotaped what went on last night and now I have leverage. You do what I say from now on and your husband never sees the tape." 
 
- Her head jerked toward me and she cried, "Oh God, Oh my God" and she started crying. To be a world class asshole you can't allow yourself to be swayed by emotion. Melody laid there crying and every impulse I had was to take her in my arms and hold her, but I couldn't give in to that emotion. I reached down, took her wrist and pulled her up off the bed and then I walked her into the bathroom. I turned on the shower, got in and pulled her in with me. As I washed and soaped her body the predictable happened and my cock got hard. When the soaped rag in my hand reached her pussy Melody moaned and spread her legs to give me easier access. I turned her around, bent her at the waist and slid my cock in her pussy. Report_Story #2 
+ Her head jerked toward me and she cried, "Oh God, Oh my God" and she started crying. To be a world class asshole you can't allow yourself to be swayed by emotion. Melody laid there crying and every impulse I had was to take her in my arms and hold her, but I couldn't give in to that emotion. I reached down, took her wrist and pulled her up off the bed and then I walked her into the bathroom. I turned on the shower, got in and pulled her in with me. As I washed and soaped her body the predictable happened and my cock got hard. When the soaped rag in my hand reached her pussy Melody moaned and spread her legs to give me easier access. I turned her around, bent her at the waist and slid my cock in her pussy.  
 
  
 

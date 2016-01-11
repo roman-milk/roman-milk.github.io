@@ -236,7 +236,7 @@
 
  "Okay sweetie, I'm trusting you on this. I may be late" and she had kissed him and headed out the door. 
 
- That night she stopped with the girls again and it was a repeat of the previous night she had stopped. Drinks and dancing, and since Don was there again, some heavy necking in his booth. She had stopped a block from the house and had squirted a liberal dose of KY Lotion into her pussy. Once in the house she had gone straight up to the bedroom. As she passed the living room she had called out to Gary: Report_Story #2 
+ That night she stopped with the girls again and it was a repeat of the previous night she had stopped. Drinks and dancing, and since Don was there again, some heavy necking in his booth. She had stopped a block from the house and had squirted a liberal dose of KY Lotion into her pussy. Once in the house she had gone straight up to the bedroom. As she passed the living room she had called out to Gary:  
 
  
 
@@ -442,7 +442,7 @@
 
  She rolled over and looked up at him. "That's it baby, I'm done. This little girl needs to get some rest if she is going to be worth anything at work tomorrow." 
 
- "I was hoping I was going to get to spend the night." Report_Story #3 
+ "I was hoping I was going to get to spend the night."  
 
  
 

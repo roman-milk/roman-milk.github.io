@@ -186,7 +186,7 @@
 
  "Oh no!" she giggled. "Not my hiney, mister! Please, not in my bottom! I'm still a virgin back there." 
 
- Right. I aimed my cock between her cheeks, guiding the head in, and pushed mightily. She groaned, and pushed back as I slowly sunk in. Report_Story #2 
+ Right. I aimed my cock between her cheeks, guiding the head in, and pushed mightily. She groaned, and pushed back as I slowly sunk in.  
 
  
 
@@ -386,7 +386,7 @@
 
  * * * 
 
- The next day, Thursday, was the riskiest, and I called in sick for few days. It was a long drive to the border, and it took me the better part of a day to get to El Paso, and into Mexico. About $1500 later, I was on a flight to Mexico City, and from there to the Caymans. I withdrew the money from one bank, and walked it over to the next, where I deposited it. I was a little paranoid about my shell game, and wore a ball-cap and sunglasses to disguise my look. Report_Story #3 
+ The next day, Thursday, was the riskiest, and I called in sick for few days. It was a long drive to the border, and it took me the better part of a day to get to El Paso, and into Mexico. About $1500 later, I was on a flight to Mexico City, and from there to the Caymans. I withdrew the money from one bank, and walked it over to the next, where I deposited it. I was a little paranoid about my shell game, and wore a ball-cap and sunglasses to disguise my look.  
 
  
 
@@ -634,7 +634,7 @@
 
  "The first few times, you're scared to death. Afraid to go home. So sure he'll know. Then it gets a little easier. After a while you stop thinking about it altogether. It's only temporary. You'll stop, and everything will be back to normal. We were delusional." 
 
- She rose up, her hands on my chest, lifting those hips up and down, doing the work for a while. "It stops being anything but a stupid job for the most part. When you're not doing the choosing, there's not a lot of romance in it." Report_Story #4 
+ She rose up, her hands on my chest, lifting those hips up and down, doing the work for a while. "It stops being anything but a stupid job for the most part. When you're not doing the choosing, there's not a lot of romance in it."  
 
  
 
@@ -896,7 +896,7 @@
 
  "Hello, Dave," she said. 
 
- I'd know that voice anywhere. It would never fade from my memory. Five years of marriage to another woman, almost ten years without hearing it did nothing to alter that. Report_Story #5 
+ I'd know that voice anywhere. It would never fade from my memory. Five years of marriage to another woman, almost ten years without hearing it did nothing to alter that.  
 
  
 

@@ -178,7 +178,7 @@
 
  It was a nervous laugh, so while walking away he wondered if she would comply. Sitting in the car he made sure the passenger door was unlocked, not wanting to scare her. In a hurry she trotted between cars, with him avidly watching. It was a graceless gait in high heels. Suddenly she disappeared. 
 
- 'Damn! My blouse got caught in a car mirror,' Felicity said. Report_Story #2 
+ 'Damn! My blouse got caught in a car mirror,' Felicity said.  
 
  
 
@@ -402,7 +402,7 @@
 
  'It must be in my jacket over the back,' he shrugged. 
 
- In a fit of urgency she turned around and leaned between the seats. She leaned a bit further, relieved not to be showing her ass off to the approaching couple. The old guy saw the lot. Her legs parted for him to see her shaved crotch. Report_Story #3 
+ In a fit of urgency she turned around and leaned between the seats. She leaned a bit further, relieved not to be showing her ass off to the approaching couple. The old guy saw the lot. Her legs parted for him to see her shaved crotch.  
 
  
 
@@ -410,7 +410,7 @@
 
  'You can't blame me for that. You were the one who stripped off,' he playfully scolded her. 
 
- 'OK, ok. Let's just get home shall we. I'm not letting you off though. I'm dragging you off to bed, unless we don't make it that far. So, be prepared,' she warned. Report_Story #1 
+ 'OK, ok. Let's just get home shall we. I'm not letting you off though. I'm dragging you off to bed, unless we don't make it that far. So, be prepared,' she warned.  
 
  
 
@@ -608,7 +608,7 @@
 
  'Not here. In the car!' she urgently spoke. 
 
- When he let her go, the dress tucked up revealing her bare bottom. He grabbed a hand, pulling her to the exit nearest to their car. Still struggling with the back of the dress, they joined the throng. Men could see one of her cheeks! She frantically pulled on his hand, but he wouldn't let go. Report_Story #2 
+ When he let her go, the dress tucked up revealing her bare bottom. He grabbed a hand, pulling her to the exit nearest to their car. Still struggling with the back of the dress, they joined the throng. Men could see one of her cheeks! She frantically pulled on his hand, but he wouldn't let go.  
 
  
 
@@ -818,7 +818,7 @@
 
  The other boys around her knew what was going on, and that she wasn't complaining. They crowded closer, hemming her in. A hand came out of nowhere to grope a breast. She looked for her husband, but couldn't see him now they were so close. She closed her eyes hoping it would all go away. Another hand gripped a breast, and squeezed a nipple. 
 
- The bus came to a halt, and she opened her eyes to see people getting off. With more space, she could push her way through them, to escape. Felicity saw her husband walking beside the bus! He'd stepped off through the back exit. Why hadn't he waited for her? She saw ahead of him a woman in a flowery summer dress, and realised what had happened. Typically the fool hadn't taken any notice of the colour, or shape of the dress she was wearing. He must think it was her he was following. Report_Story #3 
+ The bus came to a halt, and she opened her eyes to see people getting off. With more space, she could push her way through them, to escape. Felicity saw her husband walking beside the bus! He'd stepped off through the back exit. Why hadn't he waited for her? She saw ahead of him a woman in a flowery summer dress, and realised what had happened. Typically the fool hadn't taken any notice of the colour, or shape of the dress she was wearing. He must think it was her he was following.  
 
  
 

@@ -170,7 +170,7 @@
 
  Blushing I sipped at the pint and thought about what I wanted to say. "I like you, Carolyn. I like you a lot. I don't care about people saying stuff about us. I just want to take you out, have a good time ..." I gestured around the pub with a sweep of an arm. "Like this. Talking to you while we have a drink. Nobody minds us in here." 
 
- The woman drew on the cigarette and contemplated in silence for a few long seconds. She nodded, slowly. "Yeah, it's nice. This is lovely. I appreciate that you ... find me attractive, Eric; I do, I really do. And I'm flattered." Carolyn grinned and rolled her eyes. "A young fella like you -- good-looking, working, steady ..." She nodded again. "If it were just us, Eric ..." Carolyn's voice dropped and she slid closer to me along the bench seat. I could feel the heat of her body and smell her scent she was so close. 'If there was nobody else to think about ... well ... I reckon I'd give you a go." Report_Story #2 
+ The woman drew on the cigarette and contemplated in silence for a few long seconds. She nodded, slowly. "Yeah, it's nice. This is lovely. I appreciate that you ... find me attractive, Eric; I do, I really do. And I'm flattered." Carolyn grinned and rolled her eyes. "A young fella like you -- good-looking, working, steady ..." She nodded again. "If it were just us, Eric ..." Carolyn's voice dropped and she slid closer to me along the bench seat. I could feel the heat of her body and smell her scent she was so close. 'If there was nobody else to think about ... well ... I reckon I'd give you a go."  
 
  
 
@@ -438,7 +438,7 @@
 
  Her fingers closed around me. She shifted her bottom over the table and held me at her opening. Carolyn's knees folded, her legs lying against my hips as she pulled me into her. 
 
- I sighed and then grunted, my eyes wide and locked on Carolyn's as her body, hot and wet and tight opened to accommodate me. Report_Story #3 
+ I sighed and then grunted, my eyes wide and locked on Carolyn's as her body, hot and wet and tight opened to accommodate me.  
 
  
 
@@ -662,7 +662,7 @@
 
  My erection had been huge and demanding when I woke, and without being fully awake or truly aware of what I did, I opened my bedroom door and walked along the landing. Even as I entered Mum's bedroom my fingers were at my trousers. 
 
- "Carolyn," I sighed, massaging my hard-on with my fist as I stood by the side of the bed. "Come here," I groaned. Wake up. I want you." Report_Story #4 
+ "Carolyn," I sighed, massaging my hard-on with my fist as I stood by the side of the bed. "Come here," I groaned. Wake up. I want you."  
 
  
 
@@ -890,7 +890,7 @@
 
  The small bathroom had been big enough for my mother to kneel and suck my cock as the huge taps pumped gallons of hot water into a claw-footed bath. The bath itself took up half the room, and seemed as big as a rowing boat, easily big enough for two. 
 
- "Mum," I moaned when my mother fixed her eyes on mine. Her lips stretched around my girth, while the cock-head inside her mouth bulged against one cheek. Report_Story #5 
+ "Mum," I moaned when my mother fixed her eyes on mine. Her lips stretched around my girth, while the cock-head inside her mouth bulged against one cheek.  
 
  
 

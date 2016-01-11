@@ -110,7 +110,7 @@
 
  The story of Madeline Crow had become something of a local legend. As time moved on, what began as a tragedy became something of a ghost story. Over time, flourishes and embellishments had been added to Madeline's story. Suddenly, in these stories, she had been caught in the act, caught cursing people in town. She was apparently practicing dark magic and the occult, and they found her secret room full of occult imagery. None of this was true, of course. The actual story was far more tragic. There was never any proof of anything connecting Madeline to dark magic. But society had already made its mind up. In the eye of the world, Madeline was guilty. 
 
- Madeline Crow was now synonymous with witchcraft. People told ghost stories claiming to have seen her. Kids played tag, and the tagged person was told that they were "Maddy Crow." Kids thought that if you said her name three times, she would appear and curse them. Every time some aspiring teenage filmmaker made a movie in town, it would be a poorly made ghost story involving Madeline Crow. There was the Week of Crow, a festival the week before Halloween with the theme of witchcraft, with Madeline as sort of a mascot. There was even a local metal band whose imagery was themed around Madeline Crow. They even had their van painted up, showing both a witch version of Madeline and a devilish version of her, both images sexed up to draw people in, both images based on the one existing image of Madeline. And during their concerts, they had imagery of her hung up that was practically pornographic. Report_Story #2 
+ Madeline Crow was now synonymous with witchcraft. People told ghost stories claiming to have seen her. Kids played tag, and the tagged person was told that they were "Maddy Crow." Kids thought that if you said her name three times, she would appear and curse them. Every time some aspiring teenage filmmaker made a movie in town, it would be a poorly made ghost story involving Madeline Crow. There was the Week of Crow, a festival the week before Halloween with the theme of witchcraft, with Madeline as sort of a mascot. There was even a local metal band whose imagery was themed around Madeline Crow. They even had their van painted up, showing both a witch version of Madeline and a devilish version of her, both images sexed up to draw people in, both images based on the one existing image of Madeline. And during their concerts, they had imagery of her hung up that was practically pornographic.  
 
  
 
@@ -322,7 +322,7 @@
 
  "Well..." she began, kissing him back, "You'll have to." she finished, stepping back, all business again as she went back to searching the books, leaving him high and dry. He had no expectations that she would want to get it on in the haunted house, but it was worth a shot. Unfortunately, that left his dick uncomfortably swollen in his pants. 
 
- He didn't need to worry about it, though. He wouldn't have to wait that long. By the time he would leave this house, his balls would be completely drained. He just didn't know it yet. Report_Story #3 
+ He didn't need to worry about it, though. He wouldn't have to wait that long. By the time he would leave this house, his balls would be completely drained. He just didn't know it yet.  
 
  
 
@@ -530,7 +530,7 @@
 
  Nadine wiped away the tears. She didn't want anyone to see her like this. She didn't cry much in general. She wasn't that type of girl. She was the type to make other girl's cry, cause she was so much better than them in every way. She wasn't a girly girl, she was a tough chick. And as she wiped away the tears, she had to remind herself that tough chicks don't cry. 
 
- As she got back to her feet, she thought about what Dom had said. Was he right? Did she come on too strong? Were him and her not truly meant to happen? No, it couldn't be. Dom just had to like her deep down. She knew it. And he would realize that when he saw her flirting with Timmy. That would make him jealous. She would hang off Timmy and show Dom what he was missing out on. Report_Story #4 
+ As she got back to her feet, she thought about what Dom had said. Was he right? Did she come on too strong? Were him and her not truly meant to happen? No, it couldn't be. Dom just had to like her deep down. She knew it. And he would realize that when he saw her flirting with Timmy. That would make him jealous. She would hang off Timmy and show Dom what he was missing out on.  
 
  
 
@@ -710,7 +710,7 @@
 
  "No!" Dom called out, afraid she was gonna hurt herself. But before he could do anything, she brought the knife to the neck of her top and proceeded to cut at her shirt. The shirt peeled apart like the knife was cutting through butter. She slid the knife down her front, and as she did, her massive breasts began to try to force their way out. As she reached the hem of her top, her bra-covered breasts practically exploded out of them, forcing the ruined shirt to fall to the floor in tatters. 
 
- Nadine's upper half was now only covered in a lacy black bra, and her tits were so ripe and juicy they were practically falling out of it. The smooth, caramel flesh was literally pouring from her bra, yearning to be free. Report_Story #5 
+ Nadine's upper half was now only covered in a lacy black bra, and her tits were so ripe and juicy they were practically falling out of it. The smooth, caramel flesh was literally pouring from her bra, yearning to be free.  
 
  
 
@@ -902,7 +902,7 @@
 
  "How did you watch society from here?" Sally asked. 
 
- "Oh, I have my eyes all over this city." Madeline replied coyly. Sally suddenly recalled the paintings of Madeline all over town, and the way their eyes seemed to follow you. "That was how I kept myself sane. Focused. I was able to learn, to adapt my language to match yours. I watched from afar as every facet of society was corrupted. The church. The government. The schools. All of them are now corrupt bodies, destroying society, infecting it from the inside. That's how I saw you. Asking around, pleading for my case to be heard. I admire your integrity and your drive. You would have been a perfect student for someone like me. Too bad it was not meant to be. The influence of the coven has been snuffed out, buried in their corruptions, yearning to be free. My influence must be made, my words must be heard, my talents must be taught. And I will thank you, because you have bought me my ticket out of here." Report_Story #6 
+ "Oh, I have my eyes all over this city." Madeline replied coyly. Sally suddenly recalled the paintings of Madeline all over town, and the way their eyes seemed to follow you. "That was how I kept myself sane. Focused. I was able to learn, to adapt my language to match yours. I watched from afar as every facet of society was corrupted. The church. The government. The schools. All of them are now corrupt bodies, destroying society, infecting it from the inside. That's how I saw you. Asking around, pleading for my case to be heard. I admire your integrity and your drive. You would have been a perfect student for someone like me. Too bad it was not meant to be. The influence of the coven has been snuffed out, buried in their corruptions, yearning to be free. My influence must be made, my words must be heard, my talents must be taught. And I will thank you, because you have bought me my ticket out of here."  
 
  
 
@@ -1058,7 +1058,7 @@
 
  It was sweet, agonizing bliss for Madeline. Her breasts had been eternally swollen with milk since her capture. She had been producing milk for her second child at the time, and when she found the spell to escape death and maintain her youth for hundreds of years, her body at that point was frozen in place, meaning her breasts had been filled to the max with milk since her capture, perpetually full, no matter what she did, without a mouth to take her milk. So, as the young man took her nipple and she could literally feel the milk being drain from her swollen udder, she shuddered in a long awaited bliss. She knew the relief would be temporary, as her jugs always refilled quickly, but the pleasure of having her tits drained was worth the wait. 
 
- She opened her eyes and looked down at young man attached to her tit. She smiled down at him, knowing that despite his earlier pleas, he was enjoying this. Probably due that there was nothing quite like sucking on a massive breast. And also, Madeline knew her breast-milk was something special. Report_Story #7 
+ She opened her eyes and looked down at young man attached to her tit. She smiled down at him, knowing that despite his earlier pleas, he was enjoying this. Probably due that there was nothing quite like sucking on a massive breast. And also, Madeline knew her breast-milk was something special.  
 
  
 
@@ -1180,7 +1180,7 @@
 
  So lost was Alex in Madeline's prodigious rack he had forgotten he was balls deep in this bitch. Her tight, squeezing mature cunt was gripping his young, thick, pulsing cock. And although Alex was disgusted by this woman's evil, manipulative ways, her cunt was driving him fucking wild. The way it squeezed him tighter than any pussy he had ever felt, even Sally's. Alex couldn't believe this old, colonial, deranged witch had such a tight, wet, vice-like hole. His cock was tingling, the cum set to burst forth, ready to explode from his ready ball sack. 
 
- How could he both detest this woman and enjoy her cunt? How could he be attracted to her and also disgusted by her evilness? How could he love his girlfriend and also be under this woman with his cock buried inside her extra- tight cunt? How could he both hate this woman and be so close to cumming inside of her? This woman had his mind split in two. Report_Story #8 
+ How could he both detest this woman and enjoy her cunt? How could he be attracted to her and also disgusted by her evilness? How could he love his girlfriend and also be under this woman with his cock buried inside her extra- tight cunt? How could he both hate this woman and be so close to cumming inside of her? This woman had his mind split in two.  
 
  
 
@@ -1390,7 +1390,7 @@
 
  Sally saw his balls tighten, and could practically see the cum firing from his balls and into Madeline's cunt. She saw Alex ass tightening as he drove himself into her, trying to force the cum inside her as deep as it would go. 
 
- "AHHH! THAT'S IT! CUM INSIDE ME! BETRAY YOUR TRUE LOVE! GIVE ME YOUR CHILD! MAKE ME CUM!" Madeline moaned out. Her body quivered as she came, grinding against Sally's boyfriend as they rode out their violent orgasms. This went on for what seemed like forever, their bodies grinding against each other, drawing out their combined pleasure. Making sure his cock was completely buried within the older woman's tight grasping cunt, making sure his seed got as deep within her as possible. Sally watched her boyfriend's dick, watching it swell and clench, watching it pumping his seed into the 300 year old witch. Sally watched in shock as her boyfriend just kept cumming. He couldn't stop himself. His cock was like a firehouse, firing cum everywhere. Luckily, his cock was inside a pussy, so instead of making a huge mess, he simply filled Madeline's sweet cunt with hot cum. Sally was disturbed to see cum leaking from the deranged witch's cunt, showing that her boyfriend had completely filled her up to the brim. Report_Story #9 
+ "AHHH! THAT'S IT! CUM INSIDE ME! BETRAY YOUR TRUE LOVE! GIVE ME YOUR CHILD! MAKE ME CUM!" Madeline moaned out. Her body quivered as she came, grinding against Sally's boyfriend as they rode out their violent orgasms. This went on for what seemed like forever, their bodies grinding against each other, drawing out their combined pleasure. Making sure his cock was completely buried within the older woman's tight grasping cunt, making sure his seed got as deep within her as possible. Sally watched her boyfriend's dick, watching it swell and clench, watching it pumping his seed into the 300 year old witch. Sally watched in shock as her boyfriend just kept cumming. He couldn't stop himself. His cock was like a firehouse, firing cum everywhere. Luckily, his cock was inside a pussy, so instead of making a huge mess, he simply filled Madeline's sweet cunt with hot cum. Sally was disturbed to see cum leaking from the deranged witch's cunt, showing that her boyfriend had completely filled her up to the brim.  
 
  
 
@@ -1550,7 +1550,7 @@
 
  "Tony! Timmy! Help me!" she screamed out. 
 
- "Give it up, Sal. Madeline's gonna help me fuck your mom. I can't wait. I'm gonna fuck your mom and take your Daddy's place! I'm gonna seduce your mom, make her take my dick, and destroy your parent's perfect marriage! I can't fucking wait! Thanks for bringing me to Madeline. Thanks for making this happen" Timmy replied, unsympathetic. Report_Story #10 
+ "Give it up, Sal. Madeline's gonna help me fuck your mom. I can't wait. I'm gonna fuck your mom and take your Daddy's place! I'm gonna seduce your mom, make her take my dick, and destroy your parent's perfect marriage! I can't fucking wait! Thanks for bringing me to Madeline. Thanks for making this happen" Timmy replied, unsympathetic. 0 
 
  
 

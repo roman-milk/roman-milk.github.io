@@ -186,7 +186,7 @@
 
  'But I'm your filthy, dirty girl, Daddy,' Jessica reminded him. 'All yours. Nobody else gets to touch me. Nobody else can stick their thing into me. Only you. I'm only for you.' 
 
- And he came. With those whispered words of fidelity in his ears, he dug his fingers cruelly into the girl's flesh, grunted and, leaning low over her back, curled an arm under her to pull her tight against him. He shot the first glut of semen into Jessica and bellowed like a wounded beast. The girl cried out in surprise when she felt the surge inside her, gave a shout which curdled to a moan as her own climax overwhelmed her. Report_Story #2 
+ And he came. With those whispered words of fidelity in his ears, he dug his fingers cruelly into the girl's flesh, grunted and, leaning low over her back, curled an arm under her to pull her tight against him. He shot the first glut of semen into Jessica and bellowed like a wounded beast. The girl cried out in surprise when she felt the surge inside her, gave a shout which curdled to a moan as her own climax overwhelmed her.  
 
  
 

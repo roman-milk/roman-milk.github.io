@@ -182,7 +182,7 @@
 
  Alice and I won't be getting married of course. She is still married to Sam and can't get a divorce because of the paper trail it would leave. Our three years together has been great as far as I was concerned and when the trouble came it didn't come from any of the government alphabet agencies or the mob. It came from an unexpected direction and I found myself tested as never before. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -318,7 +318,7 @@
 
  "I admit that it might be a little unorthodox, but I happen to be deeply in love with two men and I do not intend to give either of them up. So, here's the plan. When you are on the road I am Sam's. When you get home I am yours. You get the better of the deal because, at least if the last five years are any indication, you will have me thirty-one weeks and Sam will only have me for twenty-one. Although I did tell Sam I would talk to you to see if I could talk you into an even split. He won't push because he's grateful that you saved my ass and he loves the new tits you bought me. Look on the bright side lover, I won't be hooking any more when you are on the road because I'll have Sam to keep me company." 
 
- I just sat there in stunned amazement and stared at her. She stood up and reached across the table and took my hand. "Come on lover" she said as she pulled me to my feet, "Let's go to bed and I'll work my magic. You will love this new deal to death when I get done with you." Report_Story #1 
+ I just sat there in stunned amazement and stared at her. She stood up and reached across the table and took my hand. "Come on lover" she said as she pulled me to my feet, "Let's go to bed and I'll work my magic. You will love this new deal to death when I get done with you."  
 
  
 
@@ -456,7 +456,7 @@
 
  The motorcycle and the things I did while I owned it took whatever it was inside me that I had brought home from Korea and killed it off. My father's confession and my understanding of it healed the riff between us and two years later I met and married the woman who celebrated our fiftieth anniversary with me last month. 
 
- Andy tossed the magazine onto the center of the break room table and the thump it made when it hit brought me out of my reverie. "It's rubbish, all rubbish" he said again and all I could do was smile. Report_Story #1 
+ Andy tossed the magazine onto the center of the break room table and the thump it made when it hit brought me out of my reverie. "It's rubbish, all rubbish" he said again and all I could do was smile.  
 
  
 
@@ -506,7 +506,7 @@
 
  "It's called a bus station" and I handed her a five twenties. "Catch a bus back to your parents or a cab to take you to Phil and Ava's, I don't much care which as long as I never have to look at your sorry ass again" and I drove off and left her standing there. 
 
- The phone is ringing again. It hasn't stopped for a week now. She calls four and five times a day, every day, begging me to take her back. I've gotten to where I don't answer it anymore. Tomorrow I think I'll have the number changed. Report_Story #1 
+ The phone is ringing again. It hasn't stopped for a week now. She calls four and five times a day, every day, begging me to take her back. I've gotten to where I don't answer it anymore. Tomorrow I think I'll have the number changed.  
 
  
 
@@ -624,7 +624,7 @@
 
  "Sure, ask away." 
 
- "What's your name?" She grinned, "I wondered if you were ever going to ask. It's Debbie" and she went back to working on my cock. Report_Story #1 
+ "What's your name?" She grinned, "I wondered if you were ever going to ask. It's Debbie" and she went back to working on my cock.  
 
  
 
@@ -734,7 +734,7 @@
 
  "Oh don't be silly. You know you like making love to me after somebody else has." 
 
- I'm taking her shopping for a ring tomorrow. Report_Story #1 
+ I'm taking her shopping for a ring tomorrow.  
 
  
 
@@ -840,7 +840,7 @@
 
  She stared out the window at the passing scenery and without looking at me said, "It will keep us in food and fuel money." 
 
- That was a year ago and Elise is still with me. Sometimes she rides with me and sometimes she stays home. When she rides with me it is a rare visit to a truck stop when Elise doesn't make five hundred bucks (she did raise her price to a hundred). I keep telling her that she doesn't have to do it, that I'm perfectly capable of taking care of her. She just smiles and says she has to do it to keep in touch with her roots. I keep after her to divorce her husband and marry me, but she won't do it. She called him and told him where to send the stuff she left behind and he begged her to forgive him and come home, but she said no. In an interesting twist he came to visit her while I was on a six day run and spent four days with her. Imagine that! Cheating on me with her own husband! Report_Story #1 
+ That was a year ago and Elise is still with me. Sometimes she rides with me and sometimes she stays home. When she rides with me it is a rare visit to a truck stop when Elise doesn't make five hundred bucks (she did raise her price to a hundred). I keep telling her that she doesn't have to do it, that I'm perfectly capable of taking care of her. She just smiles and says she has to do it to keep in touch with her roots. I keep after her to divorce her husband and marry me, but she won't do it. She called him and told him where to send the stuff she left behind and he begged her to forgive him and come home, but she said no. In an interesting twist he came to visit her while I was on a six day run and spent four days with her. Imagine that! Cheating on me with her own husband!  
 
  
 
@@ -976,7 +976,7 @@
 
  "What did you tell her?" 
 
- I turned to her, "You and I have an awful lot of talking to do in the next eleven hundred miles." Report_Story #1 
+ I turned to her, "You and I have an awful lot of talking to do in the next eleven hundred miles."  
 
  
 
@@ -1140,7 +1140,7 @@
 
  She took off her blouse and pushed down her bra, "Am I doing it now?" 
 
- It was too much for me. I hadn't been laid since I kicked her out and the truth of the matter was that I hadn't gone one single night since she left without thinking about her. I started down shifting and she knew right away what that meant. She scrambled up into the sleeper and started taking off her clothes, "Hurry baby, hurry. I want you so bad." As I pulled off on the shoulder and turned on my blinkers I wondered where this was going to take us. Well, if it took us back home together I guess that wouldn't be all bad. Report_Story #1 
+ It was too much for me. I hadn't been laid since I kicked her out and the truth of the matter was that I hadn't gone one single night since she left without thinking about her. I started down shifting and she knew right away what that meant. She scrambled up into the sleeper and started taking off her clothes, "Hurry baby, hurry. I want you so bad." As I pulled off on the shoulder and turned on my blinkers I wondered where this was going to take us. Well, if it took us back home together I guess that wouldn't be all bad.  
 
  
 
@@ -1270,7 +1270,7 @@
 
  "Yes Shauna, I guess you have." 
 
- I watched her pack and then I drove her out to the airport and dropped her off. I have no idea where she flew off to and I never heard from her again. Report_Story #1 
+ I watched her pack and then I drove her out to the airport and dropped her off. I have no idea where she flew off to and I never heard from her again.  
 
  
 

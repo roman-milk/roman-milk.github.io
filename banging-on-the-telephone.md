@@ -128,7 +128,7 @@
 
  'Fuck yes!' Jamie cried and Richard listened to the sound of Jamie's release as the man groaned into the loud speaker, his spunk no doubt flying in spurts from the eye of his cock. 'That was fucking fantastic, babe,' Jamie said when his climax had subsided. 'Do you really want to do a threesome with Richard?' he asked. 
 
- 'Shit yes,' Helen said when Richard stopped kissing her for a moment and allowed her to answer. 'I want him to fuck me,' she went on as Richard positioned himself awkwardly between her legs. 'I want him to jab me with his thick cock, I want my legs to be spread wide and my hot little cunt pounded as punishment for being such a bad little slut.' Report_Story #2 
+ 'Shit yes,' Helen said when Richard stopped kissing her for a moment and allowed her to answer. 'I want him to fuck me,' she went on as Richard positioned himself awkwardly between her legs. 'I want him to jab me with his thick cock, I want my legs to be spread wide and my hot little cunt pounded as punishment for being such a bad little slut.'  
 
  
 

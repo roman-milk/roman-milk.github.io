@@ -164,7 +164,7 @@
 
  "Oh, that's funny," I panted, still breathless. Then my eyes widened as Marina turned and held a long double-ended dildo aloft. 
 
- "Meet me in the middle?" she grinned and almost ran back to the bed. Clambering aboard, giggling while I rode the billowing mattress as it swelled like a bouncy-castle following Marina's excited leap, the woman waggled the full eighteen inches of synthetic male organ in her fist. The thing hung, thick and threatening, the ridges and knobbles and gigantic twin cock-heads promising to split me open and touch me in intimate places so deep no fingers or tongue could ever hope to reach. Report_Story #2 
+ "Meet me in the middle?" she grinned and almost ran back to the bed. Clambering aboard, giggling while I rode the billowing mattress as it swelled like a bouncy-castle following Marina's excited leap, the woman waggled the full eighteen inches of synthetic male organ in her fist. The thing hung, thick and threatening, the ridges and knobbles and gigantic twin cock-heads promising to split me open and touch me in intimate places so deep no fingers or tongue could ever hope to reach.  
 
  
 

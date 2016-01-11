@@ -156,7 +156,7 @@
 
  "In the hanging chair, put her in the hanging chair and pull a train on the bitch." 
 
- Armand obeyed the voice and pulled Marla roughly across the room. He forced her back into the hanging chair and lifted one of her legs. "Take the other leg, Peter," he instructed, and one of the men moved quickly into position. "Fuck her, Anton," Armand indicated Marla's gaping quim. "Stick it to her, then its Peter's turn." Report_Story #2 
+ Armand obeyed the voice and pulled Marla roughly across the room. He forced her back into the hanging chair and lifted one of her legs. "Take the other leg, Peter," he instructed, and one of the men moved quickly into position. "Fuck her, Anton," Armand indicated Marla's gaping quim. "Stick it to her, then its Peter's turn."  
 
  
 
@@ -210,7 +210,7 @@
 
  The Watcher gave her instructions to Armand -- she wanted to discuss further adventures involving Marla "Get rid of those two," she panted, spent and limp limbed with post orgasmic torpor. "Allow her to shower and change, and you come to me." 
 
- How far could she push the woman? How far into the depths could Marla be coerced? Report_Story #1 
+ How far could she push the woman? How far into the depths could Marla be coerced?  
 
  
 

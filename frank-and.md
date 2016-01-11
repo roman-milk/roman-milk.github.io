@@ -270,7 +270,7 @@
 
  "Hi" Cookie said and I hung up on her and went back to helping my dad. That evening, around six, the phone rang and I answered it. "Hello?" "Please don't ha..." and I missed the rest of what Cookie was going to say because I hung up the phone. 
 
- I avoided Cookie during our two shared morning classes and when I went to the cafeteria at lunch time I saw her sitting with Jason. I found an empty table on the other side of the room and as I sat down I saw Cookie pick up her tray and head for me. Jason tried to catch her arm and stop her, but she ignored it. She reached my table and sat down, but before she could speak I said: Report_Story #2 
+ I avoided Cookie during our two shared morning classes and when I went to the cafeteria at lunch time I saw her sitting with Jason. I found an empty table on the other side of the room and as I sat down I saw Cookie pick up her tray and head for me. Jason tried to catch her arm and stop her, but she ignored it. She reached my table and sat down, but before she could speak I said:  
 
  
 
@@ -520,7 +520,7 @@
 
  Cookie and I were staying at home and attending the local community college with the idea of transferring to a four year school down the line. We shared some of the introductory classes like Introduction to Computers and English Composition 101, but we had different majors so we didn't have all that many classes together. We did see each other almost every day at school and occasionally we found ourselves in the school cafeteria at lunch time and when that happened we sat together. 
 
- For the first few months I was in a bit of a funk knowing what Pauline was probably doing while she was at school, but I eventually shook it off and started dating. It was easier now that I was working part time at my Uncle Mike's Just Brakes franchise and didn't have to work evening anymore. The money was better too. Report_Story #3 
+ For the first few months I was in a bit of a funk knowing what Pauline was probably doing while she was at school, but I eventually shook it off and started dating. It was easier now that I was working part time at my Uncle Mike's Just Brakes franchise and didn't have to work evening anymore. The money was better too.  
 
  
 
@@ -764,7 +764,7 @@
 
  "You have all day to think about it. Maybe by quitting time you will have figured it out. Then again maybe you have all ready figured it out and you are willing to pay the price." I got up as I said, "Got to get going or I'll be late in opening the shop. See you tonight. Or not." 
 
- I left the house to Cookie's "Come back here Frank! You can't just..." and the closing door cut off the rest. Report_Story #4 
+ I left the house to Cookie's "Come back here Frank! You can't just..." and the closing door cut off the rest.  
 
  
 
@@ -940,7 +940,7 @@
 
  "The note I enclosed should have explained it." 
 
- "He's lying to you. There is no way I went after him. I had no idea where he has been since he moved from here. I hadn't seen or talked to him until he showed up where I work and asked me to have lunch with him." Report_Story #5 
+ "He's lying to you. There is no way I went after him. I had no idea where he has been since he moved from here. I hadn't seen or talked to him until he showed up where I work and asked me to have lunch with him."  
 
  
 
@@ -996,7 +996,7 @@
 
  We are back in the same bedroom and Cookie's way of trying to make me forget is to try fucking my brains out. I'm willing to try to forget her actions, but I honestly doubt that I ever will. It might fade away for a while, but sooner or later something will happen that will bring that small kernel of doubt back Some one will say something, I'll see a picture of something or an old classmate will mention that he saw Jason somewhere and it all comes back. I think Cookie realizes that and so she goes out of her way to spoil me rotten. 
 
- Cookie still works at the real estate office and Pauline still works there also. Pauline and I have lunch every once in a while. She is still my eyes and ears at the office, but it has been almost eight months now and she has had nothing to report. I think Cookie and I are going to be okay, but I'm going to be a lot more vigilant from now on. Cookie knows that she has had her "One time shame on you" and that from now on I am never going to be in the "Two times shame on me" position and if she loves me as much as she says she does she will make sure that it never happens. Report_Story #1 
+ Cookie still works at the real estate office and Pauline still works there also. Pauline and I have lunch every once in a while. She is still my eyes and ears at the office, but it has been almost eight months now and she has had nothing to report. I think Cookie and I are going to be okay, but I'm going to be a lot more vigilant from now on. Cookie knows that she has had her "One time shame on you" and that from now on I am never going to be in the "Two times shame on me" position and if she loves me as much as she says she does she will make sure that it never happens.  
 
  
 
@@ -1214,7 +1214,7 @@
 
  "Too bad I wasn't thinking a little more clearly when I walked in on them. My cell phone does have a camera; I just never thought to use it. Do you believe his story?" 
 
- "That she chased after him? It could be true. She wouldn't be the first. Was it only the one time with her? That could be true too, but he was lying through his teeth when he said that it was the only time he ever cheated. I know of at least three times that he has strayed. Well, that's not quite true. Three times I've had people tell me that he ran around on me when I was out of town visiting relatives. I've never confronted him on them, because I really didn't want to know if it was true." Report_Story #2 
+ "That she chased after him? It could be true. She wouldn't be the first. Was it only the one time with her? That could be true too, but he was lying through his teeth when he said that it was the only time he ever cheated. I know of at least three times that he has strayed. Well, that's not quite true. Three times I've had people tell me that he ran around on me when I was out of town visiting relatives. I've never confronted him on them, because I really didn't want to know if it was true."  
 
  
 
@@ -1410,7 +1410,7 @@
 
  Mary Ellen had a three car garage and when North visited he pulled into the garage and parked and closed the garage door so the neighbors wouldn't get to talking about Mary Ellen's visitor. Wouldn't want the word to get back to Mary Ellen's hubby now would we? I used a small pry bar to force the lock on the back door to the garage and I was waiting when the connecting door to the house opened and North came out. A naked Mary Ellen stood in the doorway and watched North walk to his car. 
 
- Fifty thousand volts from the Taser had him writhing on the garage floor and before Mary Ellen could even scream I said in what I hoped was a disguised voice: Report_Story #3 
+ Fifty thousand volts from the Taser had him writhing on the garage floor and before Mary Ellen could even scream I said in what I hoped was a disguised voice:  
 
  
 
@@ -1508,7 +1508,7 @@
 
  As far as I know Diane hasn't been seeing anyone, but she is well aware that I'm seeing someone, but she has no idea who. The knowledge that I am having sex with another woman is killing her, but she keeps hanging on hoping for a miracle that is never going to come. 
 
- I couldn't ask for better revenge. Report_Story #1 
+ I couldn't ask for better revenge.  
 
  
 
@@ -1752,7 +1752,7 @@
 
  There was a bar across the street from the motel and before going to my room I stopped in and had a few beers and watched the basketball game that was on their TV. I had no interest in either team, but it did give me something to do. 
 
- The next day I got the bad news from the attorney. We lived in what was called 'a no fault' state so any divorce was going to result in an even split of assets and since I made almost twice what Doris did I was going to have to pay her alimony. Also, since I would be the one filing I would, along with my attorney's fees be responsible for all court costs. In addition to that if Doris fought the divorce I could, depending on the judge, get hit with having to pay her attorney fees. The only thing I had going for me was that we had no kids. Report_Story #2 
+ The next day I got the bad news from the attorney. We lived in what was called 'a no fault' state so any divorce was going to result in an even split of assets and since I made almost twice what Doris did I was going to have to pay her alimony. Also, since I would be the one filing I would, along with my attorney's fees be responsible for all court costs. In addition to that if Doris fought the divorce I could, depending on the judge, get hit with having to pay her attorney fees. The only thing I had going for me was that we had no kids.  
 
  
 
@@ -2018,7 +2018,7 @@
 
  "I guess that means that Missy is really Marsha?" 
 
- "That's right. Jesus Frank; I had no idea that you were Dorie's husband." Report_Story #3 
+ "That's right. Jesus Frank; I had no idea that you were Dorie's husband."  
 
  
 
@@ -2258,7 +2258,7 @@
 
  "Dorie was one of the ones who wanted to know all about it. She was always asking about what we did, how we did it and I could tell she was interested in trying, but just couldn't quite get up the nerve. One day during lunch break Dorie sat down with me and asked me why I was so down in the dumps that day and I told her. Marsha and I were set up to do a party that night and Marsha had gotten sick. I was looking at having to do twelve to fourteen guys by myself and I wasn't looking forward to it. Dorie told me that she would sub for Marsha. I asked her if she knew what she was letting herself in for and she said no idea, but that it was something that she had wanted to try since first hearing about it. 
 
- "I asked her why she was willing to risk her marriage and she told me that you had been gone for three months and wouldn't be back for at least two more and that she was horny enough to fuck a hundred men. You would never know so she wasn't risking anything. She went with me that night and she liked it. She liked it enough to do it two more times and then she said she couldn't do it any more and as far as I know she hasn't." Report_Story #4 
+ "I asked her why she was willing to risk her marriage and she told me that you had been gone for three months and wouldn't be back for at least two more and that she was horny enough to fuck a hundred men. You would never know so she wasn't risking anything. She went with me that night and she liked it. She liked it enough to do it two more times and then she said she couldn't do it any more and as far as I know she hasn't."  
 
  
 
@@ -2446,7 +2446,7 @@
 
  "Bullshit" Marsha said. "I'm doing it to make sure that she doesn't have a clear field if Frank doesn't work things out with Doris. As far as I'm concerned we have first dibs on Frank." 
 
- The three of us went over and joined Hanna and I made the introductions. I spent the rest of the evening dancing with the three of them. When I danced with Brenda she naturally wanted to know what was going to happen between me and Doris. Report_Story #5 
+ The three of us went over and joined Hanna and I made the introductions. I spent the rest of the evening dancing with the three of them. When I danced with Brenda she naturally wanted to know what was going to happen between me and Doris.  
 
  
 
@@ -2482,7 +2482,7 @@
 
  "I'll have dinner ready." 
 
- As I packed I wondered if she could do it. Women are hard-wired to use sex to get what they want, but I had meant what I'd said. I guess only time would tell. Report_Story #1 
+ As I packed I wondered if she could do it. Women are hard-wired to use sex to get what they want, but I had meant what I'd said. I guess only time would tell.  
 
  
 
@@ -2722,7 +2722,7 @@
 
  I had stopped at a U-Haul place on the way home and purchased a bunch of boxes to start packing my stuff in. When I got home Iris wasn't there, but there was a note on the kitchen table saying that she would be staying at her sisters for the next couple of days. 
 
- I spent the evening packing and moving boxes out into the garage. By bedtime all that was left to pack was the stuff in the den and the clothes that I would need for the next two weeks. Report_Story #2 
+ I spent the evening packing and moving boxes out into the garage. By bedtime all that was left to pack was the stuff in the den and the clothes that I would need for the next two weeks.  
 
  
 
@@ -2996,7 +2996,7 @@
 
  "She has a contract on the house." 
 
- "So? I'll mail her a power of attorney." Report_Story #3 
+ "So? I'll mail her a power of attorney."  
 
  
 
@@ -3282,7 +3282,7 @@
 
  I grabbed her panties and tried to rip them off, but they wouldn't tear so I just pushed them to the side. I held her bent over the fender with my left hand in the middle of her back while I used my right to unzip and take out my cock. I pushed the head of my cock at her asshole and pushed. 
 
- "No Frank, no! Not there Frank, not there. Please Frank. Not there." Report_Story #4 
+ "No Frank, no! Not there Frank, not there. Please Frank. Not there."  
 
  
 
@@ -3352,7 +3352,7 @@
 
  "I'm hoping that it will be to tell her that you won't be seeing her any more. I want more nights like last night Frank. Maybe another twenty or thirty years worth." 
 
- I laid there and looked at her and suddenly realized that I wanted it too. Report_Story #1 
+ I laid there and looked at her and suddenly realized that I wanted it too.  
 
  
 
@@ -3540,7 +3540,7 @@
 
  "The office. I don't want to risk her finding anything that will clue her in to the fact that I know what she is doing." 
 
- Alan slid a small box over to me. "These are bugs that you can put in her purses. If she is like most women she has one or two favorites that she always tends to use." Report_Story #2 
+ Alan slid a small box over to me. "These are bugs that you can put in her purses. If she is like most women she has one or two favorites that she always tends to use."  
 
  
 
@@ -3758,7 +3758,7 @@
 
  "Will I see you tomorrow?" 
 
- "I don't know. Now that I don't have Pat's income to supplement mine I'm going to have to work a lot harder at trying to get listings and sell houses. I won't be able to get loose during the day the way I have been. We will work something out. Just give me a little time to figure it out." Report_Story #3 
+ "I don't know. Now that I don't have Pat's income to supplement mine I'm going to have to work a lot harder at trying to get listings and sell houses. I won't be able to get loose during the day the way I have been. We will work something out. Just give me a little time to figure it out."  
 
  
 
@@ -3992,7 +3992,7 @@
 
  "I don't think you should. Right now I think she needs to be left alone and don't forget I know her much better than you do." 
 
- "Okay, if you say so. We have enough problems of our own right now. We are going to have to reduce the household budget by a third until things pick up at work." Report_Story #4 
+ "Okay, if you say so. We have enough problems of our own right now. We are going to have to reduce the household budget by a third until things pick up at work."  
 
  
 
@@ -4194,7 +4194,7 @@
 
  Dad has announced that he is going to step down next year and turn the company over to me. When that happens I might make some changes. Maybe cut Jean loose and give her ample visitation. Another option, and one I'm leaning to, is that there is a house on five acres that has a guest cottage next to the four car garage. I could buy it, get a quiet divorce from Jean and let her live in the cottage so she would be close to the kids. I think Kathy might like that. She hasn't said anything, but I know she would like a more permanent relationship and for that matter so would I. 
 
- Oh well, in a year we will see. Report_Story #1 
+ Oh well, in a year we will see.  
 
  
 
@@ -4358,7 +4358,7 @@
 
  I had to work every third Saturday and it was my Saturday to work. As I got ready to leave for work Mary Beth reminded me that we were going out with Mike and Alice that evening and they would be there at six-thirty to pick us up. I told her I remembered and then left the house. 
 
- Mary Beth was dressed and ready to go out when I got home. Even as pissed at her as I was I had to admit that she was one beautiful and sexy lady. I wanted her right then and there, but decided that it wouldn't be right to make love to her and then kick her out. Report_Story #2 
+ Mary Beth was dressed and ready to go out when I got home. Even as pissed at her as I was I had to admit that she was one beautiful and sexy lady. I wanted her right then and there, but decided that it wouldn't be right to make love to her and then kick her out.  
 
  
 
@@ -4632,7 +4632,7 @@
 
  "Not enough to keep Mike out of your pussy." 
 
- "It was a fling Ralph. It meant nothing. I was a virgin when I met you. I got curious and after twenty-four years of only you I wanted to see what another man would be like. I just wanted to try some strange. It was only a fling and it was all ready on its last legs when you found out. He was starting to get possessive and I was going to end it. Report_Story #3 
+ "It was a fling Ralph. It meant nothing. I was a virgin when I met you. I got curious and after twenty-four years of only you I wanted to see what another man would be like. I just wanted to try some strange. It was only a fling and it was all ready on its last legs when you found out. He was starting to get possessive and I was going to end it.  
 
  
 
@@ -4878,7 +4878,7 @@
 
  She wanted me to call in sick and spend the day with her, but I told her that I had some very important contracts to review and submit comments on by noon of the next day so there was no way I could afford to miss work. I got the feeling that Alice wanted to move into a permanent relationship and maybe down the line I might be interested I wasn't interested at the time. I fully intended to go after Amber so being in a relationship with Alice wouldn't work. 
 
- But I was greedy enough to want more of Miss Alice during the six month countdown to the divorce becoming final. The trick was going to be finding a balance that would work for me. I would need to accept some invitations and to turn some of them down. To see her enough to keep her happy, but not so much that folks started thinking of us as a couple. So when Alice asked if I would come to dinner that evening I would plead a previous engagement. Report_Story #4 
+ But I was greedy enough to want more of Miss Alice during the six month countdown to the divorce becoming final. The trick was going to be finding a balance that would work for me. I would need to accept some invitations and to turn some of them down. To see her enough to keep her happy, but not so much that folks started thinking of us as a couple. So when Alice asked if I would come to dinner that evening I would plead a previous engagement.  
 
  
 
@@ -5072,7 +5072,7 @@
 
  Alice dated for a couple of years and then she finally met a man she felt that she could settle down with. They seem happy together. Alice and I have kept up our friendship (without benefits of course) and she and Amber have become friends. 
 
- All in all the future turned out better for me than I could have possibly imagined that day I discovered Mary Beth and Mike in the barn. Report_Story #1 
+ All in all the future turned out better for me than I could have possibly imagined that day I discovered Mary Beth and Mike in the barn.  
 
  
 
@@ -5264,7 +5264,7 @@
 
  "Would you like to play tonight? I'm ready if you are." 
 
- "I suppose, but you need to know that my eating your pussy is a thing of the past. I'll chance sloppy seconds, but I'll be damned if I'm going to taste them." Report_Story #2 
+ "I suppose, but you need to know that my eating your pussy is a thing of the past. I'll chance sloppy seconds, but I'll be damned if I'm going to taste them."  
 
  
 
@@ -5460,7 +5460,7 @@
 
  Monday Maxi had another surprise for me. 
 
- "I gave my two weeks notice today. My working there with the people I've been working with would be more of a strain than I want on our relationship." Report_Story #3 
+ "I gave my two weeks notice today. My working there with the people I've been working with would be more of a strain than I want on our relationship."  
 
  
 
@@ -5480,7 +5480,7 @@
 
  The entire time she was cheating on me we were having sex three, four and even sometimes five times a week. After I'd found out and confronted her and she said that it would only be me from then on the sex had increased a bit. I never pushed to find out the when, why, who, where and how because I didn't want to rock the boat and possibly mess up the arrangement we had. 
 
- A couple of times I'd sensed that she had wanted to explain herself to me, but I never gave her the chance. I was probably sticking my head in the sand, but I really didn't want to find out that it had been cause by something - real or imagined - that I'd done. All I know is that my approach, while not a common one in a case of infidelity, worked for me and my girls. Did it work for Maxi? I don't know and quite frankly I don't care. Report_Story #1 
+ A couple of times I'd sensed that she had wanted to explain herself to me, but I never gave her the chance. I was probably sticking my head in the sand, but I really didn't want to find out that it had been cause by something - real or imagined - that I'd done. All I know is that my approach, while not a common one in a case of infidelity, worked for me and my girls. Did it work for Maxi? I don't know and quite frankly I don't care.  
 
  
 
@@ -5690,7 +5690,7 @@
 
  "Don't you dare touch me you fucking whore." 
 
- She started crying, got out of bed and left the room. She was sleeping on the couch when I got up and left for work in the morning. I stopped at the Village Inn for breakfast and at eight I called work and told them I wouldn't be in. Not knowing what time "Same time" was I waited for Regina to leave for work and then I went home. I parked one block over from the house and then walked home. Report_Story #2 
+ She started crying, got out of bed and left the room. She was sleeping on the couch when I got up and left for work in the morning. I stopped at the Village Inn for breakfast and at eight I called work and told them I wouldn't be in. Not knowing what time "Same time" was I waited for Regina to leave for work and then I went home. I parked one block over from the house and then walked home.  
 
  
 
@@ -5910,7 +5910,7 @@
 
  "I don't understand why you would do something like that. I don't understand why you did what you did do. Stan was no threat to you. I told you that. I told you that it was just a fling and wouldn't last. Why did you have to go and get all macho?" 
 
- "That is it in a nutshell Regina." Report_Story #3 
+ "That is it in a nutshell Regina."  
 
  
 
@@ -6110,7 +6110,7 @@
 
  The bedroom door was open, but I didn't hear the sounds of sex. I looked in the bedroom, but didn't understand what I was seeing. Stan was lying on the bed fully dressed. He was shaking and twitching and Regina was busy tying his hands to the headboard. Her back was to me so I slipped into the bedroom across the hall and left the door open just enough so that I could look through the gap and into the room across the hall. 
 
- Stan's thrashing was fading and Regina left the room and came back a minute or so later and I could see that she was putting something into her shirt pocket. It was small and I couldn't tell what it was. I heard Stan say: Report_Story #4 
+ Stan's thrashing was fading and Regina left the room and came back a minute or so later and I could see that she was putting something into her shirt pocket. It was small and I couldn't tell what it was. I heard Stan say:  
 
  
 
@@ -6272,7 +6272,7 @@
 
  Regina does her best to spoil me rotten and I'm liking it, but I also have to admit that there is still a small spot in my brain where the thought still lives that some day she is going to want to see if a big cock can still trip those extra switches. However she does know that if it ever happens and I find out she is history and I really do think that she doesn't want that to happen. 
 
- Time holds the answer to that. All I can do is wait and see and hope that it never happens. Report_Story #1 
+ Time holds the answer to that. All I can do is wait and see and hope that it never happens.  
 
  
 
@@ -6436,7 +6436,7 @@
 
  "You aren't making any sense here." 
 
- "Of course I am Frank. If you are willing to go the revenge route instead of going for a divorce your partner in revenge is sitting across the table from you." Report_Story #2 
+ "Of course I am Frank. If you are willing to go the revenge route instead of going for a divorce your partner in revenge is sitting across the table from you."  
 
  
 
@@ -6464,7 +6464,7 @@
 
  "I don't know that I could do something like that. I'd want to a part of my child's life and I can't see anyway that could happen if I were to get you pregnant." 
 
- "I guess you are right on that, but I can't think of a greater revenge on Larry. I can address that later after you get tired of me. I'll let my next lover get me pregnant and I just won't let him know that the child is his. So how about it Frank? Are you in?" Report_Story #1 
+ "I guess you are right on that, but I can't think of a greater revenge on Larry. I can address that later after you get tired of me. I'll let my next lover get me pregnant and I just won't let him know that the child is his. So how about it Frank? Are you in?"  
 
  
 
@@ -6692,7 +6692,7 @@
 
  "Gloria was engaged to be married to Barry Wasour and whenever the girls talked about men Gloria positively gushed over Barry. He could do no wrong. He was perfect in every way. He was the love of her life. As far as she was concerned their love was planned by the Gods. 
 
- "One month before the wedding Barry told Gloria that he wasn't going to marry her and he left town. She was devastated and was pretty much a basket case for the next couple of months and then suddenly her mood changed. She had met another man. You, being a man and not used to noticing such things, probably didn't notice that you and Barry look a lot alike. Same size, same hair coloring, close to the same features. You got Gloria on the rebound and most likely it was because you reminded her so much of Barry. Then she got married and we didn't hear about Barry anymore. Report_Story #2 
+ "One month before the wedding Barry told Gloria that he wasn't going to marry her and he left town. She was devastated and was pretty much a basket case for the next couple of months and then suddenly her mood changed. She had met another man. You, being a man and not used to noticing such things, probably didn't notice that you and Barry look a lot alike. Same size, same hair coloring, close to the same features. You got Gloria on the rebound and most likely it was because you reminded her so much of Barry. Then she got married and we didn't hear about Barry anymore.  
 
  
 
@@ -6938,7 +6938,7 @@
 
  "Because what the girls talk about while we play cards stays with us. All I can tell you is that what one of the girls told us last night turned me on something fierce." 
 
- I kept trying to get it out of her, but she wouldn't budge other than to say if we kept talking about it she would keep thinking about it and that would have her trying to fuck me to death. Needless to say I decided to bring the subject up often. What I didn't realize at the time was that there was going to come a day when I would wish that I hadn't. Report_Story #3 
+ I kept trying to get it out of her, but she wouldn't budge other than to say if we kept talking about it she would keep thinking about it and that would have her trying to fuck me to death. Needless to say I decided to bring the subject up often. What I didn't realize at the time was that there was going to come a day when I would wish that I hadn't.  
 
  
 
@@ -7158,7 +7158,7 @@
 
  "Oh fuck! Oh Jesus! You did it! You fucking did it! It fucking hurts. Stop the bleeding man; stop the fucking bleeding." 
 
- "Forget that toe Travon; it is gone and it isn't coming back." Report_Story #4 
+ "Forget that toe Travon; it is gone and it isn't coming back."  
 
  
 
@@ -7178,7 +7178,7 @@
 
  "One more thing. I didn't want to say this in front of Shay, but if I hear that you ever try anything with her again I promise you that they will never find your body. Take care and have a nice weekend" and I walked out of his place and joined Shayleen in the car. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -7388,7 +7388,7 @@
 
  "I was looking into your eyes when you told me that and I could see that you were lying to me. I wish now that I'd never told you to destroy the disc that Travon had of you. I wish now that I would have looked at it. If you could confess to what you did and still be lying there must have been something that you really felt the need to hide. Given that why would I believe anything that you say?" 
 
- She was silent for maybe thirty seconds and then she said, "I didn't lie Frank; I just didn't tell the full story. I left out a part that I really didn't want you to hear." Report_Story #2 
+ She was silent for maybe thirty seconds and then she said, "I didn't lie Frank; I just didn't tell the full story. I left out a part that I really didn't want you to hear."  
 
  
 
@@ -7452,7 +7452,7 @@
 
  I believed her. 
 
- And now, eight years and three kids later I'm glad that I did. Report_Story #1 
+ And now, eight years and three kids later I'm glad that I did.  
 
  
 
@@ -7648,7 +7648,7 @@
 
  "Well I guess you know him better than I do, but I would work up to it slowly. Very, very slowly." 
 
- I had put in the tap because after hearing what I heard through the bathroom window I was curious about what else Stella had to say about me. Well, I certainly did find out. To her I was a clueless twit and a wimp that she thought she could turn into a subservient cuckold. She didn't have a chance in hell of making it happen and I was already working on a plan in my head that might make her think I could possibly go along with what she wanted. I would have to wait until she started her campaign to get me to be like Dennis, but she would be in for one hell of a huge surprise. Report_Story #2 
+ I had put in the tap because after hearing what I heard through the bathroom window I was curious about what else Stella had to say about me. Well, I certainly did find out. To her I was a clueless twit and a wimp that she thought she could turn into a subservient cuckold. She didn't have a chance in hell of making it happen and I was already working on a plan in my head that might make her think I could possibly go along with what she wanted. I would have to wait until she started her campaign to get me to be like Dennis, but she would be in for one hell of a huge surprise.  
 
  
 
@@ -7940,7 +7940,7 @@
 
  "I'll think about it. I'll have to call Bob Morgan and see what I missed last Wednesday and if there is anything that will require me to be there this Wednesday." 
 
- I saw the disappointment on her face and I would agree to do Wednesday, but I was going to make her sweat a bit first. I finished dinner and then went into the den and pretended to do some work that I'd brought home with me and after a while I pretended to make some phone calls. An hour and a half after I'd gone into the den I came out and told Stella that I would give her the coming Wednesday but to schedule her fun for other days from then on. She rewarded me with an exhausting night before we fell asleep. Report_Story #3 
+ I saw the disappointment on her face and I would agree to do Wednesday, but I was going to make her sweat a bit first. I finished dinner and then went into the den and pretended to do some work that I'd brought home with me and after a while I pretended to make some phone calls. An hour and a half after I'd gone into the den I came out and told Stella that I would give her the coming Wednesday but to schedule her fun for other days from then on. She rewarded me with an exhausting night before we fell asleep.  
 
  
 
@@ -8202,7 +8202,7 @@
 
  "Frank? I've been calling for you. Why haven't you answered me? And what's this nonsense about a divorce?" 
 
- I pushed the 'play' button on the recorder. Color drained from her face as she heard: Report_Story #4 
+ I pushed the 'play' button on the recorder. Color drained from her face as she heard:  
 
  
 
@@ -8348,7 +8348,7 @@
 
  "Please Frank, please don't leave me." 
 
- I didn't turn back. I went into the building and called for a taxi. Report_Story #1 
+ I didn't turn back. I went into the building and called for a taxi.  
 
  
 
@@ -8548,7 +8548,7 @@
 
  "Since you invited me to lunch I'll invite you to dinner. You free tomorrow night?" 
 
- I did have plans, but they went instantly out the window and I said I had nothing going on. She gave me her address and I told her I would pick her up at six. She gave me a thousand watt smile and told me she would see me then and we both went back to work. Report_Story #2 
+ I did have plans, but they went instantly out the window and I said I had nothing going on. She gave me her address and I told her I would pick her up at six. She gave me a thousand watt smile and told me she would see me then and we both went back to work.  
 
  
 
@@ -8792,7 +8792,7 @@
 
  "There isn't any way I could give you a legal document that will cover that. Besides, an agreement like that couldn't be enforced." 
 
- "Doesn't need to be in writing and enforcement is simple. You agree to the condition and I hold you to it. You don't honor the agreement and I simply go public about the marriage and the reasons for it and the people that you wanted to hide things from would know what you didn't want them to know." Report_Story #3 
+ "Doesn't need to be in writing and enforcement is simple. You agree to the condition and I hold you to it. You don't honor the agreement and I simply go public about the marriage and the reasons for it and the people that you wanted to hide things from would know what you didn't want them to know."  
 
  
 
@@ -9028,7 +9028,7 @@
 
  While I entertained Willie Tanya took his keys, went to his motel room, got the laptop and brought it home. There were a total of twenty-one pictures on Willie's hard drive and I copied them onto a thumb drive and then deleted them off of his computer. It embarrassed Tanya that I saw them, but I needed to know a few things. I had her tell me who the men I the pictures were. 
 
- I cut Willie loose and told him to get dressed and then I handed him his laptop and said: Report_Story #4 
+ I cut Willie loose and told him to get dressed and then I handed him his laptop and said:  
 
  
 
@@ -9050,7 +9050,7 @@
 
  "I'm not usually into porn, but looking at those pictures has given me some ideas. Care to follow me into the bedroom?" 
 
- She headed for the bedroom and I smiled and followed along behind her. Report_Story #1 
+ She headed for the bedroom and I smiled and followed along behind her.  
 
  
 
@@ -9226,7 +9226,7 @@
 
  "I don't know if I can make it to the living room" I said. "This old guy can't seem to find his walker." 
 
- "Just go" Jan said. Report_Story #2 
+ "Just go" Jan said.  
 
  
 
@@ -9376,7 +9376,7 @@
 
  There was one more chapter in the story. It was a Wednesday and almost thirty years to the day since Janet had left when Jessica's doorbell rang. She answered it to find her mother standing there. Before Janet could say a word Jess shut the door in her face and locked it. Janet rang the bell and knocked on the door for five minutes before giving up. 
 
- Jess watched from her living room window as Janet walked down the street carrying two suitcases. She was never heard from again. Report_Story #1 
+ Jess watched from her living room window as Janet walked down the street carrying two suitcases. She was never heard from again.  
 
  
 
@@ -9568,7 +9568,7 @@
 
  She sat down and I said, "I've misled you. Well, to be honest I lied to you. I told you that my mother died of cancer when I was a young boy, but it was a lie. I told it because I was ashamed of the truth. My mother didn't die of cancer; she died of Aids." 
 
- I told Tam what my dad had told me and then I said, "I can not abide cheaters Tam. My mother cheated on my father and as a result I grew up without a mother. He forgave her twice, but when it happened a third time he kicked her out. I have no room in my heart for cheats. Why am I bringing this up now? Because I need to clear the decks so to speak. Report_Story #2 
+ I told Tam what my dad had told me and then I said, "I can not abide cheaters Tam. My mother cheated on my father and as a result I grew up without a mother. He forgave her twice, but when it happened a third time he kicked her out. I have no room in my heart for cheats. Why am I bringing this up now? Because I need to clear the decks so to speak.  
 
  
 
@@ -9764,7 +9764,7 @@
 
  "You will need to find someone a lot smarter than me to answer that question." 
 
- So she was going to call and cancel. Interesting. But did it change anything? She could change her mind at any time. The curiosity would still be there. She could swear on a stack of Bibles that she would never cheat on me, but could I believe her? Knowing what I now knew could I ever believe her? Her curiosity had her ready to cheat on me and it was only her boneheaded plan to set me up that screwed things up for her so could I ever be sure that her curiosity wouldn't cause her to cheat if she ever thought she was absolutely sure that she could get away with it? Report_Story #3 
+ So she was going to call and cancel. Interesting. But did it change anything? She could change her mind at any time. The curiosity would still be there. She could swear on a stack of Bibles that she would never cheat on me, but could I believe her? Knowing what I now knew could I ever believe her? Her curiosity had her ready to cheat on me and it was only her boneheaded plan to set me up that screwed things up for her so could I ever be sure that her curiosity wouldn't cause her to cheat if she ever thought she was absolutely sure that she could get away with it?  
 
  
 

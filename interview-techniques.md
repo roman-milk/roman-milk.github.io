@@ -144,7 +144,7 @@
 
  "Yes, Mrs Philips," Pete murmurs, his voice a low, husky croak. 
 
- "Call me Beth, Peter," the woman says as she shrugs the blouse from her shoulders and lets the bra straps slide down her arms. "After all, my sweet, we're going to be intimate so we might as well be on first name terms." Beth's lips purse in a moue of consideration and she adds, "But it does make me all gooey when you call me Mrs Philips." Beth regards the young man, his face slack with surprise at finding himself in such an unimaginable position. She loved it when that happened and the young guys she chose found themselves in a scene right out of a porn film. Report_Story #2 
+ "Call me Beth, Peter," the woman says as she shrugs the blouse from her shoulders and lets the bra straps slide down her arms. "After all, my sweet, we're going to be intimate so we might as well be on first name terms." Beth's lips purse in a moue of consideration and she adds, "But it does make me all gooey when you call me Mrs Philips." Beth regards the young man, his face slack with surprise at finding himself in such an unimaginable position. She loved it when that happened and the young guys she chose found themselves in a scene right out of a porn film.  
 
  
 

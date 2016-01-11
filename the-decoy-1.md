@@ -156,7 +156,7 @@
 
  "I'm crazy about him baby, but three times a week with him is all I can take." 
 
- Of course there is always the possibility that she doesn't want to have to give up the thing that she likes most about me. I just hung up the phone. Report_Story #2 
+ Of course there is always the possibility that she doesn't want to have to give up the thing that she likes most about me. I just hung up the phone.  
 
  
 

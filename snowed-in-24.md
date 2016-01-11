@@ -252,7 +252,7 @@
 
  Her smirk was dangerous when she replied with a whispered, "Just taking a bath..." Gillian drained the glass and held it towards her brother. "Top me up, will you." 
 
- Adam stared at his sister and tried to figure out just what had happened. He thought back, analysing the past twenty minutes while attempting to make sense of how it was he'd ended up in the bath with Gil. He was confused by the speed of events, baffled by his sister's behaviour and attitude. Adam's muddled brain had difficulty processing the impressions assaulting him. He was aroused yet reticent. He was part thrilled to be where he was, gloriously nude with his gorgeous sister; yet another place inside him was appalled. Gillian was nineteen, too young to be playing such a dangerous game—especially with her brother. Report_Story #2 
+ Adam stared at his sister and tried to figure out just what had happened. He thought back, analysing the past twenty minutes while attempting to make sense of how it was he'd ended up in the bath with Gil. He was confused by the speed of events, baffled by his sister's behaviour and attitude. Adam's muddled brain had difficulty processing the impressions assaulting him. He was aroused yet reticent. He was part thrilled to be where he was, gloriously nude with his gorgeous sister; yet another place inside him was appalled. Gillian was nineteen, too young to be playing such a dangerous game—especially with her brother.  
 
  
 
@@ -474,7 +474,7 @@
 
  *** 
 
- With the spray cascading over them both, Gillian knelt in the tub and sucked her brother's cock. Having him in her mouth thrilled Gillian. She loved the solid mass of him and the way he stretched her lips. The shaft was rigid in her hand, the heavy testes cupped in one palm while she slurped at Adam with an enthusiasm born of love and the desire to please her new lover. Report_Story #3 
+ With the spray cascading over them both, Gillian knelt in the tub and sucked her brother's cock. Having him in her mouth thrilled Gillian. She loved the solid mass of him and the way he stretched her lips. The shaft was rigid in her hand, the heavy testes cupped in one palm while she slurped at Adam with an enthusiasm born of love and the desire to please her new lover.  
 
  
 

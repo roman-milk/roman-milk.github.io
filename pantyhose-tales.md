@@ -494,7 +494,7 @@
 
  LeahAdams: Yes, Mistress. Straight up? 
 
- MistressP: Spread open like I'm about to fuck u with one of my big strap-on cocks. Report_Story #2 
+ MistressP: Spread open like I'm about to fuck u with one of my big strap-on cocks.  
 
  
 
@@ -740,7 +740,7 @@
 
  LeahAdams: Mistress Penny. Thank you for making me your slave. I will obey without hesitation. 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -1020,7 +1020,7 @@
 
  Becky quickly obeyed, the aggressive tone similar to her evil stepfather's. 
 
- "That is better," Jessica said. "Now be a good puppy and crawl to your Mistress." Report_Story #2 
+ "That is better," Jessica said. "Now be a good puppy and crawl to your Mistress."  
 
  
 
@@ -1244,7 +1244,7 @@
 
  "The one I fucked?" Becky shot back, enjoying the brief moment where she could win. 
 
- "Yes, the one that put you in the position you are in now. Although I suppose in retrospect it was fate," Jessica smiled, not letting Becky see any hint of weakness. Report_Story #3 
+ "Yes, the one that put you in the position you are in now. Although I suppose in retrospect it was fate," Jessica smiled, not letting Becky see any hint of weakness.  
 
  
 
@@ -1540,7 +1540,7 @@
 
  Instantly the intense buzzing brought Rebecca increasing pleasure and her orgasm was imminent. Frustratingly, the orgasm wouldn't cross the threshold and she cursed the long cocktail dress. Instead, she moved her legs slightly apart and back together causing a new sensation in her pussy and within seconds the orgasm bubbled over. She bit her lower lip to hold in the moan of pleasure attempting to escape as her body tingled all over the mixture of obedience and humiliation making the orgasm more intense. 
 
- The rest of movie the toy inside her buzzed on low teasing her as she tried to watch the movie assuming there was a purpose to such a strange task. The movie ended and the egg shut off. She exited the theatre and was heading out when she bumped into Alexis and Lacie. Her face instantly went red as she realized she had no explanation to why she was at a theatre in a cocktail dress. Report_Story #4 
+ The rest of movie the toy inside her buzzed on low teasing her as she tried to watch the movie assuming there was a purpose to such a strange task. The movie ended and the egg shut off. She exited the theatre and was heading out when she bumped into Alexis and Lacie. Her face instantly went red as she realized she had no explanation to why she was at a theatre in a cocktail dress.  
 
  
 
@@ -1856,7 +1856,7 @@
 
  All Rebecca's brief bravado and confidence faded away as she knew she was trapped and also knew she had to obey. 
 
- Rebecca texted back: Report_Story #5 
+ Rebecca texted back:  
 
  
 
@@ -2174,7 +2174,7 @@
 
  Becky opened wide and swallowed as much as she could as her teacher's cum flooded out. Becky licked and licked eagerly until she was told to stop. 
 
- "Stop, stop," Mrs. Heart said, pushing her pet's head away. "It's beginning to tickle." Report_Story #6 
+ "Stop, stop," Mrs. Heart said, pushing her pet's head away. "It's beginning to tickle."  
 
  
 
@@ -2498,7 +2498,7 @@
 
  "You want to suck them, don't you Lacie's mom?" Alexis said, purposely reminding her of her submissive daughter. 
 
- Hearing her daughter's name quickly brought Rebecca back to her senses. "I am leaving," Rebecca said, knowing if she didn't leave now she would soon be submitting sexually to this teenager and loving it. Report_Story #7 
+ Hearing her daughter's name quickly brought Rebecca back to her senses. "I am leaving," Rebecca said, knowing if she didn't leave now she would soon be submitting sexually to this teenager and loving it.  
 
  
 

@@ -256,7 +256,7 @@
 
  "I walked through the house looking for you and when I couldn't find you I had to call a cab. The cab took a while to get there and by the time I got home you were ready to leave. There never was anyone but you Rob, but you never gave me a chance to explain." 
 
- "It wouldn't have mattered anyway Gina. I was already asking people for recommendations on divorce lawyers. If I had let you talk and if I had believed you the only thing that would have been different is that you wouldn't have had to go through the discomfort and pain of childbirth. I'd have still been gone." Report_Story #2 
+ "It wouldn't have mattered anyway Gina. I was already asking people for recommendations on divorce lawyers. If I had let you talk and if I had believed you the only thing that would have been different is that you wouldn't have had to go through the discomfort and pain of childbirth. I'd have still been gone."  
 
  
 

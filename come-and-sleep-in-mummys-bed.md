@@ -132,7 +132,7 @@
 
  Her tits, he thought. Look at her tits. Fuck I’d just love to stick my cock between those big beauties and—’ 
 
- ‘—Are you going to stand there all day or are you going to help?’ Ingrid had called, interrupting Aaron’s internal appreciation of her assets. She then turned and, with what could have been a deliberate provocation if Aaron didn’t know better, bent and presented her derrière to her son’s view. Report_Story #2 
+ ‘—Are you going to stand there all day or are you going to help?’ Ingrid had called, interrupting Aaron’s internal appreciation of her assets. She then turned and, with what could have been a deliberate provocation if Aaron didn’t know better, bent and presented her derrière to her son’s view.  
 
  
 

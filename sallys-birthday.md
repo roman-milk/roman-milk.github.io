@@ -268,7 +268,7 @@
 
  "Maybe so Sally, but it is my life and I'm not going to gamble with it. Get tested and then call me. 
 
- Sally called me two weeks later and told me she had the lab results and I told her to fax them to me. She did and the tests said she was clean, but I knew that HIV could take six or eight months to show up. I could milk things for several more months, but I didn't want to run things out that long. Ten minutes after I received the fax she called me and asked me if I'd gotten it and I said that I had. Report_Story #2 
+ Sally called me two weeks later and told me she had the lab results and I told her to fax them to me. She did and the tests said she was clean, but I knew that HIV could take six or eight months to show up. I could milk things for several more months, but I didn't want to run things out that long. Ten minutes after I received the fax she called me and asked me if I'd gotten it and I said that I had.  
 
  
 

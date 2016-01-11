@@ -80,7 +80,7 @@
 
  It took a stray comment from a friend, about another friend. I was talking on the phone to one of my two best friends from college, Marigold. She was married, kids, all that. We were talking about our mutual best friend from college, Belinda, who unlike us was twice divorced and back playing the field. Marigold had something dismissive to say about Belinda, something like, "Yeah, she said her last date was a guy from an online want ad, she said it was the best sex she'd ever had." Marigold, of course, had no idea I was fucking around on my husband online and on the phone with internet guys, so she thought I'd share her disdain for Belinda. 
 
- Hmm, that wasn't my reaction. I mean, I said what Marigold expected me to say. But, secretly, it was like a sign. See, internet men can be hot in person too, just like on the phone. Report_Story #2 
+ Hmm, that wasn't my reaction. I mean, I said what Marigold expected me to say. But, secretly, it was like a sign. See, internet men can be hot in person too, just like on the phone.  
 
  
 
@@ -116,7 +116,7 @@
 
  Damn, was I looking to cheat? Turn this fantasy into reality? Months ago, I had told myself, it was only fantasy, I would never let it become real. Never, ever, ever. 
 
- Well ... fuck it! Maybe it needed to get real? Report_Story #1 
+ Well ... fuck it! Maybe it needed to get real?  
 
  
 
@@ -212,7 +212,7 @@
 
  We made out noisily, swapping saliva, tongues dancing together, grinding our crotches together, not comfortable at all but unable to move away from each other. Then, out of nowhere, without saying a word, studly Rick scooped my petite body into his arms and carried me across our one-floor house towards the guest bedroom. Still making out with him, our lips sealed and lungs exchanging breaths directly, my legs were wrapped around his athletic waist while he continued to grab my firm little butt. As we passed into the guest room, I had a fleeting admiration for Rick that we weren't going into the master bedroom, thus avoiding me fucking him on my marital bed. Cheating is cheating, but for a second, I felt that I didn't need to do it right where my husband slept. Really bad karma, that would be -- even if all this would remain a complete secret from my husband. 
 
- Flopped onto my back on the queen-size bed, Rick peeled off my white skirt. I couldn't wait, I gripped my bikini top and yanked it off of my torso, tossing it onto the floor. My nude tits jiggled in front of the stud, my pink nipples long and hard, standing at attention for him. Arching my back more, I grinned as Rick peeled off the bottoms of my two-piece bathing suit. He was stripping me completely naked, I was a married woman being exposed to a virtual stranger. Report_Story #2 
+ Flopped onto my back on the queen-size bed, Rick peeled off my white skirt. I couldn't wait, I gripped my bikini top and yanked it off of my torso, tossing it onto the floor. My nude tits jiggled in front of the stud, my pink nipples long and hard, standing at attention for him. Arching my back more, I grinned as Rick peeled off the bottoms of my two-piece bathing suit. He was stripping me completely naked, I was a married woman being exposed to a virtual stranger.  
 
  
 
@@ -270,7 +270,7 @@
 
  "Oh, fuck that!" 
 
- And I turned around, rubbed my aching clitoris, and looked forward to the next time Roger could come over and give me what my slutty body needed. Report_Story #1 
+ And I turned around, rubbed my aching clitoris, and looked forward to the next time Roger could come over and give me what my slutty body needed.  
 
  
 
@@ -372,7 +372,7 @@
 
  Finally, for his last orgasm of the day, he spewed his hot jism all over my sweaty, smiling face, and photographed the happy result. Then I licked it clean. I was definitely a cum whore now. 
 
- We promised to stay in touch, and he emailed me all of the photos later that afternoon so I have them too. I had a feeling I'd never see Chuck again, and that was okay to me. Instead, as I drove home, I was focused on another looming feeling, one that was changing my view of myself. Despite all the guilt of lying to my husband to go downtown and cheat with a traveling businessman, I loved myself for doing it. I was hot, I made very sexy men horny for me, and the sex was amazing. I wasn't going to stop. Report_Story #2 
+ We promised to stay in touch, and he emailed me all of the photos later that afternoon so I have them too. I had a feeling I'd never see Chuck again, and that was okay to me. Instead, as I drove home, I was focused on another looming feeling, one that was changing my view of myself. Despite all the guilt of lying to my husband to go downtown and cheat with a traveling businessman, I loved myself for doing it. I was hot, I made very sexy men horny for me, and the sex was amazing. I wasn't going to stop.  
 
  
 
@@ -384,7 +384,7 @@
 
  "You married slut," snickered my best friend, "what a tramp!" 
 
- She didn't mean it in a negative way, but it didn't matter. She was right. But then again -- so what? Fuck that! Report_Story #1 
+ She didn't mean it in a negative way, but it didn't matter. She was right. But then again -- so what? Fuck that!  
 
  
 
@@ -486,7 +486,7 @@
 
  Blayne and I didn't just 69, we took turns eating each other, and made out a lot, tasting each other's cum in our mouths, using fingers as much as tongues to screw each other's pussies. At times, I almost forgot Paul was there, until his cock was against my hand or mouth, if only briefly. 
 
- But, eventually, Paul had to get his sex too. He had me lie flat, Blayne sitting on my face, so I continued to eat her cunt while Paul mounted me. I couldn't see him but I felt him rub his hard prick against my twat, then with a shove he was fucking me, while making out with his girlfriend. He felt good, better than my husband, not as big as the huge pricks I'd fucked recently before him. Already having cum so much from Blayne's sex, I didn't cum right away, instead I gripped my slender knees and spread myself open to get used by Paul. Report_Story #2 
+ But, eventually, Paul had to get his sex too. He had me lie flat, Blayne sitting on my face, so I continued to eat her cunt while Paul mounted me. I couldn't see him but I felt him rub his hard prick against my twat, then with a shove he was fucking me, while making out with his girlfriend. He felt good, better than my husband, not as big as the huge pricks I'd fucked recently before him. Already having cum so much from Blayne's sex, I didn't cum right away, instead I gripped my slender knees and spread myself open to get used by Paul.  
 
  
 
@@ -520,7 +520,7 @@
 
  I still don't think I'm a bisexual. But when Blayne has her creamy thighs spread open, pulling back her knees, offering me her wet, pink vagina, I can't help myself, I bury my tongue in it. I love making her orgasm, knowing that I can pleasure a woman is even more rewarding than having established (zillions of times) that I can make a guy's cock hard and cum. Blayne has sexy, loud squeals when she cums, then moans and pets me in a delighted purr. It's sweet and sexy. 
 
- Maybe I am a bisexual now. But what's in a name? I just know what I like, I don't care what labels anyone's going to put on me. Fuck that! Report_Story #1 
+ Maybe I am a bisexual now. But what's in a name? I just know what I like, I don't care what labels anyone's going to put on me. Fuck that!  
 
  
 
@@ -646,7 +646,7 @@
 
  Grunting, both horny, I pulled him on top of me and guided his cock to my twat. "I'm a slut," I grunted, admitting the obvious, then reminding him of my schedule, "fuck me baby, I gotta see my husband in an hour." 
 
- Michael grinned upon hearing that, the fact that I was married and cheating was turning him on. "Oooh, the married slut needs someone else's cock huh?" He leaned over me, his arms straight down so his torso floated above my body, moving his hard penis to my squishy vagina. "Your husband doesn't give you everything you need, huh?" Report_Story #2 
+ Michael grinned upon hearing that, the fact that I was married and cheating was turning him on. "Oooh, the married slut needs someone else's cock huh?" He leaned over me, his arms straight down so his torso floated above my body, moving his hard penis to my squishy vagina. "Your husband doesn't give you everything you need, huh?"  
 
  
 
@@ -698,7 +698,7 @@
 
  We left at 6:50 pm, were really late because traffic sucked worse than usual, and my husband didn't talk to me on the way there, or the way home. The third couple at dinner was an investor, he basically didn't like my husband from the outset, and I don't think the fact we were an hour late or more helped. Total clunker of a night. The guy even stared at my tits in front of his wife, the pervert. No, he didn't get anything from me. My head was elsewhere, I was barely participating in the conversation. I sat at the table, stewing in my memories of the afternoon, knowing Michael's cum was in my vagina, and I was thinking to myself Michael would be a fun fuck buddy who lived close, had this own place, and with whom the sex was pretty hot. Plus, he didn't mind I fucked around with other guys -- he was, in a way, the perfect regular lover for me! 
 
- But besides giving me a guy who might be able to satisfy my aching for kinky sex on a regular basis, I'd found out something else that afternoon. I was a real married whore, I chose sex with a total stranger over my own husband's career. Oh, well, you know what I say -- Fuck that! Report_Story #1 
+ But besides giving me a guy who might be able to satisfy my aching for kinky sex on a regular basis, I'd found out something else that afternoon. I was a real married whore, I chose sex with a total stranger over my own husband's career. Oh, well, you know what I say -- Fuck that!  
 
  
 
@@ -810,7 +810,7 @@
 
  Wow, I was staring at two very big, very hard cocks! Brad's was long, a solid tube with a big fat cockhead at the end. Tommy's was uncut, it was fat at the base with a more narrow, pointy head, the sheath of skin surrounding it but that yielded when I pulled it back. Both dicks were dripping precum, both were ready for me. Brad's was, I would guess, about six and a half inches, possibly seven; Tommy's was more like six inches, but it was way thicker than my husband's, and definitely a bit longer. 
 
- The men stepped up to my face. I hurriedly peeled off my thong, which was painfully tight as it had been pulled to one side. With my cunt dripping juices down my spread-open thighs, I remained on my knees with my asscheeks on my heels, reaching up to grab both dicks. Mmm, they smelled heavenly, so manly. Tommy's was first, I slurped the pointy head with my tongue, loving the flavor. Rolling my tongue around it I sucked it into my mouth a few inches, slurping on it, creating a vacuum, my fist pumping the fat base and pulling back his foreskin. Meanwhile my other hand was jerking off Brad's huge cock slowly, back and forth, feeling how hot and hard it was. The skin of Brad's penis burned against the palm of my hand. Report_Story #2 
+ The men stepped up to my face. I hurriedly peeled off my thong, which was painfully tight as it had been pulled to one side. With my cunt dripping juices down my spread-open thighs, I remained on my knees with my asscheeks on my heels, reaching up to grab both dicks. Mmm, they smelled heavenly, so manly. Tommy's was first, I slurped the pointy head with my tongue, loving the flavor. Rolling my tongue around it I sucked it into my mouth a few inches, slurping on it, creating a vacuum, my fist pumping the fat base and pulling back his foreskin. Meanwhile my other hand was jerking off Brad's huge cock slowly, back and forth, feeling how hot and hard it was. The skin of Brad's penis burned against the palm of my hand.  
 
  
 
@@ -856,7 +856,7 @@
 
  "You," Tommy said as he withdrew his penis from my pussy for the last time, "shouldn't be married -- you could literally fuck different guys every day, couldn't you?" 
 
- Words I'd thought, but to hear a guy say that to me? It made me pout, that someone else had figured me out. But I had to smile. Fuck that, I thought, he's right! Report_Story #1 
+ Words I'd thought, but to hear a guy say that to me? It made me pout, that someone else had figured me out. But I had to smile. Fuck that, I thought, he's right!  
 
  
 
@@ -922,7 +922,7 @@
 
  We sealed the promise with a horny kiss. 
 
- When he left my house, I thought to myself, this was a pretty good fuck, not a bad way to spend a day. Little did I realize what else was in store for me that day! Report_Story #1 
+ When he left my house, I thought to myself, this was a pretty good fuck, not a bad way to spend a day. Little did I realize what else was in store for me that day!  
 
  
 
@@ -1036,7 +1036,7 @@
 
  I might have still thought he was in fantasy land, making that up -- who would really want a spouse who slept around? "Oh, yeah, you would, huh?" I was gripping the bedsheets now, steadying myself, wincing, my pussy was on fire, insanely sore from fucking Colin and now Michael, but I loved being used like this. LOVED it. 
 
- Michael was grabbing my thin ankles, spreading open my legs more, I was grunting from how sore my muscles were. But, my ass lifting slightly off the bed, I could feel his cock entering me even more deeply, his shaved balls smacking into my sweaty, wet asscheeks with each thrust. "Yeah, I would, you bitch -- I'd love it -- I'd love to come home from work, and find you in our bed, getting fucked by some huge big dick." Wiping sweat from his brow, he began relating fantasies he'd had, very private fantasies, maybe never really finding a woman who appreciated them. "Or, I come home from work and you left a note, you won't be coming home for dinner -- out on some hot fuckdate -- then, you wake me up in the middle of the night, sit on my face with your wet pussy, make me taste some other guy's sperm in your cunt, proving what a slut you are!" Report_Story #2 
+ Michael was grabbing my thin ankles, spreading open my legs more, I was grunting from how sore my muscles were. But, my ass lifting slightly off the bed, I could feel his cock entering me even more deeply, his shaved balls smacking into my sweaty, wet asscheeks with each thrust. "Yeah, I would, you bitch -- I'd love it -- I'd love to come home from work, and find you in our bed, getting fucked by some huge big dick." Wiping sweat from his brow, he began relating fantasies he'd had, very private fantasies, maybe never really finding a woman who appreciated them. "Or, I come home from work and you left a note, you won't be coming home for dinner -- out on some hot fuckdate -- then, you wake me up in the middle of the night, sit on my face with your wet pussy, make me taste some other guy's sperm in your cunt, proving what a slut you are!"  
 
  
 
@@ -1150,7 +1150,7 @@
 
  That was another promise I'd keep, I told him. 
 
- So as Michael left, I moaned and rubbed my wet pussy, amazed I'd had two cocks in it that day. Not a bad day at all, one of the best. I still didn't realize there was yet more cock to fuck! Report_Story #1 
+ So as Michael left, I moaned and rubbed my wet pussy, amazed I'd had two cocks in it that day. Not a bad day at all, one of the best. I still didn't realize there was yet more cock to fuck!  
 
  
 
@@ -1254,7 +1254,7 @@
 
  Brad was naked too, sitting upright in the King size bed, his back propped up by pillows against the headboard, the bed sheet pulled to his lap to cover his penis. I could see the tent rising from his lap, however. He leaned back, his muscular shoulders and arms so masculine and meaty, so powerful, contrast to the amicable smile on his lips and tender gaze from his big eyes. Seeing me in the towel, he patted the space on the bed next to himself, muttering, "I'm so happy you can be with me today, Melanie, you're almost making me feel guilty." 
 
- Sauntering over to the bed, seeing his eyes ravish me in the towel, I cocked my head to the side and let my long, brown hair spill down my chest. "Aren't I the one supposed to be feeling guilty," I asked playfully, "I'm the married one, after all?" Having his full attention, I stopped next to the bed and peeled away the towel, showing him my naked body, his eyes darting to the sight of my hard nipples and my always-shaved pussy, now glistening and pink. Smiling at his reaction, I purred, "Got any room for me under those covers, darling?" Report_Story #2 
+ Sauntering over to the bed, seeing his eyes ravish me in the towel, I cocked my head to the side and let my long, brown hair spill down my chest. "Aren't I the one supposed to be feeling guilty," I asked playfully, "I'm the married one, after all?" Having his full attention, I stopped next to the bed and peeled away the towel, showing him my naked body, his eyes darting to the sight of my hard nipples and my always-shaved pussy, now glistening and pink. Smiling at his reaction, I purred, "Got any room for me under those covers, darling?"  
 
  
 
@@ -1298,7 +1298,7 @@
 
  I needed to plate his dinner. There it was, the special plate on the countertop, licked clean of Michael's cum, waiting for my hubby. Wow, this was really, really mean of me, wasn't it, serving my husband his dinner on that plate, soiled by his cheating wife and her pervy lover? I mean -- this was really cruel, in a stealthy way, wasn't it? 
 
- Fuck that, I laughed to myself, dumping my husband's food onto the plate and serving it to him. Damn, that was fun to do! Report_Story #1 
+ Fuck that, I laughed to myself, dumping my husband's food onto the plate and serving it to him. Damn, that was fun to do!  
 
  
 
@@ -1390,7 +1390,7 @@
 
  "Yeah honey!" I had to put my head down on the bed, pushing my ass back, feeling that dick penetrating me even farther, so deep inside my hole. "Fuck me more, baby!" 
 
- After the doggy-style sex, then rolling around fucking and kissing, I ended up riding him cowgirl-style. My bra and thong were still on, my tits jiggling around but pushed out of shape by the bra bunched up underneath them. Mark was reaching up, groping my big married boobies, twirling fingertips around my sensitive nipples and even pinching and biting them while my twat rode his sexy shaft. He was so hard, he'd cummed in me once but didn't stop fucking, it was endless sex with Mark every time. I gazed at his eyes, watching him admire my petite, thin body and glorious tits, arching my back and riding up and down while fucking him. Mark fucked me with his eyes, not just his dick; he completely appreciated me, how I look, my husband had stopped doing that years ago. I had the feeling I could fuck Mark daily, and he'd still give me the same look every time, even ten years later. Report_Story #2 
+ After the doggy-style sex, then rolling around fucking and kissing, I ended up riding him cowgirl-style. My bra and thong were still on, my tits jiggling around but pushed out of shape by the bra bunched up underneath them. Mark was reaching up, groping my big married boobies, twirling fingertips around my sensitive nipples and even pinching and biting them while my twat rode his sexy shaft. He was so hard, he'd cummed in me once but didn't stop fucking, it was endless sex with Mark every time. I gazed at his eyes, watching him admire my petite, thin body and glorious tits, arching my back and riding up and down while fucking him. Mark fucked me with his eyes, not just his dick; he completely appreciated me, how I look, my husband had stopped doing that years ago. I had the feeling I could fuck Mark daily, and he'd still give me the same look every time, even ten years later.  
 
  
 
@@ -1472,7 +1472,7 @@
 
  Soon, Susan had reversed herself below me. She and I were in "69" position, the blonde on her back, me straddling her with my face above her pussy, and her mouth underneath mine. I continued to bend me head down, licking her wet clit, sliding my tongue inside her tight hole. The flavor of a female's cunt was so different from a hard male's cock, I was drinking her juices as they flowed out. Behind me, gorgeous Nick was burying his cock inside my pussy, shoving it hard into the back, making me feel pressure as deep as I have ever felt inside there. Susan was licking his balls and shaft while he fucked me, occasionally her tongue flicking off my clitty, teasing me while he fucked me. 
 
- I couldn't help it, I had an orgasm, then another. The smells of our sex, the sight of her naked body and his sexy face and chest . . . his HUGE cock . . . it was perfection, I was in nirvana, I had an explosive, loud cum followed a couple minutes later by another one. Report_Story #3 
+ I couldn't help it, I had an orgasm, then another. The smells of our sex, the sight of her naked body and his sexy face and chest . . . his HUGE cock . . . it was perfection, I was in nirvana, I had an explosive, loud cum followed a couple minutes later by another one.  
 
  
 
@@ -1526,7 +1526,7 @@
 
  But -- fuck that! It's what I wanted to be, as long as I could be with hot studs like Nick! 
 
- And the black bra and thong? I retired that. It was crusty with Nick's sperm after I got home, mixed with Jim's and Mark's from the previous few days. Instead of washing it, I kept it as a memento in the bottom of my drawer. My husband didn't have to know, but it was sort of a trophy for how hot and sexy I am. Even if my husband doesn't appreciate it! Like I said -- fuck that! Report_Story #1 
+ And the black bra and thong? I retired that. It was crusty with Nick's sperm after I got home, mixed with Jim's and Mark's from the previous few days. Instead of washing it, I kept it as a memento in the bottom of my drawer. My husband didn't have to know, but it was sort of a trophy for how hot and sexy I am. Even if my husband doesn't appreciate it! Like I said -- fuck that!  
 
  
 
@@ -1630,7 +1630,7 @@
 
  What confidence, what bravado. I loved it! 
 
- I gripped Terry's sexy, athletic ass, pulling the 40-something year old towards me underneath him, making his cock touch my vagina. I grunted, he grunted, and now we were fucking. I was getting laid by a complete stranger from the gym! Report_Story #2 
+ I gripped Terry's sexy, athletic ass, pulling the 40-something year old towards me underneath him, making his cock touch my vagina. I grunted, he grunted, and now we were fucking. I was getting laid by a complete stranger from the gym!  
 
  
 
@@ -1710,7 +1710,7 @@
 
  "Yes!" I was panting hard, having difficulty breathing from the liquids in my nose and mouth, and how my throat hurt. "Yes, give it to me, fuck me baby!" 
 
- The blonde-haired stud with the ripped chest didn't like me on the bench, however, so he lifted me up -- not removing his penis from my vagina -- and laid me down again on the small workout mat, letting me rest my legs open and flat, fucking me deeply. Staring at his manly, sexy body, covered in the sweat, I put my little hands on his muscular shoulders and held on for the ride. I was being bent backwards, my ass off of the mat, Johnny's huge cock was driving so deep into my cunt and stretching me open. Filled with cum from the male orgasms I was sloppy wet, Johnny's penis was making noises fucking me, as it penetrated in and pulled out. Squish squish, squish squish. Report_Story #3 
+ The blonde-haired stud with the ripped chest didn't like me on the bench, however, so he lifted me up -- not removing his penis from my vagina -- and laid me down again on the small workout mat, letting me rest my legs open and flat, fucking me deeply. Staring at his manly, sexy body, covered in the sweat, I put my little hands on his muscular shoulders and held on for the ride. I was being bent backwards, my ass off of the mat, Johnny's huge cock was driving so deep into my cunt and stretching me open. Filled with cum from the male orgasms I was sloppy wet, Johnny's penis was making noises fucking me, as it penetrated in and pulled out. Squish squish, squish squish.  
 
  
 
@@ -1760,7 +1760,7 @@
 
  I loved it, I blew myself a kiss in the mirror. What a slut I was, what a skank, so gorgeous and fuckable, and well-fucked! 
 
- And I noticed my wedding ring on my finger, covered in dried cum. It had been there all along, I just ignored it. I fucked four men, three who were total strangers, while wearing it. Now it was covered in their sperm. One would wonder what my husband would think about all that? If you know me well, you know what my reaction was to that thought: Fuck that! Report_Story #1 
+ And I noticed my wedding ring on my finger, covered in dried cum. It had been there all along, I just ignored it. I fucked four men, three who were total strangers, while wearing it. Now it was covered in their sperm. One would wonder what my husband would think about all that? If you know me well, you know what my reaction was to that thought: Fuck that!  
 
  
 
@@ -1832,7 +1832,7 @@
 
  So, that put me here in the parking lot, contemplating making a few hundred bucks getting fucked on camera by a stranger. Fuck, I wanted to do it so badly. Not for the money; but for the fun of it, the sex, the publicity, showing off what a hot slut I am, how good I look nude and with a dick in my mouth or pussy. Or ass, wherever. 
 
- Just drive home, a voice said in my ears, this is out of control. You're out of control, Melanie. It can all end, break it all off, concentrate on your marriage and husband, start a family, be a mom. This was good for the memories, but what's to show for it? I have great sex one day, and the next day, I just want more. It'll never end. Ever! Except, eventually I'll get old and ugly, saggy, hot men won't want me . . . and I'll be alone with fucking nothing. Nothing, no one. Report_Story #2 
+ Just drive home, a voice said in my ears, this is out of control. You're out of control, Melanie. It can all end, break it all off, concentrate on your marriage and husband, start a family, be a mom. This was good for the memories, but what's to show for it? I have great sex one day, and the next day, I just want more. It'll never end. Ever! Except, eventually I'll get old and ugly, saggy, hot men won't want me . . . and I'll be alone with fucking nothing. Nothing, no one.  
 
  
 

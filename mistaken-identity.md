@@ -242,7 +242,7 @@
 
  Janice's hair, make-up, contact lenses, clothes, designer shoes, padded push-up bra, and her status, had been stripped away. It was as though her adult life was nothing more than a fantasy, so as to get through the awkward teenage stage. She had strived to leave that awkward period of her life behind, only for it to be resurrected. 
 
- Instead of an attractive twenty-six year old woman, she saw a geeky girl, looking diffident and gauche. Her significance as a mature woman had been stolen from her by these two girls. They thought they were doing her a favour, by giving her a make-over that would look good on a young girl. Report_Story #2 
+ Instead of an attractive twenty-six year old woman, she saw a geeky girl, looking diffident and gauche. Her significance as a mature woman had been stolen from her by these two girls. They thought they were doing her a favour, by giving her a make-over that would look good on a young girl.  
 
  
 
@@ -538,7 +538,7 @@
 
  'That leaves you and me,' the leader of the gang said. 
 
- It sounded more like a threat than a welcome. Report_Story #3 
+ It sounded more like a threat than a welcome.  
 
  
 
@@ -728,7 +728,7 @@
 
  For a split second she sobered up, then passed out. 
 
- Roy cuddled her, with a delightful smile on his face. This was his first time, and he was deeply in love. He would look after her, and keep her safe. He rubbed his cheek against her back, and kissed her. He wanted to laugh out loud, and jump for joy, but kept still and quiet in case he woke her. Report_Story #1 
+ Roy cuddled her, with a delightful smile on his face. This was his first time, and he was deeply in love. He would look after her, and keep her safe. He rubbed his cheek against her back, and kissed her. He wanted to laugh out loud, and jump for joy, but kept still and quiet in case he woke her.  
 
  
 
@@ -952,7 +952,7 @@
 
  He looked down at his own crotch, and gulped. Sandra had a hand in his jeans, pulling on his cock. He was hard as a rock. It was enough of a distraction to pull his eyes away from Janice. What the hell! He'd already had Sandra, and was going to again. They quickly paid the bill and were ready to leave. 
 
- A glance back at his wife relieved any guilt that might have remained. She was carried away in a passionate embrace, with that boy! She was behaving more lewdly in public than she would ever have done with him. It was well beyond a reprisal for his abandonment of her. It was her fault she was trapped in the role of adolescent, so she would have to un-entangle herself without his help. Report_Story #2 
+ A glance back at his wife relieved any guilt that might have remained. She was carried away in a passionate embrace, with that boy! She was behaving more lewdly in public than she would ever have done with him. It was well beyond a reprisal for his abandonment of her. It was her fault she was trapped in the role of adolescent, so she would have to un-entangle herself without his help.  
 
  
 
@@ -1176,7 +1176,7 @@
 
  
 
- Report_Story #3 
+  
 
  
 
@@ -1444,7 +1444,7 @@
 
  'No way! I deserve half at least,' he shouted. 
 
- 'You are a selfish bastard! I see that now! I'll keep the lot, and sue for half your income,' she calmly goaded him. Report_Story #4 
+ 'You are a selfish bastard! I see that now! I'll keep the lot, and sue for half your income,' she calmly goaded him.  
 
  
 

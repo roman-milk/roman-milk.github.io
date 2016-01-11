@@ -156,7 +156,7 @@
 
  "What for?" 
 
- "For thinking you were an asshole for throwing Kathy out. I just couldn't understand how you could so suddenly turn on someone you had lived with for as long as you had. Now I know how you were feeling at the time." Report_Story #2 
+ "For thinking you were an asshole for throwing Kathy out. I just couldn't understand how you could so suddenly turn on someone you had lived with for as long as you had. Now I know how you were feeling at the time."  
 
  
 
@@ -424,7 +424,7 @@
 
  I knew it was bullshit. I could still remember the night when she'd said: 
 
- "I just don't love you anymore and I'm sorry to have to say it, but I don't know that I ever loved you." Report_Story #3 
+ "I just don't love you anymore and I'm sorry to have to say it, but I don't know that I ever loved you."  
 
  
 

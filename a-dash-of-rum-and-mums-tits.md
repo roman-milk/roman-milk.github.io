@@ -190,7 +190,7 @@
 
  'What ...?' I managed. 
 
- 'You said you wanted to feel them,' my mother said with a shrug of her shoulders. 'Other people have asked,' she pulled a face, 'And I've let them. Women, men ...' She shrugged again. 'Why not you?' The towel parted, my mother holding the edges like a park flasher. Of course she was completely bare beneath. I took it all in. The contrast between her pale skin, the tan lines from the bikini bottoms high on her hips and the golden hue of the darker flesh; I saw the precise stripe of her waxed pubic bush -- that answered that question -- and, of course, her jugs. 'Come on,' she said as casual as you like. 'Come and feel them.' Report_Story #2 
+ 'You said you wanted to feel them,' my mother said with a shrug of her shoulders. 'Other people have asked,' she pulled a face, 'And I've let them. Women, men ...' She shrugged again. 'Why not you?' The towel parted, my mother holding the edges like a park flasher. Of course she was completely bare beneath. I took it all in. The contrast between her pale skin, the tan lines from the bikini bottoms high on her hips and the golden hue of the darker flesh; I saw the precise stripe of her waxed pubic bush -- that answered that question -- and, of course, her jugs. 'Come on,' she said as casual as you like. 'Come and feel them.'  
 
  
 

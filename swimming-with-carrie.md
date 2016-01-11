@@ -136,7 +136,7 @@
 
  It was on his second trip that he saw her. She'd left the door open and was squatting on the toilet in full view. Patrick halted, arms laden with empty cans. All he could do was gape slack-jawed while his niece tinkled into the bowl. Then with no ambiguity whatsoever -- this was no accident -- the girl opened her legs and exposed her smooth sex to her uncle. Reaching for the toilet paper with deliberate slowness she tore a sheet or two from the roll and, holding her uncle's gaze, wiped herself dry and dropped the used tissue between her thighs and into the water. Carrie stood to flush the toilet while still holding the hem of her dress against her stomach. Her exposed pudenda looked plump and inviting, positively edible ... 
 
- The dog leapt from his basket with fright and Carrie laughed at her uncle's clumsiness when Patrick, forgetting the armful of empty cans, dropped the lot in a clattering of aluminium that shocked him back to reality. Pushing past her poleaxed uncle, Carrie bade a cheery goodnight: "Sleep tight, Uncle Pat," she grinned with not a care in the world as she pressed the frontage of her body against his in the narrow hall as she passed. "I left you a present on your pillow." Carrie ruffled the grey-furred head. "Night, Brillo." Report_Story #2 
+ The dog leapt from his basket with fright and Carrie laughed at her uncle's clumsiness when Patrick, forgetting the armful of empty cans, dropped the lot in a clattering of aluminium that shocked him back to reality. Pushing past her poleaxed uncle, Carrie bade a cheery goodnight: "Sleep tight, Uncle Pat," she grinned with not a care in the world as she pressed the frontage of her body against his in the narrow hall as she passed. "I left you a present on your pillow." Carrie ruffled the grey-furred head. "Night, Brillo."  
 
  
 
@@ -274,7 +274,7 @@
 
  Again he paused. The gentleness of the countryside settled around the couple as Patrick contemplated an answer. In the distance he heard a man's voice from the Oxford canal as a narrow boat moored alongside the dock -- a pub lunch and a few drinks before another sedate leg of a journey downstream. There came to his ears the distant rumble and clatter of some agricultural machinery threshing away in the haze -- yellow and green livery of a John Deere working on the farmland ... Quintessentially English summertime. 
 
- "I thought about travelling," Patrick eventually responded suddenly thirsty for a pint of beer, real beer, ale. "Not that I wouldn't miss this," he added, shoving down the temptation and casting an arm around him in an arc to represent the scene about them. "Just getting away from reminders of the past and losing myself somewhere like Thailand or Bali." Report_Story #3 
+ "I thought about travelling," Patrick eventually responded suddenly thirsty for a pint of beer, real beer, ale. "Not that I wouldn't miss this," he added, shoving down the temptation and casting an arm around him in an arc to represent the scene about them. "Just getting away from reminders of the past and losing myself somewhere like Thailand or Bali."  
 
  
 

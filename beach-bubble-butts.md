@@ -106,7 +106,7 @@
 
  I started to wonder if my wife knew about my past. I never told her about that part of my life, obviously, but I was still friends with the same people as I was back then. I wondered if any of them had let my secret slip. I wonder if she suspected that I had been eying up this slut since we got here. 
 
- My wife and I finally started to relax. Sherry laid back and began to read her book, and I just sat back and attempted to tan. As I closed my eyes, all I could imagine in my mind's eye was that girl. I tried to justify these thoughts. She was a gorgeous creature. It was a natural reaction for any man. Even though I was a changed man, I was still a man. Report_Story #2 
+ My wife and I finally started to relax. Sherry laid back and began to read her book, and I just sat back and attempted to tan. As I closed my eyes, all I could imagine in my mind's eye was that girl. I tried to justify these thoughts. She was a gorgeous creature. It was a natural reaction for any man. Even though I was a changed man, I was still a man.  
 
  
 
@@ -232,7 +232,7 @@
 
  I was stunned by this. Stunned. This girl was offering me her womb. She was offering her womb to me to make babies. Holy Shit! This was something I had never encountered. Most of the girls I was with either insisted I wear a condom or that I made sure to pull out. The only pussy I ever came in was my wife's. I never had the opportunity to cum inside a nice, tight, teenage twat. 
 
- I had clearly underestimated this teenage girl. She knew how to play the game in a way I had never seen. She was wise beyond her years. She was the worthy challenger I had dreamed of facing. I asked myself why she was offering me this much. She had just met me. Then I realized the answer. She viewed me as her equal. She viewed me as a worthy competitor to her. A worthy challenger. She viewed me as her sexual equal. There was only one choice for people like us when we meet our equal. Could I resist the urge to go to battle with her? Playing the game with her would be a once in a lifetime opportunity. I was still hesitant. Report_Story #3 
+ I had clearly underestimated this teenage girl. She knew how to play the game in a way I had never seen. She was wise beyond her years. She was the worthy challenger I had dreamed of facing. I asked myself why she was offering me this much. She had just met me. Then I realized the answer. She viewed me as her equal. She viewed me as a worthy competitor to her. A worthy challenger. She viewed me as her sexual equal. There was only one choice for people like us when we meet our equal. Could I resist the urge to go to battle with her? Playing the game with her would be a once in a lifetime opportunity. I was still hesitant.  
 
  
 
@@ -334,7 +334,7 @@
 
  I could feel his presence as he got behind me in line. I went over what I knew about him. I figured he wasn't having good sex. With the mismatch between him and his wife, it was pretty obvious good sex wasn't happening there. And the way his eyes wolfed down my body told me he was into younger girls. He was probably the type of guy who had fucked around in the past before settling down. He was probably nasty. He had to be if he was following an 18-year-old girl's hot ass around the beach. That's why I knew he would enjoy it when I pushed my ass into his crotch. This allowed me to confirm my suspicion: he was huge! Perfect for a slut like me. 
 
- By the time we got to talking I knew he wanted me to seduce him. But the thing was, I had never been with an older man, so I didn't know for sure what they were typically looking for. So most of the things I told him were either bullshit or guesswork. I appealed to those instincts in a man to fuck and impregnate the hottest bitch around. Maya wasn't so sure about this, but I knew better. I knew that when the time came, she would be begging him to empty his balls in her. Despite her shy, intelligent façade, I knew and she knew deep down that her destiny was not to be some bookworm. Her destiny was to end up barefoot and pregnant. I knew it would take some work to get her to that point, but she would. I just hoped the offer of knocking up some young sluts would convince him to fuck me. And it did! I was now leading him down the beach to a nice shady spot, where we both knew what was about to happen. There was no way he was getting out of this without putting a baby in my belly. Report_Story #4 
+ By the time we got to talking I knew he wanted me to seduce him. But the thing was, I had never been with an older man, so I didn't know for sure what they were typically looking for. So most of the things I told him were either bullshit or guesswork. I appealed to those instincts in a man to fuck and impregnate the hottest bitch around. Maya wasn't so sure about this, but I knew better. I knew that when the time came, she would be begging him to empty his balls in her. Despite her shy, intelligent façade, I knew and she knew deep down that her destiny was not to be some bookworm. Her destiny was to end up barefoot and pregnant. I knew it would take some work to get her to that point, but she would. I just hoped the offer of knocking up some young sluts would convince him to fuck me. And it did! I was now leading him down the beach to a nice shady spot, where we both knew what was about to happen. There was no way he was getting out of this without putting a baby in my belly.  
 
  
 
@@ -470,7 +470,7 @@
 
  "Are you gonna be my slut? Are you gonna be there whenever I need to cum?" 
 
- "Yes, I'll be your slut!" she screamed. Our lips met in a rough kiss. This set her off. I felt her pussy convulse around my dick as she came around my cock. She groaned into my mouth. Her tightening pussy set me off. I buried my dick inside of her as my dick once again spurted warm cum, this time into the so- called demure, shy girl. We rode the orgasm out together until I collapsed on top of her, both of us worn out. Report_Story #5 
+ "Yes, I'll be your slut!" she screamed. Our lips met in a rough kiss. This set her off. I felt her pussy convulse around my dick as she came around my cock. She groaned into my mouth. Her tightening pussy set me off. I buried my dick inside of her as my dick once again spurted warm cum, this time into the so- called demure, shy girl. We rode the orgasm out together until I collapsed on top of her, both of us worn out.  
 
  
 

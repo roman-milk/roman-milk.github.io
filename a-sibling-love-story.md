@@ -216,7 +216,7 @@
 
  "Seriously, if they were making a live action Barbie movie you would be the perfect casting choice," I continued. 
 
- Her hand slid down my arm and she took my hand in hers, our fingers intertwining. A simple everyday thing, holding hands, we had done it many times when we were younger, yet this time it was intimate and the feeling inside me spoke volumes. I wanted my sister; not in a 'nasty fuck her brains out' way, no sadly I wanted her in an 'I want to make love to her all night' way. Report_Story #2 
+ Her hand slid down my arm and she took my hand in hers, our fingers intertwining. A simple everyday thing, holding hands, we had done it many times when we were younger, yet this time it was intimate and the feeling inside me spoke volumes. I wanted my sister; not in a 'nasty fuck her brains out' way, no sadly I wanted her in an 'I want to make love to her all night' way.  
 
  
 
@@ -424,7 +424,7 @@
 
  "Well, believe this, Andy. I want to suck your cock," I admitted, opening my mouth and leaning forward. 
 
- "Aaaaaah," Andy moaned, as my lips wrapped around his warm cock. Report_Story #3 
+ "Aaaaaah," Andy moaned, as my lips wrapped around his warm cock.  
 
  
 
@@ -688,7 +688,7 @@
 
  "Behave," I retorted, slapping his hand as I got off the bed and grabbed my phone. "It is Mom. Hi, Mom." 
 
- Five minutes later, I had told Mom about dinner, the show and the luxury hotel and she had informed me that unfortunately she and dad were not going to be making it to New York after all as the basement fix had turned into a nightmare. While Mom chatted on and on, Andy came over to me and falling to his knees began licking my pussy. I tried to push him away, but he had a firm grip on my ass. Report_Story #4 
+ Five minutes later, I had told Mom about dinner, the show and the luxury hotel and she had informed me that unfortunately she and dad were not going to be making it to New York after all as the basement fix had turned into a nightmare. While Mom chatted on and on, Andy came over to me and falling to his knees began licking my pussy. I tried to push him away, but he had a firm grip on my ass.  
 
  
 

@@ -206,7 +206,7 @@
 
  As I drove home I wondered about what had just happened. I wasn't sorry that it had, but I just could not figure out why. Why had Pauline, who had every guy in school hot for her and who had never (not to my knowledge anyway) had to go after a guy come after me. To me it did not make sense, but I doubted that I would ever know the answer to that question. 
 
- When I got home the first person I saw when I walked into the house was my sister Nancy. She looked at me and smiled as she made the 'shame shame' motion with her fingers and I realized that she knew just what I had been doing. I just shrugged and held my hands out in a "What? Who me?" gesture and headed up to my room to put away my book bag. Report_Story #2 
+ When I got home the first person I saw when I walked into the house was my sister Nancy. She looked at me and smiled as she made the 'shame shame' motion with her fingers and I realized that she knew just what I had been doing. I just shrugged and held my hands out in a "What? Who me?" gesture and headed up to my room to put away my book bag.  
 
  
 
@@ -328,7 +328,7 @@
 
  Pauline and I were still going strong after a month and I was expecting the kiss off to happen any day, but Pauline gave me no sign that I was a short timer. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -584,7 +584,7 @@
 
  "What are you talking about?" 
 
- "Have you forgotten that it is Wednesday?" Report_Story #2 
+ "Have you forgotten that it is Wednesday?"  
 
  
 
@@ -616,7 +616,7 @@
 
  I nodded a yes and she said, "See you in the morning lover-bunny." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -858,7 +858,7 @@
 
  "Even if that is what you are thinking why are you taking it out on my mother?" 
 
- "Oh come on Pauline. How can I still see your mother when you and I are through? The last time we broke up she slammed the door in my face. When you see her tell her I'm not a blabbermouth. No one but the three of us will ever know. Now if you will excuse me I have some place I need to go." Report_Story #2 
+ "Oh come on Pauline. How can I still see your mother when you and I are through? The last time we broke up she slammed the door in my face. When you see her tell her I'm not a blabbermouth. No one but the three of us will ever know. Now if you will excuse me I have some place I need to go."  
 
  
 
@@ -1104,7 +1104,7 @@
 
  "No. Just think creatively. You think it won't work?" 
 
- "Doesn't matter to me. I don't care if anyone finds out or not. It is your mom's problem. She is the one who doesn't want to get caught." Report_Story #3 
+ "Doesn't matter to me. I don't care if anyone finds out or not. It is your mom's problem. She is the one who doesn't want to get caught."  
 
  
 
@@ -1292,7 +1292,7 @@
 
  It was a long and tiring weekend and we never mentioned our last meeting and her two month absence. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1520,7 +1520,7 @@
 
  I owed Haight nothing and I didn't like the asshole anyway and I wasn't dumb enough to pass up sure pussy even if I didn't think it would be going anywhere. I just said I wasn't dumb so yes, I did pick up on Mandy's "I don't see a ring so I'm applying for the position." I'm not saying for sure that it couldn't happen because people can change, but I remembered how Mandy used to bounce from guy to guy way back when. Time would tell. 
 
- I was a realist and I was in a new place and knew very few people and normally it would have taken months to meet people, start dating and eventually find a bed buddy, but with Mandy I had an immediate bed buddy so I went with the flow. Report_Story #2 
+ I was a realist and I was in a new place and knew very few people and normally it would have taken months to meet people, start dating and eventually find a bed buddy, but with Mandy I had an immediate bed buddy so I went with the flow.  
 
  
 
@@ -1784,7 +1784,7 @@
 
  "I love my husband Dan and even though he wasn't getting the job done in the bedroom I didn't want to lose him. If he was suspicious enough to put private detectives on me he would have eventually found out what I was doing and I couldn't have that. The only solution for me was to quit cold turkey before he could find out anything." 
 
- I smiled and told her that I understood, but that she needed to be on her guard around me and that I'd probably have a hard time keeping my hands off of her even if she was my mother in law. I was kidding of course, but I wasn't all that sure that she was when she told me she would probably have a hard time keeping hers off of me. And in fact neither of us could do it. Over the next several years whenever we were around each other and no one was looking I would fondle her tits or ass and mumble something like: Report_Story #3 
+ I smiled and told her that I understood, but that she needed to be on her guard around me and that I'd probably have a hard time keeping my hands off of her even if she was my mother in law. I was kidding of course, but I wasn't all that sure that she was when she told me she would probably have a hard time keeping hers off of me. And in fact neither of us could do it. Over the next several years whenever we were around each other and no one was looking I would fondle her tits or ass and mumble something like:  
 
  
 

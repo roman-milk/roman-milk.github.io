@@ -120,7 +120,7 @@
 
  "Well, we've been busy with the campaign. I have been going to a Church just outside town, and Adam comes when he can." Paula replied nervously, afraid of offending the Mother Superior, squirming slightly underneath her stern gaze. 
 
- "Well, I hope to change that. I want you guys to come to my church, and see what we have to offer. I hope that you two will come back week after week. And if you like what you see, then you will have the Church's full support in the upcoming election. I will make myself indispensable to your campaign. If you need anything from me, let me know. Not only do I want you to get close to the Church, I want you two to be close to me. I am hoping that, during this campaign, we can all grow to be close friends," Catherine paused, leaning forward slightly, "Very close friends." Report_Story #2 
+ "Well, I hope to change that. I want you guys to come to my church, and see what we have to offer. I hope that you two will come back week after week. And if you like what you see, then you will have the Church's full support in the upcoming election. I will make myself indispensable to your campaign. If you need anything from me, let me know. Not only do I want you to get close to the Church, I want you two to be close to me. I am hoping that, during this campaign, we can all grow to be close friends," Catherine paused, leaning forward slightly, "Very close friends."  
 
  
 
@@ -296,7 +296,7 @@
 
  Paula looked around and saw she was in a room full of nuns. Paula could immediately see Catherine's influence, as these girls were clearly not your typical nuns. All of the nuns were her age or younger, and they all adhered to Catherine's fashion code; namely tight, form fitting habits. 
 
- Paula was stunned. Each one of these girls was stunningly beautiful. Each one of these nuns had hot bodies, illustrated by their tight habits. She could not help but notice that each one of these girls was quite blessed in the chest department, every last one of them exceedingly busty. Each one of them had hourglass figures, fit and firm. Paula realized that each one of these nuns could have been models. Nude models. Centerfolds. Porn stars. Report_Story #3 
+ Paula was stunned. Each one of these girls was stunningly beautiful. Each one of these nuns had hot bodies, illustrated by their tight habits. She could not help but notice that each one of these girls was quite blessed in the chest department, every last one of them exceedingly busty. Each one of them had hourglass figures, fit and firm. Paula realized that each one of these nuns could have been models. Nude models. Centerfolds. Porn stars.  
 
  
 
@@ -506,7 +506,7 @@
 
  Paula didn't know that she had passed up on her last chance at sex. She didn't know that she would never have a man offer sex to her again. Adam thought he could just wait till the next day to make love to his wife, but when that time came, Paula was asleep before Adam got home. His balls were swollen and full, thanks to those nasty pictures. That nasty woman had incited his balls to fill with cum, but what Adam did not know was that that same woman that had induced all of that cum to fill his balls would be the very same woman to help empty them. 
 
- ********** Report_Story #4 
+ **********  
 
  
 
@@ -652,7 +652,7 @@
 
  Adam could feel the soothing warmth of Catherine's chest, and hear the roll of thunder. He was reminded of how his mother would cradle him in a similar way when he was a child, scarred by the loud crack of thunder. That old, distant, but familiar feeling of security and warmth washed over him. Despite the turmoil he'd been in when he arrived, Adam felt strangely safe and comforted, lying against the soft, warm, bosom of a woman he trusted. 
 
- Adam eyes had glazed over as if in a daze. Catherine noticed this and smiled. She gently lifted his head. She reached down to lower the zipper on the front of her habit. Her cavernous cleavage started to emerge. She lowered it past her large breasts, which allowed her to pull each side of the habit apart, allowing her huge, bra-clad tits to burst out. It was a sexy, lacy black bra, which perfectly matched her habit. Her tits were packed inside it, pouring over the edges. And in between them was a decorated rosary with a large shiny cross. Before Adam could notice anything amiss, she lowered his head back onto her chest. Report_Story #5 
+ Adam eyes had glazed over as if in a daze. Catherine noticed this and smiled. She gently lifted his head. She reached down to lower the zipper on the front of her habit. Her cavernous cleavage started to emerge. She lowered it past her large breasts, which allowed her to pull each side of the habit apart, allowing her huge, bra-clad tits to burst out. It was a sexy, lacy black bra, which perfectly matched her habit. Her tits were packed inside it, pouring over the edges. And in between them was a decorated rosary with a large shiny cross. Before Adam could notice anything amiss, she lowered his head back onto her chest.  
 
  
 
@@ -814,7 +814,7 @@
 
  Adam's eyes widened, feasting on the incredible sight in front of him. They were, in a word, perfect. Adam had never seen boobs this big. And they were so round. So perky. And her nipples looked amazing. Hard, suckable nipples, perfect for chewing on. Perfectly round areolas. Just by seeing these, Adam was now officially a breast-man. No more small boobies for him. He would be satisfied with nothing less than giant breasts. 
 
- "You wanna feel?" Catherine asked coyly, nibbling on her fingernail teasingly. Adam could not put up a fight as Catherine grabbed his hands and brought them upwards, towards her chest. When his hands got within a few inches of her huge tits, Adam's hands leapt forward to close the gap. His fingers pressed into the flesh of her large breasts, their soft skin rebounding against his fingers in just the right way. Once his hands were full, he finally gave them a good squeeze. Report_Story #6 
+ "You wanna feel?" Catherine asked coyly, nibbling on her fingernail teasingly. Adam could not put up a fight as Catherine grabbed his hands and brought them upwards, towards her chest. When his hands got within a few inches of her huge tits, Adam's hands leapt forward to close the gap. His fingers pressed into the flesh of her large breasts, their soft skin rebounding against his fingers in just the right way. Once his hands were full, he finally gave them a good squeeze.  
 
  
 
@@ -956,7 +956,7 @@
 
  ********** 
 
- After the previous night, Paula immediately regretted her decision. She could not just dump her husband with just a light bit of evidence. She could not just become a Nun because of that. Why did not she talk to her husband? It had to be a misunderstanding. It just had to be. The more she thought about, the more she realized he would never cheat on her. There had to be some sort of explanation. Maybe she had been tricked in some way. She had to go find Adam. She had to get to the bottom of this. She felt terrible. Report_Story #7 
+ After the previous night, Paula immediately regretted her decision. She could not just dump her husband with just a light bit of evidence. She could not just become a Nun because of that. Why did not she talk to her husband? It had to be a misunderstanding. It just had to be. The more she thought about, the more she realized he would never cheat on her. There had to be some sort of explanation. Maybe she had been tricked in some way. She had to go find Adam. She had to get to the bottom of this. She felt terrible.  
 
  
 
@@ -1122,7 +1122,7 @@
 
  Catherine looked back at her partner in crime, Melody. It took a few seconds for Melody to meet her gaze as she was hungrily eyeing Adam. Catherine couldn't blame her. Catherine figured that no one had benefitted from the new and improved Adam as much as Melody had, despite herself of course. Catherine was happy for her. She had finally been with the man she had lusted over for years. But Melody knew her place. Melody knew that she was second in line, behind her. Catherine made sure that she received Adam's best, and Melody got whatever he had left. Luckily for her, a stud like Adam had plenty in the tank, leaving her more than happy with the arrangement. Catherine looked back to the audience. And all the eyes in the audience were on her. 
 
- Seeing her pregnant belly allowed the audience to see what she had been doing with her free time. But they already knew this. Knew this and supported this. They clapped loudly in pride as she stood next to their chosen son. She ran her hands across her belly, feeling her child kicking. She looked at Adam, and they shared a look of pure desire. Some didn't recognize it, but the people that did could see the fierce attraction, the incredible desire, the pure love, the pure lust between their political leader and their religious leader. And looking at her belly, she had proved to Adam that not only was she the Mother Superior, but she was also the superior mother. When Adam announced that he had to leave to talk privately with Catherine, most people knew what they were really doing. Most knew they were forging a deep bond between church and state. Report_Story #8 
+ Seeing her pregnant belly allowed the audience to see what she had been doing with her free time. But they already knew this. Knew this and supported this. They clapped loudly in pride as she stood next to their chosen son. She ran her hands across her belly, feeling her child kicking. She looked at Adam, and they shared a look of pure desire. Some didn't recognize it, but the people that did could see the fierce attraction, the incredible desire, the pure love, the pure lust between their political leader and their religious leader. And looking at her belly, she had proved to Adam that not only was she the Mother Superior, but she was also the superior mother. When Adam announced that he had to leave to talk privately with Catherine, most people knew what they were really doing. Most knew they were forging a deep bond between church and state.  
 
  
 

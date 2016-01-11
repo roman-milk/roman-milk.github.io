@@ -214,7 +214,7 @@
 
  Cinthia put her hand on her mom's forehead. "No fever, Mommy, maybe you just need some TLC." 
 
- Kimberly's red faced cheeks burned even more as the thought of her daughter's boyfriend being the one to give her a very special kind of TLC popped again into her head. Mortified by the sick and twisted thoughts that continued to recur in her mind, she decided to finish the conversation. "I think you are right, Cinthia. I am going to hit the hay." Report_Story #2 
+ Kimberly's red faced cheeks burned even more as the thought of her daughter's boyfriend being the one to give her a very special kind of TLC popped again into her head. Mortified by the sick and twisted thoughts that continued to recur in her mind, she decided to finish the conversation. "I think you are right, Cinthia. I am going to hit the hay."  
 
  
 
@@ -514,7 +514,7 @@
 
  Kimberly went downstairs, still nervous about having another confrontation with her daughter, and was thankful to find she wasn't home. Looking at the clock, she realized she was already late for last minute set-up at the dance and quickly headed into the evening. A mixture of trepidation and excitement rattled inside the long ignored woman...but excitement was winning. 
 
- Report_Story #3 
+  
 
  
 
@@ -800,7 +800,7 @@
 
  "Get her off, slut," Tommy demanded, spanking the MILF's ass. 
 
- The derogatory treatment and order by the buff teenager only enhanced the eagerness to obey for the submissive mother. She took her daughter's clit in her mouth and slid two fingers inside her daughter's sloppy wet pussy. Report_Story #4 
+ The derogatory treatment and order by the buff teenager only enhanced the eagerness to obey for the submissive mother. She took her daughter's clit in her mouth and slid two fingers inside her daughter's sloppy wet pussy.  
 
  
 
@@ -1028,7 +1028,7 @@
 
  Jasmine 
 
- Merry Christmas 2012! Report_Story #1 
+ Merry Christmas 2012!  
 
  
 
@@ -1278,7 +1278,7 @@
 
  The lustful mother didn't hesitate as she was thankful to change positions and hungry to have her son's cock back in her wanton pussy. She straddled him and lowered herself slowly on his big rock hard cock, moaning as it filled her from this new position. 
 
- She began slowly riding her son's cock as she got used to the position, loving the sudden control she had. Report_Story #2 
+ She began slowly riding her son's cock as she got used to the position, loving the sudden control she had.  
 
  
 
@@ -1364,7 +1364,7 @@
 
  The End....for now 
 
- In part three...coming in early 2014 (I hope)...Kimberly must fulfill many tasks for her daughter/mistress, deal with her always horny son and go to her first housewives club meeting. Report_Story #1 
+ In part three...coming in early 2014 (I hope)...Kimberly must fulfill many tasks for her daughter/mistress, deal with her always horny son and go to her first housewives club meeting.  
 
  
 
@@ -1634,7 +1634,7 @@
 
  "Good to know," Kimberly smiled, no longer resisting the sin of incest but willing to go all in. 
 
- Kimberly grabbed a robe and headed to her daughter's room where she saw an outfit lying on her daughter's bed. She sighed again. On the bed was a plaid skirt, a white blouse and beige thigh highs that Kimberly instantly fretted would not be hidden by the short skirt. There was no one to protest to so she began getting dressed. She slid the silky thigh highs up her legs feeling decadent and sexy. She ran her hands up and down her legs, loving the touch of the soft silky nylon. She pulled the skirt up her legs and was thankful to see the skirt was longer than she thought and covered completely the lace tops of her thigh high stockings. She walked around a bit and was happy to see that the skirt had her lingerie hidden, as long as she didn't bend down too much. She put on the white blouse and her face flushed, noticing that it fit rather tightly, her breasts impossible to not notice. If her nipples got hard they would poke out like headlights impossible to miss. One more sigh and the mother walked downstairs to see what else her daughter had in store for her. Report_Story #2 
+ Kimberly grabbed a robe and headed to her daughter's room where she saw an outfit lying on her daughter's bed. She sighed again. On the bed was a plaid skirt, a white blouse and beige thigh highs that Kimberly instantly fretted would not be hidden by the short skirt. There was no one to protest to so she began getting dressed. She slid the silky thigh highs up her legs feeling decadent and sexy. She ran her hands up and down her legs, loving the touch of the soft silky nylon. She pulled the skirt up her legs and was thankful to see the skirt was longer than she thought and covered completely the lace tops of her thigh high stockings. She walked around a bit and was happy to see that the skirt had her lingerie hidden, as long as she didn't bend down too much. She put on the white blouse and her face flushed, noticing that it fit rather tightly, her breasts impossible to not notice. If her nipples got hard they would poke out like headlights impossible to miss. One more sigh and the mother walked downstairs to see what else her daughter had in store for her.  
 
  
 
@@ -1950,7 +1950,7 @@
 
  "Don't tease that cunt of yours, fuck it Kimberly. Fuck it like you allowed your son to fuck your pussy," Lucy said, purposely pushing her friend. 
 
- Kimberly blushed at her naughty, incestuous submission and the reality her best friend knew of her twisted obedience. She slid the end of the heel inside her burning box as she asked, "Don't you think it was wrong what I did with Cinthia and Ben?" Report_Story #3 
+ Kimberly blushed at her naughty, incestuous submission and the reality her best friend knew of her twisted obedience. She slid the end of the heel inside her burning box as she asked, "Don't you think it was wrong what I did with Cinthia and Ben?"  
 
  
 

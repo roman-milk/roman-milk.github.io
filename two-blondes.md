@@ -212,7 +212,7 @@
 
  "Yes, of course. I believe in making everyone I meet happy. Have I made you happy?" she teased, right back at him. 
 
- "So happy I don't think I'll let you go," he said, while grabbing hold of her head to kiss her lips. Report_Story #2 
+ "So happy I don't think I'll let you go," he said, while grabbing hold of her head to kiss her lips.  
 
  
 
@@ -424,7 +424,7 @@
 
  The awkwardness evaporated as the two friends orchestrated a late breakfast. They had settled things between them and were pleased he had agreed to their idea. He sat there watching them. 
 
- Two beautiful young blondes were cooking breakfast for him. He didn't usually have a dessert after breakfast, but their giggles and the looks they gave him warned him to eat a hearty meal. He reckoned he would need all the strength he could muster today. Report_Story #1 
+ Two beautiful young blondes were cooking breakfast for him. He didn't usually have a dessert after breakfast, but their giggles and the looks they gave him warned him to eat a hearty meal. He reckoned he would need all the strength he could muster today.  
 
  
 
@@ -632,7 +632,7 @@
 
  Jeff and Louise brought their near laughter under control before it broke out. Louise was used to Sandra's games, when she wanted to shake someone up. She obviously didn't like the woman's snooty attitude. It was easy for Louise to follow the performance for she was close to sounding like a dumb blonde anyway. 
 
- Report_Story #2 
+  
 
  
 

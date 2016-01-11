@@ -396,7 +396,7 @@
 
  He pushes against my cervix and I cum hard again. 
 
- He pulls back and waits for my orgasm to stop. He pushes again and I cum again. He keeps me cumming for forever. My pussy takes control of me and I hump up to take his cum. His cock pushes against my cervix and I squeeze him as hard as I can. Report_Story #2 
+ He pulls back and waits for my orgasm to stop. He pushes again and I cum again. He keeps me cumming for forever. My pussy takes control of me and I hump up to take his cum. His cock pushes against my cervix and I squeeze him as hard as I can.  
 
  
 

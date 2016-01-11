@@ -118,7 +118,7 @@
 
  It was definitely night now, approaching 9 pm, we'd been talking about 20 or 30 minutes I figured. My wife was going to wonder what the fuck I was doing. Thumbing the mower next to me, I apologized that I had to put it away. Turning my back on her a moment, I shoved it into the shed, pushing some other junk out of the way -- it was always a tight fit -- then softly shuttered the doors, locking them with a padlock. 
 
- When I turned back to her, she was still standing there, hands behind her back, arching her torso a little to push those young titties at me. She could tell I was admiring her, although I wasn't saying anything about it. It was just food for the eyes, that's all. Report_Story #2 
+ When I turned back to her, she was still standing there, hands behind her back, arching her torso a little to push those young titties at me. She could tell I was admiring her, although I wasn't saying anything about it. It was just food for the eyes, that's all.  
 
  
 
@@ -242,7 +242,7 @@
 
  Another email came after lunch. Ignored that one too. 
 
- By about 3 o'clock that Monday afternoon, without any more texts from her, I figured she'd gotten the message that I wasn't going to be a text buddy. I was reclining on a very soft but overheated leather-covered bench, on the back of a patio of our resort's super-large pool deck. My wife and her family were inside, escaping from the blazing tropical sun. I had come outside to get a look at the scenery, accompanying my mother-in-law. How non-sexual can THAT be? But the old bag had to go inside, the heat was ridiculous. I had a big-brim hat on, the breeze was a decent offset to the unrelenting sunlight, and it struck me as a nice place to sit down. So I did. Report_Story #3 
+ By about 3 o'clock that Monday afternoon, without any more texts from her, I figured she'd gotten the message that I wasn't going to be a text buddy. I was reclining on a very soft but overheated leather-covered bench, on the back of a patio of our resort's super-large pool deck. My wife and her family were inside, escaping from the blazing tropical sun. I had come outside to get a look at the scenery, accompanying my mother-in-law. How non-sexual can THAT be? But the old bag had to go inside, the heat was ridiculous. I had a big-brim hat on, the breeze was a decent offset to the unrelenting sunlight, and it struck me as a nice place to sit down. So I did.  
 
  
 
@@ -396,7 +396,7 @@
 
  Obviously, I said to her, trying not to stare at her body. I'd seen those tits without a bikini top, but they almost looked sexier wrapped in the slim white garment -- teasing, seductive. Suddenly, all I was thinking about was Lilac. Her body, her girlish charm, her teenage enthusiasm. I was home alone, and she was here -- dressed for the pool. 
 
- Those sexy, tanned young legs strode in my direction, until she was standing next to the table near me. "I was just gonna check on ol' Tigger again," she said, probably lying to me, "then go over to the pool, ya know?" Report_Story #4 
+ Those sexy, tanned young legs strode in my direction, until she was standing next to the table near me. "I was just gonna check on ol' Tigger again," she said, probably lying to me, "then go over to the pool, ya know?"  
 
  
 
@@ -524,7 +524,7 @@
 
  That Wednesday night wasn't as late at work as I had expected, at least for myself. The staff was going to be working past midnight. But, weary from the travel and my nerves frayed by Lilac, I was a useless lump of flesh most of the night. At 9 pm, my business colleague told me to get my ass home and get some good sleep. I delayed and stalled, but eventually, I headed out, feeling defeated. 
 
- All I could think about, driving home, was Lilac. Nude Lilac in my bed, wanting me, begging for it. I turned her down. I was proud of doing it, it was the right thing to do. I still couldn't figure out why I felt like shit, there was something wrong about this whole situation and it was pissing me off. Something needed to be right. Report_Story #5 
+ All I could think about, driving home, was Lilac. Nude Lilac in my bed, wanting me, begging for it. I turned her down. I was proud of doing it, it was the right thing to do. I still couldn't figure out why I felt like shit, there was something wrong about this whole situation and it was pissing me off. Something needed to be right.  
 
  
 
@@ -642,7 +642,7 @@
 
  After working the head and shaft endlessly, making it completely sloppy with her saliva, she moved her mouth down to my balls. The young woman was an experienced cocksucker, I could tell, expertly sucking my scrotum into her mouth and running her tongue around the sack, while not tugging too hard to cause pain. Her eyes remained focused on mine, she was seeing how much I was enjoying it. 
 
- Oh, the bitch could suck a cock. I was glad I let her do this, although feeling really fucking guilty about it. I couldn't take my eyes off of her gorgeous, tanned face, her thin pink lips wrapped around my concrete pole, applying loving licks and powerful sucking to me up and down my shaft. Report_Story #6 
+ Oh, the bitch could suck a cock. I was glad I let her do this, although feeling really fucking guilty about it. I couldn't take my eyes off of her gorgeous, tanned face, her thin pink lips wrapped around my concrete pole, applying loving licks and powerful sucking to me up and down my shaft.  
 
  
 
@@ -736,7 +736,7 @@
 
  After that second cum, she licked her lips and heavily moaned her appreciations. "Ohhhh, uhhhhh, sooo good -- you're sooo good, baby, mmmm!" Her petite face nodded at me as her noggin pressed the sofa, her blonde hair splayed around the floor. "Mmmm, yeah, more!" 
 
- I know what I wanted -- I wanted to see her riding me, so I could admire her gorgeous tits and body. Trying to keep my dick inside her vagina, I spun us both around, making her cackle with enthusiasm, until I ended up on my back, and she was straddling me. My cock had popped out, but with her tanned thin thighs spread around my hips, she quickly mounted me and slipped her juicy pussy over my erection, swallowing me again. As she arched her small back, thrusting those gorgeous, untanned titties forward, her eyes closed and her pussy swallowed most of my penis deep into it. Report_Story #7 
+ I know what I wanted -- I wanted to see her riding me, so I could admire her gorgeous tits and body. Trying to keep my dick inside her vagina, I spun us both around, making her cackle with enthusiasm, until I ended up on my back, and she was straddling me. My cock had popped out, but with her tanned thin thighs spread around my hips, she quickly mounted me and slipped her juicy pussy over my erection, swallowing me again. As she arched her small back, thrusting those gorgeous, untanned titties forward, her eyes closed and her pussy swallowed most of my penis deep into it.  
 
  
 
@@ -830,7 +830,7 @@
 
  Grabbing both of her ankles, I lifted her petite legs, spreading them wide, pushing her knees back until they were aside her small chest, her small tits looking like flattened pancakes on her chest. She lifted her face to watch, seeing my erection touching her pink cuntlips, finding her hole, then sliding inside. "Uhhhhh -- FUCK!" she screamed, her eyes opening very wide, realizing just how deep I was going to be able to go. Unrestrained by any bed or floor, I could easily push my body as far forward as I wanted, sending my dick into the very back of her cunt. With a few strokes, I loosened her well-fucked cunt enough, so that I had a good six of my seven inches inside of her. 
 
- Watching her small back arch, pinning her thin legs against her torso, I growled and pounded my ass forward more, driving even more of my shaft inside her. Fuck, it was so unnervingly tight in the back of her pussy, I felt like my cockhead was being squished into oblivion -- really, really tight pressure back there. Near the base of my penis, her pussylips were squeezing my shaft painfully hard too, she was barely stretched enough to take the size of my shaft at that point. I didn't care about any of that. I kept jamming more dick, thrusting again and again, smashing the helmet of my erection against that tightness. I was snarling at her, feeling manly and empowered, taking her entire vagina for myself. A few more thrusts, pushing hard, leaving it in there . . . and with the 18 year old blonde crying and gasping, I had my entire seven inches inside of her! My balls were against her soft buttocks, I couldn't have been any deeper inside the bitch. We were stuck together, my dick in her body, all the way. Report_Story #8 
+ Watching her small back arch, pinning her thin legs against her torso, I growled and pounded my ass forward more, driving even more of my shaft inside her. Fuck, it was so unnervingly tight in the back of her pussy, I felt like my cockhead was being squished into oblivion -- really, really tight pressure back there. Near the base of my penis, her pussylips were squeezing my shaft painfully hard too, she was barely stretched enough to take the size of my shaft at that point. I didn't care about any of that. I kept jamming more dick, thrusting again and again, smashing the helmet of my erection against that tightness. I was snarling at her, feeling manly and empowered, taking her entire vagina for myself. A few more thrusts, pushing hard, leaving it in there . . . and with the 18 year old blonde crying and gasping, I had my entire seven inches inside of her! My balls were against her soft buttocks, I couldn't have been any deeper inside the bitch. We were stuck together, my dick in her body, all the way.  
 
  
 
@@ -962,7 +962,7 @@
 
  "Thats ok," wrote Lilac, "I can wait 4u." 
 
- Shit, she was awesome, wasn't she? Sexy, young, aggressive, beautiful, and dedicated to me -- after we just started flirting not even a week ago! "U r SO lovely and sweet," I admitted in a fit of emotion. I thought about the word "love," which was pretty strong and sudden, but not entirely inappropriate. I did love her, in certain ways. Report_Story #9 
+ Shit, she was awesome, wasn't she? Sexy, young, aggressive, beautiful, and dedicated to me -- after we just started flirting not even a week ago! "U r SO lovely and sweet," I admitted in a fit of emotion. I thought about the word "love," which was pretty strong and sudden, but not entirely inappropriate. I did love her, in certain ways.  
 
  
 
@@ -1056,7 +1056,7 @@
 
  I felt a little strange about walking nude through my house, even though of course we were alone (aside from the sleeping dog). So I had Lilac put on something -- one of my dress shirts, which was of course way too large for her. The long sleeves hung past her short arms, and the hemline fall almost to her knees. Without buttoning it, she wore it like a thin robe, it was sexy -- and, as she moved around, I could still see her tits and pussy. For myself, I threw on a loose robe, barely tying the belt, my semi-hard dick basically uncovered. Lilac gave my penis a little pinch, followed by a tap on my cockhead, like it was a little toy of hers. 
 
- Sex with the hot slut was unfathomably great, but the thought of food was pretty powerful too. Wanting to eat quickly and not make a production out of it, I just threw together some turkey and cheese in rye bread. (I passed on the hot peppers -- I didn't want to corrupt the scent of my breath with the little vixen I was fucking.) Sitting at the kitchen table, wolfing it down, I leaned back and winked at my mistress for the evening. She playfully scooted onto the kitchen table, sitting directly in front of my chair, her knees spread to expose her cum-dripping, pink vagina, giggling at me while I stared at her cunt and swallowed my sandwich in large chunks. Report_Story #10 
+ Sex with the hot slut was unfathomably great, but the thought of food was pretty powerful too. Wanting to eat quickly and not make a production out of it, I just threw together some turkey and cheese in rye bread. (I passed on the hot peppers -- I didn't want to corrupt the scent of my breath with the little vixen I was fucking.) Sitting at the kitchen table, wolfing it down, I leaned back and winked at my mistress for the evening. She playfully scooted onto the kitchen table, sitting directly in front of my chair, her knees spread to expose her cum-dripping, pink vagina, giggling at me while I stared at her cunt and swallowed my sandwich in large chunks. 0 
 
  
 
@@ -1158,7 +1158,7 @@
 
  I was watching her retain the cellphone in her hand, she hadn't tossed it to the side yet. "So -- you gonna want to send Anya a pic of us fucking?" The thought was making my penis ache a little more painfully, but of course, the married man in me was worried. "But, you can't show my face, I can't let anyone know it's me -- you understand?" 
 
- "Oh, I gotcha!" Holding the cellphone in one hand, the teenager climbed to her knees again, tossing a leg over me, straddling me to fuck me. Putting my hands on her slim hips, I guided her pussy towards my cockhead. She was leaning forward, her hair and boobs dangling down, until she felt my dick's helmet kiss the softness of her tight teen cunt. Lilac sat back, forcing my penis inside her vagina, then she sat upright all the way, sinking down, my penis disappearing into her pussy again. "Uhhhh -- yesss!" She pulled her hair to one side, tossing it over her shoulder, then put her free hand on her own hip to steady herself, while she humped me, sliding her tight cunt up and down my stiffened pole. "Mmmm, fuck -- soooo good!" Report_Story #11 
+ "Oh, I gotcha!" Holding the cellphone in one hand, the teenager climbed to her knees again, tossing a leg over me, straddling me to fuck me. Putting my hands on her slim hips, I guided her pussy towards my cockhead. She was leaning forward, her hair and boobs dangling down, until she felt my dick's helmet kiss the softness of her tight teen cunt. Lilac sat back, forcing my penis inside her vagina, then she sat upright all the way, sinking down, my penis disappearing into her pussy again. "Uhhhh -- yesss!" She pulled her hair to one side, tossing it over her shoulder, then put her free hand on her own hip to steady herself, while she humped me, sliding her tight cunt up and down my stiffened pole. "Mmmm, fuck -- soooo good!" 1 
 
  
 
@@ -1290,7 +1290,7 @@
 
  Not believing I was doing this, I jogged around some obstacles and made my way over to her. It was a warm but not hot summer day, slightly humid, so I was already perspiring slightly from the little jog. Mosquitoes and flies were fairly abundant, I had to waive some of them away. "I can't believe we're doing this," I commented excitedly, taking her small hand in mine, my heart thumping and my dick burning in my shorts. 
 
- Lilac already knew where we were headed, having spotted the perfect area to cheat on my wife. She led me behind three very large tree trunks, standing side-by-side, each covered in leafy green vines. It was like a small wall, forty yards from our house and backyard fence. Taking me behind them, the hard dirt ground slopped less violently, and the area was entirely in shade. It was secluded, private, a perfect place to fuck. Report_Story #12 
+ Lilac already knew where we were headed, having spotted the perfect area to cheat on my wife. She led me behind three very large tree trunks, standing side-by-side, each covered in leafy green vines. It was like a small wall, forty yards from our house and backyard fence. Taking me behind them, the hard dirt ground slopped less violently, and the area was entirely in shade. It was secluded, private, a perfect place to fuck. 2 
 
  
 
@@ -1402,7 +1402,7 @@
 
  Now Mr. Dicky was getting extremely hard in my pants, hearing the little hot slut say that. So reaffirming to know she still wanted me. Of course I wanted her too -- what man wouldn't? -- but I knew it wasn't the path for me. I gave her the official, party-line answer, and changed the subject. "I, well, same old story -- really am never alone, between work and stuff around the house, I just, you know--" It was depressing, not being able to have what I wanted, so I changed the subject quickly. "Well, what about you, what's keeping you busy these days?" I was close enough to her to nudge her in the shoulder with my elbow. "Got a hot boyfriend these days?" 
 
- Oddly, she seemed taken aback at the question, unsure how to answer. Then she formulated the words after a couple of moments. "Oh, uh -- yeah, I'm busy, school and all, last year of it -- and yeah, I kinda have a boyfriend -- I mean, yeah, I do, have one I mean." She blushed at the way she was stumbling over the words. Report_Story #13 
+ Oddly, she seemed taken aback at the question, unsure how to answer. Then she formulated the words after a couple of moments. "Oh, uh -- yeah, I'm busy, school and all, last year of it -- and yeah, I kinda have a boyfriend -- I mean, yeah, I do, have one I mean." She blushed at the way she was stumbling over the words. 3 
 
  
 
@@ -1430,7 +1430,7 @@
 
  It was tough turning my back on her to walk away, but I had to. Just had to. And that was that, the end of my interactions with Lilac to this very day. 
 
- Of course, I'm not dead yet -- nor is she, so . . .! Report_Story #1 
+ Of course, I'm not dead yet -- nor is she, so . . .!  
 
  
 
@@ -1556,7 +1556,7 @@
 
  "Well, then," snorted the girl under her breath, taking two then three steps towards me, reaching her petite hand out to my crotch, "if you won't FUCK me with it, at least let me SUCK it for you?" Immediately, the nude blonde was on her knees in front of me, gazing up to my face with lust in her hazel eyes, her slender hand wrapped around my erection, palm pressed against it, her fingers around it. She expertly pulled back the skin on it, jerking her fist over the base, pointing my dickhead at her mouth. "Hmmm, can I suck it for you, mister?" 
 
- "Shit, we just met," I laughed back, my hands against the walls to steady myself. I was going to say yes to this, I wanted her to suck my dick. "You must be one hot little slut, wanting to suck me off." Report_Story #2 
+ "Shit, we just met," I laughed back, my hands against the walls to steady myself. I was going to say yes to this, I wanted her to suck my dick. "You must be one hot little slut, wanting to suck me off."  
 
  
 
@@ -1684,7 +1684,7 @@
 
  "Yes!" She was already begging for it, her eyes gazing down my body to my stiff penis, right against her cunt. "Fuck me!" 
 
- I was repositioning my knees, to get better leverage, and her youthful anticipation was making me snicker. "Damn, you little slut, you really need it don't you?" Report_Story #3 
+ I was repositioning my knees, to get better leverage, and her youthful anticipation was making me snicker. "Damn, you little slut, you really need it don't you?"  
 
  
 
@@ -1798,7 +1798,7 @@
 
  My face didn't react, but my cock did. I was throbbing in my underwear, my erection was so fucking hard at the sight and smell of the sexy young woman. 
 
- For ten, fifteen minutes I tried to ignore the wetness of her crotch, but it was impossible. She was fidgeting in place as she sat on the sofa, unable to get comfortable; the wetness of her crotch had everything to do with it. She'd put her knees together, but then sit back and spread them, wiggling her small fanny around on the leather sofa. She put a sock-clad foot up on the sofa, then back on the floor. She turned side to side. She couldn't sit still. Meanwhile, my eyes constantly flirted at the sight of her crotch as it was exposed, time to time; instead of just the pink fabric of her leggings, I was gazing at the soiled wet stain, almost growing in her crotch as she moved her legs around again and again. Report_Story #4 
+ For ten, fifteen minutes I tried to ignore the wetness of her crotch, but it was impossible. She was fidgeting in place as she sat on the sofa, unable to get comfortable; the wetness of her crotch had everything to do with it. She'd put her knees together, but then sit back and spread them, wiggling her small fanny around on the leather sofa. She put a sock-clad foot up on the sofa, then back on the floor. She turned side to side. She couldn't sit still. Meanwhile, my eyes constantly flirted at the sight of her crotch as it was exposed, time to time; instead of just the pink fabric of her leggings, I was gazing at the soiled wet stain, almost growing in her crotch as she moved her legs around again and again.  
 
  
 
@@ -1918,7 +1918,7 @@
 
  My hands freed from her boobs, I slipped them around her body, cupping her small ass in her dark leggings. The thin, skin-tight fabric allowed me to grope the shapes of her buttcheeks, and it seemed like each cheek could fit in my palm and fingers. Tight, small little teen ass! A moment later, I was savoring one of Lilac's breasts, wrapping my lips around it, suckling her hard nipple, my tongue washing over it in circles. She moaned in contentment as I salivated all over her breast, fitting it entirely inside my warm and wet mouth, licking it all over. Then the little bitch twisted her torso, the first tit popping out and the other one sliding easily into my mouth, so I could salivate all over that one too. She grabbed her wet, exposed boob, smearing my saliva around her nipple and grinding her fingertips into the nipple while I sucked the other one. 
 
- Right in the middle of sucking her tits and groping her ass, I had a clever thought. I pushed her back, but not off of my lap; and I reached to the side to grab my cellphone sitting on the end table right up against the sofa's armrest. Lilac snickered, wondering what I was doing; topless, she arched her back and sat upright on my lap, letting me admire her small tits now glistening with my saliva, while her crotch in her tight legging kept mashing against my erection in my slacks. Report_Story #5 
+ Right in the middle of sucking her tits and groping her ass, I had a clever thought. I pushed her back, but not off of my lap; and I reached to the side to grab my cellphone sitting on the end table right up against the sofa's armrest. Lilac snickered, wondering what I was doing; topless, she arched her back and sat upright on my lap, letting me admire her small tits now glistening with my saliva, while her crotch in her tight legging kept mashing against my erection in my slacks.  
 
  
 
@@ -2014,7 +2014,7 @@
 
  Fuck, there it was. She and me, cumming hard together, then pausing -- sweaty, gasping for air, my dick still inside her tight, slushy pussy. 
 
- Lilac looked down at the sight of my erection inside her cunt, all sorts of liquids dripping on her cuntlips and my balls and both our stomachs, and she laughed wickedly. "Ohhhh, shit, I'm such a slut! Uhhhh, gawwwd!" Report_Story #6 
+ Lilac looked down at the sight of my erection inside her cunt, all sorts of liquids dripping on her cuntlips and my balls and both our stomachs, and she laughed wickedly. "Ohhhh, shit, I'm such a slut! Uhhhh, gawwwd!"  
 
  
 
@@ -2036,7 +2036,7 @@
 
  We traded cellphone numbers. Only, as she looked at her cellphone to make sure she had the number right, she let out a cackle of disbelief. "Shit, I got my number wrong -- I gave the wrong number to that other guy I fucked, earlier!" The blonde blushed at me, then whapped herself on her small forehead with a flattened hand. "I swear, I can be so blonde sometimes!" 
 
- Like I said earlier, she was almost like the figment of a pervert's imagination -- if she didn't happen to be naked in my arms, and completely real! Report_Story #1 
+ Like I said earlier, she was almost like the figment of a pervert's imagination -- if she didn't happen to be naked in my arms, and completely real!  
 
  
 
@@ -2128,7 +2128,7 @@
 
  I agree, her story was over the top. Something a sex-crazed 18 year old would imagine. It's not even close to being realistic. But that's not the point, right? Its a view into her mind. She really needs to be fucked well, and she wants it badly. I just wish I could give it to her! 
 
- Someday, I know, someone will. He'll be the luckiest prick on Earth! Report_Story #1 
+ Someday, I know, someone will. He'll be the luckiest prick on Earth!  
 
  
 
@@ -2240,7 +2240,7 @@
 
  "Damn, bitch!" I was in admiration of Kim, so fucking aroused at how she got to bang an 18 year old female. I didn't want the blowjob or handjob any more. No, I wanted her cunt again. I snapped upright on the motel bed, pushed Kim onto her back, and mounted the married slut between her tanned, creamy thighs. She laughed, spreading open for me, letting me use her twat again for my pleasure. 
 
- As I felt my penis sink into Kim's cunt, I gave her my thoughts on her sx with the teenager. "You wanna give me the girl's phone number?" I asked, wondering if the high school senior might want some married cock someday in addition to the married cunt she fucked. Report_Story #2 
+ As I felt my penis sink into Kim's cunt, I gave her my thoughts on her sx with the teenager. "You wanna give me the girl's phone number?" I asked, wondering if the high school senior might want some married cock someday in addition to the married cunt she fucked.  
 
  
 
@@ -2250,7 +2250,7 @@
 
  Yeah, I said, I wanna fuck the teen girl too! 
 
- Kim laughed at me, knowing I would if I could, but to this day she still hasn't given me the contact info for the other slut. Really sucks, too, I bet the youngster would go crazy on a hot grownup penis like mine! Report_Story #1 
+ Kim laughed at me, knowing I would if I could, but to this day she still hasn't given me the contact info for the other slut. Really sucks, too, I bet the youngster would go crazy on a hot grownup penis like mine!  
 
  
 
@@ -2346,7 +2346,7 @@
 
  The black stud athlete next to her was in full agreement. "Damn right, you're hot," he gasped, staring down at her cunt, then flashing a toothy grin at her face. She smiled back, and I saw her glance down his fit, six-pack chest to his crotch, spying his large bulge there. 
 
- By this point in the "game," I had my arm around slender Chanie next to me. She let me caress her naked skin around her bra's strap. When Thad began observing Holly's cunt right next to him -- but not reaching for it -- I felt the brunette under my arm stir, she was restless. I glanced to her face, catching her looking up at me. It was just one of those moments. I didn't hesitate, I leaned forward and kissed the 19 year old sophomore. She let me, even allowing me to slip some tongue in her mouth briefly, as I had my first kiss with the gorgeous brunette that I'd been meaning to do for weeks. She tasted sweet and fresh, even a hint of mint from her toothpaste. Report_Story #2 
+ By this point in the "game," I had my arm around slender Chanie next to me. She let me caress her naked skin around her bra's strap. When Thad began observing Holly's cunt right next to him -- but not reaching for it -- I felt the brunette under my arm stir, she was restless. I glanced to her face, catching her looking up at me. It was just one of those moments. I didn't hesitate, I leaned forward and kissed the 19 year old sophomore. She let me, even allowing me to slip some tongue in her mouth briefly, as I had my first kiss with the gorgeous brunette that I'd been meaning to do for weeks. She tasted sweet and fresh, even a hint of mint from her toothpaste.  
 
  
 
@@ -2426,7 +2426,7 @@
 
  Watching Madison's face while she was being eaten by the blonde was telling. The black athlete was grunting, wincing, her eyes fluttering and half-closed, she was unquestionably enjoying it. She was holding her tits and pinching her own nipples, her legs spread to the sides, her pelvis undulating wildly in circles under Holly's face while the blonde's pink tongue dug into Madison's cunt, drawing out the sperm and juices inside it. I couldn't resist asking Madison, "You like being licked by a blonde, huh?" Madison grunted again and nodded. "Uh huh!" 
 
- I spied Chanie watching her roommate licking Madison's pussy, and I knew the two roomies had to hook up too. I gently nudged Chanie on her back to push her down to the carpet, then I had the sexy brunette roll onto her back too, like Madison, where I promptly spread open Chanie's creamy white thighs. Her pink pussy was dripping with liquids, her juices and my sperm. "This one too," I ordered to Holly, pointing at her roommate's messy vagina. Thad flashed a toothy white grin, agreeing with me, pushing Holly's body sideways so she crawled off of Madison and between Chanie's spread-open legs. Report_Story #3 
+ I spied Chanie watching her roommate licking Madison's pussy, and I knew the two roomies had to hook up too. I gently nudged Chanie on her back to push her down to the carpet, then I had the sexy brunette roll onto her back too, like Madison, where I promptly spread open Chanie's creamy white thighs. Her pink pussy was dripping with liquids, her juices and my sperm. "This one too," I ordered to Holly, pointing at her roommate's messy vagina. Thad flashed a toothy white grin, agreeing with me, pushing Holly's body sideways so she crawled off of Madison and between Chanie's spread-open legs.  
 
  
 
@@ -2512,7 +2512,7 @@
 
  The tightness and pressure inside her pussy was too much for young Thad. The 20 year old let out a growl, ejaculating his second load of cum of the night into Madison's pussy, not asking if she was protected. He didn't care, he just released and groaned, loving the feeling of cumming inside the slightly younger girl. 
 
- I, too, wanted to cum inside her like he did. As soon as Thad had drained his balls inside Madison, I flipped her on her back on the carpet and climbed on top of her. With Thad and the other two nude girls watching, I relentlessly hammered her juicy twat with my married penis, cramming all of my seven inches inside her tight, wet hole. Her cunt was squishy wet, from Thad's sperm and all her juices. The girl didn't stop fucking me back, her feet flat on the carpet so she had leverage to undulate her hips, pumping against me, the two of us fucking each other furiously. Her hands were clutching my asscheeks and also, alternatingly, gripping the curls of sweaty hair on my chest, riding me as I fucked her small body, pressing it into the carpet. I watched her meaty tits bouncing on her chest, those long nipples scraping against me, while I build up to a crescendo, wanting to cum so badly inside her cunt. Report_Story #4 
+ I, too, wanted to cum inside her like he did. As soon as Thad had drained his balls inside Madison, I flipped her on her back on the carpet and climbed on top of her. With Thad and the other two nude girls watching, I relentlessly hammered her juicy twat with my married penis, cramming all of my seven inches inside her tight, wet hole. Her cunt was squishy wet, from Thad's sperm and all her juices. The girl didn't stop fucking me back, her feet flat on the carpet so she had leverage to undulate her hips, pumping against me, the two of us fucking each other furiously. Her hands were clutching my asscheeks and also, alternatingly, gripping the curls of sweaty hair on my chest, riding me as I fucked her small body, pressing it into the carpet. I watched her meaty tits bouncing on her chest, those long nipples scraping against me, while I build up to a crescendo, wanting to cum so badly inside her cunt.  
 
  
 
@@ -2566,7 +2566,7 @@
 
  Unfortunately, I had to admit that regulation time was over. It was past 1 a.m., and I had a game to attend later that day -- a noontime kickoff, no less. Plus, I was way later than normal on a game night, my wife was going to wonder what was keeping me. I'd lie to her, like always. Don't get me wrong, I love her -- she's great a home, great in bed, and she was still a fucking hot blonde at age 33, with huge hooters and a delicious, shaved cunt. But she wasn't 19 anymore. So, I got dressed, while I had Holly type her cellphone number into my phone. I definitely wanted to bang the blonde again, if I could, although she wasn't as hot as my other girlfriends at the college that year. But the fact she gave me her number? That was proof she liked my sex, it affirmed I was a hot fuck. 
 
- And as for Thad? The fucker. Two days after leaving our campus -- two days! - - he fucking committed to play at Ohio State. The asshole! Report_Story #1 
+ And as for Thad? The fucker. Two days after leaving our campus -- two days! - - he fucking committed to play at Ohio State. The asshole!  
 
  
 
@@ -2668,7 +2668,7 @@
 
  Willy zipped up his big cock, the horny 18 year old blushed with guilt, and the two of them started putting their clothing back on for the walk across the parking lot. 
 
- As soon as the three of us were in the dingy motel -- and I mean, the door wasn't even locked yet -- my buddy and I sandwiched Ashley, standing just inside the door, both of us on her sides. We pawed at her butt, tits and cunt through her clothing, taking turns to kiss her; first she made out with Willy, then me, then back to him. I was sliding off her shirt and bra, interrupting those kisses, while Willy was squeezing her buttcheeks and rubbing her pussy through her jeans. Her massive mammory glands were indeed amazing, launching into the air off of her slim torso. As I began sucking her tongue again, my hand groping one of those tits, Willy bend over to lick her other nude boob and I could hear him fumbling to unfasten her jeans. She helped him, desperately horny and wanting to be nude, so soon we were pushing her jeans and panties down her hips, around a meaty butt. Report_Story #2 
+ As soon as the three of us were in the dingy motel -- and I mean, the door wasn't even locked yet -- my buddy and I sandwiched Ashley, standing just inside the door, both of us on her sides. We pawed at her butt, tits and cunt through her clothing, taking turns to kiss her; first she made out with Willy, then me, then back to him. I was sliding off her shirt and bra, interrupting those kisses, while Willy was squeezing her buttcheeks and rubbing her pussy through her jeans. Her massive mammory glands were indeed amazing, launching into the air off of her slim torso. As I began sucking her tongue again, my hand groping one of those tits, Willy bend over to lick her other nude boob and I could hear him fumbling to unfasten her jeans. She helped him, desperately horny and wanting to be nude, so soon we were pushing her jeans and panties down her hips, around a meaty butt.  
 
  
 
@@ -2762,7 +2762,7 @@
 
  I'm not stupid. Girls say things they don't mean; so I was going to make sure she lived up to her agreement. I climbed off the bed and gathered my jeans, fishing out my cellphone from my hip pocket. While she lay nude on the bed, all sorts of cum dripping out of her furry cunt, I made the girl give me her cellphone number. I even dialed it to check it, and sure enough, the pocket of her jeans on the floor let out a sing-sing ringtone. So I could call her now, anytime I wanted. 
 
- The three of us sat around the bed, naked, for a few minutes. Willy decided he had to go make a call to the wife, so he put on his jeans and shirt, then stepped out of the room to call from the parking lot. Now alone with the slut, both of us still nude in bed, I felt both really guilty for cheating (yet again) on the wife, but also really alive -- I had put a smile on a hot, busty 18 year old! Report_Story #3 
+ The three of us sat around the bed, naked, for a few minutes. Willy decided he had to go make a call to the wife, so he put on his jeans and shirt, then stepped out of the room to call from the parking lot. Now alone with the slut, both of us still nude in bed, I felt both really guilty for cheating (yet again) on the wife, but also really alive -- I had put a smile on a hot, busty 18 year old!  
 
  
 
@@ -2780,7 +2780,7 @@
 
  For my third orgasm, I pulled out and jerked off -- where else? --- on those tits. I just had to see cum on them. I didn't have a lot of sperm for that third orgasm, but enough to put a little cream over each boob, allowing the teen to spread my jism around her fleshy, soft mountains, grinning up at me as she did. 
 
- Now that, my friends, was how you fuck a hot slut! Report_Story #1 
+ Now that, my friends, was how you fuck a hot slut!  
 
  
 
@@ -2888,7 +2888,7 @@
 
  That was fine, but the IT manager in me -- that's my job -- was racing ahead, not wanting to miss any of this show. Could she put her laptop near her bed, to make sure I had a good angle? She did, just turning the laptop on her desk in her bedroom, so most of her bed was on display -- her headboard and pillows off to the right edge, white sheets solely covering the mattress, with the door of her bedroom squarely in the middle of the webcam's view on the other side of the bed. Her room, from what I could see of it, was largely unadorned - - nothing really on the walls, some clothing strewn on the floor. She was walking around wearing just her panties, it was fucking hot, her little nipples were so fucking stiff on her small boobs. She sat on the bed and even lay flat on it, confirming I could see whatever was going to happen on it. 
 
- Next, I had her change the time-out settings on her computer (again, the computer geek in me coming out). I didn't want the laptop to go blank while she was busy on the bed. She said it was plugged into the wall, so the computer let her set it to "never go blank." She also had to set the webcam, too, not to time out. Report_Story #2 
+ Next, I had her change the time-out settings on her computer (again, the computer geek in me coming out). I didn't want the laptop to go blank while she was busy on the bed. She said it was plugged into the wall, so the computer let her set it to "never go blank." She also had to set the webcam, too, not to time out.  
 
  
 
@@ -2994,7 +2994,7 @@
 
  Myself, I was jerking off madly, watching him cream the girl's pretty face, turning this black teenager in a white married man's cum bucket. 
 
- Monique crawled backwards into the middle of the bed, lying flat, spreading her knees open. Quade crawled after her, leaning down and putting his face into her crotch. She was lying sideways to the bed, so I couldn't see the cunnilingus directly, but there was no question his tongue was on her teen pussy. Moniqua began panting, looking down her small body at the stud's face between her opened thighs, watching him pump that tongue over her wet cunt. She was pinching her nipples as he did, and also licking the dripping sperm off of her lips. The teenager reached to her face, wiping his cum from her eyelids and eyebrows, licking her fingers clean then -- eating more of that white cumsauce. A few times, she wiped her face, licking her fingers clean while the stud was licking her vagina. Report_Story #3 
+ Monique crawled backwards into the middle of the bed, lying flat, spreading her knees open. Quade crawled after her, leaning down and putting his face into her crotch. She was lying sideways to the bed, so I couldn't see the cunnilingus directly, but there was no question his tongue was on her teen pussy. Moniqua began panting, looking down her small body at the stud's face between her opened thighs, watching him pump that tongue over her wet cunt. She was pinching her nipples as he did, and also licking the dripping sperm off of her lips. The teenager reached to her face, wiping his cum from her eyelids and eyebrows, licking her fingers clean then -- eating more of that white cumsauce. A few times, she wiped her face, licking her fingers clean while the stud was licking her vagina.  
 
  
 
@@ -3102,7 +3102,7 @@
 
  Moniqua made me giggle with her politically correct answer. "Mmmmaybe!" 
 
- This was a great ddition to the night, having her type back to me while she was fucking him. It was like an interview, or question and answer session, while she rode that stud. For my next question, I wrote, "Does it make you hotter knowing he's married and cheating on his wife?" Report_Story #4 
+ This was a great ddition to the night, having her type back to me while she was fucking him. It was like an interview, or question and answer session, while she rode that stud. For my next question, I wrote, "Does it make you hotter knowing he's married and cheating on his wife?"  
 
  
 
@@ -3182,7 +3182,7 @@
 
  No, she had it wrong. "No baby," I said, "I think YOU are perfect!" 
 
- And I meant it! Report_Story #1 
+ And I meant it!  
 
  
 
@@ -3302,7 +3302,7 @@
 
  "Be my guest," I offered, my dick wanting to come out of my pants so badly. 
 
- Payton leaned forward, her sexy teen boobs dangling under her in the revealing bra, as she slowly unbuttoned my shirt. Pulling it aside, she gasped at my firm chest and curly, dark hairs. I work out religiously, she was impressed by the firm shape of my powerful physique. "God, you're hot," she moaned, blushing at me. "Don't hate on me -- how old are you?" Report_Story #2 
+ Payton leaned forward, her sexy teen boobs dangling under her in the revealing bra, as she slowly unbuttoned my shirt. Pulling it aside, she gasped at my firm chest and curly, dark hairs. I work out religiously, she was impressed by the firm shape of my powerful physique. "God, you're hot," she moaned, blushing at me. "Don't hate on me -- how old are you?"  
 
  
 
@@ -3414,7 +3414,7 @@
 
  I needed a few moments to regain my senses, my dick and balls drained of my first orgasm, my muscles burning and chest heaving. I felt sweat dripping off my forehead. After a deep breath, I looked down at the hot mess on her big tits, watching her rub my sperm around her soft skin, seeing her panting and loving it. She was proud to make me cum so hard. 
 
- Now, when I fuck a hot chick, I recharge pretty fucking fast. My dick won't go soft, and if I really wanted to, I probably could have started fucking Payton again even though I literally just had an orgasm. But I knew I could entertain her a while, and get my cock ready to ram-fuck her savagely again in a few minutes. Report_Story #3 
+ Now, when I fuck a hot chick, I recharge pretty fucking fast. My dick won't go soft, and if I really wanted to, I probably could have started fucking Payton again even though I literally just had an orgasm. But I knew I could entertain her a while, and get my cock ready to ram-fuck her savagely again in a few minutes.  
 
  
 
@@ -3512,7 +3512,7 @@
 
  We were both so turned on. I can't speak for me, I guess my hot body, huge cock and large bank account were probably what drew her interest. For me, it wasn't just her beauty; hell, I fucked a model right in that very spot not even 24 hours earlier. No, in addition to her sexy naked figure and pretty face, she was so young, yet so sexual. I'd forgotten that 18 year olds could get so horny! Shit -- made me worry about my daughter. Well, I had a few years to deal with that. 
 
- The tub was unforgiving, contorting her shoulder, back and butt in an uncomfortable position. With a momentary frown, Payton pushed my pelvis off of her, causing me to withdraw my penis from her vagina. The teenager rolled over, rising to her knees on the tub, leaning her small shoulders over the top edge. She looked back at me, and then wiggled her hot little ass, which was just barely peeking over the swirling white bubbles of the tub. The hottie wiggled her butt, smiling at me over her shoulder, indicating she wanted some doggy- style sex again. Report_Story #4 
+ The tub was unforgiving, contorting her shoulder, back and butt in an uncomfortable position. With a momentary frown, Payton pushed my pelvis off of her, causing me to withdraw my penis from her vagina. The teenager rolled over, rising to her knees on the tub, leaning her small shoulders over the top edge. She looked back at me, and then wiggled her hot little ass, which was just barely peeking over the swirling white bubbles of the tub. The hottie wiggled her butt, smiling at me over her shoulder, indicating she wanted some doggy- style sex again.  
 
  
 
@@ -3584,7 +3584,7 @@
 
  Which is the rule I made for myself -- no more fucking 18 year old girls, even if they are incredibly hot. 
 
- Truth be told, that rule lasted with me until, three weeks later, at a resort on Grand Cayman, a gorgeous Latina with long, black hair, succulent lips, large breasts and exquisitely small ass walked past me, in a string bikini and thong. Walking alone on the resort's pool deck, the hottie looked down at me in my Speedo bathing suit and blew me a kiss. I saw her large brown eyes glance at my tanned, athletic chest, and the large bulge of my tight swimsuit. As I scampered to my feet from my poolside deck chair and went after her, I had no idea I was chasing an 18 year old. I found out her age when she was stripping nude for me in my suite, and I had a choice -- apply the rule and avoid girls her age, or fuck the nude, sexy Latina. What, I didn't get rich by being stupid. I fucked her extremely hard for a few hours, even making her cry by the end because she was so sore. And unlike that girl Payton, the nameless Latina wasn't a bitch about it when I was finally done with her! Report_Story #1 
+ Truth be told, that rule lasted with me until, three weeks later, at a resort on Grand Cayman, a gorgeous Latina with long, black hair, succulent lips, large breasts and exquisitely small ass walked past me, in a string bikini and thong. Walking alone on the resort's pool deck, the hottie looked down at me in my Speedo bathing suit and blew me a kiss. I saw her large brown eyes glance at my tanned, athletic chest, and the large bulge of my tight swimsuit. As I scampered to my feet from my poolside deck chair and went after her, I had no idea I was chasing an 18 year old. I found out her age when she was stripping nude for me in my suite, and I had a choice -- apply the rule and avoid girls her age, or fuck the nude, sexy Latina. What, I didn't get rich by being stupid. I fucked her extremely hard for a few hours, even making her cry by the end because she was so sore. And unlike that girl Payton, the nameless Latina wasn't a bitch about it when I was finally done with her!  
 
  
 
@@ -3702,7 +3702,7 @@
 
  Boom! 
 
- A clap of thunder, very close to the hotel, woke me up. I checked the clock, it was only about twenty minutes after we'd crawled into bed. On the other bed, I heard Stacy let out a little yelp, then she giggled. Midwesterners like us aren't frightened by thunder; it's just noise, not a threat. But, it can be a lot of noise. Report_Story #2 
+ A clap of thunder, very close to the hotel, woke me up. I checked the clock, it was only about twenty minutes after we'd crawled into bed. On the other bed, I heard Stacy let out a little yelp, then she giggled. Midwesterners like us aren't frightened by thunder; it's just noise, not a threat. But, it can be a lot of noise.  
 
  
 
@@ -3828,7 +3828,7 @@
 
  Stay in my room? I was fucking this sensationally sexy, strawberry-blonde teenager. I wasn't going anywhere. 
 
- Rolling us over again, I lay her nude body above mine, keeping my arms around her, our lips pressed together in a continuing kiss. My hands rubbed sweat up and down her slim, soft back and sexy buttocks. Her thigh ground my hard dick against my own pelvis, until she found me swollen again, ready for more sex. With a grunt, she climbed on top of me, inserting my dick into her messy, sloppy vagina, but keeping our faces together for the kiss, so I could fuck her mouth with my tongue while my dick was again fucking her teen pussy. Report_Story #3 
+ Rolling us over again, I lay her nude body above mine, keeping my arms around her, our lips pressed together in a continuing kiss. My hands rubbed sweat up and down her slim, soft back and sexy buttocks. Her thigh ground my hard dick against my own pelvis, until she found me swollen again, ready for more sex. With a grunt, she climbed on top of me, inserting my dick into her messy, sloppy vagina, but keeping our faces together for the kiss, so I could fuck her mouth with my tongue while my dick was again fucking her teen pussy.  
 
  
 
@@ -3882,7 +3882,7 @@
 
  I told her, she should fuck married men as often as she can. And they all should give me a medal for my service to humanity, for telling her to do it. 
 
- I can only imagine what other married cocks got to enter her hot pussy! Report_Story #1 
+ I can only imagine what other married cocks got to enter her hot pussy!  
 
  
 
@@ -4008,7 +4008,7 @@
 
  "Good." Vicky snickered. "Okay, Tawni, now that you have his attention -- and trust me, you do -- you wanna learn how to really turn him on?" 
 
- The blonde, still in my arms, looked across the room at my wife. "Yeah, sure," she said. Her voice was more relaxed and confident, I could hear her more aroused than before. The kiss did wonders to get her in the mood. Report_Story #2 
+ The blonde, still in my arms, looked across the room at my wife. "Yeah, sure," she said. Her voice was more relaxed and confident, I could hear her more aroused than before. The kiss did wonders to get her in the mood.  
 
  
 
@@ -4154,7 +4154,7 @@
 
  I pulled my sloppy-wet dick out of her cunt, rubbing my peckerhead on her asshole. I pried her small cheeks open more, but didn't really need to -- they were so small, I could see her asshole easily. But as soon as I was sure her butthole was lubricated from her cuntjuices, I pushed forward, stretching her anus, filling it with some dick. Fucking tight it was, just like her cunt! I growled at my wife how tight the asshole felt, but Vicky had me fuck it a few minutes, until her ass muscles loosened, and I had a good three or four inches plowing in and out of the girl's butt. Tawni remained leaning forward on the carpet, keeping her small tush pushed upwards, feeling the unique sensation of a hard penis fucking her butthole. 
 
- Man, I wanted to cum by this point. Watching myself fuck the smoking-hot blonde teenager was driving me nuts, and her holes were so tight and youthful, they were literally the best holes I'd ever fucked -- anyone, ever, as far as I could remember. I looked longingly at my fully-dressed wife on the sofa, pouting to her, asking for permission to cum. I wasn't sure if Vicky was "done" with the lessons at the moment. Report_Story #3 
+ Man, I wanted to cum by this point. Watching myself fuck the smoking-hot blonde teenager was driving me nuts, and her holes were so tight and youthful, they were literally the best holes I'd ever fucked -- anyone, ever, as far as I could remember. I looked longingly at my fully-dressed wife on the sofa, pouting to her, asking for permission to cum. I wasn't sure if Vicky was "done" with the lessons at the moment.  
 
  
 
@@ -4260,7 +4260,7 @@
 
  Next to me, my horny but shaken wife responded coldly, without remorse or hint of doubt. "Nope." She just sat back, watching nothing in particular as we drove along, but avoiding eye contact with me. Her next six words explained everything about her mood. "Because you like her too much." 
 
- Well, I'll tell you this -- my wife knows me well, she was totally right about that. Report_Story #1 
+ Well, I'll tell you this -- my wife knows me well, she was totally right about that.  
 
  
 
@@ -4346,7 +4346,7 @@
 
  No, instead, Trixie started telling us what a slut VIVIAN was! 
 
- Pointing to her petite, brunette ex-step-daughter, Trixie related the tale of the tape. "Vivian's only been 18 for -- well, wait, what month is this, August? -- for five -- wait, one, two, three, for, yes, five -- for five months, and she's already more a slut than that." Waiting to make sure we were all paying careful attention, she announced Vivian's very busy and recent sexual history. "She's fucked, like, fifteen guys, in swinger parties we've had; she's fucked, like, another six or seven women, or girls her age. And I watched her single- handedly get fucked by Dozer and three other guys at one party -- she took those four pricks in her holes, they just kept going at her, I swear she was a cock-sucking, cunt-fucking, ass-fucked champion of the fuckin' planet." And, with a toothy white grin, the blonde reminded us, "And she's only 18, still." Report_Story #2 
+ Pointing to her petite, brunette ex-step-daughter, Trixie related the tale of the tape. "Vivian's only been 18 for -- well, wait, what month is this, August? -- for five -- wait, one, two, three, for, yes, five -- for five months, and she's already more a slut than that." Waiting to make sure we were all paying careful attention, she announced Vivian's very busy and recent sexual history. "She's fucked, like, fifteen guys, in swinger parties we've had; she's fucked, like, another six or seven women, or girls her age. And I watched her single- handedly get fucked by Dozer and three other guys at one party -- she took those four pricks in her holes, they just kept going at her, I swear she was a cock-sucking, cunt-fucking, ass-fucked champion of the fuckin' planet." And, with a toothy white grin, the blonde reminded us, "And she's only 18, still."  
 
  
 
@@ -4456,7 +4456,7 @@
 
  Finally, Thom had to cum too, and at Trixie's suggestion, he spun Vivian onto her ass so that he, too, could ejaculate his semen onto the 18 year old's face. 
 
- When he pulled back, I found myself gazing lovingly at the hottest face ever: the very pretty 18 year old brunette, with so much male cum dripping down her cheeks and chin, over her forehead, smeared with some pussyjucies from Giana's 20 year old twat -- and one large, sex-crazed smile! Report_Story #3 
+ When he pulled back, I found myself gazing lovingly at the hottest face ever: the very pretty 18 year old brunette, with so much male cum dripping down her cheeks and chin, over her forehead, smeared with some pussyjucies from Giana's 20 year old twat -- and one large, sex-crazed smile!  
 
  
 
@@ -4558,11 +4558,11 @@
 
  I had an orgasm deep in the slut's cunt while I fucked her from the rear. When I pulled out, Trixie made Vivian lick my cock clean of sperm and cuntjuices, while Vivian profusely thanked me for the hot sex. 
 
- An hour later, that hot sex with Vivian was getting me in trouble. Sitting in the car for the long ride home, my mistress Elan decided to end her self- imposed angry silence with me. She erupted with a torrent of hateful accusations -- completely disturbed that I preferred fucking a teenager still in high school. "Act your fucking age," the middle-aged woman spat at me. Report_Story #4 
+ An hour later, that hot sex with Vivian was getting me in trouble. Sitting in the car for the long ride home, my mistress Elan decided to end her self- imposed angry silence with me. She erupted with a torrent of hateful accusations -- completely disturbed that I preferred fucking a teenager still in high school. "Act your fucking age," the middle-aged woman spat at me.  
 
  
 
- ****** Lilac's 18yo Friend: Vivian Swings ****** byNonStopFunGuy© I took it in stride, not arguing back. I didn't fucking care that she was mad. Not only was Vivian a great, young fuck, but I got more than a sexy memory from it -- I got Vivian's cellphone number, too! Report_Story #1 
+ ****** Lilac's 18yo Friend: Vivian Swings ****** byNonStopFunGuy© I took it in stride, not arguing back. I didn't fucking care that she was mad. Not only was Vivian a great, young fuck, but I got more than a sexy memory from it -- I got Vivian's cellphone number, too!  
 
  
 
@@ -4968,7 +4968,7 @@
 
  Lilac: "SHIT -- yeah? Sorry, I mean, I'm not really, I mean, but--" 
 
- Report_Story #2 
+  
 
  
 
@@ -5238,7 +5238,7 @@
 
  Madison: "Best sleepover we've ever had, huh?" 
 
- Lilac: "Ohhh, yes it is!" Report_Story #1 
+ Lilac: "Ohhh, yes it is!"  
 
  
 
@@ -5346,7 +5346,7 @@
 
  "Uhhhh!" Giana looked up at the ceiling, aching at the moment she felt that big penis enter her bald Asian cunt from the rear. "Yeah, fuck me!" Then, realizing I was staring at the sex, she snickered at me. "Thom, baby, they're so big!" 
 
- Damn, it looked beautiful, that awesome black penis entering Giana's cunt over and over from the rear. Her small, creamy ass was in his big hands, he pawed and groped her buttocks while fucking her slowly, rhythmically, from behind. Ameldo pushed her head down more, getting a solid four or five inches of his penis inside her mouth and throat, making her gag softly each time. She was being used, a tiny rag doll between these two hung studs. Report_Story #2 
+ Damn, it looked beautiful, that awesome black penis entering Giana's cunt over and over from the rear. Her small, creamy ass was in his big hands, he pawed and groped her buttocks while fucking her slowly, rhythmically, from behind. Ameldo pushed her head down more, getting a solid four or five inches of his penis inside her mouth and throat, making her gag softly each time. She was being used, a tiny rag doll between these two hung studs.  
 
  
 
@@ -5464,7 +5464,7 @@
 
  I had to cum again, and I rolled her onto her back, pushing my erection inside her twat. She put her feet on my shoulders, so my pelvis was smacking her buttocks lifted off the bed, and my dick was deep inside her. I roared, told her what was happening, and squirted another load of my gooey cum out, this time deep in the married slut's cunt. 
 
- Janae and I lounged on the bed a bit, kissing and cuddling, some post-sex entertainment, while Giana was just watching. But we weren't finished. Janae sucked me back to full strength, and I had her mount me cowgirl-style. Her petite body looked so sexy, I was staring at her slightly rotund boobs on her skinny frame, while she threw her head back and moaned at the ceiling. "Uhhh, yes! Yes! Yes!" Humping me up and down, her cunt sliding up and down my pole, she winced and screamed even more loudly when I reached up to pinch and twist her firm, brown nipples. The married Chinese woman started having more orgasms, just drenching my cock and balls with her cunt juices. Report_Story #3 
+ Janae and I lounged on the bed a bit, kissing and cuddling, some post-sex entertainment, while Giana was just watching. But we weren't finished. Janae sucked me back to full strength, and I had her mount me cowgirl-style. Her petite body looked so sexy, I was staring at her slightly rotund boobs on her skinny frame, while she threw her head back and moaned at the ceiling. "Uhhh, yes! Yes! Yes!" Humping me up and down, her cunt sliding up and down my pole, she winced and screamed even more loudly when I reached up to pinch and twist her firm, brown nipples. The married Chinese woman started having more orgasms, just drenching my cock and balls with her cunt juices.  
 
  
 
@@ -5590,7 +5590,7 @@
 
  Kitty shot Giana an evil look -- an "I'm-going-to-kill-you--but-kill-you-later" look -- then rolled her face up at me. Her eyes were half-closed, her jaw trembling, she was so ready to get fucked by me, she wasn't going to stop it. Her small hands slipped up my muscular arms, gripping me as I towered above her, my arms straight down to the bed, while I moved my erection against her pussy hard. I felt my dickhead shove into her tight, married cunt again, with her husband watching, and the woman was going to give it up for me. "Yesssss," Kitty whined, back arching, voice trembling, "okay -- okay -- Thom, fuck me!" Then, the slutty married bitch immediately lost the attitude, and allowed her sexuality to overcome her misgivings. Staring up at me with lust for a moment, she rolled her brown eyes to her white husband and groaned, "David -- please - - I need to get fucked!" She could have sounded like she was begging for his permission, but I bet, she was just telling him what was going to happen. 
 
- With David and Giana sitting there, largely motionless, just watching, I humped the married Asian bitch hard. My fat penis really stretched out her tight vagina, and I completely filled it with about seven inches inside of her. The pressure was so intense, I couldn't shove in the last inch or so; I just hammered at the pressure, driving her, completely into the back of her cunt. Her ass was off the bed, her legs spread wide, her feet flat and thrusting her thin pelvis around the bed. "Uhhh, yessss! Uhhhhh, ohhhhh, yesssss!" Her eyes were closed, hands clutching my arms or my hairy chest, then she put her palms flat on my rock-hard abdomen to feel me fucking her, feeling the power I was driving into her small body. "Uhhhh, Thom! Uhhhh, fuck meeee!" Report_Story #4 
+ With David and Giana sitting there, largely motionless, just watching, I humped the married Asian bitch hard. My fat penis really stretched out her tight vagina, and I completely filled it with about seven inches inside of her. The pressure was so intense, I couldn't shove in the last inch or so; I just hammered at the pressure, driving her, completely into the back of her cunt. Her ass was off the bed, her legs spread wide, her feet flat and thrusting her thin pelvis around the bed. "Uhhh, yessss! Uhhhhh, ohhhhh, yesssss!" Her eyes were closed, hands clutching my arms or my hairy chest, then she put her palms flat on my rock-hard abdomen to feel me fucking her, feeling the power I was driving into her small body. "Uhhhh, Thom! Uhhhh, fuck meeee!"  
 
  
 
@@ -5656,7 +5656,7 @@
 
  And that's how Giana became my permanent girlfriend. 
 
- And, to finish the day's event, I should tell you what happened with Kitty and David. When Kitty came off her sexual high, she basically kicked Giana and me out of the house. Kitty didn't call me afterwards, wouldn't return my calls. But you know what? She came around. Three weeks later, I was fucking her in front of her husband again. Know why? Because HE loved it, the weirdo! She let me fuck her, and verbally abuse him, because he wanted it, and she wanted to please him. Seriously, I don't get those two. What a strange sexual relationship they have. But who am I to argue, I get to fuck the jerk's hot Asian wife! Report_Story #1 
+ And, to finish the day's event, I should tell you what happened with Kitty and David. When Kitty came off her sexual high, she basically kicked Giana and me out of the house. Kitty didn't call me afterwards, wouldn't return my calls. But you know what? She came around. Three weeks later, I was fucking her in front of her husband again. Know why? Because HE loved it, the weirdo! She let me fuck her, and verbally abuse him, because he wanted it, and she wanted to please him. Seriously, I don't get those two. What a strange sexual relationship they have. But who am I to argue, I get to fuck the jerk's hot Asian wife!  
 
  
 
@@ -5792,7 +5792,7 @@
 
  Heather snickered. "Fuck U. -- as in, not 'fuck Y-O-U,' but as in, "Fuck the- letter-U-with-a-period." 
 
- Okay, that made me snicker too. I hadn't heard it before. "No, I didn't know that -- that's hilarious." Great, I sent my horny daughter to Fuck U. for an education. She wasn't getting her brains filled with knowledge, she was getting her cunt filled with sperm. Report_Story #2 
+ Okay, that made me snicker too. I hadn't heard it before. "No, I didn't know that -- that's hilarious." Great, I sent my horny daughter to Fuck U. for an education. She wasn't getting her brains filled with knowledge, she was getting her cunt filled with sperm.  
 
  
 
@@ -5934,7 +5934,7 @@
 
  She shrugged her slim shoulders, leaning forward to plant a soft, wet kiss on my forehead. My daughter's big teen tits were right in front of me, just below my face, stretching out her tight, thin t-shirt. "Because I know you think I'm hot and sexy -- and I wanted you to know I think you're hot -- and that I like older men -- a LOT." 
 
- Shudder. Gasp. Grunt, even. I couldn't believe she was saying this; but, judging by how hard my dick was in my pants, I was thrilled to hear it. Really, it was perfectly obvious what was going on. Straddling my lap now, her crotch in her tight jeans was inches away from my hard dick in my pants. Her sweet perfume, her girlish scents, even the fishy flavor of a wet pussy, all of these aromas were filtering into my brain now, giving me a natural high, making me erotically hungry for my daughter's body. Report_Story #3 
+ Shudder. Gasp. Grunt, even. I couldn't believe she was saying this; but, judging by how hard my dick was in my pants, I was thrilled to hear it. Really, it was perfectly obvious what was going on. Straddling my lap now, her crotch in her tight jeans was inches away from my hard dick in my pants. Her sweet perfume, her girlish scents, even the fishy flavor of a wet pussy, all of these aromas were filtering into my brain now, giving me a natural high, making me erotically hungry for my daughter's body.  
 
  
 
@@ -6068,7 +6068,7 @@
 
  For a moment, I pulled my head up, admiring the sight. Heather, lying back, her eyes heavy with desire, pulling her creamy thighs as wide open as she could for me. Her incredible, teenage vagina wasn't my daughter's -- it was the wet hole of a horny tramp, a sex-hungry little bitch who needed to get off with her man. 
 
- Daddy gave his princess what she wanted, a powerful tongue-fucking. With my hands wandering over her tits and ass to feel her soft, sensuous flesh, my mouth firmly planted itself on her twat to drive her over the edge or orgasm, thrice. The first time, my lips and tongue concentrated on her pink, fleshy clitoris, sucking and teasing it, rapidly flicking it around too, squeezing it between lips at times. She panted, then shrieked, then her body went stiff and her cunthole leaked a small stream of her juices while she erupted in her first orgasm. I kept her clit in my clenched mouth for that, almost biting on it as she cummed. Then, as soon as it subsided, I licked down to the hole of her pussy and filled that teen cunt with her father's tongue. Her hands gripped her knees even more tightly, so she had leverage to really yank open her thighs for me as she stared down at her daddy performing cunnilingus on her. My daughter panted heavily, each breath a loud draw of air into her slim torso, moaning in delight while she felt my tongue probing into her vagina. That sexy hole was warm, and wet, and silky, so inviting for my tongue. With juices lathering on my lips and chin, I drove my pink tongue as far inside Heather's pussy as I could, stretching it inside for her, feeling her grind her pelvis against my face and hump my tongue. Pumping my tongue in and out, I built a rhythm while she circled her hips wildly, bucking back and forth, crying out again. Her second orgasm flooded my mouth with juices, which I promptly swallowed quickly, only to have a second mouthful of her teen juice flood into my mouth again. Report_Story #4 
+ Daddy gave his princess what she wanted, a powerful tongue-fucking. With my hands wandering over her tits and ass to feel her soft, sensuous flesh, my mouth firmly planted itself on her twat to drive her over the edge or orgasm, thrice. The first time, my lips and tongue concentrated on her pink, fleshy clitoris, sucking and teasing it, rapidly flicking it around too, squeezing it between lips at times. She panted, then shrieked, then her body went stiff and her cunthole leaked a small stream of her juices while she erupted in her first orgasm. I kept her clit in my clenched mouth for that, almost biting on it as she cummed. Then, as soon as it subsided, I licked down to the hole of her pussy and filled that teen cunt with her father's tongue. Her hands gripped her knees even more tightly, so she had leverage to really yank open her thighs for me as she stared down at her daddy performing cunnilingus on her. My daughter panted heavily, each breath a loud draw of air into her slim torso, moaning in delight while she felt my tongue probing into her vagina. That sexy hole was warm, and wet, and silky, so inviting for my tongue. With juices lathering on my lips and chin, I drove my pink tongue as far inside Heather's pussy as I could, stretching it inside for her, feeling her grind her pelvis against my face and hump my tongue. Pumping my tongue in and out, I built a rhythm while she circled her hips wildly, bucking back and forth, crying out again. Her second orgasm flooded my mouth with juices, which I promptly swallowed quickly, only to have a second mouthful of her teen juice flood into my mouth again.  
 
  
 
@@ -6164,7 +6164,7 @@
 
  Wow, oh wow, I said to Heather, aching to fuck her, so turned on by what she did. Heather wasn't blushing, she was proud of being a slut -- she really did love sex, as she told me. 
 
- So I had to know, and I asked if she'd tell me the first time she got it on with another girl. Heather pointedly told me news I didn't know -- that she and Jill fucked each other the past year, when they were freshman. I wanted details. Heather giggled at me, telling me I was "silly," but she told me anyway. They were in the community showers together, one nameless morning, and realized each girl was checking out the other girl's body in the shower. A couple days later they were eating dinner with a group in the dorm cafeteria, until just Heather and Jill were left there. They went back to Jill's dorm room, just talking and hanging out, then it just sort of happened. Experimenting like college kids are known to do, they began kissing lightly, making out, then fondling each other's tits and butts through their clothing. Heather said, Jill said something like, "I'm not gay but if you want, we can fuck each other, I've never done it with a girl." Heather was so turned on, she said she definitely wanted to try it. So they stripped, eat each other's pussies, and used Jill's dildos on each other. And Heather and Jill were hooked on it, fucking each other time to time that year, and deciding to live together as roommates their sophomore year so they could fuck each other regularly. Report_Story #5 
+ So I had to know, and I asked if she'd tell me the first time she got it on with another girl. Heather pointedly told me news I didn't know -- that she and Jill fucked each other the past year, when they were freshman. I wanted details. Heather giggled at me, telling me I was "silly," but she told me anyway. They were in the community showers together, one nameless morning, and realized each girl was checking out the other girl's body in the shower. A couple days later they were eating dinner with a group in the dorm cafeteria, until just Heather and Jill were left there. They went back to Jill's dorm room, just talking and hanging out, then it just sort of happened. Experimenting like college kids are known to do, they began kissing lightly, making out, then fondling each other's tits and butts through their clothing. Heather said, Jill said something like, "I'm not gay but if you want, we can fuck each other, I've never done it with a girl." Heather was so turned on, she said she definitely wanted to try it. So they stripped, eat each other's pussies, and used Jill's dildos on each other. And Heather and Jill were hooked on it, fucking each other time to time that year, and deciding to live together as roommates their sophomore year so they could fuck each other regularly.  
 
  
 
@@ -6212,7 +6212,7 @@
 
  Oh, it was way more outrageous than I even remembered. 
 
- "Well," Heather giggled, continuing to push her boob into her father's open mouth, "it was like an all-week orgy -- Jill and me, and Jake, and his girlfriend, who's name I can't remember, but she was really hot -- and he had other friends over, guy friends, plus this one other girl who came by a few times, Carmen or something. It was like, we were naked like all the time, tanning, partying, fucking -- we'd be on the bed, all of us girls, legs spread, the guys going back and forth taking turns -- sex games -- Jake and two of his buddies were, like, using me, just me, for a couple hours too, one day, it was insanely fun!" She snickered as she related her perverted spring trip to her adoring father. "Jake wants me back this spring, with Jill or whomever -- do you wanna come?" I felt her hand reach around my super-hard penis, and she jerked it a little while continuing to feed me her tits. "You can watch your princess get fucked by three or more men, I'll be a little cumslut -- while you can get laid by three or more girls too, all by yourself -- wouldn't you love it?" Report_Story #1 
+ "Well," Heather giggled, continuing to push her boob into her father's open mouth, "it was like an all-week orgy -- Jill and me, and Jake, and his girlfriend, who's name I can't remember, but she was really hot -- and he had other friends over, guy friends, plus this one other girl who came by a few times, Carmen or something. It was like, we were naked like all the time, tanning, partying, fucking -- we'd be on the bed, all of us girls, legs spread, the guys going back and forth taking turns -- sex games -- Jake and two of his buddies were, like, using me, just me, for a couple hours too, one day, it was insanely fun!" She snickered as she related her perverted spring trip to her adoring father. "Jake wants me back this spring, with Jill or whomever -- do you wanna come?" I felt her hand reach around my super-hard penis, and she jerked it a little while continuing to feed me her tits. "You can watch your princess get fucked by three or more men, I'll be a little cumslut -- while you can get laid by three or more girls too, all by yourself -- wouldn't you love it?"  
 
  
 
@@ -6328,7 +6328,7 @@
 
  "Happy birthday, honey!" I growled, pushing my dickhead inside her vagina. 
 
- The teenager yelped, her back arching, her head falling back to my desk. "Uhhh -- FUCK!'' She tried not to shriek, but it was a loud whine anyway. "Owwww!" Report_Story #2 
+ The teenager yelped, her back arching, her head falling back to my desk. "Uhhh -- FUCK!'' She tried not to shriek, but it was a loud whine anyway. "Owwww!"  
 
  
 
@@ -6372,7 +6372,7 @@
 
  My secretary didn't believe me. She knew I had brought over a couple of the college girls time to time, so she wasn't buying the idea that I would fuck the boss's daughter on her 18th birthday. "Yeah, right," snapped the brunette with the nice tits, dropping the order form on my messy desk, "you wish." 
 
- I laughed at the bitch. Yeah, I did wish -- and, although it was Riona's birthday, my birthday wish came true! Report_Story #1 
+ I laughed at the bitch. Yeah, I did wish -- and, although it was Riona's birthday, my birthday wish came true!  
 
  
 
@@ -6474,7 +6474,7 @@
 
  She let me rub the soapy sponge around her shoulders and back, then I traced the sponge around her meaty buttocks. "Mmm, aren't you clean now," I muttered, wanting to fuck her so badly. I pushed my hips forward, my dick hanging in the air, and I rubbed my erection against her buttcrack, nestling it vertically in the soft valley of her ass. "Nice and clean, nice and clean." I put a hand on her hip, holding her there, while my other hand kept rubbing the sponge around her back. The soap and water was cascading down her back, lathering my penis and her buttcheeks, it was very sensual. "There, you like your step-daddy cleaning you?" 
 
- Roxy felt my erection firmly against her butt, and instead of pulling away from me, she pushed her hips backwards and swayed slightly, so I was grinding against her ass. "Ohhh my gawd," she gasped, "what ARE you doing?" She looked back and snickered, telling me she knew exactly what I was doing, and she wasn't really stopping me. Report_Story #2 
+ Roxy felt my erection firmly against her butt, and instead of pulling away from me, she pushed her hips backwards and swayed slightly, so I was grinding against her ass. "Ohhh my gawd," she gasped, "what ARE you doing?" She looked back and snickered, telling me she knew exactly what I was doing, and she wasn't really stopping me.  
 
  
 

@@ -176,7 +176,7 @@
 
  "I saw you girlfriend. I saw you with your hand up your skirt. When are you going to let it go? You want to or you wouldn't be stroking your pussy while watching me. You are missing out on some great sex." 
 
- "How many times do I have to tell you Mar? Hal has two ex-wives who got to be ex-wives because they cheated on him. I love him and I don't want to be an ex- wife ergo, I don't cheat." Report_Story #2 
+ "How many times do I have to tell you Mar? Hal has two ex-wives who got to be ex-wives because they cheated on him. I love him and I don't want to be an ex- wife ergo, I don't cheat."  
 
  
 

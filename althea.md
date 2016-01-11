@@ -188,7 +188,7 @@
 
  "And that is because it turns you on to be giving me sloppy seconds?" 
 
- "No Herbie, I would never do that to you. Well, that's not exactly true. It did happen once and I felt so guilty about it that I never let it happen again. I always shower and douche before I come to you Herbie, always. The reason it causes our sex life to increase is because I leave my black lover knowing that all he is is a fuck, but that I'm going home to a man whom I love and who is going to make fantastic love to me. This isn't about hurting you or shaming you. I love you Herb, I really do. My thing for blacks is just an itch that I have to occasionally scratch. We have been together almost nine years Herb and it has been going on all that time and it hasn't hurt us a bit and there is no reason that it should bother us now that you know." Report_Story #2 
+ "No Herbie, I would never do that to you. Well, that's not exactly true. It did happen once and I felt so guilty about it that I never let it happen again. I always shower and douche before I come to you Herbie, always. The reason it causes our sex life to increase is because I leave my black lover knowing that all he is is a fuck, but that I'm going home to a man whom I love and who is going to make fantastic love to me. This isn't about hurting you or shaming you. I love you Herb, I really do. My thing for blacks is just an itch that I have to occasionally scratch. We have been together almost nine years Herb and it has been going on all that time and it hasn't hurt us a bit and there is no reason that it should bother us now that you know."  
 
  
 

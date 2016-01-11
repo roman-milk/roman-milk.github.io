@@ -180,7 +180,7 @@
 
  Emily wiggles to raise her tight skirt to above her hips and stands quietly. Covering her bottom is a white full cut cotton school girl's panty. It is not something, a 46 year old business woman, would select by herself. 
 
- "Display Missy," she hesitates for a full minute until Master comes over to her and yanks her panty down unceremoniously and finds she is wearing another pair of panties underneath. It is a blue bikini. Taking both of her panties off, he pulls them over her head similar to Susan and me. He grasps her ear and marches her over to the nearest straight back chair and in one motion flips her over his lap. Taking the dowel and spanking strap from her hand he drops them on the nearest table and begins to spank her backside. Report_Story #2 
+ "Display Missy," she hesitates for a full minute until Master comes over to her and yanks her panty down unceremoniously and finds she is wearing another pair of panties underneath. It is a blue bikini. Taking both of her panties off, he pulls them over her head similar to Susan and me. He grasps her ear and marches her over to the nearest straight back chair and in one motion flips her over his lap. Taking the dowel and spanking strap from her hand he drops them on the nearest table and begins to spank her backside.  
 
  
 

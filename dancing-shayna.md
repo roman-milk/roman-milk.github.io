@@ -216,7 +216,7 @@
 
  When I got home that night Shayna was sitting on the front porch steps waiting for me. I don't know how long she had been there, but if she showed up at the time I normally got home from work she had been sitting there almost four hours. 
 
- When I got off work I went and checked out the address I'd been given for the owner of the Chevy. It was an apartment on the east side of town just as Tanya had said. There was no Chevy truck in the parking lot so I parked where I could see the door to apartment 2A and settled in to wait. I was there a little over an hour and forty minutes before a red Chevy Silverado pulled in and parked. When the driver got out I saw that it was the asshole who had asked Shayna to dance on Friday night. Report_Story #2 
+ When I got off work I went and checked out the address I'd been given for the owner of the Chevy. It was an apartment on the east side of town just as Tanya had said. There was no Chevy truck in the parking lot so I parked where I could see the door to apartment 2A and settled in to wait. I was there a little over an hour and forty minutes before a red Chevy Silverado pulled in and parked. When the driver got out I saw that it was the asshole who had asked Shayna to dance on Friday night.  
 
  
 
@@ -456,7 +456,7 @@
 
  +++++++++++++++++ 
 
- Two years have gone by since Shayna's 'slip in judgment' and there have been some changes. Mercer did decide to practice his free lance carpentry in another state. There were never any more calls to the house and he and Shayna never did talk on her cell phone. This I know because I carefully screen the monthly cell phone statements and I never did remove the recorder from her car. I can't swear that they never talked, but I keep a close eye on Shayna and she has given me no call to be even remotely suspicious. Report_Story #3 
+ Two years have gone by since Shayna's 'slip in judgment' and there have been some changes. Mercer did decide to practice his free lance carpentry in another state. There were never any more calls to the house and he and Shayna never did talk on her cell phone. This I know because I carefully screen the monthly cell phone statements and I never did remove the recorder from her car. I can't swear that they never talked, but I keep a close eye on Shayna and she has given me no call to be even remotely suspicious.  
 
  
 

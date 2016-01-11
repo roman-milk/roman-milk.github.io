@@ -222,7 +222,7 @@
 
  We cuddled for a while and then I moved down and took his limp cock into my mouth and went to work on it. In five minutes I had him ready and I moved over him and took him into me. 
 
- We made love four times that night and I got off each time. That was something that had never happened to me before. I'd had plenty of orgasms with Joe and the group, but I'd never had an orgasm each and every time we fucked. Report_Story #2 
+ We made love four times that night and I got off each time. That was something that had never happened to me before. I'd had plenty of orgasms with Joe and the group, but I'd never had an orgasm each and every time we fucked.  
 
  
 
@@ -432,7 +432,7 @@
 
  Anyway, Glen's trip was a four day five night jaunt to San Diego so his first night gone found me with the group in the lounge. The first two nights were like most of the others. I drank, I danced, I got felt up and even kissed a few times, but unlike Judy and Marge I made no trips to the parking lot. 
 
- The third night I was a bit on the horny side so I did respond to some of the more blatant groping by pushing back into the hard ons that were poking my leg. Mark was the most persistent and at one point I thought he was going pick me up and carry me out to the lot. I wanted to fuck in the worst way, but I had promised myself that I wouldn't. I'd play a little, do some tongue swapping, get finger fucked and maybe, just maybe, give a hand job occasionally, but that was all I was going to do. Mark kept pushing and so I finally told him I'd give him what he wanted if he was willing to pay the price. Report_Story #3 
+ The third night I was a bit on the horny side so I did respond to some of the more blatant groping by pushing back into the hard ons that were poking my leg. Mark was the most persistent and at one point I thought he was going pick me up and carry me out to the lot. I wanted to fuck in the worst way, but I had promised myself that I wouldn't. I'd play a little, do some tongue swapping, get finger fucked and maybe, just maybe, give a hand job occasionally, but that was all I was going to do. Mark kept pushing and so I finally told him I'd give him what he wanted if he was willing to pay the price.  
 
  
 
@@ -658,7 +658,7 @@
 
  "Ralph should be here any time now." 
 
- By then I didn't care and I had my legs wrapped tight around Mike. Ralph arrived just before Mike spilled his cum in me and when Mike pulled out Ralph pushed right in. After that it was one after the other, two at a time and three at a time until none of the three could get it up again. As Mike and Ralph dressed (I was staying the night) Ralph asked me: Report_Story #4 
+ By then I didn't care and I had my legs wrapped tight around Mike. Ralph arrived just before Mike spilled his cum in me and when Mike pulled out Ralph pushed right in. After that it was one after the other, two at a time and three at a time until none of the three could get it up again. As Mike and Ralph dressed (I was staying the night) Ralph asked me:  
 
  
 
@@ -872,7 +872,7 @@
 
  After Glen hung up I burped Little Glen, put him down to sleep and then led Jim to the guest room where we proceeded to make up for lost time. We took it slow and easy the first two times, but after I sucked him hard and got him up for a third time I told him that I needed him fast and hard. I woke Jim up with a blow job in the morning and sent him off to work freshly fucked. 
 
- The next night Jim was there again when Glen called only that time my legs were up on Jim's shoulders as he pushed his cock deep into me. I made Jim quit while I took the call. He didn't want to because he thought it would be a hell of a kick to be fucking me while I was talking to Glen, but I wouldn't allow it. It the morning Jim called in to work and told them he was taking a personal day and he spent the entire day with me. I made Jim go home that night and I didn't have him over the last night Glen was gone. Report_Story #5 
+ The next night Jim was there again when Glen called only that time my legs were up on Jim's shoulders as he pushed his cock deep into me. I made Jim quit while I took the call. He didn't want to because he thought it would be a hell of a kick to be fucking me while I was talking to Glen, but I wouldn't allow it. It the morning Jim called in to work and told them he was taking a personal day and he spent the entire day with me. I made Jim go home that night and I didn't have him over the last night Glen was gone.  
 
  
 

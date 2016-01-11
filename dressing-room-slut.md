@@ -142,7 +142,7 @@
 
  The young guy hurried back once he was nude, and Yolanda knelt on her hands and knees, pushing her buttocks high and offering her pink, swollen sex to him. 'Stick it in baby,' she murmured and wiggled her hips from side to side. The man knelt behind her and offered himself to Yolanda's slick opening. He pushed against her, and with a grunt slid into her body. 
 
- Report_Story #2 
+  
 
  
 

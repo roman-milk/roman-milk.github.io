@@ -226,7 +226,7 @@
 
  Let me explain. I was running on automatic. Shocked, confused, irritated, horny. It was 11:00 am on a Saturday. The banks would still be open, so I let her kiss me some more, then piled in the car and drove her to the bank. 
 
- She couldn't just arbitrarily take his name off her accounts. Or vice-versa, so she suggested an easier solution. She'd move the money into my account, to protect it. I was stunned to see she had over $100 grand. She explained that she never spent any of 'our' money. Not the divorce proceedings, not the alimony I'd paid her. It was ours, and she was waiting for us to get back together. The damn slut was delusional. Report_Story #2 
+ She couldn't just arbitrarily take his name off her accounts. Or vice-versa, so she suggested an easier solution. She'd move the money into my account, to protect it. I was stunned to see she had over $100 grand. She explained that she never spent any of 'our' money. Not the divorce proceedings, not the alimony I'd paid her. It was ours, and she was waiting for us to get back together. The damn slut was delusional.  
 
  
 

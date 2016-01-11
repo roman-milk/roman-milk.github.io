@@ -220,7 +220,7 @@
 
  He changed his relationship status to 'engaged', and scanned the news feed as he waited for the comments to come in. He had a few people say congrats, and he responded and chatted for awhile. Suddenly, a new chat window appeared. It was Alicia. 
 
- "Thanks for friending me." she said. Report_Story #2 
+ "Thanks for friending me." she said.  
 
  
 
@@ -412,7 +412,7 @@
 
  Anna quickly explained the situation. About Alicia, and how she met her. Anna explained how she thought she was being followed. Anna showed the cop the letters, and then showed her the message on the mirror. The cop pulled out a few evidence bags. She took all the letters, and put them in a bag. She took photos of the mirror, and she took chips of the lipstick off of it. Then, she made an impression of the lips, and she swabbed the lip-print for DNA. 
 
- "I thought they had people to do this? I didn't know cops did this stuff." Anna said, making conversation. Report_Story #3 
+ "I thought they had people to do this? I didn't know cops did this stuff." Anna said, making conversation.  
 
  
 
@@ -616,7 +616,7 @@
 
  "So? You think I care? You probably care about that feminist bullshit as much as I do, which is to say, not at all. In the back of most men's minds, they truly want a woman who'll be at home for them, waiting to take care of them after a long day's work. They don't want a woman who slaves away at work all day and is just as exhausted as her man when she gets home. A man wants a wife who'll be there for him. And for any real woman, they would rather let their man do the work and let them have the good life, and not have to have her lift a finger or rustle a hair on her pretty little head. I guarantee any woman worth a damn would rather do that than silly work all day. And the women who don't are fucking morons. All that those men ask in return is for their women to look pretty and make babies. And, honestly, that's what I'm built for. Let those feminists give their speeches. I'll be too busy fucking their men to notice." Alicia said. 
 
- After listening to Alicia set back the women's movement back fifty years, Ryan was in shock. This was a woman who not only approved of, but glorified gold- digging. She was proud to sit at home or go shopping all day as her man worked and got her spending money. Ryan was stunned. And the only thing she would provide in return is a womb for making babies. And those massive breasts. He couldn't help but glance at them again. Every time she would lean down to take a bite, her breasts would press into the table and balloon outward. They were so big. They had to be EE-cups! Report_Story #4 
+ After listening to Alicia set back the women's movement back fifty years, Ryan was in shock. This was a woman who not only approved of, but glorified gold- digging. She was proud to sit at home or go shopping all day as her man worked and got her spending money. Ryan was stunned. And the only thing she would provide in return is a womb for making babies. And those massive breasts. He couldn't help but glance at them again. Every time she would lean down to take a bite, her breasts would press into the table and balloon outward. They were so big. They had to be EE-cups!  
 
  
 
@@ -742,7 +742,7 @@
 
  "Here, take a whiff." she says, pulling his head into her chest. He was caught off guard, but his shock did not last. It was hard to stay shocked when you're nose-deep in a massive pair of breasts. Ryan didn't fight Alicia. He just took it. He just sat there and let this slut with the huge boobs do what she wanted to him. He let he scrub her tits across his face. He closed his eyes as she smothered him. The softness surrounding his face was an incredible sensation. He could feel her hard nipples rubbing across his cheeks. He couldn't breathe through his mouth, so the only way he could get air into his lungs was through his nose. As he breathed deeply, he realized Alicia was telling the truth. The air in her cleavage smelled great! 
 
- Ryan was lost in her cleavage for what felt like an eternity. He felt like he could fall in there and get lost forever. She just pressed his face tightly into her soft breasts before finally releasing him. He gasped for air, but the smell of her cleavage was not going away. The smell was driving him mad with lust. He started to violently shake his face between her breasts, wanting to be fully covered in their softness. Alicia's breasts had driven him to this point, the point where his body and mind were reduced to their basest of levels. That was why Ryan didn't put up a fight when Alicia grabbed his hand and led him upstairs towards the bedroom. Report_Story #5 
+ Ryan was lost in her cleavage for what felt like an eternity. He felt like he could fall in there and get lost forever. She just pressed his face tightly into her soft breasts before finally releasing him. He gasped for air, but the smell of her cleavage was not going away. The smell was driving him mad with lust. He started to violently shake his face between her breasts, wanting to be fully covered in their softness. Alicia's breasts had driven him to this point, the point where his body and mind were reduced to their basest of levels. That was why Ryan didn't put up a fight when Alicia grabbed his hand and led him upstairs towards the bedroom.  
 
  
 
@@ -878,7 +878,7 @@
 
  As Alicia's tight pussy was milking his dick, he couldn't help but compare Alicia to Anna. Anna was many things, but few would consider her built to be bred. Her body was unspectacular, with her tiny titties, and bony ass. She wasn't spectacularly pretty. She was cute, but she didn't compare to Alicia. And Alicia had made a good point. He was starting to think that Anna didn't want kids. The more he thought about it, the more it made sense to him. 
 
- Alicia was superior in every way. The only drawback Ryan had come up with for Alicia was her intelligence. Anna was a lawyer, and Alicia was destined to be a lifelong waitress. Ryan had not had any respect for Alicia's intelligence or her work ethic. But then Alicia's seduction had begun. And she had swiftly wormed her way in between the engaged couple and systematically split them up and isolated Ryan as her target. She had worked hard, day after day, to prove herself to Ryan. But Ryan, a future big-shot doctor, and Anna, a future big- shot lawyer, both had looked down at Alicia. But Alicia had easily outsmarted and outwitted them both, and her prize was the stud of a man below her. Ryan now knew that Alicia was smarter, hotter, sexier, more fuckable, and better breeding material than his fiancée. While his fiancée was serious and career focused, Alicia was happy and full of life. She provided a sense of excitement and craziness that Anna could never provide. It was at this point that Ryan's love for his fiancée Anna had started to fade. And the spark of a new love had started to grow. Ryan was starting to fall in love with the buxom, slutty waitress sitting on his dick. Alicia looked smugly down at her new man, knowing she had won. With that, she started to bounce. Report_Story #6 
+ Alicia was superior in every way. The only drawback Ryan had come up with for Alicia was her intelligence. Anna was a lawyer, and Alicia was destined to be a lifelong waitress. Ryan had not had any respect for Alicia's intelligence or her work ethic. But then Alicia's seduction had begun. And she had swiftly wormed her way in between the engaged couple and systematically split them up and isolated Ryan as her target. She had worked hard, day after day, to prove herself to Ryan. But Ryan, a future big-shot doctor, and Anna, a future big- shot lawyer, both had looked down at Alicia. But Alicia had easily outsmarted and outwitted them both, and her prize was the stud of a man below her. Ryan now knew that Alicia was smarter, hotter, sexier, more fuckable, and better breeding material than his fiancée. While his fiancée was serious and career focused, Alicia was happy and full of life. She provided a sense of excitement and craziness that Anna could never provide. It was at this point that Ryan's love for his fiancée Anna had started to fade. And the spark of a new love had started to grow. Ryan was starting to fall in love with the buxom, slutty waitress sitting on his dick. Alicia looked smugly down at her new man, knowing she had won. With that, she started to bounce.  
 
  
 
@@ -1092,7 +1092,7 @@
 
  "Honey, this is another lesson." she said to Ryan. "Sluts are welcome in our bed. I'll let you fuck Veronica, even though you don't know her. You'll do it because I'll tell you to. And Anna's former friends? You can fuck them too. They told me the only reason they stayed friends with her is so they could stay close to you. They wanted to stay within range of that huge dick of yours. So they could stay close enough to fuck." 
 
- Veronica bent over on all fours in front of Ryan. She turned back and smiled at him, looking wild and gorgeous. He did not hesitate. He placed his dick against her asshole and started to push. She yelled out loud as she felt Ryan's huge dick dig deep up her ass. Ryan held her hips as he buried his dick up the asshole of this woman he didn't know. His head fell back as he groaned out loud in pleasure. He started to pump his dick inside of her welcoming ass. As he fucked her, Alicia got on her knees next to him and started whispering in his ear. Report_Story #7 
+ Veronica bent over on all fours in front of Ryan. She turned back and smiled at him, looking wild and gorgeous. He did not hesitate. He placed his dick against her asshole and started to push. She yelled out loud as she felt Ryan's huge dick dig deep up her ass. Ryan held her hips as he buried his dick up the asshole of this woman he didn't know. His head fell back as he groaned out loud in pleasure. He started to pump his dick inside of her welcoming ass. As he fucked her, Alicia got on her knees next to him and started whispering in his ear.  
 
  
 

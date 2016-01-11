@@ -38,7 +38,7 @@
 
  "I didn't mean to. I'm sorry, I don't know how it happened, it just did. All I was doing was dancing and having fun. I don't even know how I got here. It just happened. I'm sorry, I'm so sorry" but as my pants dropped to the floor she shut up and opened her arms and legs to receive me and I buried myself in the hot sloppy thing that was her cunt. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

@@ -194,7 +194,7 @@
 
  "No I don't." 
 
- "You showed me how little you thought of me when you told me what you were going to do and then expected me to just sit still for it. That told me what your real opinion of me was. A spineless wimp that you could fuck around on and have me accept it. No way in hell we could ever had any kind of meaningful relationship after that. No Adelaide, talking with you would have changed nothing." Report_Story #2 
+ "You showed me how little you thought of me when you told me what you were going to do and then expected me to just sit still for it. That told me what your real opinion of me was. A spineless wimp that you could fuck around on and have me accept it. No way in hell we could ever had any kind of meaningful relationship after that. No Adelaide, talking with you would have changed nothing."  
 
  
 

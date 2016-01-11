@@ -222,7 +222,7 @@
 
  "That didn't stop you before." 
 
- "I keep telling you Roxanna, that time was your doing. All I did was respond to what you started. Did I like it? Hell yes I did, but I didn't start it, you did. All I did was go along once you got me hard and hot. Report_Story #2 
+ "I keep telling you Roxanna, that time was your doing. All I did was respond to what you started. Did I like it? Hell yes I did, but I didn't start it, you did. All I did was go along once you got me hard and hot.  
 
  
 
@@ -264,7 +264,7 @@
 
  But you know that when things are going right something always has to happen to throw shit into the game. Tonight when I got home from driving Roxy from the motel to her house my mother was waiting for me in the living room. 
 
- "I know what you and your sister have been up to young man. When your father leaves on his trip tomorrow you and I are going to sit down and have a little talk." Now isn't that something to have to look forward to? Report_Story #1 
+ "I know what you and your sister have been up to young man. When your father leaves on his trip tomorrow you and I are going to sit down and have a little talk." Now isn't that something to have to look forward to?  
 
  
 
@@ -492,7 +492,7 @@
 
  I introduced Jerry to Mona and then mom said, "You can take off. It will probably take Jerry and I a little time to get aquatinted. I'll call you on your cell when I'm ready to be picked up." 
 
- Not having anything better to do I drove back to the motel and looked in on Roxy and the seven guys she was entertaining. I don't know why but I never get tired of watching of Roxy being gangbanged. It might have something to do with the fact that she enjoys it so much. She enjoys it so much that she keeps on doing it even though her husband is back from his one-year overseas assignment. I keep telling her that she needs to slow down some or she's going to get caught, but she says she'll worry about that when the time comes. When I got to the motel she was in the middle of a four-way - a guy in each hole - and watching her gave me an immediate hard on. I really wanted to be a part of a three-way or a four-way with her some day, but I didn't expect that it would ever happen. The guys I pimped her to knew she was my sister and they thought that it was real kinky, but Roxy and I had decided not to let them know about our incestuous relationship so I was pretty much limited to a piece when I dropped her off at the motel and then sloppy seconds when everyone was gone and before I took her home. Report_Story #2 
+ Not having anything better to do I drove back to the motel and looked in on Roxy and the seven guys she was entertaining. I don't know why but I never get tired of watching of Roxy being gangbanged. It might have something to do with the fact that she enjoys it so much. She enjoys it so much that she keeps on doing it even though her husband is back from his one-year overseas assignment. I keep telling her that she needs to slow down some or she's going to get caught, but she says she'll worry about that when the time comes. When I got to the motel she was in the middle of a four-way - a guy in each hole - and watching her gave me an immediate hard on. I really wanted to be a part of a three-way or a four-way with her some day, but I didn't expect that it would ever happen. The guys I pimped her to knew she was my sister and they thought that it was real kinky, but Roxy and I had decided not to let them know about our incestuous relationship so I was pretty much limited to a piece when I dropped her off at the motel and then sloppy seconds when everyone was gone and before I took her home.  
 
  
 
@@ -574,7 +574,7 @@
 
  "Sure, why not? She's been an absolute slut since the ninth grade. Maybe we can talk her into selling what she has been giving away for free all these years." 
 
- Aunt Cathy? Aunt Cathy with the 36DD tits? Now there was something to think about. Report_Story #1 
+ Aunt Cathy? Aunt Cathy with the 36DD tits? Now there was something to think about.  
 
  
 
@@ -748,7 +748,7 @@
 
  "Don't push it Tiger, or we will both end up with nothing." 
 
- Aunt Cathy was a hit with the boys. They were a little disappointed that Roxie didn't make it because most of them got a little extra kick out of the fact that they were paying me to be able to fuck my sister. They didn't know Cathy was my aunt and she had insisted that they never know that. Since they didn't know of my relationship I was able to stick around and watch as the seven young studs tried their best to wear out the forty-two year old woman. From seven until one-thirty it was non-stop action as Aunt Cathy fucked and sucked them dry. Mike was the last to leave and he wanted to know if she would be coming back. Report_Story #2 
+ Aunt Cathy was a hit with the boys. They were a little disappointed that Roxie didn't make it because most of them got a little extra kick out of the fact that they were paying me to be able to fuck my sister. They didn't know Cathy was my aunt and she had insisted that they never know that. Since they didn't know of my relationship I was able to stick around and watch as the seven young studs tried their best to wear out the forty-two year old woman. From seven until one-thirty it was non-stop action as Aunt Cathy fucked and sucked them dry. Mike was the last to leave and he wanted to know if she would be coming back.  
 
  
 
@@ -862,7 +862,7 @@
 
  "You really want to do it?" 
 
- "Sure, why not?" Report_Story #1 
+ "Sure, why not?"  
 
  
 

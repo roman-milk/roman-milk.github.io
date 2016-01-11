@@ -166,7 +166,7 @@
 
  "More!" I grunted as I was beginning to lose control over the situation. 
 
- Another big ribbon of cum splattered against my nose and creamed my left eye shut. Then another one, and another one. Sperm was literally dripping down my face. Report_Story #2 
+ Another big ribbon of cum splattered against my nose and creamed my left eye shut. Then another one, and another one. Sperm was literally dripping down my face.  
 
  
 
@@ -246,7 +246,7 @@
 
  Luckily, traffic still hadn't moved an inch and so I had plenty of time to ruin my hairdo and soak every strain of hair in god-knows whose sperm. After another couple of minutes, I was starting to scoop off more sperm from my head than I was smearing onto it and so I stopped, realizing that I had covered my entire slutty body in this filthy sludge. Without any more reason to lower my right hand towards the carpet to get more sperm, I switched hands in between my legs and shoved two fingers of my right hand into my quivering cunt. As my right hand was much more skilled at giving me pleasure, I was on the verge of yet another climax in no time at all. 
 
- Realizing that the mere sight of myself in my current state would greatly magnify my orgasm, I waited until the very last second and then simply looked at myself in the rear view mirror. I looked grimy and sleazy, as if an entire jar of hair gel had been poured onto my head and had been left to run down my face. I knew off course that it wasn't hair gel, which made me climax even harder. Without taking my eyes off myself, I convulsed violently, bucking and jumping in my seat, grunting and moaning. When it was all over, I laid back in my seat - my fingers still in my pussy - and looked down at my clothes, mildly disgusted with myself. Report_Story #3 
+ Realizing that the mere sight of myself in my current state would greatly magnify my orgasm, I waited until the very last second and then simply looked at myself in the rear view mirror. I looked grimy and sleazy, as if an entire jar of hair gel had been poured onto my head and had been left to run down my face. I knew off course that it wasn't hair gel, which made me climax even harder. Without taking my eyes off myself, I convulsed violently, bucking and jumping in my seat, grunting and moaning. When it was all over, I laid back in my seat - my fingers still in my pussy - and looked down at my clothes, mildly disgusted with myself.  
 
  
 

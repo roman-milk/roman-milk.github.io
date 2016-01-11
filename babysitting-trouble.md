@@ -216,7 +216,7 @@
 
   "If you don't tell anyone I'll let you. I'll teach you to do it properly for when you have a girlfriend." She said. The words tumbled from her wine wet lips before they could be censored.  
 
-  He looked up at her with such a look of hope and pleasure she found it hard to refuse. He closed his eyes and puckered up so tight lipped it was a parody of a kiss. She smiled to herself, tempted to shock him. She leaned forward and opened her mouth probing him with her tongue. Report_Story #2  
+  He looked up at her with such a look of hope and pleasure she found it hard to refuse. He closed his eyes and puckered up so tight lipped it was a parody of a kiss. She smiled to herself, tempted to shock him. She leaned forward and opened her mouth probing him with her tongue.   
 
  
 
@@ -432,7 +432,7 @@
 
   She would never be the same again. The humiliation of having two young lads fuck her brains out was too much, she collapsed between them inert. Their cum seeped from her open pussy still on display where she crouched unable to move.  
 
-  The shame and degradation of those moments swamped her being though sometime she would have to face it and them. What would happen next couldn't be faced just yet. Now they had used her was it all over or did they have plans to abuse her again? Report_Story #1 
+  The shame and degradation of those moments swamped her being though sometime she would have to face it and them. What would happen next couldn't be faced just yet. Now they had used her was it all over or did they have plans to abuse her again?  
 
  
 
@@ -646,7 +646,7 @@
 
  "If you don't tell anyone I'll let you. I'll teach you to do it properly for when you have a girlfriend." She said. The words tumbled from her wine wet lips before they could be censored. 
 
- He looked up at her with such a look of hope and pleasure she found it hard to refuse. He closed his eyes and puckered up so tight lipped it was a parody of a kiss. She smiled to herself, tempted to shock him. She leaned forward and opened her mouth probing him with her tongue. Report_Story #2 
+ He looked up at her with such a look of hope and pleasure she found it hard to refuse. He closed his eyes and puckered up so tight lipped it was a parody of a kiss. She smiled to herself, tempted to shock him. She leaned forward and opened her mouth probing him with her tongue.  
 
  
 
@@ -860,7 +860,7 @@
 
  She would never be the same again. The humiliation of having two young lads fuck her brains out was too much, she collapsed between them inert. Their cum seeped from her open pussy still on display where she crouched unable to move. 
 
- The shame and degradation of those moments swamped her being though sometime she would have to face it and them. What would happen next couldn't be faced just yet. Now they had used her was it all over or did they have plans to abuse her again? Report_Story #1  
+ The shame and degradation of those moments swamped her being though sometime she would have to face it and them. What would happen next couldn't be faced just yet. Now they had used her was it all over or did they have plans to abuse her again?   
 
  
 
@@ -1046,7 +1046,7 @@
 
   He rolled her off his knees onto the carpet at his feet. She struggled on to hands and knees shaking her head. Needing to clear the fuzziness her thoughts had been reduced to. He demanded attention and it was imperative to attend him if she were to avoid another crude punishment.  
 
-  "Thank you, sir." She whispered. Report_Story #2  
+  "Thank you, sir." She whispered.   
 
  
 
@@ -1234,7 +1234,7 @@
 
   "Help me Harry please don't let them do those nasty things to me again. No! I can't phone the police. My father will find out as he's a state judge. The newspapers will dig out the story because of his position and I'll become a laughing-stock. It might even be worse than that. The parents might make the police charge me." The words tumble from her lips unbidden.  
 
-  They waited listening to them searching for her like an innocent game of hide and seek only more lethal for the two of them. Harry couldn't help becoming excited. He had both arms wrapped around his babysitter feeling the warmth of her body through the thin gown. He could wait forever like this. Report_Story #3  
+  They waited listening to them searching for her like an innocent game of hide and seek only more lethal for the two of them. Harry couldn't help becoming excited. He had both arms wrapped around his babysitter feeling the warmth of her body through the thin gown. He could wait forever like this.   
 
  
 
@@ -1340,7 +1340,7 @@
 
   "She's in the, err, little girls room. He's in the Jacuzzi Mrs. Turner. Yes, I'll tell them. OK. No problem." Brian said. He put the phone down and smiled at his friends. "That was the parents. They won't be home until late. Let's phone Pete and Mickey and the others, get them round to join in the fun." Brian said.  
 
-  Sara groaned and nearly passed out. In her mind she could see all those little cocks pounding at her pussy and ass, having to lick and suck them clean afterwards. She imagined a circular line of them ready to take over from the ones pounding her body while others were recovering, intent on rejoining the line. The nightmare would never end. Report_Story #1 
+  Sara groaned and nearly passed out. In her mind she could see all those little cocks pounding at her pussy and ass, having to lick and suck them clean afterwards. She imagined a circular line of them ready to take over from the ones pounding her body while others were recovering, intent on rejoining the line. The nightmare would never end.  
 
  
 
@@ -1522,7 +1522,7 @@
 
  He rolled her off his knees onto the carpet at his feet. She struggled on to hands and knees shaking her head. Needing to clear the fuzziness her thoughts had been reduced to. He demanded attention and it was imperative to attend him if she were to avoid another crude punishment. 
 
- "Thank you, sir." She whispered. Report_Story #2 
+ "Thank you, sir." She whispered.  
 
  
 
@@ -1708,7 +1708,7 @@
 
  "Help me Harry please don't let them do those nasty things to me again. No! I can't phone the police. My father will find out as he's a state judge. The newspapers will dig out the story because of his position and I'll become a laughing-stock. It might even be worse than that. The parents might make the police charge me." The words tumble from her lips unbidden. 
 
- They waited listening to them searching for her like an innocent game of hide and seek only more lethal for the two of them. Harry couldn't help becoming excited. He had both arms wrapped around his babysitter feeling the warmth of her body through the thin gown. He could wait forever like this. Report_Story #3 
+ They waited listening to them searching for her like an innocent game of hide and seek only more lethal for the two of them. Harry couldn't help becoming excited. He had both arms wrapped around his babysitter feeling the warmth of her body through the thin gown. He could wait forever like this.  
 
  
 
@@ -1812,7 +1812,7 @@
 
  "She's in the, err, little girls room. He's in the Jacuzzi Mrs. Turner. Yes, I'll tell them. OK. No problem." Brian said. He put the phone down and smiled at his friends. "That was the parents. They won't be home until late. Let's phone Pete and Mickey and the others, get them round to join in the fun." Brian said. 
 
- Sara groaned and nearly passed out. In her mind she could see all those little cocks pounding at her pussy and ass, having to lick and suck them clean afterwards. She imagined a circular line of them ready to take over from the ones pounding her body while others were recovering, intent on rejoining the line. The nightmare would never end. Report_Story #1  
+ Sara groaned and nearly passed out. In her mind she could see all those little cocks pounding at her pussy and ass, having to lick and suck them clean afterwards. She imagined a circular line of them ready to take over from the ones pounding her body while others were recovering, intent on rejoining the line. The nightmare would never end.   
 
  
 
@@ -2016,7 +2016,7 @@
 
   "Just now I wanted to take you whether you wanted me or not. Sorry." He said, looking sad at the thought of such bad behaviour.  
 
-  "It's all right, really. You love when I come over to babysit; you get to see my sexy body beneath some teasing clothing. I'm sorry Harry, it's my entire fault." She said taking is hand in hers. Report_Story #2  
+  "It's all right, really. You love when I come over to babysit; you get to see my sexy body beneath some teasing clothing. I'm sorry Harry, it's my entire fault." She said taking is hand in hers.   
 
  
 
@@ -2170,7 +2170,7 @@
 
   "I'm on a protein diet; I only consume lovely creamy sperm." She replied with a sigh.  
 
-  Sara attempted to speak but faltered then eventually responded weakly. "We're fine I just dropped something." Her voice sounded almost calm yet she was still in the throws of an orgasm that seemed to end then rippled on through her body yet again. She couldn't stop shaking with her legs in spasm. Eventually a deep peaceful calm swept over her. Report_Story #1 
+  Sara attempted to speak but faltered then eventually responded weakly. "We're fine I just dropped something." Her voice sounded almost calm yet she was still in the throws of an orgasm that seemed to end then rippled on through her body yet again. She couldn't stop shaking with her legs in spasm. Eventually a deep peaceful calm swept over her.  
 
  
 
@@ -2372,7 +2372,7 @@
 
  "Just now I wanted to take you whether you wanted me or not. Sorry." He said, looking sad at the thought of such bad behaviour. 
 
- "It's all right, really. You love when I come over to babysit; you get to see my sexy body beneath some teasing clothing. I'm sorry Harry, it's my entire fault." She said taking is hand in hers. Report_Story #2 
+ "It's all right, really. You love when I come over to babysit; you get to see my sexy body beneath some teasing clothing. I'm sorry Harry, it's my entire fault." She said taking is hand in hers.  
 
  
 
@@ -2524,7 +2524,7 @@
 
  "I'm on a protein diet; I only consume lovely creamy sperm." She replied with a sigh. 
 
- Sara attempted to speak but faltered then eventually responded weakly. "We're fine I just dropped something." Her voice sounded almost calm yet she was still in the throws of an orgasm that seemed to end then rippled on through her body yet again. She couldn't stop shaking with her legs in spasm. Eventually a deep peaceful calm swept over her. Report_Story #1  
+ Sara attempted to speak but faltered then eventually responded weakly. "We're fine I just dropped something." Her voice sounded almost calm yet she was still in the throws of an orgasm that seemed to end then rippled on through her body yet again. She couldn't stop shaking with her legs in spasm. Eventually a deep peaceful calm swept over her.   
 
  
 
@@ -2714,7 +2714,7 @@
 
   Every time she moved a rubber finger massaged her clit sending a wave of sensations through her body. The vibrator seemed to slide a long way in adding to the torment. She backed away but with every step it sensitised her pussy. She watched him press a button on what looked like a TV remote and shivered in distress.  
 
-  "It's now on setting two." He told her. Satisfied with its effect he pressed another button and it began to wriggle, then he pressed three. All the time he watched her squirming as though in pain but it was far from that. Already wet, her pussy was oozing now. Report_Story #2  
+  "It's now on setting two." He told her. Satisfied with its effect he pressed another button and it began to wriggle, then he pressed three. All the time he watched her squirming as though in pain but it was far from that. Already wet, her pussy was oozing now.   
 
  
 
@@ -2958,7 +2958,7 @@
 
   Sara ignored him becoming engrossed in a fantasy fuelled by the belt and what had just happened. "Did you watch him fuck my mouth Harry?"  
 
-  "I did. I heard him too. He thinks you're a lonely horny house wife. I'm sorry I just watched Sara. I played with myself too, I couldn't help it." Harry said, while unlocking the belt. His fingers shook and the nervousness made his hands sweaty. Report_Story #3  
+  "I did. I heard him too. He thinks you're a lonely horny house wife. I'm sorry I just watched Sara. I played with myself too, I couldn't help it." Harry said, while unlocking the belt. His fingers shook and the nervousness made his hands sweaty.   
 
  
 
@@ -3074,7 +3074,7 @@
 
   "You're my fuck-hole slut Sara. Oh boy, I'm fucking my babysitter in the arse! Your ass feels so good and tight." He blew exhausted words at her. "I wish I could tell everyone you let me do this to you. I have you as my very own cock hole, my plastic fuck doll. I can do anything with you now." He said with a triumphant holler.  
 
-  Sara felt his hot cum shoot deep inside her ass and lifted her head to croak a yell through dry lips. The orgasm was electric sending thrilling shock waves along her spine directly into her pleasure zones irradiating her whole body. Report_Story #1 
+  Sara felt his hot cum shoot deep inside her ass and lifted her head to croak a yell through dry lips. The orgasm was electric sending thrilling shock waves along her spine directly into her pleasure zones irradiating her whole body.  
 
  
 
@@ -3260,7 +3260,7 @@
 
  Every time she moved a rubber finger massaged her clit sending a wave of sensations through her body. The vibrator seemed to slide a long way in adding to the torment. She backed away but with every step it sensitised her pussy. She watched him press a button on what looked like a TV remote and shivered in distress. 
 
- "It's now on setting two." He told her. Satisfied with its effect he pressed another button and it began to wriggle, then he pressed three. All the time he watched her squirming as though in pain but it was far from that. Already wet, her pussy was oozing now. Report_Story #2 
+ "It's now on setting two." He told her. Satisfied with its effect he pressed another button and it began to wriggle, then he pressed three. All the time he watched her squirming as though in pain but it was far from that. Already wet, her pussy was oozing now.  
 
  
 
@@ -3502,7 +3502,7 @@
 
  Sara ignored him becoming engrossed in a fantasy fuelled by the belt and what had just happened. "Did you watch him fuck my mouth Harry?" 
 
- "I did. I heard him too. He thinks you're a lonely horny house wife. I'm sorry I just watched Sara. I played with myself too, I couldn't help it." Harry said, while unlocking the belt. His fingers shook and the nervousness made his hands sweaty. Report_Story #3 
+ "I did. I heard him too. He thinks you're a lonely horny house wife. I'm sorry I just watched Sara. I played with myself too, I couldn't help it." Harry said, while unlocking the belt. His fingers shook and the nervousness made his hands sweaty.  
 
  
 
@@ -3614,7 +3614,7 @@
 
  "You're my fuck-hole slut Sara. Oh boy, I'm fucking my babysitter in the arse! Your ass feels so good and tight." He blew exhausted words at her. "I wish I could tell everyone you let me do this to you. I have you as my very own cock hole, my plastic fuck doll. I can do anything with you now." He said with a triumphant holler. 
 
- Sara felt his hot cum shoot deep inside her ass and lifted her head to croak a yell through dry lips. The orgasm was electric sending thrilling shock waves along her spine directly into her pleasure zones irradiating her whole body. Report_Story #1  
+ Sara felt his hot cum shoot deep inside her ass and lifted her head to croak a yell through dry lips. The orgasm was electric sending thrilling shock waves along her spine directly into her pleasure zones irradiating her whole body.   
 
  
 
@@ -3816,7 +3816,7 @@
 
   He looped a cord around her wrists and lifted her arms up to hook them above her head. He clipped a collar around her neck leaving the leash to fall between the mounds of her breasts.  
 
-  "Brian please, no, you can't do this to me. You're nearly half my age doesn't that mean anything to you. You should show your elders respect. You can't go around tying people up. No Brian! There's no need for this. Come on let me go. Let's sit down and talk things through." Sara thought of stronger words to shout at him but kept her head and pleaded for sympathy instead. Report_Story #2  
+  "Brian please, no, you can't do this to me. You're nearly half my age doesn't that mean anything to you. You should show your elders respect. You can't go around tying people up. No Brian! There's no need for this. Come on let me go. Let's sit down and talk things through." Sara thought of stronger words to shout at him but kept her head and pleaded for sympathy instead.   
 
  
 
@@ -4018,7 +4018,7 @@
 
   She had given in to him so much in just one evening how subservient would she become over a week of such abuse? Sara shuddered at the thought of living a life of submissive obedience, unable to resist this young man his every whim. Given time she was certain to cave in to this abusive training to become a complete slave to his cock.  
 
-  It dawned on her that her father wouldn't be expecting a phone call. She had phoned telling him she wasn't returning to the family home after all. She had lied telling him she intended travelling to recover from the divorce. There was no one else close enough to bother if she disappeared. Report_Story #3  
+  It dawned on her that her father wouldn't be expecting a phone call. She had phoned telling him she wasn't returning to the family home after all. She had lied telling him she intended travelling to recover from the divorce. There was no one else close enough to bother if she disappeared.   
 
  
 
@@ -4196,7 +4196,7 @@
 
   Her thoughts shifted from that nightmare scene in the backyard to focus on how she felt. "Why am I so hot? The memory of being rescued from that tyrant, those neighbours about to peer over the fence, it was bringing the feelings of humiliation back. So damn horny, so sexed up, I'm a hot damsel with my hero like the fantasy I get off to. I can't fight it, I want to be fucked.'  
 
-  "You liked seeing me naked and tied, didn't you! You enjoyed rescuing me did it make you feel big and strong? Well you have your little damsel safely to yourself now. What are you going to do with her? Are you going to make her reward you?" She said in a great rush of words. Report_Story #4  
+  "You liked seeing me naked and tied, didn't you! You enjoyed rescuing me did it make you feel big and strong? Well you have your little damsel safely to yourself now. What are you going to do with her? Are you going to make her reward you?" She said in a great rush of words.   
 
  
 
@@ -4258,7 +4258,7 @@
 
   This young virile man had shot his sperm up her backside and she didn't want to let his cock go. She felt so ashamed yet satisfied at the same time. The contrary feelings didn't seem strange at all for she had become used to them.  
 
-  She lay with his head upon her breasts listening to his breathing slowing until she was sure he had fallen asleep. She gently turned his lips to a nipple and felt it sucked into his mouth. In his sleep he suckled upon her and she too fell asleep with a smile upon her face. Report_Story #1 
+  She lay with his head upon her breasts listening to his breathing slowing until she was sure he had fallen asleep. She gently turned his lips to a nipple and felt it sucked into his mouth. In his sleep he suckled upon her and she too fell asleep with a smile upon her face.  
 
  
 
@@ -4458,7 +4458,7 @@
 
  He looped a cord around her wrists and lifted her arms up to hook them above her head. He clipped a collar around her neck leaving the leash to fall between the mounds of her breasts. 
 
- "Brian please, no, you can't do this to me. You're nearly half my age doesn't that mean anything to you. You should show your elders respect. You can't go around tying people up. No Brian! There's no need for this. Come on let me go. Let's sit down and talk things through." Sara thought of stronger words to shout at him but kept her head and pleaded for sympathy instead. Report_Story #2 
+ "Brian please, no, you can't do this to me. You're nearly half my age doesn't that mean anything to you. You should show your elders respect. You can't go around tying people up. No Brian! There's no need for this. Come on let me go. Let's sit down and talk things through." Sara thought of stronger words to shout at him but kept her head and pleaded for sympathy instead.  
 
  
 
@@ -4658,7 +4658,7 @@
 
  She had given in to him so much in just one evening how subservient would she become over a week of such abuse? Sara shuddered at the thought of living a life of submissive obedience, unable to resist this young man his every whim. Given time she was certain to cave in to this abusive training to become a complete slave to his cock. 
 
- It dawned on her that her father wouldn't be expecting a phone call. She had phoned telling him she wasn't returning to the family home after all. She had lied telling him she intended travelling to recover from the divorce. There was no one else close enough to bother if she disappeared. Report_Story #3 
+ It dawned on her that her father wouldn't be expecting a phone call. She had phoned telling him she wasn't returning to the family home after all. She had lied telling him she intended travelling to recover from the divorce. There was no one else close enough to bother if she disappeared.  
 
  
 
@@ -4832,7 +4832,7 @@
 
  Her thoughts shifted from that nightmare scene in the backyard to focus on how she felt. "Why am I so hot? The memory of being rescued from that tyrant, those neighbours about to peer over the fence, it was bringing the feelings of humiliation back. So damn horny, so sexed up, I'm a hot damsel with my hero like the fantasy I get off to. I can't fight it, I want to be fucked.' 
 
- "You liked seeing me naked and tied, didn't you! You enjoyed rescuing me did it make you feel big and strong? Well you have your little damsel safely to yourself now. What are you going to do with her? Are you going to make her reward you?" She said in a great rush of words. Report_Story #4 
+ "You liked seeing me naked and tied, didn't you! You enjoyed rescuing me did it make you feel big and strong? Well you have your little damsel safely to yourself now. What are you going to do with her? Are you going to make her reward you?" She said in a great rush of words.  
 
  
 
@@ -4892,7 +4892,7 @@
 
  This young virile man had shot his sperm up her backside and she didn't want to let his cock go. She felt so ashamed yet satisfied at the same time. The contrary feelings didn't seem strange at all for she had become used to them. 
 
- She lay with his head upon her breasts listening to his breathing slowing until she was sure he had fallen asleep. She gently turned his lips to a nipple and felt it sucked into his mouth. In his sleep he suckled upon her and she too fell asleep with a smile upon her face. Report_Story #1  
+ She lay with his head upon her breasts listening to his breathing slowing until she was sure he had fallen asleep. She gently turned his lips to a nipple and felt it sucked into his mouth. In his sleep he suckled upon her and she too fell asleep with a smile upon her face.   
 
  
 
@@ -5058,7 +5058,7 @@
 
   "You are little shit Brian and your mother needs help. What you did to me the other night was disgusting and as far as those ridiculous plans are concerned you need help too." She took a breath trying to control the mounting anger. She couldn't say out loud what he had planned for her as it still left a feeling of dread.  
 
-  He abused her roughly until she had withdrawn into a submissive state and intended to keep her vulnerable to training or even brainwashing. He had the audacity to think he could train and keep a mature woman as his personal sex pet. It was terrible to think this young man had nearly succeeded in keeping her as his plaything to share with friends. It might have been just a show to impress them but the fearful thing was it might have worked if Harry hadn't rescued her. Report_Story #2  
+  He abused her roughly until she had withdrawn into a submissive state and intended to keep her vulnerable to training or even brainwashing. He had the audacity to think he could train and keep a mature woman as his personal sex pet. It was terrible to think this young man had nearly succeeded in keeping her as his plaything to share with friends. It might have been just a show to impress them but the fearful thing was it might have worked if Harry hadn't rescued her.   
 
  
 
@@ -5294,7 +5294,7 @@
 
   It was so shameful knowing her asshole had been stretched so it no longer pained to have a cock slide up her ass.  
 
-  "Oh yes! Harder." She moaned with the words slipped from her mouth without thought. Thankfully the damning words were muffled by the strangers cock filling it. Report_Story #3  
+  "Oh yes! Harder." She moaned with the words slipped from her mouth without thought. Thankfully the damning words were muffled by the strangers cock filling it.   
 
  
 
@@ -5514,7 +5514,7 @@
 
   "Sara's tight little hole is all yours sir. Please fill my pussy. Give it to me, I'm so wet for my hero, I'm so hot for you Harry, I need your cock in my pussy. I need to feel it filling me to be complete. Make me happy, please." She said, while still looking down through long hair at her feet squirming in the carpet.  
 
-  "Just give me your cock Harry; wherever you want it for my body is yours." She moaned. Report_Story #4  
+  "Just give me your cock Harry; wherever you want it for my body is yours." She moaned.   
 
  
 
@@ -5588,7 +5588,7 @@
 
   She hitched up the expensive little dress and knelt before him to declare her position. "Your slut Sara has returned, I couldn't bear to be away from my wonderful hero any longer." She said, looking up at him with a bright smile upon her face.  
 
-  "Shall we play a game from your list?" She asked, with a gleam in her eye. Knowing it would be humiliating and exciting she became hot and full of lust eager to submit to her young master knowing it would lead to such a deep orgasm she would become lost in ecstasy. Report_Story #1 
+  "Shall we play a game from your list?" She asked, with a gleam in her eye. Knowing it would be humiliating and exciting she became hot and full of lust eager to submit to her young master knowing it would lead to such a deep orgasm she would become lost in ecstasy.  
 
  
 
@@ -5752,7 +5752,7 @@
 
  "You are little shit Brian and your mother needs help. What you did to me the other night was disgusting and as far as those ridiculous plans are concerned you need help too." She took a breath trying to control the mounting anger. She couldn't say out loud what he had planned for her as it still left a feeling of dread. 
 
- He abused her roughly until she had withdrawn into a submissive state and intended to keep her vulnerable to training or even brainwashing. He had the audacity to think he could train and keep a mature woman as his personal sex pet. It was terrible to think this young man had nearly succeeded in keeping her as his plaything to share with friends. It might have been just a show to impress them but the fearful thing was it might have worked if Harry hadn't rescued her. Report_Story #2 
+ He abused her roughly until she had withdrawn into a submissive state and intended to keep her vulnerable to training or even brainwashing. He had the audacity to think he could train and keep a mature woman as his personal sex pet. It was terrible to think this young man had nearly succeeded in keeping her as his plaything to share with friends. It might have been just a show to impress them but the fearful thing was it might have worked if Harry hadn't rescued her.  
 
  
 
@@ -5986,7 +5986,7 @@
 
  It was so shameful knowing her asshole had been stretched so it no longer pained to have a cock slide up her ass. 
 
- "Oh yes! Harder." She moaned with the words slipped from her mouth without thought. Thankfully the damning words were muffled by the strangers cock filling it. Report_Story #3 
+ "Oh yes! Harder." She moaned with the words slipped from her mouth without thought. Thankfully the damning words were muffled by the strangers cock filling it.  
 
  
 
@@ -6202,7 +6202,7 @@
 
  "Sara's tight little hole is all yours sir. Please fill my pussy. Give it to me, I'm so wet for my hero, I'm so hot for you Harry, I need your cock in my pussy. I need to feel it filling me to be complete. Make me happy, please." She said, while still looking down through long hair at her feet squirming in the carpet. 
 
- "Just give me your cock Harry; wherever you want it for my body is yours." She moaned. Report_Story #4 
+ "Just give me your cock Harry; wherever you want it for my body is yours." She moaned.  
 
  
 
@@ -6274,7 +6274,7 @@
 
  She hitched up the expensive little dress and knelt before him to declare her position. "Your slut Sara has returned, I couldn't bear to be away from my wonderful hero any longer." She said, looking up at him with a bright smile upon her face. 
 
- "Shall we play a game from your list?" She asked, with a gleam in her eye. Knowing it would be humiliating and exciting she became hot and full of lust eager to submit to her young master knowing it would lead to such a deep orgasm she would become lost in ecstasy. Report_Story #1  
+ "Shall we play a game from your list?" She asked, with a gleam in her eye. Knowing it would be humiliating and exciting she became hot and full of lust eager to submit to her young master knowing it would lead to such a deep orgasm she would become lost in ecstasy.   
 
  
 
@@ -6494,7 +6494,7 @@
 
   'You've lived a privileged and pampered life. Obviously no discipline, under an indulgent father. I'm going to teach you restraint, and self-control. Change the word woman to, MY,' Brian told her.  
 
-  So the bastard had it in for her because he thought she was pampered, and he had been deprived. It was true, but that didn't give him the right to punish her for his father's sins. Teach her restraint? Was that a joke? The sheet and ropes were still tightly binding her. The cramp was held at bay by wiggling her toes and fingers, about as much as she could manage. Report_Story #2  
+  So the bastard had it in for her because he thought she was pampered, and he had been deprived. It was true, but that didn't give him the right to punish her for his father's sins. Teach her restraint? Was that a joke? The sheet and ropes were still tightly binding her. The cramp was held at bay by wiggling her toes and fingers, about as much as she could manage.   
 
  
 
@@ -6750,7 +6750,7 @@
 
   'Your little girl promises to be good, by obeying and honouring her master, honest, sir.'  
 
-  She must call him, sir, and defer to him as master of the house. After all, he was looking after her, and teaching her, so naturally she must submit to him, and accept whatever he told her. Report_Story #3  
+  She must call him, sir, and defer to him as master of the house. After all, he was looking after her, and teaching her, so naturally she must submit to him, and accept whatever he told her.   
 
  
 
@@ -7010,7 +7010,7 @@
 
   She began to speed up, fucking herself on him, faster and faster. Soon she began to shudder to a halt. With stomach muscles in spasm, she felt her limbs involuntarily flex, and an electric spark light her mind.  
 
-  It wasn't the best orgasm she ever had, but it was the most sorely needed one. Having been humiliated at length over the past two days, she had been on a hair trigger. That stranger had pulled, and nearly had her firing. Report_Story #4  
+  It wasn't the best orgasm she ever had, but it was the most sorely needed one. Having been humiliated at length over the past two days, she had been on a hair trigger. That stranger had pulled, and nearly had her firing.   
 
  
 
@@ -7032,7 +7032,7 @@
 
   'Yes! Please keep me safe, master. Don't abandon me, keep me and love me,' Sara said with heartfelt need.  
 
-  Brian was right. She couldn't help behaving like a dirty slut, and deserved to be punished. She needed looking after, and at last it seemed he was going to. The humiliation of obedience in that house was going to keep her on fire, so she needed his sperm to dampen it down. While there, obeying his family like a domestic servant, and a sex slave, he could never put out the fire driven by humiliation, but at least he could quench her thirst. Report_Story #1 
+  Brian was right. She couldn't help behaving like a dirty slut, and deserved to be punished. She needed looking after, and at last it seemed he was going to. The humiliation of obedience in that house was going to keep her on fire, so she needed his sperm to dampen it down. While there, obeying his family like a domestic servant, and a sex slave, he could never put out the fire driven by humiliation, but at least he could quench her thirst.  
 
  
 
@@ -7250,7 +7250,7 @@
 
  'You've lived a privileged and pampered life. Obviously no discipline, under an indulgent father. I'm going to teach you restraint, and self-control. Change the word woman to, MY,' Brian told her. 
 
- So the bastard had it in for her because he thought she was pampered, and he had been deprived. It was true, but that didn't give him the right to punish her for his father's sins. Teach her restraint? Was that a joke? The sheet and ropes were still tightly binding her. The cramp was held at bay by wiggling her toes and fingers, about as much as she could manage. Report_Story #2 
+ So the bastard had it in for her because he thought she was pampered, and he had been deprived. It was true, but that didn't give him the right to punish her for his father's sins. Teach her restraint? Was that a joke? The sheet and ropes were still tightly binding her. The cramp was held at bay by wiggling her toes and fingers, about as much as she could manage.  
 
  
 
@@ -7500,7 +7500,7 @@
 
  'Your little girl promises to be good, by obeying and honouring her master, honest, sir.' 
 
- She must call him, sir, and defer to him as master of the house. After all, he was looking after her, and teaching her, so naturally she must submit to him, and accept whatever he told her. Report_Story #3 
+ She must call him, sir, and defer to him as master of the house. After all, he was looking after her, and teaching her, so naturally she must submit to him, and accept whatever he told her.  
 
  
 
@@ -7758,7 +7758,7 @@
 
  She began to speed up, fucking herself on him, faster and faster. Soon she began to shudder to a halt. With stomach muscles in spasm, she felt her limbs involuntarily flex, and an electric spark light her mind. 
 
- It wasn't the best orgasm she ever had, but it was the most sorely needed one. Having been humiliated at length over the past two days, she had been on a hair trigger. That stranger had pulled, and nearly had her firing. Report_Story #4 
+ It wasn't the best orgasm she ever had, but it was the most sorely needed one. Having been humiliated at length over the past two days, she had been on a hair trigger. That stranger had pulled, and nearly had her firing.  
 
  
 

@@ -102,7 +102,7 @@
 
  "Your routine will be the same each day, Young Lady. I will drive you to and from school. I will pick out your school clothes. When you come home you may get a drink and go potty, then you will report to your room to study or write your papers. You will wear this black collar at all times when at home." 
 
- I couldn't believe the way he was talking to me. Did he really say go potty as if I were in elementary school and this collar thing, what was that all about? I felt him take the collar and place it around my neck, and then he connected a leash to the collar. I felt him leading me back up the stairs. "You will walk one pace behind me and to my left subbie or I will discipline you," He stated. "This all part of your training to get good grades," I heard him say to me. Report_Story #2 
+ I couldn't believe the way he was talking to me. Did he really say go potty as if I were in elementary school and this collar thing, what was that all about? I felt him take the collar and place it around my neck, and then he connected a leash to the collar. I felt him leading me back up the stairs. "You will walk one pace behind me and to my left subbie or I will discipline you," He stated. "This all part of your training to get good grades," I heard him say to me.  
 
  
 

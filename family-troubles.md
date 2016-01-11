@@ -202,7 +202,7 @@
 
  The old heap was his pride and joy and would soon be on the road, if he could find the time. He gritted his teeth on hearing a car pull up outside. Not only was it her but they would have to block him with so little space to park. No easy escape now. Her words rang through his mind like death tolls. 
 
- 'Either behave yourself with my mother or stay away.' She had warned. No mention of her father. Did that mean Gina was the hard one in the family? If so he had certainly broken the ice there. Report_Story #1 
+ 'Either behave yourself with my mother or stay away.' She had warned. No mention of her father. Did that mean Gina was the hard one in the family? If so he had certainly broken the ice there.  
 
  
 
@@ -484,7 +484,7 @@
 
  Paul told Dianne the hospital phoned, to say her grandmother was worse. 
 
- "They wouldn't say how bad. The message came through on your mother's phone. She's somewhere in the history department catching up with an old friend. Yea, sure, I'll find her. You could go with your father, it sounded urgent," Paul suggested. Report_Story #2 
+ "They wouldn't say how bad. The message came through on your mother's phone. She's somewhere in the history department catching up with an old friend. Yea, sure, I'll find her. You could go with your father, it sounded urgent," Paul suggested.  
 
  
 
@@ -752,7 +752,7 @@
 
  "Get on with it," Reggie cajoled her. She watched her friend hesitantly move up and down his cock. She sighed and her head flopped forward. She had another orgasm, a deep one this time. 
 
- "I can't. I'm worn out," Jenney complained. Report_Story #3 
+ "I can't. I'm worn out," Jenney complained.  
 
  
 

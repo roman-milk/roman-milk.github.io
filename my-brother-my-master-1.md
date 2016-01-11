@@ -316,7 +316,7 @@
 
  Unable to deny the forbidden fruit any longer, I opened my mouth and took his mushroom top between my lips. The soft moan from his mouth made me smile around his cock as I shifted the power back to me. I was now in control and I revelled in that power. 
 
- I swirled my tongue around his cockhead, recalling his words that Mrs. Sheets was an amazing cocksucker and deciding to prove to him I was better. I realized as I began to slowly move up and down the first couple of inches of his cock that I was trying to prove to my brother I was a good cocksucker, but ignored the ridiculousness of it and focused on giving him an amazing blow job. Report_Story #2 
+ I swirled my tongue around his cockhead, recalling his words that Mrs. Sheets was an amazing cocksucker and deciding to prove to him I was better. I realized as I began to slowly move up and down the first couple of inches of his cock that I was trying to prove to my brother I was a good cocksucker, but ignored the ridiculousness of it and focused on giving him an amazing blow job.  
 
  
 
@@ -590,7 +590,7 @@
 
  Frustrated, I realized what was missing, Kevin's nasty words. I begged, as I began slamming my ass back onto my brother's big cock, "Tell me what I am Master." 
 
- I could sense his smug smile without looking as he assaulted me with names: "Ride my cock ass-slut; pound yourself like the hungry little slut you are; fuck yourself on your brother's cock like the incest slave you are; your cocksucking lips are mine, your big titties are mine, your cunt is mine and your tight ass is mine." The litany of names was the final pin that burst the bubble and my orgasm bubbled over the surface as my moans and whimpers began to rise as well. The eruption came when he finished his verbal assault with, "Now come sister slave, come for your Master, come now my cunt, my slut, my slave." Report_Story #3 
+ I could sense his smug smile without looking as he assaulted me with names: "Ride my cock ass-slut; pound yourself like the hungry little slut you are; fuck yourself on your brother's cock like the incest slave you are; your cocksucking lips are mine, your big titties are mine, your cunt is mine and your tight ass is mine." The litany of names was the final pin that burst the bubble and my orgasm bubbled over the surface as my moans and whimpers began to rise as well. The eruption came when he finished his verbal assault with, "Now come sister slave, come for your Master, come now my cunt, my slut, my slave."  
 
  
 

@@ -100,7 +100,7 @@
 
  It had been years since she had felt such lust. They seldom had sex anymore, as her husband seemed disinterested and too busy with his growing business. Suddenly her left breast was fondled and Josh's fingers instantly surround the hardened nipple. Josh sort of cupped both boobs in his big palms and used his strong fingers to caress and squeeze the erect nipples. She couldn't remember the last time her body yearned for something or when she felt such a burning desire. 
 
- Jane realized that it was imperative to move real soon or the young man would have her undressed. Knowing it might be the biggest disappointment of her life, Jane yanked her hands off of the bookshelf. She turned around quickly and at the same time straightened her clothing. "I'm so sorry. I should never have let this happen," she whispered, with a stern tone to her quivering voice. "Please, we must stop." Report_Story #2 
+ Jane realized that it was imperative to move real soon or the young man would have her undressed. Knowing it might be the biggest disappointment of her life, Jane yanked her hands off of the bookshelf. She turned around quickly and at the same time straightened her clothing. "I'm so sorry. I should never have let this happen," she whispered, with a stern tone to her quivering voice. "Please, we must stop."  
 
  
 
@@ -258,7 +258,7 @@
 
  The morning classes passed without anything eventful happening, but that soon changed at noon hour. Jane was standing at her desk getting ready for lunch and Josh appeared out of nowhere. "I missed you. I've waited all morning to see you." 
 
- Jane was too shocked to say anything. She froze and stood absolutely motionless, staring down at the papers on her desk. She didn't dare look at the young man of her dreams for fear of falling under his mysterious spell. "Uuuugh?" Report_Story #3 
+ Jane was too shocked to say anything. She froze and stood absolutely motionless, staring down at the papers on her desk. She didn't dare look at the young man of her dreams for fear of falling under his mysterious spell. "Uuuugh?"  
 
  
 
@@ -392,7 +392,7 @@
 
  "Fucking right, babe. Finger that pussy and show me a slut." 
 
- Jane tried to put Brad out of her mind, but that was the biggest mistake. Suddenly images of Josh popped into her conscious mind. His handsome face, the smile, the youthful physique and his honest sincerity pushed her over the top. It was the first time in her life that she had been unfaithful, but the justification was that it was with someone she cared deeply about. She felt the strong, agile black fingers on her intimate being and they caressed her in a manner, which was new to her. Her belly erupted and she coated the black fingers with loving cream, making the sinful affair somewhat moral. Report_Story #4 
+ Jane tried to put Brad out of her mind, but that was the biggest mistake. Suddenly images of Josh popped into her conscious mind. His handsome face, the smile, the youthful physique and his honest sincerity pushed her over the top. It was the first time in her life that she had been unfaithful, but the justification was that it was with someone she cared deeply about. She felt the strong, agile black fingers on her intimate being and they caressed her in a manner, which was new to her. Her belly erupted and she coated the black fingers with loving cream, making the sinful affair somewhat moral.  
 
  
 
@@ -582,7 +582,7 @@
 
  They neared her home and Jane was feeling a little better. "Thanks for driving me home. I don't think I am in any shape to drive." 
 
- "I know. It was my fault and I'll do anything... anything in the world to make the nightmare disappear." Report_Story #5 
+ "I know. It was my fault and I'll do anything... anything in the world to make the nightmare disappear."  
 
  
 
@@ -720,7 +720,7 @@
 
  Josh straightened and arched his back so he could look into her eyes. At that exact moment, Jane felt her labia being cut in two. She stopped breathing when her vagina spread and slowly surrounded the long thick, black penis. Jane vowed not to take another breath until Josh was fully embedded and she felt like a little girl again. A girl so happy and content that she didn't want to wait. At first her hips jerked randomly, as she desperately thrust up at the young man. 
 
- Josh felt the intense heat consume his moral fiber. He too pumped his hips in a very random fashion and there was no magical rhythm. Each person seemed to think speed was of the utmost essence for satisfying the other's desire, as their hips thrust madly at each other. They experienced wild sexual lust at 11 o'clock; they made mad, passionate love at 12 o'clock and experienced animal ecstasy at 1 o'clock. Report_Story #6 
+ Josh felt the intense heat consume his moral fiber. He too pumped his hips in a very random fashion and there was no magical rhythm. Each person seemed to think speed was of the utmost essence for satisfying the other's desire, as their hips thrust madly at each other. They experienced wild sexual lust at 11 o'clock; they made mad, passionate love at 12 o'clock and experienced animal ecstasy at 1 o'clock.  
 
  
 

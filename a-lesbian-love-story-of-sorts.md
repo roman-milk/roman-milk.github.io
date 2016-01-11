@@ -272,7 +272,7 @@
 
  Gwen looked at me confused. 
 
- "Well the Pretty in Pink reference is obvious, but remember in 16 Candles that Chinese exchange student is named Dong," I explained. I then continued, "I have to get this." I placed it in the basket which was already half full. Report_Story #2 
+ "Well the Pretty in Pink reference is obvious, but remember in 16 Candles that Chinese exchange student is named Dong," I explained. I then continued, "I have to get this." I placed it in the basket which was already half full.  
 
  
 
@@ -662,7 +662,7 @@
 
  "Well," I began, "One the one hand I love to dominate a woman, particularly someone like you or someone who thinks they are dominant; on the other hand, I sometimes like to just be dominated; yet, other times, I want a long, slow, love session." 
 
- "Well I would be tri-polar sex wise too then. I love to be dominated by my husband; I love to be made love to by my husband; it really just depends on my mood; and apparently, I love to be fucked by you." Report_Story #3 
+ "Well I would be tri-polar sex wise too then. I love to be dominated by my husband; I love to be made love to by my husband; it really just depends on my mood; and apparently, I love to be fucked by you."  
 
  
 
@@ -950,7 +950,7 @@
 
  "The two together would make a good threesome for me tonight," Daphne said rather casually, as if she did this every weekend, which she did. 
 
- Emma returned to the table at this moment and said slightly taken aback by seeing the governor, "Hi Mrs. Greene." Report_Story #4 
+ Emma returned to the table at this moment and said slightly taken aback by seeing the governor, "Hi Mrs. Greene."  
 
  
 
@@ -1270,7 +1270,7 @@
 
  We stopped to watch a woman in her 70s getting fisted by a girl who couldn't be more than 20. Gwen starred too. The grandma screamed as the hand disappeared inside her gaping hole as the younger girl called her grandma slut. We also saw the same pregnant woman fucking herself with the end of a beer bottle as she watched the fisting. I shook my head and grabbed Gwen's hand as we exited the club. I held her hand all the way to the car and helped her get in. The night clearly had overwhelmed Gwen and all her energy had been drained from her. We drove home in silence and I actually had to wake her up when we got her house. To both our surprise, her husband's car was in the driveway. 
 
- Gwen suddenly sobered up in a millisecond as she said, "Oh my God, I still have pussy all over my face." She looked in her purse frantically looking for something to wipe her face clean. She did the best she could, but then she realized what she was wearing. "How am I going to explain this outfit?' she fretted. Report_Story #5 
+ Gwen suddenly sobered up in a millisecond as she said, "Oh my God, I still have pussy all over my face." She looked in her purse frantically looking for something to wipe her face clean. She did the best she could, but then she realized what she was wearing. "How am I going to explain this outfit?' she fretted.  
 
  
 
@@ -1728,7 +1728,7 @@
 
  "I suppose so," she reflected, "So you do find me attractive?" 
 
- I smiled and said, "Gwen who do you think has sent you all those notes and cards the past two weeks?" Report_Story #6 
+ I smiled and said, "Gwen who do you think has sent you all those notes and cards the past two weeks?"  
 
  
 

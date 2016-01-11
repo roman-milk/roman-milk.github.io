@@ -190,7 +190,7 @@
 
  "I will," he said as he smiled and left the diner. 
 
- John and I had a few more drinks and we talked about all sorts of things. Once in a while, after making sure no one was looking, he would squeeze my boobs or tweak one of my nipples, just for fun. Report_Story #2 
+ John and I had a few more drinks and we talked about all sorts of things. Once in a while, after making sure no one was looking, he would squeeze my boobs or tweak one of my nipples, just for fun.  
 
  
 
@@ -288,7 +288,7 @@
 
  I kicked off my shoes, took off my bra and walked up the stairs, stark naked, heading straight for the bathroom. Under the shower, as the hot water was flowing down my slutty body, I couldn't help but grin widely as I realized how good it felt to be back in Heaven. As I began rinsing the cum out of my hair, I couldn't for the life of me remember why I had ever left in the first place. 
 
- I had quite some catching up to do... Report_Story #1 
+ I had quite some catching up to do...  
 
  
 
@@ -442,7 +442,7 @@
 
  "How is the groom-to-be?" I asked as we got up. 
 
- "A little nervous about the whole wedding thing, but he's really looking forward to leaving town on our honeymoon and exploring the big, outside world," she replied with a wink. We exited the mall and walked for about ten minutes before arriving at Jason's. It was actually his mother's house, as he still lived with her - his father had left town in search for a more high-profile career. Cindy led me to the back of the house and used the key, hidden under a nearby flower pot, to open the back door. Once inside, she took off her coat and threw it on the couch as she scouted the kitchen for signs of life. Report_Story #2 
+ "A little nervous about the whole wedding thing, but he's really looking forward to leaving town on our honeymoon and exploring the big, outside world," she replied with a wink. We exited the mall and walked for about ten minutes before arriving at Jason's. It was actually his mother's house, as he still lived with her - his father had left town in search for a more high-profile career. Cindy led me to the back of the house and used the key, hidden under a nearby flower pot, to open the back door. Once inside, she took off her coat and threw it on the couch as she scouted the kitchen for signs of life.  
 
  
 
@@ -626,7 +626,7 @@
 
  "Yeah, all over my stupid face!" I enticed him further. 
 
- It wasn't a lot, but still a dozen drops or so, enough to sully my entire face. A little surprised that his cock stayed hard after cumming, I gulped it down and sucked it clean for like half a minute. I was even more surprised when he suddenly grabbed my head with both hands and start fucking my mouth, still hard as a bone. After making me gag several times, he pulled back, clearly still very horny. I coughed, smiled up at him and said, "My my!" I got up and straddled him, sliding my moist cunt over his large pole and started bouncing up and down wildly. Report_Story #3 
+ It wasn't a lot, but still a dozen drops or so, enough to sully my entire face. A little surprised that his cock stayed hard after cumming, I gulped it down and sucked it clean for like half a minute. I was even more surprised when he suddenly grabbed my head with both hands and start fucking my mouth, still hard as a bone. After making me gag several times, he pulled back, clearly still very horny. I coughed, smiled up at him and said, "My my!" I got up and straddled him, sliding my moist cunt over his large pole and started bouncing up and down wildly.  
 
  
 
@@ -656,7 +656,7 @@
 
  I picked up my clothes and walked out of my sister's room, put my clothes back on in the hallway and headed back down to watch some television in the living room. About ten minutes later, Cindy walked in - her little garden adventure over - and headed upstairs to take a shower and put on some new clothes. Dad came down five minutes later and joined me in front of the TV. Roughly half an hour later, the four of us were all sitting at the dinner table, enjoying mom's cooking and talking and laughing as if we were a normal family. 
 
- Well, in Heaven we probably were... Report_Story #1 
+ Well, in Heaven we probably were...  
 
  
 
@@ -910,7 +910,7 @@
 
  "Sure," I replied, having built up quite the appetite. 
 
- Although all the blinds were closed, we could see the lights on inside, so we knocked and waited. Report_Story #2 
+ Although all the blinds were closed, we could see the lights on inside, so we knocked and waited.  
 
  
 
@@ -1050,7 +1050,7 @@
 
  Then, encouraged by a few gentle nudges, I turned towards them and sank to my knees. One of them immediately pushed the tip of his cock against my lips. It was big, rock hard and veiny, it was throbbing and oozing a little precum, just the way I liked it. While this first cock started sliding back and forth between my lips, a second cock - equally big and also adorned with fat veins - started pushing against my cheek, asking for some attention as well. I began alternating between dicks, jacking off the one I wasn't sucking. Meanwhile, our checkout line had rearranged itself to go around the four of us. After a few minutes, dad suddenly couldn't take it anymore and unzipped his pants, gave his fat cock a good wank and then stepped up towards me. Like a good little whore, I began rotating three dicks instead of two, using both hands to jerk off the two cocks that weren't fucking my mouth. 
 
- My hope of quickly sucking off all three cocks and putting an end to my public performance proved naïve, as I was suddenly pushed onto my back on the department store's cold floor and swiftly penetrated by one of the young men. He was definitely in a hurry, fucking me hard, fast and wild, hooking his arms under my legs and putting my feet on his shoulders, really slamming into me. Not two minutes later, he arched his back and unloaded his sperm deep inside of me, as quiet as a mouse. As soon as he got up, his friend took his place, ramming his dick into me and fucking me cold, hard and distant, using me as if I was nothing more than an old sock. He too emptied his balls quietly, deep inside my stupid cunt. As my two suitors rejoined the line, I started to get up as well, but was quickly pushed onto all fours by dad. Damn, I'd briefly forgotten about him. Report_Story #3 
+ My hope of quickly sucking off all three cocks and putting an end to my public performance proved naïve, as I was suddenly pushed onto my back on the department store's cold floor and swiftly penetrated by one of the young men. He was definitely in a hurry, fucking me hard, fast and wild, hooking his arms under my legs and putting my feet on his shoulders, really slamming into me. Not two minutes later, he arched his back and unloaded his sperm deep inside of me, as quiet as a mouse. As soon as he got up, his friend took his place, ramming his dick into me and fucking me cold, hard and distant, using me as if I was nothing more than an old sock. He too emptied his balls quietly, deep inside my stupid cunt. As my two suitors rejoined the line, I started to get up as well, but was quickly pushed onto all fours by dad. Damn, I'd briefly forgotten about him.  
 
  
 

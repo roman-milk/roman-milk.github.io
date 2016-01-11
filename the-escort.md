@@ -274,7 +274,7 @@
 
  "No, not in the least. You are paying for my time and that's all I have to know. However, if you walk away from me during the evening to go to the john or something it would help if I knew some things in case someone comes up to talk with me while you're gone. Things like where did we meet, how long have we been a couple, what do you do for a living and other stuff like that. Or should I just say, "Sorry, you need to ask Phil." 
 
- "I'm a stock broker. We met when you had a flat tire and I stopped to help you put on the spare and I have a large three bedroom apartment on Columbus Square. Anything else can be answered with a "Don't you think that is just a little personal?" After all, you are a married woman and you don't need things getting back to your hubby, right? One other thing. Is it going to make you uncomfortable if I touch you, fondle you a little and act as a man normally does with his lady love?" Report_Story #2 
+ "I'm a stock broker. We met when you had a flat tire and I stopped to help you put on the spare and I have a large three bedroom apartment on Columbus Square. Anything else can be answered with a "Don't you think that is just a little personal?" After all, you are a married woman and you don't need things getting back to your hubby, right? One other thing. Is it going to make you uncomfortable if I touch you, fondle you a little and act as a man normally does with his lady love?"  
 
  
 
@@ -352,7 +352,7 @@
 
  As the elevator moved down toward the lobby I looked to see what Phil had tucked into my purse. I found eight hundred dollars. Eight hundred for a fucking that I had desperately needed anyway. So now I was a play for pay girl just as I had been back during my college days and knowing me as well as I did it wouldn't be long before I was calling Jim and telling him to put me on the A list. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -464,7 +464,7 @@
 
  Jim laughed and said, "Somehow I think that you will be up to the task. You sweetie, are going to make us some money." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -646,7 +646,7 @@
 
  At nine Don helped me climb down from the turntable and by nine-ten we were tearing at each other's clothes. I staggered out the door of Don's room at six- fifteen and I swear my pussy was so full I sloshed when I walked. Two nights in a row Don had fucked me silly and I still had one more night to go. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -890,7 +890,7 @@
 
  "Come on honey, put that log in me. I'm one white lady who loves black meat. Use me honey; use me like the black cock loving whore that I am." 
 
- I saw the little smirk on his face and I knew what was going to happen. I had stroked his ego and got him excited and he was going get done in a hurry which is what I was hoping for. He mounted me and started fucking me and I hissed in his ear: Report_Story #2 
+ I saw the little smirk on his face and I knew what was going to happen. I had stroked his ego and got him excited and he was going get done in a hurry which is what I was hoping for. He mounted me and started fucking me and I hissed in his ear:  
 
  
 
@@ -916,7 +916,7 @@
 
  As I drove home I thought about everything that had happened to me that week and I was having a hard time deciding whether it was good or if it was bad. The only thing I knew for sure was that for the first time in a long time I was sexually satisfied. The question now facing me was should I confront John over his inattention to me and tell him we needed to get back on track as far as our sex life was concerned or let things ride and enjoy what I had gotten myself into. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1158,7 +1158,7 @@
 
  I gave him another suck. 
 
- "Your fifth grade English teacher? The girl next door, or maybe her mother?" Report_Story #2 
+ "Your fifth grade English teacher? The girl next door, or maybe her mother?"  
 
  
 
@@ -1186,7 +1186,7 @@
 
  "I don't care what society says or what the law books say; anything that two people want as badly as you two wanted this can't be bad. Have fun" and I left the room and went home. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1438,7 +1438,7 @@
 
  "Maybe" I said, but I doubted it. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 

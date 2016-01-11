@@ -230,7 +230,7 @@
 
  "In here," he said, dragging her into a guest bedroom. 
 
- "You have three choices," he said. This time he was more confident and spoke firmly. Adele had made her choice, and now it was Sylvia's turn. Report_Story #2 
+ "You have three choices," he said. This time he was more confident and spoke firmly. Adele had made her choice, and now it was Sylvia's turn.  
 
  
 
@@ -304,7 +304,7 @@
 
  James dropped them outside the apartment, without a word spoken during the short drive. James watched them hurry up the path to their apartment. "Don't be late for school tomorrow, girls," he whispered. 
 
- On entering the apartment the two young women remained quiet, preferring to be alone with their thoughts. One of them was in confusion, over sucking a young stranger's cock. The other, was confused over how she felt, after letting a young guy make love to her. Report_Story #1 
+ On entering the apartment the two young women remained quiet, preferring to be alone with their thoughts. One of them was in confusion, over sucking a young stranger's cock. The other, was confused over how she felt, after letting a young guy make love to her.  
 
  
 
@@ -490,7 +490,7 @@
 
  "If anyone asks, just say you met me at the mall, and gave me a lift back. No need to panic," he advised, with a warm smile. "Unless you want to tell everyone what we've been up to," he laughed. 
 
- Had he been reading her thoughts? She still felt elated. He had cum in her mouth right here at school. The idea of being a dirty slut, giving him a blow- job in a car park, gave her a naughty thrill. Report_Story #2 
+ Had he been reading her thoughts? She still felt elated. He had cum in her mouth right here at school. The idea of being a dirty slut, giving him a blow- job in a car park, gave her a naughty thrill.  
 
  
 

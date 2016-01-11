@@ -190,7 +190,7 @@
 
  "Not a chance. You'd squirt inside me, Mark; you know you will. And I couldn't begin to imagine what it would be like with your swimmers in there. I'd get pregnant, Mark." 
 
- To Mark the situation seemed suddenly hopeless. He cursed inwardly, thinking the chance had gone. For all her talk about being lovers, Mark thought that Carmen, when she regained her senses, would rescind the offer. After all, what had to be wine induced madness would pass; she'd be embarrassed, mortified at how close she'd come to fucking one of her son's friends. He let forth an explosive, "Shit," at the disappointment. Report_Story #2 
+ To Mark the situation seemed suddenly hopeless. He cursed inwardly, thinking the chance had gone. For all her talk about being lovers, Mark thought that Carmen, when she regained her senses, would rescind the offer. After all, what had to be wine induced madness would pass; she'd be embarrassed, mortified at how close she'd come to fucking one of her son's friends. He let forth an explosive, "Shit," at the disappointment.  
 
  
 

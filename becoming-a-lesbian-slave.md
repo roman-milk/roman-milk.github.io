@@ -272,7 +272,7 @@
 
  "Flight? Where?" I asked, my head spinning at both her pretentious tone as well as the feeling of power slipping through my hands. 
 
- "Hawaii," she said, "a weeklong trip. I even got you a first class flight." Report_Story #2 
+ "Hawaii," she said, "a weeklong trip. I even got you a first class flight."  
 
  
 
@@ -568,7 +568,7 @@
 
  Once she left, I lay there for a couple of minutes before Bao startled me by returning. She handed me my robe and suggested, "You may want to shower to get all the oil off of you." 
 
- I took the robe and agreed as she led me back to my room. The shower turned into a bath and I almost fell asleep when there was a knock on the door. I yelled, "Come in," as I got out of the bathtub. Report_Story #3 
+ I took the robe and agreed as she led me back to my room. The shower turned into a bath and I almost fell asleep when there was a knock on the door. I yelled, "Come in," as I got out of the bathtub.  
 
  
 
@@ -880,7 +880,7 @@
 
  Bao looked up and explained, "Ms. Amber instructed I must wake you up with an orgasm." 
 
- "What?" I said, equally flabbergasted by both the act and the reason. Report_Story #4 
+ "What?" I said, equally flabbergasted by both the act and the reason.  
 
  
 
@@ -1190,7 +1190,7 @@
 
  Nicole suggested, "I hate to be so forward, I understand this is your store and all, but the girls downstairs are swamped, could you go on the floor and help?" 
 
- "Sure," I replied, actually liking being on the floor with the customers. I started to leave, but finally remembered to ask where Camree and Tilley were, as they should have been working at this moment. "Where are Camree and Tilley?" Report_Story #5 
+ "Sure," I replied, actually liking being on the floor with the customers. I started to leave, but finally remembered to ask where Camree and Tilley were, as they should have been working at this moment. "Where are Camree and Tilley?"  
 
  
 
@@ -1536,7 +1536,7 @@
 
  "Don't interrupt me when I am talking, Cassie," she snapped. "Now as I was saying before I was so rudely interrupted, Cassie you hide behind your work, you spend so much time and energy in making it successful that you need your brain to be allowed to go into neutral when not at work. You NEED to be told what to do." 
 
- I waited to make sure she was done, which I suppose was a submissive act, before saying, "I disagree completely." Report_Story #6 
+ I waited to make sure she was done, which I suppose was a submissive act, before saying, "I disagree completely."  
 
  
 
@@ -1834,7 +1834,7 @@
 
  Again her implication was smug and yet my head flashed to all my strange wet dreams I had over the past week. 
 
- "We obviously need to get you some new underwear or have you go commando," Amber said, looking at my full brief panties. "Sluts like you should dress like sluts underneath their business attire." Report_Story #7 
+ "We obviously need to get you some new underwear or have you go commando," Amber said, looking at my full brief panties. "Sluts like you should dress like sluts underneath their business attire."  
 
  
 
@@ -2132,7 +2132,7 @@
 
  I wanted to resist, I wanted to stand up and slap her in the face, yet the thought of tasting her was already pulling me towards her. 
 
- Without a word, I crawled towards her and she rolled her chair back and allowed me to position myself under what used to be my desk, just like Sophia had done. Report_Story #8 
+ Without a word, I crawled towards her and she rolled her chair back and allowed me to position myself under what used to be my desk, just like Sophia had done.  
 
  
 

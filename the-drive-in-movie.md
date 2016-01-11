@@ -190,7 +190,7 @@
 
  Put it in? Jeff was already in me. And then I felt it. Mike's cock poked at my asshole and I screamed "NO!" and tried to get up, but Jeff was holding on tight. Pain lanced through me as my son fed his cock into my ass and then while I whined and cried the two of them worked at it until they had a rhythm going and the pain began to fade and was replaced by a pleasure stronger than any I had ever felt before. 
 
- The two boys banged into me and I had several orgasms, one right after another, so close that they almost seemed continuous. I was in the middle of an orgasm and was screaming out in pleasure when hands took hold of my head and a cock filled my mouth. I looked up and saw a man I'd never seen before smiling down at me. Report_Story #2 
+ The two boys banged into me and I had several orgasms, one right after another, so close that they almost seemed continuous. I was in the middle of an orgasm and was screaming out in pleasure when hands took hold of my head and a cock filled my mouth. I looked up and saw a man I'd never seen before smiling down at me.  
 
  
 

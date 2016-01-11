@@ -140,7 +140,7 @@
 
  'Yes, darling,' she sighed. 'Just let it all go. Let it go into me. I want to feel you coming inside me.' 
 
- And then we both climaxed, my jizm squirting into her accommodating body while her arms and legs came around me. When I was spent she held me against her, my cock still inside her body. Report_Story #2 
+ And then we both climaxed, my jizm squirting into her accommodating body while her arms and legs came around me. When I was spent she held me against her, my cock still inside her body.  
 
  
 

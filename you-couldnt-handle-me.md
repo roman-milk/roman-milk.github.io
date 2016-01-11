@@ -68,7 +68,7 @@
 
  I was about 14 or 15 when I willingly allowed Mom into my fantasies for the first time. And it felt fucking great. I imagined myself squeezing her boobs. I imagined myself driving my dick into her doggy style. I did all the nasty things I could think of to my mom in my fantasies. Part of me thought it was just a phase. That I would move on after awhile and have healthier fantasies about girls my own age. But it just didn't happen. I probably could move on if I wasn't around her all the time. Having to watch her hot ass and huge tits jiggling around the house, watching her look gorgeous in whatever she wore kept her right on the edge of my fantasies. As I filled out, grew taller, grew more muscular, and sprouted my nice-fat pussy pleaser, I still found myself, day after day, stroking myself to thoughts of her. My fantasies got nastier as my tastes evolved, and the loads that I blasted got bigger and bigger. I imagined myself tit-fucking my mom. I imagined my mom choking on my fat cock. I imagined myself driving my fat cock up her tight ass. It was nasty, but it felt so fucking good. I can't count how many loads I shot over her. I realized that it wasn't just a phase. It wasn't just a fantasy. If the opportunity presented itself, I would do it. I would fuck my mom. It didn't matter if it was incest. She was too hot for me to care. 
 
- I lusted for her more than anyone else I could think of. But despite that, I kept up a good social life. I was no shut-in. I had a bunch of friends, and many girlfriends. I was definitely sowing my wild oats with girls my own age, but my mind was always on the hottie that lived in my own house. I couldn't get her out of my head, no matter how much teenage pussy I got. She was the one I wanted. She was the one my body craved. I entered my senior year of high school and my crush on my own mom had shown no signs of slowing down. Report_Story #2 
+ I lusted for her more than anyone else I could think of. But despite that, I kept up a good social life. I was no shut-in. I had a bunch of friends, and many girlfriends. I was definitely sowing my wild oats with girls my own age, but my mind was always on the hottie that lived in my own house. I couldn't get her out of my head, no matter how much teenage pussy I got. She was the one I wanted. She was the one my body craved. I entered my senior year of high school and my crush on my own mom had shown no signs of slowing down.  
 
  
 
@@ -256,7 +256,7 @@
 
  "Why are you... teasing me like this?" I whispered. She giggled again. 
 
- "Honey, you confessed a horribly embarrassing secret. I won't tell your father, but I will give you a ton of shit about it." she laughed. Report_Story #3 
+ "Honey, you confessed a horribly embarrassing secret. I won't tell your father, but I will give you a ton of shit about it." she laughed.  
 
  
 
@@ -380,7 +380,7 @@
 
  I had heard the rumor that there was a standing bet for who would be the first student to stick it to Ms. Graham. To be the one to bang her, to crack her hard shell and expose the soft interior that just had to be there. Many guys imagined that soft side, theorizing that there had to be something beneath that harsh exterior. I was pretty sure this was a bet that would go unclaimed. With the way Ms. Graham dealt with stragglers in her class, I couldn't imagine what she would do if a student tried to flirt with her. The thought of how severely she would tear down any guy who dared approach her made me laugh. I just couldn't imagine Ms. Graham falling for any tricks some dumb teenage guy could pull on her. Ms. Graham wasn't some airhead teenager. She was a real woman. 
 
- She was all professional at school. Her dress-wear, pants, skirts and blouses all flattered her but not in an overwhelming way. She didn't dress like a slut or something, a slutty teacher desperate for teenage dick. She was totally a pro in every way. She didn't show off skin. She was made-up nicely but not over the top. She rarely let her hair down, preferring to wear it in a tight, severe pony-tail. Report_Story #4 
+ She was all professional at school. Her dress-wear, pants, skirts and blouses all flattered her but not in an overwhelming way. She didn't dress like a slut or something, a slutty teacher desperate for teenage dick. She was totally a pro in every way. She didn't show off skin. She was made-up nicely but not over the top. She rarely let her hair down, preferring to wear it in a tight, severe pony-tail.  
 
  
 
@@ -524,7 +524,7 @@
 
  "Oh, I fucking knew it, Tom." Mom said. I looked up as she rolled her eyes at me. "This is why I held off on giving you a shot at me. I knew you wouldn't know the first thing about how to handle a body like mine." Mom slid from under me and stepped off the bed. My vision was obscured as she stood in front of me. I blinked rapidly, trying to clear up my vision so I could get one good look at her body in full. My vision started to clear as I blinked, and finally, just as my vision was about to clear, my mom pulled her silk robe around her body, closing it just as my gaze cleared. I now looked at her, clothed in just this thin, silky purple robe, hanging barely lower than her ass, now hiding the body I craved. Her hard nipples poked against the silk material. She looked down at me, shaking her head disappointedly. 
 
- "I gave you one shot, hon, and you fucking blew it." she sneered at me. I had never felt so low in my life, my mother shaming me as not man enough to slake her thirst. "If you think I'm gonna give you another chance, keep dreaming." Report_Story #5 
+ "I gave you one shot, hon, and you fucking blew it." she sneered at me. I had never felt so low in my life, my mother shaming me as not man enough to slake her thirst. "If you think I'm gonna give you another chance, keep dreaming."  
 
  
 
@@ -694,7 +694,7 @@
 
  Needless to say, I was furious. The fact that all of my idiot buddies, my douchebag teammates, all the cheerleaders and a big chunk of the student body had seen my mom's fucking tits and I still hadn't. They had glimpsed at perfection. They didn't deserve it. I had lived with her all my life and I had never seen them. I was the one person who deserved to see them most! I liked all these people typically, but right now, I kinda hated them all. 
 
- But mostly, I was livid at Mom. How could she do this to me? This was over the line. Fun is fun, but now, she was truly torturing me. She had shown her body to everyone but me. My Dad, my friends, they all got to see her tits and I hadn't. She was evil. She had a dark side I never knew she had. She was willing to go a long way to drive me insane. She knew how badly I wanted her and she pulled this shit. The worst thing was I thought I had a chance today. But with that move she just pulled it was clear nothing had changed. She was still happy to torture me with her hot body. Report_Story #6 
+ But mostly, I was livid at Mom. How could she do this to me? This was over the line. Fun is fun, but now, she was truly torturing me. She had shown her body to everyone but me. My Dad, my friends, they all got to see her tits and I hadn't. She was evil. She had a dark side I never knew she had. She was willing to go a long way to drive me insane. She knew how badly I wanted her and she pulled this shit. The worst thing was I thought I had a chance today. But with that move she just pulled it was clear nothing had changed. She was still happy to torture me with her hot body.  
 
  
 
@@ -846,7 +846,7 @@
 
  "So," Dad began. "What's cooking?" 
 
- ************* Report_Story #1 
+ *************  
 
  
 
@@ -1034,7 +1034,7 @@
 
  "Ahhhhh!" I grunted, jacking the cum out of myself. I watched the streams of cum, one after another, landing on Carrie's slim stomach, some firing far enough to land on her breasts. I was painting her with cum. 
 
- "Jesus, Tom!" Carrie marveled, watching my tensed body, my muscles flexing as my balls expelled a pint of cum onto her naked body. I kept stroking myself savagely, and the cum kept coming. "Do you always cum this much?" Report_Story #2 
+ "Jesus, Tom!" Carrie marveled, watching my tensed body, my muscles flexing as my balls expelled a pint of cum onto her naked body. I kept stroking myself savagely, and the cum kept coming. "Do you always cum this much?"  
 
  
 
@@ -1270,7 +1270,7 @@
 
  "Well, tread lightly. She's in a bad mood." Carrie said. "I gotta go, but, are we still meeting up on Saturday... to, uh, study?" 
 
- "Yeah, definitely." I replied. "To study." I said with a smile. She blanched, looked at her feet, turned and walked out into the hallway. I turned to face the desk where Ms. Graham was sitting, talking to one of her students, this pompous, booksmart guy named Evan. Report_Story #3 
+ "Yeah, definitely." I replied. "To study." I said with a smile. She blanched, looked at her feet, turned and walked out into the hallway. I turned to face the desk where Ms. Graham was sitting, talking to one of her students, this pompous, booksmart guy named Evan.  
 
  
 
@@ -1492,7 +1492,7 @@
 
  "Oh, well, uh, thanks for that." I said, sipping my water. "So what's it like... seeing her body in the flesh?" 
 
- "It's... it's even better than you think it is." he said quietly. "And when she's in action..." A long pause fell between us. "She breaks you in every way." John said. "Not only does she demolish you in the bedroom, but she spoils you for other women. Once you are with her, you can't enjoy it in the same way as with others. You can't be with another woman without knowing she comes up short, that there is a woman out there that is superior in every way. I have a wife, and two kids, but the best moments of my life were the six months I dated Tanya. I would throw it all away for one more night with her. So you'd better be sure this is a battle you want to wage. You'd better think of the consequences of what would happen should you succeed. Not that there's any chance of that happening. Only one person should ever be with her. Her match. Her equal. Only the man that can keep up with her. He's the only one who wouldn't be destroyed by her. Are you that man? I think not." Report_Story #4 
+ "It's... it's even better than you think it is." he said quietly. "And when she's in action..." A long pause fell between us. "She breaks you in every way." John said. "Not only does she demolish you in the bedroom, but she spoils you for other women. Once you are with her, you can't enjoy it in the same way as with others. You can't be with another woman without knowing she comes up short, that there is a woman out there that is superior in every way. I have a wife, and two kids, but the best moments of my life were the six months I dated Tanya. I would throw it all away for one more night with her. So you'd better be sure this is a battle you want to wage. You'd better think of the consequences of what would happen should you succeed. Not that there's any chance of that happening. Only one person should ever be with her. Her match. Her equal. Only the man that can keep up with her. He's the only one who wouldn't be destroyed by her. Are you that man? I think not."  
 
  
 
@@ -1680,7 +1680,7 @@
 
  Even for a guy like me, a guy who wants to fuck his own mom, fuck her with my thick cock as hard as I could and fill all of her holes with my cum, even for a guy like that, this part of my journey with her felt a little over the line. I mean, there was a certain honor in doing battle with her, trying to convince her to take off her clothes for me, conquering her in the process. But sneaking around, desperate to get a glimpse of her body without her knowledge, that felt a bit creepy to me. However, at this point, I was desperate. 
 
- Come to find out, Mom had an incredible talent for locking doors behind her. Every time she took a shower, or went to her room to change, I checked the doorknob, checking if it was locked. Like I said, it felt wrong to be trying to metaphorically leap out of the bushes just to see her naked body, and part of me was kind of relieved that it never came to the point where I had an unlocked door and had to decide what to do. I had no plan, other than to just barge in. Nothing more complex than that. But those doors were the only barrier between me and Mom's body. Mom would be in the shower, her body slick, her breasts covered with soap, her ass bare and her pussy exposed, but that sight was locked off to me. Report_Story #5 
+ Come to find out, Mom had an incredible talent for locking doors behind her. Every time she took a shower, or went to her room to change, I checked the doorknob, checking if it was locked. Like I said, it felt wrong to be trying to metaphorically leap out of the bushes just to see her naked body, and part of me was kind of relieved that it never came to the point where I had an unlocked door and had to decide what to do. I had no plan, other than to just barge in. Nothing more complex than that. But those doors were the only barrier between me and Mom's body. Mom would be in the shower, her body slick, her breasts covered with soap, her ass bare and her pussy exposed, but that sight was locked off to me.  
 
  
 
@@ -1754,7 +1754,7 @@
 
  ************ 
 
- (Author's Note: Part 3 coming very soon. And just a tease of what to expect...With Tom running out of ideas on how to make progress on his Mom, opportunity literally comes knocking at his door, giving Tom the chance to show what he's really capable of.) Report_Story #1 
+ (Author's Note: Part 3 coming very soon. And just a tease of what to expect...With Tom running out of ideas on how to make progress on his Mom, opportunity literally comes knocking at his door, giving Tom the chance to show what he's really capable of.)  
 
  
 
@@ -1878,7 +1878,7 @@
 
  I was gonna fuck Ms. Graham. 
 
- Not only because she was crazy hot, but it served the greater plan as well. I couldn't make a dent on Mom's defenses. But, I could attack her allies. I could fuck her best friend. I could fuck Ms. Graham so well that she becomes more attached to me that to my mom, her best friend. Mom kept telling me my maneuvers wouldn't work on any real woman, just teenage sluts. But if I could get Ms. Graham at the end of my cock, I would prove how expansive my talents of seduction and sex were. Ms. Graham was a real woman, and landing her would show Mom what I was capable of. I could fuck Mom's friend, steal her friend from her, and show her the damage I could do. Make her pay just a little bit for what she's putting me through. I could ruin Mom's friendship, piss her off, and get what would no doubt be the best pussy I had ever had. Report_Story #2 
+ Not only because she was crazy hot, but it served the greater plan as well. I couldn't make a dent on Mom's defenses. But, I could attack her allies. I could fuck her best friend. I could fuck Ms. Graham so well that she becomes more attached to me that to my mom, her best friend. Mom kept telling me my maneuvers wouldn't work on any real woman, just teenage sluts. But if I could get Ms. Graham at the end of my cock, I would prove how expansive my talents of seduction and sex were. Ms. Graham was a real woman, and landing her would show Mom what I was capable of. I could fuck Mom's friend, steal her friend from her, and show her the damage I could do. Make her pay just a little bit for what she's putting me through. I could ruin Mom's friendship, piss her off, and get what would no doubt be the best pussy I had ever had.  
 
  
 
@@ -2146,7 +2146,7 @@
 
  I looked at her. She was breathing deep. Her red hair was shimmering past her shoulders. Her nipples were pointing at me through her top. Her plump lips parted slowly, a single band of spit connecting them before snapping. Her head moved to my ear and she began to whisper. 
 
- "You asked me before if I preferred older men. I told you I didn't discriminate." she paused, moving her lips millimeters from my ear. I could feel her breath on me as she whispered airily into my ear. "But... I lied. You're right... I do like younger guys. I love it when you young guys, my students or... frat guys from the college... I love it when they hit on me. I love it when they ignore the girls their own age in favor of a real woman like me. I love it when they have to go home and pleasure themselves to the thought of me." Report_Story #3 
+ "You asked me before if I preferred older men. I told you I didn't discriminate." she paused, moving her lips millimeters from my ear. I could feel her breath on me as she whispered airily into my ear. "But... I lied. You're right... I do like younger guys. I love it when you young guys, my students or... frat guys from the college... I love it when they hit on me. I love it when they ignore the girls their own age in favor of a real woman like me. I love it when they have to go home and pleasure themselves to the thought of me."  
 
  
 
@@ -2282,7 +2282,7 @@
 
  "Oh, I already know it will be." she purred. Looking at me, she began to lower herself onto me. Her eyes scrunched up as the head of my dick began to enter her. 
 
- "Fffffffucckkkk!" she moaned out. One of my eyes scrunched shut as I felt the tip of my cock press against the entrance to her tight pussy. The lips of my mom's best friend's vagina began to split apart, trying to grant me entrance. She had to wiggle her hips, and I had to push up firmly. But finally, the tip of my cock entered her. Report_Story #4 
+ "Fffffffucckkkk!" she moaned out. One of my eyes scrunched shut as I felt the tip of my cock press against the entrance to her tight pussy. The lips of my mom's best friend's vagina began to split apart, trying to grant me entrance. She had to wiggle her hips, and I had to push up firmly. But finally, the tip of my cock entered her.  
 
  
 
@@ -2478,7 +2478,7 @@
 
  "Uhhh... um... shit... it's a bit... fuck... it's a bit fast." she panted out, her eyes still closed as she gasped in pleasure. 
 
- "Oh, you sound like you want me to stop. Do you want me to stop?" I asked teasingly, and with that, I pulled my dick out of her pussy with a pop. I couldn't help but look down, and see my cock literally coated with her sex juices. Report_Story #5 
+ "Oh, you sound like you want me to stop. Do you want me to stop?" I asked teasingly, and with that, I pulled my dick out of her pussy with a pop. I couldn't help but look down, and see my cock literally coated with her sex juices.  
 
  
 
@@ -2738,7 +2738,7 @@
 
  "Okay, get dressed and stall her. I need to get cleaned up fast!" she said, getting to her feet and gathering her clothes in a flurry. I took my time, in no real rush, wiping myself with a towel before slipping on my briefs, my jeans and a t-shirt. More self-assured than I ever felt, I slipped out of my room. 
 
- "Hello?" Mom called out from the front entrance. I made my way to the top of the stairs and looked down. Mom was standing there, looking around. She wore a tight pink cotton top, her mammoth breasts stretching it to its max. From this angle, I had a good view of her canyon of cleavage. She just put her sunglasses on top of her head when she noticed me. Report_Story #6 
+ "Hello?" Mom called out from the front entrance. I made my way to the top of the stairs and looked down. Mom was standing there, looking around. She wore a tight pink cotton top, her mammoth breasts stretching it to its max. From this angle, I had a good view of her canyon of cleavage. She just put her sunglasses on top of her head when she noticed me.  
 
  
 
@@ -2958,7 +2958,7 @@
 
  "So, are you ready? You got everything?" she asked. 
 
- "Just about." I said. She looked at me warmly. I studied her. She looked stunning. Wearing a bright blue cotton blouse, showing a few inches of cleavage. Some slim, tight jeans. Her hair hung in waves down her back. Her lips were smooth and plump. Her eyes were twinkling. My dick throbbed. I wanted her more than ever. Report_Story #7 
+ "Just about." I said. She looked at me warmly. I studied her. She looked stunning. Wearing a bright blue cotton blouse, showing a few inches of cleavage. Some slim, tight jeans. Her hair hung in waves down her back. Her lips were smooth and plump. Her eyes were twinkling. My dick throbbed. I wanted her more than ever.  
 
  
 
@@ -3016,7 +3016,7 @@
 
  ************ 
 
- (Author's Note: Next time, on "You Couldn't Handle Me", something a bit different. Tanya steps out of the picture for a bit, as Tom goes to College and tries to figure out if he can really get over her...if he can really forget about his Mom's hot body...if he can meet someone that can steal his attention. Part 4, coming soon...) Report_Story #1 
+ (Author's Note: Next time, on "You Couldn't Handle Me", something a bit different. Tanya steps out of the picture for a bit, as Tom goes to College and tries to figure out if he can really get over her...if he can really forget about his Mom's hot body...if he can meet someone that can steal his attention. Part 4, coming soon...)  
 
  
 
@@ -3152,7 +3152,7 @@
 
  Without second thought, I leapt out of bed, wearing only a pair of boxers. I ran towards the door, making it to the door in a few long strides. I pulled open the door, and was confronted with a sight right outside my room. 
 
- A girl was on her knees, her arm dripping with blood, a beer can dropped on the floor next to her. Standing above her was another girl, looking shaky and panicked, a beer can clutched in her hand. I felt the cool night air on my neck, and I looked and saw that the window next to my door was shattered. Report_Story #2 
+ A girl was on her knees, her arm dripping with blood, a beer can dropped on the floor next to her. Standing above her was another girl, looking shaky and panicked, a beer can clutched in her hand. I felt the cool night air on my neck, and I looked and saw that the window next to my door was shattered.  
 
  
 
@@ -3440,7 +3440,7 @@
 
  "And how many state championships did that get you, huh? Cause Central won it twice when I was there, and I seem to remember us buttfucking you all on the field every year I was there." Carmen said. Oh yeah, it came out at some point that Carmen went to Central, my school's hated cross-town rival. So, we grew up not too far from each other. Small world, huh? 
 
- "Well, I wouldn't go that far..." I began, "I mean, Central wasn't exactly, uh, literally sodomizing us on the field. And besides, that changed when I got there. I became the, uh, supreme 'buttfucker'." Report_Story #3 
+ "Well, I wouldn't go that far..." I began, "I mean, Central wasn't exactly, uh, literally sodomizing us on the field. And besides, that changed when I got there. I became the, uh, supreme 'buttfucker'."  
 
  
 
@@ -3666,7 +3666,7 @@
 
  THWACK! THWACK! THWACK! 
 
- "I LOVE FUCKING TOM MCGEE'S MASSIVE TEN-INCH THROBBING COCK!" Ms. Graham screamed out. "Any girl that hears me needs to sample him yourself. He's SO FUCKING GOOD!" Report_Story #4 
+ "I LOVE FUCKING TOM MCGEE'S MASSIVE TEN-INCH THROBBING COCK!" Ms. Graham screamed out. "Any girl that hears me needs to sample him yourself. He's SO FUCKING GOOD!"  
 
  
 
@@ -3900,7 +3900,7 @@
 
  "Mmm-hmmm." she grunted around my dick. 
 
- "Look at you, Carmen. You're supposed to be trusted. Someone the school put in charge, someone the parents trusted. You're supposed to look after the student body, not suck their dicks. What a slut you turned out to be." I said. Her eyes lidded over and she dove deeper on my shaft, inhaling my cock as hard as she could. My head lolled back. Report_Story #5 
+ "Look at you, Carmen. You're supposed to be trusted. Someone the school put in charge, someone the parents trusted. You're supposed to look after the student body, not suck their dicks. What a slut you turned out to be." I said. Her eyes lidded over and she dove deeper on my shaft, inhaling my cock as hard as she could. My head lolled back.  
 
  
 
@@ -4146,7 +4146,7 @@
 
  This was a relationship not based solely around the sex we had. This wasn't a thing based on pure lust. This wasn't a disgusting infatuation with someone you shouldn't be infatuated with. This was healthy, fun sex between two adults, two peers, two people finding each other. This was something with a future. The great sex was just icing on the cake. Another aspect of our relationship that left me completely content and satisfied. I had never felt this happy with myself, happy after being with someone. All my relationships before had felt so hollow compared to this. So one note, so focused on the sex and nothing else. This was something that filled me happiness, with joy, with contentment... with peace. 
 
- It was great. She was curled up and all kissy-kissy now that the sex was over, like any other girl. But, the most important thing was, there was just something about her that sent electricity through me. There was something deep between us and we had both felt it. Report_Story #6 
+ It was great. She was curled up and all kissy-kissy now that the sex was over, like any other girl. But, the most important thing was, there was just something about her that sent electricity through me. There was something deep between us and we had both felt it.  
 
  
 
@@ -4200,7 +4200,7 @@
 
  ************ 
 
- (Author's Note: Coming up next on 'You Couldn't Handle Me'... you just have to wonder what Tanya would think about Tom's new girlfriend?) Report_Story #1 
+ (Author's Note: Coming up next on 'You Couldn't Handle Me'... you just have to wonder what Tanya would think about Tom's new girlfriend?)  
 
  
 
@@ -4480,7 +4480,7 @@
 
  We made small talk for a while as we ate. I told them about my classes, and how school was going, you know, the rundown. Mom was pretty quiet during the whole meal. She was paying attention, but the annoyance she was feeling was clear. I spent most of the meal wondering why she was so mad. Sure, I'm guessing part of it was that she was mad I surprised her with having a girlfriend, and springing it on her, and suddenly having a guest at home. But those were things a normal mom would be annoyed with, and my mom was definitely not normal, nor was my relationship with her. The last thing that happened before I left was our big fight, telling her that I was done playing her games. Things had been pretty clandestine between us whenever we talked on the phone, and we when she first saw me here, she seemed happy to see me, until she saw Carmen and she knew I now had a serious girlfriend. 
 
- There was something more to her anger. Could it be maybe... jealousy? Mom had always claimed she was never interested, but now that she saw me with another girl, were her feminine competitive juices flowing? Did she now want what she can't have? Not that I cared, I mean, I was truly over her. Was this jealousy though, I wasn't sure. I know she enjoyed toying with me, so maybe me having a girlfriend truly confirmed that I was done with her, that she didn't have me wrapped around her finger anymore. Maybe she was mad that she couldn't play her games anymore, that I had succeeded in getting over her. Maybe she was worried cause she had never had a guy get over her before. Maybe she was worried she had lost a step, that was losing some of her skill. But like I said, it didn't really matter. I was happy with Carmen, and that's all that mattered. Report_Story #2 
+ There was something more to her anger. Could it be maybe... jealousy? Mom had always claimed she was never interested, but now that she saw me with another girl, were her feminine competitive juices flowing? Did she now want what she can't have? Not that I cared, I mean, I was truly over her. Was this jealousy though, I wasn't sure. I know she enjoyed toying with me, so maybe me having a girlfriend truly confirmed that I was done with her, that she didn't have me wrapped around her finger anymore. Maybe she was mad that she couldn't play her games anymore, that I had succeeded in getting over her. Maybe she was worried cause she had never had a guy get over her before. Maybe she was worried she had lost a step, that was losing some of her skill. But like I said, it didn't really matter. I was happy with Carmen, and that's all that mattered.  
 
  
 
@@ -4690,7 +4690,7 @@
 
  She shouldn't be the woman I want sucking my dick. I should remember her for all the good things, and not immediately think of nasty thoughts. I should remember her riding her bike next to me on the bike trail, and not imagining her riding my cock like an animal. I should appreciate all the times I came home after a rough day at school, only for her to give me her tight, squishy hugs. I shouldn't be thinking about how savagely I would fuck her juicy tits. I should remember all the home cooked meals she made for me, not the fact that I want to bend her over the kitchen table and drive my cock into her juicy ass. In my younger days, she would get on her knees and put a band-aid on my skinned knee. Now, as a full grown young man, all I could do was imagine her on her knees, swallowing mouthful after mouthful of my cum as it burst from my pulsing dick. I remember going to her bedroom during thunderstorms when I was very young, looking for refuge from the booming thunder. Now, at the thought of her in bed, all I could do was imagine her naked, her lying on her side, the thin bed sheet barely covering her lower half, her massive boobs stacked on top of each other, that teasing smile on her face as she curled her finger at me, urging me to join her on the bed. I literally had to shake these thoughts out of my head. She was my mother! It was so messed up. Despite everything that had happened between us, I shouldn't let those good motherly memories fade away, replaced with thoughts of her with a sexual tone. I had to grow up and move on. No son should imagine what his mother is like in the bedroom, but I was a different animal, apparently. And in my defense, most moms weren't like mine. It's not like I could share this struggle with anyone. This lust for her was so indecent, people would never even hear me out. 
 
- But I had been made stronger. Despite Mom's efforts to bring me down, I emerged stronger. My will had become iron. Despite her twisted games, I was a better man now. And that man had found true happiness, complete peace, in another girl. In a more healthy, appropriate relationship. Despite Mom's efforts, I had emerged on the other side, at complete peace. Report_Story #3 
+ But I had been made stronger. Despite Mom's efforts to bring me down, I emerged stronger. My will had become iron. Despite her twisted games, I was a better man now. And that man had found true happiness, complete peace, in another girl. In a more healthy, appropriate relationship. Despite Mom's efforts, I had emerged on the other side, at complete peace.  
 
  
 
@@ -4912,7 +4912,7 @@
 
  "Ha ha!" she replied. "Go clean yourself up. You're filthy." I watched myself smile arrogantly, noting how Mom glanced at the glass on the counter. She was left alone in the room, a glass full of my cum in front of her. 
 
- Suddenly, with a flash of insight, I knew what I was about to see. Mom wouldn't have sent this if it was anything else. I hovered the cursor over the stop button, but I couldn't bring myself to do it. I had to see it. I had to know. Report_Story #4 
+ Suddenly, with a flash of insight, I knew what I was about to see. Mom wouldn't have sent this if it was anything else. I hovered the cursor over the stop button, but I couldn't bring myself to do it. I had to see it. I had to know.  
 
  
 
@@ -4940,7 +4940,7 @@
 
  ************* 
 
- (Author's Note: Next time on 'You Couldn't Handle Me'... we learn a little bit about Tom's Mom and Dad, and battle lines are drawn in the sexual battle of wills between Tom and his mother.) Report_Story #1 
+ (Author's Note: Next time on 'You Couldn't Handle Me'... we learn a little bit about Tom's Mom and Dad, and battle lines are drawn in the sexual battle of wills between Tom and his mother.)  
 
  
 
@@ -5044,7 +5044,7 @@
 
  Jay provided me a good life so I never had to work. At first, I dreaded this future. Mere months prior, I had dreams of being a big star in Hollywood or on the cover of magazines. Now, my future was being a housewife, and I couldn't help but be disappointed at this prospect. It felt like an incredible letdown after living my whole life as if I was meant to be something special. Maybe it was karma for my bad behavior and being unable to control my needs, letting them run rampant over me and letting them control my actions. The idea of being a doting wife, cleaning the house, being in a fucking book club with the neighborhood wives, it sounded like the ultimate penalty to me. 
 
- But maybe it was for the best. I was traveling down a dark road. If I ended up in Hollywood, going the way I was going, that could have ended very badly for me. My urges were running so out of control that I could totally imagine losing myself in the glitz and glamor. Indulging my narcissism and forever searching for the pleasure I sought among Hollywood's best and brightest. Going to the best parties, doing hard drugs, and sucking as many cocks as I could get my hands on. With my lack of discipline, a future of fame and power would have destroyed me. So, as much as I hated the idea, being a housewife probably provided me my best possible future. I needed to change, to learn control. To practice discipline. With that being said, there were moments when I thought about what could have been, and that filled me with burning disappointment. Luckily, I was able to suppress those feelings. Report_Story #2 
+ But maybe it was for the best. I was traveling down a dark road. If I ended up in Hollywood, going the way I was going, that could have ended very badly for me. My urges were running so out of control that I could totally imagine losing myself in the glitz and glamor. Indulging my narcissism and forever searching for the pleasure I sought among Hollywood's best and brightest. Going to the best parties, doing hard drugs, and sucking as many cocks as I could get my hands on. With my lack of discipline, a future of fame and power would have destroyed me. So, as much as I hated the idea, being a housewife probably provided me my best possible future. I needed to change, to learn control. To practice discipline. With that being said, there were moments when I thought about what could have been, and that filled me with burning disappointment. Luckily, I was able to suppress those feelings.  
 
  
 
@@ -5134,7 +5134,7 @@
 
  My relationship with Tom had crossed too many lines. I made sure to keep my distance from that point on, not wanting to encourage him anymore. This game had gone too far and we had both lost control. That was why when the time came for him to leave for school, I wasn't sad or mopey. I was relieved to put an end to this tension. 
 
- Tom made one last move, it was desperate, and he knew that. I was doing my best not to encourage him, against what my mind was telling me. But when the time came for him to leave, when he made one last gasp Hail Mary, I easily deferred him, and sent him on his way. It could have been over then. It could have. But, I couldn't help myself. I did it again. I squeezed my tits at him and called out that he couldn't handle me. Report_Story #3 
+ Tom made one last move, it was desperate, and he knew that. I was doing my best not to encourage him, against what my mind was telling me. But when the time came for him to leave, when he made one last gasp Hail Mary, I easily deferred him, and sent him on his way. It could have been over then. It could have. But, I couldn't help myself. I did it again. I squeezed my tits at him and called out that he couldn't handle me.  
 
  
 
@@ -5228,7 +5228,7 @@
 
  These few moments were moments I had looked back to almost every day. Tanya was so close to cumming, as was I. Stopping would ruin the moment. And at that moment, her pussy wasn't letting me think straight. At that moment, I did something stupid. I let myself be irresponsible. It felt like the right decision at the time. I just... kept going. I decided to take my chances and just go with it. To do something stupid. So, I didn't say anything. Tanya was too hot to resist, and too hot to resist the pleasure she could give. My wolfish side taking over, I just kept fucking her, and when the moment came, and her pussy drove me to the edge. I came inside her as she came on me, groaning as she scrunched her eyes in pleasure. 
 
- I still remember the panic she felt as she realized what had happened. She questioned me angrily, but I feigned ignorance. She stormed off to the bathroom, and I felt terrible. What was I thinking? I just risked pregnancy for a few moments of pleasure. It was incredibly stupid, especially knowing she would probably think of this as nothing but a one-night stand. A dark part of me paused at the thought of her being pregnant, having us bound together in such a big way, forcing us to be responsible and be together. That way, I could have her body for the rest of my life... NO! What was I thinking? That was messed up. I didn't want to trick a girl into being with me. That is something some prick jock would do. 'Yeah, man, I knew the condom broke, and I just kept fucking the bitch anyway.' Ugh. I hated those guys with a passion. But, after years of resenting that kind of guy and trying not to be that kind of guy, one night with Tanya made me act exactly like that kind of a guy. One night with Tanya and that body undid all the good things I had worked for. Report_Story #4 
+ I still remember the panic she felt as she realized what had happened. She questioned me angrily, but I feigned ignorance. She stormed off to the bathroom, and I felt terrible. What was I thinking? I just risked pregnancy for a few moments of pleasure. It was incredibly stupid, especially knowing she would probably think of this as nothing but a one-night stand. A dark part of me paused at the thought of her being pregnant, having us bound together in such a big way, forcing us to be responsible and be together. That way, I could have her body for the rest of my life... NO! What was I thinking? That was messed up. I didn't want to trick a girl into being with me. That is something some prick jock would do. 'Yeah, man, I knew the condom broke, and I just kept fucking the bitch anyway.' Ugh. I hated those guys with a passion. But, after years of resenting that kind of guy and trying not to be that kind of guy, one night with Tanya made me act exactly like that kind of a guy. One night with Tanya and that body undid all the good things I had worked for.  
 
  
 
@@ -5358,7 +5358,7 @@
 
  "It's only been, like, two weeks." I said. I looked at her, trying to figure out her angle. She just smiled knowingly. 
 
- "C'mon Tom!" she urged girlishly. "It's been half a year and I haven't seen my son's dorm room." Report_Story #5 
+ "C'mon Tom!" she urged girlishly. "It's been half a year and I haven't seen my son's dorm room."  
 
  
 
@@ -5554,7 +5554,7 @@
 
  As I got back to the room, and stared at the box, I wondered if I should open it. I was still recovering from the last gift she sent me. But I knew, deep down, that I just had to know. I would never be able to not know what was inside. 
 
- Taking a letter opener, I sliced one of the seams and unwrapped the paper, revealing a cardboard box underneath. Slicing the tape holding the lid of the box shut, I took a deep breath and pulled the box open. Report_Story #6 
+ Taking a letter opener, I sliced one of the seams and unwrapped the paper, revealing a cardboard box underneath. Slicing the tape holding the lid of the box shut, I took a deep breath and pulled the box open.  
 
  
 
@@ -5730,7 +5730,7 @@
 
  "Mom..." I began, feeling more guilt at how harsh I had been to her, especially with how hurt she seemed to be. "I should apologize too. I was pretty ruthless and I said some things that were pretty over the line. I don't know, I... I think I just got caught up in the whole thing too." 
 
- Report_Story #7 
+  
 
  
 
@@ -5880,7 +5880,7 @@
 
  * 
 
- (Author's Note: Next time on "You Couldn't Handle Me", you just have to wonder what Tom's rejection will do to Tanya's ego, and what kind of things she'll do to get what she wants. Cause you have to think she knows she will now have to go a lot farther than she ever has before to try and conquer Tom.) Report_Story #1 
+ (Author's Note: Next time on "You Couldn't Handle Me", you just have to wonder what Tom's rejection will do to Tanya's ego, and what kind of things she'll do to get what she wants. Cause you have to think she knows she will now have to go a lot farther than she ever has before to try and conquer Tom.)  
 
  
 
@@ -5972,7 +5972,7 @@
 
  ************* 
 
- I was bent over, on my hands and knees, scrubbing the tile of the kitchen floor. The rubber gloves I had on always made my hands feel clammy, so I always made it a point to finish my work quickly. But as I tried to scrub away a pesky stain that just wouldn't go away, I stopped myself, sitting up straight and scrubbing the sweat away with the back of my arm. A bit of my hair fell from my pony tail over my eyes. I ripped off the glove and pushed the loose hair over my ear. And then I looked around and realized I didn't remember where I had started scrubbing. I knew I was a few years past 40, but I didn't think my mind would be going this soon. My mind was usually sharp and clear, but for some reason right now it felt hazy. Maybe these cleaning sprays were making me a bit loopy. I stood up to regain my bearings and noticed something was wrong. Report_Story #2 
+ I was bent over, on my hands and knees, scrubbing the tile of the kitchen floor. The rubber gloves I had on always made my hands feel clammy, so I always made it a point to finish my work quickly. But as I tried to scrub away a pesky stain that just wouldn't go away, I stopped myself, sitting up straight and scrubbing the sweat away with the back of my arm. A bit of my hair fell from my pony tail over my eyes. I ripped off the glove and pushed the loose hair over my ear. And then I looked around and realized I didn't remember where I had started scrubbing. I knew I was a few years past 40, but I didn't think my mind would be going this soon. My mind was usually sharp and clear, but for some reason right now it felt hazy. Maybe these cleaning sprays were making me a bit loopy. I stood up to regain my bearings and noticed something was wrong.  
 
  
 
@@ -6132,7 +6132,7 @@
 
  For the next hour, I watched my husband at work, making calls, putting on his professional voice. Talking to very important people, schmoozing them, flattering them, luring them in so he could ask for help. I had to admit, it was pretty hot. As I watched him at work, I realized, this was his game. He was a salesman. He could schmooze, flatter, and sucker people into a sale, and he was very good at it. His game was business. My game was pleasure. 
 
- An hour later, after calling some international VIP's, he eventually arranged for some CEO from Italy to interrupt his flight to New York to land in Greece and pick up Tom and Carmen. Their trip was supposed to end in three weeks before this all happened. Now, it was gonna end in three days, and I don't know how Tom planned to avoid me for that long. I would get him home, I knew that for sure. Report_Story #3 
+ An hour later, after calling some international VIP's, he eventually arranged for some CEO from Italy to interrupt his flight to New York to land in Greece and pick up Tom and Carmen. Their trip was supposed to end in three weeks before this all happened. Now, it was gonna end in three days, and I don't know how Tom planned to avoid me for that long. I would get him home, I knew that for sure.  
 
  
 
@@ -6326,7 +6326,7 @@
 
  The most annoying thing was that no matter where I went, Mom would move that glass so it was near me, I guess if the urge for pleasure hit me. But I had done a good job of pushing Mom out of mind, separating her from the lustful side of me, so I didn't even pop a stiffy at the visual treats she was offering. It was only after the third time or so time she placed the glass near me that I had to speak up. 
 
- "Mom, your point is made." I said, annoyed, sitting on the couch, pushing the glass away. Report_Story #4 
+ "Mom, your point is made." I said, annoyed, sitting on the couch, pushing the glass away.  
 
  
 
@@ -6542,7 +6542,7 @@
 
  "Um... yeah, I think so." I replied. Mom smiled. 
 
- "As if you don't know." Mom said, rolling her eyes. "I'm surprised Tom. She's gonna be your wife! The mother of your children! But you want to remember the time you covered her ugly face with your creamy jizz? That's your favorite, cherished memory? How disrespectful that must be, just marking your territory, defacing your true love like that? Showing her so little respect. I mean, I wouldn't know. No guy's dared try to pull that on me. They wouldn't dare. I scare them too much. With me, they don't really control where they cum. It just... happens. Guys always seem to lose control with me. I control them. They don't control me." Report_Story #5 
+ "As if you don't know." Mom said, rolling her eyes. "I'm surprised Tom. She's gonna be your wife! The mother of your children! But you want to remember the time you covered her ugly face with your creamy jizz? That's your favorite, cherished memory? How disrespectful that must be, just marking your territory, defacing your true love like that? Showing her so little respect. I mean, I wouldn't know. No guy's dared try to pull that on me. They wouldn't dare. I scare them too much. With me, they don't really control where they cum. It just... happens. Guys always seem to lose control with me. I control them. They don't control me."  
 
  
 
@@ -6714,7 +6714,7 @@
 
  This was my MOM doing this. I can't stress that fact enough. This is the woman who walked me to school when I was younger, who baked me cakes on my birthday, who took me trick-or-treating. Now, she was brazenly showing me her sexy, thong-clad ass. 
 
- Mom looked back at me, over her shoulder, and her lips curled into a smug smile. I was frozen, staring at her exposed ass, so I made no effort to cover up my bulging erection, shown off plainly in my wet trunks. I had never seen my mom this exposed, so of course I reacted. Mom knew what a momentous occasion this was, and she was taking advantage. She had her son, who was engaged to the love of his life, enthralled at his own mom's hot ass. She had a 20 year old guy gawking at a 42-year-old's ass. She was not going to waist this opportunity. Report_Story #6 
+ Mom looked back at me, over her shoulder, and her lips curled into a smug smile. I was frozen, staring at her exposed ass, so I made no effort to cover up my bulging erection, shown off plainly in my wet trunks. I had never seen my mom this exposed, so of course I reacted. Mom knew what a momentous occasion this was, and she was taking advantage. She had her son, who was engaged to the love of his life, enthralled at his own mom's hot ass. She had a 20 year old guy gawking at a 42-year-old's ass. She was not going to waist this opportunity.  
 
  
 
@@ -6834,7 +6834,7 @@
 
  But the problem was, it was really hard. Not only the struggle to withstand Mom's sexual barrage, but my throbbing dick as well. 
 
- Mom's body kept me charged up, day after day. She had definitely made a dent in my defenses. I was at the very least semi-hard at all times. I couldn't control it. It was my deep, dark, animal brain at work. My instincts didn't care that she was my mom. My dick certainly didn't care. My mind saw was that this was a gorgeous creature who oozed sexuality from every pore. She was a stunning creature, with a full round ass and massive, succulent breasts. She was built to appeal to men. But she was my mom. I knew that, but my deep, dark lizard brain saw that this was an older woman, a mother, who had proven herself not only to be fertile, by virtue of being a mom, but to also clearly be gagging for it. Obviously, with the context of our relationship, that possibility is out of the question. But my dick didn't care. It knew a viable vessel for breeding when it saw one, and on instinct alone, it reacted. Mom was right about that. Although my mind was holding the leash, the dog was barking. And not only barking, it was slobbering all over itself. Report_Story #7 
+ Mom's body kept me charged up, day after day. She had definitely made a dent in my defenses. I was at the very least semi-hard at all times. I couldn't control it. It was my deep, dark, animal brain at work. My instincts didn't care that she was my mom. My dick certainly didn't care. My mind saw was that this was a gorgeous creature who oozed sexuality from every pore. She was a stunning creature, with a full round ass and massive, succulent breasts. She was built to appeal to men. But she was my mom. I knew that, but my deep, dark lizard brain saw that this was an older woman, a mother, who had proven herself not only to be fertile, by virtue of being a mom, but to also clearly be gagging for it. Obviously, with the context of our relationship, that possibility is out of the question. But my dick didn't care. It knew a viable vessel for breeding when it saw one, and on instinct alone, it reacted. Mom was right about that. Although my mind was holding the leash, the dog was barking. And not only barking, it was slobbering all over itself.  
 
  
 
@@ -7132,7 +7132,7 @@
 
  If this were a pros and cons list, the cons would heavily outweigh the pros. But why did my dick feel otherwise? Why couldn't my mind accept all these negatives? Why did the positives sound so much more appealing? 
 
- I wish I could talk to someone on this, get some guidance. Usually, when I had a big issue like this, I would talk to Dad. But, obviously, I couldn't tell Dad the truth. Dad couldn't play a part in this game. He couldn't get caught up in this. I couldn't tell him that I had spent most of my time home willing myself to not masturbate thinking about Mom's hot body. I couldn't tell him that I was forced to listen to my own mom loudly pleasure herself. I couldn't tell him about how his wife had shown off her ass in a thong to me, or how she spent an hour grinding her nearly bare ass against her son's big dick. I couldn't tell him that I was contemplating fucking my own mom, his wife. I couldn't tell him anything. Report_Story #8 
+ I wish I could talk to someone on this, get some guidance. Usually, when I had a big issue like this, I would talk to Dad. But, obviously, I couldn't tell Dad the truth. Dad couldn't play a part in this game. He couldn't get caught up in this. I couldn't tell him that I had spent most of my time home willing myself to not masturbate thinking about Mom's hot body. I couldn't tell him that I was forced to listen to my own mom loudly pleasure herself. I couldn't tell him about how his wife had shown off her ass in a thong to me, or how she spent an hour grinding her nearly bare ass against her son's big dick. I couldn't tell him that I was contemplating fucking my own mom, his wife. I couldn't tell him anything.  
 
  
 
@@ -7272,7 +7272,7 @@
 
  ************** 
 
- (Author's Note: Next time, on "You Couldn't Handle Me", the grand finale. A mother and son have sex, and try to out-fuck each other in the process.) Report_Story #1 
+ (Author's Note: Next time, on "You Couldn't Handle Me", the grand finale. A mother and son have sex, and try to out-fuck each other in the process.)  
 
  
 
@@ -7410,7 +7410,7 @@
 
  "Yes, it is. You want me to drool over your body, don't you?" I said, circling around her. "I bet you love hearing guys tell you how hot you are, don't you? After being the mom for so long, you love that little thrill of having men tell you how sexy you are. You love having men tell you all the filthy things they want to do with your body, don't you?" I asked, staring at her, standing close. Mom's eyes flashed curiously and deciding to go along with it, she replied. 
 
- "Yeah, I do." Mom began, her voice breathy. "I love how hot I am. It's my favorite thing about me. I love being hot. I love being sexy. I love walking into a room and knowing I'm hotter than any girl there. I love being around a group of twenty-year olds and still being the one guys are eyeing up. I love having people stare at me. I love catching people gawking at my ass, or my breasts. I love imagining what those people are thinking about me. I loved being better than any other woman." Report_Story #2 
+ "Yeah, I do." Mom began, her voice breathy. "I love how hot I am. It's my favorite thing about me. I love being hot. I love being sexy. I love walking into a room and knowing I'm hotter than any girl there. I love being around a group of twenty-year olds and still being the one guys are eyeing up. I love having people stare at me. I love catching people gawking at my ass, or my breasts. I love imagining what those people are thinking about me. I loved being better than any other woman."  
 
  
 
@@ -7564,7 +7564,7 @@
 
  As I kept French-kissing my mother, I let my hands slid back up, travelling along her velvety skin and up her side, my intentions clear. And as I got close, as my hands were inches away from finally making skin-to-skin contact with my mom's big, bare boobs, Mom grabbed my wrists roughly, stopping me, mere inches away from her massive rack. Mom pulled her tongue from my mouth, backing up, breathing deep as spit connected our open mouths. We looked at each other, our eyes glassy with lust. 
 
- "Not yet." she gasped. "Wait." Mom slid her hands along my lean arms till they arrived at my chest. Gripping my chest lightly, Mom pushed me back onto the bed. "Get comfortable." Mom said, "Lie back. If you want to be the real man of the house, act like it. Get comfortable, lie back, be the master of the master bed." Report_Story #3 
+ "Not yet." she gasped. "Wait." Mom slid her hands along my lean arms till they arrived at my chest. Gripping my chest lightly, Mom pushed me back onto the bed. "Get comfortable." Mom said, "Lie back. If you want to be the real man of the house, act like it. Get comfortable, lie back, be the master of the master bed."  
 
  
 
@@ -7662,7 +7662,7 @@
 
  Mom was relentless. She just kept smoothly sucking me. Her throat kept squeezing me. Her hand kept massaging my nuts. Every move she made was trying to coax the cum from my balls. Was Mom about to break me? I thought I could withstand this, but was Mom right? Was she about to drain my balls into her mouth? Was she about to steal me from Carmen? Was I about to lose everything? All that I knew was... I was about to cum. I could only hope I made it to the other side intact. 
 
- "Fuck, Mom." I groaned. She just kept choking on my dick, not stopping. A week's worth of pressure was about to boil over. "Mom, you can fucking suck some fucking dick!" I reached down and forced her head firmly downward, gripping her hair again. Report_Story #4 
+ "Fuck, Mom." I groaned. She just kept choking on my dick, not stopping. A week's worth of pressure was about to boil over. "Mom, you can fucking suck some fucking dick!" I reached down and forced her head firmly downward, gripping her hair again.  
 
  
 
@@ -7792,7 +7792,7 @@
 
  I did it all. I sucked. I bit. I chewed. I licked. I played with each hard nub with my tongue. I even toyed with them, letting each nipple pop from my mouth and giving them some gentle, playful sucks in succession. 
 
- "Mmmm, hon, I would happily let you do this all fucking day." Mom said lustfully. My eyes jumped to the bedside clock, and I was shocked to see a half hour had passed. I had lost any sense of time being smothered in my mom's juicy rack. I pulled back, realizing my breath had been shortened and I needed to breathe. Mom grabbed my chin and pointed my face up at her. "Your mouth is fantastic, and my tits sure do appreciate the attention. Other parts of me sure could use that kind of worship." Mom let her hands travel to the top of my head, and she began to push me down. I backed up and crawled down the bed. As I did, Mom spread her firm legs, and I found my face inches above my mom's nearly bare cunt. Report_Story #5 
+ "Mmmm, hon, I would happily let you do this all fucking day." Mom said lustfully. My eyes jumped to the bedside clock, and I was shocked to see a half hour had passed. I had lost any sense of time being smothered in my mom's juicy rack. I pulled back, realizing my breath had been shortened and I needed to breathe. Mom grabbed my chin and pointed my face up at her. "Your mouth is fantastic, and my tits sure do appreciate the attention. Other parts of me sure could use that kind of worship." Mom let her hands travel to the top of my head, and she began to push me down. I backed up and crawled down the bed. As I did, Mom spread her firm legs, and I found my face inches above my mom's nearly bare cunt.  
 
  
 
@@ -7926,7 +7926,7 @@
 
  "FUCK!" Mom screamed, feeling her cunt filled to the brim with dick. I could feel her cervix against the spongy tip of my cock. I sighed slightly as I felt my swollen balls hit Mom's ass. I had done it. I had all 10 inches of my dick inside of my mom's pussy. A shiver went up my spine and I had to clench my ass to prevent myself from losing all control inside of her. This was not the time to be a minute man. This was a marathon, and the race had just begun. 
 
- Mom's body was shivering as the pleasure ran through her. I swiveled my hips slightly as I stayed in place, letting Mom's pussy get accustomed to my meaty invader. Report_Story #6 
+ Mom's body was shivering as the pleasure ran through her. I swiveled my hips slightly as I stayed in place, letting Mom's pussy get accustomed to my meaty invader.  
 
  
 
@@ -8064,7 +8064,7 @@
 
  "Bull." Mom replied, sucking my neck, rightly not believing me. Time to turn the heat up. 
 
- "No, I did. It's what we both always wanted. We're both that filthy. We're both that nasty. We both want it to go that far. All these years, Mom. All this build up. For too long, my cock throbbed for you. It throbbed for your hot body. You have no idea how much cum these big tits made me spill." I said, grabbing her boobs firmly, my voice dripping with an almost liquid tenor. "You have no idea I've wanted this. How long I've fantasized about this. How far my fantasies evolved as my tastes grew. Do you seriously think, in my deepest, darkest fantasies of fucking my own mother, that I was wearing a condom? Or that I imagined you were on the pill? No, I imagined my bare cock in your tight cunt. Real, true fucking incest, as it should be. I always imagined it being rough... and nasty." I said, kissing her ear. "I imagined giving you every inch. I imagined us both losing control. And in that moment, when I was about to explode, I didn't ever once imagine pulling out. No, when it came down to it, I imagined you putting your hand on my ass... and pulling me deeper." I said, kissing her ear again, my voice firm. Mom sighed softly. "I imagined you making sure your own son's swollen, ten-inch cock was completely inside you, up to the balls, when it was about to explode. I imagined you rubbing my swollen nuts, trying to draw the cum out. I imagined your cunt squeezing my shaft, trying to pull me in deeper, trying to make me lose control. And when I did lose control, when you did make me cum, when I unloaded deep inside your nasty, filthy, tight cunt... I imagined your pussy taking all of it. Swallowing every drop." Report_Story #7 
+ "No, I did. It's what we both always wanted. We're both that filthy. We're both that nasty. We both want it to go that far. All these years, Mom. All this build up. For too long, my cock throbbed for you. It throbbed for your hot body. You have no idea how much cum these big tits made me spill." I said, grabbing her boobs firmly, my voice dripping with an almost liquid tenor. "You have no idea I've wanted this. How long I've fantasized about this. How far my fantasies evolved as my tastes grew. Do you seriously think, in my deepest, darkest fantasies of fucking my own mother, that I was wearing a condom? Or that I imagined you were on the pill? No, I imagined my bare cock in your tight cunt. Real, true fucking incest, as it should be. I always imagined it being rough... and nasty." I said, kissing her ear. "I imagined giving you every inch. I imagined us both losing control. And in that moment, when I was about to explode, I didn't ever once imagine pulling out. No, when it came down to it, I imagined you putting your hand on my ass... and pulling me deeper." I said, kissing her ear again, my voice firm. Mom sighed softly. "I imagined you making sure your own son's swollen, ten-inch cock was completely inside you, up to the balls, when it was about to explode. I imagined you rubbing my swollen nuts, trying to draw the cum out. I imagined your cunt squeezing my shaft, trying to pull me in deeper, trying to make me lose control. And when I did lose control, when you did make me cum, when I unloaded deep inside your nasty, filthy, tight cunt... I imagined your pussy taking all of it. Swallowing every drop."  
 
  
 
@@ -8210,7 +8210,7 @@
 
  I varied my strokes, not letting my cock hit her sweet spot. I let Mom recover and look up at me. 
 
- "You motherfucker!" Mom spat out. "You son of a bitch, don't do it again, don't you... ooooOOOOHHHH GAAWWWDDDDD!" Mom's cunt quivered hard around my cock. I let her recover for a few moments, teasing her, and was about to give her some more when she tried to push me, to use her limbs to roll me over onto my back, to regain control, but I wasn't gonna let her. Not this time. I was in control. I pinned her arms down and continue sliding my cock in an out of her eager snatch. Report_Story #8 #9 
+ "You motherfucker!" Mom spat out. "You son of a bitch, don't do it again, don't you... ooooOOOOHHHH GAAWWWDDDDD!" Mom's cunt quivered hard around my cock. I let her recover for a few moments, teasing her, and was about to give her some more when she tried to push me, to use her limbs to roll me over onto my back, to regain control, but I wasn't gonna let her. Not this time. I was in control. I pinned her arms down and continue sliding my cock in an out of her eager snatch.  #9 
 
  
 
@@ -8360,7 +8360,7 @@
 
  Needless to say, I was about to cum hard. 
 
- "Cum, Tom. Cum inside your Mom. Fill her up with cum. Let me drive you over the edge. Tom, I'm gonna let my pussy cum. I'm gonna let it happen. You survived the first two, but you won't survive this one. Cum with me, cum at the same time, let my cunt give you the best cum you ever had! But before you do, before I cum, I want you to do one thing. One thing that will really get me off, make me cum hard! Tell me what you really feel about Carmen. Tell me the truth!" Report_Story #10 
+ "Cum, Tom. Cum inside your Mom. Fill her up with cum. Let me drive you over the edge. Tom, I'm gonna let my pussy cum. I'm gonna let it happen. You survived the first two, but you won't survive this one. Cum with me, cum at the same time, let my cunt give you the best cum you ever had! But before you do, before I cum, I want you to do one thing. One thing that will really get me off, make me cum hard! Tell me what you really feel about Carmen. Tell me the truth!" 0 
 
  
 
@@ -8604,7 +8604,7 @@
 
  "And I fucking hate you! I hate that I love your body! I hate how hard I get for you!" I roared, fucking her tight ass like an animal. 
 
- "UUHHHH GAAAWWWWDDDD! I LOVE IT!" Mom moaned out, my inner turmoil a huge turn- on for her, apparently, as her tight ass clung to my throbbing cock. Report_Story #11 
+ "UUHHHH GAAAWWWWDDDD! I LOVE IT!" Mom moaned out, my inner turmoil a huge turn- on for her, apparently, as her tight ass clung to my throbbing cock. 1 
 
  
 
@@ -8802,7 +8802,7 @@
 
  A thick creamy band of cum fired from the tip of my cock, landing on her face, a thick band stretching from her forehead to her chin. 
 
- "EEEAAAUUGGHHH! GOD!" I groaned out in pained pleasure. Another jet of cum rocketed from my cock, lading in a straight line down her nose and over her lips. I jacked myself roughly, pulling another thick stream of cum from my balls, landing on my mom's cheek. I kept jacking, and more cum kept firing from me. I was like an oil pump, a human cum geyser. Streams of cum landed on Mom's forehead, her hair, another glob of cum forcing one of her eyes closed. As I fired a band of cum straight onto her plump, smooth lips, Mom sighed and spoke up. Report_Story #12 
+ "EEEAAAUUGGHHH! GOD!" I groaned out in pained pleasure. Another jet of cum rocketed from my cock, lading in a straight line down her nose and over her lips. I jacked myself roughly, pulling another thick stream of cum from my balls, landing on my mom's cheek. I kept jacking, and more cum kept firing from me. I was like an oil pump, a human cum geyser. Streams of cum landed on Mom's forehead, her hair, another glob of cum forcing one of her eyes closed. As I fired a band of cum straight onto her plump, smooth lips, Mom sighed and spoke up. 2 
 
  
 
@@ -8954,7 +8954,7 @@
 
  I glanced at her, wearing a smooth peach colored top that was hugging her tight upper half. On her lower half, a slim, black skirt, clinging to her smooth legs and firm ass. I hadn't been able to stop looking at her ass in that skirt all day. 
 
- I kept telling myself this was done, this was over, that I didn't have to put myself through this anymore. Been there, done that. I tried to forget about her, to ignore her, but the problem was... dat ass! Her ass was just as juicy and perfect as ever. Knowing I had out-fucked this sex goddess filled me with pride. Knowing I had tamed that ass was a thrilling thought. Report_Story #13 
+ I kept telling myself this was done, this was over, that I didn't have to put myself through this anymore. Been there, done that. I tried to forget about her, to ignore her, but the problem was... dat ass! Her ass was just as juicy and perfect as ever. Knowing I had out-fucked this sex goddess filled me with pride. Knowing I had tamed that ass was a thrilling thought. 3 
 
  
 
@@ -9130,7 +9130,7 @@
 
  Tom would be wasted on a young girl like Carmen. She was too ugly and too unsexy to ever be a good match for him. Tom being married to her would be like having Picasso painting your bathroom. Tom had too much raw talent to just be thrown away like that. It was my duty as a mother to make sure my son went down the right path. That path being with me, fucking the shit out of his own mother. 
 
- I had very clearly gone too far down the dark path of incest to come back now. My relationship with my son had been so deeply infused with sex at this point that there was no hope of things ever going back to normal. Moms shouldn't want to know anything about their sons' sex lives. A mom isn't supposed to wonder about her son's penis at all, and if she does, she's supposed to think about it as a nasty, disgusting piece of meat that if left unattended will happily live up to its sole purpose and spray its filthy seed anywhere it wants. Moms are supposed to be disgusted every time they found a garbage can full of jizz- coated tissues or leftover dried cum on his underwear. Moms are supposed to make sure their sons steer clear of those nasty, trashy girls who only want one thing. Moms would be happy if every drop of thick teenage seed stayed nestled in their sons' swollen balls until they got married. Only then would a mom's job be complete. But clearly, I was very different. I was not a typical mom. I had taken a VERY active, hands-on role in my son's sex life. I had actively made sure my son would be spraying cum everywhere. Report_Story #14 
+ I had very clearly gone too far down the dark path of incest to come back now. My relationship with my son had been so deeply infused with sex at this point that there was no hope of things ever going back to normal. Moms shouldn't want to know anything about their sons' sex lives. A mom isn't supposed to wonder about her son's penis at all, and if she does, she's supposed to think about it as a nasty, disgusting piece of meat that if left unattended will happily live up to its sole purpose and spray its filthy seed anywhere it wants. Moms are supposed to be disgusted every time they found a garbage can full of jizz- coated tissues or leftover dried cum on his underwear. Moms are supposed to make sure their sons steer clear of those nasty, trashy girls who only want one thing. Moms would be happy if every drop of thick teenage seed stayed nestled in their sons' swollen balls until they got married. Only then would a mom's job be complete. But clearly, I was very different. I was not a typical mom. I had taken a VERY active, hands-on role in my son's sex life. I had actively made sure my son would be spraying cum everywhere. 4 
 
  
 
@@ -9250,7 +9250,7 @@
 
  "I..." Tom trailed off. I began to step down the stairs, completely naked. 
 
- "Tom... I don't want to hear it. I can't fucking believe this. Tom... you broke my heart!" Carmen sobbed. "How could you do this to me??" she said, her voice breaking. Tom put his hands on his shaking fiancée's arms. Report_Story #15 
+ "Tom... I don't want to hear it. I can't fucking believe this. Tom... you broke my heart!" Carmen sobbed. "How could you do this to me??" she said, her voice breaking. Tom put his hands on his shaking fiancée's arms. 5 
 
  
 
@@ -9418,7 +9418,7 @@
 
  That was what led me to riding this airplane, traveling, throwing myself back into my work, contemplating the tragedy my life had become. 
 
- I was travelling the world, leaving my wife and son at home, where they no doubt spent all of their time having illicit, immoral, nasty sex. I felt like a fool, a spineless fool for letting my wife carry out an affair with my knowledge, and with my own son. I was working, travelling the world most of the year, leaving my wife at home, with access to the money I worked so hard for. Report_Story #16 
+ I was travelling the world, leaving my wife and son at home, where they no doubt spent all of their time having illicit, immoral, nasty sex. I felt like a fool, a spineless fool for letting my wife carry out an affair with my knowledge, and with my own son. I was working, travelling the world most of the year, leaving my wife at home, with access to the money I worked so hard for. 6 
 
  
 
@@ -9520,7 +9520,7 @@
 
  Fucking Mom had made me a better football player, strangely enough. Where before, there was the part of me clinging to the hope of being a cool, well- adjusted, normal guy. Now, I had let the arrogance flow through me. I had become the true 'douchebag buttfucker' Carmen feared I was. I was cocky, I was arrogant, and I was good. People might resent my talents and balk at my cockiness, but my talents on the field ensured a grudging respect. My arrogance allowed me to think outside the box, preventing me from being tentative and fearful. I had fucked my own mother and knocked her up. How much worse could it be throwing the ball into double coverage? Arrogance, combined with my natural talent, served me well on the football field, as well as the bedroom. It was clear I had good future ahead of me with my talents. 
 
- The best part of the getting back into football was how much Mom enjoyed watching me. My confidence in life and on the field made me a prime target for eager college girls, but my eyes were elsewhere. I already had the best, and I wasn't settling for anything less. After the games, after a hard fought victory, Mom would lead me into the bedroom and give me her post-game, motherly rubdown. She knew how to work me up, to make me ache for her. God, she fucked me so hard after that. And then seeing her after our romp in the sack, clothed in my football jersey, like the cheerleader after a night with the quarterback when she had nothing else to wear, seeing her jiggling tits dancing under the thin top... it got me back to full hardness immediately. Report_Story #17 
+ The best part of the getting back into football was how much Mom enjoyed watching me. My confidence in life and on the field made me a prime target for eager college girls, but my eyes were elsewhere. I already had the best, and I wasn't settling for anything less. After the games, after a hard fought victory, Mom would lead me into the bedroom and give me her post-game, motherly rubdown. She knew how to work me up, to make me ache for her. God, she fucked me so hard after that. And then seeing her after our romp in the sack, clothed in my football jersey, like the cheerleader after a night with the quarterback when she had nothing else to wear, seeing her jiggling tits dancing under the thin top... it got me back to full hardness immediately. 7 
 
  
 

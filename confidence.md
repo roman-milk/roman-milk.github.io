@@ -258,7 +258,7 @@
 
   Light lines was an understatement. It was just after eleven. Many people were just starting their nights. Most cabs were dropping off, so it was easy to grab one.  
 
-  I opened the door for Allison but stopped Tina before she could get in. I moved in and kissed her deeply. She melted into my arms. Sliding into the cab, I pulled her in after me so that I could be between the girls. Giving the cabbie my address, I placed a hand on each girl's thigh. Both placed their hands over mine. Report_Story #2  
+  I opened the door for Allison but stopped Tina before she could get in. I moved in and kissed her deeply. She melted into my arms. Sliding into the cab, I pulled her in after me so that I could be between the girls. Giving the cabbie my address, I placed a hand on each girl's thigh. Both placed their hands over mine.   
 
  
 
@@ -374,7 +374,7 @@
 
   "But you liked it," I said.  
 
-  She nodded. "Very much ... thank you." Report_Story #1 
+  She nodded. "Very much ... thank you."  
 
  
 
@@ -632,7 +632,7 @@
 
  Light lines was an understatement. It was just after eleven. Many people were just starting their nights. Most cabs were dropping off, so it was easy to grab one. 
 
- I opened the door for Allison but stopped Tina before she could get in. I moved in and kissed her deeply. She melted into my arms. Sliding into the cab, I pulled her in after me so that I could be between the girls. Giving the cabbie my address, I placed a hand on each girl's thigh. Both placed their hands over mine. Report_Story #2 
+ I opened the door for Allison but stopped Tina before she could get in. I moved in and kissed her deeply. She melted into my arms. Sliding into the cab, I pulled her in after me so that I could be between the girls. Giving the cabbie my address, I placed a hand on each girl's thigh. Both placed their hands over mine.  
 
  
 
@@ -746,7 +746,7 @@
 
  "But you liked it," I said. 
 
- She nodded. "Very much ... thank you." Report_Story #1  
+ She nodded. "Very much ... thank you."   
 
  
 
@@ -1110,7 +1110,7 @@
 
   "I don't know. Around when we started work I guess. 9am."  
 
-  She hadn't taken the drug. I would have seen her. I would have noticed some missing when I took it. So where did the boost of confidence come from? From me fucking her? If that was the case, then Allison would have had it too. So what was the difference? If it was the drug then what was I doing eight hours before she started work at 1am? I was fucking her. I was fucking them both. Then it hit me. I ejaculated into her mouth. Report_Story #2  
+  She hadn't taken the drug. I would have seen her. I would have noticed some missing when I took it. So where did the boost of confidence come from? From me fucking her? If that was the case, then Allison would have had it too. So what was the difference? If it was the drug then what was I doing eight hours before she started work at 1am? I was fucking her. I was fucking them both. Then it hit me. I ejaculated into her mouth.   
 
  
 
@@ -1314,7 +1314,7 @@
 
   The haze lifted and she remembered the orgasm. "Oh god. That was wonderful.  
 
-  I smiled down at her. "Slut, we're just getting started. Report_Story #1 
+  I smiled down at her. "Slut, we're just getting started.  
 
  
 
@@ -1676,7 +1676,7 @@
 
  "I don't know. Around when we started work I guess. 9am." 
 
- She hadn't taken the drug. I would have seen her. I would have noticed some missing when I took it. So where did the boost of confidence come from? From me fucking her? If that was the case, then Allison would have had it too. So what was the difference? If it was the drug then what was I doing eight hours before she started work at 1am? I was fucking her. I was fucking them both. Then it hit me. I ejaculated into her mouth. Report_Story #2 
+ She hadn't taken the drug. I would have seen her. I would have noticed some missing when I took it. So where did the boost of confidence come from? From me fucking her? If that was the case, then Allison would have had it too. So what was the difference? If it was the drug then what was I doing eight hours before she started work at 1am? I was fucking her. I was fucking them both. Then it hit me. I ejaculated into her mouth.  
 
  
 
@@ -1878,7 +1878,7 @@
 
  The haze lifted and she remembered the orgasm. "Oh god. That was wonderful. 
 
- I smiled down at her. "Slut, we're just getting started. Report_Story #1  
+ I smiled down at her. "Slut, we're just getting started.   
 
  
 
@@ -2260,7 +2260,7 @@
 
   "Yes sir," Sunita said timidly.  
 
-  What the fuck did Tina do to her in the other room? Part of me was very happy that she was still calling me Master despite her boost of confidence. This girl seemed a formidable opponent, but the cocky, confident side of me wanted her to be defiant so I could put her in her place. The drug was definitely working on her, but I still wondered why she was still submissive to me. Report_Story #2  
+  What the fuck did Tina do to her in the other room? Part of me was very happy that she was still calling me Master despite her boost of confidence. This girl seemed a formidable opponent, but the cocky, confident side of me wanted her to be defiant so I could put her in her place. The drug was definitely working on her, but I still wondered why she was still submissive to me.   
 
  
 
@@ -2470,7 +2470,7 @@
 
   "Bye."  
 
-  We kissed and then she left. I was freaking out. That was too fucking close. I needed the stuff to calm me down, and found myself rushing to the bedroom to get it. Reason prevailed as I reached for the fridge. I was about to go through sixteen hours of this. Did I really want to extend that to twenty-four? I reached for sleeping pills instead, popped a couple and dry swallowed. Took a quick piss and then jumped in bed. Would she come back? Please no. Did I lock the door? I thought so, but I was too scared to go check. I hid under the covers and prayed for sleep to take me. Thankfully it did. But, six hours later the girls were back, needy and insecure. Unfortunately, so was I. Report_Story #1 
+  We kissed and then she left. I was freaking out. That was too fucking close. I needed the stuff to calm me down, and found myself rushing to the bedroom to get it. Reason prevailed as I reached for the fridge. I was about to go through sixteen hours of this. Did I really want to extend that to twenty-four? I reached for sleeping pills instead, popped a couple and dry swallowed. Took a quick piss and then jumped in bed. Would she come back? Please no. Did I lock the door? I thought so, but I was too scared to go check. I hid under the covers and prayed for sleep to take me. Thankfully it did. But, six hours later the girls were back, needy and insecure. Unfortunately, so was I.  
 
  
 
@@ -2850,7 +2850,7 @@
 
  "Yes sir," Sunita said timidly. 
 
- What the fuck did Tina do to her in the other room? Part of me was very happy that she was still calling me Master despite her boost of confidence. This girl seemed a formidable opponent, but the cocky, confident side of me wanted her to be defiant so I could put her in her place. The drug was definitely working on her, but I still wondered why she was still submissive to me. Report_Story #2 
+ What the fuck did Tina do to her in the other room? Part of me was very happy that she was still calling me Master despite her boost of confidence. This girl seemed a formidable opponent, but the cocky, confident side of me wanted her to be defiant so I could put her in her place. The drug was definitely working on her, but I still wondered why she was still submissive to me.  
 
  
 
@@ -3058,7 +3058,7 @@
 
  "Bye." 
 
- We kissed and then she left. I was freaking out. That was too fucking close. I needed the stuff to calm me down, and found myself rushing to the bedroom to get it. Reason prevailed as I reached for the fridge. I was about to go through sixteen hours of this. Did I really want to extend that to twenty-four? I reached for sleeping pills instead, popped a couple and dry swallowed. Took a quick piss and then jumped in bed. Would she come back? Please no. Did I lock the door? I thought so, but I was too scared to go check. I hid under the covers and prayed for sleep to take me. Thankfully it did. But, six hours later the girls were back, needy and insecure. Unfortunately, so was I. Report_Story #1  
+ We kissed and then she left. I was freaking out. That was too fucking close. I needed the stuff to calm me down, and found myself rushing to the bedroom to get it. Reason prevailed as I reached for the fridge. I was about to go through sixteen hours of this. Did I really want to extend that to twenty-four? I reached for sleeping pills instead, popped a couple and dry swallowed. Took a quick piss and then jumped in bed. Would she come back? Please no. Did I lock the door? I thought so, but I was too scared to go check. I hid under the covers and prayed for sleep to take me. Thankfully it did. But, six hours later the girls were back, needy and insecure. Unfortunately, so was I.   
 
  
 
@@ -3508,7 +3508,7 @@
 
   "Leave Master alone!" she screamed.  
 
-  Sunita entered the room then, looking like she'd taken a beating similar to mine. Sanjit threw Tina from his body and turned back to me only to feel Sunita's frying pan slam into the back of his head. He dropped, unconscious. Report_Story #2  
+  Sunita entered the room then, looking like she'd taken a beating similar to mine. Sanjit threw Tina from his body and turned back to me only to feel Sunita's frying pan slam into the back of his head. He dropped, unconscious.   
 
  
 
@@ -3572,7 +3572,7 @@
 
   "Yes, Master," she said a smile coming to her face. I realized she was feeling pleasure from following my orders.  
 
-  I got back to bed and finally managed to sleep through the rest of the night. Report_Story #1 
+  I got back to bed and finally managed to sleep through the rest of the night.  
 
  
 
@@ -4020,7 +4020,7 @@
 
  "Leave Master alone!" she screamed. 
 
- Sunita entered the room then, looking like she'd taken a beating similar to mine. Sanjit threw Tina from his body and turned back to me only to feel Sunita's frying pan slam into the back of his head. He dropped, unconscious. Report_Story #2 
+ Sunita entered the room then, looking like she'd taken a beating similar to mine. Sanjit threw Tina from his body and turned back to me only to feel Sunita's frying pan slam into the back of his head. He dropped, unconscious.  
 
  
 
@@ -4082,7 +4082,7 @@
 
  "Yes, Master," she said a smile coming to her face. I realized she was feeling pleasure from following my orders. 
 
- I got back to bed and finally managed to sleep through the rest of the night. Report_Story #1  
+ I got back to bed and finally managed to sleep through the rest of the night.   
 
  
 
@@ -4480,7 +4480,7 @@
 
   "I never treated her like shit. I just didn't fuck her like other sluts."  
 
-  Report_Story #2  
+    
 
  
 
@@ -4584,7 +4584,7 @@
 
   Thanks,  
 
-  Boratus. Report_Story #1 
+  Boratus.  
 
  
 
@@ -4980,7 +4980,7 @@
 
  "I never treated her like shit. I just didn't fuck her like other sluts." 
 
- Report_Story #2 
+  
 
  
 

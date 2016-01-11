@@ -84,7 +84,7 @@
 
  The emails about guys sticking their hard cocks into her mouth, pussy and ass were really intense, because the knowledge that boys or men out in the world wanted to fuck my daughter (even if they never met her) was insanely sexy to me. 
 
- One guy wrote something that caught my eye. He had seen pictures of her, I guess, not naked ones, but something to generally know what she looked like, and he complemented that she was "fuckably cute." Hmm, I might have to agree with him about my daughter. Report_Story #2 
+ One guy wrote something that caught my eye. He had seen pictures of her, I guess, not naked ones, but something to generally know what she looked like, and he complemented that she was "fuckably cute." Hmm, I might have to agree with him about my daughter.  
 
  
 
@@ -162,7 +162,7 @@
 
  It was definitely an obsession. I was always planning when my next session in her closet would be, but trying to hide from family and office for three- or four-hour blocks is not easy to do. Someone is always looking for you! Plus, the one day of the first of those two weeks I thought I could do it, she actually wasn't going to be home in the afternoon. Instead, I wound up at the office while she was at home, undoubtedly nude and finger-fucking herself to death while giving out her private phone line number to any big cock she met on the Internet. 
 
- Daddy's obsession made me do one, stupid thing, although risk-free to myself. I should have thought about it, you know, but I was horny for her, that's all I can say. Knowing she had a secret yahoo email address, I kept wondering if I could contact her, anonymously. For days and days I put the idea out of mind, but one day at the office, horny and dreaming of her, it just happened. I made up this phony hotmail email account, some generic name. Then, I sent her one email, something I'd been rolling around in my head for a week. "You are a goddess and if I don't get to fuck you in real life, then I think I'm going to have to die an unhappy man!" Without thinking, I just hit "send." It felt good, to reach out to her, but of course, she'd have no clue who sent it. Report_Story #3 
+ Daddy's obsession made me do one, stupid thing, although risk-free to myself. I should have thought about it, you know, but I was horny for her, that's all I can say. Knowing she had a secret yahoo email address, I kept wondering if I could contact her, anonymously. For days and days I put the idea out of mind, but one day at the office, horny and dreaming of her, it just happened. I made up this phony hotmail email account, some generic name. Then, I sent her one email, something I'd been rolling around in my head for a week. "You are a goddess and if I don't get to fuck you in real life, then I think I'm going to have to die an unhappy man!" Without thinking, I just hit "send." It felt good, to reach out to her, but of course, she'd have no clue who sent it.  
 
  
 
@@ -238,7 +238,7 @@
 
  Then, to my much-anticipated delight, I hit the jackpot. Foxanna leaned up and sat on her little butt, her face dripping with the juices from Vanessa's cunt, while the naked stud pulled his penis out of my daughter's gaping mouth. The blonde crawled around to lay on her side parallel to Vanessa, while the male moved between Vanessa's legs. Vanessa was going to get fucked! She was going to get cock! It's exactly what she needed, and what I wanted for her, and I adored that I would get to see this. I hated myself for it too, but that's for another day. Vanessa kept her fleshy, creamy legs parted, her hands on the stud's thick wide hips, guiding him into place. Foxanna watched intently. I saw the stud's almost fat, meaty ass, not very hairy, moving over Vanessa's pelvis, and her nude legs and feet rose up from either side of him. I couldn't see IT, but, for now, I didn't need to. 
 
- Vanessa screamed. The stud moaned. Foxanna's eyes grew. His ass rammed forward, my daughter's eyes closed, and she was getting fucked, that long cock was now entering her pussy. I was so fucking hot, I pumped my unfathomably painful erection, and it only took about four strokes to start cumming, and I mean, cumming HARD. I'd brought a towel for the occasion, and I quickly remembered to hold it in front of my penis just at the last possible moment, catching my shooting sperm. Report_Story #4 
+ Vanessa screamed. The stud moaned. Foxanna's eyes grew. His ass rammed forward, my daughter's eyes closed, and she was getting fucked, that long cock was now entering her pussy. I was so fucking hot, I pumped my unfathomably painful erection, and it only took about four strokes to start cumming, and I mean, cumming HARD. I'd brought a towel for the occasion, and I quickly remembered to hold it in front of my penis just at the last possible moment, catching my shooting sperm.  
 
  
 
@@ -346,7 +346,7 @@
 
  Vanessa ignored the comment, instead looking off at Foxanna's tits and pussy. "Mmm, take me with you," my horny daughter moaned, then she leaned forward. I watched her kiss the blonde, Vanessa moving onto her knees bending forward while pushing her face into Foxanna's. With tongues again entwined, Foxanna spread her thighs and Vanessa slipped her fingers to the blonde's twat. The experienced twat-fucking fingers rubbed the blonde's clit but then dove for the hole, and Vanessa rammed two digits into the other girl's pussy while they made out, the blonde lying on her back. 
 
- Daddy was jerking off, although my cock felt spent. It was just so fucking hot I couldn't help myself. I'd only had one cum, but my balls ached and it felt like I was never going to cum again. I was so hard for all of this fucking, I had broken my dick, I think. It felt that way. Report_Story #5 
+ Daddy was jerking off, although my cock felt spent. It was just so fucking hot I couldn't help myself. I'd only had one cum, but my balls ached and it felt like I was never going to cum again. I was so hard for all of this fucking, I had broken my dick, I think. It felt that way.  
 
  
 

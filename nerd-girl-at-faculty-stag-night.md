@@ -314,7 +314,7 @@
 
  "Hey, back the fuck off Roger," warned Martin. 
 
- "Please, allow me a minute Demarest. Just look at this girl! She has the body of a goddess, yet she tries to hide behind herself like a frightened pup. It's a God-damned shame!" Roger stepped up behind her. Jill cowered. "Stand up straight, my dear, yes that's right. Shoulders back, chest out... oh my yes. Gentlemen, please take your seats, before we do anything we need to teach this young woman some confidence. James, my man, would you grab that mirror over there and put in front of the TV, yes that's the stuff." Report_Story #2 
+ "Please, allow me a minute Demarest. Just look at this girl! She has the body of a goddess, yet she tries to hide behind herself like a frightened pup. It's a God-damned shame!" Roger stepped up behind her. Jill cowered. "Stand up straight, my dear, yes that's right. Shoulders back, chest out... oh my yes. Gentlemen, please take your seats, before we do anything we need to teach this young woman some confidence. James, my man, would you grab that mirror over there and put in front of the TV, yes that's the stuff."  
 
  
 
@@ -496,7 +496,7 @@
 
  "You buncha pussies," said Roger as he got between Jill's thighs again. "What the hell were you expecting?" he lined up is cock and ran it into her down to his balls in one wicked push. 
 
- "Aiiiie!" squealed Jill as the helmet of his cock slammed against her cervix. "Too deep. Too deep!" Report_Story #3 
+ "Aiiiie!" squealed Jill as the helmet of his cock slammed against her cervix. "Too deep. Too deep!"  
 
  
 

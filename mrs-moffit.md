@@ -166,7 +166,7 @@
 
  For the next several minutes I teased, played with and explored this high- school Goddess. I let my fingers enter her, up to three at a time. I used my tongue as another digit, penetrating as far as I could. I savored every moment, every feel every taste. 
 
- But eventually this was not enough. My cock ached, and I wanted to bury myself inside her. I climbed off my lovely toy, and carefully rolled her onto her back. Her eyes were wide open, watching me openly, almost curiously. She didn't say a word, just slid back into the middle of the bed. Her large breasts settled to the side, her nipples large, dark brown, and topped by hard little nubs. Report_Story #2 
+ But eventually this was not enough. My cock ached, and I wanted to bury myself inside her. I climbed off my lovely toy, and carefully rolled her onto her back. Her eyes were wide open, watching me openly, almost curiously. She didn't say a word, just slid back into the middle of the bed. Her large breasts settled to the side, her nipples large, dark brown, and topped by hard little nubs.  
 
  
 

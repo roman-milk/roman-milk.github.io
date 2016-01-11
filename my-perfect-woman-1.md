@@ -282,7 +282,7 @@
 
  "I've been waiting for this since our first date so come on baby and ring my chimes." 
 
- We made love for a good fifteen minutes before I had to let loose and I started to pull out and she said: Report_Story #2 
+ We made love for a good fifteen minutes before I had to let loose and I started to pull out and she said:  
 
  
 
@@ -520,7 +520,7 @@
 
  "I had stuff on it that I need." 
 
- "I'll go through it and pull your stuff off of it and send it to you." Report_Story #3 
+ "I'll go through it and pull your stuff off of it and send it to you."  
 
  
 

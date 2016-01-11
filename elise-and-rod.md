@@ -222,7 +222,7 @@
 
  +++++ 
 
- When we walked in the door I spotted Rod sitting at the end of the bar. We found a table and I ordered drinks and then Elise and I danced a couple of dances together. Elise got up to go to the bathroom and on the way back to the table a guy stopped her and asked her for a dance. Then he walked her to his table and introduced her to two of his friends and then all three of them danced with her. When she got back to the table she giggled and said, "I have at least three to choose from." Report_Story #2 
+ When we walked in the door I spotted Rod sitting at the end of the bar. We found a table and I ordered drinks and then Elise and I danced a couple of dances together. Elise got up to go to the bathroom and on the way back to the table a guy stopped her and asked her for a dance. Then he walked her to his table and introduced her to two of his friends and then all three of them danced with her. When she got back to the table she giggled and said, "I have at least three to choose from."  
 
  
 

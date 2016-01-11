@@ -368,7 +368,7 @@
 
  I stammered, already addicted, "Y-y-yes." 
 
- I licked slowly up and down on her vagina pussy lips, trying to please her and savor her unique and addictive taste. After a couple of minutes, I concentrated on her clit which made her legs tremble and she let out a loud moan. Report_Story #2 
+ I licked slowly up and down on her vagina pussy lips, trying to please her and savor her unique and addictive taste. After a couple of minutes, I concentrated on her clit which made her legs tremble and she let out a loud moan.  
 
  
 
@@ -708,7 +708,7 @@
 
  "But if you submit to me tonight, I will expect you to be my submissive. If you agree, you must obey every order I give without hesitation. I do not tolerate disobedience. I know what you need and crave, but I expect unconditional loyalty in return."I explained, my finger touching, ever so briefly, her g- spot. Her legs trembled and I added, assuming her true submissive nature would take over, "If you do not want to submit to me, if you are not ready to agree to my terms, you may leave. We will pretend this never happened, I will still pay you for the night and you will be free to continue to babysit Max if you are comfortable with knowing what you now know." 
 
- Her mind was clearly processing all my terms, all my words and all the things I was doing to her body. If there was an internal struggle between good girl Jenny and sexually curious Jenny it was a short one. Report_Story #3 
+ Her mind was clearly processing all my terms, all my words and all the things I was doing to her body. If there was an internal struggle between good girl Jenny and sexually curious Jenny it was a short one.  
 
  
 
@@ -880,7 +880,7 @@
 
  My head spinning with naughty possibilities, I smiled to myself. 'Tomorrow was going to be fun'.... 
 
- THE END... Report_Story #1 
+ THE END...  
 
  
 
@@ -1142,7 +1142,7 @@
 
  Karen continued, "I am failing that class, me and numbers don't really go well together." She paused before continuing, "You look really different all dressed up, I kind of thought of you more as a..." 
 
- Karen contemplated the right word choice when I stepped in and said, "Geek?" Report_Story #2 
+ Karen contemplated the right word choice when I stepped in and said, "Geek?"  
 
  
 
@@ -1518,7 +1518,7 @@
 
  A small Asian girl entered the bathroom and walked right behind Jenny. She was so tiny, not even five feet tall. Jenny looked at her, and the Asian instantly put her head down. A minute later Rosie screamed, "Finger fuck me you blonde dyke." 
 
- A pair of drunk girls, probably in their thirties, walked into the bathroom. One jumped on the sink counter and pulled up her skirt and expertly, especially considering how drunk she was, pulled off her panties and tossed them to her friend. The friend pulled out a toy from her purse and shoved it into her friend's cunt. As I watched this another young girl lined up behind Report_Story #3 
+ A pair of drunk girls, probably in their thirties, walked into the bathroom. One jumped on the sink counter and pulled up her skirt and expertly, especially considering how drunk she was, pulled off her panties and tossed them to her friend. The friend pulled out a toy from her purse and shoved it into her friend's cunt. As I watched this another young girl lined up behind  
 
  
 
@@ -1618,7 +1618,7 @@
 
  
 
- Feel free to leave comments and/or email me your thoughts of the story so far. It was those comments from part one that had me quit working on my other stories and spend every free moment writing this sequel. Report_Story #1 
+ Feel free to leave comments and/or email me your thoughts of the story so far. It was those comments from part one that had me quit working on my other stories and spend every free moment writing this sequel.  
 
  
 
@@ -1898,7 +1898,7 @@
 
  She hit the speed-dial and after a few seconds she said, "Hi Karen, it is Mistress Megan." After a couple of seconds she continued, "Neither you nor Jenny are allowed to have an orgasm until I see you two together Tuesday evening, is that understood?" A second later she said, "Goodbye slut," and handed me back the phone. She then finished, "Don't worry my sweet, I won't touch myself until then too." She walked over kissed me sweetly one last time and said, "You better get going home. You have school tomorrow." 
 
- "Yes, Mistress Megan," I said, and feeling and depressed, left and returned home. Report_Story #2 
+ "Yes, Mistress Megan," I said, and feeling and depressed, left and returned home.  
 
  
 
@@ -2142,7 +2142,7 @@
 
  "We may just have to have you seduce her," Karen concluded as we headed for the gym. Others quickly joined us, so the conversation would have to wait. The next two hours were insane. I had never put a second of thought into what cheerleaders do. I had never considered them athletes or skilled, but after watching one practice, my whole respect for them changed. 
 
- My whole body ached fifteen minutes in and that was just from the stretching. Miss Hopkins, the cheerleading coach, was a slave driver and a complete bitch. She was a perfectly fit, black woman, in her early thirties I would guess, who was pretty much Sue from Glee if you have ever watched it. She yelled, she criticized, and she humiliated all of us. Sweat poured off my whole body by the time the workout was done. The last hour was cheer after cheer and dance move after dance move. I learned I had no memory for the cheers, but I actually caught on to the dances pretty quickly. When practice ended, I was pleasantly surprised to get what I assume passes as a compliment in Miss Hopkins world as she said, "Jenny, you don't suck as much as I assumed you would." Report_Story #3 
+ My whole body ached fifteen minutes in and that was just from the stretching. Miss Hopkins, the cheerleading coach, was a slave driver and a complete bitch. She was a perfectly fit, black woman, in her early thirties I would guess, who was pretty much Sue from Glee if you have ever watched it. She yelled, she criticized, and she humiliated all of us. Sweat poured off my whole body by the time the workout was done. The last hour was cheer after cheer and dance move after dance move. I learned I had no memory for the cheers, but I actually caught on to the dances pretty quickly. When practice ended, I was pleasantly surprised to get what I assume passes as a compliment in Miss Hopkins world as she said, "Jenny, you don't suck as much as I assumed you would."  
 
  
 
@@ -2578,7 +2578,7 @@
 
  "Good," I said. 
 
- "Care to expand?" she asked, taking a sip from her wine. Report_Story #4 
+ "Care to expand?" she asked, taking a sip from her wine.  
 
  
 
@@ -2830,7 +2830,7 @@
 
  Practice number three was another exhausting workout, but again I felt less tired than I had the day before. Karen drove me home again and then invited herself in. My Mom was in the kitchen making supper and Karen walked up and gave my Mom a kiss on both cheeks. Karen then said, "Mrs. Wyatt you look amazing today." 
 
- Report_Story #5 
+  
 
  
 
@@ -3142,7 +3142,7 @@
 
  Subinstockings: Yes anything. 
 
- Wanda87: I am new at this. Can you give me an example? Report_Story #6 
+ Wanda87: I am new at this. Can you give me an example?  
 
  
 
@@ -3488,7 +3488,7 @@
 
  "Yes, Mistress Jenny," she said. 
 
- I held the plug, and watched as this chunky bitch, the bitch that had always been so much better than everyone else, obeyed my command and began to bounce back on the plug. Her moaning got louder as she continued to allow the plug to fill her as deeper and deeper. Then finally she screamed as she reached orgasmic bliss from the humiliating debauchery. Report_Story #7 
+ I held the plug, and watched as this chunky bitch, the bitch that had always been so much better than everyone else, obeyed my command and began to bounce back on the plug. Her moaning got louder as she continued to allow the plug to fill her as deeper and deeper. Then finally she screamed as she reached orgasmic bliss from the humiliating debauchery.  
 
  
 
@@ -3692,7 +3692,7 @@
 
  Oddly, I went to bed thinking about Ashley even as I attempted to finish my seduction of Miss Morgan. I tried to forget about Ashley, about how good it felt to be in her arms, but the feeling of warmth still filled me with joy. The confusing emotions had my mind reeling and I was an emotional mess. I loved being Megan's slave, I enjoyed being Karen's slut, and I was enjoying and looking forward to finishing my seduction of Miss Morgan...yet, as I drifted to sleep all I could think of was Ashley. Ashley's body, Ashley's smile and how I felt when her arms were around me. As I faded into sleep I wondered, had this whole week of submission and seduction ended with me falling in love? 
 
- THE END...for now... Report_Story #1 
+ THE END...for now...  
 
  
 
@@ -3882,7 +3882,7 @@
 
  "I will have to buy some then," she replied, her breath already anticipating my tongue. 
 
- Once I had her pantyhose off, I slowly removed her pink undies. I returned between her legs, eager to taste her. Her pussy was not shaved nor really hairy, just natural. I buried my head between her legs. Her legs stiffened, anticipating my touch, but I teased, "Miss Morgan, can I eat your pussy?" Report_Story #2 
+ Once I had her pantyhose off, I slowly removed her pink undies. I returned between her legs, eager to taste her. Her pussy was not shaved nor really hairy, just natural. I buried my head between her legs. Her legs stiffened, anticipating my touch, but I teased, "Miss Morgan, can I eat your pussy?"  
 
  
 
@@ -4014,7 +4014,7 @@
 
  Mom broke eye contact with me and began.... 
 
- The End for now... Report_Story #1 
+ The End for now...  
 
  
 
@@ -4252,7 +4252,7 @@
 
  Instantly in Mother-crisis mode, I ordered, "Here, hand it to me. I'll throw it in the wash." 
 
- She quickly obeyed and stunned me even more when I learned she was not wearing a bra and her young, firm breasts were directly in front of me. I stood still in a slight daze, staring at her breasts. Karen asked, her tone innocent and sweet, "Is anything wrong, Mrs. Wyatt?" Report_Story #2 
+ She quickly obeyed and stunned me even more when I learned she was not wearing a bra and her young, firm breasts were directly in front of me. I stood still in a slight daze, staring at her breasts. Karen asked, her tone innocent and sweet, "Is anything wrong, Mrs. Wyatt?"  
 
  
 
@@ -4460,7 +4460,7 @@
 
  The end.... 
 
- Coming in 2012...and coming in more ways than one...Jenny's date.... Report_Story #1 
+ Coming in 2012...and coming in more ways than one...Jenny's date....  
 
  
 
@@ -4776,7 +4776,7 @@
 
  The next hour and half, give or take, was the simplest and most amazing of my life. Everything just made sense. We watched the movie, both of us content to just be together with our declarations and the indescribable warmth that goes with it. Neither of us ever touched the popcorn again, neither of us willing to let go to the security that went with just holding hands. 
 
- As the credits inevitably ended, I felt a wave of disappointment, not because the movie was done, but because our first date, this small ripple of perfect time was ending. Real life was so much more complicated than any one small moment of bliss that always ended. Instantly, even as we both sat quietly as the credits rolled, I wondered: now what? Report_Story #2 
+ As the credits inevitably ended, I felt a wave of disappointment, not because the movie was done, but because our first date, this small ripple of perfect time was ending. Real life was so much more complicated than any one small moment of bliss that always ended. Instantly, even as we both sat quietly as the credits rolled, I wondered: now what?  
 
  
 
@@ -4928,7 +4928,7 @@
 
  If you like one of the above ideas, or have your own idea please leave me a note here...as I originally planned to have this be the happily ever after last part. 
 
- Thanks for your support, comments and votes for this and every other story of mine. Report_Story #1 
+ Thanks for your support, comments and votes for this and every other story of mine.  
 
  
 
@@ -5252,7 +5252,7 @@
 
  "Yes, ma'am," she nodded, going behind the Governor, unzipping her and then assisting in allowing the dress to slither down the Governor's body and slowly to the floor. 
 
- Not surprisingly, the Governor had voluptuous breasts and my mouth watered with anticipation at the thought of sucking on them. She was also wearing a blue thong and thigh highs herself. Report_Story #2 
+ Not surprisingly, the Governor had voluptuous breasts and my mouth watered with anticipation at the thought of sucking on them. She was also wearing a blue thong and thigh highs herself.  
 
  
 
@@ -5592,7 +5592,7 @@
 
  I watched as Ashley walked around the corner and said not in a yell, but close to it, "You will leave Jenny alone." 
 
- I couldn't see Sabrina's facial reaction, but did hear it. "Fuck you, Ashley." Report_Story #3 
+ I couldn't see Sabrina's facial reaction, but did hear it. "Fuck you, Ashley."  
 
  
 
@@ -6034,7 +6034,7 @@
 
  "Good, then I will do just that," she said. 
 
- "What is that?" I asked playfully once we were in the car. Report_Story #4 
+ "What is that?" I asked playfully once we were in the car.  
 
  
 
@@ -6060,7 +6060,7 @@
 
  The rest of the craziness...that would have to wait. 
 
- The end...for now? Report_Story #1 
+ The end...for now?  
 
  
 
@@ -6444,7 +6444,7 @@
 
  "You'll be there?" I asked, as Ashley stared at Megan in a complete state of arousal. 
 
- "Of course," she nodded, walking over to me. "The Governor's parties are legendary." She leaned in and kissed me too. Then she broke the kiss she said, "Now, go. The Governor does not appreciate tardiness." Report_Story #2 
+ "Of course," she nodded, walking over to me. "The Governor's parties are legendary." She leaned in and kissed me too. Then she broke the kiss she said, "Now, go. The Governor does not appreciate tardiness."  
 
  
 
@@ -6904,7 +6904,7 @@
 
  "Yes," we nodded in unison. 
 
- "Okay," she nodded, as she went back up to the microphone and said, "Ladies, we have one last surprise auction and it is a great one. A buy one submissive, get a second submissive free deal." After a pause, she continued, "My two maids tonight, two young eighteen year old high school students who are just beginning to explore their true sexuality, have willingly offered to be a pair of submissives to the highest bidder." Report_Story #3 
+ "Okay," she nodded, as she went back up to the microphone and said, "Ladies, we have one last surprise auction and it is a great one. A buy one submissive, get a second submissive free deal." After a pause, she continued, "My two maids tonight, two young eighteen year old high school students who are just beginning to explore their true sexuality, have willingly offered to be a pair of submissives to the highest bidder."  
 
  
 

@@ -140,7 +140,7 @@
 
  Then Lady Annabelle noticed her husband's proximity, spotting him from the corner of an eye. "James," she croaked, her chin slick with Mark's pre-cum. "Look at you, darling," she added, gasping, her mouth falling open with surprise. "Yes, baby," she continued, a hand working at Mark, her pussy squelching around Jonathon's cock as she moved up and down, slowly, languidly working her magic on the young man beneath her. "Wank that thing and watch me fuck these boys." Lady Annabelle did the champagne cork trick with her lips again, her cheeks concave as she sucked at the big, purple dome of Mark's cock- head, the thing popping from between her pursed lips. "Is it good, James? Does it get you hot to see me with them?" 
 
- "Annabelle," grunted James, his head lolling as he gasped and moaned, fist jacking away. "You're perfect as a stocking MILF. Jesus, baby, you look so bloody sexy dressed like that." Report_Story #2 
+ "Annabelle," grunted James, his head lolling as he gasped and moaned, fist jacking away. "You're perfect as a stocking MILF. Jesus, baby, you look so bloody sexy dressed like that."  
 
  
 

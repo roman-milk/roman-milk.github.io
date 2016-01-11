@@ -200,7 +200,7 @@
 
  "Fuck," she mumbles, chewing her bottom lip, fingers going hard at tender flesh. 
 
- Amy mewls, gasping back on the sound, her head swivelling like a nervous meerkat's when she remembers just where she is and how many people are gathered about. Report_Story #2 
+ Amy mewls, gasping back on the sound, her head swivelling like a nervous meerkat's when she remembers just where she is and how many people are gathered about.  
 
  
 
@@ -464,7 +464,7 @@
 
  And wouldn't that be one for the journalist and her photographer -- him naked and hard, dead on the sofa with his dick in his hands. 
 
- But, he reasons, if this got out into the public domain his embryonic political future could be ruined. So he watches Amy carefully, his brain registering every flicker on her face. He studies her, intently analysing every flicker, every nuance, deciding on the best course of action in dealing with the time- bomb ticking away. Report_Story #3 
+ But, he reasons, if this got out into the public domain his embryonic political future could be ruined. So he watches Amy carefully, his brain registering every flicker on her face. He studies her, intently analysing every flicker, every nuance, deciding on the best course of action in dealing with the time- bomb ticking away.  
 
  
 
@@ -754,7 +754,7 @@
 
  "Soon," Amy gasps. She's not looking at her mother any more, her eyes are squeezed tight, her head is lolling and long hair from her blonde ponytail brushes my face as Amy gets up steam. "You can have him soon, mum." 
 
- So it goes on, this fantastic event, a mother-daughter thing that crept up and caught me entirely unawares. It must be the same for the women? They both have to be as surprised as I am -- surely? But it doesn't stop them: Amy is going for it, and the robust way she's getting herself there is very close to working on me, too. Report_Story #4 
+ So it goes on, this fantastic event, a mother-daughter thing that crept up and caught me entirely unawares. It must be the same for the women? They both have to be as surprised as I am -- surely? But it doesn't stop them: Amy is going for it, and the robust way she's getting herself there is very close to working on me, too.  
 
  
 

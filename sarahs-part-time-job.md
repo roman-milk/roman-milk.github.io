@@ -238,7 +238,7 @@
 
  "What about unemployment insurance? He getting enough to at least make the house payment?" 
 
- "He hasn't gotten any yet. When I ask him about it he says there is a problem with the paperwork and he is trying to straighten it out. We are two months behind on the house now and I guess I'll have to resign myself to the fact that we are going to lose it." Report_Story #2 
+ "He hasn't gotten any yet. When I ask him about it he says there is a problem with the paperwork and he is trying to straighten it out. We are two months behind on the house now and I guess I'll have to resign myself to the fact that we are going to lose it."  
 
  
 
@@ -486,7 +486,7 @@
 
  "Yes I do." 
 
- "Well, I don't want you to do it. After last night I want to keep you for myself. I'll make you a deal. I'll give you thirty-five hundred a month to be my mistress. For that I get one full night every two weeks and at least twice a week you can tell your husband you are stopping for drinks after work and we will come here. I might even put a couch in the office so as not to waste the time it takes to come here." Report_Story #3 
+ "Well, I don't want you to do it. After last night I want to keep you for myself. I'll make you a deal. I'll give you thirty-five hundred a month to be my mistress. For that I get one full night every two weeks and at least twice a week you can tell your husband you are stopping for drinks after work and we will come here. I might even put a couch in the office so as not to waste the time it takes to come here."  
 
  
 

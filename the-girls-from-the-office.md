@@ -198,7 +198,7 @@
 
  It took her a couple of minutes to get me up again and then she got up off the floor and climbed over me. She used her right hand to hold my cock erect as she impaled herself on me and then started to fuck me. Her hands were on my shoulders to brace herself as she rode up and down on my dick. She was making a noise - not moaning, not crying - more like a low wail. It sounded like, "Please, please, please, please" but it was so low that I couldn't be sure. 
 
- Ginny's body shook and she made all the noises that I remembered meant that she had orgasmed, but she kept riding my cock. I don't know if she was trying to get me off or give herself another climax, but I was close and so I wrapped my arms around her and rolled putting Ginny on her back and then I fucked her hard. She began to moan and groan and I knew she was having another orgasm and I slammed herd into her and had mine. Report_Story #2 
+ Ginny's body shook and she made all the noises that I remembered meant that she had orgasmed, but she kept riding my cock. I don't know if she was trying to get me off or give herself another climax, but I was close and so I wrapped my arms around her and rolled putting Ginny on her back and then I fucked her hard. She began to moan and groan and I knew she was having another orgasm and I slammed herd into her and had mine.  
 
  
 

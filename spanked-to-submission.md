@@ -156,7 +156,7 @@
 
  Desperate not to anger her any more, I again attempted to reason with her, "Ms. Audree, I didn't even see 'open after 4:30' until after I had read the letter." 
 
- She shrugged her shoulders and said flippantly, "You didn't follow a direct instruction. What kind of person would I be if I let such clear disregard for orders be ignored?" I remained silent and powerless to this young black girl. Audree confidently walked to the door, announcing as she left, "I will see you in a little while, to deal with your discipline and training. I expect no more of this silly back-talk." Before I had a chance to respond, she gave a smug laugh and walked out the door. Report_Story #2 
+ She shrugged her shoulders and said flippantly, "You didn't follow a direct instruction. What kind of person would I be if I let such clear disregard for orders be ignored?" I remained silent and powerless to this young black girl. Audree confidently walked to the door, announcing as she left, "I will see you in a little while, to deal with your discipline and training. I expect no more of this silly back-talk." Before I had a chance to respond, she gave a smug laugh and walked out the door.  
 
  
 
@@ -298,7 +298,7 @@
 
  The older woman gave me a look of contempt, "Follow me, princess." 
 
- I held my anger in check as I was led into a room down the hall. I was told to remove my clothes and asked if I would like some herbal tea; which she suggested would help me relax. I agreed that some tea would be very nice and hoped it would release the tension and stress my whole body currently felt. She closed the door and left. I stood there for a couple of minutes trying to find a way out of this awkward situation. Seeing none, I began to undress. From the walls, I began to hear soothing music, which instantly relaxed me as I finished taking off my clothes. I stood in my panties and bra when the older woman returned with my tea. She looked me over thoroughly before suggesting I should undress all the way, otherwise I would only anger Brenda even more. After she shut the door, I sipped the tea and finished undressing. Standing naked in the strange room was incomprehensible. How had I come to this moment? Report_Story #3 
+ I held my anger in check as I was led into a room down the hall. I was told to remove my clothes and asked if I would like some herbal tea; which she suggested would help me relax. I agreed that some tea would be very nice and hoped it would release the tension and stress my whole body currently felt. She closed the door and left. I stood there for a couple of minutes trying to find a way out of this awkward situation. Seeing none, I began to undress. From the walls, I began to hear soothing music, which instantly relaxed me as I finished taking off my clothes. I stood in my panties and bra when the older woman returned with my tea. She looked me over thoroughly before suggesting I should undress all the way, otherwise I would only anger Brenda even more. After she shut the door, I sipped the tea and finished undressing. Standing naked in the strange room was incomprehensible. How had I come to this moment?  
 
  
 
@@ -450,7 +450,7 @@
 
  Yet, today I wanted to do it; actually more accurately I needed to do it. But I sure didn't want to let on to Ms. Audree that I was not in control of my sexual emotions and desires. I could not let her know that the thought of her touching me made me so horny I couldn't think straight. 
 
- So as I returned to my desk, Ms. Audree snapped her fingers and pointed to my desk. This time, my attire was more convenient for both easy access and quicker recovery. Same as yesterday, I hopped up onto my desk, a little more confident and a little less embarrassed than yesterday. Without instruction this time, I pulled up my dress and spread my stocking covered legs to present my shaved pussy to Ms. Audree. Report_Story #4 
+ So as I returned to my desk, Ms. Audree snapped her fingers and pointed to my desk. This time, my attire was more convenient for both easy access and quicker recovery. Same as yesterday, I hopped up onto my desk, a little more confident and a little less embarrassed than yesterday. Without instruction this time, I pulled up my dress and spread my stocking covered legs to present my shaved pussy to Ms. Audree.  
 
  
 
@@ -650,7 +650,7 @@
 
  "Yes, ma'am." 
 
- She walked back to her desk, grabbed a banana and handed it to me. My pussy knew what she intended it for. My brain did not. I just stared at it for some time, both disgusted and excited. Finally and without any further direction, I slid it into my vagina. I let out a moan of pleasure as I began fucking myself. I closed my eyes to avoid the humiliation of seeing the black beauty watching me. I felt her hands on my ass as she returned to my ear. As I continued fucking myself, Tiara kept squeezing my ass while also biting, nibbling and licking my ear. Then she called me names. Report_Story #5 
+ She walked back to her desk, grabbed a banana and handed it to me. My pussy knew what she intended it for. My brain did not. I just stared at it for some time, both disgusted and excited. Finally and without any further direction, I slid it into my vagina. I let out a moan of pleasure as I began fucking myself. I closed my eyes to avoid the humiliation of seeing the black beauty watching me. I felt her hands on my ass as she returned to my ear. As I continued fucking myself, Tiara kept squeezing my ass while also biting, nibbling and licking my ear. Then she called me names.  
 
  
 
@@ -782,7 +782,7 @@
 
  11. THE QUESTIONNAIRE 
 
- I went back to work Tuesday in a new wardrobe. I wore a new skirt I bought, that had a generous slip on the side if at the right angle, and black pantyhose as the slip would reveal too much potentially. I also had a meeting with the CEO about the summer campaign. Report_Story #6 
+ I went back to work Tuesday in a new wardrobe. I wore a new skirt I bought, that had a generous slip on the side if at the right angle, and black pantyhose as the slip would reveal too much potentially. I also had a meeting with the CEO about the summer campaign.  
 
  
 
@@ -984,7 +984,7 @@
 
  As time wound down to 5 p.m., I was a lot more anxious for my spanking today, I couldn't believe it, but my body showed obvious signs of excitement for the upcoming humiliation. My pussy was wet and begging for attention, but I refused to fan the flames of my desire. I just needed to get the spanking over with, so I could get to my weekend, a weekend I planned to spend at home doing absolutely nothing, but relax. 
 
- A little after 5, Ms. Audree entered my office and locked the door. She walked over to my loveseat and patted her stocking covered legs. She was dressed in a blue skirt, beige nylons, a pink shirt and a black vest. I approached her and without a single word, or a single protest, I lay across her knees. I could feel juice leaking out of my pussy as I lay over my 18-year-old black assistant. She lifted up my dress and still without one word being said she began to spank me. After about ten swats to each cheek, I was tearing up; at fifteen on each cheek I was crying, which is when it was supposed to end, but today she kept spanking me. Tears rained down my cheeks while she continued spanking me; my ass cheeks burning. During the last ten, punishment for an earlier moment of disobedience, incomprehensibly I started to feel even more aroused, and squeezed my legs together as tight as possible, to try to prevent Ms. Audree from becoming aware of my odd arousal. The last ten seemed to last forever as she would spank me and wait ten or twenty seconds, just long enough for me to begin to think she was done, and then add another. Even worse, I could not control my excitement and I started to leak onto Ms. Audree's leg. I felt ashamed and humiliated, getting spanked was degrading enough, but getting turned on by it was unsettling. When she finally finished, she still had not said one word. She continued to hold onto me with her one arm and started to rub my very red behind. Again, her touching me sent sparks to my pussy, and my legs spread on their own as more of my juices ran onto her leg. Her hand slid down between my ass cheeks and started to rub my outer lips, which made me let out a long low moan. She continued to stroke the fire between my legs, ever so slightly delving deeper into my pussy. I was being lifted to new heights from her gentle tender fingers, the same ones that were just spanking my ass a short time ago. I was completely losing all control as Ms. Audree's fingers were playing me like an instrument. Finally, Ms. Audree spoke, "Annie-girl, do you want me to stop or should I continue and finish what I started?" Report_Story #7 
+ A little after 5, Ms. Audree entered my office and locked the door. She walked over to my loveseat and patted her stocking covered legs. She was dressed in a blue skirt, beige nylons, a pink shirt and a black vest. I approached her and without a single word, or a single protest, I lay across her knees. I could feel juice leaking out of my pussy as I lay over my 18-year-old black assistant. She lifted up my dress and still without one word being said she began to spank me. After about ten swats to each cheek, I was tearing up; at fifteen on each cheek I was crying, which is when it was supposed to end, but today she kept spanking me. Tears rained down my cheeks while she continued spanking me; my ass cheeks burning. During the last ten, punishment for an earlier moment of disobedience, incomprehensibly I started to feel even more aroused, and squeezed my legs together as tight as possible, to try to prevent Ms. Audree from becoming aware of my odd arousal. The last ten seemed to last forever as she would spank me and wait ten or twenty seconds, just long enough for me to begin to think she was done, and then add another. Even worse, I could not control my excitement and I started to leak onto Ms. Audree's leg. I felt ashamed and humiliated, getting spanked was degrading enough, but getting turned on by it was unsettling. When she finally finished, she still had not said one word. She continued to hold onto me with her one arm and started to rub my very red behind. Again, her touching me sent sparks to my pussy, and my legs spread on their own as more of my juices ran onto her leg. Her hand slid down between my ass cheeks and started to rub my outer lips, which made me let out a long low moan. She continued to stroke the fire between my legs, ever so slightly delving deeper into my pussy. I was being lifted to new heights from her gentle tender fingers, the same ones that were just spanking my ass a short time ago. I was completely losing all control as Ms. Audree's fingers were playing me like an instrument. Finally, Ms. Audree spoke, "Annie-girl, do you want me to stop or should I continue and finish what I started?"  
 
  
 
@@ -1142,7 +1142,7 @@
 
  MY Annie-girl, 
 
- On the desk you will find the clothes and shoes you will wear home tonight. There are no panties or bra for you to wear and that is how I expect you to be the entire weekend, no matter where you go, you will not be wearing either. And when at home, you will be naked at all times; of course, except if you have company which I doubt you would have anyway. One last thing, you will wear the heels at all times. Have a great weekend!! Report_Story #8 
+ On the desk you will find the clothes and shoes you will wear home tonight. There are no panties or bra for you to wear and that is how I expect you to be the entire weekend, no matter where you go, you will not be wearing either. And when at home, you will be naked at all times; of course, except if you have company which I doubt you would have anyway. One last thing, you will wear the heels at all times. Have a great weekend!!  
 
  
 
@@ -1390,7 +1390,7 @@
 
  "1, come my Annie-girl whore," she ordered and shocked me as her finger penetrated my ass, just when I started coming. The violation of my ass and the shudder of pain actually made me come harder. I knew I had became even more her slave. She finger-fucked my ass the whole time my orgasm filled me, "That's it Annie-girl, come for your black Mistress." 
 
- When my orgasm was done, she pulled her finger out of my ass and spun me around, dangling her finger in front of me, the way someone would put a carrot in front of a bunny. Then, without even thinking, my mouth opened and I obediently took her finger, that was just in my ass in my mouth. The taste was awful and my humiliation was now officially complete. Report_Story #9 
+ When my orgasm was done, she pulled her finger out of my ass and spun me around, dangling her finger in front of me, the way someone would put a carrot in front of a bunny. Then, without even thinking, my mouth opened and I obediently took her finger, that was just in my ass in my mouth. The taste was awful and my humiliation was now officially complete.  
 
  
 
@@ -1596,7 +1596,7 @@
 
  "Ok," I replied, and walked out of the bookstore and back to my office. 
 
- When I got to my office, Ms. Audree was at my desk writing a note. She looked surprised to see me. She asked, "What are you doing here? I thought you left for the day." Report_Story #10 
+ When I got to my office, Ms. Audree was at my desk writing a note. She looked surprised to see me. She asked, "What are you doing here? I thought you left for the day." 0 
 
  
 
@@ -1802,7 +1802,7 @@
 
  Penelope replied, "I wasn't checking you out, Audree." 
 
- "Oh, really? I'm sorry. I just assumed that since you didn't get much action with the hubby, maybe you accommodated by finding a girl or two at work. I know someone at work who does the exact same thing," Audree hinted, her finger hooking inside my underwear. I gave a soft moan, even as I worried about her telling Penelope the truth or Penelope concluding the truth herself. Report_Story #11 
+ "Oh, really? I'm sorry. I just assumed that since you didn't get much action with the hubby, maybe you accommodated by finding a girl or two at work. I know someone at work who does the exact same thing," Audree hinted, her finger hooking inside my underwear. I gave a soft moan, even as I worried about her telling Penelope the truth or Penelope concluding the truth herself. 1 
 
  
 
@@ -1922,7 +1922,7 @@
 
  If you read this far, hopefully you liked it. If so, please vote and leave feedback. 
 
- Kisses Jasmine Report_Story #1 
+ Kisses Jasmine  
 
  
 
@@ -2186,7 +2186,7 @@
 
  "I suppose." 
 
- After a brief pause, she asked, "Thinking back to your male relationships in high school, college and your marriage, were you submissive?" Report_Story #2 
+ After a brief pause, she asked, "Thinking back to your male relationships in high school, college and your marriage, were you submissive?"  
 
  
 
@@ -2532,7 +2532,7 @@
 
  Ms. Audree walked over to Dr. White and introduced herself. &quot;Hi, I am Annie-girl's Mistress, Ms. Audree.&quot; 
 
- The doctor stood up and repeated, "I need you to leave." Report_Story #3 
+ The doctor stood up and repeated, "I need you to leave."  
 
  
 
@@ -2894,7 +2894,7 @@
 
  "That is preposterous," Jane scoffed. 
 
- "Is it?" Ms. Audree questioned. "Annie-girl is currently licking my cunt in front of you even though she is mortified to be doing so...because her desire for sexual liberation through submission overrides the years of social chains that held her back from who she really is." Report_Story #4 
+ "Is it?" Ms. Audree questioned. "Annie-girl is currently licking my cunt in front of you even though she is mortified to be doing so...because her desire for sexual liberation through submission overrides the years of social chains that held her back from who she really is."  
 
  
 

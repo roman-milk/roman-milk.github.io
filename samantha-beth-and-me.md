@@ -234,7 +234,7 @@
 
  "You called me a lesbian and then walked out on me and here you are hooked up with a girl lover." 
 
- "I did not divorce you because you were a lesbian. I divorced you because you cheated on me." Report_Story #2 
+ "I did not divorce you because you were a lesbian. I divorced you because you cheated on me."  
 
  
 
@@ -396,7 +396,7 @@
 
  "Oh Sweet Jesus, did I ever need that" she murmured in my ear. "Please baby, please hold me." 
 
- She was lying on top of me and I was in that state that comes with just having been sexually satisfied so without even thinking I wrapped my arms around her and held her A minute or so went by and then I became aware that her left hand was moving down my body. I felt her fingers wrap around my cock and gently fondle it. It twitched and she rubbed it and it responded by trying to stiffen. Still holding my cock she rolled off me and moaned: Report_Story #3 
+ She was lying on top of me and I was in that state that comes with just having been sexually satisfied so without even thinking I wrapped my arms around her and held her A minute or so went by and then I became aware that her left hand was moving down my body. I felt her fingers wrap around my cock and gently fondle it. It twitched and she rubbed it and it responded by trying to stiffen. Still holding my cock she rolled off me and moaned:  
 
  
 
@@ -652,7 +652,7 @@
 
  "Well?" 
 
- "It hurt at first," she gasped, "but it wasn't bad once I got used to it. I'm surprised that I came while doing it. I suppose in time I can get used to it and get to the point where there is little or no pain." Report_Story #4 
+ "It hurt at first," she gasped, "but it wasn't bad once I got used to it. I'm surprised that I came while doing it. I suppose in time I can get used to it and get to the point where there is little or no pain."  
 
  
 

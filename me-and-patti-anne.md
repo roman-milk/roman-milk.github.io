@@ -252,7 +252,7 @@
 
  "He didn't know. I never told him about you. He thinks I picked out the name because I liked it." 
 
- "Why would you want to name one of your children after me?" Report_Story #2 
+ "Why would you want to name one of your children after me?"  
 
  
 

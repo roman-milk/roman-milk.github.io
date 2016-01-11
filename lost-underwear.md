@@ -112,7 +112,7 @@
 
  Perhaps he was right. She had been fending off young males back home, since her breasts had formed, so much so that it had become a habit. They seemed to want them not her, making it hard to relax with them. She had so little experience of sex and the pressure of losing both parents and moving to a city from a small town, it was all too much. If this dramatic therapy was a quick cure then so be it. They would talk tomorrow, he had promised, and get to the bottom if it. Until then she would be a good girl and do as he said. 
 
- "Yes, it's going fine. This one won't take long to train. No! I never reveal the details; it's a trade secret. I'll deliver her in four weeks as promised. I just phoned to say an email is on its way with more photos. Keep them safe. OK. Don't forget the second payment is due by the end of the week." Brian replaced the old fashioned handset upon the receiver. He took a sip of Cognac savouring its smoothness. An early night was called for he would be busy tomorrow. Report_Story #1 
+ "Yes, it's going fine. This one won't take long to train. No! I never reveal the details; it's a trade secret. I'll deliver her in four weeks as promised. I just phoned to say an email is on its way with more photos. Keep them safe. OK. Don't forget the second payment is due by the end of the week." Brian replaced the old fashioned handset upon the receiver. He took a sip of Cognac savouring its smoothness. An early night was called for he would be busy tomorrow.  
 
  
 

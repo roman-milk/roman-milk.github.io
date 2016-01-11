@@ -252,7 +252,7 @@
 
  "Answer me slut," he demanded, his tone authoritative. 
 
- A chill went up my spine, as I took his cock out of my mouth, and stammered, "Y-y-Yes, I'll be a good slut." Just hearing myself declare such a ludicrous thing was embarrassing and yet it somehow was turning me on too. Report_Story #2 
+ A chill went up my spine, as I took his cock out of my mouth, and stammered, "Y-y-Yes, I'll be a good slut." Just hearing myself declare such a ludicrous thing was embarrassing and yet it somehow was turning me on too.  
 
  
 
@@ -624,7 +624,7 @@
 
  "The cheerleader's could use another white pussy-pleaser," she said, as she grabbed my head and pulled me into her wetness. 
 
- I licked hungrily as I replayed the words 'another white pussy-pleaser' wondering how many there were. The taste was even better directly from her cunt. Holding my head, she began bucking her hips up and down, rubbing her wet pussy all over my face. I desperately tried to lick, but I was really just a toy for her pleasure. Report_Story #3 
+ I licked hungrily as I replayed the words 'another white pussy-pleaser' wondering how many there were. The taste was even better directly from her cunt. Holding my head, she began bucking her hips up and down, rubbing her wet pussy all over my face. I desperately tried to lick, but I was really just a toy for her pleasure.  
 
  
 
@@ -924,7 +924,7 @@
 
  "Can you help me?" I asked. 
 
- "Sure," she said, as she ordered, "Lift up your skirt." Report_Story #4 
+ "Sure," she said, as she ordered, "Lift up your skirt."  
 
  
 
@@ -1272,7 +1272,7 @@
 
  Suddenly jealous of any girl who may replace me I begged like someone whose life depended on keeping their Master happy. "Oh please fuck me with your big cock. I want to feel what it feels to be fucked by a real man, a real cock. Use me as your slave, your white whore, fuck me like the dirty fuck toy I am. Pound my cunt with your big black coooooooock," I screamed, as he slammed his cock fully into me. 
 
- The pleasure was amazing even as a dull pain hit me as he filled me way deeper than Ethan or any of my toys ever had. He lingered deep in me, his hands on my waist, his body pressed firmly against mine. Report_Story #5 
+ The pleasure was amazing even as a dull pain hit me as he filled me way deeper than Ethan or any of my toys ever had. He lingered deep in me, his hands on my waist, his body pressed firmly against mine.  
 
  
 
@@ -1558,7 +1558,7 @@
 
  The hand got intense it seemed to me as each of the men knew the winner won more than just the hand. Finally, Bubba won the hand, beating Kyle. 
 
- "Fuck," Kyle cursed, clearly pissed to lose the hand. Report_Story #6 
+ "Fuck," Kyle cursed, clearly pissed to lose the hand.  
 
  
 
@@ -1704,7 +1704,7 @@
 
  Eventually, Bubba pulled out of my ass, Miranda let go of my head and I fell onto my side, completely worn out, with cum leaking from my pussy and ass. I never felt more sexually satisfied or worn out as I was right then. My body and mind past exhaustion, I closed my eyes and began drifting into slumber completely content with what I had become. 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -2026,7 +2026,7 @@
 
  "Now get undressed and come join me in the shower," she ordered, continuing to get undressed. 
 
- Strangely, I had seen her naked before, at this level we still shared the bathrooms, yet as she undressed this time it was different. Report_Story #2 
+ Strangely, I had seen her naked before, at this level we still shared the bathrooms, yet as she undressed this time it was different.  
 
  
 
@@ -2452,7 +2452,7 @@
 
  "Whatever," I said, not allowing her to see my fear of what three would mean. 
 
- "I'll send you an edited copy of the video later tonight," she said, as she headed out Report_Story #3 
+ "I'll send you an edited copy of the video later tonight," she said, as she headed out  
 
  
 
@@ -2968,7 +2968,7 @@
 
  I walked down the hall and began hearing moans... undeniably moans of sex. 
 
- I froze just outside my door. Report_Story #4 
+ I froze just outside my door.  
 
  
 
@@ -3402,7 +3402,7 @@
 
  "Yes, it did," Mom nodded, "but it also solved a problem." 
 
- "It did?" I asked, curious what she meant. Did she enjoy having sex with me as much as I did with her? Report_Story #5 
+ "It did?" I asked, curious what she meant. Did she enjoy having sex with me as much as I did with her?  
 
  
 
@@ -3462,7 +3462,7 @@
 
  When Auntie answered it, I greeted, "Hi, Mistress Lisa." 
 
- The End Report_Story #1 
+ The End  
 
  
 
@@ -3818,7 +3818,7 @@
 
  As I deposited my load in her, I watched the most animated orgasm in my life. She shook, she screamed, she talked dirty, it was the hottest thing I had ever seen. I finally pulled out and demanded, "Clean my cock, slut." 
 
- This time she obeyed with lightning speed as she fell to her knees and took my cock that as just in her no longer virgin ass and began bobbing on it as if to retrieve any last remnants of cum still stuck inside my cock. Report_Story #2 
+ This time she obeyed with lightning speed as she fell to her knees and took my cock that as just in her no longer virgin ass and began bobbing on it as if to retrieve any last remnants of cum still stuck inside my cock.  
 
  
 
@@ -3936,7 +3936,7 @@
 
  A couple of hours later, I deposited a load of cum in Mrs. Allen's ass...but that is a whole another crazy story. 
 
- The End....for now... Report_Story #1 
+ The End....for now...  
 
  
 
@@ -4246,7 +4246,7 @@
 
  "Beg," I ordered, standing back up, my erect cock directly in front of her. 
 
- Seeing my cock seemed to help as a glimmer of lust awoke in her. Her tone was more believable as she begged, "Please, Mr. Stanford, fuck my ass." Report_Story #2 
+ Seeing my cock seemed to help as a glimmer of lust awoke in her. Her tone was more believable as she begged, "Please, Mr. Stanford, fuck my ass."  
 
  
 

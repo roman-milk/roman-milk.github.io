@@ -266,7 +266,7 @@
 
  "You? Ulterior motive? I'm shocked." 
 
- Report_Story #2 
+  
 
  
 
@@ -592,7 +592,7 @@
 
  I laughed. "She's not going to scare me off. I love the fact that the girls are close. My sister and my Mom don't get along all that well." 
 
- "See?" Angela whined, wiggling in his grip. Her struggles had the bottom of her dress riding high on her hips, her legs kicking. A tiny little black thong was exposed, along with a red and black garter belt. Sweet Jesus. Her mom was hot. Report_Story #3 
+ "See?" Angela whined, wiggling in his grip. Her struggles had the bottom of her dress riding high on her hips, her legs kicking. A tiny little black thong was exposed, along with a red and black garter belt. Sweet Jesus. Her mom was hot.  
 
  
 
@@ -916,7 +916,7 @@
 
  "Good. It'll make it that more special when we do it." 
 
- "When WE do it?" she laughed. Report_Story #4 
+ "When WE do it?" she laughed.  
 
  
 

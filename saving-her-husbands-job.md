@@ -84,7 +84,7 @@
 
  Tina patted his arm, "No problem. Matt kept me entertained while we waited for you to get back." She turned to Matt and said, "It's late and we need to get going. Thank you ever so much for the party. Maybe we can do it again sometime" and she stood on tiptoe and kissed Matt on the cheek leaving Bob to ponder on the "maybe we can do it again sometime." Did she mean...? No, Bob thought, she couldn't. Could she? 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -140,7 +140,7 @@
 
  "Well, well," shed thought, "I've never had a black man before. This should be interesting" and she stepped into the room. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

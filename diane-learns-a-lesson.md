@@ -116,7 +116,7 @@
 
  She reluctantly stepped towards the teens and decided to stop the foolishness right away. Diane had her fill of the teenager's brashness and she glared at Jeff when she spoke. "Get out! Get out this minute or I'll call your parents... the cops." 
 
- Jeff quickly reached for the door and slammed it shut. He had the meanest expression on his face, as he moved towards the frightened young woman. Diane backed up each time the teen stepped closer until she hit the living room sofa. Then Jeff put his hand in the center of her chest and pushed her down. Diane landed with a thud and she looked up at the teenager with a dumbfounded expression after his sudden show of supreme power. Report_Story #2 
+ Jeff quickly reached for the door and slammed it shut. He had the meanest expression on his face, as he moved towards the frightened young woman. Diane backed up each time the teen stepped closer until she hit the living room sofa. Then Jeff put his hand in the center of her chest and pushed her down. Diane landed with a thud and she looked up at the teenager with a dumbfounded expression after his sudden show of supreme power.  
 
  
 
@@ -306,7 +306,7 @@
 
  "Again!" 
 
- "Oh fuck... oh fuck." Report_Story #3 
+ "Oh fuck... oh fuck."  
 
  
 
@@ -472,7 +472,7 @@
 
  All of a sudden she heard the teenager huffing and puffing like crazy and knew he was going to orgasm. Without thinking her arms came up and Diane hugged the thrashing teen, as if she wanted his experience to be very memorable. Just when she thought his lengthy climax was over, Jeremy arched his back and drove his powerful hips at her. The lights went out and she couldn't breathe. There was an unfamiliar tingling deep inside her belly and Diane merely hung on for dear life, knowing what might happen if her resolve waned. 
 
- Both were totally exhausted when the teenager's climax ended. Diane rolled onto her side and Jeremy snuggled against her back. She never gave it a second thought when the teenager deftly pried her legs apart. Jeremy raised her upper leg just enough to create a space at the top of her shapely thighs. Then he slipped his semi-hardened cock into the moist crotch and let the lengthy shaft rest directly on Diane's pussy slit. Report_Story #4 
+ Both were totally exhausted when the teenager's climax ended. Diane rolled onto her side and Jeremy snuggled against her back. She never gave it a second thought when the teenager deftly pried her legs apart. Jeremy raised her upper leg just enough to create a space at the top of her shapely thighs. Then he slipped his semi-hardened cock into the moist crotch and let the lengthy shaft rest directly on Diane's pussy slit.  
 
  
 
@@ -650,7 +650,7 @@
 
  Diane used all of her skill to satisfy the teenager's desire. She kept two or three inches of rock-hard steel inside her mouth and rolled her tongue slowly around the flared cock-rim. The seedy taste of precum wasn't as bad as she thought and she willingly squeezed the cock in a milking fashion to speed up Danny's climax. 
 
- All of a sudden the teen's stomach heaved frantically in and out and Diane gasped when a stream of cum filled her mouth. She swallowed and merely tried to hold the cock steady in both hands, as the cream flowed down her throat. The teenager had his hands around her head and he forced her to keep his cock inside her mouth for what seemed like an eternity. Report_Story #5 
+ All of a sudden the teen's stomach heaved frantically in and out and Diane gasped when a stream of cum filled her mouth. She swallowed and merely tried to hold the cock steady in both hands, as the cream flowed down her throat. The teenager had his hands around her head and he forced her to keep his cock inside her mouth for what seemed like an eternity.  
 
  
 

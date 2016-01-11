@@ -236,7 +236,7 @@
 
  "No," I managed to whine, gulping when she shrugged the cardigan down off her shoulders. 
 
- She smiled and allowed me to ogle her boobs, head canted to one side. Still in her bra, she dropped the cardigan onto the arm of the chair, hefting her breasts with both hands. "Would you like to spend a little time here with me?" Report_Story #2 
+ She smiled and allowed me to ogle her boobs, head canted to one side. Still in her bra, she dropped the cardigan onto the arm of the chair, hefting her breasts with both hands. "Would you like to spend a little time here with me?"  
 
  
 

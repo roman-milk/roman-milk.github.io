@@ -384,7 +384,7 @@
 
  I slipped my finger out of her fevered cunt and put it to my mouth. "Hmmmmmm, very yummy." 
 
- I stood up and said, "Five minutes, on your knees, ready to obey." Report_Story #2 
+ I stood up and said, "Five minutes, on your knees, ready to obey."  
 
  
 

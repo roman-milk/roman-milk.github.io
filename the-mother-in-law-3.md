@@ -130,7 +130,7 @@
 
  Elaine writhed and rolled on the bed as she gasped her pleasure. 'Oh, fuck ...' she sighed, her voice curdling with pleasure. 'Lick my sopping cunt, you beautiful man. Finger me there. Curl your fingers inside me ... Rub just there. Oh yes ...' Elaine gave a yelp of appreciation when, as Jason's fingers twisted against the sensitive spot inside her body, his tongue slid low and squirmed into her anus. 'My dirty-hole,' she squealed. 'Oh that's filthy ... But I love it. Lick my sphincter, Jason. 
 
- Using every technique in his repertoire, Jason coaxed his mother-in-law towards her climax. When he felt she was close to the brink, when her thighs began that convulsive tremor and her body closed around his probing fingers, he'd pause and allow the moaning blonde to calm a little. Report_Story #2 
+ Using every technique in his repertoire, Jason coaxed his mother-in-law towards her climax. When he felt she was close to the brink, when her thighs began that convulsive tremor and her body closed around his probing fingers, he'd pause and allow the moaning blonde to calm a little.  
 
  
 

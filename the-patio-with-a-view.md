@@ -142,7 +142,7 @@
 
  ++++++++++++++++++++++++ 
 
- At work I spent some more time working on the plan that was rolling around in my head and I thought that I could pull it off, but I realized I needed some expert information and advice. At lunch time I got out the Yellow Pages, found what I wanted and called Spenser Investigations. I made an appointment to see them when I got off work and then I called my friend Mark. He had gone through a divorce and had come out of it pretty well. I asked for the name and number of his attorney and I called and made an appointment for the next day. Report_Story #2 
+ At work I spent some more time working on the plan that was rolling around in my head and I thought that I could pull it off, but I realized I needed some expert information and advice. At lunch time I got out the Yellow Pages, found what I wanted and called Spenser Investigations. I made an appointment to see them when I got off work and then I called my friend Mark. He had gone through a divorce and had come out of it pretty well. I asked for the name and number of his attorney and I called and made an appointment for the next day.  
 
  
 
@@ -378,7 +378,7 @@
 
  "Gloria?" 
 
- "She's the girl you want to see Kathy with. You will need to make sure that her hubby is out of town though. He is the jealous type and he would go ballistic if he found out that Gloria played around." Report_Story #3 
+ "She's the girl you want to see Kathy with. You will need to make sure that her hubby is out of town though. He is the jealous type and he would go ballistic if he found out that Gloria played around."  
 
  
 
@@ -608,7 +608,7 @@
 
  "Yes, but your husband kicked you out and that changes your status. You might be married, but you are separated and Carl has made no move to get you back. To me that makes you a free agent." 
 
- Then, on impulse, I ejected the DVD and gave it to her. "You can watch it if I'm not around and you are horny enough to use your fingers or your hairbrush. It's a copy and I have plenty more." Report_Story #4 
+ Then, on impulse, I ejected the DVD and gave it to her. "You can watch it if I'm not around and you are horny enough to use your fingers or your hairbrush. It's a copy and I have plenty more."  
 
  
 

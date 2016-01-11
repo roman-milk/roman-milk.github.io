@@ -82,7 +82,7 @@
 
  Almost as fast as he attacked, Diane's loins felt new shocks of passion. He could smell the sex aroma drifting up from her cunt and it was like a drug to his possessed mind. Reaching down between his legs, he grabbed the thick shaft of his cock with one hand and began pumping it for self-gratification. 
 
- Diane's body was reacting to the caresses and her head rolled from side to side as she felt the futile attempt of resisting these bastards. Hungrily Ron sucked and nibbled, all the while pumping his iron. Soon the flames of desire were roaring again and the orgasm started to wash over her body. Every nerve seemed to be extremely alive and these men were feasting on every one of them. Report_Story #2 
+ Diane's body was reacting to the caresses and her head rolled from side to side as she felt the futile attempt of resisting these bastards. Hungrily Ron sucked and nibbled, all the while pumping his iron. Soon the flames of desire were roaring again and the orgasm started to wash over her body. Every nerve seemed to be extremely alive and these men were feasting on every one of them.  
 
  
 
@@ -102,7 +102,7 @@
 
  THE END OF THE FIRST HOUR 
 
- Please email your comments or advice to me, as I am new at erotic writing. I have a second hour almost ready to go and some other stories I am working on. This is the first story I have submitted to any story site and since I am not sure how this really works, I hope it works out okay. Report_Story #1 
+ Please email your comments or advice to me, as I am new at erotic writing. I have a second hour almost ready to go and some other stories I am working on. This is the first story I have submitted to any story site and since I am not sure how this really works, I hope it works out okay.  
 
  
 
@@ -184,7 +184,7 @@
 
  * 
 
- This is my second post and hope it passes the test. Please email me with your comments and suggestions as I appreciate anything you have to say. I am planning to submit other posts soon and hope they are as well received as this series. I am also starting on the next chapter in this series. It will be called 'At The Movies - After The Show' and you can tell I have set the stage in the final two paragraphs. Report_Story #1 
+ This is my second post and hope it passes the test. Please email me with your comments and suggestions as I appreciate anything you have to say. I am planning to submit other posts soon and hope they are as well received as this series. I am also starting on the next chapter in this series. It will be called 'At The Movies - After The Show' and you can tell I have set the stage in the final two paragraphs.  
 
  
 
@@ -290,7 +290,7 @@
 
  Lonny had quickly removed Sally's clothes and the beauty of the two naked bodies took Diane back. Sally was such a breath taking woman and looking at Lonny, her eyes focused on his manhood. It bounced wildly up and down as they caressed and embraced on the couch. 
 
- Although it was dim in the room, she had no trouble seeing the two in action. It was obvious that Lonny was overly aroused as his act of foreplay was done in a mere minute or two. Mesmerized by his cock, Diane felt a deep burning inside her loins and she blushed deeply as she wished it were her he was caressing. She shook her head in an attempt to stop her fantasy and put her mind back to normal. The heat was building in her body and it was becoming uncomfortable. Report_Story #2 
+ Although it was dim in the room, she had no trouble seeing the two in action. It was obvious that Lonny was overly aroused as his act of foreplay was done in a mere minute or two. Mesmerized by his cock, Diane felt a deep burning inside her loins and she blushed deeply as she wished it were her he was caressing. She shook her head in an attempt to stop her fantasy and put her mind back to normal. The heat was building in her body and it was becoming uncomfortable.  
 
  
 

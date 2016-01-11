@@ -212,7 +212,7 @@
 
  With a huge effort, Carla manages to keep the yearning out of her voice. She gently squeezes Kelsey's breasts, pouting and nodding an endorsement after cupping them both in turn. "Oh my God," she trills. "They're fantastic!" 
 
- Carla slumps back and gulps wine before grinning and deliberately breaking the tension. In a tone of enforced jocularity she says, "Worth every penny, Kelsey. I'm so envious." Report_Story #2 
+ Carla slumps back and gulps wine before grinning and deliberately breaking the tension. In a tone of enforced jocularity she says, "Worth every penny, Kelsey. I'm so envious."  
 
  
 
@@ -404,7 +404,7 @@
 
  Carla sits on the bed in a mermaid pose while surveying her handiwork, one hand slowly caressing Kelsey's unblemished skin. 
 
- "Oh my God," Kelsey mutters, levering up onto her elbows. She gazes at Carla, agog. "That was just-" The American breaks off and shakes her head in wonder. "I don't know," she adds, cheeks ballooning. "I had no idea..." Report_Story #3 
+ "Oh my God," Kelsey mutters, levering up onto her elbows. She gazes at Carla, agog. "That was just-" The American breaks off and shakes her head in wonder. "I don't know," she adds, cheeks ballooning. "I had no idea..."  
 
  
 

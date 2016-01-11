@@ -230,7 +230,7 @@
 
  I mumbled a few utterances of acceptance to the terms and Michelle, apparently satisfied, said, "Good, it's settled then." 
 
- She relaxed and eased back against the settee, with me simply appreciating the way she looked just lounging there. Despite what I'd so grudgingly promised I still experienced the urge to stand and go to her and lean in for a kiss. I wanted to rip the blouse open and bury my face between her big breasts. The memory of her yellow bikini rushed back and desire rose in a hot welling of lust, my cock stiffening with renewed interest. Report_Story #2 
+ She relaxed and eased back against the settee, with me simply appreciating the way she looked just lounging there. Despite what I'd so grudgingly promised I still experienced the urge to stand and go to her and lean in for a kiss. I wanted to rip the blouse open and bury my face between her big breasts. The memory of her yellow bikini rushed back and desire rose in a hot welling of lust, my cock stiffening with renewed interest.  
 
  
 
@@ -424,7 +424,7 @@
 
  "Sit down," growled Michelle, fingers slipping over her scarlet, glistening sex. "Let me watch you," she mewled, wincing. "Go on, Alan, wank it. Show me, babe. You watch me and I'll watch you." 
 
- I complied, fisting my length, all reticence evaporating as a hot rush of desire flooded through me. "I want to put it in," I mumbled. "Please, Michelle, can't I just fuck you." Report_Story #3 
+ I complied, fisting my length, all reticence evaporating as a hot rush of desire flooded through me. "I want to put it in," I mumbled. "Please, Michelle, can't I just fuck you."  
 
  
 
@@ -670,7 +670,7 @@
 
  Zach chuckled and eyed me before growling, "You might get two cocks, luv. If our friend does as he's told." 
 
- Michelle nodded. "I hope so, Zach," she replied, squeezing and manipulating his awful length. "You'll do whatever it takes, won't you, Alan? Please say you will." Report_Story #4 
+ Michelle nodded. "I hope so, Zach," she replied, squeezing and manipulating his awful length. "You'll do whatever it takes, won't you, Alan? Please say you will."  
 
  
 
@@ -886,7 +886,7 @@
 
  Recovering slightly she swivelled at the waist, breasts swaying while Michelle surveyed me moving behind her. 
 
- "God, you're a machine," she squeaked, exultant. "More, babe," she added, spreading her buttocks so her cunt gaped all wet and scarlet. "Give me that lovely cock." Report_Story #5 
+ "God, you're a machine," she squeaked, exultant. "More, babe," she added, spreading her buttocks so her cunt gaped all wet and scarlet. "Give me that lovely cock."  
 
  
 

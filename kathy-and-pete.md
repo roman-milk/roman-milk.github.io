@@ -168,7 +168,7 @@
 
  ++++++++++++++++++++++ 
 
- I thought that would be the end of it, but it wasn't. All that night did was fire up Pete more. Now he wanted to fuck me with Ken wide-awake and within calling distance - the closer the better. I didn't have a clue as to how Pete could possibly make that happen, but the thought of being able to do made my pussy wet and kept it wet. Report_Story #2 
+ I thought that would be the end of it, but it wasn't. All that night did was fire up Pete more. Now he wanted to fuck me with Ken wide-awake and within calling distance - the closer the better. I didn't have a clue as to how Pete could possibly make that happen, but the thought of being able to do made my pussy wet and kept it wet.  
 
  
 

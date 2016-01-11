@@ -152,7 +152,7 @@
 
  "Why are you still here? I said everybody out including you. Get your sorry ass dressed and get out." 
 
- She just sat there and sobbed. I wanted so bad to reach out and smack her across the face, but I knew that would just open me up for charges of spousal abuse so I went to the bathroom, emptied the wastebasket and filled it up with water. I went back into the bedroom and threw the whole bucket full in Ripley's face. She spit and sputtered and her hands went up to her face and I said: Report_Story #2 
+ She just sat there and sobbed. I wanted so bad to reach out and smack her across the face, but I knew that would just open me up for charges of spousal abuse so I went to the bathroom, emptied the wastebasket and filled it up with water. I went back into the bedroom and threw the whole bucket full in Ripley's face. She spit and sputtered and her hands went up to her face and I said:  
 
  
 

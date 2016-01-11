@@ -120,7 +120,7 @@
 
  The afternoon went well and at last the final bell sounded. Susan gathered her books and belongings, and headed to the door. Just as she reached the classroom exit, Kaz's stocky body filled the entry and he quickly grabbed the brass knob. Closing the door before Susan had time to react, he swiftly seized the opportunity. Grabbing her shoulders, he twisted her body to place her back against the solid, wooden door. 
 
- Kaz held her firmly and looked directly into her eyes. "Now I want to see if my little slut did as she was told," he said. Without warning, he held her upper body with one hand, and his other dropped to the hem of her skirt. Susan was unable to move and she knew exactly what was about to happen. In one swift motion, he reached under the hem of her skirt and brought his hand up to Susan's crotch. Her breath caught and held as she felt his hand close over her almost naked pelvis. Report_Story #2 
+ Kaz held her firmly and looked directly into her eyes. "Now I want to see if my little slut did as she was told," he said. Without warning, he held her upper body with one hand, and his other dropped to the hem of her skirt. Susan was unable to move and she knew exactly what was about to happen. In one swift motion, he reached under the hem of her skirt and brought his hand up to Susan's crotch. Her breath caught and held as she felt his hand close over her almost naked pelvis.  
 
  
 
@@ -236,7 +236,7 @@
 
  THE END OF PART ONE 
 
- Please send me your comments and suggestions, as I always love to hear from readers. You can email them through the link below. Report_Story #1 
+ Please send me your comments and suggestions, as I always love to hear from readers. You can email them through the link below.  
 
  
 
@@ -348,7 +348,7 @@
 
  Out of nowhere, someone reached under Susan's prone body and grabbed her swollen clitoris. The fingers roughly pinched and pulled the tiny clit away from her body, giving her instant gratification. 
 
- Slowly, Vanya moved his long, skinny cock in and out of Susan's channel. Suddenly he began shooting his hot lava into her deepest regions where no man had ever gone. The super lubrication gave him the freedom to quicken the pace. He put his strong fingers around her slender hips and pulled back hard every time he thrust into her ass. Report_Story #2 
+ Slowly, Vanya moved his long, skinny cock in and out of Susan's channel. Suddenly he began shooting his hot lava into her deepest regions where no man had ever gone. The super lubrication gave him the freedom to quicken the pace. He put his strong fingers around her slender hips and pulled back hard every time he thrust into her ass.  
 
  
 
@@ -392,7 +392,7 @@
 
  THE END OF CHAPTER TWO 
 
- Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help. Report_Story #1 
+ Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help.  
 
  
 
@@ -498,7 +498,7 @@
 
  Her eyes remained as they were as she saw him look down, knowing what he was looking for. Susan sucked her breathe in as she felt any remaining dignity disappear and Jim swiftly removed the skirt, leaving her completely naked. She stared off into space as his head slowly dropped and Susan tightened her tummy, waiting for the attack she knew was coming. 
 
- The fires built deep inside Susan and her temperature skyrocketed to an almost unbearable level. Kaz knew what Jim was going to do and moved to keep Susan from resisting. He stretched her left arm out from her body and behind his body as he leaned forward to whisper into her ear. Then he reached across and grabbed her other arm, extending it outward so that both arms were now straight out from her chest. Susan was concentrating so hard on not succumbing to the rising desires that she allowed Kaz to do whatever he liked. Report_Story #2 
+ The fires built deep inside Susan and her temperature skyrocketed to an almost unbearable level. Kaz knew what Jim was going to do and moved to keep Susan from resisting. He stretched her left arm out from her body and behind his body as he leaned forward to whisper into her ear. Then he reached across and grabbed her other arm, extending it outward so that both arms were now straight out from her chest. Susan was concentrating so hard on not succumbing to the rising desires that she allowed Kaz to do whatever he liked.  
 
  
 
@@ -596,7 +596,7 @@
 
  THE END OF CHAPTER THREE - A TATTOO FOREVER 
 
- Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help. Report_Story #1 
+ Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help.  
 
  
 
@@ -700,7 +700,7 @@
 
  She was too far away to see the man's cock but she definitely could tell when it erupted. The animal sounds that Susan made as the man filled her mouth with cum drove Julie into a frenzy and she couldn't keep her fingers out of her panties. She could not remember being this horny in her entire life. 
 
- Panic filled Susan and she felt Julie become an aggressor. She looked franticly at Kaz for help. "I think it is time for us to leave as I am not feeling too well," she pleaded with him. "Come on honey, it is getting late and we should be going," she begged but could tell by Kaz's reaction that he was enticed by what the couple was saying. Report_Story #2 
+ Panic filled Susan and she felt Julie become an aggressor. She looked franticly at Kaz for help. "I think it is time for us to leave as I am not feeling too well," she pleaded with him. "Come on honey, it is getting late and we should be going," she begged but could tell by Kaz's reaction that he was enticed by what the couple was saying.  
 
  
 
@@ -800,7 +800,7 @@
 
  Then the fingers pinched the bottom hem between the thumb and forefinger, slowly slipping it up. Susan's breath caught and held as the tiny hand released the skirt, dipped out of sight and approached the promised land. When the tips of Julie's fingers touched Susan's thighs, the electricity shocked her flesh like a taser and she willingly spread her legs wider. Julie could sense the submission and her darting finger swiftly found the wetness. Susan let out a big gasp and it felt like a punch to the stomach. 
 
- Julie was overtaken by the sudden feel of naked pussy and wondered if hers was as wet. The dam burst deep inside Susan when Julie pinched the delicate clit and pulled it out from the hood that was protecting it. Susan could not stop her hips from pushing forward and her heart rate soared as if she were running a marathon. Report_Story #3 
+ Julie was overtaken by the sudden feel of naked pussy and wondered if hers was as wet. The dam burst deep inside Susan when Julie pinched the delicate clit and pulled it out from the hood that was protecting it. Susan could not stop her hips from pushing forward and her heart rate soared as if she were running a marathon.  
 
  
 
@@ -836,7 +836,7 @@
 
  THE END OF CHAPTER FOUR - A NIGHT AT THE MOVIES 
 
- Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help. Report_Story #1 
+ Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help.  
 
  
 
@@ -946,7 +946,7 @@
 
  They both fell into the normal routine in the morning and just before they each went their separate ways to work, Jay spoke. "If you aren't home after work, I'll know you went to his place. Don't worry about how late you get home as I'll be okay with it," Jay did his best to reassure her once again. "Please, just have a good time and I'll be waiting to hear all about it when you get home," he said and it did make her feel good. 
 
- Susan drove to work with a peaceful feeling from what Jay had told her but she still had uncertainty about the afternoon get-together. Something just didn't seem right about asking Sandy to join her at Kaz's as Sandy had accepted her invitation real fast. Sandy didn't seem to even know Kaz so why would she volunteer to go with her to his place? It troubled her until she reached the college but was soon forgotten once classes started. Report_Story #2 
+ Susan drove to work with a peaceful feeling from what Jay had told her but she still had uncertainty about the afternoon get-together. Something just didn't seem right about asking Sandy to join her at Kaz's as Sandy had accepted her invitation real fast. Sandy didn't seem to even know Kaz so why would she volunteer to go with her to his place? It troubled her until she reached the college but was soon forgotten once classes started.  
 
  
 
@@ -1052,7 +1052,7 @@
 
  The memory of Julie's eventful time with Sandy when she had made her mad came rushing back. Visions of Sandy strapping on that big, rubber cock and the punishment she rained on her slender body for the misdeed, made Julie dizzy with embarrassment. That night had changed her life and secretly she held the fact from her loving husband. Ron would never understand that a woman could have strong, sexual desires for another woman and still be a loving wife. 
 
- All eyes were glued to the erotic scene unraveling under the glare of the spotlights and the two sexy bodies clung desperately to each other. Julie watched with envy as Susan's most desirable body rolled around on the floor as she took her master through the violent orgasm. With great urgency, Sandy grabbed Susan's head and held the flaming mouth over her womanhood as the climax roared over the top. In all Sandy's lesbian experiences, she had never allowed a slave to consume her body and bring her to fulfillment before she was ready. Report_Story #3 
+ All eyes were glued to the erotic scene unraveling under the glare of the spotlights and the two sexy bodies clung desperately to each other. Julie watched with envy as Susan's most desirable body rolled around on the floor as she took her master through the violent orgasm. With great urgency, Sandy grabbed Susan's head and held the flaming mouth over her womanhood as the climax roared over the top. In all Sandy's lesbian experiences, she had never allowed a slave to consume her body and bring her to fulfillment before she was ready.  
 
  
 
@@ -1166,7 +1166,7 @@
 
  Vanya knew his compatriot was about to satisfy his burning needs by fucking the willing teacher and he took liberties to feel her exposed flesh. The small tits highlighted by the large, hard nipples were exceptionally defined and he caressed them with a passion. 
 
- Ivan was already near the end of his stamina and he felt the pre-cum seep from the tip of his cock. Prolonging it for as long as he could, he finally was forced to let loose a jet of white, creamy fluid. His hips jerked out of control as he jettisoned the immense load of Russian cum into his dreamlike woman and he held her tightly. Vanya managed to keep his fingers on the enlarged buds and pinched them into erotic hardness. Report_Story #4 
+ Ivan was already near the end of his stamina and he felt the pre-cum seep from the tip of his cock. Prolonging it for as long as he could, he finally was forced to let loose a jet of white, creamy fluid. His hips jerked out of control as he jettisoned the immense load of Russian cum into his dreamlike woman and he held her tightly. Vanya managed to keep his fingers on the enlarged buds and pinched them into erotic hardness.  
 
  
 
@@ -1282,7 +1282,7 @@
 
  It left little doubt as to who was boss and Sandy began to cry out loud. The others were amazed that Sandy didn't reach down to protect herself from Julie's abuse, but instead she followed the woman's orders. Her tears ran and she reached out with her strong arms and grabbed Susan's luscious nakedness with firm hands. 
 
- This left her vulnerable and Julie twisted the clit as hard as she could and Sandy's willpower was thoroughly shattered. She had succumbed to the earlier assault from Julie and submitted to her violent demands, but the realization suddenly struck her. For the first time in her life, she was under the spell of another woman! Report_Story #5 
+ This left her vulnerable and Julie twisted the clit as hard as she could and Sandy's willpower was thoroughly shattered. She had succumbed to the earlier assault from Julie and submitted to her violent demands, but the realization suddenly struck her. For the first time in her life, she was under the spell of another woman!  
 
  
 
@@ -1394,7 +1394,7 @@
 
  "I was so scared and I could hear the others cheering her on, even applauding her when she made me suck her big boobies. Oh, it was so awful," she got back into the tale. Susan was bewildered as to why she elaborated on what it was like to suck Sandy's tits or why she described her boobs to Jay. 
 
- "Her nipples were so round, so large that they felt like rocks in my mouth. She made me suck them and run my tongue all over her breasts while she talked to me," she explained. "She told me how she was going to fuck me and then she said that she would use her big cock on me," she sobbed. "I didn't know what she meant but she kept telling me, again and again," Susan said in an almost inaudible voice. Report_Story #6 
+ "Her nipples were so round, so large that they felt like rocks in my mouth. She made me suck them and run my tongue all over her breasts while she talked to me," she explained. "She told me how she was going to fuck me and then she said that she would use her big cock on me," she sobbed. "I didn't know what she meant but she kept telling me, again and again," Susan said in an almost inaudible voice.  
 
  
 

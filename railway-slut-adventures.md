@@ -104,7 +104,7 @@
 
  I sat for the remainder of the trip with the combined loads of spunk of the 2 men dribbling from my pussy and leaking out onto the fabric of the train seat. 
 
- It was a fantastic start to my trip, hot, sordid sex in a train toilet with 2 men old enough to be my grandfather! What a slut I am. Report_Story #1 
+ It was a fantastic start to my trip, hot, sordid sex in a train toilet with 2 men old enough to be my grandfather! What a slut I am.  
 
  
 
@@ -200,7 +200,7 @@
 
  I took my money from James and he left Jody and I alone in the room. Although I'd just been fucked for over 2 hours I hadn't had a satisfying orgasm yet myself and was ready to find more cocks to play with. 
 
- I'm sure between us; Jody and I could find some willing guys. Report_Story #1 
+ I'm sure between us; Jody and I could find some willing guys.  
 
  
 

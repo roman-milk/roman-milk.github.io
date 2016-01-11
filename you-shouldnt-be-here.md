@@ -270,7 +270,7 @@
 
  The sensations are getting beyond the tolerable. The pleasure intensifies - she's going to come very soon. 
 
- "Would you do it again, Steph?" Janet winces. "Did you come?" She moans and grunts, climax simmering close to the boil. "Did he come, Steph? Inside you - did he come in your arse?" Report_Story #2 
+ "Would you do it again, Steph?" Janet winces. "Did you come?" She moans and grunts, climax simmering close to the boil. "Did he come, Steph? Inside you - did he come in your arse?"  
 
  
 
@@ -494,7 +494,7 @@
 
  "Turn around," the man groans, easing in to lower his face to Stephanie's right side. "Look at me, Steph." 
 
- The girl struggles to comply, her neck twisting, her tortured countenance coming round, green eyes fixing on Max's face. "I'm sorry," she mumbles, blinking, her stare sliding away. "I ... I didn't mean it. I got carried away." Report_Story #3 
+ The girl struggles to comply, her neck twisting, her tortured countenance coming round, green eyes fixing on Max's face. "I'm sorry," she mumbles, blinking, her stare sliding away. "I ... I didn't mean it. I got carried away."  
 
  
 
@@ -716,7 +716,7 @@
 
  "It'll be fine," Stephanie whispers a moment before her tongue slips between Janet's lips. "You're ready. Relax." The girl scoops one breast from Janet's corset, hefting the weighty orb with two hands and squeezing tit-flesh while sucking on one nipple. "Enjoy it," she adds on a murmur, licking her friend's tongue before pirouetting away. 
 
- The chain dangles while Janet gazes at the sight of Stephanie slurping Max's erection. She stares at Stephanie, entranced by the girl's distorted face, her lips stretched bloodless as she struggles to accommodate the girth. Report_Story #4 
+ The chain dangles while Janet gazes at the sight of Stephanie slurping Max's erection. She stares at Stephanie, entranced by the girl's distorted face, her lips stretched bloodless as she struggles to accommodate the girth.  
 
  
 

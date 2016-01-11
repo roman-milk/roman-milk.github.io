@@ -200,7 +200,7 @@
 
  Back in the bedroom Marty had cum in Mary's mouth and his place on the bed was taken by Jack. Harry was fucking her hard and when he came Mary rolled over on her back and Jack moved between her legs. When Jack came Phil was hard again and he moved between Mary's legs, put her legs up on his shoulders and plunged his cock into her. From then on it was all four man taking turns on her. 
 
- Report_Story #2 
+  
 
  
 

@@ -118,7 +118,7 @@
 
  Finally relenting to the overwhelming urges brought about by the wanton display, Eduard unzipped his trousers and lifted the length of his cock from inside. He walked to the side of the bed and saw, for the first time, Joanna's face in profile as she slurped and sucked at Carla's body. The sight of his sister-in-law's shaven mound and sodden labia invoked a groan from Eduard; Joanna paused for a moment to regard him. 
 
- "Eduard," she whispered. "Eduard, I'm so ... I'm so ... Fuck ... This is so wrong, Eduard, but ... I can't help myself." Joanna reached for her husband's erection. She waggled her fingers in a sign for him to come closer. "I want you to fuck me, Eduard," she murmured and, as her hand closed around his girth, Joanna turned to lick her lover's sex once again. Report_Story #2 
+ "Eduard," she whispered. "Eduard, I'm so ... I'm so ... Fuck ... This is so wrong, Eduard, but ... I can't help myself." Joanna reached for her husband's erection. She waggled her fingers in a sign for him to come closer. "I want you to fuck me, Eduard," she murmured and, as her hand closed around his girth, Joanna turned to lick her lover's sex once again.  
 
  
 

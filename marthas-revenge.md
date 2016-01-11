@@ -132,7 +132,7 @@
 
  She chuckled and said, "That was my first time with more than one guy and I really think I could learn to like it." 
 
- Well, she did, but that's another story. The rest of this story is that I transferred the five thirty minute tapes to a six hour VHS tape and Martha Fed- Exed it to Bill along with a short note that said, "Just something for you to watch when you aren't fucking Annie, Beatrice, Debbie, Angela, your secretary or that big titted barmaid down at Andy's. His response wasn't anywhere near what Martha expected, but that's also for another story. As for the curious among you, no, I did not fuck my sister after the guys left and we were alone, but the attraction is there and who knows, maybe another story there too. Report_Story #1 
+ Well, she did, but that's another story. The rest of this story is that I transferred the five thirty minute tapes to a six hour VHS tape and Martha Fed- Exed it to Bill along with a short note that said, "Just something for you to watch when you aren't fucking Annie, Beatrice, Debbie, Angela, your secretary or that big titted barmaid down at Andy's. His response wasn't anywhere near what Martha expected, but that's also for another story. As for the curious among you, no, I did not fuck my sister after the guys left and we were alone, but the attraction is there and who knows, maybe another story there too.  
 
  
 
@@ -262,7 +262,7 @@
 
  "Me. I've been at both your sessions with the guys and it has me walking around with a permanent hard on because of it. 
 
- She giggled and said "Let me see" and she came over and sat down in my lap and wiggled her butt. "Ooh, it is hard. Should I do something about it?" and then she kissed me. It was not a sisterly kiss and she was surprised when I returned it with the same intensity a man would show his wife or his lover. When we broke the kiss I told her that yes indeed she should do something about my hard on, "But that isn't the problem that needs to be solved." Report_Story #2 
+ She giggled and said "Let me see" and she came over and sat down in my lap and wiggled her butt. "Ooh, it is hard. Should I do something about it?" and then she kissed me. It was not a sisterly kiss and she was surprised when I returned it with the same intensity a man would show his wife or his lover. When we broke the kiss I told her that yes indeed she should do something about my hard on, "But that isn't the problem that needs to be solved."  
 
  
 

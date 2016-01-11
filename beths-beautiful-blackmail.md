@@ -416,7 +416,7 @@
 
  "You can leave after all four have came in your slutty white pussy. Ashley keep the boys hard for your mommy," I instructed. 
 
- "Yes, mistress," my new obedient white slut obeyed .She started sucking Mike. The next half hour included 4 more loads of cum in Mary's white pussy. Report_Story #2 
+ "Yes, mistress," my new obedient white slut obeyed .She started sucking Mike. The next half hour included 4 more loads of cum in Mary's white pussy.  
 
  
 

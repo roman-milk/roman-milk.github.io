@@ -140,7 +140,7 @@
 
  "Well, yeah, kind of. Some people can be frustrating." Steph replied, ever polite. 
 
- "Now, imagine instead of running a store, you are running a country. You begin to realize that these people, these citizens you are trying to protect, are complete morons who have don't know their ass from a hole in the ground. You can't coddle them. You can't let them do whatever they want. If we did, then we would have anarchy. I have realized, from over 30 years of being with the government, that the best way to lead people is with a firm hand. People will do what you tell them if you ask in just the right way. They might not like it, but most people will conform. They will go with the masses. It is our duty as the elected few to take this chaos that is humanity and stop them from destroying themselves." Bill said. Report_Story #2 
+ "Now, imagine instead of running a store, you are running a country. You begin to realize that these people, these citizens you are trying to protect, are complete morons who have don't know their ass from a hole in the ground. You can't coddle them. You can't let them do whatever they want. If we did, then we would have anarchy. I have realized, from over 30 years of being with the government, that the best way to lead people is with a firm hand. People will do what you tell them if you ask in just the right way. They might not like it, but most people will conform. They will go with the masses. It is our duty as the elected few to take this chaos that is humanity and stop them from destroying themselves." Bill said.  
 
  
 
@@ -360,7 +360,7 @@
 
  At least that's what she told herself. 
 
- She reached the stall and put her hand on the knob. She looked at her husband, trying to stop her giggling. Eli nervously watched this happening, knowing this was extremely out of character of her. He didn't want her to do this, but she would not be denied. Eli watched her rip the door open. The open door to the bathroom was now between the married couple, blocking Eli's view of her. Eli was worried when the door didn't slam shut quickly. It stayed wide open. Report_Story #3 
+ She reached the stall and put her hand on the knob. She looked at her husband, trying to stop her giggling. Eli nervously watched this happening, knowing this was extremely out of character of her. He didn't want her to do this, but she would not be denied. Eli watched her rip the door open. The open door to the bathroom was now between the married couple, blocking Eli's view of her. Eli was worried when the door didn't slam shut quickly. It stayed wide open.  
 
  
 
@@ -534,7 +534,7 @@
 
  
 
- Sure, she was turned on, but she didn't want to cheat. She loved Eli, dearly. She loved him more than anything. He was her husband. She wasn't gonna cheat on him just for some no-doubt great sex. This asshole was brow beating her, defeating her like she had never been defeated before. She was on the debate team in high school. She had participated in countless protests and boycotts, so she knew how to take care of herself in an argument. Yet, this asshole was beating her. But Steph was too stubborn to admit defeat. Steph was too spirited to give up. It was time to fight back. Turn the tables on this old man and beat him at his own game. Report_Story #4 
+ Sure, she was turned on, but she didn't want to cheat. She loved Eli, dearly. She loved him more than anything. He was her husband. She wasn't gonna cheat on him just for some no-doubt great sex. This asshole was brow beating her, defeating her like she had never been defeated before. She was on the debate team in high school. She had participated in countless protests and boycotts, so she knew how to take care of herself in an argument. Yet, this asshole was beating her. But Steph was too stubborn to admit defeat. Steph was too spirited to give up. It was time to fight back. Turn the tables on this old man and beat him at his own game.  
 
  
 
@@ -656,7 +656,7 @@
 
  Like any good warrior, Bill knew Steph's pussy was his for the taking. 
 
- Steph was silent, and Bill watched how awed she was by being in such close proximity with his enormous cock. She chewed on her lower lip, the lust clear in her expressive eyes. Her nipples were throbbing underneath her top, and as she gasped a few panicked breaths, her mammoth breasts were being pushed out, bursting to escape her tight t-shirt, eager to be exposed to the scheming government agent. He knew this bitch thought she was such an enlightened, educated, informed woman, but she had been stripped of that. All she was now was a drooling, submissive size-queen bending to the will of a strong man. Report_Story #5 
+ Steph was silent, and Bill watched how awed she was by being in such close proximity with his enormous cock. She chewed on her lower lip, the lust clear in her expressive eyes. Her nipples were throbbing underneath her top, and as she gasped a few panicked breaths, her mammoth breasts were being pushed out, bursting to escape her tight t-shirt, eager to be exposed to the scheming government agent. He knew this bitch thought she was such an enlightened, educated, informed woman, but she had been stripped of that. All she was now was a drooling, submissive size-queen bending to the will of a strong man.  
 
  
 
@@ -736,7 +736,7 @@
 
  She was a married woman! That had to mean something! But her husband... her husband had abandoned her, left her to this fate. Asshole! What kind of man does that to his wife? Leave her to the whims of a man they both knew was sexually superior to her husband in all ways possible. Leave her fate in the hands of a man that they both knew was a sexual dominator, a real son of a bitch, that was too arrogant to think about anything but his own pleasure, an asshole who would use his wife like a cheap whore if he got the chance, a man that clearly knew how to fuck a woman and keep her loyal. 
 
- Steph didn't want to admit the truth. She didn't want to admit she might be a bit slutty. She might be a bit submissive. Or... a lot slutty... and a lot submissive. She might be the type that gets off on being bossed around by a strong, evil man. She might be the type of girl who sucks and fucks the biggest cock she could find just to make her husband pay for screwing up. She might be the type to give another man the type of nasty sex she would never give to her own husband. The type of fucking that happily married couples don't have, the type of sex a woman can only have with an asshole of a man with a giant cock that knows how to dominate her. The type of guy that doesn't deserve her, the type of guy who is such a prick, such a son-of-a-bitch that he does not deserve to be as lucky with women as he should be. The type of guy who's an evil bastard, a bully, great looking but evil inside, his silky words invading her mind like warriors, conquering the young woman's mind and tempting her into giving up her body. Report_Story #6 
+ Steph didn't want to admit the truth. She didn't want to admit she might be a bit slutty. She might be a bit submissive. Or... a lot slutty... and a lot submissive. She might be the type that gets off on being bossed around by a strong, evil man. She might be the type of girl who sucks and fucks the biggest cock she could find just to make her husband pay for screwing up. She might be the type to give another man the type of nasty sex she would never give to her own husband. The type of fucking that happily married couples don't have, the type of sex a woman can only have with an asshole of a man with a giant cock that knows how to dominate her. The type of guy that doesn't deserve her, the type of guy who is such a prick, such a son-of-a-bitch that he does not deserve to be as lucky with women as he should be. The type of guy who's an evil bastard, a bully, great looking but evil inside, his silky words invading her mind like warriors, conquering the young woman's mind and tempting her into giving up her body.  
 
  
 
@@ -868,7 +868,7 @@
 
  "That's not the bra of a good girl, Steph." Bill remarked. "That's the type of bra a slut wears." he added with a laugh, looking at the lacy black number, a size too small to illustrate just how big those jugs were. She simply smiled with a combination of sheepishness and lust. "Now take it off. Show me those ripe tits!" Bill ordered. Reaching between her tits to the clasp, she undid it and the bra cups exploded outward, exposing her great big breasts to Bill for the first time. 
 
- Even for a man who had seen as many pairs of big breasts as Bill said, Steph's magnificent rack was truly jaw-dropping. They were just huge, amazingly perky and perfectly round. They possessed the ripeness of a teenager's breasts, jutting out and standing proud on her chest, her hard nipples pointing outward. They were just enormous on her slim, luscious frame. The flesh of these massive udders was a smooth, soft white. These breasts were still pure. Unsullied. Report_Story #7 
+ Even for a man who had seen as many pairs of big breasts as Bill said, Steph's magnificent rack was truly jaw-dropping. They were just huge, amazingly perky and perfectly round. They possessed the ripeness of a teenager's breasts, jutting out and standing proud on her chest, her hard nipples pointing outward. They were just enormous on her slim, luscious frame. The flesh of these massive udders was a smooth, soft white. These breasts were still pure. Unsullied.  
 
  
 
@@ -998,7 +998,7 @@
 
  "Fuh..." she moaned out, her head rolling in pleasure. Bill watched as her ass- cheeks reddened, but she just kept her ass in place, clearly loving this kind of treatment. His dick stiffened even more. 
 
- "Peel off your thong... slowly," Bill told the young wife as he leaned back. He watched the her bend over slightly, slide her hands down her sides, take the thong straps between her fingers, and slowly, teasingly, pulled the thong down, pulling it from the confines of her sexy ass crack, till it emerged, the tiny garment falling to the floor, leaving the proud, haughty woman completely naked in front of this evil older man. Report_Story #8 
+ "Peel off your thong... slowly," Bill told the young wife as he leaned back. He watched the her bend over slightly, slide her hands down her sides, take the thong straps between her fingers, and slowly, teasingly, pulled the thong down, pulling it from the confines of her sexy ass crack, till it emerged, the tiny garment falling to the floor, leaving the proud, haughty woman completely naked in front of this evil older man.  
 
  
 
@@ -1142,7 +1142,7 @@
 
  Bill scrubbed his face against the married woman's massive breasts, savoring their softness, but as much as he enjoyed letting the little married slut do all the work, it wouldn't be till he took over that this bitch would truly accept her place. So, reluctantly, he pulled his hands from her huge breasts, bringing them down to her smooth hips, which he grabbed onto roughly. He then began to drive himself upward, his powerful thrusts causing his body to slam into Steph's. 
 
- "OH!" she barked out in pleasure, his cock driving into her even more roughly than before. Bill showed an impressive strength, throwing the young wife down into him as he drove upward, their bodies slapping together violently. His huge, swollen cock was now easily sliding in and out of her tight squeezing cunt, and it was now coated with her juices. Like a smooth piece of machinery, his cock pistoned in and out of the married woman's tight pussy, in an out, in and out, over and over again, never stopping, never slowing down. And her pussy was clearly loving this treatment, squeezing his hard cock with every pump, gripping it roughly, trying to hold it inside of her every time it tried to leave its silky confines. His heavy, swollen balls were slapping against the young woman as he drilled her. Report_Story #9 
+ "OH!" she barked out in pleasure, his cock driving into her even more roughly than before. Bill showed an impressive strength, throwing the young wife down into him as he drove upward, their bodies slapping together violently. His huge, swollen cock was now easily sliding in and out of her tight squeezing cunt, and it was now coated with her juices. Like a smooth piece of machinery, his cock pistoned in and out of the married woman's tight pussy, in an out, in and out, over and over again, never stopping, never slowing down. And her pussy was clearly loving this treatment, squeezing his hard cock with every pump, gripping it roughly, trying to hold it inside of her every time it tried to leave its silky confines. His heavy, swollen balls were slapping against the young woman as he drilled her.  
 
  
 
@@ -1354,7 +1354,7 @@
 
  "YES! YES! OHHHHHMMMMMMYYYYYYYGGGGGOOOODDDDDDDD!" she screamed, cumming again, seconds after the previous one. How could this fucker be so good? He never fucking stopped! He was so rough! Such a brute! An animal! How did he know how to fuck women so well? He was amazing! 
 
- Steph's body was on edge, all of her being worked over by the older man. Not only just the massive cock drilling her roughly. Everything he did was just getting her off. His taut arms wrapped around her, clutching her to him. His big hands, kneading her mammoth breasts, making her squirm. And, of course, his massive cock, filling her to the brim, driving her crazy. Her body was tensed, and her throat was tightened, to the point that even though she was still moaning, her throat was so tight it was silenced. A silent howling moan of pleasure. Report_Story #10 
+ Steph's body was on edge, all of her being worked over by the older man. Not only just the massive cock drilling her roughly. Everything he did was just getting her off. His taut arms wrapped around her, clutching her to him. His big hands, kneading her mammoth breasts, making her squirm. And, of course, his massive cock, filling her to the brim, driving her crazy. Her body was tensed, and her throat was tightened, to the point that even though she was still moaning, her throat was so tight it was silenced. A silent howling moan of pleasure. 0 
 
  
 
@@ -1488,7 +1488,7 @@
 
  "Yes! YES! Fuck me, Daddy! Fuck my tight fucking ass! Give me every fucking inch of your huge cock!" Steph moaned out loudly as he filled her ass with dick at a furious pace. 
 
- "Take that fucking dick you dirty slut!" Bill grunted out, his taut body clenched as he fucked the poor wife as hard as he could manage. Sweat was dripping off of him as he railed Steph's tight ass, the gripping hole squeezing his throbbing cock's entire length on every stroke, causing his balls to boil. It was getting close now. Report_Story #11 
+ "Take that fucking dick you dirty slut!" Bill grunted out, his taut body clenched as he fucked the poor wife as hard as he could manage. Sweat was dripping off of him as he railed Steph's tight ass, the gripping hole squeezing his throbbing cock's entire length on every stroke, causing his balls to boil. It was getting close now. 1 
 
  
 
@@ -1610,7 +1610,7 @@
 
  It just wasn't fair. 
 
- It was only when the plane landed and the air marshal forced Eli to his feet to leave the plane first that Steph finally glanced at him. And when she did, the look she gave him broke his heart. He didn't see any forgiveness. He didn't see any regret. No, Steph looked up at her husband with a wicked, almost arrogant smirk. Eli barely recognized her. It was clear that what she had endured in the bathroom with Bill had changed her. Injected her with something that wasn't there before. Bill's corruption had spread to Steph, adding a spark of evil to her that was both distressing and absolutely dead sexy. It was clear she held him responsible for what had just happened, and she would not be forgiving him anytime soon. If only he could just explain and make her understand, he would bring out that nice, sweet side of her again. He could prove to her that the type of pleasure a guy like Bill could give her didn't match up to the love they shared. And if he could do that, if he could talk to her, she would come back to him. She would. Report_Story #12 
+ It was only when the plane landed and the air marshal forced Eli to his feet to leave the plane first that Steph finally glanced at him. And when she did, the look she gave him broke his heart. He didn't see any forgiveness. He didn't see any regret. No, Steph looked up at her husband with a wicked, almost arrogant smirk. Eli barely recognized her. It was clear that what she had endured in the bathroom with Bill had changed her. Injected her with something that wasn't there before. Bill's corruption had spread to Steph, adding a spark of evil to her that was both distressing and absolutely dead sexy. It was clear she held him responsible for what had just happened, and she would not be forgiving him anytime soon. If only he could just explain and make her understand, he would bring out that nice, sweet side of her again. He could prove to her that the type of pleasure a guy like Bill could give her didn't match up to the love they shared. And if he could do that, if he could talk to her, she would come back to him. She would. 2 
 
  
 

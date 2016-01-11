@@ -200,7 +200,7 @@
 
  It hardly seemed fair but merely shrugged her shoulders, after all this was an excuse to shop. Helen decided to give him a treat after all. With a purpose resolved she strode out through the mall, a professional consumer. 
 
- A makeover would be just perfect, she deserved some pampering. Sitting with a lemon tea she discussed styles with the beautician. A wave of vagueness came over her once more but the young woman seemed to know what was required. Report_Story #2 
+ A makeover would be just perfect, she deserved some pampering. Sitting with a lemon tea she discussed styles with the beautician. A wave of vagueness came over her once more but the young woman seemed to know what was required.  
 
  
 
@@ -440,7 +440,7 @@
 
  Roger looked up from concentrating upon her sex to see large vacant baby blue eyes filled wit lust. They burned with expectation. Her face grimaced into a mask of pain but he knew what it really signified. Sweat poured from her body, her nipples looked ready to explode. 
 
- He quickly moved up her body with licks and nips from his teeth not hesitating when his penis reached between her lips. He plunged in hard burying his cock deep inside. She reacted instantly. Throwing back her head she let out a yell from deep within her belly. Report_Story #3 
+ He quickly moved up her body with licks and nips from his teeth not hesitating when his penis reached between her lips. He plunged in hard burying his cock deep inside. She reacted instantly. Throwing back her head she let out a yell from deep within her belly.  
 
  
 
@@ -448,7 +448,7 @@
 
  She was completely dependent upon his thrusts for she couldn't move. He pushed home one final thrust before spurting into her. Another orgasm spread from her clenched belly following heated nerves to curl her toes and hands clenched tight. 
 
- She wrapped her arms around his back needing to be completely engulfed by him. Whimpering a slight little sound she breathed out barely audible words. "Thank you, Master." Report_Story #1 
+ She wrapped her arms around his back needing to be completely engulfed by him. Whimpering a slight little sound she breathed out barely audible words. "Thank you, Master."  
 
  
 
@@ -636,7 +636,7 @@
 
  With every deep thrust she whimpered. "Thank you, master." 
 
- His second orgasm would take time but it didn't seem like it. When the final push came he felt her bucking under his exhausted body. It wasn't just that she wanted more she was in the throws of a deep orgasm and needed to feel it all. Feeling his seed hit the neck of her womb sent her into overdrive, then as suddenly she crumpled back onto the carpet, sated. Report_Story #2 
+ His second orgasm would take time but it didn't seem like it. When the final push came he felt her bucking under his exhausted body. It wasn't just that she wanted more she was in the throws of a deep orgasm and needed to feel it all. Feeling his seed hit the neck of her womb sent her into overdrive, then as suddenly she crumpled back onto the carpet, sated.  
 
  
 
@@ -806,7 +806,7 @@
 
  Telling her to relax he eased it into place. The sighs and groans were erotic but he managed to concentrate on the task. "Straighten up slowly and don't move until you get used to it." He told her. 
 
- "Thank you, sir." She told him. Aware of how excited she was brought a feeling of humiliation to overshadow it. She had thanked a stranger for pushing such an awful thing into her body and had become excited by it. What would her master say, would he punish her for being so wanton, for being such a slut. It felt big and powerful inside this tender place leaving her feeling so much more vulnerable and small, needing a man to submit to. Report_Story #3 
+ "Thank you, sir." She told him. Aware of how excited she was brought a feeling of humiliation to overshadow it. She had thanked a stranger for pushing such an awful thing into her body and had become excited by it. What would her master say, would he punish her for being so wanton, for being such a slut. It felt big and powerful inside this tender place leaving her feeling so much more vulnerable and small, needing a man to submit to.  
 
  
 

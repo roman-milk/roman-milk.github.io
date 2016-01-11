@@ -220,7 +220,7 @@
 
  "It really doesn't matter to me any more Tiff. Right now the only thing that is important is that you know that nothing that you and I do can hurt my marriage. But that does bring us to just what it is that you expected out of this." 
 
- "As much as I can get lover, and for as long as I can get it. I'm not stupid. I know that the age difference is a killer. We won't like the same music, read the same books or like the same TV shows. All my friends will think I'm crazy for wasting my time with an old geek like you and all of your friends will laugh at you for trying to go back and regain your youth by banging a young bimbo. We just have to take what we can get when we can get it. If we can make it last for years and years good for us. If we can't, well, at least we had a good time and no regrets. Will that work for you?" Report_Story #2 
+ "As much as I can get lover, and for as long as I can get it. I'm not stupid. I know that the age difference is a killer. We won't like the same music, read the same books or like the same TV shows. All my friends will think I'm crazy for wasting my time with an old geek like you and all of your friends will laugh at you for trying to go back and regain your youth by banging a young bimbo. We just have to take what we can get when we can get it. If we can make it last for years and years good for us. If we can't, well, at least we had a good time and no regrets. Will that work for you?"  
 
  
 

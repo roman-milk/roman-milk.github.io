@@ -166,7 +166,7 @@
 
  It might have just been my imagination, but I thought I saw disappointment in Millie's eyes as I led her toward the elevators. We were no sooner in the room than Millie started dropping clothes on the floor. 
 
- "Hurry Rob, hurry" as she headed for the bed. "Yes indeed Rob" I thought, "Bringing Millie on this trip was a stroke of genius. Millie flat wore me out and when I fell asleep I slept like a baby. Report_Story #2 
+ "Hurry Rob, hurry" as she headed for the bed. "Yes indeed Rob" I thought, "Bringing Millie on this trip was a stroke of genius. Millie flat wore me out and when I fell asleep I slept like a baby.  
 
  
 

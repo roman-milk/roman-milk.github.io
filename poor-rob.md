@@ -200,7 +200,7 @@
 
  +++++++++++++++++++ 
 
- They say that the "third time is a charm" but I wasn't ready for a third time. After Diane and Linda I swore off women for a while. I went three months without talking to a woman unless it was business related or for a necessary personal service like ordering lunch from a waitress. But eventually the male hormones caused my cock to scream out, "Enough with the right hand you klutz - feed me!" Report_Story #2 
+ They say that the "third time is a charm" but I wasn't ready for a third time. After Diane and Linda I swore off women for a while. I went three months without talking to a woman unless it was business related or for a necessary personal service like ordering lunch from a waitress. But eventually the male hormones caused my cock to scream out, "Enough with the right hand you klutz - feed me!"  
 
  
 

@@ -98,7 +98,7 @@
 
  I'm sure I had a sense of the ideas swimming in his mind. The very night before, the Friday night, he used that camera to record me masturbating on his bed, as I showed off my body then fucked myself with fingers and a hairbrush to make a video message for Jack. Daddy had set me up with Jack two nights previous to that, and Daddy obviously wanted me to fuck Jack -- so I could stop chasing Daddy's cock. I made the video to beg Jack to fuck me, but really, I wanted Daddy to fuck me. He didn't; he just jerked off in front of me when I was done. 
 
- So now, a night later, I'm standing there in robes with Crystal, handing him the same camera. In fact, the tape inside it was undoubtedly still the one from the night before, with me fucking myself. As I'm pushing the device at my father, I was sure he assumed it had something to do with the sex tape he'd made of his nude, horny daughter. Report_Story #2 
+ So now, a night later, I'm standing there in robes with Crystal, handing him the same camera. In fact, the tape inside it was undoubtedly still the one from the night before, with me fucking myself. As I'm pushing the device at my father, I was sure he assumed it had something to do with the sex tape he'd made of his nude, horny daughter.  
 
  
 
@@ -210,7 +210,7 @@
 
  Daddy trust his penis into Crystal's pussy throughout this next, big cum, and she shrieked and screamed under him feeling it vibrate every part of her being. She was almost crying, whimpering, as the cum subsided, and his big erection was still deep inside her twat. 
 
- After her orgasm, Daddy repositioned her -- and me -- to continue the hot sex with my girl friend. I found myself on my back on the bed, spread open wide, with Crystal now on her fours bent over to eat my cunt. I lifted my head, not seeing her face because her long curly hair was falling all around it. But I felt her wet teen tongue at my aching, juicy twat, and she started licking my clitty then thrusting tongue inside my hole. Down her slender body, past her hot round Latina ass, Daddy was kneeling behind, staring at me, pumping his rock into her twat from behind. I saw her tight, plump asscheeks rippling each time he thrust forward, and she was grunting into my pussy from the feeling of his massive cock filling her little teen vagina. She was a good cunt-licker, expertly darting her tongue around my clit and then inside my hole. I gave in, gyrating my hips under hers, feeling her making love to me with her mouth, until I was having orgasms against her face. Report_Story #3 
+ After her orgasm, Daddy repositioned her -- and me -- to continue the hot sex with my girl friend. I found myself on my back on the bed, spread open wide, with Crystal now on her fours bent over to eat my cunt. I lifted my head, not seeing her face because her long curly hair was falling all around it. But I felt her wet teen tongue at my aching, juicy twat, and she started licking my clitty then thrusting tongue inside my hole. Down her slender body, past her hot round Latina ass, Daddy was kneeling behind, staring at me, pumping his rock into her twat from behind. I saw her tight, plump asscheeks rippling each time he thrust forward, and she was grunting into my pussy from the feeling of his massive cock filling her little teen vagina. She was a good cunt-licker, expertly darting her tongue around my clit and then inside my hole. I gave in, gyrating my hips under hers, feeling her making love to me with her mouth, until I was having orgasms against her face.  
 
  
 
@@ -350,7 +350,7 @@
 
  The feeling at that moment was so powerful. It was awesome finally getting my Daddy to fuck me -- although I needed Crystal's help to do it. I loved having Jack for a boyfriend, it really made me feel amazing with a successful, rich adult stud introducing me as his girlfriend. I loved feeling like a feminine slut, meeting hot strangers and fucking their big dicks just for the fun of it. But now, a bitch in the "in" crowd at school had come to me, begging to join one of our orgies, so she could fuck multiple adult dicks too. I'll be your best friend, you can come to my secret parties too, Debi kept promising me. It all sounded phony, until I told her, if you want to come, bring a girlfriend with you. I didn't think she'd do it. But she did, she wanted to badly, she brought me a gift. Who was in the "in" crowd now? 
 
- "Daddy," I giggled, turning around to watch my father thrusting his penis into my cousin's vagina, "guess what, at the orgy on Saturday, that girl Debi is going to come -- and she's bringing a girl friend, some other hot blonde." Report_Story #4 
+ "Daddy," I giggled, turning around to watch my father thrusting his penis into my cousin's vagina, "guess what, at the orgy on Saturday, that girl Debi is going to come -- and she's bringing a girl friend, some other hot blonde."  
 
  
 

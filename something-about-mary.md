@@ -236,7 +236,7 @@
 
  *** 
 
- "I need to talk to you." Report_Story #2 
+ "I need to talk to you."  
 
  
 
@@ -416,7 +416,7 @@
 
  "Over me, let me taste you, do it all over me." Her Father's dominant attitude excited her and Helena's fingers were busy between her legs as she masturbated to another climax, 
 
- Her eyes shone as her Father's semen splashed onto her tongue and she massaged the stray ropes of goo into her breasts. She swallowed the stuff in her mouth and then took his cock in her fist and sucked at it. Helena slurped at the semen that oozed from the eye, making appreciative noises at the back of her throat as she licked and sucked at her father. Report_Story #3 
+ Her eyes shone as her Father's semen splashed onto her tongue and she massaged the stray ropes of goo into her breasts. She swallowed the stuff in her mouth and then took his cock in her fist and sucked at it. Helena slurped at the semen that oozed from the eye, making appreciative noises at the back of her throat as she licked and sucked at her father.  
 
  
 

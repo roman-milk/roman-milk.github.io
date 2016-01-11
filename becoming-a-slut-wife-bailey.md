@@ -218,7 +218,7 @@
 
  "After this little phone sex thing that I pulled he will get it in his head that it will be a kick to fuck Bev while she is talking to you on the phone. Bev will call your place a couple of times and then she will try your cell. If you listen real close you will be able to hear something. Where's your cell?" 
 
- "Clipped to my belt and my pants are in the family room on the floor." Report_Story #2 
+ "Clipped to my belt and my pants are in the family room on the floor."  
 
  
 

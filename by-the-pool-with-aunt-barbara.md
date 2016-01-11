@@ -198,7 +198,7 @@
 
  I gasp and swallow heavily when her palm presses against the hard ridge I’m sporting inside my shorts now she’s so close. 
 
- “Will you show me?” my aunt asks, head canted sideways. Report_Story #2 
+ “Will you show me?” my aunt asks, head canted sideways.  
 
  
 

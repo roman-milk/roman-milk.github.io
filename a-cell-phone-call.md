@@ -216,7 +216,7 @@
 
  At three forty-five I was parked in the IHOP parking lot across the street from the Best Western. I had a good view of the door to room 114 and I settled in to wait. At four twenty-five a man walked up to the door of room 114 and put his key in the door and entered. I recognized him from one of Candy's office Christmas parties. His name was Dave Maxxon and he was the manager of one of the offices in Candy's region. 
 
- At five fifteen a familiar Chevy Tahoe pulled up in front of room 114 and parked. Candy got out, walked up to the door and knocked, the door opened and she went inside. I watched the door until five to seven and then I drove on home. Report_Story #2 
+ At five fifteen a familiar Chevy Tahoe pulled up in front of room 114 and parked. Candy got out, walked up to the door and knocked, the door opened and she went inside. I watched the door until five to seven and then I drove on home.  
 
  
 

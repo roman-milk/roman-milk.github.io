@@ -224,7 +224,7 @@
 
  I left them to shop and I drove over to Home Depot and picked up a few things and then drove back to the store. When we got home Kari said she would whip up something for dinner and I went out in the garage and rummaged through my tool box for what I would need. 
 
- We had a dinner of hamburger steaks and gravy with mashed potatoes and green beans and when everyone was done eating I reached down by my chair and pulled up the Home Depot bag. I took out the three packaged sets of keyed doorknobs and handed one to each of them. Report_Story #2 
+ We had a dinner of hamburger steaks and gravy with mashed potatoes and green beans and when everyone was done eating I reached down by my chair and pulled up the Home Depot bag. I took out the three packaged sets of keyed doorknobs and handed one to each of them.  
 
  
 
@@ -402,7 +402,7 @@
 
  Then it was her turn. She had never cheated on me and she wasn't really leaving me. It was just going to be a trial separation to give her some time and space to work on some issues she had with our marriage. She wasn't running off with DJ; he was just a friend she had there with her in case I tried to stop her from leaving. And she didn't mean to take all of the money out of our account. She only meant to take half, but she was nervous, sweating the coming confrontation with me and here mind was elsewhere when the teller at the bank told her our balance and she automatically wrote it down on the withdrawal slip. She realized the mistake on her way home and she intended to give me half the money before she left, but I never gave her the chance The bottom line was that she loved me, really, really loved me and it was all just a huge mistake and that we could work things out. 
 
- The councilor said that was enough for that session. He told us each to make a list of the issues we each saw in the marriage and bring it to the next session to discuss. I wanted to tell him there wouldn't be anymore sessions, but I couldn't. My lawyer ha already told me that the divorce was stalled until the court had the report from the marriage councilor saying that no hope of a reconciliation existed and that no councilor was going to say that without at least four sessions. Report_Story #3 
+ The councilor said that was enough for that session. He told us each to make a list of the issues we each saw in the marriage and bring it to the next session to discuss. I wanted to tell him there wouldn't be anymore sessions, but I couldn't. My lawyer ha already told me that the divorce was stalled until the court had the report from the marriage councilor saying that no hope of a reconciliation existed and that no councilor was going to say that without at least four sessions.  
 
  
 
@@ -438,7 +438,7 @@
 
  My ending to this story is already written and I will post it thirty days after the first part is posted. I believe that I have given plenty to work with and it will be interesting to see what others can come up with. 
 
- JPB October 19, 2009 Report_Story #1 
+ JPB October 19, 2009  
 
  
 
@@ -670,7 +670,7 @@
 
  "I'm a healthy girl Rob and I haven't had sex since the last time with you." 
 
- "So go get yourself laid." Report_Story #2 
+ "So go get yourself laid."  
 
  
 
@@ -888,7 +888,7 @@
 
  I didn't get much sleep that night. In my mind was the thought that the twins knew Audrey would be moving back in the next day and they might see that since I would be alone that night it might be a good time to take a shot at me. I remembered their plan that had brought the mother into my bed and every little noise had me looking at the bedroom door, but morning came without my having to fight them off. 
 
- x-x-x-x-x-x-x-x-x-x Report_Story #3 
+ x-x-x-x-x-x-x-x-x-x  
 
  
 
@@ -1066,7 +1066,7 @@
 
  Audrey was surprised when she came out of the offices of BB and H with Hathaway to find me sitting on the sidewalk on a folding chair. I pointed to the other folding chair and said "sit!" She looked from me to Mark and then back at me and then she sat down. I handed her the divorce papers and said: 
 
- "If you look you will see that they are not signed. Before you ask me why I have a few things to say. I cheated you when I told you that you could come back and try to put things back together. I let you come back and all the while in the back of my mind I had the thought that it was never going to happen. I had already made up my mind that you were going to leave me again in your search for fun and excitement and why wouldn't you? I was an unexciting stick in the mud and I knew it and I also knew that was who I was and that I wasn't going to change. So not really believing we had a chance I didn't try. I went through the motions with one eye on the calendar trying to pick out the day, week or month when it would happen. What is so stupid about it is that I really did want it to work. I did want us to put things back together. Report_Story #4 
+ "If you look you will see that they are not signed. Before you ask me why I have a few things to say. I cheated you when I told you that you could come back and try to put things back together. I let you come back and all the while in the back of my mind I had the thought that it was never going to happen. I had already made up my mind that you were going to leave me again in your search for fun and excitement and why wouldn't you? I was an unexciting stick in the mud and I knew it and I also knew that was who I was and that I wasn't going to change. So not really believing we had a chance I didn't try. I went through the motions with one eye on the calendar trying to pick out the day, week or month when it would happen. What is so stupid about it is that I really did want it to work. I did want us to put things back together.  
 
  
 

@@ -242,7 +242,7 @@
 
  "I love you too, Daddy. 
 
- We went back inside and sat on the sofa. She turned on the TV and snuggled up next to me. I don't think either one of was listening to the TV. We were both lost in thought about what had just happened. I would find out what she was thinking in the next couple of days. I kept trying to think of myself as single. It had a strange ring to it but it was slowly sinking in. I knew I wasn't legally divorced but I felt that signing the papers released both of us from our marriage vows. I didn't care if Mel got three boyfriends. Report_Story #2 
+ We went back inside and sat on the sofa. She turned on the TV and snuggled up next to me. I don't think either one of was listening to the TV. We were both lost in thought about what had just happened. I would find out what she was thinking in the next couple of days. I kept trying to think of myself as single. It had a strange ring to it but it was slowly sinking in. I knew I wasn't legally divorced but I felt that signing the papers released both of us from our marriage vows. I didn't care if Mel got three boyfriends.  
 
  
 
@@ -490,7 +490,7 @@
 
  Sarah starts rambling on about all their plans. Richard and Bea wants us to meet for dinner at the country club. She already has her wedding dress and the bridesmaids dresses picked out. Richard is sending them to Hawaii for their honeymoon. And last but not least she took her last birth control pill two weeks ago. 
 
- "Baby girl. How much is this wedding going to cost me?" Report_Story #3 
+ "Baby girl. How much is this wedding going to cost me?"  
 
  
 
@@ -794,7 +794,7 @@
 
  'I did too. I'll be looking forward to our next time." 
 
- I went up to the bedroom and found that Benson had laid out some clothes for me. My bags were packed ready to go. I got dressed and went back down. Bea walked me to the door. After a passionate kiss I got in my car and drove away. I thought I saw a tear in her, but I wasn't sure. Report_Story #4 
+ I went up to the bedroom and found that Benson had laid out some clothes for me. My bags were packed ready to go. I got dressed and went back down. Bea walked me to the door. After a passionate kiss I got in my car and drove away. I thought I saw a tear in her, but I wasn't sure.  
 
  
 

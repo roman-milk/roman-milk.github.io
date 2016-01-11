@@ -192,7 +192,7 @@
 
  "If you feel up to it there is a policeman here who needs to talk to you." 
 
- It had to happen sooner or later so I told the doctor to send him in. Mike Bolla was a detective and from him I learned that Beth had called 911 to get an ambulance for me and Billy and the paramedics had called the cops. He asked me for my version of what happened and I gave it to him. He shook his head and said: Report_Story #2 
+ It had to happen sooner or later so I told the doctor to send him in. Mike Bolla was a detective and from him I learned that Beth had called 911 to get an ambulance for me and Billy and the paramedics had called the cops. He asked me for my version of what happened and I gave it to him. He shook his head and said:  
 
  
 
@@ -416,7 +416,7 @@
 
  The story she got from Billy was that he had always resented me and saw fucking Beth as a way of sticking it to me. I went to college and he didn't get to go and somehow that was my fault. I had deliberately shown him up on the football field and baseball diamond. I must have sucked the coach's cock to get to play while he had to sit on the bench. He was better than me and he proved it by fucking Beth better than I ever had and he knew it because Beth told him so. She told him he was bigger and fucked her better and that she wished she had married him instead of me. 
 
- I laughed at that and told her what Beth had told me about Billy's bedroom abilities. And then Annie told me that she had found out the one thing that Beth had absolutely refused to tell me. The reason. Billy had come by one day to borrow my power washer and he had walked into the house and found Beth fucking my father. My father!! No wonder Beth didn't want to tell me why she was being blackmailed. My father!! My father and my brother!! Thank God I had no other living male relatives or they might have gotten her too. They didn't see Billy and he took a couple of pictures with his cell phone and quietly left the house. A day later he stopped by the house, showed Beth the pictures that he had and then told her the price she had to pay to keep me from ever seeing them. Report_Story #3 
+ I laughed at that and told her what Beth had told me about Billy's bedroom abilities. And then Annie told me that she had found out the one thing that Beth had absolutely refused to tell me. The reason. Billy had come by one day to borrow my power washer and he had walked into the house and found Beth fucking my father. My father!! No wonder Beth didn't want to tell me why she was being blackmailed. My father!! My father and my brother!! Thank God I had no other living male relatives or they might have gotten her too. They didn't see Billy and he took a couple of pictures with his cell phone and quietly left the house. A day later he stopped by the house, showed Beth the pictures that he had and then told her the price she had to pay to keep me from ever seeing them.  
 
  
 

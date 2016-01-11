@@ -140,7 +140,7 @@
 
  'What..?' Her question was curtailed sharply when Matt turned suddenly and took hold of Kimberley's face in his huge grip, his fingers digging into her cheeks and distorting her pretty features. 
 
- 'Do... As... I... Fuckin'... Tell... You...' He spat each word into her face, Kimberley wincing at each as if it were a slap. He released his grip and looked down at me with contempt, 'Take a good look at 'er. You know you fancy the fuckin' arse off 'er.' Report_Story #2 
+ 'Do... As... I... Fuckin'... Tell... You...' He spat each word into her face, Kimberley wincing at each as if it were a slap. He released his grip and looked down at me with contempt, 'Take a good look at 'er. You know you fancy the fuckin' arse off 'er.'  
 
  
 
@@ -302,7 +302,7 @@
 
  She just looked up at me and shrugged. 'You'd better go,' was all she said. 
 
- 'But...' I started to reply but was cut off. Report_Story #3 
+ 'But...' I started to reply but was cut off.  
 
  
 

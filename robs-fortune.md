@@ -150,7 +150,7 @@
 
  "Still have three to go." 
 
- Only two guys in a year? I wanted to ask her what kind of selection process she had, but decided that I really didn't want to know so I kept my mouth shut. Report_Story #2 
+ Only two guys in a year? I wanted to ask her what kind of selection process she had, but decided that I really didn't want to know so I kept my mouth shut.  
 
  
 
@@ -404,7 +404,7 @@
 
  "It wasn't anything Rob. It had nothing to do with my love for you." 
 
- "One last time Marcy; what did you do for four hours with your pretend husband? I get an answer or I'm out of here." Report_Story #3 
+ "One last time Marcy; what did you do for four hours with your pretend husband? I get an answer or I'm out of here."  
 
  
 
@@ -626,7 +626,7 @@
 
  We worked out a story that was believable and it was a good thing because we weren't five minutes into the dinner conversation when Betsy Newman asked that very question and Ellen said: 
 
- "I backed into his truck in the library parking lot and I left a note with my name and telephone number under his windshield wiper. He called me and one thing led to another and here we are." Report_Story #4 
+ "I backed into his truck in the library parking lot and I left a note with my name and telephone number under his windshield wiper. He called me and one thing led to another and here we are."  
 
  
 
@@ -830,7 +830,7 @@
 
  Two months went by and I used Ellen on the average of two times a week and I usually took her out to dinner on either Saturday or Sunday. She seemed to be very comfortable with our arrangement and there was no awkwardness in the house. She gave me a lot of 'wood' but I managed to hide it from her although I did increase my visits to Tasha. 
 
- The only problem that I had was with my accountant who told me that I couldn't (or at least shouldn't) be doing what I was doing through the company books. I finally had to tell him to do it and then do whatever he had to do to make it legal. If I had to pay some extra taxes or whatever, just get it done. "What the hell" I hollered at him, "It is my goddamned money and I'll do with it what I want." Report_Story #5 
+ The only problem that I had was with my accountant who told me that I couldn't (or at least shouldn't) be doing what I was doing through the company books. I finally had to tell him to do it and then do whatever he had to do to make it legal. If I had to pay some extra taxes or whatever, just get it done. "What the hell" I hollered at him, "It is my goddamned money and I'll do with it what I want."  
 
  
 
@@ -1042,7 +1042,7 @@
 
  x-x-x-x-x-x-x-x-x-x 
 
- Friday night there was a meeting of the Arts Council and I wondered how it would go because Gail was also on the council. Sure enough when the meeting broke up Gail grabbed onto me and asked me to have coffee with her. I couldn't be impolite so I said okay. I knew it was coming so when she asked where Ellen had been lately I had a story ready. I shrugged and said: Report_Story #6 
+ Friday night there was a meeting of the Arts Council and I wondered how it would go because Gail was also on the council. Sure enough when the meeting broke up Gail grabbed onto me and asked me to have coffee with her. I couldn't be impolite so I said okay. I knew it was coming so when she asked where Ellen had been lately I had a story ready. I shrugged and said:  
 
  
 

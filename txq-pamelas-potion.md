@@ -232,7 +232,7 @@
 
  Every hour or so, one of them would check on me. Randy would make sure the ropes were holding, offer me a drink, and update me. His report never changed. They were getting all holes filled and begging for more. 
 
- Becky and Julie would come down, get me hard if I wasn't already, and go for a ride. On her last visit Julie was worked up, and fucked herself ragged on my cock. "You're the only one I'm doing," she whispered. "Just you, Mr. Young. I wish I could do more for you." She hugged me, running her fingers through my hair. "You're going to owe Becky. She's doing the hard part. Keeping the boys ready, putting the condoms on them, making sure they don't play too rough. Keeping the cameras out of the room. It would be bad if she wasn't here." Report_Story #2 
+ Becky and Julie would come down, get me hard if I wasn't already, and go for a ride. On her last visit Julie was worked up, and fucked herself ragged on my cock. "You're the only one I'm doing," she whispered. "Just you, Mr. Young. I wish I could do more for you." She hugged me, running her fingers through my hair. "You're going to owe Becky. She's doing the hard part. Keeping the boys ready, putting the condoms on them, making sure they don't play too rough. Keeping the cameras out of the room. It would be bad if she wasn't here."  
 
  
 

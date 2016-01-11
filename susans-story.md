@@ -128,7 +128,7 @@
 
  Susan drove home in a daze wondering what to do. Jay wasn't home yet so she was alone with her dilemma. She took the items out of her purse and thought of ways to get out of the situation. 'What would he do if I don't wear the thong,' she wondered? 'What would he do if I don't shave my pussy?' Susan kept asking herself these questions but she was unable to find a way out. 
 
- Her mind was in another world all evening but Jay was too preoccupied to even notice. Susan's usual custom was to have a bath before bed so she ran the water in preparation. Suddenly she felt a wave of shame rush through her head, as she wondered what she would say to her husband about being shaved? 'No, I just can't do what he ordered,' she whispered. Report_Story #2 
+ Her mind was in another world all evening but Jay was too preoccupied to even notice. Susan's usual custom was to have a bath before bed so she ran the water in preparation. Suddenly she felt a wave of shame rush through her head, as she wondered what she would say to her husband about being shaved? 'No, I just can't do what he ordered,' she whispered.  
 
  
 
@@ -232,7 +232,7 @@
 
  Kaz knew she was reluctant and hesitant about being there. She would certainly put up a fight to stop him from assaulting her body, he assumed. Seeing her sexy body clothed in the provocative schoolgirl outfit made his heart skip a few beats. He knew seducing Susan would be worth any risk, as she was such a well, refined woman. 
 
- As Susan got closer, Kaz stood up and quickly put his arms around her pulling her tight to his rugged body. "I knew you would come... you want my hard cock and by God I can hardly wait to fuck your ass," he whispered. "You are going to be my loving slut... now let's see if you dressed as instructed," he said holding his face next to Susan. Report_Story #3 
+ As Susan got closer, Kaz stood up and quickly put his arms around her pulling her tight to his rugged body. "I knew you would come... you want my hard cock and by God I can hardly wait to fuck your ass," he whispered. "You are going to be my loving slut... now let's see if you dressed as instructed," he said holding his face next to Susan.  
 
  
 
@@ -296,7 +296,7 @@
 
  THE END OF PART ONE 
 
- Please send me your comments and suggestions, as I always love to hear from readers. I have re-written the story because I was not happy with the first version. You can email them to the address in my profile. Report_Story #1 
+ Please send me your comments and suggestions, as I always love to hear from readers. I have re-written the story because I was not happy with the first version. You can email them to the address in my profile.  
 
  
 
@@ -418,7 +418,7 @@
 
  Quickly each boy removed his restrictive clothing preparing to make the sexy teacher his fuck toy. Opening her eyes, Susan noticed Kaz sitting right next to her on the sofa and his hard, thick cock was standing proudly. She gasped sucking in her breath, as his cock looked more magnificent than she ever imagined. 
 
- All of a sudden Susan realized Kaz was talking to her. "Now you are going to be my slut... use my cock to satisfy your slut desire," he said lying back onto the soft cushions. His manhood jerked and seemed to beckon. He merely lay motionless and waited before speaking again. "Sit on me... fuck my cock, sweetheart." He stated the order in a voice that told Susan he meant every word. Report_Story #2 
+ All of a sudden Susan realized Kaz was talking to her. "Now you are going to be my slut... use my cock to satisfy your slut desire," he said lying back onto the soft cushions. His manhood jerked and seemed to beckon. He merely lay motionless and waited before speaking again. "Sit on me... fuck my cock, sweetheart." He stated the order in a voice that told Susan he meant every word.  
 
  
 
@@ -528,7 +528,7 @@
 
  Jay mumbled encouragement trying hard to coax Susan to continue. All his married life he dreamed of Susan being with another man but he had given up hope when she steadfastly refused such sinful affairs. Suddenly his wife seemed to be caught up in a struggle for righteousness being harassed by one of her students. 
 
- Susan desperately wanted to stop talking, as her tummy churned with anxiety. Frantically she thought of reasons why she went to visit her student. "He said he would tell the dean... tell the dean that I let him feel my boobs... and gawd, he did one more thing," she blurted out watching Jay's face get even more excited and animated. Report_Story #3 
+ Susan desperately wanted to stop talking, as her tummy churned with anxiety. Frantically she thought of reasons why she went to visit her student. "He said he would tell the dean... tell the dean that I let him feel my boobs... and gawd, he did one more thing," she blurted out watching Jay's face get even more excited and animated.  
 
  
 
@@ -564,7 +564,7 @@
 
  THE END OF CHAPTER TWO 
 
- Please send any comments or suggestions to me, as I do like hearing from readers. I have re-written the story because I was not happy with the first version. I am fairly new at erotic writing and your suggestions help. Report_Story #1 
+ Please send any comments or suggestions to me, as I do like hearing from readers. I have re-written the story because I was not happy with the first version. I am fairly new at erotic writing and your suggestions help.  
 
  
 
@@ -678,7 +678,7 @@
 
  Jim was speaking to her again and it took a second or two before Susan could concentrate on what he said. He had formed a devious plan feeling more and more aroused with Susan's nakedness staring him in the face. "I think a small tattoo near your pussy would look nice... and I'm sure your boyfriend would like that," he said with the biggest grin. 
 
- He glanced at Kaz to see his eager smile. "Heck, I'll even do it for free since I like you two." Report_Story #2 
+ He glanced at Kaz to see his eager smile. "Heck, I'll even do it for free since I like you two."  
 
  
 
@@ -784,7 +784,7 @@
 
  Slowly and with the patience of a demon, Jim inched his cock inside the honey hole while giving another tug on her hair. Panic filled her pure soul and Susan couldn't think of any way out. "Please... please, Oh gawd, please... Oh gawd, I can't talk dirty," she whispered in her most pleading voice. 
 
- Desperately she tried to quell the rising emotions but this man had control of her morality switch. "Please... Ple... Fuck me, Oh fuck me you bastard. Shove your hard cock into my slut cunt... you bastard... fuck me," she moaned, as her words were cut off by an overwhelming lust so uncommon to her. Powerful spasms shocked her body to the core. "Fuck me... Oh gawd I need it so bad... soooo bad." Report_Story #3 
+ Desperately she tried to quell the rising emotions but this man had control of her morality switch. "Please... Ple... Fuck me, Oh fuck me you bastard. Shove your hard cock into my slut cunt... you bastard... fuck me," she moaned, as her words were cut off by an overwhelming lust so uncommon to her. Powerful spasms shocked her body to the core. "Fuck me... Oh gawd I need it so bad... soooo bad."  
 
  
 
@@ -886,7 +886,7 @@
 
  THE END OF CHAPTER THREE - A TATTOO FOREVER 
 
- Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help. I have re-written this story because I was not happy with the first version so hopefully readers will like this one better. Report_Story #1 
+ Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help. I have re-written this story because I was not happy with the first version so hopefully readers will like this one better.  
 
  
 
@@ -988,7 +988,7 @@
 
  Frantically, Susan glanced around but she could not see anyone in the dim light. The vulture sucked her pussy like it was nectar from an oasis and Susan had never experienced anything so damning. She succumbed to the hungry mouth even though she was in a public place. Susan worried that the loud lapping sounds might be heard for rows but then the stranger attacked her control button with a fury. He nibbled on the inflamed clitoris and caressed it with his darting tongue. Every time he thrashed the throbbing clit with the tip of his tongue, Susan's hips would thrust and he knew she was enjoying the cunnilingus, as much as he was. 
 
- As hard as Susan tried to prevent the rising riptide, it built from her deepest regions and suddenly flowed forward. She was embarrassed by the quick onset of the orgasm and was unable to stop it from rushing towards the apex. The juices flowed from her inner soul and the man swallowed the womanly succulence with a dire thirst. The orgasm sent violent spasms through her lithe body and her emotions soared upward. Susan experienced such intense ecstasy and she willingly gave herself to a complete stranger right there inside a movie theater. At that very moment, Susan did not care who was watching or who could see her sordid affair. The lust consumed her mind and turned her into a common slut much to Kaz's delight. Report_Story #2 
+ As hard as Susan tried to prevent the rising riptide, it built from her deepest regions and suddenly flowed forward. She was embarrassed by the quick onset of the orgasm and was unable to stop it from rushing towards the apex. The juices flowed from her inner soul and the man swallowed the womanly succulence with a dire thirst. The orgasm sent violent spasms through her lithe body and her emotions soared upward. Susan experienced such intense ecstasy and she willingly gave herself to a complete stranger right there inside a movie theater. At that very moment, Susan did not care who was watching or who could see her sordid affair. The lust consumed her mind and turned her into a common slut much to Kaz's delight.  
 
  
 
@@ -1084,7 +1084,7 @@
 
  Obediently, Susan sucked on the tiny pea and although she tried to keep her teeth off it, Julie could feel the sharp ivories graze the tip. Desperately, Julie grabbed Susan's hand and brought it up to the free tit. No order was required, as Susan pinched the hardened nipple between her fingers. Julie felt like she was on a roller coaster without any control over the speed. Soaring upward, a powerful orgasm roared out of her belly like no other and with such velocity that she was unable to stop it. 
 
- The two men watched in amazement when Julie went through the throes of an intense orgasm. She bucked out of control in the seat with Susan hanging onto her luscious titties for dear life. "Oh gawd... I can't stop. I'm creaming my panties," she screamed loudly but no one cared. She had never climaxed so quickly or without someone touching her cunt. Now the violent explosions rocked her little body and it was all Susan could do to hang onto the big tits. Feeling a woman thrust and climax under her control gave Susan a strange, new feeling. Report_Story #3 
+ The two men watched in amazement when Julie went through the throes of an intense orgasm. She bucked out of control in the seat with Susan hanging onto her luscious titties for dear life. "Oh gawd... I can't stop. I'm creaming my panties," she screamed loudly but no one cared. She had never climaxed so quickly or without someone touching her cunt. Now the violent explosions rocked her little body and it was all Susan could do to hang onto the big tits. Feeling a woman thrust and climax under her control gave Susan a strange, new feeling.  
 
  
 
@@ -1184,7 +1184,7 @@
 
  * 
 
- Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help. Report_Story #1 
+ Please send any comments or suggestions to me, as I do like hearing from readers. I am fairly new at erotic writing and your suggestions help.  
 
  
 
@@ -1292,7 +1292,7 @@
 
  "You can come with me after the last class... about three. We can meet right here," Susan told her. Then a big feeling of relief washed over her, as the dreaded deed was done. Her heart did a flip-flop as she watched Sammi leave the room. She gave a little shudder from seeing the young woman's gorgeous ass highlighted by her tightest blue jeans. Susan thought it odd to be thinking like that and bewildered by the fact she looked at another woman in a sexual manner. 
 
- The break was over with Susan still sitting bewildered at her desk. It a matter of a few moments, she got totally involved in the next class, which took her mind off the upcoming dilemma. When the final bell sounded, all of her troubles surfaced once again. The vulnerable feelings hit and Susan felt totally helpless against such a strong person, as Kaz. The incriminating evidence he held only added to his strength. Report_Story #2 
+ The break was over with Susan still sitting bewildered at her desk. It a matter of a few moments, she got totally involved in the next class, which took her mind off the upcoming dilemma. When the final bell sounded, all of her troubles surfaced once again. The vulnerable feelings hit and Susan felt totally helpless against such a strong person, as Kaz. The incriminating evidence he held only added to his strength.  
 
  
 
@@ -1408,7 +1408,7 @@
 
  Susan had never been hypnotized in her life but she felt that way. Her powerful young student seemed to have complete control over her mind so that Susan felt the young woman also owned her soul. When Sammi spoke, Susan felt like she was in a complete trance. "I want you to suck my breasts... lick my nipples with your hot mouth," she whispered sending a shiver through Susan's body. Somehow Sammi grabbed her small, dainty hands and she placed each palm over her big boob. 
 
- All the heated action was arousing the young student and she found it increasing harder to keep the pace slow. Sammi loved nothing more than to seduce an innocent woman especially someone she adored and cherish. Report_Story #3 
+ All the heated action was arousing the young student and she found it increasing harder to keep the pace slow. Sammi loved nothing more than to seduce an innocent woman especially someone she adored and cherish.  
 
  
 
@@ -1518,7 +1518,7 @@
 
  Sammi felt more confident by the second. "Oops," she whispered dipping the wide head into the soaked slit in teasing fashion. Suddenly the powerful woman kissed Susan on the lips. The kiss took Susan by surprise and it swallowed up the intended protest from the distraught teacher. The probing tongue pressed against the tightly closed lips indicating urgency for her to submit. 
 
- With a tiny sob, Susan relaxed slightly but that was enough, as the tongue seized the opportunity. A struggle ensued but Susan was no match. The tongues intertwined quickly in a affectionate caress and all the spectators witnessed a most erotic seduction. The cock head was exactly positioned in the opening and Sammi gave a little thrust with her strong hips. Susan's plea for mercy was a silent cry but everyone saw her back arch frantically trying to evade the lengthy sword. Report_Story #4 
+ With a tiny sob, Susan relaxed slightly but that was enough, as the tongue seized the opportunity. A struggle ensued but Susan was no match. The tongues intertwined quickly in a affectionate caress and all the spectators witnessed a most erotic seduction. The cock head was exactly positioned in the opening and Sammi gave a little thrust with her strong hips. Susan's plea for mercy was a silent cry but everyone saw her back arch frantically trying to evade the lengthy sword.  
 
  
 
@@ -1624,7 +1624,7 @@
 
  All the emotions were real and there was no acting by the players. Ron, Kaz, and Vanya felt that familiar stirring deep inside knowing it would not take long for rejuvenation. Kaz whispered to Ron and Vanya telling them it was time. He quickly went over his plan setting the stage for a new orgy. The others agreed without hesitation saying it was foolproof. 
 
- It happened so fast that Sammi didn't have time to escape or to run away. "Don't worry bitch, we are not going to hurt you... but you're going to get some of your own medicine," Kaz explained to the suddenly frightened sophomore. "You seemed to like making innocent women surrender to your whims... now we're going to make you surrender to ours." Report_Story #5 
+ It happened so fast that Sammi didn't have time to escape or to run away. "Don't worry bitch, we are not going to hurt you... but you're going to get some of your own medicine," Kaz explained to the suddenly frightened sophomore. "You seemed to like making innocent women surrender to your whims... now we're going to make you surrender to ours."  
 
  
 
@@ -1728,7 +1728,7 @@
 
  Giving immense enjoyment to her husband and the other three men was Julie's major concern. She was fully aware of the fact that the more she degraded the student, the more satisfaction it would bring the men. One additional fixation on Julie's agenda was turning the teacher into a subservient slave. Julie vowed to prolong the session until Susan was fully aroused so the men could watch her demise. Julie's stomach quivered in anticipation of having the teacher beg loud enough for the men to hear her. The thought made Julie wonder why such perverted sex gave her such fantastic ecstasy. 
 
- The feeling of helplessness was unbelievable to Sammi. She sobbed with her situation seemingly hopeless, as both women assaulted her writhering body. Twisting and rolling in an attempt to get away merely made Julie more determined. Roughly, Julie's strong fingers reached under the rotating hips and her nails raked the tender flesh bringing further moans of protest from her captive. The harder she squeezed Sammi's firm ass, the less resistance was exerted by the beaten victim. Report_Story #6 
+ The feeling of helplessness was unbelievable to Sammi. She sobbed with her situation seemingly hopeless, as both women assaulted her writhering body. Twisting and rolling in an attempt to get away merely made Julie more determined. Roughly, Julie's strong fingers reached under the rotating hips and her nails raked the tender flesh bringing further moans of protest from her captive. The harder she squeezed Sammi's firm ass, the less resistance was exerted by the beaten victim.  
 
  
 
@@ -1838,7 +1838,7 @@
 
  The visualizations were real and in living color, as they floated through her bemused head. A fleeting image of sucking and licking Sammi's most beautiful cunt filled her with utter shame. The scene shifted to the young student returning the favor and Susan's tummy fluttered remembering how she fell under Sammi's control. Susan never imagined that a shaved pussy would be so alluring or tempting and she wondered how she could ever explain that to Jay. 
 
- To top it all off, Susan had allowed Kaz and all his friends to fuck her pussy and even permitted Vanya to have anal sex. Jay would never understand how she could succumb and surrender her soul to all these people. Many times her husband attempted different types of sex with her but Susan always refused saying that it was immoral. Tonight she performed illicit acts that a person would see in a blue, adult movie shown in a triple-X theater. Report_Story #7 
+ To top it all off, Susan had allowed Kaz and all his friends to fuck her pussy and even permitted Vanya to have anal sex. Jay would never understand how she could succumb and surrender her soul to all these people. Many times her husband attempted different types of sex with her but Susan always refused saying that it was immoral. Tonight she performed illicit acts that a person would see in a blue, adult movie shown in a triple-X theater.  
 
  
 
@@ -1846,7 +1846,7 @@
 
  THE END OF PART 5 
 
- Please email me any suggestions or comments as I always appreciate hearing from readers. This chapter was extremely harder to complete with so many participants and I hope it flows okay. To Susan, I hope you like what has happened to you and these fantasies fill you with excitement. I will begin the next chapter with Susan's return home. Report_Story #1 
+ Please email me any suggestions or comments as I always appreciate hearing from readers. This chapter was extremely harder to complete with so many participants and I hope it flows okay. To Susan, I hope you like what has happened to you and these fantasies fill you with excitement. I will begin the next chapter with Susan's return home.  
 
  
 
@@ -1960,7 +1960,7 @@
 
  With slight reluctance, Susan continued. "Oh yes... she spread my legs and rubbed that big thing over my pussy. She kept pressing it against my clit and wouldn't stop," she whispered hugging Jay's tense body. "Then she made me put my hand on it... on the fat cock... and ordered me to insert it in my pussy. I didn't know how to make her stop... she was so big... so strong. And I did what she wanted." 
 
- Another whimper shook her body and Jay hung to every word. "She pushed her hips... forward. And the fat head spread me... so wide I could hardly breath," Susan moaned knowing it was the truth. Susan's head was now swimming with the lust she felt during the raunchy episode with the lesbian lover. Jay's presence somehow didn't matter, as he was pushed to the back of her confused mind. Report_Story #2 
+ Another whimper shook her body and Jay hung to every word. "She pushed her hips... forward. And the fat head spread me... so wide I could hardly breath," Susan moaned knowing it was the truth. Susan's head was now swimming with the lust she felt during the raunchy episode with the lesbian lover. Jay's presence somehow didn't matter, as he was pushed to the back of her confused mind.  
 
  
 
@@ -2066,7 +2066,7 @@
 
  The young woman's hands went around Sammi's blushing face. Julie tilted Sammi's head up so the young student could watch what happened. Ron bent forward bringing his bulging cock next to Sammi's sweating pelvis. The most erotic, paralyzing sight mesmerized him. The head of his cock touched the pinkish skin and Ron tried to put it at the very tip of the wet slit. He was good at teasing a victim and Ron fully intended on making the illustrious affair last forever. 
 
- Ron reached out and put his big hands on Sammi's boobs cupping each pretending to see if they were real. He groped the nipples making them turn into hard pebbles but Sammi really didn't feel aroused by his crude fondling. All of a sudden the air was knocked out of her lungs. Ron drove his hips downward with such force he rammed his inflamed cock to the hilt. He was in the middle of his third thrust when Sammi's breathing resumed but she was totally flushed by that time. Report_Story #3 
+ Ron reached out and put his big hands on Sammi's boobs cupping each pretending to see if they were real. He groped the nipples making them turn into hard pebbles but Sammi really didn't feel aroused by his crude fondling. All of a sudden the air was knocked out of her lungs. Ron drove his hips downward with such force he rammed his inflamed cock to the hilt. He was in the middle of his third thrust when Sammi's breathing resumed but she was totally flushed by that time.  
 
  
 

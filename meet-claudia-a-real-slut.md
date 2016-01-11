@@ -100,7 +100,7 @@
 
  It did, however, end up making me really horny. I had Dave's hard cock under my ass as we drove out of Michigan into Ohio. We left late at night to drive overnight, because Dave had to get back for a meeting a couple days later. So it was completely dark on the straight, boring highways, which pretty much didn't even have many streetlights. The interior of the car was almost always pitch black, so Shawn couldn't really see me wiggling my butt on my new husband's cock. 
 
- As we pulled into a gas station somewhere, Dave was so hard he pulled me into the shadows behind some parked trucks to suck off his dick. I don't like the flavor of cum much, instead I love it all over my face. Mmm, the feeling of hot cum dripping down my face! It's awesome. But I had no choice, I let Dave squirt down my throat. That gave Dave relief, but not me -- I was still drenched in my thongs and miniskirt, and now I was smellling like a cheap whore. Report_Story #2 
+ As we pulled into a gas station somewhere, Dave was so hard he pulled me into the shadows behind some parked trucks to suck off his dick. I don't like the flavor of cum much, instead I love it all over my face. Mmm, the feeling of hot cum dripping down my face! It's awesome. But I had no choice, I let Dave squirt down my throat. That gave Dave relief, but not me -- I was still drenched in my thongs and miniskirt, and now I was smellling like a cheap whore.  
 
  
 
@@ -172,7 +172,7 @@
 
  I waited to the last week of classes, after the last class in fact, and I made an appointment with him really late, like 9pm, at his office, lying that I needed help to prepare for the upcoming final exam. I was pretty straight-As on exams and stuff, so it was pretty much a bullshit excuse. I showed up at his office in like this really tight, sheer white blouse I used to wear, an old shirt from even before I got my big tits a year earlier, so my fake breasts were straining through it. You could see my brown nipples plainly in the thin white fabric. The prof kept staring at them, for like 15 minutes, then he said all of a sudden, "Claudia you shouldn't be wearing that top." So I said, "ok," and I just started to take it off. I had three buttons opened before he said, "What are you doing," but I just removed it completely then I said back, "Do you like my miniskirt or should I take that off too -- maybe you want to approve my thong while you're at it?" I stood up and lifted my mini, bending over with my ass facing him, so show him my red thong and most of my butt. He said something like, that looks pretty good. I was so full of myself, after that Spring Break, that I said back, "so you are telling me this doesn't look better," as I pushed off my skirt and thong together, bending over to show him my ass and pussylips from behind. I swear, within a minute, he was rubbing his cock over my cunt, and we fucked pretty good in his office. Yeah, and I got an "A" on the final -- but I earned it, I swear! 
 
- I got home from the Prof's office at like midnight, very horny about the seduction I'd just done. I woke up Dave, showed him my wet pussy and said, "guess who's cum is in me?" Dave guessed correctly, since he knew where I'd gone that night, and it got him so hard knowing his sexy little Chinese wife had just seduced and fucked her college professor. Dave licked my prof's cum out of me, then Dave fucked me too. I love that, when I fuck around Dave fucks me harder. Report_Story #3 
+ I got home from the Prof's office at like midnight, very horny about the seduction I'd just done. I woke up Dave, showed him my wet pussy and said, "guess who's cum is in me?" Dave guessed correctly, since he knew where I'd gone that night, and it got him so hard knowing his sexy little Chinese wife had just seduced and fucked her college professor. Dave licked my prof's cum out of me, then Dave fucked me too. I love that, when I fuck around Dave fucks me harder.  
 
  
 
@@ -260,7 +260,7 @@
 
  "Do you fuck many couples?" 
 
- Not many. I prefer to be the center of attention, except when Dave's around, then I'll get turned on if he fucks another girl with me. Report_Story #4 
+ Not many. I prefer to be the center of attention, except when Dave's around, then I'll get turned on if he fucks another girl with me.  
 
  
 
@@ -364,7 +364,7 @@
 
  These are getting weirder! Let's see. First day I met a guy? Hmm. I'm trying to think of when something happened with this guy Kurt, whether it was since August. It was in August I met a guy shopping and fucked him while I made Dave miss his flight, I told you about that already. No, Kurt definitely was in late September, it was a kind of breezy day, so it couldn't have been August or July. 
 
- Ok, Kurt I met at the gym. I was going there a ton since summer, every day almost, but kind of stopped in the fall. It's funny, I was getting hit on too much, I think I had a reputation or something. I couldn't really work out, I spent all my time flirting. So one day I'm at the gym early, like 10 a.m., I'm pretty horny and eyeing up the guys I know. The only guy at the gym I regularly fucked was Josh, but I have fucked three other guys over the last year I met there. Kurt was the last one, and I definitely fucked him the very first day I met him. He was totally muscular, with very big shoulders, not as tall as Josh but really awesome dark, deep-set eyes, and long dark hair, very long. I was on the bike I remember when he walked over to the free weights, and I'd never seen him before. His eyes looked over my tits, and lingered, so I knew he liked. I felt flirty and went over to chat with a couple guys I knew, to get to meet him. He was really fucking nice, he looked at me to check me out but didn't treat me like meat. Great voice too, would be great at phonesex. I instantly liked him! Report_Story #5 
+ Ok, Kurt I met at the gym. I was going there a ton since summer, every day almost, but kind of stopped in the fall. It's funny, I was getting hit on too much, I think I had a reputation or something. I couldn't really work out, I spent all my time flirting. So one day I'm at the gym early, like 10 a.m., I'm pretty horny and eyeing up the guys I know. The only guy at the gym I regularly fucked was Josh, but I have fucked three other guys over the last year I met there. Kurt was the last one, and I definitely fucked him the very first day I met him. He was totally muscular, with very big shoulders, not as tall as Josh but really awesome dark, deep-set eyes, and long dark hair, very long. I was on the bike I remember when he walked over to the free weights, and I'd never seen him before. His eyes looked over my tits, and lingered, so I knew he liked. I felt flirty and went over to chat with a couple guys I knew, to get to meet him. He was really fucking nice, he looked at me to check me out but didn't treat me like meat. Great voice too, would be great at phonesex. I instantly liked him!  
 
  
 
@@ -454,7 +454,7 @@
 
  Charisma was like my first choice, going through the webpages. Like I said, she was white, tanned, shapely, really busty, long legs, long hair, kind of a wonder-woman figure if you know what I mean. In her late 20s. It seemed really fucking expensive, like $400 or something an hour I think, but Dave had enough money and he didn't care. I watched him email her, then I was there when she called him about two hours later. It was pretty up-front, Dave said, I need a sexy escort for my girlfriend (or maybe fiance, not sure if we had done the proposal thing at that time), it'll be her first female, ah, date, and Dave would be present but not participating. Negotiations about rate, time, date, you know, very business-like. Not sexy at all. 
 
- So the appointed hour, we met my first female lover in a bar near a hotel, where Dave had gotten us a room. Dave was kind of nervous himself, he told me he'd never been with a hooker before and his anxiety proved his honesty. Charisma was charming, she had a little southern accent, and she seemed genuinely intrigued that I was Chinese-Canadian. She asked lots of questions about Toronto and stuff, she'd heard about the city and all you know. (It is, actually, a great city.) Report_Story #6 
+ So the appointed hour, we met my first female lover in a bar near a hotel, where Dave had gotten us a room. Dave was kind of nervous himself, he told me he'd never been with a hooker before and his anxiety proved his honesty. Charisma was charming, she had a little southern accent, and she seemed genuinely intrigued that I was Chinese-Canadian. She asked lots of questions about Toronto and stuff, she'd heard about the city and all you know. (It is, actually, a great city.)  
 
  
 

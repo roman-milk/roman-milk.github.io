@@ -204,7 +204,7 @@
 
  She must think I'm so cheap Deirdre wailed inside. "Don't you have something; anything will do! I need a pair of panties." She pleaded. 
 
- On the microphone she heard the girl's voice echo around the store. "Mr. Thompson. Have a girl here needs a pair of panties to wear. She wants really cheap ones." Report_Story #2 
+ On the microphone she heard the girl's voice echo around the store. "Mr. Thompson. Have a girl here needs a pair of panties to wear. She wants really cheap ones."  
 
  
 
@@ -252,7 +252,7 @@
 
  She thought a moment. "Liberated? Yes, strangely I feel liberated, sir." She said with feeling. 
 
- "This is only the first day so don't think you have permanently grown or changed or even paid the price just yet. There is more to come. More than you can imagine." Report_Story #1 
+ "This is only the first day so don't think you have permanently grown or changed or even paid the price just yet. There is more to come. More than you can imagine."  
 
  
 
@@ -442,7 +442,7 @@
 
  She lent over sideways reaching for the coffee cup momentarily parting her knees to maintain balance flashing a pair of white inner thighs above the stockings. The illicit view of her legs was having its effect making them ever more complicit in the game. 
 
- Studying a document she slowly leaned over toward the side table with a leg sliding outward supporting her weight. A surreptitious glance in their direction was missed by them as their eyes were hooked by her crotch slowly coming into view. With a smile of satisfaction at the bulges in their trousers she straightened up still holding the cup. Report_Story #2 
+ Studying a document she slowly leaned over toward the side table with a leg sliding outward supporting her weight. A surreptitious glance in their direction was missed by them as their eyes were hooked by her crotch slowly coming into view. With a smile of satisfaction at the bulges in their trousers she straightened up still holding the cup.  
 
  
 
@@ -468,7 +468,7 @@
 
  "Well, the practise session has been completed now for the challenge." 
 
- The grin dropped from her face on hearing this hadn't been the full training session. 'Well.' She thought. 'What did I expect, it was too easy and I enjoyed it. Besides, there's always one more task ready to stretch my nerve to breaking point.' Report_Story #1 
+ The grin dropped from her face on hearing this hadn't been the full training session. 'Well.' She thought. 'What did I expect, it was too easy and I enjoyed it. Besides, there's always one more task ready to stretch my nerve to breaking point.'  
 
  
 
@@ -648,7 +648,7 @@
 
  "How could I have been so stupid?" The anger helped. She found the internal directory and a number for the laundry. Eventually a bored sounding woman picked up. "The clothes from 455, when will they be ready?" There was an agonising wait until the woman returned. 
 
- "I can't wait that long can you send them back up to the room? Oh! But I've nothing to wear!" she exclaimed. Report_Story #2 
+ "I can't wait that long can you send them back up to the room? Oh! But I've nothing to wear!" she exclaimed.  
 
  
 

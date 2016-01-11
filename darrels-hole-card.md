@@ -248,7 +248,7 @@
 
  "Oh good; you're awake." 
 
- He rolled over on top of me and was driving into me before I knew it and I was thinking "This is wrong, this is just so wrong. You need to stop it right now" but Bill was also awake and he said "Roll over" and Darrel rolled over to put me on top. My ass was loose and Bill pushed right into it with no trouble and when the two of them had a rhythm going I stopped thinking about anything but my next orgasm. They both came at about the same time and as Bill was washing his cock I was sucking Darrel's. Report_Story #2 
+ He rolled over on top of me and was driving into me before I knew it and I was thinking "This is wrong, this is just so wrong. You need to stop it right now" but Bill was also awake and he said "Roll over" and Darrel rolled over to put me on top. My ass was loose and Bill pushed right into it with no trouble and when the two of them had a rhythm going I stopped thinking about anything but my next orgasm. They both came at about the same time and as Bill was washing his cock I was sucking Darrel's.  
 
  
 

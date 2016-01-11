@@ -186,7 +186,7 @@
 
  *** 
 
- She's as good as I'd hoped; better than I'd hoped. Just look at her now; her lips tight around my girth. She's trying so hard to please me. What a contrast to the cool, controlled woman I first saw. Look at her now, fingering herself desperately while she slurps and slobbers over my meat. Not an hour ago she was merely enjoying a social drink, and now... Ah, that's so sweet my lovely cocksucker. I'm going to savour that first time I slide into you. I'm going to use you thoroughly and pump you full of my seed. I'll have the essence of you, my dear; I'll take the marrow from your being... Report_Story #2 
+ She's as good as I'd hoped; better than I'd hoped. Just look at her now; her lips tight around my girth. She's trying so hard to please me. What a contrast to the cool, controlled woman I first saw. Look at her now, fingering herself desperately while she slurps and slobbers over my meat. Not an hour ago she was merely enjoying a social drink, and now... Ah, that's so sweet my lovely cocksucker. I'm going to savour that first time I slide into you. I'm going to use you thoroughly and pump you full of my seed. I'll have the essence of you, my dear; I'll take the marrow from your being...  
 
  
 
@@ -214,7 +214,7 @@
 
  *** 
 
- Time to send my whore home to her husband. Perhaps he can satisfy her? I doubt it though. Not now. Now she's beyond redemption; tainted with the stench of me. How very delightful. Report_Story #1 
+ Time to send my whore home to her husband. Perhaps he can satisfy her? I doubt it though. Not now. Now she's beyond redemption; tainted with the stench of me. How very delightful.  
 
  
 
@@ -362,7 +362,7 @@
 
  *** 
 
- Test me would you, bitch? Do you think I care about them fucking you? I care less for their rutting; their grunting sweating bodies invading your own delicious form. I have no real taste for the physical release of your sex; it's the despoiling of you that nourishes me. Let your brief pleasure wash over you. Let them take their fill of your cunt, and you in return have your fill of them. Drain them of their seed. Concentrate on your own needs, my harlot, come on his cock and put on a superb show for the lens. This recording will be the currency by which I buy my supper. Report_Story #2 
+ Test me would you, bitch? Do you think I care about them fucking you? I care less for their rutting; their grunting sweating bodies invading your own delicious form. I have no real taste for the physical release of your sex; it's the despoiling of you that nourishes me. Let your brief pleasure wash over you. Let them take their fill of your cunt, and you in return have your fill of them. Drain them of their seed. Concentrate on your own needs, my harlot, come on his cock and put on a superb show for the lens. This recording will be the currency by which I buy my supper.  
 
  
 

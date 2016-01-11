@@ -152,7 +152,7 @@
 
  Blinking rapidly, too stunned by the woman's revelations to fully comprehend just what she was telling me, I sat there with my mouth hanging open. 
 
- "May I ask a question, Warren?" Charlotte murmured, with eyes like a snake's as she stared at me. "Something personal." Report_Story #2 
+ "May I ask a question, Warren?" Charlotte murmured, with eyes like a snake's as she stared at me. "Something personal."  
 
  
 
@@ -308,7 +308,7 @@
 
  "Mrs Spenser," I mumbled, as though I'd made some kind of momentous, world- changing discovery. "But ... but you're meant to be working." 
 
- "Please, Warren, call me Charlotte." She smiled at me again, moving away from the door towards a huge bed. Charlotte, wearing a flowing oriental robe belted at the waist, moved beyond the bed and went to a mirrored dressing table of some elaborate, antique design in a varnished oxblood red. She lit a cigarette and turned to face me. "There is no bankers' orgy tonight, Warren. Or at least not one that I organised. I have a few girls out running around tonight, Valentine's is a popular time, but all the arrangements have been in place for a few days now." Charlotte grinned, adding, "Which gives me a little time to indulge myself. Drink?" she offered. Report_Story #3 
+ "Please, Warren, call me Charlotte." She smiled at me again, moving away from the door towards a huge bed. Charlotte, wearing a flowing oriental robe belted at the waist, moved beyond the bed and went to a mirrored dressing table of some elaborate, antique design in a varnished oxblood red. She lit a cigarette and turned to face me. "There is no bankers' orgy tonight, Warren. Or at least not one that I organised. I have a few girls out running around tonight, Valentine's is a popular time, but all the arrangements have been in place for a few days now." Charlotte grinned, adding, "Which gives me a little time to indulge myself. Drink?" she offered.  
 
  
 

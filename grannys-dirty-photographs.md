@@ -192,7 +192,7 @@
 
  "Fucking hell," I murmured, my brain refusing to believe the message from my eyes. 
 
- She stepped a few paces towards me on a pair of towering heels. "Am I still beautiful?" my grandmother breathed. Report_Story #2 
+ She stepped a few paces towards me on a pair of towering heels. "Am I still beautiful?" my grandmother breathed.  
 
  
 
@@ -366,7 +366,7 @@
 
  "Oh my God!" the woman gasped when, on a slide of goo, I eased my length out of her and she fingered her spunk-smeared sex and rubbed her clitoris. "That was gorgeous, darling boy," my grandmother grunted, fucking two stiff fingers into her squelching opening. "I'm going to come. Watch me come. Oh, fuck ... it feels so good." 
 
- We fucked again an hour later. This time, unable to resist the urge to touch my grandmother's body, I snuck up behind her as she stood at the kitchen counter peeling vegetables. I lifted her skirt, despite her blurt of protest that Elaine might call in unannounced, and slid my hard-on into her from behind. My grandmother dropped the knife onto the countertop and gripped the edge with both hands. She thrust her hips back at me and urged me to drill deep. I found her breasts, freeing their heavy weight by loosening a few buttons of gran's blouse and levering them over her bra. Report_Story #3 
+ We fucked again an hour later. This time, unable to resist the urge to touch my grandmother's body, I snuck up behind her as she stood at the kitchen counter peeling vegetables. I lifted her skirt, despite her blurt of protest that Elaine might call in unannounced, and slid my hard-on into her from behind. My grandmother dropped the knife onto the countertop and gripped the edge with both hands. She thrust her hips back at me and urged me to drill deep. I found her breasts, freeing their heavy weight by loosening a few buttons of gran's blouse and levering them over her bra.  
 
  
 
@@ -378,7 +378,7 @@
 
  I must admit that the idea had me squirting spunk into my grandmother's body. 
 
- And what's more I'm determined to somehow make it happen. Report_Story #1 
+ And what's more I'm determined to somehow make it happen.  
 
  
 
@@ -580,7 +580,7 @@
 
  Elaine gasped, her fingers going to her mouth. "You don't mean I know him? Sarah, no, it ... it isn't a former pupil of mine, is it?" 
 
- "No," my grandmother responded truthfully, I'd gone to a different school to the one Elaine and gran taught in. "He isn't." She paused and I wondered if she was thinking up a reply, winging it. "But he knows someone you know, he's related to a friend of yours and doesn't want anyone to find out about our tryst." Report_Story #2 
+ "No," my grandmother responded truthfully, I'd gone to a different school to the one Elaine and gran taught in. "He isn't." She paused and I wondered if she was thinking up a reply, winging it. "But he knows someone you know, he's related to a friend of yours and doesn't want anyone to find out about our tryst."  
 
  
 
@@ -744,7 +744,7 @@
 
  Various scenes spring to mind: a one-to-one seduction of the mother by Robert; Robert's mother walks in and catches the three already at it (it would be highly improbable that the woman would just say, "Wow, look at that. My son, my mother and the neighbour. How fucking sexy is that; I want to play too." 
 
- So, waddya say? If you want me to take a pop at the chapter, let me know. Email ideas and I'll sift through them. If you want to get into a [brief] dialogue with your ideas, by all means email the same. Report_Story #1 
+ So, waddya say? If you want me to take a pop at the chapter, let me know. Email ideas and I'll sift through them. If you want to get into a [brief] dialogue with your ideas, by all means email the same.  
 
  
 
@@ -976,7 +976,7 @@
 
  You stand up and face the door ... and WOW! You look so gorgeous as you stare at me with your hands on your hips. 
 
- I stare between your legs for a few seconds before I take in the detail of your tit-flesh swelling over the cups of your lacy bra. Report_Story #2 
+ I stare between your legs for a few seconds before I take in the detail of your tit-flesh swelling over the cups of your lacy bra.  
 
  
 
@@ -1242,7 +1242,7 @@
 
  "Yes!" my mother cried out. "Robert, oh, my lovely son, lick me, do it, kiss my pussy." 
 
- Report_Story #3 
+  
 
  
 
@@ -1376,7 +1376,7 @@
 
  "Yes, mum," I replied with an exasperated roll of my eyes. "I know exactly what it is we've done. I know who I've fucked." 
 
- "The tattoo is for my dad, Robert, your grandfather. He's the man who loved me first; he's the one who took my virginity." Report_Story #1 
+ "The tattoo is for my dad, Robert, your grandfather. He's the man who loved me first; he's the one who took my virginity."  
 
  
 
@@ -1590,7 +1590,7 @@
 
  I shook my head, thinking like that only confused the shit out of me. 
 
- For the rest of that day I moved around in a state of shock. I went about the physical actions of a normal human being, but my head was miles away, in a different world to this one. My mother did her best to explain and to comfort me through the first hours and days of her shocking revelation, a week later I was some way towards getting my head around who I really was. Report_Story #2 
+ For the rest of that day I moved around in a state of shock. I went about the physical actions of a normal human being, but my head was miles away, in a different world to this one. My mother did her best to explain and to comfort me through the first hours and days of her shocking revelation, a week later I was some way towards getting my head around who I really was.  
 
  
 
@@ -1622,7 +1622,7 @@
 
  When she came back into the kitchen I saw a weird expression on her face. A man followed behind her. 
 
- "Hello, Robert," my grandfather said. Report_Story #1 
+ "Hello, Robert," my grandfather said.  
 
  
 
@@ -1872,7 +1872,7 @@
 
  "He's your son, too," my mother groaned as she fisted the root of me. "We made him, you dirty old bastard." 
 
- "I'm going to let our son watch me fuck you," the man replied. "Just as soon as I've licked your tight little bum-hole." The old perv smirked at me and winked. "You should see your mum like this, Robert. Her cunt's dripping. She's gagging for cock." He shrugged, adding, "Mind you, once I broke her in she couldn't get enough of my dick. A right mucky bitch is our Clara." He looked to where his fingers had my mother all exposed. "Look at that tight little arsehole," he muttered to himself. "Here I come, Clara. Get ready for my tongue in your muddy hole." Report_Story #2 
+ "I'm going to let our son watch me fuck you," the man replied. "Just as soon as I've licked your tight little bum-hole." The old perv smirked at me and winked. "You should see your mum like this, Robert. Her cunt's dripping. She's gagging for cock." He shrugged, adding, "Mind you, once I broke her in she couldn't get enough of my dick. A right mucky bitch is our Clara." He looked to where his fingers had my mother all exposed. "Look at that tight little arsehole," he muttered to himself. "Here I come, Clara. Get ready for my tongue in your muddy hole."  
 
  
 
@@ -2016,7 +2016,7 @@
 
  Even though I still felt a twinge of jealousy at the thought of my grandmother dressed in her lingerie and opening her legs for the old pervert, I couldn't help but hope the bloke managed to sweet-talk gran around. 
 
- It might lead to an interesting birthday party on Saturday. Report_Story #1 
+ It might lead to an interesting birthday party on Saturday.  
 
  
 
@@ -2244,7 +2244,7 @@
 
  I looked up to see the women's mouths locked together. I went back to my grandmother's pussy, slurping at her and probing her opening with my tongue. Then, after eliciting several groans and grunts of approval from gran I moved up to survey the taut globes of Elaine's derrière. Her dangling labia gaped when I parted those tight cheeks with my fingers. Her puckered sphincter winked at me. 
 
- "I love it when you do that," Elaine's said, her voice curdled with dissolute delight when I probed the dark smudge of her anus with my tongue. "He's licking my arsehole, Sarah," Elaine breathed. "It's so fucking wicked." Report_Story #2 
+ "I love it when you do that," Elaine's said, her voice curdled with dissolute delight when I probed the dark smudge of her anus with my tongue. "He's licking my arsehole, Sarah," Elaine breathed. "It's so fucking wicked."  
 
  
 
@@ -2280,7 +2280,7 @@
 
  The following day, Thursday, I was asleep on my feet at work. The only thing that kept me going was the thought of sleeping with my mother, maybe sharing her in an incestuous threeway with my grandfather from time to time, as well as the knowledge that I'd be fucking Elaine and my grandmother at least a couple of days a week. With my birthday approaching on Saturday I doubted I'd get any presents better then that deal. 
 
- It turned out I was wrong. Report_Story #1 
+ It turned out I was wrong.  
 
  
 
@@ -2512,7 +2512,7 @@
 
  Then guests began to arrive. 
 
- It was a great afternoon. A benign blue sky and warm sunshine set the scene for a few hours of chat, drinking, laughing and some flirting. The boys from the pub and a couple of the lads from work took a shine to Elaine, who then spent most of her time batting back witty ripostes to some alcohol fuelled innuendo. One or two even tried flirting with my mother, which she rebuffed in the same good-natured attitude that Elaine adopted. I did feel a corrosive slide of jealousy when I saw one of the pub crowd with his hand on Elaine's arm, which she let remain there for a minute at least before she shifted her position and the man was forced to relax his grip. Report_Story #2 
+ It was a great afternoon. A benign blue sky and warm sunshine set the scene for a few hours of chat, drinking, laughing and some flirting. The boys from the pub and a couple of the lads from work took a shine to Elaine, who then spent most of her time batting back witty ripostes to some alcohol fuelled innuendo. One or two even tried flirting with my mother, which she rebuffed in the same good-natured attitude that Elaine adopted. I did feel a corrosive slide of jealousy when I saw one of the pub crowd with his hand on Elaine's arm, which she let remain there for a minute at least before she shifted her position and the man was forced to relax his grip.  
 
  
 
@@ -2706,7 +2706,7 @@
 
  My mother shrugged. "Let's just go and get messy," she said. "As long as you can stand to see your granddad with me and your gran." 
 
- "We've got an agreement," I replied. "Me and the old man understand each other. I'll share you with him – both of you, you and gran, but he's not fucking Elaine whenever the randy old bastard feels like it. He has to ask me first." I pointed my own chest. "I'm the top dog around here," I said. Report_Story #3 
+ "We've got an agreement," I replied. "Me and the old man understand each other. I'll share you with him – both of you, you and gran, but he's not fucking Elaine whenever the randy old bastard feels like it. He has to ask me first." I pointed my own chest. "I'm the top dog around here," I said.  
 
  
 

@@ -108,7 +108,7 @@
 
  He had a good point, I mean, most wives would think cybersex or phonesex is cheating, which is hot to me; but what's really hot, of course, is that married guys actually sneak around sticking their dicks in other women. "Yeah for real?" 
 
- Paul's response was entirely evasive and defensive. "Well you have to remember she's pregnant, she has gotten pretty big and she is worried about hurting the baby, so she and I don't fuck now." Report_Story #2 
+ Paul's response was entirely evasive and defensive. "Well you have to remember she's pregnant, she has gotten pretty big and she is worried about hurting the baby, so she and I don't fuck now."  
 
  
 
@@ -274,7 +274,7 @@
 
  "Ahh, my little slut," Paul cackled over the phone, "it's all up to you, just go to your computer and forward the email to me, so I can see what a little slut you are -- tell me when you're ready to type in my email address, okay?" 
 
- "Alright." I sucked in some air, forcing myself to sit upright on the bed. Daddy looked at me funny, but I had to ignore him. I stood up, arching my stiff legs, and stepped to my desk. I didn't have the computer chair now, so I just leaned over, my almost-naked ass literally within a foot of my father. He didn't touch it. I held the phone to my ear while my other hand used the mouse to call up my online emails, and I opened up my response email to Charlie. I hit "Forward," and a clean screen came up. "Okay," I spat into the phone, "what's your email baby?" Report_Story #3 
+ "Alright." I sucked in some air, forcing myself to sit upright on the bed. Daddy looked at me funny, but I had to ignore him. I stood up, arching my stiff legs, and stepped to my desk. I didn't have the computer chair now, so I just leaned over, my almost-naked ass literally within a foot of my father. He didn't touch it. I held the phone to my ear while my other hand used the mouse to call up my online emails, and I opened up my response email to Charlie. I hit "Forward," and a clean screen came up. "Okay," I spat into the phone, "what's your email baby?"  
 
  
 
@@ -426,7 +426,7 @@
 
  Now that was an idea. "Fuck yes!" I quickly removed my two fingers from myself, and stuffed them in my mouth. The phone was touching my hand as I did it. I lapped off the thick juices on my fingers, one by one, making "Mmmmm" sounds as I sucked each one clean. Then I flattened my palm and lapped off the juices pooled on it. I was fucking delicious, my hand was saturated. "Mmm, Paul, it tastes so good!" Between my spread thighs, my smiling father watched quietly as I cleaned my hand off of myself. 
 
- "Say Lacey," thought the man on the phone, "do you like getting ass-fucked?" Report_Story #4 
+ "Say Lacey," thought the man on the phone, "do you like getting ass-fucked?"  
 
  
 

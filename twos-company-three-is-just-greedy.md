@@ -216,7 +216,7 @@
 
  The last thing I saw as Dave and I dressed and let ourselves out was Sue laid on the floor completely bedraggled and spunk spattered from our first session with the three deposits of cum she'd received in her cunt slowly oozing from her gaping, red hole. She was lazily scooping it with her fingers and was slowly rubbing her clit with her slimy fingers. 
 
- Her husband was taking pictures still and it was obvious that their night wasn't over because the man still had a hard cock. Report_Story #2 
+ Her husband was taking pictures still and it was obvious that their night wasn't over because the man still had a hard cock.  
 
  
 

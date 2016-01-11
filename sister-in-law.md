@@ -212,7 +212,7 @@
 
  The two friends looked her up and down. She was standing awkwardly, unsure of herself, in another of the outfits they had chosen for her. It was perfect. Red high heels, a red miniskirt, a white boob tube, with nothing but a red thong underneath. She looked a perfect slut. 
 
- They hadn't let her look in a mirror otherwise she might have balked at such outrageous clothes. They had both donned similar get-ups only less blatant. Report_Story #2 
+ They hadn't let her look in a mirror otherwise she might have balked at such outrageous clothes. They had both donned similar get-ups only less blatant.  
 
  
 

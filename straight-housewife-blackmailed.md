@@ -382,7 +382,7 @@
 
  My body so weak, I just remained static, as my orgasm continued its journey through me. 
 
- "Mrs. Wilson, we've got to get going now," Tamara said, "but if you tell anyone about this your daughter and you become internet sensations." Report_Story #2 
+ "Mrs. Wilson, we've got to get going now," Tamara said, "but if you tell anyone about this your daughter and you become internet sensations."  
 
  
 
@@ -762,7 +762,7 @@
 
  "I'm calling. She said if I didn't call by eleven she would send out the picture of my daughter to the whole school," she said, clearly petrified. 
 
- Just then my phone rang. It was a blocked number and assumedly Tamara. I answered it, "What?" Report_Story #3 
+ Just then my phone rang. It was a blocked number and assumedly Tamara. I answered it, "What?"  
 
  
 

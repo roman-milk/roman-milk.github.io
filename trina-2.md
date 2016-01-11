@@ -228,7 +228,7 @@
 
  "I need the car, but I can't afford to fix it right now." 
 
- I told her that I would take care of it for her and then we went to a move and ended up back at my place. We went out again on Thursday and after an energetic romp at my place I asked her if she wanted to go clubbing on Friday and she said that she would love to, but would have to pass. She had already committed herself to a Mary Kay party. I didn't ask her about Saturday because I'd already made plans to attend a bachelor party. Report_Story #2 
+ I told her that I would take care of it for her and then we went to a move and ended up back at my place. We went out again on Thursday and after an energetic romp at my place I asked her if she wanted to go clubbing on Friday and she said that she would love to, but would have to pass. She had already committed herself to a Mary Kay party. I didn't ask her about Saturday because I'd already made plans to attend a bachelor party.  
 
  
 
@@ -404,7 +404,7 @@
 
  It was Monday's phone call that shook me. She told me that she had called work and arranged to take time off under the Family Medical Leave Act and that she would be in Alpena for at least three weeks. Then she said: 
 
- "I have some other news, but I don't know if you will think that it is good news or bad." Report_Story #3 
+ "I have some other news, but I don't know if you will think that it is good news or bad."  
 
  
 

@@ -206,7 +206,7 @@
 
  Luke dabbed his tongue at her distended clitoris. The heat from her sex was unbelievable. He couldn't recall ever having seen a woman so aroused. He lapped at her like a dog, tasting the slick honey that slid from her opening. 
 
- Luke took stock, part of his mind diverted from the wanton display in front of him. She was so sexy. Over forty years old, but what a body! He'd noticed how trim and fit she was as she hurriedly undressed. He'd seen pictures, but to experience her in the flesh, naked, that neatly shaven mound... Report_Story #2 
+ Luke took stock, part of his mind diverted from the wanton display in front of him. She was so sexy. Over forty years old, but what a body! He'd noticed how trim and fit she was as she hurriedly undressed. He'd seen pictures, but to experience her in the flesh, naked, that neatly shaven mound...  
 
  
 
@@ -394,7 +394,7 @@
 
  "Leanne," James whispered, "Leanne..." He stepped towards the bed. Slowly, one step at a time, he moved until he was close enough to touch Luke if he had the desire to, if he had the nerve. 
 
- "Come on James," Leanne purred, relishing the power she held. "Take a little lick with me." Report_Story #3 
+ "Come on James," Leanne purred, relishing the power she held. "Take a little lick with me."  
 
  
 

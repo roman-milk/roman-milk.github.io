@@ -120,7 +120,7 @@
 
  She turned and walked over to the dresser and opened the bottom drawer. She pushed some stuff to the side and brought out a shoebox and set it on the bed next to me. 
 
- "Open it" she said. I took the top off the box and inside was a collection of rubber and plastic dildos. "That's been my sex life for the last several years. Tuesdays and Fridays are not and never have been enough for me, but even though I've been sexually frustrated I've never, at least not until this week, been unfaithful to you." Report_Story #2 
+ "Open it" she said. I took the top off the box and inside was a collection of rubber and plastic dildos. "That's been my sex life for the last several years. Tuesdays and Fridays are not and never have been enough for me, but even though I've been sexually frustrated I've never, at least not until this week, been unfaithful to you."  
 
  
 

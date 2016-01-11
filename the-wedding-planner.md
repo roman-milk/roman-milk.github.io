@@ -156,7 +156,7 @@
 
  "No." 
 
- "Come on baby, don't be like that. Why don't you go slip into something slinky and sexy while I take a quick shower." Report_Story #2 
+ "Come on baby, don't be like that. Why don't you go slip into something slinky and sexy while I take a quick shower."  
 
  
 
@@ -174,7 +174,7 @@
 
  When it was over she rolled over and pretended to go to sleep and as Jake started to softly snore she was already working on a plan to get herself laid at the wedding she would be working that weekend. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -396,7 +396,7 @@
 
  She sat off to the side during the rehearsal and looked over the assembled males. Any one of them would do. The bride groom looked real yummy, but he only had eyes for his bride to be. She looked at the two of them and silently wished them better luck with their marriage than she was having with hers. 
 
- She caught one of the ushers glancing her way and she gave him a smile and he smiled back. The next time he looked over her way he saw that she was looking at him and he smiled and she smiled back as she adjusted her skirt to show a little more leg. The next time he looked he saw her sitting there looking back at him with a high heel dangling from her left foot. She didn't understand it, but that seemed to grab the attention of some men and getting a man's attention was what the night was all about for her. Report_Story #2 
+ She caught one of the ushers glancing her way and she gave him a smile and he smiled back. The next time he looked over her way he saw that she was looking at him and he smiled and she smiled back as she adjusted her skirt to show a little more leg. The next time he looked he saw her sitting there looking back at him with a high heel dangling from her left foot. She didn't understand it, but that seemed to grab the attention of some men and getting a man's attention was what the night was all about for her.  
 
  
 
@@ -470,7 +470,7 @@
 
  As his tongue slid into her recently used pussy she smiled. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -700,7 +700,7 @@
 
  She left his room, went to her office and got her travel bag and then used her master key to get into one of the rooms used for the fittings. It wouldn't get maid service until the following morning. She showered, douched herself, and as the nozzle of the douche bag slid into her pussy she thought of the cock that had just been there and how Jake would be getting his seconds within the next hour or so. She smiled as she reminded herself to make a check mark in her notebook. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -872,7 +872,7 @@
 
  He had taken the lead and she was taking his cock deep into her as she thought about the three hours she had spent with the best man from the Baxter wedding. She had never learned his name, but he was now a checkmark in her little spiral notebook. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1138,7 +1138,7 @@
 
  "I know it is short notice sweetie, but something just came up and all of the other girls on my list are spoken for. Jake won't be home until Monday, right?" 
 
- "That's what he said although given what he is doing I wouldn't be surprised if he tried to get another day or two out of it. I won't know until Monday when he is supposed to call and let me know when he will be home." Report_Story #2 
+ "That's what he said although given what he is doing I wouldn't be surprised if he tried to get another day or two out of it. I won't know until Monday when he is supposed to call and let me know when he will be home."  
 
  
 
@@ -1152,7 +1152,7 @@
 
  As she poked through her closet she thought about the possibilities. If Jake did come home Monday night and she did spend Sunday night with Jake's friend and if she did fuck Dan Monday afternoon she would be able to give Jake some very well used pussy Monday night. And she would insist that he eat her first. Damn! She wished she could give him her pussy full of cum. Some day! Some day she would feed him another man's leavings, but she wasn't near ready to do that. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1460,7 +1460,7 @@
 
  "Yes I did, didn't I. Well then, let us go see if Bobby is willing." 
 
- Bobby was and now Marci was screaming at Harvey to fuck her harder and she was on her knees sucking Bobby's cock. Bobby fucked her twice before switching again with his dad who did her one more time before Marci said she needed to leave and get home to her husband. Report_Story #2 
+ Bobby was and now Marci was screaming at Harvey to fuck her harder and she was on her knees sucking Bobby's cock. Bobby fucked her twice before switching again with his dad who did her one more time before Marci said she needed to leave and get home to her husband.  
 
  
 
@@ -1558,7 +1558,7 @@
 
  "Deal" she said as she reached for Marci's hand and shook it. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1826,7 +1826,7 @@
 
  "Tell you later. Right now you and Bobby need to get me off." 
 
- For the next six or eight minutes Harvey and Bobby worked to get her and themselves off, but their attention was on Pam and Tony. She heard Bobby mutter, "bitch" when Pam moved into a sixty-nine with the chauffer and just seconds later Bobby shot a load deep in her ass. He pulled out of her and went into the bathroom to wash his cock off and when he came back Pam was on her hands and knees and squealing as Tony fucked her from behind. Bobby watched for a minute and then he climbed on the bed and stuck his cock in front of Pam's face. Report_Story #2 
+ For the next six or eight minutes Harvey and Bobby worked to get her and themselves off, but their attention was on Pam and Tony. She heard Bobby mutter, "bitch" when Pam moved into a sixty-nine with the chauffer and just seconds later Bobby shot a load deep in her ass. He pulled out of her and went into the bathroom to wash his cock off and when he came back Pam was on her hands and knees and squealing as Tony fucked her from behind. Bobby watched for a minute and then he climbed on the bed and stuck his cock in front of Pam's face.  
 
  
 
@@ -1868,7 +1868,7 @@
 
  "Good luck" she said to Pam as Pam left the room, took her father's arm and headed for the next part of her life." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2182,7 +2182,7 @@
 
  She looked into his eyes and said, "As long as there are hard cocks to play with I'll stay and play." 
 
- "Help me then" and he moved up on the bed and positioned himself so his cock was an inch from her mouth. She smiled and then her lips wrapped around him and she went to work. Roy started moving slowly back and forth pumping his semi- soft cock into her mouth. She took her mouth off his cock and then licked and sucked on his balls before taking his cock back into her mouth. Report_Story #2 
+ "Help me then" and he moved up on the bed and positioned himself so his cock was an inch from her mouth. She smiled and then her lips wrapped around him and she went to work. Roy started moving slowly back and forth pumping his semi- soft cock into her mouth. She took her mouth off his cock and then licked and sucked on his balls before taking his cock back into her mouth.  
 
  
 
@@ -2202,7 +2202,7 @@
 
  As she drove home she thought back to when Steve had eaten her cum filled pussy and how intense her pleasure had been when he did it. She wanted to feel it again, only she wanted to feel it as she fed some other man's sperm to Jake. Would she ever be able to do that? 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2380,7 +2380,7 @@
 
  "You wanted one more? If you can change my flight to tomorrow you can have several more." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2494,7 +2494,7 @@
 
  That of course meant that when she got home Jake would be telling her that he had to go out of town again. Should she pretend to get pissed over it? Well, maybe just a little, but not enough to keep him from lapping her pussy while it was still fresh from clasping Dan's cock. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2762,7 +2762,7 @@
 
  When Tony dropped her off at work in the morning and she watched him drive away she wondered if Harvey was right. Did she enjoy being a slut? She had certainly been one last night. Then again, was she being a slut or just keeping her promise to herself to get laid every night that Jake was gone? She turned and entered the building and headed for her office. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2962,7 +2962,7 @@
 
  He didn't even finish his drink before he made his pitch and ten minutes later she was in his room and had his cock in her mouth. One more mark in the book she thought as she moved over him and impaled herself on his cock. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -3190,7 +3190,7 @@
 
  "Hey Marci; doing anything tonight? 
 
- To be continued… Report_Story #1 
+ To be continued…  
 
  
 
@@ -3482,11 +3482,11 @@
 
  Dinner was a silent affair and when they were done eating Jake disappeared into his basement workshop leaving her to wash and put away the dinner dishes. She went to bed early and pretended to be asleep when he came to bed. He made no attempt to wake her and that suited her just fine. 
 
- In the morning he woke her by sucking on her breasts and finger fucking her and she let him have sex with her before getting out of bed. She managed to get through the day without barking at him and that night neither of them made and sexual overtures. Report_Story #2 
+ In the morning he woke her by sucking on her breasts and finger fucking her and she let him have sex with her before getting out of bed. She managed to get through the day without barking at him and that night neither of them made and sexual overtures.  
 
  
 
- ****** The Wedding Planner Ch. 14 ****** byJust_Plain_Bob© To be continued… Report_Story #1 
+ ****** The Wedding Planner Ch. 14 ****** byJust_Plain_Bob© To be continued…  
 
  
 
@@ -3724,7 +3724,7 @@
 
  Jake opened the book, leafed through the pages and then looked at her in confusion. "It is nothing but a bunch of pages with check marks on them?" 
 
- "But each one of those check marks has significance. Each mark represents a guy that I fucked after catching you with that slut at the beach. Remember how I always wanted you to eat my pussy before we had sex? Every time you licked my pussy one of those check marks had been in it just hours before your tongue got there. All of those check marks made you a cock sucker by proxy." Report_Story #2 
+ "But each one of those check marks has significance. Each mark represents a guy that I fucked after catching you with that slut at the beach. Remember how I always wanted you to eat my pussy before we had sex? Every time you licked my pussy one of those check marks had been in it just hours before your tongue got there. All of those check marks made you a cock sucker by proxy."  
 
  
 

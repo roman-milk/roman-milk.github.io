@@ -288,7 +288,7 @@
 
  Emma left and for a few minutes we ate and drank in silence. As I ate, I tried to figure out how Jill, the strongest of us, could be submissive to a dick like Adam. The thought of Adam walking over to her all pretentious and shoving his cock in her mouth was so shocking and yet, truth be told, the thought of Howard doing that to me was quite a turn on. Howard was a gentleman though, and never caught on to the obvious reality that I was submissive no matter how much I hinted. 
 
- My ex-fiancé, Mike, was a dominant man who knew exactly what I needed sexually. I remembered the time he walked into my apartment, walked up to me, put his hands on my shoulders and guided me onto my knees. I sucked him, as expected, swallowing his load before he fucked both my pussy and ass. And then I remembered other times when I had submitted to him like when he made me blow him during Christmas at my parent's house, with both my sisters asleep in the same room; or when I had to suck his cock under the table at a restaurant, and again at a Broadway play; or the time I had to ride him in the back of a taxi. Report_Story #2 
+ My ex-fiancé, Mike, was a dominant man who knew exactly what I needed sexually. I remembered the time he walked into my apartment, walked up to me, put his hands on my shoulders and guided me onto my knees. I sucked him, as expected, swallowing his load before he fucked both my pussy and ass. And then I remembered other times when I had submitted to him like when he made me blow him during Christmas at my parent's house, with both my sisters asleep in the same room; or when I had to suck his cock under the table at a restaurant, and again at a Broadway play; or the time I had to ride him in the back of a taxi.  
 
  
 
@@ -708,7 +708,7 @@
 
  "Well there was my old roommate Becky, which probably isn't much of a surprise, Professor Hamilton, who loves licking assholes, Jamie Wolfe a couple weeks ago, and the big reveal," she paused, drumming on the table for dramatics. 
 
- Becky was a slut, I didn't know Professor Hamilton, but Jamie, who was in my class back in high school, was our reverend's daughter and was currently eight months pregnant. Yet, the pause implied we were in for an even bigger shock. Report_Story #3 
+ Becky was a slut, I didn't know Professor Hamilton, but Jamie, who was in my class back in high school, was our reverend's daughter and was currently eight months pregnant. Yet, the pause implied we were in for an even bigger shock.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  Jill's squirting coated my face as I hungrily licked and licked, the taste everything I had fantasized. Jill moaned, "Oh yes, Jasmine, lick my cunt, don't you dare fucking stop." 
 
- I wished I could stay buried between Jill's legs forever, as her hairy cunt created an aroma that was so intoxicating I was enveloped in perfection. Combined with the deliciousness of her cum that was utterly irresistible, I knew I was not only Caroline's submissive, but would be Jill's too if the opportunity arose. Report_Story #4 
+ I wished I could stay buried between Jill's legs forever, as her hairy cunt created an aroma that was so intoxicating I was enveloped in perfection. Combined with the deliciousness of her cum that was utterly irresistible, I knew I was not only Caroline's submissive, but would be Jill's too if the opportunity arose.  
 
  
 

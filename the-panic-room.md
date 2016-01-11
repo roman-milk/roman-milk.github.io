@@ -182,7 +182,7 @@
 
  Yeah, it was because she scared the snot out of me. 
 
- "That was my first instinct. After what I saw, I hated them both. I couldn't believe she'd do that to me. It doesn't make sense. I had no idea there was anything wrong, none what-so-ever. I hated the idea of a divorce, and losing half of everything to her. And I sure as hell wanted Dale to pay. The overstuffed, airs-putting, dog-kissing, dirt-eating, snake-fucking, bug-eyed, wife-stealing-" Report_Story #2 
+ "That was my first instinct. After what I saw, I hated them both. I couldn't believe she'd do that to me. It doesn't make sense. I had no idea there was anything wrong, none what-so-ever. I hated the idea of a divorce, and losing half of everything to her. And I sure as hell wanted Dale to pay. The overstuffed, airs-putting, dog-kissing, dirt-eating, snake-fucking, bug-eyed, wife-stealing-"  
 
  
 
@@ -476,7 +476,7 @@
 
  "She's really scary when she's mad. Terrifying. I had no idea." 
 
- My wife passed me the shampoo, and I lathered up her hair. "I'm still getting the Maserati and the tennis bracelet," she said, tilting her head back for me. Report_Story #3 
+ My wife passed me the shampoo, and I lathered up her hair. "I'm still getting the Maserati and the tennis bracelet," she said, tilting her head back for me.  
 
  
 

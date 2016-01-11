@@ -264,7 +264,7 @@
 
  "You want to lick my cunt right here in the bathroom don't you? Even though anybody could walk in and see you eating me, see the popular head cheerleader eagerly eating the pussy of the crazy witch. Isn't that what you and your diva clones call me?" she asked, clearly attempting to humiliate me. 
 
- 'Fuck no. I don't want to do this', I screamed at the top of my lungs, yet the words out of my sexual doppelgänger, made me sound like a dumb, blonde, bimbo. "Yes silly, like I don't care who sees me. I just want to eat your cunt." Report_Story #2 
+ 'Fuck no. I don't want to do this', I screamed at the top of my lungs, yet the words out of my sexual doppelgänger, made me sound like a dumb, blonde, bimbo. "Yes silly, like I don't care who sees me. I just want to eat your cunt."  
 
  
 
@@ -572,7 +572,7 @@
 
  "Ok, ok, fuck what is wrong with you?" he said, clearly thinking I was overreacting. 
 
- "What is wrong with me? What is wrong with me? Are you illiterate?" I snapped, grabbing the napkin and yelling, "This is what is wrong with me?" Looking at it my world suddenly stopped. I could feel the color drain from my face. I could feel my will to win shattered. I could feel the clock ticking to zero. It was my hand writing, yet it was not the words I had written and I even double checked before giving it to him. The note said, 'I want you to fuck my ass and treat me like a bimbo-slave tonight.' Report_Story #3 
+ "What is wrong with me? What is wrong with me? Are you illiterate?" I snapped, grabbing the napkin and yelling, "This is what is wrong with me?" Looking at it my world suddenly stopped. I could feel the color drain from my face. I could feel my will to win shattered. I could feel the clock ticking to zero. It was my hand writing, yet it was not the words I had written and I even double checked before giving it to him. The note said, 'I want you to fuck my ass and treat me like a bimbo-slave tonight.'  
 
  
 
@@ -850,7 +850,7 @@
 
  "Grab my panties," Amber said and I quickly obeyed, praying she wouldn't notice my instant obedience. 
 
- As we frantically got dressed, the doorbell rang a second time. Amber finished dressing before me slapped my ass and promised, "We are not done here" Report_Story #4 
+ As we frantically got dressed, the doorbell rang a second time. Amber finished dressing before me slapped my ass and promised, "We are not done here"  
 
  
 
@@ -1102,7 +1102,7 @@
 
  My knees killing me, clarity suddenly back even though my head was in a glorious fog of pleasure, I weakly crawled to the now naked Sandra from the waist down. Once between her legs I just accepted my position, leaned forward and buried my face in her hairy bush. On cruise control, I just licked and sucked, ignoring her rather potent smell, not really disgusting or pleasant, just there. I suddenly smirked at the thought that all the cum on my face was now being rubbed in her cunt. The vengeful me assumed she was not protected and hoped my face knocked her up. It was a long shot, but something to keep me going through this disgusting task. 
 
- I wasn't surprised when I felt hands on my hips and seconds later a cock was using my cunt for their pleasure. My mind now in acceptance mode, I could feel the pleasure growing, even as I went through the motions. I could now think clearly, but I still had to obey. Report_Story #5 
+ I wasn't surprised when I felt hands on my hips and seconds later a cock was using my cunt for their pleasure. My mind now in acceptance mode, I could feel the pleasure growing, even as I went through the motions. I could now think clearly, but I still had to obey.  
 
  
 

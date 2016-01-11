@@ -130,7 +130,7 @@
 
  That evening she told Robert they couldn't practise the act. "It's some boring figures I need to get back to the accountant. They will take a while and must be done. Sorry, Robert." She apologised on seeing his shoulders droop. 
 
- A little later James appeared in the kitchen as expected looking more dejected than his brother had on finding she isn't in the trance he hoped for. Did he realise how horny she felt on seeing him remembering how he had taken her. Even the unspoken, unfamiliar wicked word, horny, was a turn on. The feelings had accumulated all day becoming almost overwhelming yet she dare not reveal anything of the turmoil coursing through her body. Report_Story #2 
+ A little later James appeared in the kitchen as expected looking more dejected than his brother had on finding she isn't in the trance he hoped for. Did he realise how horny she felt on seeing him remembering how he had taken her. Even the unspoken, unfamiliar wicked word, horny, was a turn on. The feelings had accumulated all day becoming almost overwhelming yet she dare not reveal anything of the turmoil coursing through her body.  
 
  
 
@@ -170,7 +170,7 @@
 
  "Lie back on the bed. Open your legs. Turn over." He commanded again and again. Compliant as a well-trained bitch she presented her body for his examination like a docile pet. There was nothing subtle to these commands leaving her feeling humiliated. On hands and knees on the bed she felt his gaze upon her body as though he were stroking her flesh. The goose bumps raised were from fear or the excitement of anticipation, she just couldn't tell which. 
 
- Feeling him at last gently slide into her body a breath rent itself from between her lips. With each thrust her body responded pushing back wanting more, gripping tight onto the pulling stroke not wanting to let go. Feeling the urgency then a final spurt of power taking him to the finishing line brought her climax and completion. Lying there sated, in a glow of sublime pleasure, she realised it had never been like this before, ever. No wonder she couldn't resist, she didn't want to. Report_Story #1 
+ Feeling him at last gently slide into her body a breath rent itself from between her lips. With each thrust her body responded pushing back wanting more, gripping tight onto the pulling stroke not wanting to let go. Feeling the urgency then a final spurt of power taking him to the finishing line brought her climax and completion. Lying there sated, in a glow of sublime pleasure, she realised it had never been like this before, ever. No wonder she couldn't resist, she didn't want to.  
 
  
 
@@ -330,7 +330,7 @@
 
  "You OK?" He asked. "Come on I'll give you a lift." With a wane smile she tried to recover her composure. "I saw the car chugging along until it ran out. Where to?" 
 
- "I'm so glad to see you. There's no one around but I just couldn't face walking the rest of the way dressed like this." Report_Story #1 
+ "I'm so glad to see you. There's no one around but I just couldn't face walking the rest of the way dressed like this."  
 
  
 
@@ -422,7 +422,7 @@
 
  Next morning the promise to Daren was remembered only the significance of it had been lost. Yesterday she had misgivings about giving in to James with the prospect of his demands going too far, as if they hadn't already. This morning such worries had evaporated. She wanted to please James in all things and would try hard to keep him happy. There remained some small nagging feeling that something was wrong when she thought of a promise to Daren but couldn't make sense of it. 
 
- Shaking her head in amusement at such silly worries she decided not to dwell on it, as James would take care of things. Scampering off to the kitchen she opened a cookbook for a recipe to check the ingredients were at hand. It was important to prepare everything for this evening's guests. Remembering how James had liked it she was tempted to wear the maid's outfit while working in the kitchen but couldn't take the chance of spilling something on it. It would be needed this evening while serving his guests. Report_Story #1 
+ Shaking her head in amusement at such silly worries she decided not to dwell on it, as James would take care of things. Scampering off to the kitchen she opened a cookbook for a recipe to check the ingredients were at hand. It was important to prepare everything for this evening's guests. Remembering how James had liked it she was tempted to wear the maid's outfit while working in the kitchen but couldn't take the chance of spilling something on it. It would be needed this evening while serving his guests.  
 
  
 
@@ -582,7 +582,7 @@
 
  Perhaps it would be better to resign herself to being a cock slave and avoid the anguish of reason. The hypnotic state she was in meant it might be possible to clear her mind of everything until she thought of nothing but pleasuring a penis. 
 
- Drifting off to sleep her thoughts revolved around the penis in her mouth. It was so enjoyable and relaxing sucking a cock. It was pleasant having no worries or stress with just one thing to do. It was enjoyable. She enjoyed it. She fell asleep with a hand between her legs while gently sucking him. A pleasant smile formed upon her face and she dropped into a deep sleep. Report_Story #1 
+ Drifting off to sleep her thoughts revolved around the penis in her mouth. It was so enjoyable and relaxing sucking a cock. It was pleasant having no worries or stress with just one thing to do. It was enjoyable. She enjoyed it. She fell asleep with a hand between her legs while gently sucking him. A pleasant smile formed upon her face and she dropped into a deep sleep.  
 
  
 
@@ -802,7 +802,7 @@
 
  With fingers tucked into the sides of her panties she slowly peeled them down her legs. She bent forward with her arse in his face displaying a pair of wet lips. She wished he would reach out and touch her body to complete the agony. 
 
- The door opened on the sordid scene. "What the hell! Get the fuck out there the customers are stealing the merchandise." The owner shouted at the dirty old man. Report_Story #2 
+ The door opened on the sordid scene. "What the hell! Get the fuck out there the customers are stealing the merchandise." The owner shouted at the dirty old man.  
 
  
 

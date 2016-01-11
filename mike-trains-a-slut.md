@@ -250,7 +250,7 @@
 
  She heard a strained voice say, "Suck it little." She pressed her lips against the swollen glans and pushed forward feeling it pop through into her mouth and licked the underside as it lay on the tip of her tongue. Beth clamped her lips tight and sucked softly at first then harder, holding the shaft tight and then pulling back her head, teasing the sensitive flesh with her soft lips as it popped from her mouth. 
 
- "Again," Mike rasped, "Do that again." Report_Story #2 
+ "Again," Mike rasped, "Do that again."  
 
  
 
@@ -482,7 +482,7 @@
 
  "Hmmm, so now you want to be my slut. Is that it Beth? Do you need me to touch you, to suck on your clit and make you cum?" He leant over close to her face and softly said, "Do you want me to fuck you Beth? Feel my hard cock slide into your tight cunt, feel hot cum splashing inside you. Tell me Beth, what do you want?" 
 
- Beth returned Mike's gaze. She could not believe what she was about to say. He could have fucked her at anytime, but he was making her ask to be fucked. Report_Story #3 
+ Beth returned Mike's gaze. She could not believe what she was about to say. He could have fucked her at anytime, but he was making her ask to be fucked.  
 
  
 
@@ -548,7 +548,7 @@
 
  She looked at the drooping cock thickly covered with cum and her own juices. She knew what he wanted. As she took his cock into her mouth, Mike sighed with contentment. Everything had turned out better than he had hoped for, and he had plenty of ideas for the future. 
 
- "You sleep in my bed from now on Beth." Report_Story #1 
+ "You sleep in my bed from now on Beth."  
 
  
 
@@ -788,7 +788,7 @@
 
  In the throes of orgasm Katie had stopped working her tongue into Beth's pussy and now Beth ground her pussy into Katie's face to encourage some action. Katie's response was to slap Beth's tender ass accompanied by a muffled, 
 
- "Get off me you bitch". Report_Story #2 
+ "Get off me you bitch".  
 
  
 

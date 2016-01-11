@@ -90,7 +90,7 @@
 
  Almost immediately, her muscles began to tighten and milk the intruding rod. Doris could feel the raging desire in her belly and she began to push back hard so that the cock could possess her cunt completely. She arched her back and gave everything to this intruder, as she clung to the clammy countertop with her hands. Without warning, new spasms rocked her frail body and it began all over again. 
 
- Randy remained fully engrossed with the erotic encounter and he did not struggle to get free of his captors. As hard as it was to believe, it seemed that his wife was begging this stranger to fuck her. Her rapid thrusts were allowing the intruder to fully sink his shaft into her delirious cunt. Both were pumping with determination and it would not be long until two orgasms again filled the sleazy washroom. Report_Story #2 
+ Randy remained fully engrossed with the erotic encounter and he did not struggle to get free of his captors. As hard as it was to believe, it seemed that his wife was begging this stranger to fuck her. Her rapid thrusts were allowing the intruder to fully sink his shaft into her delirious cunt. Both were pumping with determination and it would not be long until two orgasms again filled the sleazy washroom.  
 
  
 

@@ -186,7 +186,7 @@
 
  What it did to me was drive me crazy and I was still fucking Carolyn like a crazy man two weeks later. 
 
- The second time I was going to meet her at a bar when I got off work and I was late getting there. She had been necking with the guy and stroking him under the table trying to keep him under control until I got there. I hadn't been there two minutes and the guy put his hand behind Carolyn's head and applied pressure. She had looked at me and when I didn't jump up and charge over she let him push her head under the table. She came out from under the table three minutes later and looked over at me and wiped her mouth with the back of her hand. The guy had cum in her mouth and she had swallowed it all. I got so charged up over that one that we went a month before going out looking again. Report_Story #2 
+ The second time I was going to meet her at a bar when I got off work and I was late getting there. She had been necking with the guy and stroking him under the table trying to keep him under control until I got there. I hadn't been there two minutes and the guy put his hand behind Carolyn's head and applied pressure. She had looked at me and when I didn't jump up and charge over she let him push her head under the table. She came out from under the table three minutes later and looked over at me and wiped her mouth with the back of her hand. The guy had cum in her mouth and she had swallowed it all. I got so charged up over that one that we went a month before going out looking again.  
 
  
 

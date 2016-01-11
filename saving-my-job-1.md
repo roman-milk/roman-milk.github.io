@@ -204,7 +204,7 @@
 
  "I don't hate you. I hate me for being so weak that I didn't say, "fuck you" and walk out of your office. I don't like you for what you are making me do to myself, but I don't hate you." 
 
- "I don't mind baby. A girl in my position learns to accept being hated or disliked. It comes with doing the job right. You think I don't know that I'm called "Harriet The Hatchet Lady"? That's my job baby, it guarantees that I'll be hated and disliked. I take no pleasure in disrupting or yes, even ruining lives, but that is what they pay me to do. I'm paid to put the company first and that is just what I do. Enough of that baby, just relax and enjoy the ride. You aren't losing a thing. I'm a great fuck and you are keeping a great job and the little woman will never know unless you tell her" and she pushed her body hard into my erection. Report_Story #2 
+ "I don't mind baby. A girl in my position learns to accept being hated or disliked. It comes with doing the job right. You think I don't know that I'm called "Harriet The Hatchet Lady"? That's my job baby, it guarantees that I'll be hated and disliked. I take no pleasure in disrupting or yes, even ruining lives, but that is what they pay me to do. I'm paid to put the company first and that is just what I do. Enough of that baby, just relax and enjoy the ride. You aren't losing a thing. I'm a great fuck and you are keeping a great job and the little woman will never know unless you tell her" and she pushed her body hard into my erection.  
 
  
 
@@ -392,7 +392,7 @@
 
  ++++++++++++++++++++++++++++++++++++++++++++++++++ 
 
- One week after the divorce was final the lawyer called me and asked me to meet him at XYZ the next day at nine. We were ushered into the conference room where I was surprised to see Jason Boggs, the president and CEO of Titan. There were also three vice presidents, Harriet, and three corporate lawyers. Report_Story #3 
+ One week after the divorce was final the lawyer called me and asked me to meet him at XYZ the next day at nine. We were ushered into the conference room where I was surprised to see Jason Boggs, the president and CEO of Titan. There were also three vice presidents, Harriet, and three corporate lawyers.  
 
  
 

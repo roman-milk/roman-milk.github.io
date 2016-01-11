@@ -208,7 +208,7 @@
 
  I stopped the motion, with just a little of my rod inside of her, afraid that if I pulled out, I'd never get back inside again. I leaned down and kissed her warmly then passionately. I tried to fuck her then, her attention distracted, but when I pushed harder, I felt her grimace and had to stop. 
 
- I had an idea that might change things. I pulled out of her, against her wishes, then rolled over onto my back, my raging hard-on sticking straight up. I reached to the end-table and got another good bit of the lube and lathered up my cock, while she watched. Report_Story #2 
+ I had an idea that might change things. I pulled out of her, against her wishes, then rolled over onto my back, my raging hard-on sticking straight up. I reached to the end-table and got another good bit of the lube and lathered up my cock, while she watched.  
 
  
 
@@ -432,7 +432,7 @@
 
  "Fuck her, Mr. K. Fuck her hard." Holly encouraged me. 
 
- I couldn't let her down. I leaned over Sara, and started to long stroke her, pulling almost all the way out, and then methodically filling her again. I developed a steady rhythm, fucking the sweet young thing to my heart's content. I lowered myself and kissed her on the mouth, for the first time, while I fucked her a little faster, a little more insistently. Our tongues tangled, and she sucked on my face like she was starving. I felt Holly caressing my cock where it entered Sara, and felt the cool moisture of more lube being added to my cock. I raised up onto my toes and hands, my body stretched out straight, and pounded down into her, feeling the mattress give under my efforts. Sara was moaning constantly now, and I watched in immense pleasure as she flushed, her breathing becoming heavy, her eyes shut, her forehead wrinkled in concentration. Just a few more full strokes and she was coming on my cock. Report_Story #3 
+ I couldn't let her down. I leaned over Sara, and started to long stroke her, pulling almost all the way out, and then methodically filling her again. I developed a steady rhythm, fucking the sweet young thing to my heart's content. I lowered myself and kissed her on the mouth, for the first time, while I fucked her a little faster, a little more insistently. Our tongues tangled, and she sucked on my face like she was starving. I felt Holly caressing my cock where it entered Sara, and felt the cool moisture of more lube being added to my cock. I raised up onto my toes and hands, my body stretched out straight, and pounded down into her, feeling the mattress give under my efforts. Sara was moaning constantly now, and I watched in immense pleasure as she flushed, her breathing becoming heavy, her eyes shut, her forehead wrinkled in concentration. Just a few more full strokes and she was coming on my cock.  
 
  
 

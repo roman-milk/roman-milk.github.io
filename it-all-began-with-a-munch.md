@@ -482,7 +482,7 @@
 
  Curiousbutshy: I guess... 
 
- Report_Story #2 
+  
 
  
 
@@ -998,7 +998,7 @@
 
  Jill's cunt was begging for attention and it took all her willpower to resist the temptation. She stammered, "R-r-rules." 
 
- "Yes, unfortunately, it is the one unbreakable rule. No one can take a newbie home on the first day," Amanda informed Jill. Report_Story #3 
+ "Yes, unfortunately, it is the one unbreakable rule. No one can take a newbie home on the first day," Amanda informed Jill.  
 
  
 
@@ -1364,7 +1364,7 @@
 
  Beth sensed the mixture of apprehension and excitement in the big breasted new submissive. Beth knew her friend Amanda loved to take innocent bi-curious woman and turn them into complete submissive lesbian playthings and Jill here seemed like the perfect victim for Amanda's growing harem of eager subs. Knowing the power of leaving a woman wanting more, she didn't compliment Jill but instead said, "Now go pick a toy." 
 
- Jill watched Beth leave and suddenly she was alone. Taking another deep breath, she slipped on her shoes and left the changing room and returned to the store dressed like a slutty maid. Thankfully only one other person was in the store and she was busy looking at lingerie. Jill walked to the toy section and froze not sure what to buy or where to even start. Report_Story #4 
+ Jill watched Beth leave and suddenly she was alone. Taking another deep breath, she slipped on her shoes and left the changing room and returned to the store dressed like a slutty maid. Thankfully only one other person was in the store and she was busy looking at lingerie. Jill walked to the toy section and froze not sure what to buy or where to even start.  
 
  
 
@@ -1700,7 +1700,7 @@
 
  "Yes, my dear," Amanda smiled, so amused by her innocent pet. She pulled her pet along slowly to her reserved table. 
 
- Jill couldn't get enough of her surroundings as she saw young girls being led by older woman, older women being led by young girls, women dancing with each other, a girl in her late forties on all fours with a collar around her neck being led by a girl maybe in her early twenties, a young black woman at a table had not one, but two older women on their knees licking her stocking-clad feet, a young girl in a school girl's outfit was with a woman that could be her teacher and just as they reached the table Jill saw a pair of black pumps sticking out from under another table while a chubby, but very pretty, brunette winked at her. Report_Story #5 
+ Jill couldn't get enough of her surroundings as she saw young girls being led by older woman, older women being led by young girls, women dancing with each other, a girl in her late forties on all fours with a collar around her neck being led by a girl maybe in her early twenties, a young black woman at a table had not one, but two older women on their knees licking her stocking-clad feet, a young girl in a school girl's outfit was with a woman that could be her teacher and just as they reached the table Jill saw a pair of black pumps sticking out from under another table while a chubby, but very pretty, brunette winked at her.  
 
  
 

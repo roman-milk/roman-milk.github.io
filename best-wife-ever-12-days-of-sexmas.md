@@ -252,7 +252,7 @@
 
  3. When my wife was drunk she became very foul-mouthed and naughty. 
 
- By the time I arrived at the pub it was 5:30 and the last half of happy hour. My wife and her colleagues were well on their way to drunk as they were already onto shooters. Report_Story #2 
+ By the time I arrived at the pub it was 5:30 and the last half of happy hour. My wife and her colleagues were well on their way to drunk as they were already onto shooters.  
 
  
 
@@ -580,7 +580,7 @@
 
  "And you are mine," she copied, her hand giving a gentle squeeze. 
 
- I drove wondering, which it would be. There were three more outfits she hadn't tried on yet, but we had purchased: a sweet Belle dress, her favourite Disney princess, a flapper dress and a naughty nun outfit. Each outfit had different fantasies spinning in my head at a high-speed pace. My cock stayed stiff the whole drive home. Report_Story #3 
+ I drove wondering, which it would be. There were three more outfits she hadn't tried on yet, but we had purchased: a sweet Belle dress, her favourite Disney princess, a flapper dress and a naughty nun outfit. Each outfit had different fantasies spinning in my head at a high-speed pace. My cock stayed stiff the whole drive home.  
 
  
 
@@ -734,7 +734,7 @@
 
  After yesterday's morning sex, I went over 24 hours without any action. Last night, Alexis worked late getting her Christmas pageant ready for Wednesday and I packed and went to bed early. I was leaving for a two-day conference in New York and would not return until Thursday evening. 
 
- I was getting so used to her surprises, I expected some sort of action in the morning, or on the drive to the airport, but it was all business. Hugs, kisses, promises to call tonight. Report_Story #4 
+ I was getting so used to her surprises, I expected some sort of action in the morning, or on the drive to the airport, but it was all business. Hugs, kisses, promises to call tonight.  
 
  
 
@@ -992,7 +992,7 @@
 
  The next hour was a couple of drinks, a couple of dances and a lot of listening to generic bullshit from Alexis' colleagues. Finally from the dance floor, an even drunker Alexis gave me a look and I politely excused myself. A couple of minutes later we were indeed at the same place, but this time she lifted up her dress, to reveal she was commando, and demanded, "Shove that big snake of yours in me, baby." 
 
- I pulled out the generously labelled snake and easily slid it inside her sopping wet pussy. Like her an hour ago, I pumped my snake in and out of her hard and fast; like me an hour ago, she was incredibly horny and breathing heavy after only a couple of strokes. I kept up the rapid drilling and she, like me an hour ago, came in only a couple of minutes. I kept pumping in and out as she held onto the wall for dear life as her orgasm shuddered through her. I was about to quit, thinking we had a limited time and I had got my wife off, when she demanded, "Keep fucking me, baby. I want to feel your cum inside me. I want to walk around with your juice deep inside me while I am on the dance floor." Report_Story #5 
+ I pulled out the generously labelled snake and easily slid it inside her sopping wet pussy. Like her an hour ago, I pumped my snake in and out of her hard and fast; like me an hour ago, she was incredibly horny and breathing heavy after only a couple of strokes. I kept up the rapid drilling and she, like me an hour ago, came in only a couple of minutes. I kept pumping in and out as she held onto the wall for dear life as her orgasm shuddered through her. I was about to quit, thinking we had a limited time and I had got my wife off, when she demanded, "Keep fucking me, baby. I want to feel your cum inside me. I want to walk around with your juice deep inside me while I am on the dance floor."  
 
  
 

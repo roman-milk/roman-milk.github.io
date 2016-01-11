@@ -302,7 +302,7 @@
 
  She followed me into the house and I got us both a beer and we sat down at the kitchen table. 
 
- "First, you don't need to be looking over your shoulder to see if Brian is creeping up on you. Brian is doing three to five in the state prison for drug dealing. He has been in almost two and if he behaves himself he could make it out on parole in another year. My family's attitude, and I'm sure you noticed the sour looks they have given you, is that I should faithfully wait for him to get out. That is their attitude, not mine. I told him when he started messing around with drugs that sooner or later he was going to get caught and go to jail and when it happened I might or might not be waiting for him when he got out. Report_Story #2 
+ "First, you don't need to be looking over your shoulder to see if Brian is creeping up on you. Brian is doing three to five in the state prison for drug dealing. He has been in almost two and if he behaves himself he could make it out on parole in another year. My family's attitude, and I'm sure you noticed the sour looks they have given you, is that I should faithfully wait for him to get out. That is their attitude, not mine. I told him when he started messing around with drugs that sooner or later he was going to get caught and go to jail and when it happened I might or might not be waiting for him when he got out.  
 
  
 
@@ -524,7 +524,7 @@
 
  Things were great between us for just a little over two months and then my birthday rolled around. One of the benefits where I work is that my birthday is one of my paid holidays. I was off but Gail had to work so I decided to do something about something that I had just recently remembered. 
 
- When I suspected that Gail was having an affair instead of working late as she claimed I put a tap on the home phone the day before she was kidnapped and there was nothing on it for that one day. After Gail was gone I forgot all about the phone tap and since I always used my cell phone the house phone never got used and the tap sat there dormant. Then Gail came home and everything was lovey-dovey. I needed a tape recorder and was all set to buy one when I remembered the phone tap. I didn't want Gail around to see me dismantle it because it would have opened a can of worms that we had just pounded the top closed on so I decided to do it on my day off. Report_Story #3 
+ When I suspected that Gail was having an affair instead of working late as she claimed I put a tap on the home phone the day before she was kidnapped and there was nothing on it for that one day. After Gail was gone I forgot all about the phone tap and since I always used my cell phone the house phone never got used and the tap sat there dormant. Then Gail came home and everything was lovey-dovey. I needed a tape recorder and was all set to buy one when I remembered the phone tap. I didn't want Gail around to see me dismantle it because it would have opened a can of worms that we had just pounded the top closed on so I decided to do it on my day off.  
 
  
 

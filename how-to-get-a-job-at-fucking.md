@@ -120,7 +120,7 @@
 
  I was gonna make him mine. 
 
- It was perfect. It was beautiful. And the sweetest part was, he was unwittingly the engineer of his own destruction. He had unwittingly created the blueprint for me to conquer him, and I was the first clever slut to figure that out. Report_Story #2 
+ It was perfect. It was beautiful. And the sweetest part was, he was unwittingly the engineer of his own destruction. He had unwittingly created the blueprint for me to conquer him, and I was the first clever slut to figure that out.  
 
  
 
@@ -274,7 +274,7 @@
 
  She was the opposite of what you'd expect from the daughter of a CEO. She was the farthest thing from corporate. She was sweet and loving and friendly. And warm. She just had a great, charitable spirit, and she stayed away from the family business, preferring to shape the future as a kindergarten teacher. She loved it, and seeing her with those kids, how she cared for them, and how crazy they were about her, I felt good about choosing her as my wife, the future mother of my children. 
 
- Work had kept us both busy, and I was looking forward to getting this weekend off. We were heading up to a place on a lake for a couple days. We had both been so exhausted that we hadn't had the chance to be... intimate... in a while. And we were both feeling it. We were both looking forward to blowing off some stress on a long, romantic weekend together. Report_Story #3 
+ Work had kept us both busy, and I was looking forward to getting this weekend off. We were heading up to a place on a lake for a couple days. We had both been so exhausted that we hadn't had the chance to be... intimate... in a while. And we were both feeling it. We were both looking forward to blowing off some stress on a long, romantic weekend together.  
 
  
 
@@ -436,7 +436,7 @@
 
  The bottom left picture was her at work, but she wasn't exactly working. It was a picture she clearly quickly snapped of her bent over a desk, a suit-clad man behind her, his face hidden, clearly... obviously having, uh... relations... with her. While she was still clothed, her outfit looked astray, as if what was happening was very aggressive and rough. And on her face, that same satisfied smirk. 
 
- The bottom right picture was her in what was probably her apartment, standing in front of a mirror. She looked perfectly coiffed and styled, her face turned into a wicked looking kiss, but her outfit was absolutely filth. A trashy looking tight blue tank top, the spaghetti straps digging into her shoulders due to the stress caused by her mammoth rack. Her top was molded to her large breasts, showing off their perfectly smooth, round shape, and there were clear indents caused by her throbbing nipples. Her midriff was exposed, leaving her fit belly bare. Down lower, she wore a tiny, denim skirt, cut way too short, barely covering her nether-regions. Her long legs were bare, smooth and firm, leading to some trashy high-heels. Her outfit was obscene and looked incredibly skanky, but it was clear that was the look she was going for. Report_Story #4 
+ The bottom right picture was her in what was probably her apartment, standing in front of a mirror. She looked perfectly coiffed and styled, her face turned into a wicked looking kiss, but her outfit was absolutely filth. A trashy looking tight blue tank top, the spaghetti straps digging into her shoulders due to the stress caused by her mammoth rack. Her top was molded to her large breasts, showing off their perfectly smooth, round shape, and there were clear indents caused by her throbbing nipples. Her midriff was exposed, leaving her fit belly bare. Down lower, she wore a tiny, denim skirt, cut way too short, barely covering her nether-regions. Her long legs were bare, smooth and firm, leading to some trashy high-heels. Her outfit was obscene and looked incredibly skanky, but it was clear that was the look she was going for.  
 
  
 
@@ -540,7 +540,7 @@
 
  "Just fine, huh? Not a really strong endorsement." Tori said. "Now, look at mine." I just looked her in the eyes, not wanting to play along. "C'mon Paul, the sooner you do, the sooner this ends. The sooner your eyes are hungrily gazing on the smooth, hot, sexy flesh of my giant breasts, the sooner we can move on." I held her gaze, resisting her invitation. "Fine. You can look at the real thing, or the picture, either choice is fine." I lazily shifted my glance back to the picture, where Tori was shining the laser at her own pictured, jutting chest. "Look at my tits, Paul. So big...so soft...so perfect...34 EE's, baby, and they are all real. Just imagine squeezing them, playing with them... the softness is addicting, you'll never get enough," she said, her tone low and lusty as she moved closer to my desk, leaning over it again. "Have you ever thought about squeezing my tits, Paul?" she asked, shaking her tits slightly, trying to get me to look at her exposed cleavage. I glanced at her in the eyes, the look in my eyes voicing my displeasure. "I bet you have. I mean, me and Andrea, together, it really showcases the differences between us. Your wife is all flat and dull, but I have all these luscious curves. My tits... my ass," she said, turning slightly to point her butt at me. "She's pretty. I'm hot. She's classy, I'm dirty. She's a wife... I'm a slut." 
 
- "All men need a slut, Paul. Especially men in power. They work so hard and do so much good, every so often, they just need to vent all that stress somewhere. I'm sure all the big bosses you idolize have sluts like me too. Men like you... they need to do all the sick, disgusting, hot things they could never do with their wives. Things they couldn't possibly do to a woman they respect. That's why women like me exist, Paul. That's the role we play. All men have these needs, and women like me can provide them," she affirmed, pausing for a moment, clasping her hands together. Report_Story #5 
+ "All men need a slut, Paul. Especially men in power. They work so hard and do so much good, every so often, they just need to vent all that stress somewhere. I'm sure all the big bosses you idolize have sluts like me too. Men like you... they need to do all the sick, disgusting, hot things they could never do with their wives. Things they couldn't possibly do to a woman they respect. That's why women like me exist, Paul. That's the role we play. All men have these needs, and women like me can provide them," she affirmed, pausing for a moment, clasping her hands together.  
 
  
 
@@ -650,7 +650,7 @@
 
  "Look at that ass," Tori gasped quietly from my right, startling me as she stood over the side of the table, closer than I thought she was. "It's amazing, isn't it? That, right there, is a corporate ass. That's the kind of ass that's built for the boardroom. That butt is meant to be in business skirts. All good businesses have a butt like that stashed away somewhere." 
 
- My vision was arrested. It was an amazing ass, I couldn't deny that. And judging by her posture and the way I had seen the firm cheeks bounce and jiggle, she knew exactly how to use it to her advantage. She knew how to make a man crawl behind her, looking for a glimpse. I am positive she had used it to her advantage in the office, distracting some hard working man as he tried to do his job, making it a point to strut by his cubicle, stealing his attention, his gaze. He would try to look away and focus on his work, or his wife back home, but he wouldn't be able to stop thinking about those round cheeks, watching them jiggle. The sight would be so sexy he would be drooling. He would become obsessed with that ass, not being able to think about anything else until he just had to see it. And when he came crawling, he would offer up anything to see it. And when he did, and he experienced everything that butt could do first-hand, he would be broken forever. He would not be the same man again. He would be corrupted, both professionally and personally. And in this fantasy, I couldn't help but think that this man... was me. Report_Story #6 
+ My vision was arrested. It was an amazing ass, I couldn't deny that. And judging by her posture and the way I had seen the firm cheeks bounce and jiggle, she knew exactly how to use it to her advantage. She knew how to make a man crawl behind her, looking for a glimpse. I am positive she had used it to her advantage in the office, distracting some hard working man as he tried to do his job, making it a point to strut by his cubicle, stealing his attention, his gaze. He would try to look away and focus on his work, or his wife back home, but he wouldn't be able to stop thinking about those round cheeks, watching them jiggle. The sight would be so sexy he would be drooling. He would become obsessed with that ass, not being able to think about anything else until he just had to see it. And when he came crawling, he would offer up anything to see it. And when he did, and he experienced everything that butt could do first-hand, he would be broken forever. He would not be the same man again. He would be corrupted, both professionally and personally. And in this fantasy, I couldn't help but think that this man... was me.  
 
  
 
@@ -724,7 +724,7 @@
 
  She was bent over the desk, her back to me, her skirt clinging to her rear end. She looked back at me, and any thoughts that I had gotten through to her disappeared upon seeing the smirk on her face. 
 
- "Oh, this isn't over yet," Tori boasted. "Let's see if this changes your mind." With that, she reached back, and pulled her skirt up, sliding the taut material up until, finally, her round ass emerged, bared to my eyes. Her skirt was now bunched up around her waist, allowing her ass to be displayed fully, but it wasn't completely exposed. My eyes didn't settle on the firm, round, jutting cheeks. It settled in between, on the tiny red thong splitting the cheeks. It was the same red thong that had caught my eye earlier when her underwear was laid out on her bed, and now, I was seeing it in action, used in the way it was meant to, tucked between her beautiful round ass-cheeks. I studied the delightful way the tiny string disappeared between the cheeks. It was the first time I had seen a thong on a girl in real life, and I was momentarily transfixed. In my stupor, my hand slipped from the doorknob. Report_Story #7 
+ "Oh, this isn't over yet," Tori boasted. "Let's see if this changes your mind." With that, she reached back, and pulled her skirt up, sliding the taut material up until, finally, her round ass emerged, bared to my eyes. Her skirt was now bunched up around her waist, allowing her ass to be displayed fully, but it wasn't completely exposed. My eyes didn't settle on the firm, round, jutting cheeks. It settled in between, on the tiny red thong splitting the cheeks. It was the same red thong that had caught my eye earlier when her underwear was laid out on her bed, and now, I was seeing it in action, used in the way it was meant to, tucked between her beautiful round ass-cheeks. I studied the delightful way the tiny string disappeared between the cheeks. It was the first time I had seen a thong on a girl in real life, and I was momentarily transfixed. In my stupor, my hand slipped from the doorknob.  
 
  
 
@@ -822,7 +822,7 @@
 
  "Oooh, I think you like that sound of that!" she said, smirking at me as her grip traversed the length of my hard pipe, skin-on-skin. "Is that right? You like the idea of draining your nuts in the office slut's cunt? Giving the biggest skank in the company a baby? I think you do!" 
 
- "No," I gasped out, trying my best not to acknowledge the pleasure her skilled hand was bringing me. I was pressed against the door, clinging to it, doing everything I could to fight off what she was doing to me. Report_Story #8 
+ "No," I gasped out, trying my best not to acknowledge the pleasure her skilled hand was bringing me. I was pressed against the door, clinging to it, doing everything I could to fight off what she was doing to me.  
 
  
 
@@ -912,7 +912,7 @@
 
  Gathering her hair in my hand, I pulled her forward once more, forcing my big dick into her mouth again, sliding it all the way in until her lips swallowed the base of my dong. Gripping her tresses, I began to piston my dick in and out of her mouth, pumping its entire length, from tip to root, working up a smooth rhythm. And now that her throat had been prepped, she could take it. She could take my lengthy dick inside her no problem, swallowing it easily. I began to drive into her harder, my dick sliding smoothly into her throat, giving her my full length on every stroke, pumping so fast that my saliva coated balls were soon lewdly slapping her chin. 
 
- For a few seconds, I had the power, my hips driving into her face as I maintained a rough grip on her hair, pulling her into me. But this was merely momentary, as she impatiently brushed my hand aside, gripped my thighs roughly, and began to force herself down on me harder than I had been, using my cock to fuck her tight throat savagely. Report_Story #9 
+ For a few seconds, I had the power, my hips driving into her face as I maintained a rough grip on her hair, pulling her into me. But this was merely momentary, as she impatiently brushed my hand aside, gripped my thighs roughly, and began to force herself down on me harder than I had been, using my cock to fuck her tight throat savagely.  
 
  
 
@@ -1000,7 +1000,7 @@
 
  "How does that feel?" Tori asked, her tone turning nastier. "How does that fucking cunt feel? Tell me, Paul. Fucking tell me!" she begged. 
 
- "Feels so fucking good!" I groaned out, my eyes screwed shut in pleasure as I held myself in place. She squeezed her cunt in a steady rhythm around my bloated cock, almost bringing me over the edge. "Amazing!" Report_Story #10 
+ "Feels so fucking good!" I groaned out, my eyes screwed shut in pleasure as I held myself in place. She squeezed her cunt in a steady rhythm around my bloated cock, almost bringing me over the edge. "Amazing!" 0 
 
  
 
@@ -1112,7 +1112,7 @@
 
  I stumbled slightly as I found my balance, my limbs weakened from exertion. I backed away from Tori and made it a point to not look at her luscious, splayed out body, knowing now how dangerous she was, and how easily she could grab hold of any weakness on my part. At this moment, I wanted nothing more than to just get away, but I was so disheveled and had so obviously just had sex, that I had to pause and figure out what the fuck to do. With all these thoughts racing through my brain, all this panic and guilt, I stumbled backwards, the back of legs hitting my couch, causing me to fall back into a seated position on the sofa. I put my head in my hands, trying to figure out what to do. 
 
- I had betrayed my wife. I wasn't the person I thought I was. How... how could I live with myself? How could I be around my wife, seeing her pretty smiling face, and act like I hadn't betrayed her trust? Should I just come clean? Should I admit what happened to my wife and deal with the consequences? I can't imagine how badly she would be hurt and let down by my actions. And her father... my job here was over. If he found out that I had cheated on his little princess, simply losing my job here might be the best outcome. Report_Story #11 
+ I had betrayed my wife. I wasn't the person I thought I was. How... how could I live with myself? How could I be around my wife, seeing her pretty smiling face, and act like I hadn't betrayed her trust? Should I just come clean? Should I admit what happened to my wife and deal with the consequences? I can't imagine how badly she would be hurt and let down by my actions. And her father... my job here was over. If he found out that I had cheated on his little princess, simply losing my job here might be the best outcome. 1 
 
  
 
@@ -1242,7 +1242,7 @@
 
  "Yeah? Tell me... tell me how much you like my big tits better than your wife's flat chest?" 
 
- "Yes! They're incredible!" I moaned out, slurping on her nipples as they slid across my mouth. "So fucking big... and soft," I moaned out, sliding one hand up to squeeze at her bouncing breasts. "So much better than my wife's! Compared to you, my wife has nothing! Compared to you, she's barely a woman! She has a pair of pathetic, inferior, sad little breasts!" I said, the words getting away from me as I insulted my sweet, loving wife, but Tori's reaction, and my own, almost made me get carried away. The more I said, the harder she fucked me, and the harder I drove up into her. Report_Story #12 
+ "Yes! They're incredible!" I moaned out, slurping on her nipples as they slid across my mouth. "So fucking big... and soft," I moaned out, sliding one hand up to squeeze at her bouncing breasts. "So much better than my wife's! Compared to you, my wife has nothing! Compared to you, she's barely a woman! She has a pair of pathetic, inferior, sad little breasts!" I said, the words getting away from me as I insulted my sweet, loving wife, but Tori's reaction, and my own, almost made me get carried away. The more I said, the harder she fucked me, and the harder I drove up into her. 2 
 
  
 
@@ -1374,7 +1374,7 @@
 
  He was barely the same man anymore. He still maintained his bullshit good guy act to the people that still believed he was pure, but not with me. He was, without a doubt, the dirtiest boyfriend I had ever had, by far. He had come down to my level and he was reveling in it. The things we did in the bedroom... it was beyond nasty. It was so filthy I could barely describe it. Things that almost made me blush! It was amazing! 
 
- With our work being done, I convinced Paul we deserved a vacation. So, instead of heading right back home, we opted to stay in Brazil, celebrating our hard earned victory. We drank... we partied... we fucked. We had gotten up to some crazy adventures. These Brazilian women were insane! I loved it! We had met some fellow Americans too, a group of college-aged girls staying at our hotel. I had talked to two of them quite a bit, a blonde, and an Asian girl with a blue-streak through her dark hair. I also occasionally saw them hanging out with this hot older guy, and this young, black-haired girl with huge knockers, but I hadn't met them yet. I was hoping to close the deal with them pretty soon, hopefully all three of the girls, and certainly give Paul a night he would never forget. Report_Story #13 
+ With our work being done, I convinced Paul we deserved a vacation. So, instead of heading right back home, we opted to stay in Brazil, celebrating our hard earned victory. We drank... we partied... we fucked. We had gotten up to some crazy adventures. These Brazilian women were insane! I loved it! We had met some fellow Americans too, a group of college-aged girls staying at our hotel. I had talked to two of them quite a bit, a blonde, and an Asian girl with a blue-streak through her dark hair. I also occasionally saw them hanging out with this hot older guy, and this young, black-haired girl with huge knockers, but I hadn't met them yet. I was hoping to close the deal with them pretty soon, hopefully all three of the girls, and certainly give Paul a night he would never forget. 3 
 
  
 

@@ -126,7 +126,7 @@
 
  Lawrence stood impatiently as his sister moved her position. She eyed his erection and licked her lips. He watched her eyes lock onto his cock. 
 
- 'I want to suck that for you soon, Brother,' Angelique growled before she finally settled in the chair, both her knees hooked over the arms. Her sweet tipped breasts pointed up at him, a younger, firmer facsimile of her mother's delicious globes. Lawrence growled when he saw the similarity between his sister and darling mother, but the growl tapered to a moan when his older sister held her sticky labia open with the tips of her fingers, and her other hand clasped his shaft. Report_Story #2 
+ 'I want to suck that for you soon, Brother,' Angelique growled before she finally settled in the chair, both her knees hooked over the arms. Her sweet tipped breasts pointed up at him, a younger, firmer facsimile of her mother's delicious globes. Lawrence growled when he saw the similarity between his sister and darling mother, but the growl tapered to a moan when his older sister held her sticky labia open with the tips of her fingers, and her other hand clasped his shaft.  
 
  
 
@@ -148,7 +148,7 @@
 
  'But...' Lawrence began. 
 
- 'Shush,' Angelique quickly said, pressing her finger against his warm lips. 'You can have me whenever you want, darling. And not only is this body is yours,' Angelique continued, grinning coyly, 'I think you and I should seduce Mother as well. Now, how wicked would that be?' Report_Story #1 
+ 'Shush,' Angelique quickly said, pressing her finger against his warm lips. 'You can have me whenever you want, darling. And not only is this body is yours,' Angelique continued, grinning coyly, 'I think you and I should seduce Mother as well. Now, how wicked would that be?'  
 
  
 
@@ -274,7 +274,7 @@
 
  'Mama... don't go!' Lawrence called too late. 
 
- His mother, sobbing and holding her wounded hand tight against her tears, had already run from the copse, leaving Lawrence amid the ruins of their picnic on such a beautiful, sunny day. Report_Story #1 
+ His mother, sobbing and holding her wounded hand tight against her tears, had already run from the copse, leaving Lawrence amid the ruins of their picnic on such a beautiful, sunny day.  
 
  
 
@@ -408,7 +408,7 @@
 
  'No?' she said when she broke the kiss. 'You don't think I can get any worse?' Angelique laughed. 'I'm sure we can think of something. Can't we dear, Brother? You may call it "worse", you wretch, but I would call it love.' 
 
- Lawrence glanced at his sister. He knew what she meant. She was referring to their mother. Lawrence wondered what his sister could possibly have in mind. But one thing was certain – he was beyond the point of no return. He was addicted as his sister. He loved her dearly, but he was also curious to see how far her strange husband would go. Report_Story #1 
+ Lawrence glanced at his sister. He knew what she meant. She was referring to their mother. Lawrence wondered what his sister could possibly have in mind. But one thing was certain – he was beyond the point of no return. He was addicted as his sister. He loved her dearly, but he was also curious to see how far her strange husband would go.  
 
  
 

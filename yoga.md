@@ -108,7 +108,7 @@
 
  'Bugger!' He thought, 'I'll have to get them out of here and lose them in town.' "Don't you worry I'll soon down a few." 
 
- Lorain screwed up her eyes in panic. One rampant young man was enough. If those drunken fools sniffed her out: what then? She dare not think what might happen. Crushed behind the sofa it was impossible to move let alone escape from the knot her body was in. What ever happened to her was in the hands of Peter. 'Damn those hands! Those wonderful hands.' She thought. Their raucous laughter sounded loud and close leaving her feeling frightened and vulnerable. She lay squashed in a ball trying to hold her breath, not daring to make a sound. Report_Story #1 
+ Lorain screwed up her eyes in panic. One rampant young man was enough. If those drunken fools sniffed her out: what then? She dare not think what might happen. Crushed behind the sofa it was impossible to move let alone escape from the knot her body was in. What ever happened to her was in the hands of Peter. 'Damn those hands! Those wonderful hands.' She thought. Their raucous laughter sounded loud and close leaving her feeling frightened and vulnerable. She lay squashed in a ball trying to hold her breath, not daring to make a sound.  
 
  
 
@@ -220,7 +220,7 @@
 
  "I think there's something you're not telling me." He wiped some dried cum from under her chin and wiped it under her nose. "Was this before or after he put you in the box?" 
 
- She sobbed a moment then told him the truth. For some reason she even told him how she had enjoyed his touch and the teasing. Perhaps it was in mitigation for giving in to him. "I didn't have much choice. You can see I'm helpless. Please. Will you get me out of hear. I can't stay like this forever. I need to eat. I need to get the use of my limbs back. Please. I beg you don't take advantage. If you get me out I'll do what ever you want. The whole weekend will be yours. You can do whatever you want with me just let me out. Please." She begged in earnest. Report_Story #1 
+ She sobbed a moment then told him the truth. For some reason she even told him how she had enjoyed his touch and the teasing. Perhaps it was in mitigation for giving in to him. "I didn't have much choice. You can see I'm helpless. Please. Will you get me out of hear. I can't stay like this forever. I need to eat. I need to get the use of my limbs back. Please. I beg you don't take advantage. If you get me out I'll do what ever you want. The whole weekend will be yours. You can do whatever you want with me just let me out. Please." She begged in earnest.  
 
  
 

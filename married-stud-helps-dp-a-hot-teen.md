@@ -118,7 +118,7 @@
 
  The three of us horny adult men began talking about Lucy and young women, while we just stared at her tanning out in her backyard. Her butt looked marvelous, glistening under the hot sunlight, and her back became sweaty and sexy. Thom was telling us, she'd met a couple of his buddies earlier that summer, and already fucked three of them. Thom had even watched her fuck his buddy the first time, although that was out in the backyard -- where she was at that very moment -- while Thom was hiding upstairs behind a window. As I sat there, I had the image of Danny and me out back, screwing the bitch too, but I would be wrong about that. Good thing, too, because it was so hot outside. 
 
- After listening to probably five songs or something, maybe twenty minutes or so, Lucy pushed herself up from her towel. I got to see the frontside of her yellow string bikini, and the view there was just as sexy as from the backside. The top barely covered her A-cup boobies, she had perfectly-proportionate, round orbs on her skinny chest. The bikini thong dove low on her abdomen, barely just covering her cuntlips, so most of her skin was uncovered. She was gorgeous, my dick was fully engorged in my shorts with the thought that I could be fucking her sexy body sometime that afternoon. Report_Story #2 
+ After listening to probably five songs or something, maybe twenty minutes or so, Lucy pushed herself up from her towel. I got to see the frontside of her yellow string bikini, and the view there was just as sexy as from the backside. The top barely covered her A-cup boobies, she had perfectly-proportionate, round orbs on her skinny chest. The bikini thong dove low on her abdomen, barely just covering her cuntlips, so most of her skin was uncovered. She was gorgeous, my dick was fully engorged in my shorts with the thought that I could be fucking her sexy body sometime that afternoon.  
 
  
 
@@ -224,7 +224,7 @@
 
  The slut in the string bikini stopped in the middle of the room, turning to smile at us, blushing. "So, here it is," she laughed, waiving her arms around, indicating that, indeed, this was her bedroom. But her eyes fell to my crotch again, as well as Danny's, and she licked her lips a little. 
 
- Behind me, I heard her door shut firmly, closed with a thud by Danny. He played with the doorknob, but it didn't have a lock, so he gave up on it. As he stepped forward towards her, I did the same, and a couple moments later, us two tall, middle-aged guys were sandwiching the petite teenager, staring down at her pretty face and hot body. Report_Story #3 
+ Behind me, I heard her door shut firmly, closed with a thud by Danny. He played with the doorknob, but it didn't have a lock, so he gave up on it. As he stepped forward towards her, I did the same, and a couple moments later, us two tall, middle-aged guys were sandwiching the petite teenager, staring down at her pretty face and hot body.  
 
  
 
@@ -310,7 +310,7 @@
 
  None of that, of course, slowed me down. I wanted to cum so fucking badly, but I was showing off, too -- to her, and to Danny. Between fucking her on top, and then having her ride me, I was in her pussy over 15 minutes, maybe closer to 20. I was going to cum so fucking hard, but was going to make it last as long as I could. 
 
- But I couldn't hold back forever. Keeping my dick plowed into the depths of her tight, wet pussy until the last possible second, I threw her off of me and onto her back on the bed. She yelped, not expecting it. But before she could hardly move, I was straddling her, throwing my sweaty thighs around her chest, aiming my dick at her face. I love cum on a girl's face, and Lucy was going to get it from me. Jerking my cock, lubricated amply by her pussyjuice, I stroked my boner and then growled when a huge wave exploded in my balls. My cockhead felt like it was bursting open, as a torrent of jism started to flood out. My balls pumped it hard, I could sense it flying up through my tube, erupting out with loud jets to splatter on the bitch's pretty face and forehead. She let me, keeping her eyes closed, feeling me cumming all over her face, dribbling sperm onto her neck and chin, too. Report_Story #4 
+ But I couldn't hold back forever. Keeping my dick plowed into the depths of her tight, wet pussy until the last possible second, I threw her off of me and onto her back on the bed. She yelped, not expecting it. But before she could hardly move, I was straddling her, throwing my sweaty thighs around her chest, aiming my dick at her face. I love cum on a girl's face, and Lucy was going to get it from me. Jerking my cock, lubricated amply by her pussyjuice, I stroked my boner and then growled when a huge wave exploded in my balls. My cockhead felt like it was bursting open, as a torrent of jism started to flood out. My balls pumped it hard, I could sense it flying up through my tube, erupting out with loud jets to splatter on the bitch's pretty face and forehead. She let me, keeping her eyes closed, feeling me cumming all over her face, dribbling sperm onto her neck and chin, too.  
 
  
 
@@ -408,7 +408,7 @@
 
  Danny was so hard, I noticed, that it wasn't fair to make him just watch. I rolled the whore onto her knees, and started banging her doggy-style. Her soft, creamy ass so was small and sexy, so petite compared to my adult body, as she squirmed her hips in circles with my concrete shaft thrusting in and out of her slot from behind. While I fucked the long-haired brunette from the rear, Danny dropped to his ass in front of her, spreading her meaty legs, so she could lean her beautiful Asian face down to suck his cock. All of it was recorded by the laptop -- Lucy on her fours, her titties dangling under her thin chest, while I was plunging my penis into her cunt from the rear, and Danny was thrusting his hard dick into her mouth. She was being used by the two of us, her holes stuffed with married cocks to treat her like our sextoy. 
 
- "Yeah, you fuckin' cunt!" roared Danny, watching her face around his erection, and her ass wiggling against me. "Fuck that big cock, you nasty, stanky bitch - - and suck my cock more you fuckin' cunt, you know you love it, you're such a fuckin' sexy little tramp -- you know you're just a stupid cock-fucker, don't you, you just love fucking dick and that's pretty much all you care about, isn't it?" Report_Story #5 
+ "Yeah, you fuckin' cunt!" roared Danny, watching her face around his erection, and her ass wiggling against me. "Fuck that big cock, you nasty, stanky bitch - - and suck my cock more you fuckin' cunt, you know you love it, you're such a fuckin' sexy little tramp -- you know you're just a stupid cock-fucker, don't you, you just love fucking dick and that's pretty much all you care about, isn't it?"  
 
  
 

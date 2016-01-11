@@ -304,7 +304,7 @@
 
  By midnight it'll be done. 
 
- I'll pick up a newspaper tomorrow, peruse the racing pages and pick what I know will be a winning horse. I'll place a bet and collect the winnings, maybe doing the same for three or four days until I've got a nice wad of cash to see me through the next few weeks. Report_Story #2 
+ I'll pick up a newspaper tomorrow, peruse the racing pages and pick what I know will be a winning horse. I'll place a bet and collect the winnings, maybe doing the same for three or four days until I've got a nice wad of cash to see me through the next few weeks.  
 
  
 

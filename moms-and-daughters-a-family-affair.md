@@ -264,7 +264,7 @@
 
  I returned home from prom, an escort for a senior student, even though I was only a junior, quite upset that my date had tried to force me to give him head. Although I was eighteen (we started school a year late because Mom and Dad worked overseas when we were to be in kindergarten...thus making Chloe and I always a year older than our classmates, sometimes even more), I was still a virgin. My focus had always been on my studies, not boys. Yet, Chloe convinced me to be an escort because, in her words, 'I needed a social life'. 
 
- I came home in tears and Mom comforted me. Report_Story #2 
+ I came home in tears and Mom comforted me.  
 
  
 
@@ -556,7 +556,7 @@
 
  "That's it, my pet," Mommy moaned as I began tentatively licking. 
 
- Being called a 'pet' created mixed emotions. I have always been a people pleaser and loyal, traits of a good pet; yet the name clearly established a power hierarchy and I was at the bottom. I immediately recalled Mom saying she was at the bottom of her community lesbian hierarchy and wondered if that was what she expected here too. Conversely, those thoughts quickly faded from significance as the unique flavour of Mom's pussy reached my taste buds. All the lingering doubts bouncing around in my head were silenced as my brain shut off and my body took full control. The intoxicating scent, the succulent taste and the strange natural sensation all overwhelmed me as I licked Mom's vagina. Report_Story #3 
+ Being called a 'pet' created mixed emotions. I have always been a people pleaser and loyal, traits of a good pet; yet the name clearly established a power hierarchy and I was at the bottom. I immediately recalled Mom saying she was at the bottom of her community lesbian hierarchy and wondered if that was what she expected here too. Conversely, those thoughts quickly faded from significance as the unique flavour of Mom's pussy reached my taste buds. All the lingering doubts bouncing around in my head were silenced as my brain shut off and my body took full control. The intoxicating scent, the succulent taste and the strange natural sensation all overwhelmed me as I licked Mom's vagina.  
 
  
 
@@ -900,7 +900,7 @@
 
  "It's tooooooo good," she moans. 
 
- I keep fucking her wanting to make her orgasm twice, to make her have the most intense pleasure she has ever experienced in her whole life. Report_Story #4 
+ I keep fucking her wanting to make her orgasm twice, to make her have the most intense pleasure she has ever experienced in her whole life.  
 
  
 
@@ -1298,7 +1298,7 @@
 
  "You bitch," Beth snapped in rage, as her mother screamed. 
 
- "Fuccccccccck," the MILF screamed loudly and was both thankful she lived on an acreage and mortified that she was caught in such a compromising act and doubly mortified that she was now coming at the hands of her blackmailer. Report_Story #5 
+ "Fuccccccccck," the MILF screamed loudly and was both thankful she lived on an acreage and mortified that she was caught in such a compromising act and doubly mortified that she was now coming at the hands of her blackmailer.  
 
  
 
@@ -1644,7 +1644,7 @@
 
  "Are you going to get it?" Chloe asked, even as she began fucking her pet harder. 
 
- "Nooooooooo," the mom answered, although it was literally impossible with hands on her hips and a cock pounding her ass. Report_Story #6 
+ "Nooooooooo," the mom answered, although it was literally impossible with hands on her hips and a cock pounding her ass.  
 
  
 
@@ -2024,7 +2024,7 @@
 
  Chloe also added a woman she met while in line at the DMV. 
 
- A few minutes of chit-chat while in the snail-like line, Chloe found herself another straight but easy to seduce older MILF. The mother of four, who felt completely neglected by her husband, was an easy target and once they both eventually made their way through the DMV line, they made a straight line to the MILF's home where the mother learned the fine art of eating cunt. Report_Story #7 
+ A few minutes of chit-chat while in the snail-like line, Chloe found herself another straight but easy to seduce older MILF. The mother of four, who felt completely neglected by her husband, was an easy target and once they both eventually made their way through the DMV line, they made a straight line to the MILF's home where the mother learned the fine art of eating cunt.  
 
  
 
@@ -2376,7 +2376,7 @@
 
  "Damn Amazon," Deborah said. 
 
- "So true," Heidi nodded. She went and talked to one of her employees, before going up some back steps. Report_Story #8 
+ "So true," Heidi nodded. She went and talked to one of her employees, before going up some back steps.  
 
  
 
@@ -2716,7 +2716,7 @@
 
  "Now, Mommy-slut," she ordered. 
 
- I awkwardly went to the door, and peeked through the peephole. It was Deborah's good friend Allison. I turned back to look at Deborah who ordered, "Now!" Report_Story #9 
+ I awkwardly went to the door, and peeked through the peephole. It was Deborah's good friend Allison. I turned back to look at Deborah who ordered, "Now!"  
 
  
 
@@ -3042,7 +3042,7 @@
 
  
 
- a-family-affair74.jpg] Report_Story #10 
+ a-family-affair74.jpg] 0 
 
  
 

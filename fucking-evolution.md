@@ -608,7 +608,7 @@
 
  He gets out and walks around to help her out. 
 
- Her skirt slides up as she gets out, showing her wet pussy to him. Report_Story #2 
+ Her skirt slides up as she gets out, showing her wet pussy to him.  
 
  
 
@@ -758,7 +758,7 @@
 
  "I'm gonna be a mommy." 
 
- Eric decides it's time to move on. He packs his belongings in his car up and drives to Los Angeles. Report_Story #1 
+ Eric decides it's time to move on. He packs his belongings in his car up and drives to Los Angeles.  
 
  
 
@@ -1394,7 +1394,7 @@
 
  A few flirty girls walk by and he returns their smiles. 
 
- He gets up and packs his back pack and walks around the campus for an hour, checking out the hot babes. Report_Story #2 
+ He gets up and packs his back pack and walks around the campus for an hour, checking out the hot babes.  
 
  
 
@@ -1646,7 +1646,7 @@
 
  He decides not to get single women involved. Rich, married women will work better. 
 
- He heads to Las Vegas. Report_Story #1 
+ He heads to Las Vegas.  
 
  
 
@@ -2326,7 +2326,7 @@
 
  He flips her on her back and starts stroking deep in her pussy. 
 
- She moans and groans as he pounds her pussy. Report_Story #2 
+ She moans and groans as he pounds her pussy.  
 
  
 
@@ -2656,7 +2656,7 @@
 
  Eric decides it's time to move on. 
 
- He stores his furniture, throws out all the perishables from the kitchen, packs up his car and heads to San Diego. Report_Story #1 
+ He stores his furniture, throws out all the perishables from the kitchen, packs up his car and heads to San Diego.  
 
  
 
@@ -3340,7 +3340,7 @@
 
  He lays on the bed and looks down at her. 
 
- "I have another idea. Come over here." Report_Story #2 
+ "I have another idea. Come over here."  
 
  
 
@@ -3838,7 +3838,7 @@
 
  They fuck their brains out all that day and night. 
 
- He makes his exit. He decides to go back to Las Vegas. Report_Story #1 
+ He makes his exit. He decides to go back to Las Vegas.  
 
  
 
@@ -4332,7 +4332,7 @@
 
  She starts working on his cock, squeezing it and rubbing it in and out of her cervix. 
 
- He flexes his cock in and she screams and cums. He flexes every time she finishes her orgasm and then gives her another. She cums and cums on his big cock. He feels his orgasm coming and holds her down. Report_Story #2 
+ He flexes his cock in and she screams and cums. He flexes every time she finishes her orgasm and then gives her another. She cums and cums on his big cock. He feels his orgasm coming and holds her down.  
 
  
 
@@ -4806,7 +4806,7 @@
 
  He uses her hair to pull her back and forth on his cock. He lets go of her hair and grabs her nipples. He pinches them and uses them to pull her back. She cries out again and cums again. He grabs her hip bones and pulls her hard back on his cock. His cock is hitting her cervix with each stroke. She cums each time. Her arms go limp and she falls face down to the bed. He holds her hips and powers into her. 
 
- She is cumming and cumming. She squeezes his cock and he howls and cums in her. She screams and joins his orgasm. Report_Story #3 
+ She is cumming and cumming. She squeezes his cock and he howls and cums in her. She screams and joins his orgasm.  
 
  
 
@@ -4846,7 +4846,7 @@
 
  Eric takes a quick shower, gets dressed and goes to his room. 
 
- Continued Eric goes goes Miami, Fla. Report_Story #1 
+ Continued Eric goes goes Miami, Fla.  
 
  
 
@@ -5440,7 +5440,7 @@
 
  "It will fit. Your pussy will just have to stretch to let it in." 
 
- She kneels between his legs and sucks his cock up. He tweaks her nipples hard. She cries out. Report_Story #2 
+ She kneels between his legs and sucks his cock up. He tweaks her nipples hard. She cries out.  
 
  
 
@@ -5570,7 +5570,7 @@
 
  "Good. Good. We are going to pass on dinner. The party is being catered. The guests will be arriving in about an hour." 
 
- "I'll be ready. You can bet on that." Report_Story #1 
+ "I'll be ready. You can bet on that."  
 
  
 
@@ -6012,7 +6012,7 @@
 
  Eric, you will always be special to me. You make me so happy and I get to have a baby. I'll have my baby to remind me of you. 
 
- "I'll have my driver take you to the airport. If there is anything else I can do for you, let me know." Report_Story #2 
+ "I'll have my driver take you to the airport. If there is anything else I can do for you, let me know."  
 
  
 
@@ -6028,7 +6028,7 @@
 
  He goes downstairs and says goodbye to Art and Jackie. 
 
- He boards the plane. Report_Story #1 
+ He boards the plane.  
 
  
 
@@ -6630,7 +6630,7 @@
 
  "Eric, I need to sit for a minute." 
 
- They sit at their table and he kisses her again. Report_Story #2 
+ They sit at their table and he kisses her again.  
 
  
 
@@ -7284,7 +7284,7 @@
 
  "Will you pull out?" 
 
- "No. I'm going to fill you with my cum. If you don't want my cum, I'll leave." Report_Story #3 
+ "No. I'm going to fill you with my cum. If you don't want my cum, I'll leave."  
 
  
 
@@ -7886,7 +7886,7 @@
 
  Eric wakes the next morning and she is sucking his cock. He moans and caresses her face. 
 
- "You are an amazing woman. Your capacity for sex is way over the top." Report_Story #4 
+ "You are an amazing woman. Your capacity for sex is way over the top."  
 
  
 
@@ -8554,7 +8554,7 @@
 
  "You are a great cocksucker, mommy" 
 
- Report_Story #5 
+  
 
  
 
@@ -8632,7 +8632,7 @@
 
  Later in the day, Eric decides it's time to move on. He must fulfill his destiny. Everyone has a tearful goodbye and he drives away from Mountain House. 
 
- The end. Report_Story #1 
+ The end.  
 
  
 
@@ -9130,7 +9130,7 @@
 
  She is crying out and panting against him. Her pelvis is twitching around uncontrollably. 
 
- "OH Adam, your cock feels so good in me. I feel so full. I've never had anything that big in me." Report_Story #2 
+ "OH Adam, your cock feels so good in me. I feel so full. I've never had anything that big in me."  
 
  
 
@@ -9644,7 +9644,7 @@
 
  Mary returns while she is blow drying her hair. 
 
- Sarah puts on a little make up. Report_Story #3 
+ Sarah puts on a little make up.  
 
  
 
@@ -10116,7 +10116,7 @@
 
  Adam leads her out to stand in front of the full length mirror. 
 
- He stands behind her holding both of her breasts. His hand slides down to her pussy hair. He runs his fingers through her pussy hair while admiring her beautiful body. Report_Story #4 
+ He stands behind her holding both of her breasts. His hand slides down to her pussy hair. He runs his fingers through her pussy hair while admiring her beautiful body.  
 
  
 

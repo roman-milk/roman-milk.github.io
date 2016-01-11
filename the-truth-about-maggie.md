@@ -280,7 +280,7 @@
 
  "Enough bud. I think he has a pretty good idea of how you feel. I don't know if he has the balls to charge you with assault, but let's not make it any worse than it is." 
 
- Jerry was struggling to get up when I said, "Mom and dad are going to be so proud of you." Report_Story #2 
+ Jerry was struggling to get up when I said, "Mom and dad are going to be so proud of you."  
 
  
 

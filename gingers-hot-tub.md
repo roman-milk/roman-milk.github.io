@@ -212,7 +212,7 @@
 
  'Shit ...' blurted TJ. 'What the fuck ...?' He stared at Ginger. 'Jesus, Ginger ... I ...' 
 
- 'TJ,' Ginger said as she continued to watch. 'Will you do that to me?' she asked. Her hand moved between her legs. 'I'm so fucking turned on now ...' Ginger groaned. 'Oh, TJ ... just look at them. That's my husband and my friend ... I want to do it too. Look at Kathy's face ... make me look like that, TJ. Please ...' Report_Story #2 
+ 'TJ,' Ginger said as she continued to watch. 'Will you do that to me?' she asked. Her hand moved between her legs. 'I'm so fucking turned on now ...' Ginger groaned. 'Oh, TJ ... just look at them. That's my husband and my friend ... I want to do it too. Look at Kathy's face ... make me look like that, TJ. Please ...'  
 
  
 

@@ -226,7 +226,7 @@
 
  "I'm cumin!" he said quietly, as if she needed a warning. 
 
- "Oh! Yessss," she hissed. It felt as though he were filling her up with his thick potent juices. She imagined it filling her whole body. She felt as though she were nothing but his vessel of cum. She was a small thing in the universe completely given over to him. Report_Story #2 
+ "Oh! Yessss," she hissed. It felt as though he were filling her up with his thick potent juices. She imagined it filling her whole body. She felt as though she were nothing but his vessel of cum. She was a small thing in the universe completely given over to him.  
 
  
 
@@ -310,7 +310,7 @@
 
  The thought of being ridiculed in newspapers had been pushed back out of the way but she still had to face the problem of keeping all this quiet. Getting out of his room was the first priority. Patiently she waited, stroking his hair while he slept. 
 
- Occasionally he sucked on a nipple in his sleep and she smiled. Perhaps if she promised to do this in class at break time it might buy his silence. Holding back the giggle in case it woke him she tried to focus on something else. Report_Story #1 
+ Occasionally he sucked on a nipple in his sleep and she smiled. Perhaps if she promised to do this in class at break time it might buy his silence. Holding back the giggle in case it woke him she tried to focus on something else.  
 
  
 
@@ -540,7 +540,7 @@
 
  The word whores came to mind and she shuddered. 
 
- "Nice move," Hank commented, looking at the way her breasts shimmied in the boob tube. Report_Story #2 
+ "Nice move," Hank commented, looking at the way her breasts shimmied in the boob tube.  
 
  
 

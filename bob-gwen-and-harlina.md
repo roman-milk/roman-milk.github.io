@@ -166,7 +166,7 @@
 
  As I drove I told myself that I knew all along that Gwen was not a girl that I could hold onto. When I got to Bud's I got a table in the back and settled in to drown my sorrows. As I drank I wondered if Gwen ever worked late and if all of our broken dates were because she was going out with another guy or guys. 
 
- I had more to drink than I should have, but I was still clear headed enough to give my car keys to Mike and have him call me a cab. "Okay" he said, "You're a cab" and then he laughed and picked up the phone. The cab dropped me at home and I hit the bed. Report_Story #2 
+ I had more to drink than I should have, but I was still clear headed enough to give my car keys to Mike and have him call me a cab. "Okay" he said, "You're a cab" and then he laughed and picked up the phone. The cab dropped me at home and I hit the bed.  
 
  
 
@@ -350,7 +350,7 @@
 
  I broke the connection and the phone rang right away. I saw from the screen that it was Gwen, but I was no longer in the mood to talk so I turned the phone off. When I got home I saw the red light blinking on the answering machine. Without even checking the messages I unplugged the phone and answering machine and went to bed. 
 
- When I got to work in the morning I told Lois to tell Gwen, if she called, that she had been instructed not to take any messages from Gwen and if she persisted in calling Lois was to hang up on her. A coward's way out maybe, but so what?! Report_Story #3 
+ When I got to work in the morning I told Lois to tell Gwen, if she called, that she had been instructed not to take any messages from Gwen and if she persisted in calling Lois was to hang up on her. A coward's way out maybe, but so what?!  
 
  
 
@@ -532,7 +532,7 @@
 
  I knew what he was going to play and it was a great song for an eastern swing. I was trying to decide which one of the three to ask for the dance. When the opening strains of "Ride Cowboy Ride" started a hand fell on my shoulder and a voice said: 
 
- "Off your butt Bobby; this is OUR song" and I turned and saw Melanie Murphey standing there. Mel was one of my ex-friends with benefits and Ride Cowboy Ride was indeed our song. It was the song that got us together way back when. If any of the three at the table had been with me as a date I would have said, "No thanks Mel" but I was not attached to anyone at the table so I got up and Mel and I hit the dance floor. Report_Story #4 
+ "Off your butt Bobby; this is OUR song" and I turned and saw Melanie Murphey standing there. Mel was one of my ex-friends with benefits and Ride Cowboy Ride was indeed our song. It was the song that got us together way back when. If any of the three at the table had been with me as a date I would have said, "No thanks Mel" but I was not attached to anyone at the table so I got up and Mel and I hit the dance floor.  
 
  
 

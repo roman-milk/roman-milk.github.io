@@ -164,7 +164,7 @@
 
  Where was her daughter? She had seen her on the dance floor, and wondered if she was upstairs with some boy. Jane had been too preoccupied with saving herself to keep an eye out for her daughter. If she had been recognised by Louise, it would have been her, being marched home in disgrace. The inappropriateness of that idea, made her laugh. 
 
- An uncontrollable fit of giggles had her wondering if she was drunk, or just reacting to the shocking experience. Unable to wait for her turn outside the bathroom, she automatically hobbled to the master bedroom, as though it were her own house. She had to press her thighs together to hold back from wetting herself. Report_Story #2 
+ An uncontrollable fit of giggles had her wondering if she was drunk, or just reacting to the shocking experience. Unable to wait for her turn outside the bathroom, she automatically hobbled to the master bedroom, as though it were her own house. She had to press her thighs together to hold back from wetting herself.  
 
  
 
@@ -400,7 +400,7 @@
 
  'Oh! No! I can't!' Jane cried, and slumped against Margaret's shoulder. Margaret automatically wrapped her arms around the woman. She shushed Jane, trying to comfort her, or at least quieten the unpleasant keening noise. 
 
- 'You need the morning after pill,' Margaret thoughtfully said. Report_Story #3 
+ 'You need the morning after pill,' Margaret thoughtfully said.  
 
  
 
@@ -512,7 +512,7 @@
 
  It was the point of return. Louise hadn't made an appearance and for that she was thankful. A smart business suit was meant to re-kindle self-worth, and remind Margaret of her position in society. Clothes maketh a man, and how much more so a woman. Margaret was going to decide her fate, so she had to remind her, and herself, who she was. She was at the woman's mercy, and had to say something in her defence. But what? 
 
- Would it be best to challenge the woman, or simply capitulate. After hardly any sleep, it was difficult to figure out the best strategy. As she walked the two blocks her legs slowed with every step. There was no defence to being called a wicked slut, for that was exactly how she felt about herself. Report_Story #1 
+ Would it be best to challenge the woman, or simply capitulate. After hardly any sleep, it was difficult to figure out the best strategy. As she walked the two blocks her legs slowed with every step. There was no defence to being called a wicked slut, for that was exactly how she felt about herself.  
 
  
 
@@ -708,7 +708,7 @@
 
  Jane felt this put down more deeply than any of the previous cutting remarks. 
 
- The idea of building a relationship with him hadn't been thought through. He was a handsome businessman, around her age, and the best marrying material she had met in a long time. She hadn't even considered she was ready for a relationship before now. He seemed a nice, polite, and attentive person. There was something about him that sparked her interest. Report_Story #2 
+ The idea of building a relationship with him hadn't been thought through. He was a handsome businessman, around her age, and the best marrying material she had met in a long time. She hadn't even considered she was ready for a relationship before now. He seemed a nice, polite, and attentive person. There was something about him that sparked her interest.  
 
  
 
@@ -924,7 +924,7 @@
 
  'Let me zip you up,' Margaret said. 
 
- The skirt was tight, showing off her curves. She had a cute bottom, with a sensuous wiggle in high heels. How had all this been so effectively covered up before? The woman was sexy, even in a business suit. The skirt was slightly shorter than her own, but not outrageously so. Report_Story #3 
+ The skirt was tight, showing off her curves. She had a cute bottom, with a sensuous wiggle in high heels. How had all this been so effectively covered up before? The woman was sexy, even in a business suit. The skirt was slightly shorter than her own, but not outrageously so.  
 
  
 
@@ -1138,7 +1138,7 @@
 
  'You look terrible. What's she done?' Margaret asked. 'Children are a pain from the moment you bring them into the world, and remain so,' Margaret joked, in an attempt to lighten the atmosphere. 
 
- 'She's off to college. I don't know how I'm going to keep up all the payments. The car and house were straining the budget, now there's college,' Jane explained. She shrugged her shoulders, in way of explaining there wasn't anything to be done about it. Report_Story #4 
+ 'She's off to college. I don't know how I'm going to keep up all the payments. The car and house were straining the budget, now there's college,' Jane explained. She shrugged her shoulders, in way of explaining there wasn't anything to be done about it.  
 
  
 
@@ -1176,7 +1176,7 @@
 
  Margaret bobbed her head in compliance, not giving a thought to its implications, and trotted off to the kitchen where she belonged. Feeling lonely, she sat to eat the meal. Later, she washed the dishes and tidied up. With chores completed, she quietly returned to her boss, to await further instructions. 
 
- Margaret had expected the woman to regain her wits, after the initial shock over what had happened at the party. She was capable of finding some way to wriggle out from under the bolder with which Margaret had crushed her victim. Instead she had settled into being a dutiful maid. While away at a business meeting, the maid would need to be watched, and kept in place. Report_Story #1 
+ Margaret had expected the woman to regain her wits, after the initial shock over what had happened at the party. She was capable of finding some way to wriggle out from under the bolder with which Margaret had crushed her victim. Instead she had settled into being a dutiful maid. While away at a business meeting, the maid would need to be watched, and kept in place.  
 
  
 
@@ -1374,7 +1374,7 @@
 
  The feel of his hands fiddling with the garter straps digging into her thighs, was electric. Already aroused, she became wet from his touch. Of course he noticed, but to her relief, he made no comment. The unwanted excitement was a worrying testament to a loss of control. Abandoning sensibilities could be put down to the pressure she was under. It was all her fault, everything, even leaving herself open to blackmail. 
 
- Jane dare not look down, for her breasts were a bawdy display. She looked away from him, not wanting to see the expression of condemnation on his face. Report_Story #2 
+ Jane dare not look down, for her breasts were a bawdy display. She looked away from him, not wanting to see the expression of condemnation on his face.  
 
  
 
@@ -1600,7 +1600,7 @@
 
  He heard and felt her failed efforts to deep throat him. The very idea that a mature woman, a neighbour, was trying her best to excite him for her own benefit was rousing. He looked at her under the desk, to see the woman's mouth bulging with cock. His cock! 
 
- Her eyes flickered open and grew wide. It was difficult to interpret the expression with her face distorted. He beckoned to her with a crooked finger. When he moved back to let her out, she crawled over the carpet, yet not letting go of his cock. He laughed at the sight of the woman being pulled along by his cock. Report_Story #3 
+ Her eyes flickered open and grew wide. It was difficult to interpret the expression with her face distorted. He beckoned to her with a crooked finger. When he moved back to let her out, she crawled over the carpet, yet not letting go of his cock. He laughed at the sight of the woman being pulled along by his cock.  
 
  
 
@@ -1638,7 +1638,7 @@
 
  Her body was buzzing with anticipation. Her mind was torn between wanting him to hold her tight, yet knowing it was wrong to encourage him. 
 
- 'Good night, sweet dreams,' he smiled, and dismissed her to her room. Report_Story #1 
+ 'Good night, sweet dreams,' he smiled, and dismissed her to her room.  
 
  
 
@@ -1972,7 +1972,7 @@
 
  He patted her bare bottom, telling her, 'Nearly done.' 
 
- While leaning on his shoulders, he lifted a foot to pull on a high heel. He held her shoulders this time, while she stabilised. She had become used to heels over the last few days, but these were higher and more precarious to walk in. The bustier held her upright, so she had to find a new balance. He helped her take a few steps around the room. The eight inch stilettos wobbled precariously, with her ankles threatening to give way. Her calves were stronger now, but the extra strain brought on cramp. Report_Story #2 
+ While leaning on his shoulders, he lifted a foot to pull on a high heel. He held her shoulders this time, while she stabilised. She had become used to heels over the last few days, but these were higher and more precarious to walk in. The bustier held her upright, so she had to find a new balance. He helped her take a few steps around the room. The eight inch stilettos wobbled precariously, with her ankles threatening to give way. Her calves were stronger now, but the extra strain brought on cramp.  
 
  
 
@@ -2228,7 +2228,7 @@
 
  'Your cunt, sir,' she responded, in a whispery voice. 
 
- He marvelled at how wet she was becoming. The woman was worse than a slut. When he visited Louise, the mother had been so prim and proper, always wanting to be correct in how she behaved, and quick to criticise anyone who forgot their manners. Report_Story #3 
+ He marvelled at how wet she was becoming. The woman was worse than a slut. When he visited Louise, the mother had been so prim and proper, always wanting to be correct in how she behaved, and quick to criticise anyone who forgot their manners.  
 
  
 
@@ -2350,7 +2350,7 @@
 
  'Sorry, sir! Your cunt wants a strong cock to satisfy it, sir. Please eat up, sir,' she hesitantly spoke. 
 
- The words didn't seem unacceptable after the wonderful sex sessions. That she was referring to her vagina using vulgar words, made it more exciting. Was this yet another sign of how depraved she had become? Pushing the thought out of mind, she snuggled her head on his chest, content to listen to the sounds of munching. Report_Story #1 
+ The words didn't seem unacceptable after the wonderful sex sessions. That she was referring to her vagina using vulgar words, made it more exciting. Was this yet another sign of how depraved she had become? Pushing the thought out of mind, she snuggled her head on his chest, content to listen to the sounds of munching.  
 
  
 
@@ -2578,7 +2578,7 @@
 
  'Conclude the next part of the deal, then we'll see,' he firmly stated. 
 
- 'Eh?' she said, with a wrinkled brow, as though not understanding. He held out his hand to her. 'Oh! The panties,' she said. Looking bemused, she stood up, pressing both hands on his leg. With the skirt lifted almost to her hips, she asked, 'Are you sure this is OK, sir? This isn't a trick is it? You won't tell on me, will you, sir.' Report_Story #2 
+ 'Eh?' she said, with a wrinkled brow, as though not understanding. He held out his hand to her. 'Oh! The panties,' she said. Looking bemused, she stood up, pressing both hands on his leg. With the skirt lifted almost to her hips, she asked, 'Are you sure this is OK, sir? This isn't a trick is it? You won't tell on me, will you, sir.'  
 
  
 
@@ -2812,7 +2812,7 @@
 
  As soon as they got to her room, Mark gave her a stern order. 'Remove the overall, and bend over.' 
 
- Jane opened her mouth to protest and quickly shut it again. Would the punishment be administered all the harder, if she gave him a hard time. Probably. She gritted her teeth and bent over the back of a chair, to grip the seat. She didn't need to remove her panties, for she wasn't allowed to wear them in the house. She had become used to the nakedness, for often they were removed outside the house as well. Report_Story #3 
+ Jane opened her mouth to protest and quickly shut it again. Would the punishment be administered all the harder, if she gave him a hard time. Probably. She gritted her teeth and bent over the back of a chair, to grip the seat. She didn't need to remove her panties, for she wasn't allowed to wear them in the house. She had become used to the nakedness, for often they were removed outside the house as well.  
 
  
 
@@ -2856,7 +2856,7 @@
 
  Her eyes flashed wickedly in the dark. Sex was fun and exciting, and she loved it! She started to wonder how Mark would want to play with his sex doll tonight. Last night he tried, and gave up on some precarious positions. In the end she was on top of him, bouncing on his cock. 
 
- From yesterday he set the alarm clock at a different time each night. With the alarm hand broken off, she had no idea when it would ring. It was to keep her guessing when she would be summoned to his bed. She giggled at the thought that sex was an exciting game. It was exciting, and she enjoyed it. Report_Story #1 
+ From yesterday he set the alarm clock at a different time each night. With the alarm hand broken off, she had no idea when it would ring. It was to keep her guessing when she would be summoned to his bed. She giggled at the thought that sex was an exciting game. It was exciting, and she enjoyed it.  
 
  
 
@@ -3056,7 +3056,7 @@
 
  The auctioneer didn't waste much time, she launched in at five hundred. 'This is for charity folks! Every penny goes to cancer research. Alright, one- hundred. Thank you, do I see one-twenty,' Pinkie smiled. 
 
- A woman with a big family smiled back, having promised Annie to buy her help for the weekend. A group of guys at the front waived their number in the air, as though it might not be noticed. Annie went bright red with embarrassment. They were laughing and jostling each other, and when the woman raised the bid, they nudged their cardholder to raise the number again. Report_Story #2 
+ A woman with a big family smiled back, having promised Annie to buy her help for the weekend. A group of guys at the front waived their number in the air, as though it might not be noticed. Annie went bright red with embarrassment. They were laughing and jostling each other, and when the woman raised the bid, they nudged their cardholder to raise the number again.  
 
  
 
@@ -3256,7 +3256,7 @@
 
  He picked up the robe and held it open for her. His head was turned aside, giving her a modicum of privacy, but not enough. For some reason she couldn't dismiss him, as she should have done. It felt as though she were still in a romantic movie. Sure that he wasn't going to look at her naked body, she stood up. It was a disappointment and a relief, that he kept his head turned away. Of course, how could she compete with a girl his age. Cross with herself for thinking it, she quickly lifted a foot to step out of the bath. 
 
- A squeaking noise bubbled from under a foot, and she slipped, slowly falling forward. He caught her, and wrapped the gown around her shoulders. A little yelp of surprise caught in her throat. He lowered her to the floor, still holding her tight. He sat her on the edge of the bath, with the gown wrapped back to front around her. Report_Story #3 
+ A squeaking noise bubbled from under a foot, and she slipped, slowly falling forward. He caught her, and wrapped the gown around her shoulders. A little yelp of surprise caught in her throat. He lowered her to the floor, still holding her tight. He sat her on the edge of the bath, with the gown wrapped back to front around her.  
 
  
 
@@ -3404,7 +3404,7 @@
 
  'Wait here, for your new master. He may be some time, so be seated. Don't touch anything,' he said, in a flat voice, from having to read the prepared lines. 
 
- Nothing was said, or asked of him, from the moment he picked her up. That was a relief. He drove away whistling happily to himself, from earning a high fee for such an easy job. Report_Story #1 
+ Nothing was said, or asked of him, from the moment he picked her up. That was a relief. He drove away whistling happily to himself, from earning a high fee for such an easy job.  
 
  
 
@@ -3600,7 +3600,7 @@
 
  The worry over not being able to perform had left him less than ready. Now he was hard as a rock, very close to the point of orgasm. 
 
- It was deeply disappointing to feel her let him go. It was almost like the emotional loss of someone close. She clambered up his body, pushing his legs together, and squatted on top of him. A hand grabbed his hard slippery cock, fumbled it, then slid it between her lips. He craned his neck to see what she was doing, and watched his cock yet again disappearing into her body. This time it was her vagina absorbing the length of iron. Report_Story #2 
+ It was deeply disappointing to feel her let him go. It was almost like the emotional loss of someone close. She clambered up his body, pushing his legs together, and squatted on top of him. A hand grabbed his hard slippery cock, fumbled it, then slid it between her lips. He craned his neck to see what she was doing, and watched his cock yet again disappearing into her body. This time it was her vagina absorbing the length of iron.  
 
  
 
@@ -3846,7 +3846,7 @@
 
  The daughter hid a vibrator at the back the panty draw. The batteries were flat. Having tidied the kitchen, she knew were a pack of new ones were. This might be a way of surviving with her new master. At last finished, she picked up the pile of soiled clothes for the washer. 
 
- Bob sat in his den, trying to work. He was researching local history, to keep his mind active. It was impossible to concentrate. What was he to do with the damn woman? She was out of control, and he couldn't cope. After making a promise, how could he go back on it? Sending her back to Margaret wouldn't help, as it would lock her into this immoral state. Discipline. That's what she needed. Report_Story #3 
+ Bob sat in his den, trying to work. He was researching local history, to keep his mind active. It was impossible to concentrate. What was he to do with the damn woman? She was out of control, and he couldn't cope. After making a promise, how could he go back on it? Sending her back to Margaret wouldn't help, as it would lock her into this immoral state. Discipline. That's what she needed.  
 
  
 
@@ -3944,7 +3944,7 @@
 
  If that were possible, she might be able to free herself from this awful dependence on men. It was partly the uncontrollable passion that kept her submissive. One less burden might help free her. 
 
- Jane spent the rest of the weekend, more calmly, waiting for her master to use her. However often she used the vibrator, she still needed a man. At night she fell asleep in his arms. During the day she became worked up, and teased him, until sent to her room. He hadn't guessed she welcomed the banishment, so she could play with Mark, her energetic new lover. Report_Story #1 
+ Jane spent the rest of the weekend, more calmly, waiting for her master to use her. However often she used the vibrator, she still needed a man. At night she fell asleep in his arms. During the day she became worked up, and teased him, until sent to her room. He hadn't guessed she welcomed the banishment, so she could play with Mark, her energetic new lover.  
 
  
 
@@ -4210,7 +4210,7 @@
 
  'I'll put you back on the shelf, ready for sale,' the woman informed her. 
 
- That will teach the two of them to play games outside the bedroom. She looked at Jane, and figured she had made a mistake. The fantasy slave was more aroused than ever. Report_Story #2 
+ That will teach the two of them to play games outside the bedroom. She looked at Jane, and figured she had made a mistake. The fantasy slave was more aroused than ever.  
 
  
 
@@ -4492,7 +4492,7 @@
 
  They settled down to a routine, as master, and slave. Since visiting Margaret, he was more able to except Jane's eccentricity. They visited the supermarket again, with nervous excitement, only to find the woman wasn't there. Probably on a different shift. It was disappointing not to play another game with her. Apart from that woman they had to keep it a secret, as others wouldn't understand their relationship. 
 
- They were like newlyweds, wanting to tell everyone, yet having to keep it a secret. Drawn close together, they got to know each other. Talking about past times over meal times, and in bed, they became closer. Report_Story #3 
+ They were like newlyweds, wanting to tell everyone, yet having to keep it a secret. Drawn close together, they got to know each other. Talking about past times over meal times, and in bed, they became closer.  
 
  
 
@@ -4574,7 +4574,7 @@
 
  'Later your master will see to you. Go to your room and learn patience, slave,' he ordered. 
 
- She almost ran to her room, and grabbed the vibrator. Spread wide on the bed she began to play with herself. It wasn't enough, but would have to do until later. She vigorously worked her sex to an orgasm. After a brief rest, she began again, working toward a more gentle orgasm. The ease with which she became aroused, and the deep demand for satisfaction was impossible to control. She wondered how long this state of uncontrollable need would have to be suffered. Would she ever return to normal? Report_Story #1 
+ She almost ran to her room, and grabbed the vibrator. Spread wide on the bed she began to play with herself. It wasn't enough, but would have to do until later. She vigorously worked her sex to an orgasm. After a brief rest, she began again, working toward a more gentle orgasm. The ease with which she became aroused, and the deep demand for satisfaction was impossible to control. She wondered how long this state of uncontrollable need would have to be suffered. Would she ever return to normal?  
 
  
 
@@ -4814,7 +4814,7 @@
 
  This wasn't a ravenous eating of his manhood, this was meant to be gentle and soothing, to send him off to sleep. Hearing his breathing deepen, she stopped sucking and manipulating it with her tongue. She held it in her mouth, feeling contented that she was serving a caring master. 
 
- Next morning they lay in bed, discussing the highlights of yesterday, and planning what to do next. He tickled her and played with her body, while she giggled helplessly. They ended up head to toe, feeding on each other's sex. He brought her to an orgasm, and at the last moment prevented her from making him cum. Report_Story #2 
+ Next morning they lay in bed, discussing the highlights of yesterday, and planning what to do next. He tickled her and played with her body, while she giggled helplessly. They ended up head to toe, feeding on each other's sex. He brought her to an orgasm, and at the last moment prevented her from making him cum.  
 
  
 
@@ -5040,7 +5040,7 @@
 
  Texas was disgusted that a woman could let a stranger touch her, and in front of her husband too. He bet large and wildly. Filipe joined in, except he kept a cool head. He was curious to see what transpired. He muttered something in Spanish when he lost, sounding curiously pleased. 
 
- Jane watched the betting, thinking the other two were also trying to win her. As an hour passed she became used to the idea of being nothing more than an object, to be won on the turn of a card. After all, she was a slave, and that meant obeying a master, however distasteful it might be. Report_Story #3 
+ Jane watched the betting, thinking the other two were also trying to win her. As an hour passed she became used to the idea of being nothing more than an object, to be won on the turn of a card. After all, she was a slave, and that meant obeying a master, however distasteful it might be.  
 
  
 
@@ -5168,7 +5168,7 @@
 
  Jane sucked his cock into her mouth, desperate to regain her master, to have him want her, and look after her. This night had shown how depraved she was, and how much she needed a masters' protection. Being won in a poker game, meant she was just an object of value to be bartered. She needed to feel worthy of her master, and would work hard to be his object of pleasure. An appendage to her master's cock, was all she was now. She ached for him to want her, and to be her protective master. 
 
- Suckling her masters cock for comfort, she too fell asleep. Report_Story #1 
+ Suckling her masters cock for comfort, she too fell asleep.  
 
  
 
@@ -5410,7 +5410,7 @@
 
  'On you they're wonderful. You have the figure to wear them, not many do. You're gorgeous,' he said, with feeling. 
 
- 'Do you have a wife,' she asked, and immediately regretted the question. 'Sorry, I didn't mean. . .' she said, trying to back track. Report_Story #2 
+ 'Do you have a wife,' she asked, and immediately regretted the question. 'Sorry, I didn't mean. . .' she said, trying to back track.  
 
  
 
@@ -5652,7 +5652,7 @@
 
  'That was Elizabeth. Steve phoned her first, to soften me up I guess. The hospital beat her to it. She's back in the country from an archaeology dig. She's on her way here to visit, but while I'm in hospital. . . Maybe she can babysit the, err, house?' he mused. 
 
- A quick phone call had her agreeing. She was up for free board and lodging, without the landlord present to keep her in check. Bob had laughed at that. She was good at putting him in a good mood, and everyone else, with a positive spin on almost any situation. Even Steve being in hospital was good, as he couldn't get into trouble in there. Bob laughed, she didn't know her uncle like he did. Report_Story #1 
+ A quick phone call had her agreeing. She was up for free board and lodging, without the landlord present to keep her in check. Bob had laughed at that. She was good at putting him in a good mood, and everyone else, with a positive spin on almost any situation. Even Steve being in hospital was good, as he couldn't get into trouble in there. Bob laughed, she didn't know her uncle like he did.  
 
  
 
@@ -5938,7 +5938,7 @@
 
  'Yes, mistress, honestly mistress,' Jane reassured her mistress. 
 
- Elizabeth wasn't reassured at all. She looked closely at the woman, recognising that she told the truth. She had assumed father had met her at some singles club, and they were playing a game. This meant it must be true, that he bought her in an auction. This was an awesome idea, yet difficult to accept. She decided to change tack, to cure the unsettling ideas crowding her mind. She would need time to understand how this could happen to someone. Report_Story #2 
+ Elizabeth wasn't reassured at all. She looked closely at the woman, recognising that she told the truth. She had assumed father had met her at some singles club, and they were playing a game. This meant it must be true, that he bought her in an auction. This was an awesome idea, yet difficult to accept. She decided to change tack, to cure the unsettling ideas crowding her mind. She would need time to understand how this could happen to someone.  
 
  
 
@@ -6210,7 +6210,7 @@
 
  'Of course its normal. It's lovely! They come in all shapes and sizes you know,' Elizabeth assured her. 
 
- 'Play with mine, and watch how it puffs up,' Elizabeth ordered, while holding the mirror. Report_Story #3 
+ 'Play with mine, and watch how it puffs up,' Elizabeth ordered, while holding the mirror.  
 
  
 
@@ -6388,7 +6388,7 @@
 
  That evening when they went to bed, her slave was eager to please. She gave her mistress a massage, then licked her all over. Elizabeth knew she should try harder to bring the woman around from this lowly position, but how? It was far easier to give in, and enjoy the pleasurable sensations. 
 
- Her slave gently guided her legs apart, and started to lick her thighs, moving on to her sex. There was no chance now, as all thoughts floated away on a cloud of wonderful sensations. Her slave had learnt how to satisfy her. Now it was her turn to become carried away in a world of pleasure. Report_Story #1 
+ Her slave gently guided her legs apart, and started to lick her thighs, moving on to her sex. There was no chance now, as all thoughts floated away on a cloud of wonderful sensations. Her slave had learnt how to satisfy her. Now it was her turn to become carried away in a world of pleasure.  
 
  
 
@@ -6634,7 +6634,7 @@
 
  Elizabeth regretted pleasing her slave before they even left the store. She sighed heavily, knowing it was her own impulsive nature that had gotten her into this mess. 
 
- Clarissa was happy to have offloaded the last of the outfits, at last. The knock down price was at cost, but that was bearable, just to get rid of the tacky clothes. Report_Story #2 
+ Clarissa was happy to have offloaded the last of the outfits, at last. The knock down price was at cost, but that was bearable, just to get rid of the tacky clothes.  
 
  
 
@@ -6890,7 +6890,7 @@
 
  'What are you doing here, it's not a vets job,' she said. 
 
- 'My brothers away on vacation, California, somewhere warm,' he said. Report_Story #3 
+ 'My brothers away on vacation, California, somewhere warm,' he said.  
 
  
 
@@ -7046,7 +7046,7 @@
 
  He licked her nipples, and sucked as much of a breast into his mouth as he could. He kissed them, gently bit them, and cherished them. Unable to carry on he let them go. He pulled the two blond heads onto his chest, and kissed one then the other. 
 
- They listened to the wind howling through power lines for awhile, then fell asleep. Report_Story #1 
+ They listened to the wind howling through power lines for awhile, then fell asleep.  
 
  
 
@@ -7334,7 +7334,7 @@
 
  Elizabeth was appalled. Last night she had been in shock, not noticing they had been locked in the cage. Having to pee in a basin wasn't too bad, as the facilities in the desert camp where she worked weren't up to much. 
 
- Jane excepted the demeaning position calmly. Jane watched her let loose. The woman seemed to revel in being subjected to the demeaning position, as it reinforced her self-image as a slave. Report_Story #2 
+ Jane excepted the demeaning position calmly. Jane watched her let loose. The woman seemed to revel in being subjected to the demeaning position, as it reinforced her self-image as a slave.  
 
  
 
@@ -7672,7 +7672,7 @@
 
  'Where would you go, if I set you free?' he asked, sounding her out. 
 
- This was unexpected, so she thought about it, in case there was an unforeseen catch. She remembered what Jane had told her about having nowhere to go. Report_Story #3 
+ This was unexpected, so she thought about it, in case there was an unforeseen catch. She remembered what Jane had told her about having nowhere to go.  
 
  
 
@@ -7752,7 +7752,7 @@
 
  'We'll start at the bar, and work our way around the tables. You'll each be assigned a section, looking after several tables,' Diane explained. 
 
- Jane was mesmerised by the opulence surrounding her. Elizabeth cynically observed there were no clocks, or windows to reveal the passing of time. Needing to earn tips, to build an escape fund, she was for once keen to get started. Both women thought of it as an exciting adventure. Report_Story #1 
+ Jane was mesmerised by the opulence surrounding her. Elizabeth cynically observed there were no clocks, or windows to reveal the passing of time. Needing to earn tips, to build an escape fund, she was for once keen to get started. Both women thought of it as an exciting adventure.  
 
  
 
@@ -7992,7 +7992,7 @@
 
  'No. It's for real. No money, no job, debts to pay, so they were stuck. He paid their debts, and kept them in food, lodging, clothing, and everything else. If they leave here they have nowhere to go, except back there as slaves. Don't look at me like that. They're earning their way, working in the club room. When they have enough saved, they can go wherever they please,' he explained. 
 
- 'So that's why you want them kept in the penthouse. You think they'll leave here and go back? That's crazy. Who would want to be a slave?' Diane said. 'So that's why Jane is the way she is. All submissive and compliant, with yes, ma'am, no, ma'am, all the time,' she mused. Report_Story #2 
+ 'So that's why you want them kept in the penthouse. You think they'll leave here and go back? That's crazy. Who would want to be a slave?' Diane said. 'So that's why Jane is the way she is. All submissive and compliant, with yes, ma'am, no, ma'am, all the time,' she mused.  
 
  
 
@@ -8238,7 +8238,7 @@
 
  When she explained the plan, he listened. It wasn't as though he would get into trouble if they were caught. If it worked, then he would have a fun night. 
 
- Throughout the evening he dragged up memories of her. Though he hadn't much contact with her, he occasionally visiting with parents, or with friends to see Louise. What he did remember was that she had been a stuck up bitch. Looking at her now, it was hard to believe she had been such a prim and proper woman. Report_Story #3 
+ Throughout the evening he dragged up memories of her. Though he hadn't much contact with her, he occasionally visiting with parents, or with friends to see Louise. What he did remember was that she had been a stuck up bitch. Looking at her now, it was hard to believe she had been such a prim and proper woman.  
 
  
 
@@ -8314,7 +8314,7 @@
 
  He opened his eyes, remembering where he was, and who he was with. He tentatively placed an arm around her, wondering why she called him master. As an acquaintance of his father's, she should be treated with respect. It was a marvel this older woman had allowed him into her bed, and here she was unashamedly grateful. They were naked, and cuddling after a frantic fucking. They had behaved like young lovers, rather than adult and adolescent behaving badly. 
 
- He felt giddy and tired after such a frantic screwing. It was difficult to believe that Mrs Marshal had allowed him into her bed, let alone enthusiastically fuck him. She could no longer be thought of as the prudish mother of a friend. She was a sexy slut, a MILF, and he had fucked her! He lay back wondering how it happened, and what it meant. Report_Story #1 
+ He felt giddy and tired after such a frantic screwing. It was difficult to believe that Mrs Marshal had allowed him into her bed, let alone enthusiastically fuck him. She could no longer be thought of as the prudish mother of a friend. She was a sexy slut, a MILF, and he had fucked her! He lay back wondering how it happened, and what it meant.  
 
  
 
@@ -8556,4 +8556,4 @@
 
  Descending in the elevator with the two of them, Nigel slipped into the restroom, waiting to appear after a few guests arrived. In the meantime the two women went through the usual routine of selecting an outfit for the evening. 
 
- 'Shit!' Diane said. 'We're wearing bunny costumes tonight. It could be worse, I suppose,' she said, with the usual bored expression. Report_Story #2 #3 
+ 'Shit!' Diane said. 'We're wearing bunny costumes tonight. It could be worse, I suppose,' she said, with the usual bored expression.  #3 

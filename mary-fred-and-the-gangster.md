@@ -42,7 +42,7 @@
 
  "What?" Fred asked, "Fuck black men?" 
 
- "No" Mary replied, "I don't care about the color, but I do want a lot of cocks. I'm sorry baby, but I'm afraid your little Mary is hooked on gangbangs." Report_Story #1 
+ "No" Mary replied, "I don't care about the color, but I do want a lot of cocks. I'm sorry baby, but I'm afraid your little Mary is hooked on gangbangs."  
 
  
 

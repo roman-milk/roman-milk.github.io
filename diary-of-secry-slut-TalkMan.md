@@ -236,7 +236,7 @@
 
  "Like this sir?" Becky asked. 
 
- Donald didn't answer, instead her penetrated her roughly and started fucking her, rocking her body back and forth, moving it a few centimeters up and down with each of his thrusts. Becky grabbed my ankles and whispered:"Oh god." Report_Story #2 
+ Donald didn't answer, instead her penetrated her roughly and started fucking her, rocking her body back and forth, moving it a few centimeters up and down with each of his thrusts. Becky grabbed my ankles and whispered:"Oh god."  
 
  
 
@@ -262,7 +262,7 @@
 
  I walked out of the building with a huge smile and my face and went on a shopping spree to expand my wardrobe -- I didn't have that many miniskirts or silk blouses -- before going home. When hubby came in around 5.30, I was still so excited about my new job that I gave him a handjob on the couch while I told him the good news -- obviously keeping him in the dark about the exact nature of my new duties. It had been a while since I had drained him -- in any way - - so it came as no surprise that he flung a massive amount of cum all over the living room, drenching me as well as the couch, the floor, the coffee table and the carpet. 
 
- Later that evening, I asked hubby to fuck me like a dog in the kitchen. Homework, I told myself... Report_Story #1 
+ Later that evening, I asked hubby to fuck me like a dog in the kitchen. Homework, I told myself...  
 
  
 
@@ -446,7 +446,7 @@
 
  "You will make sure, she not only reads and masturbates, but also orgasms! Understood?" 
 
- Was he serious? Did he want me to take pictures of Becky masturbating to his letter? I thought to myself as I took his phone and whispered obediently:"Yes sir." Report_Story #2 
+ Was he serious? Did he want me to take pictures of Becky masturbating to his letter? I thought to myself as I took his phone and whispered obediently:"Yes sir."  
 
  
 
@@ -612,7 +612,7 @@
 
  "Have a nice weekend." I replied as I got out. 
 
- Still a bit wobbly on my feet, I watched Becky drive off, wishing it was Monday morning already! Report_Story #1 
+ Still a bit wobbly on my feet, I watched Becky drive off, wishing it was Monday morning already!  
 
  
 
@@ -806,7 +806,7 @@
 
  "What was his problem? Was he punishing me or rewarding me?" 
 
- Her compassion and sympathy for me clearly secondary to her obedience, Becky picked up the pace and as her fingers worked feverishly to pleasure me, I was having more and more difficulty not only to focus on sucking Brian's cock, but also not to suffocate – as the incessant climaxing was making me short of breath, which made it increasingly difficult to keep a hard cock in my mouth. Report_Story #2 
+ Her compassion and sympathy for me clearly secondary to her obedience, Becky picked up the pace and as her fingers worked feverishly to pleasure me, I was having more and more difficulty not only to focus on sucking Brian's cock, but also not to suffocate – as the incessant climaxing was making me short of breath, which made it increasingly difficult to keep a hard cock in my mouth.  
 
  
 
@@ -948,7 +948,7 @@
 
  Becky and I got cleaned up in the bathroom and then sat down at our desks, were we got to talking; with the men either sleeping or drinking, the rest of the afternoon – which was only another hour – was pretty uneventful. 
 
- When my hubby came home, I quickly got him in the mood and took him to bed; although their was no external evidence of my slutty infidelity, there was still a buck load of strange cum in my cunt – and in my ass, but he was getting nowhere near that – and I really wanted his cock to stir around in there for a little while. When he was about ready to cum, I asked him to stuff it down my throat – something I had rarely done before; he jumped up, happy as a little boy and shoved it in my mouth, cumming barely ten seconds later. Little did he know that, aside from his load, I was swallowing some more of my bosses' cum. Report_Story #1 
+ When my hubby came home, I quickly got him in the mood and took him to bed; although their was no external evidence of my slutty infidelity, there was still a buck load of strange cum in my cunt – and in my ass, but he was getting nowhere near that – and I really wanted his cock to stir around in there for a little while. When he was about ready to cum, I asked him to stuff it down my throat – something I had rarely done before; he jumped up, happy as a little boy and shoved it in my mouth, cumming barely ten seconds later. Little did he know that, aside from his load, I was swallowing some more of my bosses' cum.  
 
  
 
@@ -1184,7 +1184,7 @@
 
  "Pfew, can you imagine how awkward that would have been if you didn't..." she cracked a smile as she opened the coke and took a sip. She could tell from the expression on my face that I didn't know what to say or do. 
 
- "Look, I know my dad is getting his knob polished by Becky in the next room, he'll probably fuck her too... I have an understanding with Becky that she... well, does me when my dad's finished with her. You see, he doesn't know that I know, and Becky pretends that she doesn't know that I know... and we all keep quiet in order not to complicate relations between your business and my dad's multi-million dollar oil company, if you get my drift. Report_Story #2 
+ "Look, I know my dad is getting his knob polished by Becky in the next room, he'll probably fuck her too... I have an understanding with Becky that she... well, does me when my dad's finished with her. You see, he doesn't know that I know, and Becky pretends that she doesn't know that I know... and we all keep quiet in order not to complicate relations between your business and my dad's multi-million dollar oil company, if you get my drift.  
 
  
 
@@ -1382,7 +1382,7 @@
 
  But I also knew what was expected of me and started slapping her face with his cock a couple of times, humiliating her even more. Becky pretended to be fighting us and groaned disgruntled, moving her head from right to left and back again. We started playing off each other as I pressed Carter's shaft down against her mouth, she moaned and moved her head again -- pretending to be fighting us -- when in fact she was running her pursed lips up and down his shaft. When Carter realized we were working together, it only made him hornier. When I realized he was about to cum, I bent my head down and sandwiched his hard cock between my lips and Becky's. He screamed louder than I had ever hear him scream and blasted away as our two sets of lips each went berserk on one side of his dick. Meanwhile his cum kept blasting out, pouring all over the left side of Becky's face, her hair and onto the floor next to her head. When he was done cumming, I put the tip of his cock in my mouth and sucked it completely dry and clean. While I got off relatively spotless, Becky was a mess! 
 
- After Carter freed Becky from her carpet prison, he dismissed us both. We got dressed and cleaned up one last time and then went home for the night. On the bus ride home, I replayed everything that had happened today in my mind, while I thought about how difficult it was going to be to refuse my husband sex. Report_Story #1 
+ After Carter freed Becky from her carpet prison, he dismissed us both. We got dressed and cleaned up one last time and then went home for the night. On the bus ride home, I replayed everything that had happened today in my mind, while I thought about how difficult it was going to be to refuse my husband sex.  
 
  
 
@@ -1566,7 +1566,7 @@
 
  "They're all in there." he replied as he pointed towards a large meeting room on the far side of the floor. "Weekly pep talk or brainstorming session, whatever you wanna call it." 
 
- Nervously, I examined the meeting room from afar. Located in a corner, the room had two outer walls completely made up of windows and its two inner walls consisted entirely of frosted, milky glass, except for the door which was completely see-through. I could make up dozens of silhouettes, which were all sitting perfectly still, probably listening attentively to a central speaker. Report_Story #2 
+ Nervously, I examined the meeting room from afar. Located in a corner, the room had two outer walls completely made up of windows and its two inner walls consisted entirely of frosted, milky glass, except for the door which was completely see-through. I could make up dozens of silhouettes, which were all sitting perfectly still, probably listening attentively to a central speaker.  
 
  
 
@@ -1682,7 +1682,7 @@
 
  "Now get the fuck out of my limo." he whispered, reaching over me and opening the passenger door. Without the slightest hesitation, I got up and stepped out, trying to see out of my eyes which had pretty much been creamed shut. I used my blouse to scoop most of the cum out my eyes and as I glanced at the limo driving off, I noticed Jerry throwing my skirt, panties and purse out of the roof top. I hurried over to where my clothes landed and put them on as quickly as I could. 
 
- Then, when I finally took a moment to have a good look around and wonder where I was, I realized that the old bastard had given me a lift to the wrong side of town, the exact opposite direction of where I needed to go! Chances are that nor Jerry nor the limo driver were even paying attention to me when I gave them my address. It was going take me forever to get home, I thought to myself, feeling my cunt spontaneously contract after realizing how much the old fart had abused me. Luckily, it was the warehouse section of town, where very few people ventured, especially after dusk. Still, there were a few beggars and homeless persons which had seen me exit the car and put on my clothes, but they were clearly no treat. As Jerry's limo disappeared in the distance, I started walking towards the center of town and hailed the first cab I came across, about fifteen minutes later; luckily, I still had the VISA from work. The driver shot me all kinds of dirty looks in his rear view mirror, no doubt recognizing a skanky slut when he saw one, but I didn't care. Hey, if he wanted his cock sucked too, all he needed to do was ask! Report_Story #1 
+ Then, when I finally took a moment to have a good look around and wonder where I was, I realized that the old bastard had given me a lift to the wrong side of town, the exact opposite direction of where I needed to go! Chances are that nor Jerry nor the limo driver were even paying attention to me when I gave them my address. It was going take me forever to get home, I thought to myself, feeling my cunt spontaneously contract after realizing how much the old fart had abused me. Luckily, it was the warehouse section of town, where very few people ventured, especially after dusk. Still, there were a few beggars and homeless persons which had seen me exit the car and put on my clothes, but they were clearly no treat. As Jerry's limo disappeared in the distance, I started walking towards the center of town and hailed the first cab I came across, about fifteen minutes later; luckily, I still had the VISA from work. The driver shot me all kinds of dirty looks in his rear view mirror, no doubt recognizing a skanky slut when he saw one, but I didn't care. Hey, if he wanted his cock sucked too, all he needed to do was ask!  
 
  
 
@@ -1918,7 +1918,7 @@
 
  Before she could finish her insult, her face was smashed into the cake a fourth time. This time, Carter held her pinned down in the cake for even longer while he mercilessly fucked her ass. At a certain point, Becky stopped resisting so much, signaling Carter that he had broken her. 
 
- "Again?" Carter asked as he yanked her head up again. Report_Story #2 
+ "Again?" Carter asked as he yanked her head up again.  
 
  
 
@@ -2102,7 +2102,7 @@
 
  After throwing everything I was carrying on his back seat, I sat down next to him on the passenger seat and closed the door. 
 
- "You'll have to give me directions," he said as he drove out of the parking lot. Report_Story #3 
+ "You'll have to give me directions," he said as he drove out of the parking lot.  
 
  
 
@@ -2114,7 +2114,7 @@
 
  Although I was slightly nervous about all that, I was too much of a whore to actually care, and so, I finished the (blow)job like a good little slut. After swallowing Henry's cum, I wiped my mouth and looked around to see if the coast was clear. Luckily, the street was completely deserted and none of the houses had any lights on, so I gently opened the car door, grabbed my clothes, shoes and purse from the back seat and closed the car doors as quietly as I could. Then, I ran across our front lawn and around the side of the house, into the backyard. 
 
- There, I put my clothes back on, except for my panties and snuck in through the backdoor. I headed to the bathroom for a quick, though much needed, shower and then crept into bed as silently as humanly possible. As I rolled into place, I suddenly felt something sticky on the sheets. I reached back carefully with my hand and brought some of the stuff up to my face for a smell and a taste. I grinned widely as I realized hubby had probably had a wet dream. After using my fingers to scoop up the rest of his sperm, and swallowing all of it, I finally went to sleep. Report_Story #1 
+ There, I put my clothes back on, except for my panties and snuck in through the backdoor. I headed to the bathroom for a quick, though much needed, shower and then crept into bed as silently as humanly possible. As I rolled into place, I suddenly felt something sticky on the sheets. I reached back carefully with my hand and brought some of the stuff up to my face for a smell and a taste. I grinned widely as I realized hubby had probably had a wet dream. After using my fingers to scoop up the rest of his sperm, and swallowing all of it, I finally went to sleep.  
 
  
 
@@ -2286,7 +2286,7 @@
 
  Ron continued to close the drapes all around the bed and smiled down at me as he threw the covers off and reached between my legs, wriggling some fingers into my cunt. First two, then three. I looked up at him, baffled that he would start with that. Realizing I had to stay quiet, I opened my mouth and looked at him with a contorted face as he fingered me brutally, hard and deep. After twenty seconds or so, he took his fingers out and wiped them on my stomach and my tits, which he exposed by unbuttoning my nightgown. Then it was back into my cunt with his fingers for another half a minute or so, after which he wiped his fingers on my right cheek. During the next five minutes, I just laid there, getting my own cunt juices smeared over my whole body. 
 
- Once in a while Ron's fingers caused some sopping sounds, which I feared might alarm my husband, but the sucker just kept on reading his newspaper. When I was pretty much covered from head to toe in my own fluids, Ron took out his cock and shoved it down my willing throat. He fucked my mouth for a few minutes before filling me up; apparently the smell was extremely enticing. After wiping his cock on my night gown and then taking it off, he finally reached for his cart, soaked the sponge in some water with soap and started washing me, tenderly and softly, using extra tenderness around my tits and my pussy, although he did slip a finger up my ass for a moment. When I was all clean again, he helped me into a new night gown and changed the sheets. Report_Story #2 
+ Once in a while Ron's fingers caused some sopping sounds, which I feared might alarm my husband, but the sucker just kept on reading his newspaper. When I was pretty much covered from head to toe in my own fluids, Ron took out his cock and shoved it down my willing throat. He fucked my mouth for a few minutes before filling me up; apparently the smell was extremely enticing. After wiping his cock on my night gown and then taking it off, he finally reached for his cart, soaked the sponge in some water with soap and started washing me, tenderly and softly, using extra tenderness around my tits and my pussy, although he did slip a finger up my ass for a moment. When I was all clean again, he helped me into a new night gown and changed the sheets.  
 
  
 
@@ -2440,7 +2440,7 @@
 
  I limped into the bathroom, cleaned myself up and put my clothes on again. Barely twenty minutes later, hubby came in to take me home. 
 
- I'd have to rest for two more days and a weekend, before I could go back to work. I didn't know how I was going to manage not getting fucked and abused for so long. I guess I only survived by masturbating frequently during the day when hubby was at work, and sucking his cock every night, until I could go back to work. Report_Story #1 
+ I'd have to rest for two more days and a weekend, before I could go back to work. I didn't know how I was going to manage not getting fucked and abused for so long. I guess I only survived by masturbating frequently during the day when hubby was at work, and sucking his cock every night, until I could go back to work.  
 
  
 
@@ -2600,7 +2600,7 @@
 
  When most of his cum had left his balls, he let go of Becky – who immediately started scooping his cum out of her eye – and felt around for my head. When he found it, he grabbed a fistful of hair and pulled me towards his cock. I wrapped my slut mouth around it and cleaned his entire shaft, making sure there wasn't a single sperm cell left in his tube. Done with the both of us, Henry zipped up and leaned back in his chair. I looked over at Becky, who was still blinking like crazy, trying to get rid of the stinging sensation in her eye. Luckily for her, the presentation was drawing to a close. A few minutes later, when everyone got up from the table, she crawled out from under it and quickly made her way out of the room to go and clean up. 
 
- By the time she got back, a few minutes later, the previously reserved and disciplined delegates were drinking champagne, laughing and joking amongst themselves, quite loudly. Becky and I were also being ogled from all sides, but aside from the occasional slap on the butt, none of them seemed particularly interested in any sort of sexual activity. I did get my nipples tweaked once, but the guy seemed to lose interest as soon as he was offered a full glass of champagne. Becky and I just stood there, holding a drink of our own as we waited to be of service to anyone. Suddenly, after about half an hour – and a lot of bottles of champagne – one of the senior delegates staggered over to us, put his arm around Becky's shoulder and pulled her apart. Well, as far as apart was possible in a conference room with thirty plus people. After putting his glass on the table, he pushed her to her knees and opened his trousers. Becky gave me an exasperated smile and then went to work on the guy's limp dick. Report_Story #2 
+ By the time she got back, a few minutes later, the previously reserved and disciplined delegates were drinking champagne, laughing and joking amongst themselves, quite loudly. Becky and I were also being ogled from all sides, but aside from the occasional slap on the butt, none of them seemed particularly interested in any sort of sexual activity. I did get my nipples tweaked once, but the guy seemed to lose interest as soon as he was offered a full glass of champagne. Becky and I just stood there, holding a drink of our own as we waited to be of service to anyone. Suddenly, after about half an hour – and a lot of bottles of champagne – one of the senior delegates staggered over to us, put his arm around Becky's shoulder and pulled her apart. Well, as far as apart was possible in a conference room with thirty plus people. After putting his glass on the table, he pushed her to her knees and opened his trousers. Becky gave me an exasperated smile and then went to work on the guy's limp dick.  
 
  
 

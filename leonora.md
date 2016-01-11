@@ -188,7 +188,7 @@
 
  The woman before her was dressed as a sexy cheerleader, giggling and speaking with a little girly voice, despite being in her late twenties. Her age made the display all the more lurid with a skirt that just covered her hips and a top that hid nothing from the imagination. The woman wiggled her hips leaving Leonora wondering how the stupid slut would manage the tray without spilling anything. 
 
- While waiting her turn she had a chance to think. It seemed she was compelled to serve with her mind going blank when carrying out instructions. At least she was just a waitress and there were rules against being touched. Even though they took advantage of the vulnerable state it was some small consolation. Report_Story #2 
+ While waiting her turn she had a chance to think. It seemed she was compelled to serve with her mind going blank when carrying out instructions. At least she was just a waitress and there were rules against being touched. Even though they took advantage of the vulnerable state it was some small consolation.  
 
  
 
@@ -272,7 +272,7 @@
 
  While she showered they returned to the other two guests, like a tag team, sending them up to the party pet. 
 
- *** Report_Story #1 
+ ***  
 
  
 
@@ -482,7 +482,7 @@
 
  Working it hard she brought all the experience learnt over the last six months into practise. 
 
- On her knees she waited for him to recover from an orgasm that she had so expertly brought him to. When she had his attention she opened her mouth to show his seed had not been summarily dismissed. He nodded for her to swallow, which she did and enjoyed the feeling it sliding down her throat. Report_Story #2 
+ On her knees she waited for him to recover from an orgasm that she had so expertly brought him to. When she had his attention she opened her mouth to show his seed had not been summarily dismissed. He nodded for her to swallow, which she did and enjoyed the feeling it sliding down her throat.  
 
  
 
@@ -522,7 +522,7 @@
 
  There had been no need to warn her to please her master for there was no choice. She was no longer a weekend pet she was a twenty-four-seven sex slave, forever. So this was it, from now on she would be a master's sex slave compelled to pleasure him. 
 
- Leonora groaned in anguish realising she was playing with her swollen bud. The desire to please her master was strong even without his presence. It tormented her to realise she was enthusiastically looking forward to learning his needs and couldn't wait for morning. Report_Story #1 
+ Leonora groaned in anguish realising she was playing with her swollen bud. The desire to please her master was strong even without his presence. It tormented her to realise she was enthusiastically looking forward to learning his needs and couldn't wait for morning.  
 
  
 

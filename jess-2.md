@@ -182,7 +182,7 @@
 
  He was looking at her expression - mesmerised by the sight of his cock - enjoying the attention. He knew it was large, for he had been told it was, but never experienced this reaction before. She seemed overwhelmed, couldn't take her eyes off it. A big smile took over his face which couldn't be wiped away. It turned to a frown on remembering how frightened she had been when he was close to entering her pussy. Other things added up to become clear, she was a virgin, or very inexperienced. 
 
- Of course it was to be expected she was afraid when he took her ass for there were few women with experience and fewer still enjoyed it. To be a complete virgin at her age was unusual so maybe she was just inexperienced. It worried him for a moment but then the thought of guiding her along the path he enjoyed overrode concerns for her sensitivity. Report_Story #2 
+ Of course it was to be expected she was afraid when he took her ass for there were few women with experience and fewer still enjoyed it. To be a complete virgin at her age was unusual so maybe she was just inexperienced. It worried him for a moment but then the thought of guiding her along the path he enjoyed overrode concerns for her sensitivity.  
 
  
 
@@ -352,7 +352,7 @@
 
  She took a deep breath and let it out slowly. It wasn't too painful. Jess could cope with it so again she could keep him happy by doing as he commanded. She wondered how long this would last for she was way out of her depth and expected a demand that went too far. What then, would he give her up? 
 
- They toured a supermarket discussing, discovering and picking foods they both liked. She would enjoy cooking for him. On seeing an obviously newly acquainted couple she sighed. Alan and she must look like them, an ordinary couple in the first flush of a relationship, getting to know each other. Did that young woman have a butt plug stuck up her ass? She doubted it. The thought made her feel special; she was doing something exceptional for her lover, proving she was his. Report_Story #1 
+ They toured a supermarket discussing, discovering and picking foods they both liked. She would enjoy cooking for him. On seeing an obviously newly acquainted couple she sighed. Alan and she must look like them, an ordinary couple in the first flush of a relationship, getting to know each other. Did that young woman have a butt plug stuck up her ass? She doubted it. The thought made her feel special; she was doing something exceptional for her lover, proving she was his.  
 
  
 
@@ -550,7 +550,7 @@
 
  At last she felt his cock pierce her lips and drive straight in, deep and hard. She moaned in rhythm with his steady thrusts. "Fuck your whore, sir, punish your whore," Jess moaned. She was reaching a point of ecstasy when something made her look sideways, down the alley. 
 
- She couldn't see them clearly, though recognising the group of girl's, arguing over something. They were her friends from the office! If they looked down here they would see her being fucked, like a common cheap prostitute, up against the wall! Report_Story #2 
+ She couldn't see them clearly, though recognising the group of girl's, arguing over something. They were her friends from the office! If they looked down here they would see her being fucked, like a common cheap prostitute, up against the wall!  
 
  
 

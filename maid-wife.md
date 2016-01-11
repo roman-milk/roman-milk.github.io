@@ -114,7 +114,7 @@
 
  "I'm sorry Jim, can you stay on a little longer. I'm at the hospital. I might be here some time." 
 
- He looked at Angus' wife, bent double, with a pair of black panties around her ankles. Her luscious cheeks were framed perfectly by stockings and suspenders. A pair of tumescent lips protruding between the thighs glistened with wetness. He cleared his throat. "Sure, no problem. How long do you think you'll be?" Report_Story #1 
+ He looked at Angus' wife, bent double, with a pair of black panties around her ankles. Her luscious cheeks were framed perfectly by stockings and suspenders. A pair of tumescent lips protruding between the thighs glistened with wetness. He cleared his throat. "Sure, no problem. How long do you think you'll be?"  
 
  
 
@@ -212,7 +212,7 @@
 
  "That's really something." Jim responded hardly knowing what to say. It would be his idea of hell but then a weekend Jazz festival would probably leave Angus feeling the same way. 
 
- "Come over for dinner before I go. I need to thank you for, well, taking care of all this." Angus laughed with a wave of his hand taking in the office. Report_Story #1 
+ "Come over for dinner before I go. I need to thank you for, well, taking care of all this." Angus laughed with a wave of his hand taking in the office.  
 
  
 
@@ -372,7 +372,7 @@
 
  With the sun shining low her shadow was cast upon the fence as a silhouette of her body. The sun was shining right through the thin summer dress and she inwardly cringed. He was sure to see the suspender belt and she had been standing with her legs apart balancing the wastebasket ready to tip it. Without panties or bra the dress was nothing more than a thin veil over her naked body. It wasn't the cool afternoon air that had her nipples standing to attention it was the constant stimulation. 
 
- He kept her talking, or rather listening, while his eyes roved from between her legs to her breasts and back. She couldn't move. So used to being ordered by another she waited for him to let her go. As much as she wanted to she just couldn't take the initiative. The voice of his wife crashed over the fence and as though caught stealing apples he scurried off with a hasty farewell. Relieved at escaping the embarrassing situation she escaped back to the kitchen and smiled a little impish grin. Report_Story #2 
+ He kept her talking, or rather listening, while his eyes roved from between her legs to her breasts and back. She couldn't move. So used to being ordered by another she waited for him to let her go. As much as she wanted to she just couldn't take the initiative. The voice of his wife crashed over the fence and as though caught stealing apples he scurried off with a hasty farewell. Relieved at escaping the embarrassing situation she escaped back to the kitchen and smiled a little impish grin.  
 
  
 
@@ -390,7 +390,7 @@
 
  She had freely let her husband hypnotise her over the months until it had taken a firm hold of her mind. But then she hadn't foreseen how it could turn into this dangerous torrid game, a game where she was just a pawn. Being hypnotised for a whole weekend was tying the already strong knot so much tighter about her mind she wondered how much resistance there was left. Melody wasn't even sure how much she enjoyed being the young mans plaything and how much it was a command that she must enjoy it. 
 
- Her mind was in turmoil as she went through the usual routine of preparing a meal in the kitchen. What must her neighbour think of their antics in the bedroom? She would have to wait and see what happened. At least tomorrow Jim would leave for the office leaving her free to untangle this web she had helped create for herself, if that were possible. She would have to try, try something. Report_Story #1 
+ Her mind was in turmoil as she went through the usual routine of preparing a meal in the kitchen. What must her neighbour think of their antics in the bedroom? She would have to wait and see what happened. At least tomorrow Jim would leave for the office leaving her free to untangle this web she had helped create for herself, if that were possible. She would have to try, try something.  
 
  
 
@@ -472,7 +472,7 @@
 
  After he left she collapsed on the floor her nerves shattered. Was this to be her lot in life? Jim would be taking her pussy and the neighbour would be abusing her bottom. Realising how vulnerable she had become led to more terrifying thoughts. Anyone calling at the house might decide to make a play for the lonely housewife dressed like a slut. 
 
- Melody groaned on remembering the dirty old man had told her she was a slut. Until the order was countermanded she would be a slut, flirting with any man who came along. She would have to tell Jim the danger she was in and reveal she remembered everything he had done to her. She could only do that when he released her. She dare not contemplate what might happen if he kept her hypnotised until Angus returned. Report_Story #1 
+ Melody groaned on remembering the dirty old man had told her she was a slut. Until the order was countermanded she would be a slut, flirting with any man who came along. She would have to tell Jim the danger she was in and reveal she remembered everything he had done to her. She could only do that when he released her. She dare not contemplate what might happen if he kept her hypnotised until Angus returned.  
 
  
 
@@ -662,7 +662,7 @@
 
  She dropped her bag and was appalled to see the panties float to the floor. When he picked them up she felt her heart racing. This was so humiliating she wanted to push past him to run out to the car. She didn't move. She realised her orders were to return to the table with the panties in her hand. "Could I have my panties back please?" She whispered. 
 
- "I've always been a fan of stockings. The proper ones not those elasticised things, stay ups are they called? If you want them back show me your stockings" He looked at her with an assured look of someone used to getting his own way. Report_Story #2 
+ "I've always been a fan of stockings. The proper ones not those elasticised things, stay ups are they called? If you want them back show me your stockings" He looked at her with an assured look of someone used to getting his own way.  
 
  
 
@@ -726,7 +726,7 @@
 
  "Well that's an interesting turn around. In future you won't be wearing any unless I tell you to. That's an order." 
 
- She groaned wondering why she had let this terrible situation develop. Resignedly she opened her legs to let him explore. It was giving him a thrill to stroke her, in the restaurant. Surprisingly she wondered at how wet she was; so turned on she was prepared to beg him to take her home right now. She thought to herself. 'I'm just a slut ready for anything.' Report_Story #1 
+ She groaned wondering why she had let this terrible situation develop. Resignedly she opened her legs to let him explore. It was giving him a thrill to stroke her, in the restaurant. Surprisingly she wondered at how wet she was; so turned on she was prepared to beg him to take her home right now. She thought to herself. 'I'm just a slut ready for anything.'  
 
  
 
@@ -902,7 +902,7 @@
 
  The croupier looked at her meaningfully and thankfully she wasn't completely helpless so asked him. "Can I play with a credit card?" He shook his head but a pit boss looked her over and glanced at the card. Distracted by her thighs and stocking tops he merely glanced at the card. Mistaking it for a casino card he gave the go ahead before turning to another table where the crowd was becoming too boisterous. 
 
- The croupier pushed over a stack of high value chips. She still thought they were five dollar chips and bet accordingly with the stack building and falling until there was nothing left. The pit boss had more time now to take a good look at the card. He blanched and knew he was in trouble. He called the manager over and whispered in his ear. They looked at her and the manager talked into his sleeve. Within a minute a smartly suited man stood beside Melody. Report_Story #2 
+ The croupier pushed over a stack of high value chips. She still thought they were five dollar chips and bet accordingly with the stack building and falling until there was nothing left. The pit boss had more time now to take a good look at the card. He blanched and knew he was in trouble. He called the manager over and whispered in his ear. They looked at her and the manager talked into his sleeve. Within a minute a smartly suited man stood beside Melody.  
 
  
 
@@ -1080,7 +1080,7 @@
 
  Melody tried to stabilise her racing thoughts, to try and think of a way out of this. It all came down to one thing. He didn't know the phrase to bring her out of the hypnotic state so she would belong to him for ever, unless he became bored with her. What then? Would he pass her on to friends? This could be the first day of a new life, a lifetime of servitude to men as an obedient submissive sex pet. 
 
- The thought was mortifying yet she could feel the slut influence warming her up, she was becoming aroused. Humiliation did that to her now though it seemed anything or anyone could excite her. It was so shameful to think not only was it impossible to refuse anything he wanted but she would be responding with enthusiasm to whatever it was, however degrading. Report_Story #3 
+ The thought was mortifying yet she could feel the slut influence warming her up, she was becoming aroused. Humiliation did that to her now though it seemed anything or anyone could excite her. It was so shameful to think not only was it impossible to refuse anything he wanted but she would be responding with enthusiasm to whatever it was, however degrading.  
 
  
 

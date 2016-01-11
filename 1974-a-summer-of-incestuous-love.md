@@ -224,7 +224,7 @@
 
  "How much time had transpired since Paul left you alone?" I asked. 
 
- "An hour, give or take," she shrugged. Report_Story #2 
+ "An hour, give or take," she shrugged.  
 
  
 
@@ -474,7 +474,7 @@
 
  Dinner was spectacular. Nita did a surf and turf with tenderloin filets and lobster tails, baked potatoes and Caesar salad with her amazing homemade dressing. It was a beautiful summer night and we ate by Nita's pool. The wine was perfect, and we all enjoyed each other's company. I was especially proud of my Julie for being such a mature young lady and offering some very intelligent conversation. We brought our swim suits, and Nita announced at 9 o'clock that it was time for a swim to help wash the wine away before we called it a night. 
 
- We splashed around for over an hour and I have to admit it was the first time I'd seen my daughter in swimwear in over a year because we didn't have a pool at home. I managed not to show my shock at seeing her in a tiny bikini that barely covered her ample breasts (even bigger than her mother's large breasts) which became damn near translucent when wet. Her nipples and pussy lips were obvious for anyone to see, but I knew any mention would bring down the wrath of the women on my puritanical attitude. She did look great but I wasn't used to seeing my daughter like that. As I spent a little too much time assessing my daughter's body, I realized just how much she looked like her mother at a similar age. Report_Story #3 
+ We splashed around for over an hour and I have to admit it was the first time I'd seen my daughter in swimwear in over a year because we didn't have a pool at home. I managed not to show my shock at seeing her in a tiny bikini that barely covered her ample breasts (even bigger than her mother's large breasts) which became damn near translucent when wet. Her nipples and pussy lips were obvious for anyone to see, but I knew any mention would bring down the wrath of the women on my puritanical attitude. She did look great but I wasn't used to seeing my daughter like that. As I spent a little too much time assessing my daughter's body, I realized just how much she looked like her mother at a similar age.  
 
  
 
@@ -716,7 +716,7 @@
 
  "Sucking you off, Daddy, don't you like?" She asked, so literal. 
 
- "Not the point. This cannot go on," I protested, even though her mouth and hands on my cock felt amazing. Report_Story #4 
+ "Not the point. This cannot go on," I protested, even though her mouth and hands on my cock felt amazing.  
 
  
 
@@ -962,7 +962,7 @@
 
  I couldn't get a completely clear view of what Billy was doing, but it seemed to work as Julie deep throated his cock and bobbed like a hungry slut. 
 
- A few minutes later, Julie stopped sucking, and moaned loudly, "Ohhhh Goddd, now, Billy. Shove your thumb in my ass while you suck my clit!" Report_Story #5 
+ A few minutes later, Julie stopped sucking, and moaned loudly, "Ohhhh Goddd, now, Billy. Shove your thumb in my ass while you suck my clit!"  
 
  
 
@@ -1254,7 +1254,7 @@
 
  I obliged as I stroked my cock staring at the most beautiful woman in the whole world...my daughter. Soon my cum was shooting out like a cannon and covering her huge firm tits. 
 
- "Mmmmmmmmm, Daddy," she moaned, as she watched me erupt. Report_Story #6 
+ "Mmmmmmmmm, Daddy," she moaned, as she watched me erupt.  
 
  
 

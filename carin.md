@@ -148,7 +148,7 @@
 
  She released the swollen clitty and began nibbling on the puffy labia. Her finger never stopped pumping in and out of the heated honey-hole and Cari ensured the sensitive spot got raked each time. She managed an upward glance and noticed the woman had a tit in each hand. Sandra cupped her own boobs and used her fingers to caress the erect nipples, brazenly showing the big knobs to the world. 
 
- Cari sensed the woman was overdue so she returned her mouth to the engorged clitoris. There was a few seconds of begging and pleading from her lover and then something thick and creamy filled her mouth. Cari swallowed the cum and added another finger when she rammed her hand to the hilt. The woman's hips thrust upward and jerked frantically, as her ass bounced all over the sofa cushion. It was her first womanly experience and Cari was bringing joy to one of the women of her dreams. Report_Story #2 
+ Cari sensed the woman was overdue so she returned her mouth to the engorged clitoris. There was a few seconds of begging and pleading from her lover and then something thick and creamy filled her mouth. Cari swallowed the cum and added another finger when she rammed her hand to the hilt. The woman's hips thrust upward and jerked frantically, as her ass bounced all over the sofa cushion. It was her first womanly experience and Cari was bringing joy to one of the women of her dreams.  
 
  
 
@@ -310,7 +310,7 @@
 
  Joan forced Sandra's arms behind her back and allowed the teenager full control. "She's all yours. Cari, my love, Sandy likes her sex hard and extremely rough." 
 
- It was the first time in her life that Sandra made another woman climax with her face. Her head was a rag doll. Cari maintained a viselike grip on her slave's hair and easily rammed Sandra's face into her gaping slit. Soon the blushing cheeks were covered with womanly juices and the girl's hips thrashed up and down in a shear random fashion, as the river of cum ran into the waiting mouth. "Yes, oh yes Sandra, I love you." Report_Story #3 
+ It was the first time in her life that Sandra made another woman climax with her face. Her head was a rag doll. Cari maintained a viselike grip on her slave's hair and easily rammed Sandra's face into her gaping slit. Soon the blushing cheeks were covered with womanly juices and the girl's hips thrashed up and down in a shear random fashion, as the river of cum ran into the waiting mouth. "Yes, oh yes Sandra, I love you."  
 
  
 
@@ -476,7 +476,7 @@
 
  THE END 
 
- There will be another chapter and it will have Carin becoming intimate with Dawn, the woman of her dreams who she fantasized about for years. Report_Story #1 
+ There will be another chapter and it will have Carin becoming intimate with Dawn, the woman of her dreams who she fantasized about for years.  
 
  
 
@@ -648,7 +648,7 @@
 
  To her utter astonishment, she obeyed. Dawn slowly bent over and the small, erect nipple got closer to her face. Suddenly her lips brushed the bud and the teenager screamed. "Yes, suck my fucking tit before it explodes. Hurry up!" 
 
- The nipple disappeared when Dawn sucked it into the back of her burning cavity. She stuffed as much of the tit into her mouth as she could and let it settle for a few seconds. Dawn let her teeth sink into the delicate, pink flesh and she was positive her sharp teeth left a mark. Then she slowly pulled her head backwards and let her teeth rake the tender titty until only the nipple was inside of her mouth. Her tongue licked the bud for a moment and then she switched to the other tit. 'Yes... yes, oh God, suck my boobies... bite my tits!" Report_Story #2 
+ The nipple disappeared when Dawn sucked it into the back of her burning cavity. She stuffed as much of the tit into her mouth as she could and let it settle for a few seconds. Dawn let her teeth sink into the delicate, pink flesh and she was positive her sharp teeth left a mark. Then she slowly pulled her head backwards and let her teeth rake the tender titty until only the nipple was inside of her mouth. Her tongue licked the bud for a moment and then she switched to the other tit. 'Yes... yes, oh God, suck my boobies... bite my tits!"  
 
  
 
@@ -792,7 +792,7 @@
 
  Cari quickly went onto her turn, which gave Dawn a chance to recompose herself. "What is your current pubic hair style?" She quickly blurted out that she was completely shaved and that made everyone laugh nervously, as images of Cari flashed through their minds. "But not Dawn! She keeps hers neatly trimmed and it is the most beautiful sight in the world." 
 
- Brad and Cory's jaws dropped, but neither hit the floor as hard as Dawn's. She looked at her young friend too shocked to say anything. Then she turned to look at the two young men and noticed big evil grins on their faces, as if they pictured what she looked like nude. Dawn's immediate reaction was to quickly down the rest of her drink, which was swiftly refreshed by the devious young woman. Report_Story #3 
+ Brad and Cory's jaws dropped, but neither hit the floor as hard as Dawn's. She looked at her young friend too shocked to say anything. Then she turned to look at the two young men and noticed big evil grins on their faces, as if they pictured what she looked like nude. Dawn's immediate reaction was to quickly down the rest of her drink, which was swiftly refreshed by the devious young woman.  
 
  
 
@@ -954,7 +954,7 @@
 
  "Yeah, but what if...?" 
 
- If Dawn thought the first chapter was incriminating, the second and third were just as unbearable. She was practically carried upstairs to the master bedroom. Naked and most likely covered with sweat and male cum, she was spread-out on the very bed she shared with her husband. The next round of animal passion started and Brad's rejuvenated hard-on was being rubbed all over her face and chest. Then the young man fucked her again and a flashback sent tremendous shivers up and down her backbone. Report_Story #4 
+ If Dawn thought the first chapter was incriminating, the second and third were just as unbearable. She was practically carried upstairs to the master bedroom. Naked and most likely covered with sweat and male cum, she was spread-out on the very bed she shared with her husband. The next round of animal passion started and Brad's rejuvenated hard-on was being rubbed all over her face and chest. Then the young man fucked her again and a flashback sent tremendous shivers up and down her backbone.  
 
  
 
@@ -1020,7 +1020,7 @@
 
  THE END 
 
- There will be another chapter and it will have Carin becoming more intimate with Dawn, the woman of her dreams who she fantasized about for years. Report_Story #1 
+ There will be another chapter and it will have Carin becoming more intimate with Dawn, the woman of her dreams who she fantasized about for years.  
 
  
 
@@ -1204,7 +1204,7 @@
 
  "Hummm, I hope so," Cari said, as she let out a big giggle. 
 
- They didn't even get a chance to ring the doorbell when they got to the door. One woman was filled with great hesitation and the other with grand expectations. The door opened, as they reached the top step, and Sandra faced them with the biggest grin on her face. "Come in. It's so nice to see you both and I can hardly wait to get things started." She ushered Cari and Dawn into the living room before handing them a glass of wine. "I think a drink will help settle the nerves." Report_Story #2 
+ They didn't even get a chance to ring the doorbell when they got to the door. One woman was filled with great hesitation and the other with grand expectations. The door opened, as they reached the top step, and Sandra faced them with the biggest grin on her face. "Come in. It's so nice to see you both and I can hardly wait to get things started." She ushered Cari and Dawn into the living room before handing them a glass of wine. "I think a drink will help settle the nerves."  
 
  
 
@@ -1368,7 +1368,7 @@
 
  Dawn's knees were on either side of the teen's hips and she tried squeezing them together in an effort to remain above the menacing penis. She held herself high in the air when Cari directed the erection straight at the intended target. Dawn cringed when she felt the head graze her puffy labia and her entire upper body stiffened, as she tried lifting her hips a little higher. 
 
- Report_Story #3 
+  
 
  
 
@@ -1510,7 +1510,7 @@
 
  Without warning Sandra curled her forefinger and shoved the bent knuckle into Dawn's mouth. "Once a whore always a whore. I love watching you fuck... cum all over Jeffery's cock. I've never seen anyone move her ass like you do... shoving it back at Jeffery's cock," Sandra whispered. Suddenly the clitoris heartbeat got quicker and more ruthless. Sandra squeezed as hard as she could and yanked on the delicate clitty. "Keep cumming... keep cumming... keep cumming!" 
 
- So Dawn did! The molten cream filled every crock and cranny and her body suffered from a never-ending orgasm. What made it so demoralizing was the fact she had zero control and no stamina, as compared to an inexperienced teenager. Dawn might have stopped, but Sandra was too devious. The woman leaned forward and put her mouth on Dawn's ear. "Your orgasm lasts forever. Keeping fucking Jeffery and let him fill your belly with baby sperm. I'm cumming just dreaming about it." Report_Story #4 
+ So Dawn did! The molten cream filled every crock and cranny and her body suffered from a never-ending orgasm. What made it so demoralizing was the fact she had zero control and no stamina, as compared to an inexperienced teenager. Dawn might have stopped, but Sandra was too devious. The woman leaned forward and put her mouth on Dawn's ear. "Your orgasm lasts forever. Keeping fucking Jeffery and let him fill your belly with baby sperm. I'm cumming just dreaming about it."  
 
  
 

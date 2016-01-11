@@ -172,7 +172,7 @@
 
  I shrugged so she sat down on the chair on the other side of my desk. "You haven't been taking my calls." 
 
- "Given the circumstances under which I last saw you that comes as a surprise?" Report_Story #2 
+ "Given the circumstances under which I last saw you that comes as a surprise?"  
 
  
 

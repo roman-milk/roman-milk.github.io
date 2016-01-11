@@ -182,7 +182,7 @@
 
  "Flirting?" he said, incredulous. "I don't know what you're talking about." 
 
- "It's definitely... something, Shane." I said. "Like I said, I'm not accusing you of anything inappropriate, but she is using her charms on you. And whether you realize it or not, you are kind of allowing her to get away with it. I don't think she's trying to be... manipulative... or anything like that. But she's testing her skills on you, and I think it's kind of inappropriate of her." Report_Story #2 
+ "It's definitely... something, Shane." I said. "Like I said, I'm not accusing you of anything inappropriate, but she is using her charms on you. And whether you realize it or not, you are kind of allowing her to get away with it. I don't think she's trying to be... manipulative... or anything like that. But she's testing her skills on you, and I think it's kind of inappropriate of her."  
 
  
 
@@ -368,7 +368,7 @@
 
  "Got it, Daddio." she said, giving me a thumbs up. 
 
- "So that's why your mom went away this weekend. She wanted to give us space so we could talk this out. Put it all out on the table, so we could get whatever this is out of our systems." I told her. "But, I think we've kinda hashed this out, at this point..." I added, relieved. Report_Story #3 
+ "So that's why your mom went away this weekend. She wanted to give us space so we could talk this out. Put it all out on the table, so we could get whatever this is out of our systems." I told her. "But, I think we've kinda hashed this out, at this point..." I added, relieved.  
 
  
 
@@ -522,7 +522,7 @@
 
  "Kaylee..." I said, rubbing my forehead. "Are you trying to talk me out of this now?" 
 
- "Unless..." she began, acting as if she didn't hear me. "...you tell me it's okay. That I wouldn't disappoint my GORGEOUS daddy by letting him know his little princess is a total SLUT." she said, emphasizing that last word, her tone turning more predatory as she moved in closer. "Daddy, I want you to tell me that it's okay to be a slut... that you want me to be a slut... that you like that I'm a slut. I want you to tell me that you love the fact your daughter is a skank. That you take pride in the fact that your daughter is a complete whore. That you love the fact that I've spread my legs for more boys than you can possibly imagine. That I shake my butt at any boy that looks cute. You love the fact that I am even willing to show my naked body to you, my own father. You love it! Tell me its okay that I want to show you my huge tits... my shaved little whorish cunt... my perfect, round ass. Tell me, and I swear to God, I will fuck your brains out so good you will pass out. Tell me how proud you are of your daughter's hot body. Tell me, and I will be the little slut my Daddy needs, and I will let you do whatever you want to me." Report_Story #4 
+ "Unless..." she began, acting as if she didn't hear me. "...you tell me it's okay. That I wouldn't disappoint my GORGEOUS daddy by letting him know his little princess is a total SLUT." she said, emphasizing that last word, her tone turning more predatory as she moved in closer. "Daddy, I want you to tell me that it's okay to be a slut... that you want me to be a slut... that you like that I'm a slut. I want you to tell me that you love the fact your daughter is a skank. That you take pride in the fact that your daughter is a complete whore. That you love the fact that I've spread my legs for more boys than you can possibly imagine. That I shake my butt at any boy that looks cute. You love the fact that I am even willing to show my naked body to you, my own father. You love it! Tell me its okay that I want to show you my huge tits... my shaved little whorish cunt... my perfect, round ass. Tell me, and I swear to God, I will fuck your brains out so good you will pass out. Tell me how proud you are of your daughter's hot body. Tell me, and I will be the little slut my Daddy needs, and I will let you do whatever you want to me."  
 
  
 
@@ -640,7 +640,7 @@
 
  "I know." she smiled sadly, but it seemed I had rescued us. We had gone to the edge of the cliff, but we hadn't gone over, thank goodness. I had put a stop this and had finally gotten through to her. 
 
- "But how?" Kaylee asked. "How can we go on with this between us? I mean... we both want it. We both really want it, and we both can't hide it. Even Mom can see it. I mean... look at yourself." she said, staring at my still rock hard dick jutting out from my crotch. I tried to cover myself, but there wasn't any pillow or anything, and my shorts were still caught up at my feet. I tried to use my hands, but with the state my cock was in that was hard to do. She saw my struggle and smiled. "I mean, look right there, you can't contain it. You're trying to say no, but your dick is saying yes. You can't stop yourself from letting me get it so big and hard. And Dad... you have no idea how wet I am. How can we stop this when it feels so right? I mean, we are such a good match. You have that big, fat thing between your legs, and my pussy is, like, super- tight but super stretchy. So it's, like, perfect for a cock like yours." Report_Story #5 
+ "But how?" Kaylee asked. "How can we go on with this between us? I mean... we both want it. We both really want it, and we both can't hide it. Even Mom can see it. I mean... look at yourself." she said, staring at my still rock hard dick jutting out from my crotch. I tried to cover myself, but there wasn't any pillow or anything, and my shorts were still caught up at my feet. I tried to use my hands, but with the state my cock was in that was hard to do. She saw my struggle and smiled. "I mean, look right there, you can't contain it. You're trying to say no, but your dick is saying yes. You can't stop yourself from letting me get it so big and hard. And Dad... you have no idea how wet I am. How can we stop this when it feels so right? I mean, we are such a good match. You have that big, fat thing between your legs, and my pussy is, like, super- tight but super stretchy. So it's, like, perfect for a cock like yours."  
 
  
 
@@ -762,7 +762,7 @@
 
  "Oh my God, Daddy. OH MY GOD!" she squealed, her cunt convulsing in pleasure. Her pussy was loving this. I was shocked that a girl her age, with her thin, lithe body and extra-tight pussy, could take so much dick. But she could. Her pussy was stretched to the max around me, clinging to my cock, but she was taking it, taking it deep and eager for more. I kept pushing, bottoming out at about nine inches in her tight little cunt. I let out a sigh. 
 
- "Holy shit!" I gasped out, impressed that my daughter could take so much of my cock. I looked down at her, expecting to see her face to be a mask of pleasure, but what I saw was a look of determination. She gripped my ass and pulled me in roughly, forcing that last inch inside of her, my balls slapping against her ass. "UUUGGGGHHH!" I grunted. Report_Story #6 
+ "Holy shit!" I gasped out, impressed that my daughter could take so much of my cock. I looked down at her, expecting to see her face to be a mask of pleasure, but what I saw was a look of determination. She gripped my ass and pulled me in roughly, forcing that last inch inside of her, my balls slapping against her ass. "UUUGGGGHHH!" I grunted.  
 
  
 
@@ -870,7 +870,7 @@
 
  "AHHH!" she moaned. 
 
- "I love you more than your mother. I love your huge tits. I love when you show them off. I love the way your amazing ass bounces when you walk. I love seeing your body in a bikini. I love all of that more than I love your mother. I love every single inch of my daughter's juicy body more than I love her. I would rather squeeze your tits than hold her close... I would rather rim your ass than kiss her again... I would rather make you moan than make her happy." I snarled in her ear. Where before I was reluctant to trash-talk my wife, now I couldn't stop the words from coming. Report_Story #7 
+ "I love you more than your mother. I love your huge tits. I love when you show them off. I love the way your amazing ass bounces when you walk. I love seeing your body in a bikini. I love all of that more than I love your mother. I love every single inch of my daughter's juicy body more than I love her. I would rather squeeze your tits than hold her close... I would rather rim your ass than kiss her again... I would rather make you moan than make her happy." I snarled in her ear. Where before I was reluctant to trash-talk my wife, now I couldn't stop the words from coming.  
 
  
 
@@ -1030,7 +1030,7 @@
 
  "Daddy..." she began, giving him another peck on the lips before continuing. "You're my boyfriend now, and I'm your girlfriend, your darling, delightful daughter." She kissed him again. "And now that we've hooked up, now that we've had hot (kiss), sweaty (kiss), nasty (kiss), filthy sex, we will be doing it again (kiss)... and again (kiss)... and again. I'm your girlfriend, so I get your cum now. All of it (kiss). I want it, I need it, and I deserve it. So you won't be giving any of it to Mom, got it?" she asked, pushing her lips to his again. He looked a little hesitant, at least until she took one of his hands with her free one and pulled it to her, till his hand was cupping one of her massive breasts. After a few squeezes, he looked very compliant. She gave him a wicked little grin. 
 
- "I'm your hot, teenage slut girlfriend. And it's your job as my hot older boyfriend to spoil your little slut rotten. You give me whatever I want, and I will give you whatever you want." she affirmed, kissing him long and deep, using her tongue. "Let me get away with anything I want, and your life will improve greatly." She pressed her forehead to his, keeping her eyes locked on his. Report_Story #8 
+ "I'm your hot, teenage slut girlfriend. And it's your job as my hot older boyfriend to spoil your little slut rotten. You give me whatever I want, and I will give you whatever you want." she affirmed, kissing him long and deep, using her tongue. "Let me get away with anything I want, and your life will improve greatly." She pressed her forehead to his, keeping her eyes locked on his.  
 
  
 
@@ -1220,7 +1220,7 @@
 
  "Oh, Daddy, can you give me a ride?" she asked. 
 
- "Yes." he replied, getting to his feet fast, barely letting her finish as he moved quickly, leading her to his car. Report_Story #9 
+ "Yes." he replied, getting to his feet fast, barely letting her finish as he moved quickly, leading her to his car.  
 
  
 

@@ -108,7 +108,7 @@
 
  God, she said silently as his fingers neared her thong. And then, his finger hooked under the thong, sort of between her anus and pussy. Daddy was pulling the thong to the side. As Dani remained on her fours, looking back at her father over her shoulder, she felt him open up her clothing to reveal her naked virginity, lost only to toys and vegetables in the past. 
 
- Then Dani experienced the MOST incredible feeling in the WORLD. Beyond anything her wildest virginal fantasies could have predicated. Lips and tongue on her wet, throbbing clit. Dani's clitoris was sizzling, aching, begging. As soon as Daddy's tongue landed flat square on it the most welcome relief ever washed through her whole body, from her crotch to her arms and legs and chest. The hard tongue thrust forcefully against her throbbing wet clit, instantly drawing juices from her body and making the teenager pushed her ass backwards to grind her clit into her father's mouth. Dani could not supress a shrieking scream of "DADDY!" and her face fell into the bedsheets. She couldn't believe what was happening . . . she was so horny, and it felt so amazing. Dani shoved her ass up higher, giving Daddy more access, and his tongue worked magic over her clit. Report_Story #2 
+ Then Dani experienced the MOST incredible feeling in the WORLD. Beyond anything her wildest virginal fantasies could have predicated. Lips and tongue on her wet, throbbing clit. Dani's clitoris was sizzling, aching, begging. As soon as Daddy's tongue landed flat square on it the most welcome relief ever washed through her whole body, from her crotch to her arms and legs and chest. The hard tongue thrust forcefully against her throbbing wet clit, instantly drawing juices from her body and making the teenager pushed her ass backwards to grind her clit into her father's mouth. Dani could not supress a shrieking scream of "DADDY!" and her face fell into the bedsheets. She couldn't believe what was happening . . . she was so horny, and it felt so amazing. Dani shoved her ass up higher, giving Daddy more access, and his tongue worked magic over her clit.  
 
  
 
@@ -214,7 +214,7 @@
 
  "Really?" She giggled; she had thought men liked it, or so they all told her online and in emails. "Mmm -- Daddy fuck me with that big hard cock Daddy." 
 
- "You like Daddy's big cock huh baby?" He was starting alreadyto get a rhythm; leaning over her, his 200 pounds of chiseled muscle moving steadily and powerfully against her pale white, thin 95 pound frame. His fat, thick prick stretched her tight cuntwalls open, and the ribs of his penis tickled and teased her vagina as he prod deeper and deeper into it. "Daddy loves his cock in your hot tight cunt baby." Report_Story #3 
+ "You like Daddy's big cock huh baby?" He was starting alreadyto get a rhythm; leaning over her, his 200 pounds of chiseled muscle moving steadily and powerfully against her pale white, thin 95 pound frame. His fat, thick prick stretched her tight cuntwalls open, and the ribs of his penis tickled and teased her vagina as he prod deeper and deeper into it. "Daddy loves his cock in your hot tight cunt baby."  
 
  
 
@@ -326,7 +326,7 @@
 
  "Fuck me now baby," he moaned, looking right at her titties, "ride my cock, fuck me, slide your pussy on my cock." 
 
- She did. She'd seen pictures on the Internet, heard it described by other men in cybersex and in hot emails, so she had an idea what to do. Putting her hands on his hairy strong chest -- what a turn-on that was all by itself -- she began to rock her pelvis up and down, wiggling it in circles too. As she whipped her pussy around it made his cock move in her, and her clit could rub against his hair on his abdomen, tickling it. She was driving the sex, she was fucking him, not him her, and the feeling of power and control was incredible. As she leaned forward, her eyes half-closed, he took both of his hands off of her hips and cupped them around her boobies. Rubbing his thumbs around her hard tiny nipples made her shudder and her pussy leak with juices, and Dani ground her body even harder on to her daddy's cock. Report_Story #4 
+ She did. She'd seen pictures on the Internet, heard it described by other men in cybersex and in hot emails, so she had an idea what to do. Putting her hands on his hairy strong chest -- what a turn-on that was all by itself -- she began to rock her pelvis up and down, wiggling it in circles too. As she whipped her pussy around it made his cock move in her, and her clit could rub against his hair on his abdomen, tickling it. She was driving the sex, she was fucking him, not him her, and the feeling of power and control was incredible. As she leaned forward, her eyes half-closed, he took both of his hands off of her hips and cupped them around her boobies. Rubbing his thumbs around her hard tiny nipples made her shudder and her pussy leak with juices, and Dani ground her body even harder on to her daddy's cock.  
 
  
 
@@ -416,7 +416,7 @@
 
  Daddy was trying to get rid of the phonecall. Mommy apparently was rankled about a zillion things and Daddy was getting an earful, but Dani knew, he just wanted to fuck his little girl. He loved his little girl so much! Mommy was the enemy right now; she couldn't know, but she was interrupting their sex. It was so aweful. Please Mommy you bitch, Dani thought, just get off the phone, let Daddy fuck me.... 
 
- Then without warning to Dani the call ended; Daddy almost threw the phone at the base, stretching to make sure it hung up properly. Dani grinned. Then, also without warning, Daddy's strong hands grabbed his little girl under her armpits, lifting her up -- off of his prick -- and lowering her onto her back on the bed. Dani let him reposition her, and watched him rise to his knees and lay between her spread-open thighs. She pulled her legs back, not realizing she had a shit-eating grin from ear to ear, she was so anxious to get his cock in her. Report_Story #5 
+ Then without warning to Dani the call ended; Daddy almost threw the phone at the base, stretching to make sure it hung up properly. Dani grinned. Then, also without warning, Daddy's strong hands grabbed his little girl under her armpits, lifting her up -- off of his prick -- and lowering her onto her back on the bed. Dani let him reposition her, and watched him rise to his knees and lay between her spread-open thighs. She pulled her legs back, not realizing she had a shit-eating grin from ear to ear, she was so anxious to get his cock in her.  
 
  
 

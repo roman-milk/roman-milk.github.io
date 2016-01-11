@@ -132,7 +132,7 @@
 
  "Yes, yes, yes God damn it yes! Now shut up and fuck me damn you, fuck me" and she had the largest orgasm she'd ever had with me and still she moaned, "Fuck me, fuck me, fuck me, don't stop, don't stop, just fuck me." 
 
- A minute later I shot my juice into the collected sperm of fifteen other men. It had been a unique experience for me and if Darla meant what she said it was going to happen again - and again, and again, and again. Report_Story #1 
+ A minute later I shot my juice into the collected sperm of fifteen other men. It had been a unique experience for me and if Darla meant what she said it was going to happen again - and again, and again, and again.  
 
  
 

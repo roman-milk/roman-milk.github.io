@@ -288,7 +288,7 @@
 
  ++++++++++++++++ 
 
- The next day Gail called me at work and asked me to meet her for lunch. I suspected that Marsha had called her and told her what she had done and that Gail was going to offer me a shoulder to cry on, but that wasn't what happened. After we had ordered she said: Report_Story #2 
+ The next day Gail called me at work and asked me to meet her for lunch. I suspected that Marsha had called her and told her what she had done and that Gail was going to offer me a shoulder to cry on, but that wasn't what happened. After we had ordered she said:  
 
  
 

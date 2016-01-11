@@ -228,7 +228,7 @@
 
  Alan gawped at the sight of Suzi in the throes of her climax. She'd rolled off him to lay wide-legged on the bed, one hand working the latex cock hard. He stared in amazed awe while her breasts rolled and trembled, her pussy accommodating the girth of the dildo, the blonde herself snorting and grunting, face twisted into a mask of agonised ecstasy. 
 
- "God, Alan, kiss me, you bastard," Suzi sobbed, hips jerking as she thrust up off the bed to meet the inward plunge. "I'm fucking coming," she mewled. Report_Story #2 
+ "God, Alan, kiss me, you bastard," Suzi sobbed, hips jerking as she thrust up off the bed to meet the inward plunge. "I'm fucking coming," she mewled.  
 
  
 

@@ -172,7 +172,7 @@
 
  Julie was under Lisa's watchful eye, and one of the underclassmen was doing his best to make time with her. When he looked my way, I gave him my best glare, and when Lisa wasn't looking, I did the old thumb across the throat gesture. I think he got the message. 
 
- With Julie occupied and under watch, at least for the moment, I sought out the stunning Dominique, easily the prettiest girl in camp, if we took Miss Shannon out of the equation. Dominique looked like a model, tall, slender, and graceful. She was a hard nut to crack though. Whenever I sat near her, she would clam up, obviously nervous around me, speaking in single word answers, or the briefest of phrases. If I casually touched her, she would jump to the stars, and I'd be hard-pressed to get her speaking for minutes afterwards. I kept coming back for more. You know the whole moth/flame thing. To me she blazed like the sun. Report_Story #2 
+ With Julie occupied and under watch, at least for the moment, I sought out the stunning Dominique, easily the prettiest girl in camp, if we took Miss Shannon out of the equation. Dominique looked like a model, tall, slender, and graceful. She was a hard nut to crack though. Whenever I sat near her, she would clam up, obviously nervous around me, speaking in single word answers, or the briefest of phrases. If I casually touched her, she would jump to the stars, and I'd be hard-pressed to get her speaking for minutes afterwards. I kept coming back for more. You know the whole moth/flame thing. To me she blazed like the sun.  
 
  
 
@@ -388,7 +388,7 @@
 
  Both Lisa and Julie moved in closer pulling the blanket tight to keep them warm. It was a cozy little private nest that I was at the center of. 
 
- "Back to cheating," I announced. "Gotta confess, I don't get it. We're all on such clearly different wavelengths. For me cheating is pretty simple. You're dating someone. You're sleeping with them. You've told each other you're committed. Then you do the deed with a stranger. That's cheating." Report_Story #3 
+ "Back to cheating," I announced. "Gotta confess, I don't get it. We're all on such clearly different wavelengths. For me cheating is pretty simple. You're dating someone. You're sleeping with them. You've told each other you're committed. Then you do the deed with a stranger. That's cheating."  
 
  
 
@@ -698,7 +698,7 @@
 
  "It should be no surprise that Angela and I were doing a lot together. I was her first. She was my second. We did what we could when we could, but it wasn't enough for either of us." I lowered my voice, and looked around, before taking another big sip of the rum-punch. I was starting to really feel it, which was good under the current situation. 
 
- "We went down to Kaitlyn's beach house over Spring Break. David was supposed to have come with us, but they broke up a couple of days before we went, so she was alone. She was really bummed out about it. He didn't know it, but that weekend she had plans to give him her virginity. She'd even gotten on the pill, in case it became a regular thing. Idiot didn't deserve her. Kaitlyn was a little irritated that every time her parents were gone for even a few minutes, Angela and I were going at it, sometimes leaving her on watch, reminding her of what she was missing out on." Report_Story #4 
+ "We went down to Kaitlyn's beach house over Spring Break. David was supposed to have come with us, but they broke up a couple of days before we went, so she was alone. She was really bummed out about it. He didn't know it, but that weekend she had plans to give him her virginity. She'd even gotten on the pill, in case it became a regular thing. Idiot didn't deserve her. Kaitlyn was a little irritated that every time her parents were gone for even a few minutes, Angela and I were going at it, sometimes leaving her on watch, reminding her of what she was missing out on."  
 
  
 
@@ -846,7 +846,7 @@
 
  ============ 
 
- Long prelude, I know, but trust me, things get interesting in the next chapter. Thanks for reading, and as always, please vote if you enjoyed the story. Report_Story #1 
+ Long prelude, I know, but trust me, things get interesting in the next chapter. Thanks for reading, and as always, please vote if you enjoyed the story.  
 
  
 
@@ -1130,7 +1130,7 @@
 
  The girls kissing me pulled back, and the new love of my life gave my cock one long stroke inside of her before lowering herself to my body and delivering a sweet kiss which I welcomed. The teasing hands were still roaming around our lower connection, adding an unimaginably magical sensation to this perfect moment. 
 
- My new lover settled into an exquisite rhythm, riding my full length with a slow inexorable motion. She eased back and forth for only a minute or so, and moved off before it got to be too much. When she pulled off of me I wanted to cry. It was a good thing my arms were trapped beneath the girls at my side, or I would have grabbed her and pulled her back onto my cock until I achieved my desperately needed release. Report_Story #2 
+ My new lover settled into an exquisite rhythm, riding my full length with a slow inexorable motion. She eased back and forth for only a minute or so, and moved off before it got to be too much. When she pulled off of me I wanted to cry. It was a good thing my arms were trapped beneath the girls at my side, or I would have grabbed her and pulled her back onto my cock until I achieved my desperately needed release.  
 
  
 
@@ -1352,7 +1352,7 @@
 
  "Hardly. Nothing could get me over here faster than knowing you're waiting, dressed like this." 
 
- She gave me a quirky little smile. "You know, I would have called bullshit normally, but I'm changing my ways. I'm going to try to trust you more, and believe it when you say nice things, no matter how improbable." Report_Story #3 
+ She gave me a quirky little smile. "You know, I would have called bullshit normally, but I'm changing my ways. I'm going to try to trust you more, and believe it when you say nice things, no matter how improbable."  
 
  
 
@@ -1614,7 +1614,7 @@
 
  Shannon put her hand on my shoulder, "My turn?" 
 
- I moved over on top of her, her legs open in invitation. I felt incredible, strong and fierce, my cock a steel rod. We were outside the end of the sleeping bag, the blanket underneath us, but open. Shannon guided me into her, then pulled her legs back. I leaned over her, slipping my arms around her legs, pinning them down, and started up where I'd left off, with some short teasing strokes that became longer and longer, until I was pounding into her as hard as I could. She slowly climbed her own peak, until I got her off as well. She was able to contain it better. "Come for me, Alex, please. Come inside me," she whispered. Report_Story #4 
+ I moved over on top of her, her legs open in invitation. I felt incredible, strong and fierce, my cock a steel rod. We were outside the end of the sleeping bag, the blanket underneath us, but open. Shannon guided me into her, then pulled her legs back. I leaned over her, slipping my arms around her legs, pinning them down, and started up where I'd left off, with some short teasing strokes that became longer and longer, until I was pounding into her as hard as I could. She slowly climbed her own peak, until I got her off as well. She was able to contain it better. "Come for me, Alex, please. Come inside me," she whispered.  
 
  
 
@@ -1854,7 +1854,7 @@
 
  "Work more, whine less," I teased. 
 
- We barely had the table in place, before its benches were full. I was happy to find Max, our assistant from the night before, falling in step with us. "How can I help?" he asked. Report_Story #5 
+ We barely had the table in place, before its benches were full. I was happy to find Max, our assistant from the night before, falling in step with us. "How can I help?" he asked.  
 
  
 
@@ -2042,7 +2042,7 @@
 
  ================ 
 
- Lisa and Teri are (mostly) taken care of. Time to work things out with the younger sister and Heather. Thanks for taking the time to read this little tale. Report_Story #1 
+ Lisa and Teri are (mostly) taken care of. Time to work things out with the younger sister and Heather. Thanks for taking the time to read this little tale.  
 
  
 
@@ -2370,7 +2370,7 @@
 
  "Better than the tarps, though, right?" Shannon asked. 
 
- "My big one is heavy duty. It won't tear. Heavy edging and grommets. Strong material. The one with the clothing drying is sturdy too. We should probably take all the clothing down, and count on half the camp sleeping under those two." Report_Story #2 
+ "My big one is heavy duty. It won't tear. Heavy edging and grommets. Strong material. The one with the clothing drying is sturdy too. We should probably take all the clothing down, and count on half the camp sleeping under those two."  
 
  
 
@@ -2714,7 +2714,7 @@
 
  He grinned. "They probably figure if Wendy's interested, I can't be all bad." 
 
- "Shit. You're an alpha male. Take charge guy. You run this shelter. It's a genetic thing. Girl's love that crap." I gave him a friendly shove. "Go back to your girl. You made a move on her yet?" Report_Story #3 
+ "Shit. You're an alpha male. Take charge guy. You run this shelter. It's a genetic thing. Girl's love that crap." I gave him a friendly shove. "Go back to your girl. You made a move on her yet?"  
 
  
 
@@ -3046,7 +3046,7 @@
 
  "Everyone faces bullies," Lisa said. "Doesn't seem like much of a good deed." 
 
- Shannon had a quick answer. "They weren't bullying him. They were bullying older kids. Girls. Made one of them cry in front of him. That was their mistake. Once the waterworks start, his common sense goes out the window." Report_Story #4 
+ Shannon had a quick answer. "They weren't bullying him. They were bullying older kids. Girls. Made one of them cry in front of him. That was their mistake. Once the waterworks start, his common sense goes out the window."  
 
  
 
@@ -3282,7 +3282,7 @@
 
  "Yep." 
 
- I passed by Max and Wendy. She was sitting in his lap while they chatted. "The other shelter's empty," I told him. "For that matter, looks like the worst of the storm is over. Your tent might be an even better choice." Report_Story #5 
+ I passed by Max and Wendy. She was sitting in his lap while they chatted. "The other shelter's empty," I told him. "For that matter, looks like the worst of the storm is over. Your tent might be an even better choice."  
 
  
 
@@ -3290,7 +3290,7 @@
 
  ================ 
 
- One more chapter to go in our story about about Alex, the last Boy Scout. At always, votes and comments are much appreciated. Report_Story #1 
+ One more chapter to go in our story about about Alex, the last Boy Scout. At always, votes and comments are much appreciated.  
 
  
 
@@ -3568,7 +3568,7 @@
 
  "Pretty good, huh?" Lisa asked. "Nailing the teacher." 
 
- "Hell, I've wanted her since I brought her home the first time. We almost did it once, a long time ago, but stopped. I knew I wouldn't be able to handle seeing her in school every day and not give it away. We've been flirting ever since. Every once in a while I'll steal a little kiss, but not like last night." Report_Story #2 
+ "Hell, I've wanted her since I brought her home the first time. We almost did it once, a long time ago, but stopped. I knew I wouldn't be able to handle seeing her in school every day and not give it away. We've been flirting ever since. Every once in a while I'll steal a little kiss, but not like last night."  
 
  
 
@@ -3848,7 +3848,7 @@
 
  My southward journey paused at her breasts, letting me enjoy them the way I had wanted to the past couple of days. Tasting, sucking, nibbling, tugging at her hard nipples, squeezing the supple and generous flesh. "You have the most wonderful tits. This is Ok, right? Let me know if I'm too rough," I told her softly, before sucking her nipple deep into my mouth, biting down carefully on her breast, hearing the sweet sound of her first moan. I flicked my tongue across the pink peak, before taking it between my teeth and pulling, stretching her tit out. Her torso twisted, offering her tit to me. When I felt the tension was too much, I closed my lips and sucked hard on her nipple, until it popped free. I gave its twin similar treatment, playing until the need to continue urged me downward. 
 
- The voyage was a slow one, exploring the flatland of her waist from side to side, from tits to tan-line, teasing her cute innie, nibbling her soft flesh. I pushed the sleeping bag down, exposing her body under the dim outside light of the fire reflected off our tent. My eyes had grown accustomed to the dark, and I could barely make out shadows of my playmates. Report_Story #3 
+ The voyage was a slow one, exploring the flatland of her waist from side to side, from tits to tan-line, teasing her cute innie, nibbling her soft flesh. I pushed the sleeping bag down, exposing her body under the dim outside light of the fire reflected off our tent. My eyes had grown accustomed to the dark, and I could barely make out shadows of my playmates.  
 
  
 
@@ -4186,7 +4186,7 @@
 
  "Help me find my clothes," she said. 
 
- We sorted through the clothing scattered around the tent, and found hers and mine. We got dressed, bumping into each other at the front of the tent. I reached out for a couple of nice gropes, which she would tolerate for a bit, before pushing me away. "Later. At home." Report_Story #4 
+ We sorted through the clothing scattered around the tent, and found hers and mine. We got dressed, bumping into each other at the front of the tent. I reached out for a couple of nice gropes, which she would tolerate for a bit, before pushing me away. "Later. At home."  
 
  
 

@@ -150,7 +150,7 @@
 
  Was the baby mine? 
 
- By the time I pulled into the garage and shut off the car the thoughts had all boiled down to a single question. Did I help Cora or not? I was two-thirds decided to say yes and the overriding factor was the baby that Cora was carrying. If it was mine did I want it to come into this world in a prison or a jail cell? But there were still some questions to be asked. Report_Story #2 
+ By the time I pulled into the garage and shut off the car the thoughts had all boiled down to a single question. Did I help Cora or not? I was two-thirds decided to say yes and the overriding factor was the baby that Cora was carrying. If it was mine did I want it to come into this world in a prison or a jail cell? But there were still some questions to be asked.  
 
  
 
@@ -354,7 +354,7 @@
 
  I picked up the phone and dialed the extension number for my secretary and when she picked up I asked her to make a copy of my day planner for the week of the fourth and bring it to me. When she did I handed the copy to the detectives. 
 
- "That is a record of my daily activities here at work; who I met with, who I talked to and about what. If necessary I can give you the contact information for all of them. You will note that I was here in the office from eight to five-thirty every day of the week and I'm sure that my secretary and my boss can attest to that. My evenings were al spent at home with my wife with the exception of Thursday when we went out to dinner. I didn't save the credit card receipt, but I'm sure that I can get a copy from the credit card company if you need it. Also I sure that the staff at Tricocci's can verify that we were there since we are regular customers and are always greeted by name when we go there. Unless you have something further to discuss I'm due at a budget meeting in two minutes." Report_Story #3 
+ "That is a record of my daily activities here at work; who I met with, who I talked to and about what. If necessary I can give you the contact information for all of them. You will note that I was here in the office from eight to five-thirty every day of the week and I'm sure that my secretary and my boss can attest to that. My evenings were al spent at home with my wife with the exception of Thursday when we went out to dinner. I didn't save the credit card receipt, but I'm sure that I can get a copy from the credit card company if you need it. Also I sure that the staff at Tricocci's can verify that we were there since we are regular customers and are always greeted by name when we go there. Unless you have something further to discuss I'm due at a budget meeting in two minutes."  
 
  
 

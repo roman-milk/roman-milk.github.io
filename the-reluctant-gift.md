@@ -182,7 +182,7 @@
 
  "Come, baby." 
 
- The words opened the floodgates and her body was wracked in spasms as she experienced the most powerful orgasm of her young life. The invading fingers slipped away, and the devilish tongue receded, the small kisses showering her privates all that remained. Report_Story #2 
+ The words opened the floodgates and her body was wracked in spasms as she experienced the most powerful orgasm of her young life. The invading fingers slipped away, and the devilish tongue receded, the small kisses showering her privates all that remained.  
 
  
 
@@ -438,7 +438,7 @@
 
  "I believe you can hug me better than that. Go ahead, show me." 
 
- Sheri pressed forward again, sliding a leg between those in front of her, pressing her thigh upward to feel moistness. She nuzzled the neck, kissing it, nibbling on it, while her hands explored the back of the woman who had controlled her so completely for the last week. One hand traveled down and cupped her ass, squeezing softly, feeling the smooth fullness, moving over and running down the crevasse, her fingers brushing against the pucker there. She felt the Mistress push down on her shoulders, guiding her face to the twin mounds, where she moved her mouth, seeking out a nipple, suckling, while her hands searched out the secrets between her Mistress's legs. She was leaning over, moving from one breast to the other, taking the nipples in her mouth, sucking, dragging her teeth gently across them. Report_Story #3 
+ Sheri pressed forward again, sliding a leg between those in front of her, pressing her thigh upward to feel moistness. She nuzzled the neck, kissing it, nibbling on it, while her hands explored the back of the woman who had controlled her so completely for the last week. One hand traveled down and cupped her ass, squeezing softly, feeling the smooth fullness, moving over and running down the crevasse, her fingers brushing against the pucker there. She felt the Mistress push down on her shoulders, guiding her face to the twin mounds, where she moved her mouth, seeking out a nipple, suckling, while her hands searched out the secrets between her Mistress's legs. She was leaning over, moving from one breast to the other, taking the nipples in her mouth, sucking, dragging her teeth gently across them.  
 
  
 
@@ -666,7 +666,7 @@
 
  Ivory couldn't let well enough alone. "You're joking, right? You're not going to leave her in charge and let her beat me, are you?" 
 
- "If you don't learn to obey and learn a little self-control I don't know when you'll ever see anything but these four walls down here. I hope I don't have to bring in some friends to train you properly." Report_Story #4 
+ "If you don't learn to obey and learn a little self-control I don't know when you'll ever see anything but these four walls down here. I hope I don't have to bring in some friends to train you properly."  
 
  
 
@@ -898,7 +898,7 @@
 
  "You don't know what you're saying girl." 
 
- "Please Master! I understand completely. Tomorrow I return to my old life, the steady dreary 9-to-5, too much TV, dinners alone, and empty bed. Tonight, I'm a fantasy, your fantasy come true. The Mistress has worked hard to ready me for you. Allow me to be whatever you want. Anything you need. Don't make this week a waste. Use me, enjoy me, Master. Don't leave me like this." Report_Story #5 
+ "Please Master! I understand completely. Tomorrow I return to my old life, the steady dreary 9-to-5, too much TV, dinners alone, and empty bed. Tonight, I'm a fantasy, your fantasy come true. The Mistress has worked hard to ready me for you. Allow me to be whatever you want. Anything you need. Don't make this week a waste. Use me, enjoy me, Master. Don't leave me like this."  
 
  
 

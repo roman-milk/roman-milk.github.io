@@ -280,7 +280,7 @@
 
  "Naughty boy." She laughed, looking at my tenting towel. "Now drink this shake and lay down." 
 
- I drank my breakfast and lay back on the bed, my cock standing up in the towel like a snow-covered volcano. Report_Story #2 
+ I drank my breakfast and lay back on the bed, my cock standing up in the towel like a snow-covered volcano.  
 
  
 
@@ -338,7 +338,7 @@
 
  ========= 
 
- The story is just starting - how far will Jenny really go? Why not Vote and find out? Report_Story #1 
+ The story is just starting - how far will Jenny really go? Why not Vote and find out?  
 
  
 
@@ -608,7 +608,7 @@
 
  I was burning up. I wanted to hold her head still and fuck her pretty face. I wanted to throw her down on my bed and pound my shaft into her until she was Jello beneath me. 
 
- I sat there, my fingers clenching and unclenching to keep from reaching out for her, watching her drive me insane. Report_Story #2 
+ I sat there, my fingers clenching and unclenching to keep from reaching out for her, watching her drive me insane.  
 
  
 
@@ -662,7 +662,7 @@
 
  ==== 
 
- Things are speeding up a little - more is yet to come. Please Vote. Report_Story #1 
+ Things are speeding up a little - more is yet to come. Please Vote.  
 
  
 
@@ -914,7 +914,7 @@
 
  Her smile was erotic. "I thought you'd like that." 
 
- She repeated the entire scenario, from the initial lick until her head was ready to pull off again. This time she opened her mouth and let her tongue come out and lick the base of my shaft, while my cock stayed at the opening of her mouth. She looked at me often, her eyes capturing mine, while she used her talented mouth to pleasure me. Report_Story #2 
+ She repeated the entire scenario, from the initial lick until her head was ready to pull off again. This time she opened her mouth and let her tongue come out and lick the base of my shaft, while my cock stayed at the opening of her mouth. She looked at me often, her eyes capturing mine, while she used her talented mouth to pleasure me.  
 
  
 
@@ -1000,7 +1000,7 @@
 
  * * * 
 
- I worked HARD on this story, if you liked it you could show your appreciation a lot easier than Jenny does. Just Vote! Report_Story #1 
+ I worked HARD on this story, if you liked it you could show your appreciation a lot easier than Jenny does. Just Vote!  
 
  
 
@@ -1244,7 +1244,7 @@
 
  ===== 
 
- Hope you're enjoying this one. Comments and votes are always appreciated! Report_Story #1 
+ Hope you're enjoying this one. Comments and votes are always appreciated!  
 
  
 
@@ -1442,7 +1442,7 @@
 
  "Get it big boy." Dawn announced. 
 
- I required no more encouragement; all reason had fled several minutes earlier. I ignored the lime, and ate out the hot little mother of two like there was no tomorrow. The wetness of the pool, slowly replaced by her own seeping lubrication urged me on. Her smell was almost lost in the tangy odor of the chlorine. It was only a couple of minutes before she came heavily on my face. I couldn't stop myself, lifting her legs high and driving two fingers inside of her, while I captured her clit and tongued it firmly. She cried out, coming hard again, her hands grasping my hair and pulling me into her slit. I think it was only then that she realized what she'd done. She pushed me away, her breath heaving. She looked dazed for a second. Report_Story #2 
+ I required no more encouragement; all reason had fled several minutes earlier. I ignored the lime, and ate out the hot little mother of two like there was no tomorrow. The wetness of the pool, slowly replaced by her own seeping lubrication urged me on. Her smell was almost lost in the tangy odor of the chlorine. It was only a couple of minutes before she came heavily on my face. I couldn't stop myself, lifting her legs high and driving two fingers inside of her, while I captured her clit and tongued it firmly. She cried out, coming hard again, her hands grasping my hair and pulling me into her slit. I think it was only then that she realized what she'd done. She pushed me away, her breath heaving. She looked dazed for a second.  
 
  
 
@@ -1568,7 +1568,7 @@
 
  ===== 
 
- I hope you'll forgive the little detour from the main line of the story. Don't worry we'll be back on track in the next episode. And if you liked this one, please take the time out to vote! Report_Story #1 
+ I hope you'll forgive the little detour from the main line of the story. Don't worry we'll be back on track in the next episode. And if you liked this one, please take the time out to vote!  
 
  
 
@@ -1856,7 +1856,7 @@
 
  "Were we really that bad?" she gasped. 
 
- "I loved tasting your tits, sucking your hard little nipples, and licking your pussy until you screamed." I leaned in very close, whispering in her ear, my lips brushing against her ear lobe. Facing the shelves, I eased a hand up to squeeze her tit. Report_Story #2 
+ "I loved tasting your tits, sucking your hard little nipples, and licking your pussy until you screamed." I leaned in very close, whispering in her ear, my lips brushing against her ear lobe. Facing the shelves, I eased a hand up to squeeze her tit.  
 
  
 
@@ -1878,7 +1878,7 @@
 
  ======== 
 
- We're halfway there - if you enjoy the story, please vote. Report_Story #1 
+ We're halfway there - if you enjoy the story, please vote.  
 
  
 
@@ -2102,7 +2102,7 @@
 
  "Go on. You know you want to. I want you to. And you KNOW he wants you to." Dawn told her. 
 
- Holly made a decision I swear she never would have made just a few weeks earlier. She slowly dropped to her knees in front of me, and eased my boxers down, releasing my fully charged staff to the light of day. Report_Story #2 
+ Holly made a decision I swear she never would have made just a few weeks earlier. She slowly dropped to her knees in front of me, and eased my boxers down, releasing my fully charged staff to the light of day.  
 
  
 
@@ -2180,7 +2180,7 @@
 
  ======== 
 
- I hope you're enjoying the story. The next chapter is done and will be posted soon after this one, after one more edit. Report_Story #1 
+ I hope you're enjoying the story. The next chapter is done and will be posted soon after this one, after one more edit.  
 
  
 
@@ -2462,7 +2462,7 @@
 
  I continued my story, and again she interrupted. "So you had all those hands on you. Did you think it was women or men and women or what?" 
 
- "I don't know. I didn't think about it right away. I guess I assumed they were all women. They were." Report_Story #2 
+ "I don't know. I didn't think about it right away. I guess I assumed they were all women. They were."  
 
  
 
@@ -2548,7 +2548,7 @@
 
  ===== 
 
- Sorry for the lack of action - I promise you the next chapter more than makes up for it. Report_Story #1 
+ Sorry for the lack of action - I promise you the next chapter more than makes up for it.  
 
  
 
@@ -2804,7 +2804,7 @@
 
  I looked down at the sea of fabulous feminine flesh working diligently to pleasure us. To my right was Dawn, then Beth between my legs. Jenny was between JT's legs, and Holly was to his left. Their mouths were taking turns engulfing us, but they all were sharing beautifully. 
 
- Holly broke me out of my reverie, when she slid off the bed. "Girls, everyone shift over one." Then she walked around the bed and waited for Dawn to crawl between my legs. JT was now being service by Beth and Jenny, and Beth seemed determined to put on a show for him. I realized this was probably the first time she'd touched him. Good for her. Report_Story #2 
+ Holly broke me out of my reverie, when she slid off the bed. "Girls, everyone shift over one." Then she walked around the bed and waited for Dawn to crawl between my legs. JT was now being service by Beth and Jenny, and Beth seemed determined to put on a show for him. I realized this was probably the first time she'd touched him. Good for her.  
 
  
 
@@ -2934,7 +2934,7 @@
 
  ====== 
 
- This party isn't done yet - stick around and see. And thanks for taking the time out to read all 9 chapters of this little work. I hope you're enjoying it. All the votes are greatly appreciated. Report_Story #1 
+ This party isn't done yet - stick around and see. And thanks for taking the time out to read all 9 chapters of this little work. I hope you're enjoying it. All the votes are greatly appreciated.  
 
  
 
@@ -3162,7 +3162,7 @@
 
  "Good. Cause I won't be able to walk normal until our next Girl's Night Out, you beast." She pulled me down for a hot kiss, before dropping to her knees and giving me a short little goodbye suck. 
 
- I laid back on the bed, and Beth crawled over and finished what Dawn had started, while our favorite couple finished dressing and made their way out. When Holly returned from escorting the wild one's out, she cuddled up to my side and we watched Beth first suck me for what seemed like an eternity, then ride me to her own completion. Even then she didn't give up, but continued on diligently, trying to get me to shoot one more time. Report_Story #2 
+ I laid back on the bed, and Beth crawled over and finished what Dawn had started, while our favorite couple finished dressing and made their way out. When Holly returned from escorting the wild one's out, she cuddled up to my side and we watched Beth first suck me for what seemed like an eternity, then ride me to her own completion. Even then she didn't give up, but continued on diligently, trying to get me to shoot one more time.  
 
  
 
@@ -3244,7 +3244,7 @@
 
  ===== 
 
- We're almost there - only a couple of more chapters. Please be patient. And vote. ;-) Report_Story #1 
+ We're almost there - only a couple of more chapters. Please be patient. And vote. ;-)  
 
  
 
@@ -3396,7 +3396,7 @@
 
  * * * 
 
- Hope you enjoyed this little scene, the ending is on its way. Report_Story #1 
+ Hope you enjoyed this little scene, the ending is on its way.  
 
  
 
@@ -3558,7 +3558,7 @@
 
  Then she looked up at me, her hands on autopilot. "Yes, I did it. I was going to tell you about it. And it was more than once." 
 
- She bent her head down as if ashamed. Report_Story #2 
+ She bent her head down as if ashamed.  
 
  
 
@@ -3778,7 +3778,7 @@
 
  JT called on Wednesday and invited me to join him for lunch. Tammy waited on us, and begged us to stay until 3:00 when she got off, but we had to pass. I did promise her that the next time we had a Girls Night Out, JT and I would let her know and we could have a drink together. I even told her I'd try to finagle her an invite. 
 
- During lunch JT hit me with a blockbuster. "Buddy, my company's got our Board of Directors meeting in Cancun in a couple of weeks. Dan from InterWorx can't make it; his wife is pregnant and due any day, so we're stuck with two open seats. Interested?" Report_Story #3 
+ During lunch JT hit me with a blockbuster. "Buddy, my company's got our Board of Directors meeting in Cancun in a couple of weeks. Dan from InterWorx can't make it; his wife is pregnant and due any day, so we're stuck with two open seats. Interested?"  
 
  
 

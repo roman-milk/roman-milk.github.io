@@ -100,7 +100,7 @@
 
  "Ohhhh GODDDD!!!" Trisha's mind went blank, her fantasy long forgotten, and for a moment she saw stars, and her body was lost in the gushing pleasure, savoring each twitch and spasm of her swollen pussy. Her flushed chest heaved up and down and her legs pumped wildly in the air as her climax surged, ripping through every inch of her. At last, her frenzied bucking began to slow, her legs and her back relaxed, and Trisha's earsplitting shrieks died down once more to soft moans. Gently, she rocked her body against the dildo, relishing every tender thrust, feeling her thrilled, exhausted pussy slide against the slick plastic. She continued like this for a moment, gently swaying, still fucking herself. Finally, she let her legs droop, her muscles easing up as she sagged against the bench. 
 
- "Wow…" Trisha let the soaked dildo drop onto the floor as she brought her dripping hands to her mouth. She paused to savor the smell of her excitement, then lightly, like a dazed animal, she licked each of her fingers clean. It was a move she had never done before, and she didn't know what made her do it this time, but the taste of her own juice and cum was wonderful &ndash; salty and tangy, lightly prickling her tongue as she licked. Trisha sat up and ran a hand through her tousled hair. She grinned at her face, flushed and red, in the mirror. Ha ha…Well, I guess now I know what a dildo is like! Report_Story #2 
+ "Wow…" Trisha let the soaked dildo drop onto the floor as she brought her dripping hands to her mouth. She paused to savor the smell of her excitement, then lightly, like a dazed animal, she licked each of her fingers clean. It was a move she had never done before, and she didn't know what made her do it this time, but the taste of her own juice and cum was wonderful &ndash; salty and tangy, lightly prickling her tongue as she licked. Trisha sat up and ran a hand through her tousled hair. She grinned at her face, flushed and red, in the mirror. Ha ha…Well, I guess now I know what a dildo is like!  
 
  
 
@@ -108,7 +108,7 @@
 
  Oh shit! 
 
- Trisha stopped mid-step, the soaked dildo still clenched in one hand. Her class! How could she have forgotten? Frantically, she checked the time. It had started fifteen minutes ago. Oh no!!! Panicking, Trisha threw the dripping dildo back into Britney's locker &ndash; there was no time to wash it. She grabbed her backpack and began to race out of the locker room, but stopped once more in front of the mirror as she desperately tried to decide if she should change. The blouse was hugged against her tiny frame and her firm breasts, straining to contain them. The cheerleading skirt was horribly slutty, she decided, barely covering her ass, tight and short. And her panties! Her panties were worst of all, already soaked through and damp with her juices and her cum. Her entire crotch was a sticky mess. She had to change, she had to! No…Trisha thought, helplessly. There's no time!Shouldering her backpack, leaving her school clothes in her gym bag, she flung open the door to the locker room and sprinted towards her class. Report_Story #1 
+ Trisha stopped mid-step, the soaked dildo still clenched in one hand. Her class! How could she have forgotten? Frantically, she checked the time. It had started fifteen minutes ago. Oh no!!! Panicking, Trisha threw the dripping dildo back into Britney's locker &ndash; there was no time to wash it. She grabbed her backpack and began to race out of the locker room, but stopped once more in front of the mirror as she desperately tried to decide if she should change. The blouse was hugged against her tiny frame and her firm breasts, straining to contain them. The cheerleading skirt was horribly slutty, she decided, barely covering her ass, tight and short. And her panties! Her panties were worst of all, already soaked through and damp with her juices and her cum. Her entire crotch was a sticky mess. She had to change, she had to! No…Trisha thought, helplessly. There's no time!Shouldering her backpack, leaving her school clothes in her gym bag, she flung open the door to the locker room and sprinted towards her class.  
 
  
 
@@ -290,7 +290,7 @@
 
  "Yeah, you nasty girl! You just keep gagging on that cock!" 
 
- Trisha let him guide her mouth down on his dick, still jacking him off with her hand, her lips tightly locked over his soaked shaft as he firmly drove her forward. No, too far,she thought frantically, too far!She gagged again, her eyes watery and red, her nostrils flaring as she desperately tried to take a breath through her nose. But her choking only seemed to spur Mr. Braun on, and she felt his hand tighten on her head, gripping her by the hair, pushing her down. Her chest and her shoulders heaved as she choked again, her throat screaming out in protest as her teacher shoved his dick down it. Gurgled, slobbery moans slipped out of her lips as the cheerleader tried her best to accommodate him, opening her mouth wider then she thought possible. She could feel the heat of his throbbing meat piercing inside her, stuffed against the insides of her cheek, fucking deep. She gasped for breath as he thrust into her. Report_Story #2 
+ Trisha let him guide her mouth down on his dick, still jacking him off with her hand, her lips tightly locked over his soaked shaft as he firmly drove her forward. No, too far,she thought frantically, too far!She gagged again, her eyes watery and red, her nostrils flaring as she desperately tried to take a breath through her nose. But her choking only seemed to spur Mr. Braun on, and she felt his hand tighten on her head, gripping her by the hair, pushing her down. Her chest and her shoulders heaved as she choked again, her throat screaming out in protest as her teacher shoved his dick down it. Gurgled, slobbery moans slipped out of her lips as the cheerleader tried her best to accommodate him, opening her mouth wider then she thought possible. She could feel the heat of his throbbing meat piercing inside her, stuffed against the insides of her cheek, fucking deep. She gasped for breath as he thrust into her.  
 
  
 
@@ -338,7 +338,7 @@
 
  Her teacher nodded wearily. "An A+, Trisha. Let me know if you ever want to do any extra credit again." 
 
- No way! Never again!The words screamed through the cheerleader's head, but she just smiled, winked at him, and nodded. Report_Story #1 
+ No way! Never again!The words screamed through the cheerleader's head, but she just smiled, winked at him, and nodded.  
 
  
 
@@ -474,7 +474,7 @@
 
  "You want my cock, Trisha? You want my cock inside of you?" 
 
- Trisha knew what he wanted &ndash; more dirty talk. He wanted her to beg for his cock. She opened her mouth &ndash; and then something shocking happened, something frightening and mortifying and horrible. Report_Story #2 
+ Trisha knew what he wanted &ndash; more dirty talk. He wanted her to beg for his cock. She opened her mouth &ndash; and then something shocking happened, something frightening and mortifying and horrible.  
 
  
 
@@ -538,7 +538,7 @@
 
  "I'll see you tomorrow Trisha. You should be ready to stay late." 
 
- The cheerleader shuddered as she left the classroom. She was alone in the hallway; everyone else had gone home. I'm a good girl…she thought, desperately, trying to reassure herself. I'm a good girl…how could I have done something like this? This can't be real…this can't be happening to me.She struggled to keep her composure as she walked down the hall, her legs and her ass aching. Her pussy was flooded with her own juices and with Mr. Braun's cum, soaking through her panties, starting to dribble down her legs as she walked. If anyone had been around to see her, they could have seen something faintly glistening, poking out from the bottom of her swishing skirt, running down her leg &ndash;a thin trail of her teacher's seed. Report_Story #1 
+ The cheerleader shuddered as she left the classroom. She was alone in the hallway; everyone else had gone home. I'm a good girl…she thought, desperately, trying to reassure herself. I'm a good girl…how could I have done something like this? This can't be real…this can't be happening to me.She struggled to keep her composure as she walked down the hall, her legs and her ass aching. Her pussy was flooded with her own juices and with Mr. Braun's cum, soaking through her panties, starting to dribble down her legs as she walked. If anyone had been around to see her, they could have seen something faintly glistening, poking out from the bottom of her swishing skirt, running down her leg &ndash;a thin trail of her teacher's seed.  
 
  
 
@@ -720,7 +720,7 @@
 
  "Holy shit!" 
 
- Britney's bright blue eyes winked up at him as she sucked, her tongue gently running around the tip of his cock, one hand cupping his balls. She continued like this for a moment, sucking gently, letting him savor the feeling. Then, without warning, the head cheerleader plunged her head forward, letting his shaft sink so easily into her lips that it seemed to Trisha that it was disappearing. Mr. Braun half-gasped and half-choked as Britney throated the entire length of his rod, her slobbery lips locked around his balls, her nose pressed against his belly. In spite of herself, Trisha's jaw dropped as she watched Britney effortlessly slide the dribbling cock out of her mouth, then plow back forward, gobbling the entire thing down once more, jamming her face into Mr. Braun's stomach. Report_Story #2 
+ Britney's bright blue eyes winked up at him as she sucked, her tongue gently running around the tip of his cock, one hand cupping his balls. She continued like this for a moment, sucking gently, letting him savor the feeling. Then, without warning, the head cheerleader plunged her head forward, letting his shaft sink so easily into her lips that it seemed to Trisha that it was disappearing. Mr. Braun half-gasped and half-choked as Britney throated the entire length of his rod, her slobbery lips locked around his balls, her nose pressed against his belly. In spite of herself, Trisha's jaw dropped as she watched Britney effortlessly slide the dribbling cock out of her mouth, then plow back forward, gobbling the entire thing down once more, jamming her face into Mr. Braun's stomach.  
 
  
 
@@ -816,7 +816,7 @@
 
  "Well, Trisha? What are you waiting for? 
 
- Trisha looked up. "…No…n-nothing, Principal Johnson. I'm sorry." She hastily buttoned up her jeans, and followed the principal out of the locker room, without a word. Report_Story #1 
+ Trisha looked up. "…No…n-nothing, Principal Johnson. I'm sorry." She hastily buttoned up her jeans, and followed the principal out of the locker room, without a word.  
 
  
 
@@ -992,7 +992,7 @@
 
  Trisha only stared back, silent, partially in shock. 
 
- "Tell me how much you like it, you slut. Tell me you like my dick in your pussy. You'll get wetter that way, you know. Tell me how much you want me to fuck your brains out." Slowly, he was thrusting again, in and out, his painful rod punishing her tender body. Trisha closed her eyes and rested her head back down against the desk. No way, you asshole. Report_Story #2 
+ "Tell me how much you like it, you slut. Tell me you like my dick in your pussy. You'll get wetter that way, you know. Tell me how much you want me to fuck your brains out." Slowly, he was thrusting again, in and out, his painful rod punishing her tender body. Trisha closed her eyes and rested her head back down against the desk. No way, you asshole.  
 
  
 
@@ -1060,7 +1060,7 @@
 
  "Is anything wrong, dearie?" The secretary was smiling at her. 
 
- Trisha paused, then shook her head. "No, thank you." She started out walking briskly, but in a moment quickly broke into a run as she fled from his office. Report_Story #1 
+ Trisha paused, then shook her head. "No, thank you." She started out walking briskly, but in a moment quickly broke into a run as she fled from his office.  
 
  
 
@@ -1290,7 +1290,7 @@
 
  "What's that, little bitch? Is my little bitch going to try to fuck me?" 
 
- "Shut up, you whore! Shut up!" With a primal scream of rage, the principal plunged his dick into Britney's hoisted ass in a single stroke, his hands grabbing her butt cheeks, slamming her back into him. Report_Story #2 
+ "Shut up, you whore! Shut up!" With a primal scream of rage, the principal plunged his dick into Britney's hoisted ass in a single stroke, his hands grabbing her butt cheeks, slamming her back into him.  
 
  
 
@@ -1394,7 +1394,7 @@
 
  Trisha shifted nervously on her feet. I don't know what to believe anymore."I...I don't know, Britney. I'm not sure yet." 
 
- The head cheerleader shrugged. "Yeah, don't worry about it. Just my advice, hun. Take it or leave it." Then, she walked away, her heels clacking loudly on the ground. She was panty-less, and the bottom of her ass poked out from the bottom of her miniskirt. Her braless tits swelled out of the tight tank top; the nipples were clearly visible in the virtually see-through fabric. Her long blonde hair cascaded down her back; her flared hips swung back and forth as she walked. Trisha admired Britney as she walked off; she could see a bit of the class slut's juices, overflowing out of her naked pussy and running down her uncovered thigh. Report_Story #1 
+ The head cheerleader shrugged. "Yeah, don't worry about it. Just my advice, hun. Take it or leave it." Then, she walked away, her heels clacking loudly on the ground. She was panty-less, and the bottom of her ass poked out from the bottom of her miniskirt. Her braless tits swelled out of the tight tank top; the nipples were clearly visible in the virtually see-through fabric. Her long blonde hair cascaded down her back; her flared hips swung back and forth as she walked. Trisha admired Britney as she walked off; she could see a bit of the class slut's juices, overflowing out of her naked pussy and running down her uncovered thigh.  
 
  
 
@@ -1558,7 +1558,7 @@
 
  Topless, her breasts being fondled and groped by both men now, squeezed into the foot space of the back seat, listening to them talk about her, Trisha continued to blow the two officers. The only sounds were the groans of the two men and the slick, slobbery smacks and popsof Trisha slurping on both of their cocks. She was careful to jack off whoever she wasn't giving head to, and made sure to switch back and forth to keep them both occupied. 
 
- She couldn't deny it either: the entire experience was incredibly thrilling to her. To keep both of them in her sway, to watch them beg for a turn to plunge into her wet lips, to see their looks of delight as she licked up and down their meat and of disappointment as she switched back to the other one; all of this filled her with excitement. She began to relish the feeling of their meat in her mouth, the stiff yet soft flesh rubbing against her tongue, the hard throbbing warmth that moved against the insides of her cheeks. She even began to let out soft moans of her own, enjoying the feeling of them straining against her mouth, enthusiastically thrusting her face against their hips as she sucked and impatiently pulling her hair back from her face to get better access. Report_Story #2 
+ She couldn't deny it either: the entire experience was incredibly thrilling to her. To keep both of them in her sway, to watch them beg for a turn to plunge into her wet lips, to see their looks of delight as she licked up and down their meat and of disappointment as she switched back to the other one; all of this filled her with excitement. She began to relish the feeling of their meat in her mouth, the stiff yet soft flesh rubbing against her tongue, the hard throbbing warmth that moved against the insides of her cheeks. She even began to let out soft moans of her own, enjoying the feeling of them straining against her mouth, enthusiastically thrusting her face against their hips as she sucked and impatiently pulling her hair back from her face to get better access.  
 
  
 
@@ -1654,7 +1654,7 @@
 
  "Hello?" 
 
- Trisha's heart leapt. "Hello...Britney...?" Report_Story #1 
+ Trisha's heart leapt. "Hello...Britney...?"  
 
  
 
@@ -1812,7 +1812,7 @@
 
  Ooooh...Trisha wasn't even thinking about what she was doing now; her mind was lost in her imagination, her lust had taken over her body. A hand slowly began to sneak down her waist, towards the hem of her miniskirt. Just think about what they're imagining now...all the ways they would fuck me, pound me, ravage every inch of me...Eagerly, the cheerleader slid her hand under her skirt and her panties, slowly caressing the tender skin, and then, she was at her pussy, dripping with anticipation, and a wave of pleasure rushed through her. 
 
- "Oh..." Trisha threw back her shoulders and arched her back, thrusting her perky chest out. Her fingertips were already soaked with her juices, and she gently began to rub back and forth at the soft lips of her pussy, each motion making her shudder with lust. All Trisha could think about were those men, and their rock-hard dicks, standing at attention just for her. They're probably jacking off now...they're trying to cum as they watch me...She suddenly realized what a sight she must be, on her tip-toes, her hand buried in her miniskirt, her head back, rubbing at her own twat. But the thought only turned her on more, and she let out a soft moan as she dug her fingers deeper into her cunt. Report_Story #2 
+ "Oh..." Trisha threw back her shoulders and arched her back, thrusting her perky chest out. Her fingertips were already soaked with her juices, and she gently began to rub back and forth at the soft lips of her pussy, each motion making her shudder with lust. All Trisha could think about were those men, and their rock-hard dicks, standing at attention just for her. They're probably jacking off now...they're trying to cum as they watch me...She suddenly realized what a sight she must be, on her tip-toes, her hand buried in her miniskirt, her head back, rubbing at her own twat. But the thought only turned her on more, and she let out a soft moan as she dug her fingers deeper into her cunt.  
 
  
 
@@ -1984,7 +1984,7 @@
 
  Trisha grinned. "It was my pleasure." 
 
- "Ours too!" A voice rang out from behind the mirror, and Trisha and Britney both laughed. The two cheerleaders got to their feet, each giggling at the other as they slowly steadied their wobbling legs. Trisha turned to study her reflection in the one-way mirror. Her hair was a mess and her face was flushed red from effort. Thick streams of cum were splattered across her body, coating her face, running down her neck, splashed on her perky tits and her dainty legs. Even her miniskirt had a few obvious splotches. But the smile in the mirror was unmistakable. Trisha's bright brown eyes beamed back at her as she grinned towards the mirror. Britney tossed her hair and called out to the wall. Report_Story #3 
+ "Ours too!" A voice rang out from behind the mirror, and Trisha and Britney both laughed. The two cheerleaders got to their feet, each giggling at the other as they slowly steadied their wobbling legs. Trisha turned to study her reflection in the one-way mirror. Her hair was a mess and her face was flushed red from effort. Thick streams of cum were splattered across her body, coating her face, running down her neck, splashed on her perky tits and her dainty legs. Even her miniskirt had a few obvious splotches. But the smile in the mirror was unmistakable. Trisha's bright brown eyes beamed back at her as she grinned towards the mirror. Britney tossed her hair and called out to the wall.  
 
  
 
@@ -2038,7 +2038,7 @@
 
  "Britney!" Trisha blushed a deep crimson as the store owner grinned at her. The head cheerleader let out a loud laugh as she strode out the door to her car, Trisha hurrying to follow her. 
 
- "Trisha, hun, I've got a good feeling about this." Britney grinned at her friend as she pulled out her car keys. "We've got lots of fun waiting for us." Report_Story #1 
+ "Trisha, hun, I've got a good feeling about this." Britney grinned at her friend as she pulled out her car keys. "We've got lots of fun waiting for us."  
 
  
 
@@ -2244,7 +2244,7 @@
 
  "Oh sir...I'm so glad you're here! Shut the door, will ya?" 
 
- The manager seemed ready for another outburst, but her comment caught him off guard. He stood silently in shock, staring down at her, not moving. Trisha's tight T-shirt showed off her firm tits and her bare, dainty midriff. Her panties and shorts were still around her ankles, revealing her slender legs and flared hips, her bulging, dripping pussy. The petite cheerleader felt another wicked thrill run through her as his eyes ran over her. When he still wouldn't respond, she shrugged. Report_Story #2 
+ The manager seemed ready for another outburst, but her comment caught him off guard. He stood silently in shock, staring down at her, not moving. Trisha's tight T-shirt showed off her firm tits and her bare, dainty midriff. Her panties and shorts were still around her ankles, revealing her slender legs and flared hips, her bulging, dripping pussy. The petite cheerleader felt another wicked thrill run through her as his eyes ran over her. When he still wouldn't respond, she shrugged.  
 
  
 
@@ -2388,7 +2388,7 @@
 
  Trish arched her back again, and squeezed her pussy hard, clasping his cock as she slammed her body against his. 
 
- "Where you gonna cum, baby?" She asked, encouraging him. "You wanna cum on my face?" Report_Story #3 
+ "Where you gonna cum, baby?" She asked, encouraging him. "You wanna cum on my face?"  
 
  
 
@@ -2426,7 +2426,7 @@
 
  "Yup. She was shopping in the store but she's probably done by now. I hope she's not worried." Trisha giggled at the manager's jaw dropped. "Bye!" 
 
- The petite cheerleader cheerfully walked out of the warehouse. Out of the corner of her eye, she saw two more store employees, sitting on the sidewalk taking a break. They were eyeing her for sure; a little brunette, cute and sweet enough to be the classic innocent schoolgirl, but dressed like any other slut. Their gaze lingering over her dainty body, her slender legs in her high- heeled boots, her tits thrusting out against the stretched fabric of her T- shirt, and her ass, red and tender, poking out of the bottom of her shorts, wiggling as she walked. She wondered if George's cum was dribbling out of her pussy and leaving a wet spot, or maybe some of the manager's cum was still on her face. She hoped it was. The men on the sidewalk were still watching her. As she walked by, she turned to wink at them, but didn't stop. Sorry boys,she thought as she grinned to herself. Maybe next time. Report_Story #1 
+ The petite cheerleader cheerfully walked out of the warehouse. Out of the corner of her eye, she saw two more store employees, sitting on the sidewalk taking a break. They were eyeing her for sure; a little brunette, cute and sweet enough to be the classic innocent schoolgirl, but dressed like any other slut. Their gaze lingering over her dainty body, her slender legs in her high- heeled boots, her tits thrusting out against the stretched fabric of her T- shirt, and her ass, red and tender, poking out of the bottom of her shorts, wiggling as she walked. She wondered if George's cum was dribbling out of her pussy and leaving a wet spot, or maybe some of the manager's cum was still on her face. She hoped it was. The men on the sidewalk were still watching her. As she walked by, she turned to wink at them, but didn't stop. Sorry boys,she thought as she grinned to herself. Maybe next time.  
 
  
 
@@ -2584,7 +2584,7 @@
 
  The dark-haired one laughed. "I can't take it anymore, man. I've gotta fuck this little bitch virgin!" 
 
- No!!Trisha's mind flashed with fear for her friend, but she couldn't do anything else. The blonde-haired boy was fucking her mouth ferociously, his hand on her chin, his hips jutting into her cheeks, balls against her lips. Trisha drooled and slobbered as he plowed into her mouth. His cock was actually not that long, and the petite cheerleader could deepthroat his length without gagging. But she knew that wasn't what he wanted; he wanted to hurt and humiliate her. So she forced out a choke, pretending to cough and gag on his dick, her drool coating his dick and running down his balls. Report_Story #2 
+ No!!Trisha's mind flashed with fear for her friend, but she couldn't do anything else. The blonde-haired boy was fucking her mouth ferociously, his hand on her chin, his hips jutting into her cheeks, balls against her lips. Trisha drooled and slobbered as he plowed into her mouth. His cock was actually not that long, and the petite cheerleader could deepthroat his length without gagging. But she knew that wasn't what he wanted; he wanted to hurt and humiliate her. So she forced out a choke, pretending to cough and gag on his dick, her drool coating his dick and running down his balls.  
 
  
 
@@ -2724,7 +2724,7 @@
 
  Rob spoke first. "You want us to let her go?" 
 
- Trisha nodded, still stroking them gently, and she noticed that they were starting to grow in her hands. "Please... just fuck me all you want... I'm begging you... " Report_Story #3 
+ Trisha nodded, still stroking them gently, and she noticed that they were starting to grow in her hands. "Please... just fuck me all you want... I'm begging you... "  
 
  
 
@@ -2840,7 +2840,7 @@
 
  Trisha shook her head. "N-no... I... I... " It was all she could come up with. She was working so hard to conceal her moans, fighting so hard against the pleasure that was coursing through her body. Rob's dick was thick and hard in her twat, filling her up, sending wave after wave of carnal lust through the cheerleader's trembling body. He was so strong, his hands wrapped around Trisha's tiny waist, his hips powering into her like a machine. 
 
- "Oh... oh... oh... " Trisha's whimpers were barely audible, and she wrenched her head away so Jake couldn't see as she struggled against the pleasure. Maybe... maybe he'll think I'm moaning in pain...But there was no pain; only carnal pleasure, building up, bubbling through her, taking over her entire body so that each time Rob plunged into her twat, the sensation radiated across every inch of her flesh and sent spasms of joy into every limb. He was grunting and groaning as he worked her cunt, and each thrust was reeling through Trisha, sending the cheerleader's little body forward, driving her into the ground before he yanked her back up against him. Hard and fast and deep... just the way Trisha liked it... no... no... Report_Story #4 
+ "Oh... oh... oh... " Trisha's whimpers were barely audible, and she wrenched her head away so Jake couldn't see as she struggled against the pleasure. Maybe... maybe he'll think I'm moaning in pain...But there was no pain; only carnal pleasure, building up, bubbling through her, taking over her entire body so that each time Rob plunged into her twat, the sensation radiated across every inch of her flesh and sent spasms of joy into every limb. He was grunting and groaning as he worked her cunt, and each thrust was reeling through Trisha, sending the cheerleader's little body forward, driving her into the ground before he yanked her back up against him. Hard and fast and deep... just the way Trisha liked it... no... no...  
 
  
 
@@ -2880,7 +2880,7 @@
 
  Each second, her heart burned with fear that she would feel one of their hands on her shoulder, dragging her back. But it never came. Half a block later, she chanced a glimpse over a shoulder, and saw them a dozen yards away, yelling and running after her but clearly without a chance of catching up. The cheerleader kept running, naked except for her miniskirt, flopping around her waist, her tennis shoes scuffling on the pavement, her tits bounding and dancing in the cool night air as she fled. 
 
- Even after several blocks, she was still running, panting and gasping as she went, her mind whirling with fear and dread at the thought of being caught again. But the worst part was what she was really afraid of. It wasn't the physical part of being raped. It was the way her body had betrayed her; the way she had quivered and quaked in her effort to stop herself from cumming, but in the end had lost. Her two captors &ndash; Mandy's captors &ndash; had made her cum, and she had been helpless against them. I fought it so hard... but my body just wouldn't listen. What's going on? Why did that happen??The last few months had felt like breaking free of a cage; they had been nothing but wild, sexual bliss for Trisha. But for the first time in a long while, she felt uneasy. Report_Story #1 
+ Even after several blocks, she was still running, panting and gasping as she went, her mind whirling with fear and dread at the thought of being caught again. But the worst part was what she was really afraid of. It wasn't the physical part of being raped. It was the way her body had betrayed her; the way she had quivered and quaked in her effort to stop herself from cumming, but in the end had lost. Her two captors &ndash; Mandy's captors &ndash; had made her cum, and she had been helpless against them. I fought it so hard... but my body just wouldn't listen. What's going on? Why did that happen??The last few months had felt like breaking free of a cage; they had been nothing but wild, sexual bliss for Trisha. But for the first time in a long while, she felt uneasy.  
 
  
 
@@ -3012,7 +3012,7 @@
 
  "Huh?" Trisha raised an eyebrow, looking both confused and disappointed. "Why not?" 
 
- Dan laughed. "Come on, you have to work for it." He was teasing her, but still, Trisha couldn't help feeling surprised. Usually, by the time she got to this point, the guy was practically begging for her to gulp his dick into her mouth. They were never able to resist Trisha's charm; they were always hypnotized by it, their lust for her petite body controlling their every move. She was usually the one teasing them…not the other way around. And no one's ever stopped me from taking off their pants before!She played along with the lifeguard, giving him one of her best pouts in response, but a strange feeling came over her, completely new. This guy's different. He's so cool-headed…he probably would even be able to resist Britney! Report_Story #2 
+ Dan laughed. "Come on, you have to work for it." He was teasing her, but still, Trisha couldn't help feeling surprised. Usually, by the time she got to this point, the guy was practically begging for her to gulp his dick into her mouth. They were never able to resist Trisha's charm; they were always hypnotized by it, their lust for her petite body controlling their every move. She was usually the one teasing them…not the other way around. And no one's ever stopped me from taking off their pants before!She played along with the lifeguard, giving him one of her best pouts in response, but a strange feeling came over her, completely new. This guy's different. He's so cool-headed…he probably would even be able to resist Britney!  
 
  
 
@@ -3088,7 +3088,7 @@
 
  "URGH!" Dan grunted out loud, and he swayed forward, slamming Trisha's trembling body back against the wall, his arms tight around her ass cheeks, his dick buried in her convulsing cunt and his balls tight against her. Trisha gasped in shock as she felt his dick grow and throb; and then he was spurting his cum in her, spasming through his shaft, flooding into her soaked, thrilled canal, filling her with his seed even as she was still shuddering within her own climax. She could feel every throb and pump, snug and deep inside her twat, and the cheerleader wrapped her legs as tight around his waist as she could, drawing him in even further, taking all of him, letting him unload his sperm deep inside of her. She was still lost in the fiery pleasure of her own orgasm, and her body flushed and quivered with the feeling of accepting his cum. 
 
- "Ohhhhhh…" This isn't like anything I've ever felt!It was like he was filling her entire body with his cum, every inch of it, and his spunk was flowing through her along with her climax, riding the waves of pleasure that savaged her, sending fierce, electric jolts that left her both thrilled and exhausted. She sagged against him, unable to even move. Report_Story #3 
+ "Ohhhhhh…" This isn't like anything I've ever felt!It was like he was filling her entire body with his cum, every inch of it, and his spunk was flowing through her along with her climax, riding the waves of pleasure that savaged her, sending fierce, electric jolts that left her both thrilled and exhausted. She sagged against him, unable to even move.  
 
  
 
@@ -3200,7 +3200,7 @@
 
  "Can you do me a favor?" The head cheerleader's voice was serious again. "Just…um…stay away from that Dan guy, okay? Please?" 
 
- Trisha was lost in thought as she heard Britney hang up the phone. She listened to the silence for a few seconds, taking a moment before answering Mandy's call. What now…? Report_Story #1 
+ Trisha was lost in thought as she heard Britney hang up the phone. She listened to the silence for a few seconds, taking a moment before answering Mandy's call. What now…?  
 
  
 
@@ -3344,7 +3344,7 @@
 
  The look in his eyes...Trisha thought to herself as he watched John fuck the breathless blonde's face. He looks so hungry...so animalistic...She wouldn't have been surprised if John had just grabbed Britney by the hips, ripped off all her clothes, and shoved his cock into her pussy – he seemed to be right on that edge. For several more seconds, he plunged his cock down Britney's throat, the head cheerleader moaning and gurgling, her hands now tightly gripping the carpet, her chest heaving, her body involuntarily squirming in effort on the floor. 
 
- At last, the head cheerleader reached up and slapped John hard on his thigh. He immediately responded by letting go of Britney, letting the blonde pull herself back off his cock, gasping and coughing, drawing in air as fast as she could. Her chin was now coated in drool, and Trisha could see that a long stream of it was dribbling off of the tip of John's cock too, splashing on the carpet of Britney's parents' bedroom. But before the head cheerleader could take more than two or three breaths, John had once again grabbed her by the hair, and plunged his meat back between her lips, balls-deep, filling her throat. And once again, Britney responded with a loud, muffled moan of pleasure, loving every second of it, even as the rest of her body instinctively squirmed and struggled against the thick cock cutting off her breathing. Report_Story #2 
+ At last, the head cheerleader reached up and slapped John hard on his thigh. He immediately responded by letting go of Britney, letting the blonde pull herself back off his cock, gasping and coughing, drawing in air as fast as she could. Her chin was now coated in drool, and Trisha could see that a long stream of it was dribbling off of the tip of John's cock too, splashing on the carpet of Britney's parents' bedroom. But before the head cheerleader could take more than two or three breaths, John had once again grabbed her by the hair, and plunged his meat back between her lips, balls-deep, filling her throat. And once again, Britney responded with a loud, muffled moan of pleasure, loving every second of it, even as the rest of her body instinctively squirmed and struggled against the thick cock cutting off her breathing.  
 
  
 
@@ -3452,7 +3452,7 @@
 
  "Free tonight? Come over and we'll watch a movie." 
 
- The lifeguard had added directions and the address of his apartment. That's only a few blocks away, Trisha realized. Again, her body flushed with lust. In ten minutes, I could be with him...he could be plowing into me again, just like before...so hard and so deep... Report_Story #3 
+ The lifeguard had added directions and the address of his apartment. That's only a few blocks away, Trisha realized. Again, her body flushed with lust. In ten minutes, I could be with him...he could be plowing into me again, just like before...so hard and so deep...  
 
  
 
@@ -3560,7 +3560,7 @@
 
  Dan's shaft was throbbing and hard inside her, his balls slapping loudly against the lips of her pussy. Each thrust reverberated through the petite cheerleader; the force of both of their bodies, her bucking against him, him pulling her towards him as she slammed his cock deep in her twat. The pleasure of his fucking was mixing with the throbbing lust in her clit, and Trisha was now wildly kneading into it, moaning and crying out in pleasure as each tweak sent a stab of carnal pleasure through her body, her back arched as she bent over the railing, on tip-toes in her heels, her legs straining. Further and further, her lust pushed through her, and each thrust of Dan's dick pumped it even deeper, towards its goal, until finally... 
 
- "OHHHHHHHH Y-YEEESSSSS!!!!" The cheerleader's scream ripped through the night, echoing across the street, as loud and wild as her orgasm was fierce. Trisha was thrashing and grinding against Dan with an incredible strength, lost to the hot, electric waves of pleasure that coursed through her. The sexual energy that had been building up in her the entire night finally burst through, like a wave of fire, coursing through her body, overwhelming her, reducing her to nothing but a body lost in carnal pleasure. The cheerleader was quivering within her lust, her legs trembling as she stood on the balcony, her back arched and rigid, her chest heaving as she gasped for breath in between screams. At that moment, her trembling fingers lost their grip on the railing, and Trisha collapsed against Dan, her heels scraping on the pavement as she lost her balance. But even as she tumbled back into him, Trisha's mind barely even registered it; all she could think about was the feeling of her climax surging through her, wave after wave of pleasure, blasting her body with hot lust, finally satisfying her after so long. Report_Story #4 
+ "OHHHHHHHH Y-YEEESSSSS!!!!" The cheerleader's scream ripped through the night, echoing across the street, as loud and wild as her orgasm was fierce. Trisha was thrashing and grinding against Dan with an incredible strength, lost to the hot, electric waves of pleasure that coursed through her. The sexual energy that had been building up in her the entire night finally burst through, like a wave of fire, coursing through her body, overwhelming her, reducing her to nothing but a body lost in carnal pleasure. The cheerleader was quivering within her lust, her legs trembling as she stood on the balcony, her back arched and rigid, her chest heaving as she gasped for breath in between screams. At that moment, her trembling fingers lost their grip on the railing, and Trisha collapsed against Dan, her heels scraping on the pavement as she lost her balance. But even as she tumbled back into him, Trisha's mind barely even registered it; all she could think about was the feeling of her climax surging through her, wave after wave of pleasure, blasting her body with hot lust, finally satisfying her after so long.  
 
  
 
@@ -3576,7 +3576,7 @@
 
  The cheerleader said nothing, still recovering from Dan's cock. A moment later, she started as she heard a door slam, and turned her head around to realize that she was alone, crouched on the balcony in nothing but a pair of heels, a thong wrapped around her thighs, and a dress scrunched around her waist. She realized then that she was panting, out of breath from Dan's ferocious assault. Her mind was still frazzled, but one thought ran through her mind: I'm Dan's slut.It wasn't a question or a suggestion; it was simply a statement of fact. She was his. She had been so desperately horny as she left Britney's house; she had never been so desperate in her life. So she had come to Dan, and he had satisfied her, fucking her rough and hard, taking her on his balcony, so quickly that he didn't even bother to take off her dress or pull her panties all the way down her legs. He had given her the orgasm that she needed. 
 
- Still on her hands and knees, she reached a hand back to gently tug her thong up over her pussy. Trisha could still feel the warmness of Dan's cum in her cunt as she stretched the short hem of her minidress back over her swollen ass. Next, she gently slipped on the shoulder straps, pulling them back up her arms, cupping and adjusting her tits to make sure that they were covered. Only after she had readjusted her clothing did she stand up, legs trembling, hands running through her tousled hair, trying to straighten it out, to make her look presentable. She took a quick glance around, wondering how many people had heard her, how many had passed by unnoticed as she had lost herself to the feeling of Dan's cock. Silently, she started back down the stairs, the click- clack of her heels echoing. I'm Dan's slut... Report_Story #1 
+ Still on her hands and knees, she reached a hand back to gently tug her thong up over her pussy. Trisha could still feel the warmness of Dan's cum in her cunt as she stretched the short hem of her minidress back over her swollen ass. Next, she gently slipped on the shoulder straps, pulling them back up her arms, cupping and adjusting her tits to make sure that they were covered. Only after she had readjusted her clothing did she stand up, legs trembling, hands running through her tousled hair, trying to straighten it out, to make her look presentable. She took a quick glance around, wondering how many people had heard her, how many had passed by unnoticed as she had lost herself to the feeling of Dan's cock. Silently, she started back down the stairs, the click- clack of her heels echoing. I'm Dan's slut...  
 
  
 
@@ -3730,7 +3730,7 @@
 
  But she already knew the answer. One of the lifeguards, who had clambered onto the bed in front of her, was now unzipping his fly, and Trisha could see a large bulge emerge as he stared down at her petite frame. At the same moment, she felt Dan's hands on her waist, and then that familiar, wonderful feeling: the tip of his cock against her cunt, positioned and ready to stuff her full, filling her body with an animalistic hunger. But the cheerleader's mind was whirling, and she tried to concentrate. This is crazy! There's seven of them!! What do they expect me to do?? 
 
- She couldn't come up with anything to do but stare in shocked silence as the unknown lifeguard in front of her pulled down his pants, revealing a thick, throbbing cock. He was grinning down at her, sprawled across the bed on her hands and knees, as he slowly inched forward until the tip of his meat was inches from her lips. Report_Story #2 
+ She couldn't come up with anything to do but stare in shocked silence as the unknown lifeguard in front of her pulled down his pants, revealing a thick, throbbing cock. He was grinning down at her, sprawled across the bed on her hands and knees, as he slowly inched forward until the tip of his meat was inches from her lips.  
 
  
 
@@ -3814,7 +3814,7 @@
 
  Her vision was completely cut off by the bucking hips in front of her, but Trisha felt two hands grab each of her wrists, raising her empty hands off the bedspread. Confused, the girl tried to turn her head to see, but she couldn't fight against the hands buried in her hair, keeping her steady. A second later, though, she felt both her hands guided towards hot, hard flesh, and she quickly understood. Blindly, still gulping down the dick in her mouth, the cheerleader wrapped her fingers around the two anonymous cocks, and began to slide up and down, jacking them off. 
 
- Dan let out a loud whoop, rising above Trisha's muffled moans and the grunts of the rest of the room. Trisha had fulfilled her role as a slut more than he could have ever imagined. The young cheerleader was servicing four cocks at the same time &ndash; one plowing into her soft cunt, one roughly pumping in and out of her mouth, and now two more in her hands, two that she couldn't even see as she slid her fingers up and down their lengths. Her bare, spread legs reared back in forth in the air with the motion of the bed, the shoelaces of her tennis shoes flopping against her ankles. Her arms were stiff in the air too, as she did her best to jack off the two cocks she couldn't see. All the while, Trisha could only think of the feeling of the hard shaft in her twat, pumping so hard and deep, filling her little canal, like a filthy slut deserved. This is so dirty!The cheerleader let out a loud, muffled moan as the thought raced through her head. I'm getting off four guys at once! Four guys I don't even know! Report_Story #3 
+ Dan let out a loud whoop, rising above Trisha's muffled moans and the grunts of the rest of the room. Trisha had fulfilled her role as a slut more than he could have ever imagined. The young cheerleader was servicing four cocks at the same time &ndash; one plowing into her soft cunt, one roughly pumping in and out of her mouth, and now two more in her hands, two that she couldn't even see as she slid her fingers up and down their lengths. Her bare, spread legs reared back in forth in the air with the motion of the bed, the shoelaces of her tennis shoes flopping against her ankles. Her arms were stiff in the air too, as she did her best to jack off the two cocks she couldn't see. All the while, Trisha could only think of the feeling of the hard shaft in her twat, pumping so hard and deep, filling her little canal, like a filthy slut deserved. This is so dirty!The cheerleader let out a loud, muffled moan as the thought raced through her head. I'm getting off four guys at once! Four guys I don't even know!  
 
  
 
@@ -3904,7 +3904,7 @@
 
  The lifeguard's hands were still around Trisha's ankles, pushing them as far over her body as he could, her bare legs hoisted over her body, so far that her feet were nearly touching the mattress near her head. The movement rolled the cheerleader's ass up to expose her twat completely to Dan, and now she grabbed her own legs around the backs of her knees and spread them further, showing off her cheerleading flexibility and spreading herself as wide as she could for Dan to thrust inside of her. His cock felt like it was stuffing her entire body full, pumping deep into her pussy, through her chest, spearing all the way into her head, frazzled and wild with lust. Ohhh…he's so powerful! So rough! 
 
- "Yesss! Ohhhhh Dan! Yes!!!" Her eyes still closed, Trisha's screams echoed through the room. A moment later, she felt Dan's hands leave her ankles, but she kept her own hands around her knees, hoisting her legs over her body, spreading them for Dan, swinging back and forth with the force of his pumps. Then, she felt his fingers groping at her thin, tight cheerleaders' blouse, even as he continued to thrust and pound into her swollen cunt. A second later, he had ripped it open, revealing the cheerleader's gorgeous tits, swaying with the motion of his fucking in her bra. Dan yanked the cups down her chest, and a second later, Trisha felt his firm hands on her naked breasts, squeezing gently, enjoying the feel of her soft skin, his palm against her hard excited nipples, sending sizzles of joy through her chest. The lifeguard grabbed hold of the two generous handfuls, and kept his grip as he began to pump even more ferociously into her, throwing the cheerleader's petite body back and forth on the bed, sending her into a wild frenzy of squeals and screams. Report_Story #4 
+ "Yesss! Ohhhhh Dan! Yes!!!" Her eyes still closed, Trisha's screams echoed through the room. A moment later, she felt Dan's hands leave her ankles, but she kept her own hands around her knees, hoisting her legs over her body, spreading them for Dan, swinging back and forth with the force of his pumps. Then, she felt his fingers groping at her thin, tight cheerleaders' blouse, even as he continued to thrust and pound into her swollen cunt. A second later, he had ripped it open, revealing the cheerleader's gorgeous tits, swaying with the motion of his fucking in her bra. Dan yanked the cups down her chest, and a second later, Trisha felt his firm hands on her naked breasts, squeezing gently, enjoying the feel of her soft skin, his palm against her hard excited nipples, sending sizzles of joy through her chest. The lifeguard grabbed hold of the two generous handfuls, and kept his grip as he began to pump even more ferociously into her, throwing the cheerleader's petite body back and forth on the bed, sending her into a wild frenzy of squeals and screams.  
 
  
 
@@ -3972,7 +3972,7 @@
 
  "Clean yourself up Trisha. It's time to go," he said, without waiting for a response. 
 
- He tossed her a handtowel. Trisha caught it, still staring in the mirror. She took one more thoughtful glance at her face &ndash; sweaty, flushed, dripping and covered in cum &ndash; before finally closing her eyes and running the towel over herself. Report_Story #1 
+ He tossed her a handtowel. Trisha caught it, still staring in the mirror. She took one more thoughtful glance at her face &ndash; sweaty, flushed, dripping and covered in cum &ndash; before finally closing her eyes and running the towel over herself.  
 
  
 
@@ -4080,7 +4080,7 @@
 
  "Ugggh!" Dan's groans were no longer words, only expressions of lust, and his fingers on her cunt were now rubbing faster, an expression of his own excitement, sending the cheerleader's hips into an eager frenzy on the seat, bucking and rocking against his arm. Trisha was moaning too, lost in her pleasure, her petite body gently swaying back and forth in her pleasure, her fingernails digging into Dan's thigh, her toes curling in their heels, all the while as she slurped and gulped at the lifeguard's cock, stuffed balls-deep into her mouth. She was working as fast as she could now, gurgling loudly as her head bounced up and down in his lap, moaning in her efforts, relishing the feeling of his thickness prodding and spearing into her mouth, the taste of his hard rod, stretching her cheeks and pressing into her tongue. 
 
- A few seconds later, Trisha was out of breath again, and she quickly lifted herself back up his cock, feeling it slide back out of her throat. But just then, Dan's hand gripped the back of her head hard, and she felt him shoving her back down into her lap, her eyes popping wide open with surprise as his slobber-coated cock plunged into her mouth. The petite cheerleader could feel him, turgid and thick against her tongue, throbbing with his lust for her, so deep that she could feel each pulse bursting through his cock in her mouth. She knew what was next. Report_Story #2 
+ A few seconds later, Trisha was out of breath again, and she quickly lifted herself back up his cock, feeling it slide back out of her throat. But just then, Dan's hand gripped the back of her head hard, and she felt him shoving her back down into her lap, her eyes popping wide open with surprise as his slobber-coated cock plunged into her mouth. The petite cheerleader could feel him, turgid and thick against her tongue, throbbing with his lust for her, so deep that she could feel each pulse bursting through his cock in her mouth. She knew what was next.  
 
  
 
@@ -4146,7 +4146,7 @@
 
  The cheerleader's cheeks blushed fiercely as she stared back at the boy who had caught her, and she felt a rush of embarrassment. She had to stop! Quickly, she told herself to take her hand away, to get a hold of herself. 
 
- But for some reason, her hand wouldn't listen. Her pleasure was rushing through her in waves, through her trembling legs and her rigid, slender back, running across her hips and radiating through her skin. Her lust had taken over her body, and it was like it was separated from her mind now, like her pussy had some kind of power over her hand, forcing it to massage into her aching flesh even as she tried her best to pull her arm away. Stop it, Trisha! Stop it!Over and over she told herself, but her body wouldn't listen to her. So she stayed exactly as she was, staring straight back at the boy as she continued to finger herself, her hips rocking in her seat, her hand buried in her lap, massaging her twat, the fabric of her dress sliding across her thighs as she rubbed up and down her cunt. Report_Story #3 
+ But for some reason, her hand wouldn't listen. Her pleasure was rushing through her in waves, through her trembling legs and her rigid, slender back, running across her hips and radiating through her skin. Her lust had taken over her body, and it was like it was separated from her mind now, like her pussy had some kind of power over her hand, forcing it to massage into her aching flesh even as she tried her best to pull her arm away. Stop it, Trisha! Stop it!Over and over she told herself, but her body wouldn't listen to her. So she stayed exactly as she was, staring straight back at the boy as she continued to finger herself, her hips rocking in her seat, her hand buried in her lap, massaging her twat, the fabric of her dress sliding across her thighs as she rubbed up and down her cunt.  
 
  
 
@@ -4242,7 +4242,7 @@
 
  The cheerleader felt his entire body stiffen, his balls tense, his cock throbbing as he pumped her twat hard, as she bounced and thrashed on his lap. He was swelling even more inside of her, filling her sopping, swollen cunt, and Trisha knew what was next. 
 
- "YES! Yes, please!" she screamed out, begging and pleading for his climax. All Steve saw was the petite cheerleader, eyes closed, rocking against his dick, with her arms wrapped around his neck, her legs straddling him, her back arched and her head thrown back and her naked chest thrust out for him to grope her soft tits. But he didn't know that she was lost in imagining that Dan was the one fucking her, hard and rough, the full length of his thick, pulsing cock plunging into her tight cunt, each thrust so powerful that it burst through her entire trembling body. Trisha relished the thought in her mind, of his hard pumps and thrusts rocking the entire car back and forth for everyone to see, of her bouncing so eagerly, so wildly on top of him that her dainty body was thrown into the steering wheel, the dashboard, the car's roof. Her hair was flying everywhere; her screams were echoing across the parking lot. Report_Story #4 
+ "YES! Yes, please!" she screamed out, begging and pleading for his climax. All Steve saw was the petite cheerleader, eyes closed, rocking against his dick, with her arms wrapped around his neck, her legs straddling him, her back arched and her head thrown back and her naked chest thrust out for him to grope her soft tits. But he didn't know that she was lost in imagining that Dan was the one fucking her, hard and rough, the full length of his thick, pulsing cock plunging into her tight cunt, each thrust so powerful that it burst through her entire trembling body. Trisha relished the thought in her mind, of his hard pumps and thrusts rocking the entire car back and forth for everyone to see, of her bouncing so eagerly, so wildly on top of him that her dainty body was thrown into the steering wheel, the dashboard, the car's roof. Her hair was flying everywhere; her screams were echoing across the parking lot.  
 
  
 
@@ -4368,7 +4368,7 @@
 
  "Of course!" Mandy's face brightened even more; she looked excited at the chance to be more useful. 
 
- "Well...okay," Trisha said, as the two cheerleaders walked out the classroom. "It's about this guy named Dan..." Report_Story #1 
+ "Well...okay," Trisha said, as the two cheerleaders walked out the classroom. "It's about this guy named Dan..."  
 
  
 
@@ -4502,7 +4502,7 @@
 
  Each of his words rushed through Trisha's body, fueling her excitement, making her chest rise with eagerness. She wanted to say something back, to respond to his groans with her own dirty talk, but of course her mouth was full with his cock, plunging deep between her soft lips and against her tongue. So instead the cheerleader only let out a muffled moan of her own. Her pouty face was focused only on his cock, her cheeks hungrily puckered, her lips tight and engaged, her eyes bright and excited. She leaned forward and placed her hands back on the wall, supporting herself as she eagerly began to jam her face against the hole, her lips skimming down the shaft, stuffing her mouth full of his cock, feeling the tip of his meat press against her throat. 
 
- But Trisha didn't stop there. Taking a deep breath, the cheerleader leaned forward, and gently let the cock slide down her throat, pressing the shaft deep into her stretched, plump lips. The loud, wild groan that rang through the wall only urged her further, and Trisha pushed her face against the wall, gulping and slurping hungrily, taking the cock deeper and deeper, stuffing her mouth as full as she could. Then, all of a sudden, the cheerleader felt her lips press against the cold surface of the wall, forming a suction around the hole. She had pushed the cock so deep into her mouth and down her throat that her face was now jammed against the wall, her nose squashed against the cold surface, her lips plunging as far as they possibly could down the thick cock, now sucking and slurping around the edges of the hole. Report_Story #2 
+ But Trisha didn't stop there. Taking a deep breath, the cheerleader leaned forward, and gently let the cock slide down her throat, pressing the shaft deep into her stretched, plump lips. The loud, wild groan that rang through the wall only urged her further, and Trisha pushed her face against the wall, gulping and slurping hungrily, taking the cock deeper and deeper, stuffing her mouth as full as she could. Then, all of a sudden, the cheerleader felt her lips press against the cold surface of the wall, forming a suction around the hole. She had pushed the cock so deep into her mouth and down her throat that her face was now jammed against the wall, her nose squashed against the cold surface, her lips plunging as far as they possibly could down the thick cock, now sucking and slurping around the edges of the hole.  
 
  
 
@@ -4638,7 +4638,7 @@
 
  Now it was Trisha's turn to blush, and she gave a sly smile. "I don't know...practice, maybe. I'm sure you could do the same with a little work." 
 
- Mandy shook her head, her blonde hair flying across her flushed face. "No way, Trisha! That was amazing! I really don't know –" Report_Story #3 
+ Mandy shook her head, her blonde hair flying across her flushed face. "No way, Trisha! That was amazing! I really don't know –"  
 
  
 
@@ -4760,7 +4760,7 @@
 
  "Oh, no!" The blonde's hand went to her mouth as she stared down at her phone. "Trish, it's almost six! I have to meet Jon for dinner in half an hour!" Mandy quickly scampered to her feet, smoothing out her blouse, wiping the drying drool off her chin. Then she hurried out of the room, heading for Trisha's car. 
 
- Trisha quickly slipped her own bra and tank top back over her chest, struggling for a moment to fit her ample tits into the cups, and to rearrange the plunging neckline so that they didn't poke out for everyone to see. Then she followed Mandy out the door, her heels clicking on the floor. Report_Story #4 
+ Trisha quickly slipped her own bra and tank top back over her chest, struggling for a moment to fit her ample tits into the cups, and to rearrange the plunging neckline so that they didn't poke out for everyone to see. Then she followed Mandy out the door, her heels clicking on the floor.  
 
  
 
@@ -4774,7 +4774,7 @@
 
  I just called Mandy "hun!" That's Britney's word! I've never said that before!Trisha blinked, then hurried after Mandy into the parking lot. Weird! Am I starting to talk like Britney? 
 
- The cheerleader sighed. Britney... Mandy was right; Trisha was a good girl, and a good friend, and that meant she had to tell the head cheerleader, even if it made her feel terrible, even if it meant getting into a fight. It was the right thing to do! Trisha nodded to herself as the two girls climbed into her car. It's the right thing to do, and I'm going to do it! Report_Story #1 
+ The cheerleader sighed. Britney... Mandy was right; Trisha was a good girl, and a good friend, and that meant she had to tell the head cheerleader, even if it made her feel terrible, even if it meant getting into a fight. It was the right thing to do! Trisha nodded to herself as the two girls climbed into her car. It's the right thing to do, and I'm going to do it!  
 
  
 
@@ -4938,7 +4938,7 @@
 
  There was another pause on the phone; Dan was taken aback. Then his voice came through, thrilled and eager. "I hear you, my slut. Come over soon." 
 
- Trisha hung up, staring at herself in the mirror. She would need to shower, and do her makeup, and find a good outfit to wear. Even her reflection looked angry. I can't believe Britney! That…that bitch! And I thought she was just being sweet and forgiving…but really, it was just because she was going behind my back just like I was going behind hers!Trisha furiously tossed her hair, examining her petite, slender body in the reflection, her slim legs, her pouty face and brown eyes(narrowed now in anger), her perky tits riding high on her dainty chest. Now she cupped them and squeezed, examining the way they bulged and plumped together. Well…two can play at this game! Report_Story #2 
+ Trisha hung up, staring at herself in the mirror. She would need to shower, and do her makeup, and find a good outfit to wear. Even her reflection looked angry. I can't believe Britney! That…that bitch! And I thought she was just being sweet and forgiving…but really, it was just because she was going behind my back just like I was going behind hers!Trisha furiously tossed her hair, examining her petite, slender body in the reflection, her slim legs, her pouty face and brown eyes(narrowed now in anger), her perky tits riding high on her dainty chest. Now she cupped them and squeezed, examining the way they bulged and plumped together. Well…two can play at this game!  
 
  
 
@@ -5028,7 +5028,7 @@
 
  Then, Trisha heard a metallic sound. The man who had sliced her dress in two had tossed the scissors aside. He was still standing at Trisha's side, nearly shoulder to shoulder with Dan, and now the cheerleader saw he was unzipping his fly, sliding a hand inside his pants to pull out his rapidly hardening cock. The rest of the room came to life with motion, as the group hurried forward, climbing over couches and pushing aside chairs, closing in on the kneeling cheerleader like a pack of wolves. Before she even knew what was happening, Trisha could feel them all around her, forming a tight circle of eager bodies, standing and towering over her. The circle was so tight that the cheerleader could barely lean one direction or another without running into someone's knees &ndash; even now, as Trisha sat still, slurping down Dan's cock, she could feel bodies on either side of her, and behind her too, jeans legs just inches from brushing her back and her handcuffed wrists, shoes nearly touching the backs of her upturned high heels. And one by one, they were all undoing their zippers, pulling out their cocks, ready for her. 
 
- The man who had the scissors was closest to Trisha's face, and he was now edging forward, his hard cock poking out from his fly, the throbbing tip barely an inch from Trisha's right cheek, and at the same time, Dan's hands loosened from around the cheerleader's neck, freeing her. Before she realized what she was doing, the petite girl obediently slipped Dan's cock out of her mouth and turned to her right, popping the stranger's meat into her mouth without a word, sinking him between her slobbery soft lips, coating him with her drool. It was only when he let out a loud groan of approval that Trisha's eyes widened and she realized what she was doing. Not even a second of hesitation…the cheerleader thought. I'm sucking a complete stranger's cock, and I didn't even have to think about it! I didn't even pause for a second! Report_Story #3 
+ The man who had the scissors was closest to Trisha's face, and he was now edging forward, his hard cock poking out from his fly, the throbbing tip barely an inch from Trisha's right cheek, and at the same time, Dan's hands loosened from around the cheerleader's neck, freeing her. Before she realized what she was doing, the petite girl obediently slipped Dan's cock out of her mouth and turned to her right, popping the stranger's meat into her mouth without a word, sinking him between her slobbery soft lips, coating him with her drool. It was only when he let out a loud groan of approval that Trisha's eyes widened and she realized what she was doing. Not even a second of hesitation…the cheerleader thought. I'm sucking a complete stranger's cock, and I didn't even have to think about it! I didn't even pause for a second!  
 
  
 
@@ -5120,7 +5120,7 @@
 
  "Oooohh!" 
 
- "Uhhh!!" The man's groan was even louder this time, and his pace quickened in response to the cheerleader's cry of pleasure, driving his meat hard into her cunt, filling her body with hot, delicious shocks of lust. The cheerleader could feel her back arching and her hips rocking, her body working to meet his hips, inviting him deeper and harder into her soft pussy. Report_Story #4 
+ "Uhhh!!" The man's groan was even louder this time, and his pace quickened in response to the cheerleader's cry of pleasure, driving his meat hard into her cunt, filling her body with hot, delicious shocks of lust. The cheerleader could feel her back arching and her hips rocking, her body working to meet his hips, inviting him deeper and harder into her soft pussy.  
 
  
 
@@ -5220,7 +5220,7 @@
 
  "Oh God!" 
 
- Like a chain reaction, one man's climax led to another. The sight of Trisha squirming and bucking on the table, of the petite cheerleader taking pleasure in getting sprayed with cum was too much. She felt the hands on her face tighten, painful on her cheeks, squeezing her face together. Then, for the second time that night, she felt a cock throb and grow between her lips, filling with cum and jetting it into her mouth, one thick spurt at a time. The cheerleader felt her strained neck muscles struggle as she accepted his load, swallowing each stream as it came. At the same time, she felt the legs on either side of her begin to strain and twitch, and then she felt more hot wads splash across her chest and neck; the man titty-fucking her was cumming too. Report_Story #5 
+ Like a chain reaction, one man's climax led to another. The sight of Trisha squirming and bucking on the table, of the petite cheerleader taking pleasure in getting sprayed with cum was too much. She felt the hands on her face tighten, painful on her cheeks, squeezing her face together. Then, for the second time that night, she felt a cock throb and grow between her lips, filling with cum and jetting it into her mouth, one thick spurt at a time. The cheerleader felt her strained neck muscles struggle as she accepted his load, swallowing each stream as it came. At the same time, she felt the legs on either side of her begin to strain and twitch, and then she felt more hot wads splash across her chest and neck; the man titty-fucking her was cumming too.  
 
  
 
@@ -5328,7 +5328,7 @@
 
  The night was empty. At last Trisha relaxed, and it was then that she stared down at the wad of bills still clenched in her hand. She realized what she had just done. I really am a whore now…I've accepted money for sex. I get off on acting like a slut, on being treated like one…and now I'm a true prostitute. And Dan is my pimp. 
 
- There were so many things to worry about. After all, there was not just the money in her hand, but also how was she going to sneak into her house unnoticed by her parents, naked except for a slutty thong and heels, covered by nothing but the drool on her face and the cum of two strangers? But for some reason, none of that bothered the cheerleader, not just yet. Trisha had just realized that this was the first time since meeting Dan at the beach that she was leaving a night with the lifeguard without a twinge of guilt, without even a thought towards betraying Britney. The only thing she felt now was happiness. It had been so long since she could just fuck a guy without feeling terrible about it afterwards. Trisha grinned to herself. It feels good! Report_Story #1 
+ There were so many things to worry about. After all, there was not just the money in her hand, but also how was she going to sneak into her house unnoticed by her parents, naked except for a slutty thong and heels, covered by nothing but the drool on her face and the cum of two strangers? But for some reason, none of that bothered the cheerleader, not just yet. Trisha had just realized that this was the first time since meeting Dan at the beach that she was leaving a night with the lifeguard without a twinge of guilt, without even a thought towards betraying Britney. The only thing she felt now was happiness. It had been so long since she could just fuck a guy without feeling terrible about it afterwards. Trisha grinned to herself. It feels good!  
 
  
 
@@ -5536,7 +5536,7 @@
 
  "Well, Trisha," he smirked. "Aren't you going to introduce your friend?" 
 
- Trisha turned to look at Mandy, and her heart sank. It was just as she had expected. The blonde's gritty, determined look had been wiped clean and replaced by widened eyes and a frightened expression. She watched as her friend instinctively tried to tug the short miniskirt down over more of her slim thighs, ashamed of her skimpy outfit, trying to cover herself against the leers and grins of all the men in the room. But every bit that she pulled it down only revealed more of her taut stomach, and after a few more tugs the straps of the blonde's thong peeked out of the top. Mandy noticed them instantly, and with a soft gasp she quickly stopped played with her skirt, instead planting her arms straight by her sides, mortified. I tried to warn her!Trisha thought. It's one thing to think about fucking a bunch of guys to get back at someone...but it's totally different to actually be in the room, to see their hungry faces, ready to tear off your clothes... Why didn't she listen to me? Report_Story #2 
+ Trisha turned to look at Mandy, and her heart sank. It was just as she had expected. The blonde's gritty, determined look had been wiped clean and replaced by widened eyes and a frightened expression. She watched as her friend instinctively tried to tug the short miniskirt down over more of her slim thighs, ashamed of her skimpy outfit, trying to cover herself against the leers and grins of all the men in the room. But every bit that she pulled it down only revealed more of her taut stomach, and after a few more tugs the straps of the blonde's thong peeked out of the top. Mandy noticed them instantly, and with a soft gasp she quickly stopped played with her skirt, instead planting her arms straight by her sides, mortified. I tried to warn her!Trisha thought. It's one thing to think about fucking a bunch of guys to get back at someone...but it's totally different to actually be in the room, to see their hungry faces, ready to tear off your clothes... Why didn't she listen to me?  
 
  
 
@@ -5612,7 +5612,7 @@
 
  Trisha gasped. Mandy was loving it! This entire time, she had assumed that Mandy had wanted to leave, that she didn't want any part of this anymore. She had seen Mandy's frightened face and timid fidgeting, she had heard her friend's muffled whimpers of protest, and assumed that she wouldn't want to fuck a group of random strangers. But I guess I was wrong...she was soaking wet the whole time! Her pussy was dripping wet in anticipation...she couldn't wait to be fucked! 
 
- "Oooh...ohh my gosh..." Another soft whisper drifted out of the blonde's open mouth, and now Mandy opened her light blue eyes, watching everyone else watch her. The look in her friend's eyes was mixed, but Trisha recognized it immediately. Mandy was half-ashamed; ashamed at being fucked by a random stranger, with her little body bent forward and her legs spread in the air, ashamed of the fact that a dozen other strangers were watching her get pounded. But she was also excited by the same things, at the feeling of being on display, the feeling of freely being so nasty and wild in front of everyone. Report_Story #3 
+ "Oooh...ohh my gosh..." Another soft whisper drifted out of the blonde's open mouth, and now Mandy opened her light blue eyes, watching everyone else watch her. The look in her friend's eyes was mixed, but Trisha recognized it immediately. Mandy was half-ashamed; ashamed at being fucked by a random stranger, with her little body bent forward and her legs spread in the air, ashamed of the fact that a dozen other strangers were watching her get pounded. But she was also excited by the same things, at the feeling of being on display, the feeling of freely being so nasty and wild in front of everyone.  
 
  
 
@@ -5680,7 +5680,7 @@
 
  Now, rocking back and forth on her high heels, Trisha licked her lips once more, tasting the residue of Mandy's pussy juices; the evidence of Mandy's filthy, carnal pleasure, transported from her sopping cunt to Trisha's waiting mouth on a stranger's hard cock. The dainty cheerleader carefully kept her grip on the thighs of the man behind her, bending over at the waist to give him a better angle, holding on to keep herself from tipping forward as each thrust of his cock sent her little body reeling forward. She could hear his harsh grunts and groans as he drilled into her, his hands tight around her slim waist, pushing her down, keeping her bent forward as she swung back and forth, her long hair dangling. He was panting with the effort of pounding the young cheerleader, his entire body thrown into his strong, thick thrusts into Trisha's twat, his breathing heavy with lust and desire. The entire room was soaked and filled with carnal pleasure. Trisha's and Mandy's wails and cries mixed with the grunting of the men pounding into them, the four bodies moving in rhythm, two cocks powering into two whimpering cheerleaders. Now, Trisha glanced around to see the faces of all the men watching them. She could see the lust shared in each one of their expressions, eyes darting back and forth between the slim blonde and the perky brunette, hypnotized by the two young sluts. They couldn't decide who was a sexier sight; the dainty schoolgirl blonde, with her little leg thrown over one man's shoulder as she grinded against him, or the pouty-faced brunette, with her firm tits thrust out of her yanked-down dress, her thong still stretched between her spread legs as she rocked back and forth on her high heels. 
 
- "Oooh...yes!" "Ohh...Ohh!" Trisha and Mandy were insatiable, crying out for more. Trisha felt her body radiating and tingling with pleasure, delighting in the feeling of being on display, of being taken and used as just a piece of meat, as nothing but a pussy to be ravished over and over. And sharing this feeling with someone else...it just makes the whole thing better!A shudder of joy wracked Trisha's slender figure as she felt the cock plunge into her cunt, thick and pulsing, hard and hot in her sopping twat, so huge that the cheerleader thought she would burst. Hands tightened around her slim waist as the man's grunts grew louder and more fierce, and Trisha let out a yelp and tightened her grip on his thighs as the thrusts grew even more savage. He was sending her flailing back and forth on her heels as he pounded her, his cock throbbing with his lust, using Trisha's tight pussy with as much strength as he could muster. Report_Story #4 
+ "Oooh...yes!" "Ohh...Ohh!" Trisha and Mandy were insatiable, crying out for more. Trisha felt her body radiating and tingling with pleasure, delighting in the feeling of being on display, of being taken and used as just a piece of meat, as nothing but a pussy to be ravished over and over. And sharing this feeling with someone else...it just makes the whole thing better!A shudder of joy wracked Trisha's slender figure as she felt the cock plunge into her cunt, thick and pulsing, hard and hot in her sopping twat, so huge that the cheerleader thought she would burst. Hands tightened around her slim waist as the man's grunts grew louder and more fierce, and Trisha let out a yelp and tightened her grip on his thighs as the thrusts grew even more savage. He was sending her flailing back and forth on her heels as he pounded her, his cock throbbing with his lust, using Trisha's tight pussy with as much strength as he could muster.  
 
  
 
@@ -5782,7 +5782,7 @@
 
  "Ohh...Dan..." Trisha breathed, panting now in lust. Bent over like she was, Trisha's face was nearly level with his cock, and she could see that it was still glistening with Mandy's juices, and that one extra dribble of cum had slipped out of his tip, staring to run down the shaft. Like a starving animal, Trisha eagerly strained forward, slipping the tip of his meat into her lips. Dan chuckled and stepped forward, burying more of his shaft in the young brunette's mouth as he gently began to rub her clit. Trisha's entire body shuddered as her tongue tingled with the taste of Dan's cock and his cum, and the now-familiar flavor of Mandy's pussy. 
 
- Whoops and cheers echoed through the room as they watched Trisha, whimpering and bucking eagerly as two cocks slid into her. Yes! Ooooh YES!The cheerleader imagined the sight in front of them: a petite brunette, barely five feet tall, standing and straining in her heels, bent over at the waist so far that she was face-level with Dan's cock. Her dress was still bunched around her waist, her thong taut between her knees as she spread her slender legs as wide as she could. And two cocks were buried in the cheerleader; one balls-deep in her cunt, filling her with hot cum, the other deep in her drool-coated lips. Ohhh...just think about all those cocks that pumped their jism down my throat...all those loads of cum swishing around in my stomach! Report_Story #5 
+ Whoops and cheers echoed through the room as they watched Trisha, whimpering and bucking eagerly as two cocks slid into her. Yes! Ooooh YES!The cheerleader imagined the sight in front of them: a petite brunette, barely five feet tall, standing and straining in her heels, bent over at the waist so far that she was face-level with Dan's cock. Her dress was still bunched around her waist, her thong taut between her knees as she spread her slender legs as wide as she could. And two cocks were buried in the cheerleader; one balls-deep in her cunt, filling her with hot cum, the other deep in her drool-coated lips. Ohhh...just think about all those cocks that pumped their jism down my throat...all those loads of cum swishing around in my stomach!  
 
  
 
@@ -5832,7 +5832,7 @@
 
  "I don't know," he said, finally. "I can't choose." 
 
- Trisha's heart sank. He...he won't decide?At last, she turned to look at Mandy. He doesn't prefer me...over her? Report_Story #1 
+ Trisha's heart sank. He...he won't decide?At last, she turned to look at Mandy. He doesn't prefer me...over her?  
 
  
 
@@ -5940,7 +5940,7 @@
 
  The lifeguard smirked, and now he gently inserted a second finger into the petite girl's twat, pumping her soft mound. Instantly, Mandy shuddered and let out a yelp, her body eagerly bucking against his hand by instinct. Trisha could see her hand tightening around his wrist, her eyes tightly shut and her cheeks twitching in pleasure. 
 
- "You look so fucking fine, Mandy…" Dan whispered. He was staring down at the cheerleader, her dainty chest heaving as she whimpered in pleasure, breathing so hard that Trisha could see her friend's skimpy cheerleading blouse sliding up and down on her slim frame. Her miniskirt dangled around her slim hips, barely reaching the bottom of her tight butt, her slender legs rigid and straining. "You're a naughty girl, aren't you?" Report_Story #2 
+ "You look so fucking fine, Mandy…" Dan whispered. He was staring down at the cheerleader, her dainty chest heaving as she whimpered in pleasure, breathing so hard that Trisha could see her friend's skimpy cheerleading blouse sliding up and down on her slim frame. Her miniskirt dangled around her slim hips, barely reaching the bottom of her tight butt, her slender legs rigid and straining. "You're a naughty girl, aren't you?"  
 
  
 
@@ -6056,7 +6056,7 @@
 
  Still breathing hard, Trisha felt both hands sneaking down her petite body, running over her curvy chest, past her skimpy cheerleading blouse and across her uncovered, smooth stomach. One hand tightened around the pleats of her miniskirt, gently raising them up, scrunching them over her hips, and the other one slid further down, between her hips, eagerly moving towards her wet, soft pussy. It's not fair…oh God…his cock inside of me would feel so good right now…stuffing me…stretching me…plunging into me! 
 
- She couldn't wait anymore. Trisha let out a soft gasp as her fingers found her aching cunt, and she spread her pussy lips and gently slipped one finger in, her hips gently shuddering as she did it. It felt so good inside of her &ndash; something hard and stiff in her tender twat…but it wasn't enough. It's nothing compared to what Mandy was taking…Dan wasn't holding back!The cheerleader was too impatient, and in the next second she had added a second finger, desperately giving in to her pussy's demands, trying to fill up her achingly empty canal. And he wouldn't hold back with me either…he would pump and pound and violate me! He'd take my little cunt and work it hard! Report_Story #3 
+ She couldn't wait anymore. Trisha let out a soft gasp as her fingers found her aching cunt, and she spread her pussy lips and gently slipped one finger in, her hips gently shuddering as she did it. It felt so good inside of her &ndash; something hard and stiff in her tender twat…but it wasn't enough. It's nothing compared to what Mandy was taking…Dan wasn't holding back!The cheerleader was too impatient, and in the next second she had added a second finger, desperately giving in to her pussy's demands, trying to fill up her achingly empty canal. And he wouldn't hold back with me either…he would pump and pound and violate me! He'd take my little cunt and work it hard!  
 
  
 
@@ -6130,7 +6130,7 @@
 
  Mandy may be banging a lifeguard in a locker room….but I'm blowing the janitor at my own high school….in broad daylight! Forget Dan! I can get any cock I want &ndash; like Mr. Jackson's &ndash; without even saying a word to him! 
 
- Trisha was wild and frenzied with carnal desire, and now the cheerleader told herself that it wasn't Mr. Jackson in particular &ndash; she was so slutty that she would have shoved any man's cock into her mouth at this point. He just happened to be the first man that walked by…the first lucky guy to spot the horny slut, sitting in her car masturbating…waiting to service a stranger! Report_Story #4 
+ Trisha was wild and frenzied with carnal desire, and now the cheerleader told herself that it wasn't Mr. Jackson in particular &ndash; she was so slutty that she would have shoved any man's cock into her mouth at this point. He just happened to be the first man that walked by…the first lucky guy to spot the horny slut, sitting in her car masturbating…waiting to service a stranger!  
 
  
 
@@ -6222,7 +6222,7 @@
 
  "AH….AHHHH!!" 
 
- The cheerleader wailed and quivered in her car, her twat spasming, her clit throbbing, her body thrashing and grinding furiously against Mr. Jackson's hips as she climaxed. Her knees were wobbling on her seat cushion, her arm tense as she kept her fingers wrapped around the nub of her clit, her supple chest heaving in the janitor's hands. Trisha couldn't even think anymore. She was overwhelmed with pleasure, the spasms of pleasure in her twat taking over the rest of her little body, and all she could do was tremble and buck, gasping for breath as she orgasmed. Report_Story #5 
+ The cheerleader wailed and quivered in her car, her twat spasming, her clit throbbing, her body thrashing and grinding furiously against Mr. Jackson's hips as she climaxed. Her knees were wobbling on her seat cushion, her arm tense as she kept her fingers wrapped around the nub of her clit, her supple chest heaving in the janitor's hands. Trisha couldn't even think anymore. She was overwhelmed with pleasure, the spasms of pleasure in her twat taking over the rest of her little body, and all she could do was tremble and buck, gasping for breath as she orgasmed.  
 
  
 
@@ -6240,7 +6240,7 @@
 
  Trisha grinned as she righted herself, gently slipping her body back into the driver's seat, arranging her miniskirt and pulling the little tank top as far down her body as it would go. She was about to start the car when she realized that her thong was still stretched around her thighs; with her pussy still full of Mr. Jackson's cum, she would probably leave a permanent stain on the seat. 
 
- Oh well!Trisha giggled to herself, then started the car. Mr. Jackson was still standing in the middle of the parking lot, unable to take his eyes off the young brunette, now sitting properly in her car. Anyone who saw her then would think she was just another eighteen-year-old, cute and sweet and innocent. With a wink and a wave at the janitor, the cheerleader shifted into drive and started home. Report_Story #1 
+ Oh well!Trisha giggled to herself, then started the car. Mr. Jackson was still standing in the middle of the parking lot, unable to take his eyes off the young brunette, now sitting properly in her car. Anyone who saw her then would think she was just another eighteen-year-old, cute and sweet and innocent. With a wink and a wave at the janitor, the cheerleader shifted into drive and started home.  
 
  
 
@@ -6388,7 +6388,7 @@
 
  "Wh...what's going on?" Trisha asked nervously. Britney's always like this...she loves surprises! And the worst part is I have absolutely no idea what she's planning. 
 
- "Just want to make sure we're alone," Britney replied, grinning. The head cheerleader turned to face the mirror above the sinks, and Trisha followed her lead, turning to stare at the two high school girls in the glass. Even though she had been friends with Britney for almost a year, Trisha was always amazed at the contrast between them. Her reflection in the mirror was a short, petite brunette, looking young even for a teenager in high school, her wavy brown hair dangling down her slim shoulders and framing her pouty face and big brown eyes. Trisha's slender frame went perfectly with her dress, looking even more tight and perky than usual. The dainty cheerleader was such a contrast to Britney; tall and statuesque, her long, slim legs stretched out from under her ruby-red dress, and her impressive chest burst out from her model-measurement frame. Now, the head cheerleader brushed a strand of curly blonde hair away from her face, and turned to grin down at Trisha. Report_Story #2 
+ "Just want to make sure we're alone," Britney replied, grinning. The head cheerleader turned to face the mirror above the sinks, and Trisha followed her lead, turning to stare at the two high school girls in the glass. Even though she had been friends with Britney for almost a year, Trisha was always amazed at the contrast between them. Her reflection in the mirror was a short, petite brunette, looking young even for a teenager in high school, her wavy brown hair dangling down her slim shoulders and framing her pouty face and big brown eyes. Trisha's slender frame went perfectly with her dress, looking even more tight and perky than usual. The dainty cheerleader was such a contrast to Britney; tall and statuesque, her long, slim legs stretched out from under her ruby-red dress, and her impressive chest burst out from her model-measurement frame. Now, the head cheerleader brushed a strand of curly blonde hair away from her face, and turned to grin down at Trisha.  
 
  
 
@@ -6508,7 +6508,7 @@
 
  But it was no use. Trisha felt her fingers tightening around the edges of her chair, her hips shifting as the petite cheerleader gently, unconsciously began to spread her legs slightly on her seat. That dildo was stuffed so deep in her pussy, buried in her tight, teenage body, pulsing and jolting. Trisha couldn't deny it; it felt so good, gently pressing into her cunt, the vibrations massaging her tender, eager flesh, making her so completely aware of how full her little pussy was. She could feel the lust slowly rising in her body, the pleasure taking over bit by bit. Her breathing was starting to quicken, her heart thumping in her chest. Ohh...ohh God...The vibrator was so wonderful, and now her entire body was aching for more; her pussy growing wet, her legs desperately edging further apart, her toes curling in her kitten heels as her feet dangled off her chair. She was still staring out into the audience, but the young brunette wasn't looking at them. All she could think about was that dildo, so thick and hard, so firm and deep inside of her. 
 
- Suddenly, the girl next to her was leaning to whisper in her ear. "Geez...can you believe this sun! It's so hot! Why do we have to be outside?" Report_Story #3 
+ Suddenly, the girl next to her was leaning to whisper in her ear. "Geez...can you believe this sun! It's so hot! Why do we have to be outside?"  
 
  
 
@@ -6600,7 +6600,7 @@
 
  The other two men were still standing next to them, and now each of them were gently jerking off their rock-hard dicks. Trisha felt a thrill run through her at the sight of it; she could see their lust throbbing in their shafts, masturbating at the sight of them because their desire was too much to contain, their carnal hunger deep in their faces and their eyes. Now, one man stepped forward and kneeled down next to Trisha, admiring the little brunette's slender, tight body as she rocked back and forth, slurping hungrily on his friend's cock. 
 
- Trisha was still gulping and sucking when she felt his hands slide around her slim figure, fumbling for the zipper of her graduation gown. With one smooth motion he quickly pulled the gown off, letting the fabric sink to the ground, useless. Now both cheerleaders were on display, kneeling in the grass, their graduation gowns tossed on the field. Britney's gorgeous, round tits jiggled and danced as she bobbed back and forth, her blonde hair cascading across her shoulders, her mouth working hard as she serviced her man. Next to her, perky little Trisha was gently rocking back and forth as she slurped, her slender hips wiggling and straining forward. Her dress hugged her slim frame, the neckline dipping low enough to display her firm chest, the skirt riding up enough to show off her dainty, smooth legs as she kneeled in the grass. Report_Story #4 
+ Trisha was still gulping and sucking when she felt his hands slide around her slim figure, fumbling for the zipper of her graduation gown. With one smooth motion he quickly pulled the gown off, letting the fabric sink to the ground, useless. Now both cheerleaders were on display, kneeling in the grass, their graduation gowns tossed on the field. Britney's gorgeous, round tits jiggled and danced as she bobbed back and forth, her blonde hair cascading across her shoulders, her mouth working hard as she serviced her man. Next to her, perky little Trisha was gently rocking back and forth as she slurped, her slender hips wiggling and straining forward. Her dress hugged her slim frame, the neckline dipping low enough to display her firm chest, the skirt riding up enough to show off her dainty, smooth legs as she kneeled in the grass.  
 
  
 
@@ -6716,7 +6716,7 @@
 
  "How's she feel, man?" Trisha heard Kenny say, his breathing harsh as he grinded into Britney. 
 
- "Oh fuck..." Eric's reply came back just as breathless, panting from the effort of driving his cock into Trisha's little body. "Her snatch is so tight, man...she's like a fucking glove! How's your bitch?" Report_Story #5 
+ "Oh fuck..." Eric's reply came back just as breathless, panting from the effort of driving his cock into Trisha's little body. "Her snatch is so tight, man...she's like a fucking glove! How's your bitch?"  
 
  
 
@@ -6824,7 +6824,7 @@
 
  "Ohhh...I...ah...I can't hold it!!" 
 
- Ohhh!!!Suddenly, Trisha wrenched her head back up out of the dirt, and she screamed out a wild reply at the top of her lungs. "YESS! Cum in me!!! Cum, now! Please!!" Report_Story #6 
+ Ohhh!!!Suddenly, Trisha wrenched her head back up out of the dirt, and she screamed out a wild reply at the top of her lungs. "YESS! Cum in me!!! Cum, now! Please!!"  
 
  
 

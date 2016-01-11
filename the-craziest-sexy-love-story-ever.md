@@ -268,7 +268,7 @@
 
  At lunch, I hung with my best friends and my girlfriend Karen and it wasn't until I saw Beth walking by that I remembered Derrick's words of going to save a load for her later. Was Derrick fucking Beth? He didn't seem to be much of a bluffer so I assumed it was true, yet Beth was in all advanced academic classes, already accepted to some elite music program on a all paid scholarship and not one to be seen at parties. It seemed so unlikely that Derrick and Beth would ever cross paths never mind get to know each other enough to end up fucking. 
 
- Beth was cute like Mandy Moore playing Jamie in 'A Walk to Remember' which was sort of why she dressed plain, always in long skirts and old fashioned blouses although she always wore pantyhose which I had noticed, it was/still is, my fetish. She often inadvertently seemed to tease me by sliding her stocking clad feet in and out of her flats all throughout class. Karen never wore nylons other than with her cheerleading uniform and thus Beth was often the one I fantasized about while under the sheets alone. The more I thought about it the more ludicrous it seemed that Derrick would be fucking her, yet it wasn't any more ludicrous than the fact that he was using Coach as his personal cocksucker. Report_Story #2 
+ Beth was cute like Mandy Moore playing Jamie in 'A Walk to Remember' which was sort of why she dressed plain, always in long skirts and old fashioned blouses although she always wore pantyhose which I had noticed, it was/still is, my fetish. She often inadvertently seemed to tease me by sliding her stocking clad feet in and out of her flats all throughout class. Karen never wore nylons other than with her cheerleading uniform and thus Beth was often the one I fantasized about while under the sheets alone. The more I thought about it the more ludicrous it seemed that Derrick would be fucking her, yet it wasn't any more ludicrous than the fact that he was using Coach as his personal cocksucker.  
 
  
 
@@ -606,7 +606,7 @@
 
  I often met with coach before the game so this wasn't new, but knocking three times was strange. I hoped it was just game talk, but a feeling in my gut told me Derrick was up to something. 
 
- I pondered whether to put the plug in my ass, but decided not to, mostly because I didn't have any lube and well it was really gay. Report_Story #3 
+ I pondered whether to put the plug in my ass, but decided not to, mostly because I didn't have any lube and well it was really gay.  
 
  
 
@@ -956,7 +956,7 @@
 
  As if reading my mind, he said, "I can see it in your eyes, Eric. You have an insatiable hunger to lean down and take it in your mouth, yet the unrealistic expectations of society are holding you back. Eric you want my cock, you need my cock, and it is only a matter of time before you accept this." 
 
- I continued staring, the invisible line between straight and not-so-straight fading. Report_Story #4 
+ I continued staring, the invisible line between straight and not-so-straight fading.  
 
  
 
@@ -1370,7 +1370,7 @@
 
  Karen allowed my cock to slip out of her mouth as she put her hands on the bench she was sitting on, closed her eyes and allowed the orgasm that had been building to flow through her. 
 
- Watching a woman's facial expression immediately before the orgasm hits and during the brief euphoria that follows is super sexy...especially because they are so vulnerable during this moment of pleasure no longer worried about looking perfect. Report_Story #5 
+ Watching a woman's facial expression immediately before the orgasm hits and during the brief euphoria that follows is super sexy...especially because they are so vulnerable during this moment of pleasure no longer worried about looking perfect.  
 
  
 
@@ -1762,7 +1762,7 @@
 
  "How do you know that?" I asked. 
 
- "Derrick texted me," she said. "He said you would be single by the time I got here." Report_Story #6 
+ "Derrick texted me," she said. "He said you would be single by the time I got here."  
 
  
 

@@ -80,7 +80,7 @@
 
  Bill's hands went under her blouse and he started working on her sensitive nipples and Chandra began to squirm. Her hands went to Bill's belt and then she had his cock out and was stroking him. He moved one hand to her skirt and she quickly stood up and pulled off her panties, pulled her skirt up to her waist and then sat back down and went back to stroking his cock. Bill pushed one hand down to her bush and I could tell when his fingers entered her because she moaned. Then his other hand went to the back of her head and Chandra got the message and she lowered her head into his lap. I saw her mouth open and swallow the head of his cock. 
 
- I had my cock out and I was both trying to get myself off and not cum. I wanted my load to go into Chandra and not onto the floor, but I needed to get off in the worst way and the floor won. I heard Bill whisper that he was going to come and I saw Chandra force her head down to swallow all of his cock she could and then she held still while Bill emptied into her. When Chandra had sucked him dry and licked him clean she told him that he needed to go so she could get to bed. "I've got a long day ahead of me lover and I'm going to need my rest." Report_Story #2 
+ I had my cock out and I was both trying to get myself off and not cum. I wanted my load to go into Chandra and not onto the floor, but I needed to get off in the worst way and the floor won. I heard Bill whisper that he was going to come and I saw Chandra force her head down to swallow all of his cock she could and then she held still while Bill emptied into her. When Chandra had sucked him dry and licked him clean she told him that he needed to go so she could get to bed. "I've got a long day ahead of me lover and I'm going to need my rest."  
 
  
 

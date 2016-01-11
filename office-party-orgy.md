@@ -390,7 +390,7 @@
 
  "You bitch, I'll show you grandma," she said, grabbing my purse and heading to the washroom. 
 
- Report_Story #2 
+  
 
  
 
@@ -834,7 +834,7 @@
 
  They both kept fucking me and as I allowed my body to enjoy the greatest gift God gave us, I suddenly felt my face coated with cum. 
 
- I gasped, which allowed a rope of cum to go directly in my mouth. As warm cum splattered all over my face, I suddenly heard a grunt and immediately felt a load of cum coat my asshole which sent another rush of pleasure through me... pleasure compounding pleasure. Report_Story #3 
+ I gasped, which allowed a rope of cum to go directly in my mouth. As warm cum splattered all over my face, I suddenly heard a grunt and immediately felt a load of cum coat my asshole which sent another rush of pleasure through me... pleasure compounding pleasure.  
 
  
 

@@ -300,7 +300,7 @@
 
  The rest of the day I spent with polo teammates and as a result ended up getting rather shit faced. 
 
- Still hung-over the next morning, I was in a crabby mood and when I saw the Countess. I decided to test her obedience and simultaneously amuse myself. I grabbed a polo ball and sat beside her, her husband also with her. Report_Story #2 
+ Still hung-over the next morning, I was in a crabby mood and when I saw the Countess. I decided to test her obedience and simultaneously amuse myself. I grabbed a polo ball and sat beside her, her husband also with her.  
 
  
 

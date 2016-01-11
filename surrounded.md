@@ -168,7 +168,7 @@
 
  "You're a slut. I don't deal with sluts." I said. 
 
- "Duh. Of course I'm a slut. Sluts like me fuck their sister's husbands. And that's why you love me. Because I'm a slut who will do anything. Any position, any way you want. I bet she only fucks in the missionary position." Katie said. I looked down. "God, it's true. God what a dumbass she is. I bet she makes you wear a condom every time you fuck, too." I looked down again. "Ha" Katie laughed. Report_Story #2 
+ "Duh. Of course I'm a slut. Sluts like me fuck their sister's husbands. And that's why you love me. Because I'm a slut who will do anything. Any position, any way you want. I bet she only fucks in the missionary position." Katie said. I looked down. "God, it's true. God what a dumbass she is. I bet she makes you wear a condom every time you fuck, too." I looked down again. "Ha" Katie laughed.  
 
  
 
@@ -340,7 +340,7 @@
 
  "Oh Matt! You're doing it. You're gonna make me cum! OH, FUCK!" she yelled. Her asshole clenched around my cock as she came. I couldn't hold back anymore. I started cumming in her ass. I was cumming in buckets. Finally, after a minute, it stopped. I fell to my back, completely drained. I was breathing hard. Katie was on her stomach, gathering her strength back. I can see my cum leaking out of her ass. She got up and crawled over to me. She laid her body on mine. She leaned down and slipped her tongue into my mouth. We started to make out, again. Unbelievably, my dick started to get hard again. She could feel it poking at her. She leaned up, and, without taking her tongue from my mouth, grabbed my dick, and slid it into her pussy. She started bouncing on it again. I could feel her tits sliding against my chest. I pounded up into her as she came down on me. This session wouldn't last very long. I quickly rolled us both over. Our mouths separated. Her eyes flash in shock and lust. I took her legs, put them on my shoulders, and rolled her up so her face is in between her legs. I started pounding her as hard as I could, again. 
 
- "Pound me, Matt. Pound me!" she encouraged. Our sweat was intermingling as we fucked. I grunted and moaned as I pounded her. The phone rang again, but I ignored it as I kept on sliding my cock into her hot pussy for a few more minutes. I finally came in her again as she came one last time. I rolled off of her completely exhausted. We lied in bed for a few minutes, getting our strength back. Finally, she stood up. I could see her perfect ass wiggle as she walked across the room. She started to talk as she put her clothes back on. Report_Story #3 
+ "Pound me, Matt. Pound me!" she encouraged. Our sweat was intermingling as we fucked. I grunted and moaned as I pounded her. The phone rang again, but I ignored it as I kept on sliding my cock into her hot pussy for a few more minutes. I finally came in her again as she came one last time. I rolled off of her completely exhausted. We lied in bed for a few minutes, getting our strength back. Finally, she stood up. I could see her perfect ass wiggle as she walked across the room. She started to talk as she put her clothes back on.  
 
  
 
@@ -510,7 +510,7 @@
 
  The whole night was a blur of tangled limbs, oil, and satin sheets. I had endurance I didn't know I had. We just kept going and going. We both came repeatedly. I came in her pussy, in her ass, in her mouth, on her tits. It was easily the best sex either of us had ever had. We finally both fell asleep, but it was more that we just passed out. That night I slept like a rock. When I finally woke up in the morning, she was sucking my cock. She kept sucking until I came in her mouth again. 
 
- Amanda called again, while we were in the shower. I was fucking Katie from behind at the time. Katie had a phone next to the shower so she grabbed it and started gabbing with her sister as I fucked her while squeezing her tits. Report_Story #4 
+ Amanda called again, while we were in the shower. I was fucking Katie from behind at the time. Katie had a phone next to the shower so she grabbed it and started gabbing with her sister as I fucked her while squeezing her tits.  
 
  
 
@@ -584,7 +584,7 @@
 
  "Good." She said with a smile. She started to bounce on my dick hard and fast. We keep fucking until we both reached climax at the same time. I'll miss this. 
 
- (Author's Note: I wrote this story a few years ago, but I decided to clean it up a little and post it. I don't know how quickly I'll get back to it, because there are other ideas I want to explore first. I won't claim it's my best work, but I think it's okay. I figured I'd just post it and test the waters, and hopefully get back to it at a later date.) Report_Story #1 
+ (Author's Note: I wrote this story a few years ago, but I decided to clean it up a little and post it. I don't know how quickly I'll get back to it, because there are other ideas I want to explore first. I won't claim it's my best work, but I think it's okay. I figured I'd just post it and test the waters, and hopefully get back to it at a later date.)  
 
  
 
@@ -726,7 +726,7 @@
 
  "I mean, I could tell things weren't okay for awhile now so I guess it's okay that he finally pulled the trigger on it. But it stinks. I thought he had some potential, but apparently, I was wrong." Michelle said, looking down. As she did, I couldn't help but glance at her low-cut blouse. I had to admit, her tits were really big. Not as big as Katie's but she was right up there. They were easily DD's. I could tell. They were far superior to my wife's pair. And they pressed against each other perfectly to form a nice line of cleavage. They must be really round and firm. It was so strange that this sweet girl had the body of a porn star. I shook my head, clearing these thoughts. I had to be a good friend, not drool over her hot body. 
 
- "Well, you said it yourself. You knew in the back of your head that he wasn't the man for you. You don't have to rush things. Wait for the right man to come along, and once you find him go after him. You're an awesome girl. Any guy would be lucky to have you." I told her. For a second, she looked at me fiercely, which caught me off guard. Then, she smiled. Report_Story #2 
+ "Well, you said it yourself. You knew in the back of your head that he wasn't the man for you. You don't have to rush things. Wait for the right man to come along, and once you find him go after him. You're an awesome girl. Any guy would be lucky to have you." I told her. For a second, she looked at me fiercely, which caught me off guard. Then, she smiled.  
 
  
 
@@ -966,7 +966,7 @@
 
  "Wait a minute, I distinctly remember you and Amanda having a conversation about cheating and you said how much you despise cheaters!" I told her. 
 
- Report_Story #3 
+  
 
  
 
@@ -1108,7 +1108,7 @@
 
  "Oh, you are so good at this!" she screamed as she trapped my head in her vice- like thighs. Her juices kept squirting in my mouth, and I swallowed it as fast as it came. It was as sweet as any wine. She kept squirting and squirting before finally, she fell back, out of breath, the wine bottle rolling out of her hands and crashing to the ground, breaking the bottle into a million pieces and splashing the remaining wine all over the ground. But neither of us cared. I looked past her massive, mountainous breasts to her gorgeous, satisfied face. She got up on her elbows and looked right at me, her chest heaving. 
 
- "Take me to your bedroom. I'm fucking you." she pleaded, holding out her hand. I surprised her by leaping out if the hot tub and lifting Michelle into my arms. She laughed as I whirled her around and walked quickly towards the house. I kicked open the door and slammed it behind me. I carried her towards my bedroom. The only woman I ever did this for was my wife. But now, I was poised to carry my wife's best friend over the threshold into my marital bedroom, onto my marital bed. I felt no guilt. No shame. I wanted to fuck her, and I was about to do so. Report_Story #4 
+ "Take me to your bedroom. I'm fucking you." she pleaded, holding out her hand. I surprised her by leaping out if the hot tub and lifting Michelle into my arms. She laughed as I whirled her around and walked quickly towards the house. I kicked open the door and slammed it behind me. I carried her towards my bedroom. The only woman I ever did this for was my wife. But now, I was poised to carry my wife's best friend over the threshold into my marital bedroom, onto my marital bed. I felt no guilt. No shame. I wanted to fuck her, and I was about to do so.  
 
  
 
@@ -1248,7 +1248,7 @@
 
  So we were just sitting outside, sitting down, eating burgers, shooting the shit. 
 
- Report_Story #5 
+  
 
  
 
@@ -1312,7 +1312,7 @@
 
  
 
- (Author's Note: My plan for this series is to add a chapter every so often while still posting other stories, as opposed to knocking out this entire series before moving on. I also again want to thank all of my readers for their continuing support of my work. All of the comments and feedback are much appreciated. I have received a lot of great emails, and unfortunately, I am not able to reply to all of them. That does not mean they are unappreciated, so if I did not reply to you, please take no offense. Thanks again for reading my stories. I'll try to keep them coming. My last batch of stories all came out quickly one after another, but my next story might take some time for me to put together. Stay patient. You won't be disappointed.) Report_Story #1 
+ (Author's Note: My plan for this series is to add a chapter every so often while still posting other stories, as opposed to knocking out this entire series before moving on. I also again want to thank all of my readers for their continuing support of my work. All of the comments and feedback are much appreciated. I have received a lot of great emails, and unfortunately, I am not able to reply to all of them. That does not mean they are unappreciated, so if I did not reply to you, please take no offense. Thanks again for reading my stories. I'll try to keep them coming. My last batch of stories all came out quickly one after another, but my next story might take some time for me to put together. Stay patient. You won't be disappointed.)  
 
  
 
@@ -1480,7 +1480,7 @@
 
  "Okay." Elise said, "Are you guys ready to go, or do you need a little more time?" 
 
- "Uh, if you guys are ready, go ahead. I'll look at the menu a bit more." Amanda said, flipping it open. Report_Story #2 
+ "Uh, if you guys are ready, go ahead. I'll look at the menu a bit more." Amanda said, flipping it open.  
 
  
 
@@ -1670,7 +1670,7 @@
 
  I glanced at Katie, and saw that her look of suspicion had passed. She didn't suspect anything about the second affair I had been carrying out. But if something as off-hand as this comment made her suspect something, I knew I had to be careful, not give Katie any reason to suspect a thing. 
 
- "Ugh, I don't get why you like that girl. Her goody-goody act irritates the shit out of me. There's something up with her." Katie replied. Report_Story #3 
+ "Ugh, I don't get why you like that girl. Her goody-goody act irritates the shit out of me. There's something up with her." Katie replied.  
 
  
 
@@ -1842,7 +1842,7 @@
 
  "Thanks!" Elise replied. 
 
- Minutes later, I was driving home with Katie and Amanda. Amanda's plan was to unload stuff and then drive Katie home, but somehow I knew things wouldn't be so simple. With Katie, it never was. Report_Story #4 
+ Minutes later, I was driving home with Katie and Amanda. Amanda's plan was to unload stuff and then drive Katie home, but somehow I knew things wouldn't be so simple. With Katie, it never was.  
 
  
 
@@ -2024,7 +2024,7 @@
 
  "Well, sis, that's just great and all, really sweet, but my boyfriend loves those parts of me. Sometimes I think he's only in it for my rack. And my ass. And my pretty face. And my long legs. And my tight ..." Katie stated. 
 
- "Okay!" Amanda interrupted, not letting her sister continue. "Well, if he's in it for only that stuff, maybe he's not the right guy for you." Amanda said helpfully. Report_Story #5 
+ "Okay!" Amanda interrupted, not letting her sister continue. "Well, if he's in it for only that stuff, maybe he's not the right guy for you." Amanda said helpfully.  
 
  
 
@@ -2274,7 +2274,7 @@
 
  "Katie, you have no elegance. You should take a few lessons from me. See how it's done." Michelle asked. 
 
- "Bitch, I don't need to learn any of your stupid moves, like your dumb wine trick." Katie stated. Report_Story #6 
+ "Bitch, I don't need to learn any of your stupid moves, like your dumb wine trick." Katie stated.  
 
  
 
@@ -2488,7 +2488,7 @@
 
  "Look at you Matt." Michelle said. "You must have been so uncomfortable, being around the three women who are currently spreading their legs for you. And now, when the moment comes to take action, you don't know what to do." 
 
- Emboldened by these two sluts once again, I ripped my pants down to my thighs, causing my rock-hard shaft to spring upward coming to a stop. I watched as the girls' eyes watched it bounce, following it until it stopped moving. I let the girls admire my thick shaft for a few moments. After all of today's teasing, I was on edge, and my dick was positively dripping with cum. The women couldn't pull their eyes away, and I took the opportunity to step out of my pants and my briefs, leaving me naked in front of these two sluts. With a confident swagger, I stepped forward, approaching the dick-hungry sluts. As I got within arm's length, I felt one set of fingers curl around my shaft, followed by a second set. I looked between the two women, lust in their eyes as they gripped my shaft. Then, they attacked. Report_Story #7 
+ Emboldened by these two sluts once again, I ripped my pants down to my thighs, causing my rock-hard shaft to spring upward coming to a stop. I watched as the girls' eyes watched it bounce, following it until it stopped moving. I let the girls admire my thick shaft for a few moments. After all of today's teasing, I was on edge, and my dick was positively dripping with cum. The women couldn't pull their eyes away, and I took the opportunity to step out of my pants and my briefs, leaving me naked in front of these two sluts. With a confident swagger, I stepped forward, approaching the dick-hungry sluts. As I got within arm's length, I felt one set of fingers curl around my shaft, followed by a second set. I looked between the two women, lust in their eyes as they gripped my shaft. Then, they attacked.  
 
  
 
@@ -2600,7 +2600,7 @@
 
  So now, Katie was being serviced in two ways, me eating her cunt as Michelle played with her boobs. Michelle was squeezing away at Katie's jugs, immersing her hands in the soft flesh. Michelle's mouth was open and she was running her firm tongue across Katie's smooth, abundant breast flesh. Michelle licked all over, soaking Katie's tits with her spit, until her tongue reached Katie's hard nipples and began to lick and flick at her rubbery nipples. This went on for a few moments before, finally, Michelle dove in fully, opening her mouth and taking Katie's nipple in her mouth. As Michelle began to suck at Katie's nipple, Katie spoke up. 
 
- "Hmmm, look at you, sucking my titties. You talk such a big game, but now you're here, and it's you pleasuring me. It's me getting all the pleasure, and you doing all the work. So, who's the big, bad slut now, bitch!" Katie said arrogantly at the younger woman sucking her tits. Katie was clearly enjoying this spot of domination over Michelle, as her cunt was dripping like crazy, and her swiveling hips became more energetic. Report_Story #8 
+ "Hmmm, look at you, sucking my titties. You talk such a big game, but now you're here, and it's you pleasuring me. It's me getting all the pleasure, and you doing all the work. So, who's the big, bad slut now, bitch!" Katie said arrogantly at the younger woman sucking her tits. Katie was clearly enjoying this spot of domination over Michelle, as her cunt was dripping like crazy, and her swiveling hips became more energetic.  
 
  
 
@@ -2794,7 +2794,7 @@
 
  "Mmm, that's not bad. It's a wonder she's never realized how much sexier I am than her." Michelle purred. "Does it turn you on, Matt, that your sweet lovely wife is now simply a tool to make your sex life better for your affairs with us? Your wife is a prop. A sex tool who's best use is being left out of the bedroom. And really, a sex tool that's best use is being left out of the action is really kind of useless. She doesn't deserve to be getting any dick whatsoever." 
 
- "But you don't need her anyway." Michelle continued. "Just imagine me in her place. Me being the perfect housewife, the perfect slut wife that every man really wants. Cooking your meals. Waiting for you to get home, wearing a perfect, wifely sundress, pristinely made-up at all times. I would be the perfect wife to all your neighbors, the beautiful, gorgeous wife that reminds of the wife they dreamed of having. The wife that reminds them of how wives use to be. I would stay at home, cause you would be the big strong, working man that would never want his wife to have to work. You leave me in charge of your house, your bank account, and I would be the sunny housewife you dreamed of having. I would be gorgeous and pretty, in those airy-little sundresses, pretty lipstick, and a flower in my hair. The neighborhood husbands and wives would be jealous. But they wouldn't see the tiny underwear I love wearing. They wouldn't see the way I would greet you after a long day's work. They wouldn't see the way I would bring you a drink, or rub your shoulders, or suck your cock. They wouldn't see the way I would ease your stress by letting you fuck my ass as hard as you need to, and forget about your troubles. The neighbors would see me as a pretty, pregnant 50's-throwback housewife. But you would know I'm your perfect, dirty, knocked-up slut." Report_Story #9 
+ "But you don't need her anyway." Michelle continued. "Just imagine me in her place. Me being the perfect housewife, the perfect slut wife that every man really wants. Cooking your meals. Waiting for you to get home, wearing a perfect, wifely sundress, pristinely made-up at all times. I would be the perfect wife to all your neighbors, the beautiful, gorgeous wife that reminds of the wife they dreamed of having. The wife that reminds them of how wives use to be. I would stay at home, cause you would be the big strong, working man that would never want his wife to have to work. You leave me in charge of your house, your bank account, and I would be the sunny housewife you dreamed of having. I would be gorgeous and pretty, in those airy-little sundresses, pretty lipstick, and a flower in my hair. The neighborhood husbands and wives would be jealous. But they wouldn't see the tiny underwear I love wearing. They wouldn't see the way I would greet you after a long day's work. They wouldn't see the way I would bring you a drink, or rub your shoulders, or suck your cock. They wouldn't see the way I would ease your stress by letting you fuck my ass as hard as you need to, and forget about your troubles. The neighbors would see me as a pretty, pregnant 50's-throwback housewife. But you would know I'm your perfect, dirty, knocked-up slut."  
 
  
 
@@ -2988,7 +2988,7 @@
 
  "I'm not." Katie replied, "But clearly you are." 
 
- I looked down and once realized I was now furiously stroking my fully hard and ready-for-action prick. I looked at her and smiled. Report_Story #10 
+ I looked down and once realized I was now furiously stroking my fully hard and ready-for-action prick. I looked at her and smiled. 0 
 
  
 
@@ -3184,7 +3184,7 @@
 
  What was I becoming? These sluts were making me into a different person. I didn't like how cold I had become, how mean some of the things I said and did to her truly were. I was a terrible husband. Amanda deserved better. I resolved myself to stop doing these awful things. To stop humiliating her. I knew I should stop cheating on her, but whether I could remained to be seen. But I vowed to be there, to be a good husband till she got better. To not cheat on her again. 
 
- Due to Amanda's injury, she had to take it easy for a while. I knew how fucked up I was when one of the first thoughts that came to me when I was told this was relief that I wouldn't have to fuck her for a while. I tried to erase these thoughts, but as time went on, as I spent more time with my wife, my dick throbbed with need, a need I knew I would have to go elsewhere to get relieved. Report_Story #11 
+ Due to Amanda's injury, she had to take it easy for a while. I knew how fucked up I was when one of the first thoughts that came to me when I was told this was relief that I wouldn't have to fuck her for a while. I tried to erase these thoughts, but as time went on, as I spent more time with my wife, my dick throbbed with need, a need I knew I would have to go elsewhere to get relieved. 1 
 
  
 

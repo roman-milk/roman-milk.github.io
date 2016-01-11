@@ -82,7 +82,7 @@
 
  It was only about 8 pm, but when nature calls, Heather had to respond. She informed her mother, in as bored a voice as she could muster, that she was going to take a hot shower and go to bed early. Mom didn't seem to care. Heather quickly scampered up to her room and shut the bedroom door tight. Yanking her skirt up with one hand, her other hand shot to her crotch. Her thong was soaked; the juices were leaking profusely through the lacy fabric. 
 
- Heather was on auto-pilot. She yanked off the thong and removed her sundress, and quickly she wrapped her sleek 18 year old body in her long robe. Her bedroom door didn't have a lock, but the bathroom did. She slipped into the bathroom, locked herself in it, and ripped off the robe. Standing naked in the mirror, her nipples pointing out of her curvy tits, Heather admired herself in the mirror. It happened every time she caught the sight of her naked body. Heather, who had eaten a fair number of pussies in her 18 years, definitely agreed that if she'd ever meet another girl with the same body, she'd want to fuck that girl instantly. For hours. Heather just lusted for her own body, she knew she was incredibly sexy. Report_Story #2 
+ Heather was on auto-pilot. She yanked off the thong and removed her sundress, and quickly she wrapped her sleek 18 year old body in her long robe. Her bedroom door didn't have a lock, but the bathroom did. She slipped into the bathroom, locked herself in it, and ripped off the robe. Standing naked in the mirror, her nipples pointing out of her curvy tits, Heather admired herself in the mirror. It happened every time she caught the sight of her naked body. Heather, who had eaten a fair number of pussies in her 18 years, definitely agreed that if she'd ever meet another girl with the same body, she'd want to fuck that girl instantly. For hours. Heather just lusted for her own body, she knew she was incredibly sexy.  
 
  
 
@@ -182,7 +182,7 @@
 
  "Fuck that's hot," Uncle Jake moaned, his hand slipping a little higher up the inside of Heather's leg. Heather felt it, and she loved it. She leaned back more, dropping her foot from under her ass to the floor, so she could lean back more against her Uncle and spread her smooth thighs open. The motion allowed him to feel and caress her velvety inner leg, his fingers tracing light circles up and down. Heather could smell his rockhard cock in his pants. 
 
- His fingers slid higher and higher up her inner leg, closer to the shorts and her mound. Heather closed her eyes, feeling this sexy man touching her in the softest of places, but her brain woke up and told her, this is your Uncle damned it. He can't be reaching to touch your pussy! Report_Story #3 
+ His fingers slid higher and higher up her inner leg, closer to the shorts and her mound. Heather closed her eyes, feeling this sexy man touching her in the softest of places, but her brain woke up and told her, this is your Uncle damned it. He can't be reaching to touch your pussy!  
 
  
 
@@ -290,7 +290,7 @@
 
  She flipped her hair over her shoulder. "Yeah, uh huh." She thought he'd wanted to hear a hot story, not just some routine fuck. But didn't have to think too long to remember her last sex with another girl. "Actually, it was the weekend I flew home, my friend Camille and me." 
 
- Uncle Jake now rose to his knees, crawling towards her body. She remained still, waiting for him to take control. He did, but not quite what she expected. He had his niece lie flat on her back, spreading her legs to reveal her vagina to him, and she pulled back her knees expecting him to mount her. Instead, he sat on his ankles a couple feet away, and he motioned for her to resume finger-fucking herself. Report_Story #4 
+ Uncle Jake now rose to his knees, crawling towards her body. She remained still, waiting for him to take control. He did, but not quite what she expected. He had his niece lie flat on her back, spreading her legs to reveal her vagina to him, and she pulled back her knees expecting him to mount her. Instead, he sat on his ankles a couple feet away, and he motioned for her to resume finger-fucking herself.  
 
  
 

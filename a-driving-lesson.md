@@ -192,7 +192,7 @@
 
  Natasha mewled, her breath coming in gasps as, with her eyes widening, growing round and huge, she watched her own father's tongue slip from between his lips. 
 
- "Oh God," the girl panted. "Oh God, you're going to lick me. Oh fuck ... you're my father..." Report_Story #2 
+ "Oh God," the girl panted. "Oh God, you're going to lick me. Oh fuck ... you're my father..."  
 
  
 

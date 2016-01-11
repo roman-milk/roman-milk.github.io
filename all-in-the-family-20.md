@@ -232,7 +232,7 @@
 
  "Oh fuck yes. Yes. Yes. Cumming on your tongue. Yes. Oh god, yes." 
 
- He sucks on it and she cums and cums. Finally she begs him to stop. By now his cock is full hard. He rolls her off and gets on his knees. He pulls her ass up and lines up on her pussy. He holds her by her hips and pushes against her pussy lips. She reaches back and guides it in. she pushes back and takes about half of it. Report_Story #2 
+ He sucks on it and she cums and cums. Finally she begs him to stop. By now his cock is full hard. He rolls her off and gets on his knees. He pulls her ass up and lines up on her pussy. He holds her by her hips and pushes against her pussy lips. She reaches back and guides it in. she pushes back and takes about half of it.  
 
  
 
@@ -592,7 +592,7 @@
 
  Once in his room, he turns his laptop on. He connects to the house WiFi and sees an icon that says "Cam". He double clicks on it and the surveillance system for the entire place opens. He checks different cameras and finds one covering his Mom's bedroom. He opens the recorded files of the system. He sees two pages of files. He opens the first one on the list. It's one of Jerry and Marie fucking. It is in high def and has audio. He watches as Marie sucks Jerry's cock. She throats him easily. Jerry goes down on Marie and she mounts him. He finds out that his Mom is a screamer. He also notices that his cock if full hard. He slowly strokes it and opens another one. It's one of Jerry taking Marie doggie. He is a little rough and she seems to like it. He cleans up his mess with his boxers. 
 
- He clicks back on the camera in her bedroom. He watches a few minutes and sees Marie walk in. She stands in front of a full length mirror and slowly unbuttons her blouse. He sees her awesome breasts come into view. He guesses they are a full D cup size. She reaches back and unfastens her skirt. It falls around her feet. He sees her shaved pussy lips. Report_Story #3 
+ He clicks back on the camera in her bedroom. He watches a few minutes and sees Marie walk in. She stands in front of a full length mirror and slowly unbuttons her blouse. He sees her awesome breasts come into view. He guesses they are a full D cup size. She reaches back and unfastens her skirt. It falls around her feet. He sees her shaved pussy lips.  
 
  
 
@@ -1000,7 +1000,7 @@
 
  "Good. He's a sweet young man. I want to be his new Mom." 
 
- She moves down and starts licking and sucking his cock. He groans and pushes up to her. The takes it all and squeezes it with her throat muscles. She strokes it and lick the underside with her tongue. He mouth is good and he feels his orgasm starting. She feels it swelling. She pulls off and takes a deep breath. She takes it all and squeezes it one final time and his hot squirts in her throat. She pulls back a little and catches the rest in her mouth. She stays on it till his is drained. She sits up and lets some dribble on her breasts. She rubs it around and falls on his chest. She rubs it all over them. She pulls back and lets more dribble on him. She rubs it some more. She swallows the rest. Report_Story #4 
+ She moves down and starts licking and sucking his cock. He groans and pushes up to her. The takes it all and squeezes it with her throat muscles. She strokes it and lick the underside with her tongue. He mouth is good and he feels his orgasm starting. She feels it swelling. She pulls off and takes a deep breath. She takes it all and squeezes it one final time and his hot squirts in her throat. She pulls back a little and catches the rest in her mouth. She stays on it till his is drained. She sits up and lets some dribble on her breasts. She rubs it around and falls on his chest. She rubs it all over them. She pulls back and lets more dribble on him. She rubs it some more. She swallows the rest.  
 
  
 

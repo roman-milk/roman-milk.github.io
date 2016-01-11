@@ -134,7 +134,7 @@
 
  I wanted to kiss and suck his manhood more than anything. My pussy was so wet that I could feel the wetness travel down my left inner thigh. "Kiss the tip" I heard him say. He allowed my head to rise as I kissed the crown of his cock, never allowing the head to slip inside my mouth. I could feel his cock get harder and harder until it felt like a steel shaft. 
 
- He took my pig tails and allowed me to take him into my wet mouth. I closed my lips around it, on command, making a tight circle with my lips wanting to memorize every inch of it with my lips and tongue. "Lick my cock slave" I heard him say. I wanted to suck him in and out of my mouth, but I managed to resist the urge. I slid his head out of my mouth and traced along the ridge of it with my tongue – over and over I went, licking every spot from the tip to the bottom of the shaft. Report_Story #2 
+ He took my pig tails and allowed me to take him into my wet mouth. I closed my lips around it, on command, making a tight circle with my lips wanting to memorize every inch of it with my lips and tongue. "Lick my cock slave" I heard him say. I wanted to suck him in and out of my mouth, but I managed to resist the urge. I slid his head out of my mouth and traced along the ridge of it with my tongue – over and over I went, licking every spot from the tip to the bottom of the shaft.  
 
  
 

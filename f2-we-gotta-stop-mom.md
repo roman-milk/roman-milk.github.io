@@ -336,7 +336,7 @@
 
  She unrolled the measuring tape with a flick of her wrist. She leaned over, pressing the end to the base of my cock, just below my stomach. Her hand moved under my cock, pressing my balls back, while her thumb held the end of the tape in place. She slowly stretched it out, her delicate hand cupping the head of my cock, while her thumb and forefinger held the tape stretched out. The sensations were driving me nuts. 
 
- She moved her face closer, until I could feel her breath on my aching hardness. "A little over 8 inches. Maybe 8 1/2. I thought it was bigger, like 10 inches. It looks huge." Her hands were moving slightly, not letting me go. Report_Story #2 
+ She moved her face closer, until I could feel her breath on my aching hardness. "A little over 8 inches. Maybe 8 1/2. I thought it was bigger, like 10 inches. It looks huge." Her hands were moving slightly, not letting me go.  
 
  
 
@@ -722,7 +722,7 @@
 
  "Being a 'dick'? I spent three hours reviewing this, and I'm still not finished." 
 
- "Big brainy dick." She giggled. "And I meant that in the nicest way. Now spill." Report_Story #3 
+ "Big brainy dick." She giggled. "And I meant that in the nicest way. Now spill."  
 
  
 
@@ -1028,7 +1028,7 @@
 
  "Your turn, Bret. Let's see what you've got. Tease me, touch me, make me come for you." 
 
- Having free access to her body made my heart race. I explored her, caressing her, kissing her all over. Her hand brushed across my skin, through my hair, encouraging me. Her soft words did the same, letting me know what she liked. I stayed at her torso for several minutes, before moving lower. She opened her legs, making herself available to me, and I was lost. Report_Story #4 
+ Having free access to her body made my heart race. I explored her, caressing her, kissing her all over. Her hand brushed across my skin, through my hair, encouraging me. Her soft words did the same, letting me know what she liked. I stayed at her torso for several minutes, before moving lower. She opened her legs, making herself available to me, and I was lost.  
 
  
 
@@ -1326,7 +1326,7 @@
 
  I touched her lightly, tracing the edge of her bra, moving up to her neck, then sliding down her cleavage against her bare skin. I could feel her crotch gliding up and down my length, her hips hunching then grinding. "Mmmm, Momma's big boy," she purred while my lips and tongue matched her earlier movements, along her neck and up to her ear. My fingers struggled with her top button, finally succeeding and moving to the next. 
 
- "Patience," she purred, her eyes closed, her head tilted to give me access to her neck. "Slowly, one button at a time. Caress, touch, explore, unbutton." Report_Story #5 
+ "Patience," she purred, her eyes closed, her head tilted to give me access to her neck. "Slowly, one button at a time. Caress, touch, explore, unbutton."  
 
  
 
@@ -1676,7 +1676,7 @@
 
  She gave me a teasing look, glancing at the space next to Mom. I know what she wanted. 
 
- I got up, and Mom pouted for a bit, until Tiffany was rubbing her feet again, and I was trying to fit in the space she left vacant. It was a tight squeeze, and I pulled Mom into my arms, squeezing up against her. I was only wearing a t-shirt and shorts, so I didn't have to worry about shoes or anything. Report_Story #6 
+ I got up, and Mom pouted for a bit, until Tiffany was rubbing her feet again, and I was trying to fit in the space she left vacant. It was a tight squeeze, and I pulled Mom into my arms, squeezing up against her. I was only wearing a t-shirt and shorts, so I didn't have to worry about shoes or anything.  
 
  
 
@@ -1996,7 +1996,7 @@
 
  She let me steer her back into the house, and I hung around. Her phone rang again, she looked at it guiltily, then ended the call. I'm pretty sure she turned down the ringer. 
 
- Tiffany came home a few minutes later, in a good mood. She said hi to everyone, grabbed a diet soda, and plopped down next to Mom. "Why'd you run off, Mom? You could have joined us for a while. We were celebrating Karen's birthday." Report_Story #7 
+ Tiffany came home a few minutes later, in a good mood. She said hi to everyone, grabbed a diet soda, and plopped down next to Mom. "Why'd you run off, Mom? You could have joined us for a while. We were celebrating Karen's birthday."  
 
  
 
@@ -2292,7 +2292,7 @@
 
  As soon as she appeared, I started in again. I was fed up with trying to stop her. "Your phone's been going off constantly. I bet the Fat Bastard is wondering why you're a no show at the Marriott." 
 
- It was like I'd slapped her. She stopped in mid-step, and I saw her tear up. Within moments she was bawling. Report_Story #8 
+ It was like I'd slapped her. She stopped in mid-step, and I saw her tear up. Within moments she was bawling.  
 
  
 
@@ -2558,7 +2558,7 @@
 
  Mom laughed lying down and playing with my cock. "Sweetest pain in the world, Tiffany. My boy made me come. Come hard. First time in forever." 
 
- She took my cock in her mouth, sucking me. "God, Bret. You have the perfect cock. Perfect. Thick, but not too thick. Long enough to reach everything, but not too long to hurt. I think we're going to become great friends, this big guy and me." Report_Story #9 
+ She took my cock in her mouth, sucking me. "God, Bret. You have the perfect cock. Perfect. Thick, but not too thick. Long enough to reach everything, but not too long to hurt. I think we're going to become great friends, this big guy and me."  
 
  
 

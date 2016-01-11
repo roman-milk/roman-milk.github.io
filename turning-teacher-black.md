@@ -246,7 +246,7 @@
 
  I kissed him gently, my body tingling with the wide open opportunities that lie ahead. 
 
- Report_Story #2 
+  
 
  
 
@@ -592,7 +592,7 @@
 
  "Oh my," she teased, "you are one naughty little dyke wannabe, aren't you?" 
 
- Embarrassed by what I had just done, I put the panties onto my lap. Report_Story #3 
+ Embarrassed by what I had just done, I put the panties onto my lap.  
 
  
 
@@ -828,7 +828,7 @@
 
  I stared at the letter even as my pussy leaked. I looked at the clock and realized I had less than five minutes before my next session on 'Recycling Art'. I sighed; I was really looking forward to this session. I was an art major and was intrigued by new ideas to bring back to my class that tied recycling and art. Now all I could think about was the fact that Alicia planned to fuck me later tonight and instead of being aghast at the thought, I couldn't wait. 
 
- Although distracted, I went to the session and once it got underway, my pussy simmered and I was able to concentrate on the real reason I was here. Once the session was over, I decided to head for lunch to fulfill the order Alicia gave me when I heard my name being called out. I stopped in my tracks, the voice vaguely familiar. I turned around to see it was my first intern from a few years ago, Joan. Report_Story #4 
+ Although distracted, I went to the session and once it got underway, my pussy simmered and I was able to concentrate on the real reason I was here. Once the session was over, I decided to head for lunch to fulfill the order Alicia gave me when I heard my name being called out. I stopped in my tracks, the voice vaguely familiar. I turned around to see it was my first intern from a few years ago, Joan.  
 
  
 
@@ -1122,7 +1122,7 @@
 
  Joan was now on permanent blush as she stammered, "Um-uh-uh-thanks," before sitting down. Silence lingered a bit as I too sat down, before Joan said, "Hey wait. Pam and I have frolicked for you Alicia, I think it is time for you to do the catwalk too." 
 
- Alicia gave an indescribable look before silently standing up. Being aggressive, she put her one leg up on the bench just inches from a surprised Joan. She asked, your voice dripping with seduction, "I am told my legs are one of my best features, especially in stockings, what do you think?" Report_Story #5 
+ Alicia gave an indescribable look before silently standing up. Being aggressive, she put her one leg up on the bench just inches from a surprised Joan. She asked, your voice dripping with seduction, "I am told my legs are one of my best features, especially in stockings, what do you think?"  
 
  
 

@@ -156,7 +156,7 @@
 
  Sweet Jesus, I thought, she really did do it and now she's going to rub my face in it. I concentrated on keeping my shaking hands gripped tight on the steering wheel and she said, "Yep! I did something on my own. I'm having lunch with Tony tomorrow." 
 
- Damn, does that mean she's going to fuck him again? When we got home and I was getting out of the car I glanced at the back seat. In the center of the right side of the seat was a spot that hadn't been there that morning. As I shut the car door I remembered the slip of paper that Sylvia had given me. I reached into my pocket to make sure I still had it. Report_Story #1 
+ Damn, does that mean she's going to fuck him again? When we got home and I was getting out of the car I glanced at the back seat. In the center of the right side of the seat was a spot that hadn't been there that morning. As I shut the car door I remembered the slip of paper that Sylvia had given me. I reached into my pocket to make sure I still had it.  
 
  
 
@@ -292,7 +292,7 @@
 
  She hugged me and said, "Anything you say sugar. Call me?" 
 
- I smiled at her and said, "We'll see." Report_Story #1 
+ I smiled at her and said, "We'll see."  
 
  
 
@@ -384,7 +384,7 @@
 
  She just looked down at me so I lowered my head again. Again she pushed me away and I looked up at her and our eye's met and I could see pain in hers and then she turned her head away for me and said, "Yes, I've been fucking someone else." 
 
- "Fine" I said, "Now that we have that out of the way, can I please eat the pussy of the woman I love?" I didn't wait for an answer - I just did it. Report_Story #1 
+ "Fine" I said, "Now that we have that out of the way, can I please eat the pussy of the woman I love?" I didn't wait for an answer - I just did it.  
 
  
 

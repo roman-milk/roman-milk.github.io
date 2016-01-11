@@ -130,7 +130,7 @@
 
  She did not intend to prolong the sinful affair but sometimes things get out of hand in a hurry. Suddenly she felt a twitch, then another and another until her fingers brought the dead to life. It was not truly stiff but the prick was magnificent still the same. 
 
- Jimmy started kissing her neck and her chest while lingering on two of the most attractive breasts he had ever seen. His tongue coated the soft globes with wet saliva and suddenly licked the ends until they stood erect. He shifted his body over Chelly's upper torso and devoted his loving attention to the glorious nipples. His tongue worked magic and licked each bud in turn so that both turned extremely hard. Report_Story #2 
+ Jimmy started kissing her neck and her chest while lingering on two of the most attractive breasts he had ever seen. His tongue coated the soft globes with wet saliva and suddenly licked the ends until they stood erect. He shifted his body over Chelly's upper torso and devoted his loving attention to the glorious nipples. His tongue worked magic and licked each bud in turn so that both turned extremely hard.  
 
  
 

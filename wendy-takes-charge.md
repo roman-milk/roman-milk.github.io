@@ -178,7 +178,7 @@
 
  "You had better call 911. Your boyfriend don't look so hot." 
 
- I went over and picked up the asshole's gun and took it downstairs with me. I wasn't going to chance the asshole having enough in him to get up and come looking for me with his gun. Report_Story #2 
+ I went over and picked up the asshole's gun and took it downstairs with me. I wasn't going to chance the asshole having enough in him to get up and come looking for me with his gun.  
 
  
 

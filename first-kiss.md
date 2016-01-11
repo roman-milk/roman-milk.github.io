@@ -250,7 +250,7 @@
 
  "No more! Let me up, I need the bathroom," she ordered. 
 
- She didn't hear him follow her. Her troubled thoughts were loud enough to cover his footsteps. Reaching into the shower to set it to burning hot, she felt his arms encompass her. He lifted her up, and stepped under the waterfall. His hands were everywhere, and way ahead of hers. Report_Story #2 
+ She didn't hear him follow her. Her troubled thoughts were loud enough to cover his footsteps. Reaching into the shower to set it to burning hot, she felt his arms encompass her. He lifted her up, and stepped under the waterfall. His hands were everywhere, and way ahead of hers.  
 
  
 
@@ -296,7 +296,7 @@
 
  She again wondered if he had meant what he said, or was it a sop to keep her happy. Did he really visit Wendy just to see her? She looked good for her age, yet how could he see anything in a woman twice his age? 
 
- "Thanks," she smiled at him, and wrapped her hands around the warm mug. Report_Story #1 
+ "Thanks," she smiled at him, and wrapped her hands around the warm mug.  
 
  
 
@@ -584,7 +584,7 @@
 
  'No! Yes, I am. I want you all to myself,' he told her. 
 
- 'For as long as it lasts, I'm all yours. Do whatever you like with me. It has been exciting and wonderful. Let the fun continue,' she said, and pushed a hand under the sheet to grab his cock. Report_Story #2 
+ 'For as long as it lasts, I'm all yours. Do whatever you like with me. It has been exciting and wonderful. Let the fun continue,' she said, and pushed a hand under the sheet to grab his cock.  
 
  
 
@@ -764,7 +764,7 @@
 
  Chloe was hooked, and knew it, yet couldn't to a thing about it. How could a young boy do that to her? In bed he took her to places she hadn't dreamed of. There was more to think about, more urgent things needed dealing with, other than sex. It was a distraction, yet so very wonderful she gave in to him. 
 
- The week progressed unlike any other. Her whole life had changed. As usual Chloe was cleaning the house, except it was for a young lover, not a husband. She smelled the sheets before putting them into the machine. Their mingled sex smells were strong, and she breathed them deep. It was a kinky thing to do, yet it was difficult to resist. It was worrying what he was doing to her, though the excitement drove her on. He was introducing her to uninhibited sex, and for the first time in her life she wanted to experience it all. Report_Story #1 
+ The week progressed unlike any other. Her whole life had changed. As usual Chloe was cleaning the house, except it was for a young lover, not a husband. She smelled the sheets before putting them into the machine. Their mingled sex smells were strong, and she breathed them deep. It was a kinky thing to do, yet it was difficult to resist. It was worrying what he was doing to her, though the excitement drove her on. He was introducing her to uninhibited sex, and for the first time in her life she wanted to experience it all.  
 
  
 
@@ -1066,7 +1066,7 @@
 
  'I can't keep my legs together!' she hissed at him. 
 
- 'I thought you were a fine lady, yet now I learn you're a hussy,' he laughed. Report_Story #2 
+ 'I thought you were a fine lady, yet now I learn you're a hussy,' he laughed.  
 
  
 
@@ -1250,7 +1250,7 @@
 
  'Mmmm, that's nice,' she whispered. 
 
- She felt him flicking his tongue over a nipple, that had been sucked into his mouth. His fingers were lightly stroking her thighs. He'd told her to order a pizza, rather than cook. It meant she could lay on the kitchen floor letting him tease her, instead of cooking. He was good at it, and she was learning to love it. She was hooked, and knew it, but didn't care anymore. Report_Story #1 
+ She felt him flicking his tongue over a nipple, that had been sucked into his mouth. His fingers were lightly stroking her thighs. He'd told her to order a pizza, rather than cook. It meant she could lay on the kitchen floor letting him tease her, instead of cooking. He was good at it, and she was learning to love it. She was hooked, and knew it, but didn't care anymore.  
 
  
 
@@ -1482,7 +1482,7 @@
 
  'Oh! Shit!' Chloe exclaimed. 
 
- The hem of the dress was being pulled into the machine. Pulling at it was no good, as it had a firm grip of the material, and was gradually pulling her closer. The dress covered the buttons, and she didn't want to press the fast mode. She reached for the wall, intending to pull the plug. Report_Story #2 
+ The hem of the dress was being pulled into the machine. Pulling at it was no good, as it had a firm grip of the material, and was gradually pulling her closer. The dress covered the buttons, and she didn't want to press the fast mode. She reached for the wall, intending to pull the plug.  
 
  
 

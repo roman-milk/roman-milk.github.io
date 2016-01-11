@@ -166,7 +166,7 @@
 
  "There you go," he said as he got up and handed me the tissue. 
 
- "Thanks," I whispered as I accepted it. Realizing there was no point in waiting for him to leave – he already knew I had eaten his cum and would do so again – I folded the tissue open and pressed the gooey part of it against my tongue. Feeling surprisingly little shame or embarrassment – probably because I was horny as fuck – I slid my free hand into my panties and started playing with myself right in front of him, while tasting his sticky, fresh goo. After consuming every speck of cum – and part of the tissue as well – I threw what was left of it on the table and forced myself to stop as I knew I would have difficulty climaxing in my current position. Report_Story #2 
+ "Thanks," I whispered as I accepted it. Realizing there was no point in waiting for him to leave – he already knew I had eaten his cum and would do so again – I folded the tissue open and pressed the gooey part of it against my tongue. Feeling surprisingly little shame or embarrassment – probably because I was horny as fuck – I slid my free hand into my panties and started playing with myself right in front of him, while tasting his sticky, fresh goo. After consuming every speck of cum – and part of the tissue as well – I threw what was left of it on the table and forced myself to stop as I knew I would have difficulty climaxing in my current position.  
 
  
 

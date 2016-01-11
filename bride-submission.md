@@ -358,7 +358,7 @@
 
  "Does she call you Master?" He asked. 
 
- "Yes," Bradley admitted. Report_Story #2 
+ "Yes," Bradley admitted.  
 
  
 
@@ -730,7 +730,7 @@
 
  I leaned back, allowing my firm 36C breasts to be in view as I began bouncing up and down on his cock. 
 
- Report_Story #3 
+  
 
  
 
@@ -1106,7 +1106,7 @@
 
  
 
- JASMINE May 2014 Report_Story #1 
+ JASMINE May 2014  
 
  
 
@@ -1474,7 +1474,7 @@
 
  "Fist her," he ordered. 
 
- I again gasped into my panties as another first occurred when she immediately obeyed his order shoving her whole fist up my well lubricated cunt. I screamed, as my cunt was widened unnaturally, my panties falling out of my mouth. "Fuuuuuck." Report_Story #2 
+ I again gasped into my panties as another first occurred when she immediately obeyed his order shoving her whole fist up my well lubricated cunt. I screamed, as my cunt was widened unnaturally, my panties falling out of my mouth. "Fuuuuuck."  
 
  
 

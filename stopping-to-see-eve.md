@@ -172,7 +172,7 @@
 
  "Humor me okay?" 
 
- She went up the stairs and as soon as she turned the corner to go down the hall I opened the front door and let Jimmy in. He was carrying his video camera and I had him duck into the hall closet. A minute or so later Eve came down and told me that the kids were all sound asleep. She took me by the hand and led me over to the couch and had me sit down. She unzipped me and proceeded to give me one of her superior blow jobs. She licked and sucked on me until I came and that time she swallowed it with out any fuss at all and I knew what that meant. She had fucked Herb just before he left the house and now she was going to try and get me to go down on her. How could I refuse when she swallowed all I had with no protest? When I was limp she stood up and dropped the robe: Report_Story #2 
+ She went up the stairs and as soon as she turned the corner to go down the hall I opened the front door and let Jimmy in. He was carrying his video camera and I had him duck into the hall closet. A minute or so later Eve came down and told me that the kids were all sound asleep. She took me by the hand and led me over to the couch and had me sit down. She unzipped me and proceeded to give me one of her superior blow jobs. She licked and sucked on me until I came and that time she swallowed it with out any fuss at all and I knew what that meant. She had fucked Herb just before he left the house and now she was going to try and get me to go down on her. How could I refuse when she swallowed all I had with no protest? When I was limp she stood up and dropped the robe:  
 
  
 

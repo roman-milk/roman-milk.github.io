@@ -134,7 +134,7 @@
 
  His eyes locked onto my chest, riveted at the sight of my painfully hard nipples sticking out of my see-through white bra. He was gazing at the brown circles of my areolae inside, I knew it. His eyes flickered down to my flat tummy, and the crotch of my tight thong. It was damp; my wet pussy had already soiled it with my juices. Then his eyes came up again, past my titties, to my small face, where my brown eyes met his and we stared at each other. 
 
- The thing his eyes told me was, his brain was furiously processing this new development. I saw him thinking, hard, quickly. He was sorting though sudden emotions. Then, he slowly responded in a low, equivocating tone, "Here, honey let's not have you sit on me," and he softly, somewhat hesitantly, started to push me off of his lap. Report_Story #2 
+ The thing his eyes told me was, his brain was furiously processing this new development. I saw him thinking, hard, quickly. He was sorting though sudden emotions. Then, he slowly responded in a low, equivocating tone, "Here, honey let's not have you sit on me," and he softly, somewhat hesitantly, started to push me off of his lap.  
 
  
 

@@ -236,7 +236,7 @@
 
  The things Wendy had said! Her use of profanity had shocked and thrilled Vince. He had never heard Wendy swear before, and her use of the words fuck and wank, hearing them come from her and the timbre in her voice as she uttered the obscenities filled him with that desperate urge, the deep drag in his vitals that could only be assuaged by his climax. 
 
- Vince moaned and worked at his cock, his head filled with imaginings of Wendy's ripe, voluptuous body revealed to his hungry stare. He was hard, rigid in his fist as he pumped away, wishing Wendy would ride his cock, her big tits swinging before he mauled at them and sucked her nipples between his lips. Report_Story #2 
+ Vince moaned and worked at his cock, his head filled with imaginings of Wendy's ripe, voluptuous body revealed to his hungry stare. He was hard, rigid in his fist as he pumped away, wishing Wendy would ride his cock, her big tits swinging before he mauled at them and sucked her nipples between his lips.  
 
  
 
@@ -484,7 +484,7 @@
 
  The door opened. Wendy blinked. 
 
- "What are you doing here?" she said, surprised to see Vince in the doorway. "Get out," she added, shooing him away with a waving arm. Report_Story #3 
+ "What are you doing here?" she said, surprised to see Vince in the doorway. "Get out," she added, shooing him away with a waving arm.  
 
  
 
@@ -726,7 +726,7 @@
 
  "Yes," Wendy hissed. "Of course when Daniel's not around. Of course, not, Vince. But he'll be out of the house with his pals ... He'll be in his bed." 
 
- Wendy grunted and groaned again, breasts swaying as she rode up and down, goo sliding out of her to coat the latex shaft in Vince's hand. Report_Story #4 
+ Wendy grunted and groaned again, breasts swaying as she rode up and down, goo sliding out of her to coat the latex shaft in Vince's hand.  
 
  
 

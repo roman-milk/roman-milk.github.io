@@ -162,7 +162,7 @@
 
  +++++++++++++++++++++++++++++++++++++++++++++++ 
 
- The next night was a repeat. I stood in the doorway and watched as Ron slid his cock into her and fucked her three times. After each time he pushed a pillow under her ass to elevate it and help his little swimmers get deep into her so one of them could do the job. When he was gone I fucked her once myself before I untied her. As soon as the blindfold was off she was all over me and riding my cock. She was amazed that I had managed to get it up five times. My personal best until that night had been three times. Report_Story #2 
+ The next night was a repeat. I stood in the doorway and watched as Ron slid his cock into her and fucked her three times. After each time he pushed a pillow under her ass to elevate it and help his little swimmers get deep into her so one of them could do the job. When he was gone I fucked her once myself before I untied her. As soon as the blindfold was off she was all over me and riding my cock. She was amazed that I had managed to get it up five times. My personal best until that night had been three times.  
 
  
 

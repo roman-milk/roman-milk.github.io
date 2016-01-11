@@ -158,7 +158,7 @@
 
  "It should be obvious to you after last night that I wasn't a virgin." 
 
- I started to say something, but she stopped me and said, "Let me finish what I have to say. I haven't been a virgin since junior high. There have been at least fifteen before you and I know that your question is going to be "Why are you telling me this?" I'm letting you know that I have seen and experienced what is out there and I have a damned good idea of what I need and what I want now that it is time for me to settle down. When I compare all the ones before you to you they all come up lacking. I was going to say "come up short" but changed it at the last second because I know that you being shorter than me is a big problem as far as you are concerned. It is not a problem for me. I'm more into the person than I am into physical appearance. I think that you and I have future if we can just get by you worrying about the height problem. Okay, your turn." Report_Story #2 
+ I started to say something, but she stopped me and said, "Let me finish what I have to say. I haven't been a virgin since junior high. There have been at least fifteen before you and I know that your question is going to be "Why are you telling me this?" I'm letting you know that I have seen and experienced what is out there and I have a damned good idea of what I need and what I want now that it is time for me to settle down. When I compare all the ones before you to you they all come up lacking. I was going to say "come up short" but changed it at the last second because I know that you being shorter than me is a big problem as far as you are concerned. It is not a problem for me. I'm more into the person than I am into physical appearance. I think that you and I have future if we can just get by you worrying about the height problem. Okay, your turn."  
 
  
 
@@ -372,7 +372,7 @@
 
  The next thing that Mellanie came up with to 'spice up' our sex life came about by accident. I was in a two week training class on a new aircraft that the company was putting into service and I got out of class at five. Mellanie got off work at four-thirty and we arranged to meet at Bogart's Lounge, have drink or two and then go out to dinner. 
 
- It was twenty minutes from where I was to Bogart's and when I got there I saw Mellanie sitting at a table with three guys. I had expected her to be sitting at the bar waiting for me. I was a bit taken aback when I saw one of the guys put his hand on Mellanie's leg just above the knee. I wondered how long it had been going on. If Mellanie got off work right at four-thirty and went straight to Bogart's that meant she had been there for about forty-five minutes. What had gone on during that time that made the man think he could put his hand on Mellanie's leg? What was even more disturbing to me was that Mellanie didn't push his hand away. Report_Story #3 
+ It was twenty minutes from where I was to Bogart's and when I got there I saw Mellanie sitting at a table with three guys. I had expected her to be sitting at the bar waiting for me. I was a bit taken aback when I saw one of the guys put his hand on Mellanie's leg just above the knee. I wondered how long it had been going on. If Mellanie got off work right at four-thirty and went straight to Bogart's that meant she had been there for about forty-five minutes. What had gone on during that time that made the man think he could put his hand on Mellanie's leg? What was even more disturbing to me was that Mellanie didn't push his hand away.  
 
  
 
@@ -610,7 +610,7 @@
 
  "Jesus Christ Mellanie; you are a college graduate, top of your class so you can't be as dumb as you are sounding now. I left to keep from wrapping my hands around your throat and choking the hell out of you for fucking another man. How could you not understand that?" 
 
- "But it didn't mean anything Rob. All it was was something to add so excitement to our sex life. Okay; maybe I should have prepared the ground a little better, but I wanted it to happen on my birthday so I probably moved faster than I should have." Report_Story #4 
+ "But it didn't mean anything Rob. All it was was something to add so excitement to our sex life. Okay; maybe I should have prepared the ground a little better, but I wanted it to happen on my birthday so I probably moved faster than I should have."  
 
  
 

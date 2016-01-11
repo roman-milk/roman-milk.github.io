@@ -108,7 +108,7 @@
 
  "Well, maybe if you paid me more, I could have afforded better!" Mandy said loudly at her boss, catching Vanessa off guard. Only a second later, horror flashed across her face at the realization of what she had just said hit her. "Oh my God, I am so sorry. I didn't mean that!" Mandy stammered. Vanessa looked down at Mandy with an unreadable expression for a moment, causing Mandy to panic and think she was about to get fired on the spot. Then, Vanessa smirked, with almost a bit of pride. 
 
- "Ooohh, shy little thing has some fire in her belly! I like that!" Vanessa said, causing Mandy to exhale in relief. Report_Story #2 
+ "Ooohh, shy little thing has some fire in her belly! I like that!" Vanessa said, causing Mandy to exhale in relief.  
 
  
 
@@ -208,7 +208,7 @@
 
  Mandy had always dreamed of being part of some crazy love story like in the movies, but she never thought it could actually happen. But... it had. She had gone out to a bar in the city, and while her friends' eyes were on the morass of people with drinks in their hands, scoping out for any possible winners among them, Mandy's eyes were on the bartender. Not only because he was a hunk, but also because she recognized him. 
 
- Zack Wade wasn't just a bartender. Mandy knew him from back home, thousands of miles away. They had gone to high school together, and while she was the wallflower, he was the popular guy. He was the guy who the girls flocked to. He was the guy who all the guys wanted to be best friends with. To put it simply, in high school, he was THAT guy. And while Mandy would freely admit that she barely knew Zack, they knew each other enough that whenever they would run across each other, he would give her a friendly cute smile and nod, and she would respond in kind, but in a far more nervous, less cool manner. Report_Story #3 
+ Zack Wade wasn't just a bartender. Mandy knew him from back home, thousands of miles away. They had gone to high school together, and while she was the wallflower, he was the popular guy. He was the guy who the girls flocked to. He was the guy who all the guys wanted to be best friends with. To put it simply, in high school, he was THAT guy. And while Mandy would freely admit that she barely knew Zack, they knew each other enough that whenever they would run across each other, he would give her a friendly cute smile and nod, and she would respond in kind, but in a far more nervous, less cool manner.  
 
  
 
@@ -298,7 +298,7 @@
 
  Vanessa had always had a raw, physical attraction to white men. In her college days, she had spent many hot and sweaty nights with getting filled with beefy white cock, making her writhe and squeal in a way she never had with her black boyfriends. In her experiences her white lovers were just so much more into her, so much more obsessed with her body, and so much more eager to give her the pleasure she craved. When white guys fucked her, when their big, strong white hands slid over her smooth, luscious, naked black skin, they pleasured her with worship in their eyes. They treated her like the queen she was. A lot of her black boyfriends ended up treating her like another notch on the bedpost. 
 
- And it wasn't just about how eager the white men were with her. To her, the simple fact was, the sex was better. Call it a preference, a fetish, whatever you'd like. Taut, white skin against her dark, black sexy flesh was her ultimate turn-on. To put it quite bluntly, white dick did it for her more than anything. A fat white cock entering her tight black cunt made her squeal. Made her scream at the top of her lungs. Made her gush like nothing else ever had. Long, hard, tasty white dick was the ultimate in pleasure for this mature, powerful African-American woman. Report_Story #4 
+ And it wasn't just about how eager the white men were with her. To her, the simple fact was, the sex was better. Call it a preference, a fetish, whatever you'd like. Taut, white skin against her dark, black sexy flesh was her ultimate turn-on. To put it quite bluntly, white dick did it for her more than anything. A fat white cock entering her tight black cunt made her squeal. Made her scream at the top of her lungs. Made her gush like nothing else ever had. Long, hard, tasty white dick was the ultimate in pleasure for this mature, powerful African-American woman.  
 
  
 
@@ -406,7 +406,7 @@
 
  It was rare for Vanessa to be this lust-struck. She was normally so forceful and dominant, but she was stunned into silence. It felt too coincidental to be ignored. This was divinity. Here she is, craving some hard, white sex, and this prime-cut white man just falls into her lap. Within seconds, her body was overflowing with heat and lust for the man in front of her. Vanessa wanted to get hot and filthy with this fine-ass white boy, no question. He pushed all her buttons, and she immediately wanted him bad. But the significance of who he was and what he was about to do wasn't lost on her. He was getting married to her secretary. This was his wedding day, and all Vanessa could think about was seducing and fucking his brains out till he swore his undying devotion to pleasuring her hot black body. She wanted to rip off her dress, force the groom to his knees, and smother his gorgeous face with her massive black breasts. 
 
- But she couldn't do that... right? She wasn't that big of a slut, was she? Sure, she had had sex with plenty of married men. That wasn't the problem. Her hot body made her a very juicy target for men eager to step out on their wives, and even when those men weren't so ready to cheat, Vanessa's hot black body always got the job done. But she couldn't possibly seduce and steal a man from his bride on his wedding day, especially when she the bride was her own secretary, could she? It was so wrong. So nasty. So filthy. So HOT! As positively delicious as the idea sounded to the luscious, hot-bodied older black woman, her better instincts were winning out. Report_Story #5 
+ But she couldn't do that... right? She wasn't that big of a slut, was she? Sure, she had had sex with plenty of married men. That wasn't the problem. Her hot body made her a very juicy target for men eager to step out on their wives, and even when those men weren't so ready to cheat, Vanessa's hot black body always got the job done. But she couldn't possibly seduce and steal a man from his bride on his wedding day, especially when she the bride was her own secretary, could she? It was so wrong. So nasty. So filthy. So HOT! As positively delicious as the idea sounded to the luscious, hot-bodied older black woman, her better instincts were winning out.  
 
  
 
@@ -514,7 +514,7 @@
 
  Her discomfort was starting to match that which her new husband was feeling. His discomfort wasn't due to the sensation of being an outsider at his own wedding. No, it was due to the fact that he couldn't get Vanessa out of his head. 
 
- Even during the ceremony, Zack found himself struggling to look away from his wife's hot black boss. When she walked down the aisle with his best man, Zack found himself staring hungrily at the older black maid of honor. His eyes fell to her magnificently large breasts, jiggling hypnotically as she sauntered down the aisle. He would catch himself after a few moments, pulling his eyes from her clearly throbbing nipples, but despite the fact that he could have friends and family catch him in the act, his eyes kept falling to her bulbous chest throughout the ceremony. What was he doing? This was his wedding? What the fuck is wrong with him? He's better than this. He should know better than to be checking out another woman on his wedding day, but this luscious creature was something he had never come across before. So hot. So sexy. So black... Report_Story #6 
+ Even during the ceremony, Zack found himself struggling to look away from his wife's hot black boss. When she walked down the aisle with his best man, Zack found himself staring hungrily at the older black maid of honor. His eyes fell to her magnificently large breasts, jiggling hypnotically as she sauntered down the aisle. He would catch himself after a few moments, pulling his eyes from her clearly throbbing nipples, but despite the fact that he could have friends and family catch him in the act, his eyes kept falling to her bulbous chest throughout the ceremony. What was he doing? This was his wedding? What the fuck is wrong with him? He's better than this. He should know better than to be checking out another woman on his wedding day, but this luscious creature was something he had never come across before. So hot. So sexy. So black...  
 
  
 
@@ -620,7 +620,7 @@
 
  "What... the bride?" Trina responded with a snotty, impatient tone. 
 
- "I want that little bitch loaded. I want you to keep feeding her drinks till she can't see straight." Vanessa affirmed firmly, affixing a tone that would make most people squirm. But not Trina. She turned to look at the happy couple for a few moments before deducing Vanessa's true goal. Report_Story #7 
+ "I want that little bitch loaded. I want you to keep feeding her drinks till she can't see straight." Vanessa affirmed firmly, affixing a tone that would make most people squirm. But not Trina. She turned to look at the happy couple for a few moments before deducing Vanessa's true goal.  
 
  
 
@@ -756,7 +756,7 @@
 
  "I'm not gonna mess around!" Zack affirmed again, slightly losing his cool. Watching from afar, Mandy could sense her husband's consternation as she danced with a relative, but she didn't know the cause. Vanessa was undeterred. 
 
- "It's a shame, though," she began with a smirk. "I must confess, I've been thinking a LOT about you since we first met. I can't stop thinking about it, to be honest. And me and you, together... boy, I could have rocked your world, haha. You wouldn't have had to look anywhere else for some good loving. And honey, I would have done it all with you. With a stud like you, you just got to. I mean, I was THIS close to letting you see me completely naked. Like, you would have seen it all. I was this close to just fucking smothering you with my huge black tits. If I had pulled the trigger, we'd be in a bathroom stall with your dick up my ass! Haha!" Zack was startled into silence at her blunt honesty here. "We could have gone all night and never have done the same thing twice. I would have broken you down completely till you couldn't see straight! I would have made you depend on my body to live!" She paused, letting this sink into the startled married man. "So thank goodness we cleared this whole thing up before I got carried away. Like you said, you're not that type of guy, so that stuff will never happen. You're a good boy. Shame..." Zack was perplexed by this speech, and shocked that she could think that it was totally cool to admit that she was contemplating seducing him. That she had been fantasizing about all the things she would do to him in the bedroom. Zack had never dealt with anyone quite like this, and he didn't know how to respond. Report_Story #8 
+ "It's a shame, though," she began with a smirk. "I must confess, I've been thinking a LOT about you since we first met. I can't stop thinking about it, to be honest. And me and you, together... boy, I could have rocked your world, haha. You wouldn't have had to look anywhere else for some good loving. And honey, I would have done it all with you. With a stud like you, you just got to. I mean, I was THIS close to letting you see me completely naked. Like, you would have seen it all. I was this close to just fucking smothering you with my huge black tits. If I had pulled the trigger, we'd be in a bathroom stall with your dick up my ass! Haha!" Zack was startled into silence at her blunt honesty here. "We could have gone all night and never have done the same thing twice. I would have broken you down completely till you couldn't see straight! I would have made you depend on my body to live!" She paused, letting this sink into the startled married man. "So thank goodness we cleared this whole thing up before I got carried away. Like you said, you're not that type of guy, so that stuff will never happen. You're a good boy. Shame..." Zack was perplexed by this speech, and shocked that she could think that it was totally cool to admit that she was contemplating seducing him. That she had been fantasizing about all the things she would do to him in the bedroom. Zack had never dealt with anyone quite like this, and he didn't know how to respond.  
 
  
 
@@ -854,7 +854,7 @@
 
  "What?" Mandy asked, the blood leaving her face. "I am not interested in that kind of thing, and he's never mentioned it to me." 
 
- "Of course he would never ask you for it, but that doesn't mean he doesn't want it." Vanessa said. "I know it might be intimidating, but it's a cutthroat world out there, and if you don't give it to him, some other eager little slut will. These are the things women have to do these days to hold onto a man." Report_Story #9 
+ "Of course he would never ask you for it, but that doesn't mean he doesn't want it." Vanessa said. "I know it might be intimidating, but it's a cutthroat world out there, and if you don't give it to him, some other eager little slut will. These are the things women have to do these days to hold onto a man."  
 
  
 
@@ -952,7 +952,7 @@
 
  "You're a very lucky woman, Mandy," Vanessa said. Waiting for a reply that wasn't coming, Vanessa continued. "I didn't expect your husband to be so... sexy," she stated, looking at Zack with amusement in her eyes as he gave her an angry look in response. 
 
- "Uhnnn..." groaned Mandy through closed eyes, barely feeling anything at this point. Smiling Report_Story #10 
+ "Uhnnn..." groaned Mandy through closed eyes, barely feeling anything at this point. Smiling 0 
 
  
 
@@ -1062,7 +1062,7 @@
 
  "I think you should leave," he said firmly, standing up to her. She simply laughed, her heavy tits jiggling as she stood up straight. 
 
- "Oh, honey, stop acting so innocent," Vanessa tittered. "You want to do some dirty things to my hot body." She sauntered around the bar slowly, approaching him, causing him to step back slightly. "Thinking such filthy thoughts about your wife's hot boss at your own wedding. That's some pretty fucked up shit! I love it!" Report_Story #11 
+ "Oh, honey, stop acting so innocent," Vanessa tittered. "You want to do some dirty things to my hot body." She sauntered around the bar slowly, approaching him, causing him to step back slightly. "Thinking such filthy thoughts about your wife's hot boss at your own wedding. That's some pretty fucked up shit! I love it!" 1 
 
  
 
@@ -1162,7 +1162,7 @@
 
  "Fuck yeah!" Vanessa moaned out, her eyes closing as her head tipped back, enjoying the blissful sensation of this hot white man's married mouth tugging on her nipple. His tongue was flicking at the hardened nub as his open mouth inhaled the massive teat. He sucked at the throbbing nipple, tugging at it, biting it lightly, coating it with his hot saliva, his mouth working the hard nub as if trying to draw milk from the massive udder. "Oh, honey... you suck my big tits so well!" 
 
- Vanessa dug her nails into his scalp, holding him in place as he sucked her tasty nipple. He was working over her breasts so well, squeezing them both rhythmically as he sucked. She guided him between nipples, letting him work the other nipple over, giving it the same worship he gave the first one. Report_Story #12 
+ Vanessa dug her nails into his scalp, holding him in place as he sucked her tasty nipple. He was working over her breasts so well, squeezing them both rhythmically as he sucked. She guided him between nipples, letting him work the other nipple over, giving it the same worship he gave the first one. 2 
 
  
 
@@ -1228,7 +1228,7 @@
 
  Vanessa's hungry mouth focused entirely on his cock-head, her smooth lips smothered the tip as her tongue tickled the underside. Her cheeks hollowed inhumanely as she sucked on his mushroom tip hard, gnawing on his cock like a complete slut. She pulled her mouth from his cock with a loud pop before attacking the shaft from the side, sliding her open mouth up and down the sides while rotating her mouth around its circumference, slobbering all over it as she stroked him lightly. She slid her mouth down to his nuts, sucking on each of the smooth balls, one at a time, worshipping each one with her tongue, coaxing even more thick cream into his swollen testicles, increasing his singular need for that one bone-shaking orgasm. 
 
- After worshipping his balls for a few minutes and tickling his nuts with her sinewy tongue, she slid her mouth back up to the tip and wrapped her plump lips around his cock once more. His balls boiling even further, he placed both hands onto her head and began to slowly pump his cock upward, fucking the black woman's mouth with his fat white cock. His cock began to swell up and as his veins began pumping electric bolts of pleasure throughout his body, he started fucking the older black woman's throat more savagely, smoothly making her take his entire length in her hot mouth. His wet nuts smacked against her chin as he made her take his length, but she wasn't complaining, savagely attacking his dick as roughly as he fucked up into her. Report_Story #13 
+ After worshipping his balls for a few minutes and tickling his nuts with her sinewy tongue, she slid her mouth back up to the tip and wrapped her plump lips around his cock once more. His balls boiling even further, he placed both hands onto her head and began to slowly pump his cock upward, fucking the black woman's mouth with his fat white cock. His cock began to swell up and as his veins began pumping electric bolts of pleasure throughout his body, he started fucking the older black woman's throat more savagely, smoothly making her take his entire length in her hot mouth. His wet nuts smacked against her chin as he made her take his length, but she wasn't complaining, savagely attacking his dick as roughly as he fucked up into her. 3 
 
  
 
@@ -1310,7 +1310,7 @@
 
  Zack was still frozen with tension, his manly jaw clenched as he tried not to give in. Her smooth, sexy voice and the rhythmic, delicious bouncing of her huge black breasts were seeping their way into his mind, overwhelming his apprehension, slowly replacing all other thoughts with images of big, black, bouncy tits. Seeing Vanessa's enormous black boobs in the flesh was an image he would never be able to forget. It was an image his lizard brain was feasting on, that was being etched permanently in his thoughts, an image that would define nasty, illicit, raw sexuality. An image that would be at the forefront of sexual appeal, an image he would go to when he just had to unleash a heavy load from his massive nuts. 
 
- It was his lizard brain that was in control as his hands rose from the bed, seeking salvation in the older woman's amazingly big breasts as they bounced above him. They were bouncing so lusciously above him that, despite his inner conflict, he just had to give them a firm squeeze. He had to feel them in his palms again. He had felt them before, sure, but he was now currently balls deep in a tight black pussy, so the added sensation of a pair of huge tits in his hands might make him lose it completely. They were right above him, bouncing... jiggling. The dark, sexy flesh, coated with sweat, looking so round and perky and firm, just dying to be touched. His hands got close, and he didn't have the will to pull them back. His hands got closer... and closer... and closer... and just when his greedy fingers were about to make contact... Report_Story #14 
+ It was his lizard brain that was in control as his hands rose from the bed, seeking salvation in the older woman's amazingly big breasts as they bounced above him. They were bouncing so lusciously above him that, despite his inner conflict, he just had to give them a firm squeeze. He had to feel them in his palms again. He had felt them before, sure, but he was now currently balls deep in a tight black pussy, so the added sensation of a pair of huge tits in his hands might make him lose it completely. They were right above him, bouncing... jiggling. The dark, sexy flesh, coated with sweat, looking so round and perky and firm, just dying to be touched. His hands got close, and he didn't have the will to pull them back. His hands got closer... and closer... and closer... and just when his greedy fingers were about to make contact... 4 
 
  
 
@@ -1410,7 +1410,7 @@
 
  "I want to cum!" Zack grunted. "I want to cum in your fucking cunt! I want to cum in Mama's hot cunt!" 
 
- "Oh fuck!" Vanessa screamed out, turning a corner. She bounced up and down, sweat dripping off of her. She drove down till his full length was inside her then flexed her cunt around him, trying to coax the load from his balls. "Yes! YES! YES! Cum in Mama's cunt, baby! Cum in me! CUM INSIDE ME! YES! YES! YES! Give me that married cum while your wife is passed out in the bathroom like a fucking fool! Cum inside me and forget about your wife forever! UGHHH! YES! YES! YES! UGH! YEAH! FUCK! Give me babies! Give me babies! Give me fucking white babies! YES!" Report_Story #15 
+ "Oh fuck!" Vanessa screamed out, turning a corner. She bounced up and down, sweat dripping off of her. She drove down till his full length was inside her then flexed her cunt around him, trying to coax the load from his balls. "Yes! YES! YES! Cum in Mama's cunt, baby! Cum in me! CUM INSIDE ME! YES! YES! YES! Give me that married cum while your wife is passed out in the bathroom like a fucking fool! Cum inside me and forget about your wife forever! UGHHH! YES! YES! YES! UGH! YEAH! FUCK! Give me babies! Give me babies! Give me fucking white babies! YES!" 5 
 
  
 
@@ -1522,7 +1522,7 @@
 
  "UGGHHH! FUCK! That's right, baby! Yank my fucking hair! Fuck me fucking hard, baby! Fuck my fucking brains out! Yes... YES!" she screamed out. Zack tugged her hair forcefully, pulling back at it as he fucked her. As he did this, he leaned forward, sliding his other hand under her to feel her big breasts once more. His hand molested her massive udders wildly, touching what he could, feeling up the soft flesh, before getting a good hold of one of her big tits and squeezed the soft, luscious flesh roughly. Their bodies were locked against each other as Zack's powerful hips drove them both forward. 
 
- "Yes! YES! Fucking do it, you piece of shit! FUCK MY ASS! FUCK MY ASS YOU MOTHERFUCKING SON OF A BITCH!" Vanessa screamed out. Their faces were next to each other, so she extended her tongue, eager to slide it into his mouth again. Both of them kept jerking forward, making it hard to lock their lips, but their tongues tangled in mid air sloppily, mashing against each other. Zack reached down with his other hand so both were cupping her huge tits, squeezing her massive tanks roughly, over and over again. "You're so fucking good! So good!" she whispered to him, loving the sensation of his hands on her body. His hips kept pumping, forcing his married dick smoothly in-and-out of her tight ass, the amazing hole swallowing his meat completely. Report_Story #16 
+ "Yes! YES! Fucking do it, you piece of shit! FUCK MY ASS! FUCK MY ASS YOU MOTHERFUCKING SON OF A BITCH!" Vanessa screamed out. Their faces were next to each other, so she extended her tongue, eager to slide it into his mouth again. Both of them kept jerking forward, making it hard to lock their lips, but their tongues tangled in mid air sloppily, mashing against each other. Zack reached down with his other hand so both were cupping her huge tits, squeezing her massive tanks roughly, over and over again. "You're so fucking good! So good!" she whispered to him, loving the sensation of his hands on her body. His hips kept pumping, forcing his married dick smoothly in-and-out of her tight ass, the amazing hole swallowing his meat completely. 6 
 
  
 
@@ -1638,7 +1638,7 @@
 
  "If he's 'just a guy', then why did you do this? Why did you... why did you have sex with him?" Mandy asked, seeking answers but struggling to say the words. 
 
- "Honey, guys like him will always be temporary for girls like you. You might be pissed at him, and you probably see him as a cheating asshole, but don't get me wrong, he's not 'just a guy' for me. That white boy is too delicious to let pass by, and I intend to keep him. You don't have a chance with a top-tier stud like him, only women like me do. At the end of the day, you just need to move on and not think about how close you came to a perfect life, because it will only hurt you. And while you're doing that, I'll be riding his fat white cock and having his babies, having the life you could have had with your soul-mate." Vanessa said with a smug smile, her hard nipples throbbing. Report_Story #17 
+ "Honey, guys like him will always be temporary for girls like you. You might be pissed at him, and you probably see him as a cheating asshole, but don't get me wrong, he's not 'just a guy' for me. That white boy is too delicious to let pass by, and I intend to keep him. You don't have a chance with a top-tier stud like him, only women like me do. At the end of the day, you just need to move on and not think about how close you came to a perfect life, because it will only hurt you. And while you're doing that, I'll be riding his fat white cock and having his babies, having the life you could have had with your soul-mate." Vanessa said with a smug smile, her hard nipples throbbing. 7 
 
  
 
@@ -1720,7 +1720,7 @@
 
  But it didn't even stop there. Vanessa had become acquainted with another older black woman, a female senator. While this woman was well-known as someone who seemed very tightly-wound and conservative, Zack soon discovered how crazy filthy she truly was. Yeah, Zack fucked her too, at Vanessa's urging. In doing so, her and Vanessa became as thick as thieves, and whenever Zack would see the senator giving some fiery, blistering speech on the floor of the senate, supporting some issue Zack vehemently disagreed with, Zack would remember how good her ass looked in that purple thong, and all his political concerns would just sort of slip away. 
 
- But maybe the most surreal encounter of all was when Zack and Vanessa met up with Naomi, the billionaire TV host and mogul who he had met at his wedding. Zack knew how the night would end as soon as they met up for dinner, but even when it happened, when Zack had a threesome with Vanessa and Naomi, when he found himself smothered in their dark, smooth flesh, when he fell asleep with two powerful black women pressed into him, he couldn't help but marvel at this new life he was living. Report_Story #18 
+ But maybe the most surreal encounter of all was when Zack and Vanessa met up with Naomi, the billionaire TV host and mogul who he had met at his wedding. Zack knew how the night would end as soon as they met up for dinner, but even when it happened, when Zack had a threesome with Vanessa and Naomi, when he found himself smothered in their dark, smooth flesh, when he fell asleep with two powerful black women pressed into him, he couldn't help but marvel at this new life he was living. 8 
 
  
 
@@ -1838,7 +1838,7 @@
 
  Needless to say, Zack had found true satisfaction. 
 
- And thanks to the fact that he was almost drowning in black pussy, smothered constantly between huge black tits, or juicy black asses, Zack never looked back at his old life. Report_Story #19 
+ And thanks to the fact that he was almost drowning in black pussy, smothered constantly between huge black tits, or juicy black asses, Zack never looked back at his old life. 9 
 
  
 

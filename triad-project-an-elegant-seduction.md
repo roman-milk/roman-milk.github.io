@@ -216,7 +216,7 @@
 
  "Are there any questions? If not, let's dig in." 
 
- Of course it wasn't long before Cheryl lost a banana in the chocolate (they were the hardest to keep on the fork). She paid her forfeit happily. Report_Story #2 
+ Of course it wasn't long before Cheryl lost a banana in the chocolate (they were the hardest to keep on the fork). She paid her forfeit happily.  
 
  
 
@@ -388,7 +388,7 @@
 
  "Afraid? Of what?" I had to ask. 
 
- Report_Story #3 
+  
 
  
 
@@ -584,7 +584,7 @@
 
  "Ohh, Gaaaawd, You are so fucking big, oooh, fuckk, oooooooh fuck, oooooohhh GOD," she was biting me hard, scratching my back, digging her fingers in deep, then pressing herself into me. 
 
- She was impaled on my cock and I hadn't moved. She'd cum from her own feelings. I grabbed her hair, and pulled her head back, not too hard, but forcefully. I pressed my mouth to hers, and drove my tongue 1/2 way down her throat. I pulled her head to one side, biting her ear, and sucking her neck. The water was starting to get cold, so I turned around, dunking her in the cooling water, then turned off the hot water. When the ice cold water struck her back, she shrieked, smacking my back. I held her pinned tightly to me, one hand across her ass, one across her shoulders, and my hard cock deep inside her; she could barely move. Report_Story #4 
+ She was impaled on my cock and I hadn't moved. She'd cum from her own feelings. I grabbed her hair, and pulled her head back, not too hard, but forcefully. I pressed my mouth to hers, and drove my tongue 1/2 way down her throat. I pulled her head to one side, biting her ear, and sucking her neck. The water was starting to get cold, so I turned around, dunking her in the cooling water, then turned off the hot water. When the ice cold water struck her back, she shrieked, smacking my back. I held her pinned tightly to me, one hand across her ass, one across her shoulders, and my hard cock deep inside her; she could barely move.  
 
  
 

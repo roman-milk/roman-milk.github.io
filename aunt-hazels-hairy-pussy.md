@@ -176,7 +176,7 @@
 
  For a time, the chance, however slim a possibility that Hazel actually was the model – after all, why would her husband have kept that magazine? – I nurtured the fantasy of making love to my own mother's sister. I knew it was the wrong thing to do, but that didn't make any difference. If anything the taboo only caused my orgasms to burn hotter. 
 
- It ended after a close-call, almost being caught with the magazine spread across my bed while I knelt there, fist pumping my cock. It was just as my climax struck, the jizm boiling out of me that I heard the squeak on the stairs, a sound I'd identified as the loose tread, the one fifth from the top. There was no way I could stem the flow of my outpouring as a coldwater wave of shock washed over me. Panic mushroomed in my chest, and I think I might even have blurted out a denial as a hundred thoughts clamoured inside my head at once. It couldn't be. It just couldn't happen. It couldn't be Hazel. There had to be some other explanation for the sound on the stairs. I truly, honestly harboured the fantastic belief that my aunt could walk in and catch me in such a position. Report_Story #2 
+ It ended after a close-call, almost being caught with the magazine spread across my bed while I knelt there, fist pumping my cock. It was just as my climax struck, the jizm boiling out of me that I heard the squeak on the stairs, a sound I'd identified as the loose tread, the one fifth from the top. There was no way I could stem the flow of my outpouring as a coldwater wave of shock washed over me. Panic mushroomed in my chest, and I think I might even have blurted out a denial as a hundred thoughts clamoured inside my head at once. It couldn't be. It just couldn't happen. It couldn't be Hazel. There had to be some other explanation for the sound on the stairs. I truly, honestly harboured the fantastic belief that my aunt could walk in and catch me in such a position.  
 
  
 
@@ -322,7 +322,7 @@
 
  No, I couldn't see Hazel mentioning anything to her sister, but then again, if you'd told me twenty-four hours earlier that my aunt would rub herself to orgasm in front of me, I'd have laughed in your face and called you delusional. 
 
- I suppose I felt bad because I'd carried on the way I had. It seemed that I'd misread my aunt completely, that she hadn't wanted to see my hard-on, nor did she want to watch me wank or have my tongue squirming into her opening. I'd upset her and caused her more anguish than she already felt. What we'd done, the lewd scene we'd both participated in was bad enough, and was obviously something she felt ashamed of, and now I'd embarrassed Hazel further, exacerbated the problem by letting myself get out of control. And I couldn't see any way of putting it right. Report_Story #3 
+ I suppose I felt bad because I'd carried on the way I had. It seemed that I'd misread my aunt completely, that she hadn't wanted to see my hard-on, nor did she want to watch me wank or have my tongue squirming into her opening. I'd upset her and caused her more anguish than she already felt. What we'd done, the lewd scene we'd both participated in was bad enough, and was obviously something she felt ashamed of, and now I'd embarrassed Hazel further, exacerbated the problem by letting myself get out of control. And I couldn't see any way of putting it right.  
 
  
 
@@ -522,7 +522,7 @@
 
  "Oh!" Aunt Hazel yelped when the stuff splashed onto her legs. "You're cumming. Look at that, look at all that stuff coming out of you." 
 
- My aunt rubbed herself, her eyes locked on my spitting penis. She came, frantic and urgent as my deluge subsided to a dribble, heavy spats of cum plopping onto her shoes. Report_Story #4 
+ My aunt rubbed herself, her eyes locked on my spitting penis. She came, frantic and urgent as my deluge subsided to a dribble, heavy spats of cum plopping onto her shoes.  
 
  
 
@@ -696,7 +696,7 @@
 
  'That was bad," the woman purred, cum-spattered fingers pushed into her opening. 
 
- Unable to stop myself I crouched low over my aunt's body, my mouth going to hers. Our lips touched and, following the briefest hesitation – a stiffening of her muscles and a gasp of surprise – Hazel relaxed and breathed a sigh into my open mouth. We kissed, Hazel's tongue sliding over mine. I felt my aunt's fingers close around my cock and jerked my head back, breaking that first kiss to stare at the hand squeezing me. Report_Story #5 
+ Unable to stop myself I crouched low over my aunt's body, my mouth going to hers. Our lips touched and, following the briefest hesitation – a stiffening of her muscles and a gasp of surprise – Hazel relaxed and breathed a sigh into my open mouth. We kissed, Hazel's tongue sliding over mine. I felt my aunt's fingers close around my cock and jerked my head back, breaking that first kiss to stare at the hand squeezing me.  
 
  
 
@@ -882,7 +882,7 @@
 
  "Kiss me, darling," Aunt Hazel panted when the tsunami wave had rolled over her. "I want to taste my pussy on your tongue." 
 
- And, as we kissed, my aunt reached for my flies. I knew I'd lost the bet, but I didn't care too much about it at that stage, all I was concerned about was shucking my jeans down to my thighs so my aunt could grip my cock and wank the pent-up frustration out of me. Report_Story #6 
+ And, as we kissed, my aunt reached for my flies. I knew I'd lost the bet, but I didn't care too much about it at that stage, all I was concerned about was shucking my jeans down to my thighs so my aunt could grip my cock and wank the pent-up frustration out of me.  
 
  
 
@@ -1090,7 +1090,7 @@
 
  "Oh that's good," my aunt said, her voice curdling into a gurgle of delight while we fucked and she fingered her clit. "Skin on skin, a big cock inside me. Oh, Carl, I'm so fucking happy, so glad this has happened." 
 
- During that first time, the shadow of our coupling an indistinct blur on the grass as the sun moved slowly along its predetermined track, while the benign breeze caressed my back, my mind seemed to cleave in two, one side caught up in the emotion, the sheer ebullience at finally, after so much time spent in frustrated agony I was finally inside Hazel, while the opposite hemisphere remained detached, studying Hazel's face, listening to her sighs and moans and the occasional obscenity that slipped out of her. Report_Story #7 
+ During that first time, the shadow of our coupling an indistinct blur on the grass as the sun moved slowly along its predetermined track, while the benign breeze caressed my back, my mind seemed to cleave in two, one side caught up in the emotion, the sheer ebullience at finally, after so much time spent in frustrated agony I was finally inside Hazel, while the opposite hemisphere remained detached, studying Hazel's face, listening to her sighs and moans and the occasional obscenity that slipped out of her.  
 
  
 

@@ -174,11 +174,11 @@
 
  Stutz's affair with Helen came to an end when I changed jobs and we moved. Ford was expanding their Wayne Assembly Plant and I put in for one of the Line Supervisor jobs and got it so we gave up the apartment on Dumbarton and moved to Romulus. We found an apartment on Wayne Road and moved in. 
 
- We were still trying to save money for a house so Helen's first order of business was to find another job. Within a week she found a job as a waitress. Her job screwed up our established routine because it was day shift, eight to four-thirty, and I was still working afternoons. When I say it screwed up our established routine I guess what I really meant was that it screwed up mine. All it meant to Helen was that the Pizza Man was replaced by The Cop. Report_Story #2 
+ We were still trying to save money for a house so Helen's first order of business was to find another job. Within a week she found a job as a waitress. Her job screwed up our established routine because it was day shift, eight to four-thirty, and I was still working afternoons. When I say it screwed up our established routine I guess what I really meant was that it screwed up mine. All it meant to Helen was that the Pizza Man was replaced by The Cop.  
 
  
 
- ****** The Helen Chronicles Ch. 01 ****** byJust_Plain_Bob© To be continued... Report_Story #1 
+ ****** The Helen Chronicles Ch. 01 ****** byJust_Plain_Bob© To be continued...  
 
  
 
@@ -374,7 +374,7 @@
 
  I dated Linda for another two months or so and then we slowly drifted apart. I liked her, I liked her a lot, but I had no room in my life for another slut, not even an honest one. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -462,7 +462,7 @@
 
  At the time all this took place VCRs and video cameras were still a figment of someone's imagination. What Denny actually slid across the table to me was a canister containing a reel of regular 8mm film. Suspecting that a lot of readers might not have a clue as to what regular 8 and Super 8mm film might be I used artistic license and substituted a medium they could understand. The reason I couldn't hear Helen's scream was the 8mm film cameras didn't not pick up sound like video cameras do. 
 
- I can only guess at the reason for the Hamburger Man to have the film. Since the event took place ages before sexual harassment became common place I doubt that it was meant to cover Denny's ass in case one of his waitresses complained. I can only conclude that he used it for his own personal amusement or the amusement of his friends. Report_Story #1 
+ I can only guess at the reason for the Hamburger Man to have the film. Since the event took place ages before sexual harassment became common place I doubt that it was meant to cover Denny's ass in case one of his waitresses complained. I can only conclude that he used it for his own personal amusement or the amusement of his friends.  
 
  
 
@@ -546,7 +546,7 @@
 
  Did I ever test the girls to see if they were mine? No! I had been there when they were delivered, I had changed their diapers, fed and burped them, tucked them in bed and read them stories and done the thousand other things that parents do for their children. They were MINE and that was that. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

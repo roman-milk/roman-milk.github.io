@@ -196,7 +196,7 @@
 
  "Easy baby, nice and easy, slow and gentle until I warm up." 
 
- I slid slowly into her and felt her anal walls grip my cock like a tight fist. "That feels so good" she moaned, "A little harder honey and just a little faster. God honey, you feel so hard. Fuck me honey, fuck me." Report_Story #2 
+ I slid slowly into her and felt her anal walls grip my cock like a tight fist. "That feels so good" she moaned, "A little harder honey and just a little faster. God honey, you feel so hard. Fuck me honey, fuck me."  
 
  
 

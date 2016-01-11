@@ -378,7 +378,7 @@
 
  Her breathing was erratic as she took all my cock in her tight pussy with each backwards bounce. 
 
- I was getting close to eruption myself when she screamed, "Fuuuuuck, I'm cominnnng again." Report_Story #2 
+ I was getting close to eruption myself when she screamed, "Fuuuuuck, I'm cominnnng again."  
 
  
 
@@ -862,7 +862,7 @@
 
  Adamistheman: I'll have to talk to her about that. 
 
- Lisa1996: u two have a strange relationship Report_Story #3 
+ Lisa1996: u two have a strange relationship  
 
  
 
@@ -1242,7 +1242,7 @@
 
  I added, "Yes, the play is full of complex characters." 
 
- Lisa added, looking directly at me, "Yes, you need to see past the outer appearance to really get to know them." Report_Story #4 
+ Lisa added, looking directly at me, "Yes, you need to see past the outer appearance to really get to know them."  
 
  
 
@@ -1562,7 +1562,7 @@
 
  The third load ended up going down her throat as she slowly sucked me for a good half hour, sucking on my balls, licking my long shaft and just pleasuring my cock. 
 
- The limo finally returned to the restaurant, we got ourselves dressed and returned to our car, both of us too tired to socialize. Report_Story #5 
+ The limo finally returned to the restaurant, we got ourselves dressed and returned to our car, both of us too tired to socialize.  
 
  
 

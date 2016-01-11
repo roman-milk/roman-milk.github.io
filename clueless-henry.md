@@ -258,7 +258,7 @@
 
  The mechanics were cut and dried. It was a no fault state so the assets were going to be split fifty/fifty and we both made comparable wages so there would be no alimony. Where I would make out on the deal was that our state was one that allowed alienation of affection suits and – and this was the biggie – Mike was over my department and Claudine's department and our company policy and procedures manual was quite specific when it came to relationships between supervisors and subordinates. Mike having anything at all to do with Claudine was a very big no-no and his sending me out of town so they could be together was the kiss of death so in addition to suing Mike for alienation of affections I would be suing to company for failing to enforce the CP&P. 
 
- At the very least Mike and Claudine would be joining the ranks of the unemployed and the chances were better than good that the company would settle the suit to keep things from going public. I wouldn't be able to work there any more after I sued, but given that I figured that everyone I worked with – evidenced by Dan's phone call – knew that I was being fucked over and kept quiet about it I didn't want to stay there and work with the assholes anyway. Report_Story #2 
+ At the very least Mike and Claudine would be joining the ranks of the unemployed and the chances were better than good that the company would settle the suit to keep things from going public. I wouldn't be able to work there any more after I sued, but given that I figured that everyone I worked with – evidenced by Dan's phone call – knew that I was being fucked over and kept quiet about it I didn't want to stay there and work with the assholes anyway.  
 
  
 
@@ -420,7 +420,7 @@
 
  As I was putting the jack and the flat into the truck she thanked me for my help and offered to pay me for my help. I told her she could buy me a cup of coffee and a sweet roll at the Denny's that was just across the street and she smiled and told me that I had a deal. We introduced ourselves as we walked across the street to the restaurant. Her name was Tammi. As we sat down she said: 
 
- "I have the feeling that I know you from somewhere." Report_Story #3 
+ "I have the feeling that I know you from somewhere."  
 
  
 
@@ -626,7 +626,7 @@
 
  She stared at me for almost a minute and then said, "You are forcing me to do something that I had hoped that I would never have to do. Show you the reason why I can't marry you. Go out to the family room and sit down on the couch and I'll be there in a minute." 
 
- "What? Why? I mean why should you need to show me anything." Report_Story #4 
+ "What? Why? I mean why should you need to show me anything."  
 
  
 

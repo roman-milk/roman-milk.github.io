@@ -196,7 +196,7 @@
 
  I looked at myself in the mirror. My hair looked amazing, long straight, dark black, down to my mid-back. My face looked perfect, my make-up subtle but good. I fingered my tits in my bra, satisfied with my cleavage. It was the best bra I owned, but it was a good one, lacy and black. I ran my fingers down my silky smooth, golden brown belly, down to my undies. My teeny tiny black thong, splitting my round ass cheeks perfectly. 
 
- I slipped on a tank top, checking my cleavage. Not overwhelming, but I could pull my top down to show off more if I needed to. Satisfied with it, I slipped on some jeans, making sure they were snug, and highlighted my assets. Report_Story #2 
+ I slipped on a tank top, checking my cleavage. Not overwhelming, but I could pull my top down to show off more if I needed to. Satisfied with it, I slipped on some jeans, making sure they were snug, and highlighted my assets.  
 
  
 
@@ -326,7 +326,7 @@
 
  Gabby was a sweetheart. She really was. But she was so... dumb. I mean, she was as sweet as they come, but I had to show her again and again how to dust the way I expected, how to do the laundry the way I liked, etc. Again and again, I would show her the proper way to dust, and she would smile sweetly and nod, but I could tell it wasn't getting through. I could tell she wasn't much of a student. 
 
- My goal was to not have to be here to show here these things, that I could go out and do my own thing during the day, but I was stuck looking over her shoulder and making sure she did things correctly. And with the tops she wore, being over her shoulder meant having a primo view down her expansive cleavage, which just pissed me off. They were so big and perfect. I hated her. It was hard to scold her, because she seemed so sweet and fragile, and it felt like if I scolded her, it would be like slapping a puppy. So I bit my tongue as she tried her best, even though it didn't match my expectations. I would vent to Troy, and he eventually talked me into taking it slow, taking it easy on her, and letting things go, as he tended to do when I got upset. Report_Story #3 
+ My goal was to not have to be here to show here these things, that I could go out and do my own thing during the day, but I was stuck looking over her shoulder and making sure she did things correctly. And with the tops she wore, being over her shoulder meant having a primo view down her expansive cleavage, which just pissed me off. They were so big and perfect. I hated her. It was hard to scold her, because she seemed so sweet and fragile, and it felt like if I scolded her, it would be like slapping a puppy. So I bit my tongue as she tried her best, even though it didn't match my expectations. I would vent to Troy, and he eventually talked me into taking it slow, taking it easy on her, and letting things go, as he tended to do when I got upset.  
 
  
 
@@ -510,7 +510,7 @@
 
  Daniel Kensington was a son of a bitch. 
 
- He was a salesman for a company that Troy's company tried to do business with. Dan was a fat, pervy, misogynistic piece of shit, and the only reason Troy put up with him was the fact that he was very good at what he does, and the company he worked with was worth a lot of money, and Troy's company could increase their wealth immensely if they could do work with Dan's. Dan always teased that he wanted to do business, but he always pulled out at the last minute. So every few months, we had to entertain him with a nice dinner. Part of me wondered if he wanted to get in my pants, and if he could, then he would be willing to make a deal. Dan struck me as the type of guy to do business that way. I always dreaded these dinners, but luckily, a lot of the work was taken off my shoulders now that Gabby was here. Report_Story #4 
+ He was a salesman for a company that Troy's company tried to do business with. Dan was a fat, pervy, misogynistic piece of shit, and the only reason Troy put up with him was the fact that he was very good at what he does, and the company he worked with was worth a lot of money, and Troy's company could increase their wealth immensely if they could do work with Dan's. Dan always teased that he wanted to do business, but he always pulled out at the last minute. So every few months, we had to entertain him with a nice dinner. Part of me wondered if he wanted to get in my pants, and if he could, then he would be willing to make a deal. Dan struck me as the type of guy to do business that way. I always dreaded these dinners, but luckily, a lot of the work was taken off my shoulders now that Gabby was here.  
 
  
 
@@ -730,7 +730,7 @@
 
  "What are you talking about?" I said nervously. 
 
- "Sex! It's the key to everything. It's the key to getting ahead. It's my ticket to the high life. And it's the ticket for you to live an even better life. Sex is what got me that file. Sick, nasty sex, stuff that that fat pig Dan couldn't handle. Trust me, after what I did to him, after I wounded his manly pride by fucking him till he couldn't possibly keep up, where he was begging me to stop, he won't show his face anywhere around here. No one will ever raise a fuss about that info I gave you. I read through it. That's some meaty stuff. Not only will that info let you practically put that company out of business, it will enable you to double your wealth, no questions asked. And in exchange, I want to be there at your side." Gabriella said. Report_Story #5 
+ "Sex! It's the key to everything. It's the key to getting ahead. It's my ticket to the high life. And it's the ticket for you to live an even better life. Sex is what got me that file. Sick, nasty sex, stuff that that fat pig Dan couldn't handle. Trust me, after what I did to him, after I wounded his manly pride by fucking him till he couldn't possibly keep up, where he was begging me to stop, he won't show his face anywhere around here. No one will ever raise a fuss about that info I gave you. I read through it. That's some meaty stuff. Not only will that info let you practically put that company out of business, it will enable you to double your wealth, no questions asked. And in exchange, I want to be there at your side." Gabriella said.  
 
  
 
@@ -888,7 +888,7 @@
 
  "You're evil, you know that. You should not tease a married man like this." I growled, removing my suit coat and loosening my tie. "You're gonna pay for doing this to me." I added, tossing my tie away and beginning to unbutton my shirt. 
 
- "I bet." she said, spreading her legs lewdly, exposing her thong clad pussy to me again. The sight awakened something primal inside me. I was acting on instinct. In a blind daze, I stopped unbuttoning my shirt. With blinding speed, I undid my belt and ripped down my zipper. I grabbed Gabriella behind her knees and pulled her violently to the edge of the bed. I flipped her around so she was on her belly, her legs hanging off the bed. I lifted her up so she was standing, arms on the bed, presenting her practically bare ass to me again. She looked back at me, lust in her eyes, as I ran my fingers under the straps of her thong, pulling it down to her thighs. I couldn't wait for her to take it off completely. I reached into my briefs and removed my now throbbing cock, fully erect, a thick, pulsing 9.5 inches, leaking pre-cum to the floor. Report_Story #6 
+ "I bet." she said, spreading her legs lewdly, exposing her thong clad pussy to me again. The sight awakened something primal inside me. I was acting on instinct. In a blind daze, I stopped unbuttoning my shirt. With blinding speed, I undid my belt and ripped down my zipper. I grabbed Gabriella behind her knees and pulled her violently to the edge of the bed. I flipped her around so she was on her belly, her legs hanging off the bed. I lifted her up so she was standing, arms on the bed, presenting her practically bare ass to me again. She looked back at me, lust in her eyes, as I ran my fingers under the straps of her thong, pulling it down to her thighs. I couldn't wait for her to take it off completely. I reached into my briefs and removed my now throbbing cock, fully erect, a thick, pulsing 9.5 inches, leaking pre-cum to the floor.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  (Irene) 
 
- I noticed something amiss as soon as I got home. The hour was late, I was still dressed in my nice dress, eager to get in my PJ's and curl up in bed. But something was off. Stuff didn't look right. There was dust on the drawers, dirty dishes in the sink, and things seemed out of place. That stupid bitch Gabby. I thought she had come along, but just like that, she had reverted to her old ways. I might have to go up to her room and wake her up. I had to stop myself from fixing these mistakes as I walked. I set my bag down and walked past the dinner table. I noticed a strange puddle on it. I dipped my finger in it, brought it to my nose sniffed it. Not finding the smell objectionable, I put it in my mouth. It had a unique taste, but a familiar taste. I couldn't put my finger on what it was though. It made me think of college, for some reason. Report_Story #7 
+ I noticed something amiss as soon as I got home. The hour was late, I was still dressed in my nice dress, eager to get in my PJ's and curl up in bed. But something was off. Stuff didn't look right. There was dust on the drawers, dirty dishes in the sink, and things seemed out of place. That stupid bitch Gabby. I thought she had come along, but just like that, she had reverted to her old ways. I might have to go up to her room and wake her up. I had to stop myself from fixing these mistakes as I walked. I set my bag down and walked past the dinner table. I noticed a strange puddle on it. I dipped my finger in it, brought it to my nose sniffed it. Not finding the smell objectionable, I put it in my mouth. It had a unique taste, but a familiar taste. I couldn't put my finger on what it was though. It made me think of college, for some reason.  
 
  
 

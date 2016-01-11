@@ -200,7 +200,7 @@
 
  We'd done it, we'd crossed the bridge and there was no going back. Whatever happened I'd had carnal knowledge of my own mother. She'd sucked my cock and it had been divine so far, but I wanted more. 
 
- 'Is that enough, Luke?' My mother looked at me with hope in her eyes. I looked down at her again and I saw the light visibly fade away when she understood that I was nowhere near finished, in fact I'd only just begun. Report_Story #2 
+ 'Is that enough, Luke?' My mother looked at me with hope in her eyes. I looked down at her again and I saw the light visibly fade away when she understood that I was nowhere near finished, in fact I'd only just begun.  
 
  
 

@@ -150,7 +150,7 @@
 
  He grabbed at the protruding handle, looking up at me in shock. The rivulets of blood pumped out around the heavy leaded glass, extinguishing the lights. He fell to the floor, whimpering like a little girl. 
 
- I dropped the handkerchief on him. "Maybe this can stop the bleeding," I said. "They're not phoenix tears, just the snot of a middle-aged heartless slut. Let me know how that works out for you." Report_Story #2 
+ I dropped the handkerchief on him. "Maybe this can stop the bleeding," I said. "They're not phoenix tears, just the snot of a middle-aged heartless slut. Let me know how that works out for you."  
 
  
 
@@ -330,7 +330,7 @@
 
  When I went out and sat in my chair, for the first of my two daily beers, I didn't see her. A few minutes later she came around the corner of the house and spotted me. She gave me a sad little smile, then went indoors, returning with a beer of her own. She passed me the Belikin, about the only beer I could buy locally, and I opened it for her. She pulled the chair she'd fixed over, and sat down next to me, facing the water. 
 
- Once I'd finished the beer, I tossed the empty. "I usually grill the fish," I said. Report_Story #3 
+ Once I'd finished the beer, I tossed the empty. "I usually grill the fish," I said.  
 
  
 
@@ -558,7 +558,7 @@
 
  "My stupid psychiatrists didn't know shit. The first spent a couple of months telling me that these things happen, that it wasn't my fault. She kept trying to find out what you'd done to cause the problem. I finally fired that bitch." 
 
- I could feel myself getting angry when she mentioned what I had done. She noticed. She ran her hand down my chest, kissing my shoulder. "I knew it wasn't you, Dan. That's why I found a new psychiatrist. He was subtler, helping me find excuses for what I did. I was too close to the kids, he said. That fact that my email address was EandJsMom explained it all, or so he said. My identity was buried in theirs, and when they left, I was lost. I was clinically depressed. I was going through the change of life. I was bitter that I had a degree that I'd never used. I never had a real job, since the girls were born. I had dreams, and they'd all turned to dust. It was too much, and I took it out on you, that's what he said. What he tried to get me to believe." Report_Story #4 
+ I could feel myself getting angry when she mentioned what I had done. She noticed. She ran her hand down my chest, kissing my shoulder. "I knew it wasn't you, Dan. That's why I found a new psychiatrist. He was subtler, helping me find excuses for what I did. I was too close to the kids, he said. That fact that my email address was EandJsMom explained it all, or so he said. My identity was buried in theirs, and when they left, I was lost. I was clinically depressed. I was going through the change of life. I was bitter that I had a degree that I'd never used. I never had a real job, since the girls were born. I had dreams, and they'd all turned to dust. It was too much, and I took it out on you, that's what he said. What he tried to get me to believe."  
 
  
 
@@ -724,7 +724,7 @@
 
  I slowly started to interface a little with the other ex-pats. Mostly online, except for a few people next store. At first I was just looking for answers to some questions. How to do things, were to buy things. Like a decent pillow, or what would grow in a garden. I was happy living native, but my girls would probably need some western amenities. 
 
- The dilapidated, overgrown abandoned place I'd purchased was starting to look like a resort. I mean, seriously. Gorgeous. Landscaped, clean, bright handmade signs by 'Sandy's Beach', and 'Krystal's Klear Pond', a nice little cenote, at least that's what Manolo called it. A turquoise blue pond, only about 30 feet wide and 20 feet across, it had to be at least a hundred feet deep. Sweet water. When I told him I wasn't going to put in a pool, the next thing I knew, I had a marked trail, hardwood benches, and a clearing around our swimming hole. Nobody had even told me it was on the property. It wasn't marked on the map. Surprise. Report_Story #5 
+ The dilapidated, overgrown abandoned place I'd purchased was starting to look like a resort. I mean, seriously. Gorgeous. Landscaped, clean, bright handmade signs by 'Sandy's Beach', and 'Krystal's Klear Pond', a nice little cenote, at least that's what Manolo called it. A turquoise blue pond, only about 30 feet wide and 20 feet across, it had to be at least a hundred feet deep. Sweet water. When I told him I wasn't going to put in a pool, the next thing I knew, I had a marked trail, hardwood benches, and a clearing around our swimming hole. Nobody had even told me it was on the property. It wasn't marked on the map. Surprise.  
 
  
 
@@ -968,7 +968,7 @@
 
  We laid together, touching each other, exchanging tentative kisses. I was re- familiarizing myself with her body, and didn't know how to start. I don't think she did either. It was like neither of us wanted to make the first move. It certainly wasn't because I wasn't up for it. I was. Very much so. 
 
- She laid on her side, facing me, and lifted one knee. I scooted closer, giving her a brief kiss. I inched my hips forward, then arched my back, trying to get my cock to line up with her. We were embracing each other, hand caressing skin, tentatively. She shifted again, the head sliding against her little patch of fur. She scooted up a bit, and I kissed her lips, pulling my hips away, and pushing forward again, sliding between her legs. We both wriggled a little more, our hands resting on each other's torso, as we became awkward contortionists, trying to come together. I was staring into her eyes, seeing the love and need. I wiggled again, missing her opening. Report_Story #6 
+ She laid on her side, facing me, and lifted one knee. I scooted closer, giving her a brief kiss. I inched my hips forward, then arched my back, trying to get my cock to line up with her. We were embracing each other, hand caressing skin, tentatively. She shifted again, the head sliding against her little patch of fur. She scooted up a bit, and I kissed her lips, pulling my hips away, and pushing forward again, sliding between her legs. We both wriggled a little more, our hands resting on each other's torso, as we became awkward contortionists, trying to come together. I was staring into her eyes, seeing the love and need. I wiggled again, missing her opening.  
 
  
 

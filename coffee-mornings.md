@@ -192,7 +192,7 @@
 
  Marion squeezed her thick, aching teats and tight breasts as the vibrating rabbit buzzed against her insides and simultaneously zapped her almost-too- sensitive clitoris. She was rushing headlong into the abyss. She'd not felt so aroused for what seemed like years. Her climax was a bright, distant spot on the horizon, and Marion focussed all her attention upon it. 
 
- Astrid settled back in her own seat and spread her long, lean thighs. She pushed two fingers into her gooey cunt and fingered herself vigorously. As her sticky fingers plunged and probed, Astrid used her other hand to rub at her own excited clitty. Report_Story #2 
+ Astrid settled back in her own seat and spread her long, lean thighs. She pushed two fingers into her gooey cunt and fingered herself vigorously. As her sticky fingers plunged and probed, Astrid used her other hand to rub at her own excited clitty.  
 
  
 

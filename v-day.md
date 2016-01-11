@@ -316,7 +316,7 @@
 
  Barbara, who'd been so sure of her plan, hesitated and trembled. Her eyes were wide. I positioned Veronica over her with Veronica facing Barbara's feet. 
 
- "Barbara, hold her lips open and guide me between them. And, Barbara, when I'm ready to cum, take me in your mouth." Report_Story #2 
+ "Barbara, hold her lips open and guide me between them. And, Barbara, when I'm ready to cum, take me in your mouth."  
 
  
 

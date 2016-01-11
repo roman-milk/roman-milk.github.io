@@ -206,7 +206,7 @@
 
  It all worked. 
 
- I heard her whisper "I'm sorry" and I let her words hang in the air a while. Report_Story #2 
+ I heard her whisper "I'm sorry" and I let her words hang in the air a while.  
 
  
 
@@ -318,7 +318,7 @@
 
  Yeah; great she's going to be a grandmother, but the catch is that for whatever excuse I think up, we want her to produce breast milk in preparation for the imaginary child. 
 
- Why? Just for the shits and giggles. Breast feeding is one of the most intimate acts a woman can do. So having Shauna the slut-mommy working around her busy schedule to pump milk from her udders just because her son says he needs her to, well that's just more wank fodder for Pop's, Cletus and I. Report_Story #1 
+ Why? Just for the shits and giggles. Breast feeding is one of the most intimate acts a woman can do. So having Shauna the slut-mommy working around her busy schedule to pump milk from her udders just because her son says he needs her to, well that's just more wank fodder for Pop's, Cletus and I.  
 
  
 
@@ -554,7 +554,7 @@
 
  I wanted the cum cup desperate to please me and desperate to please Cletus with us both demanding opposites. 
 
- The idea was that slut-mommy ran the gauntlet of increased punishments and increasingly humiliating sex acts as she tried hopelessly to please her son and her new lover. Report_Story #2 
+ The idea was that slut-mommy ran the gauntlet of increased punishments and increasingly humiliating sex acts as she tried hopelessly to please her son and her new lover.  
 
  
 
@@ -580,7 +580,7 @@
 
  Amazing how your life can change at the hands of a misogyny genius like Pops. 
 
- Obviously Cletus being the great joiner-inner, volunteered to yank the cock socket around by her flaps until they reached her knees and it was just as Cletus made his generous offer, with a mouthful of cherry pie, I might add, that slut-mommy rang me excitedly to tell me that her nipples had begun leaking milk. Report_Story #1 
+ Obviously Cletus being the great joiner-inner, volunteered to yank the cock socket around by her flaps until they reached her knees and it was just as Cletus made his generous offer, with a mouthful of cherry pie, I might add, that slut-mommy rang me excitedly to tell me that her nipples had begun leaking milk.  
 
  
 
@@ -800,7 +800,7 @@
 
  Her punishment lasted all day with Shauna waiting on me, Suzi and her ex- husband just the way she was; dressed like a whore and with her milk drip dried on her exposed flesh. 
 
- Every now and then Pops would swish her exposed ass with my cane and tell her to hurry up, wallowing in the success of his hard won formula: Report_Story #2 
+ Every now and then Pops would swish her exposed ass with my cane and tell her to hurry up, wallowing in the success of his hard won formula:  
 
  
 

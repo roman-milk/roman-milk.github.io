@@ -270,7 +270,7 @@
 
  She argued against it and I tried my best to convince her and fear of what her mother and the rest of her family would do finally swung her over and the next morning we flew to Vegas and were married by Elvis. 
 
- I loved Patty Ann, but I knew that our marriage was just a sham. I loved her enough to do what I was doing to help her, but I knew that she didn't love me. I knew she really liked me, but that was all and I made sure that the hotel where we spent the night had double beds. I was in one, under the covers, and I had turned the other one down for Patty and when she came out of the bathroom she saw the set-up. She looked from me to the other bed and then back to me and then she came and got into bed with me. I started to ask her if she knew what she was doing and she put a finger to my lips. Report_Story #2 
+ I loved Patty Ann, but I knew that our marriage was just a sham. I loved her enough to do what I was doing to help her, but I knew that she didn't love me. I knew she really liked me, but that was all and I made sure that the hotel where we spent the night had double beds. I was in one, under the covers, and I had turned the other one down for Patty and when she came out of the bathroom she saw the set-up. She looked from me to the other bed and then back to me and then she came and got into bed with me. I started to ask her if she knew what she was doing and she put a finger to my lips.  
 
  
 
@@ -456,7 +456,7 @@
 
  "That is when I decided to screw over him. I told him that he was right, that I had only married you to spite him, but that didn't change the fact that I was married and that I was not going to cheat on you. I told him that I couldn't get back with him until I ended it with you. Then I told him that he needed to leave before you got home and he got me to agree to have lunch with him the next day. 
 
- "I did meet him for lunch and told him that I wanted to be with him but that I would not do anything until you and I were legally separated. I did meet him after work for drinks and I did let him kiss me a couple of times, but every time he tried to get fresh with his hands I slapped them away and told him he would just have to wait. I kept telling him that I had to make sure that I would be okay financially when we broke up and it was taking me time to move some things and arrange some others. Report_Story #3 
+ "I did meet him for lunch and told him that I wanted to be with him but that I would not do anything until you and I were legally separated. I did meet him after work for drinks and I did let him kiss me a couple of times, but every time he tried to get fresh with his hands I slapped them away and told him he would just have to wait. I kept telling him that I had to make sure that I would be okay financially when we broke up and it was taking me time to move some things and arrange some others.  
 
  
 

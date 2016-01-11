@@ -278,7 +278,7 @@
 
  +++++ 
 
- I started going through the papers looking for an apartment close to work. When I got off work I drove around looking for a decent apartment and I found plenty of them, but I couldn't find what I wanted. Well, that's not exactly true. I couldn't find what I wanted at a price I could afford to pay. So I was still at Jerry's when he started his graveyard shift. Report_Story #2 
+ I started going through the papers looking for an apartment close to work. When I got off work I drove around looking for a decent apartment and I found plenty of them, but I couldn't find what I wanted. Well, that's not exactly true. I couldn't find what I wanted at a price I could afford to pay. So I was still at Jerry's when he started his graveyard shift.  
 
  
 

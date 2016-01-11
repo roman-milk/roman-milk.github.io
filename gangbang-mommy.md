@@ -210,7 +210,7 @@
 
  Adam shoved his cock in her mouth and said, "So far so good, slut. But let's see how you worship my cock." 
 
- I continued ramming my rod in my Mom's still incredibly tight ass and soon she adjusted and we were like a well-oiled machine. With each thrust forward, she deep-throated most of Adam's cock and when I pulled back, so did she. There was a bizarre symmetry to the triple penetration of our mother. Report_Story #2 
+ I continued ramming my rod in my Mom's still incredibly tight ass and soon she adjusted and we were like a well-oiled machine. With each thrust forward, she deep-throated most of Adam's cock and when I pulled back, so did she. There was a bizarre symmetry to the triple penetration of our mother.  
 
  
 

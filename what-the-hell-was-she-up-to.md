@@ -218,7 +218,7 @@
 
  "I just took it. She yelled and screamed and protested and I expected you to come storming out of the closet and when you didn't I just drove it home. I guess she ended up liking it because we never had another get together that she didn't ask for it." 
 
- +++++++++++ Report_Story #2 
+ +++++++++++  
 
  
 

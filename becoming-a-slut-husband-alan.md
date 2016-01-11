@@ -214,7 +214,7 @@
 
  "Do nothing?" 
 
- "Yes, do nothing at all as far as divorcing her. Let her do the divorcing. If she sues she has to be the one to pay attorney fees and court costs. You don't fight it and you don't have any attorney's fees to pay. Except for this initial consultation of course." Report_Story #2 
+ "Yes, do nothing at all as far as divorcing her. Let her do the divorcing. If she sues she has to be the one to pay attorney fees and court costs. You don't fight it and you don't have any attorney's fees to pay. Except for this initial consultation of course."  
 
  
 
@@ -468,7 +468,7 @@
 
  x-x-x-x-x-x-x-x 
 
- There was one more act to play out. As expected the court ordered a fifty/fifty split of the assets and one day I got a call from Laurie's attorney. He had the house appraised and it came in at $348,000. We still owed $169,000 on it which meant that there was $179,000 in equity. Laurie proposed paying me $89,500, assuming the mortgage and keeping the house. I declined and insisted that the house be put on the open market because I believed that the house was worth a lot more than $348,000. It was listed at $365,000 and two days after the house was put on the market an offer of $360,000 was made. When all was said and done the house was owned by Phoenix Investments, LLC. Phoenix (as in rising from that ashes) Investments had one stockholder - me! I would love to be a fly on the wall to see Laurie's face when she finds that out. Report_Story #3 
+ There was one more act to play out. As expected the court ordered a fifty/fifty split of the assets and one day I got a call from Laurie's attorney. He had the house appraised and it came in at $348,000. We still owed $169,000 on it which meant that there was $179,000 in equity. Laurie proposed paying me $89,500, assuming the mortgage and keeping the house. I declined and insisted that the house be put on the open market because I believed that the house was worth a lot more than $348,000. It was listed at $365,000 and two days after the house was put on the market an offer of $360,000 was made. When all was said and done the house was owned by Phoenix Investments, LLC. Phoenix (as in rising from that ashes) Investments had one stockholder - me! I would love to be a fly on the wall to see Laurie's face when she finds that out.  
 
  
 

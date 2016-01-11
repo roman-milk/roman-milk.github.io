@@ -374,7 +374,7 @@
 
  "Give it to me. Give me that hot cum." 
 
- She pushes down hard and gives him one hard squeeze. His cock flares out and he shoots his last few drops of cum in her. She cries out and cums with him. Report_Story #2 
+ She pushes down hard and gives him one hard squeeze. His cock flares out and he shoots his last few drops of cum in her. She cries out and cums with him.  
 
  
 
@@ -742,7 +742,7 @@
 
  "Yes. I saw it." 
 
- "I saw it a couple of weeks ago. I thought it was a nice romantic movie, but I thought it was bullshit. I didn't think it ever happened. I thought about it for a while and decided to see if it could happen. That brought me here. I looked online and you were the prettiest one I saw. Since I met you I think it could happen. You are an amazing woman and I have developed some feelings for you. I'm going to La Jolla on Monday. I want you to come with me and see what will come out of our meeting. This is my offer. I'll give your $15,000 for your time. I want you to stay for one month. If you decide to leave at any time you can keep the money and walk away. You will have a car and a credit card. You're living a very dangerous lifestyle now. You could get in real trouble. I'm giving you a chance to get out. I've given you a little glimpse of the lifestyle you can have if you go with me. You don't have to decide now. You can let me know on Sunday. Report_Story #3 
+ "I saw it a couple of weeks ago. I thought it was a nice romantic movie, but I thought it was bullshit. I didn't think it ever happened. I thought about it for a while and decided to see if it could happen. That brought me here. I looked online and you were the prettiest one I saw. Since I met you I think it could happen. You are an amazing woman and I have developed some feelings for you. I'm going to La Jolla on Monday. I want you to come with me and see what will come out of our meeting. This is my offer. I'll give your $15,000 for your time. I want you to stay for one month. If you decide to leave at any time you can keep the money and walk away. You will have a car and a credit card. You're living a very dangerous lifestyle now. You could get in real trouble. I'm giving you a chance to get out. I've given you a little glimpse of the lifestyle you can have if you go with me. You don't have to decide now. You can let me know on Sunday.  
 
  
 
@@ -1214,7 +1214,7 @@
 
  "Yep. But with a bonus of some beautiful breasts added on." 
 
- The watch the sun set and go inside. They go in the bedroom and turn the TV on. She picks out a romantic comedy and they cuddle and watch it. She starts playing with his cock and it comes up for her. Report_Story #4 
+ The watch the sun set and go inside. They go in the bedroom and turn the TV on. She picks out a romantic comedy and they cuddle and watch it. She starts playing with his cock and it comes up for her.  
 
  
 
@@ -1534,7 +1534,7 @@
 
  She comes back to earth. She reaches down and holds his cock. She feels their juice on it. She looks down and sees the black on white. It's too much to resist. She will want more and more. The thrill overwhelms her. She moves down and takes it in her mouth. She licks all their juice off it. He slides it down her throat. It starts to fill with blood again. She stay on it. It come up to full hard. He works hard on it. She wants his hot black cum in her mouth. She pulls off. 
 
- "I want your hot black cum in my mouth. Cum in my mouth. Give me your hot black cum." Report_Story #5 
+ "I want your hot black cum in my mouth. Cum in my mouth. Give me your hot black cum."  
 
  
 
@@ -1826,7 +1826,7 @@
 
  "OH god. You make me cum so easy. You know all my triggers." 
 
- She starts stroking up and down on him She squeezes him hard. She wants his hot black cum. She humps him as fast as she can. She feels his cock growing. She thinks of his hot black cum squirting her. She speeds up. She looks in the mirror and that thrill hits her. She cums hard as she watches herself. His cock grows and she squeezes it harder. Report_Story #6 
+ She starts stroking up and down on him She squeezes him hard. She wants his hot black cum. She humps him as fast as she can. She feels his cock growing. She thinks of his hot black cum squirting her. She speeds up. She looks in the mirror and that thrill hits her. She cums hard as she watches herself. His cock grows and she squeezes it harder.  
 
  
 
@@ -2190,7 +2190,7 @@
 
  She lays out for a while and goes inside. She takes a lazy shower and checks her plug. She pulls it out and lets her ass relax for a while. She gets the oil and get it ready. She pushes it back in. It doesn't hurt at all. She pulls it out and pushes it back in. She smiles. I'm ready for Eric's big cock in my ass. She gets wet thinking about it. 
 
- She putters around the kitchen. Makes some lunch and takes it out on the balcony. She enjoys the view and her lunch. He mind wanders to Eric fucking her in the ass. She smiles to herself. My big strong sweetie is going to shove his big strong cock in my hot ass. His going to shoot his hot cum in me. Report_Story #7 
+ She putters around the kitchen. Makes some lunch and takes it out on the balcony. She enjoys the view and her lunch. He mind wanders to Eric fucking her in the ass. She smiles to herself. My big strong sweetie is going to shove his big strong cock in my hot ass. His going to shoot his hot cum in me.  
 
  
 
@@ -2544,7 +2544,7 @@
 
  "I want to do that again. I want your cum mixed in my ass and pussy." 
 
- She leans over and takes Johnson's cock in her mouth. She sucks it up to full hard and slowly slides it up in her pussy. She grabs Eric's cock and sucks him up to full hard too. She hands him the lube. Eric takes and smears some on her ass and his cock. She gets behind her and slowly pushes his cock in her ass. The make her cum and cum. She passes out and they wait. She comes back and they fill her with more cum. She passes out again and they watch her. She comes back enough for them to take her in the shower and clean up. They lay her on the bed and watch her come back. They look at each other and both shake their heads. Report_Story #8 
+ She leans over and takes Johnson's cock in her mouth. She sucks it up to full hard and slowly slides it up in her pussy. She grabs Eric's cock and sucks him up to full hard too. She hands him the lube. Eric takes and smears some on her ass and his cock. She gets behind her and slowly pushes his cock in her ass. The make her cum and cum. She passes out and they wait. She comes back and they fill her with more cum. She passes out again and they watch her. She comes back enough for them to take her in the shower and clean up. They lay her on the bed and watch her come back. They look at each other and both shake their heads.  
 
  
 

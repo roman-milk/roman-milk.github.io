@@ -124,7 +124,7 @@
 
  Both women knelt together on the mat, the three men wanked their cocks, pointing them at the pair who waited patiently for their spunk shower. The women kissed each other passionately, and muttered occasional words of encouragement as the four of us pulled at our cocks. 
 
- Suddenly one of the guys groaned and shuffled forward, he pointed his cock at the girls and spunk spat from his prick, hitting the women on their faces as they looked up expectantly. They gave little cries as the hot, sticky cum hit their skin. They kissed each other, smearing spunk across their faces as they shared the first man's delivery between each other's wet tongues. Report_Story #2 
+ Suddenly one of the guys groaned and shuffled forward, he pointed his cock at the girls and spunk spat from his prick, hitting the women on their faces as they looked up expectantly. They gave little cries as the hot, sticky cum hit their skin. They kissed each other, smearing spunk across their faces as they shared the first man's delivery between each other's wet tongues.  
 
  
 

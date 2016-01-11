@@ -170,7 +170,7 @@
 
  I had no mercy to give. This rape, this taking of her, controlled me as I controlled her . . . without mercy, without humanity, with an animal passion I had never felt. 
 
- "Crawl into the bed, Helena." Report_Story #2 
+ "Crawl into the bed, Helena."  
 
  
 

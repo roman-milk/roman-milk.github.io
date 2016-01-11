@@ -270,7 +270,7 @@
 
  "But I'm going to cum" I said and she kept sucking. I made one last attempt to pull away and she dug her nails in my ass cheeks and held me there. I erupted and she sucked and swallowed until I was limp. She let my cock fall out of her mouth, told me to take my shirt off and then went back to sucking on me. 
 
- I got my shirt and t-shirt off and by then I was getting hard again and she pushed me back on the bed. She swung over me and guided my cock up into her pussy as she lowered herself down onto me. Report_Story #2 
+ I got my shirt and t-shirt off and by then I was getting hard again and she pushed me back on the bed. She swung over me and guided my cock up into her pussy as she lowered herself down onto me.  
 
  
 
@@ -540,7 +540,7 @@
 
  "Oh Bobby honey; for that you get to have my ass." 
 
- As I stood up to claim my prize I heard Tom say, "Maybe, but not now." I looked and saw him coming down the stairs. "If you are hard enough to do Gail's butt you are hard enough to go back upstairs. Mom is still in her 'needing' condition." Report_Story #3 
+ As I stood up to claim my prize I heard Tom say, "Maybe, but not now." I looked and saw him coming down the stairs. "If you are hard enough to do Gail's butt you are hard enough to go back upstairs. Mom is still in her 'needing' condition."  
 
  
 
@@ -812,7 +812,7 @@
 
  "Yes" Tasha and I said almost in unison. Tasha stood up, leaned over and kissed me, said "See you baby" and left with Tom and Gail. Pauline watched them until they were out the door and then said: 
 
- "I should really dislike her because I did want to make you my boyfriend, but I kind of like her." Report_Story #4 
+ "I should really dislike her because I did want to make you my boyfriend, but I kind of like her."  
 
  
 
@@ -1094,7 +1094,7 @@
 
  "I'll get you for this. Just remember, paybacks are a bitch." 
 
- "Right!" mom said as she sat down on his lap and kissed him. Later that night I heard noises coming from their bedroom. Must have been some of that payback that dad had mentioned. Report_Story #5 
+ "Right!" mom said as she sat down on his lap and kissed him. Later that night I heard noises coming from their bedroom. Must have been some of that payback that dad had mentioned.  
 
  
 
@@ -1180,7 +1180,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1464,7 +1464,7 @@
 
  Well, I was up front about things and if she still wanted to do it so be it. 
 
- Pauline was only my third so I didn't have all that much experience, but I was aware that there were differences. I mean the mechanics were the same. Fucking was fucking and sucking was sucking, but it was still different. Mary was active, needy and pretty much take charge -- almost business like in getting it done. Gail was fun loving but, at least to me, there was no sense that it mattered if it was me or some one else doing it to her. I was just a body that was there to meet Mary's operational requirements and as a result I was there to be used by Gail while Tom was busy elsewhere. Report_Story #2 
+ Pauline was only my third so I didn't have all that much experience, but I was aware that there were differences. I mean the mechanics were the same. Fucking was fucking and sucking was sucking, but it was still different. Mary was active, needy and pretty much take charge -- almost business like in getting it done. Gail was fun loving but, at least to me, there was no sense that it mattered if it was me or some one else doing it to her. I was just a body that was there to meet Mary's operational requirements and as a result I was there to be used by Gail while Tom was busy elsewhere.  
 
  
 
@@ -1666,7 +1666,7 @@
 
  "I haven't done it on a backseat in years and while I might like to do it again I can't do it in front of my house. Besides, the backseat in this car isn't big enough. Come on lover; we need to get in the house." 
 
- Mary put me through the ringer and I didn't once think of my problem at home until it was time for me to have to go there. As I was driving home it occurred to me that at some point -- assuming that she ever talked to me again -- mom was going to want to know how I knew about her adulterous affair. I thought of various stories I could tell her. I could tell her that I was being nosy and snooping around Tom's house and found the pictures and the PI report, but that would probably result in her having an even lower opinion of me than the one I was sure she now had. She would think that in addition to being a pervert I was also a sneak. Report_Story #3 
+ Mary put me through the ringer and I didn't once think of my problem at home until it was time for me to have to go there. As I was driving home it occurred to me that at some point -- assuming that she ever talked to me again -- mom was going to want to know how I knew about her adulterous affair. I thought of various stories I could tell her. I could tell her that I was being nosy and snooping around Tom's house and found the pictures and the PI report, but that would probably result in her having an even lower opinion of me than the one I was sure she now had. She would think that in addition to being a pervert I was also a sneak.  
 
  
 
@@ -1762,7 +1762,7 @@
 
  "It is a simple thing Bobby. I'm sitting here opposite you so all you have to do is look me in the eye and tell me that the feelings that you had for me that first day in Aunt Mary's living room are gone. If you can do that I'll get up, leave and never bother you again." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1930,7 +1930,7 @@
 
  I did have some backbone though. It didn't make me any points with Tasha's parents, but I'd like to think it would have made me points with Tasha is she would have ever found out what happened. 
 
- It was the week before Tasha was to leave for school. I got a phone call at work from Tasha's dad. He wanted to talk to me and he asked me if I would meet him after work for a cup of coffee. Being naturally curious I said sure and he asked me to meet him at the Hilton when I got off work. I called Mary and told her that I had to take a pass on the evening because I had to work overtime. She told me that if I got off early enough I should stop by if only for a quickie. Report_Story #2 
+ It was the week before Tasha was to leave for school. I got a phone call at work from Tasha's dad. He wanted to talk to me and he asked me if I would meet him after work for a cup of coffee. Being naturally curious I said sure and he asked me to meet him at the Hilton when I got off work. I called Mary and told her that I had to take a pass on the evening because I had to work overtime. She told me that if I got off early enough I should stop by if only for a quickie.  
 
  
 
@@ -2206,7 +2206,7 @@
 
  "But what she is thinking is that if she keeps it at school while she is there during the week you will never find out. She won't confront you when she finds out about us. She will sit on it and keep it as her insurance policy." 
 
- "You agreed to do it?" Report_Story #3 
+ "You agreed to do it?"  
 
  
 
@@ -2356,7 +2356,7 @@
 
  I got off work at noon-thirty and went back to the motel. We didn't leave the room except to eat and then the next day I got a big hug and a hot kiss just before putting Tasha on the bus. As I watched the bus pull out I again prayed that I was wrong in what I thought was going to happen. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2660,7 +2660,7 @@
 
  "No bullshit Natasha. I really felt sick when I thought I'd cheated on you. I took Gail home and we sat on her patio while I apologized over and over and begged her to forgive me and to not let you or Tom know what I had done. I got up and left and when I got to my car I found that I didn't have my keys. I'd left them on the patio table and I went back to get them. Gail was on the phone and I overheard Gail's side of the conversation with you. I heard all about Gail doing what you wanted her to do. What YOU wanted her to do Natasha. 
 
- "I heard all about how she stripped us both naked and then got into bed next to me so I would think we had done and then pretended that we had done it when I woke up. I heard the whole thing Natasha. Right down to the part where she said that you girls had to stick together. I went back to the front of the house and rang the bell until she answered it and then I got my keys and left. Report_Story #2 
+ "I heard all about how she stripped us both naked and then got into bed next to me so I would think we had done and then pretended that we had done it when I woke up. I heard the whole thing Natasha. Right down to the part where she said that you girls had to stick together. I went back to the front of the house and rang the bell until she answered it and then I got my keys and left.  
 
  
 
@@ -2900,7 +2900,7 @@
 
  The next day was Saturday and office personnel don't work weekends so I had the office to myself. Dad was there, but he spent most of the morning touring the plant. He called it MBWA -- management by walking around. He always claimed he was better informed by seeing what was going on than having some one come into the office and tell him. It worked for him. 
 
- He knew all the employees and called them by their first names and he insisted that they call him Frank and not Mr. Marchant. He knew the names of their wives and most of their kids and at company Christmas parties he danced with all of their wives and girlfriends and mom danced with all the husbands and boyfriends. He maintained that the company was successful because of our workforce and he treated them accordingly. On Thanksgiving every employee was given a turkey or a ham -- their choice -- and Christmas bonuses were given out every year even in years that were not all that good. Report_Story #3 
+ He knew all the employees and called them by their first names and he insisted that they call him Frank and not Mr. Marchant. He knew the names of their wives and most of their kids and at company Christmas parties he danced with all of their wives and girlfriends and mom danced with all the husbands and boyfriends. He maintained that the company was successful because of our workforce and he treated them accordingly. On Thanksgiving every employee was given a turkey or a ham -- their choice -- and Christmas bonuses were given out every year even in years that were not all that good.  
 
  
 
@@ -3180,7 +3180,7 @@
 
  Mom had just been fucked! 
 
- It didn't stop me from going at her because it was nothing new to me. I'd been exposed to Tom's goop when I'd gone down on Mary and Gail just as he had found mine in the same places. Mom moaned and shook as my mouth brought her off, but she never let loose of my cock. She did take her mouth off me long enough to say: Report_Story #4 
+ It didn't stop me from going at her because it was nothing new to me. I'd been exposed to Tom's goop when I'd gone down on Mary and Gail just as he had found mine in the same places. Mom moaned and shook as my mouth brought her off, but she never let loose of my cock. She did take her mouth off me long enough to say:  
 
  
 
@@ -3272,7 +3272,7 @@
 
  We showered and washed each other's back and then we ended up washing each other's front and while my dick did twitch a couple of times it did not come back up. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -3552,7 +3552,7 @@
 
  Wednesday at work I was again paired with Shelly. Five minutes after I got there I took a piece of cardboard and a Magic Marker and made a sign and hung it on my desk. It was just one word --Equality!!! Every time Shelly had to talk to me or bring me something or even if I caught her looking my way I would give her "The Smirk" and she would quickly look away. 
 
- Around two Stella asked me to go down to the dead files and get the June 2002 file on Amalgamated Products. I had the file in hand when Shelly came down the stairs. She snatched the file out of my hand and said: Report_Story #2 
+ Around two Stella asked me to go down to the dead files and get the June 2002 file on Amalgamated Products. I had the file in hand when Shelly came down the stairs. She snatched the file out of my hand and said:  
 
  
 
@@ -3778,7 +3778,7 @@
 
  ++++++++++++++++ 
 
- Monday at school another country was heard from. I was sitting at a table in the Student Union cafeteria going over some notes. I fully expected that there would be a pop quiz in Introduction to Business Management and I wanted to be ready. I was studying when Nancy Wilde came up to my table and asked if she could join me. I told her to have a seat and she sat down. Report_Story #3 
+ Monday at school another country was heard from. I was sitting at a table in the Student Union cafeteria going over some notes. I fully expected that there would be a pop quiz in Introduction to Business Management and I wanted to be ready. I was studying when Nancy Wilde came up to my table and asked if she could join me. I told her to have a seat and she sat down.  
 
  
 
@@ -3834,7 +3834,7 @@
 
  "Will do" and she got up and hurried off to class. As she walked away I thought of all the other girls I'd asked out way back when and wondered if the reason they always said no was the same as Nancy's. Maybe I should think about asking them again now that they were over eighteen. Then I had to laugh at myself. What if they all said yes? Hell, what if only one or two said yes? I was already where my head was just barely above water. I wasn't even sure that Nancy wouldn't be the one to push my head under. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -4122,7 +4122,7 @@
 
  Get your butt out of bed asshole and get down to the kitchen." 
 
- I got up and went into the bathroom and dried myself with a towel. When I got to the kitchen mom was sitting at the table and the look she gave me when I walked into the room was murderous. I went to the sink, got a glass of water and then turned and tossed it in mom's face. I tossed her a dish towel to dry off with and then I sat down at the table and said: Report_Story #2 
+ I got up and went into the bathroom and dried myself with a towel. When I got to the kitchen mom was sitting at the table and the look she gave me when I walked into the room was murderous. I went to the sink, got a glass of water and then turned and tossed it in mom's face. I tossed her a dish towel to dry off with and then I sat down at the table and said:  
 
  
 
@@ -4450,11 +4450,11 @@
 
  Shelly slapped me. Slapped me hard. I wasn't expecting it and I stood there shocked as Shelly got in the van and drove off leaving me standing there. I watched her drive off the lot and as I turned to go to my car I saw the white Taurus drive off. 
 
- As I started the car I happened to look toward the building and I saw Marge in the window looking at me. She didn't smile, but she did give me a thumbs up before turning and walking away from the window. Report_Story #3 
+ As I started the car I happened to look toward the building and I saw Marge in the window looking at me. She didn't smile, but she did give me a thumbs up before turning and walking away from the window.  
 
  
 
- ****** A Weird One Ch. 06 ****** byJust_Plain_Bob© To be continued... Report_Story #1 
+ ****** A Weird One Ch. 06 ****** byJust_Plain_Bob© To be continued...  
 
  
 
@@ -4750,7 +4750,7 @@
 
  "Not until next week. My parents are taking me to Tulsa this week end to visit my grandparents." 
 
- "Okay. How about this. You call me when you get back and let me know when you are available." Report_Story #2 
+ "Okay. How about this. You call me when you get back and let me know when you are available."  
 
  
 
@@ -5004,7 +5004,7 @@
 
  For the next fifteen minutes I ran Angie through Cock Sucking 101 sub-titled, The Way Bobby Likes It Done, and I do have to say that the girl was a quick study. When I felt that she'd done enough I got her up on her hands and knees and did her doggie. 
 
- As I drove her home she said, "I'd never done any of that stuff before tonight. I haven't been a virgin for a long time, but I never did any of that oral stuff. None of the guys I've been with ever asked me to suck them and none of them ever tried to do me like you did. I'm glad you didn't stop when I tried to get you to. I never knew Bobby; I never knew. If we hadn't gotten together tonight I might have never known." Report_Story #3 
+ As I drove her home she said, "I'd never done any of that stuff before tonight. I haven't been a virgin for a long time, but I never did any of that oral stuff. None of the guys I've been with ever asked me to suck them and none of them ever tried to do me like you did. I'm glad you didn't stop when I tried to get you to. I never knew Bobby; I never knew. If we hadn't gotten together tonight I might have never known."  
 
  
 
@@ -5238,7 +5238,7 @@
 
  Mom and dad were in bed when I got home and I headed straight up to my room. I worked on my homework for about an hour and then went to bed. As I settled in and started to nod off I had another thought. My dad had two women -- mom and Marge -- and I was fucking them both. Just how fucking weird was that? 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -5618,7 +5618,7 @@
 
  "But not in my butt." 
 
- "I keep telling you that it is all about pleasure Angie. My pleasure comes from getting off. It doesn't matter where I get off; mouth, pussy or ass makes no difference. If a cock in your ass doesn't give you pleasure then don't do it. If swallowing cum is distasteful don't do it. If being eaten and straight fucking is all that is pleasurable to you then stick to those two things. I can't speak for other guys, by my goal is to make you want to let me do you again. I want to give you so much pleasure that all you will think about is getting me to give you more. That won't happen if I do things you don't like." Report_Story #2 
+ "I keep telling you that it is all about pleasure Angie. My pleasure comes from getting off. It doesn't matter where I get off; mouth, pussy or ass makes no difference. If a cock in your ass doesn't give you pleasure then don't do it. If swallowing cum is distasteful don't do it. If being eaten and straight fucking is all that is pleasurable to you then stick to those two things. I can't speak for other guys, by my goal is to make you want to let me do you again. I want to give you so much pleasure that all you will think about is getting me to give you more. That won't happen if I do things you don't like."  
 
  
 
@@ -5970,7 +5970,7 @@
 
  Mom and dad were still up when I got home. "You are in pretty early for a Friday" mom said. 
 
- "The date was a bust. She is still too hung up on her old boyfriend." Report_Story #3 
+ "The date was a bust. She is still too hung up on her old boyfriend."  
 
  
 
@@ -6258,7 +6258,7 @@
 
  Recognizing a "Get the fuck out of here" when I hear it I went to my car. When I got in I rolled down a window and I heard: 
 
- ".....so much bullshit! You thought you were going to catch me cheating on you and....." Report_Story #4 
+ ".....so much bullshit! You thought you were going to catch me cheating on you and....."  
 
  
 
@@ -6332,7 +6332,7 @@
 
  She left the room and left me with some idea of what "A woman scorned" really meant. I took care of the problem by hand, used the ever present dirty pair of panties to wipe with, dropped them on the floor and then got out of bed. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -6560,7 +6560,7 @@
 
  "But if we put on a second shift we won't need to expand." 
 
- "Not right now, but the way you have been picking up new business lately who can tell. It won't hurt to get the process started now so you can be ready in case." Report_Story #2 
+ "Not right now, but the way you have been picking up new business lately who can tell. It won't hurt to get the process started now so you can be ready in case."  
 
  
 
@@ -6846,7 +6846,7 @@
 
  "I want us back together Bobby. I never wanted us to be apart in the first place." 
 
- "So what happens if I get weak minded and get back together with you? You go back up to school, fuck around with Eddie and then come home on weekends like nothing has changed? I don't trust you anymore Natasha. I don't know what the attachment you have to Eddie is, but it is never going to set well with me." Report_Story #3 
+ "So what happens if I get weak minded and get back together with you? You go back up to school, fuck around with Eddie and then come home on weekends like nothing has changed? I don't trust you anymore Natasha. I don't know what the attachment you have to Eddie is, but it is never going to set well with me."  
 
  
 
@@ -7058,7 +7058,7 @@
 
  Mary and I looked over to the doorway and saw mom getting undressed. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -7322,7 +7322,7 @@
 
  "Damn! I was hoping that mystery woman was going to be my daughter in law. So who is my daughter in law going to be?" 
 
- "You don't need to know that just yet. It may not work out." Report_Story #2 
+ "You don't need to know that just yet. It may not work out."  
 
  
 
@@ -7574,7 +7574,7 @@
 
  "I need it stud; I need it bad. I need it so bad that I let you come over even though you can't stay long. My sister will be here at eight-thirty so you need to be gone by then." 
 
- "What's the matter? Dad not taking care of you?" Report_Story #3 
+ "What's the matter? Dad not taking care of you?"  
 
  
 
@@ -7882,7 +7882,7 @@
 
  School was school and at lunch time Gail showed up at my table with Nancy. 
 
- Report_Story #4 
+  
 
  
 
@@ -7922,7 +7922,7 @@
 
  I don't know how, but I did manage to get the three of us off by quitting time. I kissed the two ladies goodbye and headed for the men's room to wash my cock and face before going to pick up Tasha. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -8208,7 +8208,7 @@
 
  "I'm going to flaunt you White Boy. Almost every man in here tonight has tried to get into my panties and almost all of them never made it. The two who did have larger – much larger – than average dicks so I have a reputation as a size queen and since I am going to make it obvious to everyone here that I intend to fuck your eyes out tonight they are all going to assume that you are hung like a horse. 
 
- "It is going to piss a lot of them off, but that is what I'm hoping for. You will hear some nasty remarks and some racial remarks, but ignore them. They won't press them because they all know me and my temper. Just ride with it White Boy and I'll see to it that you are amply rewarded." Report_Story #2 
+ "It is going to piss a lot of them off, but that is what I'm hoping for. You will hear some nasty remarks and some racial remarks, but ignore them. They won't press them because they all know me and my temper. Just ride with it White Boy and I'll see to it that you are amply rewarded."  
 
  
 
@@ -8574,7 +8574,7 @@
 
  "No? You miss me more that I can possibly know and you don't want to get together? I thought we had something going." 
 
- "We did White Boy; we did. I want to see you, but I don't dare. I don't know how to explain it White Boy, but you are dangerous." Report_Story #3 
+ "We did White Boy; we did. I want to see you, but I don't dare. I don't know how to explain it White Boy, but you are dangerous."  
 
  
 
@@ -8620,7 +8620,7 @@
 
  And I was. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -8978,7 +8978,7 @@
 
  After eating we went home and it was more suck and fuck until it was time for me to get ready to go and pick up Natasha. Her dad was there so along with Pam's usual smile I got his standard dirty look. I decided that the way to play it was to smile at him every time he looked at me. I'm sure that it pissed him off and he left the room. 
 
- Natasha hadn't come down from her room yet so as soon as her father was out of the room Pam said: Report_Story #2 
+ Natasha hadn't come down from her room yet so as soon as her father was out of the room Pam said:  
 
  
 
@@ -9256,7 +9256,7 @@
 
  "Why? It worked out Monday night and tonight." 
 
- "There are going to be times when we are going to want to be alone. I can see me spending the night with her when your dad is on a trip and that will cut into your time." Report_Story #3 
+ "There are going to be times when we are going to want to be alone. I can see me spending the night with her when your dad is on a trip and that will cut into your time."  
 
  
 
@@ -9406,7 +9406,7 @@
 
  "See you then" I said and I took off. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -9608,7 +9608,7 @@
 
  "Are you sure that it was all Terrell's fault?" 
 
- "The only things that I am sure of are that Terrell heard me say that Gail and I had a date for Thursday and that at noon on Thursday Gail told me our date was off because she was going to get together with Terrell and some of his friends. Doesn't matter how it happened Terrell knew he was poaching when he got with Gail on Thursday. Report_Story #2 
+ "The only things that I am sure of are that Terrell heard me say that Gail and I had a date for Thursday and that at noon on Thursday Gail told me our date was off because she was going to get together with Terrell and some of his friends. Doesn't matter how it happened Terrell knew he was poaching when he got with Gail on Thursday.  
 
  
 
@@ -9886,7 +9886,7 @@
 
  "I told you way back when stud, that girls talk. It is closely held information stud. Outside of you only Shelly, Andrea, Gloria, Tina and I know about it. I can fix it up so that your time at work will all be spent here in the office. Would you like that?" 
 
- "Not really. I am a full believer in what the plan is for me. I need to know how this place works from top to bottom if I am going to take over running it some day so I can't spend all my time here in the office." Report_Story #3 
+ "Not really. I am a full believer in what the plan is for me. I need to know how this place works from top to bottom if I am going to take over running it some day so I can't spend all my time here in the office."  
 
  
 
@@ -9980,7 +9980,7 @@
 
  She led me downstairs and had me take her while she leaned over the back of the couch and kept an eye on the driveway. The Gods were not with us. We were both close to cumming when dad pulled into the driveway. As close as we were we still had to quit, because there wasn't anyway I was going to be able to get either one of us off before dad walked in the door. We broke apart and I headed for my room and mom headed for the kitchen. I have no idea how mom handled being left hanging, but I had my ever present pair of dirty panties to help me out. I tossed the cum soaked panties on the floor for mom to find and got back to my paper. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -10330,7 +10330,7 @@
 
  "Depends. How much time are we talking here? I have a class in thirty minutes." 
 
- "Won't take that long. Remember the talk we had about being friends a little while back?" Report_Story #2 
+ "Won't take that long. Remember the talk we had about being friends a little while back?"  
 
  
 
@@ -10644,7 +10644,7 @@
 
  Sixty-nine followed by missionary. Sixty-nine followed by cowgirl. Sixty-nine followed by doggie and then sixty-nine followed by anal. A shower ended up with her leaning against the wall while I fuck her in the ass a second time from behind. 
 
- As we drove away from the Starlight she said, "I've worked up an appetite so you can feed me now." Report_Story #3 
+ As we drove away from the Starlight she said, "I've worked up an appetite so you can feed me now."  
 
  
 
@@ -10736,7 +10736,7 @@
 
  We set a time for Sunday and then I got up and headed for class. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -11034,7 +11034,7 @@
 
  That night the only difference from the previous two was that I fucked Gail twice. The first time she was riding Norm (one of the white guys) cowgirl while sucking Dale (another one of the white guys) and her ass was free. Mom and Mary were both being three holed and I had a hard on and so pissed at Gail or not I took the open hole. The second time I didn't know I was fucking her until it was too far along for me to want to stop. 
 
- What happened was that I had been lying on my back and Mary had been riding me cowgirl. Mom was in the doggie position being fucked by Marcus and she was bent forward kissing me. Mom's tongue was in my throat when Mary had to get up to go to the bathroom. A couple of minutes later while mom was still swabbing my tonsils a pussy slid down on my cock and I thought it was Mary coming back from the can. It turned out to be Gail. Like I said, I was too far into it to back away. She rode me until I had to get off and I rolled her onto her back and fucked her hard until I busted my nuts. When I blew into her she looked up at me and smiled and right then and there I said: Report_Story #2 
+ What happened was that I had been lying on my back and Mary had been riding me cowgirl. Mom was in the doggie position being fucked by Marcus and she was bent forward kissing me. Mom's tongue was in my throat when Mary had to get up to go to the bathroom. A couple of minutes later while mom was still swabbing my tonsils a pussy slid down on my cock and I thought it was Mary coming back from the can. It turned out to be Gail. Like I said, I was too far into it to back away. She rode me until I had to get off and I rolled her onto her back and fucked her hard until I busted my nuts. When I blew into her she looked up at me and smiled and right then and there I said:  
 
  
 
@@ -11364,7 +11364,7 @@
 
  ++++++++++++++++++++++++++ 
 
- School was school and the atmosphere was charged since spring break was only a week away. I ate alone at lunch time and work was supposed to be another week in the office. I checked in with Marge and she sent me to the basement to pull old files and I was not surprised when she joined me half an hour later. Report_Story #3 
+ School was school and the atmosphere was charged since spring break was only a week away. I ate alone at lunch time and work was supposed to be another week in the office. I checked in with Marge and she sent me to the basement to pull old files and I was not surprised when she joined me half an hour later.  
 
  
 
@@ -11448,7 +11448,7 @@
 
  I was in deep shit and I knew it and I was frantically trying to scramble away from him and get up. I managed to get to my knees and I saw his foot draw back prior to another kick when suddenly he fell to the floor and I saw Andrea standing there with a table lamp in her hands. She put the lamp down and ran over to the closet and I got to my feet and reached for my clothes. 
 
- "Forget your clothes" she said a she tossed me a handful of ties. "Tie him up with those." Report_Story #1 
+ "Forget your clothes" she said a she tossed me a handful of ties. "Tie him up with those."  
 
  
 
@@ -11668,7 +11668,7 @@
 
  "Ten minutes after I got the call about you ands Wooters I got your call saying that you had to stay the weekend. I got suspicious and drove up there to check things out. I was watching your dorm when you came out with your little over- night bag, got in the Mustang and leaned over and gave the guy one scorcher of a kiss. I followed you to the Comfort Inn, watched you check in and then go across the street to eat. When you came back and went into room 116 I went up to the desk and rented room 118 and then using a glass as an amplifier on the connecting door I listened as you and the guy you were with fucked. You know what I heard using that glass? The reason that you all of a sudden wanted to do anal every time we got together 
 
- "Our deal was that no questions would be asked about whatever went on during the week, but the weekends were mine. I didn't get my weekend Natasha. You gave it to driver of that Mustang. We are history Natasha and it is all on you." Report_Story #2 
+ "Our deal was that no questions would be asked about whatever went on during the week, but the weekends were mine. I didn't get my weekend Natasha. You gave it to driver of that Mustang. We are history Natasha and it is all on you."  
 
  
 
@@ -11962,7 +11962,7 @@
 
  Becky looked at me and then laughed. "You and my skanky cousin? Well maybe I'm interested in you after all." 
 
- "You stay away from him or I'll cut your tits off you cunt!" Report_Story #3 
+ "You stay away from him or I'll cut your tits off you cunt!"  
 
  
 
@@ -12146,7 +12146,7 @@
 
  I was one wore out puppy when I fell into bed Friday night and I thanked God for his making my dad take my mom to Vegas for the weekend. I could sleep in on a Saturday for the first time in I couldn't remember when. As I slipped out to sleep I was remembering that my deal with Carol and Becky was going to start the next afternoon. I made a mental note to myself to load up on vitamins. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -12450,7 +12450,7 @@
 
  +++++++++++++++++++ 
 
- School was school and Gail dropped by at lunch and asked if I had the night free and I told her no. Report_Story #2 
+ School was school and Gail dropped by at lunch and asked if I had the night free and I told her no.  
 
  
 
@@ -12746,7 +12746,7 @@
 
  "What do you mean?" 
 
- "You have been gone all weekend and then I show up with you?" Report_Story #3 
+ "You have been gone all weekend and then I show up with you?"  
 
  
 
@@ -12826,7 +12826,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -13168,7 +13168,7 @@
 
  We went down the hall to the guest bedroom and Don and Alex followed us. Mary was correct in her assumption and in less time than it takes to talk about it she was being made airtight. 
 
- I fucked all four of the ladies once (Mary twice) and I was done. Gail made a futile attempt to get one more out of me, but it was no go. Report_Story #2 
+ I fucked all four of the ladies once (Mary twice) and I was done. Gail made a futile attempt to get one more out of me, but it was no go.  
 
  
 
@@ -13466,7 +13466,7 @@
 
  "Yes sir. Come with me." 
 
- He and Alex walked over to the car and several minutes later Alex came back and told Phil to move his car. Phil did it and the man pulled out and drove away. As soon as he was out of sight the cops left and Alex told us to go on back into the house. We got inside and he told us that the man's agency had been hired to follow Pam. Report_Story #3 
+ He and Alex walked over to the car and several minutes later Alex came back and told Phil to move his car. Phil did it and the man pulled out and drove away. As soon as he was out of sight the cops left and Alex told us to go on back into the house. We got inside and he told us that the man's agency had been hired to follow Pam.  
 
  
 

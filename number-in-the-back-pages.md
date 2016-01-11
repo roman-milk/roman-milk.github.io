@@ -126,7 +126,7 @@
 
  'Watch me,' she said. 'Watch me while I fuck myself with this lovely dildo. I want you to watch me and wank, and then when you're big and hard I want you to fuck me in my ass.' 
 
- I sat next to Beth on the bed and played with my slowly thickening cock. She pushed the big dildo into her opening and I continued to watch as Beth pulled the length of it out of her body slowly. She sighed with the pleasure of it and I saw her labia clinging to the shaft of the faux penis as though reluctant to release it. The shaft of the cock was already slick with Beth's juices, and I saw that she really did enjoy what she did, there was no faking it, she was getting great pleasure from this situation, and I realised I was in the middle of a life changing experience. Report_Story #2 
+ I sat next to Beth on the bed and played with my slowly thickening cock. She pushed the big dildo into her opening and I continued to watch as Beth pulled the length of it out of her body slowly. She sighed with the pleasure of it and I saw her labia clinging to the shaft of the faux penis as though reluctant to release it. The shaft of the cock was already slick with Beth's juices, and I saw that she really did enjoy what she did, there was no faking it, she was getting great pleasure from this situation, and I realised I was in the middle of a life changing experience.  
 
  
 

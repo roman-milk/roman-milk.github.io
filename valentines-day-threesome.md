@@ -302,7 +302,7 @@
 
  "Now get riding slut! We are not making love, we are fucking," he ordered. 
 
- Obliging, his big cock filling me so completely, I began to ride his cock like one would ride a bucking horse. Each bounce down filled my pussy like it had never been filled before. It was only after a few minutes of bouncing on his delicious cock that I came. As I leaned forward, allowing the orgasm to spread through me, he began thrusting up into me, enhancing the orgasm, and I screamed, "Oh-oh-oh-oh-oh-fuck-yes-yes-yes-God." Report_Story #2 
+ Obliging, his big cock filling me so completely, I began to ride his cock like one would ride a bucking horse. Each bounce down filled my pussy like it had never been filled before. It was only after a few minutes of bouncing on his delicious cock that I came. As I leaned forward, allowing the orgasm to spread through me, he began thrusting up into me, enhancing the orgasm, and I screamed, "Oh-oh-oh-oh-oh-fuck-yes-yes-yes-God."  
 
  
 

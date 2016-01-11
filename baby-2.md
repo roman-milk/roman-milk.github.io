@@ -246,7 +246,7 @@
 
  I told her of Baby's sister. She got a funny little smile as she sat in my lap, her eyes studying me as just hours before she had studied him. 
 
- "Get the help, Sam. I do love you and I will spend the rest of my life with you. But, I could not stand another incident like this. The next man might be so easily seduced by me into letting my daughters go unharmed." Report_Story #2 
+ "Get the help, Sam. I do love you and I will spend the rest of my life with you. But, I could not stand another incident like this. The next man might be so easily seduced by me into letting my daughters go unharmed."  
 
  
 

@@ -346,7 +346,7 @@
 
  "Oh god that tastes good. I'll be wanting more of that." 
 
- She moves up beside him and he takes her in his arms. Her hard nipples against him. He kisses her and tastes his cum on her lips. He doesn't care. It's from their love. Report_Story #2 
+ She moves up beside him and he takes her in his arms. Her hard nipples against him. He kisses her and tastes his cum on her lips. He doesn't care. It's from their love.  
 
  
 
@@ -532,7 +532,7 @@
 
  A few months later the ultrasound shows twin boys. 
 
- Continued. Report_Story #1 
+ Continued.  
 
  
 
@@ -734,7 +734,7 @@
 
  Months later the ultrasound show twin girls. 
 
- Continued? Report_Story #1 
+ Continued?  
 
  
 
@@ -1042,7 +1042,7 @@
 
  "That's so beautiful. Have you let any of your boyfriends see it?" 
 
- "No, daddy. I just want you to see it. No one else." Report_Story #2 
+ "No, daddy. I just want you to see it. No one else."  
 
  
 
@@ -1388,7 +1388,7 @@
 
  The hurry to the bathroom and Gary adjusts the water. The get in and get all wet. He turns the water to a trickle and they start soaping each other up. He washes both girls as they wash him. They get all soapy and he bends Jane over. He slides is cock in her from behind and strokes deep in her. She squeals and cums as he rams his cock all the way in her. He makes cum a few times and pulls out. He bends Jean over and rams his hard cock in her. She cries out and cums as his huge cock its her cervix. He makes her cum a few times, too. 
 
- "Get on our knees now. I'm going to cum for you. Open your mouths and get ready to catch it. I have some for both of you." Report_Story #3 
+ "Get on our knees now. I'm going to cum for you. Open your mouths and get ready to catch it. I have some for both of you."  
 
  
 
@@ -1424,7 +1424,7 @@
 
  Sarah smiles and thinks of being double teamed by them. Maybe she will get triple teamed. She can't wait for them to come home. 
 
- Continued? Report_Story #1 
+ Continued?  
 
  
 
@@ -1860,7 +1860,7 @@
 
  "Hey, guys. What ya doing?" 
 
- "Just getting everything set up here. What are you two up to?" Report_Story #2 
+ "Just getting everything set up here. What are you two up to?"  
 
  
 
@@ -2006,7 +2006,7 @@
 
  The next chapter. 
 
- Babies and Kim and Ashley get involved. Report_Story #1 
+ Babies and Kim and Ashley get involved.  
 
  
 
@@ -2422,7 +2422,7 @@
 
  "Yes. Yes. My lovers big cock all the way in. Big hot cock. Yes. Yes." 
 
- She holds him in all the way and rubs her clit on his bone. Her passion rises and she cums again. Report_Story #2 
+ She holds him in all the way and rubs her clit on his bone. Her passion rises and she cums again.  
 
  
 
@@ -2740,7 +2740,7 @@
 
  Continued? 
 
- This could go on forever. Not sure about the next chapter. Report_Story #1 
+ This could go on forever. Not sure about the next chapter.  
 
  
 
@@ -3064,7 +3064,7 @@
 
  Bev says, "Fuck her guys. Fuck her hard. Shoot your hot cum in both ends of her." 
 
- She gets them both hard and Lee moves behind her. She has Eric down her throat and Lee slowly takes her from behind. She moans on Eric's cock. Lee grabs her hip bones and pushes hard into her. She cries out on Eric's cock. Eric grabs two hands full of her hair and face fucks her. Lee reaches up and grabs her nipples. He pulls back on them and Sarah cums. Her cries of ecstasy are muffled my Eric's cock. He grabs a handful of her hair and pulls her back hard. Her pussy is milking his cock. She tries to control both cocks. She wants them to cum at the same time. She finally feels them both swelling in her and redoubles her effort. Both guys groan and shoot their loads in her. She swallows as fast as she can and milks Lee's cock. She works on both cocks, milking them dry. Lee lets her fall on Eric and he lays beside them. They both hold her in their arms. Report_Story #2 
+ She gets them both hard and Lee moves behind her. She has Eric down her throat and Lee slowly takes her from behind. She moans on Eric's cock. Lee grabs her hip bones and pushes hard into her. She cries out on Eric's cock. Eric grabs two hands full of her hair and face fucks her. Lee reaches up and grabs her nipples. He pulls back on them and Sarah cums. Her cries of ecstasy are muffled my Eric's cock. He grabs a handful of her hair and pulls her back hard. Her pussy is milking his cock. She tries to control both cocks. She wants them to cum at the same time. She finally feels them both swelling in her and redoubles her effort. Both guys groan and shoot their loads in her. She swallows as fast as she can and milks Lee's cock. She works on both cocks, milking them dry. Lee lets her fall on Eric and he lays beside them. They both hold her in their arms.  
 
  
 

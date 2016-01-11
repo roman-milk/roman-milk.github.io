@@ -202,7 +202,7 @@
 
  I put the diary in my briefcase, finished my coffee and then headed for work. I had some time mid-morning and I took out Diane's book and opened it. 
 
- "Sept 9, 08. I was bad, really bad tonight. I had to work late (well, not really – Donny wanted a blow job before we closed the office) and I called hubby to let him know I'd be late. He said no problem since he had to work late also. I finished Donny and then thought I'd go over to hubby's office and if he was close to being done maybe we could go out for some dinner together. When I got there Hubby was already gone. Rich was still at his desk and he told me that hubby had left half an hour ago (I gave Donny a long, long, long blow job) then he stood up and took out his cock and told me it had been a month since I'd last fucked him. I walked over to hubby's desk, pushed everything to one side, took off my panties and got on the desk. Rich was fucking me hard and I was moaning and telling him to fuck me harder. Report_Story #2 
+ "Sept 9, 08. I was bad, really bad tonight. I had to work late (well, not really – Donny wanted a blow job before we closed the office) and I called hubby to let him know I'd be late. He said no problem since he had to work late also. I finished Donny and then thought I'd go over to hubby's office and if he was close to being done maybe we could go out for some dinner together. When I got there Hubby was already gone. Rich was still at his desk and he told me that hubby had left half an hour ago (I gave Donny a long, long, long blow job) then he stood up and took out his cock and told me it had been a month since I'd last fucked him. I walked over to hubby's desk, pushed everything to one side, took off my panties and got on the desk. Rich was fucking me hard and I was moaning and telling him to fuck me harder.  
 
  
 
@@ -296,7 +296,7 @@
 
  ++++++++++++++++++++++++ 
 
- When Diane got home I did my best to act normal. Diane's diaries wouldn't mean shit as evidence because she could claim that they were just her fantasies put down on paper and that she never really did any of those things. If I tried to use them in court against her as part of a divorce she could even claim that they weren't even hers at all and that I had made them up. Report_Story #3 
+ When Diane got home I did my best to act normal. Diane's diaries wouldn't mean shit as evidence because she could claim that they were just her fantasies put down on paper and that she never really did any of those things. If I tried to use them in court against her as part of a divorce she could even claim that they weren't even hers at all and that I had made them up.  
 
  
 
@@ -430,7 +430,7 @@
 
  She got a bit of a smile on her face when I told her that I'd broken up the household duties between us. I passed her another sheet of paper where I had listed everything and told her to review it and let me know if she wanted to make any adjustments to it. On it I had listed the parts of the house we would each be responsible for cleaning. She would do the laundry one week and I would do it the next. I would cook one week and she would cook the next. If either of us was not going to be there to cook on our assigned night we needed to give the other party a days notice. 
 
- She read the list and then told me she would rather do her own laundry and I told her in that case I would do mine and that included sheets and pillow cases so she would have to do hers. I could see that she wanted to say something, but I guess she decided that it was not the time to possibly make matters worse. Report_Story #4 
+ She read the list and then told me she would rather do her own laundry and I told her in that case I would do mine and that included sheets and pillow cases so she would have to do hers. I could see that she wanted to say something, but I guess she decided that it was not the time to possibly make matters worse.  
 
  
 
@@ -606,7 +606,7 @@
 
  But first there was one last act to be played out in the Henry/Diane story. 
 
- I had just unpacked from my latest district trip and the door bell rang. I went to the door and found Diane standing there. Report_Story #5 
+ I had just unpacked from my latest district trip and the door bell rang. I went to the door and found Diane standing there.  
 
  
 

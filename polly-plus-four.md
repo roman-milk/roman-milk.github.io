@@ -154,7 +154,7 @@
 
  I looked at her like she was crazy. 
 
- "I'm serious," she said, "I'm not going to leave you, but I'm not going to spend the rest of my life wondering when you are going to do something either. Go on, do it and get it over with." Report_Story #2 
+ "I'm serious," she said, "I'm not going to leave you, but I'm not going to spend the rest of my life wondering when you are going to do something either. Go on, do it and get it over with."  
 
  
 

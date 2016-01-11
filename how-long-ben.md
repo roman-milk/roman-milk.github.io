@@ -170,7 +170,7 @@
 
  "Jason needs to be harder than that for me Ben. Use your mouth and get him hard." 
 
- Ben wouldn't look at me, but he said "yes dear" and took Jason's cock in his mouth. I could not believe how hot I got watching my husband giving head to one of my old lovers. I let Ben suck on Jason for a few minutes and then said: Report_Story #2 
+ Ben wouldn't look at me, but he said "yes dear" and took Jason's cock in his mouth. I could not believe how hot I got watching my husband giving head to one of my old lovers. I let Ben suck on Jason for a few minutes and then said:  
 
  
 

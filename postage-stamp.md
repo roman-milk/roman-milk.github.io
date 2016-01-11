@@ -138,7 +138,7 @@
 
  He and Elmore walked away. It took a minute or two, but I finally got myself together and went to the boy's lavatory and got some paper towels to clean up my mess. 
 
- On my way home I fumed over what happened. I didn't get a chance to make him pay a price however minor it might have been and he had gotten a free ride. Realistically I knew that fighting back would have been a total waste of time and energy as he had a good five or six inches and sixty or seventy pounds on me, but he got a free ride and that galled me. The more I thought about it the more upset I got over it. Report_Story #2 
+ On my way home I fumed over what happened. I didn't get a chance to make him pay a price however minor it might have been and he had gotten a free ride. Realistically I knew that fighting back would have been a total waste of time and energy as he had a good five or six inches and sixty or seventy pounds on me, but he got a free ride and that galled me. The more I thought about it the more upset I got over it.  
 
  
 

@@ -230,7 +230,7 @@
 
  "Isn't it clear? Mom is going to take your daughter as her new slave so she is giving me her old one. But instead of getting a old car like most eighteen year olds get, I am getting an old woman." 
 
- At forty-one Sandra felt old sometimes, but being called old by a teenager who was acting like she owned her hurt. But realizing her situation was way direr than she originally thought, instead of fighting her, Sandra asked, attempting to buy herself some time, "How is this going to work?" Report_Story #2 
+ At forty-one Sandra felt old sometimes, but being called old by a teenager who was acting like she owned her hurt. But realizing her situation was way direr than she originally thought, instead of fighting her, Sandra asked, attempting to buy herself some time, "How is this going to work?"  
 
  
 
@@ -478,7 +478,7 @@
 
  The first time she tasted Mariah's pussy was three weeks after her first surprising sexual encounter with Mariah. She had been fucked by Mariah already, but since then Mariah had acted like nothing happened. Each day of being ignored confused the insecure Sandra who, having found love in her mind, was suddenly being rejected. What had she done wrong? 
 
- Sandra was riddled with insecurities even though she tried to hide it by being her usual chipper self and by focusing on her studies. Report_Story #3 
+ Sandra was riddled with insecurities even though she tried to hide it by being her usual chipper self and by focusing on her studies.  
 
  
 
@@ -752,7 +752,7 @@
 
  "Did baby miss me?" Mariah teased, allowing just the cockhead to penetrate the eager bitch. 
 
- She wanted to just back up and swallow the cock whole, but knew that she had to be a good girl and wait. Her answer was sincere, at least from the point of view of her body. "Yes, Mommy, baby missed you so much." Report_Story #4 
+ She wanted to just back up and swallow the cock whole, but knew that she had to be a good girl and wait. Her answer was sincere, at least from the point of view of her body. "Yes, Mommy, baby missed you so much."  
 
  
 
@@ -1034,7 +1034,7 @@
 
  Taylor was excited about having her own MILF pet and couldn't wait to play with her new toy...although having to wait was driving her nuts. 
 
- Sandra tossed and turned as she replayed the day in her head. As a mother she was ashamed of her weakness, of her inability to say no and stand up for herself...and in doing so had allowed her daughter to be potential prey for the hungriest wolf she knew. Yet, for the first time on years, Sandra felt like herself, felt like a woman and felt needed. Her pussy burned with need as she fondly remembered being Mariah's sub. Funny how time can play tricks on you. Gone were all the bad memories of her past as all she could remember was the great memories of how her body felt when she was an obedient pet for Mariah. Her fingers roaming freely to her cunt, she brought herself to not one, not two, but three orgasms, as she reminisced about her many submissions over the years. Report_Story #5 
+ Sandra tossed and turned as she replayed the day in her head. As a mother she was ashamed of her weakness, of her inability to say no and stand up for herself...and in doing so had allowed her daughter to be potential prey for the hungriest wolf she knew. Yet, for the first time on years, Sandra felt like herself, felt like a woman and felt needed. Her pussy burned with need as she fondly remembered being Mariah's sub. Funny how time can play tricks on you. Gone were all the bad memories of her past as all she could remember was the great memories of how her body felt when she was an obedient pet for Mariah. Her fingers roaming freely to her cunt, she brought herself to not one, not two, but three orgasms, as she reminisced about her many submissions over the years.  
 
  
 
@@ -1352,7 +1352,7 @@
 
  "Yes, Mistress," Sandra agreed, wondering what was in store for her, before leaving to put panties on. Each step at first was awkward and a distraction. In her new room, she practiced walking for a couple of minutes before she felt slightly accustomed to having the weird balls inside her. Content as she could be in her current predicament, she headed to work. 
 
- At work, the balls were a constant reminder of her past, her present and her future. Sandra was in the middle of a new summer ad campaign and it was crucial to get all her slides ready for her multi-media presentation on Thursday. The balls inside her were a distraction but she realized if she sat at her desk and didn't move her legs, eventually she forgot they were in her. That said, every time she moved, she got a constant reminder and her pussy would beg for a quick release she wasn't allowed to give. Report_Story #6 
+ At work, the balls were a constant reminder of her past, her present and her future. Sandra was in the middle of a new summer ad campaign and it was crucial to get all her slides ready for her multi-media presentation on Thursday. The balls inside her were a distraction but she realized if she sat at her desk and didn't move her legs, eventually she forgot they were in her. That said, every time she moved, she got a constant reminder and her pussy would beg for a quick release she wasn't allowed to give.  
 
  
 
@@ -1600,7 +1600,7 @@
 
  Sandra didn't have long to consider what was making Mariah moan for long as Mariah beckoned. "Slut, get your ass in here." 
 
- As expected, Sandra slipped out of her heels, lowered herself onto all fours and began crawling to her Mistress. As she reached the living room she stopped suddenly as she realized that someone was between Mariah's legs. Report_Story #7 
+ As expected, Sandra slipped out of her heels, lowered herself onto all fours and began crawling to her Mistress. As she reached the living room she stopped suddenly as she realized that someone was between Mariah's legs.  
 
  
 
@@ -1874,7 +1874,7 @@
 
  "Yes, Mistress Mariah," Sandra replied burning in shame and bending down to lick her Mistress's stocking-clad foot. 
 
- "Wow," a still stunned Alexandra gasped, watching the submissive act. Report_Story #8 
+ "Wow," a still stunned Alexandra gasped, watching the submissive act.  
 
  
 
@@ -2092,7 +2092,7 @@
 
  The end of this novel for now! 
 
- Feel free to share your thoughts with where this should go next...as so many potential plots are available.... Report_Story #1 
+ Feel free to share your thoughts with where this should go next...as so many potential plots are available....  
 
  
 
@@ -2304,7 +2304,7 @@
 
  "Holy shit, she did it," the faceless stranger announced impressed. 
 
- A strange rush of euphoria filled Sandra at reaching her goal. Having accomplished it, she now focused on getting him off. She returned to porn star sucking: fast and furious. Report_Story #2 
+ A strange rush of euphoria filled Sandra at reaching her goal. Having accomplished it, she now focused on getting him off. She returned to porn star sucking: fast and furious.  
 
  
 
@@ -2560,7 +2560,7 @@
 
  "Hello, Mommy-slut," Mariah greeted her, amused. 
 
- "Welcome home, Queen Mariah," the submissive mother greeted, without taking the stocking-clad toes out of her mouth. Only seeing her daughter intermittently since college began almost two years ago, she desperately craved the feelings that utter submission to her daughter brought her. Report_Story #3 
+ "Welcome home, Queen Mariah," the submissive mother greeted, without taking the stocking-clad toes out of her mouth. Only seeing her daughter intermittently since college began almost two years ago, she desperately craved the feelings that utter submission to her daughter brought her.  
 
  
 
@@ -2850,7 +2850,7 @@
 
  Once the door was closed, Carissa turned around and asked bluntly. "How long have you wanted to eat my cunt?" 
 
- Sandra's face went from white to red as she stammered, "N-n-not long." Report_Story #4 
+ Sandra's face went from white to red as she stammered, "N-n-not long."  
 
  
 
@@ -3154,7 +3154,7 @@
 
  Kelly's eyes went big, knowing that you were never supposed to back down from a double dare. 
 
- Thankfully, Annie saved Kelly, "I call foul. It was my turn to ask the question." Report_Story #5 
+ Thankfully, Annie saved Kelly, "I call foul. It was my turn to ask the question."  
 
  
 
@@ -3448,7 +3448,7 @@
 
  Sandra was confused by the softness in Mariah's voice, as well as the sincerity seemingly in her tone. "Really?" 
 
- "Of course. Why do you think I am really here? I have spent eighteen years looking for someone to replicate the feelings you gave me," Mariah said. "I always assumed you have spent the past eighteen years longing for the same thing." Report_Story #6 
+ "Of course. Why do you think I am really here? I have spent eighteen years looking for someone to replicate the feelings you gave me," Mariah said. "I always assumed you have spent the past eighteen years longing for the same thing."  
 
  
 

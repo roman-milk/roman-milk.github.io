@@ -152,7 +152,7 @@
 
  "You said something went wrong, so thought you'd short change me!" he stated. 
 
- "No. Not your fault, mine. Everything went fine as far as you're concerned. Must be slipping when it comes to playing practical jokes, that's all," he explained, without explaining anything at all. Besides, Joe saw only the money, tuning out everything else. Report_Story #2 
+ "No. Not your fault, mine. Everything went fine as far as you're concerned. Must be slipping when it comes to playing practical jokes, that's all," he explained, without explaining anything at all. Besides, Joe saw only the money, tuning out everything else.  
 
  
 
@@ -340,7 +340,7 @@
 
  With every word she pictured herself more deeply as a naughty slut not worthy of consideration, deserving of this ill-treatment. He pushed her back against the cold wall tiles with the taps digging into her back but she didn't complain. 
 
- Her eyes widened in surprise when he squirted foam between her legs. She had shaved her father with a stick of soap and brush but she knew what was about to happen. She watched mesmerised as he concentrated on her once private place. She felt the cold steel slicing away all protection. His fingers were gripping her lips pulling them into shape to get at every nook and cranny of her pussy. Report_Story #3 
+ Her eyes widened in surprise when he squirted foam between her legs. She had shaved her father with a stick of soap and brush but she knew what was about to happen. She watched mesmerised as he concentrated on her once private place. She felt the cold steel slicing away all protection. His fingers were gripping her lips pulling them into shape to get at every nook and cranny of her pussy.  
 
  
 

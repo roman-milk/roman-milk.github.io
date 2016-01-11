@@ -142,13 +142,13 @@
 
  Eventually my convulsing subsided and my cock slipped from Belinda's oozing cunt. We both lay down in an untidy heap on the wrinkled and stained sheet, our sweat soaked bodies already beginning to cool. 
 
- We lay amid the devastation and kissed like real lovers. We were both surprised at the depth of our feelings for each other, and even though we knew that what we had done was wrong in the eyes of the world, we had no intention of stopping. I doubt that we could have stopped our incestuous coupling even if we'd tried, my mind was filled with the images of my gorgeous sister in the throes of orgasm, and there was no way I could shake them free. Report_Story #2 
+ We lay amid the devastation and kissed like real lovers. We were both surprised at the depth of our feelings for each other, and even though we knew that what we had done was wrong in the eyes of the world, we had no intention of stopping. I doubt that we could have stopped our incestuous coupling even if we'd tried, my mind was filled with the images of my gorgeous sister in the throes of orgasm, and there was no way I could shake them free.  
 
  
 
  ****** Twin Times Ch. 01 ****** bygeronimo_appleby© We knew we had our own little secret; well it was more like a big secret really! But little did we know that ours wasn't the only dark secret in the house. 
 
- Do you want me to go on?? Report_Story #1 
+ Do you want me to go on??  
 
  
 
@@ -278,7 +278,7 @@
 
  'Come on baby boy,' Aunt Felicity said encouragingly as she wanked at my length. 'Let your aunt taste your cream... Come on, come for me, spit it into my mouth.' 
 
- She wrapped her lips around my prick again and continued her expert oral attention. I heard her grunt at the beginning of her climax, her cries of pleasure muffled by the mouthful of cock. My aunt convulsed as she came, ceasing her vaginal rubbing and squeezing her big breasts through the material of her blouse. The noises she was making were too much for me, 'I'm coming,' I groaned shortly before my cock began its spurting. My spunk jetted from me and Aunt Felicity swallowed the first few bursts bravely. She let my spunking prick fall from between her lips, and as the dirty bitch roughly mauled her own tits several more spurts of hot semen gushed thickly onto her face and blouse. Report_Story #2 
+ She wrapped her lips around my prick again and continued her expert oral attention. I heard her grunt at the beginning of her climax, her cries of pleasure muffled by the mouthful of cock. My aunt convulsed as she came, ceasing her vaginal rubbing and squeezing her big breasts through the material of her blouse. The noises she was making were too much for me, 'I'm coming,' I groaned shortly before my cock began its spurting. My spunk jetted from me and Aunt Felicity swallowed the first few bursts bravely. She let my spunking prick fall from between her lips, and as the dirty bitch roughly mauled her own tits several more spurts of hot semen gushed thickly onto her face and blouse.  
 
  
 
@@ -384,7 +384,7 @@
 
  *** 
 
- Who wants more? There's still Belinda to bring in to play with aunty and daddy. Let me know if you want me to write some more about this filthy family. Report_Story #1 
+ Who wants more? There's still Belinda to bring in to play with aunty and daddy. Let me know if you want me to write some more about this filthy family.  
 
  
 
@@ -554,7 +554,7 @@
 
  'She's coming behind me,' I blurted. There was no time for a long winded explanation. 'I've told her I saw you together… we're going to spy on you.' I looked back along the corridor; there was no sign of my sister yet. I turned back to the surprised couple on the bed – 'Come on!' I almost shouted, desperate for them to understand. 
 
- I turned and left the room, pulling the door behind me. I left it slightly ajar so that Belinda and I could survey the inside of dad's bedroom when she eventually arrived. I walked back along the corridor and smiled inwardly when I saw my sister, completely naked, creeping silently over the carpet towards me. Her eyes were still wide, but this time with anticipation, and she smiled at me when she saw me waiting. Report_Story #2 
+ I turned and left the room, pulling the door behind me. I left it slightly ajar so that Belinda and I could survey the inside of dad's bedroom when she eventually arrived. I walked back along the corridor and smiled inwardly when I saw my sister, completely naked, creeping silently over the carpet towards me. Her eyes were still wide, but this time with anticipation, and she smiled at me when she saw me waiting.  
 
  
 

@@ -150,7 +150,7 @@
 
  With thick ropes of spunk clinging to her dark hair and with Patrick's offering trickling obscenely down her face and cheeks, Cassandra sucked at Gary's long cock. 
 
- It only took a minute or so of Cassandra's oral attention before Gary grunted and let fly with his own fat load. Cassandra was better prepared this time and opened her mouth to offer her tongue to Gary's spitting cock. Report_Story #2 
+ It only took a minute or so of Cassandra's oral attention before Gary grunted and let fly with his own fat load. Cassandra was better prepared this time and opened her mouth to offer her tongue to Gary's spitting cock.  
 
  
 

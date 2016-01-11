@@ -156,7 +156,7 @@
 
  "I'm sorry George; I am really and truly sorry, but at least you can't say that I didn't try." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -370,7 +370,7 @@
 
  He crossed the hall to what used to be his bedroom and quietly let himself in. He moved over to the bed and carefully climbed on it. He positioned himself so that he was next to Shawna's head. She was sleeping naked on her back which is what she always did. He reached for the nipple of her right breast and started rolling it between his thumb and forefinger. Her breasts were very sensitive and breast play had always been the way to fire her up quickly. 
 
- It took a minute or so until she reacted. Her body moved and she moaned. She slowly awoke and realized what was happening and she murmured, "Oh George" and he pushed his cock against her lips. She opened her mouth and he pushed inside. She started sucking on him and he kept rolling the nipple and her body started to squirm. Her hands cupped his ass cheeks to hold him in place as she worked on his cock. He gave her about a minute and a half and then he said: Report_Story #2 
+ It took a minute or so until she reacted. Her body moved and she moaned. She slowly awoke and realized what was happening and she murmured, "Oh George" and he pushed his cock against her lips. She opened her mouth and he pushed inside. She started sucking on him and he kept rolling the nipple and her body started to squirm. Her hands cupped his ass cheeks to hold him in place as she worked on his cock. He gave her about a minute and a half and then he said:  
 
  
 
@@ -546,7 +546,7 @@
 
  He left the kitchen and so he wasn't there when she started crying. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -818,7 +818,7 @@
 
  "Just what I said. You know what the problem is and you have to deal with it. The real problem isn't that you let yourself be taken advantage of; the real problem is what came after. I'll admit to being part of the problem - I did tell you to go ahead and party and that I would be there to be the designated driver - but I take no responsibility for what continued on until noon of the next day. You were out of it the first time, but no way were you still out of all night and all the next morning. That's the big ugly toad sitting on the table and staring at us. Not the one time Shawna, but all the other times after the first one." 
 
- He got up, said "Good night" and went on up to bed. He was lying there staring up at the ceiling when the door opened and Shawna came in. She didn't turn on the light, just shut the door behind her and walked over and sat on the edge of the bed. He heard her take a deep breath and then she said: Report_Story #2 
+ He got up, said "Good night" and went on up to bed. He was lying there staring up at the ceiling when the door opened and Shawna came in. She didn't turn on the light, just shut the door behind her and walked over and sat on the edge of the bed. He heard her take a deep breath and then she said:  
 
  
 
@@ -942,7 +942,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 

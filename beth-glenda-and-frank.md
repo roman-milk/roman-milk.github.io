@@ -156,7 +156,7 @@
 
  "That's where you come in. I'm going to need two things from you. I had the house appraised and given our equity I'm going to have to come up with 25 thousand to buy out Beth's half. So the first thing I need from you is a certified check for that amount. The second thing I need for you to do is give Beth a two hundred dollar a week raise so that our incomes are equal and I won't have to pay alimony." 
 
- "You are out of your fucking mind if you think I'm going to do that!" Report_Story #2 
+ "You are out of your fucking mind if you think I'm going to do that!"  
 
  
 

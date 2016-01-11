@@ -172,7 +172,7 @@
 
  I carefully removed the tape from around her arms and body, and lastly I un- taped her hands from her thighs. Her arms sprang immediately around my neck, and we kissed wildly again, stopping only long enough for her to ask me when we might do this again. 
 
- "Soon, my little sex slave," I answered. "Very soon." Report_Story #1 
+ "Soon, my little sex slave," I answered. "Very soon."  
 
  
 
@@ -412,7 +412,7 @@
 
  "Describe for me how you were bound." 
 
- "I was facing the tree, my arms stretch wide and tied around the trunk, my breasts pressing into the rough bark. It was rather uncomfortable, but at the same time the newness of the sensation thrilled me. My feet were also forced apart and tied around the base of the trunk. I was spread and helpless, and I was dripping wet." Report_Story #2 
+ "I was facing the tree, my arms stretch wide and tied around the trunk, my breasts pressing into the rough bark. It was rather uncomfortable, but at the same time the newness of the sensation thrilled me. My feet were also forced apart and tied around the base of the trunk. I was spread and helpless, and I was dripping wet."  
 
  
 
@@ -502,7 +502,7 @@
 
  She sat somewhat stunned as I flipped open my laptop. She was so used to getting whatever she wanted that she didn't really know how to handle my curt response. But she eventually agreed, and we spent the next hour reviewing and preparing for the client presentation she was to make that afternoon. In the end it was a productive meeting, though I occasionally sensed the pull inside her to stop being the boss and start being my submissive slut. I saw her mind wander back to the tree several times. And that made me happy. 
 
- At the conclusion of our meeting I smelled her fingers and lifted her dress to cup her naked ass in my hands before returning to my office, satisfied that our journey was ready to continue on to new heights. Report_Story #1 
+ At the conclusion of our meeting I smelled her fingers and lifted her dress to cup her naked ass in my hands before returning to my office, satisfied that our journey was ready to continue on to new heights.  
 
  
 
@@ -700,7 +700,7 @@
 
  On screen my little porn queen continued playing with her swelling sex, and it looked to me like there wasn't much acting involved either. Her genuine state of excitement was obvious as the camera zoomed in on the two glistening fingers she pulled from her soaking pussy. The camera followed as she brought them up to her mouth and slid them slowly between her lips, as she began thrusting them in and out in blowjob fashion. I felt my own cock straining against my pants at the incredible scene unfolding before me. 
 
- I watched as Adrienne rolled over onto her knees, her ass high in the air and face buried in the pillows. The camera focused tightly on two fingers that peaked out from between her legs and plunged into her gaping hole. After fucking herself with her fingers in close-up for several minutes, she slid her dripping fingers across her clit in small, slow, teasing circles before gradually moving them more quickly and intentionally over her swollen pleasure bud. Report_Story #2 
+ I watched as Adrienne rolled over onto her knees, her ass high in the air and face buried in the pillows. The camera focused tightly on two fingers that peaked out from between her legs and plunged into her gaping hole. After fucking herself with her fingers in close-up for several minutes, she slid her dripping fingers across her clit in small, slow, teasing circles before gradually moving them more quickly and intentionally over her swollen pleasure bud.  
 
  
 
@@ -722,7 +722,7 @@
 
  I gave her one more kiss, then reached down and pulled her hand from between her legs. I brought her fingers to my mouth and one by one slowly sucked each one clean, savoring the sweet taste of her sex on my tongue. 
 
- "Your consequence is now completely satisfied," I concluded. Report_Story #1 
+ "Your consequence is now completely satisfied," I concluded.  
 
  
 
@@ -916,7 +916,7 @@
 
  "Neither. Nothing so lame as a backseat romp for my little slut. I've been watching the men's room over there," I said pointing down a narrow hallway behind her, "and there is no one in it right now. I want you to go in there, go into the far stall, remove all of your clothes, and wait for me." 
 
- "You're kidding!" she exclaimed before catching herself. She stammered her protest, "I mean, I know you're not kidding, because you always say what you mean. I just mean... Damn... Never mind. Oh my gawd." She looked briefly around, excused herself from the table and headed boldly into the men's room. Perhaps, due to her earlier visit to the ladies room, she already knew that the oversized stalls in the men's room of this upscale establishment were actually completely walled in little rooms, each with a full-sized louvered door. And maybe having the assurance of such "privacy" gave her confidence to readily agree to my demands. Or perhaps she really was just a brazen little slut. Report_Story #2 
+ "You're kidding!" she exclaimed before catching herself. She stammered her protest, "I mean, I know you're not kidding, because you always say what you mean. I just mean... Damn... Never mind. Oh my gawd." She looked briefly around, excused herself from the table and headed boldly into the men's room. Perhaps, due to her earlier visit to the ladies room, she already knew that the oversized stalls in the men's room of this upscale establishment were actually completely walled in little rooms, each with a full-sized louvered door. And maybe having the assurance of such "privacy" gave her confidence to readily agree to my demands. Or perhaps she really was just a brazen little slut.  
 
  
 
@@ -954,7 +954,7 @@
 
  I bent down, as if to kiss her, but instead simply pulled up my pants. "Well done, my little slut," I said as I zipped up. I stepped back and looked at my sweet slave - such a beautiful sight to behold sitting there naked with a flushed face, tussled hair, wrists bound, and cum covered. I gave her an approving smile and untied the stockings from her wrists. Then I opened the door to the stall and left without another word - nothing more needed to be said. 
 
- I didn't bother to wait for her to clean up and dress, and I made no offer to stand guard for her as she made her exit from the men's room. My hasty departure was purposeful in that I wanted her to feel like a well-used slut - fucked and forsaken. I left the restaurant and immediately sent a text message to her cell phone. "Now thinking of how to use MLS next... good night." Report_Story #1 
+ I didn't bother to wait for her to clean up and dress, and I made no offer to stand guard for her as she made her exit from the men's room. My hasty departure was purposeful in that I wanted her to feel like a well-used slut - fucked and forsaken. I left the restaurant and immediately sent a text message to her cell phone. "Now thinking of how to use MLS next... good night."  
 
  
 
@@ -1114,7 +1114,7 @@
 
  Later that night I read with delight of her complete adherence to my instructions. She went one better, flashing her tits at everyone pulled up beside her at every red light after the last of her buttons were opened, five times in all. She also relayed her eleventh and final masturbatory experience of the weekend, using the pulsating jets of her jacuzzi tub on her clit as she replayed in her mind the scene we enjoyed that morning in her office with me coming all over her ass. She apologized for coming without my permission and said that she knew it might mean there would be a consequence. She hoped so. 
 
- Relentless slut! My very own relentless slut! Mine without conditions! Unbelievable! Report_Story #1 
+ Relentless slut! My very own relentless slut! Mine without conditions! Unbelievable!  
 
  
 
@@ -1318,7 +1318,7 @@
 
  Nikki smiled at me and simply said, "Yes, Sir." She walked quickly into her boss's office, and I heard the lock on the door click behind her. 
 
- I thought to myself, "This is going to be good! Really good!" Report_Story #1 
+ I thought to myself, "This is going to be good! Really good!"  
 
  
 
@@ -1506,7 +1506,7 @@
 
  "Jason," I heard from the dressing room. "I'm ready." 
 
- I looked into the elegant Russian woman's eyes, seeking permission to enter where men were clearly not normally allowed. Seeing as how Nikki and I were the only customers, she nodded me in. I went to the door of Nikki's room and opened it slowly. Rather than enter, however, I stood in the open doorway and made my examination. I motioned Nikki to me and she stepped cautiously forward, anxiously looking through the doorway for anyone else who might be present. Report_Story #2 
+ I looked into the elegant Russian woman's eyes, seeking permission to enter where men were clearly not normally allowed. Seeing as how Nikki and I were the only customers, she nodded me in. I went to the door of Nikki's room and opened it slowly. Rather than enter, however, I stood in the open doorway and made my examination. I motioned Nikki to me and she stepped cautiously forward, anxiously looking through the doorway for anyone else who might be present.  
 
  
 
@@ -1666,7 +1666,7 @@
 
  I leaned down through the window and kissed her. It was the first kiss we'd shared since I became her Master, and it was magnificent. 
 
- She spoke with sincere emotion in her voice. "Thank you, Sir. Thank you -- for everything." Report_Story #1 
+ She spoke with sincere emotion in her voice. "Thank you, Sir. Thank you -- for everything."  
 
  
 
@@ -1826,7 +1826,7 @@
 
  Adrienne looked a bit flushed, which I assumed was from sexual excitement or frustration, or both. She seemed to know that it was obvious and quickly explained. "I was just reading Nikki's picture entry. Wow, girl, I don't know where you are finding all these hot photos, but you need to send me the link. And you're an incredible writer. Your story addition this morning was amazing. I was sitting here reading and trying not to squeeze my thighs together. My heart is pounding, and I feel like I'm about to explode." 
 
- "Thanks," Nikki replied plainly. There was an erotic charge swirling around Adrienne that was palpable, but Nikki was quite a bit harder to read. Her photo essays and story additions had been scorching hot and very explicit, yet standing there I saw no visible sign of the impact my assignments had made on her. She certainly looked beautiful, despite the plainness of her outfit, a simple cotton button-front white blouse and black knee-length skirt. Her stunning dark eyes and long brunette locks had always captivated me, and knowing that she had on a sexy white corset underneath was just fuel for the fire. Report_Story #2 
+ "Thanks," Nikki replied plainly. There was an erotic charge swirling around Adrienne that was palpable, but Nikki was quite a bit harder to read. Her photo essays and story additions had been scorching hot and very explicit, yet standing there I saw no visible sign of the impact my assignments had made on her. She certainly looked beautiful, despite the plainness of her outfit, a simple cotton button-front white blouse and black knee-length skirt. Her stunning dark eyes and long brunette locks had always captivated me, and knowing that she had on a sexy white corset underneath was just fuel for the fire.  
 
  
 
@@ -1990,7 +1990,7 @@
 
  Adrienne quickly parted her secretary's pouting pussy lips with one hand and thrust two fingers deeply into the sopping opening just beneath her lower lip. 
 
- I used my free hand to pinch Nikki's nostrils together. At the same time I forced my cock deeply into her throat and held it there, cutting off her ability to breathe. Within a few seconds her face began to flush read as she thrashed about for air. I withdrew my cock just enough to allow her a small gasp before plunging back in again. I continued to fuck her throat in this fashion, increasing the speed of my thrusts as I vaulted toward my own orgasm. I considered briefly whether or not this might be Nikki's first experience with breath play, but my mind quickly shifted from that question to forcing her orgasm from her. Report_Story #3 
+ I used my free hand to pinch Nikki's nostrils together. At the same time I forced my cock deeply into her throat and held it there, cutting off her ability to breathe. Within a few seconds her face began to flush read as she thrashed about for air. I withdrew my cock just enough to allow her a small gasp before plunging back in again. I continued to fuck her throat in this fashion, increasing the speed of my thrusts as I vaulted toward my own orgasm. I considered briefly whether or not this might be Nikki's first experience with breath play, but my mind quickly shifted from that question to forcing her orgasm from her.  
 
  
 
@@ -2056,7 +2056,7 @@
 
  "Yes, Sir," they replied in weak-voiced unison. 
 
- "Good. Now, little slut, remove the tape from the cunt so she can clean my come off your ass with her tongue, and we can all get back to work." Report_Story #1 
+ "Good. Now, little slut, remove the tape from the cunt so she can clean my come off your ass with her tongue, and we can all get back to work."  
 
  
 
@@ -2284,7 +2284,7 @@
 
  "I suppose you recall the brutal face fucking I gave you there the day after you agreed to be my little slut," I reminded her. 
 
- "I think of it every time I pull into the parking garage." Report_Story #2 
+ "I think of it every time I pull into the parking garage."  
 
  
 
@@ -2578,7 +2578,7 @@
 
  "It's time." 
 
- I raised her to her feet and led my blindfolded sub to the adjacent dining room. Her hands and body trembled slightly from fear and excitement. I moved the chair from the head of the table and positioned her in front of that end. I had her lean forward slightly so she could place her hands on the table for support. Report_Story #3 
+ I raised her to her feet and led my blindfolded sub to the adjacent dining room. Her hands and body trembled slightly from fear and excitement. I moved the chair from the head of the table and positioned her in front of that end. I had her lean forward slightly so she could place her hands on the table for support.  
 
  
 
@@ -2746,7 +2746,7 @@
 
  "You are all mine now," I sighed softly into her ear. 
 
- "All yours, Sir," she echoed. "All." Report_Story #1 
+ "All yours, Sir," she echoed. "All."  
 
  
 
@@ -2930,7 +2930,7 @@
 
  >>Sir 
 
- My heart beat hard in anticipation of the girls’ reactions to my message; even more so in anticipation of the evil adventure I had planned. Report_Story #2 
+ My heart beat hard in anticipation of the girls’ reactions to my message; even more so in anticipation of the evil adventure I had planned.  
 
  
 
@@ -3090,7 +3090,7 @@
 
  I watched her eagerly jog off to find and a man to seduce. 
 
- The rain had finally stopped, though the damp air offered no assistance in drying Nikki out or in alleviating the transparency of her shirt. So with my umbrella down, I set off to find Adrienne and get her in on the last part of my plan. I met up with her within a few minutes and explained my intentions, as the two of us walked over toward the restrooms. She seemed more than happy to help me with Nikki’s degradation. Report_Story #3 
+ The rain had finally stopped, though the damp air offered no assistance in drying Nikki out or in alleviating the transparency of her shirt. So with my umbrella down, I set off to find Adrienne and get her in on the last part of my plan. I met up with her within a few minutes and explained my intentions, as the two of us walked over toward the restrooms. She seemed more than happy to help me with Nikki’s degradation.  
 
  
 
@@ -3294,7 +3294,7 @@
 
  I was stunned. Could it all be true? 
 
- “Please, Sir,” Nikki said, looking up at me with those beautiful big brown eyes. “Take me as your full-time slave. Take me and make me fully Master’s little whore.” Report_Story #4 
+ “Please, Sir,” Nikki said, looking up at me with those beautiful big brown eyes. “Take me as your full-time slave. Take me and make me fully Master’s little whore.”  
 
  
 

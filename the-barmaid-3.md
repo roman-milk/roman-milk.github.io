@@ -140,7 +140,7 @@
 
  'Forgot my wallet,' he yelled in a voice as big as his fists. 
 
- 'Just off for a bath,' I ad-libbed, making up any excuse for my semi-clothed state as he paused on the landing and looked into my room. My heart was hammering and I struggled for breath. If he came into the room, if he decided to just step inside he'd see his naked girlfriend huddled behind the door. From my position I could see both of them -- my father with a fat wallet in his hand, and Joy crouched there with huge, frightened eyes. 'You seen Joy?' Dad asked. Report_Story #2 
+ 'Just off for a bath,' I ad-libbed, making up any excuse for my semi-clothed state as he paused on the landing and looked into my room. My heart was hammering and I struggled for breath. If he came into the room, if he decided to just step inside he'd see his naked girlfriend huddled behind the door. From my position I could see both of them -- my father with a fat wallet in his hand, and Joy crouched there with huge, frightened eyes. 'You seen Joy?' Dad asked.  
 
  
 

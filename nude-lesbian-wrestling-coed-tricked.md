@@ -366,7 +366,7 @@
 
  I looked at her; I looked at Jenny between her legs and felt a magnetic pull to be on my knees, to replace Jenny, even though I had never once considered another woman sexually before today. My mind was still spinning when I felt my body slowly fall like a leaf to the ground...slow but inevitable, as if nature was speaking. 
 
- "Good girl," I heard the professor purr and I felt an undeniable tingle at her approval, even though I should have felt shame. "Crawl to me, my pet," she softly ordered, with my head in a haze, her voice seemed soothing, and her words suddenly seemed so logical. I crawled to her as if hypnotized and not in control of my very being anymore. Report_Story #2 
+ "Good girl," I heard the professor purr and I felt an undeniable tingle at her approval, even though I should have felt shame. "Crawl to me, my pet," she softly ordered, with my head in a haze, her voice seemed soothing, and her words suddenly seemed so logical. I crawled to her as if hypnotized and not in control of my very being anymore.  
 
  
 
@@ -602,7 +602,7 @@
 
  now. 
 
- In the ring, Jenny and Shay were battling for position, neither one of them able to get into a dominant position. They eventually lunged at each other and began rolling around. Again neither was able to get on top and take control. Eventually, they both rolled towards Jamie and me, both reaching for us and just as Jenny was about to touch my hand, Jamie pushed me away and tagged Shay. Report_Story #3 
+ In the ring, Jenny and Shay were battling for position, neither one of them able to get into a dominant position. They eventually lunged at each other and began rolling around. Again neither was able to get on top and take control. Eventually, they both rolled towards Jamie and me, both reaching for us and just as Jenny was about to touch my hand, Jamie pushed me away and tagged Shay.  
 
  
 
@@ -954,7 +954,7 @@
 
  "Isn't this the position you are in every night?" I quipped, smiling. In front of me, Jamie was fucking Jenny doggie style. 
 
- Shay rubbed the cock on my pussy lips and I said, again trying to show I wasn't remotely intimidated by her, "Are you going to fuck me or are you just so used to being the one on all fours?" Report_Story #4 
+ Shay rubbed the cock on my pussy lips and I said, again trying to show I wasn't remotely intimidated by her, "Are you going to fuck me or are you just so used to being the one on all fours?"  
 
  
 

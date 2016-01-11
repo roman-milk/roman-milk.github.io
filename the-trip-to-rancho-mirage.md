@@ -284,7 +284,7 @@
 
  "Still thinking truck?" 
 
- She headed for the bathroom leaving me standing there with an unbelievably hard cock. I might have read her wrong, but I didn't think so so I quickly undressed and followed her into the shower. When I slid the curtain aside and got in with her she smiled and handed me the wash rag and the bar of soap and turned her back to me. I washed her back and then reached around and started washing her front. She reached back, found my stiff cock and started stroking it. She bent at the waist and picked up the shampoo and handed it to me. Report_Story #2 
+ She headed for the bathroom leaving me standing there with an unbelievably hard cock. I might have read her wrong, but I didn't think so so I quickly undressed and followed her into the shower. When I slid the curtain aside and got in with her she smiled and handed me the wash rag and the bar of soap and turned her back to me. I washed her back and then reached around and started washing her front. She reached back, found my stiff cock and started stroking it. She bent at the waist and picked up the shampoo and handed it to me.  
 
  
 
@@ -584,7 +584,7 @@
 
  I laughed, picked her up and carried her inside and kicked the door closed behind me. I didn't put her down, but carried her into the bedroom and set her down on the bed. I started taking off my clothes and she laughed and started peeling off hers. It was an exhausting night. Joyce wanted to make love in every room to make the place "ours" and fortunately for me that only amounted to five rooms. Unfortunately I wasn't able to go five times so the bathroom and spare bedroom shared one bout and the kitchen/dining room area shared another. The only room that got a full bout was the main bedroom. Joyce vainly tried to get me up one more time, but I didn't have anything left in me. 
 
- The next morning after dropping her off at work and having breakfast there I hit the DMV and turned in my Michigan license for a California one and then drove over to the office I'd transferred to and checked in with them. I was shown around and introduced to my new co-workers and took care of some paperwork. I told them I'd report in the following Monday and then I headed over to the restaurant to pick up Joyce when she got off work. Report_Story #3 
+ The next morning after dropping her off at work and having breakfast there I hit the DMV and turned in my Michigan license for a California one and then drove over to the office I'd transferred to and checked in with them. I was shown around and introduced to my new co-workers and took care of some paperwork. I told them I'd report in the following Monday and then I headed over to the restaurant to pick up Joyce when she got off work.  
 
  
 
@@ -742,7 +742,7 @@
 
  "Who does she wish she was fucking now?" 
 
- Those were not the kind of thoughts you should be having while making love to your wife. I was going through my tool box straightening up the drawers when Bev stuck her head into the garage and said "I'm going over to Lindy's." No "Miss me?" No "I love you" just a flat "I'm gong over to Lindy's." I could tell she was pissed at me, but in the mood I was in I thought "So fucking what!" She wasn't home by the time I went to bed and I was asleep when she did get home and she was quiet enough to wake me. Report_Story #4 
+ Those were not the kind of thoughts you should be having while making love to your wife. I was going through my tool box straightening up the drawers when Bev stuck her head into the garage and said "I'm going over to Lindy's." No "Miss me?" No "I love you" just a flat "I'm gong over to Lindy's." I could tell she was pissed at me, but in the mood I was in I thought "So fucking what!" She wasn't home by the time I went to bed and I was asleep when she did get home and she was quiet enough to wake me.  
 
  
 
@@ -922,7 +922,7 @@
 
  At work I did well and I was promoted twice. After three years I was made regional director and have eleven offices in three states under me. 
 
- Joyce did well at the restaurant. After a year she was moved to days and a year after that she was made manager after Alice decided that it was time for her to get away from the place and travel. She had to cut short her world tour and come back and run the place when Joyce had her babies. Yes, babies. She had twins, a boy and a girl. They are fraternal and not identical for which I gave thanks. No way I wanted to go through what Beverly and Belinda's parents went through. Report_Story #5 
+ Joyce did well at the restaurant. After a year she was moved to days and a year after that she was made manager after Alice decided that it was time for her to get away from the place and travel. She had to cut short her world tour and come back and run the place when Joyce had her babies. Yes, babies. She had twins, a boy and a girl. They are fraternal and not identical for which I gave thanks. No way I wanted to go through what Beverly and Belinda's parents went through.  
 
  
 

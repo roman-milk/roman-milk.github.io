@@ -310,7 +310,7 @@
 
  "Of course not baby." 
 
- "It occurred to me while I was in that closet that what I really wanted was to be punished for having you fuck that stranger. Not physical punishment, but mental. I felt like you should have humiliated me. You know, things like calling me a wimp, saying that my cock was worthless and that's why you had to pick up strangers. Telling them to make you pregnant because I wasn't man enough to do it." Report_Story #2 
+ "It occurred to me while I was in that closet that what I really wanted was to be punished for having you fuck that stranger. Not physical punishment, but mental. I felt like you should have humiliated me. You know, things like calling me a wimp, saying that my cock was worthless and that's why you had to pick up strangers. Telling them to make you pregnant because I wasn't man enough to do it."  
 
  
 

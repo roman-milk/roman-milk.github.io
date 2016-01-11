@@ -90,7 +90,7 @@
 
  "Now you can't stop me caressing you. I shall drive you mad with passion." He promised, with a devilish smile that told her he meant it. 
 
- She was about to tell him he didn't need the restraints when a touch made her gasp and lunge for him. It was no good she would have to suffer the pleasure until he was ready to release the building torrent of passion. It was true, if free, she would have clasped him to her unable to hold back. It was worth the wait, even when it seemed like torture, the eventual climax was overwhelming. She jerked upon the restraints, letting go vocally as well as mentally. Report_Story #2 
+ She was about to tell him he didn't need the restraints when a touch made her gasp and lunge for him. It was no good she would have to suffer the pleasure until he was ready to release the building torrent of passion. It was true, if free, she would have clasped him to her unable to hold back. It was worth the wait, even when it seemed like torture, the eventual climax was overwhelming. She jerked upon the restraints, letting go vocally as well as mentally.  
 
  
 
@@ -168,7 +168,7 @@
 
  "Look. Come slut. Look" He said holding a mirror up to her face. With a finger he scrapped the mess around her face to her lips. "Lick it up come slut." He demanded. Her tongue slipped around her lips all the time he found more for her to slurp and lick. 
 
- "I asked Jimmy who he was with that night. At first I dismissed the mystery woman as the link between Bob and me. After all what policewoman working undercover would go to such lengths, actually fucking while on the job! It didn't take long to work it out though. He showed me a photo and that was it. During the trial I wondered how I could use those photos of you in that room to best effect. When he said you had returned, well that was it. I paid him to give you a special treatment. We cooked up a special training scheme in debauchery, designed just for you. Each week he visited me in prison with photos and a report on your progress where I planned what he would do to you next. Little by little you were molded into becoming a present for me on the day of my release. Your down fall is rather greater than mine, so now for the final treatment. You're completely in my hands now, down here out of the way. I can do whatever I like with you." He said slowly, relishing the moment. Report_Story #3 
+ "I asked Jimmy who he was with that night. At first I dismissed the mystery woman as the link between Bob and me. After all what policewoman working undercover would go to such lengths, actually fucking while on the job! It didn't take long to work it out though. He showed me a photo and that was it. During the trial I wondered how I could use those photos of you in that room to best effect. When he said you had returned, well that was it. I paid him to give you a special treatment. We cooked up a special training scheme in debauchery, designed just for you. Each week he visited me in prison with photos and a report on your progress where I planned what he would do to you next. Little by little you were molded into becoming a present for me on the day of my release. Your down fall is rather greater than mine, so now for the final treatment. You're completely in my hands now, down here out of the way. I can do whatever I like with you." He said slowly, relishing the moment.  
 
  
 

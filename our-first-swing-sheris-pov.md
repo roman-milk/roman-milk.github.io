@@ -166,7 +166,7 @@
 
  To get even, when Bill had me remove my shirt, I gave him a bit of a show. I was lucky I didn't fall down, the margaritas were really hitting me hard. I got up at some point and got some water. Steve must have recognized that we were getting too drunk, cause the Margarita's weren't quite as strong in the second batch, and with the third batch he had brought out some popcorn to soak up some of the alcohol. 
 
- When Steve stood up to remove his pants, he was clearly proud of his huge erection pulling his underwear away from his waist. There was a wet spot the size of silver dollar where his head was poking out. Report_Story #2 
+ When Steve stood up to remove his pants, he was clearly proud of his huge erection pulling his underwear away from his waist. There was a wet spot the size of silver dollar where his head was poking out.  
 
  
 
@@ -348,7 +348,7 @@
 
  Bill with a steady, somewhat painful push, crammed most of his cock up my ass. We'd have to work on his style. I like an incremental intrusion; give me an inch or two at a time, and let me get used to it, before trying to see if you can tickle my tonsils starting at the wrong end. 
 
- After waiting a few seconds, he pulled back, and pushed hard again, this time it really did hurt. I could feel his balls slap against me, so I knew he was all the way in. Lisa was doing what she could, rubbing my clitty for me, and tonguing my nipples. Report_Story #3 
+ After waiting a few seconds, he pulled back, and pushed hard again, this time it really did hurt. I could feel his balls slap against me, so I knew he was all the way in. Lisa was doing what she could, rubbing my clitty for me, and tonguing my nipples.  
 
  
 
@@ -544,7 +544,7 @@
 
  I repositioned myself on my hands and knees, telling Bill to fuck me while I ate his woman. He seemed to appreciate the idea as he plugged me harder and faster than ever, while I lowered my mouth to the awaiting target. 
 
- The smell was strong, almost overwhelming, of pure sex. I've always been a very 'scent-sitive' person, and Steve's strong masculine smell could make me cream on demand. In this case, the smell of sweat and of Lisa's need almost made my knees buckle. I held her legs open, gently spreading her nether-lips, and lowering my face to within an inch of her, inhaled deeply. With the need within me growing, I flicked out my tongue, teasing first one side, then the other of her pussy. I could feel the thrust of Steve's cock in her mouth and throat, through the shift of her weight and the palpitations of her pussy. Report_Story #4 
+ The smell was strong, almost overwhelming, of pure sex. I've always been a very 'scent-sitive' person, and Steve's strong masculine smell could make me cream on demand. In this case, the smell of sweat and of Lisa's need almost made my knees buckle. I held her legs open, gently spreading her nether-lips, and lowering my face to within an inch of her, inhaled deeply. With the need within me growing, I flicked out my tongue, teasing first one side, then the other of her pussy. I could feel the thrust of Steve's cock in her mouth and throat, through the shift of her weight and the palpitations of her pussy.  
 
  
 

@@ -420,7 +420,7 @@
 
  "Let me introduce Svetlana. Lana for short. She lives with Emily and me." 
 
- Lana extended her hand to shake. Kim acted like Lana's handshake was a hot potato. Lana's eyes twinkled as she curled up in Dave's lap like a kitten. She was silent as we talked, but those big eyes took in everything. I wondered how much English she understood. Kim hadn't looked at her; I couldn't take my eyes off her. The intensity of her expression drew me as much as her delightful nakedness. Dave'd said she was eighteen, only four years younger than Kim and seven years younger than the rest of us. Report_Story #2 
+ Lana extended her hand to shake. Kim acted like Lana's handshake was a hot potato. Lana's eyes twinkled as she curled up in Dave's lap like a kitten. She was silent as we talked, but those big eyes took in everything. I wondered how much English she understood. Kim hadn't looked at her; I couldn't take my eyes off her. The intensity of her expression drew me as much as her delightful nakedness. Dave'd said she was eighteen, only four years younger than Kim and seven years younger than the rest of us.  
 
  
 
@@ -744,7 +744,7 @@
 
  I expected the hickey to be an embarrassment to her. I expected to find her in a high top or to have covered it with makeup. I was wrong. She was in the top and wraparound Dave had bought for her. She displayed the hickey proudly as if she'd won a medal. Huge and multicolored, it could be seen a mile away. 
 
- Conversation was animated. We were going into Kingston to shop. The women hurriedly did the dishes, finishing as the cab honked its horn. They grabbed their purses and started toward the door. Report_Story #3 
+ Conversation was animated. We were going into Kingston to shop. The women hurriedly did the dishes, finishing as the cab honked its horn. They grabbed their purses and started toward the door.  
 
  
 

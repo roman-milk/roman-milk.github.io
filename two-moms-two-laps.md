@@ -246,7 +246,7 @@
 
  "In your mouth," I gasped, holding back as long as possible. 
 
- "Greedy boy," she giggled, and then lowered her mouth over my pole, bobbing her head on my cock beautifully. Report_Story #2 
+ "Greedy boy," she giggled, and then lowered her mouth over my pole, bobbing her head on my cock beautifully.  
 
  
 
@@ -508,7 +508,7 @@
 
  "Jesus, Mom. That was incredible! Comparing what Aunt Marie did to that would be blasphemy. You are amazing." 
 
- She was playing with my new hard-on, stroking it, kissing it, sucking it for short moments. "How about Penny and your other conquests?" Report_Story #3 
+ She was playing with my new hard-on, stroking it, kissing it, sucking it for short moments. "How about Penny and your other conquests?"  
 
  
 
@@ -730,7 +730,7 @@
 
  "Underneath you, all the way inside you, holding your ass cheeks open wide for me." 
 
- She sighed, her hand caressing my hardness. "You know, don't you, that of all the ways this thing we're doing could possibly work out, that's about the least likely scenario possible." Report_Story #4 
+ She sighed, her hand caressing my hardness. "You know, don't you, that of all the ways this thing we're doing could possibly work out, that's about the least likely scenario possible."  
 
  
 
@@ -978,7 +978,7 @@
 
  I saw a slow smile appear on her face. I almost lost it when I saw her open her mouth in an 'O' and push her cheek out with her tongue a couple of times. "After," she said softly. 
 
- "You bet your sweet ass," he laughed. He turned her around, letting me see her pants were already half-way down her butt, the top of her crack temptingly exposed. He slapped her on that big bubbly butt. "Go bathe. Clean everything." Report_Story #5 
+ "You bet your sweet ass," he laughed. He turned her around, letting me see her pants were already half-way down her butt, the top of her crack temptingly exposed. He slapped her on that big bubbly butt. "Go bathe. Clean everything."  
 
  
 
@@ -1164,7 +1164,7 @@
 
  Mom pouted. "I'm not teasing. Not completely," she said softly. 
 
- He lifted her off his lap. "You're done teasing me," he growled, standing up and jerking his pants down roughly. I could see why Mom said Dad and I were so much alike. Report_Story #6 
+ He lifted her off his lap. "You're done teasing me," he growled, standing up and jerking his pants down roughly. I could see why Mom said Dad and I were so much alike.  
 
  
 
@@ -1262,7 +1262,7 @@
 
  ======================= 
 
- Hope you enjoyed this chapter in the Lap Moms saga. Chapter 3 should be available soon. Thanks for the reads and votes. Report_Story #1 
+ Hope you enjoyed this chapter in the Lap Moms saga. Chapter 3 should be available soon. Thanks for the reads and votes.  
 
  
 
@@ -1546,7 +1546,7 @@
 
  "This is so weird! For the last couple of months, sometimes I felt like all you wanted to do was find somewhere private and get me to suck your dick. Now we're here, alone, privacy ensured, your dick is hard and waiting, and I've told you I like sucking, a lot. Yet all we do is talk." 
 
- "Penny, I'm dying to feel your lips around my shaft. But even more, I want to open up to you, completely. I want to know that what we're doing is good for both of us." Report_Story #2 
+ "Penny, I'm dying to feel your lips around my shaft. But even more, I want to open up to you, completely. I want to know that what we're doing is good for both of us."  
 
  
 
@@ -1868,7 +1868,7 @@
 
  "You're beautiful, Penny. Fucking incredible." 
 
- She used her fingers to clean her face, sucking them clean. She scooped up some of my cream and held her fingers out to the camera. "If you were here Alice, I'd let you clean them for me." She sucked them herself. "I'd let you lick my whole face clean." Report_Story #3 
+ She used her fingers to clean her face, sucking them clean. She scooped up some of my cream and held her fingers out to the camera. "If you were here Alice, I'd let you clean them for me." She sucked them herself. "I'd let you lick my whole face clean."  
 
  
 
@@ -2170,7 +2170,7 @@
 
  "Damn, son, she's a keeper," Dad said. 
 
- I put my arm around Mom, giving her a squeeze, watching the video with them. Damn she looked good, my cock filling her young mouth. Mom and Dad didn't comment much on the first viewing, watching Penny give her best, and obviously enjoying what she was doing. I heard both my parent's breathing speed up. Mom's nipples were hard. I could only imagine how hard Dad was. Report_Story #4 
+ I put my arm around Mom, giving her a squeeze, watching the video with them. Damn she looked good, my cock filling her young mouth. Mom and Dad didn't comment much on the first viewing, watching Penny give her best, and obviously enjoying what she was doing. I heard both my parent's breathing speed up. Mom's nipples were hard. I could only imagine how hard Dad was.  
 
  
 
@@ -2464,7 +2464,7 @@
 
  "Good thing Mom wasn't here," I said softly. "Just me and my naughty girlfriend, playing." 
 
- She gave me a squeeze. "I'm sorry, Jeremy. That was wrong of me. Can we pretend that didn't happen? I'll never be able to explain it to your father." Report_Story #5 
+ She gave me a squeeze. "I'm sorry, Jeremy. That was wrong of me. Can we pretend that didn't happen? I'll never be able to explain it to your father."  
 
  
 
@@ -2746,7 +2746,7 @@
 
  I let her have her way, slowly driving me crazy. I focused on her mouth, sliding up and down my shaft, leaving a slick sheen behind as she pulled upward. She dragged her teeth against my skin, giving me shivers, scraped with her fingernails, teasing with her tongue. 
 
- "I'd beg you to come for me, Harold. Come in my mouth. You could have been my first. Should have been my first. Filled my mouth with your delicious cream. I wanted that so badly. I still do." She sucked me hard, popping her head off noisily. "Come for me, Harold? Let me taste you?" Report_Story #6 
+ "I'd beg you to come for me, Harold. Come in my mouth. You could have been my first. Should have been my first. Filled my mouth with your delicious cream. I wanted that so badly. I still do." She sucked me hard, popping her head off noisily. "Come for me, Harold? Let me taste you?"  
 
  
 
@@ -2816,7 +2816,7 @@
 
  =============================== 
 
- Thanks for reading, and hope you enjoyed the ongoing saga of the Lap Moms. Report_Story #1 
+ Thanks for reading, and hope you enjoyed the ongoing saga of the Lap Moms.  
 
  
 
@@ -3116,7 +3116,7 @@
 
  She was having fun, showing off, licking playfully, kissing, sucking noisily. Colleen giggled. "She looks like she's having a good time." 
 
- Mom agreed. "She's a natural. I wonder who she gets that from?" Report_Story #2 
+ Mom agreed. "She's a natural. I wonder who she gets that from?"  
 
  
 
@@ -3412,7 +3412,7 @@
 
  I hugged her. "I'm sorry." 
 
- "Sorry? It was wonderful. So...so amazing. I thought I'd have to just suffer through it, try not to let it show, but then it started to feel good. Incredible. I was full, completely, all the way to the back, each nudge at the end like a jolt. Every nerve in my body going off each time you touched bottom. Watching you lose control over my pussy, hammering me, glowing above me, God!" Report_Story #3 
+ "Sorry? It was wonderful. So...so amazing. I thought I'd have to just suffer through it, try not to let it show, but then it started to feel good. Incredible. I was full, completely, all the way to the back, each nudge at the end like a jolt. Every nerve in my body going off each time you touched bottom. Watching you lose control over my pussy, hammering me, glowing above me, God!"  
 
  
 
@@ -3750,7 +3750,7 @@
 
  "Is it good?" he asked. 
 
- She nodded. "Unbelievable. And I mean that. Inconceivable." She leaned against him. "You remember our first time?" Report_Story #4 
+ She nodded. "Unbelievable. And I mean that. Inconceivable." She leaned against him. "You remember our first time?"  
 
  
 
@@ -4074,7 +4074,7 @@
 
  I gave Mom a shake. "Mom. Wake up. Now Mom, wake up." 
 
- Her eyes fluttered open. "Jeremy," she said smiling. Report_Story #5 
+ Her eyes fluttered open. "Jeremy," she said smiling.  
 
  
 
@@ -4242,7 +4242,7 @@
 
  ==================================== 
 
- Hope you enjoyed the latest chapter in the Lap Moms saga. I enjoyed writing this one. Report_Story #1 
+ Hope you enjoyed the latest chapter in the Lap Moms saga. I enjoyed writing this one.  
 
  
 
@@ -4606,7 +4606,7 @@
 
  She brought me to the edge several times before finally letting me finish. She pulled her mouth off and stroked me hard, letting me come on her face. She was very pretty like that. 
 
- "You didn't even let him come in your mouth," Penny pouted. Report_Story #2 
+ "You didn't even let him come in your mouth," Penny pouted.  
 
  
 
@@ -4954,7 +4954,7 @@
 
  We all watched the interplay while Penny claimed me, and Colleen teasingly offered her help as well as Mom's. 
 
- Dad was laughing. "Damn Jeremy. One good kiss, and you completely won her over. I'm proud of you. Must have been one hell of a kiss." Report_Story #3 
+ Dad was laughing. "Damn Jeremy. One good kiss, and you completely won her over. I'm proud of you. Must have been one hell of a kiss."  
 
  
 
@@ -5220,7 +5220,7 @@
 
  "Cue it up, boy," he said. 
 
- We sat through the scene where we talked about what had just happened. I caught some grief from everyone, first for her telling me how rough I'd been. Report_Story #4 
+ We sat through the scene where we talked about what had just happened. I caught some grief from everyone, first for her telling me how rough I'd been.  
 
  
 
@@ -5582,7 +5582,7 @@
 
  "Kiss her, Jeremy," Mom said. 
 
- The moment my lips touched Penny's, she came for me. A beautiful, extended, shaking orgasm, clutching at my cock, while my tongue invaded her naughty mouth. Report_Story #5 
+ The moment my lips touched Penny's, she came for me. A beautiful, extended, shaking orgasm, clutching at my cock, while my tongue invaded her naughty mouth.  
 
  
 
@@ -5828,7 +5828,7 @@
 
  ================== 
 
- Things are getting complicated. Time to get the Aunt back involved. Hope you enjoyed this little tale. Report_Story #1 
+ Things are getting complicated. Time to get the Aunt back involved. Hope you enjoyed this little tale.  
 
  
 
@@ -6160,7 +6160,7 @@
 
  "No shit!" I told him. 
 
- He nodded. "I couldn't believe it. She said, 'Colin, I still can't believe what you did to me in that back seat. My shirt was up around my neck and my panties were off. I never thought you'd do that to me.' Man, I felt bad about it. I told her I couldn't help it. She asked why." Report_Story #2 
+ He nodded. "I couldn't believe it. She said, 'Colin, I still can't believe what you did to me in that back seat. My shirt was up around my neck and my panties were off. I never thought you'd do that to me.' Man, I felt bad about it. I told her I couldn't help it. She asked why."  
 
  
 
@@ -6482,7 +6482,7 @@
 
  "You didn't mean it?" she whispered. 
 
- "Who's been trying to bring you two together? I want you here with us. If that means I have to take a little heat for a while, that's fine. I'd do anything to heal the breach between you two. I didn't mean to upset you, but it had to seem real. Forgive me?" Report_Story #3 
+ "Who's been trying to bring you two together? I want you here with us. If that means I have to take a little heat for a while, that's fine. I'd do anything to heal the breach between you two. I didn't mean to upset you, but it had to seem real. Forgive me?"  
 
  
 
@@ -6784,7 +6784,7 @@
 
  "Don't go Marie," Mom pleaded. 
 
- Aunt Marie glared at us. "I don't know what kind of cruel game you're playing. I opened my heart to you both. Told you everything, begged forgiveness. Then you pull this shit. He keeps me busy, while you seduce my son? When were you going to tell me about Penny, Alice? His first time, and I never heard a word from you?" Report_Story #4 
+ Aunt Marie glared at us. "I don't know what kind of cruel game you're playing. I opened my heart to you both. Told you everything, begged forgiveness. Then you pull this shit. He keeps me busy, while you seduce my son? When were you going to tell me about Penny, Alice? His first time, and I never heard a word from you?"  
 
  
 
@@ -7044,7 +7044,7 @@
 
  Things were messed up, but at least it was all out in the open now. No more hiding. Even the business with Aunt Marie and Mom I felt was better now. At least they'd talked long and hard about their issues. I may have manipulated Mom, but that was out there as well. 
 
- I knew I should have felt better getting all that secret shit off my chest, but I didn't. I felt like crap. I'd always hated disappointing my father, no more so than I did now. On top of that, Mom was off-limits. Even Aunt Marie. I wasn't sure if I was going to let that last one stand. If Dad took Mom away for good, there was nothing holding me back from being with Aunt Marie. I wasn't going to rush that, but the idea percolated in the back of my mind. Report_Story #5 
+ I knew I should have felt better getting all that secret shit off my chest, but I didn't. I felt like crap. I'd always hated disappointing my father, no more so than I did now. On top of that, Mom was off-limits. Even Aunt Marie. I wasn't sure if I was going to let that last one stand. If Dad took Mom away for good, there was nothing holding me back from being with Aunt Marie. I wasn't going to rush that, but the idea percolated in the back of my mind.  
 
  
 
@@ -7074,7 +7074,7 @@
 
  =================== 
 
- Thanks for reading, and being patient. The next chapter should be up in a couple of days! Report_Story #1 
+ Thanks for reading, and being patient. The next chapter should be up in a couple of days!  
 
  
 
@@ -7358,7 +7358,7 @@
 
  Mom glared at me. "I take it you didn't do anything wrong. None of this is your fault." 
 
- "What do you want from me, Mom? Was I supposed to sit by myself at another table, and wait to see if she'd ever remember who she was supposed to be with? Should I have bought the asshole lunch, so he wouldn't share hers? I sat in the only place left. I talked to the only person who didn't have a date by then. Maybe we flirted a little. Why not? It was pretty clear by then that I didn't matter a damn to Penny." Report_Story #2 
+ "What do you want from me, Mom? Was I supposed to sit by myself at another table, and wait to see if she'd ever remember who she was supposed to be with? Should I have bought the asshole lunch, so he wouldn't share hers? I sat in the only place left. I talked to the only person who didn't have a date by then. Maybe we flirted a little. Why not? It was pretty clear by then that I didn't matter a damn to Penny."  
 
  
 
@@ -7596,7 +7596,7 @@
 
  It only took a few seconds before I was lying under the covers with her, still fully dressed, and holding her. "I'm sorry," I whispered. 
 
- "Me too. I shouldn't have forgotten about you like that. I didn't even realize it was happening. I won't do it again." Report_Story #3 
+ "Me too. I shouldn't have forgotten about you like that. I didn't even realize it was happening. I won't do it again."  
 
  
 
@@ -7960,7 +7960,7 @@
 
  We cuddled in the bed, delightfully naked and sated. 
 
- "Want to tell me what's going on with your parents? It was like a freezer down there this morning, but they seemed chummy enough when they crashed our little party." Report_Story #4 
+ "Want to tell me what's going on with your parents? It was like a freezer down there this morning, but they seemed chummy enough when they crashed our little party."  
 
  
 
@@ -8208,7 +8208,7 @@
 
  She glanced over at the clock. "I think Mom is probably giving Dad his early birthday present right around now." 
 
- "You know, I'll probably never be able to show my face in your house again. Your old man doesn't have any guns, does he?" Report_Story #5 
+ "You know, I'll probably never be able to show my face in your house again. Your old man doesn't have any guns, does he?"  
 
  
 
@@ -8572,7 +8572,7 @@
 
  ========================= 
 
- Nearly the end - looks like only two more chapters until the conclusion. Major changes coming in the next chapter which is in final edit. Thanks for the patience. Report_Story #1 
+ Nearly the end - looks like only two more chapters until the conclusion. Major changes coming in the next chapter which is in final edit. Thanks for the patience.  
 
  
 
@@ -9060,7 +9060,7 @@
 
  An hour into the movie he had left us behind. I knew he was going too fast, and it took me a few minutes to get enough of his attention to slow him down. I waved my popcorn bucket, and nodded to the back of the theater. He took the hint. 
 
- "Too much, too soon," I warned him. Report_Story #2 
+ "Too much, too soon," I warned him.  
 
  
 
@@ -9450,7 +9450,7 @@
 
  "And you!" Mom yelled, waving her finger in his face. "Starting a fight with your son? What were you thinking?" 
 
- "I didn't start it," he said. "He should have left things alone. This is my house. I'm still the father and husband." Report_Story #3 
+ "I didn't start it," he said. "He should have left things alone. This is my house. I'm still the father and husband."  
 
  
 
@@ -9838,7 +9838,7 @@
 
  "Come for me, Jeremy," she pleaded, then took my entire length on her own. 
 
- I clenched her hair in my fist, pulling her up, then back down, longer strokes, out to the lips, then all the way back down. So fucking incredible. I was groaning, no longer able to hold back. I shoved my cock all the way in, holding it there for a few seconds before coming hard. Rope after rope I ejaculated down her willing throat, until only a few tremors were left in my shaft. Report_Story #4 
+ I clenched her hair in my fist, pulling her up, then back down, longer strokes, out to the lips, then all the way back down. So fucking incredible. I was groaning, no longer able to hold back. I shoved my cock all the way in, holding it there for a few seconds before coming hard. Rope after rope I ejaculated down her willing throat, until only a few tremors were left in my shaft.  
 
  
 
@@ -10122,7 +10122,7 @@
 
  I spread my legs, so she could settle down between them, and my hand was inside her shirt, playing with her bare breast. "I know. Didn't mean to go there, but it was getting ugly. He tried to do the same to me, and the shot to the knee had me believing he was really out to hurt me. I kind of lost it." 
 
- Aunt Marie's hand was rubbing my crotch, while she kissed my neck. "No kidding. You two had us scared to death. I never would have believed it possible. You and your father." Report_Story #5 
+ Aunt Marie's hand was rubbing my crotch, while she kissed my neck. "No kidding. You two had us scared to death. I never would have believed it possible. You and your father."  
 
  
 
@@ -10274,7 +10274,7 @@
 
  ================== 
 
- Thanks for reading, and sorry for taking so long. Hope you enjoyed this chapter. I promise, the next one is more loving and less fighting. Final resolutions and reconciliations coming Report_Story #1 
+ Thanks for reading, and sorry for taking so long. Hope you enjoyed this chapter. I promise, the next one is more loving and less fighting. Final resolutions and reconciliations coming  
 
  
 
@@ -10582,7 +10582,7 @@
 
  "And your mother? Penny?" 
 
- "Does it have to include everybody? Do I have to choose? I've always loved you and Mom, does that have to change?" Report_Story #2 
+ "Does it have to include everybody? Do I have to choose? I've always loved you and Mom, does that have to change?"  
 
  
 
@@ -10978,7 +10978,7 @@
 
  "Arms up, Aunt Marie," I said, while tugging her shirt upward. 
 
- She lifted her hands but quickly brought her elbows in. "What are you doing?" Report_Story #3 
+ She lifted her hands but quickly brought her elbows in. "What are you doing?"  
 
  
 
@@ -11366,7 +11366,7 @@
 
  I drew her down the bed, and rolled her on her belly, getting her to giggle. "What is with you Davis men, and my poor bottom?" 
 
- I was lying between her legs, massaging her cheeks, watching the material move. "Believe me, Mom. It would be any man, and probably half the women, given the chance." Report_Story #4 
+ I was lying between her legs, massaging her cheeks, watching the material move. "Believe me, Mom. It would be any man, and probably half the women, given the chance."  
 
  
 
@@ -11702,7 +11702,7 @@
 
  "Not in the same ballpark. Not even half as good as Penny, and she's nowhere near Mom yet." 
 
- Mom must have been enjoying the whole thing. She decided to show off. She started with the old standby, Pirate ship, leading into the Swirly-go-round. I was rock hard for her in moments. It was too much, too fast. I knew what she was up to. "No, Mom! Not now." Report_Story #5 
+ Mom must have been enjoying the whole thing. She decided to show off. She started with the old standby, Pirate ship, leading into the Swirly-go-round. I was rock hard for her in moments. It was too much, too fast. I knew what she was up to. "No, Mom! Not now."  
 
  
 
@@ -12014,7 +12014,7 @@
 
  Hope you enjoyed this one, things are getting hotter... 
 
- As always, comments and votes are welcome and appreciated. Report_Story #1 
+ As always, comments and votes are welcome and appreciated.  
 
  
 
@@ -12206,7 +12206,7 @@
 
  Dad looked tired. It had been a long day. We'd been up since 4:00 a.m. "That seat behind mine is barely wide enough to fit one person, never mind two." 
 
- Aunt Marie wasn't giving up. "I guess the boys will just have to suffer through two hours of having their Moms sit on their laps. It'll save you wasting a full day coming back here in a couple of weeks, not to mention a $100 worth of gas." She turned to me and Colin. "Y'all reckon your legs can survive two old ladies sitting on 'em for a couple of hours?" Report_Story #2 
+ Aunt Marie wasn't giving up. "I guess the boys will just have to suffer through two hours of having their Moms sit on their laps. It'll save you wasting a full day coming back here in a couple of weeks, not to mention a $100 worth of gas." She turned to me and Colin. "Y'all reckon your legs can survive two old ladies sitting on 'em for a couple of hours?"  
 
  
 
@@ -12416,7 +12416,7 @@
 
  "What's too carried away?" I asked nervously. I wondered if she referred to where I'd put my hand. 
 
- Report_Story #3 
+  
 
  
 
@@ -12648,7 +12648,7 @@
 
  I opened the door, but before I would let Aunt Marie off my lap, I pulled her head down to mine. "Thank you, that was incredible." 
 
- She smiled. "Don't get too excited, cowboy. That's not usually on the menu. Extenuating circumstances." She climbed off my lap, slithering out the door. I felt myself responding already to the sight of her ass moving away and gave her one last pat. "Need anything from inside?" she asked. Report_Story #4 
+ She smiled. "Don't get too excited, cowboy. That's not usually on the menu. Extenuating circumstances." She climbed off my lap, slithering out the door. I felt myself responding already to the sight of her ass moving away and gave her one last pat. "Need anything from inside?" she asked.  
 
  
 
@@ -12880,7 +12880,7 @@
 
  Mom's hand was massaging her pussy, and I could see how wet she was. Amazing. 
 
- Mom sat up, her eyes open again, and pulled her hands back into her lap, clenching them together. "You're father's a good man. The best I've ever known. He was so patient with me." She leaned back. "It took me a long time before I really enjoyed sex. The fucking part, at least. I loved making your father happy, and would go down on him in a second. Anytime he wanted. I still do, to this day. He returned the favor, and often. But the sex wasn't good for me. I couldn't enjoy it. God only knows why." Report_Story #5 
+ Mom sat up, her eyes open again, and pulled her hands back into her lap, clenching them together. "You're father's a good man. The best I've ever known. He was so patient with me." She leaned back. "It took me a long time before I really enjoyed sex. The fucking part, at least. I loved making your father happy, and would go down on him in a second. Anytime he wanted. I still do, to this day. He returned the favor, and often. But the sex wasn't good for me. I couldn't enjoy it. God only knows why."  
 
  
 
@@ -13140,7 +13140,7 @@
 
  I moved the head of my cock between the lips of her pussy, and pushed. I felt her open up marginally, then she was shifting her hips, stopping me. I had her positioned perfectly in my lap, her legs open wide, her opening just the right distance from the end of my cock. The top of my cock lay across her molten slit, the head brushing her clit. When I drew back, I could feel the moistness against my skin. 
 
- Mom moaned softly, then turned her head and looked into my eyes. "This is a dangerous game you're playing." Report_Story #6 
+ Mom moaned softly, then turned her head and looked into my eyes. "This is a dangerous game you're playing."  
 
  
 
@@ -13420,7 +13420,7 @@
 
  She turned back and reached between my legs, coming up with the shopping bags. She whispered to me, "Your cum IS sweet. Sister slut was right." 
 
- "What are we waiting for?" Dad announced, stretching. "Let's get this thing unloaded." He opened the back door. "Wake your mother up, Colin. We're not going to leave her outside all night." Report_Story #7 
+ "What are we waiting for?" Dad announced, stretching. "Let's get this thing unloaded." He opened the back door. "Wake your mother up, Colin. We're not going to leave her outside all night."  
 
  
 
@@ -13438,7 +13438,7 @@
 
  * * * * * * 
 
- I hope you enjoyed the story. Not quite the same tone as its progenitors, but it was fun to write. If you found it fun to read, please remember to vote! Report_Story #1 
+ I hope you enjoyed the story. Not quite the same tone as its progenitors, but it was fun to write. If you found it fun to read, please remember to vote!  
 
  
 
@@ -13762,7 +13762,7 @@
 
  There was a lot of talk about college, since it was just around the corner, and four of us were headed off for the first time. The food was perfect, and Aunt Marie was blushing from all the compliments. Someone, or someones was playing footsie with me under the table. Damn, why couldn't life always be like that? 
 
- The guys had cleanup duty, but it was only the dinner dishes. With four girls in the kitchen, all the cookware had been taken care of. Dad only helped clear, then we chased him off, Colin and I finishing up. Report_Story #2 
+ The guys had cleanup duty, but it was only the dinner dishes. With four girls in the kitchen, all the cookware had been taken care of. Dad only helped clear, then we chased him off, Colin and I finishing up.  
 
  
 
@@ -14072,7 +14072,7 @@
 
  I pulled out of Aunt Marie, rolled her on her back, and climbed between her legs. I was thrusting away inside of her, before the echo of Colin's footsteps in the hall disappeared. 
 
- Aunt Marie sighed. "That's not how I expected the conversation to come about." She swatted my arm. "Very naughty of you, Jeremy. Sticking your big thingy inside me, while I was talking to my boy." Report_Story #3 
+ Aunt Marie sighed. "That's not how I expected the conversation to come about." She swatted my arm. "Very naughty of you, Jeremy. Sticking your big thingy inside me, while I was talking to my boy."  
 
  
 
@@ -14392,7 +14392,7 @@
 
  I gasped and felt the cum launch from deep within me. Mom's lips captured it, sucking noisily, mixing air with my load. Her finger inside me was stroking firmly and slowly, coaxing out more. 
 
- After a few more shots, she took mercy on me, extracting her finger. I gasped, slowly settling my hips down to the bed, my heart pounding madly. Mom opened her mouth, and my cum slid out from between her lips, cascading over my cock head, pouring down my shaft. Report_Story #4 
+ After a few more shots, she took mercy on me, extracting her finger. I gasped, slowly settling my hips down to the bed, my heart pounding madly. Mom opened her mouth, and my cum slid out from between her lips, cascading over my cock head, pouring down my shaft.  
 
  
 
@@ -14684,7 +14684,7 @@
 
  "Please, Marie?" I asked. 
 
- She turned on the bed, and a few moments later, I felt her mouth on me. "She's doing it, Mom." Report_Story #5 
+ She turned on the bed, and a few moments later, I felt her mouth on me. "She's doing it, Mom."  
 
  
 

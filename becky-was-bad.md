@@ -98,7 +98,7 @@
 
  As we turned to leave Becky cried out "Mikey, don't leave me here." 
 
- I turned and looked at her, with a cock in her ass, a cock in her pussy and one about to be stuffed into her mouth and said, "Sorry. You are the one who decided to be a slut and whore around on me. These eight guys can give you all you want or take all you have to give. Either way I don't care" and I walked out the door. As I escorted Mary to my car I wondered what was going to happen at our house when Becky finally came home. Oh well, I'd worry about that tomorrow. Report_Story #1 
+ I turned and looked at her, with a cock in her ass, a cock in her pussy and one about to be stuffed into her mouth and said, "Sorry. You are the one who decided to be a slut and whore around on me. These eight guys can give you all you want or take all you have to give. Either way I don't care" and I walked out the door. As I escorted Mary to my car I wondered what was going to happen at our house when Becky finally came home. Oh well, I'd worry about that tomorrow.  
 
  
 
@@ -212,7 +212,7 @@
 
  She smiled back at me and said, "Want a blow job?" 
 
- I smiled at her and said, "Race you to the bedroom." Report_Story #1 
+ I smiled at her and said, "Race you to the bedroom."  
 
  
 

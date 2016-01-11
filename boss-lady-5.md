@@ -120,7 +120,7 @@
 
  Mary held him back for some time eventually letting him orgasm. 
 
- "Your good, girl. I give you that. You're a damn professional. I'm going to take you off these streets and set you up in a place up town. You will work for me now. OK?" He told her fiercely. Report_Story #2 
+ "Your good, girl. I give you that. You're a damn professional. I'm going to take you off these streets and set you up in a place up town. You will work for me now. OK?" He told her fiercely.  
 
  
 

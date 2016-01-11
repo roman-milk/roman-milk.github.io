@@ -204,7 +204,7 @@
 
  I tried, but I just couldn't get a damned thing done in my workshop and I finally gave up trying. No matter what Lacey said or how she tried to sugar coat the pill, the bottom line was that an eighteen year old black kid had turned my wife into his slut. The knowledge that he could do things for her that I couldn't was a hell of a shot to my ego. 
 
- As much as I loved Lacey I couldn't live with her knowing that I was second, or maybe even third best as far as her sex life was concerned. She said that the other black kid, Rick, did nothing for her, but she was still fucking him. Even if I believed her when she said that she loved me and wanted to stay married to me I knew that every time we made love she would be thinking back to the time when she'd had "a real cock" in her. Report_Story #2 
+ As much as I loved Lacey I couldn't live with her knowing that I was second, or maybe even third best as far as her sex life was concerned. She said that the other black kid, Rick, did nothing for her, but she was still fucking him. Even if I believed her when she said that she loved me and wanted to stay married to me I knew that every time we made love she would be thinking back to the time when she'd had "a real cock" in her.  
 
  
 
@@ -460,7 +460,7 @@
 
  Darren stood off to the side, watched and stroked himself until he was semi- hard and then he got on the bed and dropped his cock across Lacey's face. She opened her mouth and started sucking him and as soon as Rick had cum and gotten off Lacey Darren moved and climbed between her legs. He lifted her legs up onto his shoulders and then sank his cock into Lacey with one long stroke and she screamed out, "Oh sweet fucking God yes." He had not been in her for one full minute when she had another one of those screaming orgasms. 
 
- "Jesus Rick, she sure is one noisy fucking whore. Stuff your cock in her mouth so we don't have to listen to this shit." Report_Story #3 
+ "Jesus Rick, she sure is one noisy fucking whore. Stuff your cock in her mouth so we don't have to listen to this shit."  
 
  
 

@@ -226,7 +226,7 @@
 
  She left us 8 weeks later. I was pleasantly surprised to receive a wedding invitation. She got married in a beautiful ceremony that I attended. When I kissed the bride, I had a hard time keeping it together, and felt the tears well up in my eyes. I was touched to see hers glisten in response. I didn't stay around for the reception. 
 
- I wonder if things might have been different. What if I'd taken her home that night? What if I'd talked to her about it? What if I'd grabbed her ass when she walked by, or pinned her in a corner and kissed her? Report_Story #2 
+ I wonder if things might have been different. What if I'd taken her home that night? What if I'd talked to her about it? What if I'd grabbed her ass when she walked by, or pinned her in a corner and kissed her?  
 
  
 

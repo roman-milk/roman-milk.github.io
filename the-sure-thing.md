@@ -50,7 +50,7 @@
 
  Betty did not stay around and snuggle or cuddle the way we do when we make love, but got up and left immediately. Todd came over to the closet when she was gone and gave me his big smile, "Like you said the other night, I sure do love a sure thing. I want lunch at Benny's." 
 
- "I don't know about that" I replied, "I'm not so sure that I came out a loser on this deal. Oh, by the way, you have a bit of a mess to clean up in your closet." Report_Story #1 
+ "I don't know about that" I replied, "I'm not so sure that I came out a loser on this deal. Oh, by the way, you have a bit of a mess to clean up in your closet."  
 
  
 

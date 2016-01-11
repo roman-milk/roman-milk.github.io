@@ -90,7 +90,7 @@
 
  Becky interrupted me, "You're willing to share me?" 
 
- "What choice do I have. I already told you that I love you too much to kick your ass out and you've told me you're going to keep fucking him and his friends so what's my choice here? All I'm doing is accepting the inevitable. But like I said, I want something in return. I want you to let your hair grow back out again and I want you to lose some weight - to try and at least get down to pleasingly plump." Report_Story #2 
+ "What choice do I have. I already told you that I love you too much to kick your ass out and you've told me you're going to keep fucking him and his friends so what's my choice here? All I'm doing is accepting the inevitable. But like I said, I want something in return. I want you to let your hair grow back out again and I want you to lose some weight - to try and at least get down to pleasingly plump."  
 
  
 

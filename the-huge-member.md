@@ -238,7 +238,7 @@
 
  "The weather out there is terrible." 
 
- My loving wife of ten years replied, "I know. Can you believe that my stupid husband is out there fishing in that?" Report_Story #2 
+ My loving wife of ten years replied, "I know. Can you believe that my stupid husband is out there fishing in that?"  
 
  
 
@@ -504,7 +504,7 @@
 
  "We have to try Wally. Please. We have to try." 
 
- "I don't know Julie; it is something that I will have to think on." Report_Story #3 
+ "I don't know Julie; it is something that I will have to think on."  
 
  
 

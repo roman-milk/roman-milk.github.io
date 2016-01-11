@@ -324,7 +324,7 @@
 
  "That sounds nice. Let's go do it." 
 
- They have a nice dinner and move to the dance area. They dance a few fast ones and some slow ones. He holds her close and pulls her against his cock. She expected this and doesn't make an issue of it. The dance for a couple of hours and he brings he home. He walks her to her door. She turns and puts her arms around his neck. They kiss gently and he pulls her against him. His hands move down and he pulls her dress up and holds her ass cheeks. She expected this too. She leans back and puts her hands on both sides of his face. Report_Story #2 
+ They have a nice dinner and move to the dance area. They dance a few fast ones and some slow ones. He holds her close and pulls her against his cock. She expected this and doesn't make an issue of it. The dance for a couple of hours and he brings he home. He walks her to her door. She turns and puts her arms around his neck. They kiss gently and he pulls her against him. His hands move down and he pulls her dress up and holds her ass cheeks. She expected this too. She leans back and puts her hands on both sides of his face.  
 
  
 
@@ -742,7 +742,7 @@
 
  "It really is. We get really tight after we are together a while. I felt like I was letting them down when I had to leave. I wanted to stay, but that was impossible. I really miss them." 
 
- He sits a while, lost in the bad memories. Report_Story #3 
+ He sits a while, lost in the bad memories.  
 
  
 
@@ -1110,7 +1110,7 @@
 
  "Fuck yes. Cumming hard. Yes. Yes." 
 
- He makes her cum three more times. She is barely able to stand. He shuts off the water and he dries her off. He holds his hands on her ass cheeks and pusher her toward the bedroom. She sits on the bed and leans toward him. She holds her hands behind her back and kisses the head of his cock. Report_Story #4 
+ He makes her cum three more times. She is barely able to stand. He shuts off the water and he dries her off. He holds his hands on her ass cheeks and pusher her toward the bedroom. She sits on the bed and leans toward him. She holds her hands behind her back and kisses the head of his cock.  
 
  
 

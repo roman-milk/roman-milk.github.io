@@ -166,7 +166,7 @@
 
  I laughed. "Never is a really long time. In this case, I'm guessing less than 60 seconds, unless you're really bent on destroying any chance of my bailing you out of your predicament." 
 
- She took a deep breath and tried reason. "Steve, I just came in here to make sure you were ok. I'm married. You're married. My kids are only a couple of rooms away." Report_Story #2 
+ She took a deep breath and tried reason. "Steve, I just came in here to make sure you were ok. I'm married. You're married. My kids are only a couple of rooms away."  
 
  
 
@@ -330,7 +330,7 @@
 
  "It was a hard time for me. I was alone. No friends. I felt like a beggar, living in a house for free, being given a job, and not being able to contribute. I knew nothing about house-cleaning, or cooking, which is my own fault. I'd come home after a long day, tired, my back hurting, my feet hurting, and Chris would be home half the time, watching TV and drinking beer. He'd want me to make dinner, then cleanup, before going upstairs so he could fuck me. I just wanted to crash, and I'd have to let him climb on top of me for 20 minutes. I'd fake an orgasm just to get him to finish. I guess I was resentful. I started drinking then, even though my father is an alcoholic. I couldn't get into that bed each night without a couple of glasses of grape fortitude. You're right. At the end I just wanted away from there, and when my parents said that position was open at their friend's company, where I could earn some real money, and get back some of my self-respect, I couldn't imagine not taking it." She sniffled some, as she confessed her past to me. I was still lodged deep inside her, and enjoyed the fit, even when we were pretty stationary. 
 
- I rolled her onto her back, and took up position between her legs. Her calves and thighs were smooth and sexy, not twigs, but not too large. She was quite flexible and easily let me pull her legs way back, almost to her shoulders as I tilted her reddened pussy up, and slid balls deep back into her. I got on my knees and within a few seconds I was pounding her pretty well. Report_Story #3 
+ I rolled her onto her back, and took up position between her legs. Her calves and thighs were smooth and sexy, not twigs, but not too large. She was quite flexible and easily let me pull her legs way back, almost to her shoulders as I tilted her reddened pussy up, and slid balls deep back into her. I got on my knees and within a few seconds I was pounding her pretty well.  
 
  
 
@@ -484,7 +484,7 @@
 
  "Biggest Client?" I asked. 
 
- "I'll give you the details, when you fill me in on the whole 'record for one girl' thing." Sheri teased me. Report_Story #4 
+ "I'll give you the details, when you fill me in on the whole 'record for one girl' thing." Sheri teased me.  
 
  
 

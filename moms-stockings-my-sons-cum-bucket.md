@@ -344,7 +344,7 @@
 
  "No, I've said more than I meant to," I said, starting to walk away. 
 
- "Mom, you can't say something like that and then leave," he protested, standing up too. "You can say whatever you want to me. I am the man of the house." Report_Story #2 
+ "Mom, you can't say something like that and then leave," he protested, standing up too. "You can say whatever you want to me. I am the man of the house."  
 
  
 
@@ -774,7 +774,7 @@
 
  1 coupon for a pegging from your mother's strap-on (if you are into that short of thing... your Daddy was) 
 
- 1 coupon to have your Mother and the bitch Mrs. Young in a 69 Report_Story #3 
+ 1 coupon to have your Mother and the bitch Mrs. Young in a 69  
 
  
 

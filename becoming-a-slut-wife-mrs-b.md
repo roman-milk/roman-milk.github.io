@@ -146,7 +146,7 @@
 
  The other three crowded around me and Al reached out and took my left hand and put it on his cock. Matt decided to do the same with my right and I looked his way as he put my hand on his dick. I felt a tingle shoot through my body when I got a good look at his cock. It was long and thin - perfect for anal sex - and I could already imagine how good it would feel up my butt. 
 
- Tony was left out so he moved behind me, got on his knees and started poking his cock at my pussy. The angle was all wrong and he couldn't do much more than graze my pussy lips. I pulled my mouth off Billy, told Tony to lie down on the floor and when he did I sat down on his cock. Billy laughed and said, "All right Mrs. B., way to go, you rock!" and then he pushed his cock back in my mouth. I rode Tony, jacked off Al and Matt and sucked on Billy until he came and then we moved to the bed. Report_Story #2 
+ Tony was left out so he moved behind me, got on his knees and started poking his cock at my pussy. The angle was all wrong and he couldn't do much more than graze my pussy lips. I pulled my mouth off Billy, told Tony to lie down on the floor and when he did I sat down on his cock. Billy laughed and said, "All right Mrs. B., way to go, you rock!" and then he pushed his cock back in my mouth. I rode Tony, jacked off Al and Matt and sucked on Billy until he came and then we moved to the bed.  
 
  
 

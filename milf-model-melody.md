@@ -214,7 +214,7 @@
 
  "It's OK," she said. "Don't worry about it. Just unzip and sit in that chair." Melody pointed to a single-seat counterpart to her sofa. "We'll soon have you feeling better." 
 
- I unzipped my flies and reached into the aperture to ease out my tormented length. Report_Story #2 
+ I unzipped my flies and reached into the aperture to ease out my tormented length.  
 
  
 

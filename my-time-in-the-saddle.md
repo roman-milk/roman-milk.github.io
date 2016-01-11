@@ -108,7 +108,7 @@
 
  "As you desire, Master," I replied sincerely. "My body is yours - take me wherever you want. I am ready to ride." 
 
- "Explore the saddle with your hands first. Understand what it offers you before you mount it." Report_Story #2 
+ "Explore the saddle with your hands first. Understand what it offers you before you mount it."  
 
  
 

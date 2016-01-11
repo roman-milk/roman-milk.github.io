@@ -386,7 +386,7 @@
 
  "What, no uppity witty comment?" I asked. 
 
- "What do you want to keep this between you and me?" she asked. Report_Story #2 
+ "What do you want to keep this between you and me?" she asked.  
 
  
 
@@ -788,7 +788,7 @@
 
  Suddenly wanting to be on top, the position that made me come the best, I said, "On your back, son." I loved the constant reminders that this was incest...this was taboo....this was supposedly wrong. 
 
- I straddled his flag pole and buried myself on it. "Yessssssssss," I screamed, "your cock fits Mommy's cunt so perfectly." Report_Story #3 
+ I straddled his flag pole and buried myself on it. "Yessssssssss," I screamed, "your cock fits Mommy's cunt so perfectly."  
 
  
 
@@ -1224,7 +1224,7 @@
 
  I didn't hesitate, wanting to feel a cock in my wanton cunt. 
 
- "She really wants it," Eddie laughed, as he moved behind me. Report_Story #4 
+ "She really wants it," Eddie laughed, as he moved behind me.  
 
  
 
@@ -1658,7 +1658,7 @@
 
  "Oh, Carol was over-exaggerating," I said, "I was just talking with Zeke about the end of this pay period." 
 
- "Okay, well I just thought I'd check up on you before I was out of cell range," he said. Report_Story #5 
+ "Okay, well I just thought I'd check up on you before I was out of cell range," he said.  
 
  
 
@@ -2114,7 +2114,7 @@
 
  "Call them over," I said, ready to really get fucked. 
 
- "Guys," he called over, as he slid his cock back in my mouth. Report_Story #6 
+ "Guys," he called over, as he slid his cock back in my mouth.  
 
  
 
@@ -2594,7 +2594,7 @@
 
  And I did. "Yessssssss, I'm coming from your cock in my asssssssssss." 
 
- My orgasm hit hard again and seconds later he followed suit, filling my asshole with his seed. It felt strange and yet I loved it. I loved giving myself totally to lust and to strangers. I loved that I wasn't seen as the shy one, but as a sexy older woman that young boys wanted to fuck. Report_Story #7 
+ My orgasm hit hard again and seconds later he followed suit, filling my asshole with his seed. It felt strange and yet I loved it. I loved giving myself totally to lust and to strangers. I loved that I wasn't seen as the shy one, but as a sexy older woman that young boys wanted to fuck.  
 
  
 

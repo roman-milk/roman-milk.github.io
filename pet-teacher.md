@@ -280,7 +280,7 @@
 
  My last class before lunch was my Advanced English class; I sat at my desk with trepidation as I looked obsessively down at the feet of my incoming students. Cassandra walked in wearing boots, while Mary and Tammy wore those hideous Uggs. Tamara, Candace and Erin came in wearing runners. Ashton was wearing a dress, but also heels. Now it was down to Karen, Beth and Heather. 
 
- My guess as to who would enter barefoot was Karen. She was an outgoing girl and oftentimes dressed rather sexy. I supposed it could also be Heather. Rumours ran rampant about her, though she seemed to me too outspoken to be the submissive type. No way would I guess Beth. Much too quiet, much too nerdy, always in pigtails. Trying to picture her and Julie together was almost laughable. Report_Story #2 
+ My guess as to who would enter barefoot was Karen. She was an outgoing girl and oftentimes dressed rather sexy. I supposed it could also be Heather. Rumours ran rampant about her, though she seemed to me too outspoken to be the submissive type. No way would I guess Beth. Much too quiet, much too nerdy, always in pigtails. Trying to picture her and Julie together was almost laughable.  
 
  
 
@@ -576,7 +576,7 @@
 
  "Yes." 
 
- "Those and more will all come true, very, very soon, my pet," she announced to me. Report_Story #3 
+ "Those and more will all come true, very, very soon, my pet," she announced to me.  
 
  
 
@@ -644,7 +644,7 @@
 
  But that is another story altogether. 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -912,7 +912,7 @@
 
  As if on call, a reasonably sized erect white cock presented itself. 
 
- "Hmmm," Julie purred and grabbed the stool, sat down and took the cock in her mouth. I leaned against the wall and watched Julie suck cock. Unlike myself, who tended to saviour a cock in my mouth, Julie bobbed up and down quickly, clearly trying to get him to come as soon as possible. I can't explain it, but seeing Julie, my grade 12 student, suck cock was a great turn on and suddenly my anxiety went away and was replaced with a sudden hunger. It took less than four minutes and Julie swallowed a load of cum. Once done, she stood up and said, "Your turn, Mrs. Walker." Report_Story #2 
+ "Hmmm," Julie purred and grabbed the stool, sat down and took the cock in her mouth. I leaned against the wall and watched Julie suck cock. Unlike myself, who tended to saviour a cock in my mouth, Julie bobbed up and down quickly, clearly trying to get him to come as soon as possible. I can't explain it, but seeing Julie, my grade 12 student, suck cock was a great turn on and suddenly my anxiety went away and was replaced with a sudden hunger. It took less than four minutes and Julie swallowed a load of cum. Once done, she stood up and said, "Your turn, Mrs. Walker."  
 
  
 
@@ -1182,7 +1182,7 @@
 
  "Give me your cell number," he ordered, his attitude having shifted from stunned earlier to confident. 
 
- I obeyed and said, attempting to control this already out of hand situation, "But if I do this, it will be one time and then you will keep your word and tell no one." Report_Story #3 
+ I obeyed and said, attempting to control this already out of hand situation, "But if I do this, it will be one time and then you will keep your word and tell no one."  
 
  
 
@@ -1300,7 +1300,7 @@
 
  I watched her leave yet again, her perfect ass in tight jeans leaving little to the imagination, knowing that two tasks from now I would be hers unconditionally. 
 
- END OF PART 2. Report_Story #1 
+ END OF PART 2.  
 
  
 
@@ -1578,7 +1578,7 @@
 
  Once the door was closed, Sandra pushed me onto her bed and purred, "I have fantasized about this day for a long time, Mrs. Walker." 
 
- I moaned, her hand under my skirt, surprised by the declaration, "You have?" Report_Story #2 
+ I moaned, her hand under my skirt, surprised by the declaration, "You have?"  
 
  
 
@@ -1690,7 +1690,7 @@
 
  The end for now... 
 
- Coming later in 2012: Pet Teacher: 7th Task-Toy Party Report_Story #1 
+ Coming later in 2012: Pet Teacher: 7th Task-Toy Party  
 
  
 
@@ -1860,7 +1860,7 @@
 
  Jenna laughed, "Wow, she really is a slut. Another great toy is the six and a half inch Lelo Gigli vibrator. A cheaper and somewhat old school vibe, although updated with specially designed curves and a blunt angled head, which is perfect for that elusive G-spot. Let's see if our slut here likes this one." 
 
- I felt a new toy in my hand and obediently slid it in my wanton cunt. Although I liked the other one better, this one was good too, much better than any of the toys I had hidden under my bed at home. Still near the brink, I used the toy with deliberate focus: to come. The toy curved perfectly against my G-spot and within only a few seconds of fucking myself with the toy I was screaming in ecstasy, oblivious to the other women watching. I squeezed my legs and let the vibrating sensations quake through my body. Once my orgasm subsided, I opened my legs and let the toy slip out of my soaking wet pussy. Report_Story #2 
+ I felt a new toy in my hand and obediently slid it in my wanton cunt. Although I liked the other one better, this one was good too, much better than any of the toys I had hidden under my bed at home. Still near the brink, I used the toy with deliberate focus: to come. The toy curved perfectly against my G-spot and within only a few seconds of fucking myself with the toy I was screaming in ecstasy, oblivious to the other women watching. I squeezed my legs and let the vibrating sensations quake through my body. Once my orgasm subsided, I opened my legs and let the toy slip out of my soaking wet pussy.  
 
  
 

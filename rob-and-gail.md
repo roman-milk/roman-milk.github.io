@@ -258,7 +258,7 @@
 
  "That's what it is all about. Dad bought the property and then built the cabin just so he could sit on the deck and enjoy the view." 
 
- We carried our stuff inside and she looked around. What she saw was a twelve by twenty foot room with a stair case at the south end that led up into a loft. There were couches against the north and east wall and a table built onto the loft stairway on which a four burner propane stove sat. There was a pot-bellied wood stove in the south east corner and the floor was the stone of the mountain with a couple of throw rugs on it, but plenty of rock still showed. Report_Story #2 
+ We carried our stuff inside and she looked around. What she saw was a twelve by twenty foot room with a stair case at the south end that led up into a loft. There were couches against the north and east wall and a table built onto the loft stairway on which a four burner propane stove sat. There was a pot-bellied wood stove in the south east corner and the floor was the stone of the mountain with a couple of throw rugs on it, but plenty of rock still showed.  
 
  
 
@@ -524,7 +524,7 @@
 
  I called for the tab, paid it and then drove Gail home in silence. I walked her to her door and when she went up on her toes to kiss me I turned my head so the kiss landed on my cheek and then I turned and left. When I got home there was a message for me on the answering machine. The gallery had called to let me know that my bid on the painting Gail had liked had been accepted. 
 
- "Great timing" I thought. "Just fucking great." Report_Story #3 
+ "Great timing" I thought. "Just fucking great."  
 
  
 
@@ -806,7 +806,7 @@
 
  "There are some things I will not do and cheating is one of them. My seeing other guys and having sex with them is not cheating because, at least not yet, you and I are not in a committed relationship so my seeing others is not cheating on you. At least it isn't as far as I'm concerned. If I say yes and accept your ring and still saw other guys for the sex I need it would be cheating. It would be cheating unless you were okay with it. If I say yes you would have to be okay with me seeing someone else once or twice a week until we could consummate our marriage and I honestly do not think that you can do that." 
 
- "You mean you have been making love with other guys all the time we have been dating?" Report_Story #4 
+ "You mean you have been making love with other guys all the time we have been dating?"  
 
  
 
@@ -826,7 +826,7 @@
 
  When I got home I went to bed, but I didn't sleep for shit. I cursed the Fates and the Gods for what they were doing to me. I skipped the gym in the morning because I figured that Gail would be there and the last thing I needed at the time was to see her. It would only remind me that the woman who owned me, body and soul, would never be mine. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1020,7 +1020,7 @@
 
  The next four months flew by. I was with Gail on the average of four times a week and I had no idea of what she did on the nights she wasn't with me and I made no attempt to find out. Gail had told me that she would do her absolute best to control her urges and I was hoping that she could do it. 
 
- I've mentioned Mike. But he wasn't the only buddy that I had. There were lots of others who for the most part did nothing to warrant mention in this tale. The same could not be said for some of Gail's friends. There were four in particular and all four had been Gail's friends since the second and third grades. Report_Story #2 
+ I've mentioned Mike. But he wasn't the only buddy that I had. There were lots of others who for the most part did nothing to warrant mention in this tale. The same could not be said for some of Gail's friends. There were four in particular and all four had been Gail's friends since the second and third grades.  
 
  
 
@@ -1218,7 +1218,7 @@
 
  She invited a couple of her friends and I invited a couple of mine. Knowing that she was going to have Cindy, Mary, Martha and Bea (and no doubt their men friends) and remembering the overheard talk at the wedding reception I ran to Radio Shack Friday morning and bought five voice activated digital recorders. 
 
- Paranoid? Probably, but as the old saying went "Just because you think some one is out to get you doesn't mean that some one isn't." I put one in the bathroom, one in the kitchen, one in each of the two bedrooms and one in the living room. It might have been a complete waste of time and money, but if Cindy and her cohorts said anything while at the condo while near one of the recorders I wanted to know what it was. I don't know who it was who said "Forewarned is forearmed" but who ever it was he had it right. Report_Story #3 
+ Paranoid? Probably, but as the old saying went "Just because you think some one is out to get you doesn't mean that some one isn't." I put one in the bathroom, one in the kitchen, one in each of the two bedrooms and one in the living room. It might have been a complete waste of time and money, but if Cindy and her cohorts said anything while at the condo while near one of the recorders I wanted to know what it was. I don't know who it was who said "Forewarned is forearmed" but who ever it was he had it right.  
 
  
 
@@ -1366,7 +1366,7 @@
 
  We were not even moved in yet and Gail was already planning the house warming party and I was visualizing the place and trying to decide where to put the recorders. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1596,7 +1596,7 @@
 
  "You had to be stopped. I knew that once I got you out of the way Gail would be back with us. Again, I was thinking of what I wanted and not thinking about anyone else. I know Gail cares for me. I know she would take a bullet for me if it came to that just as I would for her. We were that tight. That she would do what she planned told me just how serious she was where you were concerned. I'm not sure that our friendship would have survived that and that friendship is precious to me. 
 
- "You had every reason to want to hurt me and yet you would not let her do it so I owe you big time and my paying the debt off starts with me crawling to you, telling you that I'm sorry for what I've done and begging you for forgiveness." Report_Story #2 
+ "You had every reason to want to hurt me and yet you would not let her do it so I owe you big time and my paying the debt off starts with me crawling to you, telling you that I'm sorry for what I've done and begging you for forgiveness."  
 
  
 

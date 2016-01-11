@@ -244,7 +244,7 @@
 
  Instantly the blonde superhero was angry. "Let me go, the others must be looking for me by now." 
 
- "Oh trust me, you are the talk of the town," The Producer chuckled. Report_Story #2 
+ "Oh trust me, you are the talk of the town," The Producer chuckled.  
 
  
 
@@ -540,7 +540,7 @@
 
  "Keep licking her Jojo, she is your lunch," The Producer said. 
 
- "Yes, Master," the once famous reporter replied as if in a submissive trance, falling to her knees again and awkwardly licking the young girl's clit. A moment later she giggled, "This is soooo yummy for my tummy," Report_Story #3 
+ "Yes, Master," the once famous reporter replied as if in a submissive trance, falling to her knees again and awkwardly licking the young girl's clit. A moment later she giggled, "This is soooo yummy for my tummy,"  
 
  
 

@@ -90,7 +90,7 @@
 
  "Young lady, do you understand why you have been spanked and put into the corner like a little girl?" I felt my face flush again, but nodded yes, my eyes focused on a single spot on the floor so I could avoid looking at him. "Like I said before, until I see an improvement in your attitude and in your behavior, you will be treated like a little girl. I will speak to you as if you are a little girl, I will punish you as if would a little girl and only when you realize that you need to show respect for your superiors will I consider treating you as the 28 year old that you are. Understood Missy?" Again, I nodded my eyes still on the floor. "Good, now pull up your panties, pack up your books and head straight home. You are to be in bed by 8 pm tonight, is that clear young lady?" Again, I nodded. 
 
- I began to pull up my panties when I realized that he had not given me permission to change back into my regular clothes. "Sir," I said, and waited for permission to speak any further. He nodded his ok and I continued "may I please have permission to change back into my regular clothes before leaving your office Sir?" Report_Story #2 
+ I began to pull up my panties when I realized that he had not given me permission to change back into my regular clothes. "Sir," I said, and waited for permission to speak any further. He nodded his ok and I continued "may I please have permission to change back into my regular clothes before leaving your office Sir?"  
 
  
 

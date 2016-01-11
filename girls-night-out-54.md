@@ -330,7 +330,7 @@
 
  "The possibility of you getting knocked up never entered my mind. I just assumed you were on birth control. If you want to keep fucking me, all you have to do is call me and I'm here, ready for you hot white pussy." 
 
- "I have a feeling that I'll be working late a few nights a week from now on." Report_Story #2 
+ "I have a feeling that I'll be working late a few nights a week from now on."  
 
  
 
@@ -708,7 +708,7 @@
 
  "Welcome home. Baby." 
 
- The end. Report_Story #1 
+ The end.  
 
  
 

@@ -142,7 +142,7 @@
 
  "Oh Mr Bryant..." She whispered into the dark. Francesca used her fingers to tease her sticky kitty. "Please, be careful... I'm so tight... and you're so big." She imagined Ted's cock nudging at her, pushing into her body and filling her with throbbing power while she played the little girl to his big bad wolf. "Am I good enough for you, Mr Bryant? I am as good as your other women?" The use of the formal 'Mr' aroused Francesca. It seemed so bad, so nasty, as though he were a teacher or something. The use of the title made her feel so wicked; it was the taboo, forbidden feeling again, just like her Daddy's porn. Francesca had looked for more films when she was alone in the house. The scenarios in the films thrilled her however unlikely some of them were. The dialogue aroused her as well and she used what she'd heard in the films to pour fuel over the fire of her own fantasies. "Stick that thing into my tight, teenage cunt..." She grunted, pushing her fingers deep. Francesca adored the obscenity, its evil sound thrilled her - It was just so bad - The word was just so shocking. 
 
- Another word she loved to use was 'cum'. It fit perfectly - Cum in me. Spray me with cum. Fill me with cum. The thought of having a man do all that made her pussy clench with anticipation. Her nipples and clitty stiffened and throbbed when she imagined the sensation of having her body sprayed with a man's excitement. Report_Story #2 
+ Another word she loved to use was 'cum'. It fit perfectly - Cum in me. Spray me with cum. Fill me with cum. The thought of having a man do all that made her pussy clench with anticipation. Her nipples and clitty stiffened and throbbed when she imagined the sensation of having her body sprayed with a man's excitement.  
 
  
 
@@ -328,7 +328,7 @@
 
  Francesca continued to watch her films. She amassed a tidy collection of her own, buying them from an internet site. The films fired her imagination and she formed plans to live out some of the fantastic tales she saw enacted in such lewd and graphic detail. 
 
- "Take me to a hotel," she demanded one afternoon. "There's something I want to try." Ted noticed the sly look on Francesca's face but chose to ignore it. She had grown far more adventurous since their first encounter. Every meeting left her more emboldened, besides, Ted was besotted with her, he'd agree to nearly anything. "You book it, tell me the room number, and I'll meet you there... Okay?" Report_Story #3 
+ "Take me to a hotel," she demanded one afternoon. "There's something I want to try." Ted noticed the sly look on Francesca's face but chose to ignore it. She had grown far more adventurous since their first encounter. Every meeting left her more emboldened, besides, Ted was besotted with her, he'd agree to nearly anything. "You book it, tell me the room number, and I'll meet you there... Okay?"  
 
  
 

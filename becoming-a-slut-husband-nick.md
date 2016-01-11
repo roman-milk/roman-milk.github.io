@@ -142,7 +142,7 @@
 
  "Hurry baby, walk faster, I need your cock. I need your cock in me." She had hold of my hand and she was pulling me along and I got, "Hurry baby, hurry. I need cock, I need to be fucked" all the way to her place, all the way into her bedroom and right up to the time I pushed my cock deep into her. As soon as I was bottomed out the talk changed from, "Hurry, hurry" to "Oh god, so good, so good, oh yes baby, fuck me hard, fuck me hard and make me cum." 
 
- Her heels were drumming on the backs of my legs, her nails were digging into my back and all the time it was, "Oh yes, oh God, so good, fuck me baby, fuck me hard, push your cock into me baby, push it hard, make me cum, get me off baby, get me off." Report_Story #2 
+ Her heels were drumming on the backs of my legs, her nails were digging into my back and all the time it was, "Oh yes, oh God, so good, fuck me baby, fuck me hard, push your cock into me baby, push it hard, make me cum, get me off baby, get me off."  
 
  
 

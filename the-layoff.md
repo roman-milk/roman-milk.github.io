@@ -262,7 +262,7 @@
 
  I shoved back into as hard as I could and she grunted and then cried, "Oh yes! Yes yes yes yes!! Harder, fuck me harder." 
 
- I know that she had orgasms, but I wasn't paying any attention. I concentrated on reaching my own and when I got it I felt like I was shooting into her with the force of a fire hose. I shot so hard I half expected to see cum squirt out of her mouth. I pulled out and Mellissa fell to the bed. I stayed on my knees and said: Report_Story #2 
+ I know that she had orgasms, but I wasn't paying any attention. I concentrated on reaching my own and when I got it I felt like I was shooting into her with the force of a fire hose. I shot so hard I half expected to see cum squirt out of her mouth. I pulled out and Mellissa fell to the bed. I stayed on my knees and said:  
 
  
 

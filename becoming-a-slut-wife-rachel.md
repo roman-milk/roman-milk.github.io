@@ -252,7 +252,7 @@
 
  "Hey! He's an asshole and we both know it. Know what you are going to do yet?" 
 
- "No. I'm like you in that life as a single mother living in an apartment somewhere doesn't appeal to me, but it chaps my ass that he is getting laid and I'm climbing walls because I'm not." Report_Story #2 
+ "No. I'm like you in that life as a single mother living in an apartment somewhere doesn't appeal to me, but it chaps my ass that he is getting laid and I'm climbing walls because I'm not."  
 
  
 
@@ -486,7 +486,7 @@
 
  What a sight it must have been. One man sucking on my right tit, my baby nursing on the left and a cock sawing in and out of my mouth. Tom came and I swallowed what he pushed out and after him it was Hank and then a couple of the other guys. I sucked six cocks while I sat there and held Lisa and swallowed what they produced as the guys used me as a "fluffer" to get them back up so they could get back to Julie. It made me feel guilty because I had promised Travis he could be first when I got back to doing it. Julie said she was stunned when she looked over and saw what I was doing. 
 
- "You can't kid me Rachel. You might have said no more gangbangs but if the doctor had cleared you for sex before you got here today you would have put Lisa in her tote, stuck a bottle in her mouth and you would have been right in there with me." Report_Story #3 
+ "You can't kid me Rachel. You might have said no more gangbangs but if the doctor had cleared you for sex before you got here today you would have put Lisa in her tote, stuck a bottle in her mouth and you would have been right in there with me."  
 
  
 
@@ -620,7 +620,7 @@
 
  "Well Tom, lets take this to the bedroom and find out how much staying power you have." 
 
- On the way I made a mental note to call Julie and give her a "thank you." Report_Story #1 
+ On the way I made a mental note to call Julie and give her a "thank you."  
 
  
 
@@ -874,7 +874,7 @@
 
  "Hey! He's an asshole and we both know it. Know what you are going to do yet?" 
 
- "No. I'm like you in that life as a single mother living in an apartment somewhere doesn't appeal to me, but it chaps my ass that he is getting laid and I'm climbing walls because I'm not." Report_Story #2 
+ "No. I'm like you in that life as a single mother living in an apartment somewhere doesn't appeal to me, but it chaps my ass that he is getting laid and I'm climbing walls because I'm not."  
 
  
 
@@ -1108,7 +1108,7 @@
 
  What a sight it must have been. One man sucking on my right tit, my baby nursing on the left and a cock sawing in and out of my mouth. Tom came and I swallowed what he pushed out and after him it was Hank and then a couple of the other guys. I sucked six cocks while I sat there and held Lisa and swallowed what they produced as the guys used me as a "fluffer" to get them back up so they could get back to Julie. It made me feel guilty because I had promised Travis he could be first when I got back to doing it. Julie said she was stunned when she looked over and saw what I was doing. 
 
- "You can't kid me Rachel. You might have said no more gangbangs but if the doctor had cleared you for sex before you got here today you would have put Lisa in her tote, stuck a bottle in her mouth and you would have been right in there with me." Report_Story #3 
+ "You can't kid me Rachel. You might have said no more gangbangs but if the doctor had cleared you for sex before you got here today you would have put Lisa in her tote, stuck a bottle in her mouth and you would have been right in there with me."  
 
  
 

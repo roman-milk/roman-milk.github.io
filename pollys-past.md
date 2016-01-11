@@ -192,7 +192,7 @@
 
  "I love it baby and I'm going to miss it." 
 
- "How did they take it?" Report_Story #2 
+ "How did they take it?"  
 
  
 

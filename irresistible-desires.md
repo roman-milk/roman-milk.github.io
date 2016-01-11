@@ -208,7 +208,7 @@
 
  And so we go on for several minutes, rutting until I cry out and let fly, jizm pumping from me in uncontrolled bursts, an indiscriminate spray that stains the bed cover. I'm so caught in the moment of bliss that I'm blind to the carnage. I can't think about how I'm going to explain to Clara why I was forced to change the bed while she was out. What reason could I reasonably have for changing the quilt during her absence? And you can be assured that Clara will notice; she doesn't miss a thing. No detail ever goes unseen by my wife. 
 
- But I'm not thinking about Clara or the bed or the hideous familial connection between me and the man squirting what's left of his own seed into my rectum. I'm coming, a blissful outpouring, blessed relief. Report_Story #2 
+ But I'm not thinking about Clara or the bed or the hideous familial connection between me and the man squirting what's left of his own seed into my rectum. I'm coming, a blissful outpouring, blessed relief.  
 
  
 

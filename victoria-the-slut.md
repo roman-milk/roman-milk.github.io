@@ -110,7 +110,7 @@
 
  It was then I remembered the two guys on the boat watching us. I looked up and they had drifted to about a 150' away and Vic's beautiful ass was pointed right at them. They had a clear view of her ass cheeks and her glistening pussy hanging like peach between them. The two of them watched quietly as my girlfriend's head continued to bob up and down on my cock and they had a perfect view of her playing with her pussy. One of them looked away from the mesmerizing sight realizing I was watching them. I gave them a quick wave and a big grin. The two off them waved back and gave a big thumb's up. 
 
- I turned back to Vic, who was now making slurping noises on my cock as drool was starting to run between her lips and down my dick. She looked up at me as her head came off my dick with a strand of drool that went from her chin to the tip of my cock. "I want you inside me now!" She moaned. She sat up, straddled my lap aiming my cock between her pussy lips and sank down burying me inside her. "Mmmm... Yessss" she hissed as her eyes closed. She started riding me slowly at first, but quickly began to gain momentum. Soon she was coming up until just the tip of my cock was still in her then slamming herself down on me. I started meeting her thrusts with my own driving my cock as far into her sloppy pussy as I could. I grabbed her ass cheeks to get more leverage. Vic reached down between her legs and found her clit again trying desperately to make herself cum again. I kept up my thrusts and continued to fuck her as hard as I could. "Harder! Harder! Fuck me harder!" She squealed out loud. "I am cumming!" She rode me for another minute before she exploded in orgasm. "Fuuuucckkk!" Was all she said as she arched her back and I thrust hard up into her pussy. Report_Story #2 
+ I turned back to Vic, who was now making slurping noises on my cock as drool was starting to run between her lips and down my dick. She looked up at me as her head came off my dick with a strand of drool that went from her chin to the tip of my cock. "I want you inside me now!" She moaned. She sat up, straddled my lap aiming my cock between her pussy lips and sank down burying me inside her. "Mmmm... Yessss" she hissed as her eyes closed. She started riding me slowly at first, but quickly began to gain momentum. Soon she was coming up until just the tip of my cock was still in her then slamming herself down on me. I started meeting her thrusts with my own driving my cock as far into her sloppy pussy as I could. I grabbed her ass cheeks to get more leverage. Vic reached down between her legs and found her clit again trying desperately to make herself cum again. I kept up my thrusts and continued to fuck her as hard as I could. "Harder! Harder! Fuck me harder!" She squealed out loud. "I am cumming!" She rode me for another minute before she exploded in orgasm. "Fuuuucckkk!" Was all she said as she arched her back and I thrust hard up into her pussy.  
 
  
 
@@ -282,7 +282,7 @@
 
  "Mmmm that might be fun" Vic said quietly wiggling a little in my lap and nuzzling closer. 
 
- We soaked in the hot tub for a little longer and finished off the wine before heading off to bed. Report_Story #3 
+ We soaked in the hot tub for a little longer and finished off the wine before heading off to bed.  
 
  
 
@@ -432,7 +432,7 @@
 
  "Glad to hear you are being a good slut. Now take our cocks out." I told her. Vic let go of my cock and started pulling heatedly at Chris's shorts pulling them down enough so that she could reach in and pull his dick out. She was rewarded with a decent sized 7" rock hard cock which she jerked off a little with her left hand for a second or two then she sat up and took the tip in her mouth. Vic sucked Chris's cock a few times then turned her attention to me pulling the zipper of my shorts apart and yanking my shorts down, hungrily grabbing my dick. She did the same for me sucking my dick into her mouth letting out a loud moan when Steve hit her clit with his tongue. 
 
- I watched Vic cram as much of my cock into her mouth, while Chris's reached over to play with her nipples and Steve ate her snatch like a man possessed. "Roll over so we can fuck you!" I told her. Report_Story #4 
+ I watched Vic cram as much of my cock into her mouth, while Chris's reached over to play with her nipples and Steve ate her snatch like a man possessed. "Roll over so we can fuck you!" I told her.  
 
  
 
@@ -556,7 +556,7 @@
 
  "You're good." I replied, "Come join us." Vic waded naked into the water up to her waist and sank down into it up to her neck with a sigh. 
 
- Steve, Chris and I continued our conversation while Vic floated silently nearby enjoying the cool water. We decided to get out after 15 min, but Vic wanted to stay and soak a bit more. The three of us got out and dried off on the shore. Steve and Chris had 4 beers with them so we cracked them and watched Vic float naked in the water with her tits poking up out of the water. Report_Story #5 
+ Steve, Chris and I continued our conversation while Vic floated silently nearby enjoying the cool water. We decided to get out after 15 min, but Vic wanted to stay and soak a bit more. The three of us got out and dried off on the shore. Steve and Chris had 4 beers with them so we cracked them and watched Vic float naked in the water with her tits poking up out of the water.  
 
  
 
@@ -688,7 +688,7 @@
 
  "Well we should get going as well." I said helping her into the boat. I pushed us off and started the engine. "Why don't you come over and sit on my clock for the ride." I told her pulling out my rock hard cock. 
 
- "Mmmmm, ok!" she said sliding into my lap with her back to me and lowering her pussy on to my cock. "Ahhh I love your cock!" She moaned. Vic started grind her cunt into me as I accelerated. I drove us back to the cottage while Vic squealed on my dick with every bump from every wave we hit. By the time we arrived at the boat house and drifted to a stop she was furiously playing with her clit trying to get off. I rolled her to the deck of the boat on all fours and took her from behind. "Ohhhh yes fuck me!" She moaned as I slid my cock into her pussy. I found her clit with my left hand and started teasing her while fucking her hard with my entire cock. "Aahhhh fuck! Mmmmm fuck your slut!" She squealed writhing in pleasure on my dick. I rode Vic a little longer before she began to cum "Ahhhh cumming! Fuck meeeee!" She screamed as her orgasm washed over her. I felt her pussy muscles spasm and squeeze my cock, which sent me over the edge as well. With a loud grunt I buried my cock deep in her cunt and came. Report_Story #6 
+ "Mmmmm, ok!" she said sliding into my lap with her back to me and lowering her pussy on to my cock. "Ahhh I love your cock!" She moaned. Vic started grind her cunt into me as I accelerated. I drove us back to the cottage while Vic squealed on my dick with every bump from every wave we hit. By the time we arrived at the boat house and drifted to a stop she was furiously playing with her clit trying to get off. I rolled her to the deck of the boat on all fours and took her from behind. "Ohhhh yes fuck me!" She moaned as I slid my cock into her pussy. I found her clit with my left hand and started teasing her while fucking her hard with my entire cock. "Aahhhh fuck! Mmmmm fuck your slut!" She squealed writhing in pleasure on my dick. I rode Vic a little longer before she began to cum "Ahhhh cumming! Fuck meeeee!" She screamed as her orgasm washed over her. I felt her pussy muscles spasm and squeeze my cock, which sent me over the edge as well. With a loud grunt I buried my cock deep in her cunt and came.  
 
  
 
@@ -704,7 +704,7 @@
 
  I headed up to the cottage to close up and Vic dove of the dock to clean off and relax a little. Half an hour later I had all our stuff packed up and locked the cottage up and headed down to the dock. I threw everything in the boat and went to see Vic. She was just drying her naked body off from her swim "I needed that." she said. I came over and she rose up on her toes kissing me on the lips and jamming her tongue down my throat. "Thanks for an amazing weekend! I hope it continues!" She continued breaking our kiss. 
 
- "Oh it will!" I replied grinning. I gave her a smack on her ass and said "Let's get going." We got in the boat and head down the lake to the boat house. I tied the boat up and grabbed our stuff loading the truck up and Vic hopped in the passenger seat naked. As we drove away she bent over and pulled my cock out and started giving me a sloppy blowjob. A few minutes later she reclined back in her chair happily swallowing my latest load and closed her eyes drifting off to sleep. I watched her sleeping naked in the passenger seat, while I drove home contemplating changes I wanted to make now that Vic was a full blown slut... Report_Story #1 
+ "Oh it will!" I replied grinning. I gave her a smack on her ass and said "Let's get going." We got in the boat and head down the lake to the boat house. I tied the boat up and grabbed our stuff loading the truck up and Vic hopped in the passenger seat naked. As we drove away she bent over and pulled my cock out and started giving me a sloppy blowjob. A few minutes later she reclined back in her chair happily swallowing my latest load and closed her eyes drifting off to sleep. I watched her sleeping naked in the passenger seat, while I drove home contemplating changes I wanted to make now that Vic was a full blown slut...  
 
  
 
@@ -856,7 +856,7 @@
 
  "I knew she was naked under that dress!" Tyler told Rob. "I called it back at the bar!" 
 
- "Yeah that is one fine ass!" Rob agreed reaching out and pinching her ass cheek causing Vic to jump a little. The two of them began exploring her ass feeling it up and spanking her occasionally. Vic leaned against the wall with her eyes closed. I let the get their fill of her firm little ass before I grabbed the beer bottle I had used on her earlier. Report_Story #2 
+ "Yeah that is one fine ass!" Rob agreed reaching out and pinching her ass cheek causing Vic to jump a little. The two of them began exploring her ass feeling it up and spanking her occasionally. Vic leaned against the wall with her eyes closed. I let the get their fill of her firm little ass before I grabbed the beer bottle I had used on her earlier.  
 
  
 
@@ -968,7 +968,7 @@
 
  "That you are!" I said smiling. 
 
- Rob started to fuck Vic's ass and she pushed back against both of us drawing us deeper in her holes. It took us a few minutes to find our rhythm, but soon we were fucking Vic with a steady pace. Before too long Vic was howling in pleasure and well on her way to yet another orgasm. "Fuck me hard! I love having two cocks in me!" She moaned into my shoulder. Rob and I started to speed up and soon the sound of slapping flesh and Vic moaning filled the room. Report_Story #3 
+ Rob started to fuck Vic's ass and she pushed back against both of us drawing us deeper in her holes. It took us a few minutes to find our rhythm, but soon we were fucking Vic with a steady pace. Before too long Vic was howling in pleasure and well on her way to yet another orgasm. "Fuck me hard! I love having two cocks in me!" She moaned into my shoulder. Rob and I started to speed up and soon the sound of slapping flesh and Vic moaning filled the room.  
 
  
 
@@ -1062,7 +1062,7 @@
 
  "I think I am going to wake up the other guys so that they can fuck me! I want to get Tyler's cock in my ass!" She said. 
 
- "Ok enjoy yourself slut!" I replied and gave her a smack on her naked ass. Report_Story #4 
+ "Ok enjoy yourself slut!" I replied and gave her a smack on her naked ass.  
 
  
 
@@ -1178,7 +1178,7 @@
 
  "Yeah I had forgotten how tight your ass was." Tyler replied. With his cock still slick with Vic's pussy juices, the wad of saliva he had spit on to her asshole and Rob's cum that was leaking out of her, he was able to push the first couple inches in with only a little resistance. He paused there and let Vic adjust to size of his cock now lodged in her ass. Tyler rotated his hip moving his dick to the sides, but not really pushing in. After giving Vic a few seconds Tyler started to slowly thrust back and forth, first withdrawing a little then pushing it back in. 
 
- Vic adjusted to being over stretched and was now moaning in pleasure while Tyler started to push his cock into her. "Mmmmm yes fill my ass. I want all of your cock!" She moaned out loud. Report_Story #5 
+ Vic adjusted to being over stretched and was now moaning in pleasure while Tyler started to push his cock into her. "Mmmmm yes fill my ass. I want all of your cock!" She moaned out loud.  
 
  
 
@@ -1372,7 +1372,7 @@
 
  Rather than head inside I stayed at the front door and continued to fuck Vic's face. I looked around admiring the day and my situation. I caught some movement in the neighbor's window above their garage. The drapes moved again, but I couldn't see anything. Just the Vic hit my sweet spot and I was going to cum. 
 
- "Open up my sexy slut here's some more!" I said pulling my cock out of her mouth, jerking myself twice and began to cum. I fired a stream on to her right cheek and another on to the center of her tits then finally milked the last little bit directly into her mouth. When I was done swallowed all the cum in her mouth with a big gulp. Report_Story #6 
+ "Open up my sexy slut here's some more!" I said pulling my cock out of her mouth, jerking myself twice and began to cum. I fired a stream on to her right cheek and another on to the center of her tits then finally milked the last little bit directly into her mouth. When I was done swallowed all the cum in her mouth with a big gulp.  
 
  
 
@@ -1384,7 +1384,7 @@
 
  "I am glad to hear it!" I said, "You're turning out to be an amazing slut! Now smile." I told her. I pointed the camera on my phone at her and she smiled her most dazzling smile. The picture captured Victoria in all her cum covered glory. "Excellent that's my new background for my phone." I said. You better head in and get ready your boss is waiting." 
 
- "Yeah you are right." She said. Vic stood up and headed upstairs to get ready. I closed the door and followed her back in contemplating what to do with my Saturday alone... Report_Story #1 
+ "Yeah you are right." She said. Vic stood up and headed upstairs to get ready. I closed the door and followed her back in contemplating what to do with my Saturday alone...  
 
  
 
@@ -1544,7 +1544,7 @@
 
  "Well then hopefully you will like this." I said. I lowered my head to within inches of her pussy. Jenny held her breath in anticipation waiting for me to lick her snatch. At first I kissed her outer lips then ran my tongue between them tasting the sweet juices of her pussy for the first time. 
 
- "Ohhhh! Yesss! I really like that!" Jenny moaned out loud, "Don't stop!" I nodded and licked her pussy again probing deeper between her lips. Jenny gasped again, pushing her pussy up into my mouth. I spread her lips with my fingers and licked her inner lips probing deeper and deeper. After a minute Jenny was moaning constantly in pleasure, begging me to continue. I found her clit and stroked it with my thumb in combination with my tongue in her pussy. "Ohhh shit!" Jenny squealed louder jerking with my touch. I kept licking her and started to rub her clit faster and faster. Jenny was now moaning louder, pushing her pussy into my mouth. "Ahhh... Ohhhh... Mmmmmm! That feels sooo good!" She moaned again and again. I continued rubbing her clit and then started to work two fingers into her pussy. "Ohhh fuck! Yesss! Finger my pussy!" She squealed louder. I started to saw my fingers back and forth burying them up to the third knuckle in her pussy while I started to lick and nibble on her clit. Jenny was thrashing about and grinding her pussy against my hand. I kept the pace up and a minute later Jenny was getting close to cumming. "Ahhhh! Ohhhh! Fuuccckkk! Ohhh god! I am cumming!" She yelled loudly grinding her pussy into me and her stomach quivering in orgasm. I could feel her pussy muscles squeezing my fingers like they were a cock. "Ahhh fuck! Please fuck me! I need your cock!" Jenny moaned still reeling from her orgasm. Report_Story #2 
+ "Ohhhh! Yesss! I really like that!" Jenny moaned out loud, "Don't stop!" I nodded and licked her pussy again probing deeper between her lips. Jenny gasped again, pushing her pussy up into my mouth. I spread her lips with my fingers and licked her inner lips probing deeper and deeper. After a minute Jenny was moaning constantly in pleasure, begging me to continue. I found her clit and stroked it with my thumb in combination with my tongue in her pussy. "Ohhh shit!" Jenny squealed louder jerking with my touch. I kept licking her and started to rub her clit faster and faster. Jenny was now moaning louder, pushing her pussy into my mouth. "Ahhh... Ohhhh... Mmmmmm! That feels sooo good!" She moaned again and again. I continued rubbing her clit and then started to work two fingers into her pussy. "Ohhh fuck! Yesss! Finger my pussy!" She squealed louder. I started to saw my fingers back and forth burying them up to the third knuckle in her pussy while I started to lick and nibble on her clit. Jenny was thrashing about and grinding her pussy against my hand. I kept the pace up and a minute later Jenny was getting close to cumming. "Ahhhh! Ohhhh! Fuuccckkk! Ohhh god! I am cumming!" She yelled loudly grinding her pussy into me and her stomach quivering in orgasm. I could feel her pussy muscles squeezing my fingers like they were a cock. "Ahhh fuck! Please fuck me! I need your cock!" Jenny moaned still reeling from her orgasm.  
 
  
 
@@ -1696,7 +1696,7 @@
 
  "Fuck I am about to cum!" I said grunting with effort. 
 
- "Ahhhhh fuuucckk! Meee toooo!" Jenny wailed back, "Fuck me! Fuck me! Cum in my ass! Ohhhh shhhiiiittt! Cummmming!" Report_Story #3 
+ "Ahhhhh fuuucckk! Meee toooo!" Jenny wailed back, "Fuck me! Fuck me! Cum in my ass! Ohhhh shhhiiiittt! Cummmming!"  
 
  
 
@@ -1828,7 +1828,7 @@
 
  "Mmmmmmm!" Vic moaned with pleasure into Jenny's pussy. She was so wet, having cum several times, that I didn't encounter much resistance pushing my cock into her pussy. With only a couple small thrusts I buried myself in her and slowly started fucking Vic's pussy. 
 
- Vic was now licking Jenny's snatch like it was her favorite meal in the entire world. She probed deeper and deeper into Jenny's pink inner folds with her tongue licking up her juices as she went. Every couple seconds Vic would suck Jenny's clit into her mouth and flick it with her tongue causing her to shiver with excitement. Report_Story #4 
+ Vic was now licking Jenny's snatch like it was her favorite meal in the entire world. She probed deeper and deeper into Jenny's pink inner folds with her tongue licking up her juices as she went. Every couple seconds Vic would suck Jenny's clit into her mouth and flick it with her tongue causing her to shiver with excitement.  
 
  
 
@@ -1962,7 +1962,7 @@
 
  "Agreed. You are both very sexy sluts. I can't wait to show you off!" I said looking at both girls. Vic blushed and Jenny giggled at my comment. 
 
- I threw some jeans, a shirt and a sport jacket on and we headed downstairs. I led the girls out to the suburban and helped them into the truck. Jenny and Vic climbed in to the back seat together shaking their asses at me and giving me a nice view of their bald pussies. By the time I had climbed into the driver's seat and started the engine they were already kissing and fondling each other in the back. I drove off and headed to a restaurant that I liked. In the back the two sluts were spreading each other's legs and teasing their pussies. They giggled when they saw me watching them in the rear view mirror and trying to drive at the same time. Report_Story #5 
+ I threw some jeans, a shirt and a sport jacket on and we headed downstairs. I led the girls out to the suburban and helped them into the truck. Jenny and Vic climbed in to the back seat together shaking their asses at me and giving me a nice view of their bald pussies. By the time I had climbed into the driver's seat and started the engine they were already kissing and fondling each other in the back. I drove off and headed to a restaurant that I liked. In the back the two sluts were spreading each other's legs and teasing their pussies. They giggled when they saw me watching them in the rear view mirror and trying to drive at the same time.  
 
  
 
@@ -2134,7 +2134,7 @@
 
  Eric enjoyed the two naked sluts worshiping his cock, bathing it with their tongues. Finally he got to the point where he couldn't take anymore. "Oh shit you two are amazing, but if you keep going I am going to blow before I get a chance to fuck you two!" He said pulling them to their feet. 
 
- "We wouldn't want that!" Vic said, standing up with Jenny. Vic looked around for a good spot, but ended up just taking a few steps over to the dumpster. "This will have to do I guess" she said, leaning forward, bending at the waist. Supporting herself by holding on to the edge of the dumpster she looked back over her shoulder at Eric and stuck her juicy round ass at him. Report_Story #6 
+ "We wouldn't want that!" Vic said, standing up with Jenny. Vic looked around for a good spot, but ended up just taking a few steps over to the dumpster. "This will have to do I guess" she said, leaning forward, bending at the waist. Supporting herself by holding on to the edge of the dumpster she looked back over her shoulder at Eric and stuck her juicy round ass at him.  
 
  
 
@@ -2306,7 +2306,7 @@
 
  "You just keep sucking and if you're good I'll fuck you soon." I scolded her with a smile. Jenny didn't hesitate and started to bathe my shaft with renewed vigor. 
 
- I shifted my attention to Vic, who was happily bobbing up and down on my cock. I felt my way between her beautiful round ass cheeks, probing her little asshole for a second before slipping my fingers between the folds of her pussy. "Mmmmm!" She moaned around my cock. I parted her pussy lips and pushed my fingers into her sopping wet snatch. Working my way deeper into her I felt the little wire that was the way to remove the toy. Holding on to it I slowly pulled the slick object from Vic's slick pussy. "Oh! I feel so empty!" She moaned taking her head off my cock. Report_Story #7 
+ I shifted my attention to Vic, who was happily bobbing up and down on my cock. I felt my way between her beautiful round ass cheeks, probing her little asshole for a second before slipping my fingers between the folds of her pussy. "Mmmmm!" She moaned around my cock. I parted her pussy lips and pushed my fingers into her sopping wet snatch. Working my way deeper into her I felt the little wire that was the way to remove the toy. Holding on to it I slowly pulled the slick object from Vic's slick pussy. "Oh! I feel so empty!" She moaned taking her head off my cock.  
 
  
 
@@ -2414,7 +2414,7 @@
 
  "Mmmmm it tastes yummy!" Jenny said licking the sticky mess off Vic's face then kissing her, swapping cum between them. 
 
- "You two sluts get enough?" I asked, chuckling, watching the two of them share the remains of my cum. Report_Story #8 
+ "You two sluts get enough?" I asked, chuckling, watching the two of them share the remains of my cum.  
 
  
 
@@ -2554,7 +2554,7 @@
 
  Both girls turned towards me. Looking at my watch I read off the time "Seven minutes Forty-nine seconds!" I said. 
 
- "Wow! It felt like you guys were fucking me for way longer than that!" Jenny said admiringly, "My turn!" She added struggling to her feet, her head still cloudy from the latest orgasm. Report_Story #9 
+ "Wow! It felt like you guys were fucking me for way longer than that!" Jenny said admiringly, "My turn!" She added struggling to her feet, her head still cloudy from the latest orgasm.  
 
  
 
@@ -2686,7 +2686,7 @@
 
  "Mmmmm yes get my pussy nice and wet!" Jenny moaned, wriggling around on my cock still buried deep in her ass. "Please give me that hard dick! I want it to fill my pussy!" Jenny begged a moment later. 
 
- Eric wasted no more time. Stepping in closer he entered Jenny's little pussy in one go. "Ohhhh fuuccckkk!" Screamed Jenny as Eric bottomed out in her. She thrashed about between the two of us, her mouth hung open, but no words came out. After a second or two she screamed again "Ahhhhhhhh... I... Cummming!" She finally managed to blurt out. Report_Story #10 
+ Eric wasted no more time. Stepping in closer he entered Jenny's little pussy in one go. "Ohhhh fuuccckkk!" Screamed Jenny as Eric bottomed out in her. She thrashed about between the two of us, her mouth hung open, but no words came out. After a second or two she screamed again "Ahhhhhhhh... I... Cummming!" She finally managed to blurt out. 0 
 
  
 
@@ -2794,7 +2794,7 @@
 
  "Mmmmhmmmm!" Vic moaned in agreement, a larger smile crossing her lips while she nibbled on her finger. 
 
- Laughing at Vic's eagerness and glanced over at her naked body. I could see a thin trail of cum oozing out of her both her still gaping holes. "You should crawl over there and clean her up." I said to Jenny. Report_Story #11 
+ Laughing at Vic's eagerness and glanced over at her naked body. I could see a thin trail of cum oozing out of her both her still gaping holes. "You should crawl over there and clean her up." I said to Jenny. 1 
 
  
 
@@ -2940,7 +2940,7 @@
 
  "Mmmm... yeah that feels good!" I groaned happily feeling Vic's wet mouth licking my shaft. 
 
- "You guys look so hot from this angle! I want to taste you!" Vic said quietly. On my next thrust I pulled out and Vic grasped my sticky Vick and pulled the tip from Jenny's wet folds. She opened her mouth and closed it around the tip of my cock. I kept thrusting at the same speed, but now I was fucking Vic's wet mouth. Report_Story #12 
+ "You guys look so hot from this angle! I want to taste you!" Vic said quietly. On my next thrust I pulled out and Vic grasped my sticky Vick and pulled the tip from Jenny's wet folds. She opened her mouth and closed it around the tip of my cock. I kept thrusting at the same speed, but now I was fucking Vic's wet mouth. 2 
 
  
 
@@ -3004,7 +3004,7 @@
 
  "It's time for you to get your pussy fucked!" I said and led Vic out back to the patio again. 
 
- "Oh goodie!" Vic said following me. Report_Story #1 
+ "Oh goodie!" Vic said following me.  
 
  
 
@@ -3144,7 +3144,7 @@
 
  Jenny bobbed her head up and down rapidly, easily taking Frank's small dick in her mouth. I saw her left hand move between her legs and start rubbing her tender clit so I knew she was close to cumming. Jenny began to slam herself back against me striving to get as much of my cock in her as possible. She moaned louder and louder while she rubbed her clit in little circles. I could feel her pussy muscles start to spasm squeezing my dick, trying to keep me inside her. Jenny rubbed her clit harder wailing with pleasure around Frank's member, while I fucked her as hard as I could. Seconds later Jenny screamed unintelligibly around Frank and her muscles gripped as she came. 
 
- Frank was beside himself with pleasure. All the vibrations on his dick from Jenny moaning and screaming sent him over the edge. "Oh lord I am cumming again!" He grunted, filling Jenny's mouth yet again. Jenny gagged and coughed, startled by another mouth full of cum. She tried to swallow it all, but couldn't. She spit out Frank's cock and turned her face into a cum covered mess. Report_Story #2 
+ Frank was beside himself with pleasure. All the vibrations on his dick from Jenny moaning and screaming sent him over the edge. "Oh lord I am cumming again!" He grunted, filling Jenny's mouth yet again. Jenny gagged and coughed, startled by another mouth full of cum. She tried to swallow it all, but couldn't. She spit out Frank's cock and turned her face into a cum covered mess.  
 
  
 
@@ -3296,7 +3296,7 @@
 
  "Mmmmmhmmmm!" Jenny moaned. Turning to her other side Jenny offered her open mouth to Vic. 
 
- Vic leaned over and kissed Jenny deeply swapping my cum between them. I watched my two sluts share my cum for a few more minutes before I left and headed to the bathroom. I headed in to the shower and got ready for the day. Coming back into the bedroom I saw Vic writing in the bed with pleasure. Jenny was between her legs lapping at her pussy. I was tempted to join them, but I knew I was probably going to be late as it was so I left them to each other. Once I had put my suit on for the day I headed downstairs, casting a last look at Jenny now straddling Vic's face while Vic ate her little pussy. Report_Story #3 
+ Vic leaned over and kissed Jenny deeply swapping my cum between them. I watched my two sluts share my cum for a few more minutes before I left and headed to the bathroom. I headed in to the shower and got ready for the day. Coming back into the bedroom I saw Vic writing in the bed with pleasure. Jenny was between her legs lapping at her pussy. I was tempted to join them, but I knew I was probably going to be late as it was so I left them to each other. Once I had put my suit on for the day I headed downstairs, casting a last look at Jenny now straddling Vic's face while Vic ate her little pussy.  
 
  
 
@@ -3436,7 +3436,7 @@
 
  "No, the jacket already covers up too much in my opinion." I replied. "Well my sexy slut, you hungry?" I asked Vic, looking down at my naked girlfriend still kneeling between us. 
 
- "Mmmm... I don't know... You guys really filled me up with that cum. Though I guess I could eat." She said looking back up at me, with a satisfied smile. Report_Story #4 
+ "Mmmm... I don't know... You guys really filled me up with that cum. Though I guess I could eat." She said looking back up at me, with a satisfied smile.  
 
  
 
@@ -3584,7 +3584,7 @@
 
  Bill and I watched in silence as my naked slut sucked his three coworkers off in the loading area of the parking lot. Vic switched cocks every minute or so shifting back and forth between the middle aged men. When she wasn't sucking them she jerked them off with both hands. Watching the guys and knowing how good Vic was with her mouth. I knew none of them would last much longer. 
 
- Vic worked her way around the half circle of hard cocks and then back again. She slurped Manuel's slick dick into her mouth for the third time, taking him all the way into her mouth. Manuel's face was red and screwed up with concentration trying to hold on longer. When Vic started to run her tongue along the underside of the tip he could no longer hold his cum back. It clearly had been a long time since he had gotten this type of action, let alone from a naked blonde slut twenty years younger than him. Manuel let out a loud groan that sounded like some sorry of dying animal as his orgasm hit him. Out of reflex he grabbed Vic's head and tried to push his short cock further down her throat. Vic, who's left hand was behind her jerking Bruce and her right was across her body stroking Eugene, was in an awkward position when Manuel started to cum. He started to fire huge jets of cum into her mouth and despite Vic's efforts to swallow it started to bubble out from between her lips. Trying not to choke Vic pulled away from Manuel, his cock slipping from her lips. While Vic gulped loudly swallowing the huge mouthful of cum Manuel jerked his own dick and blasted another jet of cum across Vic's firm tits. Vic had to swallow a second time before she was able to get the sticky mess all the way down and Manuel fired his last spurt of cum across her upper chest. When he was done Vic sucked the last remnants from the tip of his softening member. "Wow that was a lot. You taste good." Vic said smiling up at Manuel, cum dripping from her chin. Report_Story #5 
+ Vic worked her way around the half circle of hard cocks and then back again. She slurped Manuel's slick dick into her mouth for the third time, taking him all the way into her mouth. Manuel's face was red and screwed up with concentration trying to hold on longer. When Vic started to run her tongue along the underside of the tip he could no longer hold his cum back. It clearly had been a long time since he had gotten this type of action, let alone from a naked blonde slut twenty years younger than him. Manuel let out a loud groan that sounded like some sorry of dying animal as his orgasm hit him. Out of reflex he grabbed Vic's head and tried to push his short cock further down her throat. Vic, who's left hand was behind her jerking Bruce and her right was across her body stroking Eugene, was in an awkward position when Manuel started to cum. He started to fire huge jets of cum into her mouth and despite Vic's efforts to swallow it started to bubble out from between her lips. Trying not to choke Vic pulled away from Manuel, his cock slipping from her lips. While Vic gulped loudly swallowing the huge mouthful of cum Manuel jerked his own dick and blasted another jet of cum across Vic's firm tits. Vic had to swallow a second time before she was able to get the sticky mess all the way down and Manuel fired his last spurt of cum across her upper chest. When he was done Vic sucked the last remnants from the tip of his softening member. "Wow that was a lot. You taste good." Vic said smiling up at Manuel, cum dripping from her chin.  
 
  
 

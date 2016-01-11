@@ -196,7 +196,7 @@
 
  "I know. Lynn's been telling me that I'm spoiled rotten. She'd never get away with the stuff I've done. Last time she got home past her curfew, she could barely sit the next day." 
 
- Harold found his palms itching. Lynn? Barely sit? Jesus! That's a dream come true. Report_Story #2 
+ Harold found his palms itching. Lynn? Barely sit? Jesus! That's a dream come true.  
 
  
 
@@ -482,7 +482,7 @@
 
  "If I was there, I'd let you spank me, for going away for so long. You'd lift my skirt, and pull down my panties, and blister my ass for staying away. And when you saw the juices running down my thighs, you could punish me with that hard cock of yours, over and over again." 
 
- "God, promise me it's true." Harold gasped, his hand going a mile a minute. Report_Story #3 
+ "God, promise me it's true." Harold gasped, his hand going a mile a minute.  
 
  
 
@@ -800,7 +800,7 @@
 
  "I forgot to charge it, I'm sorry." 
 
- "Do I need to take the phone away again? If you're going to be allowed to have one, you can't turn it off when you're away, or let it charge down. I need to be able to get hold of you." Report_Story #4 
+ "Do I need to take the phone away again? If you're going to be allowed to have one, you can't turn it off when you're away, or let it charge down. I need to be able to get hold of you."  
 
  
 
@@ -900,7 +900,7 @@
 
  =============== 
 
- Hope you enjoyed the rewrite! Report_Story #1 
+ Hope you enjoyed the rewrite!  
 
  
 
@@ -1198,7 +1198,7 @@
 
  "Damn it! Heather didn't do anything. If you're going to punish anyone it should be me!" 
 
- "Lynn, leave it alone," Heather said. "It's my pool, you're my friend, and I'm responsible." Report_Story #2 
+ "Lynn, leave it alone," Heather said. "It's my pool, you're my friend, and I'm responsible."  
 
  
 
@@ -1512,7 +1512,7 @@
 
  "Oh, uh, Hi Mr. Klein," Heather said as she took in the lay of the land. 
 
- Jeff shook his head. "You girls know you had a deadline, and yet you purposely missed it. This is becoming a bad habit. I don't think the punishment is proving to be the deterrent it should be." Report_Story #3 
+ Jeff shook his head. "You girls know you had a deadline, and yet you purposely missed it. This is becoming a bad habit. I don't think the punishment is proving to be the deterrent it should be."  
 
  
 
@@ -1792,7 +1792,7 @@
 
  Heather flew into her arms, hugging her tight, and feeling tears in her own eyes. "You were gone so long, Mom." 
 
- "Never again, baby. I'm sorry I left you two alone like that," Janice said softly. Report_Story #4 
+ "Never again, baby. I'm sorry I left you two alone like that," Janice said softly.  
 
  
 

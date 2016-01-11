@@ -248,7 +248,7 @@
 
  I made the second attempt at pulling away and the jerk closed right up behind me again and I let him have the roller bearings. I saw him suddenly veer off the road to the right, jump a curb, run down a mailbox and then smack into a tree. Did I feel sorry? Fuck no! I twisted the throttle and put distance between us. 
 
- When I got to Charlie's I told the guys about it and what I'd done and I saw a weird look come over Odette's face when I told them about the red Dodge. I didn't think anything of it and the group fired up their machines and we cranked on over to Cascade. It might have been my imagination, but Odette seemed to be hanging on tighter than usual. Report_Story #2 
+ When I got to Charlie's I told the guys about it and what I'd done and I saw a weird look come over Odette's face when I told them about the red Dodge. I didn't think anything of it and the group fired up their machines and we cranked on over to Cascade. It might have been my imagination, but Odette seemed to be hanging on tighter than usual.  
 
  
 
@@ -574,7 +574,7 @@
 
  +++++++++++++++++++++++ 
 
- Surprising me greatly I was eventually able to put Vickie behind me and develop a relationship with Odette. At first it was just a 'good buddy' type relationship for a while, but then one night when I took her home after an evening run and went to kiss her goodnight she grabbed the front of my shirt and said, "Enough of this silly shit" and pulled me down on the floor, sat astraddle me and started undressing me. It never occurred to me to fight her off. Report_Story #3 
+ Surprising me greatly I was eventually able to put Vickie behind me and develop a relationship with Odette. At first it was just a 'good buddy' type relationship for a while, but then one night when I took her home after an evening run and went to kiss her goodnight she grabbed the front of my shirt and said, "Enough of this silly shit" and pulled me down on the floor, sat astraddle me and started undressing me. It never occurred to me to fight her off.  
 
  
 

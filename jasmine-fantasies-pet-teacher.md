@@ -254,7 +254,7 @@
 
  I had heard these words many times...although for the past twelve years it was by my husband and it always meant I was about to suck cock and swallow a load of his cum (except on the rare occasion when we were in a different city or country, when he liked to give me a facial and have me walk around the bar, restaurant, mall or beach with his cum on my face. 
 
- I had also written these words in the majority of my stories at the key plot point where the prey submits to her or his predator and to his or her own submissive tendencies. Report_Story #2 
+ I had also written these words in the majority of my stories at the key plot point where the prey submits to her or his predator and to his or her own submissive tendencies.  
 
  
 

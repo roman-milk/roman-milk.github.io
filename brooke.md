@@ -218,7 +218,7 @@
 
  "Come on girl, be brave, it won't hurt at all. It's on me as a treat for buying the car." Marcia said. With a hand on her back Marcia guided her to what looked like a barber's chair where she plonked herself down. She began to think of it as a dentist chair and cringed. 
 
- "I've thought about it but don't really want them pierced. I guess I could take a look at some rings or whatever." Brooke said. Report_Story #2 
+ "I've thought about it but don't really want them pierced. I guess I could take a look at some rings or whatever." Brooke said.  
 
  
 
@@ -408,7 +408,7 @@
 
  They drove away into the night laughing together from simply being happy in each other's company. They knew what each was thinking and when Carlene turned into the drive to her apartment there was no need to invite her up as Carlene was already getting out of the car to help Brooke clamber out. 
 
- Tonight was going to be one hell of a game! Report_Story #1 
+ Tonight was going to be one hell of a game!  
 
  
 
@@ -632,7 +632,7 @@
 
  "Thank you, mistress." Sandy quavered. She couldn't think clearly all she knew was that this was trouble, big trouble. Her legs threatened to give way she was so scared. Over the pounding of her heart were other sensations, naughty sensations that were urging her to give in. 
 
- Her rich boyfriend had lectured to her about being kidnapped, what to do and how to behave. 'Do as you're told and try to win them over. Get them to treat you and think of you as a human being and not an object for sale.' He had said. Report_Story #2 
+ Her rich boyfriend had lectured to her about being kidnapped, what to do and how to behave. 'Do as you're told and try to win them over. Get them to treat you and think of you as a human being and not an object for sale.' He had said.  
 
  
 
@@ -812,7 +812,7 @@
 
  One more time she opened her eyes to plead with her tormentor only to see a sardonic grin without the slightest shadow of pity on his face. The relief at feeling the hard thrusting rhythm slow then stop was short lived as he jerked on an orgasm. The relief turned to great shame as she felt his hot sperm warming a deeper part of her anal passage. 
 
- The monster had given her a sperm enema. Tears formed in her eyes on feeling the indignity of what he had done to her. She collapsed in a heap over the chair unable to believe she could stand any more of this abuse. Report_Story #3 
+ The monster had given her a sperm enema. Tears formed in her eyes on feeling the indignity of what he had done to her. She collapsed in a heap over the chair unable to believe she could stand any more of this abuse.  
 
  
 
@@ -850,7 +850,7 @@
 
  She read the business card and memorised the phrase. Whoever gave her that phrase would own her. "Damn!" She cried out. "Why me? Please let me wake up and let this be a nightmare." She shrieked. A thump from the ceiling told her there were normal people in the world with normal concerns, simply wanting a quiet evening in. 
 
- Her world wouldn't be normal for some time to come. She dare not think what perverts would do to her in the next few weeks. Strangers would hand her a business card and expect her to perform for them. Surely there would be some way out of this disgusting mess! Report_Story #1 
+ Her world wouldn't be normal for some time to come. She dare not think what perverts would do to her in the next few weeks. Strangers would hand her a business card and expect her to perform for them. Surely there would be some way out of this disgusting mess!  
 
  
 
@@ -1026,7 +1026,7 @@
 
  His body slumped back on the bed. His breathing calmed from the deep gasps of a moment ago. He opened his eyes not seeing the ceiling yet seeing everything in sharp focus. It was the very first time with a woman. He hadn't imagined it like this. He thought it would be a quick fumble under the sheets in the dark. 
 
- His mind raced over all that had happened since she had opened the door. There was no doubt in his mind now. What ever it took he would save her by rescuing her friend. Report_Story #1 
+ His mind raced over all that had happened since she had opened the door. There was no doubt in his mind now. What ever it took he would save her by rescuing her friend.  
 
  
 
@@ -1216,7 +1216,7 @@
 
  "So who is he then?" she asked, moving the big black dildo closer to the woman's cunt. She wasn't afraid at all and just smiled. 
 
- "You won't know him sweet lamb but to his friends, correction accomplices in crime, he is simply known as Freddy," she stated. "What's the matter pet? Damn! You're one of his tramps and he set me up with you!" she said, suddenly looking angry and very mean. Report_Story #2 
+ "You won't know him sweet lamb but to his friends, correction accomplices in crime, he is simply known as Freddy," she stated. "What's the matter pet? Damn! You're one of his tramps and he set me up with you!" she said, suddenly looking angry and very mean.  
 
  
 

@@ -182,7 +182,7 @@
 
  * 
 
- ON THE landing upstairs I had let go of my erection and simply stared at Mrs Lloyd's plump pussy for a few seconds. It felt as though I was about to come from just looking at her. My cock pulsed and threatened to spurt of its own accord. I felt the convulsive tic, the muscle at the root of my dick twitching, and I thought for a second that I was about to spray semen all over the carpet. Report_Story #2 
+ ON THE landing upstairs I had let go of my erection and simply stared at Mrs Lloyd's plump pussy for a few seconds. It felt as though I was about to come from just looking at her. My cock pulsed and threatened to spurt of its own accord. I felt the convulsive tic, the muscle at the root of my dick twitching, and I thought for a second that I was about to spray semen all over the carpet.  
 
  
 

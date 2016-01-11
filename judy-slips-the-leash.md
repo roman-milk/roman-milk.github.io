@@ -192,7 +192,7 @@
 
  ++++++++++++++++++++++++++++++++++++++++++ 
 
- Six weeks went by and then things got kicked up a notch. It was a Tuesday and Darrel was on the road again. The doorbell rang and I answered it to find a cast free smiling Billy. I stepped aside and let him in, closed the door and raced him to the bedroom. I was sliding up and down on his cock for the second time when the bedroom door opened and I heard Robbie say: Report_Story #2 
+ Six weeks went by and then things got kicked up a notch. It was a Tuesday and Darrel was on the road again. The doorbell rang and I answered it to find a cast free smiling Billy. I stepped aside and let him in, closed the door and raced him to the bedroom. I was sliding up and down on his cock for the second time when the bedroom door opened and I heard Robbie say:  
 
  
 

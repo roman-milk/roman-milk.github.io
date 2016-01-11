@@ -160,7 +160,7 @@
 
  In the store cupboard she bent under a low shelf with less modesty than usual. "It's here somewhere, do you mind waiting while I find it?" she innocently asked. 
 
- She and two others knew exactly where it was for they had been tasked with clearing the cupboard a few weeks ago. It had been amusing finding it in the dust and they had played at being teacher and students. Report_Story #2 
+ She and two others knew exactly where it was for they had been tasked with clearing the cupboard a few weeks ago. It had been amusing finding it in the dust and they had played at being teacher and students.  
 
  
 
@@ -346,7 +346,7 @@
 
  Jessie cleared her throat to interrupt, not liking the idea at all. 
 
- "No! You don't get a say in this or anything else for the rest of the week," Jenny firmly told her. Jessie's obvious objection to the idea swung Jenny in favour of it. Report_Story #3 
+ "No! You don't get a say in this or anything else for the rest of the week," Jenny firmly told her. Jessie's obvious objection to the idea swung Jenny in favour of it.  
 
  
 
@@ -354,7 +354,7 @@
 
  "Graham, you go along with them. Keep an eye on them both, make sure this one doesn't slip away," she told him, while pointing at Jessie. 
 
- Paula didn't look too happy but was trying to hide it. Jessie looked plainly unhappy about it and was trying to find something to say. Graham wasn't too pleased either but accepted it as a favour to his girlfriend that might pay off later. Report_Story #1 
+ Paula didn't look too happy but was trying to hide it. Jessie looked plainly unhappy about it and was trying to find something to say. Graham wasn't too pleased either but accepted it as a favour to his girlfriend that might pay off later.  
 
  
 
@@ -522,7 +522,7 @@
 
  Paula looked around but the assistant was keeping her distance. In a conspiratorial whisper Paula told him, "I couldn't get a bra but managed matching panties." The big guy wasn't stupid by any means but he seemed not to be able to look and listen at the same time. 
 
- Paula pinched one of the dolls nipples which got his attention. "No bra," she pointed out. Lifting the short skirt was hardly necessary, "Pink panties," she pointed out. Holding up the skirt, she watched him digest the little pink knickers as though memorising every fold covering the woman's crotch. There wasn't much to see so why was it taking him so long? Report_Story #2 
+ Paula pinched one of the dolls nipples which got his attention. "No bra," she pointed out. Lifting the short skirt was hardly necessary, "Pink panties," she pointed out. Holding up the skirt, she watched him digest the little pink knickers as though memorising every fold covering the woman's crotch. There wasn't much to see so why was it taking him so long?  
 
  
 
@@ -692,7 +692,7 @@
 
  Her student had a grip of a nipple threatening to twist it. What was more painful was a sudden realisation of what was meant when she called her a doll. The girl was mad! She tried to pull back away from the tightening grip on a painful nipple. 
 
- "An adjustment to this top will have it looking so bad I'll just have to report you to security," Paula announced, with a devious smile upon her face. Her free hand gripped the little piece of material ready to pull it up. There was little enough holding her breasts in so the slightest tug would spill them for all to see. Report_Story #3 
+ "An adjustment to this top will have it looking so bad I'll just have to report you to security," Paula announced, with a devious smile upon her face. Her free hand gripped the little piece of material ready to pull it up. There was little enough holding her breasts in so the slightest tug would spill them for all to see.  
 
  
 
@@ -876,7 +876,7 @@
 
  Lying down he was now looking directly at her crotch where her denuded lips were clearly on show. He looked up to see her breasts pointing out above a slim waist. If it had been her mother this elicit view would have been exciting but as it was a teacher it was devastating. 
 
- "Sorry about this but the other guest room is being decorated. You'll have to share," Paula announced, as though it were an imposition upon him. She lifted the covers and slapped the woman's ass, telling her to hurry up, when she hesitated. Report_Story #4 
+ "Sorry about this but the other guest room is being decorated. You'll have to share," Paula announced, as though it were an imposition upon him. She lifted the covers and slapped the woman's ass, telling her to hurry up, when she hesitated.  
 
  
 
@@ -930,7 +930,7 @@
 
  On hearing her frantic calls for an orgasm, then an urgent demand to hold still, he exploded inside washing her vagina with his cum. Until that point it was all less frantic than with Jenny. At the end his teacher bounced around on his cock for a moment or two then collapsed onto him. He had cum so much more satisfactorily with her too, probably because they shared a common slow rhythm. 
 
- If he had thought of Jenny much more he would have worried about keeping this away from her. Instead he concentrated on one thing at a time and right now he was enjoying the feeling of having just fucked his teacher into submission. It felt so damn good! Report_Story #1 
+ If he had thought of Jenny much more he would have worried about keeping this away from her. Instead he concentrated on one thing at a time and right now he was enjoying the feeling of having just fucked his teacher into submission. It felt so damn good!  
 
  
 
@@ -1068,7 +1068,7 @@
 
  Jenny hadn't expected this. Her boyfriend and her teacher had slept together! She only just managed to keep a neutral expression on her face. She could feel the anger growing as though it were building up to explode upon her features then out of her mouth in a blaze of fury. 
 
- "How could you sleep with my boyfriend? You slept with your student! How could you let me down and yourself down so badly? Jessie, you're a bad girl," Jenny pronounced gravely. Her leg shook a little, the only outward sign of emotion. Report_Story #2 
+ "How could you sleep with my boyfriend? You slept with your student! How could you let me down and yourself down so badly? Jessie, you're a bad girl," Jenny pronounced gravely. Her leg shook a little, the only outward sign of emotion.  
 
  
 
@@ -1232,7 +1232,7 @@
 
  They had been perfectly all right but it had been easy enough to wriggle them down over her thighs, so now she really was in danger of loosing them. "Tell me if it's too much to ask, you won't think I'm terrible will you?" she said, looking at him with her big blue eyes. He didn't have a chance. 
 
- "Of course, no, I won't think that, of course not, err, what is it you want?" he asked, unsure if she had said something and he had missed it. Report_Story #3 
+ "Of course, no, I won't think that, of course not, err, what is it you want?" he asked, unsure if she had said something and he had missed it.  
 
  
 
@@ -1310,7 +1310,7 @@
 
  He didn't know she always let herself go, unable to control the lust. Or, at least the few times she had made love it worked out to be a sensual lust filled sexual experience that she couldn't control. Her history was with Graham twice, the teaching examiner once and now with Mister Barker. 
 
- Still on a high she had forgotten about their teacher being hidden amongst the students, though he certainly wouldn't notice her or anything else but Jenny. He would believe Jenny was the student teacher or anything else she cared to tell him. Report_Story #1 
+ Still on a high she had forgotten about their teacher being hidden amongst the students, though he certainly wouldn't notice her or anything else but Jenny. He would believe Jenny was the student teacher or anything else she cared to tell him.  
 
  
 
@@ -1480,7 +1480,7 @@
 
  Back in class everything seemed normal. No-one would make a head count but if they did there was one missing. The teacher was curled up in the store room silently sobbing. As exhausted as she was it was impossible to sleep. At every sound she started in fear, but the door remained closed until the end of classes. 
 
- Jessie desperately needed to escape this nightmare and needed some time alone to plan how that might be possible. Three more whole days were ahead of her and she just hoped the worst was over. They had saved her and protected her from that disgusting bully so maybe if she did as she was told they wouldn't humiliate her any more. Report_Story #2 
+ Jessie desperately needed to escape this nightmare and needed some time alone to plan how that might be possible. Three more whole days were ahead of her and she just hoped the worst was over. They had saved her and protected her from that disgusting bully so maybe if she did as she was told they wouldn't humiliate her any more.  
 
  
 
@@ -1612,7 +1612,7 @@
 
  "What was that, doll?" Paula asked. 
 
- "Darn lovely! They're so lovely, mistress. The pig tails look so girly they go perfectly with the dress, mistress. Thank you mistress," Jessie gushed, laying it on thick to cover the anger. It was so over the top it now seemed preferable to have looked like a slut wearing the see-through dress. What ever happened this evening she was sure to be humiliated to the limit of endurance. Report_Story #1 
+ "Darn lovely! They're so lovely, mistress. The pig tails look so girly they go perfectly with the dress, mistress. Thank you mistress," Jessie gushed, laying it on thick to cover the anger. It was so over the top it now seemed preferable to have looked like a slut wearing the see-through dress. What ever happened this evening she was sure to be humiliated to the limit of endurance.  
 
  
 
@@ -1830,7 +1830,7 @@
 
  "You're such a slut, teacher. Or, should I call you doll," he asked. She didn't answer, as she had a mouthful of hard cock. 
 
- Jessie heard the mocking tones, and was deeply ashamed at how true it was. So worked up was she, it was impossible not to try and get what she desperately needed. It didn't mater that this young man was her student, for she just needed to feel a cock inside her. Report_Story #2 
+ Jessie heard the mocking tones, and was deeply ashamed at how true it was. So worked up was she, it was impossible not to try and get what she desperately needed. It didn't mater that this young man was her student, for she just needed to feel a cock inside her.  
 
  
 

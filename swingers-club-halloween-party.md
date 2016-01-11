@@ -296,7 +296,7 @@
 
  I felt Jessica's hands expertly unclasped the bra and felt her hot breathe on the back of my neck which caused more tingling down below and made my nipples go as stiff as diamonds. 
 
- Her hand never leaving my back, she reached and grabbed the third black bra and put it on me. I wondered if she saw my erect nipples and flushed face. Did she know the impact she was having on me? Report_Story #2 
+ Her hand never leaving my back, she reached and grabbed the third black bra and put it on me. I wondered if she saw my erect nipples and flushed face. Did she know the impact she was having on me?  
 
  
 
@@ -628,7 +628,7 @@
 
  I lowered myself slowly and moaned loudly as I took his cock in me. From this position I could ride Eddie and watch Matt fuck Jessica. 
 
- Jessica finally ordered, "Sit on the edge of the hot tub, boy toy." Report_Story #3 
+ Jessica finally ordered, "Sit on the edge of the hot tub, boy toy."  
 
  
 
@@ -1034,7 +1034,7 @@
 
  "Oh my, will everyone be watching?" I asked. 
 
- "Yep, you too are fresh meat and they will all be conniving who gets first shot at you two," Jessica added. Report_Story #4 
+ "Yep, you too are fresh meat and they will all be conniving who gets first shot at you two," Jessica added.  
 
  
 
@@ -1340,7 +1340,7 @@
 
  "You are insatiable," he chuckled. 
 
- I looked at Curtis, and said, "Just changing positions stud." Report_Story #5 
+ I looked at Curtis, and said, "Just changing positions stud."  
 
  
 
@@ -1662,7 +1662,7 @@
 
  We grabbed each other and pulled each other close as we both trembled with euphoria. 
 
- Finally, we let go and both fell backwards spent, the dildo slipping out. Unfortunately, there was no rest for the wicked, as both of us had men get on top of us and filled our cunts with their cocks. Report_Story #6 
+ Finally, we let go and both fell backwards spent, the dildo slipping out. Unfortunately, there was no rest for the wicked, as both of us had men get on top of us and filled our cunts with their cocks.  
 
  
 

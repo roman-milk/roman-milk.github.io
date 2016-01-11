@@ -170,7 +170,7 @@
 
  I am rather stern, prim and proper, and dress that way too for the most part. I wear business suits with matching jackets and skirts (rarely dress pants; not often pants of any sort; mostly skirts and dresses, none too short or tight) and mostly standard, basic colors (black, grey, tan or cream; nothing too bright or loud or garish). Even most of my undergarments are rather staid, at least by today's standards. Basic colors again, mostly white and black, a few mauve and lavender. Like my outerwear, no prints or loud or garish colors. I do have push up bras, and even some demi-bras, half-cup, shelf cup, I am embarrassed to say, mostly from ex-husbands or to cater to their tastes for lower cut tops or dresses and some cleavage revealed. Which was also the source of the few thongs I still own, along with two garter belts (white and black), and lace-top thigh-high stockings. I do hate pantyhose, I must confess, and have worn the stockings to avoid them when not going bare legged. I have some black slips and white slips (full and half) for my business suits and some dresses, but most of my panties are either white bikinis or white briefs (several "granny style"). 
 
- Due to my stuffy professional personality, my actual sexual experiences as an adult have been very restricted. I was morally rigid and sexually frigid with both my husbands, with very limited dating before, between or since my marriages.  In retrospect such a standoffish attitude was at least partly to blame for the collapse of both my marriages. Report_Story #2 
+ Due to my stuffy professional personality, my actual sexual experiences as an adult have been very restricted. I was morally rigid and sexually frigid with both my husbands, with very limited dating before, between or since my marriages.  In retrospect such a standoffish attitude was at least partly to blame for the collapse of both my marriages.  
 
  
 
@@ -310,7 +310,7 @@
 
  
 
- While Keisha looks and acts a lot like me, the twins don't. They are a lot less serious, and less driven than either Keisha or me. They are spoiled (much more so than Keisha ever was), always more than a bit "bratty," with an "entitled," presumptuous, rambunctious attitude, Nicole even more so than Nicholas (he's always been fine with being called Nick, though Nicole has for years insisted on her full name being used with family or friends). Both are 18, and, in contrast to me and their older (half) sister, are very light skinned with virtually all "white" (or Caucasian) features. In contrast to Keisha, who always went to public schools, the twins always went to private, almost exclusively white, schools, and were thought of and treated as "white" by almost everyone. In fact, there have been many awkward occasions through the years when the twins' teachers, friends and friends' parents were astonished to discover that their mother and/or older (half) sister were black, or mistook me for "the maid," or Keisha for some potential threat as if she or I were "from the ghetto" just because of the contrast between their skin color and racial features and ours, which was all the more ludicrous given the way Keisha and I typically dressed, acted and presented ourselves, looking and talking "white" in all respects but our skin color. The twins' father is Conner Hamilton, and he comes from big old white money and thus the twins have always lived a rather easy life. He treated Keisha well too, but Keisha always resented his white money and desperately wanted to make it on her own. So although it has never been discussed between my children, colorism has indeed played a major factor in my childrens' relationships in society and among themselves. Report_Story #3 
+ While Keisha looks and acts a lot like me, the twins don't. They are a lot less serious, and less driven than either Keisha or me. They are spoiled (much more so than Keisha ever was), always more than a bit "bratty," with an "entitled," presumptuous, rambunctious attitude, Nicole even more so than Nicholas (he's always been fine with being called Nick, though Nicole has for years insisted on her full name being used with family or friends). Both are 18, and, in contrast to me and their older (half) sister, are very light skinned with virtually all "white" (or Caucasian) features. In contrast to Keisha, who always went to public schools, the twins always went to private, almost exclusively white, schools, and were thought of and treated as "white" by almost everyone. In fact, there have been many awkward occasions through the years when the twins' teachers, friends and friends' parents were astonished to discover that their mother and/or older (half) sister were black, or mistook me for "the maid," or Keisha for some potential threat as if she or I were "from the ghetto" just because of the contrast between their skin color and racial features and ours, which was all the more ludicrous given the way Keisha and I typically dressed, acted and presented ourselves, looking and talking "white" in all respects but our skin color. The twins' father is Conner Hamilton, and he comes from big old white money and thus the twins have always lived a rather easy life. He treated Keisha well too, but Keisha always resented his white money and desperately wanted to make it on her own. So although it has never been discussed between my children, colorism has indeed played a major factor in my childrens' relationships in society and among themselves.  
 
  
 
@@ -468,7 +468,7 @@
 
  She looked directly into my eyes and played dumb, "I have no idea what you are talking about." 
 
- I pulled out my phone and showed her the pictures. She went as white as the stockings on her legs. She stammered, "I-I-I, oh my God, I can't believe she took pictures." Report_Story #4 
+ I pulled out my phone and showed her the pictures. She went as white as the stockings on her legs. She stammered, "I-I-I, oh my God, I can't believe she took pictures."  
 
  
 
@@ -644,7 +644,7 @@
 
  4. You will go to church on Sunday without wearing any underwear. If you disobey this simple expectation another punishment will be added to you once you are on your black knees begging to smell my sweet white pussy. 
 
- 5. Lastly, you will go to Mac's Diner after church and find as secluded a booth as you can. A slave of mine will meet you there to check your cunt and make sure you obeyed my command. She will also explain to your stubborn dumbass nutshell of a brain the consequences of disobedience to your White Mistress. Report_Story #5 
+ 5. Lastly, you will go to Mac's Diner after church and find as secluded a booth as you can. A slave of mine will meet you there to check your cunt and make sure you obeyed my command. She will also explain to your stubborn dumbass nutshell of a brain the consequences of disobedience to your White Mistress.  
 
  
 
@@ -798,7 +798,7 @@
 
  10. SUNDAY BLOODY SUNDAY: Revelations 
 
- I dressed in my Sunday best, ignoring Madison's ludicrous request to not wear panties to church. It was actually this request that finally last night pushed me to ignore my growing temptations and stand tall, proud and defiant. Although being defiant to a 20-year-old college girl did seem rather pathetic. Report_Story #6 
+ I dressed in my Sunday best, ignoring Madison's ludicrous request to not wear panties to church. It was actually this request that finally last night pushed me to ignore my growing temptations and stand tall, proud and defiant. Although being defiant to a 20-year-old college girl did seem rather pathetic.  
 
  
 
@@ -980,7 +980,7 @@
 
  Her next word, which I was hanging on like an obedient dog waiting for its bone, was interrupted by a knock on the door. The knock was like an endorphin killer, or like getting thrown in a cold shower, a harsh wake-up call. I frantically ordered, "Get your shoes on, Ms. Adams." Thankfully, she obliged my request and she sat down in the chair that she should have been sitting in all along. 
 
- I composed myself as best I could and opened the door. It was my department secretary with the agenda for the meeting scheduled to take place in an hour. Although I was flustered, I desperately tried to maintain pretence of poise and professionalism. She gave me a quizzical look, but didn't say anything as she handed me the agenda I had requested she type up for me. As she closed the door, I took a deep breath, relieved I had not been caught in a more compromising position. Yet, the near disaster was a wake-up call and I knew was a warning from above not submit to Madison. Report_Story #7 
+ I composed myself as best I could and opened the door. It was my department secretary with the agenda for the meeting scheduled to take place in an hour. Although I was flustered, I desperately tried to maintain pretence of poise and professionalism. She gave me a quizzical look, but didn't say anything as she handed me the agenda I had requested she type up for me. As she closed the door, I took a deep breath, relieved I had not been caught in a more compromising position. Yet, the near disaster was a wake-up call and I knew was a warning from above not submit to Madison.  
 
  
 
@@ -1230,7 +1230,7 @@
 
  "If you behave today, my slut, it will remain our little secret...for now," she promised and yet hinted at breaking the promise...eventually. A chill went up my spine at the threat of future humiliation and potential revealing of my sins. 
 
- She sauntered in and I led her to the dining room. The look of each of my children seeing the beautiful white girl was interesting. Keisha's face expressed impatience and annoyance; Nicholas was one of horny male adolescence; while Nicole seemed a mixture of surprise and admiration. I introduced her to my children, "Keisha, Nicholas and Nicole, this is Madison, she is a student in my Race and Ethnicity class. We had made a previous arrangement to meet today to discuss her research project." It was a lie, a lame one at that, since Keisha would know, based on my invariable principles that I would never invite a student over...ever. And my class' essays were always done by now. On top of that, what student comes to meet their professor dressed so attractively? That said, it was all I had to cling to my fragile position. Report_Story #8 
+ She sauntered in and I led her to the dining room. The look of each of my children seeing the beautiful white girl was interesting. Keisha's face expressed impatience and annoyance; Nicholas was one of horny male adolescence; while Nicole seemed a mixture of surprise and admiration. I introduced her to my children, "Keisha, Nicholas and Nicole, this is Madison, she is a student in my Race and Ethnicity class. We had made a previous arrangement to meet today to discuss her research project." It was a lie, a lame one at that, since Keisha would know, based on my invariable principles that I would never invite a student over...ever. And my class' essays were always done by now. On top of that, what student comes to meet their professor dressed so attractively? That said, it was all I had to cling to my fragile position.  
 
  
 
@@ -1468,7 +1468,7 @@
 
  As soon as our leash was off, Keisha pushed me to the ground and quickly went to the closest girl to her. I couldn't believe the words out of her mouth, "Could this Nigger dyke please be allowed the privilege of eating your white pussy?" 
 
- I watched dazed as the pretty blonde, without a word, opened her legs and my daughter buried her head between them. Report_Story #9 
+ I watched dazed as the pretty blonde, without a word, opened her legs and my daughter buried her head between them.  
 
  
 
@@ -1708,7 +1708,7 @@
 
  I sat at my desk ignoring the conniving little bitch. I checked my e-mail and realized if I had her here all day, I may as well have her work for me. After about twenty minutes, where she just sat there in silence, I suggested, my tone still implying my strong disapproval of her being here, "Do you want to see what really happens here?" 
 
- Her smile broadened, "Sure, I would love to see how you justify wasting my daddy's tax money." Report_Story #10 
+ Her smile broadened, "Sure, I would love to see how you justify wasting my daddy's tax money." 0 
 
  
 
@@ -1922,7 +1922,7 @@
 
  "Why?" I asked, although I already knew the answer. 
 
- "Mistress Madison insisted I cannot leave your office until you have retrieved all three loads of cum inside me," she explained, between tears. Report_Story #11 
+ "Mistress Madison insisted I cannot leave your office until you have retrieved all three loads of cum inside me," she explained, between tears. 1 
 
  
 
@@ -2218,7 +2218,7 @@
 
  Humiliation burned through me as I agreed, "Yes, I am a fucking dyke." 
 
- "For white pussy?" she added. Report_Story #12 
+ "For white pussy?" she added. 2 
 
  
 
@@ -2450,7 +2450,7 @@
 
  "Don't be embarrassed. I have a keen eye for such things. It is nothing to be ashamed about. You are a rarity among women. You accept yourself and your sexual desires and don't limit yourself to the ridiculous hypocritical standards of today's society," she ranted. 
 
- I asked, curious about her point of view from a psychological and sociological point of view, "What do you mean?" Report_Story #13 
+ I asked, curious about her point of view from a psychological and sociological point of view, "What do you mean?" 3 
 
  
 
@@ -2748,7 +2748,7 @@
 
  Emily leaned forward and kissed my lips. The kiss was gentle and soft, just like in my fantasy, and she surprised me by slipping her tongue inside my mouth. I responded with my tongue and we were soon in a passionate kiss, even in our absurd all fours position. Time stood still as the colour of our skins no longer mattered, our age difference no longer mattered, all that mattered was the moment. 
 
- Madison eventually broke the intimate moment when she lambasted her sister. "I wouldn't believe it if I didn't see it with my own eyes. My sister is a Nigger lover." Madison resumed fucking her sister and continued slathering on the insults at her sister; oddly each shot seemed to increase Emily's moans. "Fuck Emily, you are an embarrassment as a sister and to the Adams name. You are a Nigger lover, a fucking slut who craves chocolate. Come for me whore, come like the dirty little whore you are." Report_Story #14 
+ Madison eventually broke the intimate moment when she lambasted her sister. "I wouldn't believe it if I didn't see it with my own eyes. My sister is a Nigger lover." Madison resumed fucking her sister and continued slathering on the insults at her sister; oddly each shot seemed to increase Emily's moans. "Fuck Emily, you are an embarrassment as a sister and to the Adams name. You are a Nigger lover, a fucking slut who craves chocolate. Come for me whore, come like the dirty little whore you are." 4 
 
  
 
@@ -2994,7 +2994,7 @@
 
  In the washroom, I lied, as I fell to my knees, and purred all seductive and sexy, "Baby, I am on my period, but I can still get you off." I pulled out his semi-hard cock and took it in my mouth before he even had time to respond. I swirled my tongue around his growing member and felt it grow because of me. Once fully erect, I began to slowly bob back and forth, suddenly craving his salty seed. His moans only enhanced my eagerness and I was soon furiously sucking his cock. 
 
- After a couple of minutes, I heard him grunt and felt his seed slide down my throat. I didn't slow down, savouring the taste of his cum. Once done, I stood back up and he smiled, "Where was that eagerness when we were married?" Report_Story #15 
+ After a couple of minutes, I heard him grunt and felt his seed slide down my throat. I didn't slow down, savouring the taste of his cum. Once done, I stood back up and he smiled, "Where was that eagerness when we were married?" 5 
 
  
 
@@ -3166,7 +3166,7 @@
 
  You may come tonight, just once, Professor. So make it worthwhile." 
 
- I caught the panties, but resisted doing what my body craved. Once she was gone, and I heard the door close, I grabbed Madison's panties, put them on my head and licked her wet sticky crotch while swimming in the intoxicating aroma of her scent. My hand went to my wet pussy and began spanking my clit over and over again, building to a powerful climax. When I came, I bit on my lips to not wake up Nicholas or Nicole as the pleasure burned through me. Exhausted, I fell asleep with Madison's panties still on my head. Report_Story #16 
+ I caught the panties, but resisted doing what my body craved. Once she was gone, and I heard the door close, I grabbed Madison's panties, put them on my head and licked her wet sticky crotch while swimming in the intoxicating aroma of her scent. My hand went to my wet pussy and began spanking my clit over and over again, building to a powerful climax. When I came, I bit on my lips to not wake up Nicholas or Nicole as the pleasure burned through me. Exhausted, I fell asleep with Madison's panties still on my head. 6 
 
  
 
@@ -3488,7 +3488,7 @@
 
  Such a compliment warmed my heart after the public humiliation she had witnessed yesterday. 
 
- I poured her a glass of juice and served both my children the French Toast I had made. We ate in nervous silence each of us thinking about the new family dynamic that had evolved so quickly. Nicholas kept giving me looks that made me uncomfortable, like he was seeing me as a conquest. I tried to ignore the slight tingle down below as I thought about my son as a sexual being. Report_Story #17 
+ I poured her a glass of juice and served both my children the French Toast I had made. We ate in nervous silence each of us thinking about the new family dynamic that had evolved so quickly. Nicholas kept giving me looks that made me uncomfortable, like he was seeing me as a conquest. I tried to ignore the slight tingle down below as I thought about my son as a sexual being. 7 
 
  
 
@@ -3730,7 +3730,7 @@
 
  I was furious. I was outraged. I was confused. Punishment? Because of me? This was getting completely ludicrous. Mr. Walters came in and I quickly tossed the envelope in my bag. After a brief conversation about the motion that I had to have into Judge Hurst by 10am tomorrow morning, I was alone again, but I could not get focused. Three times I read the same paragraph of a brief I had just proofread and I was just too distracted to focus on the content of it. The legal motion finished yesterday, I printed it off and left it in a file so I could hand deliver it tomorrow. Mr. Walters always preached that it is the small things that count, although his advice seemed less profound than it did a week ago. I decided to go home early and relieve the burning desire that was causing me such distraction, hoping once it was relieved I could focus like I usually do. 
 
- Report_Story #18 
+ 8 
 
  
 
@@ -4022,7 +4022,7 @@
 
  "Oh God, yes Nicholas, I mean son, Mommy wants your big cock in her wet cunt so fucking bad. Oh god son, shove that big cock of yours in Mommy." 
 
- His cock easily slipped inside my cunt and filled me. I let out a loud moan of ecstasy as my cunt was finally filled. "Fuck Mom, you are so fucking wet." Report_Story #19 
+ His cock easily slipped inside my cunt and filled me. I let out a loud moan of ecstasy as my cunt was finally filled. "Fuck Mom, you are so fucking wet." 9 
 
  
 
@@ -4312,7 +4312,7 @@
 
  Forcing me to admit to such a vulgar racist thing was the final straw that broke the camel's back. Defeated, humiliated and yet horny, I accepted there was no way out of this without submitting first. The tape would implicate us both and I realized the only way to end her power was to reveal both of us. To do that, I had to submit to her unconditionally. I replied, like the submissive she expected, "Yes, Mistress, I promise to be a good Nigger slave." 
 
- "Good puppy," she purred, opening her legs, and ordering, "Now finish what you started, slave." Report_Story #20 
+ "Good puppy," she purred, opening her legs, and ordering, "Now finish what you started, slave." 0 
 
  
 
@@ -4584,7 +4584,7 @@
 
  Mistress Madison 
 
- I shook my head at this one, knowing that such a word being used by a professor would be shocking. Thinking of my upcoming lessons, I chuckled to myself, already knowing how to put the word in my lecture. Report_Story #21 
+ I shook my head at this one, knowing that such a word being used by a professor would be shocking. Thinking of my upcoming lessons, I chuckled to myself, already knowing how to put the word in my lecture. 1 
 
  
 
@@ -4890,7 +4890,7 @@
 
  Jayde's tone instantly changed to apologetic, "Sorry, Allison." I watched intrigued by the battle of Domme vs Domme, one where Allison was clearly in charge. 
 
- I ended the tense situation between the two as I crawled between the blonde's legs. Her panties were already off and so I went to work. Not caring about impressing her, I ignored the subtleties of pleasure I had learned when pleasing someone and releasing inside them great orgasms and instead did a brusque no-frills pussy-pleasing. Unlike the fifteen minutes, give or take, that it took to get Susan off, I was getting Jayde off in less than five. Once her orgasm was done, I eagerly moved to the third and final pussy...Allison's. Allison opened her legs for me and although it was rather dark under the table, I learned she was wearing pantyhose with a hole in just the right spot. Her pussy, completely shaved, was already wet when my tongue made contact. Like Madison's, Allison's cunt had a subtle sweetness that was addicting on contact. Like my treatment of Susan's sweet little cunt, I spent my time between Allison's legs. I roamed freely, exploring every millimetre of her nectar. I teased her pussy at a snail's pace, lavishly enjoying dining on perfection. Report_Story #22 
+ I ended the tense situation between the two as I crawled between the blonde's legs. Her panties were already off and so I went to work. Not caring about impressing her, I ignored the subtleties of pleasure I had learned when pleasing someone and releasing inside them great orgasms and instead did a brusque no-frills pussy-pleasing. Unlike the fifteen minutes, give or take, that it took to get Susan off, I was getting Jayde off in less than five. Once her orgasm was done, I eagerly moved to the third and final pussy...Allison's. Allison opened her legs for me and although it was rather dark under the table, I learned she was wearing pantyhose with a hole in just the right spot. Her pussy, completely shaved, was already wet when my tongue made contact. Like Madison's, Allison's cunt had a subtle sweetness that was addicting on contact. Like my treatment of Susan's sweet little cunt, I spent my time between Allison's legs. I roamed freely, exploring every millimetre of her nectar. I teased her pussy at a snail's pace, lavishly enjoying dining on perfection. 2 
 
  
 

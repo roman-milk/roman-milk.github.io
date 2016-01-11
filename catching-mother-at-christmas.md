@@ -124,7 +124,7 @@
 
  "Drink this," Beverly ordered as she proffered a steaming mug of sweetened tea to her son. She busied herself with logs and the coal scuttle, avoiding Philip's eye while she built up the fire. 
 
- Philip blew across the meniscus of the scalding brew as he watched his mother work. When the flames leapt and snapped in the grate Beverly left the room. When she returned she brought with her a fresh gin and a packet of cigarettes. Report_Story #2 
+ Philip blew across the meniscus of the scalding brew as he watched his mother work. When the flames leapt and snapped in the grate Beverly left the room. When she returned she brought with her a fresh gin and a packet of cigarettes.  
 
  
 
@@ -250,7 +250,7 @@
 
  Philip recognised, as he watched and masturbated, on some instinctive level he knew that what he was doing was wrong. He just couldn't help himself. Seeing his mother like that again overwhelmed him. And when she opened her eyes and saw him, and then just continued fingering her squelching cunt, letting him feast his eyes as he tugged at himself, it all became too much. He heard the words drop from his mother's lips -- she was coming right in front of him. She knew he was there; she'd opened her eyes and seen him. In fact, even as she writhed and trembled and the cords in her neck stood out like knife edges, her eyes were open. His mother came right in front of his staring eyes and watched him watching her. 
 
- Philip's eyes caught his mother's stare and, as the woman sighed and gasped, he grunted and let the surge erupt from the eye of his cock. Report_Story #3 
+ Philip's eyes caught his mother's stare and, as the woman sighed and gasped, he grunted and let the surge erupt from the eye of his cock.  
 
  
 

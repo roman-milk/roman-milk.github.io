@@ -202,7 +202,7 @@
 
  Lisa flicked at Laurie's stiff clit and pushed two fingers into the molten heat of the woman's opening. She pushed deep and rubbed at the spongy insides, probing for Laurie's g-spot. Laurie groaned loudly and pushed her body hard against Lisa's face. 
 
- 'Finger fuck me... hard!' Laurie grunted as she felt another orgasm begin to boil, its centre blossoming outwards from between her legs, then pulsing slowly outwards in ever expanding concentric circles. 'I'm going to come again... Shit... I'm going... to... fucking... COME!' Report_Story #2 
+ 'Finger fuck me... hard!' Laurie grunted as she felt another orgasm begin to boil, its centre blossoming outwards from between her legs, then pulsing slowly outwards in ever expanding concentric circles. 'I'm going to come again... Shit... I'm going... to... fucking... COME!'  
 
  
 

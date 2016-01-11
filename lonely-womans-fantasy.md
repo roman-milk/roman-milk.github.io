@@ -188,7 +188,7 @@
 
  The two young men looked at each other with an idea both shared without a word spoken. "We could play strip poker if you like," Jim suggested while squirming on the stool, ready to turn it into a joke when she rejected the idea. 
 
- "Oh? How do we play that game? I don't even understand this one yet. I am happy to play with you, if you want me. It is nice playing and talking together. I have no friends here. At the orphanage nuns did not let us keep in touch with other girls so I don't know anyone at home either. If you want to play with me that is nice. I will strip for you of course. You have paid for me," she smiled. Report_Story #2 
+ "Oh? How do we play that game? I don't even understand this one yet. I am happy to play with you, if you want me. It is nice playing and talking together. I have no friends here. At the orphanage nuns did not let us keep in touch with other girls so I don't know anyone at home either. If you want to play with me that is nice. I will strip for you of course. You have paid for me," she smiled.  
 
  
 
@@ -236,7 +236,7 @@
 
  Janet hadn't planned on letting them into the apartment but by now felt pretty safe with the inexperienced pair. The teasing would have to stop though. They deserved a cup of tea and a biscuit before sending them on their way. 
 
- "My master won't be home for awhile but you must go soon as I will be in trouble if he finds you here. I don't want to be over his knee for a spanking," she warned them. Report_Story #1 
+ "My master won't be home for awhile but you must go soon as I will be in trouble if he finds you here. I don't want to be over his knee for a spanking," she warned them.  
 
  
 

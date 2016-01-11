@@ -176,7 +176,7 @@
 
  Gavin stood up and hurriedly peeled the polo shirt over his head while, on the sofa, as she slowly fingered her pussy, Tanya watched Gavin undress. The man muttered and swore, impatient to be at the blonde as he toed the heels of his training shoes down. He kicked the shoes away before he plonked himself on the settee next to Tanya and yanked his jeans off. Then, almost nude, with just his socks remaining, Gavin peeled them off. 
 
- Then, finally, he grinned at Tanya and lunged. Report_Story #2 
+ Then, finally, he grinned at Tanya and lunged.  
 
  
 

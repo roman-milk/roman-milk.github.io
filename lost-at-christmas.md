@@ -182,7 +182,7 @@
 
  "He lived two houses down. We'd grown up together, and when my heart was broken he picked up the pieces. He could tell something was wrong, and really made me feel a lot better." She confessed. 
 
- That brought on a short period of silence. It did let me think better of Ricky, who wasn't just lucky or an opportunist. Report_Story #2 
+ That brought on a short period of silence. It did let me think better of Ricky, who wasn't just lucky or an opportunist.  
 
  
 
@@ -376,7 +376,7 @@
 
  "I thought you liked me, and were going to ask me out, but you never did. Why not?" She asked. 
 
- The memory was embarrassing, and I thought about it a bit before confessing. "I had skated with Kathryn earlier in the evening, and she asked me who I liked. I told her I would answer by the end of the evening. Later, just when I was trying to get the nerve up to skate with you again, and ask you to sit by me on the Pensacola bus trip, Jack found me and told me that I had better ask Kathryn to skate. She was waiting for me to tell her something. Well, I did ask her to skate, and she reminded me of our previous conversation. Report_Story #3 
+ The memory was embarrassing, and I thought about it a bit before confessing. "I had skated with Kathryn earlier in the evening, and she asked me who I liked. I told her I would answer by the end of the evening. Later, just when I was trying to get the nerve up to skate with you again, and ask you to sit by me on the Pensacola bus trip, Jack found me and told me that I had better ask Kathryn to skate. She was waiting for me to tell her something. Well, I did ask her to skate, and she reminded me of our previous conversation.  
 
  
 
@@ -618,7 +618,7 @@
 
  She was still wearing the cross I'd given her. She held it now. "Thanks for the Christmas present." She said with a small sad smile. 
 
- I kissed her again, and retreated to the bathroom for a quick shower and shave. Back in my room, I dressed, and found a present waiting for me on my suitcase. A 8x10 picture of Sheri, as beautiful as I'd ever seen her, with a small inscription on the back. Report_Story #4 
+ I kissed her again, and retreated to the bathroom for a quick shower and shave. Back in my room, I dressed, and found a present waiting for me on my suitcase. A 8x10 picture of Sheri, as beautiful as I'd ever seen her, with a small inscription on the back.  
 
  
 

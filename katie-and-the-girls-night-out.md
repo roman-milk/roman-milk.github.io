@@ -164,7 +164,7 @@
 
  I spent the rest of the day working on the car in the driveway. Katie kept coming to the doorway to see where I was. She desperately wanted to get out to the mailbox and get that brown envelope, but she couldn't as long as I was in the driveway. I knew that when I finally went into the house at five that she had to be a basket case, but I made sure I stayed where she couldn't get out to the mailbox without my seeing her. After dinner, as she was putting the dinner dishes in the dishwasher I casually asked her, "I wonder what is in that envelope that you stuffed back into the mailbox?" 
 
- She dropped a glass on the floor and as it broke she turned to me and said, "I don't know what you are talking about." Report_Story #2 
+ She dropped a glass on the floor and as it broke she turned to me and said, "I don't know what you are talking about."  
 
  
 

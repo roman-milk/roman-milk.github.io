@@ -146,7 +146,7 @@
 
  *** 
 
- Two weeks later, Mark had started on the reroofing, and was working on the east side of the house. My room and bathroom are on that side, and they're set up side by side, so that each has one window &ndash; the bedroom's big, the bathroom's small and narrow &ndash; that faces to the east. It was Saturday morning, and after lazing around I had finally decided to shower and start my day. I had just stepped out, wet and dripping, my long, soaked hair draped across my shoulders and back, when I saw a flash of moment outside the bathroom window. I had drawn the blinds and opened it half-way to let the steam out, and now, as I wrapped a towel around my petite body, I realized that Mark was working just a few feet outside, set up on his ladder as he hammered away. Report_Story #2 
+ Two weeks later, Mark had started on the reroofing, and was working on the east side of the house. My room and bathroom are on that side, and they're set up side by side, so that each has one window &ndash; the bedroom's big, the bathroom's small and narrow &ndash; that faces to the east. It was Saturday morning, and after lazing around I had finally decided to shower and start my day. I had just stepped out, wet and dripping, my long, soaked hair draped across my shoulders and back, when I saw a flash of moment outside the bathroom window. I had drawn the blinds and opened it half-way to let the steam out, and now, as I wrapped a towel around my petite body, I realized that Mark was working just a few feet outside, set up on his ladder as he hammered away.  
 
  
 
@@ -248,7 +248,7 @@
 
  "There!" I said. "Now we can start it!" Still on my knees, I grinned up at him. 
 
- Before I even looked, I knew the expression I would see in his face. He was gaping down at me, as my long hair tousled down my shoulders, my tits firm and perky in their bra, my thong disappearing down the crack of my butt. This was the same petite body that he had seen stretched out on my bed, the same dainty fingers pumping into my twat as I whimpered out his name. It took him a few seconds before he raised an arm and quickly looked away, shielding his view. Report_Story #3 
+ Before I even looked, I knew the expression I would see in his face. He was gaping down at me, as my long hair tousled down my shoulders, my tits firm and perky in their bra, my thong disappearing down the crack of my butt. This was the same petite body that he had seen stretched out on my bed, the same dainty fingers pumping into my twat as I whimpered out his name. It took him a few seconds before he raised an arm and quickly looked away, shielding his view.  
 
  
 
@@ -432,7 +432,7 @@
 
  "Damnett…Ashley!" His cry burst out of him, and for the first time, I saw frustrated anger flash through his face. All of this was too much for him; me teasing him, slurping on his cock even when he asked me to stop; him unable to resist me even though he knew he should; and now, finally, I was comparing myself to my mom, to his fiancé, even going so far as to say I was better than her. 
 
- With a frustrated growl, he grabbed hold of my hair with both hands, large fistfuls of my caramel curls. He wrenched me back from his cock, hard. For a minute, I thought he would shove me away and storm out, perhaps even come after me, and my eyes flashed with fright. But instead, he pulled me back up to eye- level with the tip of his meat, and with a dangerous, almost animalistic ferocity, he pushed me forward. Report_Story #4 
+ With a frustrated growl, he grabbed hold of my hair with both hands, large fistfuls of my caramel curls. He wrenched me back from his cock, hard. For a minute, I thought he would shove me away and storm out, perhaps even come after me, and my eyes flashed with fright. But instead, he pulled me back up to eye- level with the tip of his meat, and with a dangerous, almost animalistic ferocity, he pushed me forward.  
 
  
 
@@ -574,7 +574,7 @@
 
  "Oh come on, Mark!" I sighed. "I can't try it on without your help!" 
 
- Finally he nodded. "Sure…sure, of course." He stepped forward and reached out, expecting me to turn around. But instead, I headed back into my mom's bedroom, my heels still clacking. He had no choice but to follow. Report_Story #5 
+ Finally he nodded. "Sure…sure, of course." He stepped forward and reached out, expecting me to turn around. But instead, I headed back into my mom's bedroom, my heels still clacking. He had no choice but to follow.  
 
  
 
@@ -702,7 +702,7 @@
 
  "Maybe…after the wedding… Oh!After the wedding, we can sneak out and find some empty room…" I panted, my chest heaving as I thrust my hips into his, my lust spurring me on. "…I'll…keep this dress on again…" 
 
- "ARGHH!!" Mark's howl echoed through the house, and suddenly I felt him rising. At that moment, genuine fear swept through me. I had finally crossed the edge, I told myself; I had gone too far with my teasing, and sent him into a rage that he couldn't control. My body quivered slightly as I felt his hands clasp my waist hard, and he rose off the bed. I gasped softly as I felt my high heels leave the ground; Mark was standing now in front of the bed, and he had picked me up effortlessly, my slender legs dangling, my useless bridesmaid dress hanging off my slim hips. Report_Story #6 
+ "ARGHH!!" Mark's howl echoed through the house, and suddenly I felt him rising. At that moment, genuine fear swept through me. I had finally crossed the edge, I told myself; I had gone too far with my teasing, and sent him into a rage that he couldn't control. My body quivered slightly as I felt his hands clasp my waist hard, and he rose off the bed. I gasped softly as I felt my high heels leave the ground; Mark was standing now in front of the bed, and he had picked me up effortlessly, my slender legs dangling, my useless bridesmaid dress hanging off my slim hips.  
 
  
 

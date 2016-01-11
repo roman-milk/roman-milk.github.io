@@ -92,7 +92,7 @@
 
  I leaned back so comfortable in the sofa, watching my nude wife kneeling in front of this stud and letting him use her like some cheap slut he'd hired - - cheapest, actually, since he wasn't paying a fucking thing for this. My dick ached in my pants, I wanted to haul it out and jerk it off or slip it in Stacie's sexy little butthole, but for the moment I just relaxed and watched. 
 
- My brunette wife was moaning in delight with the huge hot penis pulsating against her face. Andrew's fists were full of her hair, holding her skull in place while he masturbated himself by dragging his prick over her cheeks and lips. Finally at long last, still holding her long black hair firmly in his hands, he pulled his ass back until his penis slid down to her mouth again. Stacie's married mouth instantly opened and swallowed the stranger's dick. I watched his eyes roll as he pumped hips pelvis forward, pulling Stacie's long hair and head towards his pelvis. His cock slammed into her mouth again and, after one powerful THRUST forward, he was in her neck. Stacie's entire body convulsed like she wanted to hurl, and her eyes popped out of their sockets. But his arms were so powerful, and his fists were so tight on her long hair, he had total control over her body. Andrew was yanking her mouth and throat down on his bone so that it was shoved up deep in her neck, while she fought to keep her jaw open to give his fat erection room to enter her mouth. Report_Story #2 
+ My brunette wife was moaning in delight with the huge hot penis pulsating against her face. Andrew's fists were full of her hair, holding her skull in place while he masturbated himself by dragging his prick over her cheeks and lips. Finally at long last, still holding her long black hair firmly in his hands, he pulled his ass back until his penis slid down to her mouth again. Stacie's married mouth instantly opened and swallowed the stranger's dick. I watched his eyes roll as he pumped hips pelvis forward, pulling Stacie's long hair and head towards his pelvis. His cock slammed into her mouth again and, after one powerful THRUST forward, he was in her neck. Stacie's entire body convulsed like she wanted to hurl, and her eyes popped out of their sockets. But his arms were so powerful, and his fists were so tight on her long hair, he had total control over her body. Andrew was yanking her mouth and throat down on his bone so that it was shoved up deep in her neck, while she fought to keep her jaw open to give his fat erection room to enter her mouth.  
 
  
 
@@ -196,7 +196,7 @@
 
  "God," he grunted back, his ass pumping away on top of her, "so tight!" 
 
- I could hear the sloppiness of her pussy taking his long hard shaft. His nude strong body was humping powerfully up and down, his ass pumping and his hips flopping, as his strong thighs tensed and his sculpted arms held his torso steady. Underneath his body was my wife on her back, her legs splayed out to the side, her pink vaginal lips stretching open to take ever inch of his engorged prick. Her body shook each time he thrust forward, and you could hear the splattering of her juices as he drove into her, and their skin-on-skin contact made its own crashing noise. Report_Story #3 
+ I could hear the sloppiness of her pussy taking his long hard shaft. His nude strong body was humping powerfully up and down, his ass pumping and his hips flopping, as his strong thighs tensed and his sculpted arms held his torso steady. Underneath his body was my wife on her back, her legs splayed out to the side, her pink vaginal lips stretching open to take ever inch of his engorged prick. Her body shook each time he thrust forward, and you could hear the splattering of her juices as he drove into her, and their skin-on-skin contact made its own crashing noise.  
 
  
 
@@ -306,7 +306,7 @@
 
  "Oh, I see." I giggled, but actually, I was getting so fucking turned on. Hearing about her fucking around is the highlight of every day I come home from work; it doesn't always involve other people in person, but hardly a day goes by that she doesn't get off somehow. And she usually never offers me the information voluntarily, but only rarely does she play coy with me. "So, was it a guy or girl?" You never know. 
 
- Report_Story #4 
+  
 
  
 
@@ -454,7 +454,7 @@
 
  When she pulled back from the kiss, there was so much saliva in our mouths that a long bridge of spit stretched from her lips to mine, until she smiled and wiped it off with a finger, sucking her finger clean then. She giggled at me, continuing to ride my dick. "Know what I did for Andrew?" She looked proud of herself, and I didn't mention that he wasn't supposed to tell her his name. Well, she has that effect on guys. I shook my head wanting to know what she did, and she actually looked embarrassed. "Well--" She flicked her head back, her long dark hair bouncing over her shoulder, as she slowed her humping on my erection. "Um, he was like, 'my wife never does nasty shit,' sooo -- so after he cummed in my ass once, I stuck my fingers into it and licked off his cum from them." 
 
- Oh, you asslicking cumslut!" I grinned, grabbing her hips again and forcing her even harder down onto my dick. She yelped at feeling how deep I was inside of her. "So when are you gonna see Mr. Jogger again, to fuck him?" Report_Story #5 
+ Oh, you asslicking cumslut!" I grinned, grabbing her hips again and forcing her even harder down onto my dick. She yelped at feeling how deep I was inside of her. "So when are you gonna see Mr. Jogger again, to fuck him?"  
 
  
 

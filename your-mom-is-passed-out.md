@@ -214,7 +214,7 @@
 
  "Linda?" he said softly. I assumed he was talking about the Linda that was a frequent pool-guest friend of his step-sister. 
 
- "Yeah, Linda. With bigger tits. Naked and begging for it. Anybody." Report_Story #2 
+ "Yeah, Linda. With bigger tits. Naked and begging for it. Anybody."  
 
  
 
@@ -436,7 +436,7 @@
 
  I reached down and touched her, sliding my thumb over her puffy mounds, opening her up, exposing her tender little love button. I slid my thumb inside her pussy, above my cock, reveling in her wetness. She may not know what was going on consciously, but her sweet pussy sure as hell did. Pulling out my thumb, I rubbed her clit, varying the pressure, rubbing little circles, checking to see how her pussy responded for me. 
 
- I was sure I felt her tightening, clutching my cock with her moist folds. I couldn't believe how easy it was to stay hard for her, and I wanted to play a different way. Report_Story #3 
+ I was sure I felt her tightening, clutching my cock with her moist folds. I couldn't believe how easy it was to stay hard for her, and I wanted to play a different way.  
 
  
 
@@ -674,7 +674,7 @@
 
  "He abandoned me to you?" 
 
- "I think he understood what was happening. He doesn't feel like I do. He didn't want to do more than hold you and feel your breasts. He was like a little boy. He doesn't want you sexually. I hate to say it, and can no way understand it. It's Danielle he fantasizes about." Report_Story #4 
+ "I think he understood what was happening. He doesn't feel like I do. He didn't want to do more than hold you and feel your breasts. He was like a little boy. He doesn't want you sexually. I hate to say it, and can no way understand it. It's Danielle he fantasizes about."  
 
  
 
@@ -1018,7 +1018,7 @@
 
  "That would be nice but not likely," I told her. 
 
- "We'll see." She sighed then pushed us both away. "Alright. Enough's enough. Momma's sore over every inch of her body, and I'm starving. Let's all get cleaned up, and not a word about what you bad boys did outside of this room. Understood?" Report_Story #5 
+ "We'll see." She sighed then pushed us both away. "Alright. Enough's enough. Momma's sore over every inch of her body, and I'm starving. Let's all get cleaned up, and not a word about what you bad boys did outside of this room. Understood?"  
 
  
 

@@ -148,7 +148,7 @@
 
  In the chest, were less items than it would have held even it it were a tiny percentage full. The freak comment from Jenna was brought on by seeing a pair of black patent leather, thigh high, spike heeled boots. On top of them was a particularly long, thick, veiny, and realistic black strapon cock. That brought a giggle from both girls. 
 
- Next to that lay a book bound with some kind of strange looking hide. From some kind of animal perhaps. No title or words on the cover save for some strange symbol neither girls recognized from any of their witchcraft books. And just there, on top of the book, two shiny silver chains. Each with a different pendant. A sun, and a moon. Report_Story #2 
+ Next to that lay a book bound with some kind of strange looking hide. From some kind of animal perhaps. No title or words on the cover save for some strange symbol neither girls recognized from any of their witchcraft books. And just there, on top of the book, two shiny silver chains. Each with a different pendant. A sun, and a moon.  
 
  
 
@@ -272,7 +272,7 @@
 
  "It will work if you believe it will Jen," Tabitha told her, as she brushed her auburn hair. "You do know we have to be naked for this though, right?" she asked Jenna. Nodding yes, Jenna smiled and looked at Tabitha with a blush. 
 
- Looking at themselves in the mirror, both girls were prepared. Blonde and auburn hair perfect, heavy goth makeup, and unadorned by any type of jewelry. Holding hands for just a minute, Tabitha and Jenna looked at themselves. Two beautiful young witches, the future looked promising. Armed with a new spell book, and smiling at each other they knew they were prepared for anything. Report_Story #3 
+ Looking at themselves in the mirror, both girls were prepared. Blonde and auburn hair perfect, heavy goth makeup, and unadorned by any type of jewelry. Holding hands for just a minute, Tabitha and Jenna looked at themselves. Two beautiful young witches, the future looked promising. Armed with a new spell book, and smiling at each other they knew they were prepared for anything.  
 
  
 

@@ -204,7 +204,7 @@
 
  Susan wasn't about to let her off that easy and leaned down to look under the door. "Why Beth, you're beating off in a public restroom. I had no idea you were so kinky. Oh my god, look at that puddle between your legs. I guess you seeing Trish naked did make you horny. I didn't know you were a lesbian slut. Well finish up and get back out here. We need to pick out your dress. Oh, and by the way, make sure you clean up your mess and while you're at it use your tongue," she said as she stood to walk out the door. Just as she opened the door, she heard a faint "Sure Susan, anything you want." Susan smiled and rejoined the others to wait for Beth to finish. 
 
- Beth was beyond humiliated. Susan had just caught her naked and masturbating in a public toilet. There was no mistaking what she was doing and what made it worse was she didn't even cum. The only thing she accomplished was make her body even more aroused. Now her face was on the floor as she licked up her juices as she was told. 'What is wrong with me?' she thought, 'I can't refuse any of her orders. What has she done to me? Oh God we're here for 5 more days. I don't know if I can survive this.' Report_Story #1 
+ Beth was beyond humiliated. Susan had just caught her naked and masturbating in a public toilet. There was no mistaking what she was doing and what made it worse was she didn't even cum. The only thing she accomplished was make her body even more aroused. Now her face was on the floor as she licked up her juices as she was told. 'What is wrong with me?' she thought, 'I can't refuse any of her orders. What has she done to me? Oh God we're here for 5 more days. I don't know if I can survive this.'  
 
  
 
@@ -330,7 +330,7 @@
 
  "Oh so now I'm supposed to be nice. I think not. Sit there and suffer SLUT and shut up. I don't want to hear from you till I tell you." 
 
- Beth's body again spasmed and her cunt squirted her fluids down her leg. Never before had she squirted without an orgasm. How would she handle the humiliation if every time she hears slut she squirts. Just the thought caused her to squirt again. She turned to Susan to say something but nothing came out. She could only sit there and take it. Report_Story #1 
+ Beth's body again spasmed and her cunt squirted her fluids down her leg. Never before had she squirted without an orgasm. How would she handle the humiliation if every time she hears slut she squirts. Just the thought caused her to squirt again. She turned to Susan to say something but nothing came out. She could only sit there and take it.  
 
  
 
@@ -450,7 +450,7 @@
 
  Just then the man on her right, turned her head and ejaculated in her mouth. Beth groaned as she now had two loads but only had to suck one cock. Her head was now turned to the left and again she received another load. Before she could swallow the man in front of her shoved his cock down her throat. Beth happily accepted the cock as she would soon have a fourth load in just a few minutes. 
 
- Beth was now on what she hoped was her last cock. She had just swallowed 5 loads in twenty minutes. The man in front of her was breathing hard and she knew he wasn't going to last long. Just as he erupted, Beth's body exploded in a massive orgasm. It was like nothing she had ever experienced before. Her body convulsed, her eyes rolled back in her head as she slumped to the floor convulsing and spewing fluids all around her. The men standing around her could only watch the spectacle as Beth writhed on the floor in her own fluids and cum from the men. Several men were still jacking off and spewed their load on her prone body. The men knew that it was over and quickly vacated as they weren't sure if she was going to be OK and they didn't want to be there to find out. Report_Story #2 
+ Beth was now on what she hoped was her last cock. She had just swallowed 5 loads in twenty minutes. The man in front of her was breathing hard and she knew he wasn't going to last long. Just as he erupted, Beth's body exploded in a massive orgasm. It was like nothing she had ever experienced before. Her body convulsed, her eyes rolled back in her head as she slumped to the floor convulsing and spewing fluids all around her. The men standing around her could only watch the spectacle as Beth writhed on the floor in her own fluids and cum from the men. Several men were still jacking off and spewed their load on her prone body. The men knew that it was over and quickly vacated as they weren't sure if she was going to be OK and they didn't want to be there to find out.  
 
  
 
@@ -484,7 +484,7 @@
 
  Beth cringed at the smell but had no other choice and opened her mouth. 
 
- Ten minutes later, the man tossed her clothes to her and dropped two quarters on the floor. "The pay phone is on the corner. Get dressed and get out," he commanded. Report_Story #1 
+ Ten minutes later, the man tossed her clothes to her and dropped two quarters on the floor. "The pay phone is on the corner. Get dressed and get out," he commanded.  
 
  
 
@@ -638,7 +638,7 @@
 
  "God she's so sloppy I can't feel anything. I want her mouth," He said and pulled out and got in in line for Beth's mouth. Beth moaned as she knew she needed two more fucks to complete the task. 
 
- Beth shook her head and spit out the cock, "Please someone fuck me. I need someone to fuck me now. Please someone fuck my cunt or ass." Beth begged. Report_Story #2 
+ Beth shook her head and spit out the cock, "Please someone fuck me. I need someone to fuck me now. Please someone fuck my cunt or ass." Beth begged.  
 
  
 
@@ -808,7 +808,7 @@
 
  Josh almost choked when he read the mail. He quickly closed it out and smiled wondering what this mysterious Susan was going to do to help them. 
 
- He looked up at his teacher in a different light, thinking about what she would look like naked. Report_Story #3 
+ He looked up at his teacher in a different light, thinking about what she would look like naked.  
 
  
 
@@ -862,7 +862,7 @@
 
  "Yes Susan I understand." 
 
- Seventh period ended and Beth started the last period of the day. Her mind was a jumble of thoughts and her body was screaming to get off. She looked at the students sitting in front of her wondering if it was one of them that had the video. She stood for a minute then assigned a reading assignment and sat down trying to get thru the day. Report_Story #1 
+ Seventh period ended and Beth started the last period of the day. Her mind was a jumble of thoughts and her body was screaming to get off. She looked at the students sitting in front of her wondering if it was one of them that had the video. She stood for a minute then assigned a reading assignment and sat down trying to get thru the day.  
 
  
 
@@ -1014,7 +1014,7 @@
 
  Beth and Trish stayed in their respective rooms all morning. They didn't want to be seen by anyone but their students. Both teachers' dresses were very short, and with no underwear and aroused bodies it was difficult not spotting the dresses with their juices. Finally lunch arrived and Josh watched as Ms Collins rushed down the hall to Ms Martin's room, her tits bouncing around under the thin, short dress. Josh watched from the entrance of the boys' room, keeping just out of sight. This time he'd left a wireless cam on the bookshelf next to his seat. He hoped he aimed it correctly as he wanted to video the teachers in the classroom getting each other off. 
 
- As soon a Trish entered the room, she shut and locked the door. She turned and looked at Beth, already naked and leaning against her desk. Trish reached down and pulled her dress over her head and walked over to her fellow naked teacher. Soon both bodies were wrapped around each other as they worked to satisfy each other's desires. When they dropped to their knees and finally to the floor they didn't even care where they were. Their body's had taken control and the only thing that mattered was the orgasm that sated their cravings. As they continued to pleasure each other Josh sat in a stall in the boys' room stroking his cock watching the women work to satisfy their lust. Just when Josh's cock erupted, his bluetooth erupted with screams as the two naked teachers achieved their goal. Josh smiled as he quickly cleaned up and rushed out of the area. He didn't want to be seen by the teachers when they went to cleanup. Report_Story #2 
+ As soon a Trish entered the room, she shut and locked the door. She turned and looked at Beth, already naked and leaning against her desk. Trish reached down and pulled her dress over her head and walked over to her fellow naked teacher. Soon both bodies were wrapped around each other as they worked to satisfy each other's desires. When they dropped to their knees and finally to the floor they didn't even care where they were. Their body's had taken control and the only thing that mattered was the orgasm that sated their cravings. As they continued to pleasure each other Josh sat in a stall in the boys' room stroking his cock watching the women work to satisfy their lust. Just when Josh's cock erupted, his bluetooth erupted with screams as the two naked teachers achieved their goal. Josh smiled as he quickly cleaned up and rushed out of the area. He didn't want to be seen by the teachers when they went to cleanup.  
 
  
 
@@ -1176,7 +1176,7 @@
 
  The bell rang to end class and the students filed out. A couple of them stopped to ask how she was but Beth waved them off saying she didn't feel well. Right now she knew if this kept up her career was over. There was no way she would not orgasm the next time the egg started. 
 
- The next two periods went quickly and the egg didn't do anything but keep her on edge. It was now fourth period and Josh could hardly wait to get to class. As soon as he walked in he noticed that Ms Martin looked a little frazzled. Her appearance was noticeably disheveled and her hair was frayed. She watched everyone as they walked in and quickly sat down as soon as she closed the door. Josh watched as her ass hit the chair and heard a slight moan escape from her mouth. Normally she would stand and walk around the class while she went over the lesson for the day. But today she assigned a reading assignment and sat at her desk rocking back and forth. Josh wondered if it was the anal plug that was causing her to rock. Josh realized that he was staring and quickly looked down at his book. He remembered that he needed to be invisible till Susan told him differently. He slid his hand down and felt the remote. He wanted to turn it on just to see how she would react. But he knew that he would be the prime suspect if it went off now. Report_Story #3 
+ The next two periods went quickly and the egg didn't do anything but keep her on edge. It was now fourth period and Josh could hardly wait to get to class. As soon as he walked in he noticed that Ms Martin looked a little frazzled. Her appearance was noticeably disheveled and her hair was frayed. She watched everyone as they walked in and quickly sat down as soon as she closed the door. Josh watched as her ass hit the chair and heard a slight moan escape from her mouth. Normally she would stand and walk around the class while she went over the lesson for the day. But today she assigned a reading assignment and sat at her desk rocking back and forth. Josh wondered if it was the anal plug that was causing her to rock. Josh realized that he was staring and quickly looked down at his book. He remembered that he needed to be invisible till Susan told him differently. He slid his hand down and felt the remote. He wanted to turn it on just to see how she would react. But he knew that he would be the prime suspect if it went off now.  
 
  
 
@@ -1208,7 +1208,7 @@
 
  "I think you can call me Linda now, seeing as I now know you intimately. Why in the world are you doing it here? You could go to jail," she said as she pulled Trish over beside Beth. "Do you need the adrenalin rush or something? This is crazy." 
 
- "Please Linda, don't say anything but come over to my apartment after school and we'll explain everything. The last week has been really crazy. But right now we need to do something or we're not going to be able to finish the day," Beth implored as she pulled Trish to her and kissed her deeply. Soon both women were writhing around on the floor working to bring each other off as quickly as possible. Linda stood looking at them, wishing she could join in, but quietly slipped out of the room and back to her own. She looked up at the clock and noticed that she still had over half the period left. She got up and locked her door, unbuttoned her skirt and slid her panties down her legs. Her hand flew to her core as she worked to orgasm, her mind on the teachers in the next room. Report_Story #1 
+ "Please Linda, don't say anything but come over to my apartment after school and we'll explain everything. The last week has been really crazy. But right now we need to do something or we're not going to be able to finish the day," Beth implored as she pulled Trish to her and kissed her deeply. Soon both women were writhing around on the floor working to bring each other off as quickly as possible. Linda stood looking at them, wishing she could join in, but quietly slipped out of the room and back to her own. She looked up at the clock and noticed that she still had over half the period left. She got up and locked her door, unbuttoned her skirt and slid her panties down her legs. Her hand flew to her core as she worked to orgasm, her mind on the teachers in the next room.  
 
  
 
@@ -1362,7 +1362,7 @@
 
  Josh thought about all that was said and with his mind going a mile and minute, thanked Susan and hung up the phone. His next call was to his friend Karen Morris. 
 
- Beth arrived home just after 1:00. She walked into the kitchen and poured herself a drink. The day couldn't have gone worse. They were caught by Linda Jenkins, Miss Smith suspected something, and Thursday wasn't until tomorrow. After downing her whiskey, she poured another and stripped out of her clothes, leaving in the plug and egg. Why, she didn't know, but she couldn't take them out right now. With drink in hand she walked into the bathroom to take a shower and clean up. Twenty minutes later she was clean and walking out in a thin silk robe. After another trip to the kitchen, this time to grab the bottle, she walked to the living room to rest for a bit and figure out what she was going to tell Linda. Report_Story #2 
+ Beth arrived home just after 1:00. She walked into the kitchen and poured herself a drink. The day couldn't have gone worse. They were caught by Linda Jenkins, Miss Smith suspected something, and Thursday wasn't until tomorrow. After downing her whiskey, she poured another and stripped out of her clothes, leaving in the plug and egg. Why, she didn't know, but she couldn't take them out right now. With drink in hand she walked into the bathroom to take a shower and clean up. Twenty minutes later she was clean and walking out in a thin silk robe. After another trip to the kitchen, this time to grab the bottle, she walked to the living room to rest for a bit and figure out what she was going to tell Linda.  
 
  
 
@@ -1550,7 +1550,7 @@
 
  Beth flushed and nodded, but it was Trish that spoke up first. "Susan we need help, our bodies are out of control, we almost got caught yesterday at school and I'm not sure we didn't. We can't function like this. Please I don't know what you did but please help us," she pleaded. 
 
- Susan stared at the screen smiling but just as she was about to put the two teachers under and reprogram them, she noticed a shadow on the wall behind them. "Beth, be a dear and plug in the headset and mic, I need to talk to you privately." Beth opened a drawer and pulled out the ear buds and put them on. "Yes Susan, what do you want?" Report_Story #3 
+ Susan stared at the screen smiling but just as she was about to put the two teachers under and reprogram them, she noticed a shadow on the wall behind them. "Beth, be a dear and plug in the headset and mic, I need to talk to you privately." Beth opened a drawer and pulled out the ear buds and put them on. "Yes Susan, what do you want?"  
 
  
 
@@ -1750,7 +1750,7 @@
 
  Soon Linda was following the two girls down the hall and out the back door closest to the faculty parking lot. 
 
- "Take us to your car, now the real fun begins," Sally crowed. Report_Story #1 
+ "Take us to your car, now the real fun begins," Sally crowed.  
 
  
 
@@ -1910,7 +1910,7 @@
 
  "I know what you need to do." The voice from the back spoke up. "You need to strip and teach our class naked, and if we have any questions you need to come to our desk and answer them. If you don't do that then all my pictures are mind to do with as I please. Now strip!" 
 
- Trish turned even redder than before as she stood in front of her students. She couldn't move till she heard, "NOW" from the back of the room. Her body flinched and her hands went behind her to unzip her dress. When she finished, she slid it down her arms and dropped it to her feet. The entire class gasped as their teacher was now standing naked in front of them panting. Report_Story #2 
+ Trish turned even redder than before as she stood in front of her students. She couldn't move till she heard, "NOW" from the back of the room. Her body flinched and her hands went behind her to unzip her dress. When she finished, she slid it down her arms and dropped it to her feet. The entire class gasped as their teacher was now standing naked in front of them panting.  
 
  
 
@@ -2080,7 +2080,7 @@
 
  Beth's body was exploding but it wasn't because of an orgasm. Being naked, with her clothes nowhere close and another person only a few feet away, the fear, arousal and confusion all ganged up on her mind and basically shut it down. She was only functioning on instinct trying to figure out how to get the picture she needed without getting caught. 
 
- When she heard the person continue down the main aisle, she slipped back towards the stairs. Once there, she removed the auto flash and set the timer and phone to take the pic. Standing by the elevator, nervously waiting, the bell for the elevator dinged just as the camera went off. Beth rushed to the phone and ran for the door; just as she opened it the elevator door opened and out walked four coeds from the local college. Beth ducked into the stairs and headed down. She was past the point of no return and she needed to finish the task. Report_Story #3 
+ When she heard the person continue down the main aisle, she slipped back towards the stairs. Once there, she removed the auto flash and set the timer and phone to take the pic. Standing by the elevator, nervously waiting, the bell for the elevator dinged just as the camera went off. Beth rushed to the phone and ran for the door; just as she opened it the elevator door opened and out walked four coeds from the local college. Beth ducked into the stairs and headed down. She was past the point of no return and she needed to finish the task.  
 
  
 
@@ -2140,7 +2140,7 @@
 
  "I'll leave that up to you. Meet me tomorrow morning at seven at your apartment. I'll know by how you're dressed if you really want to make it up to me," Josh said and ended the call. 
 
- Beth sat in her car crying as her body's reaction to his voice shot straight to her cunt. She was trapped and had no idea of how to get out. Beth opened the door and walked into her house, her mind thinking on what she could wear to make it up to Josh. Report_Story #1 
+ Beth sat in her car crying as her body's reaction to his voice shot straight to her cunt. She was trapped and had no idea of how to get out. Beth opened the door and walked into her house, her mind thinking on what she could wear to make it up to Josh.  
 
  
 
@@ -2346,7 +2346,7 @@
 
  It was now about 4 pm and Josh directed her to the mall. Beth cringed when he told her where to go but had little choice. 
 
- When they arrived Josh told Beth what he expected. "I want you to go into the mall and visit Victoria Secret and buy several thongs, and crotch less panties. Make sure they are very sexy. Josh then opened a bag from the adult store and pulled out a wireless egg. He checked to see if it worked and told her to insert it in her cunt. Report_Story #2 
+ When they arrived Josh told Beth what he expected. "I want you to go into the mall and visit Victoria Secret and buy several thongs, and crotch less panties. Make sure they are very sexy. Josh then opened a bag from the adult store and pulled out a wireless egg. He checked to see if it worked and told her to insert it in her cunt.  
 
  
 
@@ -2492,7 +2492,7 @@
 
  When Karen heard a knock at the door, she peaked out and saw Amber standing there. She opened up the door and invited her in. 
 
- "She's getting a little loud; maybe you should gag her if you keep this up?" Report_Story #3 
+ "She's getting a little loud; maybe you should gag her if you keep this up?"  
 
  
 
@@ -2602,7 +2602,7 @@
 
  Trish's body went rigid as first her mind followed by her core exploded sending out waves after waves of sheer pleasure exciting her every cell. When it started to diminish and she tried to control her body, it started again as Karen shouted, "ORGASM, ORGASM, ORGASM" as Susan continued to pound her ass and electricity pulsed through her core. By the time her body came down, she was standing in a puddle of piss and her legs couldn't support her. Trish's eyes rolled back in her head as she lost consciousness. 
 
- When Trish came to she was on the floor, she looked at her Mistress, smiled and said, "Thank you Mistress thank you." As she fell into a deep sleep her body exhausted. Report_Story #1 
+ When Trish came to she was on the floor, she looked at her Mistress, smiled and said, "Thank you Mistress thank you." As she fell into a deep sleep her body exhausted.  
 
  
 
@@ -2754,7 +2754,7 @@
 
  "This morning I mounted three rings in the beamed ceiling. I think I got the measurements right. I cut some rope and its over on the table. All we need to do is tie their wrists and give them their weapons." 
 
- "All right let's do this." Karen jumped up and grabbed the ropes. Report_Story #2 
+ "All right let's do this." Karen jumped up and grabbed the ropes.  
 
  
 
@@ -2910,7 +2910,7 @@
 
  Trish's mouth opened and a groan that turned into a scream as she orgasmed and collapsed on top of Linda. Trish was finished; she was the top slut tomorrow. 
 
- Beth knew she still had the advantage with Trish still trapping Linda below her, slid forward and shoved her head down past Trish's dripping cunt to Linda's. She inserted one finger and licked her clit. Linda was surprised that Beth could reach her cunt but couldn't move both women. She tried to close her legs but Beth's head blocked her. Beth pulled out her now soaked finger and inserted it into her ass, two other fingers probed her cunt. When she bit down on Linda's clit, the competition was over. Report_Story #3 
+ Beth knew she still had the advantage with Trish still trapping Linda below her, slid forward and shoved her head down past Trish's dripping cunt to Linda's. She inserted one finger and licked her clit. Linda was surprised that Beth could reach her cunt but couldn't move both women. She tried to close her legs but Beth's head blocked her. Beth pulled out her now soaked finger and inserted it into her ass, two other fingers probed her cunt. When she bit down on Linda's clit, the competition was over.  
 
  
 
@@ -3098,7 +3098,7 @@
 
  "Yeah, I still want the orgasms. Is there a way you could leave that in?" 
 
- "Okay, I'll release you from having to follow every command. You can choose to do as ordered or not. You will have to work out the details of your submission to them on your own. I will also leave in a key command that will satisfy your need for satisfaction. However I won't reveal it until you work things out with Sally and Brenda. Will that work?" Report_Story #4 
+ "Okay, I'll release you from having to follow every command. You can choose to do as ordered or not. You will have to work out the details of your submission to them on your own. I will also leave in a key command that will satisfy your need for satisfaction. However I won't reveal it until you work things out with Sally and Brenda. Will that work?"  
 
  
 
@@ -3302,7 +3302,7 @@
 
  Susan was satisfied that Beth and Josh both wanted to continue her programming and reinstalled the commands, plus a few changes. Beth wanted Susan to ease off the arousal commands. Her body no longer got aroused with every word and touch. She didn't need it as her own body craved his presence and didn't need any additional help. The first month or so was tough to keep everything secret and by the end of the school year, Beth was openly wearing a collar every day to school. 
 
- After a month or so, Linda and Brenda decided to stop their relationship. Brenda was going off to college and she met a new guy and having Linda around was difficult to explain. Linda hated to lose Brenda, but understood that it was time. Report_Story #5 
+ After a month or so, Linda and Brenda decided to stop their relationship. Brenda was going off to college and she met a new guy and having Linda around was difficult to explain. Linda hated to lose Brenda, but understood that it was time.  
 
  
 

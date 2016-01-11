@@ -142,7 +142,7 @@
 
  I fell between her stained thighs and fucked into her again. Damn, this girl made me insatiable, I couldn't get enough of her and it seemed she couldn't get enough of me. I ploughed into Adriana like a pile driver, but the harder I fucked her the more she demanded from me. She looked up at me with fire and a challenge in her eyes, her teeth were clenched and the cords on her neck stood out with her frantic efforts to climax again. 
 
- Finally, after using what I assumed to are Polish obscenities, Adriana's whole body stiffened and she grunted massively as her orgasm broke. Of course the sounds of Adriana coming caused me to spurt inside her again. Of course by now I was spent, my spunk could only dribble from my cock and I rolled off my young lover panting and shiny with the sweat of my exertion. Report_Story #2 
+ Finally, after using what I assumed to are Polish obscenities, Adriana's whole body stiffened and she grunted massively as her orgasm broke. Of course the sounds of Adriana coming caused me to spurt inside her again. Of course by now I was spent, my spunk could only dribble from my cock and I rolled off my young lover panting and shiny with the sweat of my exertion.  
 
  
 

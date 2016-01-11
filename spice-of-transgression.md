@@ -236,7 +236,7 @@
 
  As she bobbed along John's shaft, he reached down to thread his fingers into her hair. Her piled up hairdo slipped and cascaded down her bare back and partially obscured her face. It had taken so long to get that hairstyle just right. But it was OK; it had served its purpose. She was getting what she wanted. Or she would be anyway: soon. 
 
- John was leaking copious pre-cum and his dick was quivering as if he was close to losing himself too soon, so she let him slide from her mouth and stood up. John quickly began pulling off his tie and suit jacket. She sat back on the bed to watch. Report_Story #2 
+ John was leaking copious pre-cum and his dick was quivering as if he was close to losing himself too soon, so she let him slide from her mouth and stood up. John quickly began pulling off his tie and suit jacket. She sat back on the bed to watch.  
 
  
 

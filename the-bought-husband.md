@@ -222,7 +222,7 @@
 
  That's when my life began to get hectic. For the next three months there was a phony courtship followed by the announcement of our engagement, followed by a hundred parties given by friends and relatives. There were the wedding plans (according to the society pages of the local papers one of the "social events of the season") to be made, a honeymoon to be planned and through it all Gloria and I were seen almost every evening at some "In" place in town. By the day of our wedding our "bona fides" had been established, the society pages were calling us the perfect couple and friends and relatives positively gushed over how much in love with each other we so obviously were. 
 
- There was one glitch however, and I had to remind Gloria of it and she told me not to worry, it would be taken care of. I told her I wasn't worried because I knew the wedding wouldn't go off until it was taken care of. Two days later she handed me confirmation of deposit to my account in the Cayman Islands. Report_Story #2 
+ There was one glitch however, and I had to remind Gloria of it and she told me not to worry, it would be taken care of. I told her I wasn't worried because I knew the wedding wouldn't go off until it was taken care of. Two days later she handed me confirmation of deposit to my account in the Cayman Islands.  
 
  
 
@@ -332,7 +332,7 @@
 
  We didn't get checked out until two in the afternoon, which totally screwed up Gloria's carefully planned schedule. We missed our flight to St. Thomas and Gloria had to make a dozen phone calls to reschedule things. Since the next flight for the Islands didn't leave until the next day we drove to Gloria's house where I spent my first night in the room that was to be mine for the better part of the next five years. I heard Gloria on the phone trying to reach Jumal who, since he had adhered to Gloria's schedule, was already in St. Thomas. She never did reach him and she slammed the phone down in a fit of rage. I smiled to myself and thought, "True love never does run smooth." Actually, I hoped the asshole went SCUBA diving and a shark got him and with that pleasant thought on my mind I put my head down on the pillow and fell almost immediately to sleep. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -506,7 +506,7 @@
 
  And then one day I found out that my feelings were justified. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -684,7 +684,7 @@
 
  "Frankly Mr. Stanton, you will have to forgive my saying that I don't believe you and if I don't believe you how can you expect the other members of this court to believe you?" 
 
- "Neither you or any other member of this court knows the reason for my wife's infidelity. Mr. Washington was blackmailing her and I expect that Mr. Moser and his foundation had a hand in it. I won't say that things are perfect between us right now, but I expect that we will work things out." Report_Story #2 
+ "Neither you or any other member of this court knows the reason for my wife's infidelity. Mr. Washington was blackmailing her and I expect that Mr. Moser and his foundation had a hand in it. I won't say that things are perfect between us right now, but I expect that we will work things out."  
 
  
 

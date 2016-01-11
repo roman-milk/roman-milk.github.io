@@ -182,7 +182,7 @@
 
  I turned a bit, and slid one leg over her back. I shifted and put my back against the rear wall, spreading my legs and bending my knees. My head was pressed against the ceiling, and I had to slide my hips forward about a foot just to fit. I was wedged in good and tight, but I was resting against the three walls, and my feet were pressed against the fourth. I was moving slowly, distracted by the smooth, sexy ass about a foot away from my face. This was a better view of a girl's privates then I'd ever seen in my life. Jessica liked the dark. 
 
- Report_Story #2 
+  
 
  
 
@@ -366,7 +366,7 @@
 
  I had just fucked my best friend. Even after she asked me not to. I had fucked her over and over again, like an animal out of control. What was I thinking? I was no better than Rory. Fuck. 
 
- I didn't know how badly things were messed up between us. Jan looked quiet and pensive as she covered up her sweet body, turning away from me, giving me one more long look at her oh-so-incredible ass. I wanted to say something. Tell her how special she was. How it wasn't an accident, I'd wanted her for years. I couldn't help myself, I would explain, she was too hot, too naked, too available. Fuck. I didn't know what to say. I had to say something. Had I ruined everything? Report_Story #3 
+ I didn't know how badly things were messed up between us. Jan looked quiet and pensive as she covered up her sweet body, turning away from me, giving me one more long look at her oh-so-incredible ass. I wanted to say something. Tell her how special she was. How it wasn't an accident, I'd wanted her for years. I couldn't help myself, I would explain, she was too hot, too naked, too available. Fuck. I didn't know what to say. I had to say something. Had I ruined everything?  
 
  
 

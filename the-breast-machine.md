@@ -242,7 +242,7 @@
 
  He used his muscular legs to thrust into her, faster and faster, under her desperate urging. She kicked with her heels digging in to him, spurring him on. He felt her go limp and clasp her legs around him, holding on tight. 
 
- The desperation of her movements surprised him, so much so, he didn't cum. This was not the usual long build up, with lots of persuasion, followed by a slow methodical ride. He didn't even think she was aware it was him. She just needed a cock, to make her cum. Report_Story #2 
+ The desperation of her movements surprised him, so much so, he didn't cum. This was not the usual long build up, with lots of persuasion, followed by a slow methodical ride. He didn't even think she was aware it was him. She just needed a cock, to make her cum.  
 
  
 
@@ -284,7 +284,7 @@
 
  It had been the only way out, making him take them both. Remembering the second orgasm left her feeling bad. Thinking how good it was, left her feeling naughty, and she smiled. 
 
- He would have to be woken up before Sabrina, and seriously talked to. He was a sensible young man, so maybe it wouldn't be too awful. Report_Story #1 
+ He would have to be woken up before Sabrina, and seriously talked to. He was a sensible young man, so maybe it wouldn't be too awful.  
 
  
 
@@ -538,7 +538,7 @@
 
  The arousal was from this morning, obviously. Having his penis inside without an orgasm, must be the reason. On top of that was the naughty session last night. Of course she was on edge. 
 
- Jane tried to concentrate on something else. Looking on the internet for an illness to keep Sabrina off school would help. Report_Story #2 
+ Jane tried to concentrate on something else. Looking on the internet for an illness to keep Sabrina off school would help.  
 
  
 
@@ -610,7 +610,7 @@
 
  He wondered if she was just being over motherly with him. It could, of course, be down to having sex last night, and this morning. After that it would be hypocrisy to remain distant. He thought about the devices influence on her, and if it was still in effect. 
 
- He knocked lightly on Sabrina's door, hoping she had fallen asleep. Report_Story #1 
+ He knocked lightly on Sabrina's door, hoping she had fallen asleep.  
 
  
 
@@ -876,7 +876,7 @@
 
  "We'll have to work something out. I mean, err, a rota," she said, and her voice wavered. She was trying to sound matter of fact over a very trying subject. They had to organise something, or sooner or later one of them would be left out. What might happen then was too awful to think about. 
 
- "It's going to be difficult for all of us. Maybe more so for you John," Jane suggested. Report_Story #2 
+ "It's going to be difficult for all of us. Maybe more so for you John," Jane suggested.  
 
  
 
@@ -910,7 +910,7 @@
 
  John felt Jane squeezing his hand, and Sabrina's leg rubbing his. Jane was intently looking across the table at him. They still hadn't dressed yet, and hadn't fastened the gowns very well. He wondered if he should make a stand, and organise them. What could he do, except let them use his body. 
 
- Sabrina's hand crept into his lap. She was smiling at her mother, who was just sitting there making eyes at him. The weekend was going to be interesting. He wondered if he would survive a whole week. Report_Story #1 
+ Sabrina's hand crept into his lap. She was smiling at her mother, who was just sitting there making eyes at him. The weekend was going to be interesting. He wondered if he would survive a whole week.  
 
  
 
@@ -1118,7 +1118,7 @@
 
  "Over here!" John demanded. He crooked a finger at Jane, while patting his lap. 
 
- At first her feet didn't move, then she wobbled toward him. She said nothing. Her face changed from gloating over her daughters spanking, to dismay. Still nothing was said as she bent over his lap. It was more difficult pulling her panties down, for they were the same size over a bigger ass. Report_Story #2 
+ At first her feet didn't move, then she wobbled toward him. She said nothing. Her face changed from gloating over her daughters spanking, to dismay. Still nothing was said as she bent over his lap. It was more difficult pulling her panties down, for they were the same size over a bigger ass.  
 
  
 
@@ -1184,7 +1184,7 @@
 
  Jane's mind was in a whirl, preventing her from sleeping. She heard John and Sabrina making their way from the lounge. They were giggling together, so Sabrina wasn't angry over what happened. When the door slammed shut, she knew they'd both retired to Sabrina's room. 
 
- A tinge of jealousy stroked her mind. She wondered what they were getting up to in there. Sabrina had better not tire him out for tomorrow. Jane pressed a pillow between her legs, and curled up with another pillow over her head. Eventually she fell into an agitated sleep. Report_Story #1 
+ A tinge of jealousy stroked her mind. She wondered what they were getting up to in there. Sabrina had better not tire him out for tomorrow. Jane pressed a pillow between her legs, and curled up with another pillow over her head. Eventually she fell into an agitated sleep.  
 
  
 
@@ -1424,7 +1424,7 @@
 
  This time he firmly pushed home into Jane, to give her a slower more fulfilling fucking. She lifted her bottom with an arched back, to receive his cock at a more satisfying angle. With every slow stroke it sawed across her clit. She moaned quietly with every deep penetration. 
 
- Sabrina whispered a sound of satisfaction along with her mother. His cock was sliding over her lips every time he pressed home into Jane. The intensity of her inner muscles gripping and rippling around his cock couldn't be refused. He spurted his load into her. With an almighty effort he pulled free from a powerful grip. As he pushed into Sabrina she received the last of his sperm. A final grunt, and a heave of his legs shot a string of cum deep inside her. Report_Story #2 
+ Sabrina whispered a sound of satisfaction along with her mother. His cock was sliding over her lips every time he pressed home into Jane. The intensity of her inner muscles gripping and rippling around his cock couldn't be refused. He spurted his load into her. With an almighty effort he pulled free from a powerful grip. As he pushed into Sabrina she received the last of his sperm. A final grunt, and a heave of his legs shot a string of cum deep inside her.  
 
  
 
@@ -1556,7 +1556,7 @@
 
  He kissed her forehead, then her eyes. He left her with a light kiss on the lips, then slid off the bed. With dreamy half closed eyes she admired his cute bottom and muscular legs. He was leaving her in a state of bliss. She didn't want to think about him leaving her for her daughter. A nasty twinge of jealousy stung her. 
 
- He turned toward her and smiled over his shoulder, to renew the joy she felt. Nothing mattered except that she was his. She was his lover and was there to satisfy him. She rolled into a ball, hugging a pillow, squeezing it tight as though it was him. A pleasant smile lit her lips as she fell asleep. Report_Story #1 
+ He turned toward her and smiled over his shoulder, to renew the joy she felt. Nothing mattered except that she was his. She was his lover and was there to satisfy him. She rolled into a ball, hugging a pillow, squeezing it tight as though it was him. A pleasant smile lit her lips as she fell asleep.  
 
  
 
@@ -1882,7 +1882,7 @@
 
  *** 
 
- Two days passed when the phone rang, and he answered it to find another woman making demands upon him. Report_Story #2 
+ Two days passed when the phone rang, and he answered it to find another woman making demands upon him.  
 
  
 
@@ -2108,7 +2108,7 @@
 
  She weakly smiled at him, and nodded her head. 'Thank you, John,' she smiled more brightly. 
 
- He wrapped his arms around her and pulled her head to his chest. She didn't fight him off, instead she nestled in his arms for comfort. Report_Story #1 
+ He wrapped his arms around her and pulled her head to his chest. She didn't fight him off, instead she nestled in his arms for comfort.  
 
  
 
@@ -2476,7 +2476,7 @@
 
  'Yep. You do an OK job, so I'll keep you around. Don't drop your standards though, or you'll be out,' she said, over her shoulder. 
 
- In the shower she thought over what happened since arriving home. She hadn't had sex for a long time, and now he'd helped her to so many orgasms, she felt addicted to him. There was no way she was going to let him know that. He was nice, as well as being handsome, though a bit young for her. He knew what to do with his dick, which made a change. Damn! He could use his hands too! Perhaps she would keep him after all. Report_Story #2 
+ In the shower she thought over what happened since arriving home. She hadn't had sex for a long time, and now he'd helped her to so many orgasms, she felt addicted to him. There was no way she was going to let him know that. He was nice, as well as being handsome, though a bit young for her. He knew what to do with his dick, which made a change. Damn! He could use his hands too! Perhaps she would keep him after all.  
 
  
 

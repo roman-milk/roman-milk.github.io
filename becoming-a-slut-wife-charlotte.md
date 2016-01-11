@@ -150,7 +150,7 @@
 
  Before Harry or Dave could say anything to that Elsa came in and said that we needed to get going so Sue could get home. Dave drove us to the Starlight and as I was getting out of the car Dave handed me a piece of paper with a phone number on it. I should have wadded it up and handed it back to him, but I didn't. I slipped it into my pocket fully meaning to toss it in the trash when I got the chance. 
 
- Sue and I followed Elsa home and while Sue took a shower I called my husband (so he could see from caller ID that I was at Elsa's) and apologized for not calling him and letting him know that I got too wasted to drive home and had crashed at Elsa's. He told me that he figured that that is what happened and I told him I would suck down a gallon of black coffee and then head home. Sue was out of the shower by then and she called her hubby and gave him the same story that I gave Steve and while they were talking I hit Elsa's shower. Report_Story #2 
+ Sue and I followed Elsa home and while Sue took a shower I called my husband (so he could see from caller ID that I was at Elsa's) and apologized for not calling him and letting him know that I got too wasted to drive home and had crashed at Elsa's. He told me that he figured that that is what happened and I told him I would suck down a gallon of black coffee and then head home. Sue was out of the shower by then and she called her hubby and gave him the same story that I gave Steve and while they were talking I hit Elsa's shower.  
 
  
 

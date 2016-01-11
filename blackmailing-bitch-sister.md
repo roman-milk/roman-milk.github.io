@@ -282,7 +282,7 @@
 
  "Understandable." 
 
- She gave my cock one last squeeze. "Oh yes, I'll be gone for the rest of the weekend, going to the country Jamboree with Mrs. Waters and Ms. Houston." Report_Story #2 
+ She gave my cock one last squeeze. "Oh yes, I'll be gone for the rest of the weekend, going to the country Jamboree with Mrs. Waters and Ms. Houston."  
 
  
 

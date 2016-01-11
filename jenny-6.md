@@ -200,7 +200,7 @@
 
  Unable to look down at herself before him, she fidgeted and discovered what it was. She was wearing stockings and suspenders! It was a surprise, for she didn't remember even buying them, let alone putting them on. Nervously she adjusted the top of the dress then quickly brought her hand away, after realizing the hand had been fondling a breast. 
 
- Feeling faint she leant against a worktop. Suddenly she stood straight up, away from the worktop. She had just discovered her bare bottom! The usual sensible panties had been replaced by a thong. What the hell was going on here? She would have to get back to the bedroom and change. Report_Story #2 
+ Feeling faint she leant against a worktop. Suddenly she stood straight up, away from the worktop. She had just discovered her bare bottom! The usual sensible panties had been replaced by a thong. What the hell was going on here? She would have to get back to the bedroom and change.  
 
  
 
@@ -414,7 +414,7 @@
 
  He avoided the searching movements of her swiveling hips, pinning her shoulders down with his weight and her torso with his fat stomach. "Ask me nicely," he demanded. 
 
- "No! Don't make me wait! Oh! Please, please fuck me, please," she cried out. She felt his cock nudge her lips. "No! I can't do this, its wrong, stop please, no!" she cried out in fear. Report_Story #3 
+ "No! Don't make me wait! Oh! Please, please fuck me, please," she cried out. She felt his cock nudge her lips. "No! I can't do this, its wrong, stop please, no!" she cried out in fear.  
 
  
 

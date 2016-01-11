@@ -282,7 +282,7 @@
 
  *********************** 
 
- We meet with both attorneys. Sarah wants the house and alimony. We counter with a fifty fifty split, sell the house and no alimony. Her attorney advises her to accept it. He tells her if it goes before a judge it will be split that way so there is no sense asking for more. I give it one last try to explain what happened. I don't do it for a possible reconciliation. I just want her to know how she fucked up. She calls me a liar and a home wrecking cheater. I give that idea up and drive home. Report_Story #2 
+ We meet with both attorneys. Sarah wants the house and alimony. We counter with a fifty fifty split, sell the house and no alimony. Her attorney advises her to accept it. He tells her if it goes before a judge it will be split that way so there is no sense asking for more. I give it one last try to explain what happened. I don't do it for a possible reconciliation. I just want her to know how she fucked up. She calls me a liar and a home wrecking cheater. I give that idea up and drive home.  
 
  
 
@@ -584,7 +584,7 @@
 
  "Just wondering about what baggage you're packing around. We all have some, you know." 
 
- "Yeah, I have a little. I had a bad divorce a while back, but I'm pretty much over it. It's just a bad memory now. Report_Story #3 
+ "Yeah, I have a little. I had a bad divorce a while back, but I'm pretty much over it. It's just a bad memory now.  
 
  
 

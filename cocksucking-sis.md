@@ -122,7 +122,7 @@
 
  "If you want that little nerdy co-ed slut to blow you, get to the back of the line." 
 
- To my left was a line of six or seven guys waiting for their turn with my sister. Without even thinking, I went to the back of the line. When my gaze returned to my sister, she was sucking a new cock and the chalkboard now read 13. Unlike her teasing and pleasing with me last night at the glory hole, tonight she was sucking with reckless passion, like she was manufacturing blowjobs. Guy 14 blew his wad in a couple of minutes and I moved closer to the front of the line. Report_Story #2 
+ To my left was a line of six or seven guys waiting for their turn with my sister. Without even thinking, I went to the back of the line. When my gaze returned to my sister, she was sucking a new cock and the chalkboard now read 13. Unlike her teasing and pleasing with me last night at the glory hole, tonight she was sucking with reckless passion, like she was manufacturing blowjobs. Guy 14 blew his wad in a couple of minutes and I moved closer to the front of the line.  
 
  
 
@@ -164,7 +164,7 @@
 
  As I filled the redhead's pussy with my cum, a plan popped into my head. A plan to make my sister completely subservient to me. I kept pumping into the redheaded co-ed, smiling as I envisioned my sister being the one on all fours. Very soon I would have my very own personal toy, my very own...cocksucking sister. 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -372,7 +372,7 @@
 
  End of Part 2... 
 
- Coming later in 2012...later that night! Report_Story #1 
+ Coming later in 2012...later that night!  
 
  
 
@@ -552,7 +552,7 @@
 
  Lilly frantically got up and started getting dressed. 
 
- I suggested, "Make sure you fix your hair or people will think you disappeared for a quickie." Report_Story #2 
+ I suggested, "Make sure you fix your hair or people will think you disappeared for a quickie."  
 
  
 
@@ -596,7 +596,7 @@
 
  A slow song played, Air Supply's 'Making Love Out of Nothing At All', and she pulled herself into me and asked the question every son dreams his mother will ask him at one point in their lives, "So Anthony, do you want to fuck Mommy?" 
 
- The end Report_Story #1 
+ The end  
 
  
 
@@ -952,7 +952,7 @@
 
  Instantly I wondered if cocksucking was a DNA trait as mother and daughter had a similar style of pleasing a man with their whole mouth including their tongue. Many girls think giving head is just a back and forth bob, which usually gets the job done, but a true cocksucker uses her lips, mouth, hands and saliva to create an onslaught of sensations that has the man's knees bucking. Mom's was that kind of blow job and so much more. 
 
- I looked at my sister who was ferociously rubbing her clit as dad slammed into her from behind. Unlike my one time making love to her, dad was fucking her. Lilly's body was bouncing like a rag doll with each firm deep thrust dad made into her. Lilly meanwhile was clearly in sexual ecstasy as she moaned and begged for more. Report_Story #2 
+ I looked at my sister who was ferociously rubbing her clit as dad slammed into her from behind. Unlike my one time making love to her, dad was fucking her. Lilly's body was bouncing like a rag doll with each firm deep thrust dad made into her. Lilly meanwhile was clearly in sexual ecstasy as she moaned and begged for more.  
 
  
 

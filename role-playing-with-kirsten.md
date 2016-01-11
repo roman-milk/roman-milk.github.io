@@ -220,7 +220,7 @@
 
  "About time you got here. My boyfriend just left and I'm still horny. Get over here and eat me. Do a good job and I'll give you sloppy seconds." 
 
- What the fuck I thought, I'd better do it. After I get done unloading on her about what she pulled on me with Bev I may not get any for a while so I'd best get it now. As soon as I slid my tongue into Kirsten's pussy my taste buds told me that something was not right. It wasn't KY I was tasting, it was cum and it damned sure wasn't mine. Kirsten had douched when we woke up that morning and she was in the shower when I left for work. She would have had to have done a pretty shitty job of cleaning herself not to get my stuff from the night before out of her. My wife had been fucked by another man and not too long ago from the look of things. Report_Story #2 
+ What the fuck I thought, I'd better do it. After I get done unloading on her about what she pulled on me with Bev I may not get any for a while so I'd best get it now. As soon as I slid my tongue into Kirsten's pussy my taste buds told me that something was not right. It wasn't KY I was tasting, it was cum and it damned sure wasn't mine. Kirsten had douched when we woke up that morning and she was in the shower when I left for work. She would have had to have done a pretty shitty job of cleaning herself not to get my stuff from the night before out of her. My wife had been fucked by another man and not too long ago from the look of things.  
 
  
 

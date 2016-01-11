@@ -220,7 +220,7 @@
 
  "Then why did you keep fucking them after you got pregnant?" 
 
- "Because I need to taper off with them. If I just dropped them they might have come looking for me to find out why and I couldn't have that. I couldn't let them find out that I was married and then have them interfere in our lives." Report_Story #2 
+ "Because I need to taper off with them. If I just dropped them they might have come looking for me to find out why and I couldn't have that. I couldn't let them find out that I was married and then have them interfere in our lives."  
 
  
 
@@ -508,7 +508,7 @@
 
  "No promises Tracy. It will all depend on my believing what you tell me and right now you have put me in a position where I take everything I hear from you with a grain of salt." 
 
- She gave me a long look and then said, "It started just like I told you. When I found out you were sterile I knew that you had hidden it from me because you were afraid that I'd leave you for some one who could give me babies. I thought that if you loved me that much you might accept a child that wasn't yours to keep me. I gambled that you would, but if you wouldn't then we would get a divorce and get on with our lives. It was a huge gamble on my part because I love you and didn't want to lose you, but I wanted my babies. Report_Story #3 
+ She gave me a long look and then said, "It started just like I told you. When I found out you were sterile I knew that you had hidden it from me because you were afraid that I'd leave you for some one who could give me babies. I thought that if you loved me that much you might accept a child that wasn't yours to keep me. I gambled that you would, but if you wouldn't then we would get a divorce and get on with our lives. It was a huge gamble on my part because I love you and didn't want to lose you, but I wanted my babies.  
 
  
 
@@ -688,7 +688,7 @@
 
  I worked my shift and then, because Thursday was one of Tracy's days off I went back to my room and slept until three. When I got up I took the car in for an oil change and tire rotation. 
 
- I had dinner at the restaurant and made a date with Judy to meet at O'Malley's when she got off work. We had a few drinks and talked. I found out that she had been married, but had lost her husband in Iraq. She had been pregnant at the time and the shock at hearing that he had been killed had caused a miscarriage. There were no men currently in her life: Report_Story #4 
+ I had dinner at the restaurant and made a date with Judy to meet at O'Malley's when she got off work. We had a few drinks and talked. I found out that she had been married, but had lost her husband in Iraq. She had been pregnant at the time and the shock at hearing that he had been killed had caused a miscarriage. There were no men currently in her life:  
 
  
 
@@ -972,7 +972,7 @@
 
  "No we can't Tracy. Not after me finding out that you are a fucking punch board for a bunch of guys and have been since high school." 
 
- "I guess I miscalculated and should have brought you in back then, but I loved you and I didn't want to lose you and I thought that if I tried to get you to join in and you wouldn't I'd lose you. I couldn't take the chance Walt. I knew even in high school that you and I were meant for each other. I just couldn't lose you baby. I just couldn't." Report_Story #5 
+ "I guess I miscalculated and should have brought you in back then, but I loved you and I didn't want to lose you and I thought that if I tried to get you to join in and you wouldn't I'd lose you. I couldn't take the chance Walt. I knew even in high school that you and I were meant for each other. I just couldn't lose you baby. I just couldn't."  
 
  
 

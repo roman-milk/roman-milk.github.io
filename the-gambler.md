@@ -78,7 +78,7 @@
 
  +++++++++++++++++++++++++++++++++++++++++++++++ 
 
- Susan looked at the wall clock - she had just enough time to get to the Piggly- Wiggly and still get home before Brian. Christ, I hope he doesn't want sex tonight; he'd be sure to notice how loose I am. As she put Andy in his crib she thought about how fortunate she had been. She had more than enough money to buy groceries and still have enough to take to the track the next day. There were three horses running that she knew were winners. If the odds were right she would win more than enough to pay off her bookie and still have lots left over. She headed for the kitchen to get her grocery list. Report_Story #1 
+ Susan looked at the wall clock - she had just enough time to get to the Piggly- Wiggly and still get home before Brian. Christ, I hope he doesn't want sex tonight; he'd be sure to notice how loose I am. As she put Andy in his crib she thought about how fortunate she had been. She had more than enough money to buy groceries and still have enough to take to the track the next day. There were three horses running that she knew were winners. If the odds were right she would win more than enough to pay off her bookie and still have lots left over. She headed for the kitchen to get her grocery list.  
 
  
 
@@ -162,7 +162,7 @@
 
  As Susan changed the bed sheets for the third time in as many days, she thought about what Diamano had said as he was leaving, "I'll be back tomorrow at nine in the morning. Either have the money or a plan on how you intend to pay off the debt within the next two weeks." 
 
- As Susan fluffed the pillows she wondered where in the hell she could come up with two grand on short notice and then her train of thought was interrupted as little Andy began to cry. Report_Story #1 
+ As Susan fluffed the pillows she wondered where in the hell she could come up with two grand on short notice and then her train of thought was interrupted as little Andy began to cry.  
 
  
 
@@ -200,7 +200,7 @@
 
  She also wondered about the curious conversation she had had with the woman Gloria as Diamano and his crew were leaving. Gloria had hung back a little and as soon as Diamano and Henry were out of earshot she'd said, "Make sure you meet that schedule honey. They don't want you to and they are hoping that you don't. They have plans for you and you're not going to like them" and then she'd hurried of to catch up with Diamano. 
 
- They had plans for her? What possibly could that mean? Report_Story #1 
+ They had plans for her? What possibly could that mean?  
 
  
 
@@ -236,7 +236,7 @@
 
  Andy smiled at her and said, "I'm going to take it in trade." 
 
- Susan dropped the envelope in her purse and turned to him. She leaned forward and kissed him, "Any time lover. Just call and I'm yours." Report_Story #1 
+ Susan dropped the envelope in her purse and turned to him. She leaned forward and kissed him, "Any time lover. Just call and I'm yours."  
 
  
 
@@ -290,7 +290,7 @@
 
  She signed on the line he indicated and gave him back the form. He handed her another piece of paper; "This is a phone number where you can reach me. You did okay today. With some work and a little direction you could do even better. The usual fee for what you did today is $3000. Not bad for less than six hours work. Then of course, there is the cast party, which you seemed to enjoy. Think about it." 
 
- Susan wadded up the piece of paper in her hand and was about to throw it on the floor, but she hesitated at the last moment and put it in her purse. She picked up little Andy and looked at her watch. She had just enough time to get home and fix Brian his dinner. Report_Story #1 
+ Susan wadded up the piece of paper in her hand and was about to throw it on the floor, but she hesitated at the last moment and put it in her purse. She picked up little Andy and looked at her watch. She had just enough time to get home and fix Brian his dinner.  
 
  
 

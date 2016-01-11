@@ -242,7 +242,7 @@
 
  I sat there and stared at her and waited for her to go on. 
 
- "I was wrong Rob. You were absolutely right. I was stupid and I did go of and behave like a bull in a china shop, but I was hurt Rob - really hurt - and I wasn't thinking straight. I took up with Hal to get even with you. I only meant to see him for a while and then rub your nose in it, tell you we were now even and then ask you if you wanted to try and make the marriage work or call it quits. I stupidly listened to Hal when he said the thing to do was file for divorce. That way you would have to crawl to me and beg for forgiveness and I would be in the driver's seat without you ever having to know about Hal. It didn't work out that way. I found out later that was Hal's plan all along. He wanted to marry me and he figured the divorce would drive you away. He was right - it did." Report_Story #2 
+ "I was wrong Rob. You were absolutely right. I was stupid and I did go of and behave like a bull in a china shop, but I was hurt Rob - really hurt - and I wasn't thinking straight. I took up with Hal to get even with you. I only meant to see him for a while and then rub your nose in it, tell you we were now even and then ask you if you wanted to try and make the marriage work or call it quits. I stupidly listened to Hal when he said the thing to do was file for divorce. That way you would have to crawl to me and beg for forgiveness and I would be in the driver's seat without you ever having to know about Hal. It didn't work out that way. I found out later that was Hal's plan all along. He wanted to marry me and he figured the divorce would drive you away. He was right - it did."  
 
  
 

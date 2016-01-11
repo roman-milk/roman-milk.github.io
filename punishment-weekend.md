@@ -98,7 +98,7 @@
 
  'Daddy its Aunt Babs' Beth called out to me. 
 
- 'Tell her to come into the living room' I called out to Beth. Report_Story #1 
+ 'Tell her to come into the living room' I called out to Beth.  
 
  
 
@@ -266,7 +266,7 @@
 
  I decided to let Molly regain her composure and to deal with Barbara in the same manner. I pulled her upright; Molly could do nothing but stand trembling and crying doing a funny little girl dance from one foot to another. I assisted her in stumbling over to the corner: I placed her into the corner with her nose buried against the wall 
 
- 'Young Lady you are to stand in that corner, while I deal with Babs, keep that naughty bare bottom on full display! No rubbing or touching your red bottom,' I gave her a hard hand spank to drive my point home. Report_Story #1 
+ 'Young Lady you are to stand in that corner, while I deal with Babs, keep that naughty bare bottom on full display! No rubbing or touching your red bottom,' I gave her a hard hand spank to drive my point home.  
 
  
 
@@ -458,13 +458,13 @@
 
  I continued to spank here thoroughly up one side down the other, from the top of her buttock to the upper thigh. She blubbered like a six year old not a 46 year old mother of Three. 
 
- 'You also are grounded for the weekend, you will wear a blouse and you will also continue to wear your panty-girdle and nylons this weekend. If you act up I will 'pin you' again. No supper tonight and you are going to be sent to bed early the entire weekend. Next while we are eating supper you can sit on the kitchen stool in the corner with your panties and panty-girdle down and your bare bottom on the hard wooden seat. Do you understand me?' I again whacked her with my hand this time on her right buttock near the thigh. Report_Story #2 
+ 'You also are grounded for the weekend, you will wear a blouse and you will also continue to wear your panty-girdle and nylons this weekend. If you act up I will 'pin you' again. No supper tonight and you are going to be sent to bed early the entire weekend. Next while we are eating supper you can sit on the kitchen stool in the corner with your panties and panty-girdle down and your bare bottom on the hard wooden seat. Do you understand me?' I again whacked her with my hand this time on her right buttock near the thigh.  
 
  
 
  ****** Punishment Weekend Ch. 03 ****** bytom6432© 'Y-yesss S-irrrr OOOOwwww Oooouuuccch!' She cried. 
 
- 'Good, now get yourself into the kitchen and do as you are told,' Barbara nodded her head, got off my lap and made her way to the kitchen rubbing her bottom, tears trickling down her cheeks, her panties and girdle still at her knees making it difficult to walk. Report_Story #1 
+ 'Good, now get yourself into the kitchen and do as you are told,' Barbara nodded her head, got off my lap and made her way to the kitchen rubbing her bottom, tears trickling down her cheeks, her panties and girdle still at her knees making it difficult to walk.  
 
  
 
@@ -554,7 +554,7 @@
 
  'Yes Sir,' They answered in harmony. I left them to complete their chores and walked into the living room carrying the unopened grades from college. 
 
- When I entered the living room, there were 4 mature young ladies standing at attention facing the couch, with their jean's puddled at their ankles and their bikini panties on display. Their panties were very skimpy and tight and you could see eight bottom cheeks peeking out of the bottom edges. Karen and Kathleen the oldest at 23, of the four, had on white and pink nylon panties respectively. Beth, who was 21, had on a pair of nylon flowered undies and Annie the youngest at 19 had on a bright yellow thong. Report_Story #1 
+ When I entered the living room, there were 4 mature young ladies standing at attention facing the couch, with their jean's puddled at their ankles and their bikini panties on display. Their panties were very skimpy and tight and you could see eight bottom cheeks peeking out of the bottom edges. Karen and Kathleen the oldest at 23, of the four, had on white and pink nylon panties respectively. Beth, who was 21, had on a pair of nylon flowered undies and Annie the youngest at 19 had on a bright yellow thong.  
 
  
 

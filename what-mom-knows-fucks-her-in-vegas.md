@@ -354,7 +354,7 @@
 
  "I bet you say that to all the eighteen year olds you bring to Vegas," I teased. 
 
- "Every single one," she played along as my tongue began licking. As much as I loved fucking Miranda and mom, I really loved the sweet intimacy that came from licking pussy. I love hearing their breathing slowly escalate, I love hearing their moans increase in volume because of me. Report_Story #2 
+ "Every single one," she played along as my tongue began licking. As much as I loved fucking Miranda and mom, I really loved the sweet intimacy that came from licking pussy. I love hearing their breathing slowly escalate, I love hearing their moans increase in volume because of me.  
 
  
 
@@ -724,7 +724,7 @@
 
  "Fucking awesome," Miranda said. 
 
- "Miranda I thought it would be fun to have her have your pussy juice on her lips as she walked down the aisle and kisses her husband for the first time," Ellie explained. Report_Story #3 
+ "Miranda I thought it would be fun to have her have your pussy juice on her lips as she walked down the aisle and kisses her husband for the first time," Ellie explained.  
 
  
 

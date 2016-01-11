@@ -212,7 +212,7 @@
 
  "No, she didn't spend the night here. She called me about eleven and told me that she was about to go home with a really sexy guy and she asked me to cover for her. I'm sorry sugar, but I told you to tell her." 
 
- I loved Lacy and I was crazy about her, but that didn't make me stupid. I didn't say anything to her at that time and let her think that Merrily had backed her play and I waited for it to happen again. A week later I came home to an empty house and when Lacy came home at three in the morning I was waiting for her. I caught her coming in the front door and I drug her over to the couch and pushed her down on it. I pulled her panties off and stuck a couple of fingers in her cunt. It was loose and very wet and then I looked at the gusset of her panties and found that they were also soaking wet. I held my fingers up to my nose and smelled cum. I stood up and looked down at her as she stared defiantly up at me. Report_Story #2 
+ I loved Lacy and I was crazy about her, but that didn't make me stupid. I didn't say anything to her at that time and let her think that Merrily had backed her play and I waited for it to happen again. A week later I came home to an empty house and when Lacy came home at three in the morning I was waiting for her. I caught her coming in the front door and I drug her over to the couch and pushed her down on it. I pulled her panties off and stuck a couple of fingers in her cunt. It was loose and very wet and then I looked at the gusset of her panties and found that they were also soaking wet. I held my fingers up to my nose and smelled cum. I stood up and looked down at her as she stared defiantly up at me.  
 
  
 

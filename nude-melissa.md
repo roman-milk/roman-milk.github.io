@@ -166,7 +166,7 @@
 
  "Have you been smoking?" Eammon greeted Julia, his lip curling after he sniffed the air and eyed the flattened dog-end. He shifted his attention to Ben, eyes narrowing as he took in the man's bare torso and a flicker of jealousy soured in his guts. 
 
- While Eammon's mind dealt with the repugnant possibility that his daughter found the tanned oaf attractive, he missed the moment his wife took a step backwards with a decidedly guilty look on her face. Report_Story #2 
+ While Eammon's mind dealt with the repugnant possibility that his daughter found the tanned oaf attractive, he missed the moment his wife took a step backwards with a decidedly guilty look on her face.  
 
  
 
@@ -354,7 +354,7 @@
 
  3 
 
- With Melissa and Ben away on their walk, and with Eammon disappearing soon after the couple had left, Julia Morgan decided to make the most of her unexpected time alone. The caravan, spacious as it was being at the upper end of the scale, wasn't exactly conducive to what she called her "quiet time". She was a moaner, very vocal when it came to fucking and the label of quiet time wasn't exactly correct. With an ironic grin Julia considered whether "alone time" might be more appropriate. After all, she'd been left to her own devices for so long Julia had given up on Eammon. She'd considered starting an affair but, as yet, hadn't had the nerve. But Ben's arrival on the scene had caused her to reconsider. Report_Story #3 
+ With Melissa and Ben away on their walk, and with Eammon disappearing soon after the couple had left, Julia Morgan decided to make the most of her unexpected time alone. The caravan, spacious as it was being at the upper end of the scale, wasn't exactly conducive to what she called her "quiet time". She was a moaner, very vocal when it came to fucking and the label of quiet time wasn't exactly correct. With an ironic grin Julia considered whether "alone time" might be more appropriate. After all, she'd been left to her own devices for so long Julia had given up on Eammon. She'd considered starting an affair but, as yet, hadn't had the nerve. But Ben's arrival on the scene had caused her to reconsider.  
 
  
 
@@ -550,7 +550,7 @@
 
  "Do you like it?" she murmured, unsure. 
 
- "I fucking love it," Ben replied as he moved close to the woman and cupped his palm over her vulva. He gasped when he felt the contrast between the precisely coiffed thatch and the smooth and very slippery folds of Julia's labia. "You're very sexy, Mrs Morgan." Report_Story #4 
+ "I fucking love it," Ben replied as he moved close to the woman and cupped his palm over her vulva. He gasped when he felt the contrast between the precisely coiffed thatch and the smooth and very slippery folds of Julia's labia. "You're very sexy, Mrs Morgan."  
 
  
 
@@ -790,7 +790,7 @@
 
  "Tea and toast, Dad! Then we can talk." 
 
- Following brisk activity at the kitchen counter, father and daughter sat at the round table set in one corner of the room, Eammon seated on the curved, moulded plastic bench, with Melissa on one of the spindle-legged chairs, the bulk of the caravan behind her. Report_Story #5 
+ Following brisk activity at the kitchen counter, father and daughter sat at the round table set in one corner of the room, Eammon seated on the curved, moulded plastic bench, with Melissa on one of the spindle-legged chairs, the bulk of the caravan behind her.  
 
  
 
@@ -992,7 +992,7 @@
 
  5 
 
- Eammon arrived just in time to see his daughter peel the bikini briefs over her shins. Completely transfixed by the girl's sublime loveliness, there was no way he could turn away from the sight of her, not any more. The moment for turning back and pushing carnal thoughts for Melissa had left the building. Report_Story #6 
+ Eammon arrived just in time to see his daughter peel the bikini briefs over her shins. Completely transfixed by the girl's sublime loveliness, there was no way he could turn away from the sight of her, not any more. The moment for turning back and pushing carnal thoughts for Melissa had left the building.  
 
  
 
@@ -1246,7 +1246,7 @@
 
  Eammon felt the mattress dip when the girl, nude, perched on the edge of the bed. He felt heavy, leaden, senses dulled by the gallon of beer he'd poured into his face the previous night. 
 
- The ale hadn't helped. Not a bit of it. No matter how quickly he drank Eammon couldn't obliterate the knowledge of the sin he and his daughter had committed. He'd left the pub and reeled into the campsite, his tread heavy as he blundered through the kitchen-cum-diner to the caravan's toilet cubicle. He'd pissed like the proverbial racehorse, recycling the beer before stumbling into his bedroom. Report_Story #7 
+ The ale hadn't helped. Not a bit of it. No matter how quickly he drank Eammon couldn't obliterate the knowledge of the sin he and his daughter had committed. He'd left the pub and reeled into the campsite, his tread heavy as he blundered through the kitchen-cum-diner to the caravan's toilet cubicle. He'd pissed like the proverbial racehorse, recycling the beer before stumbling into his bedroom.  
 
  
 
@@ -1502,7 +1502,7 @@
 
  Silence stretched between them, several elastic seconds that, as each one ticked by, only exacerbated Julia's anxiety. She chanced a quick look at Melissa and noticed that her daughter seemed remarkably unperturbed. Julia had expected hostility, slit-eyed, spitting recrimination, not this cool detachment. 
 
- Wrong-footed by her daughter's composure, Julia heard herself blurt, "Have you heard from Ben?" She winced internally -- What an idiot thing to say. Why bring up his name? Report_Story #8 
+ Wrong-footed by her daughter's composure, Julia heard herself blurt, "Have you heard from Ben?" She winced internally -- What an idiot thing to say. Why bring up his name?  
 
  
 
@@ -1722,7 +1722,7 @@
 
  Eammon sighed, thinking back to the courting of his own daughter, their dance towards incest in which she'd done the leading. His penis twitched and thickened, as it always did when he recalled their first time, how she'd looked and tasted, the sounds she'd made and the way his daughter's pussy had opened up for him. 
 
- "Oh, Mel..." the man mumbled, both fearful and excited at the future he envisioned for himself and his girl. Report_Story #9 
+ "Oh, Mel..." the man mumbled, both fearful and excited at the future he envisioned for himself and his girl.  
 
  
 
@@ -1974,7 +1974,7 @@
 
  Julia shifted position, squirming on her own towel at her daughter's reference to the beach, still uncomfortable by any mention of that holiday. 
 
- "I used to go there with Ben," Melissa continued. She gave a brief, brittle laugh and rolled onto her side, one arm propped beneath her head, her temple resting on one clenched fist. "We found this secluded little spot. It was quiet, just off the track but not easily overlooked. Quite private but still not completely safe if you know what I mean." Melissa heaved a theatrical sigh. "I went there alone when Ben had gone but it wasn't quite the same." Report_Story #10 
+ "I used to go there with Ben," Melissa continued. She gave a brief, brittle laugh and rolled onto her side, one arm propped beneath her head, her temple resting on one clenched fist. "We found this secluded little spot. It was quiet, just off the track but not easily overlooked. Quite private but still not completely safe if you know what I mean." Melissa heaved a theatrical sigh. "I went there alone when Ben had gone but it wasn't quite the same." 0 
 
  
 
@@ -2222,7 +2222,7 @@
 
  "Shit, shit, shit..." Eammon mumbled. No sign of life in the house. Nobody in the living room. His study on the lower floor was empty. There were, however, signs of recent activity in the kitchen: two bottles, one gin, one vodka standing on the counter; small pools of water, wet patches that indicated ice had melted; a single glass, used, sitting in the sink. 
 
- The patio doors were open, and when Eammon walked across the room he saw, to his huge relief, Julia stretched out on a sunbed. He did a double-take. Was she naked out there? Report_Story #11 
+ The patio doors were open, and when Eammon walked across the room he saw, to his huge relief, Julia stretched out on a sunbed. He did a double-take. Was she naked out there? 1 
 
  
 
@@ -2454,7 +2454,7 @@
 
  One year later: The South of France 
 
- Eammon Morgan opened the boot of the rented car and hauled out his luggage. It had been two weeks since he'd seen his wife and daughter, they having gone on ahead while Eammon had to work. Report_Story #12 
+ Eammon Morgan opened the boot of the rented car and hauled out his luggage. It had been two weeks since he'd seen his wife and daughter, they having gone on ahead while Eammon had to work. 2 
 
  
 

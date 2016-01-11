@@ -244,7 +244,7 @@
 
  "You're the love of my life and my best friend. I came to my decision by asking myself if I would be happier with or without you. I want you with me." 
 
- She squealed and grabbed me around the neck. She started kissing me all over my face and neck. Report_Story #2 
+ She squealed and grabbed me around the neck. She started kissing me all over my face and neck.  
 
  
 

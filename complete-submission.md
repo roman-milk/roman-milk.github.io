@@ -106,7 +106,7 @@
 
  Carla smiled and said, "Today was nothing wait till you see me seduce your mother. Tomorrow your Mom will be begging to eat my pussy." After that, Carla gave me some instructions, demanded I lick her pussy on more time, which of course I did, and then I headed home. 
 
- As I went downstairs, I realized her Mom was home. I quickly said, "Hi Mrs. Mathews" and scurried out the door. As I headed home, I wondered how long she had been home and what she had heard. Report_Story #1 
+ As I went downstairs, I realized her Mom was home. I quickly said, "Hi Mrs. Mathews" and scurried out the door. As I headed home, I wondered how long she had been home and what she had heard.  
 
  
 
@@ -330,7 +330,7 @@
 
  "I had to go home and plan fucking my mother. I also will make arrangements for tomorrow's plan. Love Carla. P.S.-Your mother is an amazing fuck." 
 
- I laughed, lay back on the bed and fucked myself with the biggest vibrator I had. I turned it on high and slid it into my moist cunt. I closed my eyes and fantasized about dominating my whore mother. Tomorrow...tomorrow...tomorrow... Report_Story #1 
+ I laughed, lay back on the bed and fucked myself with the biggest vibrator I had. I turned it on high and slid it into my moist cunt. I closed my eyes and fantasized about dominating my whore mother. Tomorrow...tomorrow...tomorrow...  
 
  
 
@@ -526,7 +526,7 @@
 
  With that, I winked to my brother, who pressed record on the camcorder. Carla had clued him in earlier today, and after a blow job, he was all in. 
 
- That done, I went downstairs to see how the carrots were doing. Carla was speaking, "So does oral sex count as sex?" I laughed as I peeked in and saw all the carrots were gone. After quickly downing a couple of beers, I went back upstairs and heard the sound of good hard fucking. I opened the door and walked in. Mom was on her back, legs up in the air, and her brother has pounding her hard. I called Mark, who revealed himself and the camcorder, and Mom tried to cover herself. "Oh Mommy, no reason to be modest now." Report_Story #2 
+ That done, I went downstairs to see how the carrots were doing. Carla was speaking, "So does oral sex count as sex?" I laughed as I peeked in and saw all the carrots were gone. After quickly downing a couple of beers, I went back upstairs and heard the sound of good hard fucking. I opened the door and walked in. Mom was on her back, legs up in the air, and her brother has pounding her hard. I called Mark, who revealed himself and the camcorder, and Mom tried to cover herself. "Oh Mommy, no reason to be modest now."  
 
  
 
@@ -732,7 +732,7 @@
 
  "Good, now get out of here, I have to get some sleep." 
 
- Connie got up, grabbed her husband, whose cock was shockingly still erect and left my room. Carla cuddled into me and we drifted off to sleep, with sounds of Connie moaning just outside my room. She was clearly getting drilled by her husband. Report_Story #1 
+ Connie got up, grabbed her husband, whose cock was shockingly still erect and left my room. Carla cuddled into me and we drifted off to sleep, with sounds of Connie moaning just outside my room. She was clearly getting drilled by her husband.  
 
  
 
@@ -1038,7 +1038,7 @@
 
  "What?" 
 
- Nadine looked at me, "Yes, my mother is Catherine Atkins and I knew who you were as soon as you entered the store." Report_Story #2 
+ Nadine looked at me, "Yes, my mother is Catherine Atkins and I knew who you were as soon as you entered the store."  
 
  
 
@@ -1102,7 +1102,7 @@
 
  "Yes ma'am." 
 
- Carla kissed her on the cheek and said, "I knew you would." We left the store and crossed the street to Mrs. Dens restaurant. Report_Story #1 
+ Carla kissed her on the cheek and said, "I knew you would." We left the store and crossed the street to Mrs. Dens restaurant.  
 
  
 
@@ -1290,7 +1290,7 @@
 
  "Slut," Carla said and we left the restaurant. 
 
- We then stopped at an adult store to pick up a few new toys, and a lingerie store to pick up quite a few new pairs of hosiery and lingerie for Mommy dearest. We could have had some fun at either place I imagine, but we were both rather tired and decided to keep our strength for the movie tonight. We headed home to take a nap. When I arrived home, I found Dad completely dressed in mother's clothes. I laughed hard and told Mom, "Why don't you go get a strap-on from my room and fuck the shit out of your faggot husband?" I then watched as that happened, my mother calling him every humiliating name she could imagine. My Dad just took it all enjoying the fucking and humiliation. I left with my Mom still hammering away and took a nap. Report_Story #1 
+ We then stopped at an adult store to pick up a few new toys, and a lingerie store to pick up quite a few new pairs of hosiery and lingerie for Mommy dearest. We could have had some fun at either place I imagine, but we were both rather tired and decided to keep our strength for the movie tonight. We headed home to take a nap. When I arrived home, I found Dad completely dressed in mother's clothes. I laughed hard and told Mom, "Why don't you go get a strap-on from my room and fuck the shit out of your faggot husband?" I then watched as that happened, my mother calling him every humiliating name she could imagine. My Dad just took it all enjoying the fucking and humiliation. I left with my Mom still hammering away and took a nap.  
 
  
 
@@ -1388,7 +1388,7 @@
 
  A week later, Mrs. Walters had left her husband and had moved into our house, sharing my old room. My Dad had moved to the basement, where he was permitted to stay. Occasionally Mark would go and fuck him, or my Mom, but otherwise he was the forgotten man. 
 
- Even so, the idea of fucking my own Dad still turned me on and I knew one day I would have to fulfill that fantasy. Report_Story #1 
+ Even so, the idea of fucking my own Dad still turned me on and I knew one day I would have to fulfill that fantasy.  
 
  
 
@@ -1598,7 +1598,7 @@
 
  Mom and I left and returned home. We walked inside and were amused to see Dad dressed in a pink sundress getting his ass reamed by Mark. Watching my brother fuck my Dad was hot. Mark looked at me and said, "Well Mom wasn't home to fuck so I figured might as well use daddy's eager ass." 
 
- I shrugged and laughed "He's all yours, Mark." Watching Dad get fucked turned me on and I got undressed. Not surprisingly, Mom did too. We sat on the couch with our hands gently teasing each others' pussies as we watch her husband fuck her son and my dad get reamed by my brother. I could tell Mark was getting close so I said, "Dad suck your son's cock." Report_Story #2 
+ I shrugged and laughed "He's all yours, Mark." Watching Dad get fucked turned me on and I got undressed. Not surprisingly, Mom did too. We sat on the couch with our hands gently teasing each others' pussies as we watch her husband fuck her son and my dad get reamed by my brother. I could tell Mark was getting close so I said, "Dad suck your son's cock."  
 
  
 

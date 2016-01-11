@@ -64,7 +64,7 @@
 
  After some 45 minutes I allowed Elizabeth to come out of the corner, she stood at attention in the middle of the room next to her spanking stool. "Okay young lady, up to your room, no supper for you I am going to put you to bed early." I spoke to her as if she were a child of 6 inside of a married lady of 41and a professional manager. "I want you to take a bath, put on your jammies on and go to bed. In addition you will write 500 times 'I was a naughty little girl for disobeying my daddy and using our credit card I deserve to be disciplined.' I expect the lines to be completed by tomorrow night at 7:00. You are also going to have panty punishment for the entire weekend so be prepared." 
 
- I swatted her behind and sent her on the way. Report_Story #1 
+ I swatted her behind and sent her on the way.  
 
  
 
@@ -102,7 +102,7 @@
 
  "Sit forward, young lady, I want you to sit at the very edge of the seat, right where I just spanked you." Lowering her eyes she shifts slightly in her chair, and slide forward on her bottom until she is sitting very straight, perched near the front edge of the seat. Her back was arched, her chest pushing against her tight blouse and her fanny arched backwards. At this moment the waitress appears with our lunch, I had ordered it when Elizabeth went to the potty room. I had ordered a grilled cheese sandwich and a glass of chocolate milk for my 41 year old little girl. I took my knife and cut the grilled cheese into squares as if she were a child. "Now eat up, missy." I ordered right in front of the waitress. We finished lunch without incident and left the restaurant. 
 
- She walked ahead of me very slowly so her panties wouldn't fall, holding her 'spanking mat' in one hand and her skirt with the other. We reached the car at the far end of the parking lot. "Turn around and bend over." There is a pause as I say this. She looks around, her eyes wide. She turns and bends for me, her head is straight down her skirt rides up her thighs and I see her white cotton panties in a tight circle at her thighs and the lower part of her rounded buttocks. I step up to her and flip up her skirt on her back. I am standing directly to the side. I swat her in no hurry and the strokes are slow and firm. It isn't long before she is crying once again. I stop; she gets in the car quickly twitching as she sits uncomfortably on her sore red fanny. I hand her my handkerchief as she quietly sobs. Report_Story #1 
+ She walked ahead of me very slowly so her panties wouldn't fall, holding her 'spanking mat' in one hand and her skirt with the other. We reached the car at the far end of the parking lot. "Turn around and bend over." There is a pause as I say this. She looks around, her eyes wide. She turns and bends for me, her head is straight down her skirt rides up her thighs and I see her white cotton panties in a tight circle at her thighs and the lower part of her rounded buttocks. I step up to her and flip up her skirt on her back. I am standing directly to the side. I swat her in no hurry and the strokes are slow and firm. It isn't long before she is crying once again. I stop; she gets in the car quickly twitching as she sits uncomfortably on her sore red fanny. I hand her my handkerchief as she quietly sobs.  
 
  
 

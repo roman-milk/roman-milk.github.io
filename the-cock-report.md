@@ -206,7 +206,7 @@
 
  She led me to the bedroom, stepped aside and said, "See for yourself." 
 
- On the bed a very naked Aimee was on her hands and knees and being fucked by a black man while two other black men stood by the bed watching and waiting their turn. Report_Story #2 
+ On the bed a very naked Aimee was on her hands and knees and being fucked by a black man while two other black men stood by the bed watching and waiting their turn.  
 
  
 

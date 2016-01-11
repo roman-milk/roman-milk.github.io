@@ -120,7 +120,7 @@
 
  I was quiet for a moment and then I said, "Why do you care? By last count we had over six hundred pilots and copilots, that ought to be enough to keep you happy." 
 
- A hurt look showed on her face and she said, "I don't love any of them baby. I love you and you are the only man I've ever loved. I never wanted you to find out about my other side. I've tried hard to be a good wife to you and to keep you happy, but I'm a cock hungry slut. I can't get enough cock. I don't give a shit about any of the rest of those guys I see, they are just dicks to me, pieces of meat to satisfy my craving to be fucked. I don't want to lose you baby, honest to God I don't. I love you so much that sometimes it hurts." Report_Story #2 
+ A hurt look showed on her face and she said, "I don't love any of them baby. I love you and you are the only man I've ever loved. I never wanted you to find out about my other side. I've tried hard to be a good wife to you and to keep you happy, but I'm a cock hungry slut. I can't get enough cock. I don't give a shit about any of the rest of those guys I see, they are just dicks to me, pieces of meat to satisfy my craving to be fucked. I don't want to lose you baby, honest to God I don't. I love you so much that sometimes it hurts."  
 
  
 

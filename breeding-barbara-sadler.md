@@ -172,7 +172,7 @@
 
  Barbara unbuttoned her blouse and slipped it off her shoulders. She'd been naked in front of the nurse on several occasions and had no qualms about revealing her body to the woman again. Despite there being over a decade difference in their ages, Barbara, confident that she could hold her own physically, thanks to a healthy diet and a lot of physical exercise, unclasped her bra and freed her sizeable breasts. Then, breasts swinging as she moved, she unzipped her skirt and let it slide down her legs to pool at her feet. 
 
- "Yeah," Samson muttered when Barbara eased her knickers, which weren't much more than a sodden scrap by this time, off to join her skirt bunched on the carpet. "Sexy lady," he grinned. "My hot wife and her sexy friend." His dreads swung when he nodded and added, "This is gonna be a great evening. I can tell we're gonna get on great, Barbara." Report_Story #2 
+ "Yeah," Samson muttered when Barbara eased her knickers, which weren't much more than a sodden scrap by this time, off to join her skirt bunched on the carpet. "Sexy lady," he grinned. "My hot wife and her sexy friend." His dreads swung when he nodded and added, "This is gonna be a great evening. I can tell we're gonna get on great, Barbara."  
 
  
 

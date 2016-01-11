@@ -192,7 +192,7 @@
 
  "I forgive you." I kissed her softly for the first time. 
 
- She was stunned and thrilled, returning my kiss with abandon as tears of joy streamed down her face. As she well knew, a master kisses a concubine like that that way to tell her she is cherished and special to him. We fucked until we both were satiated and exhausted. She was the best. Report_Story #2 
+ She was stunned and thrilled, returning my kiss with abandon as tears of joy streamed down her face. As she well knew, a master kisses a concubine like that that way to tell her she is cherished and special to him. We fucked until we both were satiated and exhausted. She was the best.  
 
  
 
@@ -438,7 +438,7 @@
 
  
 
- She smiled sheepishly. "Well, your eyes aren't always cold. Sometimes they're hot and sexy. Sometimes they're gentle and caring. Look, I'm not frightened of belonging to you, or of your sexual demands." Report_Story #3 
+ She smiled sheepishly. "Well, your eyes aren't always cold. Sometimes they're hot and sexy. Sometimes they're gentle and caring. Look, I'm not frightened of belonging to you, or of your sexual demands."  
 
  
 
@@ -678,7 +678,7 @@
 
  As I rolled Kamilah over, my eyes met Samirah's. I knew I had not yet won her. Her face told me the decision time was near. 
 
- "Yes. Master fucks good," Kamilah moaned. Report_Story #4 
+ "Yes. Master fucks good," Kamilah moaned.  
 
  
 
@@ -904,7 +904,7 @@
 
  "Yes, Master," she murmured. 
 
- Kamilah was on her mat with only her eyes showing over the edge of the bed. I undressed, crawled on the bed, piled all the pillows against the headboard, and reclined against them. My cock was so hard it hurt, and my balls throbbed. My heart was pounding. Report_Story #5 
+ Kamilah was on her mat with only her eyes showing over the edge of the bed. I undressed, crawled on the bed, piled all the pillows against the headboard, and reclined against them. My cock was so hard it hurt, and my balls throbbed. My heart was pounding.  
 
  
 

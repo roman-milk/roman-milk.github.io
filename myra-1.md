@@ -184,7 +184,7 @@
 
  "They don't want to go without me and I can't go leaving you here to think what you are thinking." 
 
- "That's easy enough to take care of" I said and went into the kitchen and picked up the phone. I got directory assistance, got the phone number for the Red Roof Inn in Addisville and called. They confirmed that my' Uncle George' had arrived and checked in. Then I got directory assistance again and called the Belmont and asked if Mrs. Myra Walsh had arrived yet and was told that that she and her party hadn't yet arrived. Satisfied that I was getting the true story I went back to the living room and told them that Thomas was in Addisville. Report_Story #2 
+ "That's easy enough to take care of" I said and went into the kitchen and picked up the phone. I got directory assistance, got the phone number for the Red Roof Inn in Addisville and called. They confirmed that my' Uncle George' had arrived and checked in. Then I got directory assistance again and called the Belmont and asked if Mrs. Myra Walsh had arrived yet and was told that that she and her party hadn't yet arrived. Satisfied that I was getting the true story I went back to the living room and told them that Thomas was in Addisville.  
 
  
 

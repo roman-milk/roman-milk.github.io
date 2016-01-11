@@ -190,7 +190,7 @@
 
  There was still a look of awe on his face but she didn't notice. She dare not look at him as she straightened the dress pulling it defensively over her body. She looked at his hand holding her panties, still unable to look him in the eye. 
 
- "I'll keep these. A souvenir," he told her. He patted her ass and watched her scurry out of the office. Report_Story #1 
+ "I'll keep these. A souvenir," he told her. He patted her ass and watched her scurry out of the office.  
 
  
 
@@ -310,7 +310,7 @@
 
  It was no longer for the guys in the office it was an exciting game just for him. He had a mature woman at his mercy and couldn't resist getting his own back on this adult and bully, representing those who had pushed him around at college. 
 
- After embarrassing her in the office he just couldn't resist pushing her further. He guessed she had an orgasm in the office and was certain she had again just now. So what could he get her to do next? Report_Story #1 
+ After embarrassing her in the office he just couldn't resist pushing her further. He guessed she had an orgasm in the office and was certain she had again just now. So what could he get her to do next?  
 
  
 
@@ -444,7 +444,7 @@
 
  The annoying thing was she could feel herself becoming heated just from driving around in a thin slip. It had risen up around her waist but at least she had panties on this time. Her nipples seemed to be imitating Pinocchio's nose. 
 
- She could just imagine pulling in at a drive-through with the young guys crowding in the pay window, keeping them waiting for a good look at her. The nipples pushed harder at the thin slip ready to burst through and she dare not look down at her panties. Report_Story #1 
+ She could just imagine pulling in at a drive-through with the young guys crowding in the pay window, keeping them waiting for a good look at her. The nipples pushed harder at the thin slip ready to burst through and she dare not look down at her panties.  
 
  
 

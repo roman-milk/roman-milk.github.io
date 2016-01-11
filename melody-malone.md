@@ -218,7 +218,7 @@
 
  ++++++++++++++++ 
 
- I lay next to her on the bed, breathing hard and wondering why she couldn't accept it as a lost cause as she fondled me in a vain attempt to get me up one more time. Finally I said: Report_Story #2 
+ I lay next to her on the bed, breathing hard and wondering why she couldn't accept it as a lost cause as she fondled me in a vain attempt to get me up one more time. Finally I said:  
 
  
 

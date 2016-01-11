@@ -164,7 +164,7 @@
 
  Jesus! Where was she getting it from? My wife was talking like a complete slut. She was nearly begging the man to fuck her senseless. I'd seen her in a state of high arousal before; of course I had, but this... It must be the situation and because I was so turned on too. My God, the whole thing was just so unbelievably sexy... 
 
- I was past the point of no return by now myself. I didn't care what was going on in that room. I didn't care that my beautiful wife was offering herself to this man for his pleasure. I wanted to fuck her too, and I pulled my own not inconsiderable erection from my trousers. I stroked myself and watched the debauched spectacle of my wife sucking the thick black/purple pole of Richard's cock. Report_Story #2 
+ I was past the point of no return by now myself. I didn't care what was going on in that room. I didn't care that my beautiful wife was offering herself to this man for his pleasure. I wanted to fuck her too, and I pulled my own not inconsiderable erection from my trousers. I stroked myself and watched the debauched spectacle of my wife sucking the thick black/purple pole of Richard's cock.  
 
  
 

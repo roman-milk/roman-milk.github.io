@@ -166,7 +166,7 @@
 
  God but she wanted his touch. 
 
- When had it changed for her? She knew exactly when it had happened, when her perception of Madeline's son had shifted to the carnal. The precise moment had come when she'd seen him at his Passing-Out Parade, when Tom had graduated from that awful grey barracks in Aldershot after his basic training. He'd been so full of pride as he'd shown off the partitioned room that smelled of floor polish, accommodation for eight of them divided into two spaces of four by a painted plywood wall. Tom had given them the tour, Rita and that miserable- faced sod of a father, regaling them with horror stories of torture in the gymnasium, recounting humorous anecdotes of the barrack block, him doing his best to impress his dad while the man's jealousy, so obvious to her but fortunately to which Tom was blind, showed in his sneer. Rita had experienced a rush of tenderness towards the boy as she'd studied his profile, him bursting with acheivement, that when he'd turned and noticed her appraisal, when he'd smiled at her, Rita was shocked at the sudden and near overwhelming urge to kiss his mouth. Report_Story #2 
+ When had it changed for her? She knew exactly when it had happened, when her perception of Madeline's son had shifted to the carnal. The precise moment had come when she'd seen him at his Passing-Out Parade, when Tom had graduated from that awful grey barracks in Aldershot after his basic training. He'd been so full of pride as he'd shown off the partitioned room that smelled of floor polish, accommodation for eight of them divided into two spaces of four by a painted plywood wall. Tom had given them the tour, Rita and that miserable- faced sod of a father, regaling them with horror stories of torture in the gymnasium, recounting humorous anecdotes of the barrack block, him doing his best to impress his dad while the man's jealousy, so obvious to her but fortunately to which Tom was blind, showed in his sneer. Rita had experienced a rush of tenderness towards the boy as she'd studied his profile, him bursting with acheivement, that when he'd turned and noticed her appraisal, when he'd smiled at her, Rita was shocked at the sudden and near overwhelming urge to kiss his mouth.  
 
  
 
@@ -390,7 +390,7 @@
 
  Worry gripped his vitals, a vice clamped his guts. 
 
- She knew! Rita knew he'd been snooping. She knew, somehow, that he'd defiled her underwear. Report_Story #3 
+ She knew! Rita knew he'd been snooping. She knew, somehow, that he'd defiled her underwear.  
 
  
 
@@ -666,7 +666,7 @@
 
  Still, that was easily remedied. 
 
- Rita laid the length of her body alongside his and rested on one elbow, the other hand manipulating Tom's hard-on with slow strokes. Her expression turned dreamy, wistful while she thought through her idea. Report_Story #4 
+ Rita laid the length of her body alongside his and rested on one elbow, the other hand manipulating Tom's hard-on with slow strokes. Her expression turned dreamy, wistful while she thought through her idea.  
 
  
 
@@ -880,7 +880,7 @@
 
  Tom's fist worked in a blur as he shuffled forward on his knees. "Rita," he grunted in warning, and then gasped when the woman herself, with the dildo hanging out of her like an obscene tongue, levered herself around and reached for his dick. 
 
- Then she covered the dome of it with her lips and Tom's fingers pushed through blonde hair, twisting a handful while he growled down into the impossibly erotic image of Rita's eyes gazing up at him, her face distorted, cheek bulging with cock-head as she grinned as best she could manage around the mouthful of male gristle. Report_Story #5 
+ Then she covered the dome of it with her lips and Tom's fingers pushed through blonde hair, twisting a handful while he growled down into the impossibly erotic image of Rita's eyes gazing up at him, her face distorted, cheek bulging with cock-head as she grinned as best she could manage around the mouthful of male gristle.  
 
  
 
@@ -1116,7 +1116,7 @@
 
  He looked up into Rita's face, eyes locked with hers as he grinned and reached for her breasts. "In a minute." Tom kept his stare -- a challenge of wills - - on Rita's, his tongue circling the dark coin of the areola surrounding one nipple. Tom lip-smacked both of those nipples in turn, sucking the teats between his lips to draw a low groan and a wince from Rita hovering over him. 
 
- "You take your time," Rita said, her voice low and dark and husky. "I want this to be perfect for you." She grinned, head tilted to one side as she sucked in the detail of him. "I can't believe you're a virgin." Report_Story #6 
+ "You take your time," Rita said, her voice low and dark and husky. "I want this to be perfect for you." She grinned, head tilted to one side as she sucked in the detail of him. "I can't believe you're a virgin."  
 
  
 

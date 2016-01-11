@@ -150,7 +150,7 @@
 
  John placed Jenny's accent correctly, noting the differences of enunciation between the two women. One seemed posh, Avril with her la-de-dah while Jenny came across as more gritty and down-to-Earth; Essex if he wasn't mistaken. Still, despite their apparent differences, they were both, in John's opinion, sexy as fuck. 
 
- "Juh ... just a little nervous," John replied with understated truthfulness. He shrugged his shoulders, a little unnerved at being left alone with Jenny. When Avril had been in the room with them it seemed like she filled the void with her talk. Now the atmosphere felt awkward -- Just like his disastrous dates. Report_Story #2 
+ "Juh ... just a little nervous," John replied with understated truthfulness. He shrugged his shoulders, a little unnerved at being left alone with Jenny. When Avril had been in the room with them it seemed like she filled the void with her talk. Now the atmosphere felt awkward -- Just like his disastrous dates.  
 
  
 
@@ -310,7 +310,7 @@
 
  He forced himself to calm down, to hold himself in check. He'd nearly gotten carried away with Jenny earlier, had almost just climbed aboard and shoved his dick into her. But she was right. Savour it, let it all happen slowly and commit every moan and taste and texture to memory. He'd be wanking off this experience for the rest of his days. 
 
- Finally, with a liquid plop, the kiss broke. Avril nudged John's chest with a hand, and the man found himself slumped next to Jenny in the sofa's embrace. Report_Story #3 
+ Finally, with a liquid plop, the kiss broke. Avril nudged John's chest with a hand, and the man found himself slumped next to Jenny in the sofa's embrace.  
 
  
 
@@ -490,7 +490,7 @@
 
  "This is so good," John sighed. "I could do this forever, Avril." 
 
- "I want you to," Avril grunted. Even at that early stage she knew with clear certainty that she would have John again. She wanted him like a normal couple, not as part of a sordid business deal. As arousing as the threesome was, and seeing John and Jenny together had turned her on, she wanted John, on her own, in private, where they could explore each other emotionally and physically. "Love me, John, ride with me, darling. Fill me with your lovely cock and let it go. Come inside me. Please. We can do it again, later, all night if you want. But please," she implored, "fill me. Let it go." Report_Story #4 
+ "I want you to," Avril grunted. Even at that early stage she knew with clear certainty that she would have John again. She wanted him like a normal couple, not as part of a sordid business deal. As arousing as the threesome was, and seeing John and Jenny together had turned her on, she wanted John, on her own, in private, where they could explore each other emotionally and physically. "Love me, John, ride with me, darling. Fill me with your lovely cock and let it go. Come inside me. Please. We can do it again, later, all night if you want. But please," she implored, "fill me. Let it go."  
 
  
 

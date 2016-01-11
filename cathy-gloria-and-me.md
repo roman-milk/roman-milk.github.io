@@ -230,7 +230,7 @@
 
  "It was a no brainer. A choice between a girl I want to get to know better and a married woman looking for a thrill is really no choice at all." 
 
- "Oh? And just how much better do you want to know me?" Report_Story #2 
+ "Oh? And just how much better do you want to know me?"  
 
  
 

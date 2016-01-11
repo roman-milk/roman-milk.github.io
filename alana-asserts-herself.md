@@ -62,7 +62,7 @@
 
  "Get out of my sight you worthless whore before I kill you" and I left the house and I haven't been back. 
 
- In the three weeks since Alana, Tim and Todd pulled their little stunt I've not spoken to her - not once - not even to take her phone calls. Other than a divorce I don't have a clue as to what I'm going to do next to get even with the three of them, but as I look out my office window I know it won't be murder. At least not yet! Report_Story #1 
+ In the three weeks since Alana, Tim and Todd pulled their little stunt I've not spoken to her - not once - not even to take her phone calls. Other than a divorce I don't have a clue as to what I'm going to do next to get even with the three of them, but as I look out my office window I know it won't be murder. At least not yet!  
 
  
 

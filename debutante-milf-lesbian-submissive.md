@@ -322,7 +322,7 @@
 
  I scurried out of the hall, to my car and looked at myself in the mirror. What just happened? Why couldn't I stand up for myself? Why did I say what I said? Shaking my head, I pulled out of the driveway heading home, a million questions ricocheting in my head...and yet no answers. 
 
- Once in the house half an hour later, Miranda said, "You're home later than anticipated." Report_Story #2 
+ Once in the house half an hour later, Miranda said, "You're home later than anticipated."  
 
  
 
@@ -676,7 +676,7 @@
 
  
 
- Reaching gate 70, I saw Serena sitting in a chair, on her phone, her long legs in shimmering black pantyhose and five inch heels impossible not to notice; every guy nearby was checking her out either slyly or staring at her. Again, against my better judgement, against my moral fibre, my long neglected pussy dampened at the thought of submitting to Serena, just like I had long ago submitted to Angela who also was a blonde, debutante bitch with long legs. Report_Story #3 
+ Reaching gate 70, I saw Serena sitting in a chair, on her phone, her long legs in shimmering black pantyhose and five inch heels impossible not to notice; every guy nearby was checking her out either slyly or staring at her. Again, against my better judgement, against my moral fibre, my long neglected pussy dampened at the thought of submitting to Serena, just like I had long ago submitted to Angela who also was a blonde, debutante bitch with long legs.  
 
  
 
@@ -1034,7 +1034,7 @@
 
  I froze, the dildo deeply in me. Submitting to Serena had happened rather easily, but far away from the reality of home and of my daughter. Serena was clearly testing me by bringing Miranda up at such a moment. 
 
- "Is something wrong Mommy cunt-licker?" Serena questioned. Report_Story #4 
+ "Is something wrong Mommy cunt-licker?" Serena questioned.  
 
  
 
@@ -1426,7 +1426,7 @@
 
  ..... 
 
- That night, in a new outfit after dirtying the last one while writhing on the floor, I went with Miranda to a parent and debutant meeting. I purposely avoided Gwen and Serena during appetizers until the meeting was called to order. Just a few minutes into the meeting, I got a text. I usually don't check my phone when I am in such a meeting, but I forgot to turn my phone onto vibrate. Report_Story #5 
+ That night, in a new outfit after dirtying the last one while writhing on the floor, I went with Miranda to a parent and debutant meeting. I purposely avoided Gwen and Serena during appetizers until the meeting was called to order. Just a few minutes into the meeting, I got a text. I usually don't check my phone when I am in such a meeting, but I forgot to turn my phone onto vibrate.  
 
  
 
@@ -1716,7 +1716,7 @@
 
  I sighed, as I admitted: Mistress Disturbingly, yes. Pet Petra 
 
- A moment later another response: Report_Story #6 
+ A moment later another response:  
 
  
 
@@ -2052,7 +2052,7 @@
 
  I had a few sex toys from a toy party actually at Gwen's house a few months before my husband passed but none of them prepared me for the options women have now. 
 
- I won't go into long boring detail but I bought myself some crazy things: -a wall suction cup cock (the idea of fucking myself from behind a major turn- on...especially after the one I rode on the airplane) -a wi-vibe which apparently has the power to pleasure both inside and outside my cunt -a vibrating egg with remote control -a strap-on cock that I hoped Serena would use on me tonight -a waterproof vibrator for Miranda (actually I bought two...one for me as well). Report_Story #7 
+ I won't go into long boring detail but I bought myself some crazy things: -a wall suction cup cock (the idea of fucking myself from behind a major turn- on...especially after the one I rode on the airplane) -a wi-vibe which apparently has the power to pleasure both inside and outside my cunt -a vibrating egg with remote control -a strap-on cock that I hoped Serena would use on me tonight -a waterproof vibrator for Miranda (actually I bought two...one for me as well).  
 
  
 
@@ -2436,7 +2436,7 @@
 
  She pulled out some lube, a strap-on cock, some long thing I didn't have a clue what it was, a vibrating egg, and what I was pretty sure was a set of butt plugs. 
 
- She walked up behind me, lifted up my dress which was barely necessary it was so short, poured lube on my ass and said, "Since Cameron already began preparing your ass for me, we will start with the medium plug." Report_Story #8 
+ She walked up behind me, lifted up my dress which was barely necessary it was so short, poured lube on my ass and said, "Since Cameron already began preparing your ass for me, we will start with the medium plug."  
 
  
 
@@ -2824,7 +2824,7 @@
 
  "Oh Mom," Miranda immediately softened. 
 
- "This is your day, honey," I said, squeezing her foot. "We can talk about everything else another day. Let's get you looking like a queen...my queen." Thoughts of sexually submitting to Miranda suddenly at the forefront of thought after witnessing Gwen going down on Serena I took a glance between her legs. Report_Story #9 
+ "This is your day, honey," I said, squeezing her foot. "We can talk about everything else another day. Let's get you looking like a queen...my queen." Thoughts of sexually submitting to Miranda suddenly at the forefront of thought after witnessing Gwen going down on Serena I took a glance between her legs.  
 
  
 
@@ -3274,7 +3274,7 @@
 
  "Your reaction around her mostly, although going through your phone messages confirmed my suspicions," Miranda revealed. "Did you really wear my panties on your head?" 
 
- "Yes," I admitted, ashamed. Report_Story #10 
+ "Yes," I admitted, ashamed. 0 
 
  
 

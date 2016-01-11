@@ -272,7 +272,7 @@
 
  "I don't know how I would have ended up if I hadn't met Dan and married him. When I said "I do" all my wildness seemed to disappear. You might not believe it, but before you I hadn't had a man in almost a year. I don't know what it is about you, but my pussy got wet just talking to you in the store that day. I was afraid, actually scared, that you wouldn't call when I gave you my phone number. Love at first sight? I don't honestly know, but something made me give you my card that day. There is something special about you and I'm not the only one who feels it. Melanie has never acted toward a man the way she acted toward you tonight." 
 
- Her fondling me started to put new life in my dick and when it twitched a couple of times she moved down and took it in her mouth. A couple of minutes later I was standing tall and she moved on top of me and used her right hand to guide me into her as she settled down on me and started doing me cowgirl. She rode me until I had to get off and then I rolled her over and fucked her hard until I got the both of us off. When I pulled out Monica told me that she wished we could spend the night together but: Report_Story #2 
+ Her fondling me started to put new life in my dick and when it twitched a couple of times she moved down and took it in her mouth. A couple of minutes later I was standing tall and she moved on top of me and used her right hand to guide me into her as she settled down on me and started doing me cowgirl. She rode me until I had to get off and then I rolled her over and fucked her hard until I got the both of us off. When I pulled out Monica told me that she wished we could spend the night together but:  
 
  
 
@@ -560,7 +560,7 @@
 
  I told her that I understood, but I really didn't. Mel was too young to understand and by the time she was old enough I figured to be married to Monica. But it was what Monica wanted so I got up, dressed and got ready to leave. 
 
- I told Mon that I had to take the Mustang to the paint shop in the morning and I asked her if she and Mel would like to go with me and then maybe have a picnic at the park later. She said it sounded like a good idea and I told her that I would pick her up at nine. I went to my place, set the clock for eight, and was asleep as soon as my head hit the pillow. Report_Story #3 
+ I told Mon that I had to take the Mustang to the paint shop in the morning and I asked her if she and Mel would like to go with me and then maybe have a picnic at the park later. She said it sounded like a good idea and I told her that I would pick her up at nine. I went to my place, set the clock for eight, and was asleep as soon as my head hit the pillow.  
 
  
 
@@ -736,7 +736,7 @@
 
  I stared at him in silence for a bit and then said, "It is up to you Mon. I'll leave it in your hands" and then I looked at Alex and said "Pun intended" since his cock was still in Monica's hand with the knife only a fraction of an inch away from it. 
 
- Monica squeezed his cock and he screamed, but then she let loose of it. Report_Story #4 
+ Monica squeezed his cock and he screamed, but then she let loose of it.  
 
  
 

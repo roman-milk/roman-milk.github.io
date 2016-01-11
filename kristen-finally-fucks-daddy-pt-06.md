@@ -110,7 +110,7 @@
 
  Softly I crawled onto the bed, on my fours, slithering into the middle of the bedspread facing my father and the camera. I pushed my long, brushed hair away from my shoulders again, then rose to my knees. That way, the babydoll pulled up far enough to show the thong over my crotch, and my back arched so the hard nipples stuck through the flimsy thin red fabric. If a man had the hots for me, he'd like me in this outfit for sure. 
 
- I watched my Daddy fidget with the buttons on the camcorder. "Okay, is it on?" I asked in a hush, nervously. Report_Story #2 
+ I watched my Daddy fidget with the buttons on the camcorder. "Okay, is it on?" I asked in a hush, nervously.  
 
  
 
@@ -190,7 +190,7 @@
 
  What a sight I must have been, nude and spreading my little body open to fuck the big rubbery handle, with my father standing there recording it. The orgasms were building now -- many of them, like airplanes taxiing to the active runway. My fingers were aching from gripping the handle; my arms were hurting from reaching down my body to shove the hairbrush into my pussy; my thighs felt on fire from being split open wide. Even my neck and shoulder muscles burned, because I was lifting my head up to stare down at my cunt filled with the unusual toy -- and look up to the camera and my Daddy, seeing me show off what a horny little slut I am. 
 
- "Oh fuck!" I screamed, feeling an orgasm about to explode, "I'm such a slut! Ohh FUCK!" My jaw dropped and I just shrieked, my eyes closing, a cum exploding hard throughout my body. My cunt squeezed the hairbrush deep in me and I shook and collapsed on the bed, so fucking dirty and sweaty and wet, loving the energy squirting through my muscles. "Ahhhh!" I continued to wail while I kept pumping the rubbery fake dick in my twat through the orgasm, thrusting deep and pounding hard to make the orgasm harder and longer. Report_Story #3 
+ "Oh fuck!" I screamed, feeling an orgasm about to explode, "I'm such a slut! Ohh FUCK!" My jaw dropped and I just shrieked, my eyes closing, a cum exploding hard throughout my body. My cunt squeezed the hairbrush deep in me and I shook and collapsed on the bed, so fucking dirty and sweaty and wet, loving the energy squirting through my muscles. "Ahhhh!" I continued to wail while I kept pumping the rubbery fake dick in my twat through the orgasm, thrusting deep and pounding hard to make the orgasm harder and longer.  
 
  
 

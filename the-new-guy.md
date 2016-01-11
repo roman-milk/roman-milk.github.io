@@ -340,7 +340,7 @@
 
  "Then why not tell them all." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -504,7 +504,7 @@
 
  Mary followed me to my apartment and spent almost all night trying to ruin me. She started out with another of her superb blow jobs and then she climbed up on the bed, got on her knees and buried her head in a pillow and invited me to take her in the ass. She was hot and tight and she loved anal sex. By the time I was ready to cum she was begging me not to stop, but I had no choice in the matter. I stopped stroking into her, but my cock shot its load anyway. I hurried into the bathroom and washed my dick off and then ran back and got into a sixty-nine and tried to get her off. I got her close, but couldn't bring her all the way and as soon as she got my dick hard again she wanted me back in her ass. Before I fell asleep she had given me two marvelous blow jobs, had taken me in her ass three times and had climbed on top of me and pounded her pussy on my cock once. 
 
- She woke me up with a blow job, climbed on top of my for a slow leisurely fuck and when she left me to go home and get ready for work I wondered if I would be able to do Sonia any good when we got together that night. Report_Story #1 
+ She woke me up with a blow job, climbed on top of my for a slow leisurely fuck and when she left me to go home and get ready for work I wondered if I would be able to do Sonia any good when we got together that night.  
 
  
 
@@ -668,7 +668,7 @@
 
  It was a brand new experience for me; a woman had never before bolted for the bathroom and then barfed in the toilet after sucking me off. It was a day of firsts for me; I'd never had a woman cry because I'd given her an orgasm either. As I watched Sonia dress I wondered what the protocol was in saying goodnight - or was it goodbye - to a woman you had just caused to throw up into your toilet. Sonia saved me from the embarrassment of doing the wrong thing by looking over at me and saying, "I'll let my self out" and then she left. 
 
- My insensitive side said, "Oh well, one down and two to go," but my sensitive side was upset - very upset - at the way the evening had ended. Sonia was a damned good piece of ass and I would have loved to have more of her. Report_Story #1 
+ My insensitive side said, "Oh well, one down and two to go," but my sensitive side was upset - very upset - at the way the evening had ended. Sonia was a damned good piece of ass and I would have loved to have more of her.  
 
  
 
@@ -860,7 +860,7 @@
 
  "That's great. Thanks honey, you just made my day." 
 
- Matty walked away smiling and as I watched her move toward her desk I thought, "Women! Would any man ever understand them?" Report_Story #1 
+ Matty walked away smiling and as I watched her move toward her desk I thought, "Women! Would any man ever understand them?"  
 
  
 
@@ -990,7 +990,7 @@
 
  "You got it sweetie, but if you can cop feels off me you can't get pissed when I cop one off you." 
 
- "Deal." Report_Story #1 
+ "Deal."  
 
  
 
@@ -1262,7 +1262,7 @@
 
  "Heard what?" 
 
- "That I've become the slut you wanted. Every time I come in here now I end up out in the parking lot. I'm making more trips than Alice ever did." Report_Story #2 
+ "That I've become the slut you wanted. Every time I come in here now I end up out in the parking lot. I'm making more trips than Alice ever did."  
 
  
 

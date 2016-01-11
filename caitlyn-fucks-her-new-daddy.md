@@ -124,7 +124,7 @@
 
  The loud, sloppy kissing continued on the bed above me a little bit, with Caitlyn's subtle moaning growing until it was a full state of humming. "Mmm uhhh mmmm ummmm," like that. Then the grunting began; hers. "Uh fucking god," I heard her say hoarse and anxious, "oh god Daddy, I'm so hot for you Daddy." The bed was rolling a little, moving up and down in slow motions; I was imagining he was rubbing her pussy or something, or maybe had his hand inside her pants. But she explained it a moment later. "Daddy, take off my fucking pants now, Daddy." 
 
- I could tell he was still fighting his better judgment; I guess it was one thing to cum in her mouth, but to get her nude too would guarantee fucking, and maybe that was a line he didn't want to cross. "I don't know, baby," he grunted. It broke my heart because I didn't want Caitlyn to be disappointed or left wanting; she was so excited for this date, when I was shaving her pussy and giving her a shower after supper. Report_Story #2 
+ I could tell he was still fighting his better judgment; I guess it was one thing to cum in her mouth, but to get her nude too would guarantee fucking, and maybe that was a line he didn't want to cross. "I don't know, baby," he grunted. It broke my heart because I didn't want Caitlyn to be disappointed or left wanting; she was so excited for this date, when I was shaving her pussy and giving her a shower after supper.  
 
  
 
@@ -236,7 +236,7 @@
 
  His moaning continued, and Caitlyn was giggling a bit still, then I heard her moan loudly and make what sounded like a sucking noise. "Mmph uh Daddy, mmm gawd, that tastes good, mmmm." I heard her male friend grunt louder then say, "That's hot ... do it again ... uhhh yeah Katie, that turns me on." 
 
- "Does it, Daddy, really?" She gave him a little girl laugh. "Do you like seeing me stick my fingers in me and suck your cum off of them?" I swear my heart stopped when I heard that, visualizing her spread eagle open, sticking fingers up her fucked cunt, and pulling them out all sloppy wet then licking or sucking them clean. Taht was so hot. A couple of seconds later, Caitlyn went, "Mmmmmm!" and I heard some licking and suckling noises. That was exactly what she was going. "Oh gawd Daddy I love your cum, there's so much in me," my princess cooed to the man who fucked her, "Daddy your big cock filled me all up." Report_Story #3 
+ "Does it, Daddy, really?" She gave him a little girl laugh. "Do you like seeing me stick my fingers in me and suck your cum off of them?" I swear my heart stopped when I heard that, visualizing her spread eagle open, sticking fingers up her fucked cunt, and pulling them out all sloppy wet then licking or sucking them clean. Taht was so hot. A couple of seconds later, Caitlyn went, "Mmmmmm!" and I heard some licking and suckling noises. That was exactly what she was going. "Oh gawd Daddy I love your cum, there's so much in me," my princess cooed to the man who fucked her, "Daddy your big cock filled me all up."  
 
  
 
@@ -334,7 +334,7 @@
 
  I lost cound of how many minicums she had. Her body was fucking exploding around his cock. It was so awesome and I was so happy that she was having such a fun evening. 
 
- Suddenly the bed seemed to sink even lower, almost ready to crush me into pulp. He was leaning forward. And then the bed really began shaking, with its joints creaking and springs compressed to their limits. "FUCK!" he said, his first words in a long time. And the fucking now was beyond frenetic -- it was animal. He was ramming her with little jabs at the most amazing pace, probably a hundred a minute, I mean, furiously pounding into her body at such a rapid-fire rate -- fuck fuck fuck fuck fuck fuck -- that I thought he was going to break her tender teenage body. I heard both of them screaming now, gasping for air and begging for relief, as his cock was jammed deeper and deeper into her tight cunt. Report_Story #4 
+ Suddenly the bed seemed to sink even lower, almost ready to crush me into pulp. He was leaning forward. And then the bed really began shaking, with its joints creaking and springs compressed to their limits. "FUCK!" he said, his first words in a long time. And the fucking now was beyond frenetic -- it was animal. He was ramming her with little jabs at the most amazing pace, probably a hundred a minute, I mean, furiously pounding into her body at such a rapid-fire rate -- fuck fuck fuck fuck fuck fuck -- that I thought he was going to break her tender teenage body. I heard both of them screaming now, gasping for air and begging for relief, as his cock was jammed deeper and deeper into her tight cunt.  
 
  
 

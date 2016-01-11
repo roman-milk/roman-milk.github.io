@@ -242,7 +242,7 @@
 
  Mellissa nodded a yes. 
 
- "Okay then. Every night after school and all day on Saturday. If we make good progress we can skip Sundays." She turned to me and said, "It means that you will be responsible for having dinner ready when your dad gets home. That all right with you?" Report_Story #2 
+ "Okay then. Every night after school and all day on Saturday. If we make good progress we can skip Sundays." She turned to me and said, "It means that you will be responsible for having dinner ready when your dad gets home. That all right with you?"  
 
  
 

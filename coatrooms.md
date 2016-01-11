@@ -188,7 +188,7 @@
 
  +++++++++++++++++++++++++++++++++++++++++ 
 
- I hit the hotel, grabbed my bags and stopped at the desk to check out. The man behind the counter said I had a message and he gave it to me. It was from Nan telling me not to do anything rash and to wait for her. I told him that the wife would still be there until check out time, paid the bill and then I left. Report_Story #2 
+ I hit the hotel, grabbed my bags and stopped at the desk to check out. The man behind the counter said I had a message and he gave it to me. It was from Nan telling me not to do anything rash and to wait for her. I told him that the wife would still be there until check out time, paid the bill and then I left.  
 
  
 

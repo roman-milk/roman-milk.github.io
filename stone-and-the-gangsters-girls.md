@@ -142,7 +142,7 @@
 
  I was on her in a second, guiding myself into her with one hand on my shaft while I squeezed one of her taut buttocks with the other. 
 
- Amy's head lolled forward as I slid into her. "Oh, fuck," I heard her mutter. "Oh yes. Oh fuck. That's so hard." The girl pressed both palms onto the wall and craned her neck to regard me with a glazed-eyed look of pure lust. She chewed on her bottom lip and mewled as she thrust her hips back at me. "Fast, Daddy," she squealed, her hips corkscrewing as she wriggled around knock-kneed on my dick. 'I'm so horny, Daddy. I'm going to come soon. I've been naughty today. I was playing with my pussy before I came to see you. I'm a bad girl, Daddy. Your little princess is so wicked." Amy grunted and screwed her eyes closed. She gasped and winced and looked away from me. I gripped her hips and, as she wanted me to, slammed into her hard and fast. Report_Story #2 
+ Amy's head lolled forward as I slid into her. "Oh, fuck," I heard her mutter. "Oh yes. Oh fuck. That's so hard." The girl pressed both palms onto the wall and craned her neck to regard me with a glazed-eyed look of pure lust. She chewed on her bottom lip and mewled as she thrust her hips back at me. "Fast, Daddy," she squealed, her hips corkscrewing as she wriggled around knock-kneed on my dick. 'I'm so horny, Daddy. I'm going to come soon. I've been naughty today. I was playing with my pussy before I came to see you. I'm a bad girl, Daddy. Your little princess is so wicked." Amy grunted and screwed her eyes closed. She gasped and winced and looked away from me. I gripped her hips and, as she wanted me to, slammed into her hard and fast.  
 
  
 
@@ -292,7 +292,7 @@
 
  "Take your clothes off, Stone," Julie said quietly, her attention focussed on the length of stiff gristle jutting from my flies. "I want to suck you. Let me taste your big cock before you fuck me with it." 
 
- As I scrabbled out of my jeans and hurriedly unbuttoned my shirt, shoes and socks already kicked across the room, Julie settled onto a huge sofa, sitting in an almost demure pose with her legs crossed. Her positioning, all very probably contrived, accentuated the pleasing taper of her legs. Julie sat in a three-quarter pose, her flank exposed to me in a way that showed off the sweep of her waist as it flared into her hip. The profile of her bottom against the seat cushion, the taut and tanned tension of her thigh, the stockings and shoes, not to mention the rack of Julie's ribs and the rounded overhang of her breasts all combined to swell my ardour. Report_Story #3 
+ As I scrabbled out of my jeans and hurriedly unbuttoned my shirt, shoes and socks already kicked across the room, Julie settled onto a huge sofa, sitting in an almost demure pose with her legs crossed. Her positioning, all very probably contrived, accentuated the pleasing taper of her legs. Julie sat in a three-quarter pose, her flank exposed to me in a way that showed off the sweep of her waist as it flared into her hip. The profile of her bottom against the seat cushion, the taut and tanned tension of her thigh, the stockings and shoes, not to mention the rack of Julie's ribs and the rounded overhang of her breasts all combined to swell my ardour.  
 
  
 
@@ -446,7 +446,7 @@
 
  "Show me," Amy grunted, wincing with pleasure as she pushed the dildo deeper into her opening. "Let me see how excited you are, Daddy. Show me your big cock. Pull it while I fuck my pussy." 
 
- Unzipping my jeans, I then hauled forth my desire while I stared in fascination at Amy and her rubber friend. I shuffled closer to the bed to get a better view of the girl's pussy as Amy slowly eased the length of it into her body. Her stretched flesh bulged on the outstroke, so tight around the girth of the thing that I feared she would split. But I needn't have worried, because the gloop I saw foaming on the shaft of the dildo told me that Amy had all the lubrication she needed to make the insertion of such a brutal device relatively simple. Report_Story #4 
+ Unzipping my jeans, I then hauled forth my desire while I stared in fascination at Amy and her rubber friend. I shuffled closer to the bed to get a better view of the girl's pussy as Amy slowly eased the length of it into her body. Her stretched flesh bulged on the outstroke, so tight around the girth of the thing that I feared she would split. But I needn't have worried, because the gloop I saw foaming on the shaft of the dildo told me that Amy had all the lubrication she needed to make the insertion of such a brutal device relatively simple.  
 
  
 
@@ -598,7 +598,7 @@
 
  So I sat down and helped Amy to lie across my lap. The girl was positioned in such a way that her hips rested on my thighs and thrust her pert derrière upwards. 
 
- Stella leaned low and stroked each buttock slowly, caressing and murmuring endearments until she laid a series of soft, feather-light kisses across each globe. Report_Story #5 
+ Stella leaned low and stroked each buttock slowly, caressing and murmuring endearments until she laid a series of soft, feather-light kisses across each globe.  
 
  
 
@@ -766,7 +766,7 @@
 
  "Lick it out of me," Stella interrupted as she collapsed onto the settee almost on top of Amy. "Lick his spunk out of me, Amy." 
 
- Five minutes later and Stella, still with the skirt around her waist and her tits bulging over her bra cups, sat on the sofa smoking. Report_Story #6 
+ Five minutes later and Stella, still with the skirt around her waist and her tits bulging over her bra cups, sat on the sofa smoking.  
 
  
 
@@ -960,7 +960,7 @@
 
  Ignoring my petulant outburst, Dave carried on. 
 
- "I only married her for appearances," he said. "It might seem a bit strange to you, but in my world it was seen as a plus, being a family man, like. Gave the impression of stability. Sure, you need the creds and the reputation, but a wife and a kid or two made the old boys, back in the days when we were both starting out, Stone, think I wasn't just some local nutter who'd barge in an' disturb the old status quo. So I married Julie and out popped Amy, which gave the old guard the impression I was just like them. Fucking muppets they were. I used the time Julie bought me to set myself up and then I moved. I fucked the Griffin brothers up and never looked back since. Report_Story #7 
+ "I only married her for appearances," he said. "It might seem a bit strange to you, but in my world it was seen as a plus, being a family man, like. Gave the impression of stability. Sure, you need the creds and the reputation, but a wife and a kid or two made the old boys, back in the days when we were both starting out, Stone, think I wasn't just some local nutter who'd barge in an' disturb the old status quo. So I married Julie and out popped Amy, which gave the old guard the impression I was just like them. Fucking muppets they were. I used the time Julie bought me to set myself up and then I moved. I fucked the Griffin brothers up and never looked back since.  
 
  
 

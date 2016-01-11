@@ -98,7 +98,7 @@
 
  Crystal squealed, letting out a hushed but anxious tone of shock and amazement. "Oh, SHIT!" 
 
- Three of my fingers, pressed together, furiously ground into Crystal's crotch through her jeans, pressing hard against where her clitoris was; and since she was already very aroused from the porn movie, her hips instantly started rotating wildly in circles under my hand. Her electrified moan grew longer, as she arched her back, pushing her big boob into my mouth. Right away, I could tell, she wanted this too. She wasn't moving away or pushing me off of her. My Latina girl friend rotated a bit to the side so her breast rose up higher, letting me fill more of it in my mouth, while she allowed me to rub satisfaction into her clitoris through her thick jeans. "Oh fuck, oh yeah baby," my friend squealed in her high-pitched Latina voice, those big brown eyes staring at me. Report_Story #2 
+ Three of my fingers, pressed together, furiously ground into Crystal's crotch through her jeans, pressing hard against where her clitoris was; and since she was already very aroused from the porn movie, her hips instantly started rotating wildly in circles under my hand. Her electrified moan grew longer, as she arched her back, pushing her big boob into my mouth. Right away, I could tell, she wanted this too. She wasn't moving away or pushing me off of her. My Latina girl friend rotated a bit to the side so her breast rose up higher, letting me fill more of it in my mouth, while she allowed me to rub satisfaction into her clitoris through her thick jeans. "Oh fuck, oh yeah baby," my friend squealed in her high-pitched Latina voice, those big brown eyes staring at me.  
 
  
 
@@ -180,7 +180,7 @@
 
  I wanted to feel it too, my pussy was dying to be fucked by something long and hard. "Here," I commanded, grabbing one of her arms to guide her hand down to the cucumber. Crystal took it from me, fucking herself with the veggie, while I sat up for a quick moment to grab the bag of grocery dildos. I already knew what I wanted. I ripped off one of the bananas from its bretheren, then I crawled backwards on my bed until I was lying across Crystal's lap, my back facing her and Crystal's pussy fucking the cucumber right in front of me. I had my armpit over her flat tummy, my arm able to reach forward and take back the cucumber from her. 
 
- As I started fucking her with the cucumber again, lying on my hip, my other hand reached into my crotch and poked the bottom of the banana against my own aching vagina. I was going to fuck that piece of fruit, I wanted it so badly. I felt the yellow corner of the long shape rubbing my moist cunthole, and with a little shove, the banana slid into my pussy. I was fucking it! It felt welcome, such relief -- not a male cock, but, something thick to probe into my tight teenage cunt, give me some relief, let my cunt squeeze it and cum around it. Report_Story #3 
+ As I started fucking her with the cucumber again, lying on my hip, my other hand reached into my crotch and poked the bottom of the banana against my own aching vagina. I was going to fuck that piece of fruit, I wanted it so badly. I felt the yellow corner of the long shape rubbing my moist cunthole, and with a little shove, the banana slid into my pussy. I was fucking it! It felt welcome, such relief -- not a male cock, but, something thick to probe into my tight teenage cunt, give me some relief, let my cunt squeeze it and cum around it.  
 
  
 

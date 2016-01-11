@@ -194,7 +194,7 @@
 
  Her fingers moved inside me, working with such persistence, wriggling to bring me closer to the brink. Then she kissed me again and my climax exploded. 
 
- Our tongues squirmed and danced as the sensations rolled on and on. I pushed myself onto Ivana's hand, mashing my sodden centre against her. I even gripped her wrist and tried to shove more of her into my body. Report_Story #2 
+ Our tongues squirmed and danced as the sensations rolled on and on. I pushed myself onto Ivana's hand, mashing my sodden centre against her. I even gripped her wrist and tried to shove more of her into my body.  
 
  
 

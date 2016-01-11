@@ -188,7 +188,7 @@
 
  He laughed. "Not anymore it isn't, that's for sure. I wouldn't touch your cheating cunt with a 10 foot pole. What do you want, Susan?" 
 
- His words shocked her. He'd never spoken to her like that. Not in eleven years of marriage. She felt her anger building, but tried to stay calm. She didn't need a repeat of the night before. "I want you to understand what I'm going through. This isn't easy for me. I didn't mean to fall in love with him. I only wanted to help him through a difficult time. It doesn't have to affect us at all. I love you and I'll never leave you." Report_Story #2 
+ His words shocked her. He'd never spoken to her like that. Not in eleven years of marriage. She felt her anger building, but tried to stay calm. She didn't need a repeat of the night before. "I want you to understand what I'm going through. This isn't easy for me. I didn't mean to fall in love with him. I only wanted to help him through a difficult time. It doesn't have to affect us at all. I love you and I'll never leave you."  
 
  
 
@@ -406,7 +406,7 @@
 
  The following day, he wandered the casino for a while. He played a little craps, and some poker, losing a couple of hundred bucks. He'd picked up dozens of receipts in the Keno and Sports betting rooms. Thousands of dollars' worth. He'd taken in the show, and found another good-looking woman who was more than happy to exchange her favors for a few hundred bucks. Not as young or pretty as the previous night's guest, she was closer to his age, and very easy going. He managed to get her for only $300, and got even more use out of her than he had the tall blonde, the night before. He figured it had to last; he'd be damned if he would be having sex with his whore of a wife anytime soon. It was so good, he tipped her an extra $50. She gave him a business card, and asked him to look her up any time he needed company. He saved it. 
 
- Jonathan felt sated but lonely in the big bed that night. He thought about his wrecked marriage, and all the things his wife had done with her younger, better lover. The bitch. How could she do that to him? To her only children? How selfish could one person be? Giving up her marriage for some stranger fucking her. What kind of man would set out to steal another man's wife? Figures it would be a lawyer. Lying cheating fucks, all of them. Scum of the earth. Report_Story #3 
+ Jonathan felt sated but lonely in the big bed that night. He thought about his wrecked marriage, and all the things his wife had done with her younger, better lover. The bitch. How could she do that to him? To her only children? How selfish could one person be? Giving up her marriage for some stranger fucking her. What kind of man would set out to steal another man's wife? Figures it would be a lawyer. Lying cheating fucks, all of them. Scum of the earth.  
 
  
 
@@ -692,7 +692,7 @@
 
  Jonathan let her vent. "I'm often under a lot of stress. It was something I did to try to relieve that. I didn't want you to have to feel the pressure I was under. We were letting people go, and there was more and more to do, with tighter schedules. I should have talked to you about it, instead of holding it in." 
 
- She sniffled and wiped her eyes. "I was bored, and he became my project. That was all, to start with. There was nothing there for a year. I didn't see him that way, I swear. I felt good helping him, watching him slowly pull himself together. I felt useful, and that's what I needed. That was our entire problem. It was never about a lack of affection, or our love-making, or falling out of love with you. I never stopped loving you. I was doing something that made me feel good, and I was proud. I wasn't doing anything wrong, except maybe spend too much time with another man, but it wasn't romantic. It was like a job. One I was doing well at." Report_Story #4 
+ She sniffled and wiped her eyes. "I was bored, and he became my project. That was all, to start with. There was nothing there for a year. I didn't see him that way, I swear. I felt good helping him, watching him slowly pull himself together. I felt useful, and that's what I needed. That was our entire problem. It was never about a lack of affection, or our love-making, or falling out of love with you. I never stopped loving you. I was doing something that made me feel good, and I was proud. I wasn't doing anything wrong, except maybe spend too much time with another man, but it wasn't romantic. It was like a job. One I was doing well at."  
 
  
 
@@ -764,7 +764,7 @@
 
  =================== 
 
- The final part of this continuation is being submitted at the same time. Thanks for reading, and I hope you enjoy this alternative ending. Report_Story #1 
+ The final part of this continuation is being submitted at the same time. Thanks for reading, and I hope you enjoy this alternative ending.  
 
  
 
@@ -1058,7 +1058,7 @@
 
  "Why can't they understand? Haven't they ever been in love before? I can't help how I feel." 
 
- He had his hand inside her shirt, caressing her breast, cupping it gently. "You still have us. Your family. We love you." Report_Story #2 
+ He had his hand inside her shirt, caressing her breast, cupping it gently. "You still have us. Your family. We love you."  
 
  
 
@@ -1390,7 +1390,7 @@
 
  Jonathan jerked the reins to the side, heading off the stubborn old cow. He looked for some reason she'd shied away from the gate, instead of following the rest of the herd to the new pasture. 
 
- She turned, and looked to be headed for the scrub, when Vincent, his cattle dog, nipped at her foreleg, turning her. He saw the tentative shifting of weight, and figured she might have an injury. Report_Story #3 
+ She turned, and looked to be headed for the scrub, when Vincent, his cattle dog, nipped at her foreleg, turning her. He saw the tentative shifting of weight, and figured she might have an injury.  
 
  
 
@@ -1652,7 +1652,7 @@
 
  "Where will you live? How will you take care of them?" he asked softly. 
 
- "I guess I'll go back to Rich. He'll take me in. He loves me." She knew there wasn't much chance of that. He'd cut off all communications. Still, once she explained... Report_Story #4 
+ "I guess I'll go back to Rich. He'll take me in. He loves me." She knew there wasn't much chance of that. He'd cut off all communications. Still, once she explained...  
 
  
 

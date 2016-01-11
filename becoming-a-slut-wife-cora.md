@@ -146,7 +146,7 @@
 
  "You were superb Mrs. Rush, simply superb. Next time I may have to bring help just so I can stay with you." 
 
- It was a bittersweet smile that I gave him when I said, "There won't be a next time Dave. This time was grand and I'm glad we did what we did, but it was still wrong. I really do love my husband though and so we can't do it again." Report_Story #2 
+ It was a bittersweet smile that I gave him when I said, "There won't be a next time Dave. This time was grand and I'm glad we did what we did, but it was still wrong. I really do love my husband though and so we can't do it again."  
 
  
 

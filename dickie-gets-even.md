@@ -122,7 +122,7 @@
 
  What I did know was that Dickie had fucked up big time. I would spend every dime I had if it was necessary, but I would find him and I would find out every last little thing that there was to know about him. I would find the one thing that he loved and prized above all else and then I would take it from him; take it from him and grind it to dust before his very eyes. 
 
- As I looked at Tammy I heard my father's words in the back of my head, "You're a Dixon boy, and Dixon's don't back down from nothing or nobody. We fight back boy and even if we lose we get even. Don't matter none if it takes years, we always get even." Report_Story #1 
+ As I looked at Tammy I heard my father's words in the back of my head, "You're a Dixon boy, and Dixon's don't back down from nothing or nobody. We fight back boy and even if we lose we get even. Don't matter none if it takes years, we always get even."  
 
  
 

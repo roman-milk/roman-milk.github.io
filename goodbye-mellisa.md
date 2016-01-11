@@ -290,7 +290,7 @@
 
  When I took my discharge I set myself up in the security business. In short, my company furnished 'security specialists' which is short hand for body guards and armed guards for various companies. 
 
- I'd been out a year when I met Melissa at a cocktail party, dated her and then asked her to marry me. We had what I thought was a good marriage. We had been married just a little over a year when I woke up one morning, looked down at Melissa sleeping beside me and knew without a doubt that she was cheating on me. I never saw or heard anything to make me think that. I just woke up one morning, looked at her and knew. Of course that wasn't enough to confront her with so I hired a private detective and one week later I had the goods on Melissa and one Ronald Porter. With that information in my hand I had to decide what to do. Actually I knew what to do. The trick was going to be doing it and getting away with it. Report_Story #2 
+ I'd been out a year when I met Melissa at a cocktail party, dated her and then asked her to marry me. We had what I thought was a good marriage. We had been married just a little over a year when I woke up one morning, looked down at Melissa sleeping beside me and knew without a doubt that she was cheating on me. I never saw or heard anything to make me think that. I just woke up one morning, looked at her and knew. Of course that wasn't enough to confront her with so I hired a private detective and one week later I had the goods on Melissa and one Ronald Porter. With that information in my hand I had to decide what to do. Actually I knew what to do. The trick was going to be doing it and getting away with it.  
 
  
 

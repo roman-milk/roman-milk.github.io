@@ -248,7 +248,7 @@
 
  "You know what I want lover" she said and I did. She liked what she called, "Half and half" and her favorite place to get 'half and half' was leaning forward over the back of the sofa. The first half was sliding into her already sopping pussy and fucking her while using my thumb and fingers on her asshole. The second half came when she would cry out, "Now baby, now" and I would pull my cock out of her pussy and push it into her ass. 
 
- I was buried in her butt and pounding hard just the way she liked it and she was moaning and urging me on when I had the strangest thought. I wondered why Darcy and I had never tried anal sex. Just as I had that thought Juanita screamed and shook with an orgasm and that triggered mine. After I'd gone limp Juanita led me into the bathroom, washed my cock and then sucked me hard again. After one more romp I kissed her goodnight and headed on home to my place. Report_Story #2 
+ I was buried in her butt and pounding hard just the way she liked it and she was moaning and urging me on when I had the strangest thought. I wondered why Darcy and I had never tried anal sex. Just as I had that thought Juanita screamed and shook with an orgasm and that triggered mine. After I'd gone limp Juanita led me into the bathroom, washed my cock and then sucked me hard again. After one more romp I kissed her goodnight and headed on home to my place.  
 
  
 

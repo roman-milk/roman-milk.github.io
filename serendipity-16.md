@@ -162,7 +162,7 @@
 
  Cupid watched in voyeuristic awe at the reaction his flowers had brought. His feelings towards her only increased as he felt feelings inside he had not felt in decades. 
 
- "Well whoever it is the man has taste. These are the nicest flowers I have ever seen," Cassidy said, trying to build up her good friend's spirits. Report_Story #2 
+ "Well whoever it is the man has taste. These are the nicest flowers I have ever seen," Cassidy said, trying to build up her good friend's spirits.  
 
  
 
@@ -376,7 +376,7 @@
 
  Beth's heart warmed at the thought that Cupid was indeed her secret admirer, although after a few minutes something popped into her head. How did he know where she worked on Monday? Or Tuesday? This alarmed her a bit as it was rather strange to get the flowers on Monday when they had only met twice, by accident, that day. Or was it an accident? She wanted to ask him, to find out, but realized they had never exchanged numbers. 
 
- That night, Beth had a blast at the sex toy party going on a bit of a spending spree. She bought a pair of silk thigh high stockings for her date, something she had never done before, being more of a pantyhose girl. She bought a new vibrator that she used later that night, she bought a vibrating egg not for tomorrow but because she thought it would be fun and she bought three pair of thong panties something she used to wear in college while dating an old flame. She had also bought a gorgeous red dress after work for tomorrow that was both elegant and sexy, something that was way out of her usual comfort zone as it had a generous v-neck line and a side slit that would probably show her thigh high lace tops if anyone was paying attention. Yet, she was feeling sexy and wanted, and those two are a great mixture to open up a girl's conservative nature. Report_Story #3 
+ That night, Beth had a blast at the sex toy party going on a bit of a spending spree. She bought a pair of silk thigh high stockings for her date, something she had never done before, being more of a pantyhose girl. She bought a new vibrator that she used later that night, she bought a vibrating egg not for tomorrow but because she thought it would be fun and she bought three pair of thong panties something she used to wear in college while dating an old flame. She had also bought a gorgeous red dress after work for tomorrow that was both elegant and sexy, something that was way out of her usual comfort zone as it had a generous v-neck line and a side slit that would probably show her thigh high lace tops if anyone was paying attention. Yet, she was feeling sexy and wanted, and those two are a great mixture to open up a girl's conservative nature.  
 
  
 

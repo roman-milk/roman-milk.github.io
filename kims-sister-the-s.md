@@ -140,7 +140,7 @@
 
  "Mmmm, yeah," I heard Katie mumble with my dick in her mouth. Kim reached up, and in the slowest undressing I've ever seen, she pulled those pretty little panties off her sister's ass and down her legs. Kim pulled the panties up to her face, taking in the scent, and then tossed them at my head. I caught them, pulling the soaked garment to my mouth and getting just a little taste. Divine. Almost like her sister, but maybe a bit thicker and sweeter. 
 
- I saw Kim reach out to spread her sister open before sticking her face in. Katie increased her pace, moaning as she got eaten out, the moans reverberating on my cock. I heard Kim's slurping sounds, as if she was trying to suck her sister dry all at once. I looked down as Kim pulled her face back, her bee stung lips swollen with pleasure and covered in her sister's juices. That did it. Report_Story #2 
+ I saw Kim reach out to spread her sister open before sticking her face in. Katie increased her pace, moaning as she got eaten out, the moans reverberating on my cock. I heard Kim's slurping sounds, as if she was trying to suck her sister dry all at once. I looked down as Kim pulled her face back, her bee stung lips swollen with pleasure and covered in her sister's juices. That did it.  
 
  
 
@@ -148,7 +148,7 @@
 
  Kim was over in a heartbeat, her mouth licking her sisters firm D cups titties and lapping up my cum. They shared a dirty, cum filled kiss, tits pressed together as they grabbed and groped each other like sluts on a rampage. As I began to recover, I watched to two sisters suck on each other's tits in a 69. They started sliding down each other's bodies, Katie's big tits on top scraping down Kim's stomach as she kissed towards that sweet little pussy that I love to eat. 
 
- More to come in Part 2. Report_Story #1 
+ More to come in Part 2.  
 
  
 
@@ -282,7 +282,7 @@
 
  "Cum on my face! I want you to cum all over me!" At the last second, I pull out and Kim hits her knees. Her mouth is instantly on my cock, sucking with an eagerness I can't even fully appreciate. Just before my first spurt, she pulls my dick out and strokes my cock, her mouth open and waiting. I shoot my first spurt mostly into her mouth, some hitting her chin. The second shot hits her cheek. I aim the rest at her tits, watching as she rubs it into her firm breasts. Kim swallows what's in her mouth, and licks the rest off of her fingers. Wow, if only Rita could see that, I think to myself. Why did she pop into my head just then? 
 
- Snapping back to the present, I see Kim and Katie sucking on hard nipples, hands roaming across soft flesh. They both have to be just dying to be touched, their pussies throbbing with pent up desire, but neither was making a move. Perhaps the fact that they are sisters is giving them second thoughts. Kim eagerly ate her sister's pussy, but that was in the heat of an electric moment. For me, knowing they are sisters gives it a little electric spark. For them, it's probably the opposite. Report_Story #2 
+ Snapping back to the present, I see Kim and Katie sucking on hard nipples, hands roaming across soft flesh. They both have to be just dying to be touched, their pussies throbbing with pent up desire, but neither was making a move. Perhaps the fact that they are sisters is giving them second thoughts. Kim eagerly ate her sister's pussy, but that was in the heat of an electric moment. For me, knowing they are sisters gives it a little electric spark. For them, it's probably the opposite.  
 
  
 

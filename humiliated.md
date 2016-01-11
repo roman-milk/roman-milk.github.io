@@ -182,7 +182,7 @@
 
  Irene threw the dirty, trampled dress onto the back seat. Driven across town, in her underwear, would be just a minor irritation for Tracy, compared with what was to come. She couldn't take Tracy back home, in this state, so naturally they drove to the hotel room. 
 
- "Don't worry Tracy, you're safe with me," she lied. Report_Story #1 
+ "Don't worry Tracy, you're safe with me," she lied.  
 
  
 
@@ -378,7 +378,7 @@
 
  "Hold it firmly and point it down," he casually said. 
 
- In consternation she watched a stream of urine hit the bowl, splashing the water right next to her. On hands and knees, while holding his cock, she looked up at the stranger urinating. A hot yellow stream shot right past her face. It was both disgusting and fascinating. She was holding a strangers cock, watching for the first time, how it worked. Report_Story #2 
+ In consternation she watched a stream of urine hit the bowl, splashing the water right next to her. On hands and knees, while holding his cock, she looked up at the stranger urinating. A hot yellow stream shot right past her face. It was both disgusting and fascinating. She was holding a strangers cock, watching for the first time, how it worked.  
 
  
 
@@ -538,7 +538,7 @@
 
  "Speak up, slut," Irene shouted, and smacked her ass. "Don't spill your filthy fluids over my floors, either," Irene said, poking her in the ribs, with a sharp heel "Otherwise, you'll lick them up off the floor," she warned. 
 
- "Yes, mistress, sorry mistress," Tracy whined. Report_Story #1 
+ "Yes, mistress, sorry mistress," Tracy whined.  
 
  
 
@@ -768,7 +768,7 @@
 
  "There, there, sweet little slut, your mistress will look after you," Irene teased. She loved rubbing it in, by treating her like a stupid slut. The woman's face looked so crestfallen, she almost felt sorry for her. 
 
- "You've got to let me leave, mistress. I'm sorry, mistress. I really am," Tracy earnestly said. Report_Story #2 
+ "You've got to let me leave, mistress. I'm sorry, mistress. I really am," Tracy earnestly said.  
 
  
 
@@ -824,7 +824,7 @@
 
  Slowly recovering, Irene looked at her cute slut, still kissing and adoring her pussy. With both hands she pulled the woman up her body, holding her close. Irene wrapped both arms around her, to burry the slut's face in her breasts. She felt slut's tears on her sensitized body, and smiled with satisfaction. 
 
- "Good little slut. You are all mine now. I shall look after you, so don't worry about a thing. Just obey me, and everything will be just fine," Irene told her. She patted her bottom, and stroked her hair. This promised to be a wonderful weekend of fun and games. Report_Story #1 
+ "Good little slut. You are all mine now. I shall look after you, so don't worry about a thing. Just obey me, and everything will be just fine," Irene told her. She patted her bottom, and stroked her hair. This promised to be a wonderful weekend of fun and games.  
 
  
 
@@ -1052,7 +1052,7 @@
 
  A tear dribbled from her eye, running down a cheek, to spill upon the carpet she was resting upon. Either he didn't see it, or didn't care. 
 
- Once freed of the glass and manacles, she stretched out over the carpet. She may be free of being a humble piece of furniture, but certainly not free of being this man's object. The only way to survive the coming exhibition would be to switch off, and think of herself as nothing more than a thing to be used. She had demonstrated how submissive she was, so the die was cast. She would have to dutifully obey him. Report_Story #2 
+ Once freed of the glass and manacles, she stretched out over the carpet. She may be free of being a humble piece of furniture, but certainly not free of being this man's object. The only way to survive the coming exhibition would be to switch off, and think of herself as nothing more than a thing to be used. She had demonstrated how submissive she was, so the die was cast. She would have to dutifully obey him.  
 
  
 
@@ -1130,7 +1130,7 @@
 
  "You can use me however you like," she said, a little too loud for comfort. 
 
- "I will, you can be sure of that," he grinned. Report_Story #1 
+ "I will, you can be sure of that," he grinned.  
 
  
 
@@ -1322,7 +1322,7 @@
 
  The spectre of having an orgasm before an audience was receding. 
 
- Tracy opened her eyes wide with fear. Her husband was here, and he was standing before her! Report_Story #2 
+ Tracy opened her eyes wide with fear. Her husband was here, and he was standing before her!  
 
  
 

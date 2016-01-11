@@ -186,7 +186,7 @@
 
  It was another day when we did not leave the bedroom. 
 
- Everything that mom said I had to learn to keep the girls from thinking that she was a liar has never been put to use - at least not yet. The girls have never found out because Kathy never gives me a chance to try one. She can't keep her hands off of me and so far that suits me just fine. There isn't a room in the house that we haven't fucked in and half the time dad is home sitting in front of the TV and drinking beer. Once I took her from behind as she knelt on her bed with dad in the shower less than fifteen feet away. Report_Story #2 
+ Everything that mom said I had to learn to keep the girls from thinking that she was a liar has never been put to use - at least not yet. The girls have never found out because Kathy never gives me a chance to try one. She can't keep her hands off of me and so far that suits me just fine. There isn't a room in the house that we haven't fucked in and half the time dad is home sitting in front of the TV and drinking beer. Once I took her from behind as she knelt on her bed with dad in the shower less than fifteen feet away.  
 
  
 

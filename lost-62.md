@@ -194,7 +194,7 @@
 
  "I want to fuck you," Caroline mewled. "I know it's wrong, but I'm just so fucking horny. Just once," she went on. "I promise I'll never tell." 
 
- My hands went to her waist as she straddled me. I hadn't said yes, but neither had I said no; and the truth is, at that moment, I would have gone along with anything she cared to suggest. Report_Story #2 
+ My hands went to her waist as she straddled me. I hadn't said yes, but neither had I said no; and the truth is, at that moment, I would have gone along with anything she cared to suggest.  
 
  
 

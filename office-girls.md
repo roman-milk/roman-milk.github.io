@@ -196,7 +196,7 @@
 
  He watched their first tentative laps around the head of his cock. Both tongues explored it, competing for it. Margaret licked its length while Katrina sucked on its head. As it disappeared into Katrina's mouth Margaret was reduced to sucking on his balls. When he came they were so intent on his cock they were unprepared for his withdrawal for it to spurt come into their faces. Like kittens at a milk bowl they enthusiastically licked him clean. 
 
- "Well ladies that was a good start. Remember the rules and I won't punish you. You can stop now or you'll wear it away." Jason took them both by the shoulders and squeezed them tight, kissing each in turn. Neither knew whether to cry or laugh, their faces betraying the confusion at what they had done and why. Report_Story #2 
+ "Well ladies that was a good start. Remember the rules and I won't punish you. You can stop now or you'll wear it away." Jason took them both by the shoulders and squeezed them tight, kissing each in turn. Neither knew whether to cry or laugh, their faces betraying the confusion at what they had done and why.  
 
  
 
@@ -232,7 +232,7 @@
 
  "Oh, I think that counts as adultery. Just ask our husbands." Margaret threw back at her. Seeming to revel in the idea. 
 
- Watching the car disappear into the night Katrina worried about her. Margaret seemed too wired, too manic. She hugged herself for comfort. How did she get into this? They did need June's help she would tell her tomorrow. They say a trouble shared is a trouble halved. That obviously doesn't apply to a young mans cock. Report_Story #1 
+ Watching the car disappear into the night Katrina worried about her. Margaret seemed too wired, too manic. She hugged herself for comfort. How did she get into this? They did need June's help she would tell her tomorrow. They say a trouble shared is a trouble halved. That obviously doesn't apply to a young mans cock.  
 
  
 
@@ -382,7 +382,7 @@
 
  "Lie on the floor face down over here." Jason told her. He directed her until her head was between June's knees. 
 
- On his knees beside June he carefully unzipped the outfit from the back to her belly. She protested through the gag a meaningless stream of sounds while he held onto her breasts squeezing the nipples harshly until she held still. For a moment he simply tingled her thighs with tender strokes of his fingertips then suddenly sucked on her lips. Pushing his tongue in to explore he felt her thighs relax, opening a little. Report_Story #2 
+ On his knees beside June he carefully unzipped the outfit from the back to her belly. She protested through the gag a meaningless stream of sounds while he held onto her breasts squeezing the nipples harshly until she held still. For a moment he simply tingled her thighs with tender strokes of his fingertips then suddenly sucked on her lips. Pushing his tongue in to explore he felt her thighs relax, opening a little.  
 
  
 
@@ -412,7 +412,7 @@
 
  She cried out a long wailing orgasm. Thankfully for the neighbours it was muted by the gag otherwise they might think someone was being tortured or killed. At last the five bodies lay at rest upon the floor. 
 
- Jason lay upon the prone body of June in silence except for the thumping of his heart and the deep breaths sucked into his heaving chest. Each of the women, in their own way, savouring the moment, held on to the feelings of satisfaction. 'This is just the beginning.' He thought. Looking them over he whispered. "So where do we go from here?" Report_Story #1 
+ Jason lay upon the prone body of June in silence except for the thumping of his heart and the deep breaths sucked into his heaving chest. Each of the women, in their own way, savouring the moment, held on to the feelings of satisfaction. 'This is just the beginning.' He thought. Looking them over he whispered. "So where do we go from here?"  
 
  
 
@@ -538,7 +538,7 @@
 
  "On your knees slaves." He cajoled them. They were compliant like well-trained dogs with Margaret attempting an imitating of an eager pup seeking his approval by sitting up on her knees making little whining noises. Katrina looked at her friend with a look of contempt. Before she could say anything Jason reprimanded her. "There's no need for that. You're all in this together. Take it, you know what to do." He told Katrina. She turned to face the front as though on parade, arching her back and pulling her shoulders back thrusting out her breasts at him at the same time shuffling her knees apart. The others adjusted themselves, squatting on the floor in a row displaying their naked bodies to him. 
 
- Jason was impressed with the size of June's breasts and they still felt firm. Next to her Carol looked so small and cute it was no wonder they had dressed her up as a schoolgirl on their naughty evenings together. There were quit a few photos on the computer which had given him clues on how best to treat each of them. On the end was Margaret always eager and ready for more. A nice figure but it was her vivacity that beamed out from her entire body straining at him to take notice. He looked back at Katrina. Her thin waist made her breasts look large too but knew by their feel they were smaller than June's. Report_Story #2 
+ Jason was impressed with the size of June's breasts and they still felt firm. Next to her Carol looked so small and cute it was no wonder they had dressed her up as a schoolgirl on their naughty evenings together. There were quit a few photos on the computer which had given him clues on how best to treat each of them. On the end was Margaret always eager and ready for more. A nice figure but it was her vivacity that beamed out from her entire body straining at him to take notice. He looked back at Katrina. Her thin waist made her breasts look large too but knew by their feel they were smaller than June's.  
 
  
 
@@ -552,7 +552,7 @@
 
  With his penis bouncing before him their eyes followed it as though mesmerised by a snake. If he stepped any closer it would tap Katrina on the forehead. Placing bags before them he said. "Here's your clothes for the weekend. Get showered and changed then back down here. Quickly, come on, move." They reached for the bags and struggled to their feet almost as stiff as he was. 
 
- Katrina realised the significance of what he had just said. They were in for a session lasting the weekend, the whole weekend. After this last humiliation could it get any worse? With a shudder she knew it could and would. Report_Story #1 
+ Katrina realised the significance of what he had just said. They were in for a session lasting the weekend, the whole weekend. After this last humiliation could it get any worse? With a shudder she knew it could and would.  
 
  
 
@@ -672,7 +672,7 @@
 
  Jason finished the task on the four women and lowered their feet knowing they were feeling the strain of the ordeal. He fitted a belt round each of their waists and unclipped each wrist from the chair arm to clip it to the belt. Now free of the chairs he helped each of them up and ushered them out through the bead curtain. They had no time to think or find out what he had been up to. What was the purpose of all that other than shaving them? With each step they felt the Chinese egg quivering inside. 
 
- Walking back out onto the street they were more anxious than ever; with wrists now attached to their waists they were so very vulnerable to passing strangers. They looked at each other seeing the fear in the eyes but they couldn't talk to reassure each other. Still wearing the gags they were attracting attention so were glad to hobble into the waiting limo. Report_Story #2 
+ Walking back out onto the street they were more anxious than ever; with wrists now attached to their waists they were so very vulnerable to passing strangers. They looked at each other seeing the fear in the eyes but they couldn't talk to reassure each other. Still wearing the gags they were attracting attention so were glad to hobble into the waiting limo.  
 
  
 

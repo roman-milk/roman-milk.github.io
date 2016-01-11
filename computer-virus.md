@@ -154,7 +154,7 @@
 
  Alexandra laughed again, and in my mind I heard the witch in the Hansel and Gretel story. There was something wrong, horribly askew. I happened to glance out of the corner of my eye, and saw the laptop. The machine looked suddenly lopsided, its ratio cockeyed, the screen appeared to be double its usual size. Although I'd switched the machine on, the screen was blank, no screen saver. Nothing. Then the image I'd seen of Alexandra on my work computer flickered briefly into view, shimmered for a second and then exploded into a starburst of pixels and the screen turned blank. 
 
- 'Of course you can suck them,' Alexandra purred, dragging my attention back to reality. Her hand came to the back of my head. Pressure guided my mouth to her teats. 'Ah,' the woman sighed. 'You really like my tits, don't you, Peter.' Report_Story #2 
+ 'Of course you can suck them,' Alexandra purred, dragging my attention back to reality. Her hand came to the back of my head. Pressure guided my mouth to her teats. 'Ah,' the woman sighed. 'You really like my tits, don't you, Peter.'  
 
  
 

@@ -132,7 +132,7 @@
 
  The note was facing up and Denise stared at the neat writing, as she tried to read what it said. "To the prettiest lady in Delta Villa #305," she read and her heart started racing. "I know you are mad at me and won't listen to what I have to say, so I'll try to reason with you this way." 
 
- Deni had to look away, as she tried to work up enough courage to keep reading. There were tears in her eyes when she looked back at the note. "This note will explain the situation you are in and the pictures will verify that I have enough evidence to blackmail you if need be," she read and became furious. "Just so you know... I have recorded everything you did and I will bring the evidence over this evening at 8 o'clock sharp." Report_Story #2 
+ Deni had to look away, as she tried to work up enough courage to keep reading. There were tears in her eyes when she looked back at the note. "This note will explain the situation you are in and the pictures will verify that I have enough evidence to blackmail you if need be," she read and became furious. "Just so you know... I have recorded everything you did and I will bring the evidence over this evening at 8 o'clock sharp."  
 
  
 

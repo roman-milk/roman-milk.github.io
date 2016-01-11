@@ -160,7 +160,7 @@
 
  When a little hottie, with her... big tits, her low cut shirt, her gorgeous face, her perfectly sculpted ass... and her enormous boobs again... so big... when a girl like that shows up at your door, you don't let her in immediately. You are skeptical of her. You question her story. Her motives. Maybe she had spied on us. Maybe she was trying to con us, charm us, get into our home, a happy couples' home, and rob us blind. Or kill us! 
 
- Okay, maybe I was jumping to conclusions. I had to calm down. Breathe. Remember my breathing exercises. Maybe she was telling the truth. She didn't look smart enough to lie so easily. Even though some girls can do it on command her tears seemed genuine. She didn't seem talented enough to act this well. So maybe it was the truth. Maybe she was Marcus's daughter. Report_Story #2 
+ Okay, maybe I was jumping to conclusions. I had to calm down. Breathe. Remember my breathing exercises. Maybe she was telling the truth. She didn't look smart enough to lie so easily. Even though some girls can do it on command her tears seemed genuine. She didn't seem talented enough to act this well. So maybe it was the truth. Maybe she was Marcus's daughter.  
 
  
 
@@ -408,7 +408,7 @@
 
  I honestly think the reason she didn't want me in the house was that she was threatened by me. I was a younger, hotter, bustier version of her. I had taken her admittedly excellent genes, and a healthy scoop of my father's equally excellent genes and become a superior version of my mother. I was younger. I was hotter. I had better hair. Smoother skin. A fuller, rounder ass. Bigger breasts, easily a cup size bigger than hers. So it was no surprise a woman like her felt threatened by me. Mom quickly realized if an old slut like her wanted to be viewed as hot, she needed me out the door. If she didn't want her boyfriends to pay attention to me instead of her, I needed to be gone. I couldn't blame her. If there was someone hotter than me living under the same roof as I, I would want them gone too. But that would never happen, because I had never met anyone hotter than me. 
 
- I was a whore. I had no shame admitting that. It would be easy to do a self analysis to figure out why. I never had a father figure in my life, so I was desperate to find the company of men. It wasn't my fault I was a slut. It was Mom's, for not letting my dad into my life. It was her fault I lost my virginity at 13. It was her fault I let three seniors on the football team run a train on me my freshman year of high school. It was her fault I was a cock- sucking queen. It was her fault I first took it in the ass when I was 16. It was her fault that I liked it. It was her fault I got gangbanged by three black guys my junior year. It was her fault that I could flirt my way into any bar and club. It was her fault that I wore such tight clothes. It was her fault I wore such low cut shirts. It was her fault I loved showing off my huge, juicy tits. It was her fault I let so many boys taste my sweet pussy. It was her fault that all the boys said that "Brandy tastes like candy". It was her fault that I kinda did. It was her fault I thought it would be hot to tattoo the word candy on my right ass cheek. It was her fault I had I decided to tattoo a bright red lollipop right above my bare pussy. It was her fault I was into older men. Report_Story #3 
+ I was a whore. I had no shame admitting that. It would be easy to do a self analysis to figure out why. I never had a father figure in my life, so I was desperate to find the company of men. It wasn't my fault I was a slut. It was Mom's, for not letting my dad into my life. It was her fault I lost my virginity at 13. It was her fault I let three seniors on the football team run a train on me my freshman year of high school. It was her fault I was a cock- sucking queen. It was her fault I first took it in the ass when I was 16. It was her fault that I liked it. It was her fault I got gangbanged by three black guys my junior year. It was her fault that I could flirt my way into any bar and club. It was her fault that I wore such tight clothes. It was her fault I wore such low cut shirts. It was her fault I loved showing off my huge, juicy tits. It was her fault I let so many boys taste my sweet pussy. It was her fault that all the boys said that "Brandy tastes like candy". It was her fault that I kinda did. It was her fault I thought it would be hot to tattoo the word candy on my right ass cheek. It was her fault I had I decided to tattoo a bright red lollipop right above my bare pussy. It was her fault I was into older men.  
 
  
 
@@ -568,7 +568,7 @@
 
  "No. No thanks." I said with a laugh. "Let's get something to eat." I said. 
 
- We made our way to the food court. We split up, as I wanted a burger and she wanted Chinese food. I looked back across the food court and saw a few young guys around Brandy, chatting her up. Wow, it seemed like whenever I left on her own, boys would flock to her. My line was longer than hers, so she was seated before I was. It was as I got closer that I saw her seated at a table next to the same older guy she was talking with before at Victoria's Secret. He looked a little nervous as I approached, but Brandy did not as I joined them at the table. Report_Story #4 
+ We made our way to the food court. We split up, as I wanted a burger and she wanted Chinese food. I looked back across the food court and saw a few young guys around Brandy, chatting her up. Wow, it seemed like whenever I left on her own, boys would flock to her. My line was longer than hers, so she was seated before I was. It was as I got closer that I saw her seated at a table next to the same older guy she was talking with before at Victoria's Secret. He looked a little nervous as I approached, but Brandy did not as I joined them at the table.  
 
  
 
@@ -782,7 +782,7 @@
 
  I just knew Daddy's cock was fat. I just knew it. He just seemed like the type to be packing a massive rod. It was all I could think about. Whenever I was around him, all I could think about was the fat, meaty cock he had packed away, holstered, primed for action, desperate to be cared for correctly. I practically drooled whenever I thought about it. And trust me, I thought about it a lot. I'm sure Daddy was wondering why I had to retreat to my room all the time. If he knew his little princess had his fat cock on the brain he would not be happy. He would probably have to spank me. Spank those naughty thoughts out of my head. Make me moan. The thought made me shiver. 
 
- I lied down on my bed and unzipped my top, exposing my near bare chest, breathing hard, my tits covered in a tiny, stretchy bra, bursting to be free. I slipped off my pants, slipped my fingers under my tiny black thong, let my fingers circle my clit, and thought about my daddy for a little bit. I thought about his no doubt giant dick. I thought about him exposing it to me. Forcing me to my knees to appreciate it. And I would, because I loved sucking dick more than anything else. Just the feeling of a piece of huge, throbbing meat in your mouth. Having complete control of a man by using your mouth on him. Making him lose control, making you swallow their load, creating a bond. A bond that could only be shared by a man and a girl that swallowed his cum. A bond that would last for life. Cause a man would always remember the girl he was so intimate with, the girl who happily swallowed his cum. Report_Story #5 
+ I lied down on my bed and unzipped my top, exposing my near bare chest, breathing hard, my tits covered in a tiny, stretchy bra, bursting to be free. I slipped off my pants, slipped my fingers under my tiny black thong, let my fingers circle my clit, and thought about my daddy for a little bit. I thought about his no doubt giant dick. I thought about him exposing it to me. Forcing me to my knees to appreciate it. And I would, because I loved sucking dick more than anything else. Just the feeling of a piece of huge, throbbing meat in your mouth. Having complete control of a man by using your mouth on him. Making him lose control, making you swallow their load, creating a bond. A bond that could only be shared by a man and a girl that swallowed his cum. A bond that would last for life. Cause a man would always remember the girl he was so intimate with, the girl who happily swallowed his cum.  
 
  
 
@@ -860,7 +860,7 @@
 
  Our daddy-daughter relationship had just been injected with a deep, heaping dose of sexual tension! 
 
- (Author's Note: I hoped you enjoyed the story. Chapter 2 to follow next week!) Report_Story #1 
+ (Author's Note: I hoped you enjoyed the story. Chapter 2 to follow next week!)  
 
  
 
@@ -1066,7 +1066,7 @@
 
  An hour later I was at a repair shop. I had called a tow truck and I was taken to the shop. The damage in my car would take a few days to repair so I would need a ride home. Linda was out of town for work. I had to call Brandy to pick me up. 
 
- It took about 45 minutes for her car to show up. I smiled as she pulled up, but I stepped back as I opened the door and was bombarded by a wall of noise coming from the stereo. I sat down and turned down the music. Report_Story #2 
+ It took about 45 minutes for her car to show up. I smiled as she pulled up, but I stepped back as I opened the door and was bombarded by a wall of noise coming from the stereo. I sat down and turned down the music.  
 
  
 
@@ -1272,7 +1272,7 @@
 
  "I'll do anything for you, Daddy." she said, walking forward and giving me a hug, clutching me tight. Pushing her firm belly into my rock hard erection. 
 
- "Ah!" Brandy said, feeling it, stepping away quickly. "Save it for Linda, Daddy." she joked over her shoulder, smiling, as she walked out of the room. I was frozen. Report_Story #3 
+ "Ah!" Brandy said, feeling it, stepping away quickly. "Save it for Linda, Daddy." she joked over her shoulder, smiling, as she walked out of the room. I was frozen.  
 
  
 
@@ -1462,7 +1462,7 @@
 
  "Sure." Linda said happily. I smiled and let my robe slip from my shoulders. Under it, all I had on was my skimpiest, nastiest, sexiest bikini. A tiny white little number made of strings. Tiny white patches covered my nipples but left the rest of my huge, jiggling tits exposed. The poor little strings digging into my shoulders were so fucking overworked. My bottoms were a thong obviously, the tiny little patch ever so barely covering my sweet little snatch. I gave Linda a spin, exposing my firm, fit back, and my perfect, round ass cheeks to my bitch of a step-mother. I was fucking dripping wet at this. 
 
- "Do you like it?" I asked with a sweet smile. I looked at Linda as I faced her. I saw the heat in her eyes as she consumed my rocking body with a harsh, meaningful glare. This bitch fucking hated me! I loved it! I loved how she saw my barely encased tits. My flat belly. My nearly exposed cunt. My perfect ripe ass. And then she would fume with jealously. Ha! This stupid bitch thought the reason she hated me was because of my laziness. As if! This bitch hated me because of my hot fucking body, a body an old lady like her could only dream of having. She wanted me gone because she didn't want Daddy consuming my tasty assets. She consumed my assets with wide eyes. I hoped for Daddy's sake I wasn't turning his wife into a drooling lesbo! Report_Story #4 
+ "Do you like it?" I asked with a sweet smile. I looked at Linda as I faced her. I saw the heat in her eyes as she consumed my rocking body with a harsh, meaningful glare. This bitch fucking hated me! I loved it! I loved how she saw my barely encased tits. My flat belly. My nearly exposed cunt. My perfect ripe ass. And then she would fume with jealously. Ha! This stupid bitch thought the reason she hated me was because of my laziness. As if! This bitch hated me because of my hot fucking body, a body an old lady like her could only dream of having. She wanted me gone because she didn't want Daddy consuming my tasty assets. She consumed my assets with wide eyes. I hoped for Daddy's sake I wasn't turning his wife into a drooling lesbo!  
 
  
 
@@ -1736,7 +1736,7 @@
 
  SPANK! 
 
- Report_Story #5 
+  
 
  
 
@@ -2086,7 +2086,7 @@
 
  "Yes." 
 
- "You love when you get the chance to stare at my cleavage, don't you?" Report_Story #6 
+ "You love when you get the chance to stare at my cleavage, don't you?"  
 
  
 
@@ -2220,7 +2220,7 @@
 
  Unbelievable. I had pretty big hands, but these suckers my daughter had were overflowing my palms. Brandy's tits were out of this world. They felt so firm and fleshy and perky. These were Grade-A, top shelf breasts. Unfortunately, they were on the body of my teenage daughter. The flesh was silky smooth, and it felt so good to squeeze them and feel them pour all over my rough, calloused fingers. And her rock hard nipples scratched against my palms in such an incredible way. 
 
- I couldn't take my hands off them. I squeezed them like they were full of milk and I was trying to force all the milk out. I left the nipples exposed to my eyes as I squeezed her breasts roughly. I let my fingers go to her nipples and pinch them, causing Brandy to moan. Report_Story #7 
+ I couldn't take my hands off them. I squeezed them like they were full of milk and I was trying to force all the milk out. I left the nipples exposed to my eyes as I squeezed her breasts roughly. I let my fingers go to her nipples and pinch them, causing Brandy to moan.  
 
  
 
@@ -2370,7 +2370,7 @@
 
  
 
- (Author's Note: The final chapter coming next week!) Report_Story #1 
+ (Author's Note: The final chapter coming next week!)  
 
  
 
@@ -2566,7 +2566,7 @@
 
  "I love it Daddy! I love it!" Brandy gasped. 
 
- "UGHHHHH! GOD!" I screamed, the pleasure overwhelming, tears coming from my eyes. I just kept cumming. I had never cum this hard, not even close. Nothing felt even near to the pleasure that I felt cumming in my daughter's cunt. Report_Story #2 
+ "UGHHHHH! GOD!" I screamed, the pleasure overwhelming, tears coming from my eyes. I just kept cumming. I had never cum this hard, not even close. Nothing felt even near to the pleasure that I felt cumming in my daughter's cunt.  
 
  
 
@@ -2704,7 +2704,7 @@
 
  I had planned to get a hotel room and leave early in the morning but I eventually thought, fuck it, I'll head home now. 
 
- All I could think about was Brandy. I had never been this angry with someone. I never liked her. Never trusted her. But Marcus was blinded by his fatherly instinct. He was blinded by the fact that he thought it was his duty to help her, but, as cold as it sounds, it really wasn't. They were practically strangers, no fault of his, and they had been apart so long that it was too late for a natural father-daughter relationship to form. They could be acquaintances maybe, but not the parent and child that I think they both hoped to be. It was too late for that. Only a brat like Brandy would expect otherwise. Report_Story #3 
+ All I could think about was Brandy. I had never been this angry with someone. I never liked her. Never trusted her. But Marcus was blinded by his fatherly instinct. He was blinded by the fact that he thought it was his duty to help her, but, as cold as it sounds, it really wasn't. They were practically strangers, no fault of his, and they had been apart so long that it was too late for a natural father-daughter relationship to form. They could be acquaintances maybe, but not the parent and child that I think they both hoped to be. It was too late for that. Only a brat like Brandy would expect otherwise.  
 
  
 
@@ -2932,7 +2932,7 @@
 
  (Linda) 
 
- Marcus better have a damn good explanation as to why he didn't answer my fucking phone. He had better have driven Brandy back to her Mom's, and forgot his phone, or his phone is dead, and Brandy is kicked out of the house. As long as Brandy's gone. That's the key. Report_Story #4 
+ Marcus better have a damn good explanation as to why he didn't answer my fucking phone. He had better have driven Brandy back to her Mom's, and forgot his phone, or his phone is dead, and Brandy is kicked out of the house. As long as Brandy's gone. That's the key.  
 
  
 
@@ -3090,7 +3090,7 @@
 
  I think there has been some improvement with Brandy, as far as her attitude goes. Sure, I have to spank her hot ass every time I catch her being naughty, but it seemed to be effective. I made her reflect on herself and confess to all of the naughty things she had done. 
 
- My professional career had flourished. My time with Brandy, parenting her, had shown me I had to be more assertive than I was. I was done being a pushover at work, letting things pass me by. I had been promoted to head coach of the high school football team and the team was off to a record start. I was quickly becoming a school legend through my luck and success, and word was I was in line to move up within the faculty. Little did they all know the things that made me a great coach were all taught to me by my experience with my slut daughter. Report_Story #5 
+ My professional career had flourished. My time with Brandy, parenting her, had shown me I had to be more assertive than I was. I was done being a pushover at work, letting things pass me by. I had been promoted to head coach of the high school football team and the team was off to a record start. I was quickly becoming a school legend through my luck and success, and word was I was in line to move up within the faculty. Little did they all know the things that made me a great coach were all taught to me by my experience with my slut daughter.  
 
  
 
@@ -3304,7 +3304,7 @@
 
  I gulped and pulled over to the side. As I turned to look at them, they turned and walked into a park. I lost sight of them, so feeling like I needed to take a risk to get a glimpse of Marcus, I slipped out of the car and went to follow them. 
 
- I entered the park from a different direction then they did so they wouldn't see me. It was a big park, so it was easy to hide. It was a nice, open park, with lots of grass and trees and places for people to relax. I walked around a bit, looking for them, until I looked across the park and saw them. I found a bench nearby and sat down to watch. Report_Story #6 
+ I entered the park from a different direction then they did so they wouldn't see me. It was a big park, so it was easy to hide. It was a nice, open park, with lots of grass and trees and places for people to relax. I walked around a bit, looking for them, until I looked across the park and saw them. I found a bench nearby and sat down to watch.  
 
  
 
@@ -3414,7 +3414,7 @@
 
  I had a way of getting Daddy to do what I want. I loved showing off my big strong daddy. And I knew just the way to do it. Like this one time. He was out in the garage, building me a new dresser or something. He was shirtless, as the garage got really hot. So he had gotten all sweaty with his hard work, and the sweat dripped down his fit, sexy, 'Daddy' muscles, and all I could think about was licking the sweat off of his abs. I could go on about how sexy he was, but that was beside the point. I would prance out into the garage, and the clicking of my heels made him notice me. He would look to my high heels, up the white stockings clinging to my firm legs. Up to my bare thighs, so lewdly exposed. Up to the hem of my teeny, tiny schoolgirl skirt. Up to my bared stomach, my flat belly. Up to the tiny white t-shirt, tied tightly under my giant breasts. Up past my enormous cleavage to my gorgeous face, perfectly made-up, looking like a princess. My stylish hair was done up in two pigtails, completing the schoolgirl look. Daddy had learned to love the schoolgirl look. 
 
- "Daddy." I said, biting my lip, "I was thinking, I mean, I've been a bad girl. So I was thinking that maybe you could take me to the mall and make me walk around with you, looking like a schoolgirl slut. It would make me feel so nasty if I have to walk around with you, looking like this, so everyone would look at us and think that I'm your girlfriend and you're my boyfriend, even though you're really my daddy. Everyone would look at me and think that I'm your schoolgirl slut, because no dad would walk around with his daughter looking like this. No daddy would be so close to his naughty little girl. And they would all think that as soon as we left, we would be fucking like animals. Fucking the shit out of each other. Daddy... that would make me feel... so... very... nasty." I said, looking up at Daddy while his eyes feasted on my body. Report_Story #7 
+ "Daddy." I said, biting my lip, "I was thinking, I mean, I've been a bad girl. So I was thinking that maybe you could take me to the mall and make me walk around with you, looking like a schoolgirl slut. It would make me feel so nasty if I have to walk around with you, looking like this, so everyone would look at us and think that I'm your girlfriend and you're my boyfriend, even though you're really my daddy. Everyone would look at me and think that I'm your schoolgirl slut, because no dad would walk around with his daughter looking like this. No daddy would be so close to his naughty little girl. And they would all think that as soon as we left, we would be fucking like animals. Fucking the shit out of each other. Daddy... that would make me feel... so... very... nasty." I said, looking up at Daddy while his eyes feasted on my body.  
 
  
 

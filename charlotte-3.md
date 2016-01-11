@@ -140,7 +140,7 @@
 
  "Give her your cock to suck, Julian," Vanessa ordered. She turned to Peter: "You go over there too. You're going to share that hard-on with the slut." 
 
- Charlotte's stomach lurched when she heard Vanessa's orders. A thrill of the taboo shocked her. Did Vanessa really mean for Peter to suck this man's cock? It wasn't that she objected to having Julian in her mouth -- his cock looked divine -- it was the perversity of sharing it with a man. Report_Story #2 
+ Charlotte's stomach lurched when she heard Vanessa's orders. A thrill of the taboo shocked her. Did Vanessa really mean for Peter to suck this man's cock? It wasn't that she objected to having Julian in her mouth -- his cock looked divine -- it was the perversity of sharing it with a man.  
 
  
 

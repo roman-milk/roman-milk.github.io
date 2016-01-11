@@ -214,7 +214,7 @@
 
  "Sorry honey, but I had a flat day before yesterday and my spare is on the left rear of the car. The other tire is at the Goodyear place and I told them I would pick it up Monday. Why don't you call Triple A? We've belonged for years so it's about time we used them." 
 
- If I hadn't already overheard her half of the conversation with Jane and become suspicious what she had just told me would have had alarm bells ringing loud and clear. Anything, and I do mean anything, that went wrong with Abby's car was reported to me immediately. I heard about every squeak and rattle -real or imagined - and was expected to look into it. She even came to me with stuff like: Report_Story #2 
+ If I hadn't already overheard her half of the conversation with Jane and become suspicious what she had just told me would have had alarm bells ringing loud and clear. Anything, and I do mean anything, that went wrong with Abby's car was reported to me immediately. I heard about every squeak and rattle -real or imagined - and was expected to look into it. She even came to me with stuff like:  
 
  
 
@@ -428,7 +428,7 @@
 
  As I trudged up the stairs from the basement I wondered if I ever knew Abby at all. Two guys at once and wanting to try three? Wanting to do a gangbang? She certainly didn't know me at all, not if she thought she could get me involved in the shit she was into. Jimmy Carter stood a better chance of being president again than me sitting still and letting my wife fuck other guys while I watched. 
 
- At least I knew what Abby had planned for me that night. An adult book store with a video arcade and booths with glory holes in them. The more I thought about it the more I thought that I could have some fun with it. Have some fun and set Abby up for the fall. I gathered that if the night went well from her standpoint she had something big to spring on me the following weekend. I would just have to make sure that Abby's night was a success. Report_Story #3 
+ At least I knew what Abby had planned for me that night. An adult book store with a video arcade and booths with glory holes in them. The more I thought about it the more I thought that I could have some fun with it. Have some fun and set Abby up for the fall. I gathered that if the night went well from her standpoint she had something big to spring on me the following weekend. I would just have to make sure that Abby's night was a success.  
 
  
 
@@ -714,7 +714,7 @@
 
  I had a good time at the party even though I limited my alcoholic intake. I wanted to be sober enough to fuck Abby as many times as I could that night. I had no idea how long a dry spell I would have to go through after Saturday night. I managed four times - a personal best - and Abby wanted another, but she just couldn't get the little guy to get up and play. 
 
- Saturday, while Abby was out getting her hair done and servicing her herd of fuck toys, I moved everything I wanted out of the house. Abby hardly ever went into my home office so I didn't think that she would see that it was bare and I doubted that she would go into the spare bedroom and see that the room had been stripped of furniture. If she did go into the den or spare bedroom it would be over sooner and I'd miss out on what I'd planned for her, but no matter. The day was our last one together whether it ended early or late. Report_Story #4 
+ Saturday, while Abby was out getting her hair done and servicing her herd of fuck toys, I moved everything I wanted out of the house. Abby hardly ever went into my home office so I didn't think that she would see that it was bare and I doubted that she would go into the spare bedroom and see that the room had been stripped of furniture. If she did go into the den or spare bedroom it would be over sooner and I'd miss out on what I'd planned for her, but no matter. The day was our last one together whether it ended early or late.  
 
  
 

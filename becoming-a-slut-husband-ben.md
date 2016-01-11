@@ -188,7 +188,7 @@
 
  For the next three weeks I "worked late" on the average of twice a week and Betty and I played at the Motel 6. Nothing changed as far as my relationship with Carol went. She still played the loving wife and I played at being the adoring husband. There was no big change in our sex life except for the fact that now I rarely went twice on any of the nights we made love. I could thank Betty for that - she didn't leave me with a whole hell of a lot when she was done with me. 
 
- Then it was time for my next business trip and I set up the tape recorders, kissed Carol goodbye and headed for the airport to catch my flight. When I got back and played the tapes the two bedroom tapes had nothing on them other than normal household noises. The only one that had anything on it was the living room tape. I heard the doorbell ring and Carol say, "Oh fuck!" as she walked across the floor to answer it. I heard the door open and I heard her say, "What do you want?" Report_Story #2 
+ Then it was time for my next business trip and I set up the tape recorders, kissed Carol goodbye and headed for the airport to catch my flight. When I got back and played the tapes the two bedroom tapes had nothing on them other than normal household noises. The only one that had anything on it was the living room tape. I heard the doorbell ring and Carol say, "Oh fuck!" as she walked across the floor to answer it. I heard the door open and I heard her say, "What do you want?"  
 
  
 

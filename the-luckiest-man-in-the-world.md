@@ -274,7 +274,7 @@
 
  She looked up at me, her head slowing, my cock still in her mouth, her hand moving faster. 
 
- "Becca," I gasped, and gave up trying to resist. I saw her eyes open in surprise, nose flaring, as I erupted in her mouth. She looked down, her hand moving slowly, milking me dry. I felt the suction of her swallowing, then again. She pulled off me slowly, wiping her mouth. Report_Story #2 
+ "Becca," I gasped, and gave up trying to resist. I saw her eyes open in surprise, nose flaring, as I erupted in her mouth. She looked down, her hand moving slowly, milking me dry. I felt the suction of her swallowing, then again. She pulled off me slowly, wiping her mouth.  
 
  
 
@@ -556,7 +556,7 @@
 
  She laughed. "Hardly. But I'm glad you think so. I only want to be perfect for you. Your perfect woman. Accept my gift. I want you to know that I'm excited to be able to do this for you. It's not something I ever really wanted, but now, I can barely contain myself. Fuck my virgin ass, Alan. Take me." 
 
- I looked down at her open cheeks, and saw the glistening around the little brown hole. I took my gift bottle, and poured a little at the top of her crease. I pressed my finger against her hole, and was surprised at how easily I entered her. Report_Story #3 
+ I looked down at her open cheeks, and saw the glistening around the little brown hole. I took my gift bottle, and poured a little at the top of her crease. I pressed my finger against her hole, and was surprised at how easily I entered her.  
 
  
 
@@ -830,7 +830,7 @@
 
  She moaned softly, looking up at me in wonder and exhaustion. I kissed her lips softly, got up and started her bath. I brought a warm facecloth to her, and cleaned her up, then lifted her helpless body in my arms and carried her to the bathroom. I placed her in the bath, and washed her. 
 
- "My God, Alan. You almost killed me," she whispered, as I ran the facecloth over her body. Report_Story #4 
+ "My God, Alan. You almost killed me," she whispered, as I ran the facecloth over her body.  
 
  
 
@@ -1092,7 +1092,7 @@
 
  "Your affair. Why did you sleep with that woman?" 
 
- "I needed you to divorce me. You had to come after me, asking for as much as possible, so I could give you your freedom. You're a beautiful woman, Becca. The best wife in the world. Better than I deserved. I want you to be happy, find a loving man you can give yourself to. Live well, for me. Please." Report_Story #5 
+ "I needed you to divorce me. You had to come after me, asking for as much as possible, so I could give you your freedom. You're a beautiful woman, Becca. The best wife in the world. Better than I deserved. I want you to be happy, find a loving man you can give yourself to. Live well, for me. Please."  
 
  
 

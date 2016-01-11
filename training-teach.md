@@ -120,7 +120,7 @@
 
  Constance opened the door for me and waited until I sat down. I was shocked again when she leaned over and buckled my safety belt for me. Her breasts swayed unfettered under her blouse, and her sweet exotic scent lingered. The small curious part inside me was growing; I could feel the shift inside me. My will to resist her was weakening. I tried to suppress my excitement, my eagerness, but my pussy, now damp, was making it incredibly hard to focus on what the right thing to do was. 
 
- As Mrs. Peterson drove, I shyly looked over at her. She was a beautiful woman and it had been so long since any person, even a woman as despicable as her, had given me any sort of physical attention. I looked down and noticed her skirt had crept up. I gave out a slight gasp as I noticed the top of her nylons and the trace of a garter. The only time I had ever worn a garter was on my wedding day. The thought that this bitch of a woman dressed so sexy was a revelation. It also had me getting hornier. As if she heard my naughty thoughts, she moved her right hand onto my leg. As she drove, her long supple fingers slowly slid up my inner thigh, slightly pushing up my skirt. I could no longer think straight. My protest was so weak it was inaudible. I tried to close my legs to block her hand, but a quick push back from her hand ended my pathetically weak resistance. Report_Story #2 
+ As Mrs. Peterson drove, I shyly looked over at her. She was a beautiful woman and it had been so long since any person, even a woman as despicable as her, had given me any sort of physical attention. I looked down and noticed her skirt had crept up. I gave out a slight gasp as I noticed the top of her nylons and the trace of a garter. The only time I had ever worn a garter was on my wedding day. The thought that this bitch of a woman dressed so sexy was a revelation. It also had me getting hornier. As if she heard my naughty thoughts, she moved her right hand onto my leg. As she drove, her long supple fingers slowly slid up my inner thigh, slightly pushing up my skirt. I could no longer think straight. My protest was so weak it was inaudible. I tried to close my legs to block her hand, but a quick push back from her hand ended my pathetically weak resistance.  
 
  
 
@@ -244,7 +244,7 @@
 
  I crawled up the stairs and we ended up in a mammoth bedroom, the king-sized bed looking like a shrine in the middle. I crawled to my Mistress's feet, and she bent down and petted my hair. "Good girl," she cooed as if I had just done a trick. My cheeks flushed red with embarrassment. I felt degraded, humiliated. I was a strong, powerful woman, someone who inspired others; yet here I was being treated like a family pet. I should have been angry, and yet I was eager to please even more. I desperately wanted her approval. I wanted nothing more than to please her. It made no sense, but I no longer seemed able to follow logic. I was her slave and wouldn't even consider disobeying any order, no matter how extremely mortifying. 
 
- I watched her as she disappeared into a huge walk-in closet. When she returned a couple of minutes later, she was wearing a strap-on cock and was carrying a large silver tray. She walked past me and put the tray, with an array of toys and lubes on it, on the table next to the bed. She commanded, "Slave, get on the bed now." Report_Story #3 
+ I watched her as she disappeared into a huge walk-in closet. When she returned a couple of minutes later, she was wearing a strap-on cock and was carrying a large silver tray. She walked past me and put the tray, with an array of toys and lubes on it, on the table next to the bed. She commanded, "Slave, get on the bed now."  
 
  
 
@@ -384,7 +384,7 @@
 
  Kisses 
 
- Jasmine Report_Story #1 
+ Jasmine  
 
  
 
@@ -566,7 +566,7 @@
 
  "Are you ashamed to be my pet?" 
 
- I thought briefly about the question. I was ashamed, but not because I was her pet, but because I was so weak. I was ashamed that I enjoyed my submission so much and that even now in this non-threatening situation I was already looking forward to the next time. That said, I didn't want the whole world, or anyone else for that matter, knowing what kind of sexual deviant I was. I tried to explain my feelings to her. "No, Mistress, I am not ashamed of you. I am ashamed by my weakness and afraid for others to know the truth." Report_Story #2 
+ I thought briefly about the question. I was ashamed, but not because I was her pet, but because I was so weak. I was ashamed that I enjoyed my submission so much and that even now in this non-threatening situation I was already looking forward to the next time. That said, I didn't want the whole world, or anyone else for that matter, knowing what kind of sexual deviant I was. I tried to explain my feelings to her. "No, Mistress, I am not ashamed of you. I am ashamed by my weakness and afraid for others to know the truth."  
 
  
 
@@ -796,7 +796,7 @@
 
  "I completely understand Hannah. I have been through every emotion you are feeling as well. I have only recently accepted the reality of who I am." Amy paused, her eyes swimming directly into mine. She took a deep breath and nervously announced, "Hannah, I have to tell you something, I have wanted to tell you for quite some time." 
 
- I wiped my tears away from my eyes, before looking directly into hers. "Amy, you can tell me anything. Apparently, you know everything about me." Report_Story #3 
+ I wiped my tears away from my eyes, before looking directly into hers. "Amy, you can tell me anything. Apparently, you know everything about me."  
 
  
 
@@ -940,7 +940,7 @@
 
  "No, no, baby. I like you on all fours like a good sub, a good pet. I want to watch you crawl and get it. Bring it back to me in your mouth like you are carrying a bone." 
 
- I fell back on all fours, "Yes, Mistress, your wish is my command." I crawled away, feeling her eyes bearing down on me. Such an order should have humiliated me, yet it actually made me hornier. The feeling of complete submission, of unconditional obedience, was liberating. And, unlike with Mistress Constance, where I never felt safe and was always nervous and scared, with Amy I felt completely at home and safe, completely comfortable and eager to make her happy. The stairs were a bit awkward at first and somewhat humiliating, but I fulfilled the instructions, retrieving my fuck-toy and returning on all fours with the toy in my mouth. If going up the stairs was awkward, going down was an adventure in balance. I went slowly, scared to stumble down the stairs, but also determined to not disobey a direct order. Report_Story #4 
+ I fell back on all fours, "Yes, Mistress, your wish is my command." I crawled away, feeling her eyes bearing down on me. Such an order should have humiliated me, yet it actually made me hornier. The feeling of complete submission, of unconditional obedience, was liberating. And, unlike with Mistress Constance, where I never felt safe and was always nervous and scared, with Amy I felt completely at home and safe, completely comfortable and eager to make her happy. The stairs were a bit awkward at first and somewhat humiliating, but I fulfilled the instructions, retrieving my fuck-toy and returning on all fours with the toy in my mouth. If going up the stairs was awkward, going down was an adventure in balance. I went slowly, scared to stumble down the stairs, but also determined to not disobey a direct order.  
 
  
 
@@ -1064,7 +1064,7 @@
 
  THE END 
 
- COMING IN THE FALL: Part 3: 18 year old birthday party. Her gift...Hannah. A weekend lesbian orgy. Report_Story #1 
+ COMING IN THE FALL: Part 3: 18 year old birthday party. Her gift...Hannah. A weekend lesbian orgy.  
 
  
 
@@ -1328,7 +1328,7 @@
 
  Twenty minutes later, she was ready and led me back into the living room. 
 
- Destiny and Allie were already there and wearing simple sundresses, but had also done their hair and make-up. Report_Story #2 
+ Destiny and Allie were already there and wearing simple sundresses, but had also done their hair and make-up.  
 
  
 

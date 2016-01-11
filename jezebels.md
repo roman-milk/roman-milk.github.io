@@ -276,7 +276,7 @@
 
  "Don't worry," she said. When I hesitated, she lifted her skirt a little higher. "Well?" she challenged. 
 
- I pulled her on her back, slipped my hand up her leg to find a bare and bloated pussy, and drove a finger into her wetness. "Oh, Jack, don't stop." I love watching a woman when she comes and Mary loved to cum, so I watched as she humped my hand and emitted her little squeaks until she did. Report_Story #2 
+ I pulled her on her back, slipped my hand up her leg to find a bare and bloated pussy, and drove a finger into her wetness. "Oh, Jack, don't stop." I love watching a woman when she comes and Mary loved to cum, so I watched as she humped my hand and emitted her little squeaks until she did.  
 
  
 
@@ -570,7 +570,7 @@
 
  "Thanks for a lovely afternoon," Monica said. "We're going to call it a day." 
 
- Tiffany gave me a big hug, a wet kiss on the cheek, and thanked me for playing with her. Monica pressed her body into mine, kissed me on the lips, and said, "Have fun tonight." Report_Story #3 
+ Tiffany gave me a big hug, a wet kiss on the cheek, and thanked me for playing with her. Monica pressed her body into mine, kissed me on the lips, and said, "Have fun tonight."  
 
  
 
@@ -624,7 +624,7 @@
 
  To be continued. 
 
- Please give me your comments! Report_Story #1 
+ Please give me your comments!  
 
  
 
@@ -994,7 +994,7 @@
 
  "I don't think so." 
 
- "Which part has been so bad, Jack? Three women making love to you day and night? The cuddling and cooing? The home cooked meals? The water park, where we had to practically drag you out of the place to go home? The kids, which you enjoy more than you'll admit? What didn't you like?" Report_Story #2 
+ "Which part has been so bad, Jack? Three women making love to you day and night? The cuddling and cooing? The home cooked meals? The water park, where we had to practically drag you out of the place to go home? The kids, which you enjoy more than you'll admit? What didn't you like?"  
 
  
 
@@ -1372,7 +1372,7 @@
 
  To be concluded 
 
- Please give me your comments! Report_Story #1 
+ Please give me your comments!  
 
  
 
@@ -1678,7 +1678,7 @@
 
  "We'll talk in the morning. Be quiet and go to sleep." 
 
- "Yes, Jack," she said obediently. Report_Story #2 
+ "Yes, Jack," she said obediently.  
 
  
 
@@ -2080,7 +2080,7 @@
 
  "True," I said, grinning at her. 
 
- The steaks were cooked to perfection, as was everything else. During dinner, we talked about fear. Fear of commitment. Fear of being in a relationship forever. Only Mary didn't admit to those fears. She said that when she met me, she knew I was right for her and her friends. After dinner, I started on the dishes. Report_Story #3 
+ The steaks were cooked to perfection, as was everything else. During dinner, we talked about fear. Fear of commitment. Fear of being in a relationship forever. Only Mary didn't admit to those fears. She said that when she met me, she knew I was right for her and her friends. After dinner, I started on the dishes.  
 
  
 

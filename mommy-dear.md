@@ -232,7 +232,7 @@
 
  "Just go slow and take it easy. An inch at a time; slow and easy. Wait for me to start pushing my ass back at you before you start fucking me." 
 
- It was my first double penetration since a week before I married Mike and God, but did it feel good. After that it was more blow jobs and fucking and of course Jake wanted to try DP and of course I let him. Report_Story #2 
+ It was my first double penetration since a week before I married Mike and God, but did it feel good. After that it was more blow jobs and fucking and of course Jake wanted to try DP and of course I let him.  
 
  
 

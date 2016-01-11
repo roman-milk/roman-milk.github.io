@@ -304,7 +304,7 @@
 
  When he was finished, Melissa lay on her side. She pointed to the bed behind her. 'Here,' she said. Lay down behind me.' Her fingers spread her buttocks and revealed her sphincter glistening with goo. 'Put it in slow, baby. Just ease it in. Let it fill my ass. I need to settle down before you can fuck me properly.' 
 
- He got on the bed behind Melissa. Report_Story #2 
+ He got on the bed behind Melissa.  
 
  
 

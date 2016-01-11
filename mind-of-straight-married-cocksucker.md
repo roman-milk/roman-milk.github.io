@@ -308,7 +308,7 @@
 
  Sometimes I go a month or two without craving a cock. I think I've broken the addiction. 
 
- As I deposit a load in my beautiful wife's mouth or pussy, I know this is where I should be. Report_Story #2 
+ As I deposit a load in my beautiful wife's mouth or pussy, I know this is where I should be.  
 
  
 

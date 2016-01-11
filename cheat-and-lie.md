@@ -312,7 +312,7 @@
 
  "Please don't make trouble for him. He has a good marriage going. He has three boys in college." 
 
- "I won't make trouble for him if he meets with me. I plan on collecting child support from him. How he wants to do it is up to him. If he refuses I'll sue his ass off and his wife will find out. It's up to him. His wife may find out about it anyway. It will be hard to explain the sum I'm going after to her. But that's his problem. He won't get much sympathy from me." Report_Story #2 
+ "I won't make trouble for him if he meets with me. I plan on collecting child support from him. How he wants to do it is up to him. If he refuses I'll sue his ass off and his wife will find out. It's up to him. His wife may find out about it anyway. It will be hard to explain the sum I'm going after to her. But that's his problem. He won't get much sympathy from me."  
 
  
 
@@ -628,7 +628,7 @@
 
  I finish dressing and walk out. She watches me go, sobbing. 
 
- As I'm driving home the words keep running through my mind. "It won't ever work. I can't go back. It wont ever work. I can't go back." Report_Story #3 
+ As I'm driving home the words keep running through my mind. "It won't ever work. I can't go back. It wont ever work. I can't go back."  
 
  
 

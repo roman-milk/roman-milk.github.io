@@ -194,7 +194,7 @@
 
  +++++++++++++++++++++ 
 
- Monday I called Aggie at work and told her that I was going to be going out of town on Tuesday and would be gone until Friday and that I'd be home in time to take her out to dinner. There was no trip of course. It might be a wasted three days, but I didn't think so. I travelled on the average of once a month and Aggie was always home when I made my nightly check in phone call. Since my calls were at irregular times -- anywhere from seven to ten -- I doubted that she waited for my calls and then went out so if she was fucking around on me as much as I had been led to believe she was probably doing it on our bed as I was talking to her. That was my hope anyway. If she was and the cameras caught it I would have what my attorney wanted in the way of 'irrefutable proof' for the divorce action. Report_Story #2 
+ Monday I called Aggie at work and told her that I was going to be going out of town on Tuesday and would be gone until Friday and that I'd be home in time to take her out to dinner. There was no trip of course. It might be a wasted three days, but I didn't think so. I travelled on the average of once a month and Aggie was always home when I made my nightly check in phone call. Since my calls were at irregular times -- anywhere from seven to ten -- I doubted that she waited for my calls and then went out so if she was fucking around on me as much as I had been led to believe she was probably doing it on our bed as I was talking to her. That was my hope anyway. If she was and the cameras caught it I would have what my attorney wanted in the way of 'irrefutable proof' for the divorce action.  
 
  
 
@@ -404,7 +404,7 @@
 
  I picked it up, read it and then I laughed and tore it up and threw it in her face. I picked up my briefcase and headed for the door. 
 
- "Stop him!" Aggie yelled and the two guys started after me and when they were close enough I spun around toward them with my briefcase heading for the first guys head. It was a solid hit and he went down. The second guy was caught by surprise and before he realized it I was on him. I punched him in the mouth and he stumbled backwards and I kicked him in the balls as hard as I could and he went down, Being no dummy I knew that at two against one I needed to keep them down and I went to work giving the boot to both of them. I took turns kicking them in the crotch, ribs and head until Aggie screamed: Report_Story #3 
+ "Stop him!" Aggie yelled and the two guys started after me and when they were close enough I spun around toward them with my briefcase heading for the first guys head. It was a solid hit and he went down. The second guy was caught by surprise and before he realized it I was on him. I punched him in the mouth and he stumbled backwards and I kicked him in the balls as hard as I could and he went down, Being no dummy I knew that at two against one I needed to keep them down and I went to work giving the boot to both of them. I took turns kicking them in the crotch, ribs and head until Aggie screamed:  
 
  
 

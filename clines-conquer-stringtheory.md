@@ -170,7 +170,7 @@
 
  It was hard for all of them to get Derek out of their mind, because quite simply, he fit all three Cline women's taste to the letter. The women had much in common. Despite their success at bedding men, all three were single. None of them had found a man ready to put up with all of their bullshit, their demands, their sick, disgusting fetishes on a long term basis. And even though they got laid, they never seemed to find the man they wanted. All three loved the flesh of younger men. And Derek was a young man seemingly built for each of them. 
 
- All three of them looked up as they saw the happy couple approach. Helena watched Jackie check her cleavage and hard nipples, making sure they were being properly displayed. Helena saw Jocelyn do the same. And Helena, despite her feeling otherwise, made sure her own expansive, mature, creamy cleavage was visible as well. Report_Story #2 
+ All three of them looked up as they saw the happy couple approach. Helena watched Jackie check her cleavage and hard nipples, making sure they were being properly displayed. Helena saw Jocelyn do the same. And Helena, despite her feeling otherwise, made sure her own expansive, mature, creamy cleavage was visible as well.  
 
  
 
@@ -334,7 +334,7 @@
 
  "Mmm, I think he's awake." Derek said, kissing his wife slowly. 
 
- Derek and Heather had a healthy sex life. Both had been rather inexperienced when they had first met, so they took the opportunity to explore sex with each other. Both were pretty open for different things. They were happy to try different positions, different types of sex, light role playing. Innocent fun, the type two healthy young adults exploring their sexuality would. Report_Story #3 
+ Derek and Heather had a healthy sex life. Both had been rather inexperienced when they had first met, so they took the opportunity to explore sex with each other. Both were pretty open for different things. They were happy to try different positions, different types of sex, light role playing. Innocent fun, the type two healthy young adults exploring their sexuality would.  
 
  
 
@@ -468,7 +468,7 @@
 
  "Where, uh, where do you fit in?" Derek asked. 
 
- "You'll have to find out." she teased gently, enjoying this light flirting with the young man. Derek looked a bit confused, but he just smiled and replied. Report_Story #4 
+ "You'll have to find out." she teased gently, enjoying this light flirting with the young man. Derek looked a bit confused, but he just smiled and replied.  
 
  
 
@@ -690,7 +690,7 @@
 
  "Yourshh very prrrettty." Heather slurred. 
 
- "Aw, thanks." Kaitlyn said. She approached Derek and whispered in his ear. Report_Story #5 
+ "Aw, thanks." Kaitlyn said. She approached Derek and whispered in his ear.  
 
  
 
@@ -868,7 +868,7 @@
 
  "Oh that's it. Just lie there and take it baby. Lie there and let Kaitlyn take control. Let Kaitlyn control that married cock of yours." Kaitlyn purred. Kaitlyn laughed and shook her hair, causing it to fall onto his face, causing her sexy perfume to hit his nose. 
 
- "When I told you this happens a lot, I meant it. So many stupid wives get drunk at the reception, leave their hubbies hanging. No husband should spend their wedding night with their dick hard and no woman to take care of it. No big married dick should go uncared for, especially when attached to such a stud like you. No married man should have to go bar hopping in search of good pussy on their wedding night! That's why I'm here. That's the service I provide. But I have to tell you baby, I rarely enjoy it quite as much as I am right now. Rarely are the men I'm with such fucking studs." Kaitlyn complimented, bouncing hard. Report_Story #6 
+ "When I told you this happens a lot, I meant it. So many stupid wives get drunk at the reception, leave their hubbies hanging. No husband should spend their wedding night with their dick hard and no woman to take care of it. No big married dick should go uncared for, especially when attached to such a stud like you. No married man should have to go bar hopping in search of good pussy on their wedding night! That's why I'm here. That's the service I provide. But I have to tell you baby, I rarely enjoy it quite as much as I am right now. Rarely are the men I'm with such fucking studs." Kaitlyn complimented, bouncing hard.  
 
  
 
@@ -916,7 +916,7 @@
 
  
 
- (Author's Note: I hope you all enjoyed this and didn't get too confused. Chapter two is coming next week, and it's Audrey Clarke's time to shine) Report_Story #1 
+ (Author's Note: I hope you all enjoyed this and didn't get too confused. Chapter two is coming next week, and it's Audrey Clarke's time to shine)  
 
  
 
@@ -1134,7 +1134,7 @@
 
  "Well, yeah, sure, you can do that... if you want. But trust me, I know that once you start modeling, I'm sure you'll start caring about that life far more than the one you have now, doing... science stuff." Audrey said. 
 
- "Well, uh, I doubt that." Derek said. Derek watched through the window as they drove through town, past any place he recognized. The car kept turning, taking him through different small roads, until he was completely lost. Derek watched as they drove up to a parking structure and stopped at the guard station at the entrance. The driver gave something to the guard there, and he lifted the barrier allowing them to enter. Derek watched out the window as they circled through the parking structure, the car driving underground. They passed through another guard station, and finally, the car pulled up front a pair of glass double doors with two bouncers standing guard. The driver quickly got out and opened the door, allowing Audrey and Derek to get out. Report_Story #2 
+ "Well, uh, I doubt that." Derek said. Derek watched through the window as they drove through town, past any place he recognized. The car kept turning, taking him through different small roads, until he was completely lost. Derek watched as they drove up to a parking structure and stopped at the guard station at the entrance. The driver gave something to the guard there, and he lifted the barrier allowing them to enter. Derek watched out the window as they circled through the parking structure, the car driving underground. They passed through another guard station, and finally, the car pulled up front a pair of glass double doors with two bouncers standing guard. The driver quickly got out and opened the door, allowing Audrey and Derek to get out.  
 
  
 
@@ -1280,7 +1280,7 @@
 
  "Who cares? I don't give a fuck that you're married. And clearly, you're body doesn't care either. Look at yourself. You are positively throbbing. Trust me, I feel it." Audrey giggled. "Look around, baby." Audrey commanded. Derek looked across the floor of the club, and although no one was blatantly staring at them, it was clear a lot of people were definitely paying attention. "Look at all the women, Derek. Look at them. They are so beautiful. Sure, some are old. Some are young, but any one of them would have sex with you. And sure, you can try to escape from me and go back to your precious wifey, but there are so many women here ready to swoop in for the kill. So, even if you say no to me, do you think you will be able to say no to all of them. I don't think you have it in you. Face it, baby, the second you walked in here, you resigned yourself to your destiny. Derek, you will be fucking another woman by the end of the night. No doubt. You will be pounding some pussy tonight, and it won't be your wife's. So, the only choice you have right now isn't whether or not you will be fucking someone. The question is who? It can be some faceless stranger you don't know. Or it could be the woman you've been making out with. The one you've been dry- humping. Eye fucking. Whose ass you've been groping. The one who can provide you a bright future. So you have to choose baby. You have to decide." 
 
- Audrey reached into her cleavage and retrieved a key card. Report_Story #3 
+ Audrey reached into her cleavage and retrieved a key card.  
 
  
 
@@ -1414,7 +1414,7 @@
 
  Derek was a man, and it was time for Audrey to learn that. 
 
- Derek grabbed Audrey's prominent hips and tossed her to the side, rolling with her until he was on top, his cock staying firmly implanted in her silky cunt. Audrey smirked smugly. Audrey was telling him he should be a man, but all of her advice was further supplanting her control of him. Further making him her slave. Him 'being a man' was all a ruse in order to get fucked harder. It was all a ruse to get him to make her hot cunt cum heaping amounts of squirting orgasms and for him to fill her with buckets of cum. How could he think he was winning this encounter when he would be making her cum ten times more than he would? That would really show how much of a man he really was, Audrey thought with a laugh. Report_Story #4 
+ Derek grabbed Audrey's prominent hips and tossed her to the side, rolling with her until he was on top, his cock staying firmly implanted in her silky cunt. Audrey smirked smugly. Audrey was telling him he should be a man, but all of her advice was further supplanting her control of him. Further making him her slave. Him 'being a man' was all a ruse in order to get fucked harder. It was all a ruse to get him to make her hot cunt cum heaping amounts of squirting orgasms and for him to fill her with buckets of cum. How could he think he was winning this encounter when he would be making her cum ten times more than he would? That would really show how much of a man he really was, Audrey thought with a laugh.  
 
  
 
@@ -1500,7 +1500,7 @@
 
  And so much pleasure. 
 
- (Author's Note: Thanks for enjoying the story so far. And just an FYI, the remaining four chapters will all be in the incest category, so when they come out, look there. Chapter 3, Derek's first confrontation with a true Cline woman, is coming next week.) Report_Story #1 
+ (Author's Note: Thanks for enjoying the story so far. And just an FYI, the remaining four chapters will all be in the incest category, so when they come out, look there. Chapter 3, Derek's first confrontation with a true Cline woman, is coming next week.)  
 
  
 
@@ -1596,7 +1596,7 @@
 
  "Sisshh, I'mmmmm gooood. I cannnn walk jush fine." Heather asserted, removing Jackie's arm from her shoulder and jumping away from Derek, attempting to walk in a straight line. She stumbled, and Derek jumped forward to catch her as Jackie simply rolled her eyes. Jackie didn't feel like continuing the charade of actually helping to carry Heather, so she watched from a distance as Derek struggled to keep his wife on her feet. Derek looked over at Jackie, silently asking for help, but Jackie simply smiled, playing dumb. Jackie noticed a flash of annoyance cross Derek's face, but it passed quickly. Jackie smiled inwardly, noting that the so called sweet, good young man her sister married could actually get mad. Jackie hoped to soon be on the receiving end of that... passion. 
 
- Jackie used this opportunity of being separated from her drunk sister to her advantage. She walked in front of the slowly moving Derek and Heather under the guise of guiding them, when in fact it was just an opportunity to show off her dress-clad ass. And show it off she did. Report_Story #2 
+ Jackie used this opportunity of being separated from her drunk sister to her advantage. She walked in front of the slowly moving Derek and Heather under the guise of guiding them, when in fact it was just an opportunity to show off her dress-clad ass. And show it off she did.  
 
  
 
@@ -1714,7 +1714,7 @@
 
  Derek lacked the couth of a more experienced man, so he couldn't control the fact that his eyes went straight to his sister-in-law's enormous breasts. The dress's design left her upper chest uncovered. With Heather, this simply meant only the slight slope of her upper chest was exposed. A look that was only a tease of her femininity and sexuality. The same look was not repeated with Jackie. With Jackie, this look was no tease. This look was not subtle. It was like a hammer, beating you over the head with her sexuality and femininity. 
 
- Jackie's huge tits were pouring out of the dress, the firm flesh straining the silky material of the dress to the max. The material of the dress was fitted to show off Heather's slim chest without exposing any cleavage. Heather didn't want to be too filthy, or come across like THAT type of girl. But Jackie was that type of girl. To view your wedding and your wedding dress as an opportunity to show off your tits. The dress was not designed to cover so much flesh, flesh Heather simply did not have. Flesh that Jackie did have. The dress was built to contain a pair of petite A-cups and nothing more. The dress was not fitted to handle a pair of bulging DDs, still standing proudly, too firm to be flattened or restrained by the tight dress. No, the dress bent to the will of her giant boobs. The dress and her breasts were doing battle, and the dress was being demolished. The material of the dress was straining to the max, bending to the will of her monstrous tits. Report_Story #3 
+ Jackie's huge tits were pouring out of the dress, the firm flesh straining the silky material of the dress to the max. The material of the dress was fitted to show off Heather's slim chest without exposing any cleavage. Heather didn't want to be too filthy, or come across like THAT type of girl. But Jackie was that type of girl. To view your wedding and your wedding dress as an opportunity to show off your tits. The dress was not designed to cover so much flesh, flesh Heather simply did not have. Flesh that Jackie did have. The dress was built to contain a pair of petite A-cups and nothing more. The dress was not fitted to handle a pair of bulging DDs, still standing proudly, too firm to be flattened or restrained by the tight dress. No, the dress bent to the will of her giant boobs. The dress and her breasts were doing battle, and the dress was being demolished. The material of the dress was straining to the max, bending to the will of her monstrous tits.  
 
  
 
@@ -1912,7 +1912,7 @@
 
  "What do you mean?" Derek asked, his eyes not taking the bait. 
 
- "All men have desires, Derek." Jackie started. "With some men, their desires are more specific. And most men go through life with these desires unfulfilled. Some men see these desires as a weakness. A flaw. A secret shame. Cause they know that they are in fact a slave to these desires. These desires can bring a man to his knees. These desires can make a man into an animal. A man can lose everything he has, everything he loves, in order to fulfill these nasty, filthy, fun little fetishes. These men can be destroyed by the very thing they want the most. So tell me, Derek, what's your poison?" Report_Story #4 
+ "All men have desires, Derek." Jackie started. "With some men, their desires are more specific. And most men go through life with these desires unfulfilled. Some men see these desires as a weakness. A flaw. A secret shame. Cause they know that they are in fact a slave to these desires. These desires can bring a man to his knees. These desires can make a man into an animal. A man can lose everything he has, everything he loves, in order to fulfill these nasty, filthy, fun little fetishes. These men can be destroyed by the very thing they want the most. So tell me, Derek, what's your poison?"  
 
  
 
@@ -2082,7 +2082,7 @@
 
  "You see, Derek, they're just a pair of big breasts, right?" Jackie added, subtly needling her brother-in-law, knowing how awed he was. 
 
- Derek shouldn't be silent. He shouldn't be reacting this way. He should know better. He should be able to see a pair of big tits and not drool like a pervert. But he just couldn't look away. He just kept feasting on this vision in front of him. They were just so fucking big. And they looked impossibly soft. The animal side of him, a side he wouldn't even admit he had, just wanted to cup those soft breasts, squeeze them, suck them, fuck them and cum all over them, defiling their perfection with his copious seed. Her tits were a work of art. Report_Story #5 
+ Derek shouldn't be silent. He shouldn't be reacting this way. He should know better. He should be able to see a pair of big tits and not drool like a pervert. But he just couldn't look away. He just kept feasting on this vision in front of him. They were just so fucking big. And they looked impossibly soft. The animal side of him, a side he wouldn't even admit he had, just wanted to cup those soft breasts, squeeze them, suck them, fuck them and cum all over them, defiling their perfection with his copious seed. Her tits were a work of art.  
 
  
 
@@ -2154,7 +2154,7 @@
 
  Derek did not know what he was in for. 
 
- "You'd better get used to this, cause you'll be doing this every fucking day! I'll find an excuse to come over, visit my little sis. Me and her can gab, then you and me can sneak off and you could suck my nipples for a while. Worship them like they are meant to be worshipped. And I travel a lot, so I could invite you on trips, only you, not my pathetic baby sister. We could go anywhere we want, around the world, and you can suck my nipples along the way. Doesn't that sound great, baby? Spending hours chewing and sucking on these perfect nipples? Soon, you'll become addicted. Soon, you won't be able to live without them. They'll be more important to you than your wife, your family, your work... anything. You won't be able to get through a single day without them. You won't be able to focus without getting your fix. You won't be able to rest without having your head rest on my soft pillows, sucking yourself to a peaceful rest. I'm telling you this as a warning, baby. These tits are more addictive than any drug, and yet you keep sucking. You already know how irresistible they are, don't you? You can already feel the addictive effects. You're already under their spell, aren't you? These tits, and these fucking nipples mean more to you than my sister ever has, don't they?" Jackie said, hammering her thoughts into his head until they weren't her thoughts in his mind. They were his thoughts now. Report_Story #6 
+ "You'd better get used to this, cause you'll be doing this every fucking day! I'll find an excuse to come over, visit my little sis. Me and her can gab, then you and me can sneak off and you could suck my nipples for a while. Worship them like they are meant to be worshipped. And I travel a lot, so I could invite you on trips, only you, not my pathetic baby sister. We could go anywhere we want, around the world, and you can suck my nipples along the way. Doesn't that sound great, baby? Spending hours chewing and sucking on these perfect nipples? Soon, you'll become addicted. Soon, you won't be able to live without them. They'll be more important to you than your wife, your family, your work... anything. You won't be able to get through a single day without them. You won't be able to focus without getting your fix. You won't be able to rest without having your head rest on my soft pillows, sucking yourself to a peaceful rest. I'm telling you this as a warning, baby. These tits are more addictive than any drug, and yet you keep sucking. You already know how irresistible they are, don't you? You can already feel the addictive effects. You're already under their spell, aren't you? These tits, and these fucking nipples mean more to you than my sister ever has, don't they?" Jackie said, hammering her thoughts into his head until they weren't her thoughts in his mind. They were his thoughts now.  
 
  
 
@@ -2258,7 +2258,7 @@
 
  Jackie confidently swaggered to the bed. She stood over Derek, pondering her next move. She quickly slipped into the bed next to him, curling next to his firm body, pressing herself against him. It was an intimate pose, one fitting for two people who were soon to be lovers. She ran her finger along his muscular chest, scratching him lightly, as she looked down at him. 
 
- "You're gonna let me do whatever I want to you, aren't you?" Jackie whispered, digging a nail firmly into his chest. "You're gonna let your sister-in-law take over things on your wedding night. You're gonna let me run the show, aren't you? You just so desperately wanted someone to take away all those worries and all those responsibilities. Such a big brain, but in the end you really need a girl like me calling the shots, don't you. Doesn't that sound great? Guys like you really don't know what you're doing. You really need a slut like me making all the tough decisions. So whenever you have a tough choice to make, you will call me first and get my advice. And I mean, any choice. And honestly, you will end up doing whatever I tell you to do. Whether it is you wanting to know where to put all the money you earn you using that nice big brain of yours, or something as simple what to get my sister for her birthday. I'm the one who will be making all these choices. Got it!?" Report_Story #7 
+ "You're gonna let me do whatever I want to you, aren't you?" Jackie whispered, digging a nail firmly into his chest. "You're gonna let your sister-in-law take over things on your wedding night. You're gonna let me run the show, aren't you? You just so desperately wanted someone to take away all those worries and all those responsibilities. Such a big brain, but in the end you really need a girl like me calling the shots, don't you. Doesn't that sound great? Guys like you really don't know what you're doing. You really need a slut like me making all the tough decisions. So whenever you have a tough choice to make, you will call me first and get my advice. And I mean, any choice. And honestly, you will end up doing whatever I tell you to do. Whether it is you wanting to know where to put all the money you earn you using that nice big brain of yours, or something as simple what to get my sister for her birthday. I'm the one who will be making all these choices. Got it!?"  
 
  
 
@@ -2332,7 +2332,7 @@
 
  "OHHH, DEREK BABY, I LOVE IT!" Jackie moaned out. "I love your tongue on my ass! It feels so good! Go in deeper, baby! Go in deeper!" Jackie begged, feeling Derek's insistent tongue against her asshole, pressing forcefully against it, desperately trying to gain entry to her tighter than tight ass. But finally, the seal broke, and his tongue was soon trapped by her tight asshole. "OHHHH FUCKKKK YESSSSS!" Jackie screamed, practically loud enough to wake the dead. But not Heather, as she dozed next to the soon to be copulating couple. 
 
- Jackie swiveled her ass against Derek's face, her smooth, firm ass cheeks smothering Derek's face. It was a shocking sight. Jackie felt Derek's mouth sealed around her asshole, and as she swiveled around, his mouth kept the seal tight. His tongue was always on her, firmly embedded in her asshole. She was so turned on her juices were dripping onto his chin. Jackie body was so supercharged that Derek's mouth on her was enough to send her over the edge with a series of small orgasms, enough to make her moan, but only enough to whet her appetite. She was ready for more, so reluctantly, she lifted her ass, the tight seal his lips had formed broken with a pop. Report_Story #8 
+ Jackie swiveled her ass against Derek's face, her smooth, firm ass cheeks smothering Derek's face. It was a shocking sight. Jackie felt Derek's mouth sealed around her asshole, and as she swiveled around, his mouth kept the seal tight. His tongue was always on her, firmly embedded in her asshole. She was so turned on her juices were dripping onto his chin. Jackie body was so supercharged that Derek's mouth on her was enough to send her over the edge with a series of small orgasms, enough to make her moan, but only enough to whet her appetite. She was ready for more, so reluctantly, she lifted her ass, the tight seal his lips had formed broken with a pop.  
 
  
 
@@ -2458,7 +2458,7 @@
 
  "No!" she gasped. "You don't get to feel these suckers again until you bash the ever-loving shit out of my sister. My stupid, dumb ass little sister who doesn't belong in the same family as me and you!" Jackie yelled out. 
 
- The truth was out. Jackie had shown once and for all, that when it comes down to choosing between her family or cock, she would take the cock every time. She showed that she only really cared about her little sister until it reached the point where that loyalty got in the way of some really good sex she should be having. And when that point was reached, Jackie was happy to forget about Heather, acknowledge her sister's inferiority, and fuck the cock that should have been hers. Jackie was willing to sever all connections to her little sis in favor of the beefy hunk she just met. Sever what little loyalty she had, cast her sis away. All loyalty she should feel for her little sister, the sister she had grown up alongside, sharing their younger years together, was just thrown aside. Jackie was one cold bitch. She would throw her little sister under the bus, throw her in jail, whatever it took to make sure she kept getting that good cock. Heather was just some regular, plain woman who she didn't have time to even acknowledge. She was just some bland obstacle standing in between her and the inevitable pounding she deserved. Report_Story #9 
+ The truth was out. Jackie had shown once and for all, that when it comes down to choosing between her family or cock, she would take the cock every time. She showed that she only really cared about her little sister until it reached the point where that loyalty got in the way of some really good sex she should be having. And when that point was reached, Jackie was happy to forget about Heather, acknowledge her sister's inferiority, and fuck the cock that should have been hers. Jackie was willing to sever all connections to her little sis in favor of the beefy hunk she just met. Sever what little loyalty she had, cast her sis away. All loyalty she should feel for her little sister, the sister she had grown up alongside, sharing their younger years together, was just thrown aside. Jackie was one cold bitch. She would throw her little sister under the bus, throw her in jail, whatever it took to make sure she kept getting that good cock. Heather was just some regular, plain woman who she didn't have time to even acknowledge. She was just some bland obstacle standing in between her and the inevitable pounding she deserved.  
 
  
 
@@ -2636,7 +2636,7 @@
 
  "Ughhhhh!" Derek grunted. He kept pushing and pushing, until his balls hit her flesh, and his shaft was totally buried in her tight ass. 
 
- "Oh my God. That's it! That's what I like! Right fucking there!" Jackie groaned out. She turned and looked back at her brother-in-law. She noticed the cool confidence on his face, a look that was positively devilish. She loved it. Report_Story #10 
+ "Oh my God. That's it! That's what I like! Right fucking there!" Jackie groaned out. She turned and looked back at her brother-in-law. She noticed the cool confidence on his face, a look that was positively devilish. She loved it. 0 
 
  
 
@@ -2696,7 +2696,7 @@
 
  Like his mother-in-law. 
 
- (Author's Note: Thanks for sticking with this series this far. Chapter four is coming next week!) Report_Story #1 
+ (Author's Note: Thanks for sticking with this series this far. Chapter four is coming next week!)  
 
  
 
@@ -2828,7 +2828,7 @@
 
  And this Derek, he was so young, so inexperienced, and so sexy. He was destined to end up at the beck and call of an older woman. An older woman who knew how to care for that great big young cock Jocelyn knew she had. He was destined to end up on an older woman's leash. Jocelyn wanted to be the one holding that leash. Jocelyn wanted to be the older woman he gave his undying love to. 
 
- Sure, he was kinda, sorta, technically, legally married to her daughter. She loved her daughter, truly, but when she weighed the options in her head, she had to decide which was more important to her: her sweet young daughter's love, or a big fat cock on a hot young man. She had to decide which of the two gave her more pleasure. More fulfillment. And unfortunately, for Heather and her marriage, the answer was clear. Report_Story #2 
+ Sure, he was kinda, sorta, technically, legally married to her daughter. She loved her daughter, truly, but when she weighed the options in her head, she had to decide which was more important to her: her sweet young daughter's love, or a big fat cock on a hot young man. She had to decide which of the two gave her more pleasure. More fulfillment. And unfortunately, for Heather and her marriage, the answer was clear.  
 
  
 
@@ -2978,7 +2978,7 @@
 
  "What's so strange? This is perfectly normal. Good son-in-laws make it a point to please their mother-in-laws at every opportunity. Good son-in-laws make it a point to rub their mother-in-law's feet. Or their shoulders. Good son-in-laws treat their mother-in-laws even better than they treat their wives. Good son- in-laws put their mother-in-law's needs above everyone else's, including their own." Jocelyn paused. She continued this line of thought in her own mind. 
 
- A good son-in-law should give everything to his mother-in-law that he gives his wife. Much more, to be honest. He should welcome her into his home. Into his bed. And a good daughter should honor her mother by letting her walk all over her and giving up her place in the house to her hot-bodied mother. A good daughter would happily resume the natural order of things, with the mother in charge and the daughter eager to please. A good daughter should be happy to offer up her husband for whatever her mother needs of him. A good daughter should help her mother dress up in her sexiest night clothes, making sure she looks extra tasty. A good daughter should make sure her mother's thong looks perfect between the cheeks of her mature ass. A good daughter should make sure her nightie on her mother shows just a bit of nipple. A good daughter would make sure to dress down to look extra plain, so her husband desires her mother even more. A good daughter would be happy to hear the door to her bedroom lock, locking in her mother and her husband and preventing her from interfering. A good daughter should be honored to hear her mother's moans echo throughout the house, and she should take pride in the fact that it is her husband that is making her mother cum so hard. Report_Story #3 
+ A good son-in-law should give everything to his mother-in-law that he gives his wife. Much more, to be honest. He should welcome her into his home. Into his bed. And a good daughter should honor her mother by letting her walk all over her and giving up her place in the house to her hot-bodied mother. A good daughter would happily resume the natural order of things, with the mother in charge and the daughter eager to please. A good daughter should be happy to offer up her husband for whatever her mother needs of him. A good daughter should help her mother dress up in her sexiest night clothes, making sure she looks extra tasty. A good daughter should make sure her mother's thong looks perfect between the cheeks of her mature ass. A good daughter should make sure her nightie on her mother shows just a bit of nipple. A good daughter would make sure to dress down to look extra plain, so her husband desires her mother even more. A good daughter would be happy to hear the door to her bedroom lock, locking in her mother and her husband and preventing her from interfering. A good daughter should be honored to hear her mother's moans echo throughout the house, and she should take pride in the fact that it is her husband that is making her mother cum so hard.  
 
  
 
@@ -3064,7 +3064,7 @@
 
  "Older women aren't to be feared. They are to be worshipped, because they are built for pleasure. That is why the truly modern, forward thinking men these days are all ending up with older women. You look at all these sexy famous older women who maintained their hot bodies. They don't date old guys. They all end up pairing off with hot, young guys. They end up with the hot young studs that all the young girls fantasize about. Those older sluts end up hogging the hot guys for themselves, as they should. Older women are taking over. The best models, whether it be fashion models, swimsuit models, or nude models, all of the top models, the models most in-demand, are women my age. The finest pornography these days, the ones that sell the most, are the ones where older women are fucking younger guys. Modern, cultured, informed men know the truth. They've sampled the finest of the flesh, and older women come out on top." 
 
- "So, there's no shame in admitting the truth, Derek. There is no shame in admitting that you have spent most of your life fantasizing about older women sexually. There is no shame in admitting that you would sacrifice your marriage and your career to get some mature pussy. There is no shame in wanting a mommy more than a wife. There is no shame in admitting you never, ever fantasized about girls your own age. There is no shame in admitting you fantasized about your mom's hot friends. Or you're voluptuous teachers. Or some stacked relatives. It is perfectly natural for a young guy like you to want to offer his dick up to every hot MILF he sees." Report_Story #4 
+ "So, there's no shame in admitting the truth, Derek. There is no shame in admitting that you have spent most of your life fantasizing about older women sexually. There is no shame in admitting that you would sacrifice your marriage and your career to get some mature pussy. There is no shame in wanting a mommy more than a wife. There is no shame in admitting you never, ever fantasized about girls your own age. There is no shame in admitting you fantasized about your mom's hot friends. Or you're voluptuous teachers. Or some stacked relatives. It is perfectly natural for a young guy like you to want to offer his dick up to every hot MILF he sees."  
 
  
 
@@ -3202,7 +3202,7 @@
 
  "Whuhhh?" Heather moaned out, barely awake. 
 
- "Don't be naïve, Derek. You know that this has been where this has been going. We've been dancing around this long enough. You know that this night is going to end with us fucking in your marital suite. Derek, you'd have to be a fool not have known this." Jocelyn said, treating her son-in-law like a naïve idiot. Report_Story #5 
+ "Don't be naïve, Derek. You know that this has been where this has been going. We've been dancing around this long enough. You know that this night is going to end with us fucking in your marital suite. Derek, you'd have to be a fool not have known this." Jocelyn said, treating her son-in-law like a naïve idiot.  
 
  
 
@@ -3310,7 +3310,7 @@
 
  "Don't be too loud." Kaitlyn warned. 
 
- "I think you and I both know dear, when there's a 10-inch dick plowing your ass, it's impossible to stay quiet." Jocelyn said, causing both women to laugh. Report_Story #6 
+ "I think you and I both know dear, when there's a 10-inch dick plowing your ass, it's impossible to stay quiet." Jocelyn said, causing both women to laugh.  
 
  
 
@@ -3488,7 +3488,7 @@
 
  Derek struggled to free himself from this predicament. He was being forcibly smothered by his mother-in-law's imposing ass. He was being held tight by her iron grip. He tried to pull his face away, but she held him tight. He kept his mouth tightly shut, resisting giving Jocelyn what she no-doubt wanted, namely his tongue in her asshole. He began to stand with his face still planted between her cheeks. He grabbed her prominent hips and tried to wrestle her away, but he couldn't break away. Finally, in one last desperate lunge, he forced her from her knees onto her side, but she held tight, forcing him to fall to the bed with her, still conjoined by the face to her ass. 
 
- Derek tried to escape her clutches, but Jocelyn held tight. They writhed on the bed, both still nude. Derek was panicking and needed to get a full breath. That was what allowed Jocelyn to get the upper hand. That was why the young, strong, fit Derek got out-wrestled by this 40-year old woman. Derek was panicking. Even though he could still breath, his panicked body was making him short of breath. It didn't help that he was being smothered by his mother-in-law's fleshy ass. Derek weakened as Jocelyn swiveled her hips, scrubbing her ass across Derek's face. Derek's grip weakened against her hips, the lack of oxygen sapping his strength. That was why he couldn't fight back when Jocelyn rolled around, forcing his head against the bed as she asserted her dominance as she got on her knees, now sitting on her son-in-law's face. Report_Story #7 
+ Derek tried to escape her clutches, but Jocelyn held tight. They writhed on the bed, both still nude. Derek was panicking and needed to get a full breath. That was what allowed Jocelyn to get the upper hand. That was why the young, strong, fit Derek got out-wrestled by this 40-year old woman. Derek was panicking. Even though he could still breath, his panicked body was making him short of breath. It didn't help that he was being smothered by his mother-in-law's fleshy ass. Derek weakened as Jocelyn swiveled her hips, scrubbing her ass across Derek's face. Derek's grip weakened against her hips, the lack of oxygen sapping his strength. That was why he couldn't fight back when Jocelyn rolled around, forcing his head against the bed as she asserted her dominance as she got on her knees, now sitting on her son-in-law's face.  
 
  
 
@@ -3584,7 +3584,7 @@
 
  She just sat there for a few minutes, letting his dick marinate in her sex juices. She kept working her hips in small circles, gyrating around his spindle ever so slightly. Her cunt knew how to handle a hunk of big meat, and Derek could tell as her cunt clutched at his dick firmly. Derek tried to fight the pleasure, but it was so all-consuming. It was impossible to look away, to run from it. Derek's eyes peeked open to take in the sight on top of him, and the sight took his breath away. 
 
- Jocelyn Cline, his mother-in-law, the mother of his wife, was bare-ass naked on top of him as she ground herself on his thick shaft. Her magnificent, mature udders were hanging down as she leaned over him, so full, so firm, so round and soft looking, so smooth. Derek's dick pulsed. His eyes locked onto the hard nipples that capped her magnificent, mature breasts. They pointed at him, teasingly. Derek looked at her. Her flat belly, her long legs on either side of him, her pussy splayed over his dick, all dazzlingly sexy. He looked at her face and shimmering hair. She looked down at him, haughtily, fully confident and in control. She licked her lips teasingly before speaking. Report_Story #8 
+ Jocelyn Cline, his mother-in-law, the mother of his wife, was bare-ass naked on top of him as she ground herself on his thick shaft. Her magnificent, mature udders were hanging down as she leaned over him, so full, so firm, so round and soft looking, so smooth. Derek's dick pulsed. His eyes locked onto the hard nipples that capped her magnificent, mature breasts. They pointed at him, teasingly. Derek looked at her. Her flat belly, her long legs on either side of him, her pussy splayed over his dick, all dazzlingly sexy. He looked at her face and shimmering hair. She looked down at him, haughtily, fully confident and in control. She licked her lips teasingly before speaking.  
 
  
 
@@ -3768,7 +3768,7 @@
 
  "MMmmmm." Derek said, biting his lip to resist the pleasure. It sounded unbelievably hot. A woman, an older woman, pregnant with his baby. It just so wrong, a woman his mother's age, and older woman, someone who should not be thinking about sex with men his age, not only doing it but taking it all the way and knocking her up. A woman, his wife's mother, her belly stretching lewdly with children. Her breasts swelling, getting even bigger, swelling with milk, till her nipples were dripping with milk, begging for a mouth to surround them. 
 
- "HNNNNNNNN!" Derek grunted, trying to stifle the pleasure. It felt so good. Jocelyn was so hot! Sure she was a bitch, but she had exposed some dark cravings within him. A craving for submission. The pleasure she brought him was overwhelming. Could he go by in his life without having someone like Jocelyn, someone older and voluptuous, with huge tits? Report_Story #9 
+ "HNNNNNNNN!" Derek grunted, trying to stifle the pleasure. It felt so good. Jocelyn was so hot! Sure she was a bitch, but she had exposed some dark cravings within him. A craving for submission. The pleasure she brought him was overwhelming. Could he go by in his life without having someone like Jocelyn, someone older and voluptuous, with huge tits?  
 
  
 
@@ -3958,7 +3958,7 @@
 
  If only he had followed Heather's grandmother. 
 
- (Author's Note: Chapter 5 coming next week!) Report_Story #1 
+ (Author's Note: Chapter 5 coming next week!)  
 
  
 
@@ -4084,7 +4084,7 @@
 
  Helena Cline had a pair of FF breasts! Fucking incredible, all natural FF breasts. Still perky. Still round. Still sexy. A mature older woman packing a pair of giant FF breasts was a rare thing indeed. And Helena knew how to use them to great effect. Great big breasts, somehow still perky and riding high. They appeared even bigger thanks to her tightly cut black dress, which molded to her fit, mature frame. While both Jackie and Jocelyn believed in the policy of showing as much skin as they could get away with, Helena knew that the fun was in the tease. So even though her sexy dress went down to her ankles, the way it fit her body and only showed a hint of her juicy, mature cleavage helped her maintain a classy appearance while letting everyone know about the rocking body she possessed. 
 
- Even though she was well past forty when she realized her true slut potential, she had more than made up for lost time. In the years since she became consumed by sex, she had had more action than Jackie and Jocelyn. Combined. And Jocelyn and Jackie were complete sluts, so Helena was having a lot of fucking sex. And with a body like hers, she had her choice of lovers. And as her sexual renaissance blossomed, her tastes evolved. In her younger years, her tastes veered towards the rich, distinguished older men that could give her money. Now, her tastes veered towards the buff, energetic young men who could make her cum. Report_Story #2 
+ Even though she was well past forty when she realized her true slut potential, she had more than made up for lost time. In the years since she became consumed by sex, she had had more action than Jackie and Jocelyn. Combined. And Jocelyn and Jackie were complete sluts, so Helena was having a lot of fucking sex. And with a body like hers, she had her choice of lovers. And as her sexual renaissance blossomed, her tastes evolved. In her younger years, her tastes veered towards the rich, distinguished older men that could give her money. Now, her tastes veered towards the buff, energetic young men who could make her cum.  
 
  
 
@@ -4178,7 +4178,7 @@
 
  "I bet you can." 
 
- Kaitlyn knew where she would be going next... her overnight room, in the executive suite. She would spend the night in this room when she worked a late shift followed by an early morning shift or more commonly, when she would be entertaining a male suitor. She had transformed this room into her own personal fuck-pad, where she entertained weary married business men, newly married grooms, happily married men on boring family trips. (She had a type, clearly). But on rare occasions a man would slip through her fingers, into the arms of another intrepid slut. But Kaitlyn was always seeking to learn, and she knew there was no better way to learn than to watch them in action. Kaitlyn, with the help of some connected friends, had rigged up cameras in each room of the hotel. Cameras linked up to a laptop, located safely in the room in a place where only she knew about, only extricated when she intended to make use of it. It was all very illegal of course. So if any hard fucking went on in this hotel, Kaitlyn saw it, recorded it, tagged it, and saved it for later. Saved it to study later and to learn from it. She had seen some fucked up shit in her time. Filthy, naughty, terribly erotic things. She thought she had seen the depths of depravity. She had thought she had seen all there was to see. Report_Story #3 
+ Kaitlyn knew where she would be going next... her overnight room, in the executive suite. She would spend the night in this room when she worked a late shift followed by an early morning shift or more commonly, when she would be entertaining a male suitor. She had transformed this room into her own personal fuck-pad, where she entertained weary married business men, newly married grooms, happily married men on boring family trips. (She had a type, clearly). But on rare occasions a man would slip through her fingers, into the arms of another intrepid slut. But Kaitlyn was always seeking to learn, and she knew there was no better way to learn than to watch them in action. Kaitlyn, with the help of some connected friends, had rigged up cameras in each room of the hotel. Cameras linked up to a laptop, located safely in the room in a place where only she knew about, only extricated when she intended to make use of it. It was all very illegal of course. So if any hard fucking went on in this hotel, Kaitlyn saw it, recorded it, tagged it, and saved it for later. Saved it to study later and to learn from it. She had seen some fucked up shit in her time. Filthy, naughty, terribly erotic things. She thought she had seen the depths of depravity. She had thought she had seen all there was to see.  
 
  
 
@@ -4278,7 +4278,7 @@
 
  "Oh, since you're being so open around me dear I thought I could do the same." Helena said, chastising her the way she would when she was younger. Not with harsh punishments and screaming matches, but with shaming and embarrassment. 
 
- Heather couldn't find the words to reply, she just stammered. Annoyed, Helena grabbed her granddaughter by the arm. Report_Story #4 
+ Heather couldn't find the words to reply, she just stammered. Annoyed, Helena grabbed her granddaughter by the arm.  
 
  
 
@@ -4444,7 +4444,7 @@
 
  "Derek, I know it's easy to just live a lovely, happy, sheltered life. Living in your bubble. You look at the world, know that the truth is out there, you know the evils of the world are out there, but you don't confront it. You don't acknowledge it! You hide in your little world, with your cute wife, and let the world pass you by." Helena said. 
 
- "Derek, I read your work over carefully. You are so close to a revelation! What's holding you back are not the complexities of the universe. What's holding you back is yourself. You live your life afraid to confront the truth, and then you go to work and expect to just see beyond time and space, see beyond the limits of humanity. You can't do that because you don't know humanity. The intricacies of people. The good and the bad. The limits of your mind. Derek, you're trying to cross the ocean without understanding what water is." Helena said, exposing the training she had put her mind through, exposing her innermost thoughts. Report_Story #5 
+ "Derek, I read your work over carefully. You are so close to a revelation! What's holding you back are not the complexities of the universe. What's holding you back is yourself. You live your life afraid to confront the truth, and then you go to work and expect to just see beyond time and space, see beyond the limits of humanity. You can't do that because you don't know humanity. The intricacies of people. The good and the bad. The limits of your mind. Derek, you're trying to cross the ocean without understanding what water is." Helena said, exposing the training she had put her mind through, exposing her innermost thoughts.  
 
  
 
@@ -4566,7 +4566,7 @@
 
  Derek was frozen to the spot. 
 
- "We have to break the rules. All of them. Fate keeps us in line. I'm supposed to watch you marry my granddaughter, let her have you, and wish you well? When we are such a perfect match? Bullshit! I'll break the rules. I'll do what I fucking want. I'll throw you down, rip your clothes off, and ride that fat cock until we break the Earth. Your wife's grandmother will give you the vigorous, lusty sex you never knew existed. You will fuck an old lady, a woman that a hunk like you should not even be thinking about fucking. There are so many reasons your thick cock should not be buried in my sweet cunt. All the rules are telling us not to do it. That's why we need to do it. That's why we need to make it happen. That's why me and you should have sex. Disgusting, filthy, nasty sex. And when we do, the world will weep, cause it will know it has been beaten. And we will get off on the world's tears. We will fuck and suck each other, laugh at the world's pathetic attempts to keep us apart, and cum hard as it begs us to stop. Fate has thrown Heather at us, an obstacle, a last resort. And fate will be defeated when we laugh off Heather, make fun of her pathetic body, cast her away, and cum hard as her heart breaks. " Helena said. Report_Story #6 
+ "We have to break the rules. All of them. Fate keeps us in line. I'm supposed to watch you marry my granddaughter, let her have you, and wish you well? When we are such a perfect match? Bullshit! I'll break the rules. I'll do what I fucking want. I'll throw you down, rip your clothes off, and ride that fat cock until we break the Earth. Your wife's grandmother will give you the vigorous, lusty sex you never knew existed. You will fuck an old lady, a woman that a hunk like you should not even be thinking about fucking. There are so many reasons your thick cock should not be buried in my sweet cunt. All the rules are telling us not to do it. That's why we need to do it. That's why we need to make it happen. That's why me and you should have sex. Disgusting, filthy, nasty sex. And when we do, the world will weep, cause it will know it has been beaten. And we will get off on the world's tears. We will fuck and suck each other, laugh at the world's pathetic attempts to keep us apart, and cum hard as it begs us to stop. Fate has thrown Heather at us, an obstacle, a last resort. And fate will be defeated when we laugh off Heather, make fun of her pathetic body, cast her away, and cum hard as her heart breaks. " Helena said.  
 
  
 
@@ -4652,7 +4652,7 @@
 
  He couldn't fight it any more. Her words, though probably insane to most, resonated in a way he couldn't explain. He had tried so long to discover the limits of time and space. He played within the rules, within math and logic. So maybe Helena was right. Maybe a new tact was required. Maybe something completely outside the realm of science and reason. Maybe Helena was right that to break the rules of humanity, you must know it's limits first. Maybe to find those limits, you had to immerse yourself into the one act that makes people feel the most human. To immerse yourself in the pleasures of the flesh, to test your limits that way. To experience all there is to experience, to ride the choppy seas of pleasure, to run the gamut with another, to collide with someone in the deepest, most sinful sexual acts. A physical battle of wills, testing your limits of control, of pleasure, and in some cases, pain. The most immersive, physical act. The most raw, exposed, human act. The only act where you end up exposing who you really are. It is the most honest, the most real, the most human you will ever be. You will see your limits. And once you see them, you will know the limits you need to break. 
 
- Helena was right. Derek knew it. Helena was right. He had worked for so long for fruitless results. Helena's methods, while unorthodox, sounded crazy enough to work. Her words were like poison, infecting his moldable mind with her will, with her insane declarations. With her insane derision of her granddaughter. Her words filled his mind, changing him, changing what he believed about Helena, and about Heather. He was far too innocent for an old pro like Helena. She knew how to mold any young man. Fleeting glimpses of her perfect flesh. Her soft, firm, invasive words. Her keen, brilliant mind. It was like a genius trying to outwit a child. It was not hard at all. He was untrained, unready to fight back against someone who could keep up with him mentally and arouse him physically. Her body was incredible. Her big, magnificent breasts. Her incredible, mouth-watering ass. Her gorgeous, mature face. She was a walking, mature sex goddess. A grandmother with the body of a top-tier porn slut. A body women of all ages envied. Her body was too perfect for any man to resist, let alone one as innocent and inexperienced as Derek. He just didn't have it in him to fight back. It would be so easy to just give in. So easy to just give in to her will. And he just knew, deep down, that it would feel so fucking good to just give up, give in to Helena's supreme will and hot body. Report_Story #7 
+ Helena was right. Derek knew it. Helena was right. He had worked for so long for fruitless results. Helena's methods, while unorthodox, sounded crazy enough to work. Her words were like poison, infecting his moldable mind with her will, with her insane declarations. With her insane derision of her granddaughter. Her words filled his mind, changing him, changing what he believed about Helena, and about Heather. He was far too innocent for an old pro like Helena. She knew how to mold any young man. Fleeting glimpses of her perfect flesh. Her soft, firm, invasive words. Her keen, brilliant mind. It was like a genius trying to outwit a child. It was not hard at all. He was untrained, unready to fight back against someone who could keep up with him mentally and arouse him physically. Her body was incredible. Her big, magnificent breasts. Her incredible, mouth-watering ass. Her gorgeous, mature face. She was a walking, mature sex goddess. A grandmother with the body of a top-tier porn slut. A body women of all ages envied. Her body was too perfect for any man to resist, let alone one as innocent and inexperienced as Derek. He just didn't have it in him to fight back. It would be so easy to just give in. So easy to just give in to her will. And he just knew, deep down, that it would feel so fucking good to just give up, give in to Helena's supreme will and hot body.  
 
  
 
@@ -4754,7 +4754,7 @@
 
  Kaitlyn couldn't explain it. She had never been attracted to women at all, and none had ever made her body react this way. But as soon as Helena exposed her stacked, mature body to both the young married man and the peeping hotel clerk, Kaitlyn's cunt quivered with pleasure. Her juices began literally dripping from her pussy, soaking her thong and her thighs. Her nipples began to throb, bursting for escape from under her clothing. She couldn't explain why this old lady was making her body react like this. 
 
- It wasn't necessarily an attraction towards the older woman. There was just something about her. She induced this reaction out of everyone. Derek was under her spell as well. He had been entranced into taking off his clothes and exposing his fat cock to the hot grandmother. His cock was pulsing as the old lady went to work on him. Kaitlyn admired Derek's fit, muscular body, and his fat cock, and he definitely made her mouth water. But she had trouble paying attention to him. Her focus was continuously drawn to Helena. Every single thing she did was an act of seduction. She exuded sex from her pores. Every word, every motion, every jiggle drew both Kaitlyn and Derek further under her spell. Report_Story #8 
+ It wasn't necessarily an attraction towards the older woman. There was just something about her. She induced this reaction out of everyone. Derek was under her spell as well. He had been entranced into taking off his clothes and exposing his fat cock to the hot grandmother. His cock was pulsing as the old lady went to work on him. Kaitlyn admired Derek's fit, muscular body, and his fat cock, and he definitely made her mouth water. But she had trouble paying attention to him. Her focus was continuously drawn to Helena. Every single thing she did was an act of seduction. She exuded sex from her pores. Every word, every motion, every jiggle drew both Kaitlyn and Derek further under her spell.  
 
  
 
@@ -4844,7 +4844,7 @@
 
  He couldn't fight for Heather anymore. Helena was too hot. Her words too tempting. Her mind too smart. And her boobs were just enormous! His hands were dying to be filled with that soft flesh. Her cunt looked so sweet and delectable. Her body was just so insane. It had taken the fight out of him. He couldn't fight her away anymore. He would just have to give up and let Helena do what she wanted with him. Become her bed-mate. Fuck partner. Sex-slave. Whatever it is she wanted, he would have to give her. He had to do it. He had to give his body to her. He had to have the pleasure he craved. He needed to cum. He needed to ride alongside Helena. He needed to ride the waves of the sea. To test the limits of the universe. He had to be free. 
 
- Derek stepped forward and got on his knees, kneeling before Helena. He grabbed her creamy thighs and pulled her ass to the edge of the bed. He glanced up at her, looking past her creamy peaks, into her cool, crystal-blue eyes. She gave him a slight nod, a nod that he interpreted as a message to him, communicating that he could trust her. He paused and looked down at her plump, mature pussy. Her silver landing strip. Her protruding clit. He looked into what would become his future. His wife's grandmother's cunt. He should just be seeing it for what it was, simply a sexy vagina. Just a small part of her voluptuous frame. But he knew, deep down, that if he got any closer, that if he complied with any of her sick wishes, this pussy would soon be ruling his life. This thought should disgust him, but the thought sent a ripple of pleasure to his core. Just the thought of his wife's grandmother's sexy cunt was driving him wild with lust. Derek's eyes lidded over, his mouth opened, and he dove forward, his open mouth colliding with his wife's grandmother's cunt. His mouth formed a seal around her pussy, and his tongue leapt out and took a tentative lick along her plump lips. Report_Story #9 
+ Derek stepped forward and got on his knees, kneeling before Helena. He grabbed her creamy thighs and pulled her ass to the edge of the bed. He glanced up at her, looking past her creamy peaks, into her cool, crystal-blue eyes. She gave him a slight nod, a nod that he interpreted as a message to him, communicating that he could trust her. He paused and looked down at her plump, mature pussy. Her silver landing strip. Her protruding clit. He looked into what would become his future. His wife's grandmother's cunt. He should just be seeing it for what it was, simply a sexy vagina. Just a small part of her voluptuous frame. But he knew, deep down, that if he got any closer, that if he complied with any of her sick wishes, this pussy would soon be ruling his life. This thought should disgust him, but the thought sent a ripple of pleasure to his core. Just the thought of his wife's grandmother's sexy cunt was driving him wild with lust. Derek's eyes lidded over, his mouth opened, and he dove forward, his open mouth colliding with his wife's grandmother's cunt. His mouth formed a seal around her pussy, and his tongue leapt out and took a tentative lick along her plump lips.  
 
  
 
@@ -4966,7 +4966,7 @@
 
  "How?" Derek cried out, eyes still clenched shut. "How can you... How can it..." Derek stammered, "How can it be so tight?" 
 
- "Oh, I'm sorry, what was that?" Helena asked sarcastically. "You stick your huge dick into your wife's hot grandmother, and you complain that her pussy is too tight? That's the problem your big, smart brain is struggling with? No guilt or remorse over cheating on your idiot wife, a girl too fucking stupid to seal the deal with a hunk like you?" Report_Story #10 
+ "Oh, I'm sorry, what was that?" Helena asked sarcastically. "You stick your huge dick into your wife's hot grandmother, and you complain that her pussy is too tight? That's the problem your big, smart brain is struggling with? No guilt or remorse over cheating on your idiot wife, a girl too fucking stupid to seal the deal with a hunk like you?" 0 
 
  
 
@@ -5048,7 +5048,7 @@
 
  She was right. His dick was still throbbing and pulsing, clearly enjoying his wife's grandmother's effort and exertions, despite what his mouth was saying. His mouth was begging for mercy, but his cock was begging for more. It was begging her tight, mature cunt to fuck him even harder, soak it with her juices, and use her brilliantly tight cunt muscles to push him over the edge so he could cum like a cannon and fill up her nasty cunt with sticky cum. His body wanted this. His body wanted hard sex. His mind just had to catch up. 
 
- "You should be thanking me, Derek." Helena gasped out, speaking easily despite her frantic bouncing. "Most men would kill to be where you're at. Under me. Ugh, fuck. I've had men pay me thousands of dollars just to put their nose in my cleavage! So, ugh, that cock's so fucking big! So, to be asking for me to stop is like a slap in the face. It's like telling Picasso to stop painting. The damage is already done. You're already fucking your wife's grandmother. The damage is done. All you have to do is lie there and take it." Report_Story #11 
+ "You should be thanking me, Derek." Helena gasped out, speaking easily despite her frantic bouncing. "Most men would kill to be where you're at. Under me. Ugh, fuck. I've had men pay me thousands of dollars just to put their nose in my cleavage! So, ugh, that cock's so fucking big! So, to be asking for me to stop is like a slap in the face. It's like telling Picasso to stop painting. The damage is already done. You're already fucking your wife's grandmother. The damage is done. All you have to do is lie there and take it." 1 
 
  
 
@@ -5192,7 +5192,7 @@
 
  "UUHHH!" Derek grunted, trying to escape the pleasure Helena was bringing him. Helena's ass kept driving into him, reducing the strong young man into a wordless puddle of pleasure. 
 
- If Heather would just open her eyes, she would witness this unholy tableau of pleasure. If she would open her eyes she would see her grandmother's hot body, in the buff, riding her husband like a bucking bronco. She would see her grandmother's bare, round ass flexing and tightening as she bounced on her husband. She would see her husband's cock, the cock that she was so proud to call her property, slick with sex juices as it plowed into her favorite, most trusted relative's tight cunt. She would have seen Helena's massive tits bouncing, those great big breasts she was so jealous of, the big breasts she always wished she had a matching pair of. She would have seen her husband, despite his pleas, squeezing and immersing his large hands in her massive breasts. She would have seen her big, strong hubby unable to fight off her grandmother, not able to resist her abundant charms. She would have seen Helena's taut body flexing smoothly. A finely tuned instrument of pleasure, never slowing down, solely focused on her husband. She would have seen Helena pick up the pace, eager to make this illicit fuck come to an explosive end. Report_Story #12 
+ If Heather would just open her eyes, she would witness this unholy tableau of pleasure. If she would open her eyes she would see her grandmother's hot body, in the buff, riding her husband like a bucking bronco. She would see her grandmother's bare, round ass flexing and tightening as she bounced on her husband. She would see her husband's cock, the cock that she was so proud to call her property, slick with sex juices as it plowed into her favorite, most trusted relative's tight cunt. She would have seen Helena's massive tits bouncing, those great big breasts she was so jealous of, the big breasts she always wished she had a matching pair of. She would have seen her husband, despite his pleas, squeezing and immersing his large hands in her massive breasts. She would have seen her big, strong hubby unable to fight off her grandmother, not able to resist her abundant charms. She would have seen Helena's taut body flexing smoothly. A finely tuned instrument of pleasure, never slowing down, solely focused on her husband. She would have seen Helena pick up the pace, eager to make this illicit fuck come to an explosive end. 2 
 
  
 
@@ -5394,7 +5394,7 @@
 
  * 
 
- (Author's Note: Keep an eye out for the sixth and final chapter of "The Cline's Conquer Time". Will time truly be conquered? Can Helena really do the job? Can Helena's sick lusts truly be slaked? Find out, next week!) Report_Story #1 
+ (Author's Note: Keep an eye out for the sixth and final chapter of "The Cline's Conquer Time". Will time truly be conquered? Can Helena really do the job? Can Helena's sick lusts truly be slaked? Find out, next week!)  
 
  
 
@@ -5558,7 +5558,7 @@
 
  "I know." Jocelyn replied. 
 
- Neither would admit their disgust was simply a façade, a front they were putting to maintain their pride. Both women had rock hard nipples on each of their big, fat tits. Each Cline women's thong was soaked with their juices. Hearing Helena having sex was hotter than either realized. And despite their 'disgust', both sluts were listening intently to the action next door. Report_Story #2 
+ Neither would admit their disgust was simply a façade, a front they were putting to maintain their pride. Both women had rock hard nipples on each of their big, fat tits. Each Cline women's thong was soaked with their juices. Hearing Helena having sex was hotter than either realized. And despite their 'disgust', both sluts were listening intently to the action next door.  
 
  
 
@@ -5680,7 +5680,7 @@
 
  Derek still had a few inches left. Sneering a bit, Derek reared back, and... 
 
- "AHHH FUCK YES!" Helena screamed out in pleasure. With one heroic thrust, Derek had buried the remainder of his large cock deep into Helena's asshole. "That's it Derek! That's fucking it! That's how you do it! That's how a man fucks!" Report_Story #3 
+ "AHHH FUCK YES!" Helena screamed out in pleasure. With one heroic thrust, Derek had buried the remainder of his large cock deep into Helena's asshole. "That's it Derek! That's fucking it! That's how you do it! That's how a man fucks!"  
 
  
 
@@ -5936,7 +5936,7 @@
 
  "How the fuck did she get him? Sure, she's good looking, but I've got her beat!" Jackie whined. 
 
- Helena looked out at the city. Somewhere out there, Derek was getting some good pussy from that slutty fashionista. It just felt wrong. She just knew deep down that her and Derek would end up together. It just didn't seem right for him to end up with Audrey. She could just see herself, getting railed by the hot young man, with Heather passed out in front of them. The image made her pussy wet and her nipples hard. The image felt so vivid. It should have happened. How had it not happened? What had she done wrong. She pondered this for a few moments before coming to a conclusion. Report_Story #4 
+ Helena looked out at the city. Somewhere out there, Derek was getting some good pussy from that slutty fashionista. It just felt wrong. She just knew deep down that her and Derek would end up together. It just didn't seem right for him to end up with Audrey. She could just see herself, getting railed by the hot young man, with Heather passed out in front of them. The image made her pussy wet and her nipples hard. The image felt so vivid. It should have happened. How had it not happened? What had she done wrong. She pondered this for a few moments before coming to a conclusion.  
 
  
 
@@ -6172,7 +6172,7 @@
 
  "Those are fucking amazing!" Jackie admitted. 
 
- All four women watched Helena at work. Seeing her massive breasts bouncing. Her magnificent ass flexing. It was an incredible view. Report_Story #5 
+ All four women watched Helena at work. Seeing her massive breasts bouncing. Her magnificent ass flexing. It was an incredible view.  
 
  
 
@@ -6454,7 +6454,7 @@
 
  The aroused expressions of the eavesdropping sluts were frozen. Each woman was wide eyed and watching. The tears were frozen on Heather's cheeks. Derek's pained face as he came was frozen in time. Helena's open mouthed scream was silent and unmoving. 
 
- Her magnificent ass was frozen as it flexed when she came. Her asshole was frozen in place, quivering as she orgasmed. Her tits were frozen as they were being molded like dough in Derek's big hands. Her cunt was frozen as it squeezed Derek's cock, making it explode. And the semen exploding from Derek's dick was frozen in place, about to fill his wife's grandmother's fertile cunt, about to soak her eggs with his seed and no doubt knock her up. Report_Story #6 
+ Her magnificent ass was frozen as it flexed when she came. Her asshole was frozen in place, quivering as she orgasmed. Her tits were frozen as they were being molded like dough in Derek's big hands. Her cunt was frozen as it squeezed Derek's cock, making it explode. And the semen exploding from Derek's dick was frozen in place, about to fill his wife's grandmother's fertile cunt, about to soak her eggs with his seed and no doubt knock her up.  
 
  
 
@@ -6640,7 +6640,7 @@
 
  Derek was a very busy man. 
 
- Derek saw woman after woman, on bed after bed. He saw all sorts of women lewdly spreading their legs for him. Old women. Young women. White women. Black women. Asian women. Famous women Complete strangers. Women he knew. Old classmates. Old teachers. Old co-workers. Old girlfriends. Women even closer than that. Derek quickly realized sluts had been sizing him up for longer than he had ever realized. Report_Story #7 
+ Derek saw woman after woman, on bed after bed. He saw all sorts of women lewdly spreading their legs for him. Old women. Young women. White women. Black women. Asian women. Famous women Complete strangers. Women he knew. Old classmates. Old teachers. Old co-workers. Old girlfriends. Women even closer than that. Derek quickly realized sluts had been sizing him up for longer than he had ever realized.  
 
  
 
@@ -6850,7 +6850,7 @@
 
  And Heather was happy as well. Happy that she would be seeing her grandma again. She really needed to confide in her favorite relative. It was strange. Ever since the wedding. Her dreams had changed. She could never remember them, but she knew deep down they were sexual in nature. But they were not pleasant. They were nightmares. And when she would wake up, she would have a smell in her nose, a smell of sweat, of exertion, and of something else. 
 
- They seemed like more than dreams. They seemed like memories. Memories of something that never happened. Because ever since the wedding, ever since her wedding night, she was constantly experiencing the most intense déjà vu. And it was at the weirdest times. Like when she hugged her grandmother goodbye the day after the wedding. Heather caught a whiff of Helena's sweat on her neck as they hugged, and it just made her shudder with déjà vu and... something else. Like a lead weight in her stomach, that smell filled her with a weird sense of dread. And it happened again, after she had sat down to recover from this strange sensation. Helena hugged Derek goodbye, and as she did, Helena accidently pushed her butt out towards Heather's face. Heather turned to look only to see her grandmother's ass in her face. This set off the déjà vu again. Heather was forced to put her head in her hands until her grandmother left. Report_Story #8 
+ They seemed like more than dreams. They seemed like memories. Memories of something that never happened. Because ever since the wedding, ever since her wedding night, she was constantly experiencing the most intense déjà vu. And it was at the weirdest times. Like when she hugged her grandmother goodbye the day after the wedding. Heather caught a whiff of Helena's sweat on her neck as they hugged, and it just made her shudder with déjà vu and... something else. Like a lead weight in her stomach, that smell filled her with a weird sense of dread. And it happened again, after she had sat down to recover from this strange sensation. Helena hugged Derek goodbye, and as she did, Helena accidently pushed her butt out towards Heather's face. Heather turned to look only to see her grandmother's ass in her face. This set off the déjà vu again. Heather was forced to put her head in her hands until her grandmother left.  
 
  
 

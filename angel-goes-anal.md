@@ -128,7 +128,7 @@
 
  She paused for long moments while Phil captured the images of Jonny's cock planted firmly between Angel's lips. The highly aroused model gave Jonny's shaft exaggerated licks, and she grinned up at Phil's lens with her cheeks and face smeared with Jonny's leaking pre cum. 
 
- 'Fantastic babe, that's excellent,' Phil encouraged Angel continuously. 'Suck him now, Angel. That's it; take him deep... Great, now look at me honey, smile... Show me you love it.' Report_Story #2 
+ 'Fantastic babe, that's excellent,' Phil encouraged Angel continuously. 'Suck him now, Angel. That's it; take him deep... Great, now look at me honey, smile... Show me you love it.'  
 
  
 

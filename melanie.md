@@ -190,7 +190,7 @@
 
  Eventually Bob broke and explained what had happened, how a simple theft had gone wrong. For the past month they had put in low quotes to move furniture and riffled the belongings for anything valuable then dumped what they didn't want. 
 
- "You stupid buggers! She isn't a part of your scam then. So you thought you would dump her with me. Nice one Bob. Bloody typical of you to share your troubles." Edward stroked her thigh watching the reaction. She had a nice face, lovely clear skin, and stunning figure. She was in a different league to the girls working for him. Report_Story #2 
+ "You stupid buggers! She isn't a part of your scam then. So you thought you would dump her with me. Nice one Bob. Bloody typical of you to share your troubles." Edward stroked her thigh watching the reaction. She had a nice face, lovely clear skin, and stunning figure. She was in a different league to the girls working for him.  
 
  
 
@@ -226,7 +226,7 @@
 
  Sunday morning Martin made it clear he thought it a pointless exercise. Driving around the lonely industrial parks and deserted office blocks was depressing. 
 
- She kept meaning to tell him it was Melanie they were looking for but was too afraid. Roberta kept telling herself she was bound to turn up eventually. "OK! Let's go home. I give up." Roberta sighed. Report_Story #1 
+ She kept meaning to tell him it was Melanie they were looking for but was too afraid. Roberta kept telling herself she was bound to turn up eventually. "OK! Let's go home. I give up." Roberta sighed.  
 
  
 
@@ -390,7 +390,7 @@
 
  Roberta felt so clever at purposely moving toward the door without the dress she didn't care about bending over in front of him in the thong. She was on the track of her friend and could feel the guilt melting away. 
 
- Perhaps she would have a peaceful sleep tonight at last. Report_Story #1 
+ Perhaps she would have a peaceful sleep tonight at last.  
 
  
 
@@ -556,7 +556,7 @@
 
  Darkness had descended and Melanie was becoming tired, desperately wanting to rest. To hasten the end of the training she jumped to it when Sandy gave her a command. It didn't matter that she felt like a dog performing tricks, she wanted to show how well she had learnt the poses to end the session. 
 
- Woken up early by Sandy, bright and perky as usual, breakfast was eaten and she was ready for a change. The man who had collected her from the airport strode in. Report_Story #2 
+ Woken up early by Sandy, bright and perky as usual, breakfast was eaten and she was ready for a change. The man who had collected her from the airport strode in.  
 
  
 
@@ -622,7 +622,7 @@
 
  
 
- She had reached the lowly state of those poor creatures in the banqueting hall and felt so useless. It was impossible to fight it. As she fell asleep images of human furniture surrounded her, whispering to her, mocking her. Report_Story #1 
+ She had reached the lowly state of those poor creatures in the banqueting hall and felt so useless. It was impossible to fight it. As she fell asleep images of human furniture surrounded her, whispering to her, mocking her.  
 
  
 
@@ -788,7 +788,7 @@
 
  Seeing the two friends cuddling each other for comfort Sandy suddenly felt very alone. For once she let her guard down and told them her story. How she had stolen company funds for the sheer hell of it. "Just because I could," she said. "Doing it under the very noses of those pompous men was thrilling," she laughed. 
 
- Melanie noticed the silly voice had been dropped and she no longer lisped. She wondered what the woman had been up to on the computer while supposedly helping with her training. When the trainer wasn't around she was constantly playing with the thing. Report_Story #2 
+ Melanie noticed the silly voice had been dropped and she no longer lisped. She wondered what the woman had been up to on the computer while supposedly helping with her training. When the trainer wasn't around she was constantly playing with the thing.  
 
  
 
@@ -798,7 +798,7 @@
 
  Sandy looked away, once more donning the coy little dumb blonde look. 
 
- Melanie knew her well enough to figure she was retreating into an act. So that was it, she was acting a part, to fool the trainer, no-one else. She didn't think it was just a mental escape from this awful place either. The woman was planning something. Report_Story #1 
+ Melanie knew her well enough to figure she was retreating into an act. So that was it, she was acting a part, to fool the trainer, no-one else. She didn't think it was just a mental escape from this awful place either. The woman was planning something.  
 
  
 
@@ -970,7 +970,7 @@
 
  "You have no choices, none at all and have had none since stepping foot on this farm. You are a slave and will be trained to obey, do you understand? You can disobey but you will be punished for such stupidity until you learn the lesson, obedience in all things," the trainer stated. 
 
- He flicked the back of her legs with a crop eliciting a hiss of anger and a look of disdain. He pushed a button on the remote control in his jeans pocket and watched her struggle against the tightening chains. As they drew together she knelt on the floor with both arms pulled up her back. The chains continued tightening about her body with a steady drone of an electric motor. Eventually her limbs were pulled into a hogtie position. Report_Story #2 
+ He flicked the back of her legs with a crop eliciting a hiss of anger and a look of disdain. He pushed a button on the remote control in his jeans pocket and watched her struggle against the tightening chains. As they drew together she knelt on the floor with both arms pulled up her back. The chains continued tightening about her body with a steady drone of an electric motor. Eventually her limbs were pulled into a hogtie position.  
 
  
 
@@ -1018,7 +1018,7 @@
 
  Tears dripped down her cheeks and he held her chin in one hand while dabbing at them with a tissue. As though a barrier had been crashed through she felt a rash desire to give everything to him. "Thank you master," she sighed. The words were a small sign of the total surrender she felt overwhelming her mind. 
 
- "Thank you master," she said again. The words were repeated to test the sincerity of meaning and to roll the unfamiliar words around her tongue for the sensual feel of them. It was difficult to understand. Was this it? Had she lost her independence? Was she now a slave? Report_Story #1 
+ "Thank you master," she said again. The words were repeated to test the sincerity of meaning and to roll the unfamiliar words around her tongue for the sensual feel of them. It was difficult to understand. Was this it? Had she lost her independence? Was she now a slave?  
 
  
 

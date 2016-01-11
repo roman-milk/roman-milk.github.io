@@ -214,7 +214,7 @@
 
  "I WILL NOT SPANK ANOTHER STUDENT WITHOUT THE PARENTS PERMISSION." 
 
- "You will supervise her and let me know when she is finished I expect a call from you later tonight, do not let your skirt down or pull your under panties up until Emily is finished. I am going to take Kate home with me. NOW get over there and supervise." I ordered as I landed two swats on her bare bottom and headed for the door Katie in tow. Report_Story #1 
+ "You will supervise her and let me know when she is finished I expect a call from you later tonight, do not let your skirt down or pull your under panties up until Emily is finished. I am going to take Kate home with me. NOW get over there and supervise." I ordered as I landed two swats on her bare bottom and headed for the door Katie in tow.  
 
  
 
@@ -330,7 +330,7 @@
 
  "Okay, now get up off my lap," Kate slowly got to her feet a very contrite, humbled, sore, young lady. "Its supper time girls," Speaking to my wife and daughter. "Kate after supper you will wash the dishes and put them away then its up to your room." 
 
- "Karen the same for you I am sure you know why." She knew she was going to be placed in her harness. Report_Story #1 
+ "Karen the same for you I am sure you know why." She knew she was going to be placed in her harness.  
 
  
 
@@ -468,7 +468,7 @@
 
  "Yes Daddy." She said glad it was not her bottom on display. 
 
- "Linda come here," calling the 41 year old Principal to the front of the room, what I want you to do is to go back to your office. You and I are going to discuss, your lack of authority and why Ms. Henderson disobeyed you last Friday. Apparently this school needs a disciplinarian, maybe we can work something out. Now move it." I gave her two quick spanks across her skirt covered backside, as she turned towards the classroom door. Report_Story #1 
+ "Linda come here," calling the 41 year old Principal to the front of the room, what I want you to do is to go back to your office. You and I are going to discuss, your lack of authority and why Ms. Henderson disobeyed you last Friday. Apparently this school needs a disciplinarian, maybe we can work something out. Now move it." I gave her two quick spanks across her skirt covered backside, as she turned towards the classroom door.  
 
  
 

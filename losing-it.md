@@ -122,7 +122,7 @@
 
  "Fucking you is wrong little brother and you can't ever let anyone know. But you have a talent when it comes to eating pussy and as long as you are willing to eat me I'll fuck you. Is that okay with you?" 
 
- I pulled my face away from her cunt long enough to say "Deal" and I went back to eating her. Mary and I fucked all over the house for the rest of Saturday and most of Sunday. We had to stop at noon and make one last pass through the house before mom and dad got home. I was sitting on the couch and Mary was kneeling on the floor in front of me and sucking my cock when our parents pulled into the driveway. As I was tucking my cock back into my pants Mary said she would see if she could borrow the car later in the evening, "Maybe we can go some place and finish what we just started." She started to leave the room and I called to her, "Hey Sis." She turned to look at me, "Do you really think that I can nail mom?" Report_Story #1 
+ I pulled my face away from her cunt long enough to say "Deal" and I went back to eating her. Mary and I fucked all over the house for the rest of Saturday and most of Sunday. We had to stop at noon and make one last pass through the house before mom and dad got home. I was sitting on the couch and Mary was kneeling on the floor in front of me and sucking my cock when our parents pulled into the driveway. As I was tucking my cock back into my pants Mary said she would see if she could borrow the car later in the evening, "Maybe we can go some place and finish what we just started." She started to leave the room and I called to her, "Hey Sis." She turned to look at me, "Do you really think that I can nail mom?"  
 
  
 
@@ -200,7 +200,7 @@
 
  "I don't think you have to worry. If it happens again it won't be till dad goes out of town again. Until then I'm all yours." 
 
- Dad has been gone for two days of a four day trip and mom hasn't left my bedroom except to eat and go to the bathroom. We use my bed instead of hers because she doesn't have a TV and VCR in her room and she can't seem to get enough of watching the tape of her gangbang. Quite frankly I hope she never does because as long as she is watching it she is fucking me and I can't get enough of her. But two minutes ago she asked me something that just might complicate my life. She was watching the tape as I was fucking her from behind and she said, "Baby, do you have some friends, maybe two or three, who might be interested in having some fun with an older woman?" Report_Story #1 
+ Dad has been gone for two days of a four day trip and mom hasn't left my bedroom except to eat and go to the bathroom. We use my bed instead of hers because she doesn't have a TV and VCR in her room and she can't seem to get enough of watching the tape of her gangbang. Quite frankly I hope she never does because as long as she is watching it she is fucking me and I can't get enough of her. But two minutes ago she asked me something that just might complicate my life. She was watching the tape as I was fucking her from behind and she said, "Baby, do you have some friends, maybe two or three, who might be interested in having some fun with an older woman?"  
 
  
 

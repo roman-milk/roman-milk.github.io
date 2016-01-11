@@ -234,7 +234,7 @@
 
  "Get to it," the man said, interrupting the exchange as he knelt on the bed close to Emma's head. "Lick her. Give it your best while she sucks our cocks." 
 
- David watched while the man touched Emma's head and directed her towards his penis. Report_Story #2 
+ David watched while the man touched Emma's head and directed her towards his penis.  
 
  
 
@@ -458,7 +458,7 @@
 
  But David, still sitting in the chair, his fist jacking at his cock, wasn't too sure. As far as he was concerned the scene he found himself in was a one-off. There would be no repeat performance, he decided. He wouldn't allow his wife to go off the rails again. She could do it this once. David would swallow a single occasion but there was no way he was ever going to compromise himself or his marriage again. 
 
- Then all thoughts left David's head when his wife's head ducked once again, her mouth opening. He had to admit, seeing Emma being used in that way was a turn- on. Not that he'd voice it -- never, no way, she might think he enjoyed being humiliated! But David settled and stroked his cock and decided to make the most of that afternoon in the hotel. Report_Story #3 
+ Then all thoughts left David's head when his wife's head ducked once again, her mouth opening. He had to admit, seeing Emma being used in that way was a turn- on. Not that he'd voice it -- never, no way, she might think he enjoyed being humiliated! But David settled and stroked his cock and decided to make the most of that afternoon in the hotel.  
 
  
 
@@ -684,7 +684,7 @@
 
  Suddenly, with another yell, as his body tensed, muscles locking with the effort, viscous goo flicked out of his cock. The stuff arced high, a steep- angled parabola of jizm that, after hanging for half a second in the air at its apogee, then spattered down onto Tia's skin. Just as that first jet landed another spurt squirted high, Philip's yanking fist altering its course so the gloop landed on the insignificant scrap of denim that Tia had worn as a skirt, the material bunched around her waist. 
 
- Philip grunted and groaned while further gouts of semen poured out of him, the stuff raining down. Report_Story #4 
+ Philip grunted and groaned while further gouts of semen poured out of him, the stuff raining down.  
 
  
 
@@ -914,7 +914,7 @@
 
  "No I'm not," replied Emma, her head moving side-to-side, "I can promise you that. Then, after Philip fucked me, after he squirted his spunk into me, after Tia and I put on a little girl-on-girl show for the boys, three more men arrived. There were three more black men there, David ... And I fucked them all." 
 
- "No," whispered David, "say it isn't so." Report_Story #5 
+ "No," whispered David, "say it isn't so."  
 
  
 
@@ -1110,7 +1110,7 @@
 
  David sucked in a deep breath, his guts flipping, the corrosive jealousy squeezing his insides. He had difficulty in recognising the woman. Physically she resembled his wife, but the language she used, the obscenities that poured out of her ... That wasn't his Emma. This woman wasn't his wife. 
 
- "Tia, too," Emma continued. "Five black cocks for two dirty girls." She grunted and moaned, head lolling. David saw Philip's fingers digging into Emma's hips. "You watched the video, didn't you, David? You saw what happened ... Well, me and Tia have been getting fucked like that since Friday night. We've both been properly fucked. Real men, David, proper men ... We've been getting fucked by men who make us come. I can't tell you how fucking good it is to feel a big cock inside me." Emma moaned again, gasping and reaching back to claw at the man behind her. "Fuck me," Emma grunted. "Give it to me. Fuck me ... Come inside me again, Philip. My pussy is all yours." Report_Story #6 
+ "Tia, too," Emma continued. "Five black cocks for two dirty girls." She grunted and moaned, head lolling. David saw Philip's fingers digging into Emma's hips. "You watched the video, didn't you, David? You saw what happened ... Well, me and Tia have been getting fucked like that since Friday night. We've both been properly fucked. Real men, David, proper men ... We've been getting fucked by men who make us come. I can't tell you how fucking good it is to feel a big cock inside me." Emma moaned again, gasping and reaching back to claw at the man behind her. "Fuck me," Emma grunted. "Give it to me. Fuck me ... Come inside me again, Philip. My pussy is all yours."  
 
  
 
@@ -1310,7 +1310,7 @@
 
  "Where's my lovely lady?" asked Tia as she pushed past the sissy-boy. "Emma!" she called. "Where are ya, Emma?" 
 
- "Looking good, bitch," Nathaniel smirked as he crossed the threshold. Report_Story #7 
+ "Looking good, bitch," Nathaniel smirked as he crossed the threshold.  
 
  
 

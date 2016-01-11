@@ -194,7 +194,7 @@
 
  "Excuse me," I said to the other nurse, "I need to speak to Frankie a moment, if you don't mind." 
 
- "Of course not, doctor," the other nurse said as I led Frankie down the hall. When we got to the janitor's closet, I opened the door and pushed her inside, locking the door behind us. Again, she understood not to speak or make too much noise as I bent her over, raised her skirt and ripped off her thong. I filled her pussy with my cock, slamming into her juicy cunt about a dozen times until I felt her juices coating my shaft. Then, I pulled out, yanked out the butt plug and filled the gaping hole with my pussy-lubricated cock. She stifled a cry by putting a hand in her mouth. Report_Story #2 
+ "Of course not, doctor," the other nurse said as I led Frankie down the hall. When we got to the janitor's closet, I opened the door and pushed her inside, locking the door behind us. Again, she understood not to speak or make too much noise as I bent her over, raised her skirt and ripped off her thong. I filled her pussy with my cock, slamming into her juicy cunt about a dozen times until I felt her juices coating my shaft. Then, I pulled out, yanked out the butt plug and filled the gaping hole with my pussy-lubricated cock. She stifled a cry by putting a hand in her mouth.  
 
  
 
@@ -316,7 +316,7 @@
 
  "Yes, doctor." 
 
- She left and I made my way to the elevators. I rode up and down a few times until no one else was on. I put the thong and dildo in a small plastic bag and left in the corner of the elevator. That should make for a fun story in the break room. Report_Story #1 
+ She left and I made my way to the elevators. I rode up and down a few times until no one else was on. I put the thong and dildo in a small plastic bag and left in the corner of the elevator. That should make for a fun story in the break room.  
 
  
 
@@ -514,7 +514,7 @@
 
  "OK," she said, sitting down on the ledge that surrounded the inside of the pool. The warm bath-like water was up to her neck. 
 
- "Let me show you how fun those rings can be," I said. I hopped out of the pool and found some thin rope that was holding together a bundle of floor mats. I brought the rope back and instructed Frankie to face the ladder. Then, I jumped in the pool behind her and tied one end of the rope around her waist. I fed the other end of the soft, nylon-coated rope through her legs and up through the ring in her belly button. Then, I wrapped it around the both bars on the pool ladder and fed the ends through both nipple rings. I tied the end back to a step on the ladder, leaving enough slack for Frankie to move back and forth about 6-8 inches, depending on how much strain she could stand on her nipples. Report_Story #2 
+ "Let me show you how fun those rings can be," I said. I hopped out of the pool and found some thin rope that was holding together a bundle of floor mats. I brought the rope back and instructed Frankie to face the ladder. Then, I jumped in the pool behind her and tied one end of the rope around her waist. I fed the other end of the soft, nylon-coated rope through her legs and up through the ring in her belly button. Then, I wrapped it around the both bars on the pool ladder and fed the ends through both nipple rings. I tied the end back to a step on the ladder, leaving enough slack for Frankie to move back and forth about 6-8 inches, depending on how much strain she could stand on her nipples.  
 
  
 

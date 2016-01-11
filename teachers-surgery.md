@@ -242,7 +242,7 @@
 
  He moved between her outstretched legs maneuvering what was left of it into her ass. 
 
- At last the begging stopped to be replaced by a whimpering sound. So at last she was coming. Report_Story #2 
+ At last the begging stopped to be replaced by a whimpering sound. So at last she was coming.  
 
  
 

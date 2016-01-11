@@ -128,7 +128,7 @@
 
  "But that is in the future. My current problem is in the here and now. I was expecting six men to ring my chimes tonight and you got in the way. So, you have your work cut out for you old man" she said as she reached for my cock and started stroking it. 
 
- "I just hope I don't fuck you to death and have to try and explain that to Dave." Report_Story #1 
+ "I just hope I don't fuck you to death and have to try and explain that to Dave."  
 
  
 

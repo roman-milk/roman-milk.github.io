@@ -74,7 +74,7 @@
 
  "You coming inside again?", she asked, smiling at me and the pun, which maybe was intended. I smiled, and told her I didn't think there could be anything better in store for me in there, than I already experienced today. She smiled, and gave me another one of those sloppy kisses, and after giving my penis a tug, she said: 
 
- "Want to give me your phone number? Maybe we could repeat that sometime in the near future!" I grinned, gave her my number, and thought of the many possibilities you had with a married cockslut. Report_Story #1 
+ "Want to give me your phone number? Maybe we could repeat that sometime in the near future!" I grinned, gave her my number, and thought of the many possibilities you had with a married cockslut.  
 
  
 

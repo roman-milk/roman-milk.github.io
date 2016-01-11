@@ -206,7 +206,7 @@
 
  "You don't understand, she's, err, I mean," he tried to explain. He couldn't bring himself to say she was his wife. "It's OK. I'm going to take her home," he added. 
 
- "Ouch! Let go of my arm," Bernice squealed. Report_Story #2 
+ "Ouch! Let go of my arm," Bernice squealed.  
 
  
 
@@ -286,7 +286,7 @@
 
  He dare not think about the consequences. If it had been his niece, would it be any worse than being his wife out there? He just hoped she could bring herself under control, before one of them discovered how easily manipulated she was. 
 
- She was bound to have recovered her composure, and become angry with him by now. As a mature woman she would find a way to handle the situation, though it would be a close run thing. When she returned home, he would be in big trouble! Report_Story #1 
+ She was bound to have recovered her composure, and become angry with him by now. As a mature woman she would find a way to handle the situation, though it would be a close run thing. When she returned home, he would be in big trouble!  
 
  
 
@@ -514,7 +514,7 @@
 
  A shiver ran down her spine, on realising this nerdy looking guy had aroused her. He was just as greasy as the burgers he sold. He stood with a stoop, perhaps from leaning over a grill for too long. His lank dark hair, stuck to his head, in an unfashionable, short back and sides cut. 
 
- Report_Story #2 
+  
 
  
 
@@ -608,7 +608,7 @@
 
  He had watched her being fucked by this greasy young guy! She tried to look away, only he held her chin, forcing her to look at him, while he appraised her. His face revealed what he thought of her. To him she was a dirty little slut. In her own head, she was exactly that. 
 
- In self defence, her mind hid behind the persona of Barbara, the young, sexy slut. She desperately needed to be Barbara, the only way of escaping this sordid situation. Report_Story #1 
+ In self defence, her mind hid behind the persona of Barbara, the young, sexy slut. She desperately needed to be Barbara, the only way of escaping this sordid situation.  
 
  
 
@@ -836,7 +836,7 @@
 
  She wanted to plead with him not to tell her parents, despite them having passed away several years ago. Besides, it would be just as bad if he took her home to face her husband. She sank further into the role of Barbara, the bad slut. 
 
- "You're a filthy little girl, and I don't want you polluting my apartment. You had better get showered and freshened up. I'll get some clothes for you. My cousin sometimes stays over, so maybe she's left something that will fit. I can't say you deserve decent clothes, after what I witnessed of your disgusting behaviour," Paul said, laying it on heavily. Report_Story #2 
+ "You're a filthy little girl, and I don't want you polluting my apartment. You had better get showered and freshened up. I'll get some clothes for you. My cousin sometimes stays over, so maybe she's left something that will fit. I can't say you deserve decent clothes, after what I witnessed of your disgusting behaviour," Paul said, laying it on heavily.  
 
  
 
@@ -982,7 +982,7 @@
 
  Paul listened at the door. The heavy breathing revealed what she was doing. The murmuring was enough to piece together her fantasy. He figured from how she reacted, and what he had seen, that she was turned on by humiliation. Being treated like a naughty little girl was a particular turn on. 
 
- Still unsure what to make of it, he decided to keep up the pretence. He would continue the charade, while pretending not to know who she was. It would be an interesting weekend. Report_Story #1 
+ Still unsure what to make of it, he decided to keep up the pretence. He would continue the charade, while pretending not to know who she was. It would be an interesting weekend.  
 
  
 
@@ -1190,7 +1190,7 @@
 
  The principle murmured something, and retreated back to his office. 
 
- "My little girl doesn't know the rules, so I hope you will be lenient on her first day," Susan smiled at the prefect. "Now go with this young lady, be a good girl, and do as you're told," she said. Enjoying the charade, Susan dramatically blew a kiss, and smartly departed. Report_Story #2 
+ "My little girl doesn't know the rules, so I hope you will be lenient on her first day," Susan smiled at the prefect. "Now go with this young lady, be a good girl, and do as you're told," she said. Enjoying the charade, Susan dramatically blew a kiss, and smartly departed.  
 
  
 
@@ -1404,13 +1404,13 @@
 
  She should have said something. Instead she had just capitulated, and agreed to co-operate. Yet what could she do? As a teenager, she couldn't talk back to an adult, let alone a teacher. As she hurried to a class, she worried about getting into trouble for being late. 
 
- All the anxieties of teenage life occupied her mind. What would the others say about being thrashed at lunch time? Would she be able to make friends after that? Would she be able to cope with schoolwork. On top of that the memory of having sex with those boys was so shameful. Report_Story #3 
+ All the anxieties of teenage life occupied her mind. What would the others say about being thrashed at lunch time? Would she be able to make friends after that? Would she be able to cope with schoolwork. On top of that the memory of having sex with those boys was so shameful.  
 
  
 
  ****** Naughty Girl Ch. 04 ****** byStoryTeller07© The way she reacted with Miss Perez was worrying. Her sex had been wet! Was she a lesbian, or bisexual? What would her guardian say when she arrived home without the school uniform! 
 
- The immediate worry was facing her class teacher. What excuse could she come up with for being late? The many doubts and nervousness occupied her thoughts, clouding her judgement. She had to cope with being a naughty schoolgirl, rather than being a mature woman, and an adult. Report_Story #1 
+ The immediate worry was facing her class teacher. What excuse could she come up with for being late? The many doubts and nervousness occupied her thoughts, clouding her judgement. She had to cope with being a naughty schoolgirl, rather than being a mature woman, and an adult.  
 
  
 
@@ -1660,7 +1660,7 @@
 
  She felt a finger push into her. She guided his thumb over her clit. He worked her hard, and slowly. He watched her screwed up face, eyes closed, concentrating on the delicious sensations. After all she had been through, she needed pleasure, and desperately needed a release from the torturous tension. 
 
- A wave of tremors fluttered from her tummy, sensitising her breasts, filling her mind with warm feelings, almost like love. "You can stop now," she sighed. Report_Story #2 
+ A wave of tremors fluttered from her tummy, sensitising her breasts, filling her mind with warm feelings, almost like love. "You can stop now," she sighed.  
 
  
 
@@ -1912,7 +1912,7 @@
 
  "Go to your room and tidy it up. You had better get some decent clothes on before Paul gets home," Susan forcefully said. 
 
- Watching the woman scamper off, she felt pleased. She wondered why. It was just a bit of fun telling a grown woman what to do, and treating her like a kid. She would have her running around like a slave, given the chance. Report_Story #1 
+ Watching the woman scamper off, she felt pleased. She wondered why. It was just a bit of fun telling a grown woman what to do, and treating her like a kid. She would have her running around like a slave, given the chance.  
 
  
 
@@ -2154,7 +2154,7 @@
 
  Bernice hesitated, but was too frightened of her to accept the offer of protection. Maybe she could hold out long enough to escape school, and Paul. Paul! The idea of escaping him wasn't so urgent now. She liked the idea of him looking after her. Being his girl was becoming appealing, now her husband had abandoned her. 
 
- In the changing room the girls were pulling on their gym kit, and fixing their hair. They were only eighteen, yet looked so much bigger than her. Despite being much older, she felt small and fragile, especially when near Lara. Report_Story #2 
+ In the changing room the girls were pulling on their gym kit, and fixing their hair. They were only eighteen, yet looked so much bigger than her. Despite being much older, she felt small and fragile, especially when near Lara.  
 
  
 
@@ -2308,7 +2308,7 @@
 
  Susan went back to the kitchen, giving them time to pull themselves together. There was just time to get rid of the guy before Paul got home. She sniggered with delight. The woman was behaving like a stupid little slut, and Paul thought he was helping her. Or, did he? Maybe something else was going on. It was infuriating not knowing. 
 
- "Bernice! Dinner is ready. You had better wash up and come out here to help," she shouted. Report_Story #1 
+ "Bernice! Dinner is ready. You had better wash up and come out here to help," she shouted.  
 
  
 
@@ -2564,7 +2564,7 @@
 
  They slowly got dressed, between hugs and kisses. The first lesson after lunch was over, so they had to hurry to the next class. Bernice kept the hem down with both hands, as Greg had her panties. They entered the classroom with everyone else, barging and crowding in through the doorway. 
 
- Bernice felt a hand up her skirt and flinched. A quick glance over her shoulder found Jim grinning at her. She grinned back. They sat close together during the last lesson, with Bernice fighting him off when he tried to lift the skirt. He wasn't serious, just teasing her. Report_Story #2 
+ Bernice felt a hand up her skirt and flinched. A quick glance over her shoulder found Jim grinning at her. She grinned back. They sat close together during the last lesson, with Bernice fighting him off when he tried to lift the skirt. He wasn't serious, just teasing her.  
 
  
 
@@ -2728,7 +2728,7 @@
 
  He could be forgiven because he was unaware of who, and what she was. Not her though. She had thrown away all the inhibitions that usually weighed upon a mature woman. She had become an irresponsible teenager, ready to please her boyfriend. Susan chuckled to herself. It was fun playing with an adult, and so amusing manipulating her. The very idea of sending her away to screw that young guy was wicked! 
 
- This time she would leave them to it. Like young lovers they were eager to explore each others' body, for the pure pleasure it brought. She would listen to them from her bedroom and play with a toy. When she heard them orgasm, she would join in. It promised to be a good night. Report_Story #1 
+ This time she would leave them to it. Like young lovers they were eager to explore each others' body, for the pure pleasure it brought. She would listen to them from her bedroom and play with a toy. When she heard them orgasm, she would join in. It promised to be a good night.  
 
  
 
@@ -3008,7 +3008,7 @@
 
  'It makes some sense I guess. Depends on what the other problems were,' Susan pointed out. When Paul didn't offer anything else, she filled in the gap. 'A problem with men?' she asked, and put a cup in front of him. 
 
- 'Something like that. Has she been a problem, anything to do with boys?' he asked. Report_Story #2 
+ 'Something like that. Has she been a problem, anything to do with boys?' he asked.  
 
  
 
@@ -3090,7 +3090,7 @@
 
  'Like yea, uncle. I'm your happy little girl, uncle,' she giggled. 
 
- In some ways it was disturbing. As an act it was good, but she believed it, which was bad. So, what to do with her now? Report_Story #1 
+ In some ways it was disturbing. As an act it was good, but she believed it, which was bad. So, what to do with her now?  
 
  
 
@@ -3376,7 +3376,7 @@
 
  'Enjoy yourself, sweetie,' Susan said, and winked. 
 
- Bernice understood what she meant. She was referring to kissing and cuddling with Jim, in the sports storeroom. Something they'd talked about recently, though she hadn't revealed they had sex. Report_Story #2 
+ Bernice understood what she meant. She was referring to kissing and cuddling with Jim, in the sports storeroom. Something they'd talked about recently, though she hadn't revealed they had sex.  
 
  
 
@@ -3686,7 +3686,7 @@
 
  After hugs and a few tears between the two women, Paul sent Bernice to her room. Paul used the excuse that he and Susan, had to talk about the arrangements. 
 
- Bernice lay on her bed in shock. The initial euphoria had passed, with stark realties of the situation starting to sink in. Over the past weeks, she had conveniently shut out the dreadful past weeks, as though it had been a bad dream. She didn't want to think about it, for it hurt too much. Report_Story #3 
+ Bernice lay on her bed in shock. The initial euphoria had passed, with stark realties of the situation starting to sink in. Over the past weeks, she had conveniently shut out the dreadful past weeks, as though it had been a bad dream. She didn't want to think about it, for it hurt too much.  
 
  
 

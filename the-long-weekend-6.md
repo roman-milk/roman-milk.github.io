@@ -216,7 +216,7 @@
 
  Betty Ann took a sip of her wine and then she started talking: 
 
- "First Harold, you have to understand that my love for you is deep and unconditional. You are my life and you must understand that. I love you and only you and I don't want to spend my life with anyone else. That said, I need to say that I'm addicted to Randy's cock. I don't love Randy, I have never loved Randy, but I do crave his cock. He is not a better lover than you Harold, but he has size. When his cock is in me it fills me so full and touches me in places that drive me crazy. There are some places inside me that his cock can touch that give me long, almost continuous orgasms. Report_Story #2 
+ "First Harold, you have to understand that my love for you is deep and unconditional. You are my life and you must understand that. I love you and only you and I don't want to spend my life with anyone else. That said, I need to say that I'm addicted to Randy's cock. I don't love Randy, I have never loved Randy, but I do crave his cock. He is not a better lover than you Harold, but he has size. When his cock is in me it fills me so full and touches me in places that drive me crazy. There are some places inside me that his cock can touch that give me long, almost continuous orgasms.  
 
  
 

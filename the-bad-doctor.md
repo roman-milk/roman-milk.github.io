@@ -126,7 +126,7 @@
 
  She was sweating a little now, beads running down from her forehead, across her face and neck, down into that sweet valley between her bouncing boobs. Her skin glistened and I looked between her legs to see if the sweat had reached that area yet. There was just a hint of moisture around her pussy lips and ass crack, but I knew from experience that it wouldn't be long before these thin white hot pants became virtually transparent. All I had to do was make her keep sweating. 
 
- Her tight round ass was driving me crazy, so I reached out and tugged those little shorts into the crack of her ass, effectively turning them into a thong and showing me both cheeks. She never broke stride, though she did ask what I was doing. Report_Story #2 
+ Her tight round ass was driving me crazy, so I reached out and tugged those little shorts into the crack of her ass, effectively turning them into a thong and showing me both cheeks. She never broke stride, though she did ask what I was doing.  
 
  
 
@@ -280,7 +280,7 @@
 
  I was finally almost done, so I put my cock back in her mouth and instructed her to suck the rest out. 
 
- "Good stuff, huh?" I said, pulling my three-quarters erect cock from her mouth. She was kneeling on the floor, gasping, still swallowing and trying to see through about an inch of cum. "Now, because you didn't swallow fast enough like I told you to, I had to give you some of the dose on your skin. It can soak in, but the best thing to do to make sure you don't accidentally wash it off is to go ahead and lick it off. Since your hands are tied, I'll help you." Report_Story #3 
+ "Good stuff, huh?" I said, pulling my three-quarters erect cock from her mouth. She was kneeling on the floor, gasping, still swallowing and trying to see through about an inch of cum. "Now, because you didn't swallow fast enough like I told you to, I had to give you some of the dose on your skin. It can soak in, but the best thing to do to make sure you don't accidentally wash it off is to go ahead and lick it off. Since your hands are tied, I'll help you."  
 
  
 
@@ -294,7 +294,7 @@
 
  "Now, how do you expect the cum to get there if you wear them like that?" I scolded. I reached between her legs and yanked the tiny shorts up and together in thong-like fashion until they were a narrow band, splitting her cunt lips. I then did the same with her ass cheeks, so that her shorts were deeply embedded in her ass and pussy. "That's how you make sure you soak it all up." 
 
- She didn't protest, just looked at me and nodded. I told her to sit down and I went to get her a drink. I came back with two glasses of wine and two bottles of water. She gulped down a large drink of the water, then sipped carefully at the wine. Report_Story #1 
+ She didn't protest, just looked at me and nodded. I told her to sit down and I went to get her a drink. I came back with two glasses of wine and two bottles of water. She gulped down a large drink of the water, then sipped carefully at the wine.  
 
  
 
@@ -440,7 +440,7 @@
 
  "Great," she said. Then, laughing, she added, "you should bottle this stuff." 
 
- I laughed too and told her I was glad she was enjoying this, because we still had several more doses to go. We ate leisurely, talking about where she was from, her family, all those things. She ate every bite and then I instructed her to lick the plate. Man, what a sight! Report_Story #1 
+ I laughed too and told her I was glad she was enjoying this, because we still had several more doses to go. We ate leisurely, talking about where she was from, her family, all those things. She ate every bite and then I instructed her to lick the plate. Man, what a sight!  
 
  
 
@@ -548,7 +548,7 @@
 
  I hung up the phone and looked at Bunny, who was looking back at me in disbelief -- shocked, I assume, by the way I had fucked her and had spoken to her mother. 
 
- Even though she looked at me that way, she didn't say a word. I smiled a victor's smile and began undoing her bonds. I studied her body as I did so, sweat, pussy cream and semen mixing everywhere, from head to toe. She looked exhausted. Even though I could have fucked her again right there, I was ready for a rest too. Report_Story #1 
+ Even though she looked at me that way, she didn't say a word. I smiled a victor's smile and began undoing her bonds. I studied her body as I did so, sweat, pussy cream and semen mixing everywhere, from head to toe. She looked exhausted. Even though I could have fucked her again right there, I was ready for a rest too.  
 
  
 
@@ -636,7 +636,7 @@
 
  "Thank you, officers," I said, following them to the door. "Thanks for conducting such an in-depth investigation." 
 
- They left and I turned to Bunny, who was putting her clothes back on. "Good job, Bunny. I'm proud of you. Now, let's go to bed." Report_Story #1 
+ They left and I turned to Bunny, who was putting her clothes back on. "Good job, Bunny. I'm proud of you. Now, let's go to bed."  
 
  
 
@@ -790,7 +790,7 @@
 
  I turned and headed back inside where the Baxter twins were waiting. 
 
- __ END __ Report_Story #1 
+ __ END __  
 
  
 
@@ -982,7 +982,7 @@
 
  It wasn't her technique, which was fine but nothing special. No, it was her attitude. She was determined, earnest, trying very hard to please. She was obedient, taking instruction well, not just following orders, but actually trying to learn how to do it better. She was like a sponge, soaking it all in. She had never had particularly good sex to know how much fun it could be. Now that it was sort of being forced upon her, her desire to learn, to try, to experiment was coming out. 
 
- At my encouragement, she was willingly trying to take more of my cock in her mouth. She now had about six inches in, but the remaining six inches seemed nearly impossible. Fortunately, I had encountered this issue before. Normally, I don't have much patience. I pinch the bitch's nose, tilt her head back and force my cock down her throat and she learns to relax her throat and control her gag reflex out of necessity. That's what I wanted to do to Candi, but damn it, I liked her too much already. So, I gently pushed a little more in, inch by inch, pulling back frequently to let her catch her breath or refocus on the task. I gently coached her, telling her to relax, to control her gag reflex, to remember that it was mind over matter. It took too long, but finally, she had 10 inches in her mouth and was sucking with the same gusto she had started with. I decided to reward her effort by pulling out and spraying all of my cum on her face rather than choking her with my prodigious load. Report_Story #2 
+ At my encouragement, she was willingly trying to take more of my cock in her mouth. She now had about six inches in, but the remaining six inches seemed nearly impossible. Fortunately, I had encountered this issue before. Normally, I don't have much patience. I pinch the bitch's nose, tilt her head back and force my cock down her throat and she learns to relax her throat and control her gag reflex out of necessity. That's what I wanted to do to Candi, but damn it, I liked her too much already. So, I gently pushed a little more in, inch by inch, pulling back frequently to let her catch her breath or refocus on the task. I gently coached her, telling her to relax, to control her gag reflex, to remember that it was mind over matter. It took too long, but finally, she had 10 inches in her mouth and was sucking with the same gusto she had started with. I decided to reward her effort by pulling out and spraying all of my cum on her face rather than choking her with my prodigious load.  
 
  
 
@@ -1132,7 +1132,7 @@
 
  "Yeah, she's sweet. You like her too, don't you? I mean, more than the other girls?" 
 
- "Yeah," I confessed. "There's something different about her that I can't quite put my finger on. I mean, yeah, she's gorgeous, just like you and the other girls. But like you, there's something different. Unlike you, she seems so innocent. But just like you, she's so eager to please. And she really loves her father. I mean, even if she didn't like what I was doing, she'd still do it for him." Report_Story #3 
+ "Yeah," I confessed. "There's something different about her that I can't quite put my finger on. I mean, yeah, she's gorgeous, just like you and the other girls. But like you, there's something different. Unlike you, she seems so innocent. But just like you, she's so eager to please. And she really loves her father. I mean, even if she didn't like what I was doing, she'd still do it for him."  
 
  
 
@@ -1264,7 +1264,7 @@
 
  "Oh, thank you so much!" Candi squealed. "That is so generous. I will be a very good employee, Dr. Pound. You won't be disappointed." 
 
- "I'm sure I won't." Report_Story #1 
+ "I'm sure I won't."  
 
  
 
@@ -1448,7 +1448,7 @@
 
  Frankie bounced around, kicking her legs as her long dark hair flew around and her tits jiggled invitingly. I applauded her efforts, then told her to go ahead and help Candi. "You lick my balls and shaft," I instructed, "let her take care of the head." 
 
- I lay my head back, closed my eyes and just absorbed that pleasure brought about by two very talented mouths. They worked very well in tandem, matching pacing and techniques, complementing one another as they hummed a virtual symphony on my cock. I held out for 55 minutes total before bathing their tonsils in another creamy gusher. As Candi headed back to her desk, I wondered if her jaws would allow to her speak and answer the phone. I chuckled at the thought of giving her lock jaw through extended blowjobs. Explain that one to the dentist. Report_Story #2 
+ I lay my head back, closed my eyes and just absorbed that pleasure brought about by two very talented mouths. They worked very well in tandem, matching pacing and techniques, complementing one another as they hummed a virtual symphony on my cock. I held out for 55 minutes total before bathing their tonsils in another creamy gusher. As Candi headed back to her desk, I wondered if her jaws would allow to her speak and answer the phone. I chuckled at the thought of giving her lock jaw through extended blowjobs. Explain that one to the dentist.  
 
  
 

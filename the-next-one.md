@@ -218,7 +218,7 @@
 
  Slamming car doors woke me in the morning as people loaded up their cars to leave. I looked over at the girl and saw that she was still out. I got up, walked to the windows and moved the drapes aside and looked out and in the daylight I saw a McDonalds across the street. I looked over at the girl and saw that she still hadn't moved so I thought it would be okay to leave her alone for a few minutes. 
 
- I walked over to McD's and got two Egg McMuffins and two coffees and went back to the room. She was awake when I got back and when I walked into the room and she saw me she jumped off the bed, ran into the bathroom and I heard the lock click. I walked over to the door and said in a voice loud enough for her to hear: Report_Story #2 
+ I walked over to McD's and got two Egg McMuffins and two coffees and went back to the room. She was awake when I got back and when I walked into the room and she saw me she jumped off the bed, ran into the bathroom and I heard the lock click. I walked over to the door and said in a voice loud enough for her to hear:  
 
  
 
@@ -520,7 +520,7 @@
 
  "Give her time" dad said. "She's just a little upset right now." 
 
- "Why? I'm grown. I wasn't going to live at home forever." Report_Story #3 
+ "Why? I'm grown. I wasn't going to live at home forever."  
 
  
 
@@ -736,7 +736,7 @@
 
  As the door closed behind her I had the thought that I might have created a monster. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1018,7 +1018,7 @@
 
  "I might as well get this out. I screwed up baby. I never should have started dating that asshole when I got to Baylor. I had what I wanted right here and I let it get away from me. I'm going to do whatever I have to do to get you back and that means that I need to stay close to you whenever I'm home from school and if that means I have to be your stand-by designated reliever then that is what I will be. I have a week and a half before I go back to school and I'm hoping by then I'll have you back and waiting for me to come home on weekends. Don't forget my dad works for an airline and I have pass privileges so I can easily get home. I'm going to fight for you baby. Now that I've fed you I'm going to fuck you." 
 
- She stood up, dropped the robe to display her naked body and then she walked to the bedroom. I wiped my mouth with a napkin and got up to follow her. Report_Story #2 
+ She stood up, dropped the robe to display her naked body and then she walked to the bedroom. I wiped my mouth with a napkin and got up to follow her.  
 
  
 
@@ -1270,7 +1270,7 @@
 
  "Nope. It will happen on its own and when it does I'm pretty sure that you will pass it. No more talking about it. We are out to have a good time tonight, not plan our future. Tonight is dance, dance, dance." 
 
- We had a very good time for the first hour of the party and then it turned a bit sour. Allison showed up at the party. Seeing her there with a date didn't bother me and there was no reason why it should have, but it soon became apparent that Allison's purpose was to try and get me pissed. She plastered herself to her date on the dance floor and ground her body into her partner and he responded by dropping his hand to her ass and pulling her tight against him. Allison looked at me and gave me a nasty smile. Report_Story #3 
+ We had a very good time for the first hour of the party and then it turned a bit sour. Allison showed up at the party. Seeing her there with a date didn't bother me and there was no reason why it should have, but it soon became apparent that Allison's purpose was to try and get me pissed. She plastered herself to her date on the dance floor and ground her body into her partner and he responded by dropping his hand to her ass and pulling her tight against him. Allison looked at me and gave me a nasty smile.  
 
  
 
@@ -1328,7 +1328,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1540,7 +1540,7 @@
 
  The day flew by and I don't think I got much out of my classes that night because I wasn't thinking of much other than Vangie and wondering if she would actually come to my place again on Wednesday. 
 
- Wednesday was a difficult day for me. I had a lot to do during the day and I tried to get it done without looking at the clock every five minutes to see how closer I was to quitting time. Would Vangie really come over? I half wished that she wouldn't and half prayed that she would. It was a weird feeling wanting and not wanting at the same time. I knew I was flirting with disaster if by some chance we were ever found out and God knew I didn't want that, but she was a woman – a sexy, beautiful woman – and she wanted me! Why? I had no idea, but the fact that she did made me feel like the world's greatest stud. Vangie could have had any man that she wanted and she could have gotten him with the mere crook of a finger, but she wanted me! I know I was cheating on Sarah, but I didn't care. Sarah was a beautiful and sexy young girl, but Vangie was a WOMAN! Report_Story #2 
+ Wednesday was a difficult day for me. I had a lot to do during the day and I tried to get it done without looking at the clock every five minutes to see how closer I was to quitting time. Would Vangie really come over? I half wished that she wouldn't and half prayed that she would. It was a weird feeling wanting and not wanting at the same time. I knew I was flirting with disaster if by some chance we were ever found out and God knew I didn't want that, but she was a woman – a sexy, beautiful woman – and she wanted me! Why? I had no idea, but the fact that she did made me feel like the world's greatest stud. Vangie could have had any man that she wanted and she could have gotten him with the mere crook of a finger, but she wanted me! I know I was cheating on Sarah, but I didn't care. Sarah was a beautiful and sexy young girl, but Vangie was a WOMAN!  
 
  
 
@@ -1740,7 +1740,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1992,7 +1992,7 @@
 
  I opened my arms and said, "Come here baby; I've missed you." 
 
- I saw her make a quick glance at the wall clock and then the phone before coming to me. I hugged her and was kissing her when the door to the apartment opened and Barrington walked in. I looked at him in pretend surprise and said: Report_Story #2 
+ I saw her make a quick glance at the wall clock and then the phone before coming to me. I hugged her and was kissing her when the door to the apartment opened and Barrington walked in. I looked at him in pretend surprise and said:  
 
  
 
@@ -2232,7 +2232,7 @@
 
  "That's because Sarah was with us and your breakup was too fresh. Come on baby; do me this little favor, please?" 
 
- "I'll see" I said as I broke away from and went back to the party. I danced a couple of more times with Allison and then I asked her to excuse me while I took care of a duty dance. Report_Story #3 
+ "I'll see" I said as I broke away from and went back to the party. I danced a couple of more times with Allison and then I asked her to excuse me while I took care of a duty dance.  
 
  
 
@@ -2442,7 +2442,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2762,7 +2762,7 @@
 
  "I won't let that happen Frank; I promise you that." 
 
- I knew she was whistling in the dark on that one; I knew too many people who had traveling jobs and I knew what was likely to happen, but I could live with it. Why? Vangie of course. It wouldn't matter if Allie came home from a trip and told me she was too tired to do anything more than go soak in the tub, because I would be getting all I could handle every Monday, Wednesday and Thursday that Allie was out of town. Report_Story #2 
+ I knew she was whistling in the dark on that one; I knew too many people who had traveling jobs and I knew what was likely to happen, but I could live with it. Why? Vangie of course. It wouldn't matter if Allie came home from a trip and told me she was too tired to do anything more than go soak in the tub, because I would be getting all I could handle every Monday, Wednesday and Thursday that Allie was out of town.  
 
  
 
@@ -3008,7 +3008,7 @@
 
  "Back atcha. Bye" 
 
- I got to the Denny's at three minutes to five and saw that Allison and Amos were already there. They were sitting in a booth opposite each other. No way I was going to sit next to either of them. I wanted to be looking at both of them when they brought up whatever it was they had in mind. When I got to the booth I pointed at the other side of the table and said to Allison: Report_Story #3 
+ I got to the Denny's at three minutes to five and saw that Allison and Amos were already there. They were sitting in a booth opposite each other. No way I was going to sit next to either of them. I wanted to be looking at both of them when they brought up whatever it was they had in mind. When I got to the booth I pointed at the other side of the table and said to Allison:  
 
  
 
@@ -3192,7 +3192,7 @@
 
  "Best way I can think of to keep us close. What would happen to us if you met someone else and got married and we couldn't find a way to get together? Think about it while mommy sucks your dick." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -3406,7 +3406,7 @@
 
  She hadn't expected that and her brow furrowed in confusion, but before she could say anything I went on: 
 
- "You never asked me why I had a fling with your mother. If you would have I would have said, "Why not? Why shouldn't I have a hot time with a sexy woman while you were fucking a guy named Larry Melrose and pulling trains at the Phi Delta house? After all, what's good for the goose is good for the gander, right?" Report_Story #2 
+ "You never asked me why I had a fling with your mother. If you would have I would have said, "Why not? Why shouldn't I have a hot time with a sexy woman while you were fucking a guy named Larry Melrose and pulling trains at the Phi Delta house? After all, what's good for the goose is good for the gander, right?"  
 
  
 
@@ -3618,7 +3618,7 @@
 
  "Why would you say that?" 
 
- "Because you want me. We both know it, but we also both know that it can never happen. Sarah is almost a carbon copy of me. Granted, she is a cock hungry slut, but so what? I am too. She needs more than you can give her and that is no slam on you. You know damned well that she gives you more than you can handle so what if she has to pick up a little extra to hold her. It is the same with me. Russ never says no to me, but even though I love the man I still need a little extra to keep me satisfied. Then there is the fact that you know what she is and it hasn't bothered you a bit." Report_Story #3 
+ "Because you want me. We both know it, but we also both know that it can never happen. Sarah is almost a carbon copy of me. Granted, she is a cock hungry slut, but so what? I am too. She needs more than you can give her and that is no slam on you. You know damned well that she gives you more than you can handle so what if she has to pick up a little extra to hold her. It is the same with me. Russ never says no to me, but even though I love the man I still need a little extra to keep me satisfied. Then there is the fact that you know what she is and it hasn't bothered you a bit."  
 
  
 
@@ -3766,7 +3766,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 

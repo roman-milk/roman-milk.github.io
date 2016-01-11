@@ -316,7 +316,7 @@
 
  "And has she passed her tests, and demonstrated the heart and soul we expect from a sister?" the president said. 
 
- "She has," the pledge mistress answered. Report_Story #2 
+ "She has," the pledge mistress answered.  
 
  
 
@@ -590,7 +590,7 @@
 
  She moved closer, running her tongue along the wrinkled flesh, pressing her lips to the head, feeling it pulse between her fingers. "I guess you deserve a little reward," she said. Then gazing up at him, holding his eyes with hers, she opened her mouth, and accepted him. All the way to the root. 
 
- The groan she extracted from him made her skin tingle. She tugged on his soft cock with her lips, moving slowly, pulling at the end, using her tongue to tease the head. She might be a virgin, but a popular girl remains a virgin throughout high-school by being able to deliver pleasures of a different sort. Report_Story #3 
+ The groan she extracted from him made her skin tingle. She tugged on his soft cock with her lips, moving slowly, pulling at the end, using her tongue to tease the head. She might be a virgin, but a popular girl remains a virgin throughout high-school by being able to deliver pleasures of a different sort.  
 
  
 

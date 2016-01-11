@@ -108,7 +108,7 @@
 
  "Aww," he pretended to disclaim with modesty, "not really, I mean, it's obvious -- very sexy, gorgeous young woman, in the prime of your youth, stuck at home missing her man. I mean it's only natural. You have needs too." 
 
- Mmm, my needs! I moaned at the mention of them, and he saw that, and we both grinned. "Yeah, I sure do!" I winked at him, and now it was obvious. "But, what would you know about a married girl's needs? Are you married?" , like "Nope." He seemed to answer proudly. "Was once, not for a while though." Report_Story #2 
+ Mmm, my needs! I moaned at the mention of them, and he saw that, and we both grinned. "Yeah, I sure do!" I winked at him, and now it was obvious. "But, what would you know about a married girl's needs? Are you married?" , like "Nope." He seemed to answer proudly. "Was once, not for a while though."  
 
  
 
@@ -220,7 +220,7 @@
 
  He pumped his finger in and out, staring at the sight; I looked up at his face, admiring its strong curves and angles, and loved how he was gazing at my naked pussy as his finger fucked it. "You feel so good in me baby!" cried this helpless little slut. 
 
- I saw Mike's mouth watering, and I knew what he wanted. I know men, I know that look. Since I was basically falling off of his lap now anyway, I forced myself to get some energy, and I pushed myself away from him, crawling on my back up the middle of the hotel room bed. His fingers pulled out of my pussy, and he turned to look at me. I kept my eyes on his face, while I put my small ankles together and tugged my thong over my hips and ass. Shit, it was dug into my ass and was so wet, it didn't want to move. But I got it down my thighs, over my knees and off my little small feet, with my toenails painted bright cumfuckme red (also courtesy of Dave earlier). Tossing the thong away, finally nude, I pulled my knees open and showed Mike my naked femininity. "Come on, Mike, you know what you want, I want it too." Report_Story #3 
+ I saw Mike's mouth watering, and I knew what he wanted. I know men, I know that look. Since I was basically falling off of his lap now anyway, I forced myself to get some energy, and I pushed myself away from him, crawling on my back up the middle of the hotel room bed. His fingers pulled out of my pussy, and he turned to look at me. I kept my eyes on his face, while I put my small ankles together and tugged my thong over my hips and ass. Shit, it was dug into my ass and was so wet, it didn't want to move. But I got it down my thighs, over my knees and off my little small feet, with my toenails painted bright cumfuckme red (also courtesy of Dave earlier). Tossing the thong away, finally nude, I pulled my knees open and showed Mike my naked femininity. "Come on, Mike, you know what you want, I want it too."  
 
  
 
@@ -340,7 +340,7 @@
 
  Mike looked at me like I'd married a martian. "Why not?" 
 
- Hmm, now why would a husband not let a wife suck him? "Um," I stalled, thinking of a reason, "he says it's dirty." Report_Story #4 
+ Hmm, now why would a husband not let a wife suck him? "Um," I stalled, thinking of a reason, "he says it's dirty."  
 
  
 
@@ -468,7 +468,7 @@
 
  "Do it," he encouraged hoarsely, not taking his eyes off of my clit and cunt. 
 
- I leaned my shoulders into the wet wall, grabbing the towel rack hard, and began pumping my fingers on my clit. As I became more excited, my fingers pushed down farther each time, running from clit to pussylips. I wasn't entering myself, I was just enjoying the feeling of my clitty and hairless, bald lips. I love shaved pussies, I love touching them and eating them. It was so much better having this sexy man stare at my cunt as I worked it over. I was getting more horny, hotter, my knees were weaker and my pussy ached for attention. I shoved my pelvis forward more, leaning back almost hanging on the towel rack now, my other hand feverishly flying on my cunt. It was so fucking wet, aided by some water from the shower splattering on it. Report_Story #5 
+ I leaned my shoulders into the wet wall, grabbing the towel rack hard, and began pumping my fingers on my clit. As I became more excited, my fingers pushed down farther each time, running from clit to pussylips. I wasn't entering myself, I was just enjoying the feeling of my clitty and hairless, bald lips. I love shaved pussies, I love touching them and eating them. It was so much better having this sexy man stare at my cunt as I worked it over. I was getting more horny, hotter, my knees were weaker and my pussy ached for attention. I shoved my pelvis forward more, leaning back almost hanging on the towel rack now, my other hand feverishly flying on my cunt. It was so fucking wet, aided by some water from the shower splattering on it.  
 
  
 

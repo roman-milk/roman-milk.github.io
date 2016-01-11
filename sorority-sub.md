@@ -280,7 +280,7 @@
 
  She sucked her finger with my juice on it and smiled, "Hmmmm, delicious." She finished sucking her finger, winked and said, "See you at seven." 
 
- She left me alone in the washroom stunned. I quickly allowed my skirt to fall back down hiding my wet and excited pussy. Undeniably horny and desperately needing to get off, I went to a stall and began pleasuring myself. As I rubbed my swollen clit, I Beth referring to me as her pet returned into my head. Although I had fantasized many times about being with a girl, after one endearing name and one forbidden touch, I became obsessed. Imagining being with Beth was all it took for me to reach my much needed orgasm. I bit my lip as my orgasm spread through me as someone else entered the washroom, oblivious to my naughty deed. Report_Story #2 
+ She left me alone in the washroom stunned. I quickly allowed my skirt to fall back down hiding my wet and excited pussy. Undeniably horny and desperately needing to get off, I went to a stall and began pleasuring myself. As I rubbed my swollen clit, I Beth referring to me as her pet returned into my head. Although I had fantasized many times about being with a girl, after one endearing name and one forbidden touch, I became obsessed. Imagining being with Beth was all it took for me to reach my much needed orgasm. I bit my lip as my orgasm spread through me as someone else entered the washroom, oblivious to my naughty deed.  
 
  
 
@@ -550,7 +550,7 @@
 
  THE END FOR NOW 
 
- NEXT: Task 2: Measuring Up!!! Report_Story #1 
+ NEXT: Task 2: Measuring Up!!!  
 
  
 
@@ -794,7 +794,7 @@
 
  Back in my room half an hour later, in the tub, I replayed the humiliating night's events. I had tasted pussy and loved it and even though I came just over half an hour ago, I allowed my hand to go to my vagina and bring myself to a second orgasm. Like the night before, the image in my head was Jamie. Would she taste as good as Kim did? I closed my eyes, allowed myself to fantasize about submitting to Jamie and becoming her pet. 
 
- Up next: Task 4 Hook Up Day Report_Story #1 
+ Up next: Task 4 Hook Up Day  
 
  
 
@@ -1088,7 +1088,7 @@
 
  "Your place?" Jamie questioned with a laugh. 
 
- I realized the absurdity of my last words but remained silent as Beth said, "Pledge Amber." Report_Story #2 
+ I realized the absurdity of my last words but remained silent as Beth said, "Pledge Amber."  
 
  
 
@@ -1176,7 +1176,7 @@
 
  Once I had come, I lay there in a mixture of pain from the burn on my ass and pleasure pulses from my powerful orgasm. I was ashamed at how two days of humiliation had somehow got me off greater than I had ever experienced before and yet I was already looking forward to tomorrow's assumedly humiliating task. 
 
- Up next: Task 3 Animal Kingdom Report_Story #1 
+ Up next: Task 3 Animal Kingdom  
 
  
 
@@ -1470,7 +1470,7 @@
 
  I looked at the dildos with two ends and the thought of Jamie and me using it together popped in my head. 'Why is it always Jamie?' I pondered to myself, considering how poorly she continually treated me. I looked at the strap-on cock and again Jamie using it on me from behind while I was on all fours popped into my head. I shook my head, confused by the sudden thoughts of Jamie. After looking through a few toys, I ended up buying myself a black, seven inch vibrator with an attachment that supposedly stimulated the clit while pleasuring your insides as well. 
 
- I considered buying more toys, but stuck with the one, although I also bought a few more thongs, I had really enjoyed wearing the pair today, for the first time ever. I also bought a few more pairs of thigh highs in a variety of colors to fit most of the outfits I currently had. Report_Story #2 
+ I considered buying more toys, but stuck with the one, although I also bought a few more thongs, I had really enjoyed wearing the pair today, for the first time ever. I also bought a few more pairs of thigh highs in a variety of colors to fit most of the outfits I currently had.  
 
  
 
@@ -1694,7 +1694,7 @@
 
  "Um, no," I said, watching her intently. 
 
- "You are my pet," Jamie revealed, putting the collar on my neck. Report_Story #3 
+ "You are my pet," Jamie revealed, putting the collar on my neck.  
 
  
 

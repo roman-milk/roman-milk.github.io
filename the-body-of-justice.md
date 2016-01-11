@@ -206,7 +206,7 @@
 
  "And you are?" She said coyly. 
 
- "Uh, James." I stammered. Report_Story #2 
+ "Uh, James." I stammered.  
 
  
 
@@ -360,7 +360,7 @@
 
  I've been in jail for seven months. Apparently, the courts don't like it when some "crazy woman" tries to attack a hero cop out of "jealousy". They threw the book at me. That, on top of the fact that they found drugs at my home, which Veronica no doubt planted, added up to me getting an eight month sentence in jail. Just being stuck here drove me nuts. No word from my now ex-husband. No doubt he shacked up with that slut. 
 
- Upon my release, no one wanted to talk to me. All my friends wanted nothing to do with me. I was kicked out of school. I tried to go to my house, but it was empty, with a for-sale sign in front. I had no idea where my stuff was. I had nothing. I had my driver's license, at least, but little else. I checked my bank accounts, but they were pretty much empty. I was able to get some money out and check into a cheap hotel room. I was there for two days when I received a large package from FedEx. I opened, curious to find out what was inside. Report_Story #3 
+ Upon my release, no one wanted to talk to me. All my friends wanted nothing to do with me. I was kicked out of school. I tried to go to my house, but it was empty, with a for-sale sign in front. I had no idea where my stuff was. I had nothing. I had my driver's license, at least, but little else. I checked my bank accounts, but they were pretty much empty. I was able to get some money out and check into a cheap hotel room. I was there for two days when I received a large package from FedEx. I opened, curious to find out what was inside.  
 
  
 

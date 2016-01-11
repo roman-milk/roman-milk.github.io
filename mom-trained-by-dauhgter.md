@@ -236,7 +236,7 @@
 
  MsAnn: Yes. And like a damn fool I fell for it 
 
- Evesub: She seduced u? Report_Story #2 
+ Evesub: She seduced u?  
 
  
 
@@ -664,7 +664,7 @@
 
  "Yes, Kaylee. I don't want our relationship built anymore on the traditional mother-daughter hierarchy. If anything, sometimes you should be in charge." 
 
- "What do you mean?" she asked, her head seeming to be spinning in circles. Report_Story #3 
+ "What do you mean?" she asked, her head seeming to be spinning in circles.  
 
  
 
@@ -1066,7 +1066,7 @@
 
  "Nooooooo," I argued, by body still in utter bliss. 
 
- "Well, you must have...how else can you explain coming before you were told?" Report_Story #4 
+ "Well, you must have...how else can you explain coming before you were told?"  
 
  
 
@@ -1122,7 +1122,7 @@
 
  I accepted that the old me, the prim-and-proper repressed me, no longer existed and that my life completely revolved around the wishes and desires of my 18- year-old daughter...my 18-year-old Mistress. 
 
- The End...for now? Report_Story #1 
+ The End...for now?  
 
  
 
@@ -1448,7 +1448,7 @@
 
  Erica sat on the couch, spread her legs, and patted her pussy. This was my last chance to stand up and keep what little dignity I had left, but the magnetic pull was too powerful, my desire to obey too strong and my need to please all I could think of. Like a puppy, I quickly obeyed and was between the teenager's tanned legs. I hesitated briefly before Erica ordered, "Start licking, puppy." 
 
- I leaned forward and began lapping my daughter's friend's cunt in front of her. Erica's pussy was hairier than I thought when I began licking, but her pubes captured her heavenly scent. Although I was nervous and tentative at first, I soon got into a rhythm and began pleasing her. I explored her cunt like Christopher Columbus explored America, with wonder and amazement. Each new sound excited me, each slight gush of wetness created a hunger for more and her hands in my hair fulfilled by need of utter submission regardless of the cost. As I explored every inch of her cunt, her moans began softly, but as I continued to explore, to use my tongue to spread open her canyon of pleasure, eventually digging deeply inside her pleasure canal with my tongue she got wetter and soon her moans got louder. Report_Story #2 
+ I leaned forward and began lapping my daughter's friend's cunt in front of her. Erica's pussy was hairier than I thought when I began licking, but her pubes captured her heavenly scent. Although I was nervous and tentative at first, I soon got into a rhythm and began pleasing her. I explored her cunt like Christopher Columbus explored America, with wonder and amazement. Each new sound excited me, each slight gush of wetness created a hunger for more and her hands in my hair fulfilled by need of utter submission regardless of the cost. As I explored every inch of her cunt, her moans began softly, but as I continued to explore, to use my tongue to spread open her canyon of pleasure, eventually digging deeply inside her pleasure canal with my tongue she got wetter and soon her moans got louder.  
 
  
 

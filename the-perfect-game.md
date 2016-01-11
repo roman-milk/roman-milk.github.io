@@ -202,7 +202,7 @@
 
  The play started out well, with a couple of guessed questions, and Denise acting out "revolving door". During her turn we 'noticed' in the directions there was a two-minute limit on Charades, and a one-minute limit on Impersonations and Sketch. We had a one-minute hourglass-type timer I'd 'forgotten' about. Everyone was soon getting in the swing of things and getting louder and more boisterous. 
 
- Four of the Specials were picked up pretty quickly. Two were additional Chicken-Outs, that Beth and Dave picked up, one was a Proxy that Cheryl pulled that would allow her to have someone else take her place as a "penalty partner", and finally I picked up the "Time Warp" which would allow me to change the duration of a Penalty. Report_Story #2 
+ Four of the Specials were picked up pretty quickly. Two were additional Chicken-Outs, that Beth and Dave picked up, one was a Proxy that Cheryl pulled that would allow her to have someone else take her place as a "penalty partner", and finally I picked up the "Time Warp" which would allow me to change the duration of a Penalty.  
 
  
 
@@ -364,7 +364,7 @@
 
  Beth sputtered, "What kind of challenge is that? He gets ALL the luck!" but she couldn't help but giggle herself as she stood up, a little shakily, with the others. 
 
- I was soon standing waiting, blindfolded. There was far too much giggling at my expense going on and a lot of rustling and moving around. I had no idea what was taking so long. When they finally thought they were ready, I was told to count to 20 and start with the person directly ahead of me, then work my way to my right. I was also told to wait until the end to make my predictions. Report_Story #3 
+ I was soon standing waiting, blindfolded. There was far too much giggling at my expense going on and a lot of rustling and moving around. I had no idea what was taking so long. When they finally thought they were ready, I was told to count to 20 and start with the person directly ahead of me, then work my way to my right. I was also told to wait until the end to make my predictions.  
 
  
 
@@ -576,7 +576,7 @@
 
  "Of course, lots, I mean, well..." He was getting in deep. 
 
- Denise squeezed past Cheryl and sat on his lap. "It's Ok baby. It's only a dream, and I think everyone here knows just how hetero you are." She gave a wiggle in his lap, rubbing her ass against him, before giving him a kiss. Report_Story #4 
+ Denise squeezed past Cheryl and sat on his lap. "It's Ok baby. It's only a dream, and I think everyone here knows just how hetero you are." She gave a wiggle in his lap, rubbing her ass against him, before giving him a kiss.  
 
  
 
@@ -826,7 +826,7 @@
 
  "Go right ahead, lover." She answered softly, raising her arms high. 
 
- I slipped the shirt off over her head, and then settled back down onto the edge of the chair. She stood in front of me, her diamond-hard nipples begging me for attention. I leaned into them, and took the nearest into my mouth. My tongue twirled around the tiny intruder, before my lips tugged at it gently. Report_Story #5 
+ I slipped the shirt off over her head, and then settled back down onto the edge of the chair. She stood in front of me, her diamond-hard nipples begging me for attention. I leaned into them, and took the nearest into my mouth. My tongue twirled around the tiny intruder, before my lips tugged at it gently.  
 
  
 
@@ -1078,7 +1078,7 @@
 
  "Oh god, he's killing me. I swear he's screwing me with a baseball bat." She whispered to Cheryl. 
 
- "But it's such a sweet death." Cheryl answered, reaching out and running her fingers through Beth's short hair. Report_Story #6 
+ "But it's such a sweet death." Cheryl answered, reaching out and running her fingers through Beth's short hair.  
 
  
 
@@ -1234,7 +1234,7 @@
 
  There were several other names that were cruder and much more explicit, but I didn't think they would help further the idea of an innocuous little game that could slowly twist your moral fiber. 
 
- We went along with Ménage, and discussed some game improvements, and I was overjoyed to hear Denise and Cheryl discuss adding a friend from work and his wife to the game play. Beth wanted to invite her roommate. We decided to see if we could setup a small dinner party at Dave and Denise's and invite Frank and his wife Delara. We vetoed Beth's roommate, but invited Beth along as a single if she wanted to come. Report_Story #7 
+ We went along with Ménage, and discussed some game improvements, and I was overjoyed to hear Denise and Cheryl discuss adding a friend from work and his wife to the game play. Beth wanted to invite her roommate. We decided to see if we could setup a small dinner party at Dave and Denise's and invite Frank and his wife Delara. We vetoed Beth's roommate, but invited Beth along as a single if she wanted to come.  
 
  
 
@@ -1242,7 +1242,7 @@
 
  -------------- 
 
- Please Vote if you enjoyed this story! Report_Story #1 
+ Please Vote if you enjoyed this story!  
 
  
 
@@ -1452,7 +1452,7 @@
 
  We were having a blast now, much more so than earlier, with the tougher questions and the sideplay of Frank and Delara. Dave was talking about getting into Delara's pillowcase, and we were just generally having fun. 
 
- We had a 'whisper' card and a lying down back massage, when we got our first chug-or-strip card. Report_Story #2 
+ We had a 'whisper' card and a lying down back massage, when we got our first chug-or-strip card.  
 
  
 
@@ -1730,7 +1730,7 @@
 
  I rocked her back and forth on my cock, keeping most of it buried in her bowels, just a couple of inches working in and out. "And now to prepare the way. Denise, would you mind eating Cheryl out, while Dave takes you from behind?" I asked. "Just temporarily, while Cheryl gets used to having my fat cock up her ass." I smiled. 
 
- Denise blushed. "I've never really done anything like this." She said softly, leaning forward from the waist and placing her forearms on Cheryl's thighs. She tentatively kissed around Cheryl's mound, while I worked my cock in and out of Cheryl's little brown hole, just inches below Denise's efforts. Report_Story #3 
+ Denise blushed. "I've never really done anything like this." She said softly, leaning forward from the waist and placing her forearms on Cheryl's thighs. She tentatively kissed around Cheryl's mound, while I worked my cock in and out of Cheryl's little brown hole, just inches below Denise's efforts.  
 
  
 
@@ -1864,7 +1864,7 @@
 
  Thanks for the votes for the Perfect Game. I don't know why we authors have this thing about those votes and the emails, but I'd be lying if I said I didn't care. It's nice to know what y'all think - most of the time. ;-) 
 
- So once again, I ask you for your vote if you enjoyed the story. Report_Story #1 
+ So once again, I ask you for your vote if you enjoyed the story.  
 
  
 
@@ -2120,7 +2120,7 @@
 
  "Show us how you flirt by demonstrating on (any-spin)". She spun and hit Beth. She didn't hesitate, and got up and stood next to her. 
 
- "Gee, Beth, you look nice tonight." She reached out and let her fingers caress Beth's arm a bit before tugging on her shirt, "Is this new? I really like it." She was speaking softly, head canted a bit to one side. She stood very close, "Are you enjoying the game? I know I am." I saw her lick her lips slightly, and then she picked up Beth's drink, "What's this?" She tasted it, her teasing tongue darting out, "Mmm, that's nice but you better be careful. You don't want to get too drunk, someone might try to take advantage of you." She brushed her arm down Beth's arm, and now Beth was blushing. With the blush, I guess Denise figured she'd won. She turned, gave a small bow, and retook her seat. Report_Story #2 
+ "Gee, Beth, you look nice tonight." She reached out and let her fingers caress Beth's arm a bit before tugging on her shirt, "Is this new? I really like it." She was speaking softly, head canted a bit to one side. She stood very close, "Are you enjoying the game? I know I am." I saw her lick her lips slightly, and then she picked up Beth's drink, "What's this?" She tasted it, her teasing tongue darting out, "Mmm, that's nice but you better be careful. You don't want to get too drunk, someone might try to take advantage of you." She brushed her arm down Beth's arm, and now Beth was blushing. With the blush, I guess Denise figured she'd won. She turned, gave a small bow, and retook her seat.  
 
  
 
@@ -2320,7 +2320,7 @@
 
  I don't know why I even made the effort, I gave the trivia question a throw- away answer. 
 
- My dare was a simple one. "Kiss (opposite-spin) deeply, your hands may wander. 2 minutes." Report_Story #3 
+ My dare was a simple one. "Kiss (opposite-spin) deeply, your hands may wander. 2 minutes."  
 
  
 
@@ -2564,7 +2564,7 @@
 
  "This is so hot," she moaned, "everyone watching while you fuck my tits." Then she leaned back, pulling on her nipples, and closing her eyes, almost panting. 
 
- Denise had enough of the voyeurism, and wanted back in the game. She climbed on the bed, and straddled Anne's head, lowering her smooth pussy down onto the Freshman's open mouth. I watched in delight as her hips ground down onto Anne's face. Her back was to me, and only inches away. Anne was still doing the work of holding her tits together for me, so I was able to lean forward, wrapping my arms around Denise and squeezing her breasts while I fucked the mammoth pair below me. Report_Story #4 
+ Denise had enough of the voyeurism, and wanted back in the game. She climbed on the bed, and straddled Anne's head, lowering her smooth pussy down onto the Freshman's open mouth. I watched in delight as her hips ground down onto Anne's face. Her back was to me, and only inches away. Anne was still doing the work of holding her tits together for me, so I was able to lean forward, wrapping my arms around Denise and squeezing her breasts while I fucked the mammoth pair below me.  
 
  
 
@@ -2796,7 +2796,7 @@
 
  "Hurt?" 
 
- "Not at all, it just slid in real easy. Oooh, another one!" she gasped, giving a little wiggle. Report_Story #5 
+ "Not at all, it just slid in real easy. Oooh, another one!" she gasped, giving a little wiggle.  
 
  
 
@@ -3006,7 +3006,7 @@
 
  "Now that's just mean!" I interjected. 
 
- Cheryl laughed. She reached out and caressed Anne's cheek. "Don't worry sweetness. We'll play again some time. And I'll see if we can't even out the odds. I think you'd be beautiful skewered." Report_Story #6 
+ Cheryl laughed. She reached out and caressed Anne's cheek. "Don't worry sweetness. We'll play again some time. And I'll see if we can't even out the odds. I think you'd be beautiful skewered."  
 
  
 

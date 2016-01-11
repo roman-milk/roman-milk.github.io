@@ -178,7 +178,7 @@
 
  I cursed inwardly as the missed opportunity wafted away like smoke in the breeze. I'd had all that time to make a move; anyone else would have swooped when we were naked in the water, but not me. 
 
- All too soon Rosalinde led me to the Church Street car park. She paid the fee at the machine and we found her car - a sporty red coupe. "A hairdresser's car" Paul the pot-man would've called it. Report_Story #2 
+ All too soon Rosalinde led me to the Church Street car park. She paid the fee at the machine and we found her car - a sporty red coupe. "A hairdresser's car" Paul the pot-man would've called it.  
 
  
 
@@ -370,7 +370,7 @@
 
  Then it happened. I watched Rosalinde detach herself from the door jamb she'd been leaning against. Without turning I saw her reflection walk slowly towards me. I knew something was going to happen. Was it the look in her slightly slanted eyes? I thought I saw a purpose in her expression. She moved very slowly. The roll of her hips; her body; Rosalinde's nudity, and the tilt of her head.... I stood completely still, hands hot against the cold porcelain sink. I didn't want to break the spell. 
 
- She reached me; I could feel the heat of her against my back. I sucked in a great gulp of air when I felt her flesh press against me. Rosalinde wrapped her arms around my waist and I felt her hot breath between my shoulder blades. With her face just above my shoulder, Rosalinde stared into my eyes through the mirror, and, with a sly smirk, slowly slid her cool hand down my stomach - a lioness stalking its prey, hungry fingers relentlessly moving in, her eyes never left mine, though my own shifted back and forth from her hand to her smile... Report_Story #3 
+ She reached me; I could feel the heat of her against my back. I sucked in a great gulp of air when I felt her flesh press against me. Rosalinde wrapped her arms around my waist and I felt her hot breath between my shoulder blades. With her face just above my shoulder, Rosalinde stared into my eyes through the mirror, and, with a sly smirk, slowly slid her cool hand down my stomach - a lioness stalking its prey, hungry fingers relentlessly moving in, her eyes never left mine, though my own shifted back and forth from her hand to her smile...  
 
  
 

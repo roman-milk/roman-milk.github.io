@@ -162,7 +162,7 @@
 
  Things were looking better for Bobby and me right up until the night I ran into Bev Allison. Bev had been a schoolmate and was one of the few who had tried to warn me away from Bobby way back when. Naturally I assumed she was another Billy Jean who wanted to get me away from Bobby so she could get her hooks in him so I ignored her. 
 
- I had worked some overtime and didn't feel like going home and fixing myself dinner. Bobby was on a five day run to somewhere and not due back for another day so I stopped at Patty Ann's. The place was full and I didn't see an empty table or booth and I was about to turn and leave when I caught sight of Bev waving at me. She was in a booth by herself and I walked over and she invited me to join her. We made some small talk for a while and then she said: Report_Story #2 
+ I had worked some overtime and didn't feel like going home and fixing myself dinner. Bobby was on a five day run to somewhere and not due back for another day so I stopped at Patty Ann's. The place was full and I didn't see an empty table or booth and I was about to turn and leave when I caught sight of Bev waving at me. She was in a booth by herself and I walked over and she invited me to join her. We made some small talk for a while and then she said:  
 
  
 
@@ -382,7 +382,7 @@
 
  x-x-x-x-x-x-x 
 
- The next three nights -- Tuesday, Wednesday and Thursday -- found me at Charlie's condo and on Charlie's bed. I had always heard that size doesn't matter and I quickly found out that was just so much bullshit. Bigger was definitely better. I had expected that my fling with Charlie would just be a ho-hum affair with me just putting up with the fucking while waiting for Bobby to find out and go ballistic, but I found that I was enjoying the hell out of being stuffed full. Yes indeed, bigger was better, but size alone wouldn't be enough to sustain a relationship at least not for me. But damn, it sure would be nice if Barry had a cock the size of Charlie's. Report_Story #3 
+ The next three nights -- Tuesday, Wednesday and Thursday -- found me at Charlie's condo and on Charlie's bed. I had always heard that size doesn't matter and I quickly found out that was just so much bullshit. Bigger was definitely better. I had expected that my fling with Charlie would just be a ho-hum affair with me just putting up with the fucking while waiting for Bobby to find out and go ballistic, but I found that I was enjoying the hell out of being stuffed full. Yes indeed, bigger was better, but size alone wouldn't be enough to sustain a relationship at least not for me. But damn, it sure would be nice if Barry had a cock the size of Charlie's.  
 
  
 

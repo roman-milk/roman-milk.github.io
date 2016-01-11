@@ -170,7 +170,7 @@
 
  "She might have broken my new phone." Daren huffed. 
 
- Gloria cleared hair away from her face tucking it behind an ear wanting to a get a better look at the victim. Again Nadine buried her face in long hair, looking down at her feet in disgrace. Her hands were behind her back holding down the hem of the little dress wanting to rub her smarting backside, only just resisting. Report_Story #2 
+ Gloria cleared hair away from her face tucking it behind an ear wanting to a get a better look at the victim. Again Nadine buried her face in long hair, looking down at her feet in disgrace. Her hands were behind her back holding down the hem of the little dress wanting to rub her smarting backside, only just resisting.  
 
  
 
@@ -192,7 +192,7 @@
 
  Nadine had been so completely overwhelmed she was unaware of where she was until feeling a pair of strong hands massaging her bottom. The gentle motion was soothing the sting and more. Giving in to the sensuous pleasure was wrong but she still couldn't think straight and though she wanted it to stop she just couldn't summon the strength to move. All thought evaporated as she submitted to the deep feeling coursing through her body until her whole being was reduced to one point, one touch. A sensation exploded outward from that place, rattling every nerve. The orgasm was all consuming leaving her a heap of sensitive flesh rolled into a tight ball on the sofa where she hugged her legs to her body. 
 
- Returning from washing his hands he saw Nadine was curled up on the sofa presumably asleep. Gloria walked in picked up the tube, screwed on the top and tossed it under the sofa. "Lets go. I'm not waiting for anyone to get back. We'll face the trouble tomorrow." Report_Story #1 
+ Returning from washing his hands he saw Nadine was curled up on the sofa presumably asleep. Gloria walked in picked up the tube, screwed on the top and tossed it under the sofa. "Lets go. I'm not waiting for anyone to get back. We'll face the trouble tomorrow."  
 
  
 
@@ -326,7 +326,7 @@
 
  "Here's my pride and joy. My other toy." He laughed loudly. 
 
- Trying not to show too much interest she wondered if she could distract him long enough to find the photos and video of that fateful night. Even if she had to break in she would find and destroy the evidence of her downfall. Without proof who would believe him? Report_Story #1 
+ Trying not to show too much interest she wondered if she could distract him long enough to find the photos and video of that fateful night. Even if she had to break in she would find and destroy the evidence of her downfall. Without proof who would believe him?  
 
  
 
@@ -480,7 +480,7 @@
 
  The glossy beam of his smile seemed obscene to both Gloria and Nadine. She was pleased to be guided away from him until the moment she saw another young man, this one in bed. He was tall and thin and was waking up. It was afternoon and the bed looked neat, un-slept-in yet he had been in it several hours, from early this morning after a night surfing the web, contacting friends and conducting business. 
 
- Pulling up the bottom of the sheet Gloria pushed her acolyte into the bed. She crawled under the sheet too expecting to claim some credit and to ensure the woman did the job. It was also fascinating to have such power over an adult. Gloria supposed she too was an adult at eighteen but this woman was a neighbour, a fully paid up member of the community. To have her blow these two geeks was, well, mind blowing. Awesome. Report_Story #2 
+ Pulling up the bottom of the sheet Gloria pushed her acolyte into the bed. She crawled under the sheet too expecting to claim some credit and to ensure the woman did the job. It was also fascinating to have such power over an adult. Gloria supposed she too was an adult at eighteen but this woman was a neighbour, a fully paid up member of the community. To have her blow these two geeks was, well, mind blowing. Awesome.  
 
  
 
@@ -498,7 +498,7 @@
 
  Once outside Gloria snatched the money and smiled sweetly. "You don't want to keep the evidence of your whoring do you. I had better get you back to lover boy. You seem a little unsteady on those heels are your legs feeling weak?" 
 
- Nadine walked slowly along the rough sidewalk thinking she had behaved like a whore, been paid like a whore and was dressed like one. She was a whore. It wasn't just Daren now. She had turned into a slut ready to pleasure anyone. As they reached the door to Daren's hideaway she wondered what could possibly be more degrading than this. Report_Story #1 
+ Nadine walked slowly along the rough sidewalk thinking she had behaved like a whore, been paid like a whore and was dressed like one. She was a whore. It wasn't just Daren now. She had turned into a slut ready to pleasure anyone. As they reached the door to Daren's hideaway she wondered what could possibly be more degrading than this.  
 
  
 
@@ -672,7 +672,7 @@
 
  She felt him pinching a nipple hard and it was rivalling the sensations buzzing her tongue. It was adding to and multiplying the vibrations filling her mind. Without thought she pressed her crotch onto his leg, gripping it hard. 
 
- A slight movement alerted her to something even more unexpected. She froze with his tongue and fingers continuing to sensitise her body. It vibrated like a tuning fork tingling to his touch. What was so unexpected was a slight movement at her crotch. It squirmed again so now she was sure. His fingers were at her crotch though not yet in her panties. Report_Story #2 
+ A slight movement alerted her to something even more unexpected. She froze with his tongue and fingers continuing to sensitise her body. It vibrated like a tuning fork tingling to his touch. What was so unexpected was a slight movement at her crotch. It squirmed again so now she was sure. His fingers were at her crotch though not yet in her panties.  
 
  
 
@@ -838,7 +838,7 @@
 
  He had organised a bye-up of shares under different names so it was still a close thing if a vote was called for and he declared his hand. She was determined not to sell out her father's legacy to this snake. 
 
- In a way he had already shown his hand. He had spanked her like a naughty little girl. She was still the majority shareholder but here over his lap she was helpless. He had only to recognise who she was and the scandal would crush the share holders' confidence in her. She would lose the company in a takeover, his takeover of her company. Report_Story #3 
+ In a way he had already shown his hand. He had spanked her like a naughty little girl. She was still the majority shareholder but here over his lap she was helpless. He had only to recognise who she was and the scandal would crush the share holders' confidence in her. She would lose the company in a takeover, his takeover of her company.  
 
  
 

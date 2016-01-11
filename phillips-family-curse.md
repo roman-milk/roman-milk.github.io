@@ -138,7 +138,7 @@
 
  "You do know we're going to a family reunion, right?" I asked as she sat across from me. She simply smiled, which again, I have to stress, was pretty weird coming from her. 
 
- "A young woman's always got to look good, dear brother." Dana replied. "So, how are you doing? What's going on?" I looked at her, my eyes expressing my confusion at her peppy tone. "What?" she asked. Report_Story #2 
+ "A young woman's always got to look good, dear brother." Dana replied. "So, how are you doing? What's going on?" I looked at her, my eyes expressing my confusion at her peppy tone. "What?" she asked.  
 
  
 
@@ -314,7 +314,7 @@
 
  "Oh no." I said, looking back. 
 
- The twins were Bethany and Chastity, the twin 18-year-old daughters of my mom's lone brother, Uncle Karl. And yeah, they were pretty weird. It was just a vibe they gave off. I mean, they were perfectly nice when you dealt with them, and it wasn't like they were off-puttingly ugly or anything like that. They were both quite pretty, more slim and petite than most of the women in the family. But, they were just... creepy. They had that weird twin vibe to them, where it seemed like they could read each others' thoughts, where they finished each others' sentences. Plus, they were inseparable. It was hard to get one of them alone. And whenever we were together in a group, they would be off by themselves, talking in quiet, as if sharing a secret that no one else could hear. They always seemed end up talking in unison. It was just... unsettling. Whenever I saw a movie or something that featured creepy twins, I always thought of them. Report_Story #3 
+ The twins were Bethany and Chastity, the twin 18-year-old daughters of my mom's lone brother, Uncle Karl. And yeah, they were pretty weird. It was just a vibe they gave off. I mean, they were perfectly nice when you dealt with them, and it wasn't like they were off-puttingly ugly or anything like that. They were both quite pretty, more slim and petite than most of the women in the family. But, they were just... creepy. They had that weird twin vibe to them, where it seemed like they could read each others' thoughts, where they finished each others' sentences. Plus, they were inseparable. It was hard to get one of them alone. And whenever we were together in a group, they would be off by themselves, talking in quiet, as if sharing a secret that no one else could hear. They always seemed end up talking in unison. It was just... unsettling. Whenever I saw a movie or something that featured creepy twins, I always thought of them.  
 
  
 
@@ -480,7 +480,7 @@
 
  Oh, God. I'm in trouble. 
 
- I needed to cool down. I needed to wash away this awkwardness immediately. I spied that the pool was relatively unoccupied, so I thought that might be answer. Changing into my trunks, I made my way over. Finding the pool occupied solely by some distant cousin and a couple of her kids in the shallow end, I felt like this was an area I could finally breathe easy. I grabbed a towel, stashed my stuff on a pool chair, and smoothly dove into the pool. I sunk close to the bottom and stayed there, letting the muffled static of the pool erase all the other noise from my mind. I hung down there for as long as I could before my lungs began to burn, so I swam up to the surface, filling my lungs with air. As I treaded water, I wiped the wetness from my eyes. Finally, my vision cleared, and I looked towards the edge of the pool. Report_Story #4 
+ I needed to cool down. I needed to wash away this awkwardness immediately. I spied that the pool was relatively unoccupied, so I thought that might be answer. Changing into my trunks, I made my way over. Finding the pool occupied solely by some distant cousin and a couple of her kids in the shallow end, I felt like this was an area I could finally breathe easy. I grabbed a towel, stashed my stuff on a pool chair, and smoothly dove into the pool. I sunk close to the bottom and stayed there, letting the muffled static of the pool erase all the other noise from my mind. I hung down there for as long as I could before my lungs began to burn, so I swam up to the surface, filling my lungs with air. As I treaded water, I wiped the wetness from my eyes. Finally, my vision cleared, and I looked towards the edge of the pool.  
 
  
 
@@ -710,7 +710,7 @@
 
  "I swear, I don't know if I can go an entire week without some fucking sex." Dana muttered. "I'm climbing the walls already." 
 
- "Ugh, Dana...I don't want to hear any of this." I said, grossed out. Dana didn't say anything, but I could practically feel her teasing smile as she clearly enjoyed making me squirm. I tried settling into place, hoping that sleep would rescue me from this awkwardness. Report_Story #5 
+ "Ugh, Dana...I don't want to hear any of this." I said, grossed out. Dana didn't say anything, but I could practically feel her teasing smile as she clearly enjoyed making me squirm. I tried settling into place, hoping that sleep would rescue me from this awkwardness.  
 
  
 
@@ -904,7 +904,7 @@
 
  On the shore, in the beach-chairs, sat Aunt Karen and Dana, chatting amicably. Dana was in a slim black bikini, her thin top barely containing her large breasts, the top slinging them together and holding them in place, barely. The bottoms were thin and stringy, like the ones I had seen the twins in the day before, a small triangle covering her nether-regions. But it left the rest of her firm body exposed. I was seeing a lot of my sister's bare skin. 
 
- Aunt Karen was in a flashy, hot-pink bikini, and it was just as skimpy as my sister's, if not smaller, probably inappropriately so for a woman her age. Her large, mature breasts were barely contained by her top, as it struggled to contain her large bust, the thin patches stretched around them. I guess I didn't know how in shape she was. Sure, her older age meant she wasn't as taut and lithe as her niece, but she still definitely had a body built for bikinis. Her creamy skin was exposed, her tiny bikini showing off the goods. Her firm legs, her fit belly, her small navel, her trim arms, she was showing it all off. And her bikini bottoms molded to her nether-regions, almost indecently low-cut, barely covering her. Report_Story #6 
+ Aunt Karen was in a flashy, hot-pink bikini, and it was just as skimpy as my sister's, if not smaller, probably inappropriately so for a woman her age. Her large, mature breasts were barely contained by her top, as it struggled to contain her large bust, the thin patches stretched around them. I guess I didn't know how in shape she was. Sure, her older age meant she wasn't as taut and lithe as her niece, but she still definitely had a body built for bikinis. Her creamy skin was exposed, her tiny bikini showing off the goods. Her firm legs, her fit belly, her small navel, her trim arms, she was showing it all off. And her bikini bottoms molded to her nether-regions, almost indecently low-cut, barely covering her.  
 
  
 
@@ -1104,7 +1104,7 @@
 
  "Young guys like you have the BEST cum! So thick, so yummy." 
 
- "Your girlfriend is thousands of miles away and you have a bursting dick. Let me help." Report_Story #7 
+ "Your girlfriend is thousands of miles away and you have a bursting dick. Let me help."  
 
  
 
@@ -1338,7 +1338,7 @@
 
  "Dana!" I called out angrily. "Drop it!" I said firmly, not wanting to hear her bullshit any longer. I finally began to walk away when she ran after me, grabbing my bicep firmly. 
 
- "Wait, wait, wait!" she called out, squeezing my arm between her fingers lovingly, forcing me to look back at her one last time. "I really think you should visit me sometime. You're out at college, and that's nice, but I can show you what things are like in the real world. You can stay at my place for a while. I can even show you those moves on the stripper pole you seemed so interested in." she offered, as if that sweetened the deal. Report_Story #8 
+ "Wait, wait, wait!" she called out, squeezing my arm between her fingers lovingly, forcing me to look back at her one last time. "I really think you should visit me sometime. You're out at college, and that's nice, but I can show you what things are like in the real world. You can stay at my place for a while. I can even show you those moves on the stripper pole you seemed so interested in." she offered, as if that sweetened the deal.  
 
  
 
@@ -1354,7 +1354,7 @@
 
  ************************* 
 
- TheTalkMan's Note: Chapter 2, coming soon. Jesse get's to the bottom of what's going on...will these answers push him away, or draw him closer? One of these women must have what it takes to tame that teenage dick, but who? Report_Story #1 
+ TheTalkMan's Note: Chapter 2, coming soon. Jesse get's to the bottom of what's going on...will these answers push him away, or draw him closer? One of these women must have what it takes to tame that teenage dick, but who?  
 
  
 
@@ -1506,7 +1506,7 @@
 
  "This family..." Grandma began, pulling out a large, thick, old looking tome. "The Phillips name... it's been in this country for hundreds of years. It's even been traced back to the days of the puritans." She pulled the book from the shelf and trotted back towards the bed. "We were a religious bunch, back in the day, believe it or not. Not so much anymore, though." She sat down next to me, the heavy book on her lap. 
 
- "This book." she began, stabbing her finger against the hard cover. "This book is the history of this family, written by the people who lived it. Our ancestors wrote in here, documenting their lives and what happened around them. It's survived hundreds of years, ending up in my possession. This book, much like our family, is a survivor. The blood is strong. We have survived everything. War, and death, disease... those all faded away, but our family stays strong." Report_Story #2 
+ "This book." she began, stabbing her finger against the hard cover. "This book is the history of this family, written by the people who lived it. Our ancestors wrote in here, documenting their lives and what happened around them. It's survived hundreds of years, ending up in my possession. This book, much like our family, is a survivor. The blood is strong. We have survived everything. War, and death, disease... those all faded away, but our family stays strong."  
 
  
 
@@ -1638,7 +1638,7 @@
 
  Grandma had the biggest tits of them all, by a country mile. And it wasn't even that close. She had an absolutely mammoth set of jugs. Apparently, her choice of clothes must have really downplayed her body, because my grandma was a prime example of a mature woman who had curves where it counted, an old lady with the tits and ass of a swimsuit model. 
 
- Her rack was absolutely enormous, I can't stress this enough. They jutted out from her chest like overfilled water balloons. Her mesh bra was practically acting like a sling, holding back these massive udders, doing its best to contain the firm masses of succulent flesh, the straps digging into her shoulders noticeably. There seemed to be a little sag, but that was to be expected with boobs of that size, but all things considered, for a woman her age, those tits were as firm as ripe fruit. They were so full and round that they were pressed together naturally and aided by the tightness of the tight garment, she was sporting a mile of deep cleavage. The mesh of material stretched around those huge boobs, stretched to the max, causing her flesh to practically seep around the edges. And the mesh material of the bra allowed me a clear view of my own grandmother's hard, throbbing nipples, pressing against the mesh material, surrounded by her perfectly smooth, round areolas. After this whole weekend of madness, it was now my grandmother who I had seen the most exposed. Report_Story #3 
+ Her rack was absolutely enormous, I can't stress this enough. They jutted out from her chest like overfilled water balloons. Her mesh bra was practically acting like a sling, holding back these massive udders, doing its best to contain the firm masses of succulent flesh, the straps digging into her shoulders noticeably. There seemed to be a little sag, but that was to be expected with boobs of that size, but all things considered, for a woman her age, those tits were as firm as ripe fruit. They were so full and round that they were pressed together naturally and aided by the tightness of the tight garment, she was sporting a mile of deep cleavage. The mesh of material stretched around those huge boobs, stretched to the max, causing her flesh to practically seep around the edges. And the mesh material of the bra allowed me a clear view of my own grandmother's hard, throbbing nipples, pressing against the mesh material, surrounded by her perfectly smooth, round areolas. After this whole weekend of madness, it was now my grandmother who I had seen the most exposed.  
 
  
 
@@ -1740,7 +1740,7 @@
 
  "A gift?" I questioned, about to reach down to pull up my shorts before she stepped forward, moving her legs between mine, planting one foot on the discarded shorts, shaking her head to tell me that wouldn't be necessary. I felt my covered cock graze against her bare leg. She wrapped her arms around my neck, pushing her front against mine, her big, pillowy breasts, pressing against me again. An old woman pressing into a young man. A taut, hard-bodied nearly nude college student pressed against his lush, voluptuous, hot-bodied grandmother. 
 
- "After all this hard work, after we've fought against this precise outcome for so long, you're planted in our laps. You, with your hot body, and your fat, meaty cock, and all I can think is that maybe this whole thing isn't a curse... maybe it's a gift. Maybe this is meant to happen, and we're fighting an unstoppable force. And if that's the case, after all the work I've done to protect this family... shouldn't I be the one to sample the forbidden fruit?" she asked. I shivered at this uncomfortable closeness. I felt my crotch graze against hers as she shimmied slightly in front of me, and in this same motion of hers, I felt her hard nipples grazing against my chest. Report_Story #4 
+ "After all this hard work, after we've fought against this precise outcome for so long, you're planted in our laps. You, with your hot body, and your fat, meaty cock, and all I can think is that maybe this whole thing isn't a curse... maybe it's a gift. Maybe this is meant to happen, and we're fighting an unstoppable force. And if that's the case, after all the work I've done to protect this family... shouldn't I be the one to sample the forbidden fruit?" she asked. I shivered at this uncomfortable closeness. I felt my crotch graze against hers as she shimmied slightly in front of me, and in this same motion of hers, I felt her hard nipples grazing against my chest.  
 
  
 
@@ -1830,7 +1830,7 @@
 
  "Uhhhhh... shit!" I moaned out. Feeling her avid mouth sucking at my nuts was a new experience, and it felt good. Her tongue was gentle but firm, pleasuring my balls in just the right way. Soon, they were both coated with spit as she switched back and forth. 
 
- "God, I love big balls," she said to herself in a small moment her mouth wasn't occupied before savagely licking each of my balls. She then licked her way along the length of the shaft again before taking my cock back inside her mouth. She sucked the upper half of it again, working me right up to the edge, my pre-cum leaking into her mouth directly. Right as she brought me to the edge, she pulled back again, giving me a satisfied smile as she looked at my throbbing, pulsing shaft, covered in her spit, so close to exploding. "God, I could stroke this fucker all night, but we do have to move along," she said. She stood up in front of me, her entire body bared for me, her mammoth udders jiggling as she moved, coated with bands of her spit. "Normally, I would make you eat me out till I scream, till I can't fucking see straight, but I'm fucking soaked already, and I'm not waiting another moment for that fucking cock. We'll just have to save that for later," she explained, shoving me onto my back. I took a deep breath as I watched her join me on the bed, moving to straddle me. This was it, there was no turning back. I was about to cheat on my girlfriend. I was about to commit incest. I couldn't really do this, could I? I mean, I had already made out with my grandmother, and then I squeezed her huge, naked tits, and then I let her suck my cock... ooh, boy, I was in trouble. I moved to sit up, only to feel one of Grandma's slim hands dig into my chest, pushing me down. Report_Story #5 
+ "God, I love big balls," she said to herself in a small moment her mouth wasn't occupied before savagely licking each of my balls. She then licked her way along the length of the shaft again before taking my cock back inside her mouth. She sucked the upper half of it again, working me right up to the edge, my pre-cum leaking into her mouth directly. Right as she brought me to the edge, she pulled back again, giving me a satisfied smile as she looked at my throbbing, pulsing shaft, covered in her spit, so close to exploding. "God, I could stroke this fucker all night, but we do have to move along," she said. She stood up in front of me, her entire body bared for me, her mammoth udders jiggling as she moved, coated with bands of her spit. "Normally, I would make you eat me out till I scream, till I can't fucking see straight, but I'm fucking soaked already, and I'm not waiting another moment for that fucking cock. We'll just have to save that for later," she explained, shoving me onto my back. I took a deep breath as I watched her join me on the bed, moving to straddle me. This was it, there was no turning back. I was about to cheat on my girlfriend. I was about to commit incest. I couldn't really do this, could I? I mean, I had already made out with my grandmother, and then I squeezed her huge, naked tits, and then I let her suck my cock... ooh, boy, I was in trouble. I moved to sit up, only to feel one of Grandma's slim hands dig into my chest, pushing me down.  
 
  
 
@@ -1980,7 +1980,7 @@
 
  "You want to cum, don't you?" she asked, her lips parted as she sighed with pleasure. 
 
- "Ughhh... hnnnn... guhhhh... yes." I sighed, finding the word somehow. She drove up into me harder and squeezed my cock in her tight cunt even more firmly, rewarding me for my admission. She dug into my ass with her claw-like fingers. Report_Story #6 
+ "Ughhh... hnnnn... guhhhh... yes." I sighed, finding the word somehow. She drove up into me harder and squeezed my cock in her tight cunt even more firmly, rewarding me for my admission. She dug into my ass with her claw-like fingers.  
 
  
 
@@ -2112,7 +2112,7 @@
 
  "AAAAHHHHH! YES! FUCKING FUCK YES!" she groaned, her voice nearly hoarse as her asshole snapped around the tip of my dick. 
 
- "Ugghhhhh!" I groaned. It felt... it felt amazing. Fucking amazing! Feeling such tightness all around it. Looking down and seeing her round, juicy ass- cheeks split apart, my bulging column jammed in-between. The pleasure was divine. Report_Story #7 
+ "Ugghhhhh!" I groaned. It felt... it felt amazing. Fucking amazing! Feeling such tightness all around it. Looking down and seeing her round, juicy ass- cheeks split apart, my bulging column jammed in-between. The pleasure was divine.  
 
  
 
@@ -2318,7 +2318,7 @@
 
  "No... you're my Grandma. FUCK!" I replied, even the slightest movement of her was enough to make me spasm. 
 
- "Do you think I like knowing it's my grandson who gets me off?" she spat out. "That my grandson turned into a hunky, fit piece of ass? Do you think I like that you've made my juices drip down my thighs these last couple days? Do you think I like knowing that my grandson has a fat slab of dick that can fuck for hours on end?" she asked with a sneer, clenching herself around me again, making me groan. She released her tight grip and smiled at my plight. "Well, I do. I do love it, and you will too, eventually. You'll learn to love it. A few weeks in my bed, putting you through your paces... you won't be able to live without me!" Report_Story #8 
+ "Do you think I like knowing it's my grandson who gets me off?" she spat out. "That my grandson turned into a hunky, fit piece of ass? Do you think I like that you've made my juices drip down my thighs these last couple days? Do you think I like knowing that my grandson has a fat slab of dick that can fuck for hours on end?" she asked with a sneer, clenching herself around me again, making me groan. She released her tight grip and smiled at my plight. "Well, I do. I do love it, and you will too, eventually. You'll learn to love it. A few weeks in my bed, putting you through your paces... you won't be able to live without me!"  
 
  
 
@@ -2498,7 +2498,7 @@
 
  "Yeah, but his cock feels too fucking good inside me to really worry about that." Kendra replied. "Fuck, Jesse! This is amazing! God, why didn't we just start making out when we were younger like normal cousins! We'd have had so much sex by now!" 
 
- With that, she leaned over, scrubbing her huge breasts against my chest, bringing her lips to mine, feverishly making out with me. Out tongues mashed together as we swapped spit, this suddenly feeling less like an incestuous encounter and more like the vigorous end of a passionate courtship. Report_Story #9 
+ With that, she leaned over, scrubbing her huge breasts against my chest, bringing her lips to mine, feverishly making out with me. Out tongues mashed together as we swapped spit, this suddenly feeling less like an incestuous encounter and more like the vigorous end of a passionate courtship.  
 
  
 
@@ -2542,7 +2542,7 @@
 
  ************* 
 
- TheTalkMan's Note: Young Jesse's done the deed...he's entered the illicit world of incest. Will he be able to walk away, or will he come to find out that incest's not the type of thing you can just walk away from? Report_Story #1 
+ TheTalkMan's Note: Young Jesse's done the deed...he's entered the illicit world of incest. Will he be able to walk away, or will he come to find out that incest's not the type of thing you can just walk away from?  
 
  
 
@@ -2666,7 +2666,7 @@
 
  ************ 
 
- Minutes later, Kendra was bent against a thick tree trunk, her tight shorts around her knees, her top pulled up to her neck as I firmly drove my rock hard cock into her tight, greedy asshole. I looked down at her firm, bare ass, the snowy skin spurring me on to defile its purity, my thick shaft sliding smoothly in and out between the tight cheeks. Report_Story #2 
+ Minutes later, Kendra was bent against a thick tree trunk, her tight shorts around her knees, her top pulled up to her neck as I firmly drove my rock hard cock into her tight, greedy asshole. I looked down at her firm, bare ass, the snowy skin spurring me on to defile its purity, my thick shaft sliding smoothly in and out between the tight cheeks.  
 
  
 
@@ -2798,7 +2798,7 @@
 
  "You shouldn't be here!" I said, panicking. 
 
- "Well, I wouldn't have to come out here if you had just indulged me a little bit," she explained. "I mean, I send you picture after picture of my hot body. My tits..." she said, cupping her huge, fleshy jugs through her top. "My ass..." she said, spinning around, giving me a good look at her butt as she pointed it at me, a pink thong appearing from under her jeans. "Even my cunt. You get primo pictures of your own aunt's cunt, pictures anyone would be lucky to have, and you don't even have the decency to respond in kind. I don't have even one picture of that fat dick of yours! How unfair is that? I mean, we are lovers now, and as I clearly proved at the reunion, I'm the best you can ever hope to have. You and I are meant to be. I mean, you had your little flings with the others, but what me and you have is something more. I can tell. That fat teenage cock and my tight little cunt are made for each other. You know that cock belongs to me now. And I have to teach you a lesson for your disobedience. So, I figured..." she paused, setting down her purse. "I would just have to come out here, and take some pictures myself." Report_Story #3 
+ "Well, I wouldn't have to come out here if you had just indulged me a little bit," she explained. "I mean, I send you picture after picture of my hot body. My tits..." she said, cupping her huge, fleshy jugs through her top. "My ass..." she said, spinning around, giving me a good look at her butt as she pointed it at me, a pink thong appearing from under her jeans. "Even my cunt. You get primo pictures of your own aunt's cunt, pictures anyone would be lucky to have, and you don't even have the decency to respond in kind. I don't have even one picture of that fat dick of yours! How unfair is that? I mean, we are lovers now, and as I clearly proved at the reunion, I'm the best you can ever hope to have. You and I are meant to be. I mean, you had your little flings with the others, but what me and you have is something more. I can tell. That fat teenage cock and my tight little cunt are made for each other. You know that cock belongs to me now. And I have to teach you a lesson for your disobedience. So, I figured..." she paused, setting down her purse. "I would just have to come out here, and take some pictures myself."  
 
  
 
@@ -2972,7 +2972,7 @@
 
  Part of her offer sounded pretty tempting, the sex was damn good, and the knowledge that she was my mother added an extra sizzle to things. 
 
- Like I said, it was a tempting offer... but still, that huge pair of breasts haunted my dreams. Tits even bigger than Mom's. And it was always the same, leading me away from the light, leading me back to the darkness. And those huge, soft amazing tits of my dreams... they seemed so familiar. Report_Story #4 
+ Like I said, it was a tempting offer... but still, that huge pair of breasts haunted my dreams. Tits even bigger than Mom's. And it was always the same, leading me away from the light, leading me back to the darkness. And those huge, soft amazing tits of my dreams... they seemed so familiar.  
 
  
 
@@ -3142,7 +3142,7 @@
 
  "Now get up, mister. Your dad's gonna be home soon and I have to get the sheets in the wash before he notices anything's off." she urged. I slid off the bed and stepped naked into the bathroom closing the door behind me. 
 
- I looked at myself in the mirror. My body still looked good, but Mom's voracious appetite left its mark. I had scratches on my chest and I was covered by a sheen of sweat and sex-juices. My softening cock was soaked with it, and my thighs were red from our bodies slamming into each other. I looked at my face, and gone was the boyish glint in my eyes. I was now a man who had seen some serious stuff. I was a man with experience. Report_Story #5 
+ I looked at myself in the mirror. My body still looked good, but Mom's voracious appetite left its mark. I had scratches on my chest and I was covered by a sheen of sweat and sex-juices. My softening cock was soaked with it, and my thighs were red from our bodies slamming into each other. I looked at my face, and gone was the boyish glint in my eyes. I was now a man who had seen some serious stuff. I was a man with experience.  
 
  
 
@@ -3310,7 +3310,7 @@
 
  "Oh, I so will!" Corinne said, smiling brightly. "I mean... I had no idea. I've never been fucked like that. You guys both... wow! Helen, holy shit, after that night, let's just say, on behalf of this resort, we would be happy to offer you a heavily reduced rate as a thanks to your very welcome contributions." Grandma smiled arrogantly at this. Corinne pulled on her shoes, before searching the floor, finding her wedding ring in a small puddle of thick cum. She pulled it on and did her best to look somewhat presentable, checking herself in the mirror before exiting, having to get back to work, giving us one last parting smile. "Bye Jesse!" she said, waving at me girlishly, her initial dislike of me replaced with an obvious lust. As soon as she was gone, Grandma sat up and looked down at me, smiling. 
 
- "You see what I can give you." Grandma said, standing up, letting me take in her juicy body again. There were remnants of last night on her body too, streaks of oil and cum strewn across her rack. "As soon as I saw her a couple days ago, I intended for her to join us. They've been over charging me for years. I needed a young man like you to change her tune. You have no idea how useful it is for a woman of my status to have a young stud like you on-call, ready to go at a moment's notice. A cock like this..." she snarled, leaning over the bed, curling her fingers around my semi-hard erection again. "...is very valuable." She slid back in next to me, her bulbous rack ballooning out against my fit chest, her warm flesh sliding against mine. Report_Story #6 
+ "You see what I can give you." Grandma said, standing up, letting me take in her juicy body again. There were remnants of last night on her body too, streaks of oil and cum strewn across her rack. "As soon as I saw her a couple days ago, I intended for her to join us. They've been over charging me for years. I needed a young man like you to change her tune. You have no idea how useful it is for a woman of my status to have a young stud like you on-call, ready to go at a moment's notice. A cock like this..." she snarled, leaning over the bed, curling her fingers around my semi-hard erection again. "...is very valuable." She slid back in next to me, her bulbous rack ballooning out against my fit chest, her warm flesh sliding against mine.  
 
  
 
@@ -3360,7 +3360,7 @@
 
  ****************** 
 
- TheTalkMan's Note: So, the story is over, and Jesse's found his destiny at last. For new readers of my works, the story is basically over, the credits are rolling, and you can feel free to step out now without missing much. But wait...there's one more scene after the credits? Indeed there is! For those who have read some of my other stories and are interested in seeing how this story fits into the larger universe I've created, or for those who are simply willing to read a bit more and get a tease of some of the other stuff I've written, read on. The Epilogue is coming soon. It's short and sweet, but loaded with intrigue, and maybe, just maybe, the root of all this illicit, incestuous desire will finally be revealed... Report_Story #1 
+ TheTalkMan's Note: So, the story is over, and Jesse's found his destiny at last. For new readers of my works, the story is basically over, the credits are rolling, and you can feel free to step out now without missing much. But wait...there's one more scene after the credits? Indeed there is! For those who have read some of my other stories and are interested in seeing how this story fits into the larger universe I've created, or for those who are simply willing to read a bit more and get a tease of some of the other stuff I've written, read on. The Epilogue is coming soon. It's short and sweet, but loaded with intrigue, and maybe, just maybe, the root of all this illicit, incestuous desire will finally be revealed...  
 
  
 

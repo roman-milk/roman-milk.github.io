@@ -232,7 +232,7 @@
 
  I went through the same basic scenario with Mary Lou and found out that she was a real redhead and that she gave the best head that I had ever received and that was saying something because I'd always thought that Darlene was the best. 
 
- I could never understand why pussy as good as those three were didn't have guys all around them. I found out later that all three of them did have guys. Mary Lou had a fianc‚e and Debbie was actually married (I never did know how she got out of the house to spend nights with me). Bev had a steady boyfriend and I was told she dumped him as soon as she took up with me. It was way beyond my ability to comprehend. Report_Story #2 
+ I could never understand why pussy as good as those three were didn't have guys all around them. I found out later that all three of them did have guys. Mary Lou had a fianc‚e and Debbie was actually married (I never did know how she got out of the house to spend nights with me). Bev had a steady boyfriend and I was told she dumped him as soon as she took up with me. It was way beyond my ability to comprehend.  
 
  
 

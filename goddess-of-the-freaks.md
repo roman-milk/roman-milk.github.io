@@ -250,7 +250,7 @@
 
  I stood and let his cock drop from me. I pointed at the seat. "Sit." 
 
- Like an obedient dog he moved to obey without a second thought. But I stopped him briefly to move the chair closer to the edge of the stage, four feet or so back. I pointed at the seat again and Malcolm sat. We were just about within touching distance of the crowd packing the dance floor. My heart fluttered as I looked down at their upturned faces staring at my body, every muscle standing out with sweat-glazed definition, my breasts rising and falling with my heaving breath. Report_Story #2 
+ Like an obedient dog he moved to obey without a second thought. But I stopped him briefly to move the chair closer to the edge of the stage, four feet or so back. I pointed at the seat again and Malcolm sat. We were just about within touching distance of the crowd packing the dance floor. My heart fluttered as I looked down at their upturned faces staring at my body, every muscle standing out with sweat-glazed definition, my breasts rising and falling with my heaving breath.  
 
  
 

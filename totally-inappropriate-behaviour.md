@@ -154,11 +154,11 @@
 
  Finally we lay spent on the sofa. My cock had shrivelled and slipped out of Emma. She stood and walked unsteadily towards her bedroom with my spunk dripping from her body. 
 
- I watched my sister turn to me as she stood in the doorway to her room and she asked me whether or not I was coming to bed to fuck her some more………………………. Report_Story #2 
+ I watched my sister turn to me as she stood in the doorway to her room and she asked me whether or not I was coming to bed to fuck her some more……………………….  
 
  
 
- ****** Totally Inappropriate Behaviour ****** bygeronimo_appleby© That's another story! Report_Story #1 
+ ****** Totally Inappropriate Behaviour ****** bygeronimo_appleby© That's another story!  
 
  
 

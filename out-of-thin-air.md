@@ -148,7 +148,7 @@
 
  She stood up and started to take off her clothes. I watched her and then I stood up and dropped my trousers and started to smile, "Yeah. A leads to B and you still have three more stories to tell me, right?" 
 
- "Four sweetie. We have to count tonight too, don't we?" Report_Story #1 
+ "Four sweetie. We have to count tonight too, don't we?"  
 
  
 
@@ -344,7 +344,7 @@
 
  As I was getting out of the car both guys were still trying to get my phone number and to commit to another meeting. There wasn't a chance in hell that I would see them again, but I wanted them to keep their mouths shut so I told them that as long as Harry never found out what we had done I'd think about it and get back to them. I kissed them both goodnight and went into the house. I showered and douched and then went to bed. 
 
- I was sound asleep when Harry got home so I don't know what time it was. I won't go into all the bullshit that took place the next morning other than to say that it was two weeks before Harry got a piece of my pussy again. Report_Story #2 
+ I was sound asleep when Harry got home so I don't know what time it was. I won't go into all the bullshit that took place the next morning other than to say that it was two weeks before Harry got a piece of my pussy again.  
 
  
 
@@ -356,7 +356,7 @@
 
  "Yeah. A leads to B remember?" 
 
- "Oh yeah, right, A leads to B" I said as I stood up and pulled down my zipper. Report_Story #1 
+ "Oh yeah, right, A leads to B" I said as I stood up and pulled down my zipper.  
 
  
 
@@ -462,7 +462,7 @@
 
  "Yeah sweetie, and that's the next story. Ready for the A leads to B part?" 
 
- I smiled as I stood up and started to take my trousers off. She smiled back and said, "I hope you took your vitamins today. Harry isn't home tonight and I don't have to hurry to beat him home. How do you feel about waking up in the morning with a slut?" Report_Story #1 
+ I smiled as I stood up and started to take my trousers off. She smiled back and said, "I hope you took your vitamins today. Harry isn't home tonight and I don't have to hurry to beat him home. How do you feel about waking up in the morning with a slut?"  
 
  
 

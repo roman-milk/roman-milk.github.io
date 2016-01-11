@@ -466,7 +466,7 @@
 
  "Take off your clothes, get out of the car and kneel down in the mud; I wanna hear you squeal like a greasy pig while you blow your load; is that clear enough for you?" 
 
- As Roger starts stripping off his clothes, he asks:"What's gotten into you all of a sudden? You're not just acting like a slut, now you're talking like one as well?" Report_Story #2 
+ As Roger starts stripping off his clothes, he asks:"What's gotten into you all of a sudden? You're not just acting like a slut, now you're talking like one as well?"  
 
  
 
@@ -504,7 +504,7 @@
 
  As Roger slumps down in the back seat, Ally starts the car and says:"Just so you know, you're spending the rest of the night on your knees, eating me out!" 
 
- Fighting a smile, Roger leans his head back, closes his eyes and whispers: "Whatever you say honey!" Report_Story #1 
+ Fighting a smile, Roger leans his head back, closes his eyes and whispers: "Whatever you say honey!"  
 
  
 
@@ -660,7 +660,7 @@
 
  "Wait here." Ally said as she walked straight up to the guy behind the counter, asking him some questions. Roger looked around and noticed about five or six men in the store, all perverts from the looks of them. After a few minutes, Ally signaled Roger to follow them and they were led into the back through a shady looking curtain; there were several booths and while Ally entered one and closed the door behind her, Roger was led around the back and pushed into an adjacent booth. As the guy closed the door behind him, Roger looked around and noticed that he was separated from Ally by just a glass wall. As she looked him straight in the eye, she took off her coat and kicked off her shoes. Then something happened that Roger was not prepared for, but should have seen coming a mile away... suddenly on Ally's right side, a glory hole opened and a big hard shlong was pushed through. Ally reacted by walking towards it and getting on her knees next to it, facing the glass wall and staring Roger in the eye. Without much ado, she extended her tongue and started licking the entire length of this strange cock. Involuntarily, Roger stepped up to the glass for a better look and felt his heart sink into his boots. He closed his eyes for a second, shaking his head... refusing to believe what she was doing; when he opened his eyes again, she had taken the big head in her mouth and was sucking it sideway, still facing Roger, taunting him. Seconds turned into minutes, and pretty soon Roger had no choice but to accept what was happening; although seeing Ally pleasure a stranger's cock hurt him, his own dick appreciated the spectacle and nearly ripped through his pants. After another two minutes or so, Roger was left with only two choices – head out or stay, watch and jerk off: he decided on the latter. As Ally saw Roger starting to beat himself off, a wicked smile swept across her face and she started sucking and bobbing her head up and down the stranger's cock with even more vigor than before. Just a few seconds of this was enough to make the stranger spurt and Ally took his cock out of her mouth, wanking it furiously as it shot big glob of gooey cum onto her cocktail dress, her hand, her arm and the floor. 
 
- When she opened her mouth, a mixture of sperm and spit ran out – suggesting she had been too late in taking the strange cock out of her mouth; Roger wanked furiously and put his hand against the glass, desperately longing to be closer to her, wanting to put his hands on her body. The spent cock vanished and Ally started playing with the buttons of her dress, opening them one by one from the top down, until another cock appeared through the hole. This one wasn't hard yet – but even in it's deflated state it was clear that it belonged to an older, less endowed man – probably one of the men who were in the store before. Roger couldn't believe his eyes as Ally opened her mouth wide and started licking slowly at the wrinkled ball sack; it was obvious she wasn't picky; she didn't care who the cock belonged to, as long as it wasn't Roger; she wanted to degrade him, and he was about ten wanks away from blowing his load against the glass because of it! Not wanting to cum to this particular scene, Roger slowed down his masturbation, waiting for a visually more enjoyable passage; Ally spared no effort in pleasuring the little cock and sucked on it furiously, carefully holding the shaft between her thumb and index finger – that's how small it was. Even after several minutes of sucking and licking, it had hardly stiffened or grown at all. And yet, Ally never missed a beat: she continued to suck, jerk and do anything she could to pleasure the guy attached to this sad specimen of a cock. Eventually, she managed to bring him to some sort of a climax, catching the few drops of sperm which trickled out onto her cleavage. Report_Story #2 
+ When she opened her mouth, a mixture of sperm and spit ran out – suggesting she had been too late in taking the strange cock out of her mouth; Roger wanked furiously and put his hand against the glass, desperately longing to be closer to her, wanting to put his hands on her body. The spent cock vanished and Ally started playing with the buttons of her dress, opening them one by one from the top down, until another cock appeared through the hole. This one wasn't hard yet – but even in it's deflated state it was clear that it belonged to an older, less endowed man – probably one of the men who were in the store before. Roger couldn't believe his eyes as Ally opened her mouth wide and started licking slowly at the wrinkled ball sack; it was obvious she wasn't picky; she didn't care who the cock belonged to, as long as it wasn't Roger; she wanted to degrade him, and he was about ten wanks away from blowing his load against the glass because of it! Not wanting to cum to this particular scene, Roger slowed down his masturbation, waiting for a visually more enjoyable passage; Ally spared no effort in pleasuring the little cock and sucked on it furiously, carefully holding the shaft between her thumb and index finger – that's how small it was. Even after several minutes of sucking and licking, it had hardly stiffened or grown at all. And yet, Ally never missed a beat: she continued to suck, jerk and do anything she could to pleasure the guy attached to this sad specimen of a cock. Eventually, she managed to bring him to some sort of a climax, catching the few drops of sperm which trickled out onto her cleavage.  
 
  
 
@@ -788,7 +788,7 @@
 
  "Then don't..." Roger replied, his fist now a blur over his shaft. Ally smiled and got back up, wrapping the towel around her and headed towards the door. "You wanna stay and watch?" Roger asked. 
 
- "Really, really not." Ally said, as she turned off the lights and closed the door. Roger dropped to his knees, moaning, and started milking his big prick in total darkness, on the cold concrete floor, the stale and rank scent of the trash bins completing the picture. Not even thirty seconds later, Ally, listening at the other side of the door, smiled as she heard her boyfriend squeal as he wasted yet another load of cum. A few seconds later, she walked out of the kitchen, turning off all the lights and going straight to the bedroom, where she lied down in her warm, comfortable bed. Report_Story #1 
+ "Really, really not." Ally said, as she turned off the lights and closed the door. Roger dropped to his knees, moaning, and started milking his big prick in total darkness, on the cold concrete floor, the stale and rank scent of the trash bins completing the picture. Not even thirty seconds later, Ally, listening at the other side of the door, smiled as she heard her boyfriend squeal as he wasted yet another load of cum. A few seconds later, she walked out of the kitchen, turning off all the lights and going straight to the bedroom, where she lied down in her warm, comfortable bed.  
 
  
 
@@ -898,7 +898,7 @@
 
  As Rick sat down on the bench, catching his breath, I reached down to grab my towel and clean his cum off of me. Ally however put her hand on the towel, preventing me from taking it. 
 
- "Uhuh, we're not done yet!" she said as she backed up and sat down on the other side of the room, right across from me. As she spread her legs, putting one foot on the bench with her, she stretched her index finger of her right hand and tapped it on her pussy as she looked at me. Rick, who had sat down on the benches perpendicular to Ally and mine, looked at us alternately, wondering how this was going to play out. I knew better than to go against Ally wishes – even if I had wanted to – and so I didn't pick up the towel, leaving Rick's cum exactly where it was and got on my hands and knees, crawling towards Ally in a slow, submissive pace. As soon as I was close enough, I pushed my face against her glistening cunt and started licking, pleasuring my little girl. Ally moaned, writhed and gently pulled my hair for the next ten minutes as I did my best to give her as much pleasure as I could. Although my submission and my humiliation was important to her, she still needed to get off as well. Report_Story #2 
+ "Uhuh, we're not done yet!" she said as she backed up and sat down on the other side of the room, right across from me. As she spread her legs, putting one foot on the bench with her, she stretched her index finger of her right hand and tapped it on her pussy as she looked at me. Rick, who had sat down on the benches perpendicular to Ally and mine, looked at us alternately, wondering how this was going to play out. I knew better than to go against Ally wishes – even if I had wanted to – and so I didn't pick up the towel, leaving Rick's cum exactly where it was and got on my hands and knees, crawling towards Ally in a slow, submissive pace. As soon as I was close enough, I pushed my face against her glistening cunt and started licking, pleasuring my little girl. Ally moaned, writhed and gently pulled my hair for the next ten minutes as I did my best to give her as much pleasure as I could. Although my submission and my humiliation was important to her, she still needed to get off as well.  
 
  
 
@@ -990,7 +990,7 @@
 
  "Yes, left." she replied. 
 
- I turned the corner as indicated and I just knew – without having to look – that my daughter had a wicked smile on her face. A smile, probably as wide as my own! Report_Story #1 
+ I turned the corner as indicated and I just knew – without having to look – that my daughter had a wicked smile on her face. A smile, probably as wide as my own!  
 
  
 
@@ -1082,7 +1082,7 @@
 
  "Can I trouble you for a beer, mate?" he asked suddenly out of the blue. 
 
- "Sure." I said as I got up and walked into the kitchen, my large erection leading the way. I came back and handed it to him as I sat back down on my chair and watched him fuck the shit out of my girlfriend's mouth for another couple of minutes. Then, finally, he said: "Oh yeah, take it all, you stupid bitch." and moaned, lifting his ass slightly off the chair as he shot his load down Ally's throat. After sucking him dry and extensively cleaning his tube and balls, Ally crawled from under the table and said: "I think I am going to go freshen up." Report_Story #2 
+ "Sure." I said as I got up and walked into the kitchen, my large erection leading the way. I came back and handed it to him as I sat back down on my chair and watched him fuck the shit out of my girlfriend's mouth for another couple of minutes. Then, finally, he said: "Oh yeah, take it all, you stupid bitch." and moaned, lifting his ass slightly off the chair as he shot his load down Ally's throat. After sucking him dry and extensively cleaning his tube and balls, Ally crawled from under the table and said: "I think I am going to go freshen up."  
 
  
 

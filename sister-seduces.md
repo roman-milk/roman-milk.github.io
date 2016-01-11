@@ -112,7 +112,7 @@
 
  "I'll tell you a secret," the girl whispered. 
 
- Christopher's mouth hung slack when she did. Report_Story #1 
+ Christopher's mouth hung slack when she did.  
 
  
 
@@ -296,7 +296,7 @@
 
  The thought came to Beverly, clear and distinct, as her climax tapered: (Will we make a baby?). 
 
- Christopher rolled away from his mother's talons, leaving the woman panting and blinking in surprise on the bed. Report_Story #2 
+ Christopher rolled away from his mother's talons, leaving the woman panting and blinking in surprise on the bed.  
 
  
 

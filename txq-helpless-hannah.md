@@ -356,7 +356,7 @@
 
  "I don't squirt." 
 
- She kissed my shoulder. "Yes you do, honey. Big time." Report_Story #2 
+ She kissed my shoulder. "Yes you do, honey. Big time."  
 
  
 

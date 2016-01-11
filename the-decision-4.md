@@ -178,7 +178,7 @@
 
  "Sometime during the day the girls got together and Billie told them about what went on in the van and she told them that she had loved it and was already looking forward to the next Thursday. For the next week that's all anyone talked about and on the next Thursday when Billie asked who was going out to the van with her Todd and I jumped up and said it was our turn. The three of us went out to the van, but before we could get started everyone was there wanting to watch. There were too many of us so we all chipped in and got a motel room. 
 
- "The room had two beds and me, Todd and Billie got on one of them and the others stood around and watched or sat on the other bed and watched as I fucked Billie while she sucked off Todd. I finished and Todd took my place and I took his place in her mouth. By the time Todd got his rocks off Sue and Charlie were naked and fucking on the other bed and Bill and Marge were going at it on the bed next to them. Report_Story #2 
+ "The room had two beds and me, Todd and Billie got on one of them and the others stood around and watched or sat on the other bed and watched as I fucked Billie while she sucked off Todd. I finished and Todd took my place and I took his place in her mouth. By the time Todd got his rocks off Sue and Charlie were naked and fucking on the other bed and Bill and Marge were going at it on the bed next to them.  
 
  
 

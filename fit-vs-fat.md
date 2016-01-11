@@ -124,7 +124,7 @@
 
  "I guess..." I agreed hesitantly, still not crazy about this compromise, but he was too sweet to let me do this alone; he wanted to support me in any way he could, whether I wanted it or not. He stood and got behind me. 
 
- "What's wrong?" he inquired, kissing my neck. Ben was a sensitive man, and sensed my reservation. He could always read me like a book. Report_Story #2 
+ "What's wrong?" he inquired, kissing my neck. Ben was a sensitive man, and sensed my reservation. He could always read me like a book.  
 
  
 
@@ -316,7 +316,7 @@
 
  To this end, I learned to be more closely guarded in my feelings. I stopped lashing out and began to internalize my feelings. My parents seemed happier with this perceived 'progress', which gave me more freedom. 
 
- Nothing restricted my movements. No one held me back. I freely pursued my desires at the expense of those around me. Emotional attachment was a weakness I did not possess. Report_Story #3 
+ Nothing restricted my movements. No one held me back. I freely pursued my desires at the expense of those around me. Emotional attachment was a weakness I did not possess.  
 
  
 
@@ -432,7 +432,7 @@
 
  "Now, Shannon mentioned that you would be charging double for when I attend. I'm assuming that's still the case?" I asked. Alexis reached over and put her hand on my arm with an awkward amount of familiarity for someone I'd just met. 
 
- "Of course not. She must have misunderstood me. There won't be any extra charge," Alexis said with a giggle, "You're just supporting your wife...the only extra cost is your gym membership. Didn't she tell you?" Report_Story #4 
+ "Of course not. She must have misunderstood me. There won't be any extra charge," Alexis said with a giggle, "You're just supporting your wife...the only extra cost is your gym membership. Didn't she tell you?"  
 
  
 
@@ -596,7 +596,7 @@
 
  Just like I thought, as soon as she saw me, Alexis absolutely lit into me during our next session. 
 
- "You are pretty bold to show your face here, after I caught you cheating on your diet, pound cake? Why should I waste my time? As soon as we are done, you just go out and pig out on cake and burgers. I do not care what you are paying me if you are just going to waste time that I could be spending on someone that actually cares about their body!" Report_Story #5 
+ "You are pretty bold to show your face here, after I caught you cheating on your diet, pound cake? Why should I waste my time? As soon as we are done, you just go out and pig out on cake and burgers. I do not care what you are paying me if you are just going to waste time that I could be spending on someone that actually cares about their body!"  
 
  
 
@@ -772,7 +772,7 @@
 
  "Oh, well, then we'll push back swimming till then. I'll test out your theory tomorrow then," Alexis replied, betraying a little disappointment. 
 
- "Okay, sounds good," I called over my shoulder, running toward home. Report_Story #6 
+ "Okay, sounds good," I called over my shoulder, running toward home.  
 
  
 
@@ -906,7 +906,7 @@
 
  If I could trade places with her, I would in a heartbeat. She worked hard to stay in shape, but she didn't even have to. Even if she had a few extra pounds, it would only be the difference between being a hard body like her and being voluptuous and curvy like a porn star. She would always have a better body than me. No matter how much work I did, I would never be as voluptuous as her. Even if I lost all the weight I wanted, I would simply be flat and curveless. I would never have the curves that she did. I would never be as hot as Alexis. 
 
- That was how my diet came to an end. I could never be as good looking as Alexis, so what was the point of this training? I could never be the hottie on my husband's arm. I could never give him the curves he desired. I would just be the dumpy, overweight wife of a fit stud. I was tired of not eating. I was tired of even trying. I just didn't care anymore. Report_Story #7 
+ That was how my diet came to an end. I could never be as good looking as Alexis, so what was the point of this training? I could never be the hottie on my husband's arm. I could never give him the curves he desired. I would just be the dumpy, overweight wife of a fit stud. I was tired of not eating. I was tired of even trying. I just didn't care anymore.  
 
  
 
@@ -1066,7 +1066,7 @@
 
  It felt like I was in a daze as I walked into the gym that morning. Today felt different. It was one of those moments where you feel like some momentous, life changing event was hanging threateningly overhead. 
 
- I sat down on a weight bench and waited for Alexis to appear. I looked around the gym, waiting, taking in the surroundings. I was stunned when Ben entered instead. Report_Story #8 
+ I sat down on a weight bench and waited for Alexis to appear. I looked around the gym, waiting, taking in the surroundings. I was stunned when Ben entered instead.  
 
  
 
@@ -1270,7 +1270,7 @@
 
  "Did she kiss you? Just now?" she asked. I couldn't find any words, "Did she?" 
 
- "She kissed me, I didn't kiss her," I said, hoping she would believe me. Report_Story #9 
+ "She kissed me, I didn't kiss her," I said, hoping she would believe me.  
 
  
 
@@ -1412,7 +1412,7 @@
 
  Fit like Alexis? 
 
- I don't know why I kept thinking about Alexis; she was an evil, manipulative bitch. She was rotten to the core. In many ways, all ways, she was the opposite of my wife. Report_Story #10 
+ I don't know why I kept thinking about Alexis; she was an evil, manipulative bitch. She was rotten to the core. In many ways, all ways, she was the opposite of my wife. 0 
 
  
 
@@ -1570,7 +1570,7 @@
 
  "No. I will not just walk with you and listen to this crap!" I said defiantly...desperately. 
 
- "Ben, its 6:30 in the morning. I'll tell you what. You let me say my piece, and once I'm done, if you still feel the same way, I'll let you go on your own way and you'll never see me again. Just walk with me for a bit. Please?" Alexis reasoned, more calm, cool, and collected than I was. Report_Story #11 
+ "Ben, its 6:30 in the morning. I'll tell you what. You let me say my piece, and once I'm done, if you still feel the same way, I'll let you go on your own way and you'll never see me again. Just walk with me for a bit. Please?" Alexis reasoned, more calm, cool, and collected than I was. 1 
 
  
 
@@ -1706,7 +1706,7 @@
 
  This woman terrified me in a way I had never felt. I loved my wife. Sure, she was fat, but she was so sweet, and pretty. Alexis was different. A dark, evil aura emanated from her. Looking at her made dark, nasty thoughts rise to the surface. She was gorgeous, and sexy, and voluptuous. She had a bad attitude, and she was proud of it. She was capable of spewing pure venom. But she was so hot, and her tits were so huge! She was unlike anyone I had ever met. 
 
- I always hung around good girls. But after being exposed to the temptations Alexis offered, part of me realized that there was some part of me that didn't want a good girl. There was a part of me that appreciated what bad girls had to offer. Part of me that went brain dead around a seductive girl like her. My inexperience with girls like this was coming back to haunt me. Only if I experienced what a girl like her could do could I understand them. Report_Story #12 
+ I always hung around good girls. But after being exposed to the temptations Alexis offered, part of me realized that there was some part of me that didn't want a good girl. There was a part of me that appreciated what bad girls had to offer. Part of me that went brain dead around a seductive girl like her. My inexperience with girls like this was coming back to haunt me. Only if I experienced what a girl like her could do could I understand them. 2 
 
  
 
@@ -1886,7 +1886,7 @@
 
  "Go on," Alexis commanded insistently, "I had a nice, long run this morning. I built up quite a sweat. I've really needed this," she added. 
 
- I stared at Alexis's ass crack, the part she was demanding me to lick. Since it was a hot one today, she was still covered in sweat, including her ass. I had never been into ass-stuff, but I had promised her that I would, and for all the wrong I'd done today, I was still an honest man, and would never break a promise made. Report_Story #13 
+ I stared at Alexis's ass crack, the part she was demanding me to lick. Since it was a hot one today, she was still covered in sweat, including her ass. I had never been into ass-stuff, but I had promised her that I would, and for all the wrong I'd done today, I was still an honest man, and would never break a promise made. 3 
 
  
 
@@ -2046,7 +2046,7 @@
 
  "Fuck! Your ass feels amazing! I didn't think you could do it!" Ben moaned in obvious pleasure. 
 
- "I told you baby," she said, looking at me, her cold eyes glaring into my soul, holding my gaze, forcing me to watch, unable to turn away, "Baby listen, we have a special guest." Report_Story #14 
+ "I told you baby," she said, looking at me, her cold eyes glaring into my soul, holding my gaze, forcing me to watch, unable to turn away, "Baby listen, we have a special guest." 4 
 
  
 
@@ -2216,7 +2216,7 @@
 
  "Oh, thanks babe," Jessica said, stepping off the machine she was on, and giving Alexis a kiss on the cheek. This allowed me to look at her body. She had weighed more than I did with the kids in her belly, but now, he belly was nice and flat, flatter than it ever was, and her breasts looked huge. She looked this good after such a short time, while I ballooned. Not many women could compete with Alexis looks wise, but she could. 
 
- "I have to get going. I'll see you at game night," Jessica said cheerfully. What? They were still having game night, only I wasn't invited? Alexis had replaced me in my group of friends? It couldn't be? But after a little digging, I found out it was. Apparently, I was being too much of a 'dreary little bitch' to keep going, plus Alexis and Ben together were a lot more fun than me and Ben. They liked that bitch more than they liked me. Report_Story #15 
+ "I have to get going. I'll see you at game night," Jessica said cheerfully. What? They were still having game night, only I wasn't invited? Alexis had replaced me in my group of friends? It couldn't be? But after a little digging, I found out it was. Apparently, I was being too much of a 'dreary little bitch' to keep going, plus Alexis and Ben together were a lot more fun than me and Ben. They liked that bitch more than they liked me. 5 
 
  
 

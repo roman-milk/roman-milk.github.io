@@ -132,7 +132,7 @@
 
  "Put the shoes on," I ordered, cutting off her inane babble. "Don't!" I added sharply as her hand went towards the small towel hanging in its ring next to the basin. "I want you to stay like that. It turns me on to see you all messed up. After seeing you in your work clothes, all prim and proper ... It's the contrast between the consummate professional lady and the absolute slut. Now, put the fucking heels on and walk around for me," I added with a growl. 
 
- Jennifer complied. She strutted around the living room of the cottage posing periodically. When she walked off the carpeted floor and into the kitchen the sound of those heels sent me over the edge. Without a word I followed her. I swigged at the beer I'd been holding and then put it down on the work top. After pushing my jeans down over my thighs, erection still at full bore from the blue pill, I lifted Jennifer onto the laminated counter and stood between her thighs. "I said in the Merc that I wanted our first fuck to be in a bed ... The kitchen counter will have to do." Report_Story #2 
+ Jennifer complied. She strutted around the living room of the cottage posing periodically. When she walked off the carpeted floor and into the kitchen the sound of those heels sent me over the edge. Without a word I followed her. I swigged at the beer I'd been holding and then put it down on the work top. After pushing my jeans down over my thighs, erection still at full bore from the blue pill, I lifted Jennifer onto the laminated counter and stood between her thighs. "I said in the Merc that I wanted our first fuck to be in a bed ... The kitchen counter will have to do."  
 
  
 

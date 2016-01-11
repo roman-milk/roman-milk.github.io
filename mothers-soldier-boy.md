@@ -122,7 +122,7 @@
 
  I was due to go on two weeks leave later that day and now instead of having two weeks of boredom ahead of me because of my social awkwardness, I now had a fortnight of love in my mother's arms to look forward to. 
 
- I was to find out all sorts of family 'secrets' during those two weeks, but I didn't know that at the time!! Report_Story #1 
+ I was to find out all sorts of family 'secrets' during those two weeks, but I didn't know that at the time!!  
 
  
 
@@ -258,7 +258,7 @@
 
  I had two weeks of this to look forward to and I wondered which of my relations would also be included in our little gatherings? 
 
- My own sister was seventeen, but would have her birthday within a week. Report_Story #1 
+ My own sister was seventeen, but would have her birthday within a week.  
 
  
 
@@ -406,7 +406,7 @@
 
  I was also thinking about bringing some of the lads home with me when I next came on leave. Imagine their faces when they saw my grandmother, mother, aunt and sister licking each other's shaven pussies and maybe fucking with rubber strap on cocks? 
 
- I wondered if the female family members would go for that idea. Report_Story #1 
+ I wondered if the female family members would go for that idea.  
 
  
 

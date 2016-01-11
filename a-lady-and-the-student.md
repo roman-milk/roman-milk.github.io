@@ -252,7 +252,7 @@
 
  "Yes, sir, you're so clever and I'm just a silly woman, sometimes," she said. A look of disquiet wiped the smile from her face. Margaret stood with a finger in her mouth, looking cute and girly. 
 
- "I wasn't clever enough to go to university, like you, sir, so I guess that's right. I am a silly little thing," she mused. Having resolved the quandary, she gave him a big smile. Report_Story #2 
+ "I wasn't clever enough to go to university, like you, sir, so I guess that's right. I am a silly little thing," she mused. Having resolved the quandary, she gave him a big smile.  
 
  
 
@@ -454,7 +454,7 @@
 
  "Thank you, master," she yelped with pleasure. She clung on to him, not wanting to leave his strong arms. 
 
- "You must be a good little pet-girl, or I'll spank you," he warned her. "Go and get dressed. You have a meal to prepare," he chided her. He slapped her bare ass, to get her moving, and she scampered off in a perfect state of bliss. Report_Story #1 
+ "You must be a good little pet-girl, or I'll spank you," he warned her. "Go and get dressed. You have a meal to prepare," he chided her. He slapped her bare ass, to get her moving, and she scampered off in a perfect state of bliss.  
 
  
 
@@ -676,7 +676,7 @@
 
  "Yes, well, not for the moment. That was great and I'll be back soon. I promise. Right now I've got to earn some money," he told her. 
 
- She came up close with arms stretched out. He gave her a bear hug, hoping she wouldn't press the idea of leaving with him. The last thing he needed was a stupid bitch, on heat, at his place. Report_Story #2 
+ She came up close with arms stretched out. He gave her a bear hug, hoping she wouldn't press the idea of leaving with him. The last thing he needed was a stupid bitch, on heat, at his place.  
 
  
 
@@ -874,7 +874,7 @@
 
  "Ohhhooo! That's, like, totally really bling!" Candy squealed. "Will he spank me too?" she asked, with a pleading look on her face. The three bimbos laughed at her, nodding their heads in unison. 
 
- Marvin figured it was going to be a long wait for dinner. Pouring himself a malt whiskey, he sat in a large wing back chair, thinking over the girls different levels of progress. It was much easier like this, as they competed with each other, to please him. Soon, all four would be perfect bimbos. Report_Story #1 
+ Marvin figured it was going to be a long wait for dinner. Pouring himself a malt whiskey, he sat in a large wing back chair, thinking over the girls different levels of progress. It was much easier like this, as they competed with each other, to please him. Soon, all four would be perfect bimbos.  
 
  
 
@@ -1094,7 +1094,7 @@
 
  "How slutty I look!" she exclaimed, in dismay. She imagined having huge pillows for breasts, and thick, glossy, cock-sucking lips. She wanted to run away and hide. 
 
- "You do! You look like a wonderful, silly slutty bimbo," they chorused. "You look perfect for master! You are so lucky!" they told her, one by one. Report_Story #2 
+ "You do! You look like a wonderful, silly slutty bimbo," they chorused. "You look perfect for master! You are so lucky!" they told her, one by one.  
 
  
 
@@ -1156,7 +1156,7 @@
 
  Marvin made it a routine, to take a new girl to bed, for her first night in his home. It would settle her, and make her his. He was looking forward to finding out what she knew, and what the others had been telling her he liked. They had the whole night together, to get to know each other. 
 
- As soon as he recovered he would show her what he knew; how to please a woman. Report_Story #1 
+ As soon as he recovered he would show her what he knew; how to please a woman.  
 
  
 
@@ -1340,7 +1340,7 @@
 
  Her eyes opened wide in astonishment. Her master cupped one of her breasts in both hands, tenderly kissed a nipple, and sucked it into his mouth. He bit upon it, and sucked hard on her breast. It tingled like a tiny buzzer, ringing an urgent message to her bud. She felt her whole body shiver with excitement. 
 
- He paid as much attention to her other breast, sucking and holding onto it as though it were the most precious thing in the world. She could hardly stand with her head spinning. It felt as though her body were being drained of strength through a nipple. Her nipples felt hard as rocks. Her breasts felt full. Her pussy was on fire. Report_Story #2 
+ He paid as much attention to her other breast, sucking and holding onto it as though it were the most precious thing in the world. She could hardly stand with her head spinning. It felt as though her body were being drained of strength through a nipple. Her nipples felt hard as rocks. Her breasts felt full. Her pussy was on fire.  
 
  
 

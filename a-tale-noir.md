@@ -168,7 +168,7 @@
 
  As the girls sipped rum, giggling and talking, telling stories, the vile Dr. Van Lester watched. His secret cameras capturing every angle. His monitors and scanners also alerting him to the presence of the pirate marauder in low orbit. His technology easily the match for pirate stealth. 
 
- "Prepare the lab Hugo, we shall soon have visitors," he told his assistant dwarf. "Yes Doctor," Hugo replied, scurrying off to make preparations for receiving company. The evil Doctor grinning, rubbing his hands together, and chuckling insanely as he watched the three beautiful girls chatting around the fire. The picture of innocence. Report_Story #2 
+ "Prepare the lab Hugo, we shall soon have visitors," he told his assistant dwarf. "Yes Doctor," Hugo replied, scurrying off to make preparations for receiving company. The evil Doctor grinning, rubbing his hands together, and chuckling insanely as he watched the three beautiful girls chatting around the fire. The picture of innocence.  
 
  
 
@@ -306,7 +306,7 @@
 
  Resting her head back down, she began to panic. This was supposed to be an uninhabited planet. There shouldn't be anyone here. She shouldn't be strapped down, and she certainly shouldn't be naked. Taking a deep calming breath, Rachel forced herself to think. Slowing her breathing down, she looked at her surroundings first. She appeared to be in some sort of laboratory. Dust covered nearly every surface, except for various pieces of arcane technology. Strange devices, and unusual implements hanging from the wall. In the corner, a small tank with green water bubbled. Some weird plant or something inside of it. Along the far wall several more tanks, with different stages of the same plant growing in water. 
 
- Then she took stock of the table she was strapped to. A large X shape that was floating on some sort of anti-grav technology. Her wrists, ankles, and waist tightly strapped to it. Looking around she saw no sign of her clothes or her gear. She couldn't see under her but the ceiling above her was loaded with lights, chains hanging, straps, and in the center some sort of multi-armed machine. Inert but with several lights indicating power and readiness. Report_Story #3 
+ Then she took stock of the table she was strapped to. A large X shape that was floating on some sort of anti-grav technology. Her wrists, ankles, and waist tightly strapped to it. Looking around she saw no sign of her clothes or her gear. She couldn't see under her but the ceiling above her was loaded with lights, chains hanging, straps, and in the center some sort of multi-armed machine. Inert but with several lights indicating power and readiness.  
 
  
 
@@ -442,7 +442,7 @@
 
  "Master will be with you shortly Miss," he told her. She quaked with fear as he took a needle out and prepared an injection. "Please, no. What is that?" she asked in fear. Helpless as Hugo brought the needle to her thigh and pushed it in. Pressing down the plunger. 
 
- "This is just something to ensure you remain calm, while Master visits you Miss," Hugo told her as he pulled the syringe out. Taking a minute to wipe her thigh clean, it very soon was wet from his leaking cum again. So much he had put in her, it was going to keep oozing out for some time. Report_Story #4 
+ "This is just something to ensure you remain calm, while Master visits you Miss," Hugo told her as he pulled the syringe out. Taking a minute to wipe her thigh clean, it very soon was wet from his leaking cum again. So much he had put in her, it was going to keep oozing out for some time.  
 
  
 

@@ -176,7 +176,7 @@
 
  A trip to My Videos let me see Vickie being an absolute slut as in thirty-one videos clips she was fucked in all three holes and in a couple of clips she was taken in all three at once. 
 
- The mother lode was in My Documents and it was there that I learned the meaning of CSW. There, on the hard drive, was every story that Cyber Slut Wife had written, including a few that I had not yet read. My own wife was one of my favorite authors and the stories she wrote were of the things she had been doing behind my back. I'd even gotten myself off to a couple of them and wasn't that a kick in the teeth. Report_Story #2 
+ The mother lode was in My Documents and it was there that I learned the meaning of CSW. There, on the hard drive, was every story that Cyber Slut Wife had written, including a few that I had not yet read. My own wife was one of my favorite authors and the stories she wrote were of the things she had been doing behind my back. I'd even gotten myself off to a couple of them and wasn't that a kick in the teeth.  
 
  
 
@@ -390,7 +390,7 @@
 
  Two weeks went by with no word from Harry or Vickie as to whether or not she was going to contest the divorce so I started preparing for the worst. In keeping with my promise to ruin Harry if he didn't convince Vickie to walk away I started to watch the videotapes to see just what I had to work with. I was amazed at what I found. Besides the city manager I found two councilmen and one county commissioner - all married - and several prominent local businessmen, also all married. 
 
- There was tape on eleven of the seventeen assholes that were at my party and another eleven that I knew fairly well. The rest of the men on the tapes I didn't recognize, but it didn't matter, I had more than enough for what I was going to do. Report_Story #3 
+ There was tape on eleven of the seventeen assholes that were at my party and another eleven that I knew fairly well. The rest of the men on the tapes I didn't recognize, but it didn't matter, I had more than enough for what I was going to do.  
 
  
 

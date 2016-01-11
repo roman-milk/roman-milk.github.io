@@ -166,7 +166,7 @@
 
  Maybe if I offered to pay to be the leading man in her next video? Might work, but did I really want to be in a video where God alone knew who might see me. I could just imagine the uproar if my family were ever to find out. And to be brutally honest there was no way my modest sexual equipment could match up to the studs Kristal played with in her films. Don't need to go there. No, I needed to find some other way. 
 
- I thought about the problem for a couple of days without coming up with a good idea and then out of the blue a comment by a co-worker gave me a thought. Jack Duncan has a social function to go to and he needed a date. The problem was that Jack was gay and didn't know any girls. We all knew of Jack's proclivities, but none of the people at the function he was going to knew about his sexual preferences and he didn't want them to know. Sally Ingram told him that all he had to do was call an escort service and hire an escort for the night. Tip the girl well and she would hang all over him, say whatever he asked her to say and make it look like she was the love of his life. Jack went right to the phone book, made a call and then took the rest of the afternoon off to go down to the escort agency. Report_Story #2 
+ I thought about the problem for a couple of days without coming up with a good idea and then out of the blue a comment by a co-worker gave me a thought. Jack Duncan has a social function to go to and he needed a date. The problem was that Jack was gay and didn't know any girls. We all knew of Jack's proclivities, but none of the people at the function he was going to knew about his sexual preferences and he didn't want them to know. Sally Ingram told him that all he had to do was call an escort service and hire an escort for the night. Tip the girl well and she would hang all over him, say whatever he asked her to say and make it look like she was the love of his life. Jack went right to the phone book, made a call and then took the rest of the afternoon off to go down to the escort agency.  
 
  
 
@@ -346,7 +346,7 @@
 
  She invited him to a party at her house and he went and had a good time. He asked her for a date and she said yes and they had a good time. Romance bloomed. Then the busy bodies got involved. "You are ruining your career." "Your public will never stand for you getting together with a loser like him." People started doing things to 'save her from herself.' Things like deliberately scheduling her for things when they knew she had a date with him. Things like leaking phony stories to the gossip press about her 'secret romance' with______(fill in the blank with the name of the male Hollywood star of the moment). Things like leaking to gossip columnists that she only spends time with our hero to camouflage her romance with the male star of the moment. 
 
- Our hero hears all of this and his heart is broken and he leaves the Left Coast and goes home to Hicksville to lick his wounds. A couple of weeks later there is a knock on his door and he opens it to find fantasy woman standing there. She rushes into his arms and they live happily ever after. Or not. Report_Story #3 
+ Our hero hears all of this and his heart is broken and he leaves the Left Coast and goes home to Hicksville to lick his wounds. A couple of weeks later there is a knock on his door and he opens it to find fantasy woman standing there. She rushes into his arms and they live happily ever after. Or not.  
 
  
 

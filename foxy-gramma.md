@@ -142,7 +142,7 @@
 
  As Janice aged, she noticed more and more eyes following her body. She realized that while men do love young sluts, what they love even more is a sexy, mature woman. Mature women with perfect bodies just drive men wild. Since she had a lot of time on her hands, she spent a lot of it at the gym, keeping her body fit and firm, unlike most women who get soft and doughy in their older age. As she reached her forties she realized that the men who were staring at her were young. Late teens, early twenties. Young men who couldn't get enough of the sight of a perfect and mature body in tight, form fitting clothes. Janice maintained her style, wearing sexy clothes to highlight her best attributes, resistant to the notion that she should "dress her age." Those young sluts sneered at Janice, fuming with jealously as their men could not take their eyes off of her. 
 
- Once her husband died, it took her awhile to get on the prowl again. But once she did, she was an unstoppable force. A lot of the younger sluts were amazed that this brazen, slutty "old lady" would come to their clubs, ones that catered to a younger crowd, spend just thirty minutes there, and would walk out hand-in-hand with the biggest stud there. The young buck that all those young sluts were targeting would walk out with a woman over twice his age. Those sluts couldn't understand what those studs found more appealing about that "old lady". Report_Story #2 
+ Once her husband died, it took her awhile to get on the prowl again. But once she did, she was an unstoppable force. A lot of the younger sluts were amazed that this brazen, slutty "old lady" would come to their clubs, ones that catered to a younger crowd, spend just thirty minutes there, and would walk out hand-in-hand with the biggest stud there. The young buck that all those young sluts were targeting would walk out with a woman over twice his age. Those sluts couldn't understand what those studs found more appealing about that "old lady".  
 
  
 
@@ -274,7 +274,7 @@
 
  "Grandma!" Danny said, angrily. "Drop it!" 
 
- Janice narrowed her eyes at him as he called her Grandma. He was clearly as stubborn as his mother. She knew she couldn't be as direct as she was now without him turning away. Report_Story #3 
+ Janice narrowed her eyes at him as he called her Grandma. He was clearly as stubborn as his mother. She knew she couldn't be as direct as she was now without him turning away.  
 
  
 
@@ -420,7 +420,7 @@
 
  Danny was hung up on the idea of younger men with older women. He had never even thought about it. Sure, he had heard his buddies talk about MILFs, but they were just playing around. He really doubted it was as prevalent as Janice had said. When he got a free moment, he grabbed the computer and used a search engine to see if he could find any statistics on the subject. He found a report stating that relationships between women over 40 and men under 25 have increased by over 20% in the last year or so. There has also been a sharp rise in men taking their wives' last name. This made Danny laugh. He couldn't imagine taking a woman's last name in marriage. It just seemed like the only time that would happen was when the girl wore the pants in the relationship. He also saw that pregnancies for women over the age of 40 have increased by 30% in the last year. Danny realized that maybe Janice was telling the truth. 
 
- He puttered around online looking up more information on the subject. He clicked on a link, not knowing what was on the other side. Finally, the site booted up. Danny looked at the screen, and was shocked by what he saw. On the screen was the image of a naked woman having sex with a man. It appeared that this woman looked older, maybe in her forties. And the man looked younger, maybe in his early twenties. The image was taken from the side, highlighting the woman's curvaceous form. She had large breasts, and a bubble butt. Judging by the picture, she was having a good time. Report_Story #4 
+ He puttered around online looking up more information on the subject. He clicked on a link, not knowing what was on the other side. Finally, the site booted up. Danny looked at the screen, and was shocked by what he saw. On the screen was the image of a naked woman having sex with a man. It appeared that this woman looked older, maybe in her forties. And the man looked younger, maybe in his early twenties. The image was taken from the side, highlighting the woman's curvaceous form. She had large breasts, and a bubble butt. Judging by the picture, she was having a good time.  
 
  
 
@@ -612,7 +612,7 @@
 
  "A mistake?! You think me marrying LeAnn is a mistake?" Danny asked. 
 
- "Danny, it's like I told you. When I got married, I was young, and I thought it was true love. Looking back, I realize how wrong I was. How naïve I was. I told your mother these things, and she didn't listen. She married young too, and she thought it was true love. You know how long that lasted. She realized how wrong she was too. I'm just hoping you're smart enough to listen to me and believe me when I say I know what I'm talking about." Janice said. Report_Story #5 
+ "Danny, it's like I told you. When I got married, I was young, and I thought it was true love. Looking back, I realize how wrong I was. How naïve I was. I told your mother these things, and she didn't listen. She married young too, and she thought it was true love. You know how long that lasted. She realized how wrong she was too. I'm just hoping you're smart enough to listen to me and believe me when I say I know what I'm talking about." Janice said.  
 
  
 
@@ -698,7 +698,7 @@
 
  
 
- (Author's Note: Part 2 coming next week. This was one story split in to two parts, so apologies for the lack of action in this one. I will make it up to you all in the next chapter. I promise.) Report_Story #1 
+ (Author's Note: Part 2 coming next week. This was one story split in to two parts, so apologies for the lack of action in this one. I will make it up to you all in the next chapter. I promise.)  
 
  
 
@@ -854,7 +854,7 @@
 
  Danny couldn't help but notice how much Janice paraded around her body. She always seemed to wear tight, skimpy clothes. She constantly showed off her cleavage in whatever she wore. She loved to swim, and loved to wear her collection of skimpy bikinis whenever possible. She always seemed to shake her round butt as she walked. At least she did whenever he found himself looking at it. Danny even noticed how her breasts jiggled as she walked. But at this point, Danny didn't think twice about it. It wasn't that she was an incestuous whore showing off her body in front of her grandson. It was just the way she was. 
 
- Danny wrote off some of the things she did. One time, he noticed she bent over, keeping her legs straight, a pose that no doubt would come across as sexual with most women. But, Danny justified, maybe that was how she bent over. He thought back, and every time she had bent over while he was around, she had done it the same way. This cured his worries about that. Report_Story #2 
+ Danny wrote off some of the things she did. One time, he noticed she bent over, keeping her legs straight, a pose that no doubt would come across as sexual with most women. But, Danny justified, maybe that was how she bent over. He thought back, and every time she had bent over while he was around, she had done it the same way. This cured his worries about that.  
 
  
 
@@ -1058,7 +1058,7 @@
 
  "Because you would get to live your dream. You would get to cash in on your lifelong crush. You wouldn't just be any slave. You would be my sex slave." Janice said. Danny gulped. His grandmother was offering sex. She wanted her grandson to become her sex-slave. 
 
- "Danny, I am a MILF. But more important to you, you sick fuck, I am your grandmother. We are related, and that makes it so much better, doesn't it? It's so forbidden. You know how rare it is for a young stud like you to have a smoking hot grandmother? You'd be a fool not to take advantage of that! Your grandmother is an absolute babe who's down for doing the nasty with her own grandson. It's so messed up. So sick! But so good, right? You've always wanted a mother to fuck, and you found her in your grandmother. Like any good mother, I have massive breasts. I have a juicy, round ass. And my pussy is nice and tight. My body is perfect. I blow that girl you're engaged to out of the water. Your fiancée's got nothing on me. So here's what you need to do. You need to move in with me. I don't want your mother to ever see you again. She's a bad mother, and she does not deserve such a good son like you. Then, I want you to dump the girlfriend. She will not play any part in your life. Then, I want you to pledge your loyalty to me. You will serve me in whatever manner I want. And in return, you get world-changing sex. You get the MILF sex you have always wanted. The rough sex you need to have. The incestuous sex you are so desperate for. Danny, I am an absolute slut. I am down for anything. I am capable of just about anything your sick mind can come up with. You can do all that nasty stuff with me. And, if you're a good boy, there will be rewards. Danny, I have MILF friends. Women like me. Older women who are amazing at sex. You've met a few of them. Lilith. Camille. My neighbor. I can have them join us. Imagine a threesome with two MILFS. Maybe even a foursome. Imagine all those sexy older women and the things you could do. Or... you could go back to your boring and flat fiancée and your idiotic mother. What do you want to do?" Janice asked. Report_Story #3 
+ "Danny, I am a MILF. But more important to you, you sick fuck, I am your grandmother. We are related, and that makes it so much better, doesn't it? It's so forbidden. You know how rare it is for a young stud like you to have a smoking hot grandmother? You'd be a fool not to take advantage of that! Your grandmother is an absolute babe who's down for doing the nasty with her own grandson. It's so messed up. So sick! But so good, right? You've always wanted a mother to fuck, and you found her in your grandmother. Like any good mother, I have massive breasts. I have a juicy, round ass. And my pussy is nice and tight. My body is perfect. I blow that girl you're engaged to out of the water. Your fiancée's got nothing on me. So here's what you need to do. You need to move in with me. I don't want your mother to ever see you again. She's a bad mother, and she does not deserve such a good son like you. Then, I want you to dump the girlfriend. She will not play any part in your life. Then, I want you to pledge your loyalty to me. You will serve me in whatever manner I want. And in return, you get world-changing sex. You get the MILF sex you have always wanted. The rough sex you need to have. The incestuous sex you are so desperate for. Danny, I am an absolute slut. I am down for anything. I am capable of just about anything your sick mind can come up with. You can do all that nasty stuff with me. And, if you're a good boy, there will be rewards. Danny, I have MILF friends. Women like me. Older women who are amazing at sex. You've met a few of them. Lilith. Camille. My neighbor. I can have them join us. Imagine a threesome with two MILFS. Maybe even a foursome. Imagine all those sexy older women and the things you could do. Or... you could go back to your boring and flat fiancée and your idiotic mother. What do you want to do?" Janice asked.  
 
  
 
@@ -1208,7 +1208,7 @@
 
  "Yes, I will be your lifelong slave. But..." Danny started. 
 
- "I know what you're thinking. I'm thirty years older than you. Your lifetime will be longer than mine. Don't worry, I'll set you up with someone nice when I'm gone. You'll be fucking whoever I want for the rest of your life." Janice said. Report_Story #4 
+ "I know what you're thinking. I'm thirty years older than you. Your lifetime will be longer than mine. Don't worry, I'll set you up with someone nice when I'm gone. You'll be fucking whoever I want for the rest of your life." Janice said.  
 
  
 
@@ -1322,7 +1322,7 @@
 
  "Take them. They're yours now." Janice said. He couldn't help himself. His hands reached down, grabbed the hem of her 'Foxy Grandma' t-shirt, and yanked it upward violently, finally exposing her breasts to his eyes. He finally got a good look at his grandmother's naked breasts. They were even bigger than he thought. They were massive, they were firm, and they were bare. They were capped by perfect hard nipples, and the skin was as smooth and creamy as the rest of her. He didn't have too much time to take them in visually as his mouth quickly attached itself to her hard left nipple. His cheeks hollowed as he tried to get as much creamy breast flesh into his mouth as he could. He reached up with both hands and finally gave her breasts the healthy squeeze they had been dying for. His hands kept squeezing, in disbelief at how perfect and firm her mature breasts felt. They poured through his fingers in just the right way. Janice rubbed his hair affectionately as he chewed on her nipple. Danny didn't realize that his hips had started to bounce. The incestuous fuck had begun. 
 
- Danny was following his instincts on how to fuck a woman. Luckily, his instincts matched up perfectly with the way mature women like to be fucked. He pulled out to the tip before driving back into her again, his balls slapping against her ass as he did so. His cock was soon coated in his grandmother's juices. Janice's let hand reach down to palm her grandson's bare ass as he pounded her, assisting him in making the fuck as hard as possible. Janice, like most older women, liked her sex hard, and Danny was quickly complying. His natural instincts made him know that his grandmother liked rough sex, and he was eager to give it to her. They were both soon covered in perspiration, their sex-sweat comingling. Danny was now feeling an incredible pressure in his balls, that desperate need for release. It was a feeling he would soon be getting used to. All he knew is that he would have to cum soon. He didn't know whether he was ready to man up and cum in his grandma's pussy. But his grandma realized his indecision, and like a good mother, made the decision for him. She wrapped her legs around his thighs and placed both of her hands on his ass, holding him in place. He knew earlier she had talked about him getting her pregnant, but he didn't know if she was serious about it. Report_Story #5 
+ Danny was following his instincts on how to fuck a woman. Luckily, his instincts matched up perfectly with the way mature women like to be fucked. He pulled out to the tip before driving back into her again, his balls slapping against her ass as he did so. His cock was soon coated in his grandmother's juices. Janice's let hand reach down to palm her grandson's bare ass as he pounded her, assisting him in making the fuck as hard as possible. Janice, like most older women, liked her sex hard, and Danny was quickly complying. His natural instincts made him know that his grandmother liked rough sex, and he was eager to give it to her. They were both soon covered in perspiration, their sex-sweat comingling. Danny was now feeling an incredible pressure in his balls, that desperate need for release. It was a feeling he would soon be getting used to. All he knew is that he would have to cum soon. He didn't know whether he was ready to man up and cum in his grandma's pussy. But his grandma realized his indecision, and like a good mother, made the decision for him. She wrapped her legs around his thighs and placed both of her hands on his ass, holding him in place. He knew earlier she had talked about him getting her pregnant, but he didn't know if she was serious about it.  
 
  
 
@@ -1482,7 +1482,7 @@
 
  "Why are you doing this? What happened to you?" LeAnn asked. 
 
- "I met someone else. Someone who gave me what I always wanted: pussy. She didn't give a shit about crappy art. All she had to do was offer me her pussy. And I took it. And it was worth it. It's so good. So much better than that art of yours. That's what it takes to hold onto a man. Tight fucking pussy and huge tits. Not shitty art." Danny said, bashing his now ex fiancée. Report_Story #6 
+ "I met someone else. Someone who gave me what I always wanted: pussy. She didn't give a shit about crappy art. All she had to do was offer me her pussy. And I took it. And it was worth it. It's so good. So much better than that art of yours. That's what it takes to hold onto a man. Tight fucking pussy and huge tits. Not shitty art." Danny said, bashing his now ex fiancée.  
 
  
 

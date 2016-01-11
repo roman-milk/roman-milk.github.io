@@ -174,7 +174,7 @@
 
  Her smile actually got bigger, as she promised, so sure of herself, "Oh, my cute little pet, once you have tasted my cunt, you will be addicted and do almost anything for the privilege to savour my sweet nectar again and again." 
 
- Her confident demeanour was seductive in an inexplicable way, and I just sat beside her speechless at her expectations and her predictions. Report_Story #2 
+ Her confident demeanour was seductive in an inexplicable way, and I just sat beside her speechless at her expectations and her predictions.  
 
  
 

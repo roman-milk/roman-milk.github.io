@@ -184,7 +184,7 @@
 
  "I want a divorce." 
 
- It wasn't a shock. I knew it would be coming, but I hadn't expected it quite that soon. Report_Story #2 
+ It wasn't a shock. I knew it would be coming, but I hadn't expected it quite that soon.  
 
  
 
@@ -416,7 +416,7 @@
 
  "Save me a good cell." 
 
- +++++++++++++++ Report_Story #3 
+ +++++++++++++++  
 
  
 
@@ -452,7 +452,7 @@
 
  "Because you fucked me Elaine. Because you broke the agreement we made when we sat down at the kitchen table to figure out who would get what. I told you the night you stuck me with that restraining order and closed the door in my face to remember that you were the one who fucked things up. Now you can live with it. Goodbye Elaine." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -678,7 +678,7 @@
 
  "I yam what I yam and that's all that I yam." 
 
- Then one Tuesday night after I'd been sitting at the bar for about an hour Karen put a fresh PBR in front of me and then said: Report_Story #2 
+ Then one Tuesday night after I'd been sitting at the bar for about an hour Karen put a fresh PBR in front of me and then said:  
 
  
 
@@ -788,7 +788,7 @@
 
  I called Karen's number eleven times over the next two days and got her answering machine each time. I left messages, but Karen never called me back. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -896,7 +896,7 @@
 
  When I left her apartment in the morning I gave her one last kiss and wished her good luck in finding "Mr. Right" and then I headed for work. As I drove I wondered if I was ever going to find a "Miss Right" and then remembering my two marriages I wondered if I even wanted to. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1186,7 +1186,7 @@
 
  "Again I have to ask an earlier question -- why me?" 
 
- "Luck of the draw. Like I said, we have talked about it for months and with Gary out of town on business we decided this would be the night to go for it. We hadn't intended it to be anyone from Riley's. We just stopped in to get some liquid courage before going to a lounge on the other side of town. When we saw you we decided that you would be perfect for what we wanted. We needed someone who wouldn't talk about it and Susan knew from Leslie that you didn't talk about what you did so here we are." Report_Story #2 
+ "Luck of the draw. Like I said, we have talked about it for months and with Gary out of town on business we decided this would be the night to go for it. We hadn't intended it to be anyone from Riley's. We just stopped in to get some liquid courage before going to a lounge on the other side of town. When we saw you we decided that you would be perfect for what we wanted. We needed someone who wouldn't talk about it and Susan knew from Leslie that you didn't talk about what you did so here we are."  
 
  
 
@@ -1286,7 +1286,7 @@
 
  As I drove to work I wondered if I'd found my replacement for Betsy. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1612,7 +1612,7 @@
 
  "Maybe later. Right now you need to dance with Suze." 
 
- I offered Susan my arm and we moved out onto the dance floor. The juke box was playing a slow tune and as we swayed across the floor Susan said: Report_Story #2 
+ I offered Susan my arm and we moved out onto the dance floor. The juke box was playing a slow tune and as we swayed across the floor Susan said:  
 
  
 
@@ -1652,7 +1652,7 @@
 
  "We have a warrant for your arrest on a charge of failure to appear." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1914,7 +1914,7 @@
 
  I looked at Gary and he smiled and said, "You are the guest so you get to choose." 
 
- Report_Story #2 
+  
 
  
 
@@ -1950,7 +1950,7 @@
 
  I walked out of the room to the sound of flesh smacking flesh and Susan moaning. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -2228,7 +2228,7 @@
 
  She smiled at me and got out of the car and as she was getting in her car I saw Candy come out of the bar and as she walked to her car she looked at me and made the "shame, shame" sign with her fingers and then she got in her car and drove off. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2484,7 +2484,7 @@
 
  On the theory that "all work and no play makes Rob a dull boy" I stopped at Riley's after work on Friday. As always seemed to be the case the first one I saw when I walked in was Candy and she gave me a smile and a "Where have you been stranger?" I told her that I was cutting way back on my drinking and she said, "Good for you." 
 
- I joined the group at the tables and about fifteen minutes after I sat down Marge and Susan came in. They took a booth and out of the corner of my eye I kept a watch on them. They kept looking over at our table as if expecting me to get up and come over, but I just sipped my PBR and talked to the people at the table. The live band came in and began setting up and Nancy leaned over the table and said: Report_Story #2 
+ I joined the group at the tables and about fifteen minutes after I sat down Marge and Susan came in. They took a booth and out of the corner of my eye I kept a watch on them. They kept looking over at our table as if expecting me to get up and come over, but I just sipped my PBR and talked to the people at the table. The live band came in and began setting up and Nancy leaned over the table and said:  
 
  
 
@@ -2566,7 +2566,7 @@
 
  "Please call me Rob. It is important that I talk with you. Please Rob, call me." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -2830,7 +2830,7 @@
 
  "I told Jerry about our agreement and that is how I wanted it handled. I was surprised when he did it different, but he said he had to do it that way because of the way the divorce laws were written. What did I know? Jerry was the lawyer and he knew the law so I listened to him. I'm sorry for the way things turned out Rob. I never meant for it to be that way." 
 
- "You should have told me Elaine. I probably would have said something like it was what you deserved for getting involved with that bunch, but I never would have thrown you out. You had never lied to me that I knew of so I would have believed you when you told me what had happened. I loved you Elaine and even though we were divorced I still loved you. It wouldn't even have been impossible for us to have gotten back together up until three weeks ago." Report_Story #2 
+ "You should have told me Elaine. I probably would have said something like it was what you deserved for getting involved with that bunch, but I never would have thrown you out. You had never lied to me that I knew of so I would have believed you when you told me what had happened. I loved you Elaine and even though we were divorced I still loved you. It wouldn't even have been impossible for us to have gotten back together up until three weeks ago."  
 
  
 

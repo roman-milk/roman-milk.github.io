@@ -256,7 +256,7 @@
 
  From the film Miranda knew where the instrument of torture, Geraldine's black dildo, was. "Lick it, that's a good girl. Suck on it, get it all nice and wet, good girl," Miranda cooed at her, as though she were a simpleton or she was steadying a nervous pet. 
 
- Pulling it from between the woman's lips she noticed how hard it was held, with her mouth creating a powerful suction. The woman knew what was coming next and didn't want to let it go. Well, too bad, she was in for it now. Report_Story #2 
+ Pulling it from between the woman's lips she noticed how hard it was held, with her mouth creating a powerful suction. The woman knew what was coming next and didn't want to let it go. Well, too bad, she was in for it now.  
 
  
 
@@ -280,7 +280,7 @@
 
  "You may have thought of yourself as a mature responsible woman but today you become my bitch, Susie. I'm going to teach you all sorts of tricks, my little pet," she whispered close in her ear. 
 
- "Thank you, miss," Geraldine answered dutifully. Report_Story #1 
+ "Thank you, miss," Geraldine answered dutifully.  
 
  
 
@@ -438,7 +438,7 @@
 
  Geraldine took a deep breath. However undignified it was she had no choice but give in to the despicable girl. "Susie will obey mistress, Susie promises, anything mistress wants Susie will do, honest, mistress," Geraldine whimpered from the humiliation of it. In a gush of words she attempted to convince Miranda of her sincerity to avoid anyone finding out the dreadful secret. 
 
- Geraldine pushed Miranda's legs apart to lick at her pussy, while looking up at her mistress, hoping for approval. "Alright you silly little thing, go on, pleasure your mistress," Miranda smiled. Report_Story #2 
+ Geraldine pushed Miranda's legs apart to lick at her pussy, while looking up at her mistress, hoping for approval. "Alright you silly little thing, go on, pleasure your mistress," Miranda smiled.  
 
  
 
@@ -474,7 +474,7 @@
 
  
 
- Miranda had a big happy smile on her face. This had gone well beyond the intended bit of blackmail intended. Instead she had this rich woman so well trained she had become a pet-girl. The woman was slightly shorter than her but calling her a little pet-girl and watching the face cringe in an agony of humiliation was so very entertaining. Though now she was accepting the abuse, showing less of a reaction, and that called for more degrading acts to keep her in her place. Report_Story #1 
+ Miranda had a big happy smile on her face. This had gone well beyond the intended bit of blackmail intended. Instead she had this rich woman so well trained she had become a pet-girl. The woman was slightly shorter than her but calling her a little pet-girl and watching the face cringe in an agony of humiliation was so very entertaining. Though now she was accepting the abuse, showing less of a reaction, and that called for more degrading acts to keep her in her place.  
 
  
 
@@ -666,7 +666,7 @@
 
  Geraldine felt the two pairs of hands all over her body, fingers exploring everywhere. She didn't withdraw from the touching; rather, she found it soothing to the point of wagging a non-existent tail. 
 
- The little drama left Miranda thinking about what she might do with the woman in the future, for she couldn't just keep her forever. Could she train the pet so completely it would think of itself as a slave? A slave was just an object wasn't it? You could do anything you liked with an object you owned, and that object would simply accept whatever you wanted to do with it. Once that happened it could accept being sold. Report_Story #2 
+ The little drama left Miranda thinking about what she might do with the woman in the future, for she couldn't just keep her forever. Could she train the pet so completely it would think of itself as a slave? A slave was just an object wasn't it? You could do anything you liked with an object you owned, and that object would simply accept whatever you wanted to do with it. Once that happened it could accept being sold.  
 
  
 
@@ -686,7 +686,7 @@
 
  A small part of her was disappointed she was being driven home to her husband and the usual boring existence. 
 
- Geraldine dropped her body into the car as opposed to sliding in gracefully. She had always been in control, holding her body elegantly, holding her head high and holding back from life. Now she felt lithe and snake like, wanting to purr, feeling sexually awake, at last. She felt an awakening to her sexuality, after being asleep all these years, and just now becoming alive. Report_Story #1 
+ Geraldine dropped her body into the car as opposed to sliding in gracefully. She had always been in control, holding her body elegantly, holding her head high and holding back from life. Now she felt lithe and snake like, wanting to purr, feeling sexually awake, at last. She felt an awakening to her sexuality, after being asleep all these years, and just now becoming alive.  
 
  
 
@@ -878,7 +878,7 @@
 
  Lifting the sheet, Miranda signalled to her little pet puppy-girl with a crooked finger, still unable to talk. She patted her breast for the woman to lay her head there. She stroked her hair, making soothing noises. "Little pet puppy-girl did well. Mistress is very pleased with her little pet," she cooed. 
 
- Geraldine smiled up at her mistress. She no longer felt pathetic. Her mistress was so pleased with her she was letting her sleep in the bed. She suckled on her mistress's breast contentedly, till falling asleep. Report_Story #1 
+ Geraldine smiled up at her mistress. She no longer felt pathetic. Her mistress was so pleased with her she was letting her sleep in the bed. She suckled on her mistress's breast contentedly, till falling asleep.  
 
  
 
@@ -1106,7 +1106,7 @@
 
  Miranda stood watching for a moment in the doorway. He wasn't bothering to try out a demeaning trick; he just continued stroking her tummy with a hand circling wider and wider over her body. 
 
- Geraldine looked at her with a pleading look in her eyes. She was used to submitting to her mistress but this was deplorable. How could her mistress leave her in the hands of the gardener like this? There was no-way she could just stop pretending to be hypnotised, after humiliating herself before them both. Report_Story #2 
+ Geraldine looked at her with a pleading look in her eyes. She was used to submitting to her mistress but this was deplorable. How could her mistress leave her in the hands of the gardener like this? There was no-way she could just stop pretending to be hypnotised, after humiliating herself before them both.  
 
  
 
@@ -1250,7 +1250,7 @@
 
  From the moment Geraldine realised her husband wasn't coming back it was accepted there would be no rescue, and no escape. There seemed no alternative to accepting the young girl as her mistress, for she needed looking after, needed controlling. 
 
- From that moment she relied upon her more and more. All she had to do was obey and everything was taken care of. All the worries of life melted away, leaving her a contented little puppy-girl, devoted to her mistress. She settled down in her role as a submissive puppy-girl, happily wagging her tail in the presence of her wonderful mistress, wanting nothing more than to be her obedient little pet. Report_Story #1 
+ From that moment she relied upon her more and more. All she had to do was obey and everything was taken care of. All the worries of life melted away, leaving her a contented little puppy-girl, devoted to her mistress. She settled down in her role as a submissive puppy-girl, happily wagging her tail in the presence of her wonderful mistress, wanting nothing more than to be her obedient little pet.  
 
  
 
@@ -1452,7 +1452,7 @@
 
  She watched the tentative touching of lips. Feebie's full luscious lips touched and pulled away from pet-girls open mouth. Another anxious press of lips found their tongues lightly flickering together. Soon the nervous embrace became established, looking permanent, with fervent kisses mirroring the faces, peck for peck. 
 
- Heavy breaths whispered between them as they devoured each others tongues, lips, noses, chins, eyes, and throat. Tongues flickered over each others faces as they became desperately passionate in a tight embrace. Report_Story #2 
+ Heavy breaths whispered between them as they devoured each others tongues, lips, noses, chins, eyes, and throat. Tongues flickered over each others faces as they became desperately passionate in a tight embrace.  
 
  
 
@@ -1486,7 +1486,7 @@
 
  "Keep going, your mistress is nearly there," Miranda cried out. 
 
- Looking at pet sucking on her nipple, with a hand to the other she sighed. She couldn't see the slave but felt every lick and suck upon her needful pussy. Miranda arched her back forcing her sex upon the extended tongue probing her and cum, to luxuriate in the throws of a deep orgasm. Report_Story #1 
+ Looking at pet sucking on her nipple, with a hand to the other she sighed. She couldn't see the slave but felt every lick and suck upon her needful pussy. Miranda arched her back forcing her sex upon the extended tongue probing her and cum, to luxuriate in the throws of a deep orgasm.  
 
  
 
@@ -1698,7 +1698,7 @@
 
  "Now listen carefully, puppy-girl. There are lots of people who want to look after such a lovely pet, for a couple of days, so they will offer money for the privilege. You must behave yourself and not let me down. Don't whine or make a fuss, just like when we go to a club. I'll be watching out for you. This is all just another game for puppy-girl to enjoy, so don't worry your silly little head over it. OK? Just do as you are told, behave yourself, make me proud of you," Miranda firmly warned her. 
 
- "Yes mistress," Geraldine replied, in a yappy little voice. Report_Story #2 
+ "Yes mistress," Geraldine replied, in a yappy little voice.  
 
  
 
@@ -1758,7 +1758,7 @@
 
  "Don't shake your head. You've got to help me get in there, please! I've got to tell them I'm sorry and take them home," Miranda cried. "I love them both so much, I'll die without them," she said, with honesty and feeling shaking her body. 
 
- "Sure, I should have guessed. Of course I'll help. It won't be easy though, once the papers are signed that's it," Kate said, and wrapped her arms around the hurt and angry Miranda. Report_Story #1 
+ "Sure, I should have guessed. Of course I'll help. It won't be easy though, once the papers are signed that's it," Kate said, and wrapped her arms around the hurt and angry Miranda.  
 
  
 
@@ -1926,7 +1926,7 @@
 
  He was taking a liberty and a bit of a chance. If the husband didn't keep bidding, someone else would win the lot, and be expecting to take the man's wife home, as a slave. It could produce an awkward situation when he came to collect his lot. The auctioneer quickly looked down the list, to check the man's credit rating. They were well within his limit. 
 
- The only concern now was if he walked away, to inform the office of the intentional mistake. Surely he wouldn't be so stupid as to leave the room, and let his wife end up being won by a stranger. He looked at the young woman, which brought the bidders attention back to her. It was a subtle, but worthwhile ploy. Especially as he gave her a longing look, as though to say, 'I would, if I could afford it'. Report_Story #2 
+ The only concern now was if he walked away, to inform the office of the intentional mistake. Surely he wouldn't be so stupid as to leave the room, and let his wife end up being won by a stranger. He looked at the young woman, which brought the bidders attention back to her. It was a subtle, but worthwhile ploy. Especially as he gave her a longing look, as though to say, 'I would, if I could afford it'.  
 
  
 
@@ -1996,7 +1996,7 @@
 
  "The bitch bit me," he complained to Jane. "No, this one on the leash," he pointed out. The older woman, on all fours, was growling and yapping. She had a basket like muzzle over her face. 
 
- Janet had help with loading them into her van after all. The security men wanted the lots quickly out of the way. Attention from anyone could mean trouble. With all three slaves tucked away in cages, Janet drove away into the night. Report_Story #1 
+ Janet had help with loading them into her van after all. The security men wanted the lots quickly out of the way. Attention from anyone could mean trouble. With all three slaves tucked away in cages, Janet drove away into the night.  
 
  
 
@@ -2200,7 +2200,7 @@
 
  "OK guys, we'll look the place over, you take the back, I'll try the front. Look out for alarms and cameras. Note where they are, and what they cover," John told his friends. 
 
- Walking into the garage he looked the vehicles over. Trying a handle, he was surprised to find the garage and kitchen connecting door unlocked. Cautiously he pushed it open, to find the lights on. He scratched his head, wondering what had made Janet flee in such a hurry. No one knew what they were up to. Brandi and Kelly certainly wouldn't have warned her. Cindy didn't know of their plan, and would have encouraged them if she had. Report_Story #2 
+ Walking into the garage he looked the vehicles over. Trying a handle, he was surprised to find the garage and kitchen connecting door unlocked. Cautiously he pushed it open, to find the lights on. He scratched his head, wondering what had made Janet flee in such a hurry. No one knew what they were up to. Brandi and Kelly certainly wouldn't have warned her. Cindy didn't know of their plan, and would have encouraged them if she had.  
 
  
 

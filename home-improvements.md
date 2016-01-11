@@ -156,7 +156,7 @@
 
  The muffled moans and groans from Marisa grew more urgent sounding as Rick licked at her clit. He was using his index finger to massage the inside of Marisa's body, and was rimming the outside edge of Marisa's now oozing opening alternately. 
 
- Marisa's own broad, feminine hips began to lift from the wooden table and jerk convulsively. 'Come on Mrs Conrad,' Rick urged. 'I want you to come for me.' He lapped at Marisa again and then continued, 'you pretend to be so high and mighty. Here... in your big house.' He slurped at Marisa again. 'But really... you're just a slut.' He fingered Marisa's cunt with two fingers now and went on. 'Look at you. Naked. Outdoors. My friend's cock in your mouth, my spunk drying on your face, and you're just about to cum on my fingers and face.' Rick slid his juicy fingers into Marisa's cunt as she dribbled her juices liberally onto his hand. Her slick wetness was oozing down the crack of her ass as Marisa's excitement trickled from her. Report_Story #2 
+ Marisa's own broad, feminine hips began to lift from the wooden table and jerk convulsively. 'Come on Mrs Conrad,' Rick urged. 'I want you to come for me.' He lapped at Marisa again and then continued, 'you pretend to be so high and mighty. Here... in your big house.' He slurped at Marisa again. 'But really... you're just a slut.' He fingered Marisa's cunt with two fingers now and went on. 'Look at you. Naked. Outdoors. My friend's cock in your mouth, my spunk drying on your face, and you're just about to cum on my fingers and face.' Rick slid his juicy fingers into Marisa's cunt as she dribbled her juices liberally onto his hand. Her slick wetness was oozing down the crack of her ass as Marisa's excitement trickled from her.  
 
  
 

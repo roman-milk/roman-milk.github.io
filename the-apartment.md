@@ -164,7 +164,7 @@
 
  A voice spoke from the bedroom: "Perhaps I should go and see how my son's doing?" 
 
- Alexandra smiled at her mother as she appeared in the doorway. The woman lifted a camera to her eye. Alexandra closed her eyes against the glare of the flash and wondered how soon it would be before an album featuring Daniel and his mother was added to the collection. Then, all thought left her as she surrendered to the sensations between her legs. Report_Story #1 
+ Alexandra smiled at her mother as she appeared in the doorway. The woman lifted a camera to her eye. Alexandra closed her eyes against the glare of the flash and wondered how soon it would be before an album featuring Daniel and his mother was added to the collection. Then, all thought left her as she surrendered to the sensations between her legs.  
 
  
 
@@ -390,13 +390,13 @@
 
  The sensation of being filled with her son's seed sent Helen over the precipice, and she surrendered herself to the roar of white noise that filled her hearing. Her body convulsed and twitched with the jolt of her climax, until, finally, with Daniel draped heavily across her body, Helen's senses returned. 
 
- "Mum," Daniel mumbled. "What have we done?" Report_Story #2 
+ "Mum," Daniel mumbled. "What have we done?"  
 
  
 
  ****** The Apartment Ch. 02 ****** bygeronimo_appleby© "Don't worry, darling," Helen soothed her son and stroked his hair. "You'll see. Everything will be OK." 
 
- Helen smiled secretly. Aunt Susan is flying in tomorrow, Daniel, she thought. Report_Story #1 
+ Helen smiled secretly. Aunt Susan is flying in tomorrow, Daniel, she thought.  
 
  
 
@@ -600,7 +600,7 @@
 
  "Take it out, Danny," she ordered. "Quick, pull it out and come on her. You can put it straight back in. You'll be stiff for hours!" 
 
- Daniel gulped and his eyes rolled in his head. "Oh shit..." he hissed but still managed to pull clear of Susan's opening just as the first spurt gushed from the eye of his cock. Report_Story #2 
+ Daniel gulped and his eyes rolled in his head. "Oh shit..." he hissed but still managed to pull clear of Susan's opening just as the first spurt gushed from the eye of his cock.  
 
  
 
@@ -624,7 +624,7 @@
 
  And then her climax burst out of her. 
 
- Susan, through the mists of her climax heard her sister say: "She's come Danny. Leave her alone for a few minutes. Come here and let mummy ride your big cock until she's ready to go again. Report_Story #1 
+ Susan, through the mists of her climax heard her sister say: "She's come Danny. Leave her alone for a few minutes. Come here and let mummy ride your big cock until she's ready to go again.  
 
  
 

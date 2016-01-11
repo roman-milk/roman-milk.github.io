@@ -126,7 +126,7 @@
 
  My tongue squirmed deep into her rectum after I splayed the girl's cheeks with my thumbs and got at the tight and puckered dot. She blurted a sob and babbled about what I was doing to her being lovely, dirty, and so fuckin' mucky ... 
 
- Primordial urges surged through me. I wanted to unzip my jeans and just plunge my cock into the scarlet core of her sex. Instead, somehow controlling myself, I used first a forefinger and then its neighbouring middle digit inside the heat of her opening. Wriggling and curling the fingers I hefted myself to a crouch as I traced a snail trail of licks and butterfly kisses along the track of the girl's spine. At her neck, as she lowered her head in an attitude of prayer and exposed the vulnerable nape to me, I grazed my teeth over the skin before taking a vampiric, and what would prove to be evidential, taste. Report_Story #2 
+ Primordial urges surged through me. I wanted to unzip my jeans and just plunge my cock into the scarlet core of her sex. Instead, somehow controlling myself, I used first a forefinger and then its neighbouring middle digit inside the heat of her opening. Wriggling and curling the fingers I hefted myself to a crouch as I traced a snail trail of licks and butterfly kisses along the track of the girl's spine. At her neck, as she lowered her head in an attitude of prayer and exposed the vulnerable nape to me, I grazed my teeth over the skin before taking a vampiric, and what would prove to be evidential, taste.  
 
  
 
@@ -262,7 +262,7 @@
 
  A look in the mirror at her reflection told me how worked up she was now. I could see it in her eyes, the twist of her lips, the sneer of desire that so closely resembled hate. Her ardour infected me and I pushed into the sodden heat of her while I forced her face around as far as I could make her by cupping her chin in my hand and digging my fingers into her cheeks. 
 
- "Kiss me, you common little scrubber," I grunted. "Kiss me while I use your slippery cunt for sex." The girl groaned into my mouth and she began to push back onto my probing erection. I released her face and the girl gasped as her head fell forward and her hands squeaked down the mirrored surface of the wardrobe door. Report_Story #3 
+ "Kiss me, you common little scrubber," I grunted. "Kiss me while I use your slippery cunt for sex." The girl groaned into my mouth and she began to push back onto my probing erection. I released her face and the girl gasped as her head fell forward and her hands squeaked down the mirrored surface of the wardrobe door.  
 
  
 

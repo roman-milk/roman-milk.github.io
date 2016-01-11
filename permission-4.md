@@ -268,7 +268,7 @@
 
  "Where were you" she asked as she got into the car. I told her what had happened and then asked her what had happened. 
 
- "We were almost at the door and you weren't anywhere around so I told him that I had to make a quick trip to the ladies room before we left. And then I described you to one of the waitresses and told her to tell you to wait in the car for me." Report_Story #2 
+ "We were almost at the door and you weren't anywhere around so I told him that I had to make a quick trip to the ladies room before we left. And then I described you to one of the waitresses and told her to tell you to wait in the car for me."  
 
  
 
@@ -478,7 +478,7 @@
 
  "You said it wa..." 
 
- "I said shut up Kathy. One more word out of you and I'll push you out the door right behind him and you can follow him to that apartment that you really, really wanted to go to." Report_Story #3 
+ "I said shut up Kathy. One more word out of you and I'll push you out the door right behind him and you can follow him to that apartment that you really, really wanted to go to."  
 
  
 

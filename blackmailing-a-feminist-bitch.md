@@ -270,7 +270,7 @@
 
  "Have you already fucked your father today?" Jasmine asked. 
 
- "Not in my cunt," Mercedes answered with a pout, the mother-daughter conversation not like most in the country. Report_Story #2 
+ "Not in my cunt," Mercedes answered with a pout, the mother-daughter conversation not like most in the country.  
 
  
 
@@ -560,7 +560,7 @@
 
  Meanwhile, Silky Sin was playing their song "School Girl Twirl" as a warm-up to get the crowd in a frenzy. 
 
- Dressed in a school-girl outfit that would give her conservative mother a coronary, Sarah was led to the back of the stage out of view. Report_Story #3 
+ Dressed in a school-girl outfit that would give her conservative mother a coronary, Sarah was led to the back of the stage out of view.  
 
  
 
@@ -922,7 +922,7 @@
 
  Her body felt like it was overheating, an uncontrollable desire to give in to her lustful sin impossible to deny. "Yes," Mary admitted, agreeing to being sodomized, a shame coursing through her answer even as she awaited the act. 
 
- Walker warned, "Here it comes," and slid his cock inside her incredibly tight ass. Report_Story #4 
+ Walker warned, "Here it comes," and slid his cock inside her incredibly tight ass.  
 
  
 
@@ -1296,7 +1296,7 @@
 
  The pain still was there, but the longer he fucked her ass, the more a slight pleasure built in her. 
 
- Having already come, Carl could fuck her for an eternity, and he planned to. Report_Story #5 
+ Having already come, Carl could fuck her for an eternity, and he planned to.  
 
  
 

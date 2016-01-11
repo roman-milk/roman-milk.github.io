@@ -234,7 +234,7 @@
 
  "Maybe if you were naked too..." she said and started to push my underwear down. Madison slid them to my ankles and I stepped out of them, leaving her squatting before me with my cock bobbing in her face. She grasped the base of my shaft and brought my head forward to take me into her mouth. As I felt her soft tongue slide back along the tender underside of my grateful dick I moaned loudly. The girl knew how to suck. 
 
- I still had a healthy handful of sunscreen so I began to rub it into her shoulders and down her back as far as I could reach without disturbing the rhythm of what was turning out to be a very excellent blow job. But finally she released me from her mouth and straightened up a little on her knees. She reached up to take my hands and guide them to her tits. "Don't forget to get these covered," she said with mock earnestness. I obliged, massaging her breasts with gusto. They were about C cups I guessed, perfect for... well, I forced them together, slid my cock into the slick crevice of her cleavage and began to pump a slow tit fuck on my erstwhile student. Report_Story #2 
+ I still had a healthy handful of sunscreen so I began to rub it into her shoulders and down her back as far as I could reach without disturbing the rhythm of what was turning out to be a very excellent blow job. But finally she released me from her mouth and straightened up a little on her knees. She reached up to take my hands and guide them to her tits. "Don't forget to get these covered," she said with mock earnestness. I obliged, massaging her breasts with gusto. They were about C cups I guessed, perfect for... well, I forced them together, slid my cock into the slick crevice of her cleavage and began to pump a slow tit fuck on my erstwhile student.  
 
  
 
@@ -438,7 +438,7 @@
 
  And I did; slapping a vigorous fuck into her pussy from behind as Madison worked her from below. With my cock pumping in and out of Mimi's hot, wet pussy and Madison's tongue occasionally flicking at my shaft or licking my balls I was getting very close to coming, but I held back. I wanted Mimi to finish first for the same reason I always prefer a woman to come before me; so I don't feel obliged to spend long minutes finger-banging and licking my partner to a belated climax after my lust has already dissipated. However, with Mimi there was another dimension: I was actually a little afraid to leave her unsatisfied. Something about her gave me the creeps. 
 
- Fortunately, I could feel that Mimi was stampeding towards the finish line. Her body grew tense in my hands as I hung onto her waist. She was a swearer; gushing out a string of imaginative expletives as she bucked back into my cock with the on-rush of her climax. As she came she was slamming back onto my dick so hard that I had to throw a leg back to catch myself as I slipped backwards off the futon and out of her pussy. Report_Story #3 
+ Fortunately, I could feel that Mimi was stampeding towards the finish line. Her body grew tense in my hands as I hung onto her waist. She was a swearer; gushing out a string of imaginative expletives as she bucked back into my cock with the on-rush of her climax. As she came she was slamming back onto my dick so hard that I had to throw a leg back to catch myself as I slipped backwards off the futon and out of her pussy.  
 
  
 
@@ -466,7 +466,7 @@
 
  Part 2 will be coming soon... 
 
- -fastandsloppy Report_Story #1 
+ -fastandsloppy  
 
  
 
@@ -702,7 +702,7 @@
 
  I was nervous as hell as I took my shower. Should I really do this? Would I be ableto? I didn't find either Sally or Hafsa very sexually enticing and besides, I'd already ejaculated twice that afternoon. And then there was the morality of boffing two eighteen year old virgins. It wastheir idea and I was only twenty two years old myself, but it still seemed sleazy as all hell. However, for whatever reason, like a climber climbing a mountain or a runner running a marathon, I forged ahead; pushed onward by nothing more than the desire to see if I could fuck four females in a single day. I mean, when else would I get a chance like this? So, there I stood: washing my dick until the drug started to kick in and it began to grow unnaturally firm. I was ready. 
 
- I wrapped a towel around my waist, but my pharmaceutically enhanced erection made a telltale vertical tent over my crotch. So, I decided to dispense with the misplaced modesty and threw the towel back over the shower rod. Steeling myself for the task at hand, I walked out of the bathroom and down the hall completely naked; the fat, bobbing head of my attentive manhood preceding me by seven and a half veiny inches. Report_Story #2 
+ I wrapped a towel around my waist, but my pharmaceutically enhanced erection made a telltale vertical tent over my crotch. So, I decided to dispense with the misplaced modesty and threw the towel back over the shower rod. Steeling myself for the task at hand, I walked out of the bathroom and down the hall completely naked; the fat, bobbing head of my attentive manhood preceding me by seven and a half veiny inches.  
 
  
 
@@ -890,7 +890,7 @@
 
  Part 3 will be coming soon... 
 
- -fastandsloppy Report_Story #1 
+ -fastandsloppy  
 
  
 
@@ -1128,7 +1128,7 @@
 
  "I'm tired of listening to his questions. Madison, gag him." 
 
- Mimi handed Madison a ball gag on a black leather strap as Lila looked on and chuckled quietly to herself. Still looking at me with wide eyes and a knitted brow Madison leaned in to place the ball into my mouth and wrap the strap around my head. Her lovely breasts brushed my face as he did so and I felt my cock stir slightly. Report_Story #2 
+ Mimi handed Madison a ball gag on a black leather strap as Lila looked on and chuckled quietly to herself. Still looking at me with wide eyes and a knitted brow Madison leaned in to place the ball into my mouth and wrap the strap around my head. Her lovely breasts brushed my face as he did so and I felt my cock stir slightly.  
 
  
 
@@ -1212,7 +1212,7 @@
 
  Part 4 will be coming soon... 
 
- -fastandsloppy Report_Story #1 
+ -fastandsloppy  
 
  
 
@@ -1420,7 +1420,7 @@
 
  And that's when Tom Scofield's yellow Mustang turned a corner about a hundred yards away. He spotted us and skidded to a stop in front of Madison's Porsche. When Tom, Cody and Harris, the same three goons that had tried to rape Madison a couple of days earlier, started getting out of Tom's car, Madison threw her transmission in reverse and backed down the street at full speed. Tom was soon following. 
 
- They chased us around the side streets and we careened around town at horrific speeds. When an Escalade with three more of Tom's football buddies joined in the chase it started to get really dangerous. We and our pursuers were jumping curbs and cutting corners across folks' lawns. We sideswiped parked cars, threw up low clouds of sparks as we hit dips and bumps at ridiculous speeds and tore the hell out of Franklin Park as we tried to shake our followers by swinging a series of one hundred and eighty degree arcs across the grass. Thanks God there weren't many people out so early on a Sunday or we would've probably killed someone. Report_Story #2 
+ They chased us around the side streets and we careened around town at horrific speeds. When an Escalade with three more of Tom's football buddies joined in the chase it started to get really dangerous. We and our pursuers were jumping curbs and cutting corners across folks' lawns. We sideswiped parked cars, threw up low clouds of sparks as we hit dips and bumps at ridiculous speeds and tore the hell out of Franklin Park as we tried to shake our followers by swinging a series of one hundred and eighty degree arcs across the grass. Thanks God there weren't many people out so early on a Sunday or we would've probably killed someone.  
 
  
 
@@ -1590,7 +1590,7 @@
 
  *** 
 
- Thank you for reading. Comments, complaints, suggestions, threats, praise, damnation, accolades and opprobrium are all welcomed and encouraged. Report_Story #3 
+ Thank you for reading. Comments, complaints, suggestions, threats, praise, damnation, accolades and opprobrium are all welcomed and encouraged.  
 
  
 

@@ -142,7 +142,7 @@
 
  As she leaned forward to take the bottle, her towel fell open giving everyone paying attention, and Dan in particular, a full on view of her chest. She set the bottle down on the table, re-did her towel, and grabbed the bottle again. "Didn't I tell you?" she told Dan who gave her a smile. It was his first smile in a while. 
 
- "I'm glad that we remembered to bring the booze," she said, before taking a healthy swig. Report_Story #2 
+ "I'm glad that we remembered to bring the booze," she said, before taking a healthy swig.  
 
  
 
@@ -308,7 +308,7 @@
 
  We could see Dan at work with a gas weed-whacker down near the waterline. The path down had a decent slope to it, but not enough to make the walk difficult. The path was stone and looked as old as everything else, and just as solid. There was grass, real Bermuda grass, for about 10' on each side of the walk, and then a stretch of 5 feet of plain dirt to the side of that, then more grass. It looked odd. 
 
- "Dan does that to keep everything else from overgrowing the grass. I think its overkill. He sprays a couple of gallons of Roundup on it every couple of months all summer. I figure it can't be good for the environment." Report_Story #3 
+ "Dan does that to keep everything else from overgrowing the grass. I think its overkill. He sprays a couple of gallons of Roundup on it every couple of months all summer. I figure it can't be good for the environment."  
 
  
 
@@ -490,7 +490,7 @@
 
  She cast her head down in mock shame. "Oh you cruel, vicious man! How can I ever look my friends in the eye again? How can I be in the same room as you, knowing you've had me, and may do it again, should I ever be alone with you?" 
 
- I played along. I grabbed her chin and pulled her face up. "Head up, wench. You're mine now. Any common skirt like you should be happy, nay, proud to be claimed. I will have you again, when we're alone and perhaps when we're not. You'll deny me nothing!" I stuck my softened cock back in her mouth, feeling it harden as she looked at me anxiously, sucking on demand. Report_Story #4 
+ I played along. I grabbed her chin and pulled her face up. "Head up, wench. You're mine now. Any common skirt like you should be happy, nay, proud to be claimed. I will have you again, when we're alone and perhaps when we're not. You'll deny me nothing!" I stuck my softened cock back in her mouth, feeling it harden as she looked at me anxiously, sucking on demand.  
 
  
 
@@ -680,7 +680,7 @@
 
  We discussed a few different possibilities and made it as far as the big tree I'd cut down. 
 
- "Shit!" He looked over the logs carefully stacked on the side. "I should have known that sucker would fall some day. It had been leaning badly ever since I started coming up here over four years ago. That was a lot of work, I bet." He laughed, giving me a slug. "Better you than me!" Report_Story #5 
+ "Shit!" He looked over the logs carefully stacked on the side. "I should have known that sucker would fall some day. It had been leaning badly ever since I started coming up here over four years ago. That was a lot of work, I bet." He laughed, giving me a slug. "Better you than me!"  
 
  
 
@@ -946,7 +946,7 @@
 
  I caressed her hair while she licked me, and waited to see the outcome of the other conversations. I didn't have to wait long. 
 
- "Ladies? How about if you all move clockwise, and tell your new partner where you think the evening should go?" He smiled, looking directly at Sheri, eager to play. Report_Story #6 
+ "Ladies? How about if you all move clockwise, and tell your new partner where you think the evening should go?" He smiled, looking directly at Sheri, eager to play.  
 
  
 
@@ -1158,7 +1158,7 @@
 
  I caught my breath, and had a drink of water, before rejoining the crowd. Dan was tending the fireplace, and Jack was holding my wife in his lap, his hand between her legs, their faces together for an intimate kiss. I didn't need to worry about his recovery stamina, he was doing just fine. 
 
- As I stood, looking over my friends, Robin sidled up, wrapping her arms around me. "Is it time?" she asked, hesitantly. Report_Story #7 
+ As I stood, looking over my friends, Robin sidled up, wrapping her arms around me. "Is it time?" she asked, hesitantly.  
 
  
 
@@ -1382,7 +1382,7 @@
 
  The girls came traipsing along, discarding their clothing almost as soon as their feet hit the floor. All three of them. Then to my immediate disappointment they headed back inside the cabin. The beautiful natural scenery suddenly seemed pale in comparison. 
 
- Jack wandered over our way, with a contrite look on his face. "Hey Dan, sorry about the crap this morning. The combination of being hungover, and not getting enough sleep left me in a crappy mood, which was pretty ridiculous after last night. I just wanted to let you know I was sorry. The comment about Jill sticking around for you guys was uncalled for." Report_Story #8 
+ Jack wandered over our way, with a contrite look on his face. "Hey Dan, sorry about the crap this morning. The combination of being hungover, and not getting enough sleep left me in a crappy mood, which was pretty ridiculous after last night. I just wanted to let you know I was sorry. The comment about Jill sticking around for you guys was uncalled for."  
 
  
 

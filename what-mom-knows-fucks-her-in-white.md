@@ -376,7 +376,7 @@
 
  "We all deserve to be happy son, and I was never happier then when I was with Ellie," Mom said. 
 
- "Not even when I was born," I joked. Report_Story #2 
+ "Not even when I was born," I joked.  
 
  
 
@@ -780,7 +780,7 @@
 
  "I wasn't asking your opinion slut, fuck that bottle now," I firmly ordered. 
 
- Horny and defeated, Brittany ended her brief and futile defiance and moved to the bottle. Miranda, being the sweetheart she is, held the bottle in place as the bride slowly lowered herself on the long, thin neck of the bottle. Report_Story #3 
+ Horny and defeated, Brittany ended her brief and futile defiance and moved to the bottle. Miranda, being the sweetheart she is, held the bottle in place as the bride slowly lowered herself on the long, thin neck of the bottle.  
 
  
 

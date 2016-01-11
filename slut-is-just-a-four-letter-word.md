@@ -236,7 +236,7 @@
 
  "Brooke thinks she is so cool," he thought, angrily, "I would love to take her down a few pegs." He had to admit seeing her naked stirred his cock again. He'd seen her plenty of times before and was about tired of not getting the relief he needed. 
 
- Brooke let her mother mull over her offer as she donned a cotton skirt and a halter. She didn't bother with underwear this time either. In fact she liked the feel of the top brushing against her sensitive nipples, and it was fun teasing Leon. Well she had to admit teasing Leon was almost as good as teasing Tom, she mused, naughtily. Report_Story #2 
+ Brooke let her mother mull over her offer as she donned a cotton skirt and a halter. She didn't bother with underwear this time either. In fact she liked the feel of the top brushing against her sensitive nipples, and it was fun teasing Leon. Well she had to admit teasing Leon was almost as good as teasing Tom, she mused, naughtily.  
 
  
 
@@ -450,7 +450,7 @@
 
  Cheryl was stumbling forward, but was able to stop herself by putting her hands on Tom's naked thighs. She was about to get up when she felt Andy push his full length inside her. That had the effect of toppling her face first on top of her son's hard cock. 
 
- "Well. Tom," Andy barked, "What are you waiting for, make her suck it!" Report_Story #3 
+ "Well. Tom," Andy barked, "What are you waiting for, make her suck it!"  
 
  
 

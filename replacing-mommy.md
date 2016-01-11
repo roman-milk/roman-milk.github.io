@@ -396,7 +396,7 @@
 
  He did and walked over and sat beside me at the edge of the bed. He surprised me by putting his hand on my nylon-clad knee and asked, "Did Mom have the whole birds and bees conversation with you before she...?" 
 
- He couldn't finish the sentence so I answered quickly, "Yes, she did, Daddy. When I was sixteen." Report_Story #2 
+ He couldn't finish the sentence so I answered quickly, "Yes, she did, Daddy. When I was sixteen."  
 
  
 
@@ -770,7 +770,7 @@
 
  And then his finger found the elusive, so elusive I wasn't sure it existed, g- spot and I exploded. "Yes!" I screamed, unable to say anything else as an orgasm that made the earth move hit me. 
 
- My cum flooded out of me, as electric sparks coursed through my very being, making my body burn with pleasure from my head to the tip of my toes. Report_Story #3 
+ My cum flooded out of me, as electric sparks coursed through my very being, making my body burn with pleasure from my head to the tip of my toes.  
 
  
 

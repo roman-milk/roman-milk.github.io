@@ -284,7 +284,7 @@
 
  "Exactly my point," she said. 
 
- I got little aggressive as I said, "Oh mom, sorry if I offended you. I just like older women. They are more experienced and try way harder to please than girls my age." Report_Story #2 
+ I got little aggressive as I said, "Oh mom, sorry if I offended you. I just like older women. They are more experienced and try way harder to please than girls my age."  
 
  
 
@@ -612,7 +612,7 @@
 
  We then left to our second stop, an off-Broadway play that was a sexual farce. I surprised mom by grabbing her hand as we walked into the theatre. As I had hoped, she did not pull it away. I held it till I had to pull out the tickets and hand them to the attendant. After we got into the main theatre, I reached for my mom's hand and hooked my fingers with hers. We walked into the theatre looking like a couple in love. 
 
- We sat down and I offered my hand to my mother. She looked at me shyly and then put her hand in mine. The curtain opened and the play began. I attempted no move during the first act and at intermission we went and got a glass of wine. We returned to our seats for a sexually charged second act. As the play progressed, I did a variety of things. First I moved my leg so it was touching hers. I followed by putting my hand on her leg. I rubbed her leg gently, caressing with purpose. Small moans escaped mom as I teased her gently. When the play ended I squeezed her leg and then clapped with the audience. We left, hand in hand, and returned to the car. Report_Story #3 
+ We sat down and I offered my hand to my mother. She looked at me shyly and then put her hand in mine. The curtain opened and the play began. I attempted no move during the first act and at intermission we went and got a glass of wine. We returned to our seats for a sexually charged second act. As the play progressed, I did a variety of things. First I moved my leg so it was touching hers. I followed by putting my hand on her leg. I rubbed her leg gently, caressing with purpose. Small moans escaped mom as I teased her gently. When the play ended I squeezed her leg and then clapped with the audience. We left, hand in hand, and returned to the car.  
 
  
 
@@ -838,7 +838,7 @@
 
  The end 
 
- Any comments or suggestions are welcomed. Report_Story #1 
+ Any comments or suggestions are welcomed.  
 
  
 
@@ -1078,7 +1078,7 @@
 
  "You can do better than that, my slut." 
 
- Hannah, clearly horny, quickly got on her knees and gobbled my cock. She bobbed on my cock with such desperate desire I had to stop her before I came too early. She got back on the couch and begged, "Now fuck my ass. Hammer me with that big hard cock. Show your Mommy who your first love really was." Report_Story #2 
+ Hannah, clearly horny, quickly got on her knees and gobbled my cock. She bobbed on my cock with such desperate desire I had to stop her before I came too early. She got back on the couch and begged, "Now fuck my ass. Hammer me with that big hard cock. Show your Mommy who your first love really was."  
 
  
 

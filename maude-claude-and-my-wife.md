@@ -64,7 +64,7 @@
 
  "How much do you know about Amber's life before you met her?" 
 
- "Not much. I know she wasn't a virgin, but then neither was I. As far as I was concerned anything before me was none of my business unless she wanted to tell me." Report_Story #2 
+ "Not much. I know she wasn't a virgin, but then neither was I. As far as I was concerned anything before me was none of my business unless she wanted to tell me."  
 
  
 

@@ -156,7 +156,7 @@
 
  "I don't think so. When I come over here I park my car two blocks over. If Tom comes home he will think I've gone shopping or something and he would never come over here looking for me." 
 
- He did, but not because he was looking for Carol. That Wednesday Tom came over around noon. He had come home during lunch to get something and had a few minutes to kill before having to go back to work. I answered the door in a pair of jeans and he could hear the sounds coming from upstairs as four guys were working over his wife. He glanced up the stairs and I said, "I'd love to invite you up, but she's married and won't take on anybody that she doesn't really know. I'll introduce you at the next party. Who knows, she might take a liking to you. How you doing with Monica?" Report_Story #2 
+ He did, but not because he was looking for Carol. That Wednesday Tom came over around noon. He had come home during lunch to get something and had a few minutes to kill before having to go back to work. I answered the door in a pair of jeans and he could hear the sounds coming from upstairs as four guys were working over his wife. He glanced up the stairs and I said, "I'd love to invite you up, but she's married and won't take on anybody that she doesn't really know. I'll introduce you at the next party. Who knows, she might take a liking to you. How you doing with Monica?"  
 
  
 

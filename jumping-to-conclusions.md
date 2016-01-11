@@ -206,7 +206,7 @@
 
  From the way she had talked as she untied me it was obvious to me that her mindset was "Okay, now we are even and we can put this behind us" but there was no way that was ever going to happen. If she had gone out and screwed some guy in a motel room and then come home and told me "Okay, now we are even" our marriage would still have been over, but for her to do what she did with four men and expect me to accept it? No way! No fucking way! 
 
- All a face to face would accomplish was I would probably spit in her face. I knew why she had done it and I wasn't at all happy with that. She didn't trust me enough to give me the benefit of the doubt until she could talk with me? Fuck her! No sir, better to just walk away. I wasn't going to go for a divorce! I was just going to walk away. Report_Story #2 
+ All a face to face would accomplish was I would probably spit in her face. I knew why she had done it and I wasn't at all happy with that. She didn't trust me enough to give me the benefit of the doubt until she could talk with me? Fuck her! No sir, better to just walk away. I wasn't going to go for a divorce! I was just going to walk away.  
 
  
 

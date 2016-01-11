@@ -298,7 +298,7 @@
 
  "Whatever you are having, Miss Patel," she replied, continuing her completely submissive role. 
 
- I went to the kitchen, poured a couple of glasses of wine and returned to my guest. The next fifteen minutes was spent with generic chat about cheerleading, school, and friends, to relax her, before I finally asked the question, "Are you sure you want to be my kitten?" Report_Story #2 
+ I went to the kitchen, poured a couple of glasses of wine and returned to my guest. The next fifteen minutes was spent with generic chat about cheerleading, school, and friends, to relax her, before I finally asked the question, "Are you sure you want to be my kitten?"  
 
  
 

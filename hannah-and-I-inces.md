@@ -246,7 +246,7 @@
 
  Slightly embarrassed, she giggled:"Still..." 
 
- I could see she wasn't 100% up for it, so I didn't want to press the matter and quickly put an end to the conversation. "Maybe some other time... so, how about I beat you at some video games." Report_Story #2 
+ I could see she wasn't 100% up for it, so I didn't want to press the matter and quickly put an end to the conversation. "Maybe some other time... so, how about I beat you at some video games."  
 
  
 
@@ -406,7 +406,7 @@
 
  "I wish." Hannah answered. "She's looking for my chemistry notes." 
 
- As I continued reading, Hannah whispered:"I am sorry 'bout this." Report_Story #3 
+ As I continued reading, Hannah whispered:"I am sorry 'bout this."  
 
  
 
@@ -556,7 +556,7 @@
 
  "That's a start... go to your room, kneel down and start without me; I'll be there shortly to help you finish." she whispered. Now packing an enormous erection, I excused myself as inconspicuously as possible and nearly ran to my room; once there, I pulled down my jeans and briefs and knelt down in the middle of my room, facing the door. After jerking for about a minute or so, I suddenly heard Hannah's mom shout out:"Don't be long, the next bus is in 7 minutes." 
 
- Knowing Hannah was actually on her way, I felt my dick thickening and throbbing in anticipation. About five seconds later she walked into my room and sneered as she saw me sitting there. Barely a meter in my room, she took off her coat and dropped it on the floor; before her coat hit the floor, she took the hem of her dress with both hands and pulled it up over her head, letting it drop on the floor as well. As she reached back with one hand to undo the clasp of her bra, she started to push down her tights with the other. Watching her take her clothes off at this speed was unbelievable erotic and arousing; I was wanking like a mad man, practically drooling over her quick-paced striptease... only a few seconds later she had unclasped her bra, letting it fall to the floor. At the same time she used both hands to wriggle out of her pantyhose, stepping out of them one leg at time, and pushed off her sandals. This was all too much for me; I felt my balls contract as the rest of my body started convulsing; recognizing the state I was in, Hannah smiled and walked towards me, wearing nothing but her panties anymore! As my orgasm exploded deep within me, Hannah squatted down - her arms resting on her knees, hands folded in front of her - and whispered, in a teasing tone: "So, are you going to cum or do I need to take my panties off as well?" Report_Story #4 
+ Knowing Hannah was actually on her way, I felt my dick thickening and throbbing in anticipation. About five seconds later she walked into my room and sneered as she saw me sitting there. Barely a meter in my room, she took off her coat and dropped it on the floor; before her coat hit the floor, she took the hem of her dress with both hands and pulled it up over her head, letting it drop on the floor as well. As she reached back with one hand to undo the clasp of her bra, she started to push down her tights with the other. Watching her take her clothes off at this speed was unbelievable erotic and arousing; I was wanking like a mad man, practically drooling over her quick-paced striptease... only a few seconds later she had unclasped her bra, letting it fall to the floor. At the same time she used both hands to wriggle out of her pantyhose, stepping out of them one leg at time, and pushed off her sandals. This was all too much for me; I felt my balls contract as the rest of my body started convulsing; recognizing the state I was in, Hannah smiled and walked towards me, wearing nothing but her panties anymore! As my orgasm exploded deep within me, Hannah squatted down - her arms resting on her knees, hands folded in front of her - and whispered, in a teasing tone: "So, are you going to cum or do I need to take my panties off as well?"  
 
  
 
@@ -580,7 +580,7 @@
 
  Hannah's mom looked at her watch again and said:"Time to go Hannah." 
 
- We said goodbye and as I leaned towards Hannah to give her a peck on the cheek, I gently slid my hand in her coat and gently flicked her left nipple, making her open her mouth in a playful outrage... not wanting to be outdone by me, she quickly put her hand against my crotch and used three fingers to gently squeeze me. Already leaning back by the time I realized what she was doing, I lost my window of opportunity to do anything else. Hannah and her mom left and after saying a few quick words to my mom, I returned to my room and grabbed the bra from under the bed. As I sniffed it, I couldn't help but smile and think of all the fun I was going to have with this piece of clothing... Report_Story #1 
+ We said goodbye and as I leaned towards Hannah to give her a peck on the cheek, I gently slid my hand in her coat and gently flicked her left nipple, making her open her mouth in a playful outrage... not wanting to be outdone by me, she quickly put her hand against my crotch and used three fingers to gently squeeze me. Already leaning back by the time I realized what she was doing, I lost my window of opportunity to do anything else. Hannah and her mom left and after saying a few quick words to my mom, I returned to my room and grabbed the bra from under the bed. As I sniffed it, I couldn't help but smile and think of all the fun I was going to have with this piece of clothing...  
 
  
 
@@ -718,7 +718,7 @@
 
  "God, I need to get off or I'll go crazy!" she moaned. 
 
- Slightly embarrassed by this extremely intimate display, I didn't know what to do, so I just looked and didn't move a muscle. Gradually her breathing got heavier and she really went to town on herself, using her free hand to grope and roughly massage her left boob, then running it passionately over her face and through her hair, not quite knowing what to do with her pent up sexual energy. Her moans became louder and more frequent as her hand was going berserk between her legs. In an atypical lucid moment, I got behind her on my knees and gently started dragging my finger nails over her arms and shoulders, which made her moan even louder. Emboldened by her reaction, I reached around and started massaging her boobs gently with both hands; a little too gently apparently, because her free hand grabbed mine and showed me exactly how rough she wanted it. As I followed her not so subtle instructions, she whispered:"Ooh yeah, that's it!" as her head starting moving from left to right and back again, indicating that she'd be orgasming any second now. Her body started convulsing and gyrating back against me as she kept pistoning her fingers in and out of her entrance; completely lost in orgasmic bliss, she clamped her eyes shut and opened her mouth wide without making a sound. It was an incredible sight and experience – before that moment I never realized that a woman could orgasm so spectacularly! When hers was over, she reclined against me and relaxed, her body trembling and shaking with every touch and caress of my hand. Report_Story #2 
+ Slightly embarrassed by this extremely intimate display, I didn't know what to do, so I just looked and didn't move a muscle. Gradually her breathing got heavier and she really went to town on herself, using her free hand to grope and roughly massage her left boob, then running it passionately over her face and through her hair, not quite knowing what to do with her pent up sexual energy. Her moans became louder and more frequent as her hand was going berserk between her legs. In an atypical lucid moment, I got behind her on my knees and gently started dragging my finger nails over her arms and shoulders, which made her moan even louder. Emboldened by her reaction, I reached around and started massaging her boobs gently with both hands; a little too gently apparently, because her free hand grabbed mine and showed me exactly how rough she wanted it. As I followed her not so subtle instructions, she whispered:"Ooh yeah, that's it!" as her head starting moving from left to right and back again, indicating that she'd be orgasming any second now. Her body started convulsing and gyrating back against me as she kept pistoning her fingers in and out of her entrance; completely lost in orgasmic bliss, she clamped her eyes shut and opened her mouth wide without making a sound. It was an incredible sight and experience – before that moment I never realized that a woman could orgasm so spectacularly! When hers was over, she reclined against me and relaxed, her body trembling and shaking with every touch and caress of my hand.  
 
  
 

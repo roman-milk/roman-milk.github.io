@@ -262,7 +262,7 @@
 
  "I want you from behind," Barry insisted when the kiss broke. 
 
- "Fuck yeah," Sabrina squeaked, instantly rolling away. She flung her leg across her father's body, his long cock slipping out. The girl moved onto all fours, grinning at Barry while wriggling her rump, her face turned towards him as she looked back over one shoulder. "Put it back in," urged the girl. Sabrina splayed her buttocks with the fingers of one hand, the tacky folds splitting with sticky reluctance. Report_Story #2 
+ "Fuck yeah," Sabrina squeaked, instantly rolling away. She flung her leg across her father's body, his long cock slipping out. The girl moved onto all fours, grinning at Barry while wriggling her rump, her face turned towards him as she looked back over one shoulder. "Put it back in," urged the girl. Sabrina splayed her buttocks with the fingers of one hand, the tacky folds splitting with sticky reluctance.  
 
  
 

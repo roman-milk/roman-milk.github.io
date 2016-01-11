@@ -322,7 +322,7 @@
 
  "Thank you, Captain." 
 
- He got his eyes unbugged and his mouth back in working order and explained all the electronics. He had radar, GPS, Sat phone, ship to shore radio, and some other stuff I never heard of. Report_Story #2 
+ He got his eyes unbugged and his mouth back in working order and explained all the electronics. He had radar, GPS, Sat phone, ship to shore radio, and some other stuff I never heard of.  
 
  
 
@@ -634,7 +634,7 @@
 
  "Left five degrees rudder and forward slow." 
 
- He watched me as he put the rope and the anchor away. Report_Story #3 
+ He watched me as he put the rope and the anchor away.  
 
  
 

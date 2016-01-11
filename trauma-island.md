@@ -108,7 +108,7 @@
 
  They were getting close to the town. Erin started to wonder if she should scream for help; maybe someone in the town would hear her from this close. But then one of her escorts started ringing a large bell and shouting, "Rules, rules, rules." Startled by the sudden noise she cowered, but they pushed her forward. Soon they walked into view of the gate and the town beyond. As she was marched into town women and men came into the street to watch her pass. Some pointed, some laughed, some leered, some just stared. 
 
- The group was met by the big lout she had encountered earlier on the way up to the ruins. He greeted her escorts and stepped in front of her. She was grabbed from behind and forced her to her knees. Erin looked up to see the lout smiling wickedly down at her; she looked around to see the townsfolk collecting around to watch. They smiled and pointed as he pushed his meat into her mouth and back down her gasping throat. Report_Story #2 
+ The group was met by the big lout she had encountered earlier on the way up to the ruins. He greeted her escorts and stepped in front of her. She was grabbed from behind and forced her to her knees. Erin looked up to see the lout smiling wickedly down at her; she looked around to see the townsfolk collecting around to watch. They smiled and pointed as he pushed his meat into her mouth and back down her gasping throat.  
 
  
 

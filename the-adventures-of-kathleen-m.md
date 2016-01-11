@@ -86,7 +86,7 @@
 
  Once inside the little red dress hit the floor and she was pulling at Rick's belt. As Rick moved between her legs she looked over his shoulder and she thought she saw a shadow behind the window opposite. Was he there? Was he watching? God, she hoped so as she dug her nails into Rick's ass, pulled him to her and begged him to fuck her hard and make her cum. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -188,7 +188,7 @@
 
  Suddenly the arms holding her released her and the hand was withdrawn from her pussy. She sat there with her eyes closed until her stop was called and then, with eyes still on the floor, she got up and moved to the door. As soon as she got home she stripped off her clothing and using the handle of her hairbrush she got herself off. She couldn't believe what had just happened to her. An unknown faceless man had fucked her mouth and as she moved the hairbrush faster she knew it would happen again and she also knew she wouldn't fight it. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -304,7 +304,7 @@
 
  He disconnected and she dropped the phone on the bed, moaned "Oh God, he knows about the train. Is there anything about me he doesn't know?" and went to work with the hairbrush. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -458,11 +458,11 @@
 
  Five minutes later she was on her knees on her bed with an eighteen year old in her mouth while a eighteen year old was getting rid of his virginity in her from behind. How in the hell could she tell anybody, even a shrink, about something like that? 
 
- She knew she was out of control and that she needed to do something to get her life back on track. The move to the new house would be the first step in getting straightened out. The new house would take her away from Billy and her commute would be different so that would eliminate the train rides. She would satisfy her urges by teasing the boys in her class and fucking Rick's brains out. She didn't think either would complain. Report_Story #2 
+ She knew she was out of control and that she needed to do something to get her life back on track. The move to the new house would be the first step in getting straightened out. The new house would take her away from Billy and her commute would be different so that would eliminate the train rides. She would satisfy her urges by teasing the boys in her class and fucking Rick's brains out. She didn't think either would complain.  
 
  
 
- ****** The Adventures of Kathleen M. Ch. 04 ****** byJust_Plain_Bob© To be continued... Report_Story #1 
+ ****** The Adventures of Kathleen M. Ch. 04 ****** byJust_Plain_Bob© To be continued...  
 
  
 
@@ -566,7 +566,7 @@
 
  "Oh yes lover, my first fuck in this house will stay with me forever" and she had smiled at that memory as she and Rick cuddled up and fell asleep. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -686,7 +686,7 @@
 
  She lay there looking up at the ceiling and smiled. Definitely better than a hairbrush - much, much better. She got off the bed and took her new toys into the closet and hid them in one of her shoe boxes. No sense letting Rick see them and start thinking that he wasn't able to take care of her properly. She looked at her watch and saw that she was going to have to hurry if she was going to pick up the kids and get back in time to have dinner ready when Rick got home. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -844,7 +844,7 @@
 
  "You can't possibly think I'll fall for that? You have no proof that anything happened because nothing did. The ladder wobbled and Thomas stuck out his hand to keep me from falling. It was strictly an accident." 
 
- "That may be true and in fact, I'll give you that it probably is, but you know as well as I do that once the accusation is made people will be looking at you for the rest of your life. Half of them may believe your side of it, but the other half will believe that you are as guilty as sin and just managed to get away with it. Of course Thomas will say that he did have his hand up your dress. And it will be on everybody's mind when it comes time to renew your contract and if your contract doesn't get renewed people will just know that it is because the school board didn't believe your story so the stigma will follow you wherever you go. Just give us what we want and you can go on, business as usual, and have no problems." Report_Story #2 
+ "That may be true and in fact, I'll give you that it probably is, but you know as well as I do that once the accusation is made people will be looking at you for the rest of your life. Half of them may believe your side of it, but the other half will believe that you are as guilty as sin and just managed to get away with it. Of course Thomas will say that he did have his hand up your dress. And it will be on everybody's mind when it comes time to renew your contract and if your contract doesn't get renewed people will just know that it is because the school board didn't believe your story so the stigma will follow you wherever you go. Just give us what we want and you can go on, business as usual, and have no problems."  
 
  
 
@@ -884,7 +884,7 @@
 
  "We need to get on that "no call" list. What's for dinner?" 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1038,7 +1038,7 @@
 
  "I can't do this," she thought, "I have to get control of myself." 
 
- But she couldn't bring herself to be a heartless bitch. By the very act of taking him in her hand she had promised him that she would get him off. She kept blowing her hot breath on his cock head as she jacked him off and when she felt him throb she pulled her head back and watched the thick rope of cum shoot from the pee hole and drop to the floor of the booth. She milked his cock until no more cum appeared, but she didn't let go of the cock. The man might think she was going to play with him and get him hard again, but her real reason was to keep him from pulling his cock out of the hole and leaving the booth. Unless there were more black men in the store she would be instantly be able to put a face to the cock she had just gotten off and she didn't want that. She wanted the cock to remain faceless. Report_Story #2 
+ But she couldn't bring herself to be a heartless bitch. By the very act of taking him in her hand she had promised him that she would get him off. She kept blowing her hot breath on his cock head as she jacked him off and when she felt him throb she pulled her head back and watched the thick rope of cum shoot from the pee hole and drop to the floor of the booth. She milked his cock until no more cum appeared, but she didn't let go of the cock. The man might think she was going to play with him and get him hard again, but her real reason was to keep him from pulling his cock out of the hole and leaving the booth. Unless there were more black men in the store she would be instantly be able to put a face to the cock she had just gotten off and she didn't want that. She wanted the cock to remain faceless.  
 
  
 
@@ -1056,7 +1056,7 @@
 
  "Because I intend to fuck you slut and that's all the reason I need to keep bothering you. You don't want to be bothered anymore? Pick a time and a place slut and we can get it over with. I AM going to fuck you. A time and a place slut, think about it" and he disconnected. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1250,7 +1250,7 @@
 
  She started to say, "You are out of your mind" but he had already disconnected. He knew the day? Who was he and how did he know so much about her. As she walked toward Sarah's she thought about another problem - Sarah's two teenaged sons. She had yet to speak to either of them, but she couldn't forget that they had seen her on the kitchen floor with Billy and Todd. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1458,7 +1458,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1622,7 +1622,7 @@
 
  She pushed the button to end the call and wished she had an old fashioned phone - one the she could have slammed down into its cradle to end the call. Who was he? How did he know that Rick was going out of town and what had he meant when he said he had a particular time and place in mind? Could he actually know where she was going to be at a particular time and place? Oh God, she thought, now I have to go and change my panties. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1890,7 +1890,7 @@
 
  "I already have a deal with Bobby and Chris." 
 
- "Yes you do and I will make sure that they honor their end of it, but they would still rather have a sure twice a week rather than a hit or miss sixteen times. If they get more, like this week, it will be over sooner, but they will still have a sure twice a week until they hit sixteen. Besides, if I read you right you like young stuff and I'm betting you won't want to stop when you get to sixteen. I could be wrong, but we'll see. And there is one more reason why I'm here." Report_Story #2 
+ "Yes you do and I will make sure that they honor their end of it, but they would still rather have a sure twice a week rather than a hit or miss sixteen times. If they get more, like this week, it will be over sooner, but they will still have a sure twice a week until they hit sixteen. Besides, if I read you right you like young stuff and I'm betting you won't want to stop when you get to sixteen. I could be wrong, but we'll see. And there is one more reason why I'm here."  
 
  
 
@@ -1970,7 +1970,7 @@
 
  As he disconnected she realized that The Watcher had slipped up. For a brief moment there, when he said, "wishes a heart makes" he had gotten away from using his disguised voice and used his real voice - his normal voice. She knew that voice, but from where? It had to be someone she knew, how else would he know so much about her? How else would he know Rick was out of town? Who was he? 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -2258,7 +2258,7 @@
 
  Once the zipper was down Roy reached past her and turned on a light. There was a mattress with a couple of blankets on it and two pillows. At the end opposite where the pillows were placed there was a shelf with a small TV/VCR combination on it and underneath the shelf there was a clothes pole with a couple of shirts hanging on it. She crawled in and Roy followed. Roy didn't say anything, he just started undressing. She wasn't going to get undressed, but she did pull her skirt up to her waist and take her panties off. 
 
- As Roy took off his pants she caught her breath - he hadn't lied! His cock was huge. Soft and just hanging there he was as big as any other cock she'd ever had and as she stared at it it started to grow and as it swelled she had doubts that she would even be able to take it. As if reading her mind Roy said: Report_Story #2 
+ As Roy took off his pants she caught her breath - he hadn't lied! His cock was huge. Soft and just hanging there he was as big as any other cock she'd ever had and as she stared at it it started to grow and as it swelled she had doubts that she would even be able to take it. As if reading her mind Roy said:  
 
  
 
@@ -2344,7 +2344,7 @@
 
  She disconnected, put the phone down and resigned herself to the fact that she wasn't going to get laid until she got together with Chris and Bobby in the morning. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -2590,7 +2590,7 @@
 
  "It probably wasn't very smart of me to stand on the ladder in high heels so I'm going to let you put the books back up there." 
 
- She saw the disappointment register on his face and it lasted just long enough for her to hand him the first stack of books. He had to look down to take them and she saw his eyes widen as he got his first look at her naked breasts. Standing on the ladder his cock was almost on a level with her mouth and she ached to unzip him and take it out and suck on it, but of course she didn't. She did pretend to trip and fall forward and her mouth briefly touched the hard lump in his trousers. She pulled back quickly and commented on how clumsy it was to work in high heels and then she hurried things along so he would have time to go to the bathroom and relieve himself before his next class. Report_Story #2 
+ She saw the disappointment register on his face and it lasted just long enough for her to hand him the first stack of books. He had to look down to take them and she saw his eyes widen as he got his first look at her naked breasts. Standing on the ladder his cock was almost on a level with her mouth and she ached to unzip him and take it out and suck on it, but of course she didn't. She did pretend to trip and fall forward and her mouth briefly touched the hard lump in his trousers. She pulled back quickly and commented on how clumsy it was to work in high heels and then she hurried things along so he would have time to go to the bathroom and relieve himself before his next class.  
 
  
 
@@ -2740,7 +2740,7 @@
 
  "Leave me alone!" she cried as she disconnected. She stood there and shivered as she admitted to herself he was right. Her pussy was dripping and she did want it. She did want to meet him in a dark room, fuck him and then leave without ever knowing who he was. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -3030,7 +3030,7 @@
 
  All the time she had been doing what she had been doing in the back of her mind there was the thought that it was only sex and there was no love involved in it. She loved Rick and she couldn't even begin to think of him not being in her life. She loved Rick and she knew that he knew it. He had her love - all of it! And she knew he loved her just as deeply. She knew that she would never get caught at what she was doing, but on the off chance that she did get discovered she had her "get out of jail free" card - their love for each other. He would know that she loved only him and he would forgive her. 
 
- Rick had just snatched that card right out of her hand and had torn it to shreds. For the first time since that night at the hotel that had sent her down the path she had been traveling she realized that her behavior put at risk everything that she valued most. If she got caught Rick was NOT going to accept the, "You are the only one I love, it was only sex with him" defense. Report_Story #2 
+ Rick had just snatched that card right out of her hand and had torn it to shreds. For the first time since that night at the hotel that had sent her down the path she had been traveling she realized that her behavior put at risk everything that she valued most. If she got caught Rick was NOT going to accept the, "You are the only one I love, it was only sex with him" defense.  
 
  
 
@@ -3042,7 +3042,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -3222,7 +3222,7 @@
 
  "You are such a slut. I knew it all the time. You are just an easy piece of ass. Tell me what you want slut." 
 
- "Fuck me" she moaned, "Fuck me, fuck me hard, fuck my ass, fuck my ass" and then she cried out as she came again and he suddenly exploded in her. She felt every pulse of his cock as he shot his sperm into her ass. She stood there on tip toes as her body shook with the force of the orgasm and tried to will his cock to stay hard and keep fucking her. She pushed her ass back at him as he started to withdraw and he chuckled: Report_Story #2 
+ "Fuck me" she moaned, "Fuck me, fuck me hard, fuck my ass, fuck my ass" and then she cried out as she came again and he suddenly exploded in her. She felt every pulse of his cock as he shot his sperm into her ass. She stood there on tip toes as her body shook with the force of the orgasm and tried to will his cock to stay hard and keep fucking her. She pushed her ass back at him as he started to withdraw and he chuckled:  
 
  
 
@@ -3238,7 +3238,7 @@
 
  "Yes, your slut, I'm your slut" and as she said that the lights came on and she saw Rick standing there. 
 
- To be continued? Report_Story #1 
+ To be continued?  
 
  
 
@@ -3376,7 +3376,7 @@
 
  And then she told him how it had started and then how each encounter had driven her to the next. The train, the blackmail at school, the car pool and everything that had come about while car pooling. She told him what she did while he played golf on Saturdays and she told him of the constant calls from The Watcher who she came to find out was Ron. She did not tell him about Billy and Todd and she made no mention of Sarah, Chris, Bobby or Frank. She would not be responsible for poisoning the relationship between him and his father - not on top of all the other pain she had caused him. Even with the ones she omitted the picture she had painted of herself was not pretty. In fact, it was downright ugly. 
 
- "And then you came home from that trip and told me about Andy Milliken and that was my wake-up call. Until then I had convinced myself that you loved me enough to forgive me if I got caught, but after hearing how you felt about Andy's situation - how you felt about something that didn't even concern you - I could no longer believe that your love for me would be a 'get out of jail free' card. I quit cold turkey and promised myself that never again would I do anything that might cost me you. Report_Story #2 
+ "And then you came home from that trip and told me about Andy Milliken and that was my wake-up call. Until then I had convinced myself that you loved me enough to forgive me if I got caught, but after hearing how you felt about Andy's situation - how you felt about something that didn't even concern you - I could no longer believe that your love for me would be a 'get out of jail free' card. I quit cold turkey and promised myself that never again would I do anything that might cost me you.  
 
  
 

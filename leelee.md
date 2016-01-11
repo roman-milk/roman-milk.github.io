@@ -260,7 +260,7 @@
 
  "Quickly hide in here, he won't be long, then you can get dressed and go," the girl hurriedly instructed. 
 
- Lee Ann crawled into the corner behind a packing case, thankful to the girl for hiding her. The buzzer sounded a couple of times, hurrying them up. Report_Story #2 
+ Lee Ann crawled into the corner behind a packing case, thankful to the girl for hiding her. The buzzer sounded a couple of times, hurrying them up.  
 
  
 
@@ -474,7 +474,7 @@
 
  Maria took Leelee to a pet shop without hiding her intentions at all. The guy serving looked shocked when they walked in, unable to take his eyes off Leelee. The lights shone through the white sheath dress, showing off her naked body. The image was so very alluring, he openly stared. 
 
- When Maria started choosing a collar for her, Leelee was so embarrassed, she withdrew into a shell. It was the only means of escaping the horrid experience. Maria pinched a nipple to gain her attention. Report_Story #3 
+ When Maria started choosing a collar for her, Leelee was so embarrassed, she withdrew into a shell. It was the only means of escaping the horrid experience. Maria pinched a nipple to gain her attention.  
 
  
 
@@ -608,7 +608,7 @@
 
  Leelee felt sick. Never in her life had she contemplated such a humiliating day. Each one of the events was beyond anything she had fantasized, or would want to experience. 
 
- Totally subdued she determined to please her mistress in all things, now knowing how badly and sadistically the young girl could punish her. From a responsible business woman, she had become this young girls plaything, to be tormented and demeaned. Now she was a willing little puppy-girl, unable to resist her mistress, eagerly willing to do her bidding to avoid punishment. Report_Story #1 
+ Totally subdued she determined to please her mistress in all things, now knowing how badly and sadistically the young girl could punish her. From a responsible business woman, she had become this young girls plaything, to be tormented and demeaned. Now she was a willing little puppy-girl, unable to resist her mistress, eagerly willing to do her bidding to avoid punishment.  
 
  
 
@@ -844,7 +844,7 @@
 
  "Use your fingers," she demanded. 
 
- Maria got behind her pet, to massage her lips. With light strokes over thighs and lips, she soon worked her up. Keeping her on edge, she smiled at her friends look of pleasure. Her pet was responding with more intense licks and strokes to Gemma's pussy. Gemma responded with moans as the pet found her clit and nibbled upon it. Report_Story #2 
+ Maria got behind her pet, to massage her lips. With light strokes over thighs and lips, she soon worked her up. Keeping her on edge, she smiled at her friends look of pleasure. Her pet was responding with more intense licks and strokes to Gemma's pussy. Gemma responded with moans as the pet found her clit and nibbled upon it.  
 
  
 
@@ -872,7 +872,7 @@
 
  Leelee hung her head in shame. She had become nothing more than an object, to be used, then sold on when fully trained. She had succumbed this far so quickly, it was obviously possible. The sound of her mistress entering the bathroom alerted her. She looked up from her cage, with big wide, expectant eyes. Hearing the shower running she knew it would be a little longer before she was let out. 
 
- "Please mistress, your little pet, Leelee, needs to pee," she whispered. Report_Story #1 
+ "Please mistress, your little pet, Leelee, needs to pee," she whispered.  
 
  
 
@@ -1090,7 +1090,7 @@
 
  Maria patted down the dress, and helped her pet out of the chair. 
 
- Lee Ann was still breathing heavily, ready to climax. Despite the pain and humiliation, she felt excited, or did the pain add to the need? Shock and arousal made her legs wobble, as though they were rubber. She needed her mistresses steadying hand and influence. She held onto the chair, while the two chatted. Report_Story #2 
+ Lee Ann was still breathing heavily, ready to climax. Despite the pain and humiliation, she felt excited, or did the pain add to the need? Shock and arousal made her legs wobble, as though they were rubber. She needed her mistresses steadying hand and influence. She held onto the chair, while the two chatted.  
 
  
 
@@ -1160,7 +1160,7 @@
 
  Lee Ann forgot for the moment all that she had been. She was winding down from a gorgeous orgasm. Feeling like a young girl, being fed by a wonderful earth mother, she suckled on a comforting, big black teat. She buried her face in the large soft pillows of her mistress breasts. 
 
- "Yes, mistress, thank you mistress. My wonderful mistress will take care of little Leelee, forever," Lee Ann murmured, from around a nipple. Report_Story #1 
+ "Yes, mistress, thank you mistress. My wonderful mistress will take care of little Leelee, forever," Lee Ann murmured, from around a nipple.  
 
  
 
@@ -1386,7 +1386,7 @@
 
  "Sorry, mistress, slave Leelee doesn't," Lee Ann apologetically spoke. 
 
- "My father owns the company, and read my records. I got into trouble for that," Patty grimaced. Report_Story #2 
+ "My father owns the company, and read my records. I got into trouble for that," Patty grimaced.  
 
  
 

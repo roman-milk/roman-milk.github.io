@@ -280,7 +280,7 @@
 
  After that it got repetitious as the six men used Jenny in all three of her usable holes. She took them on one, two and three at a time and she had orgasm after orgasm. There was one surprise for me before it was over. Jenny told the guys that there was something that she had always wanted to try. 
 
- "Josh," she said, "I don't want to bruise your ego, but you have the smallest cock here and Donny, you have the next smallest. That's a good thing, because bigger cocks wouldn't let me do what I want to do and so you get the privilege of being the only ones who get to do it. I want two cocks in my pussy at the same time. You up for it?" Report_Story #2 
+ "Josh," she said, "I don't want to bruise your ego, but you have the smallest cock here and Donny, you have the next smallest. That's a good thing, because bigger cocks wouldn't let me do what I want to do and so you get the privilege of being the only ones who get to do it. I want two cocks in my pussy at the same time. You up for it?"  
 
  
 

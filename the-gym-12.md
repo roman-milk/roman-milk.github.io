@@ -182,7 +182,7 @@
 
  ++++++++++++ 
 
- I could feel his eyes on my ass as I headed for the door. I wasn't sure, but I thought that Brad would be "working late" that night and I would call him as soon as I got to work and find out. If he was going to be working late I would have dinner with Rob. Dinner and just maybe something else. It would depend on Rob. If he was a fast worker he could get lucky. I didn't really want to behave like a slut so I wouldn't be making any moves, but I had decided on Rob as my revenge lover and the sooner we got to it the better I would like it. Report_Story #2 
+ I could feel his eyes on my ass as I headed for the door. I wasn't sure, but I thought that Brad would be "working late" that night and I would call him as soon as I got to work and find out. If he was going to be working late I would have dinner with Rob. Dinner and just maybe something else. It would depend on Rob. If he was a fast worker he could get lucky. I didn't really want to behave like a slut so I wouldn't be making any moves, but I had decided on Rob as my revenge lover and the sooner we got to it the better I would like it.  
 
  
 

@@ -172,7 +172,7 @@
 
  The man chuckled. 'Well, well, you've changed little miss whitey. How scared you wuz not long ago ... now you askin' for black. Well, I'm happy to oblige.' 
 
- He rose quickly, the back of his knees tipping his chair backwards. He struggled with his jeans, which were rumpled around his hips, in his haste to be at the girl. She was hot. Sweet and white and begging for black cock. He'd met women like this before, usually middle-aged bitches who wanted to walk on the dark side, but this one wanted a gang-bang, which was definitely not the usual. What was the deal with her husband? Two days married and yet here she was. Still, whatever the cut, he was going into it. How could anyone turn down that sweet-faced, big-eyed offer? Report_Story #2 
+ He rose quickly, the back of his knees tipping his chair backwards. He struggled with his jeans, which were rumpled around his hips, in his haste to be at the girl. She was hot. Sweet and white and begging for black cock. He'd met women like this before, usually middle-aged bitches who wanted to walk on the dark side, but this one wanted a gang-bang, which was definitely not the usual. What was the deal with her husband? Two days married and yet here she was. Still, whatever the cut, he was going into it. How could anyone turn down that sweet-faced, big-eyed offer?  
 
  
 

@@ -150,7 +150,7 @@
 
  I thought about the men I'd seen when I walked into the lounge. They were all supposed to be my friends, but Chambers said that everyone that I saw had been fucking my wife. When I left home that morning I thought that I was as bummed as I could get, but things had just gotten worse -- a whole lot worse. A faithless wife and now friends who were stabbing me in the back. 
 
- x-x-x-x-x-x Report_Story #2 
+ x-x-x-x-x-x  
 
  
 

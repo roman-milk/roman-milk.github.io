@@ -206,7 +206,7 @@
 
  "On my boobs," gasps Melissa, shoving him hard on the shoulder. "Come for me, babe. Come on my tits." 
 
- Alan's face is all slack when he looks at his wife. He's lost out there in a world of his own, jacking his length, eyes glassy and vague, knelt on the edge of the sofa while his wife kneels on the floor alongside his knees, offering her breasts as a target. Report_Story #2 
+ Alan's face is all slack when he looks at his wife. He's lost out there in a world of his own, jacking his length, eyes glassy and vague, knelt on the edge of the sofa while his wife kneels on the floor alongside his knees, offering her breasts as a target.  
 
  
 

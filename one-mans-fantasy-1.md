@@ -220,7 +220,7 @@
 
  Wednesday I took Kristal out for breakfast and then we spent a good part of the day lying around the condo complex's swimming pool. Spending a good part of the day looking at Kristal in a bikini was almost enough in itself to make the week worthwhile. Because of the major, major wood that it caused I spent a good part of that time lying on my stomach and don't think for one second that Kristal didn't know why. 
 
- We arrived at John's house at five and found that my sister and her husband were already there. John swore to me that he didn't tell his wife Nancy anything at all about Kristal other than I would be bringing a date to the family dinner and when Nancy and Kristal were introduced I saw no sign that Nancy has a clue as to Kristal was. It was a different story with my sister Rachel and her husband. There was no doubt from the look on Kevin's face that he knew who Kristal was. I couldn't read the look on Rachel's face. It could have been that she knew who Kristal was or it just could have been shock and surprise that her dork of a brother could even know a woman like Kristal. I know Kristal read the faces the same as I did, but I had no way of knowing what she was thinking. Report_Story #2 
+ We arrived at John's house at five and found that my sister and her husband were already there. John swore to me that he didn't tell his wife Nancy anything at all about Kristal other than I would be bringing a date to the family dinner and when Nancy and Kristal were introduced I saw no sign that Nancy has a clue as to Kristal was. It was a different story with my sister Rachel and her husband. There was no doubt from the look on Kevin's face that he knew who Kristal was. I couldn't read the look on Rachel's face. It could have been that she knew who Kristal was or it just could have been shock and surprise that her dork of a brother could even know a woman like Kristal. I know Kristal read the faces the same as I did, but I had no way of knowing what she was thinking.  
 
  
 
@@ -498,7 +498,7 @@
 
  We said our goodbyes and as we left I saw Joan watching us leave and I wondered what she was thinking. Sorry that she had fucked it up for us or wondering how a little dick like me ended up with a woman like Kristal. 
 
- Kristal was quiet on the ride home and when we got there she kissed me on the cheek and went to her room. I undressed and was lying there looking up at the ceiling and going over the week in my mind when the bedroom door opened and Kristal came into the room. With the hallway light behind her I could see that she was naked. She walked over to the bed, pulled the covers off of me and got on the bed. I started to ask her what she was doing but before I could get a word out she placed a finger across my lips and said: Report_Story #3 
+ Kristal was quiet on the ride home and when we got there she kissed me on the cheek and went to her room. I undressed and was lying there looking up at the ceiling and going over the week in my mind when the bedroom door opened and Kristal came into the room. With the hallway light behind her I could see that she was naked. She walked over to the bed, pulled the covers off of me and got on the bed. I started to ask her what she was doing but before I could get a word out she placed a finger across my lips and said:  
 
  
 

@@ -136,7 +136,7 @@
 
  He had his hands on the back of her head and was actually fucking her throat. Sebastian had always been more gentle. He would warn her when he was going to cum and she'd catch it and spit it out into a napkin. She found out soon enough that Porter was having none of that. He hammered his cock in her mouth, making her jaws and neck ache and her eyes water. She hated him. He came in her mouth and held her head firm. She tried to pull away and spit it out, but he wouldn't let her. He pinched her nose shut and said, "Swallow, bitch." Valarie knew she had no choice and, frankly, anything that got his vile seed off her tongue was a welcome option. She swallowed, instantly feeling sick to her stomach. Porter wiped his cock clean in her silky black hair, leaving streaks of cum in it. Then he pulled up his pants and looked down at her, "Tomorrow, the price goes up to pussy if you want another night. Otherwise, I need a check or you're out by noon. I'll be here at 9 a.m. You wanna fuck again, wear something nice." 
 
- Now, Valarie sat huddled on her lone couch in her warm pajamas, wondering what to do. She had to go to work in an hour. Should she call in sick and go apartment hunting? She didn't even have a car. Plus, she needed the money. No, she had to go to work. If only she could get in touch with Roy. She was sure that he could help. She hated to ask for money, but it was far better than what she had just done. Report_Story #2 
+ Now, Valarie sat huddled on her lone couch in her warm pajamas, wondering what to do. She had to go to work in an hour. Should she call in sick and go apartment hunting? She didn't even have a car. Plus, she needed the money. No, she had to go to work. If only she could get in touch with Roy. She was sure that he could help. She hated to ask for money, but it was far better than what she had just done.  
 
  
 
@@ -334,7 +334,7 @@
 
  After dinner, she took a long bubble bath in a tub that many people would consider a swimming pool. It was huge! She added some bath oil to the water and came out with her skin feeling soft and sleek. All the talk about sex and now the realization that she was about to turn her body over to three handsome men who would share her for the next year had her very aroused. She was excited, happy and felt warm all over. 
 
- She thought about turning on her computer and finding a story about a nice girl who turns into a hot little slut in the hands of the right men, who help her understand and explore and use her sexuality. Those were the stories she liked. She identified most with the girls who were basically sweet and nice and innocent, but found that inner slutty, naughty side and learned to be a little of both. She stopped short of turning on the computer, though, when she realized that she was about to become that girl in real life. She didn't need fiction and fantasy. Her reality was about to beat those hands down. Report_Story #3 
+ She thought about turning on her computer and finding a story about a nice girl who turns into a hot little slut in the hands of the right men, who help her understand and explore and use her sexuality. Those were the stories she liked. She identified most with the girls who were basically sweet and nice and innocent, but found that inner slutty, naughty side and learned to be a little of both. She stopped short of turning on the computer, though, when she realized that she was about to become that girl in real life. She didn't need fiction and fantasy. Her reality was about to beat those hands down.  
 
  
 
@@ -344,7 +344,7 @@
 
  Her imagination was running wild now and so were her juices. She was so hot, so horny. Her fingers were working fast now, touching herself in just the right spots and just the right way. She stroked her self and teased herself with gentle pinches. She came with a single muted cry, "Oooh!" her body tensing, then slowly relaxing in a state of sheer ecstasy. 
 
- Even though it was midnight, she picked up the phone and called Roy. "Come get me in the morning," she said. She swore she could here him smiling through the phone. Little did he know that she was smiling too. Report_Story #1 
+ Even though it was midnight, she picked up the phone and called Roy. "Come get me in the morning," she said. She swore she could here him smiling through the phone. Little did he know that she was smiling too.  
 
  
 
@@ -510,7 +510,7 @@
 
  "Thank you, sir," Valarie said. She scurried to the bathroom and cleaned off and re-positioned everything. Her g-string was indeed torn, so she took it off and threw it in the garbage. She was sure there would be no complaints. 
 
- Her first time with Travers had been great, but too short. She wanted more. She wanted to cum. She was so horny now. Her pussy begged for her fingers, but she knew she would be expected to get back to work promptly. She only hoped that Nelson or Roy would take a turn soon. She knew Roy would probably get her off tonight -- how fun it was going to be to spend the night with him! -- but she needed relief now. She couldn't possibly focus on work. But when she returned to her desk, both men were busy. Report_Story #2 
+ Her first time with Travers had been great, but too short. She wanted more. She wanted to cum. She was so horny now. Her pussy begged for her fingers, but she knew she would be expected to get back to work promptly. She only hoped that Nelson or Roy would take a turn soon. She knew Roy would probably get her off tonight -- how fun it was going to be to spend the night with him! -- but she needed relief now. She couldn't possibly focus on work. But when she returned to her desk, both men were busy.  
 
  
 
@@ -652,7 +652,7 @@
 
  Looking over her shoulder, she saw a couple walking their dog at the end of the driveway. She stuck up her hand in a feeble wave as they looked at her and Roy, locked in a passionate embrace directly under the light above his front door. Valarie didn't care. Roy had been fantastic to her ever since she got to the States. And tonight, he'd treated her to an amazing meal and pleasured her like no other in the back of the car. He could take her into the middle of the street and fuck her like a dog all night long if he wanted. He deserved it and she was determined to give him anything he wanted tonight. 
 
- She urged him on with her body, not rushing him to cum, but encouraging him to take her, to use her, to have his way with her flexible, firm, nearly perfect body. He nailed her hard against the door and shot his load deep inside her. She felt his cum spraying inside her pussy, his heat matching hers. She came again too, then slumped to the porch as he sat her down gently. Report_Story #3 
+ She urged him on with her body, not rushing him to cum, but encouraging him to take her, to use her, to have his way with her flexible, firm, nearly perfect body. He nailed her hard against the door and shot his load deep inside her. She felt his cum spraying inside her pussy, his heat matching hers. She came again too, then slumped to the porch as he sat her down gently.  
 
  
 
@@ -800,7 +800,7 @@
 
  "Thank you," Valarie said, a bit overwhelmed by Coco's bubbly body and even bubblier personality. This girl made tons of money on stage or on her back or her knees -- wherever she was, Valarie was certain men would follow. Why wouldn't Nelson and his guys just hire someone like her? Valarie knew the answer, but didn't want to sound conceited, even to herself. They didn't hire someone like Coco because they wanted someone who could be like Coco at times, but also a sophisticated lady and a reliable employee. Valarie looked at Coco's made-for-sex body and felt a bit intimidated, but she found comfort in knowing there were men like Nelson who appreciated the fact that Valarie had more than just looks to offer and found her to be extremely attractive in her own right. 
 
- Just a few minutes later, Nelson dropped them off at an upscale shopping area that had many clothing stores, including some specialty stores. He handed Coco his credit card. Report_Story #4 
+ Just a few minutes later, Nelson dropped them off at an upscale shopping area that had many clothing stores, including some specialty stores. He handed Coco his credit card.  
 
  
 
@@ -966,7 +966,7 @@
 
  Nelson helped her out of the car and Valarie tugged her dress down. "Don't touch the dress again," he whispered in her ear. "If it needs to be adjusted, I will do so." 
 
- "Yes sir," Valarie said softly as they entered the huge building and followed the crowd into the banquet hall. Already Valarie heard murmurs in the crowd and felt hot stares on her body. She knew they were looking at her, talking about her. But she hugged Nelson's arm tightly and felt safe. She was with the strongest, best-looking gentlemen there and she felt safe with him. She forced herself to think about what he wanted from her tonight and not what others were thinking. He wanted her to be proud and strong and confident, to carry an air of sophistication and class despite her attire. He wanted to be able to show her off and make other men jealous. She would do that for him, if she could. Report_Story #5 
+ "Yes sir," Valarie said softly as they entered the huge building and followed the crowd into the banquet hall. Already Valarie heard murmurs in the crowd and felt hot stares on her body. She knew they were looking at her, talking about her. But she hugged Nelson's arm tightly and felt safe. She was with the strongest, best-looking gentlemen there and she felt safe with him. She forced herself to think about what he wanted from her tonight and not what others were thinking. He wanted her to be proud and strong and confident, to carry an air of sophistication and class despite her attire. He wanted to be able to show her off and make other men jealous. She would do that for him, if she could.  
 
  
 
@@ -1140,7 +1140,7 @@
 
  The show-stopper outfit, though, was the most extreme mini skirt Valarie had ever scene. It was bright red, six inches top to bottom, with a five and a half inch slit up the side. She wore it low on her hips to cover her pussy, leaving a wide bare space between her navel and the top of the skirt. The slit, which was on one side only, left her thigh exposed and was an invitation for a gentleman friend to reach underneath. The top was no less appealing. It was a deeply scooped cowl, the same bright red color and stretchy, soft satiny material. It tied behind her neck and the loose, low hanging scoop neck reconnected just above her belly button, where the top came to an end. It wrapped tightly around her waist, accentuating the curve from her breasts to her waist. Red pumps matched perfectly. 
 
- Nelson took dozens of pictures, occasionally touching his hard cock while Valarie teased him with her legs and ass and her stunning eyes. She stood, legs far apart, and bent over at the waist, showing him her bare ass underneath that tiny skirt. She got on all fours on the bench, reaching back to grab her heels, showing off her curves and her flexibility at the same time. She straddled the hard back chair, arms supporting her chin on the back of the chair, legs spread wide, looking long and lean and inviting. Report_Story #6 
+ Nelson took dozens of pictures, occasionally touching his hard cock while Valarie teased him with her legs and ass and her stunning eyes. She stood, legs far apart, and bent over at the waist, showing him her bare ass underneath that tiny skirt. She got on all fours on the bench, reaching back to grab her heels, showing off her curves and her flexibility at the same time. She straddled the hard back chair, arms supporting her chin on the back of the chair, legs spread wide, looking long and lean and inviting.  
 
  
 
@@ -1172,7 +1172,7 @@
 
  "I'm just getting started," Valarie smiled devilishly. She dropped her top and skirt on one of the deck chairs and walked naked toward the house, wearing only her heels and his cum. 
 
- "I'll be damned," Nelson muttered to himself, shaking his head. "Hottest little slut I've ever scene." He trotted after her, ready to play with his toy some more. Report_Story #1 
+ "I'll be damned," Nelson muttered to himself, shaking his head. "Hottest little slut I've ever scene." He trotted after her, ready to play with his toy some more.  
 
  
 
@@ -1342,7 +1342,7 @@
 
  As he was showing her around, he told her about his plans for the evening. "I've been playing poker with a bunch of buddies from way back in my army days," Travers explained. "Normally, we play on Saturday, but this week we had to switch to Sunday. I thought about canceling so I could be with you, but the more I thought about it, the more I wanted to go ahead and have it. Of course, I want to show you off and we'll find another outfit that will help do that. And, yes, I will probably fuck you in front of them. But I also thought it would be a good opportunity to have some fun with your training to enjoy the taste of cum. Don't worry, you're not going to give blowjobs to everyone. But, you are going to eat their cum." 
 
- "Oh, my," Valarie said. "Sir, I'm sorry, but I just don't know. I mean, I try... I just don't..." Report_Story #2 
+ "Oh, my," Valarie said. "Sir, I'm sorry, but I just don't know. I mean, I try... I just don't..."  
 
  
 
@@ -1520,7 +1520,7 @@
 
  "Just what I was thinking," Valarie grinned. She flipped through the songs on the jukebox, not surprised to see a lot of 70s and 80s rock. That fit Travers' age. She liked rock, too, and recognized many of the songs. She picked a handful of singles, then started moving her hips as the first sounds of classic Bon Jovi filled the room. 
 
- She turned to face her audience, all of the men standing around with saucers of wings and chips, their eyes collectively glued to her. She smiled and looked down, watching her legs, trying to see what they saw, to move in ways they would want her to. Try as she might to lose herself in the music, she was self- conscious and felt awkward. She understood now why strippers had a pole to hold onto. Besides the phallic symbol, it was also a welcome partner. Right now, with nothing to hold, nothing to move around or in response to, she felt slow- footed and clumsy, even though neither of those words had ever been fitting descriptions for her. A natural athlete and graceful dancer, Valarie was used to fluid, confident movements. She felt anything but right now. Report_Story #3 
+ She turned to face her audience, all of the men standing around with saucers of wings and chips, their eyes collectively glued to her. She smiled and looked down, watching her legs, trying to see what they saw, to move in ways they would want her to. Try as she might to lose herself in the music, she was self- conscious and felt awkward. She understood now why strippers had a pole to hold onto. Besides the phallic symbol, it was also a welcome partner. Right now, with nothing to hold, nothing to move around or in response to, she felt slow- footed and clumsy, even though neither of those words had ever been fitting descriptions for her. A natural athlete and graceful dancer, Valarie was used to fluid, confident movements. She felt anything but right now.  
 
  
 
@@ -1656,7 +1656,7 @@
 
  Travers turned up the music as Motley Crue's "Girls, Girls, Girls" ode to strippers came on. Perfect song, Valarie thought, "who wants a lap dance?" 
 
- The guys didn't bother answering the obvious, but dutifully returned to their seats and watched as Valarie slithered onto the poker table and writhed around, her body twisting and turning to the music. Already topless, she decided she might as well take the next step. She wriggled out of her skirt -- with plenty of eager hands helping discard the garments -- and lay naked except for her thigh-high socks and stilettos. She hopped off the table and straddled Buzz, facing him as she sat on his lap, her naked pussy rubbing over the lump in his pants. She gave him a disapproving look for having his pants still on and motioned for them all to take them off. She faced no resistance. Report_Story #4 
+ The guys didn't bother answering the obvious, but dutifully returned to their seats and watched as Valarie slithered onto the poker table and writhed around, her body twisting and turning to the music. Already topless, she decided she might as well take the next step. She wriggled out of her skirt -- with plenty of eager hands helping discard the garments -- and lay naked except for her thigh-high socks and stilettos. She hopped off the table and straddled Buzz, facing him as she sat on his lap, her naked pussy rubbing over the lump in his pants. She gave him a disapproving look for having his pants still on and motioned for them all to take them off. She faced no resistance.  
 
  
 
@@ -1796,7 +1796,7 @@
 
  "Yep, and I think the party's over -- at least for you guys," Travers said. "Me, I'm going to take her upstairs and party some more. Let yourselves out. If you hear the walls banging, think nothing of it." 
 
- They all laughed, but knew it was true. Travers was going to do exactly what they all wanted to do -- take her upstairs and screw her brains out at least one more time. The drunk, horny girl was wet, willing and exhausted. Her lean, limber body would be flexible, totally vulnerable, ready to be ravaged. Travers slung her over his shoulder, her wet cunt looking them each in the eye as he hauled her off, his cock growing harder with every step. Report_Story #1 
+ They all laughed, but knew it was true. Travers was going to do exactly what they all wanted to do -- take her upstairs and screw her brains out at least one more time. The drunk, horny girl was wet, willing and exhausted. Her lean, limber body would be flexible, totally vulnerable, ready to be ravaged. Travers slung her over his shoulder, her wet cunt looking them each in the eye as he hauled her off, his cock growing harder with every step.  
 
  
 
@@ -1924,7 +1924,7 @@
 
  "Well, what you have here, gentlemen," Pound said dramatically, "is the first device guaranteed to generate female arousal, monitor that arousal and work as a gps -- I call this version the Get Pussy Satellite -- and the best thing is that it can be implanted and will not need to be removed or replace for years. 
 
- "There are actually two parts," Pound said. "The one that looks like a watch battery goes just inside the vagina, on the top, as close as you can get to the g spot. It's a painless procedure. The sticky substance on the back is non- toxic and it will hold to her inner lining, no matter how wet she gets or how hard you fuck her. The device has tiny vibrating fibers that are invisible to the naked eye and aren't felt by the patient, but they actually act like tentacles that will gradually imbed themselves in the soft lining of her pussy. So, by the time the adhesive wears off in a couple of weeks, it will be fully encased inside her." Report_Story #2 
+ "There are actually two parts," Pound said. "The one that looks like a watch battery goes just inside the vagina, on the top, as close as you can get to the g spot. It's a painless procedure. The sticky substance on the back is non- toxic and it will hold to her inner lining, no matter how wet she gets or how hard you fuck her. The device has tiny vibrating fibers that are invisible to the naked eye and aren't felt by the patient, but they actually act like tentacles that will gradually imbed themselves in the soft lining of her pussy. So, by the time the adhesive wears off in a couple of weeks, it will be fully encased inside her."  
 
  
 
@@ -2074,7 +2074,7 @@
 
  "No, it's not what you think," he laughed. "Look, you remember Travers said he heard of a personal trainer? Well, he made some calls. She's available tonight if you want to meet her. Travers has already signed off on covering all costs. She ain't cheap, but she's supposed to be good and really personalizes workouts to your needs. Apparently, she's, um, well-versed in the sort of exercises we have in mind." 
 
- "OK," Valarie said. "I'm curious now. I already worked out today, but I can do another one." Report_Story #3 
+ "OK," Valarie said. "I'm curious now. I already worked out today, but I can do another one."  
 
  
 
@@ -2206,7 +2206,7 @@
 
  When Nelson pulled his finger out of Valarie's pussy, he licked it off. "She's that sweet, huh?" Pound teased. "Wish you could send me a little sample. OK, now rub her a little bit and make sure she's good and wet and that little clit is saying hello for you." 
 
- They let Jay rub her pussy and after a few minutes he gave the wet thumbs up sign that she was ready to go, then licked her juices from all five fingers. Travers stepped forward with the pin for her clit and Nelson held her lips back so he'd have a clear shot. As gently as he could he inserted the tiny needle into her clit. Valarie felt the little prick, but it didn't really hurt. Just like a little sting from a baby bee. Report_Story #4 
+ They let Jay rub her pussy and after a few minutes he gave the wet thumbs up sign that she was ready to go, then licked her juices from all five fingers. Travers stepped forward with the pin for her clit and Nelson held her lips back so he'd have a clear shot. As gently as he could he inserted the tiny needle into her clit. Valarie felt the little prick, but it didn't really hurt. Just like a little sting from a baby bee.  
 
  
 
@@ -2318,7 +2318,7 @@
 
  "How many times do you think you'd come riding on this?" Pound taunted, waving his still hard cock at them. "Thanks for letting me be part of the show today. Valarie, remember, I'll be watching you." 
 
- The monitor went blank and everyone slowly started getting dressed, exhausted by the morning's events and dazed by what they had just seen. Report_Story #1 
+ The monitor went blank and everyone slowly started getting dressed, exhausted by the morning's events and dazed by what they had just seen.  
 
  
 
@@ -2412,7 +2412,7 @@
 
  She didn't bother to look around or even open her eyes. She was relaxed and comfortable and the tingling in her pussy was a welcome guest at her little private party of one. She pictured the three men still on the bridge, holding their remotes in one hand and cocks in the other, watching her, fiddling with the controls, waiting for her to squirm, to spread her legs, to touch herself, to moan. 
 
- She wanted to tease them and pretended to still be asleep, remaining motionless while her pussy buzzed and hummed. She nearly drifted back to sleep, but woke back up when she felt her own hand touching the inner part of her thigh. She heard a couple of chuckles from above and realized that her charade was over. She opened up her thighs and cupped her hand over her pussy, feeling the moist heat against her palm. She moved her bikini bottom to the side, surprised at how she had to peel it away from her skin like Saran wrap off a baking dish. And the main dish underneath was definitely hot and ready to eat. Report_Story #2 
+ She wanted to tease them and pretended to still be asleep, remaining motionless while her pussy buzzed and hummed. She nearly drifted back to sleep, but woke back up when she felt her own hand touching the inner part of her thigh. She heard a couple of chuckles from above and realized that her charade was over. She opened up her thighs and cupped her hand over her pussy, feeling the moist heat against her palm. She moved her bikini bottom to the side, surprised at how she had to peel it away from her skin like Saran wrap off a baking dish. And the main dish underneath was definitely hot and ready to eat.  
 
  
 
@@ -2600,7 +2600,7 @@
 
  "Got it," Jay said. "Good luck guys. Oh, and thanks, Valarie." 
 
- "Anytime, sweetie," Valarie smiled. Report_Story #1 
+ "Anytime, sweetie," Valarie smiled.  
 
  
 
@@ -2746,7 +2746,7 @@
 
  From the crate of toys and gadgets the guys had brought along, she rounded up a bottle of baby oil, two bottles of lube, a thick 8-inch dildo, a butt plug, a slender chain, a red leather collar, a pocket knife and a pair of handcuffs, setting all of the items on the table next to the u-shaped cushions near the back of the boat. 
 
- She kept looking around, making sure none of the guys had woken up and kept her eyes peeled for early morning risers along the dock. She could see people walking on the beach already in the distance, but no one close enough to see her. Her nipples were hard, no doubt due in part to the pleasantly cool morning air. Report_Story #2 
+ She kept looking around, making sure none of the guys had woken up and kept her eyes peeled for early morning risers along the dock. She could see people walking on the beach already in the distance, but no one close enough to see her. Her nipples were hard, no doubt due in part to the pleasantly cool morning air.  
 
  
 
@@ -2876,7 +2876,7 @@
 
  "They did." 
 
- "And since you know we're not causing any harm and yet you stopped us anyway, I assume you would like to receive the same kind of treatment," Travers said. Report_Story #3 
+ "And since you know we're not causing any harm and yet you stopped us anyway, I assume you would like to receive the same kind of treatment," Travers said.  
 
  
 

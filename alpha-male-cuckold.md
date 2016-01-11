@@ -246,7 +246,7 @@
 
  I keep sucking till I can feel his heartbeat in his cock. I slowly move over his big cock and press my pussy lips to it. It feels hot and strong. I rub it on my pussy lips, going over my clit with it. I am ready to take my man's cock in me. I want him deep in me, ready to unload. 
 
- "Get ready, baby. Here we go. Get ready for the fuck of your life." Report_Story #2 
+ "Get ready, baby. Here we go. Get ready for the fuck of your life."  
 
  
 

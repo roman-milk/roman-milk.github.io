@@ -164,7 +164,7 @@
 
  'Feel me,' she offered and shifted her position. 
 
- Of course I didn't have much of a clue as to what she meant, but Josephine, guessing I was a novice took my arm and guided my fingers to the spot. The heat and wetness of that place shook me completely. The deep groan from Josephine's throat when I felt the centre of her body shocked me with its primal need when Josephine lifted her hips up to press her wetness against my fingers. I probed inexpertly but found the opening to Josephine's body and was rewarded by her moan of appreciation as my fingers tentatively explored her intimate places. Report_Story #2 
+ Of course I didn't have much of a clue as to what she meant, but Josephine, guessing I was a novice took my arm and guided my fingers to the spot. The heat and wetness of that place shook me completely. The deep groan from Josephine's throat when I felt the centre of her body shocked me with its primal need when Josephine lifted her hips up to press her wetness against my fingers. I probed inexpertly but found the opening to Josephine's body and was rewarded by her moan of appreciation as my fingers tentatively explored her intimate places.  
 
  
 

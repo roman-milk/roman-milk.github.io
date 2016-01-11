@@ -212,7 +212,7 @@
 
  I eyed the man nervously, prepared to launch myself out of the second storey window if needs be. After all, what were two broken ankles compared to mashed testicles? 
 
- However I needn't have been concerned. Mr Jordan just looked at me, winked and then went for his belt buckle. "How about you suck this, Jen," he said, an order not a question. "Let the lad give you a good time. It'd be a right shame to interrupt him when he's doing so well." Report_Story #2 
+ However I needn't have been concerned. Mr Jordan just looked at me, winked and then went for his belt buckle. "How about you suck this, Jen," he said, an order not a question. "Let the lad give you a good time. It'd be a right shame to interrupt him when he's doing so well."  
 
  
 

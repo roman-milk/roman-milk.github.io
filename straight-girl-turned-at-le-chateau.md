@@ -384,7 +384,7 @@
 
  I was about to respond when Sara eagerly said, "My turn!" 
 
- "To crawl under the table and eat me?" Jane questioned. Report_Story #2 
+ "To crawl under the table and eat me?" Jane questioned.  
 
  
 
@@ -776,7 +776,7 @@
 
  A few people clapped around me, as my face went even redder at the shame of coming in public yet my orgasm made it all worthwhile. It was easily the most intense orgasm of my life and I didn't want it to ever end. 
 
- I looked over to Jane, who was drinking her drink and smiling at me. She winked and I looked away, frustrated that she had pulled me into this and equally thankful, not that I would ever tell her that. Report_Story #3 
+ I looked over to Jane, who was drinking her drink and smiling at me. She winked and I looked away, frustrated that she had pulled me into this and equally thankful, not that I would ever tell her that.  
 
  
 

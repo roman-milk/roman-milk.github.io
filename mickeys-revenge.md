@@ -114,7 +114,7 @@
 
  "Does that one that keeps sneering at me have to be here?" 
 
- "Yes he does, but don't pay any attention to him. Jerome has his heart set on my being his bitch, his white whore, and he's pissed that it isn't going to happen. He has this rich pimp image of himself and he thought he was going to make his fortune selling my white pussy to his black friends. I just might let him, at least until I get back the money from the children's college fund, but it is killing him to know that I'll always be your bitch if you want me. He's out there in that car hoping that you will either throw me out or go storming out yourself." Report_Story #2 
+ "Yes he does, but don't pay any attention to him. Jerome has his heart set on my being his bitch, his white whore, and he's pissed that it isn't going to happen. He has this rich pimp image of himself and he thought he was going to make his fortune selling my white pussy to his black friends. I just might let him, at least until I get back the money from the children's college fund, but it is killing him to know that I'll always be your bitch if you want me. He's out there in that car hoping that you will either throw me out or go storming out yourself."  
 
  
 

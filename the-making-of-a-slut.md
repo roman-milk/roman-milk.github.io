@@ -154,7 +154,7 @@
 
  I smiled as she sank to her knees and began to crawl toward me. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -292,7 +292,7 @@
 
  "Okay then Blow Job Baby, lets get to it" and she took her hand off my cock. I heard a quiet sob as her head bent down and her hot mouth took in my cock. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -486,7 +486,7 @@
 
  The look she gave me was murderous, but she got off the couch and began crawling to me. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -714,7 +714,7 @@
 
  "No I don't," I said as I smiled to my self. Things were coming along nicely. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -910,7 +910,7 @@
 
  BJ moaned, "I could learn to like this slut stuff. Yeah baby, like that, just like that." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1110,7 +1110,7 @@
 
  I finally figured it out. She wants both of us. She is afraid that if she moves back in with Mike he will eventually try to ease her away from me. She has made it plain to him that she is going to continue to be my slut even if she gets back together with him and she just doesn't believe him when he says that it is okay with him. 
 
- There is one major hurdle left for Mike to get by -- her pregnancy. He says he doesn't care, that the child is part of her so he will love it as much as he loves her. That may be what she is waiting for, to see how he reacts to the baby and how he handles the rest of the two families. Both his family and hers know that the baby is not his. So far it hasn't been a major problem, but then the baby isn't here yet. There is one more problem where the baby is concerned -- the racial one. The father of the baby could be Dave or one of his friends and with BJ's family being the bigots that they are she has decided to go away to have the baby. Report_Story #2 
+ There is one major hurdle left for Mike to get by -- her pregnancy. He says he doesn't care, that the child is part of her so he will love it as much as he loves her. That may be what she is waiting for, to see how he reacts to the baby and how he handles the rest of the two families. Both his family and hers know that the baby is not his. So far it hasn't been a major problem, but then the baby isn't here yet. There is one more problem where the baby is concerned -- the racial one. The father of the baby could be Dave or one of his friends and with BJ's family being the bigots that they are she has decided to go away to have the baby.  
 
  
 

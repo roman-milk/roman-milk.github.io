@@ -296,7 +296,7 @@
 
  I got up, changed my soiled panties, and returned to bed still disturbed by very authentic dream. I eventually concluded it was a mixture of what I saw today and a lack of sex since my husband's death. I tossed and turned for a while before falling asleep. 
 
- I REALLY NEED TO GET LAID AND MORE DIRTY DARK SECRETS ABOUT MY SON Report_Story #2 
+ I REALLY NEED TO GET LAID AND MORE DIRTY DARK SECRETS ABOUT MY SON  
 
  
 
@@ -596,7 +596,7 @@
 
  "I don't think we should," I said weakly, even as I could feel a hunger growing. I hadn't eaten pussy since college, yet the second such an opportunity was presented to me the hunger was back as if I had never quit. 
 
- "I wasn't asking your opinion, Sarah," Breanna said, as if knowing all I needed was a firm push to obey. Her tone firm, in control, she ordered, "Get on your knees, crawl between my legs and eat my cunt." Report_Story #3 
+ "I wasn't asking your opinion, Sarah," Breanna said, as if knowing all I needed was a firm push to obey. Her tone firm, in control, she ordered, "Get on your knees, crawl between my legs and eat my cunt."  
 
  
 
@@ -940,7 +940,7 @@
 
  "Harem?" I repeated. 
 
- "There are a few of us in the neighbourhood he regularly services," she said rather nonchalantly. Report_Story #4 
+ "There are a few of us in the neighbourhood he regularly services," she said rather nonchalantly.  
 
  
 
@@ -1258,7 +1258,7 @@
 
  "So what does Joey have in store for Eleanor?" I asked. 
 
- "After he fucks her, he is going make her put pantyhose on and make her pee in them before returning to the party," Breanna said. Report_Story #5 
+ "After he fucks her, he is going make her put pantyhose on and make her pee in them before returning to the party," Breanna said.  
 
  
 
@@ -1620,7 +1620,7 @@
 
  "Oh my," I said, realizing this conversation was so unreal. 
 
- "I'll take it," I said, the thought of something in my ass both exciting and daunting, yet it was obvious my son expected his sluts to have all three holes at his disposal. Report_Story #6 
+ "I'll take it," I said, the thought of something in my ass both exciting and daunting, yet it was obvious my son expected his sluts to have all three holes at his disposal.  
 
  
 
@@ -1988,7 +1988,7 @@
 
  I couldn't believe I was fucking Breanna, I couldn't believe how everything had changed in just two days. The buzzing in my own cunt was also quite thrilling as it was a constant tease. Not enough to get me off, but enough to keep it in a constant state of arousal, a perpetual state of tease. 
 
- Breanna's moans echoed throughout my room, increasing with each deep thrust. Eventually the moans became whimpers as her orgasm continued to build and she demanded, "Harder Sarah, fuck me harder." Report_Story #7 
+ Breanna's moans echoed throughout my room, increasing with each deep thrust. Eventually the moans became whimpers as her orgasm continued to build and she demanded, "Harder Sarah, fuck me harder."  
 
  
 
@@ -2290,7 +2290,7 @@
 
  "And your my Mother," he continued. 
 
- "And also your pet, your whore, your sex toy, your slave, your cum bucket, your mommy-slut," I rattled off getting hornier with each self-degradation. I fished out his cock and like a hungry slut took it into my mouth. Report_Story #8 
+ "And also your pet, your whore, your sex toy, your slave, your cum bucket, your mommy-slut," I rattled off getting hornier with each self-degradation. I fished out his cock and like a hungry slut took it into my mouth.  
 
  
 

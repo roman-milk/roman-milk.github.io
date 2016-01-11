@@ -318,7 +318,7 @@
 
  
 
- An hour later I had been shown my fully furnished apartment (it was nearly as luxurious as a Penthouse of a hotel), I unpacked a few dresses and clean undergarments and had a nice, long, hot shower. Deciding to try to impress the immaculate Headmistress, I choose a dress rather glamorous for a faculty supper, a red dress that I had only worn once at a wedding and I pulled out a pair of mocha pantyhose, identical to the ones Amanda was wearing earlier, and put them on. As I slid them on my legs I felt rich and decadent. It was like the time I was upgraded to first class and was treated like royalty. The nylon was so soft I got myself slightly damp touching my own legs. I resisted the temptation to masturbate even though I had not had an orgasm for a few days (the long days of driving exhausting me past the point of my usual daily self- exploration and I was just finishing my period). Instead, I did my make-up and hair and tried to look my best. Report_Story #2 
+ An hour later I had been shown my fully furnished apartment (it was nearly as luxurious as a Penthouse of a hotel), I unpacked a few dresses and clean undergarments and had a nice, long, hot shower. Deciding to try to impress the immaculate Headmistress, I choose a dress rather glamorous for a faculty supper, a red dress that I had only worn once at a wedding and I pulled out a pair of mocha pantyhose, identical to the ones Amanda was wearing earlier, and put them on. As I slid them on my legs I felt rich and decadent. It was like the time I was upgraded to first class and was treated like royalty. The nylon was so soft I got myself slightly damp touching my own legs. I resisted the temptation to masturbate even though I had not had an orgasm for a few days (the long days of driving exhausting me past the point of my usual daily self- exploration and I was just finishing my period). Instead, I did my make-up and hair and tried to look my best.  
 
  
 
@@ -612,7 +612,7 @@
 
  "Actually, it is happening now," I said, standing up on the pretense of my butt going numb but really so I could get a better view of her legs and feet. 
 
- Standing up I did get a much better view of her perfect legs, displayed so tantalizingly on her desk and in those shimmering pantyhose. Report_Story #3 
+ Standing up I did get a much better view of her perfect legs, displayed so tantalizingly on her desk and in those shimmering pantyhose.  
 
  
 
@@ -882,7 +882,7 @@
 
  
 
- I responded back that I was curious about the idea and asked for suggestions on what the plot would be. As I clicked send I noticed the e-mail ID was prettyandhung, which made me even more curious. Was she an actual she-male, I just assumed it was some guy with a she-male fantasy. I wished I would have asked, but figured if she-he(?) was serious they would respond back. Report_Story #4 
+ I responded back that I was curious about the idea and asked for suggestions on what the plot would be. As I clicked send I noticed the e-mail ID was prettyandhung, which made me even more curious. Was she an actual she-male, I just assumed it was some guy with a she-male fantasy. I wished I would have asked, but figured if she-he(?) was serious they would respond back.  
 
  
 
@@ -1172,7 +1172,7 @@
 
  "Well, I take pride in my work," I replied, realizing immediately it sounded pretentious. 
 
- "Hmmmmm, is that so?" she responded playfully, which I instantly could feel was a power play on her part. Report_Story #5 
+ "Hmmmmm, is that so?" she responded playfully, which I instantly could feel was a power play on her part.  
 
  
 
@@ -1418,7 +1418,7 @@
 
  ..... 
 
- The rest of the day flew by and I spent the evening starting my she-male story. I only got a few pages written as I spent time researching the concept of transgender, intersex and she-males. The more I read, the more complex the issue became and my head was spinning. In the end, I decided to stick with she- male as my story focus, ignoring the Biology aspect. Report_Story #6 
+ The rest of the day flew by and I spent the evening starting my she-male story. I only got a few pages written as I spent time researching the concept of transgender, intersex and she-males. The more I read, the more complex the issue became and my head was spinning. In the end, I decided to stick with she- male as my story focus, ignoring the Biology aspect.  
 
  
 
@@ -1758,7 +1758,7 @@
 
  My face I imagined went sunburn red as I realized it was not only one of my stories, but a story with me as the main character getting sexually dominated by a young British girl. 
 
- "You are here to see Mistress Alexis are you not, Ms. Jasmine?" she asked. Report_Story #7 
+ "You are here to see Mistress Alexis are you not, Ms. Jasmine?" she asked.  
 
  
 
@@ -2080,7 +2080,7 @@
 
  Reaching me, she pulled my pantyhose down and rubbed her cock up and down my ass crack. I was praying she wasn't going to take my ass, at least not now and was thankful when I felt her cock touch my pussy lips. She leaned over me and asked, "Ready for me to make my earlier e-mail promises come true." 
 
- "Yeeeeeees," I moaned, her cock between my pussy lips but not yet in me. Report_Story #8 
+ "Yeeeeeees," I moaned, her cock between my pussy lips but not yet in me.  
 
  
 
@@ -2390,7 +2390,7 @@
 
  "There is a clear hierarchy based on seniority here at Chateau Johnson for Girls. I have been the bottom slut for over five years, serving the every sexual whim of the other teachers, but now that will be you," she announced. 
 
- My cunt gushed at the revelation, but I tried to play shocked, "You are not serious?" Report_Story #9 
+ My cunt gushed at the revelation, but I tried to play shocked, "You are not serious?"  
 
  
 
@@ -2674,7 +2674,7 @@
 
  10. Put on the pantyhose to keep your toy in place. 
 
- I opened the package and as I sat on my bed to put the pantyhose on I pushed the plug deeper into my ass than anything had ever been inside me. I yelped at the sudden violation and pain and moaned as well as I accidental sped up the speed. I quickly put the silky pantyhose on and once dressed as a slutty cheerleader I again looked in the mirror. I looked eighteen again. Report_Story #10 
+ I opened the package and as I sat on my bed to put the pantyhose on I pushed the plug deeper into my ass than anything had ever been inside me. I yelped at the sudden violation and pain and moaned as well as I accidental sped up the speed. I quickly put the silky pantyhose on and once dressed as a slutty cheerleader I again looked in the mirror. I looked eighteen again. 0 
 
  
 
@@ -2910,7 +2910,7 @@
 
  "Keep coming," she ordered, as if I had any choice. After years of ones and twos on the Richter scale of sexual euphoria I had finally hit a ten and the tremors and aftershocks continued to register long after the original earthquake hit. 
 
- I don't even remember when or how I ended up on all fours, the lingering remnants of the euphoria still trickling through, but I was brought back to reality when the vibrating plug was pulled out and my she-male student asked, "Ready to be ass-fucked, Ms. Jasmine?" Report_Story #11 
+ I don't even remember when or how I ended up on all fours, the lingering remnants of the euphoria still trickling through, but I was brought back to reality when the vibrating plug was pulled out and my she-male student asked, "Ready to be ass-fucked, Ms. Jasmine?" 1 
 
  
 

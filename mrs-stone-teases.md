@@ -268,7 +268,7 @@
 
  It took long minutes for any sense of reality to return. David sat on the sofa for some time, erection slowly subsiding; his mind paradoxically blank yet with the cogs whirring away. In the seconds following Mrs Stone's departure he felt numb, completely unable to process what had just happened. 
 
- The fog slowly cleared and he was capable of coherent thought, and the first notion that popped into his mind was to forget the last fifteen minutes of his life had occurred. He could pretend it never happened: Mrs Stone hadn't been in his office; she hadn't said anything and she hadn't done anything. Her hand hadn't been on his leg, squeezing; she most certainly had not stroked his dick through his trousers. Report_Story #2 
+ The fog slowly cleared and he was capable of coherent thought, and the first notion that popped into his mind was to forget the last fifteen minutes of his life had occurred. He could pretend it never happened: Mrs Stone hadn't been in his office; she hadn't said anything and she hadn't done anything. Her hand hadn't been on his leg, squeezing; she most certainly had not stroked his dick through his trousers.  
 
  
 

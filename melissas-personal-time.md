@@ -244,7 +244,7 @@
 
  Spunk rushes from her when the first one withdraws from her sex. He chuckles and shakes his head at the slide of jizm oozing from Melissa's core, his gloop trickling down the crease of her buttocks. 
 
- "I knew you'd be dirty," he smirks. "I could tell the first time I saw you. You come across hoity-toity, but you're just a slut." Report_Story #2 
+ "I knew you'd be dirty," he smirks. "I could tell the first time I saw you. You come across hoity-toity, but you're just a slut."  
 
  
 

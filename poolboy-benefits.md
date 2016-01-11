@@ -244,7 +244,7 @@
 
  I saw her step back nervously. "Oh." She looked at me expectantly. "A break? Does that mean, uh, you want your payment now?" 
 
- I stood slowly, stretching. "You're killing me, beautiful. I want it more than you could possibly imagine. But I've got to get this done, or we can't empty the pool, can't work on the inlets and pump line, can't do much of anything." I walked past her, toward the deck. "Do you have a heavy duty extension cord we could use?" Report_Story #2 
+ I stood slowly, stretching. "You're killing me, beautiful. I want it more than you could possibly imagine. But I've got to get this done, or we can't empty the pool, can't work on the inlets and pump line, can't do much of anything." I walked past her, toward the deck. "Do you have a heavy duty extension cord we could use?"  
 
  
 
@@ -530,7 +530,7 @@
 
  "Perfect. I should be able to get a lot done, without a Goddess distracting me." 
 
- She rolled her eyes at me. "Whatever. I've got to go in. See you tomorrow, poolboy." Report_Story #3 
+ She rolled her eyes at me. "Whatever. I've got to go in. See you tomorrow, poolboy."  
 
  
 
@@ -858,7 +858,7 @@
 
  "As long as you promise to kiss it better after," she said softly. 
 
- With her bent over my lap, both of us naked, it only took me about a dozen smacks to have her buns nice and pink. I held her firmly in my lap, and administered a couple more for good measure. Report_Story #4 
+ With her bent over my lap, both of us naked, it only took me about a dozen smacks to have her buns nice and pink. I held her firmly in my lap, and administered a couple more for good measure.  
 
  
 
@@ -1140,7 +1140,7 @@
 
  She stroked me faster, holding the head in her mouth, her tongue working my sensitive crown over. I couldn't hold back even if I'd wanted to. I stifled a groan and let loose, filling her devilish mouth. She continued sucking on me, swallowing my seed, and keeping at it until I softened in her mouth. 
 
- "I'm sorry," she said, standing up and brushing off her knees. "I was going to save that for the end, but I couldn't stand the idea of you leaving here tonight like that." Report_Story #5 
+ "I'm sorry," she said, standing up and brushing off her knees. "I was going to save that for the end, but I couldn't stand the idea of you leaving here tonight like that."  
 
  
 
@@ -1484,7 +1484,7 @@
 
  "And?" My hands were easing her bikini bottoms down so I could rub her impeccable butt. 
 
- "I know this isn't right for me, there are so many possible paths, but my current life isn't one of them. And the knowledge that my life is wasting away, while all those other opportunities are out there, it's crushing me." Report_Story #6 
+ "I know this isn't right for me, there are so many possible paths, but my current life isn't one of them. And the knowledge that my life is wasting away, while all those other opportunities are out there, it's crushing me."  
 
  
 
@@ -1732,7 +1732,7 @@
 
  "Not yet. I don't like the taste of this suntan lotion." I parted her legs and moved between them, kissing the soft freshly shaven skin around her magical opening. "Smooth," I murmured. 
 
- "Fresh, just for you," she said softly. She was still reading my list, obviously enthralled. "Four categories, one to a page, three big goals on each page, smaller tasks below each one. This is what I should do?" Report_Story #7 
+ "Fresh, just for you," she said softly. She was still reading my list, obviously enthralled. "Four categories, one to a page, three big goals on each page, smaller tasks below each one. This is what I should do?"  
 
  
 
@@ -2056,7 +2056,7 @@
 
  She sat down, resting her full weight on my cock and sighed. "Damn," she moaned. "I knew it." 
 
- I reached for her and pulled her down onto my chest, holding her in my arms my cock buried deep inside my dream woman's tightness. We stayed like that, kissing warmly and lovingly, my hands caressing her body, her tight confines pulsing around my cock. Report_Story #8 
+ I reached for her and pulled her down onto my chest, holding her in my arms my cock buried deep inside my dream woman's tightness. We stayed like that, kissing warmly and lovingly, my hands caressing her body, her tight confines pulsing around my cock.  
 
  
 
@@ -2232,7 +2232,7 @@
 
  "God," she moaned softly. "Even better than I remember." 
 
- I stayed on my knees, looking down at her, taking it all in. Her ethereal beauty, amazing body, magazine cover-girl face. "Take out the pony tail." I told her. I wanted to see her long hair unbound, the way I loved it. It only took her a few moments to get her hair free and shake it loose. Report_Story #9 
+ I stayed on my knees, looking down at her, taking it all in. Her ethereal beauty, amazing body, magazine cover-girl face. "Take out the pony tail." I told her. I wanted to see her long hair unbound, the way I loved it. It only took her a few moments to get her hair free and shake it loose.  
 
  
 

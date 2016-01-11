@@ -96,7 +96,7 @@
 
  "OK slut, bend down and lick our shoes off, and don't forget the soles." 
 
- Sandy couldn't believe her ears. The thought of licking their shoes was revolting but she couldn't let them go to the principle. So she slowly lowered her head and began to lick Monica's shoes. Starting on the top and working her way around to the bottom as Monica raised her foot to let her lick the bottom. Heather and Monica were laughing so hard watching what was happening all the while calling their defeated teacher all kinds of vile names. Report_Story #2 
+ Sandy couldn't believe her ears. The thought of licking their shoes was revolting but she couldn't let them go to the principle. So she slowly lowered her head and began to lick Monica's shoes. Starting on the top and working her way around to the bottom as Monica raised her foot to let her lick the bottom. Heather and Monica were laughing so hard watching what was happening all the while calling their defeated teacher all kinds of vile names.  
 
  
 
@@ -192,7 +192,7 @@
 
  Sandy slowly got up and walked to the cell door and dropped to her knees. The officer opened the door and buckled a collar around her neck, attached a leash and pulled Sandy out the door. Sandy started to get up but he smacked her across the face and demanded, "Crawl slut." Sandy dropped back to her knees and crawled after the officer out the door into the main room. Sandy was never so humiliated in all her life. Here she was crawling, naked, covered in cum thru a police station in front of fifteen or twenty strange officers and into an interview room. Sandy couldn't believe her body. This was probably the worst experience of her life and her pussy was getting wet and aroused. Not just a little aroused; she was dripping wet. Her nipples were sticking out from her tits like bullets. What was wrong with her, how could this excite her? As her confusion mounted her arousal increased. 
 
- When Sandy crawled thru the door to the interview room there was a large barrel chested disgusting man seated at a table. When the officer closed the door behind her Sandy was suddenly alone with this gross man who smelled and had the most disgusting set of teeth she had ever seen. There were several missing and what was left was a dark brown color. When he looked down at Sandy she knew this wasn't going to go well. Report_Story #3 
+ When Sandy crawled thru the door to the interview room there was a large barrel chested disgusting man seated at a table. When the officer closed the door behind her Sandy was suddenly alone with this gross man who smelled and had the most disgusting set of teeth she had ever seen. There were several missing and what was left was a dark brown color. When he looked down at Sandy she knew this wasn't going to go well.  
 
  
 
@@ -236,7 +236,7 @@
 
  Two hours later both women were on the plane heading back to Indiana. 
 
- Little did they know that now the real adventure was beginning? Report_Story #1 
+ Little did they know that now the real adventure was beginning?  
 
  
 
@@ -342,7 +342,7 @@
 
  As she opened the suitcase, she was fantasizing about the two Mistresses' ordering her what toys to select. Sandy was completely into her fantasy. She wasn't in her room; she was in her classroom, naked in front of the two beauties. Anita, looking at the case, ordered Sandy to remove a set of nipple clamps, shackles for her ankles and wrists, collar and leash, a ball gag, and an anal plug. Sandy quickly grabbed the items and dreamed of taking them over by her desk. Susanna then instructed Sandy to lock the collar around her neck, and put the gag on. Sandy did as she was ordered and also locked the shackles on her ankles and wrists. She was now completely restrained locked away by her own hands. Sandy then grabbed the remaining items and put the clamps on her aroused nipples. The pain, though intense, just amplified her arousal. All that was left was the anal plug. Sandy realized that in order to get this into her it was going to take some work. She hobbled to the kitchen and grabbed a bottle of vegetable oil and proceeded to lube the plug and her ass. After inserting first one finger then two she was able to relax her sphincter what she hoped was enough to insert the plug. As she placed the plug at her ass, she fantasized Anita warning her that if she couldn't get it in she would be led out into the hall to find someone who could. Sandy then shoved hard and pushed it past the tight ring of her ass as the pain spread through her body. Sandy was now kneeling in her kitchen, naked, shackled, clamped, plugged, gagged and collared, dreaming she was at school in front of the two dominating women. Her arousal was through the roof. She took both hands and started to work on her cunt, one rubbing her clit rapidly and the other inserting two then three fingers into her cunt and fucking herself. Sandy was oblivious to the outside world. She was in her classroom submitting to the women. She could feel her climax approaching and pushed harder to move herself over the edge. When the orgasm hit, it was like nothing she had ever experienced. She collapsed onto the floor and her whole body shook violently. This continued for several minutes. When the effects of the violent orgasm began to diminish, Sandy couldn't move, she just lay in the middle of her kitchen floor and slept. About an hour later, Sandy woke from her stupor and realized what she had done. She looked at herself, bound, gagged, and plugged and cried in embarrassment. "What is wrong with me?" Then Sandy thought about her predicament. She had grabbed the shackles and collar and locked them on herself, but she didn't know where or if there were any keys. She jumped up and hobbled to the suitcase and began to frantically look for the keys. Sandy quickly turned over the case and dumped everything out on the floor. As she pawed through the many items there were no keys to be found. The longer she looked the more panicked she became. 
 
- Finally after about ten minutes and no keys, she inspected the suit case more closely. At first she didn't see anything, but then on the very bottom there appeared to be a zipper to a hidden pouch. She opened the pouch, and inside were several keys. Breathing a sigh of relief she quickly tried the keys till she was free. After removing the shackles and handcuffs, Sandy lay down on the floor amongst the toys scattered about. She still had the gag, clamps and plug on or in her body She fell into a deep sleep not knowing what was to happen and at the moment not really caring. Report_Story #2 
+ Finally after about ten minutes and no keys, she inspected the suit case more closely. At first she didn't see anything, but then on the very bottom there appeared to be a zipper to a hidden pouch. She opened the pouch, and inside were several keys. Breathing a sigh of relief she quickly tried the keys till she was free. After removing the shackles and handcuffs, Sandy lay down on the floor amongst the toys scattered about. She still had the gag, clamps and plug on or in her body She fell into a deep sleep not knowing what was to happen and at the moment not really caring.  
 
  
 
@@ -464,7 +464,7 @@
 
  Sandy was in shock. It was the second day of classes and here she was naked in her classroom, a slave to the most dominate student in school and she was so aroused she almost came when Anita gave her orders. It was her fantasy cumming to life. 
 
- Sandy then crawled over to the bag and started to get dressed. The outfit consisted of a lightweight summer dress, very thin and short, it came to just mid-thigh. Sandy knew that she couldn't stand in front of the window as the dress would be almost transparent. The shoes were a five inch strappy sandal that matched the dress. There was nothing in the bag but the toys, cuffs, and blindfold. Report_Story #3 
+ Sandy then crawled over to the bag and started to get dressed. The outfit consisted of a lightweight summer dress, very thin and short, it came to just mid-thigh. Sandy knew that she couldn't stand in front of the window as the dress would be almost transparent. The shoes were a five inch strappy sandal that matched the dress. There was nothing in the bag but the toys, cuffs, and blindfold.  
 
  
 
@@ -546,7 +546,7 @@
 
  Five minutes later Susanna showed up at her door with two men in tow. They immediately went to work on Dawn's apartment. Susanna took Dawn into the bathroom made her strip and cuffed her to the shower. Dawn was now naked and tied up in the shower listened to the men work. She wondered what they were doing and what was going to happen to her. 
 
- The balance of Sandy's day was a roller coaster of emotions. After her lunch punishment she dared not disobey her Mistress. She stood for all of her classes. The Ben-Wa balls did exactly what they were supposed to and kept Sandy on the brink of an orgasm. Several times it took all she could do to not climax in front of her class. During the last class of the day, Anita and Susanna took great pleasure in watching her suffer. Several times they would text Sandy and ordered her to walk around the room, knowing that at any minute she might lose it and orgasm. Finally the bell rang and the class emptied except for the two Mistresses. Sandy stood by her desk and waited for instructions. Anita walked over to the door, shut and locked it. She then turned to Sandy and shouted, "WHY ARE YOU STILL DRESSED SLUT?" Report_Story #4 
+ The balance of Sandy's day was a roller coaster of emotions. After her lunch punishment she dared not disobey her Mistress. She stood for all of her classes. The Ben-Wa balls did exactly what they were supposed to and kept Sandy on the brink of an orgasm. Several times it took all she could do to not climax in front of her class. During the last class of the day, Anita and Susanna took great pleasure in watching her suffer. Several times they would text Sandy and ordered her to walk around the room, knowing that at any minute she might lose it and orgasm. Finally the bell rang and the class emptied except for the two Mistresses. Sandy stood by her desk and waited for instructions. Anita walked over to the door, shut and locked it. She then turned to Sandy and shouted, "WHY ARE YOU STILL DRESSED SLUT?"  
 
  
 
@@ -556,7 +556,7 @@
 
  Anita walked up to Sandy and tossed her the coat. "From now on this is what you wear between your apartment and school nothing else. You will find further instructions when you get home. Now get over here and eat me, I'm horny and need some relief." 
 
- Sandy crawled over to her Mistress and began to complete her task. Report_Story #1 
+ Sandy crawled over to her Mistress and began to complete her task.  
 
  
 
@@ -642,7 +642,7 @@
 
  And so it went for the two teachers. Each of the two sisters had different ideas of how to train their new slaves. Their mother had instructed them on the finer points in training slaves. 
 
- 1. Control everything, including eating, bodily functions, what they wear, and most importantly when they cum. Report_Story #2 
+ 1. Control everything, including eating, bodily functions, what they wear, and most importantly when they cum.  
 
  
 
@@ -692,7 +692,7 @@
 
  Sandy started to lick the floor trying not to vomit. As she sucked the cum off the floor more was dripping off her body. Sandy reached up and wiped her eyes and face with her hands and licked them off and deposited it into the glass. Now that she could see she realized that the entire floor was covered in cum. She looked up at her Mistress and Anita said, "Clean up all that cum and crawl out to me in the store. If the glass is filled, lick up and swallow all the rest. Make sure you bring the glass with you when you finish." Anita then turned and walked down the hall. 
 
- Sandy broke down and started to cry. She was now nothing but a cum eating slut and that fact drove her to new depths and her arousal to new heights. Report_Story #1 
+ Sandy broke down and started to cry. She was now nothing but a cum eating slut and that fact drove her to new depths and her arousal to new heights.  
 
  
 
@@ -808,7 +808,7 @@
 
  Anita watched as her slave crawled to her bedroom. She remembered when she first experienced the BDSM lifestyle. She was shocked when her parents first explained to her what they were doing. She watched as they had the Mayor and his wife tied up and hanging from the ceiling, naked and collared. Her Mom was using a riding crop spanking the mayor's cock again and again as he was begging for more. His wife was being caned by her dad and she watched as he striped her body from her tits to her knees. 
 
- The next day they both were now the family's servants with the mayor dressed in a maid's uniform complete with makeup and completely hairless below the neck. His wife was naked and being fucked in the ass by dad and eating her mom's pussy. Anita watched the two most powerful people in the city begging to be humiliated and performing degrading acts and the sight went right to her pussy. She begged her mom to let them eat her or to let her play with them. But her mother refused saying only that being a master or mistress over another person was a big responsibility. She told her to be patient her time will come, right now she just needed to watch and learn. Report_Story #2 
+ The next day they both were now the family's servants with the mayor dressed in a maid's uniform complete with makeup and completely hairless below the neck. His wife was naked and being fucked in the ass by dad and eating her mom's pussy. Anita watched the two most powerful people in the city begging to be humiliated and performing degrading acts and the sight went right to her pussy. She begged her mom to let them eat her or to let her play with them. But her mother refused saying only that being a master or mistress over another person was a big responsibility. She told her to be patient her time will come, right now she just needed to watch and learn.  
 
  
 
@@ -838,7 +838,7 @@
 
  When they reached the apartment Dawn got out of the car and waited for her mistress to tell her what to do. Susanna loved it. Her new teacher slut was totally submissive not doing anything without instruction. "Take your coat off and show your neighbors your new jewelry." Dawn quickly removed the coat and proudly walked behind her mistress into her apartment. Dawn was proud she was pleasing her owner. Once inside Susanna sat down in the arm chair in the living room with Dawn at her feet. She looked down at the disgraced teacher and said "Right now I want you to put your slut mouth to good use and clean my feet while I eat my dinner. When I'm done eating you are to pleasure me. When I'm satisfied you will be put to bed to finish your training. Tomorrow we are going to show you off and demonstrate your training." 
 
- Dawn looked up at her owner and lowered her head to her naked feet to begin her tasks. "This cunt will not disappoint you, Mistress. This cunt will make you proud." Report_Story #1 
+ Dawn looked up at her owner and lowered her head to her naked feet to begin her tasks. "This cunt will not disappoint you, Mistress. This cunt will make you proud."  
 
  
 
@@ -960,7 +960,7 @@
 
  "Yes but be quick about it," Anita answered. 
 
- Ten minutes later Sandy, now wearing her coat, collar and leash, and spike heels followed her mistress out to her car. Once inside Anita instructed her to open her coat and masturbate. Sandy no longer cared if someone saw her as not doing as instructed was much worse than being seen. After about twenty minutes Susanna pulled into a gated driveway and punched a code on a panel. The gate swung open and Susanna looked over at her slave and said, "Toss your coat in the back seat. You won't need it anymore." Sandy quickly complied and sat naked as the car pulled up to a mansion. Report_Story #2 
+ Ten minutes later Sandy, now wearing her coat, collar and leash, and spike heels followed her mistress out to her car. Once inside Anita instructed her to open her coat and masturbate. Sandy no longer cared if someone saw her as not doing as instructed was much worse than being seen. After about twenty minutes Susanna pulled into a gated driveway and punched a code on a panel. The gate swung open and Susanna looked over at her slave and said, "Toss your coat in the back seat. You won't need it anymore." Sandy quickly complied and sat naked as the car pulled up to a mansion.  
 
  
 
@@ -1072,7 +1072,7 @@
 
  Dawn looked up at the massive man and used her hands to gather the cum that covered her body and licked them clean. 
 
- Juan walked over to the semi-conscious slave strapped to the table. Her head was hanging over the edge and the ring gag was removed. In this position there would be no restriction when the men fucked her mouth and straight down her throat. Her legs were spread wide and elevated so now there was full access to both her cunt and ass. It was time to initiate her to the world of slutdom. Juan walked over to the table and grabbed a bottle of water and poured it over her head. Report_Story #3 
+ Juan walked over to the semi-conscious slave strapped to the table. Her head was hanging over the edge and the ring gag was removed. In this position there would be no restriction when the men fucked her mouth and straight down her throat. Her legs were spread wide and elevated so now there was full access to both her cunt and ass. It was time to initiate her to the world of slutdom. Juan walked over to the table and grabbed a bottle of water and poured it over her head.  
 
  
 
@@ -1166,7 +1166,7 @@
 
  Once inside she dropped her coat inside the door and dropped to her knees. It wasn't to wait on instructions it was because she couldn't walk any further. 
 
- "Crawl to bed slut, I'll set your alarm and leave you food and instructions on the table. Make sure you follow them and I'll see you tomorrow." Report_Story #1 
+ "Crawl to bed slut, I'll set your alarm and leave you food and instructions on the table. Make sure you follow them and I'll see you tomorrow."  
 
  
 
@@ -1294,7 +1294,7 @@
 
  Thomas was holding his smart phone about to show Jason a new feature he just discovered with the camera feature on his phone when Sandy came rushing out of the locker room. 
 
- Jason grunted as Miss Hauser crashed into his chest. The last thing he expected was Miss Hauser running out of the boy's locker room. Before Sandy could move, he grabbed her and kept her from falling. In doing so, he grabbed her tits and they spilled out of her dress. Both boys broke out in wide grins looking at Miss Hauser's tits. Sandy blushed and spluttered a quick moan before she pushed his hands off her tits and put them back into her dress. Thomas with his phone out and ready quickly snapped a couple of pictures of the blushing teacher with her tits spilling out of her dress. Report_Story #2 
+ Jason grunted as Miss Hauser crashed into his chest. The last thing he expected was Miss Hauser running out of the boy's locker room. Before Sandy could move, he grabbed her and kept her from falling. In doing so, he grabbed her tits and they spilled out of her dress. Both boys broke out in wide grins looking at Miss Hauser's tits. Sandy blushed and spluttered a quick moan before she pushed his hands off her tits and put them back into her dress. Thomas with his phone out and ready quickly snapped a couple of pictures of the blushing teacher with her tits spilling out of her dress.  
 
  
 
@@ -1474,7 +1474,7 @@
 
  Dawn stood waiting on her students to arrive. The morning so far had been nerve-racking. Between arriving almost naked and showering in the locker room, Dawn's body was tingling with excitement. Her cunt was dripping and with no underwear the moisture was sliding down her thighs. As long as she stood, it wouldn't spot her skirt. However at the rate she was juicing, it wouldn't be long till it reached her knees. 
 
- The bell rang to start homeroom and the students were staring at their teacher. She had never dressed like this before. Her skirt was very short stopping only a few inches below her ass. Even with the cover-up you could easily see everything under it. What surprised them even more was the tight crop top that clung to her tits and exposed her stomach. The cover-up buttoned right at her belly button but the students in the first row could make out the chains going down from her breasts down into her skirt. Dawn had hoped that the cover-up would make them less noticeable, but the expressions on the faces looking at her told her otherwise. Dawn blushed down her to chest and her breathing quickened. She quickly sat down behind her desk to try to hide, but as soon as her ass hit the seat, the plug started to vibrate. Report_Story #3 
+ The bell rang to start homeroom and the students were staring at their teacher. She had never dressed like this before. Her skirt was very short stopping only a few inches below her ass. Even with the cover-up you could easily see everything under it. What surprised them even more was the tight crop top that clung to her tits and exposed her stomach. The cover-up buttoned right at her belly button but the students in the first row could make out the chains going down from her breasts down into her skirt. Dawn had hoped that the cover-up would make them less noticeable, but the expressions on the faces looking at her told her otherwise. Dawn blushed down her to chest and her breathing quickened. She quickly sat down behind her desk to try to hide, but as soon as her ass hit the seat, the plug started to vibrate.  
 
  
 
@@ -1650,7 +1650,7 @@
 
  Dawn slowly rose to her knees and crawled around the desk and between Julie's legs. She looked up at the woman above her and stuck her tongue out and licked the length of her slit. Julie gasped as she had never been licked by a woman before and the feeling was amazing. She wasn't sure if it was because of the touch or the situation of compelling her to do this against her will that excited her more. 
 
- Dawn continued to lick the pussy in front of her face with more enthusiasm as she forgot where she was as her training was taking over. The only thing that mattered was pleasing Julie. As she worked her tongue deep into the folds and working up to her clit, she heard her gasp and her body trembled. Dawn concentrated on the clit and shortly Julie clamped her legs around her head and climaxed, spraying her face with her juices. She kept licking till Julie pushed her away and down on the floor. Dawn landed on her sore ass and yelped in pain. However she remained sitting on the floor waiting for direction. Report_Story #4 
+ Dawn continued to lick the pussy in front of her face with more enthusiasm as she forgot where she was as her training was taking over. The only thing that mattered was pleasing Julie. As she worked her tongue deep into the folds and working up to her clit, she heard her gasp and her body trembled. Dawn concentrated on the clit and shortly Julie clamped her legs around her head and climaxed, spraying her face with her juices. She kept licking till Julie pushed her away and down on the floor. Dawn landed on her sore ass and yelped in pain. However she remained sitting on the floor waiting for direction.  
 
  
 
@@ -1764,7 +1764,7 @@
 
  Jack only had one more task to complete. He looked at the time and realized that he would have to pick up the pace. He needed to have everything finished by 3:30. That way she could get back to school by 4:00. Jack released her legs and rolled Dawn over on her stomach. Once in position he let her legs fall over the edge of the table. He then placed a strap around her body to hold her in place. His next task was to tattoo a tramp stamp on her lower back. The design was fairly intricate with the word SLAVE prominently displayed. Once he was finished, any time she wore anything that showed her back it would be prominently displayed. 
 
- About an hour and a half later just as he was finishing, Dawn started to stir. She started to move a bit but Jack smacked her ass and told her to not move. Dawn's mind was clearing and she realized what was happening. She started sobbing and tears ran down her cheeks. A few minutes later Jack released her and helped her up. It took a minute or so before her legs were functioning again when she saw her body in the large mirror mounted to the wall. The first thing she noticed was the tattoo right above her cunt. She gasped and almost collapsed but Jack caught her. As her hand came up to her face she saw the slave bracelet. She looked into the mirror and saw the remaining chains. Her mind went blank; she didn't realize the ramifications of everything she saw. Jack slowly turned her around and held a hand-held mirror so she could see the tramp stamp above her ass. Her mind finally grasped it all and she started to cry hysterically. Report_Story #5 
+ About an hour and a half later just as he was finishing, Dawn started to stir. She started to move a bit but Jack smacked her ass and told her to not move. Dawn's mind was clearing and she realized what was happening. She started sobbing and tears ran down her cheeks. A few minutes later Jack released her and helped her up. It took a minute or so before her legs were functioning again when she saw her body in the large mirror mounted to the wall. The first thing she noticed was the tattoo right above her cunt. She gasped and almost collapsed but Jack caught her. As her hand came up to her face she saw the slave bracelet. She looked into the mirror and saw the remaining chains. Her mind went blank; she didn't realize the ramifications of everything she saw. Jack slowly turned her around and held a hand-held mirror so she could see the tramp stamp above her ass. Her mind finally grasped it all and she started to cry hysterically.  
 
  
 
@@ -1828,7 +1828,7 @@
 
  Dawn cringed at hearing those words but deep inside there was a feeling of satisfaction that she had pleased her mistress. "What can the lowly slut do to please you mistress?" 
 
- Susanna smiled and tossed her the collar and leash. "Put these on and go to the locker room and change to your coat. I will meet you at the door to the parking lot." Susanna turned and walked out the door. Dawn grabbed the collar, slipped on her clothes and headed to the locker room. Her day was now done. Report_Story #1 
+ Susanna smiled and tossed her the collar and leash. "Put these on and go to the locker room and change to your coat. I will meet you at the door to the parking lot." Susanna turned and walked out the door. Dawn grabbed the collar, slipped on her clothes and headed to the locker room. Her day was now done.  
 
  
 
@@ -1956,7 +1956,7 @@
 
  "OK then, drop to your knees and get busy with that tongue of yours." 
 
- Cindy lowered herself to her knees and crawled over to Susan and pulled her sweats down and gazed at her neatly trimmed pussy. She then leaned in, stuck out her tongue and tentatively licked her labia. Cindy knew she shouldn't be excited but her body didn't know that. Report_Story #2 
+ Cindy lowered herself to her knees and crawled over to Susan and pulled her sweats down and gazed at her neatly trimmed pussy. She then leaned in, stuck out her tongue and tentatively licked her labia. Cindy knew she shouldn't be excited but her body didn't know that.  
 
  
 
@@ -2098,13 +2098,13 @@
 
  After a refreshing shower Susan returned to the room. Cindy was sitting naked on her bed. "May I get dressed now mistress? I have class in about an hour." 
 
- Susan looked at the sexy slut looking up at her. "Sure but first I want to get something for you to keep you in the right frame of mind." She knelt down beside her bed and pulled out a box. She opened it and pulled out a medium size butt plug, some lubricant, and a black choker. Although the choker wasn't a slave collar, it would remind her slut of her new status. Report_Story #3 
+ Susan looked at the sexy slut looking up at her. "Sure but first I want to get something for you to keep you in the right frame of mind." She knelt down beside her bed and pulled out a box. She opened it and pulled out a medium size butt plug, some lubricant, and a black choker. Although the choker wasn't a slave collar, it would remind her slut of her new status.  
 
  
 
  ****** Teacher Teacher Ch. 07 ****** bysadkins116© "Put the plug in and leave it there until I tell you to remove it. If you need to go to the bathroom first go ahead, but only wear a tee shirt. I also want you to wear this choker to remind you that you belong to me." She then leaned over and released her hands. 
 
- Cindy grabbed the items, picked up a tee shirt, slipped it on and walked out the door. She had a tingle down below and her cunt was once again wet. She had never been this aroused for so long before in her life. Report_Story #1 
+ Cindy grabbed the items, picked up a tee shirt, slipped it on and walked out the door. She had a tingle down below and her cunt was once again wet. She had never been this aroused for so long before in her life.  
 
  
 
@@ -2294,7 +2294,7 @@
 
  "Good, take off your night gown and leave it where you are and return to the couch." 
 
- "Yes mistress," Julie answered as she dropped the night gown on the floor and walked naked to the couch. Julie looked at the stairs and hoped Alex stayed in his room. Report_Story #2 
+ "Yes mistress," Julie answered as she dropped the night gown on the floor and walked naked to the couch. Julie looked at the stairs and hoped Alex stayed in his room.  
 
  
 
@@ -2464,7 +2464,7 @@
 
  Julie gasped as the fear of getting caught was now very real. She looked down at the slave teacher licking away on her cunt and moaned. The slut was very good at what she was doing and her body was building towards a climax in spite of the pain. Julie closed her eyes and embraced the oncoming orgasm. Her world centered on her dripping pussy. Moments later she exploded on the sluts face, covering it with her cum. 
 
- Dawn sat for a minute to see if there was anything else but Julie nodded towards the door and she stood up and cautiously peeked out into the hallway to see if anyone was around. Seeing no one she slipped out the door naked to head to the locker room to get ready for the day. Dawn had never been as scared as she was walking to the girl's locker room. Not only was she naked, but all her slave chains and tats were completely visible. As she continued her journey Dawn's excitement level was through the roof. Her legs were now coated with her pussy juice as her cunt was dripping. Her humiliation was driving her arousal to new levels. Coming into the school she dreaded what her mistress would have her wear in front of the class. But now she was excited about it. Her School training was being replaced by her slave training. Deep down she wanted to announce to the world that she was a slave, and a slave to a student at that. Report_Story #3 
+ Dawn sat for a minute to see if there was anything else but Julie nodded towards the door and she stood up and cautiously peeked out into the hallway to see if anyone was around. Seeing no one she slipped out the door naked to head to the locker room to get ready for the day. Dawn had never been as scared as she was walking to the girl's locker room. Not only was she naked, but all her slave chains and tats were completely visible. As she continued her journey Dawn's excitement level was through the roof. Her legs were now coated with her pussy juice as her cunt was dripping. Her humiliation was driving her arousal to new levels. Coming into the school she dreaded what her mistress would have her wear in front of the class. But now she was excited about it. Her School training was being replaced by her slave training. Deep down she wanted to announce to the world that she was a slave, and a slave to a student at that.  
 
  
 
@@ -2592,7 +2592,7 @@
 
  "OK, slut, out of the room while I finish setting up our new toy. Wait for me by the door, I will be out shortly. Dawn crawled out the door and shut it behind her. 
 
- Susanna then set about connecting the clips as she had to Dawn, to Julie's nipples and labia. Securing the vibrator embedded deep in her cunt. But this time she added a small vibrator to her clit. Everything would be controlled by the control box on the bed stand. She then spoke into the microphone, "Its training time slut. I will be back later to check on you." She then started the program. It was going to be a long few hours for Julie. Report_Story #1 
+ Susanna then set about connecting the clips as she had to Dawn, to Julie's nipples and labia. Securing the vibrator embedded deep in her cunt. But this time she added a small vibrator to her clit. Everything would be controlled by the control box on the bed stand. She then spoke into the microphone, "Its training time slut. I will be back later to check on you." She then started the program. It was going to be a long few hours for Julie.  
 
  
 
@@ -2718,7 +2718,7 @@
 
  The men realized that in order to get their turn something would have to be done. Soon someone showed up with a small bench. Several men grabbed the slut, picked her up and lay her on her back on top of the bench. It was the perfect height. There was no longer a need to kneel to fuck the slut. Sandy's head was just over the edge giving a straight shot down her throat, and the bench ended right at her hips. All they had to do was lift her legs to give them easy access to either orifice. Sandy now had the use of her hands as there was now four lines around her. Although almost unconscious when the two men on each side grabbed her hands and placed them on their cocks, Sandy, by instinct started to stroke each of them, and was soon in a rhythm as all four men were now groaning with pleasure. 
 
- As the end of the first hour approached Sandy was no longer trying to fill her cup. She had no control as most of the men fucking her face, shoved their cocks down her throat to cum. Her body was now covered with ounces of cum, and both her ass and cunt was leaking copious amounts of fluids from many cocks. Report_Story #2 
+ As the end of the first hour approached Sandy was no longer trying to fill her cup. She had no control as most of the men fucking her face, shoved their cocks down her throat to cum. Her body was now covered with ounces of cum, and both her ass and cunt was leaking copious amounts of fluids from many cocks.  
 
  
 
@@ -2858,7 +2858,7 @@
 
  Sandy went about following her mistress' instructions. The biggest surprise was the breakfast, it was donuts! Sandy wolfed down the three donuts. She had never tasted anything better in her life. Maybe this was going to be a good day. 
 
- At a quarter to nine she knelt down by the door naked. Her body was totally clean for the first time in several days. She took her time and fixed her hair and makeup. Sandy actually felt good about her appearance for the first time since the opening day of school. Report_Story #3 
+ At a quarter to nine she knelt down by the door naked. Her body was totally clean for the first time in several days. She took her time and fixed her hair and makeup. Sandy actually felt good about her appearance for the first time since the opening day of school.  
 
  
 
@@ -3040,7 +3040,7 @@
 
  When Cindy returned, Susan explained what had happened at the lawyer's office. As she was explaining what the Martinez family was involved with, Susan came to the conclusion that she was allowing her fantasies to warp her thinking. It was one thing to dominate another person, if that person wanted to be dominated. But the relationship must be mutual, not one of non-consensual domination. Each person has a responsibility to the other. The dominate, must keep her submissive safe and protect her at all costs. And the submissive must trust that her mistress will keep her safe and not endanger her. It is truly the submissive that ends up with the control. 
 
- Susan looked into Cindy's eyes and started to cry. "I'm sorry Cindy, I'm afraid I've got a lot to learn about being a mistress. I want you to know that I won't jeopardize your life or reputation in any way. If you do not want this relationship we stop right now. It will not affect our friendship in any way. However, if you should want to continue, I will protect you and never betray that trust." Report_Story #4 
+ Susan looked into Cindy's eyes and started to cry. "I'm sorry Cindy, I'm afraid I've got a lot to learn about being a mistress. I want you to know that I won't jeopardize your life or reputation in any way. If you do not want this relationship we stop right now. It will not affect our friendship in any way. However, if you should want to continue, I will protect you and never betray that trust."  
 
  
 
@@ -3166,7 +3166,7 @@
 
  "We can't make any promises but we will do all we can to help you. But in the meantime do as you are told and don't tell anyone you spoke to us. Write down your cell number and we will be in touch. If you think of anything else call me at this number." Susan told the naked slut as she wrote down her number on a post-it. 
 
- Susan and Cindy turned and walked out the door. Julie watched as they left and reached down and started to slowly move the vibrator in and out of her cunt again. Her mistress told her to fuck herself, naked in her office for 15 minutes each hour. She had been interrupted and had to finish as commanded. Report_Story #1 
+ Susan and Cindy turned and walked out the door. Julie watched as they left and reached down and started to slowly move the vibrator in and out of her cunt again. Her mistress told her to fuck herself, naked in her office for 15 minutes each hour. She had been interrupted and had to finish as commanded.  
 
  
 
@@ -3326,7 +3326,7 @@
 
  "Drop down on your knees and lick my shoes slut and you better make it quick if you don't want to get caught." 
 
- Julie, standing naked in the staff parking lot, quickly dropped to her knees and dropped her head down to Susanna's shoes. Praying nobody walked out the staff door, she quickly started to lick her mistress's shoes. Instead of making her sick, her body's reaction was to ramp up her arousal to an extreme level. Her cunt was now gushing around the vibrator still deeply embedded in her pussy. The more she licked and the longer she stayed on her knees, the more aroused was her body. Report_Story #2 
+ Julie, standing naked in the staff parking lot, quickly dropped to her knees and dropped her head down to Susanna's shoes. Praying nobody walked out the staff door, she quickly started to lick her mistress's shoes. Instead of making her sick, her body's reaction was to ramp up her arousal to an extreme level. Her cunt was now gushing around the vibrator still deeply embedded in her pussy. The more she licked and the longer she stayed on her knees, the more aroused was her body.  
 
  
 
@@ -3518,7 +3518,7 @@
 
  When Susanna pulled off her blindfold, Julie looked into her eyes and started to cry. "Mistress, what did I do wrong, I'm sorry mistress, what can this slut do to please you?" 
 
- Susanna smiled, although she wanted her training to continue for another couple of hours, maybe this would be enough. "It's OK, slut. Calm down." She said as she gently massaged her nipples as she removed the clips. "You did nothing wrong. A nurse is calling about your mother. She is not doing well and she needs to speak with you. I want you to gather your thoughts and speak to her. She wants you to come to the nursing home. I want you to tell her you can't be there till tomorrow. We will let you go there tomorrow but you must be back tomorrow evening. Can you do this?" Report_Story #3 
+ Susanna smiled, although she wanted her training to continue for another couple of hours, maybe this would be enough. "It's OK, slut. Calm down." She said as she gently massaged her nipples as she removed the clips. "You did nothing wrong. A nurse is calling about your mother. She is not doing well and she needs to speak with you. I want you to gather your thoughts and speak to her. She wants you to come to the nursing home. I want you to tell her you can't be there till tomorrow. We will let you go there tomorrow but you must be back tomorrow evening. Can you do this?"  
 
  
 
@@ -3742,7 +3742,7 @@
 
  Julie's face flushed as the thought of crawling up to her son and Carrie was mortifying. Being almost naked make it even worse. But Julie could not resist her training, she had to please Carrie. "It would make me very happy to serve you on my knees, Miss Carrie." Julie dropped to the floor and carefully crawled to the couch. 
 
- Carrie giggled as the nearly naked submissive mother struggled to crawl across the room without spilling the drinks. Report_Story #4 
+ Carrie giggled as the nearly naked submissive mother struggled to crawl across the room without spilling the drinks.  
 
  
 
@@ -3972,7 +3972,7 @@
 
  I'm sorry about the how long it is takeing between chapters. I'm trying to bring everything to a logical conclusion. As there are now several characters and several story lines, blending everything together to reach the end is proving difficult. Please be patient. I am working on chapter 11 and hope to have it ready for the editor in a week or so. I really would like to know what you think of this last chapter. Please comment and vote. 
 
- Thanks Report_Story #1 
+ Thanks  
 
  
 
@@ -4132,7 +4132,7 @@
 
  "OK, what do you want?" Susanna asked. 
 
- "I want to tie them up till they can't move. I want clips on their nipples, cunt lips, and tongues. Make sure we use the largest vibrators and plugs. I've set the controls to the max, so there will be no going back after this. There will be no resistance when the program is finished." Report_Story #2 
+ "I want to tie them up till they can't move. I want clips on their nipples, cunt lips, and tongues. Make sure we use the largest vibrators and plugs. I've set the controls to the max, so there will be no going back after this. There will be no resistance when the program is finished."  
 
  
 
@@ -4288,7 +4288,7 @@
 
  Susan was now cleaning up the mess around the confused mother's cunt. Just as the cloth brushed her labia, Julie gasped. As quickly as her moment of clarity happened, the touch of the cloth brought back all the twins training. It was as if a switch was flipped. After the orgasm had cleared her mind, just a touch on her cunt sent her arousal through the roof, and with that the training from the mind bender. 
 
- "Oh Alex, I love you, please take me. I need you to fuck me. Please master, take this slut and use me anyway you wish." Report_Story #3 
+ "Oh Alex, I love you, please take me. I need you to fuck me. Please master, take this slut and use me anyway you wish."  
 
  
 
@@ -4466,7 +4466,7 @@
 
  Julie had resisted reverting back to her training until he called her slave. Her mind snapped and she was once again a submissive slut, eager to please her master. She quickly rose to her knees and crawled to the nearest man. "Please master; let this lowly slut worship your cock. Please feed this slave your cum. Please I beg you to fuck my face and satisfy your needs." 
 
- The large man smiled, opened his pants and freed his large semi-erect cock. Julie gasped and quickly opened her mouth and started to lick the large head. The thug smiled and grabbed her head and pushed his cock deep in her mouth. Julie gagged as the massive head penetrated her throat. When he pulled her head back, Julie drooled down her chest, soaking her tits. He continued to fuck her throat without mercy until he groaned and shot his seed directly into her stomach. Report_Story #4 
+ The large man smiled, opened his pants and freed his large semi-erect cock. Julie gasped and quickly opened her mouth and started to lick the large head. The thug smiled and grabbed her head and pushed his cock deep in her mouth. Julie gagged as the massive head penetrated her throat. When he pulled her head back, Julie drooled down her chest, soaking her tits. He continued to fuck her throat without mercy until he groaned and shot his seed directly into her stomach.  
 
  
 
@@ -4520,7 +4520,7 @@
 
  Anita and Susanna looked around the room. Cindy and her friend were naked and sitting on the floor, their face covered in drool from servicing the leader. Their hands cuffed behind them. Julie was cowering in the corner, her face and tits covered in spit and cum. The teacher slaves were kneeling in front of the couch waiting on further instructions. 
 
- "Well sis, I guess we have our hands full. We better get busy if we expect to finish what dad wants," Anita said. Report_Story #1 
+ "Well sis, I guess we have our hands full. We better get busy if we expect to finish what dad wants," Anita said.  
 
  
 
@@ -4650,7 +4650,7 @@
 
  Alex suddenly woke with a start as ice cold water cascaded down his body. He was shivering from the cold and the residual effects of the orgasm. 
 
- With the visor closed he no longer knew where he was of how long he had been there. Then it started again. This time instead of the visor opening there appeared a picture of his mother naked, crawling towards him begging him to give her his cock. But instead of pain his cock started to grow. Confusion clouded his brain as he expected pain, but it was pleasure, intense pleasure. Just as his mother got to his cock, everything went black. But his arousal didn't diminish it only increased. He felt a hand on his cock and knew it was his mother. Then the visor opened and standing in front of his was a sexy woman. Instantly the pain returned with such intensity that his whole body convulsed. Over and over the training continued. Report_Story #2 
+ With the visor closed he no longer knew where he was of how long he had been there. Then it started again. This time instead of the visor opening there appeared a picture of his mother naked, crawling towards him begging him to give her his cock. But instead of pain his cock started to grow. Confusion clouded his brain as he expected pain, but it was pleasure, intense pleasure. Just as his mother got to his cock, everything went black. But his arousal didn't diminish it only increased. He felt a hand on his cock and knew it was his mother. Then the visor opened and standing in front of his was a sexy woman. Instantly the pain returned with such intensity that his whole body convulsed. Over and over the training continued.  
 
  
 
@@ -4796,7 +4796,7 @@
 
  Anita smiled as she watched her sister squirm as the effects of the nipple clamps pushed her sister's body into hyper drive. She then slid her hand down and touched Susanna's clit, only just brushing it. Susanna's entire body went rigid as soon as her finger touched the extended nub. 
 
- Susanna was hyperventilating as all the sensations wracking her body were overwhelming. Just as she started to calm down, Anita grabbed a crop and smacked it down on Susanna's exposed cunt. Report_Story #3 
+ Susanna was hyperventilating as all the sensations wracking her body were overwhelming. Just as she started to calm down, Anita grabbed a crop and smacked it down on Susanna's exposed cunt.  
 
  
 
@@ -4978,7 +4978,7 @@
 
  "Sally won, what do we do to slave Julie?" Patty asked. 
 
- "Sally thought for a moment, and then smiled, "I was so pissed off yesterday when my History teacher took my phone. Let's take them all into the shower and piss all over her. Then the other two can lick her off." Report_Story #4 
+ "Sally thought for a moment, and then smiled, "I was so pissed off yesterday when my History teacher took my phone. Let's take them all into the shower and piss all over her. Then the other two can lick her off."  
 
  
 

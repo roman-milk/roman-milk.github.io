@@ -338,7 +338,7 @@
 
  "Well then," she began straddling my still semi-erect cock, "if I am going to be labelled a slut, I better make it worthwhile." 
 
- Report_Story #2 
+  
 
  
 
@@ -616,7 +616,7 @@
 
  "Give me an example," I asked, trying to figure out my Mother's insecurity, when she was otherwise a very confident woman. My hand was now at her slightly wet and uncovered pussy, distracting her slightly. 
 
- She was silent for a while as she seemed to be reminiscing her past with Ellie. "Well, as I mentioned. With Ellie it was clear that she was the Domme and I the sub. For example," she began, but stopped, struggling to put the experience into words. She explained, "You got to understand I was and probably still am in love with Ellie. But while she was comfortable with her sexuality, I was too weak to ever tell my parents of my sexual preference at the time. Being bi or a lesbian back then was a lot more socially condemned than now, when it is apparently in fashion." Report_Story #3 
+ She was silent for a while as she seemed to be reminiscing her past with Ellie. "Well, as I mentioned. With Ellie it was clear that she was the Domme and I the sub. For example," she began, but stopped, struggling to put the experience into words. She explained, "You got to understand I was and probably still am in love with Ellie. But while she was comfortable with her sexuality, I was too weak to ever tell my parents of my sexual preference at the time. Being bi or a lesbian back then was a lot more socially condemned than now, when it is apparently in fashion."  
 
  
 

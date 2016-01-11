@@ -116,7 +116,7 @@
 
  The waiters shuffled forward collectively and gathered around the naked girl. They all had that glazed, almost stunned expression that Rebecca had missed so much since her brother had abandoned her. She spread her legs wider and held the sticky lips of her sex open with her fingertips. She was rewarded by the hissing sound of the waiters' intake of breath, and the men crowded closer to the voluptuous woman who was exhibiting herself with such abandon. 
 
- 'Come on boys, show me your big cocks,' Rebecca said and emphasised her point by reaching out a hand and unzipping one of her eager audience. Report_Story #2 
+ 'Come on boys, show me your big cocks,' Rebecca said and emphasised her point by reaching out a hand and unzipping one of her eager audience.  
 
  
 
@@ -244,7 +244,7 @@
 
  The mature man and the loud mouth both moved to Rebecca's head as David thrust powerfully in and out of her. Rebecca mauled at her tits as they swung and swayed under the power of David's fucking. She pulled at her nipples roughly and turned the delicate flesh red and inflamed under her onslaught. The sound of her juicing cunt squelched obscenely as David's thick girth pushed into her body, and Rebecca's labia clung tackily to the shaft of David's cock each time he pulled out of her grip by several inches. 
 
- 'Come on me, boys. Please... Two more loads on my tits and face, please! Rebecca used her middle finger against her stiff clit as she struggled to reach her first climax. Ideally she wanted all three men to come simultaneously. Two of them on her body as David let his seed gush into her clenching sex. 'Come on! On my tits, come on my tits,' she cried loudly. 'You come in my cunt, David,' Rebecca squealed and looked into the young man's contorted face as she spoke. 'Let me feel you splash inside me, fill me with it, please.' Report_Story #3 
+ 'Come on me, boys. Please... Two more loads on my tits and face, please! Rebecca used her middle finger against her stiff clit as she struggled to reach her first climax. Ideally she wanted all three men to come simultaneously. Two of them on her body as David let his seed gush into her clenching sex. 'Come on! On my tits, come on my tits,' she cried loudly. 'You come in my cunt, David,' Rebecca squealed and looked into the young man's contorted face as she spoke. 'Let me feel you splash inside me, fill me with it, please.'  
 
  
 

@@ -206,7 +206,7 @@
 
  "Married to Adrianna." 
 
- I turned to Paul, "Is that true? Are you Ri's ex?" Report_Story #2 
+ I turned to Paul, "Is that true? Are you Ri's ex?"  
 
  
 

@@ -538,7 +538,7 @@
 
  
 
- It took us another 40 minutes to clear the rest of the level. She died three times, and I died once. She did a good job of staying alive and rezzing me, I'll give her that. It normally takes me less than 1/2 hour to do the whole thing solo. We still needed work, but by the end we were getting the hang of each other. Report_Story #2 
+ It took us another 40 minutes to clear the rest of the level. She died three times, and I died once. She did a good job of staying alive and rezzing me, I'll give her that. It normally takes me less than 1/2 hour to do the whole thing solo. We still needed work, but by the end we were getting the hang of each other.  
 
  
 
@@ -1144,7 +1144,7 @@
 
  She leaned closer to the camera. "Take all the time you need. I'm not going anywhere." She sat back. "Still, a ring like that, with a 6 million dollar stone? I feel like Elizabeth Taylor." 
 
- "I'm glad you like it. You're worth every bit and more." Report_Story #3 
+ "I'm glad you like it. You're worth every bit and more."  
 
  
 
@@ -1592,7 +1592,7 @@
 
  "To me you are. The best girl I've ever known. I adore everything about you. I wish I could let you feel what I feel." 
 
- She had closed her legs, wiping her eyes with her arm. "I'm broken, Steve. I know it. Everyone knows it. I can't stand a man's touch, I'm frigid, sexless." Report_Story #4 
+ She had closed her legs, wiping her eyes with her arm. "I'm broken, Steve. I know it. Everyone knows it. I can't stand a man's touch, I'm frigid, sexless."  
 
  
 
@@ -2000,7 +2000,7 @@
 
  "What I don't understand is the way you can tease me and joke with me over the web. How could you even stand to see my...my penis, after what happened to you?" 
 
- "I don't know. In game it's easy enough, everyone's anonymous. Teasing you over Skype made it a fantasy. Like I was normal. Almost like a real relationship. I've never had a boyfriend. I liked pretending that you and me, we could be like regular people." Report_Story #5 
+ "I don't know. In game it's easy enough, everyone's anonymous. Teasing you over Skype made it a fantasy. Like I was normal. Almost like a real relationship. I've never had a boyfriend. I liked pretending that you and me, we could be like regular people."  
 
  
 
@@ -2118,7 +2118,7 @@
 
  ====================== 
 
- Thank you for reading. This is chapter 1 of a 3 chapter story. If you enjoyed it, you're invited to comment and vote! Report_Story #1 
+ Thank you for reading. This is chapter 1 of a 3 chapter story. If you enjoyed it, you're invited to comment and vote!  
 
  
 
@@ -2434,7 +2434,7 @@
 
  I saw her fiddling with her iPad for a second, adjusting her grip, as if to verify it was still there. "I guess we can't stand out here forever." 
 
- I put my elbow out to escort her, and a few seconds later I felt her hand slip in and grab my bicep. I kind of wished it was bigger. She gave me a squeeze. "Take lead." Report_Story #2 
+ I put my elbow out to escort her, and a few seconds later I felt her hand slip in and grab my bicep. I kind of wished it was bigger. She gave me a squeeze. "Take lead."  
 
  
 
@@ -2754,7 +2754,7 @@
 
  "Look who's talking, dipshit. Couldn't wait for the cavalry could you?" 
 
- "Your face...looks better," I told him, trying to look around. Mark was there, looking fresh as a daisy, and behind him were Robert and Sandy. She looked like she'd been crying. I noticed that most were out of their party clothes, except Dan and Sandy. Report_Story #3 
+ "Your face...looks better," I told him, trying to look around. Mark was there, looking fresh as a daisy, and behind him were Robert and Sandy. She looked like she'd been crying. I noticed that most were out of their party clothes, except Dan and Sandy.  
 
  
 
@@ -3104,7 +3104,7 @@
 
  "Don't get me wrong, Sheri. It was nice. But she's not who I wanted doing that." 
 
- Sheri grinned, moving closer to the camera, sucking on her finger. "Really? Now who could you possibly have in mind? You couldn't possibly want your 'Angel' to do such a naughty thing. Putting that big, hard, nasty thing in her innocent little mouth? I don't think it would even fit!" Report_Story #4 
+ Sheri grinned, moving closer to the camera, sucking on her finger. "Really? Now who could you possibly have in mind? You couldn't possibly want your 'Angel' to do such a naughty thing. Putting that big, hard, nasty thing in her innocent little mouth? I don't think it would even fit!"  
 
  
 
@@ -3322,7 +3322,7 @@
 
  ======================= 
 
- The conclusion of the Gamer Goddess series follows shortly. Completed and in final edit. Again, I hope you've enjoyed the story so far. Thanks. Report_Story #1 
+ The conclusion of the Gamer Goddess series follows shortly. Completed and in final edit. Again, I hope you've enjoyed the story so far. Thanks.  
 
  
 
@@ -3574,7 +3574,7 @@
 
  "Maybe, but it's you doing it," I told her. 
 
- I was dying, and Sandy took pity on me. She sucked me for real, taking me deep, working her tongue. Sheri's hand reached down to the base, moving up and down just a couple of inches. Report_Story #2 
+ I was dying, and Sandy took pity on me. She sucked me for real, taking me deep, working her tongue. Sheri's hand reached down to the base, moving up and down just a couple of inches.  
 
  
 
@@ -3890,7 +3890,7 @@
 
  "So this is where the magic happens," I teased. 
 
- She laughed. "Where I lost my heart to the most wonderful man in the world." Report_Story #3 
+ She laughed. "Where I lost my heart to the most wonderful man in the world."  
 
  
 
@@ -4174,7 +4174,7 @@
 
  I looked up, and saw the tears rolling down Sheri's face, her eyes clenched shut, teeth gritted. 
 
- I pulled out, and climbed up the bed. Sheri's legs snapped shut behind me. "I can do this," she whispered. "I can." Report_Story #4 
+ I pulled out, and climbed up the bed. Sheri's legs snapped shut behind me. "I can do this," she whispered. "I can."  
 
  
 
@@ -4534,7 +4534,7 @@
 
  Sandy gave a wiggle of her hips, and giggled. "And you grow in me. I like that." 
 
- I sighed, feeling her hips grind against me. "God, I'm so spoiled." Report_Story #5 
+ I sighed, feeling her hips grind against me. "God, I'm so spoiled."  
 
  
 
@@ -4804,7 +4804,7 @@
 
  "I had to do it," I tried to explain. 
 
- She had tears in her eyes and hugged me tight. "I know. I don't know exactly what you did, none of us do. We don't want to know. All that matters is that five of the dregs of society will never hurt anyone again, and Sheri won't be looking over her shoulder the rest of her life." Report_Story #6 
+ She had tears in her eyes and hugged me tight. "I know. I don't know exactly what you did, none of us do. We don't want to know. All that matters is that five of the dregs of society will never hurt anyone again, and Sheri won't be looking over her shoulder the rest of her life."  
 
  
 

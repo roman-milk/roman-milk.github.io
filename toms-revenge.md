@@ -186,7 +186,7 @@
 
  I walked him to the door, thanked him again for helping me and when he was gone I went back into the living room, sat down and took out the photos. You can do marvelous things with a good digital camera and an ink-jet printer and Phil had taken fifty-seven extremely good pictures of Laurie and the guys he had invited over. I looked at them all and then set them aside for later. I would scan them into my computer and then later I would decide who to send them too. 
 
- I put the tape in the VCR, turned on the TV and started watching. It started out slow with Laurie obviously being "out of it" but as the date rape drug wore off and the tabs of Ecstasy kicked in she got quite active. An hour into the tape and she was in a sexual frenzy and once I even heard her call out, "Next" when a man pulled out of her pussy. They used her one, two and three at a time and once she had three in her and she was jacking off a fourth. When the tape ran out I sat there staring at an empty screen. Report_Story #2 
+ I put the tape in the VCR, turned on the TV and started watching. It started out slow with Laurie obviously being "out of it" but as the date rape drug wore off and the tabs of Ecstasy kicked in she got quite active. An hour into the tape and she was in a sexual frenzy and once I even heard her call out, "Next" when a man pulled out of her pussy. They used her one, two and three at a time and once she had three in her and she was jacking off a fourth. When the tape ran out I sat there staring at an empty screen.  
 
  
 

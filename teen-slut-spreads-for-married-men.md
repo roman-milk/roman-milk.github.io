@@ -100,7 +100,7 @@
 
  Fallon put the phone done, and in a hurry reached behind herself to unfasten her bra, dropping it away, her perky, small boobs out. As she picked up the phone in one hand, she pushed off her panties, leaving her totally nude on her bed. Erick a moment later saw her face and shoulders -- now missing her bra straps -- and he was about to ask what happened to her phone, but he saw her nude shoulders and just blushed. He was about to protest, when Fallon said, "You like this?" 
 
- And she rotated her phone down, to show her naked breasts to the adult man. Her pussy was soaking between her thighs, as she let the man have a good ten seconds to see her perky, petite breasts with stiff nipples, and her soft areolas. When she finally pointed her phone back at her face, she was grinning excitedly, seeing his keep interest in her. "Like that?" she asked him sweetly. At first, he wanted to say it was inappropriate and she should stop; but he was eating his words, his emotions were taking him over. Struggling to respond, he finally blurted out, "I shouldn't, but yeah, of course, you're totally sexy and hot -- you're gorgeous, so sexy." The response filled her with more confidence, so she asked more pointedly, "You like my small tits? I know they're not big." And she turned the phone down again, showing him her naked breasts once more - - and again, he just stared at them, agreeing she was "very sexy." Report_Story #2 
+ And she rotated her phone down, to show her naked breasts to the adult man. Her pussy was soaking between her thighs, as she let the man have a good ten seconds to see her perky, petite breasts with stiff nipples, and her soft areolas. When she finally pointed her phone back at her face, she was grinning excitedly, seeing his keep interest in her. "Like that?" she asked him sweetly. At first, he wanted to say it was inappropriate and she should stop; but he was eating his words, his emotions were taking him over. Struggling to respond, he finally blurted out, "I shouldn't, but yeah, of course, you're totally sexy and hot -- you're gorgeous, so sexy." The response filled her with more confidence, so she asked more pointedly, "You like my small tits? I know they're not big." And she turned the phone down again, showing him her naked breasts once more - - and again, he just stared at them, agreeing she was "very sexy."  
 
  
 
@@ -186,7 +186,7 @@
 
  Rubbing the slime around her tummy and thighs, the mixture of his sperm and their sweat and her cuntjuices, Fallon grinned to herself. How lucky was she - - not only finding a married man who wanted to cheat on his wife with a girl her age, but one who'd let her fuck other men too! 
 
- Now, she just had to find other men to fuck! Report_Story #1 
+ Now, she just had to find other men to fuck!  
 
  
 
@@ -292,7 +292,7 @@
 
  She couldn't hold off; Fallon started having an orgasm. She felt worried that he might think her too inexperienced, having a cum so fast, but he encouraged her to cum more, burying his tongue down her twat so that her juices streamed right into his mouth, and he could drink them. He continued playing with her naked breasts while still savagely fucking her cunt with his married tongue, drawing out more orgasms from her until she was breathless. 
 
- Then he stood up, and to her surprise his pants and underwear were already off; he removed his shirt, revealing tattoos all over half his chest and up and down both shoulders. But best of all, a solid, throbbing 7-inch cock jutted out of his manly belly. The shaft was rigid, with big veins and ridges; the cockhead was pointy, glistening wet from precum. His balls were shaved, they dangled beneath the beast, full of cum. He proudly showed off his married dick to the teenager, leaning his hips forward. "You like that man-cock, babygirl?" he sneered, obviously proud of his penis. Sticking it into her face, he moaned, "Give it a little suck, darling -- lots of girls have sucked it, but you're the first teenager since, shit, when I was your age -- show me how an 18 year old sucks a married cock?" Report_Story #2 
+ Then he stood up, and to her surprise his pants and underwear were already off; he removed his shirt, revealing tattoos all over half his chest and up and down both shoulders. But best of all, a solid, throbbing 7-inch cock jutted out of his manly belly. The shaft was rigid, with big veins and ridges; the cockhead was pointy, glistening wet from precum. His balls were shaved, they dangled beneath the beast, full of cum. He proudly showed off his married dick to the teenager, leaning his hips forward. "You like that man-cock, babygirl?" he sneered, obviously proud of his penis. Sticking it into her face, he moaned, "Give it a little suck, darling -- lots of girls have sucked it, but you're the first teenager since, shit, when I was your age -- show me how an 18 year old sucks a married cock?"  
 
  
 
@@ -322,7 +322,7 @@
 
  The older sister's voice had that know-it-all confidence, as she drove the two of them away from the restaurant. "See? I was right." 
 
- Sinking into the passenger seat, exhausted and sore, Fallon didn't respond. She was thinking to herself -- damn she was right, married cock is great! Report_Story #1 
+ Sinking into the passenger seat, exhausted and sore, Fallon didn't respond. She was thinking to herself -- damn she was right, married cock is great!  
 
  
 
@@ -428,7 +428,7 @@
 
  "You're so tight, so tight," muttered the stud fucking her, staring at her pretty face and her sexy titties, "I can't believe you're just 18, you're so fucking hot, I can't believe we're doin' this!" 
 
- Fallon hooked her arms under her knees, spreading her legs wide open and her small feet dangled in the air of the guest bedroom. Staring at the naked stud fucking her, she screamed out at Trevor with passion. "Fuck me harder, baby, fuck me better than you fuck your wife!" Report_Story #2 
+ Fallon hooked her arms under her knees, spreading her legs wide open and her small feet dangled in the air of the guest bedroom. Staring at the naked stud fucking her, she screamed out at Trevor with passion. "Fuck me harder, baby, fuck me better than you fuck your wife!"  
 
  
 
@@ -458,7 +458,7 @@
 
  "Well," she purred with a wink, "I dunno about any other 18 year olds -- but if that big married dick gets tired of your wife again, there's no way I'd say no to you either!" 
 
- She was back in business, finding married men to fuck. Report_Story #1 
+ She was back in business, finding married men to fuck.  
 
  
 
@@ -548,7 +548,7 @@
 
  And that's how it would go, for well over two more hours, the men taking turns fucking her so that pretty much at all times she had cock in her pussy. They only shot their cum up her cunt and asshole, and after each guy had four orgasms, she was a sloppy mess of male sperm. And her body could barely move. When they finally dropped her off at her house, she even had trouble walking up the stairs -- she couldn't put her knees together, and her thighs and ass were in pain from being spread open for three hours while her body got slammed by the two married cocks. She had to sneak up to her bathroom and quickly shower, hiding from her parents what a skanky mess she was. 
 
- But, as sore as her holes and body were, she felt amazing. She was even hotter than she'd ever imagined. Report_Story #1 
+ But, as sore as her holes and body were, she felt amazing. She was even hotter than she'd ever imagined.  
 
  
 
@@ -660,7 +660,7 @@
 
  Fallon felt so dirty and nasty, fucking this married stud and her girl friend like this -- it was new, different, and she loved it! Not as much as two cocks at once, but, it was still fantastic sex! 
 
- Dave had an orgasm up Gracie's twat, and he made Gracie lie on her back and spread her legs open afterwards, then Dave ordered Fallon to put her mouth over Gracie's cunt lick the sperm out. It tasted nasty and stanky, but Fallon was more horny now, licking Dave's sperm out of her friend's bald, shaved pussy. Gracie even had an orgasm from Fallon licking her that way. With her mouth full of his semen mixed with the pussy juices, Fallon didn't swallow -- instead, she went up to give Gracie a huge, wet kiss on the lips, shoveling spermies into the girl's mouth. Gracie took the cocktail of male sperm and girly juices from her friend's mouth, swallowing them while the two bitches continued to make out. Report_Story #2 
+ Dave had an orgasm up Gracie's twat, and he made Gracie lie on her back and spread her legs open afterwards, then Dave ordered Fallon to put her mouth over Gracie's cunt lick the sperm out. It tasted nasty and stanky, but Fallon was more horny now, licking Dave's sperm out of her friend's bald, shaved pussy. Gracie even had an orgasm from Fallon licking her that way. With her mouth full of his semen mixed with the pussy juices, Fallon didn't swallow -- instead, she went up to give Gracie a huge, wet kiss on the lips, shoveling spermies into the girl's mouth. Gracie took the cocktail of male sperm and girly juices from her friend's mouth, swallowing them while the two bitches continued to make out.  
 
  
 
@@ -698,7 +698,7 @@
 
  Dave winked at her, and Gracie too. "Well," he laughed, "I'm 36, I shouldn't be fucking girls half my age -- frankly, I shouldn't be fucking anyone, I'm married -- but since you two together add up to 36, that's age-appropriate for me -- why don't you both come over some time again, and we'll have another little party?" 
 
- Fallon winked at him, hoping to be in his house again some time for sex. It would happen, only she couldn't have possibly predicted how or why. Report_Story #1 
+ Fallon winked at him, hoping to be in his house again some time for sex. It would happen, only she couldn't have possibly predicted how or why.  
 
  
 
@@ -764,7 +764,7 @@
 
  After a good hour of fucking on the bed, Amanda took Fallon into the bathroom, where the two women showered together. Rubbing soap all over each other's bodies, tits and butts, Fallon was so turned on at how pretty and sexy Amanda was, and she loved how Amanda looked back at her that way. They made out in the shower, finger-fucking each other, making each other cum again. 
 
- Amanda drove Fallon home, and they sneaked a quick kiss in the car. Amanda made Fallon promise no one else could know about it, but she invited Fallon back anytime she wanted. Fallon guaranteed she'll be back -- she loves helping a married woman cheat on her husband, too! Report_Story #1 
+ Amanda drove Fallon home, and they sneaked a quick kiss in the car. Amanda made Fallon promise no one else could know about it, but she invited Fallon back anytime she wanted. Fallon guaranteed she'll be back -- she loves helping a married woman cheat on her husband, too!  
 
  
 
@@ -868,7 +868,7 @@
 
  Finally, after at least 90 minutes of nonstop sex, Mark had his final orgasm, this one again in her pussy. 
 
- Daddy's friends -- or at least this one, it seemed -- were pretty good at fucking too! Report_Story #1 
+ Daddy's friends -- or at least this one, it seemed -- were pretty good at fucking too!  
 
  
 
@@ -982,7 +982,7 @@
 
  Fallon couldn't believe it! It was so funny, but so sexy. Even as she crawled under Mike's body again in the bed, asking Mike to fuck her once more, her mind was on the sight of her father's big penis. Gracie was indeed so lucky! 
 
- And that's what Gracie told her late that night, past midnight, when the two slutty teenagers talked quietly on the phone. "Your dad rocks," the blonde gymnast with big tits giggled to her brunette friend, "he was like sooo awesome! And he told me he saw you, that's sooo funny! Did you see how big his dick is?" Report_Story #2 
+ And that's what Gracie told her late that night, past midnight, when the two slutty teenagers talked quietly on the phone. "Your dad rocks," the blonde gymnast with big tits giggled to her brunette friend, "he was like sooo awesome! And he told me he saw you, that's sooo funny! Did you see how big his dick is?"  
 
  
 
@@ -990,7 +990,7 @@
 
  "Yeah," panted Fallon, nasty ideas already floating around her pretty little head, "too bad he's my daddy." 
 
- Or did that matter? Report_Story #1 
+ Or did that matter?  
 
  
 
@@ -1088,7 +1088,7 @@
 
  Fallon found herself staring at Gracie, the naked teens laughing as if it was a joke, but it wasn't. The men wanted to watch some lesbian sex -- even Daddy wanted to see his teen princess eat another girl's cunt. 
 
- Actually, the thought of screwing Gracie in front of her father -- and Derek - - made Fallon pretty hot too! Report_Story #2 
+ Actually, the thought of screwing Gracie in front of her father -- and Derek - - made Fallon pretty hot too!  
 
  
 
@@ -1154,7 +1154,7 @@
 
  Well, Fallon knew what she wanted. She wanted her daddy's sexy, oversized dick to fuck her all the time! 
 
- What she didn't know is whether he'd stop her, next time she tried to fuck him. Report_Story #1 
+ What she didn't know is whether he'd stop her, next time she tried to fuck him.  
 
  
 

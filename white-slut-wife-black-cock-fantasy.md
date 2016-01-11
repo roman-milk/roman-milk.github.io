@@ -306,7 +306,7 @@
 
  "Buttttt, I, fuuuck," she babbled, her body and brain at war with each other and her body winning. 
 
- He pulled out and asked firmly, as he stood up and moved to the side of the bed where my wife's head was, "Do you want my chocolate hammer or not? I have other white bitches that would love this in their white holes." Report_Story #2 
+ He pulled out and asked firmly, as he stood up and moved to the side of the bed where my wife's head was, "Do you want my chocolate hammer or not? I have other white bitches that would love this in their white holes."  
 
  
 

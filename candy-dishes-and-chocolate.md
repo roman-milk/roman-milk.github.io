@@ -136,7 +136,7 @@
 
  I didn't smile as she walked away; I actually felt sorry for her. I saw her stop at the counter and pay for her meal and on an impulse I got up, threw enough money down on the table to cover my ticket and a tip and I headed for the parking lot. I caught up with her as she was unlocking her car door. She saw me walking up to her and she said: 
 
- "Coming to gloat? Going to tell me how glad you are to see me being fucked over?" Report_Story #2 
+ "Coming to gloat? Going to tell me how glad you are to see me being fucked over?"  
 
  
 
@@ -404,7 +404,7 @@
 
  But I could not deny that I was very interested in Jennifer and God knew that I loved waking up with her and wishing it could be a daily thing. Well, nothing was going to happen until her divorce was out of the way so I had time. 
 
- Jennifer took one look at my apartment and said, "Nope, won't do." Report_Story #3 
+ Jennifer took one look at my apartment and said, "Nope, won't do."  
 
  
 

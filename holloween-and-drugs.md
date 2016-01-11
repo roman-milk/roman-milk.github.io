@@ -200,7 +200,7 @@
 
  I would have found some reason to refuse if she hadn't showered, but since she had I bent to the task. As I munched I noticed a little redness around her asshole and it almost pissed me off enough to stop what I was doing and get up and go to the spare bedroom. But only almost. When I kicked her ass out it might be a long time before I'd get laid again so I needed to get what I could while I could. It wasn't as if I craved her ass anyway. Beth would let me have her butt occasionally when she had been drinking and was in a good mood, but she claimed she hated it so I didn't push all that hard for it. Face it; the main reason I wanted it was because she wouldn't give it to me very often. I ate Beth to an orgasm and then I moved up and fucked her. I didn't make love to her; I fucked her and there is a difference. I came; we snuggled up and went to sleep. 
 
- In the morning Beth woke me up with a blow job and when I was awake and as hard as I was going to get Beth moved over me and rode me cowgirl until we both got off. I had to wonder about that because we almost never had sex in the morning and when we did it was usually me who started it. Was she feeling guilty over what she planned to do to me at the party and was trying to make herself feel less guilty? I'd probably never know. Report_Story #2 
+ In the morning Beth woke me up with a blow job and when I was awake and as hard as I was going to get Beth moved over me and rode me cowgirl until we both got off. I had to wonder about that because we almost never had sex in the morning and when we did it was usually me who started it. Was she feeling guilty over what she planned to do to me at the party and was trying to make herself feel less guilty? I'd probably never know.  
 
  
 
@@ -446,7 +446,7 @@
 
  "Asshole!" she snarled. "Whorish cunt" I said with a smile and then I went back to work. 
 
- The packages I sent out to the wives and girl friends of the gangbang participants caused six divorces and two break ups of engaged couples and two of the guys tried to get even with me for causing their problems. One ended up in the hospital and the other almost beat me until I picked up a rock and smashed him in the head with it. I left him lying behind a dumpster and I don't know what happened to him. Report_Story #3 
+ The packages I sent out to the wives and girl friends of the gangbang participants caused six divorces and two break ups of engaged couples and two of the guys tried to get even with me for causing their problems. One ended up in the hospital and the other almost beat me until I picked up a rock and smashed him in the head with it. I left him lying behind a dumpster and I don't know what happened to him.  
 
  
 
@@ -726,7 +726,7 @@
 
  +++++++++++++++++++++++ 
 
- Over the next three days we moved everything out of Jim's house that we wanted. Most of it went into storage, but all of Carol's clothes ended up in my house. We also went to my bank and opened checking and savings accounts for Carol and rented her a safe deposit box for the bulk of the cash, diamonds and gold coins. Most of the cash had to go into the deposit box because deposits of ten grand or more brought scrutiny from the feds. Report_Story #4 
+ Over the next three days we moved everything out of Jim's house that we wanted. Most of it went into storage, but all of Carol's clothes ended up in my house. We also went to my bank and opened checking and savings accounts for Carol and rented her a safe deposit box for the bulk of the cash, diamonds and gold coins. Most of the cash had to go into the deposit box because deposits of ten grand or more brought scrutiny from the feds.  
 
  
 

@@ -78,7 +78,7 @@
 
  Marisa's mouth intercepted mine, maybe she thought I was going to kiss her. I moaned in surprise, but smelled then felt the teenager's face directly under mine. Her open mouth slammed into my gaping mouth, and her tongue thrust forward. I hadn't expected it but I didn't argue. I let her tongue invade my mouth where my lips closed on it, and my tongue began licking her mouth. I tasted cock in her mouth, and actually, it was exciting. She moaned in a high- pitched whine, sucking in air through her nose while we began French kissing madly. We were humping each other's mouths with our tongues, our tongues licking each other and then darting around each other's mouths, licking teeth and cheeks and gums. Marisa kept a hand around my shaft, more holding it than stroking it, while both my hands fondled her boobs and lovingly pinched her rigid nipples time to time. 
 
- I loved how the teen kissed, it was so erotic and horny, way better than my wife. Our lips parted and we both had our tongues stuck out in the air between our faces, just our tongues touching, licking each other. I couldn't help but groan at how sexy it felt, and I heard Marisa squeal too at the playful dancing of our tongues over each other. We both began making sensuous moaning noises with our jaws and lips open, just lapping each other's wet tongue lustfully. Report_Story #2 
+ I loved how the teen kissed, it was so erotic and horny, way better than my wife. Our lips parted and we both had our tongues stuck out in the air between our faces, just our tongues touching, licking each other. I couldn't help but groan at how sexy it felt, and I heard Marisa squeal too at the playful dancing of our tongues over each other. We both began making sensuous moaning noises with our jaws and lips open, just lapping each other's wet tongue lustfully.  
 
  
 
@@ -176,7 +176,7 @@
 
  I leaned back, watching in amazement, as the young slut sucked and worshipped my boner with her thick lips and juicy tongue. It was making me incredibly hard for her. My penis wanted to fuck something besides her mouth, but I assumed that was not an option. It was actually making me a little disappointed; in the few minutes we had left, I probably wasn't going to cum again. And her fantastic blowjob was making me really hard, extremely horny. I let her suck me another minute, getting my penis so sloppy wet and hard, then I moved the show to another stage. "Honey, I wanna lick your pussy so badly, so badly." 
 
- Noisily, she pulled her lips back and off of my dong, a string of drool dropping down my shaft over her hand. "You do huh?" Her eyes half-closed as she salivated on the thought. "I'd love that too." Report_Story #3 
+ Noisily, she pulled her lips back and off of my dong, a string of drool dropping down my shaft over her hand. "You do huh?" Her eyes half-closed as she salivated on the thought. "I'd love that too."  
 
  
 

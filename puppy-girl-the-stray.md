@@ -230,7 +230,7 @@
 
  "Sorry. That doesn't work on me. I've seen enough crocodile tears from little lying bitches to last a lifetime." 
 
- "Why? Why are you treating me like this? I'm a person. I'm helpless. I'm hurting. You wouldn't treat a dog this way!" Report_Story #2 
+ "Why? Why are you treating me like this? I'm a person. I'm helpless. I'm hurting. You wouldn't treat a dog this way!"  
 
  
 
@@ -416,7 +416,7 @@
 
  He had a facecloth in his hand, and put some liquid soap on it. Amy leaned back, closing her eyes. 
 
- * * * Report_Story #3 
+ * * *  
 
  
 
@@ -612,7 +612,7 @@
 
  Amy stretched, sighing. The sheet felt rough against her skin, irritating her sensitive flesh. The pain had changed, no longer one all-enveloping agony. Individual areas hurt, her shoulders, her butt, her breasts. Her feet were the worse, every time she brushed against the sheet or mattress, she felt a stabbing pain. 
 
- She was alone in the room. She climbed off the bed, onto her hands and knees, the thought of putting any weight on her feet terrifying. She found her way to the bathroom, struggling onto the toilet, which she desperately needed. Amy washed her face, before finding his toothbrush, brushing her teeth carefully, then brushing her hair out. She had to be careful, her scalp was in agony, but when she was done, she was content with how she looked. Exploring his cabinet, she found some Vaseline which she applied to her cracked lips. She felt almost human, and giggled to herself. No time to be human. Back to being man's best friend. Report_Story #4 
+ She was alone in the room. She climbed off the bed, onto her hands and knees, the thought of putting any weight on her feet terrifying. She found her way to the bathroom, struggling onto the toilet, which she desperately needed. Amy washed her face, before finding his toothbrush, brushing her teeth carefully, then brushing her hair out. She had to be careful, her scalp was in agony, but when she was done, she was content with how she looked. Exploring his cabinet, she found some Vaseline which she applied to her cracked lips. She felt almost human, and giggled to herself. No time to be human. Back to being man's best friend.  
 
  
 
@@ -826,7 +826,7 @@
 
  She twisted and turned her head. She was collared. Not too tightly, but not loose at all. She tested it again, then looked into his eyes shaking her head. 
 
- "Good. I don't want my puppy getting lost." He pulled her against his chest, caressing her, while she calmed again. She leaned her head against his shoulder, and licked his neck softly. Report_Story #5 
+ "Good. I don't want my puppy getting lost." He pulled her against his chest, caressing her, while she calmed again. She leaned her head against his shoulder, and licked his neck softly.  
 
  
 
@@ -1022,7 +1022,7 @@
 
  Red was a good girl. She removed her knee covers on her own, when leaving the house and before going to bed, putting them on herself, upon entering the house and when she got up in the morning. She'd even learned to come in from the rain, which it seemed to do almost every other day, scratching at the door before he let his bedraggled little puppy-girl in, and dried her off. 
 
- Hunter had argued with himself, as she got better. Puppies shouldn't sleep on the bed, or climb on the furniture, but she was a good girl, and it was his own fault that he'd started her on the habit. The fifth night he'd left her on the floor, and she'd been obedient, whimpering softly from the corner, curled up in a miserable ball. When the nightmare started, and he'd seen her struggling, moaning, he'd immediately climbed out of bed to take care of her. She'd been afraid when she first woke up, but once she'd seen his face, she calmed, clinging to him. He'd taken her back to his bed, petting her, soothing her until she'd relaxed. He'd fallen asleep holding his wonderful puppy-girl, and surrendered to the idea that she'd be best off sleeping nearby. Report_Story #6 
+ Hunter had argued with himself, as she got better. Puppies shouldn't sleep on the bed, or climb on the furniture, but she was a good girl, and it was his own fault that he'd started her on the habit. The fifth night he'd left her on the floor, and she'd been obedient, whimpering softly from the corner, curled up in a miserable ball. When the nightmare started, and he'd seen her struggling, moaning, he'd immediately climbed out of bed to take care of her. She'd been afraid when she first woke up, but once she'd seen his face, she calmed, clinging to him. He'd taken her back to his bed, petting her, soothing her until she'd relaxed. He'd fallen asleep holding his wonderful puppy-girl, and surrendered to the idea that she'd be best off sleeping nearby.  
 
  
 
@@ -1258,7 +1258,7 @@
 
  The next day he was distracted. He was unable to get much writing done, so he took his puppy down to the beach, and played fetch in the waves until she was tired. He fed her lunch, after putting a new band-aid on her foot, and when she slept in her corner, he gave the writing another shot. 
 
- He didn't need to. The previous week he'd completed a month's worth of writing. He was not only caught up, but weeks ahead. Still, it was his routine, and he stuck to it. He did manage to get a little done, about as much as he'd been doing before his pet's arrival. That thought disturbed him. Report_Story #7 
+ He didn't need to. The previous week he'd completed a month's worth of writing. He was not only caught up, but weeks ahead. Still, it was his routine, and he stuck to it. He did manage to get a little done, about as much as he'd been doing before his pet's arrival. That thought disturbed him.  
 
  
 
@@ -1468,7 +1468,7 @@
 
  * * * 
 
- The island wasn't that large. He ran, crying out her name. "Red! Where are you Red?" He whistled for her, and when that didn't work he called her by that other name. "Amy!" Report_Story #8 
+ The island wasn't that large. He ran, crying out her name. "Red! Where are you Red?" He whistled for her, and when that didn't work he called her by that other name. "Amy!"  
 
  
 

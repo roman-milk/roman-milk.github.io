@@ -262,7 +262,7 @@
 
  She let out that low moan again. Once more she uttered, "You shouldn't be doing that, Carl." 
 
- But, as I massaged her at that intimate place, my aunt's legs uncrossed. The skirt was as taut as drum skin across her lap, riding higher as she eased her buttocks over the cushion until she was almost horizontal, all scrunched up on the settee. Report_Story #2 
+ But, as I massaged her at that intimate place, my aunt's legs uncrossed. The skirt was as taut as drum skin across her lap, riding higher as she eased her buttocks over the cushion until she was almost horizontal, all scrunched up on the settee.  
 
  
 

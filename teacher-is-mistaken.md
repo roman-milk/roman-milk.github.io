@@ -172,7 +172,7 @@
 
   Everything was quiet outside. Hollie opened her eyes, to see his shoulder in close up. Without being aware of it, he had pulled her round onto him, for a close cuddle. It was a wonderful way to come around. Though, the situation was also very dangerous.  
 
-  "My panties, can I have them back, please," Hollie asked. It was terribly embarrassing to ask a student for her panties. They were nowhere to be seen, so he had obviously hidden them. She figured he had stolen them as a trophy, adding them to a collection. There was no way she had been the first in this van. Report_Story #1 
+  "My panties, can I have them back, please," Hollie asked. It was terribly embarrassing to ask a student for her panties. They were nowhere to be seen, so he had obviously hidden them. She figured he had stolen them as a trophy, adding them to a collection. There was no way she had been the first in this van.  
 
  
 
@@ -344,7 +344,7 @@
 
  Everything was quiet outside. Hollie opened her eyes, to see his shoulder in close up. Without being aware of it, he had pulled her round onto him, for a close cuddle. It was a wonderful way to come around. Though, the situation was also very dangerous. 
 
- "My panties, can I have them back, please," Hollie asked. It was terribly embarrassing to ask a student for her panties. They were nowhere to be seen, so he had obviously hidden them. She figured he had stolen them as a trophy, adding them to a collection. There was no way she had been the first in this van. Report_Story #1  
+ "My panties, can I have them back, please," Hollie asked. It was terribly embarrassing to ask a student for her panties. They were nowhere to be seen, so he had obviously hidden them. She figured he had stolen them as a trophy, adding them to a collection. There was no way she had been the first in this van.   
 
  
 
@@ -602,7 +602,7 @@
 
   "Just a hug, lets keep it calm and sensible," she said, at the door.  
 
-  He left looking bewildered. She hoped he wouldn't return, but knew he would. At least he hadn't shouted at her. He might tomorrow, when the shock wore off. Damn! She needed him to turn up so she could work on him, to make sure he kept the awful secret. Report_Story #1 
+  He left looking bewildered. She hoped he wouldn't return, but knew he would. At least he hadn't shouted at her. He might tomorrow, when the shock wore off. Damn! She needed him to turn up so she could work on him, to make sure he kept the awful secret.  
 
  
 
@@ -856,7 +856,7 @@
 
  "Just a hug, lets keep it calm and sensible," she said, at the door. 
 
- He left looking bewildered. She hoped he wouldn't return, but knew he would. At least he hadn't shouted at her. He might tomorrow, when the shock wore off. Damn! She needed him to turn up so she could work on him, to make sure he kept the awful secret. Report_Story #1  
+ He left looking bewildered. She hoped he wouldn't return, but knew he would. At least he hadn't shouted at her. He might tomorrow, when the shock wore off. Damn! She needed him to turn up so she could work on him, to make sure he kept the awful secret.   
 
  
 
@@ -1096,7 +1096,7 @@
 
   Hollie felt his hard cock pressing against her bare midriff and couldn't help squirming against it. All her inhibitions and upright moral standards had been lost while playing.  
 
-  Roger slapped her ass again. She didn't complain and was even pressing herself against his cock. He wanted to unzip the jeans and take her. Controlling the urge he slapped her again. He could see how wet her pussy was becoming, so wanted to explore this newly discovered excitement. Report_Story #2  
+  Roger slapped her ass again. She didn't complain and was even pressing herself against his cock. He wanted to unzip the jeans and take her. Controlling the urge he slapped her again. He could see how wet her pussy was becoming, so wanted to explore this newly discovered excitement.   
 
  
 
@@ -1174,7 +1174,7 @@
 
   If she could avoid bumping into him during school, it would give her a chance to recover. The impression was that he cared for her, so she had to remind herself he was just an adolescent. He was just playing around, using her to explore his sexual prowess, even though it was in such a delightful way.  
 
-  As a teacher and a responsible adult, this madness would have to stop. Hollie hoped once in school, she could use her authority to put him in his place. The thought of facing him in school after this weekend of debauchery, was dreadful. Nevertheless it was imperative to halt this affair before she was found out. Report_Story #1 
+  As a teacher and a responsible adult, this madness would have to stop. Hollie hoped once in school, she could use her authority to put him in his place. The thought of facing him in school after this weekend of debauchery, was dreadful. Nevertheless it was imperative to halt this affair before she was found out.  
 
  
 
@@ -1412,7 +1412,7 @@
 
  Hollie felt his hard cock pressing against her bare midriff and couldn't help squirming against it. All her inhibitions and upright moral standards had been lost while playing. 
 
- Roger slapped her ass again. She didn't complain and was even pressing herself against his cock. He wanted to unzip the jeans and take her. Controlling the urge he slapped her again. He could see how wet her pussy was becoming, so wanted to explore this newly discovered excitement. Report_Story #2 
+ Roger slapped her ass again. She didn't complain and was even pressing herself against his cock. He wanted to unzip the jeans and take her. Controlling the urge he slapped her again. He could see how wet her pussy was becoming, so wanted to explore this newly discovered excitement.  
 
  
 
@@ -1488,7 +1488,7 @@
 
  If she could avoid bumping into him during school, it would give her a chance to recover. The impression was that he cared for her, so she had to remind herself he was just an adolescent. He was just playing around, using her to explore his sexual prowess, even though it was in such a delightful way. 
 
- As a teacher and a responsible adult, this madness would have to stop. Hollie hoped once in school, she could use her authority to put him in his place. The thought of facing him in school after this weekend of debauchery, was dreadful. Nevertheless it was imperative to halt this affair before she was found out. Report_Story #1  
+ As a teacher and a responsible adult, this madness would have to stop. Hollie hoped once in school, she could use her authority to put him in his place. The thought of facing him in school after this weekend of debauchery, was dreadful. Nevertheless it was imperative to halt this affair before she was found out.   
 
  
 
@@ -1698,7 +1698,7 @@
 
   "What do you say, slut," he asked.  
 
-  Hollie winced at those damning words. That is exactly how she felt. She was his slut. Report_Story #2  
+  Hollie winced at those damning words. That is exactly how she felt. She was his slut.   
 
  
 
@@ -1714,7 +1714,7 @@
 
   Roger made his way to the door, not caring he was going to be late for the next class. "Till this evening," he said.  
 
-  Hollie weakly nodded unable to speak. She was still on a high, with an underlying feeling of dread. As the students tumbled in she kept her head down, feeling they would see in her face the shame she felt. Rising carefully from her chair she mumbled something about the restroom. Report_Story #1 
+  Hollie weakly nodded unable to speak. She was still on a high, with an underlying feeling of dread. As the students tumbled in she kept her head down, feeling they would see in her face the shame she felt. Rising carefully from her chair she mumbled something about the restroom.  
 
  
 
@@ -1920,7 +1920,7 @@
 
  "What do you say, slut," he asked. 
 
- Hollie winced at those damning words. That is exactly how she felt. She was his slut. Report_Story #2 
+ Hollie winced at those damning words. That is exactly how she felt. She was his slut.  
 
  
 
@@ -1934,7 +1934,7 @@
 
  Roger made his way to the door, not caring he was going to be late for the next class. "Till this evening," he said. 
 
- Hollie weakly nodded unable to speak. She was still on a high, with an underlying feeling of dread. As the students tumbled in she kept her head down, feeling they would see in her face the shame she felt. Rising carefully from her chair she mumbled something about the restroom. Report_Story #1  
+ Hollie weakly nodded unable to speak. She was still on a high, with an underlying feeling of dread. As the students tumbled in she kept her head down, feeling they would see in her face the shame she felt. Rising carefully from her chair she mumbled something about the restroom.   
 
  
 
@@ -2164,7 +2164,7 @@
 
   At last home Hollie felt relatively safe. The piercings felt less painful, receding to a dull throbbing.  
 
-  "Best fix something to eat now," he told her. Report_Story #2  
+  "Best fix something to eat now," he told her.   
 
  
 
@@ -2266,7 +2266,7 @@
 
   "Come here, slave girl," he said. Opening his arms up, she snuggled onto his chest.  
 
-  Wrapped tightly in his arms feeling wonderfully cared for, she submitted to the feeling of being nothing more than his slave girl. Report_Story #1 
+  Wrapped tightly in his arms feeling wonderfully cared for, she submitted to the feeling of being nothing more than his slave girl.  
 
  
 
@@ -2494,7 +2494,7 @@
 
  At last home Hollie felt relatively safe. The piercings felt less painful, receding to a dull throbbing. 
 
- "Best fix something to eat now," he told her. Report_Story #2 
+ "Best fix something to eat now," he told her.  
 
  
 
@@ -2594,7 +2594,7 @@
 
  "Come here, slave girl," he said. Opening his arms up, she snuggled onto his chest. 
 
- Wrapped tightly in his arms feeling wonderfully cared for, she submitted to the feeling of being nothing more than his slave girl. Report_Story #1  
+ Wrapped tightly in his arms feeling wonderfully cared for, she submitted to the feeling of being nothing more than his slave girl.   
 
  
 
@@ -2822,7 +2822,7 @@
 
   "I'll show you around," he said. "This is the library, obviously," he joked.  
 
-  They continued through the house with a minimum of comments. Hollie was embarrassed when they passed his bedroom, from remembering that first night together. She was surprised he hadn't led her inside his room; instead she meekly let him lead her through the rest of the house. Report_Story #2  
+  They continued through the house with a minimum of comments. Hollie was embarrassed when they passed his bedroom, from remembering that first night together. She was surprised he hadn't led her inside his room; instead she meekly let him lead her through the rest of the house.   
 
  
 
@@ -3024,7 +3024,7 @@
 
   In class she sat pensively, trying not to move or press down upon the bad thing in her bottom. Even so, it was a constant reminder of her lowly position. No longer was she a figure of authority, or even a free willed responsible adult. She was now a young student's sex object, something to be played with. From now on she would be submitting to his every whim, obeying his every command.  
 
-  As a sex slave all her inhibitions had been lifted, as responsibility for her actions shifted to him, her master. Every time she fidgeted upon the seat it was a stark reminder that she was his submissive sex slave. The thrill of it kept her so hot she shivered in anticipation of what she might submit to tonight. Report_Story #1 
+  As a sex slave all her inhibitions had been lifted, as responsibility for her actions shifted to him, her master. Every time she fidgeted upon the seat it was a stark reminder that she was his submissive sex slave. The thrill of it kept her so hot she shivered in anticipation of what she might submit to tonight.  
 
  
 
@@ -3250,7 +3250,7 @@
 
  "I'll show you around," he said. "This is the library, obviously," he joked. 
 
- They continued through the house with a minimum of comments. Hollie was embarrassed when they passed his bedroom, from remembering that first night together. She was surprised he hadn't led her inside his room; instead she meekly let him lead her through the rest of the house. Report_Story #2 
+ They continued through the house with a minimum of comments. Hollie was embarrassed when they passed his bedroom, from remembering that first night together. She was surprised he hadn't led her inside his room; instead she meekly let him lead her through the rest of the house.  
 
  
 
@@ -3448,7 +3448,7 @@
 
  In class she sat pensively, trying not to move or press down upon the bad thing in her bottom. Even so, it was a constant reminder of her lowly position. No longer was she a figure of authority, or even a free willed responsible adult. She was now a young student's sex object, something to be played with. From now on she would be submitting to his every whim, obeying his every command. 
 
- As a sex slave all her inhibitions had been lifted, as responsibility for her actions shifted to him, her master. Every time she fidgeted upon the seat it was a stark reminder that she was his submissive sex slave. The thrill of it kept her so hot she shivered in anticipation of what she might submit to tonight. Report_Story #1  
+ As a sex slave all her inhibitions had been lifted, as responsibility for her actions shifted to him, her master. Every time she fidgeted upon the seat it was a stark reminder that she was his submissive sex slave. The thrill of it kept her so hot she shivered in anticipation of what she might submit to tonight.   
 
  
 
@@ -3662,7 +3662,7 @@
 
   "Did you enjoy it?" he asked.  
 
-  "Sort of master," she demurely replied, looking over her shoulder at him. Report_Story #2  
+  "Sort of master," she demurely replied, looking over her shoulder at him.   
 
  
 
@@ -3908,7 +3908,7 @@
 
   Roger lost control now so there was no teasing, he just rode her hard. His teacher was his to fuck whenever, and however he liked. He was in pure heaven, fucking her hard.  
 
-  With every movement the chains ran over her nipples, tormenting them with pain and pleasure. His cock nudged the large piercing ring in her bud on every inward thrust. She burst out with gasps of delight, on feeling the movement of the piercing ring, which sent sensations of pleasure to a primitive part of her brain. Report_Story #3  
+  With every movement the chains ran over her nipples, tormenting them with pain and pleasure. His cock nudged the large piercing ring in her bud on every inward thrust. She burst out with gasps of delight, on feeling the movement of the piercing ring, which sent sensations of pleasure to a primitive part of her brain.   
 
  
 
@@ -3922,7 +3922,7 @@
 
   Hollie laid there a moment in wonder. Sex had never been like this! She looked at her master, the young man who changed her life. He had done such terrible things to her, yet they had turned out to be so inspiring, it left her wanting more.  
 
-  Before she could work out how or why it had all happened, she fell asleep in his warm embrace. Report_Story #1 
+  Before she could work out how or why it had all happened, she fell asleep in his warm embrace.  
 
  
 
@@ -4132,7 +4132,7 @@
 
  "Did you enjoy it?" he asked. 
 
- "Sort of master," she demurely replied, looking over her shoulder at him. Report_Story #2 
+ "Sort of master," she demurely replied, looking over her shoulder at him.  
 
  
 
@@ -4376,7 +4376,7 @@
 
  Roger lost control now so there was no teasing, he just rode her hard. His teacher was his to fuck whenever, and however he liked. He was in pure heaven, fucking her hard. 
 
- With every movement the chains ran over her nipples, tormenting them with pain and pleasure. His cock nudged the large piercing ring in her bud on every inward thrust. She burst out with gasps of delight, on feeling the movement of the piercing ring, which sent sensations of pleasure to a primitive part of her brain. Report_Story #3 
+ With every movement the chains ran over her nipples, tormenting them with pain and pleasure. His cock nudged the large piercing ring in her bud on every inward thrust. She burst out with gasps of delight, on feeling the movement of the piercing ring, which sent sensations of pleasure to a primitive part of her brain.  
 
  
 
@@ -4388,7 +4388,7 @@
 
  Hollie laid there a moment in wonder. Sex had never been like this! She looked at her master, the young man who changed her life. He had done such terrible things to her, yet they had turned out to be so inspiring, it left her wanting more. 
 
- Before she could work out how or why it had all happened, she fell asleep in his warm embrace. Report_Story #1  
+ Before she could work out how or why it had all happened, she fell asleep in his warm embrace.   
 
  
 
@@ -4586,7 +4586,7 @@
 
   Angela brushed the teacher's hair away from one side, to reveal a large hoop, pierced earring. Hollie felt as though she were an animal being led to the slaughter, terrified and helpless, unable to resist.  
 
-  "That's interesting. I bet if I looked at the back of this collar I'd find it was sealed, tightly shut," Angela stated. Report_Story #2  
+  "That's interesting. I bet if I looked at the back of this collar I'd find it was sealed, tightly shut," Angela stated.   
 
  
 
@@ -4820,7 +4820,7 @@
 
   "When I attach your new name, you will repeat it. You will repeat the solemn promise that you have committed to. Understood, my beautiful slave?" he asked.  
 
-  Report_Story #3  
+    
 
  
 
@@ -4842,7 +4842,7 @@
 
   He certainly wasn't prepared to fuck his teacher. Watching her eagerly suck on his cock soon had him ready. He corrected himself, this possession sucking on his cock, was no longer a teacher. This attractive, sensual woman was his live- in slave girl.  
 
-  As he grew in her mouth she looked up at him, through hooded eyes, with a contended smile of satisfaction. She was so very happy knowing she was going to get what she wanted. Her master was going to fuck his cunt hard. Report_Story #1 
+  As he grew in her mouth she looked up at him, through hooded eyes, with a contended smile of satisfaction. She was so very happy knowing she was going to get what she wanted. Her master was going to fuck his cunt hard.  
 
  
 
@@ -5038,7 +5038,7 @@
 
  Angela brushed the teacher's hair away from one side, to reveal a large hoop, pierced earring. Hollie felt as though she were an animal being led to the slaughter, terrified and helpless, unable to resist. 
 
- "That's interesting. I bet if I looked at the back of this collar I'd find it was sealed, tightly shut," Angela stated. Report_Story #2 
+ "That's interesting. I bet if I looked at the back of this collar I'd find it was sealed, tightly shut," Angela stated.  
 
  
 
@@ -5268,7 +5268,7 @@
 
  "When I attach your new name, you will repeat it. You will repeat the solemn promise that you have committed to. Understood, my beautiful slave?" he asked. 
 
- Report_Story #3 
+  
 
  
 
@@ -5288,7 +5288,7 @@
 
  He certainly wasn't prepared to fuck his teacher. Watching her eagerly suck on his cock soon had him ready. He corrected himself, this possession sucking on his cock, was no longer a teacher. This attractive, sensual woman was his live- in slave girl. 
 
- As he grew in her mouth she looked up at him, through hooded eyes, with a contended smile of satisfaction. She was so very happy knowing she was going to get what she wanted. Her master was going to fuck his cunt hard. Report_Story #1  
+ As he grew in her mouth she looked up at him, through hooded eyes, with a contended smile of satisfaction. She was so very happy knowing she was going to get what she wanted. Her master was going to fuck his cunt hard.   
 
  
 
@@ -5458,7 +5458,7 @@
 
   With her hair up, wearing the designer dress, she looked so very beautiful. Her body filled out the figure hugging dress in a delightful suggestion of demure sexuality. In that moment she was transformed from small town teacher, to sophisticated model.  
 
-  "The dress is lovely," Hollie said, while smoothing it down her slim hips. She reached up on tiptoe to kiss her lover. It was a vote of appreciation, rather than a continuation of their mad affair. She felt refined and strong, ignoring the fact that this young student had dressed her, according to his wishes. Report_Story #2  
+  "The dress is lovely," Hollie said, while smoothing it down her slim hips. She reached up on tiptoe to kiss her lover. It was a vote of appreciation, rather than a continuation of their mad affair. She felt refined and strong, ignoring the fact that this young student had dressed her, according to his wishes.   
 
  
 
@@ -5658,7 +5658,7 @@
 
   She felt the lad exploring her crotch with his fingers. The whole ordeal was degrading, now he was pulling on her lips. Here in her class it was all the more humiliating.  
 
-  "She's got pierced loops in her lips! There's another one between them, in her hole!" Gavin announced to the class. He had eventually worked it out. "She's a right slut," Gavin laughed, still playing with her lips, dipping in and out of her vagina with two fingers. Report_Story #3  
+  "She's got pierced loops in her lips! There's another one between them, in her hole!" Gavin announced to the class. He had eventually worked it out. "She's a right slut," Gavin laughed, still playing with her lips, dipping in and out of her vagina with two fingers.   
 
  
 
@@ -5748,7 +5748,7 @@
 
   "Thank you master, your slave needs a good fucking, master," Hollie informed him, while heavily leaning on his arm. He wrapped his arm around her and led her away to the car park. She didn't think about anyone seeing her like this. Anyway, they would probably think she was a student.  
 
-  Hollie was still imagining Anne's three brothers, and the terrible ordeal she would have been put through. Her hand drifted between her legs, pressing hard on her button, while Roger drove her home. She no longer thought of home as being her apartment, as her view of the world revolved around her master. Report_Story #1 
+  Hollie was still imagining Anne's three brothers, and the terrible ordeal she would have been put through. Her hand drifted between her legs, pressing hard on her button, while Roger drove her home. She no longer thought of home as being her apartment, as her view of the world revolved around her master.  
 
  
 
@@ -5916,7 +5916,7 @@
 
  With her hair up, wearing the designer dress, she looked so very beautiful. Her body filled out the figure hugging dress in a delightful suggestion of demure sexuality. In that moment she was transformed from small town teacher, to sophisticated model. 
 
- "The dress is lovely," Hollie said, while smoothing it down her slim hips. She reached up on tiptoe to kiss her lover. It was a vote of appreciation, rather than a continuation of their mad affair. She felt refined and strong, ignoring the fact that this young student had dressed her, according to his wishes. Report_Story #2 
+ "The dress is lovely," Hollie said, while smoothing it down her slim hips. She reached up on tiptoe to kiss her lover. It was a vote of appreciation, rather than a continuation of their mad affair. She felt refined and strong, ignoring the fact that this young student had dressed her, according to his wishes.  
 
  
 
@@ -6114,7 +6114,7 @@
 
  She felt the lad exploring her crotch with his fingers. The whole ordeal was degrading, now he was pulling on her lips. Here in her class it was all the more humiliating. 
 
- "She's got pierced loops in her lips! There's another one between them, in her hole!" Gavin announced to the class. He had eventually worked it out. "She's a right slut," Gavin laughed, still playing with her lips, dipping in and out of her vagina with two fingers. Report_Story #3 
+ "She's got pierced loops in her lips! There's another one between them, in her hole!" Gavin announced to the class. He had eventually worked it out. "She's a right slut," Gavin laughed, still playing with her lips, dipping in and out of her vagina with two fingers.  
 
  
 
@@ -6202,7 +6202,7 @@
 
  "Thank you master, your slave needs a good fucking, master," Hollie informed him, while heavily leaning on his arm. He wrapped his arm around her and led her away to the car park. She didn't think about anyone seeing her like this. Anyway, they would probably think she was a student. 
 
- Hollie was still imagining Anne's three brothers, and the terrible ordeal she would have been put through. Her hand drifted between her legs, pressing hard on her button, while Roger drove her home. She no longer thought of home as being her apartment, as her view of the world revolved around her master. Report_Story #1  
+ Hollie was still imagining Anne's three brothers, and the terrible ordeal she would have been put through. Her hand drifted between her legs, pressing hard on her button, while Roger drove her home. She no longer thought of home as being her apartment, as her view of the world revolved around her master.   
 
  
 
@@ -6406,7 +6406,7 @@
 
   She prepared the master's supper with great difficulty, while the decadent thing kept her on a high. So now even when he wasn't touching her, she was being stimulated. Continuously, without respite, her body was being teased. It was still early in the evening when she fell at his feet to beg him.  
 
-  "Please master. Either remove this thing or take me. I need to feel you inside me. I need to cum, feeling you deep inside your cunt. Please, master," Hollie begged. Report_Story #2  
+  "Please master. Either remove this thing or take me. I need to feel you inside me. I need to cum, feeling you deep inside your cunt. Please, master," Hollie begged.   
 
  
 
@@ -6624,7 +6624,7 @@
 
   "Take this into the changing cubicle," Roger said.  
 
-  The all in one body suit looked too small. Nevertheless she pulled it on, managing to squeeze into it. For a moment she had to stoop over after pulling it over her shoulders. After a moment or two it stretched a little, allowing her to stand up straight. Report_Story #3  
+  The all in one body suit looked too small. Nevertheless she pulled it on, managing to squeeze into it. For a moment she had to stoop over after pulling it over her shoulders. After a moment or two it stretched a little, allowing her to stand up straight.   
 
  
 
@@ -6750,7 +6750,7 @@
 
   "Slave, Cindy, you know what to do," Roger said, pointing to his crotch.  
 
-  "Yes, master," Hollie answered, and unzipped him, without a thought to where they were. As she settled into a steady routine, bobbing her head up and down, she had time to think. After the party tonight, I'll ask my master for permission to return to my apartment. Report_Story #1 
+  "Yes, master," Hollie answered, and unzipped him, without a thought to where they were. As she settled into a steady routine, bobbing her head up and down, she had time to think. After the party tonight, I'll ask my master for permission to return to my apartment.  
 
  
 
@@ -6952,7 +6952,7 @@
 
  She prepared the master's supper with great difficulty, while the decadent thing kept her on a high. So now even when he wasn't touching her, she was being stimulated. Continuously, without respite, her body was being teased. It was still early in the evening when she fell at his feet to beg him. 
 
- "Please master. Either remove this thing or take me. I need to feel you inside me. I need to cum, feeling you deep inside your cunt. Please, master," Hollie begged. Report_Story #2 
+ "Please master. Either remove this thing or take me. I need to feel you inside me. I need to cum, feeling you deep inside your cunt. Please, master," Hollie begged.  
 
  
 
@@ -7168,7 +7168,7 @@
 
  "Take this into the changing cubicle," Roger said. 
 
- The all in one body suit looked too small. Nevertheless she pulled it on, managing to squeeze into it. For a moment she had to stoop over after pulling it over her shoulders. After a moment or two it stretched a little, allowing her to stand up straight. Report_Story #3 
+ The all in one body suit looked too small. Nevertheless she pulled it on, managing to squeeze into it. For a moment she had to stoop over after pulling it over her shoulders. After a moment or two it stretched a little, allowing her to stand up straight.  
 
  
 
@@ -7292,7 +7292,7 @@
 
  "Slave, Cindy, you know what to do," Roger said, pointing to his crotch. 
 
- "Yes, master," Hollie answered, and unzipped him, without a thought to where they were. As she settled into a steady routine, bobbing her head up and down, she had time to think. After the party tonight, I'll ask my master for permission to return to my apartment. Report_Story #1  
+ "Yes, master," Hollie answered, and unzipped him, without a thought to where they were. As she settled into a steady routine, bobbing her head up and down, she had time to think. After the party tonight, I'll ask my master for permission to return to my apartment.   
 
  
 
@@ -7508,7 +7508,7 @@
 
   "Where does it hurt, I could kiss it better," he quipped. He obviously didn't believe it was painful. He had figured out it was connected to the large rings in her nipples, but nothing more than that.  
 
-  It wasn't stimulating it was annoying, unlike when her master stimulated her body. He pulled it in a certain way and felt her clit throb. She couldn't help reacting with a deep sigh, almost dropping the cans. Report_Story #2  
+  It wasn't stimulating it was annoying, unlike when her master stimulated her body. He pulled it in a certain way and felt her clit throb. She couldn't help reacting with a deep sigh, almost dropping the cans.   
 
  
 
@@ -7714,7 +7714,7 @@
 
   "Don't fall sleep here. I'll carry you to bed," her master said.  
 
-  She smiled pleasantly, thinking there were distinct advantages to being a slave girl. Report_Story #1 
+  She smiled pleasantly, thinking there were distinct advantages to being a slave girl.  
 
  
 
@@ -7928,7 +7928,7 @@
 
  "Where does it hurt, I could kiss it better," he quipped. He obviously didn't believe it was painful. He had figured out it was connected to the large rings in her nipples, but nothing more than that. 
 
- It wasn't stimulating it was annoying, unlike when her master stimulated her body. He pulled it in a certain way and felt her clit throb. She couldn't help reacting with a deep sigh, almost dropping the cans. Report_Story #2 
+ It wasn't stimulating it was annoying, unlike when her master stimulated her body. He pulled it in a certain way and felt her clit throb. She couldn't help reacting with a deep sigh, almost dropping the cans.  
 
  
 
@@ -8130,7 +8130,7 @@
 
  "Don't fall sleep here. I'll carry you to bed," her master said. 
 
- She smiled pleasantly, thinking there were distinct advantages to being a slave girl. Report_Story #1  
+ She smiled pleasantly, thinking there were distinct advantages to being a slave girl.   
 
  
 
@@ -8354,7 +8354,7 @@
 
   "Don't envy these, little girl. They are a nuisance. You have your youth and your beautiful skin, and a full life ahead of you," she smiled at Hollie. She patted Hollie on the head, not meaning to be patronising.  
 
-  Hollie was trying to think of something witty to say, to assert herself. It was so difficult having become used to obeying orders. The woman's husband led her away before Hollie could be more deeply embarrassed. Report_Story #2  
+  Hollie was trying to think of something witty to say, to assert herself. It was so difficult having become used to obeying orders. The woman's husband led her away before Hollie could be more deeply embarrassed.   
 
  
 
@@ -8582,7 +8582,7 @@
 
   She was an object now. How much was she worth? In Marxist terms it amounted to the labour of those who made her. The Keynesian value was what a balanced market could stand. Otherwise it was what someone was prepared to pay for her in an auction. Would her master put her into a slave auction to find this objects true value?  
 
-  The helplessness of her position heated her up. The humiliation of being branded a slave aroused her. The branding and the collar were for ever! She wanted to lie prostrate at his feet begging to be taken. She needn't worry; he had a satisfactory looking erection in his jeans. Report_Story #3  
+  The helplessness of her position heated her up. The humiliation of being branded a slave aroused her. The branding and the collar were for ever! She wanted to lie prostrate at his feet begging to be taken. She needn't worry; he had a satisfactory looking erection in his jeans.   
 
  
 
@@ -8684,7 +8684,7 @@
 
   "Well teacher, what a nice surprise!" the young woman announced, with a big grin plastered across her face.  
 
-  "Angela," Hollie softly stated. Report_Story #1 
+  "Angela," Hollie softly stated.  
 
  
 
@@ -8902,7 +8902,7 @@
 
  "Don't envy these, little girl. They are a nuisance. You have your youth and your beautiful skin, and a full life ahead of you," she smiled at Hollie. She patted Hollie on the head, not meaning to be patronising. 
 
- Hollie was trying to think of something witty to say, to assert herself. It was so difficult having become used to obeying orders. The woman's husband led her away before Hollie could be more deeply embarrassed. Report_Story #2 
+ Hollie was trying to think of something witty to say, to assert herself. It was so difficult having become used to obeying orders. The woman's husband led her away before Hollie could be more deeply embarrassed.  
 
  
 
@@ -9124,7 +9124,7 @@
 
  She was an object now. How much was she worth? In Marxist terms it amounted to the labour of those who made her. The Keynesian value was what a balanced market could stand. Otherwise it was what someone was prepared to pay for her in an auction. Would her master put her into a slave auction to find this objects true value? 
 
- The helplessness of her position heated her up. The humiliation of being branded a slave aroused her. The branding and the collar were for ever! She wanted to lie prostrate at his feet begging to be taken. She needn't worry; he had a satisfactory looking erection in his jeans. Report_Story #3 
+ The helplessness of her position heated her up. The humiliation of being branded a slave aroused her. The branding and the collar were for ever! She wanted to lie prostrate at his feet begging to be taken. She needn't worry; he had a satisfactory looking erection in his jeans.  
 
  
 
@@ -9220,7 +9220,7 @@
 
  "Well teacher, what a nice surprise!" the young woman announced, with a big grin plastered across her face. 
 
- "Angela," Hollie softly stated. Report_Story #1  
+ "Angela," Hollie softly stated.   
 
  
 
@@ -9446,7 +9446,7 @@
 
   Angela got up and rummaged through a box. She came back a laid down before the helpless slave. Slave was as hot as hell, breathing heavily, with her sex gaping. Angela explored the inner folds with a finger nail. The gasps of pain were from pleasure, for she wasn't hurting the slave at the moment.  
 
-  Angela rubbed the dildo over what looked like a little gasping mouth. She rubbed the hard nub, pleased to hear squeals of pleasure. There was a reluctant and guilty sound to the voice, which appealed to Angela knowing the slave was suffering. Her eyes were tightly closed as though she wanted to shut out who was giving her pleasure. Or, maybe she was concentrating on the intimate touching. Report_Story #2  
+  Angela rubbed the dildo over what looked like a little gasping mouth. She rubbed the hard nub, pleased to hear squeals of pleasure. There was a reluctant and guilty sound to the voice, which appealed to Angela knowing the slave was suffering. Her eyes were tightly closed as though she wanted to shut out who was giving her pleasure. Or, maybe she was concentrating on the intimate touching.   
 
  
 
@@ -9664,7 +9664,7 @@
 
   Hollie coughed, covering up a nervous giggle. She realised she had coughed up the woman's pussy, as her mouth was glued to her hole. She wondered about that, and blew into it, between sucking and licking. As much as she hated admitting it, Angela was right. She was becoming an expert pussy sucker.  
 
-  Hollie was experimenting too. The woman didn't seem to notice what she was doing to her. If she got away with this she would try it on Angela. It would be just a small retribution, but she needed something, to keep a hold of her sanity. Report_Story #3  
+  Hollie was experimenting too. The woman didn't seem to notice what she was doing to her. If she got away with this she would try it on Angela. It would be just a small retribution, but she needed something, to keep a hold of her sanity.   
 
  
 
@@ -9710,7 +9710,7 @@
 
   "I was thinking of sending Cindy for Pony-girl training," Angela said.  
 
-  Hollie didn't know whether to be happy or afraid. She didn't know what was involved, but surely it would be better than being subject to Angela's strict mastery. Report_Story #1 
+  Hollie didn't know whether to be happy or afraid. She didn't know what was involved, but surely it would be better than being subject to Angela's strict mastery.  
 
  
 
@@ -9934,7 +9934,7 @@
 
  Angela got up and rummaged through a box. She came back a laid down before the helpless slave. Slave was as hot as hell, breathing heavily, with her sex gaping. Angela explored the inner folds with a finger nail. The gasps of pain were from pleasure, for she wasn't hurting the slave at the moment. 
 
- Angela rubbed the dildo over what looked like a little gasping mouth. She rubbed the hard nub, pleased to hear squeals of pleasure. There was a reluctant and guilty sound to the voice, which appealed to Angela knowing the slave was suffering. Her eyes were tightly closed as though she wanted to shut out who was giving her pleasure. Or, maybe she was concentrating on the intimate touching. Report_Story #2 
+ Angela rubbed the dildo over what looked like a little gasping mouth. She rubbed the hard nub, pleased to hear squeals of pleasure. There was a reluctant and guilty sound to the voice, which appealed to Angela knowing the slave was suffering. Her eyes were tightly closed as though she wanted to shut out who was giving her pleasure. Or, maybe she was concentrating on the intimate touching.  
 
  
 
@@ -10150,7 +10150,7 @@
 
  Hollie coughed, covering up a nervous giggle. She realised she had coughed up the woman's pussy, as her mouth was glued to her hole. She wondered about that, and blew into it, between sucking and licking. As much as she hated admitting it, Angela was right. She was becoming an expert pussy sucker. 
 
- Hollie was experimenting too. The woman didn't seem to notice what she was doing to her. If she got away with this she would try it on Angela. It would be just a small retribution, but she needed something, to keep a hold of her sanity. Report_Story #3 
+ Hollie was experimenting too. The woman didn't seem to notice what she was doing to her. If she got away with this she would try it on Angela. It would be just a small retribution, but she needed something, to keep a hold of her sanity.  
 
  
 
@@ -10194,7 +10194,7 @@
 
  "I was thinking of sending Cindy for Pony-girl training," Angela said. 
 
- Hollie didn't know whether to be happy or afraid. She didn't know what was involved, but surely it would be better than being subject to Angela's strict mastery. Report_Story #1  
+ Hollie didn't know whether to be happy or afraid. She didn't know what was involved, but surely it would be better than being subject to Angela's strict mastery.   
 
  
 
@@ -10372,7 +10372,7 @@
 
   "Your face looks a picture of abject misery," Angela laughed. "Did you enjoy your treat, Cindy slave?"  
 
-  Angela unlocked the cage and pulled her slave from the cage. Hollie felt the vibrators being pulled from her body. Her muscles gripped them tight, until a hideous sucking sound announced they were free. Report_Story #2  
+  Angela unlocked the cage and pulled her slave from the cage. Hollie felt the vibrators being pulled from her body. Her muscles gripped them tight, until a hideous sucking sound announced they were free.   
 
  
 
@@ -10604,7 +10604,7 @@
 
   Bridget was relieved they were all slobbering over Cindy, and left her alone. As she was tall her daughter thought it better to wear flat shoes, which was the only sensible part of her outfit. They were necessary, as it was difficult to walk with ankle cuffs hobbling her.  
 
-  She sharply looked across at her daughter on feeling fingers walking up her inner thigh. A mistress should have made the rules of engagement clear to her guests. Angela should have told them not to touch, and watched out for her. She wanted to shout at her daughter that Francis son was touching her up. Report_Story #3  
+  She sharply looked across at her daughter on feeling fingers walking up her inner thigh. A mistress should have made the rules of engagement clear to her guests. Angela should have told them not to touch, and watched out for her. She wanted to shout at her daughter that Francis son was touching her up.   
 
  
 
@@ -10748,7 +10748,7 @@
 
   It was no consolation to her though. She had let her mother down, so very badly. She had failed with the most fundamental rule; that a mistress must look after her slave. She was in trouble, deep shit trouble. She was bound to lose her slave Cindy, when father returned.  
 
-  She would have to think of something. She needed a cunning plan to cover her mistakes, and set things up ready for Roger's return. She looked around the empty room. Where were the slaves? Report_Story #1 
+  She would have to think of something. She needed a cunning plan to cover her mistakes, and set things up ready for Roger's return. She looked around the empty room. Where were the slaves?  
 
  
 
@@ -10924,7 +10924,7 @@
 
  "Your face looks a picture of abject misery," Angela laughed. "Did you enjoy your treat, Cindy slave?" 
 
- Angela unlocked the cage and pulled her slave from the cage. Hollie felt the vibrators being pulled from her body. Her muscles gripped them tight, until a hideous sucking sound announced they were free. Report_Story #2 
+ Angela unlocked the cage and pulled her slave from the cage. Hollie felt the vibrators being pulled from her body. Her muscles gripped them tight, until a hideous sucking sound announced they were free.  
 
  
 
@@ -11154,7 +11154,7 @@
 
  Bridget was relieved they were all slobbering over Cindy, and left her alone. As she was tall her daughter thought it better to wear flat shoes, which was the only sensible part of her outfit. They were necessary, as it was difficult to walk with ankle cuffs hobbling her. 
 
- She sharply looked across at her daughter on feeling fingers walking up her inner thigh. A mistress should have made the rules of engagement clear to her guests. Angela should have told them not to touch, and watched out for her. She wanted to shout at her daughter that Francis son was touching her up. Report_Story #3 
+ She sharply looked across at her daughter on feeling fingers walking up her inner thigh. A mistress should have made the rules of engagement clear to her guests. Angela should have told them not to touch, and watched out for her. She wanted to shout at her daughter that Francis son was touching her up.  
 
  
 
@@ -11296,7 +11296,7 @@
 
  It was no consolation to her though. She had let her mother down, so very badly. She had failed with the most fundamental rule; that a mistress must look after her slave. She was in trouble, deep shit trouble. She was bound to lose her slave Cindy, when father returned. 
 
- She would have to think of something. She needed a cunning plan to cover her mistakes, and set things up ready for Roger's return. She looked around the empty room. Where were the slaves? Report_Story #1  
+ She would have to think of something. She needed a cunning plan to cover her mistakes, and set things up ready for Roger's return. She looked around the empty room. Where were the slaves?   
 
  
 
@@ -11472,7 +11472,7 @@
 
   It was the woman's life history as a slave. She glanced through the list of owners, reading there had only been two, before her husband. Noting the woman's date of birth, and the transfer dates, she calculated the woman had been enslaved at an early age. The first owner was probably her father.  
 
-  Hollie felt sorry for the woman. She had never been a free woman, being enslaved as a girl. Reading the notes she found the first sale had her down as a virgin. A high price had been obtained for that attribute. Report_Story #2  
+  Hollie felt sorry for the woman. She had never been a free woman, being enslaved as a girl. Reading the notes she found the first sale had her down as a virgin. A high price had been obtained for that attribute.   
 
  
 
@@ -11644,7 +11644,7 @@
 
   Roger didn't think the pompous man would find it as amusing as he did. The two women deserved punishing, and Nathanial had let him and Hollie down. Sending them away for pony training was going too far. He would have to recover them, and somehow placate Nathanial.  
 
-  In the meantime, there was something nagging at him, something that needed his attention. His slave urgently wanted him. Report_Story #3  
+  In the meantime, there was something nagging at him, something that needed his attention. His slave urgently wanted him.   
 
  
 
@@ -11880,7 +11880,7 @@
 
   Hollie reached forward to his zip. His cock sprang out to attention. It looked large in her small hands, though with her recent experience she knew it was unimpressive. She shuffled forward on her knees and engulfed it between her pouting lips. He was staring at her, wide eyed. She knew what he was thinking, her lips formed a perfect shape around his cock. Her master had told her often.  
 
-  Clive wasn't thinking at all. He was so enthralled to have a young attractive woman on the end of his cock, his brain stopped functioning. Hollie concentrated with determination, trying to hold him back with a firm grip around the base of his cock. She had learnt over the last few weeks to be a perfect cock sucker. Report_Story #4  
+  Clive wasn't thinking at all. He was so enthralled to have a young attractive woman on the end of his cock, his brain stopped functioning. Hollie concentrated with determination, trying to hold him back with a firm grip around the base of his cock. She had learnt over the last few weeks to be a perfect cock sucker.   
 
  
 
@@ -12006,7 +12006,7 @@
 
   Hollie tried to bury a red face in her long hair, with head down, too ashamed to reveal her face in the crowded cafe.  
 
-  He firmly gripped her hand, leaving the mall for home. Only a short while ago he was her student, now she trotted along behind him as his girl, or pathetic little sister. After all she had experienced it was easy to sink into the submissive role. Report_Story #1 
+  He firmly gripped her hand, leaving the mall for home. Only a short while ago he was her student, now she trotted along behind him as his girl, or pathetic little sister. After all she had experienced it was easy to sink into the submissive role.  
 
  
 
@@ -12178,7 +12178,7 @@
 
  It was the woman's life history as a slave. She glanced through the list of owners, reading there had only been two, before her husband. Noting the woman's date of birth, and the transfer dates, she calculated the woman had been enslaved at an early age. The first owner was probably her father. 
 
- Hollie felt sorry for the woman. She had never been a free woman, being enslaved as a girl. Reading the notes she found the first sale had her down as a virgin. A high price had been obtained for that attribute. Report_Story #2 
+ Hollie felt sorry for the woman. She had never been a free woman, being enslaved as a girl. Reading the notes she found the first sale had her down as a virgin. A high price had been obtained for that attribute.  
 
  
 
@@ -12348,7 +12348,7 @@
 
  Roger didn't think the pompous man would find it as amusing as he did. The two women deserved punishing, and Nathanial had let him and Hollie down. Sending them away for pony training was going too far. He would have to recover them, and somehow placate Nathanial. 
 
- In the meantime, there was something nagging at him, something that needed his attention. His slave urgently wanted him. Report_Story #3 
+ In the meantime, there was something nagging at him, something that needed his attention. His slave urgently wanted him.  
 
  
 
@@ -12582,7 +12582,7 @@
 
  Hollie reached forward to his zip. His cock sprang out to attention. It looked large in her small hands, though with her recent experience she knew it was unimpressive. She shuffled forward on her knees and engulfed it between her pouting lips. He was staring at her, wide eyed. She knew what he was thinking, her lips formed a perfect shape around his cock. Her master had told her often. 
 
- Clive wasn't thinking at all. He was so enthralled to have a young attractive woman on the end of his cock, his brain stopped functioning. Hollie concentrated with determination, trying to hold him back with a firm grip around the base of his cock. She had learnt over the last few weeks to be a perfect cock sucker. Report_Story #4 
+ Clive wasn't thinking at all. He was so enthralled to have a young attractive woman on the end of his cock, his brain stopped functioning. Hollie concentrated with determination, trying to hold him back with a firm grip around the base of his cock. She had learnt over the last few weeks to be a perfect cock sucker.  
 
  
 
@@ -12704,7 +12704,7 @@
 
  Hollie tried to bury a red face in her long hair, with head down, too ashamed to reveal her face in the crowded cafe. 
 
- He firmly gripped her hand, leaving the mall for home. Only a short while ago he was her student, now she trotted along behind him as his girl, or pathetic little sister. After all she had experienced it was easy to sink into the submissive role. Report_Story #1  
+ He firmly gripped her hand, leaving the mall for home. Only a short while ago he was her student, now she trotted along behind him as his girl, or pathetic little sister. After all she had experienced it was easy to sink into the submissive role.   
 
  
 
@@ -12884,7 +12884,7 @@
 
   It was then she realised what he had meant. A spray of liquid was injected down her throat. The demands of her stomach couldn't be resisted. Again and again she pushed the dildo down her throat to receive a feed. Tears ran down her cheeks, from the knowledge she was teaching herself to deep throat a cock.  
 
-  Every time it spurted thick mushy nutrient down her throat, she imagined a cock spurting its cum into her belly. Pulling back for air, she saw the so called food dribble out its eye, and it even looked like sperm. Report_Story #2  
+  Every time it spurted thick mushy nutrient down her throat, she imagined a cock spurting its cum into her belly. Pulling back for air, she saw the so called food dribble out its eye, and it even looked like sperm.   
 
  
 
@@ -13096,7 +13096,7 @@
 
   "Leave me, Mark. I'm not worth it. I'm just a slut," she tried to reason with him.  
 
-  As the ham hock fist swung, she tugged Mark's belt. The fist sailed past his head, with the lack of a connection swinging Bill off balance. The meaty paw would have smashed his face, if it had struck. At the same time Mark kicked out. His shoe spun off into the darkness, and his foot hit Bill's knee. Report_Story #3  
+  As the ham hock fist swung, she tugged Mark's belt. The fist sailed past his head, with the lack of a connection swinging Bill off balance. The meaty paw would have smashed his face, if it had struck. At the same time Mark kicked out. His shoe spun off into the darkness, and his foot hit Bill's knee.   
 
  
 
@@ -13256,7 +13256,7 @@
 
   "For the sake of your education, I guess I must," she imperiously answered, and burst out laughing.  
 
-  Hollie instinctively knew she could remain in control this time. Report_Story #1 
+  Hollie instinctively knew she could remain in control this time.  
 
  
 
@@ -13432,7 +13432,7 @@
 
  It was then she realised what he had meant. A spray of liquid was injected down her throat. The demands of her stomach couldn't be resisted. Again and again she pushed the dildo down her throat to receive a feed. Tears ran down her cheeks, from the knowledge she was teaching herself to deep throat a cock. 
 
- Every time it spurted thick mushy nutrient down her throat, she imagined a cock spurting its cum into her belly. Pulling back for air, she saw the so called food dribble out its eye, and it even looked like sperm. Report_Story #2 
+ Every time it spurted thick mushy nutrient down her throat, she imagined a cock spurting its cum into her belly. Pulling back for air, she saw the so called food dribble out its eye, and it even looked like sperm.  
 
  
 
@@ -13642,7 +13642,7 @@
 
  "Leave me, Mark. I'm not worth it. I'm just a slut," she tried to reason with him. 
 
- As the ham hock fist swung, she tugged Mark's belt. The fist sailed past his head, with the lack of a connection swinging Bill off balance. The meaty paw would have smashed his face, if it had struck. At the same time Mark kicked out. His shoe spun off into the darkness, and his foot hit Bill's knee. Report_Story #3 
+ As the ham hock fist swung, she tugged Mark's belt. The fist sailed past his head, with the lack of a connection swinging Bill off balance. The meaty paw would have smashed his face, if it had struck. At the same time Mark kicked out. His shoe spun off into the darkness, and his foot hit Bill's knee.  
 
  
 
@@ -13798,7 +13798,7 @@
 
  "For the sake of your education, I guess I must," she imperiously answered, and burst out laughing. 
 
- Hollie instinctively knew she could remain in control this time. Report_Story #1  
+ Hollie instinctively knew she could remain in control this time.   
 
  
 
@@ -14014,7 +14014,7 @@
 
   Each morning she made a movie of herself getting dressed, and sent it to her cyber master. It was proof that she wore the clothes he had specified. Being careful not to show her face, or reveal where she lived, was a necessary precaution.  
 
-  Some time ago he ordered her to walk through a mall wearing a light summer dress, without underwear. A small hand held camera caught her reflection in the store fronts as she passed. There wasn't much left to the imagination. She gratefully accepted his praise after receiving the movie. Report_Story #2  
+  Some time ago he ordered her to walk through a mall wearing a light summer dress, without underwear. A small hand held camera caught her reflection in the store fronts as she passed. There wasn't much left to the imagination. She gratefully accepted his praise after receiving the movie.   
 
  
 
@@ -14208,7 +14208,7 @@
 
   She walked out in silence with the young woman. They climbed into a bright shiny car. She was desperate enough to leave the bags and jump out at the next light on red. The girls chatter went unheard, as the city blocks sped by. She would have to find the money somehow, to pay back this man. At least she could keep the shameful event secret.  
 
-  She could explain it all to her cyber master. He might pay the bail and fine, she hoped. He always said he would look after her, if she needed him. Could she ever face him, after all that she had confided to him? She had lied about some important things too. She wasn't the person he thought she was. He had told her it didn't matter, as he cared for the inner person she presented. Report_Story #3  
+  She could explain it all to her cyber master. He might pay the bail and fine, she hoped. He always said he would look after her, if she needed him. Could she ever face him, after all that she had confided to him? She had lied about some important things too. She wasn't the person he thought she was. He had told her it didn't matter, as he cared for the inner person she presented.   
 
  
 
@@ -14278,7 +14278,7 @@
 
   Not only that. As a slave she could be kept in permanent submission by her pimp. He would be her master, loaning her to men who would be her master for a short time. Making money from her use, he wouldn't let her go once the debt had been paid. He would know she could be kept as his whore-slave, forever.  
 
-  The slave collar weighed heavily around her neck. The burden of a future as nothing more than whore-slave, defeated all resistance. Freedom had been just a short remission. She was once again a compliant slave, waiting upon a masters pleasure. Report_Story #1 
+  The slave collar weighed heavily around her neck. The burden of a future as nothing more than whore-slave, defeated all resistance. Freedom had been just a short remission. She was once again a compliant slave, waiting upon a masters pleasure.  
 
  
 
@@ -14492,7 +14492,7 @@
 
  Each morning she made a movie of herself getting dressed, and sent it to her cyber master. It was proof that she wore the clothes he had specified. Being careful not to show her face, or reveal where she lived, was a necessary precaution. 
 
- Some time ago he ordered her to walk through a mall wearing a light summer dress, without underwear. A small hand held camera caught her reflection in the store fronts as she passed. There wasn't much left to the imagination. She gratefully accepted his praise after receiving the movie. Report_Story #2 
+ Some time ago he ordered her to walk through a mall wearing a light summer dress, without underwear. A small hand held camera caught her reflection in the store fronts as she passed. There wasn't much left to the imagination. She gratefully accepted his praise after receiving the movie.  
 
  
 
@@ -14682,7 +14682,7 @@
 
  She walked out in silence with the young woman. They climbed into a bright shiny car. She was desperate enough to leave the bags and jump out at the next light on red. The girls chatter went unheard, as the city blocks sped by. She would have to find the money somehow, to pay back this man. At least she could keep the shameful event secret. 
 
- She could explain it all to her cyber master. He might pay the bail and fine, she hoped. He always said he would look after her, if she needed him. Could she ever face him, after all that she had confided to him? She had lied about some important things too. She wasn't the person he thought she was. He had told her it didn't matter, as he cared for the inner person she presented. Report_Story #3 
+ She could explain it all to her cyber master. He might pay the bail and fine, she hoped. He always said he would look after her, if she needed him. Could she ever face him, after all that she had confided to him? She had lied about some important things too. She wasn't the person he thought she was. He had told her it didn't matter, as he cared for the inner person she presented.  
 
  
 
@@ -14750,7 +14750,7 @@
 
  Not only that. As a slave she could be kept in permanent submission by her pimp. He would be her master, loaning her to men who would be her master for a short time. Making money from her use, he wouldn't let her go once the debt had been paid. He would know she could be kept as his whore-slave, forever. 
 
- The slave collar weighed heavily around her neck. The burden of a future as nothing more than whore-slave, defeated all resistance. Freedom had been just a short remission. She was once again a compliant slave, waiting upon a masters pleasure. Report_Story #1  
+ The slave collar weighed heavily around her neck. The burden of a future as nothing more than whore-slave, defeated all resistance. Freedom had been just a short remission. She was once again a compliant slave, waiting upon a masters pleasure.   
 
  
 
@@ -14928,7 +14928,7 @@
 
   Brad was rummaging in a cupboard, looking for another device of torture. Hollie watched him walk back towards her. He was carrying weights! The clips on the end were used to attach them to the nipple clamps. A fresh wave of pain splashed over her, heating her breasts as though on fire.  
 
-  "Please, Master, please don't hurt your slave!" Hollie implored. Report_Story #2  
+  "Please, Master, please don't hurt your slave!" Hollie implored.   
 
  
 
@@ -15062,7 +15062,7 @@
 
   Of course it couldn't be forever. Until she went back to teaching she would throw herself into serving her master, letting him decide everything for her, letting him take responsibility for everything. The feeling of being free of all decisions was a heady emotion, leaving her feeling giddy. She would be a dutiful slave girl, ready to obey his every wish.  
 
-  Hearing him wake, she rushed to serve her wonderful master. Report_Story #1 
+  Hearing him wake, she rushed to serve her wonderful master.  
 
  
 
@@ -15236,7 +15236,7 @@
 
  Brad was rummaging in a cupboard, looking for another device of torture. Hollie watched him walk back towards her. He was carrying weights! The clips on the end were used to attach them to the nipple clamps. A fresh wave of pain splashed over her, heating her breasts as though on fire. 
 
- "Please, Master, please don't hurt your slave!" Hollie implored. Report_Story #2 
+ "Please, Master, please don't hurt your slave!" Hollie implored.  
 
  
 
@@ -15366,7 +15366,7 @@
 
  Of course it couldn't be forever. Until she went back to teaching she would throw herself into serving her master, letting him decide everything for her, letting him take responsibility for everything. The feeling of being free of all decisions was a heady emotion, leaving her feeling giddy. She would be a dutiful slave girl, ready to obey his every wish. 
 
- Hearing him wake, she rushed to serve her wonderful master. Report_Story #1  
+ Hearing him wake, she rushed to serve her wonderful master.   
 
  
 
@@ -15560,7 +15560,7 @@
 
   It was true. In class she kept the students in check, because they thought so highly of her. She didn't have to raise her voice. A smile and kind advice brought the best out of them. They appreciated her for treating them like equals. She spent time and effort helping them improve grades, and in return they looked out for her. The older class warned the younger rowdy elements to behave in her history class.  
 
-  Going home to become a slave-girl was incongruous at first, yet she soon found it easy to slip in and out of the role. Her master was understanding when she needed to stay late with a student, to give them extra tuition. For a couple of months life seemed perfect. Report_Story #2  
+  Going home to become a slave-girl was incongruous at first, yet she soon found it easy to slip in and out of the role. Her master was understanding when she needed to stay late with a student, to give them extra tuition. For a couple of months life seemed perfect.   
 
  
 
@@ -15728,7 +15728,7 @@
 
   She wondered what her fate might be, as nothing more than an object owned by an arrogant young man. She had no doubt he would make full use of her. As a sex object she had no say in how she was to be used, and would have to accept it.  
 
-  She sighed deeply with satisfaction, and fell asleep. Report_Story #1 
+  She sighed deeply with satisfaction, and fell asleep.  
 
  
 
@@ -15920,7 +15920,7 @@
 
  It was true. In class she kept the students in check, because they thought so highly of her. She didn't have to raise her voice. A smile and kind advice brought the best out of them. They appreciated her for treating them like equals. She spent time and effort helping them improve grades, and in return they looked out for her. The older class warned the younger rowdy elements to behave in her history class. 
 
- Going home to become a slave-girl was incongruous at first, yet she soon found it easy to slip in and out of the role. Her master was understanding when she needed to stay late with a student, to give them extra tuition. For a couple of months life seemed perfect. Report_Story #2 
+ Going home to become a slave-girl was incongruous at first, yet she soon found it easy to slip in and out of the role. Her master was understanding when she needed to stay late with a student, to give them extra tuition. For a couple of months life seemed perfect.  
 
  
 
@@ -16086,7 +16086,7 @@
 
  She wondered what her fate might be, as nothing more than an object owned by an arrogant young man. She had no doubt he would make full use of her. As a sex object she had no say in how she was to be used, and would have to accept it. 
 
- She sighed deeply with satisfaction, and fell asleep. Report_Story #1  
+ She sighed deeply with satisfaction, and fell asleep.   
 
  
 
@@ -16290,7 +16290,7 @@
 
   The casual tone of voice emphasised her lowly position more than a harsh demand. She got onto the floor, with legs spread, wondering what he would do to her. Without a word of warning he took hold of both arms and handcuffed them behind her back.  
 
-  She looked up at him wondering why. She was a compliant slave, so there was no reason to force her into anything at all. He pushed her face down onto the floor, and shackled her. Pulling her feet up she was locked into a hog-tie position. Report_Story #2  
+  She looked up at him wondering why. She was a compliant slave, so there was no reason to force her into anything at all. He pushed her face down onto the floor, and shackled her. Pulling her feet up she was locked into a hog-tie position.   
 
  
 
@@ -16498,7 +16498,7 @@
 
   He shut down the computer and prepared himself.  
 
-  She wobbled in on red high heels, wearing the figure hugging sheath of a dress. It was low cut with a short hem, pulled tight under her cheeks. The red suspender belts were on show, holding up sheer stockings. The stockings had a hint of red, with a red seam up the back. Report_Story #3  
+  She wobbled in on red high heels, wearing the figure hugging sheath of a dress. It was low cut with a short hem, pulled tight under her cheeks. The red suspender belts were on show, holding up sheer stockings. The stockings had a hint of red, with a red seam up the back.   
 
  
 
@@ -16588,7 +16588,7 @@
 
   He had promised his father to keep them safe and out of the way, until the situation with their husbands had been finalised. That included Angela, so he had to do something about her rebelliousness.  
 
-  He thought about Hollie, his teacher, and what had been learnt about training her. His teacher had been made into a slave-girl, so surely he could tame Angela. Report_Story #1 
+  He thought about Hollie, his teacher, and what had been learnt about training her. His teacher had been made into a slave-girl, so surely he could tame Angela.  
 
  
 
@@ -16788,7 +16788,7 @@
 
  The casual tone of voice emphasised her lowly position more than a harsh demand. She got onto the floor, with legs spread, wondering what he would do to her. Without a word of warning he took hold of both arms and handcuffed them behind her back. 
 
- She looked up at him wondering why. She was a compliant slave, so there was no reason to force her into anything at all. He pushed her face down onto the floor, and shackled her. Pulling her feet up she was locked into a hog-tie position. Report_Story #2 
+ She looked up at him wondering why. She was a compliant slave, so there was no reason to force her into anything at all. He pushed her face down onto the floor, and shackled her. Pulling her feet up she was locked into a hog-tie position.  
 
  
 
@@ -16994,7 +16994,7 @@
 
  He shut down the computer and prepared himself. 
 
- She wobbled in on red high heels, wearing the figure hugging sheath of a dress. It was low cut with a short hem, pulled tight under her cheeks. The red suspender belts were on show, holding up sheer stockings. The stockings had a hint of red, with a red seam up the back. Report_Story #3 
+ She wobbled in on red high heels, wearing the figure hugging sheath of a dress. It was low cut with a short hem, pulled tight under her cheeks. The red suspender belts were on show, holding up sheer stockings. The stockings had a hint of red, with a red seam up the back.  
 
  
 
@@ -17082,7 +17082,7 @@
 
  He had promised his father to keep them safe and out of the way, until the situation with their husbands had been finalised. That included Angela, so he had to do something about her rebelliousness. 
 
- He thought about Hollie, his teacher, and what had been learnt about training her. His teacher had been made into a slave-girl, so surely he could tame Angela. Report_Story #1  
+ He thought about Hollie, his teacher, and what had been learnt about training her. His teacher had been made into a slave-girl, so surely he could tame Angela.   
 
  
 
@@ -17286,7 +17286,7 @@
 
   Robert tilted the young woman from a crate and looked her over. This one wasn't for sale, as her master wanted her back, fully trained. The instructions for her training were clear. Her current state of rebellion had also been clear. She would cause him little trouble, as he was confident in his training methods.  
 
-  He released the cuffs and manacles, then dragged the crate from the cage. Back in the cage he clasped the device around her waist and crotch. A similar device was clasped around her head. Steel cables were attached to the belt and head piece. There was enough slack in the cables to push her into a corner of the cage, and roll her onto the bedding. Report_Story #2  
+  He released the cuffs and manacles, then dragged the crate from the cage. Back in the cage he clasped the device around her waist and crotch. A similar device was clasped around her head. Steel cables were attached to the belt and head piece. There was enough slack in the cables to push her into a corner of the cage, and roll her onto the bedding.   
 
  
 
@@ -17362,7 +17362,7 @@
 
   The cables connecting her to the devices slacked off, allowing her to move away. She settled down in a corner of the cage, to nestle in the rags meant to be a bed. A plan of sorts was needed. Escape was vital. Being naked it would be easy to hitch a ride. But where to? Back home and Roger?  
 
-  Before she realized her eyes flickered and she was dozing fitfully. Report_Story #1 
+  Before she realized her eyes flickered and she was dozing fitfully.  
 
  
 
@@ -17564,7 +17564,7 @@
 
  Robert tilted the young woman from a crate and looked her over. This one wasn't for sale, as her master wanted her back, fully trained. The instructions for her training were clear. Her current state of rebellion had also been clear. She would cause him little trouble, as he was confident in his training methods. 
 
- He released the cuffs and manacles, then dragged the crate from the cage. Back in the cage he clasped the device around her waist and crotch. A similar device was clasped around her head. Steel cables were attached to the belt and head piece. There was enough slack in the cables to push her into a corner of the cage, and roll her onto the bedding. Report_Story #2 
+ He released the cuffs and manacles, then dragged the crate from the cage. Back in the cage he clasped the device around her waist and crotch. A similar device was clasped around her head. Steel cables were attached to the belt and head piece. There was enough slack in the cables to push her into a corner of the cage, and roll her onto the bedding.  
 
  
 

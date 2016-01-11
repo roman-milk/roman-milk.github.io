@@ -190,7 +190,7 @@
 
  She came when I ate her pussy and she came when I fucked it, but her orgasms when doing those two things were mild compared to the ones she had when I was buried in her ass. The first time I panicked because I thought she was having an epileptic fit and I had no idea of what to do. I was actually getting ready to pull out and call 911 when she asked me what I was doing. I told her and she laughed and told me what I had just witnessed was her cumming. 
 
- I witnessed that event a couple of dozen times over the next couple of months and I don't know how long the relationship would have gone on if my uncle hadn't closed the shop early one Thursday night. Pam was constantly bitching about my having to work three nights a week and I thought I would surprise her when Uncle Jim told me he was closing early. Report_Story #2 
+ I witnessed that event a couple of dozen times over the next couple of months and I don't know how long the relationship would have gone on if my uncle hadn't closed the shop early one Thursday night. Pam was constantly bitching about my having to work three nights a week and I thought I would surprise her when Uncle Jim told me he was closing early.  
 
  
 
@@ -366,7 +366,7 @@
 
  "What do you mean?" 
 
- "She used to come in here with a group of other girls and suddenly all of the other girls stopped coming in. Now days it is just your wife and one other woman. Your wife sits there alone and drinks while she waits for the other woman to get here. She never dances with the guys that ask her; just sits there nursing her drink until the other woman joins her. Maybe a half hour later a man comes in and joins the and the three of them sit and talk for a few minutes and then your wife and the man get up and leave. A little latter your wife come in, grabs her purse and leaves. I haven't figured out what is going on yet and curiosity is killing me. If you find out what is going on let me know okay?" Report_Story #3 
+ "She used to come in here with a group of other girls and suddenly all of the other girls stopped coming in. Now days it is just your wife and one other woman. Your wife sits there alone and drinks while she waits for the other woman to get here. She never dances with the guys that ask her; just sits there nursing her drink until the other woman joins her. Maybe a half hour later a man comes in and joins the and the three of them sit and talk for a few minutes and then your wife and the man get up and leave. A little latter your wife come in, grabs her purse and leaves. I haven't figured out what is going on yet and curiosity is killing me. If you find out what is going on let me know okay?"  
 
  
 
@@ -514,7 +514,7 @@
 
  After the "Good to see you" and the "How have you been" were out of the way I told him of my problem and what I wanted to do about it and the I asked him if he had any suggestions. He did and I listened as he outlined them. We roughed out a plan and then I headed home. I had no idea of what awaited me there, but whatever it was I was going to have to be a little more civil to Nancy because I was going to need her help in what was planned for Pam. 
 
- When I got to the house I found Nancy sitting at the kitchen table with an open bottle of wine in front of her and a half filled glass in her hand. She looked up when I came into the room and said: Report_Story #4 
+ When I got to the house I found Nancy sitting at the kitchen table with an open bottle of wine in front of her and a half filled glass in her hand. She looked up when I came into the room and said:  
 
  
 

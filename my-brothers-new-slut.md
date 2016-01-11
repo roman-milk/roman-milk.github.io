@@ -124,7 +124,7 @@
 
  I dug in and ate Mindy's cum filled muffin like a man possessed and a funny thing happened - Mindy got into it. Mindy started moaning and humping her pussy against my mouth. I redoubled my efforts and she gave a little shudder, which I guessed was a climax, and when she did it her muscle contractions squeezed more goop out of her box and it damn near filled my mouth and I had to swallow hard to keep from choking. 
 
- Mindy had her hands on my chest and was humping my face and I wanted to see if I could make her cum again. I thought that if I could do that it might take some of the sting out of whatever she was going to do to me. I ran my hand up her body until I came to a tit and I started tweaking the nipple and she groaned "Oh God" and she started banging her pussy hard against my face. I reached up and started playing with the other nipple. "Oh fuck" she cried and she took her hands off my chest and fell forward. Her legs clamped my head, "Oh yes, oh god yes, eat me god damn it, eat me" and then she had an orgasm. Report_Story #2 
+ Mindy had her hands on my chest and was humping my face and I wanted to see if I could make her cum again. I thought that if I could do that it might take some of the sting out of whatever she was going to do to me. I ran my hand up her body until I came to a tit and I started tweaking the nipple and she groaned "Oh God" and she started banging her pussy hard against my face. I reached up and started playing with the other nipple. "Oh fuck" she cried and she took her hands off my chest and fell forward. Her legs clamped my head, "Oh yes, oh god yes, eat me god damn it, eat me" and then she had an orgasm.  
 
  
 

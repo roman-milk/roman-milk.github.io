@@ -182,7 +182,7 @@
 
  "Here is the way it plays out Pam. Doug and Myra saw us come in here almost ten minutes ago and there hasn't been any screaming so they will testify that you led me in here if it goes to court. Paul finds out what you do while he's drunk because I will tell the world that this isn't the first time, just one of many. Your marriage and your reputation will be trashed. That's what happens if you scream and holler. The other options are to lie there and enjoy it or just lie there and accept it and when it is over only the two of us will know and you can spend the rest of your life contemplating the folly of helping a woman cheat on her husband. Either way my cock is going into your cunt," and I pushed. 
 
- Pam gave a little grunt as I pushed inside her and she looked up at me with angry eyes. I pushed a little more inside her, "Isn't this great? You're buying Alice all kinds of time keeping me here like this. You going to tell her what we did if she asks how you kept me occupied?" Report_Story #2 
+ Pam gave a little grunt as I pushed inside her and she looked up at me with angry eyes. I pushed a little more inside her, "Isn't this great? You're buying Alice all kinds of time keeping me here like this. You going to tell her what we did if she asks how you kept me occupied?"  
 
  
 

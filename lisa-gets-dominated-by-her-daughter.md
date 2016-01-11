@@ -232,7 +232,7 @@
 
  Lynz yanked her mother's head upwards again and put her lips directly on her ear. "Now we'll see if you've learned anything. Who was the last man you had sex with?" She asked the question and waited a mere second before using the paddle again. 
 
- Her ass was on fire and this time Lisa cried. The tears ran freely and she struggled to get free, but Jeff was far too strong. Her heart was beating so fast that her face turned a blushing red and then she felt her pants slide smoothly across her burning butt and all the way down her legs to the floor. Lisa turned her head, but that didn't help, as the tears rolled down her cheeks. "Dear lord, no, no." Report_Story #2 
+ Her ass was on fire and this time Lisa cried. The tears ran freely and she struggled to get free, but Jeff was far too strong. Her heart was beating so fast that her face turned a blushing red and then she felt her pants slide smoothly across her burning butt and all the way down her legs to the floor. Lisa turned her head, but that didn't help, as the tears rolled down her cheeks. "Dear lord, no, no."  
 
  
 
@@ -402,7 +402,7 @@
 
  "Are you ready? Oh yeah, mom, how big was dad? Was he big... as big as Jeff?" 
 
- Lisa wanted to cry so bad, but she dug her teeth into the ball-gag instead. Lynz slipped her arm under her mom's head and forced her to watch the entire seduction. "You'll see. Mom, you'll see that he's different," she whispered, as she raised Lisa's head and tilted her face downwards. "I asked you a question!" Report_Story #3 
+ Lisa wanted to cry so bad, but she dug her teeth into the ball-gag instead. Lynz slipped her arm under her mom's head and forced her to watch the entire seduction. "You'll see. Mom, you'll see that he's different," she whispered, as she raised Lisa's head and tilted her face downwards. "I asked you a question!"  
 
  
 
@@ -600,7 +600,7 @@
 
  Jeff grabbed the flared hips and held Lisa stead when he rammed his cock to the hilt. Lisa tried to arch her back and move her body forward, but Jeff was far too strong and determined. He yanked her hips backwards and thrust his powerful hips at the luscious backside time and time again. Stamina was no problem, as the previous blowjob about an hour earlier and intercourse would enable him to prolong his endurance despite the fiery inferno. 
 
- "Oh mother, your face... you look so hot and horny," Lynz whispered. Report_Story #4 
+ "Oh mother, your face... you look so hot and horny," Lynz whispered.  
 
  
 

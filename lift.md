@@ -216,7 +216,7 @@
 
  *** 
 
- A different kind of banging woke her up. At first disorientated Nora felt the madness of last night hit her like one of the hammer blows vibrating the lift. "Shit! Wake up," she whispered, as loudly as she dared. She shook the snoring young man hard. Report_Story #2 
+ A different kind of banging woke her up. At first disorientated Nora felt the madness of last night hit her like one of the hammer blows vibrating the lift. "Shit! Wake up," she whispered, as loudly as she dared. She shook the snoring young man hard.  
 
  
 

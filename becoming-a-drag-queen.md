@@ -190,7 +190,7 @@
 
  The crowd erupted and Flame came on stage to Elvis's 'Burning Love'. I pushed my way forward through the throngs of gay men until I reached the stage. Flame saw me instantly and gave her seemingly signature smile to me. I put my hand forward, waving a twenty in the air. She bent down and took it in her mouth before sauntering away. She was an amazing dancer: both smooth and erotic. I pulled out another twenty for when she returned to where I was standing. The crowd on the dance floor was loud, sweaty and horny. I felt hands on my ass and heard a lot of cat calling and whistling. Flame took my second twenty by bending down and taking it with her breasts, her eyes never leaving mine. I felt like the prey of a hungry hunter, a tantalizing temptress. As the song was coming to an end, I pulled out one more twenty and held it in the air for Flame to see. After taking others money, she crawled on all fours to me, and said, "Put it in your mouth, baby." 
 
- I did without hesitation and leaned forward as she took it with hers, our lips touching for just a heartbeat of time. I couldn't believe how soft they were, way softer than any girl I had ever kissed. I watched her crawl on all fours away from me and off the stage, getting a great view of her well curved ass. My cock twitched in my panties as I wondered what it would be like to fuck her ass. Report_Story #2 
+ I did without hesitation and leaned forward as she took it with hers, our lips touching for just a heartbeat of time. I couldn't believe how soft they were, way softer than any girl I had ever kissed. I watched her crawl on all fours away from me and off the stage, getting a great view of her well curved ass. My cock twitched in my panties as I wondered what it would be like to fuck her ass.  
 
  
 
@@ -402,7 +402,7 @@
 
  "Oh yes, watching a sexy boy like you being feminized is so fucking hot," she whispered, her hot breath doing a number to my ear. 
 
- "I don't think I will be very good." Report_Story #3 
+ "I don't think I will be very good."  
 
  
 
@@ -698,7 +698,7 @@
 
  "And wow baby, you are way nastier then I even imagined." She leaned in and kissed me. It lasted a minute or two before she broke it and helped me get dressed again. 
 
- She decided the garter was a mistake and instead put on dark tan thigh highs. Once I was dressed again, she added a few pieces of jewellery, including a gold ankle bracelet. Report_Story #4 
+ She decided the garter was a mistake and instead put on dark tan thigh highs. Once I was dressed again, she added a few pieces of jewellery, including a gold ankle bracelet.  
 
  
 
@@ -958,7 +958,7 @@
 
  If I thought I was going deep and fast when I was fucking him, that was nothing to how deep my cock went in him when he was fucking me. His whimpers were high- pitched squeals really, made each time he bounced back on my dick. Somehow on top of his fast-paced bouncing, he managed to squeeze his asshole on my cock. It was amazing and I knew my cum was coming soon. Wanting to face-fuck him still, I pulled out, turned him around and shoved my cock back in his mouth. I held his head and pumped his mouth like it was a pussy. Somehow he didn't gag, but enjoyed my assault on his face. It took less than two minutes and I exploded my cum down this bottom's amazing mouth. Once completely spent, I pulled out. 
 
- Simon pulled his pants back up and, still never saying a word, left. Flame, who had watched the whole fuck session, finally spoke, "I was worried you were never going to cum. You are on in ten or fifteen minutes." Report_Story #5 
+ Simon pulled his pants back up and, still never saying a word, left. Flame, who had watched the whole fuck session, finally spoke, "I was worried you were never going to cum. You are on in ten or fifteen minutes."  
 
  
 

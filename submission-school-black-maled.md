@@ -296,7 +296,7 @@
 
  I'll turn it off as soon as you come for me. 
 
- My eyes went big at the expectation. The pleasure of the powerful toy making my pussy very wet, it was only a matter of time before I came whether I wanted to or not. I looked up again at Jordan, who was looking directly at me smiling. I pleaded with him with my eyes for mercy, but not surprisingly none came. Report_Story #2 
+ My eyes went big at the expectation. The pleasure of the powerful toy making my pussy very wet, it was only a matter of time before I came whether I wanted to or not. I looked up again at Jordan, who was looking directly at me smiling. I pleaded with him with my eyes for mercy, but not surprisingly none came.  
 
  
 
@@ -606,7 +606,7 @@
 
  "Not before I inspect my merchandise," he said, standing up. "Now get out of that skirt." 
 
- I sighed, standing up, again feeling helpless, although thankful to be off my knees. My hands again trembling, I slowly slid my skirt down my legs to reveal my trimmed pussy and thigh high stockings. Report_Story #3 
+ I sighed, standing up, again feeling helpless, although thankful to be off my knees. My hands again trembling, I slowly slid my skirt down my legs to reveal my trimmed pussy and thigh high stockings.  
 
  
 

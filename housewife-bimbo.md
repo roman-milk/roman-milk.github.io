@@ -226,7 +226,7 @@
 
  "Just sit there while I try to work this out," he told her. 
 
- It was reassuring that he wanted to help, yet all he had to do was ask. She could tell him exactly what to do, as it just needed a phrase to be spoken to bring her out of this mess. Report_Story #2 
+ It was reassuring that he wanted to help, yet all he had to do was ask. She could tell him exactly what to do, as it just needed a phrase to be spoken to bring her out of this mess.  
 
  
 
@@ -504,7 +504,7 @@
 
  "Well? Like, yes, it's nice, mmmm, very nice, sir," she replied, starting to respond. 
 
- No! Please don't let him do that. Florence couldn't escape the arousal flooding through her body. The bimbo wouldn't resist, and she had lost the ability to fight, even if the bimbo would listen. She felt every sensation. A stranger was rubbing her lips, sexing her up, without a chance of stopping him. Report_Story #3 
+ No! Please don't let him do that. Florence couldn't escape the arousal flooding through her body. The bimbo wouldn't resist, and she had lost the ability to fight, even if the bimbo would listen. She felt every sensation. A stranger was rubbing her lips, sexing her up, without a chance of stopping him.  
 
  
 
@@ -572,7 +572,7 @@
 
  She was a mature married woman, and so they should treat her with respect. With her experience and education she could put them in their place. The right word or two to put them down, or even threatening them would be possible. Instead she was in great danger from this pack of hungry wolves. She was in such a panic she couldn't control her own racing thoughts, let alone the bimbos dim- witted ideas. 
 
- The bimbo would giggle and be dazzled by them. They would soon be taking her, one after another. She desperately tried again to get through to the bimbo. Please! Don't leave me here! Please help me, please! Don't let them take me, Florence whimpered. Report_Story #1 
+ The bimbo would giggle and be dazzled by them. They would soon be taking her, one after another. She desperately tried again to get through to the bimbo. Please! Don't leave me here! Please help me, please! Don't let them take me, Florence whimpered.  
 
  
 
@@ -770,7 +770,7 @@
 
  She fell deeper into a dark place, as though down a deep well. Having to suffer a whole weekend of humiliation that Candy would bring upon her, was too horrendous to face. She didn't want to experience it and the only way was to shut herself off from Candy, letting the bimbo get on with it. 
 
- In her imagination, her murmurings echoed. 'Please don't disgrace me. Please don't let him fuck you Candy. It's my body he will be using. Hell! Don't let him find out who I am,' Florence whimpered in her hideaway. Report_Story #1 
+ In her imagination, her murmurings echoed. 'Please don't disgrace me. Please don't let him fuck you Candy. It's my body he will be using. Hell! Don't let him find out who I am,' Florence whimpered in her hideaway.  
 
  
 
@@ -1006,7 +1006,7 @@
 
  "All finished!" Bernard grinned. He stretched his arms above his head to relieve the tension. "I'll just use the bathroom and get out of your way," he added. 
 
- Matthew saved the documents, and made a backup for Bernard. He sat back rubbing his face, wondering what to do about Florence. The hypnotic influence was obviously far stronger than he thought. They would have to leave off playing their games, which suited him. One consolation was that she was bound to agree after this. Report_Story #2 
+ Matthew saved the documents, and made a backup for Bernard. He sat back rubbing his face, wondering what to do about Florence. The hypnotic influence was obviously far stronger than he thought. They would have to leave off playing their games, which suited him. One consolation was that she was bound to agree after this.  
 
  
 
@@ -1074,7 +1074,7 @@
 
  If he knew what had happened in the basement he wouldn't have let her go. The man was too easily swayed. He had only been made CEO for research because of the work he put in, not because he was ambitious. He was a walkover, hence the boss turning up unannounced at a weekend. 
 
- Damn! Him! He had better save her, and quickly. She wanted to turn around to glare at her husband, only Candy was busy giggling with Damien. The car sped away. She was trapped with this boy who saw her as a box of delights. She dreaded arriving at their house and having to put up with Damien pawing her. Report_Story #1 
+ Damn! Him! He had better save her, and quickly. She wanted to turn around to glare at her husband, only Candy was busy giggling with Damien. The car sped away. She was trapped with this boy who saw her as a box of delights. She dreaded arriving at their house and having to put up with Damien pawing her.  
 
  
 
@@ -1332,7 +1332,7 @@
 
  "Oh lush! It will be like, a surprise," Candy agreed. 
 
- Damian watched her pull of the dress and pull off the panties. While she struggled with the bra he took a good look between her legs. She was perfectly smooth down there. He hadn't noticed when rummaging around earlier, under her instructions. Now it worried him. Sometimes she looked older than him, though she acted young and silly. Report_Story #2 
+ Damian watched her pull of the dress and pull off the panties. While she struggled with the bra he took a good look between her legs. She was perfectly smooth down there. He hadn't noticed when rummaging around earlier, under her instructions. Now it worried him. Sometimes she looked older than him, though she acted young and silly.  
 
  
 
@@ -1462,7 +1462,7 @@
 
  In her bedroom she put on a sensible pair of panties, as Mable had told her to. She held a tiny thong thinking it would be more fun to wear. Candy would like it too, but Florence had to be a good girl, and do as she was told. 
 
- Florence skipped down the hall, looking forward to trying on Barbie outfits Mable had promised to buy her. Report_Story #1 
+ Florence skipped down the hall, looking forward to trying on Barbie outfits Mable had promised to buy her.  
 
  
 
@@ -1682,7 +1682,7 @@
 
  With an unfamiliar nervousness he entered the bedroom. The lights were low, and his wife was draped over the bed. She wore a tight corset pushing up her voluptuous breasts into a deep cleavage. Sheer stockings gripped her long shapely legs. She looked stunning! 
 
- He stood at the end of the bed looking her over. He was reminded why he had introduced himself to her at a party, and why he had been uncharacteristically short of words. She was a shapely sexy woman, and knew how to entice him. Report_Story #2 
+ He stood at the end of the bed looking her over. He was reminded why he had introduced himself to her at a party, and why he had been uncharacteristically short of words. She was a shapely sexy woman, and knew how to entice him.  
 
  
 
@@ -1790,7 +1790,7 @@
 
  As her breathing calmed down, Florence thought how clever Candy was to help her have so many delightful orgasms. She had learnt so much from Candy. How to let go and not worry about being dull and sensible. At last she could let go all her inhibitions. 
 
- She had a wonderful boyfriend to fuck her, so was grateful to Candy for enticing him to her bed. She had a mom to look after her, and take her shopping for lovely clothes. Her life was perfect. She lay back letting him suck on her nipples, wallowing in the warm afterglow of the orgasm. Report_Story #1 
+ She had a wonderful boyfriend to fuck her, so was grateful to Candy for enticing him to her bed. She had a mom to look after her, and take her shopping for lovely clothes. Her life was perfect. She lay back letting him suck on her nipples, wallowing in the warm afterglow of the orgasm.  
 
  
 
@@ -2070,7 +2070,7 @@
 
  *** 
 
- Florence wondered where this woman was taking her. The tale she gave Candy wasn't enough to fool her. It was obvious the woman knew who she was, yet treated her like a stupid girl. Being given a lolly pop was demeaning. The way she was being hurried out of her home was worrying. At least it wasn't back to Mable. Report_Story #2 
+ Florence wondered where this woman was taking her. The tale she gave Candy wasn't enough to fool her. It was obvious the woman knew who she was, yet treated her like a stupid girl. Being given a lolly pop was demeaning. The way she was being hurried out of her home was worrying. At least it wasn't back to Mable.  
 
  
 
@@ -2186,7 +2186,7 @@
 
  With the stupid wife out of the way the husband was all hers. He was already hooked, and she was falling in love with him. He was good in bed, and was quickly learning what turned her on. He was considerate and in turn deserved looking after. He had been looking after a spoilt brat of a wife, so he appreciated her. 
 
- Florence had nagged him into getting her own way, but Catherine didn't need to do that. She was happy to please him, and happy that he was pleased with her. As she pulled into the drive, she wondered what could go wrong. Well, only time would tell. Report_Story #1 
+ Florence had nagged him into getting her own way, but Catherine didn't need to do that. She was happy to please him, and happy that he was pleased with her. As she pulled into the drive, she wondered what could go wrong. Well, only time would tell.  
 
  
 
@@ -2458,7 +2458,7 @@
 
  Mickey liked that men were looking at his girlfriend in the mall. She was snuggling up to him, walking hip to hip toward the exit. She oozed sexuality, leaving him feeling privileged to be her boyfriend. They stopped to look at shoes in a store front, where Candy simpered over the high heels. 
 
- In the reflection, Florence could see how lewdly she was dressed, and cringed. The stupid one was showing off her body, by wearing nothing but a push up bra, a skimpy top, and a pair of skin tight leggings. Usually, men would be staring at her breasts, whereas now, they were staring at her bottom, and a distinct camel toe. Her bottom was cleaved in two. When she walked, her butt muscles were clearly shown, wriggling around in the stretchy material. Report_Story #2 
+ In the reflection, Florence could see how lewdly she was dressed, and cringed. The stupid one was showing off her body, by wearing nothing but a push up bra, a skimpy top, and a pair of skin tight leggings. Usually, men would be staring at her breasts, whereas now, they were staring at her bottom, and a distinct camel toe. Her bottom was cleaved in two. When she walked, her butt muscles were clearly shown, wriggling around in the stretchy material.  
 
  
 

@@ -130,7 +130,7 @@
 
  The teen slowly spun, showing off her ass again, as she crawled into her bed and turned to sit on it, facing him. He was still not moving, staring from her doorway. Leaning back now, pushing her tits forward, Lacey slipped her thumbs under the straps of her thong and pushed it down. She stretched flat on her bed, knees together, and peeled the thong down to her knees, then she sat upright again and pushed the thong to her little ankles. Removing the clothing, she tossed it overboard and leaned halfway back to spread her thighs open. Her wet, aching cunt was staring the stranger in the face. 
 
- The room was dead silent, except for his heavy breathing. Her shrill, teenage voice punctured it a moment later. "Know what?" Report_Story #2 
+ The room was dead silent, except for his heavy breathing. Her shrill, teenage voice punctured it a moment later. "Know what?"  
 
  
 
@@ -254,7 +254,7 @@
 
  Lacey's grin was toothy. "Fuck no, Daddy!" 
 
- John's body kept pumping away at Lacey, thrusting his dick back and forth, inserted deep into Lacey's bent-over body then pulled back out until it was inserted again. Robert watched the humping a few seconds more then groaned, "John, I didn't introduce you to my daughter Lacey, she's a total slut." Report_Story #3 
+ John's body kept pumping away at Lacey, thrusting his dick back and forth, inserted deep into Lacey's bent-over body then pulled back out until it was inserted again. Robert watched the humping a few seconds more then groaned, "John, I didn't introduce you to my daughter Lacey, she's a total slut."  
 
  
 
@@ -376,7 +376,7 @@
 
  Lacey was still reaching up to hold John around his neck and thick shoulders, while the man was reaching out to her headboard to hold himself up. Underneath the both of them, Robert squirmed to impale his erection as far into Lacey's ass as it would go. As John began pumping Lacey's cunt, Robert left his dick deep inside her ass and could feel the motion of John's cockhead sliding in and out of her vagina. "Fuck her, fuck her!" the father groaned at the other man fucking his daughter, "fuck her, fuck the dumb slut!" 
 
- The thin blonde slut screamed for her father as much as for herself, in total agreement with his assessment. "I'm such a slut, fuck me harder!" Sandwiched between the naked bodies of these two men, Lacey realized how sexy and desirable she was. Her own father wanted to fuck her; this strange man, married, wanted to break his marital vows to fuck her. The men had two fat, hot-burning pricks being shoved into her body, and the fact she could satisfy them together, at the same time, made her even more full of her sexual powers. Report_Story #4 
+ The thin blonde slut screamed for her father as much as for herself, in total agreement with his assessment. "I'm such a slut, fuck me harder!" Sandwiched between the naked bodies of these two men, Lacey realized how sexy and desirable she was. Her own father wanted to fuck her; this strange man, married, wanted to break his marital vows to fuck her. The men had two fat, hot-burning pricks being shoved into her body, and the fact she could satisfy them together, at the same time, made her even more full of her sexual powers.  
 
  
 
@@ -490,7 +490,7 @@
 
  Panting hard fucking Lacey, Robert looked over at John again. "Dude," he breathed coarsely, "there's beer in the fridge if you want to get one." 
 
- The casual nature of the comment made John chuckle. "Yeah?" He giggled, then decided indeed he was thirsty. "Yeah, you want one?" Report_Story #5 
+ The casual nature of the comment made John chuckle. "Yeah?" He giggled, then decided indeed he was thirsty. "Yeah, you want one?"  
 
  
 

@@ -140,7 +140,7 @@
 
  'Lie down,' she curtly instructed, typically Mrs Philips. She clambered onto the bed, kneeling next to me when I complied. The naked blonde took hold of my cock, sliding a fist along the length. She leaned down and kissed me again while I reached for her breasts. She broke the kiss and offered a long, thick nipple to me. I sucked at it, transferring my oral attention to its twin as I cupped those heavy tits in my palms. The woman murmured something indistinct, her hand moving faster on my cock. 
 
- Finally a low growl came from her throat. She slid the tube under a pillow next to me and, still making that low rumbling sound, swung a leg over my head. Her sex pouted inches from my face. I knew what she wanted. I took hold of the woman's hips and pulled her down to my mouth. I heard her gasp when my tongue probed at the sluicing opening at the front of her body; another groan curdled from her when my forefinger popped her sphincter. I groaned myself when, after a brief waft of Mrs Philips' breath across my thighs, I felt her swallow my erection. Report_Story #2 
+ Finally a low growl came from her throat. She slid the tube under a pillow next to me and, still making that low rumbling sound, swung a leg over my head. Her sex pouted inches from my face. I knew what she wanted. I took hold of the woman's hips and pulled her down to my mouth. I heard her gasp when my tongue probed at the sluicing opening at the front of her body; another groan curdled from her when my forefinger popped her sphincter. I groaned myself when, after a brief waft of Mrs Philips' breath across my thighs, I felt her swallow my erection.  
 
  
 

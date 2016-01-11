@@ -192,7 +192,7 @@
 
  Monday morning I called John and took the day off. 
 
- First I went to the bank. I took half the savings and the value of our CD's and opened another account. I left the checking alone. I put three thousand in my new checking account. I stopped by my lawyers office and picked up Sarah's copy of the divorce papers. I contacted a process server and paid him his fee. I gave him an extra one hundred to help me with my plan on serving her. We set it up for Tuesday at nine in the morning. Report_Story #2 
+ First I went to the bank. I took half the savings and the value of our CD's and opened another account. I left the checking alone. I put three thousand in my new checking account. I stopped by my lawyers office and picked up Sarah's copy of the divorce papers. I contacted a process server and paid him his fee. I gave him an extra one hundred to help me with my plan on serving her. We set it up for Tuesday at nine in the morning.  
 
  
 
@@ -552,7 +552,7 @@
 
  I decided to give up my apartment and I dipped in my lawsuit money. I bought a three bedroom condo. Of course we had to break in every room a number of times. 
 
- We both were reluctant to do anything permanent but we finally moved in together. She sold her house and moved into the condo. We stayed together for two years and finally broke down. We became best friends and very much in love. We had a quiet little ceremony at the court house. Report_Story #3 
+ We both were reluctant to do anything permanent but we finally moved in together. She sold her house and moved into the condo. We stayed together for two years and finally broke down. We became best friends and very much in love. We had a quiet little ceremony at the court house.  
 
  
 

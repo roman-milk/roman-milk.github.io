@@ -236,7 +236,7 @@
 
  Diane's son pulled at the cup of her bra. She looked at him before reaching in to haul one heavy breast clear. 
 
- "Yes," Liam hissed, licking his lips with avaricious, expression avid. He stared while his mother freed a second breast. "God, Mum," Liam muttered. Hefting both globes in his palms he tested their weight, squeezing tit-flesh, enthused by his mother's big boobs. "I'm going to fuck you," he growled, leaning in to suck an elongated nipple between his lips. He squeezed those big tits together with both hands, pressing his mother's pliant flesh, alternating between one teat and the other. "You're so sexy, Mum. God, I want to fuck you now." Report_Story #2 
+ "Yes," Liam hissed, licking his lips with avaricious, expression avid. He stared while his mother freed a second breast. "God, Mum," Liam muttered. Hefting both globes in his palms he tested their weight, squeezing tit-flesh, enthused by his mother's big boobs. "I'm going to fuck you," he growled, leaning in to suck an elongated nipple between his lips. He squeezed those big tits together with both hands, pressing his mother's pliant flesh, alternating between one teat and the other. "You're so sexy, Mum. God, I want to fuck you now."  
 
  
 

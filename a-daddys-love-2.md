@@ -222,7 +222,7 @@
 
  * * * 
 
- Holiday traveling was the pits. She'd arrived more than an hour early, and now her flight was delayed forty minutes. She picked up her phone, and texted him. Report_Story #2 
+ Holiday traveling was the pits. She'd arrived more than an hour early, and now her flight was delayed forty minutes. She picked up her phone, and texted him.  
 
  
 
@@ -432,7 +432,7 @@
 
  Jessica looked up from the dishes, checking out the window where her daughter was playing. She was playing outside a lot, giving Michael and her time to deal with their issues. He didn't get off scot-free, but she wasn't brain-dead enough to try to blame it on him. It was easily 90% her fault. She had everything she wanted, everything she'd dreamed of, all the things she'd talked about, and it wasn't enough. 
 
- She smiled to herself. Her butt still hurt. She absolutely couldn't believe he'd spanked her. She hadn't been spanked since she was five year's old, for lying. Not much angered her father more than bold-faced lying. Report_Story #3 
+ She smiled to herself. Her butt still hurt. She absolutely couldn't believe he'd spanked her. She hadn't been spanked since she was five year's old, for lying. Not much angered her father more than bold-faced lying.  
 
  
 

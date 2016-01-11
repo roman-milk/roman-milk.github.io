@@ -160,7 +160,7 @@
 
  Diana and Evan tried to replicate some of the things they saw in the movies, but some of the boob stuff were things Diana simply wasn't physically capable of replicating. Evan did his best, sucking at her sensitive nipples, squeezing what he could, but he couldn't fuck her tits like he saw in the movie. But the good thing was that it seemed like watching this movie really turned him on, and he was a bit more lusty in this encounter than he typically was. Diana was happy with that, not letting any self-consciousness about her smaller breasts get in the way of the pleasure Evan gave her with his sizable, nine-inch cock. 
 
- The next movie caused Diana a slight level of concern. It was the movie Evan picked out, the Next Door Sluts one. Diana imagined this as being a movie about innocent young women having gentle encounters with their partner. She couldn't have been farther off. It was essentially younger porn sluts in innocent clothing, acting all innocent, but clearly horny and gagging for sex. They would be all teasing and girly, but their monumental chests would be bursting from their tops, their round asses hanging out of their shorts. Report_Story #2 
+ The next movie caused Diana a slight level of concern. It was the movie Evan picked out, the Next Door Sluts one. Diana imagined this as being a movie about innocent young women having gentle encounters with their partner. She couldn't have been farther off. It was essentially younger porn sluts in innocent clothing, acting all innocent, but clearly horny and gagging for sex. They would be all teasing and girly, but their monumental chests would be bursting from their tops, their round asses hanging out of their shorts.  
 
  
 
@@ -380,7 +380,7 @@
 
  Diana had recommended that they cut out the porn. It wasn't working for her. And Evan tried to just forget them, to look past them. But he couldn't. He couldn't just forget. He couldn't unsee the things he had seen. 
 
- Despite his initial trepidation, he had loved the porn. Since he had so little experience with the stuff, seeing it for the first time was a revelation. Seeing so much sexy, bare flesh, seeing such huge tits and round, juicy asses, seeing people act so filthy... it was amazing. It sizzled off the screen, burning into his mind. He was a rapt audience. Report_Story #3 
+ Despite his initial trepidation, he had loved the porn. Since he had so little experience with the stuff, seeing it for the first time was a revelation. Seeing so much sexy, bare flesh, seeing such huge tits and round, juicy asses, seeing people act so filthy... it was amazing. It sizzled off the screen, burning into his mind. He was a rapt audience.  
 
  
 
@@ -566,7 +566,7 @@
 
  "What? Of course not!" Evan replied. 
 
- "You have to admit the fact that I know more about you than your wife ever did. I know your secrets. The things you're afraid to tell her. You're not afraid to tell me. You've been open with me about your deepest, darkest most twisted fantasies, because you feel what I do. A connection, a burning, simmering attraction. A dark, depraved lust for a girl who is so different from your boring... stupid... ugly... wife." Jade said firmly, stepping forward again and taking his rock hard cock into her grip, squeezing it hard. "Mmm, I think baby likes what I have to say." Report_Story #4 
+ "You have to admit the fact that I know more about you than your wife ever did. I know your secrets. The things you're afraid to tell her. You're not afraid to tell me. You've been open with me about your deepest, darkest most twisted fantasies, because you feel what I do. A connection, a burning, simmering attraction. A dark, depraved lust for a girl who is so different from your boring... stupid... ugly... wife." Jade said firmly, stepping forward again and taking his rock hard cock into her grip, squeezing it hard. "Mmm, I think baby likes what I have to say."  
 
  
 
@@ -674,7 +674,7 @@
 
  "Yes!" Evan affirmed. 
 
- "Are you sure? Cause these aren't the type of tits you forget about." Jade purred. "These jugs will dominate all your thoughts... your fantasies. It's too much take. There are just so big! Letting these breasts into your mind will force all thoughts of your wife out of your brain. All that silly love and loyalty to her will have to go. So, I'll ask you again, are you going to choose these 44EE tits over your boring, ugly wife?" Evan paused for a moment. Report_Story #5 
+ "Are you sure? Cause these aren't the type of tits you forget about." Jade purred. "These jugs will dominate all your thoughts... your fantasies. It's too much take. There are just so big! Letting these breasts into your mind will force all thoughts of your wife out of your brain. All that silly love and loyalty to her will have to go. So, I'll ask you again, are you going to choose these 44EE tits over your boring, ugly wife?" Evan paused for a moment.  
 
  
 

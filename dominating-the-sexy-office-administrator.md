@@ -146,7 +146,7 @@
 
  Dawn was too weak to sit up so she simply took the phone from Sarah. She was virtually in a trance when she dialed the number and nothing registered until her husband answered. They chatted for a couple of minutes and luckily Dawn managed to make her husband believe Sarah's lie. She was still a little groggy when she hung up the phone, but there was no respite in store. 
 
- Sarah grabbed the phone and all three girls had one thing on their minds. Dawn was on her feet before she could resist and Sarah guided everyone out of the living room. She held one of Dawn's hands and one of her friends held the other, as they headed down the hallway to the master bedroom. The room was dark, but no lights were required for what lay ahead. Report_Story #2 
+ Sarah grabbed the phone and all three girls had one thing on their minds. Dawn was on her feet before she could resist and Sarah guided everyone out of the living room. She held one of Dawn's hands and one of her friends held the other, as they headed down the hallway to the master bedroom. The room was dark, but no lights were required for what lay ahead.  
 
  
 
@@ -356,7 +356,7 @@
 
  The girl had a set of perky tits and her nipples were extremely sensitive, as was confirmed by her crying out with each kiss and lick. When it came time to perform cunnilingus, Dawn found the act far less disparaging than she imagined. She remembered thinking she wasn't able to go through with it, but having Ana overly aroused and lust-filled likely helped. The girl pleaded and begged Dawn to eat her, which gave Dawn a feeling of power and control. 
 
- When Ana came down from the clouds after the dramatic orgasm, she simply pushed Dawn aside and got dressed, as if nothing out of the ordinary had happened. Apparently all three girls had an obsession about having sex in an office with the sexy administrator. Dawn sat motionless at her desk and tried to regain a measure of control over her emotions. She was a mature and responsible woman yet she had fallen prey to three daunting, student workers. Report_Story #3 
+ When Ana came down from the clouds after the dramatic orgasm, she simply pushed Dawn aside and got dressed, as if nothing out of the ordinary had happened. Apparently all three girls had an obsession about having sex in an office with the sexy administrator. Dawn sat motionless at her desk and tried to regain a measure of control over her emotions. She was a mature and responsible woman yet she had fallen prey to three daunting, student workers.  
 
  
 

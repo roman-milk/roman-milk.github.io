@@ -146,7 +146,7 @@
 
  'Hello, Alex,' Kerry smiled shyly in response. She was under the bedcovers, chastely hiding herself from the man who was hopefully about to give her his sperm. 
 
- 'In there,' I said, indicating our en suite bathroom. The plan was that Alex was to masturbate until his climax was all but inevitable, then he would come into the bedroom and present his cock to Kerry's pussy. The intent being that he would be inside my wife no longer than it took to him to come and hopefully fertilise her egg with his sperm. Report_Story #2 
+ 'In there,' I said, indicating our en suite bathroom. The plan was that Alex was to masturbate until his climax was all but inevitable, then he would come into the bedroom and present his cock to Kerry's pussy. The intent being that he would be inside my wife no longer than it took to him to come and hopefully fertilise her egg with his sperm.  
 
  
 

@@ -230,7 +230,7 @@
 
  Deciding to look completely whipped, defeated and weak, I responded, making a very conscious word choice, "Yes, Mistress." 
 
- As I began to unbuckle my pants, her smile returned and her tone implied complete triumph, "Mistress, I like that big brother. For now on when we are in private, you are to refer to me as Mistress Baby Sister, is that clear?" Report_Story #2 
+ As I began to unbuckle my pants, her smile returned and her tone implied complete triumph, "Mistress, I like that big brother. For now on when we are in private, you are to refer to me as Mistress Baby Sister, is that clear?"  
 
  
 
@@ -422,7 +422,7 @@
 
  She let out a loud involuntary moan and begged, "Please, Matthew." 
 
- I wasn't sure if she was pleading for me to stop or continue, but decided to go with the latter and slid two fingers deep inside her very damp pussy, she let out a scream. "You are pretty wet, baby sister. Did the thought of becoming your big brother's fuck-toy get you all wet?" Report_Story #3 
+ I wasn't sure if she was pleading for me to stop or continue, but decided to go with the latter and slid two fingers deep inside her very damp pussy, she let out a scream. "You are pretty wet, baby sister. Did the thought of becoming your big brother's fuck-toy get you all wet?"  
 
  
 
@@ -666,7 +666,7 @@
 
  Best Present Ever: Mom 
 
- Bets Present Ever: Sister's Friends Report_Story #1 
+ Bets Present Ever: Sister's Friends  
 
  
 
@@ -924,7 +924,7 @@
 
  Beth's moans increased again as she got accustomed to the cock in her ass and the pressure on her clit from her best friend. Time seemed to stand still as I experienced my first foursome. Once in a comfortable rhythm, Della pulled Beth back to her pussy. The naughty foursome continued for a long time before Della reached her second orgasm, soon followed by Beth having her second orgasm from me as she screamed, "Oh god yes, your cock feels so fucking good in my arse, baby. Yes, oh yes, oh yes, oh-oh-oh-oh fuuuuuuuck, I'm coming from your arse- fuuuuucking!" 
 
- Her body quaked around my cock and enhanced the sensation and I knew I would soon follow. I grabbed her ass and began to pound her hard even as her orgasm continued to thunder through her. Finally close, I pulled out of Beth's ass and shoved my cock into my sister's mouth. I fucked her face like it was a pussy and unloaded a full stream of cum in her mouth. Once spent, I fell back onto the couch to catch my breath. I snapped my fingers and my sister obediently crawled between my legs and cleaned my cock. Report_Story #2 
+ Her body quaked around my cock and enhanced the sensation and I knew I would soon follow. I grabbed her ass and began to pound her hard even as her orgasm continued to thunder through her. Finally close, I pulled out of Beth's ass and shoved my cock into my sister's mouth. I fucked her face like it was a pussy and unloaded a full stream of cum in her mouth. Once spent, I fell back onto the couch to catch my breath. I snapped my fingers and my sister obediently crawled between my legs and cleaned my cock.  
 
  
 
@@ -1012,7 +1012,7 @@
 
  The End...for now.... 
 
- Coming in the future: Best Present Ever: MILF Neighbor Report_Story #1 
+ Coming in the future: Best Present Ever: MILF Neighbor  
 
  
 
@@ -1320,7 +1320,7 @@
 
  "You poor boy," she mocked, swirling her tongue around the head of my cock head. 
 
- A minute later, she continued, falling back onto the bed and sliding her left leg slowly down her right, "Your sister says you have a fetish for nylons." Report_Story #2 
+ A minute later, she continued, falling back onto the bed and sliding her left leg slowly down her right, "Your sister says you have a fetish for nylons."  
 
  
 
@@ -1502,7 +1502,7 @@
 
  I laid back on the bed my head spinning with what is easily the best Christmas holiday ever. Unfortunately, once I had a taste of what I had been missing all these years, I was addicted. I had Sandra and Beth and Della and now Mrs. Raske my long time fantasy MILF...but I still had one more mountain to climb...my mother (two if you included Allison). 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -1852,7 +1852,7 @@
 
  "Oh, Matthew," she weakly said, her face flush, "I, um, we can't." 
 
- "Mom, there is nothing more natural than sex and nothing more pure than intimacy between a mother and son," I suggested, as I tossed her panties onto the floor. "It's quite frankly the most natural thing in the world." Report_Story #2 
+ "Mom, there is nothing more natural than sex and nothing more pure than intimacy between a mother and son," I suggested, as I tossed her panties onto the floor. "It's quite frankly the most natural thing in the world."  
 
  
 

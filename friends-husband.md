@@ -188,7 +188,7 @@
 
  He concentrated on his wife with one hand knowing exactly how to keep her going. She too was rocking her body on his fingers working her self up into a state of completion. 
 
- He looked at both gorgeous women, ass up determined to orgasm on him. He felt strong and in charge of their bodies. The power he had over them kept him supremely confident enabling him to hold back. He wanted and needed to make the moment last. The tight grip his wife's friend had on his cock held him back too, with the feeling is was impossible to let loose inside her. Report_Story #2 
+ He looked at both gorgeous women, ass up determined to orgasm on him. He felt strong and in charge of their bodies. The power he had over them kept him supremely confident enabling him to hold back. He wanted and needed to make the moment last. The tight grip his wife's friend had on his cock held him back too, with the feeling is was impossible to let loose inside her.  
 
  
 
@@ -266,7 +266,7 @@
 
  Both women followed with an orgasm. Both women's faces changed from the grimace of orgasm to a smile. Elizabeth was helped along by the lingering fantasy though being finger fucked by her friend's husband had something to do with it to. Dorothy had the satisfaction of feeling her husband pounding his heart out to explode inside her. She too had been driven by the evening's excitement but overriding that was the importance of winning her husband back. 
 
- He was back where he should be, pleasuring her. The evening had ended as it should and all would be well. A long low self satisfied breathy sigh escaped her lips. He would remember this evening but if he forgot she would remind him for she looked forward to receiving his attentive thanks for a long time to come. Report_Story #1 
+ He was back where he should be, pleasuring her. The evening had ended as it should and all would be well. A long low self satisfied breathy sigh escaped her lips. He would remember this evening but if he forgot she would remind him for she looked forward to receiving his attentive thanks for a long time to come.  
 
  
 
@@ -490,7 +490,7 @@
 
  As Elizabeth had advised she didn't give Tom a hard time though she was thankful he was giving her a hard time. Over the next few weeks he was so attentive she soon forgave him and herself. By the time her friend phoned she had forgiven her too. 
 
- With the usual banalities over Elizabeth came to the point, "I'm late." She stated flatly. Report_Story #2 
+ With the usual banalities over Elizabeth came to the point, "I'm late." She stated flatly.  
 
  
 

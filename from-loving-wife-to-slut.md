@@ -244,7 +244,7 @@
 
  For the next two hours the two lusty young boys took turns on her until she reluctantly had to call it quits so she could go home and start dinner. 
 
- To be continued.... Report_Story #1 
+ To be continued....  
 
  
 
@@ -342,7 +342,7 @@
 
  She was finally in control. All that remained was to get the tape. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -528,7 +528,7 @@
 
  
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -642,7 +642,7 @@
 
  "Okay lover, we will just have to wait and see. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -738,7 +738,7 @@
 
  The boys were out of the picture now so all she had to do to get her life back was break away from Jake. She knew she could do it, but she had made Jake promises to get him to cover for her on this night and she would have to keep them. But now at least she could see the end in sight. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -812,7 +812,7 @@
 
  "This is just so fucking hot" he said to her and then he bent forward and whispered, "And we are going to be doing a lot of this from now on." 
 
- Whatever she was going to say was lost when the Asian grabbed her head and pulled it back to his cock. "Come on lady, suck me off" he said as David began to pound his cock into her asshole. Report_Story #1 
+ Whatever she was going to say was lost when the Asian grabbed her head and pulled it back to his cock. "Come on lady, suck me off" he said as David began to pound his cock into her asshole.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  Before she had always entered Jake's bedroom a little reluctantly and then she had passively waited for Jake to take charge and tell her what to do. This time would be different. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1256,7 +1256,7 @@
 
  "I intend to in" and he looked at his watch, "in about twelve minutes." 
 
- Suddenly it all fell into place. The night at the gazebo when she had seen the splash of red on white. Gary had seen Jake fucking her. Now she knew how Jake always was able to take her away from the party to do what he wanted with her. He had Gary's permission! "You can be a VP if I can fuck your wife." "Sure enough boss, go ahead." There was probably no impromptu pool tournament at the last party and that was also why Gary never got upset when she was gone for long periods of time - he knew where she was and what she was doing. Report_Story #2 
+ Suddenly it all fell into place. The night at the gazebo when she had seen the splash of red on white. Gary had seen Jake fucking her. Now she knew how Jake always was able to take her away from the party to do what he wanted with her. He had Gary's permission! "You can be a VP if I can fuck your wife." "Sure enough boss, go ahead." There was probably no impromptu pool tournament at the last party and that was also why Gary never got upset when she was gone for long periods of time - he knew where she was and what she was doing.  
 
  
 
@@ -1318,7 +1318,7 @@
 
  Before she had always entered Jake's bedroom a little reluctantly and then she had passively waited for Jake to take charge and tell her what to do. This time would be different. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1582,7 +1582,7 @@
 
  "What do you want?" 
 
- "I want to hang on to you and our marriage. I won't lie to you, all the sex I've had since Jake took me I've loved and last nights gangbang was one of the most mind blowing things I've ever done and except for a frat house gangbang I have never been so sexually satisfied." Report_Story #2 
+ "I want to hang on to you and our marriage. I won't lie to you, all the sex I've had since Jake took me I've loved and last nights gangbang was one of the most mind blowing things I've ever done and except for a frat house gangbang I have never been so sexually satisfied."  
 
  
 
@@ -1612,7 +1612,7 @@
 
  She knocked on the door an when Ben opened it he smiled, "You came. Jake wasn't sure you would." 
 
- "What? Pass up a chance for some hard black cock? Not likely sweetie" and she stepped into the room and closed the door behind her. Report_Story #1 
+ "What? Pass up a chance for some hard black cock? Not likely sweetie" and she stepped into the room and closed the door behind her.  
 
  
 
@@ -1872,7 +1872,7 @@
 
  "I don't know what to do." 
 
- "I guess you have two choices. You already have Simpson's job when he leaves. As I understand it from the other wives (again I lied) once Jake fucks you it isn't necessary that you keep on doing it so the choice is yours - I keep being his whore or I stop." Report_Story #2 
+ "I guess you have two choices. You already have Simpson's job when he leaves. As I understand it from the other wives (again I lied) once Jake fucks you it isn't necessary that you keep on doing it so the choice is yours - I keep being his whore or I stop."  
 
  
 
@@ -1908,7 +1908,7 @@
 
  "What? Pass up a chance for some hard black cock? Not likely sweetie" and she stepped into the room and closed the door behind her. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

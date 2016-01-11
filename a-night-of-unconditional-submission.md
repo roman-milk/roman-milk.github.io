@@ -198,7 +198,7 @@
 
  Then after all these years, there she was checking in the same hotel I was already staying at. I realized this was a chance to rekindle a romance and maybe find out if all my assumptions were correct. 
 
- I decided clearly this was fate and my chance to finish something I never completely started. I tapped her shoulder, "Hi, Jasmine, long time, no see." Report_Story #2 
+ I decided clearly this was fate and my chance to finish something I never completely started. I tapped her shoulder, "Hi, Jasmine, long time, no see."  
 
  
 
@@ -432,7 +432,7 @@
 
  "Like what?" the very curious girl asked, clearly trying to process this strange conversation. 
 
- "Honestly?" I asked. Report_Story #3 
+ "Honestly?" I asked.  
 
  
 
@@ -720,7 +720,7 @@
 
  I moaned loudly, "Oh yes, that feels so good." 
 
- Mike went behind me, and I felt his stiff cock between my ass cheeks. I stiffened briefly; waiting for the pain I knew would follow. "Are you ready for me to take your last cherry?" Report_Story #4 
+ Mike went behind me, and I felt his stiff cock between my ass cheeks. I stiffened briefly; waiting for the pain I knew would follow. "Are you ready for me to take your last cherry?"  
 
  
 

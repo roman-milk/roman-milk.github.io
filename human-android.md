@@ -168,7 +168,7 @@
 
  At last the damn box was in. She turned and walked back painfully aware of how the breasts bounced with every step. She tried not to but her eyes swivelled sideways straining for a glimpse of him. 
 
- A sigh of relief tickled her throat. He was rummaging around in the back of the car. As she calmed down she remembered he was badly short sighted so probably didn't even notice what she had or hadn't been wearing when he cruised by. Report_Story #2 
+ A sigh of relief tickled her throat. He was rummaging around in the back of the car. As she calmed down she remembered he was badly short sighted so probably didn't even notice what she had or hadn't been wearing when he cruised by.  
 
  
 
@@ -204,7 +204,7 @@
 
  Her breathing slowed right down then speeded up. There was no one in the automatic vehicle! No driver of course, but no one else, not a student or lecturer or fellow professor either. 
 
- Delivered from abject shame she happily clambered into the back of the truck. While settling down among the boxes she was elated on escaping an abject humiliation. When the back door began to slide down into place the mood swung back to the other extreme, to dire dread. The eyes behind the lenses opened wide in fright as she tried to scream. Report_Story #1 
+ Delivered from abject shame she happily clambered into the back of the truck. While settling down among the boxes she was elated on escaping an abject humiliation. When the back door began to slide down into place the mood swung back to the other extreme, to dire dread. The eyes behind the lenses opened wide in fright as she tried to scream.  
 
  
 
@@ -380,7 +380,7 @@
 
  As though a bell tolled, vibrations of the orgasm rang throughout her being telling her she had been thoroughly taken. The orgasm reverberated from her vagina in great splashing waves, into every part of her body, sensitising breasts, hard nipples and lips, to the very tips of her ears. It was a gut wrenching orgasm like no other. 
 
- Larry's legs felt weak as though he had spurted all his energy into the machine. The android vibrated with energy seeming to hum with power. Leaning over its back in near collapse he noticed something in the hairline. He had found a connection point. Report_Story #2 
+ Larry's legs felt weak as though he had spurted all his energy into the machine. The android vibrated with energy seeming to hum with power. Leaning over its back in near collapse he noticed something in the hairline. He had found a connection point.  
 
  
 
@@ -554,7 +554,7 @@
 
  "Master's human sex slave," she stated. The statement didn't carry the professor's usual weight of authority for it was delivered in a sing song voice around a mouth full of cock. 
 
- He watched the woman of authority, professor bitch some called her, trying enthusiastically to revive his cock. With hands, lips and tongue she was working on him as though resuscitating a patient in cardiac arrest. It didn't matter how hard she tried it would need a miracle to recover from this revelation. Report_Story #3 
+ He watched the woman of authority, professor bitch some called her, trying enthusiastically to revive his cock. With hands, lips and tongue she was working on him as though resuscitating a patient in cardiac arrest. It didn't matter how hard she tried it would need a miracle to recover from this revelation.  
 
  
 
@@ -572,7 +572,7 @@
 
  "Get into the chair, slave," he said, talking to her like a stray bitch. He was pleased to see her respond, although it was more reluctant than before. Perhaps she realised how much trouble was coming her way. 
 
- Larry connected the implant to his computer as before, only he knew what he was looking for this time. He pulled a chair up to the keyboard and started typing. A new game needed developing. Report_Story #1 
+ Larry connected the implant to his computer as before, only he knew what he was looking for this time. He pulled a chair up to the keyboard and started typing. A new game needed developing.  
 
  
 
@@ -768,7 +768,7 @@
 
  "Will you be my sex slave?" he asked. It wasn't even an order and the implant was switched off. He conveniently put to the back of his mind she was smitten with him from that new program he had brainwashed her with. She was an experienced woman used to playing sex games so less inhibited than an adolescent and the professor was worked up and more than willing to play. 
 
- The ache in her stomach needed appeasing. There was an ache between her legs that needed fulfilling. She needed her lovely wonderful Larry to want her. She needed him and was determined to get him whatever she had to do. Report_Story #2 
+ The ache in her stomach needed appeasing. There was an ache between her legs that needed fulfilling. She needed her lovely wonderful Larry to want her. She needed him and was determined to get him whatever she had to do.  
 
  
 
@@ -800,7 +800,7 @@
 
  If he had done something to her, as much as it was a delight playing his game, she needed to start thinking logically. Gritting her teeth she put the naughty maids outfit back and pulled out the usual dark blue business suit. The skirt was comfortably below the knee and the jacket helped hide her ample bosom. The white shirt reminded her of Larry's formal dress shirt she wore yesterday. Shaking the image out of her head she inspected the one before her. 
 
- Underneath the skirt she wore stockings but no-one need know that, it left her feeling confident; she was a stuffy businesswoman yet still sexy and desirable underneath. The tough reputation gained on campus was going to be needed for this difficult situation. She was determined to tell him this was the end of it and make him promise not to tell. Report_Story #1 
+ Underneath the skirt she wore stockings but no-one need know that, it left her feeling confident; she was a stuffy businesswoman yet still sexy and desirable underneath. The tough reputation gained on campus was going to be needed for this difficult situation. She was determined to tell him this was the end of it and make him promise not to tell.  
 
  
 
@@ -1016,7 +1016,7 @@
 
  Anne had a couple of beers while milling around among them, watched a couple petting on a sofa, thinking of Larry, waiting for her daughter to turn up. At last she walked in with that boy. He looked older than eighteen but then so did she. They were two characters from some science fiction movie though what it was she didn't know. 
 
- It seemed a favorite record was playing for Rebecca dragged him from his route to the kitchen onto the dance floor. Perhaps she did have him under control after all. Ann felt out of place standing there alone. Report_Story #2 
+ It seemed a favorite record was playing for Rebecca dragged him from his route to the kitchen onto the dance floor. Perhaps she did have him under control after all. Ann felt out of place standing there alone.  
 
  
 
@@ -1158,7 +1158,7 @@
 
  "Hey Jim, get up guy. Go get the others up here for a free fuck," Bob told his friend. 
 
- The girl stirred, her arm grazing Anne's but she didn't get up, she just moaned fitfully from the after shocks of a powerfully deep orgasm. Anne's thoughts groaned with her without making a sound. Report_Story #1 
+ The girl stirred, her arm grazing Anne's but she didn't get up, she just moaned fitfully from the after shocks of a powerfully deep orgasm. Anne's thoughts groaned with her without making a sound.  
 
  
 
@@ -1328,7 +1328,7 @@
 
  The implant was meant to be used occasionally, to enhance a naughty game in the bedroom. She had been using it far too much, though most of the time it hadn't been intended. It had caused too much trouble so the sooner it was removed the better. A doctor at the college had performed the operation and he would remove it, only he was away, like most of the faculty. 
 
- She was already affected by the implant because she was helpless to fight against its influence when it was active. What the long term consequences were he hadn't a clue. Larry decided he would look after her until the doctor returned. He looked at her sleeping with a troubled look on her face. It made him determined to help her forget this terrible night. Report_Story #1 
+ She was already affected by the implant because she was helpless to fight against its influence when it was active. What the long term consequences were he hadn't a clue. Larry decided he would look after her until the doctor returned. He looked at her sleeping with a troubled look on her face. It made him determined to help her forget this terrible night.  
 
  
 
@@ -1522,7 +1522,7 @@
 
  In the guest room she undressed and wrapped a towel around her body. She was getting used to being undressed in a near stranger's home. It was good of him to put up with her, considering he had Agatha to look after. They hadn't been in contact for a long time yet he hadn't hesitated when she asked to visit for a few days. 
 
- Anne arranged herself on the leather table, nestling her face into the hole, almost ready to fall asleep. She heard him come in and light candles around the room, then the lights went out. She wondered what she was doing there, lying naked, waiting for Uncle John to touch her. She had always hated being touched. Had all those recent experiences left her so untroubled over being naked and stroked? Report_Story #2 
+ Anne arranged herself on the leather table, nestling her face into the hole, almost ready to fall asleep. She heard him come in and light candles around the room, then the lights went out. She wondered what she was doing there, lying naked, waiting for Uncle John to touch her. She had always hated being touched. Had all those recent experiences left her so untroubled over being naked and stroked?  
 
  
 
@@ -1674,7 +1674,7 @@
 
  Anne was used to being helpless, though here she was physically powerless too, unable to even speak. What other ghastly torture devices he intended to use on her was too menacing to contemplate. She was used to playing gentle, bedroom games with her husband, with strict limits. This was diabolical! 
 
- John thought she was willingly playing a game, with a set of her own limits, whereas now, it seemed she had no control over the implants game program. The implant had helped her play at being a bit of a slut, sidestepping her reluctance, letting her husband enjoy a saucy romp in the bedroom. Unfortunately, it was now too well implemented into her mind. When told to be a slut, Anne played the role too well. Report_Story #1 
+ John thought she was willingly playing a game, with a set of her own limits, whereas now, it seemed she had no control over the implants game program. The implant had helped her play at being a bit of a slut, sidestepping her reluctance, letting her husband enjoy a saucy romp in the bedroom. Unfortunately, it was now too well implemented into her mind. When told to be a slut, Anne played the role too well.  
 
  
 
@@ -1868,7 +1868,7 @@
 
  "OK! You can rely on me, don't worry! Elizabeth, I'll take car of it," John hung up the phone, with a look of exasperation, from the woman's harassing manor. Her anxiety was catching, so he took a couple of deep breaths to relax, and think it through. 
 
- A neighbour was having a problem with her daughter and the latest episode of the drama left her in hospital. Elizabeth was waiting with her, and as usual, everything took far longer than expected. The son, Richard, was due home from a camping trip, with no-one to see him into the house, and he would be worried not knowing where they were. Report_Story #2 
+ A neighbour was having a problem with her daughter and the latest episode of the drama left her in hospital. Elizabeth was waiting with her, and as usual, everything took far longer than expected. The son, Richard, was due home from a camping trip, with no-one to see him into the house, and he would be worried not knowing where they were.  
 
  
 
@@ -2030,7 +2030,7 @@
 
  "After what my sister went through you need to make amends, to serve some time doing it, far longer than a few minutes of humiliation from a spanking. So what am I to do with you next?" he asked. This time it wasn't a thought spoken out loud, it was a question, forcefully directed at her. 
 
- Automatically, under the overpowering influence of the game, she answered. "Anything you like, sir. I am your sexy little maid, pleased to fulfil your every wish," she moaned, while quivering with shame. Report_Story #1 
+ Automatically, under the overpowering influence of the game, she answered. "Anything you like, sir. I am your sexy little maid, pleased to fulfil your every wish," she moaned, while quivering with shame.  
 
  
 
@@ -2220,7 +2220,7 @@
 
  "What are you doing here?" he asked. 
 
- "Err. I'm just looking after the house, for the professor, while she's out," Anne said, on a spur of the moment, while the dumb bitch was wondering what to say. The last thing she wanted was to reveal she was Professor Draper, while showing off her body so lewdly. Report_Story #2 
+ "Err. I'm just looking after the house, for the professor, while she's out," Anne said, on a spur of the moment, while the dumb bitch was wondering what to say. The last thing she wanted was to reveal she was Professor Draper, while showing off her body so lewdly.  
 
  
 
@@ -2418,7 +2418,7 @@
 
  "Never mind, just day dreaming. By the way, talking of back there, you have a finger in the wrong hole. Whoa! Maybe not! Keep wriggling your finger just like that. Oh! Nice! Move your thumb over a bit. That's it! Good boy, you've found my clit. Oh! That is so very nice. Full marks to the young man, with his finger up teachers' ass," Anne sighed. 
 
- "What a pleasant way to spend an evening, I could get very used to this," she sighed again. Report_Story #1 
+ "What a pleasant way to spend an evening, I could get very used to this," she sighed again.  
 
  
 
@@ -2612,7 +2612,7 @@
 
  The cheeky, leering face was annoying. Nevertheless, Anne had to smile at him. She stood on the carpet surrounded by the guys, who were sprawled over the padded easy chairs. The game had completely taken control of her behavior, leaving a winsome smile on her face. She really was ready to please them. 
 
- "Anything you want. My body is available to be used, however you want it. I'm good at sucking cock," she enthused, and formed her lips into a seductive pout. She pushed a finger between her delicious plump lips, wetting it and licking it. Despite not wanting to, she was enjoying teasing him. Report_Story #2 
+ "Anything you want. My body is available to be used, however you want it. I'm good at sucking cock," she enthused, and formed her lips into a seductive pout. She pushed a finger between her delicious plump lips, wetting it and licking it. Despite not wanting to, she was enjoying teasing him.  
 
  
 
@@ -2672,7 +2672,7 @@
 
  She closed her eyes, wondering what was next. There were five of them and they looked more than ready to take her. The offers she had made were revolting, yet she knew they could take advantage of everything she had listed. If it inspired them to imagine worse, these too would be carried out with enthusiasm. 
 
- What if they decided to keep her as their gang whore? Would she survive such abuse? The longer this damn program ran, the stronger it became. The wish not to be aware of these despicable acts would be fulfilled. The persona of Professor Anne would be replaced, as she became a total whore. Unaware of a previous existence, she would continue to live a depraved life, unable to resist anything anyone wanted. Report_Story #1 
+ What if they decided to keep her as their gang whore? Would she survive such abuse? The longer this damn program ran, the stronger it became. The wish not to be aware of these despicable acts would be fulfilled. The persona of Professor Anne would be replaced, as she became a total whore. Unaware of a previous existence, she would continue to live a depraved life, unable to resist anything anyone wanted.  
 
  
 
@@ -2870,7 +2870,7 @@
 
  All that meant was, she refrained from rubbing her sex against their legs, like a bitch on heat. She teased out of them, what they might like to do to her. She accidently lost the blouse, letting it unravel, from being tied under the ample breasts. They were fascinated by her huge tits. They didn't have to say anything, their faces revealed all. 
 
- "Could you help, me, I can't let go of my breasts, and get my top back on," she simpered, fluttering her eyelashes at them. As Jerome pushed and pulled at the top, trying to make it fit, she looked into his face, gauging how to continue. Report_Story #2 
+ "Could you help, me, I can't let go of my breasts, and get my top back on," she simpered, fluttering her eyelashes at them. As Jerome pushed and pulled at the top, trying to make it fit, she looked into his face, gauging how to continue.  
 
  
 
@@ -2940,7 +2940,7 @@
 
  Anne croaked the address, from a dry throat at the auto-driver. The automatic vehicle made its way to her home, through early morning, empty streets. It had been raining over-night washing the streets clean. In contrast Anne felt so dirty, it would be impossible to clean her body and mind from the filthy acts of yesterday. She didn't care what she looked like or who saw her. She hobbled up to the front door, hoping for enough strength to make it to her bed. 
 
- *** Report_Story #1 
+ ***  
 
  
 
@@ -3152,7 +3152,7 @@
 
  "You will serve my guests, as a maid-bot," Rebecca announced. 
 
- Anne had done this before, dressed like this at a party, and it turned into a disgraceful event. Two guys had taken her, and she had been forced to lick a girl, until she had an orgasm. Surely that couldn't happen here, in her home. With her daughter keeping an eye on her, she felt somewhat reassured. Report_Story #2 
+ Anne had done this before, dressed like this at a party, and it turned into a disgraceful event. Two guys had taken her, and she had been forced to lick a girl, until she had an orgasm. Surely that couldn't happen here, in her home. With her daughter keeping an eye on her, she felt somewhat reassured.  
 
  
 
@@ -3376,7 +3376,7 @@
 
  "What do you want, horny slut," he asked. He gripped his fists tight, hoping to get away with it again. 
 
- "Pleasure your horny slut, sir," Anne heavily whispered. Report_Story #3 
+ "Pleasure your horny slut, sir," Anne heavily whispered.  
 
  
 
@@ -3578,7 +3578,7 @@
 
  They looked at him expectantly. He could see Anne's hand twitching, guessing that she was feeling that insistent throbbing between the legs. Rebecca was a bitch on heat, wanting satisfaction. 
 
- "Undress me, slave," Bob ordered. He was looking forward to this. Perhaps Professor Draper could teach her daughter some tricks. Report_Story #1 
+ "Undress me, slave," Bob ordered. He was looking forward to this. Perhaps Professor Draper could teach her daughter some tricks.  
 
  
 
@@ -3774,7 +3774,7 @@
 
  Bob watched them from the doorway, while they were absorbed in a training exercise. Rebecca's mouth was gripping the dildo, as it disappeared down her throat. He watched the muscles of her neck relax then expand, as the dildo slid down it. 
 
- They were both oblivious to his presence, as they practised a dutiful slave's skills. "Well done, Rebecca," he beamed at her. "You too Anne, you're a good teacher," he smiled at them. Report_Story #2 
+ They were both oblivious to his presence, as they practised a dutiful slave's skills. "Well done, Rebecca," he beamed at her. "You too Anne, you're a good teacher," he smiled at them.  
 
  
 
@@ -3964,7 +3964,7 @@
 
  In the middle of the night Ben sat up in bed, covered in sweat from a dream that seemed so real. 
 
- The contents of the professor's house were up for auction. There was no way he could match the bids for the closet contents, which was the only thing of interest to him. The entire contents of their closet had gone to an unknown bidder. Report_Story #3 
+ The contents of the professor's house were up for auction. There was no way he could match the bids for the closet contents, which was the only thing of interest to him. The entire contents of their closet had gone to an unknown bidder.  
 
  
 
@@ -3972,7 +3972,7 @@
 
  They had been programmed to be sex slaves, ready to obey a master. Now they had been purchased, they had an owner, a real master. It wouldn't take long for a man to discover they were thoroughly obedient, and thereafter, their sexual skills would be discovered. As devoted sex slaves, they would perform any perversion he cared to demand. 
 
- "I should have used the professors money to out bid him," Ben muttered, then fell back to seep. Report_Story #1 
+ "I should have used the professors money to out bid him," Ben muttered, then fell back to seep.  
 
  
 
@@ -4166,7 +4166,7 @@
 
  "Rebecca!" Anne screeched, meaning to scold her daughter, only she laughed, spoiling the effect. 
 
- "Well? What do you think, master?" Rebecca asked. She blatantly sought his approval, while her mother looked embarrassed. Report_Story #2 
+ "Well? What do you think, master?" Rebecca asked. She blatantly sought his approval, while her mother looked embarrassed.  
 
  
 
@@ -4372,7 +4372,7 @@
 
  "Thank you master," they replied in unison. 
 
- From the grateful smiles on their faces, he knew it was going to be an interesting night. He didn't think this is what the coach meant, by having an early night. Report_Story #1 
+ From the grateful smiles on their faces, he knew it was going to be an interesting night. He didn't think this is what the coach meant, by having an early night.  
 
  
 
@@ -4580,7 +4580,7 @@
 
  "I wanted to talk to you about that," Anne said. "Perhaps we should ask him not to come around so often," she quietly spoke. Remembering what happened in her office that afternoon was embarrassing. This dangerous situation needed to be stopped. 
 
- "What do you mean?" Rebecca quizzed her. Report_Story #2 
+ "What do you mean?" Rebecca quizzed her.  
 
  
 

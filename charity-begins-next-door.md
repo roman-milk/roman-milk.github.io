@@ -208,7 +208,7 @@
 
  The biggest problem was one of the fence posts which had rotted out at the bottom. A new post and some quick-setting cement, solved that problem. Within an hour I'd be able to reattach the fence crossbeams to the new 4x4. 
 
- I turned to see a young girl, maybe 7 or 8 years old, watching me from the porch. Crap. Report_Story #2 
+ I turned to see a young girl, maybe 7 or 8 years old, watching me from the porch. Crap.  
 
  
 
@@ -478,7 +478,7 @@
 
  "She had mortgage insurance, it'll be paid off. You could rent it out, you know. Earn some steady income off of it." 
 
- It was too much too fast. I couldn't think straight. "I'll have to think about it. I just wasn't expecting anything like this." Report_Story #3 
+ It was too much too fast. I couldn't think straight. "I'll have to think about it. I just wasn't expecting anything like this."  
 
  
 
@@ -804,7 +804,7 @@
 
  "Asleep," she confirmed, taking one of the bags from me. 
 
- Quietly we headed to her front room and started spreading out the gifts. On each one, I removed the existing tag and she put a new sticker 'from Santa' on it. She asked me what was in each, but I couldn't remember all of them. Still, I was able to fill her in on the majority. She must have had some plan in mind, because she organized them according to my descriptions of their probable contents, separating them in neat little piles. After about 15 minutes I looked over and saw her shaking her head. Report_Story #4 
+ Quietly we headed to her front room and started spreading out the gifts. On each one, I removed the existing tag and she put a new sticker 'from Santa' on it. She asked me what was in each, but I couldn't remember all of them. Still, I was able to fill her in on the majority. She must have had some plan in mind, because she organized them according to my descriptions of their probable contents, separating them in neat little piles. After about 15 minutes I looked over and saw her shaking her head.  
 
  
 
@@ -1032,7 +1032,7 @@
 
  "Nothing a few more meals can't fix," I teased. 
 
- I fucked her in silence for a bit, then rose up to pound her more thoroughly, opening her legs up for better access. She pulled her legs back, holding her own ankles nearly parallel with her head. Report_Story #5 
+ I fucked her in silence for a bit, then rose up to pound her more thoroughly, opening her legs up for better access. She pulled her legs back, holding her own ankles nearly parallel with her head.  
 
  
 

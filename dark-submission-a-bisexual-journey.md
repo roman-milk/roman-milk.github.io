@@ -208,7 +208,7 @@
 
  "You fit nicely, don't you?" She asked in reply. 
 
- "Yes, but I'm seven inches, he's at least eight, maybe nine. The widescreen makes such judgements hard to make," I joked. Report_Story #2 
+ "Yes, but I'm seven inches, he's at least eight, maybe nine. The widescreen makes such judgements hard to make," I joked.  
 
  
 
@@ -498,7 +498,7 @@
 
  "Remember, we were..." she blushed, "...in church," she whispered. 
 
- He chuckled, "You liked my balls bouncing off your chin, didn't you?" Report_Story #3 
+ He chuckled, "You liked my balls bouncing off your chin, didn't you?"  
 
  
 
@@ -702,7 +702,7 @@
 
  The scene turned to the nerd who was sucking the large balls of the last remaining black student in front of him as the black boy pumped his eight-inch cock. 
 
- Simultaneously, a second load of cum coated the All-American and the nerd as each black teen exploded onto the white cocksuckers' face. Report_Story #4 
+ Simultaneously, a second load of cum coated the All-American and the nerd as each black teen exploded onto the white cocksuckers' face.  
 
  
 
@@ -978,7 +978,7 @@
 
  She moved away as I quickly shuffled myself to stand on the toilet. Ashley followed sitting down on the toilet even as my cock lingered above her, a drop of my cum landing in her hair. 
 
- "Mom, I am supposed to meet up with Jasmine, Carol and Tasia at the mall," a young girl's voice said. Report_Story #5 
+ "Mom, I am supposed to meet up with Jasmine, Carol and Tasia at the mall," a young girl's voice said.  
 
  
 
@@ -1334,7 +1334,7 @@
 
  The nurse tentatively moved towards the bed her nervousness obvious with each step. 
 
- The teen lifted up the blanket covering her to reveal she was naked and really stacked. Report_Story #6 
+ The teen lifted up the blanket covering her to reveal she was naked and really stacked.  
 
  
 
@@ -1596,7 +1596,7 @@
 
  Did I want to suck cock? After briefly considering it, I was confident I didn't. The thought had been placed in my head by Ashley and thoughts, even ones you don't agree with, take awhile to fade. 
 
- I grabbed the disks and headed out. I noticed movement in the bathroom, assumedly Eric, and decided to let him have what little dignity he had left by ignoring it and heading out. Report_Story #7 
+ I grabbed the disks and headed out. I noticed movement in the bathroom, assumedly Eric, and decided to let him have what little dignity he had left by ignoring it and heading out.  
 
  
 
@@ -1868,7 +1868,7 @@
 
  "Troy, please...," I protested, finally finding my voice. My protest was undermined however, as I nodded in reply, my mouth watering as I stared at his big black cock, and his hand slowly pumping it." 
 
- "Coach, we don't have a lot of time. I texted Eric not to stop by for now, but curfew is in forty-five minutes," Troy pointed out. "If you aren't interested, I will just text Eric to come and deal with my stiffness, he has actually became very good at it." Report_Story #8 
+ "Coach, we don't have a lot of time. I texted Eric not to stop by for now, but curfew is in forty-five minutes," Troy pointed out. "If you aren't interested, I will just text Eric to come and deal with my stiffness, he has actually became very good at it."  
 
  
 
@@ -2110,7 +2110,7 @@
 
  "I am not ready for... that," I said, turned on by the thought of submitting to him so completely, but not ready to admit it, even to myself. 
 
- Report_Story #9 
+  
 
  
 
@@ -2428,7 +2428,7 @@
 
  Content with my answer, she took off her bra and allowed her breasts the freedom they were begging for. Her nipples were long and stiff, her areolas a dark sexy contrast to the rest of her breasts, which were stunningly firm. I was simply in awe, as if I was Indiana Jones and staring at the Holy Grail. I wanted to cup them in my hands, to squeeze them, to bury my face in them and yet I waited further instructions. 
 
- "Go ahead, my pet, feel what real tits feel like," she offered, clearly a shot at my much smaller tits. Report_Story #10 
+ "Go ahead, my pet, feel what real tits feel like," she offered, clearly a shot at my much smaller tits. 0 
 
  
 
@@ -2732,7 +2732,7 @@
 
  Craving his cum, as soon as he was finished, I took his cock back in my mouth, although I couldn't resist licking my lips, feeling his stickiness everywhere on my face. 
 
- Report_Story #11 
+ 1 
 
  
 
@@ -3010,7 +3010,7 @@
 
  "Speaking of deep, get that big cock of yours in me," she smiled, ignoring the discussion of our obvious situation. 
 
- Quoting Big Rosie, whom I didn't meet, although I did recall seeing a large black woman sitting with the Browns, "You are insatiable." Report_Story #12 
+ Quoting Big Rosie, whom I didn't meet, although I did recall seeing a large black woman sitting with the Browns, "You are insatiable." 2 
 
  
 
@@ -3330,7 +3330,7 @@
 
  I enjoyed the blow job for the next twenty minutes as she made love to my cock with her mouth. She milked my cock with precision as I eventually blew my load in her mouth even as she never once increased her pace, slow and steady indeed winning the race. 
 
- Once she had finished the blow job a couple of minutes after I finished coming, she asked, her tone playful, "Is my baby all better now?" Report_Story #13 
+ Once she had finished the blow job a couple of minutes after I finished coming, she asked, her tone playful, "Is my baby all better now?" 3 
 
  
 
@@ -3680,7 +3680,7 @@
 
  "So he is a bigger cocksucking slut than you?" Rhianna questioned. 
 
- "I guess," Ashley said, her tone implying she wasn't sure how to answer the question. Report_Story #14 
+ "I guess," Ashley said, her tone implying she wasn't sure how to answer the question. 4 
 
  
 
@@ -4000,7 +4000,7 @@
 
  "Ah isn't that sweet," Jamal chuckled. 
 
- Rhianna defended us. "It's actually pretty fucking cool. A couple who have allowed each other such sexual freedom without the jealousy and petty bullshit that usually stunts relationships." Report_Story #15 
+ Rhianna defended us. "It's actually pretty fucking cool. A couple who have allowed each other such sexual freedom without the jealousy and petty bullshit that usually stunts relationships." 5 
 
  
 

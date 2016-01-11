@@ -132,7 +132,7 @@
 
  ++++++++++++++++++ 
 
- Jared is still fucking Rhonda only he doesn't know that I know and he still doesn't know about Pam and me. Rhonda doesn't know about Pam either and Pam doesn't know that Rhoda and I had our little talk and that Rhonda keeps me informed of when she and Jared are going to get together. The day after Rhonda and I talked I came home from work and handed her an envelope. She opened it to find a round trip ticket to Seattle: Report_Story #2 
+ Jared is still fucking Rhonda only he doesn't know that I know and he still doesn't know about Pam and me. Rhonda doesn't know about Pam either and Pam doesn't know that Rhoda and I had our little talk and that Rhonda keeps me informed of when she and Jared are going to get together. The day after Rhonda and I talked I came home from work and handed her an envelope. She opened it to find a round trip ticket to Seattle:  
 
  
 

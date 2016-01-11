@@ -202,7 +202,7 @@
 
  'Here,' he growled and smeared the woman's face with the dribbling end. 'Suck it.' 
 
- Not a word passed between Tony and the young man; no communication other than venemous coruscations sparking from their eyes as both vied for the woman's attention. As was his way Tony used crude obscenity to dominate his wife. Using degrading appellations he forced his rejuvenated penis into her mouth, cruelly pushing himself beyond where she was comfortable. Eleanor chocked and gagged, small tears sliding from the corners of her eyes while her husband poured epithets and accusations of previous sexual transgressions upon her blonde crown. Report_Story #2 
+ Not a word passed between Tony and the young man; no communication other than venemous coruscations sparking from their eyes as both vied for the woman's attention. As was his way Tony used crude obscenity to dominate his wife. Using degrading appellations he forced his rejuvenated penis into her mouth, cruelly pushing himself beyond where she was comfortable. Eleanor chocked and gagged, small tears sliding from the corners of her eyes while her husband poured epithets and accusations of previous sexual transgressions upon her blonde crown.  
 
  
 

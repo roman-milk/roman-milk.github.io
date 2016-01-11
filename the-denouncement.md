@@ -210,7 +210,7 @@
 
  "I thought you loved me." 
 
- "I did. I still do. But given my sexual nature I should have made sure that we were sexually compatible before marrying you. What I did was the equivalent of answering an ad in the paper for a used car and buying it without checking under the hood or taking it for a test drive. But I was in love and I thought that it was cute and charming that you were keeping a promise to your mother by staying a virgin. In all other respects except for the bedroom Rob, you are a great husband. It is just unfortunate for us that I need the bedroom part as much as I need the other parts. The thing I really couldn't understand is your insistence on only using the missionary position. You seemed to enjoy the hell out of making love so why did you limit yourself to the missionary?" Report_Story #2 
+ "I did. I still do. But given my sexual nature I should have made sure that we were sexually compatible before marrying you. What I did was the equivalent of answering an ad in the paper for a used car and buying it without checking under the hood or taking it for a test drive. But I was in love and I thought that it was cute and charming that you were keeping a promise to your mother by staying a virgin. In all other respects except for the bedroom Rob, you are a great husband. It is just unfortunate for us that I need the bedroom part as much as I need the other parts. The thing I really couldn't understand is your insistence on only using the missionary position. You seemed to enjoy the hell out of making love so why did you limit yourself to the missionary?"  
 
  
 
@@ -236,7 +236,7 @@
 
  I must have sat there staring at nothing in particular for an hour after she had gone. She had hit me where I was the most vulnerable - my maleness! "You are no good in bed" she had said. She told me I wasn't a man. 
 
- To be continued… Report_Story #1 
+ To be continued…  
 
  
 
@@ -484,7 +484,7 @@
 
  That good mood carried through Thursday. At two Katrina stopped by my cubicle and gave me directions to her place and at a quarter to four Marge stopped by and reminded me to keep the next Wednesday open. There was another message from Gail on the machine when I got home, but I deleted it without listening to it. 
 
- Friday was another good day at work and when I got off at five I hurried home to get ready for my date with Katrina. The message light was blinking on the answering machine was blinking, but I ignored it. I rang Katrina's door bell right at six. The plan was to go to dinner and then catch a movie, but mid-way through dinner we decided to go for drinks and dancing instead. I had a very enjoyable evening, but it didn't end the way I expected. The rather forward way Katrina had come after me led me to believe that my Friday evening was going to be a repeat of my Wednesday evening, but it didn't happen that way. I got a kiss on the cheek and an: Report_Story #2 
+ Friday was another good day at work and when I got off at five I hurried home to get ready for my date with Katrina. The message light was blinking on the answering machine was blinking, but I ignored it. I rang Katrina's door bell right at six. The plan was to go to dinner and then catch a movie, but mid-way through dinner we decided to go for drinks and dancing instead. I had a very enjoyable evening, but it didn't end the way I expected. The rather forward way Katrina had come after me led me to believe that my Friday evening was going to be a repeat of my Wednesday evening, but it didn't happen that way. I got a kiss on the cheek and an:  
 
  
 
@@ -578,7 +578,7 @@
 
  "Well, it is all new to me and I'm not sure that I want to get into another permanent relationship for a while so I guess I can do "friends with benefits." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -828,7 +828,7 @@
 
  I grew up believing in the sanctity of marriage and find out that Marge, a married woman, is willing to fuck me at the drop of a hat and that Pam, promised to another, thought nothing of spending four nights in my bed simply because we were out of town where her fiancée couldn't see us. 
 
- And whatever happened to the idea that you dated a girl and built up a relationship? Veronica shot that one down. A couple of dances and two hours later we were in bed together. I knew guys in high school and later in college who dated the same girl for years and were lucky to get a goodnight kiss at the end of the date. Report_Story #2 
+ And whatever happened to the idea that you dated a girl and built up a relationship? Veronica shot that one down. A couple of dances and two hours later we were in bed together. I knew guys in high school and later in college who dated the same girl for years and were lucky to get a goodnight kiss at the end of the date.  
 
  
 
@@ -976,7 +976,7 @@
 
  "It's in the kitchen. You will know what it is as soon as you see it. Mind your manners Rob. I raised you right and I know you will do what needs to be done. Now go" and she gave me a little push towards the kitchen and turned and walked toward her bedroom. I walked into the kitchen and found Gail Sue sitting at the kitchen table. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1154,7 +1154,7 @@
 
  "Not a chance lover. Except for the bed part he is solid gold and I'm keeping him." 
 
- "Well, don't give up on me just yet. I'll know by Friday what Gail and I will be doing." Report_Story #2 
+ "Well, don't give up on me just yet. I'll know by Friday what Gail and I will be doing."  
 
  
 

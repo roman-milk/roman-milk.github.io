@@ -196,7 +196,7 @@
 
  Doggett, hearing the shout, recognised the signal and knew the time had come. In a blur of speed he burst into the room. With his trousers open to reveal the terrible organ that jutted from the nest of his thick pubic bush, he stroked his cock and advanced. 
 
- When first, hot spurt gushed against Gabrielle's palette, she let the spitting cock slip from her lips. A thick rope of semen hung from her cheek and clung to her hair as her hand slid under the bed. Report_Story #2 
+ When first, hot spurt gushed against Gabrielle's palette, she let the spitting cock slip from her lips. A thick rope of semen hung from her cheek and clung to her hair as her hand slid under the bed.  
 
  
 

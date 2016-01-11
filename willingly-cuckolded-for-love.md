@@ -326,7 +326,7 @@
 
  Laura 
 
- I see you are married now, that is quite a disappointment. I was going to suggest we continue where we left off all those years ago. Report_Story #2 
+ I see you are married now, that is quite a disappointment. I was going to suggest we continue where we left off all those years ago.  
 
  
 
@@ -644,7 +644,7 @@
 
  Ignoring my clear doubt, she began pushing forward. "Just relax, baby. There may be some pain at first, but it won't last." 
 
- I closed my eyes, wincing slightly as the promised pain arrived. I am not sure what I was expecting. Some sort of pure euphoria, perhaps? But my first reaction was, 'Holy shit, this hurts'. Each slight push forward, which she did at a snail's pace bless her soul, was a new sharp pain, like I had been impaled by a dull knife, not enough to draw blood, but enough to cause pain. I tried to breathe normally to control the hurt as my wife continued to coddle me, gentle caressing my ass. "It's ok, baby. It will disappear. I promise." Report_Story #3 
+ I closed my eyes, wincing slightly as the promised pain arrived. I am not sure what I was expecting. Some sort of pure euphoria, perhaps? But my first reaction was, 'Holy shit, this hurts'. Each slight push forward, which she did at a snail's pace bless her soul, was a new sharp pain, like I had been impaled by a dull knife, not enough to draw blood, but enough to cause pain. I tried to breathe normally to control the hurt as my wife continued to coddle me, gentle caressing my ass. "It's ok, baby. It will disappear. I promise."  
 
  
 
@@ -930,7 +930,7 @@
 
  "Even when your husband was fucking you?" he questioned. 
 
- "Especially then, Master. I love Mike and he is actually a very caring lover, but even though I tried to give hints to my submissive needs, he couldn't just fuck me and treat me like the whore I wanted to be...like you used to do," my wife explained, my inadequacy of being a man again thrown at me. Report_Story #4 
+ "Especially then, Master. I love Mike and he is actually a very caring lover, but even though I tried to give hints to my submissive needs, he couldn't just fuck me and treat me like the whore I wanted to be...like you used to do," my wife explained, my inadequacy of being a man again thrown at me.  
 
  
 

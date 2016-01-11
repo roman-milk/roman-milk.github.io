@@ -92,7 +92,7 @@
 
  It's Saturday afternoon. I got laid earlier today -- a guy from school -- and it wasn't good for me. Faked an orgasm. He's real cute and has a great, fit body, but his cock was just average size. Not big like Daddy's. And he came in my pussy after like ten minutes, and didn't get hard again for another ten minutes. We fucked three times, but I left his house (his parent weren't home) feeling unused, like I had all this sexual energy still in me. 
 
- Worse, I knew Daddy was fucking Elena. It was their date -- I mean, he was out playing golf, right? No, he was at her house, filling her high school pussy with his married, grownup semen. She's so fucking lucky! I couldn't stop thinking about it all day, it made me mad and jealous. Report_Story #2 
+ Worse, I knew Daddy was fucking Elena. It was their date -- I mean, he was out playing golf, right? No, he was at her house, filling her high school pussy with his married, grownup semen. She's so fucking lucky! I couldn't stop thinking about it all day, it made me mad and jealous.  
 
  
 
@@ -192,7 +192,7 @@
 
  First, I was freaking out. I had this fear my mother would be awake, and would wonder why the fuck I even OWNED an outfit like that -- not to mention, wearing it in the house. But the upper floor of our house was dark; her bedroom door closed; and no light was coming from underneath the door. She was definitely asleep. I crept downstairs, holding my breath, my blood rushing in my head and making my ears ring. I wasn't sure I was doing the right thing, but a very wet pussy in my lacey panties kept driving me forward. 
 
- Daddy was sprawled on the sofa, the TV room lit only by the light of the big- screen TV. He had his iPad on his lap, he was half-watching a football game, and half-watching his iPad. He didn't look at me right when I came into the room, so I had a moment to turn away. Better not, I told myself. Plus, a part of me really wanted to strut in front of him! Report_Story #3 
+ Daddy was sprawled on the sofa, the TV room lit only by the light of the big- screen TV. He had his iPad on his lap, he was half-watching a football game, and half-watching his iPad. He didn't look at me right when I came into the room, so I had a moment to turn away. Better not, I told myself. Plus, a part of me really wanted to strut in front of him!  
 
  
 
@@ -304,7 +304,7 @@
 
  I couldn't get that whole penis in my mouth; barely half fit in. I'm not good at taking a dick in my throat -- hey, I'm only 18, right -- but I went up to that point, I think I got about half into my mouth, until his cockhead was at the back of my mouth, near my throat's entrance. I even gagged a bit, not much. My jaw instantly hurt, his cock was so big, I had to really stretch my mouth open! I salivated on it, getting his dick super-wet with spit, then I started sucking and licking, really going crazy on it! I slurped up my saliva and his precum, running my tongue around just his fat cockhead in my mouth, around and around, then licked down the soft, sensitive underside. I licked the sides of his shaft, down to his balls, coating it in saliva, then licked back to the top and started bobbing my mouth, back and forth, letting him fuck my mouth. I kept putting my long, blonde hair behind my ears, because my hair was falling around my face; Daddy reached down and grabbed my long locks, pulling it back in a ball over my head, using a fist to keep my hair out of the way. Thanks, Daddy! 
 
- I looked up at him several times, locking eyesight more than once, as he watched me sucking his divine penis. I was moaning in delight, so happy! My hands were against his hairy, meaty thighs, keeping myself upright, and a couple times I reached up to fondle his manly asscheeks. Fuck, his butt felt powerful and grownup -- hairy, muscular, so powerful! Daddy is all about power, his muscular chest and his thick thighs, and that perfect, concrete-hard penis. Mmm, I so lust for Daddy! Report_Story #4 
+ I looked up at him several times, locking eyesight more than once, as he watched me sucking his divine penis. I was moaning in delight, so happy! My hands were against his hairy, meaty thighs, keeping myself upright, and a couple times I reached up to fondle his manly asscheeks. Fuck, his butt felt powerful and grownup -- hairy, muscular, so powerful! Daddy is all about power, his muscular chest and his thick thighs, and that perfect, concrete-hard penis. Mmm, I so lust for Daddy!  
 
  
 
@@ -418,7 +418,7 @@
 
  Daddy, it seemed, didn't fuck like a teenage boy. He didn't need to wait, to keep fucking me! 
 
- Remaining hard, and with my pussy sloppy with his jism, Daddy now had a perfectly-lubricated hole to fuck. He remained on top of me, his arms straight down and his manly adult chest hovering over my body, as he stared at my tits and small tummy, and he began pounding his dick in and out of my cunt. My pussy was really on fire, it was so fucking sore (as my ass still was), but I wasn't about to stop this fucking! I wrapped my hands under my small knees, spreading myself open, and feeling my father driving that penis in and out of my twat furiously. He was sneering down at me, I could see the lust in his eyes. I wasn't his daughter now, I was a hot piece of meat, some sexy blonde bitch his cock felt great inside! Report_Story #5 
+ Remaining hard, and with my pussy sloppy with his jism, Daddy now had a perfectly-lubricated hole to fuck. He remained on top of me, his arms straight down and his manly adult chest hovering over my body, as he stared at my tits and small tummy, and he began pounding his dick in and out of my cunt. My pussy was really on fire, it was so fucking sore (as my ass still was), but I wasn't about to stop this fucking! I wrapped my hands under my small knees, spreading myself open, and feeling my father driving that penis in and out of my twat furiously. He was sneering down at me, I could see the lust in his eyes. I wasn't his daughter now, I was a hot piece of meat, some sexy blonde bitch his cock felt great inside!  
 
  
 

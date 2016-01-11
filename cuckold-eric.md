@@ -300,7 +300,7 @@
 
  I wait till about 11pm and head out. It's time to get rid of Brian. I drive to the outskirts of town and pull in a side street. There are no buildings around. I get out and look around. I don't see any headlights near so I open the trunk and pull him out. He is still unconscious but I give him two more zaps to his temples. I drive away. I go home and gather all the evidence of the revenge and box it up. I drive out again. As I drive through the country side I toss some of it out every few miles. I stop and dump the tarp and drop cloths. Now It's time to get rid of Sarah. 
 
- I check on her and the batteries have run out on the vibrator. She laying on the bed drooling with her eyes closed. Report_Story #2 
+ I check on her and the batteries have run out on the vibrator. She laying on the bed drooling with her eyes closed.  
 
  
 

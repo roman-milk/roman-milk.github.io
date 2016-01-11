@@ -248,7 +248,7 @@
 
  "Never mind going to St. Louis. Albertson just called and he has to come to town tomorrow for an emergency meeting and he will sign the contract while he is here. Take tomorrow off and enjoy your birthday." 
 
- I decided not to bother Suellen and caught the airport shuttle to the downtown Hilton and then took a cab from there home. I was in the basement working on a custom computer desk that I was making when I heard the garage door opener start to run. I looked at my watch and was surprised to see how late it was. I had planned on having dinner ready when Suellen got home, but somehow time had gotten away from me. Report_Story #2 
+ I decided not to bother Suellen and caught the airport shuttle to the downtown Hilton and then took a cab from there home. I was in the basement working on a custom computer desk that I was making when I heard the garage door opener start to run. I looked at my watch and was surprised to see how late it was. I had planned on having dinner ready when Suellen got home, but somehow time had gotten away from me.  
 
  
 
@@ -526,7 +526,7 @@
 
  I didn't say anything; just gave a sort of half-assed smile that said I didn't believe her. Again, as I had the previous day, I kept her in the corner of my eye and she always seemed to be watching me. I had no idea what she was up to, but she was up to something. She was interested in me for some reason and further proof of that, at least to me, was the fact that not only did she move from her regular afternoons to the mornings, but she also went from her three times a week on Monday, Wednesday and Friday to all five days. 
 
- Four days after starting to work out in the mornings Mellissa asked me to spot for her while she did some work in the free weight area. It was the first time she had spoken to me since my seeing her at the gym door on the second day, I said I would and as she was working out she said: Report_Story #3 
+ Four days after starting to work out in the mornings Mellissa asked me to spot for her while she did some work in the free weight area. It was the first time she had spoken to me since my seeing her at the gym door on the second day, I said I would and as she was working out she said:  
 
  
 
@@ -820,7 +820,7 @@
 
  "Then he took me again. He took me four times that night and the operative word there is "took." After the first two times I stopped fighting him. My five one one hundred and ten pound body had no chance against his six two two hundred and twenty pounds and all four times even though I started out calling him all kinds of mother fucker and son of a bitch I ended up begging for it to be harder and faster. 
 
- "He left and I spent hours in the tub trying to make myself feel clean, but I had a problem. I liked it. I liked being taken. It was a turn on being forced and having no say in the matter. I actually got myself off with my fingers as I sat in the tub and thought about what had happened. Report_Story #4 
+ "He left and I spent hours in the tub trying to make myself feel clean, but I had a problem. I liked it. I liked being taken. It was a turn on being forced and having no say in the matter. I actually got myself off with my fingers as I sat in the tub and thought about what had happened.  
 
  
 

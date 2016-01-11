@@ -182,7 +182,7 @@
 
  I left the motel with a spring to my step and a key to Shelly's apartment in my pocket. Tom would never know that I had fucked his baby, but I would and I would smile and think about it every time I saw him. My smile would be even bigger if I managed to nail his wife too, but my pursuit of Mary was going to have to wait until my affair with her daughter was over. Five months Shelly had said. Five months to find out everything about Mary that I could. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -400,7 +400,7 @@
 
  As I drove home I wondered if there was any other way to fuck over Tom. His mother, although in her mid sixties, was still a fine looking woman, but no, I didn't want to burn up the time it would take to seduce her. She and Tom's dad had been happily married for over forty years so why do anything that might screw that up. I'd done what I could to Tom. He would never know, but I would and that was all that counted. Now it was time to see what I could do to Marie. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -622,7 +622,7 @@
 
  She reached down and touched my bulge again. "I can see that you are. We could go out to your car and use the backseat if you would prefer, but my bed is a lot more comfortable." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

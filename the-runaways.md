@@ -176,7 +176,7 @@
 
  Mindy looked around and said, "I didn't expect a house. I thought that a couple of single guys who were roommates would be sharing an apartment." 
 
- "The house is cheaper than an apartment. It has three bedrooms so three people splitting the cost makes it less expensive than an apartment. Report_Story #2 
+ "The house is cheaper than an apartment. It has three bedrooms so three people splitting the cost makes it less expensive than an apartment.  
 
  
 

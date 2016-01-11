@@ -214,7 +214,7 @@
 
  'That's huge!' she cried, her hands going to her mouth. 'Look at the size of it.' She looked at her friend in the chair. 
 
- Becky's legs snapped closed. She pulled herself upright, hands gripping the chair arms. 'Bloody hell,' she blurted. 'Bloody fucking hell!' Report_Story #2 
+ Becky's legs snapped closed. She pulled herself upright, hands gripping the chair arms. 'Bloody hell,' she blurted. 'Bloody fucking hell!'  
 
  
 

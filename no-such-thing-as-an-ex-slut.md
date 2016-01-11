@@ -196,7 +196,7 @@
 
  But Roy was thinking, Were there really two? Maybe it was a reflection. But the second outline looked different, not like a mirror image. Was it that kid? It didn't look like the kid, but the light was weird. If it wasn't him, who was it?But one thing was for sure, some one – or ones – had just watched him fuck his wife. He felt a wicked thrill jolt through his body at the idea. 
 
- "OK Bubba. I'm going to stop being submissive here and tell you to let me put my leg down and get my fucking tits off this window." Report_Story #2 
+ "OK Bubba. I'm going to stop being submissive here and tell you to let me put my leg down and get my fucking tits off this window."  
 
  
 
@@ -226,7 +226,7 @@
 
  But rest didn't come as easily for Roy. He sat up and looked out the window. All the lights seemed to be out in the cabin next door now. He lay back in the sheets and waited for sleep but one question continued to nag his fading thoughts... 
 
- "Who the hell just watched me fuck my wife?" Report_Story #1 
+ "Who the hell just watched me fuck my wife?"  
 
  
 
@@ -488,7 +488,7 @@
 
  "That'll be beautiful," said Tuli. Roy, however, still thought it sounded like way too much ink. 
 
- "I told her she'd look like a fuckin' abandoned lot," laughed Jimmy. Report_Story #2 
+ "I told her she'd look like a fuckin' abandoned lot," laughed Jimmy.  
 
  
 
@@ -662,7 +662,7 @@
 
  "Did you hear him? He's cool," repeated Jimmy into Tuli's ear. "He'll let me abuse you all fucking day and he won't lift a finger 'cause he knows you deserve it. You're fucked, bitch. And I'm just getting' started." 
 
- "If there's something you're gonna do, just shut up and fucking do it," she said around her ragged gasps for breath, adding for good measure: "You goddamned pussy!" Report_Story #3 
+ "If there's something you're gonna do, just shut up and fucking do it," she said around her ragged gasps for breath, adding for good measure: "You goddamned pussy!"  
 
  
 
@@ -728,7 +728,7 @@
 
  Thank you for reading. As always, comments, complaints, suggestions, threats, praise, damnation, accolades and opprobrium are all welcomed and encouraged. 
 
- -fastandsloppy Report_Story #1 
+ -fastandsloppy  
 
  
 
@@ -994,7 +994,7 @@
 
  Roy would have preferred to go back to the cabin's big bed where it was comfortable, but Mike's proud smile and Tuli's giddy enthusiasm won him over. Besides, how often do you get to screw your wife with some African stranger while people walk overhead? "OK. Let's see it, Mike." 
 
- Mike beckoned them to follow him as he led them through the streets towards the boardwalk. The crowds got thicker and livelier as they neared the noise, lights and smells of the amusement piers, arcades and food kiosks. A block from the boardwalk they passed a twenty-four hour pharmacy and Roy excused himself to pop in "for some supplies". Anticipating another first with Tuli, he bought a pocket sized tube of KY. He also picked up a box of rubbers in case Mike didn't have any. He wasn't about to let the kid go bareback in Tuli; he was from Africa for fuck's sake. Report_Story #2 
+ Mike beckoned them to follow him as he led them through the streets towards the boardwalk. The crowds got thicker and livelier as they neared the noise, lights and smells of the amusement piers, arcades and food kiosks. A block from the boardwalk they passed a twenty-four hour pharmacy and Roy excused himself to pop in "for some supplies". Anticipating another first with Tuli, he bought a pocket sized tube of KY. He also picked up a box of rubbers in case Mike didn't have any. He wasn't about to let the kid go bareback in Tuli; he was from Africa for fuck's sake.  
 
  
 
@@ -1208,7 +1208,7 @@
 
  "That was something else," said Hal. "Fuck, no blue pill and I've got a hard-on like a fifteen year old kid." 
 
- "You wanna poke? All holes open..." Naines said, motioning to Tuli. Report_Story #3 
+ "You wanna poke? All holes open..." Naines said, motioning to Tuli.  
 
  
 
@@ -1296,7 +1296,7 @@
 
  Thank you for reading. As always, comments, complaints, suggestions, threats, praise, damnation, accolades and opprobrium are all welcomed and encouraged. 
 
- -fastandsloppy Report_Story #1 
+ -fastandsloppy  
 
  
 
@@ -1568,7 +1568,7 @@
 
  Molly stopped undressing when she reached the bikini she was wearing beneath her clothes. She seemed to tremble and her eyes danced with reluctant desire as they inspected her body. As Tuli reached out towards her bottoms Molly grasped her lower lip tightly in her teeth and closed her eyes. As Tuli's hands slipped under the fabric she nearly jumped out of her skin. But she did not recoil, merely gasping as Tuli slid her fingers into her labia. 
 
- "Oh my, you're so wet. I think you like being ordered around, Hmm? I bet what you really want is for us to make you do the all the freaky things you're too afraid to try," she cast a sidelong look at Roy before turning back to the girl. "I'm right aren't I?" Report_Story #2 
+ "Oh my, you're so wet. I think you like being ordered around, Hmm? I bet what you really want is for us to make you do the all the freaky things you're too afraid to try," she cast a sidelong look at Roy before turning back to the girl. "I'm right aren't I?"  
 
  
 
@@ -1770,7 +1770,7 @@
 
  "What?" asked Tuli. 
 
- "Well, we could start with some, like, hand-cuffs, and maybe this..." she held up a ball gag. Report_Story #3 
+ "Well, we could start with some, like, hand-cuffs, and maybe this..." she held up a ball gag.  
 
  
 
@@ -1896,7 +1896,7 @@
 
  Thank you for reading. As always, comments, complaints, suggestions, threats, praise, damnation, accolades and opprobrium are all welcomed and encouraged. 
 
- -fastandsloppy Report_Story #1 
+ -fastandsloppy  
 
  
 
@@ -2170,7 +2170,7 @@
 
  "I'm sorry... But your friend, she isn't a... a witch, is she?" 
 
- "What if I am?" said Wanda, stepping forward again. Mischief made her eyes sparkle. Report_Story #2 
+ "What if I am?" said Wanda, stepping forward again. Mischief made her eyes sparkle.  
 
  
 
@@ -2408,7 +2408,7 @@
 
  "Mmmmm," groaned Tuli. She had her lips around two of their fat heads and was fluttering her tongue beneath them. 
 
- "Oooh!" said one. "Nnngah" said the other. Their cocks started pumping a massive double barrel load of seed that gushed from the corners of her mouth in thick gets. She swallowed as much as she could but didn't catch half of it. She was a gooey mess as the third bodybuilder took handfuls of her hair and began roughly face fucking her. His ass clenched up and he pumped his load down her rapidly swallowing throat. Tuli sat back and gulped air as she wiped some of the cum from her face. She looked feral, her hair wild again, her eyes dilated. Report_Story #3 
+ "Oooh!" said one. "Nnngah" said the other. Their cocks started pumping a massive double barrel load of seed that gushed from the corners of her mouth in thick gets. She swallowed as much as she could but didn't catch half of it. She was a gooey mess as the third bodybuilder took handfuls of her hair and began roughly face fucking her. His ass clenched up and he pumped his load down her rapidly swallowing throat. Tuli sat back and gulped air as she wiped some of the cum from her face. She looked feral, her hair wild again, her eyes dilated.  
 
  
 

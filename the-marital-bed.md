@@ -158,7 +158,7 @@
 
  "Hush," I said, kissing her. "They're the only family I've ever had. I want to do anything I can for her. For him. I feel I have to. For his sake. I learned a lot from your father and grandfather, most importantly a man takes care of his family, first and foremost. She's my grandmother, the only one I ever knew. I want this very much. I ... I need to do this." 
 
- I looked up at the rest of the adults gathered. "I don't care how long it takes. She will never do without if I can help it. I would do the same for any of you, and I know you'd do the same for Dana and the kids. It's the obvious solution." Report_Story #2 
+ I looked up at the rest of the adults gathered. "I don't care how long it takes. She will never do without if I can help it. I would do the same for any of you, and I know you'd do the same for Dana and the kids. It's the obvious solution."  
 
  
 
@@ -304,7 +304,7 @@
 
  I made my way to the kitchen, smelling her divine cooking. Whatever else you might say about her memory, that woman sure could cook. I took a deep breath, as I watched her interaction with my little girl. The boys were nowhere to be seen, and I was hoping that they were doing something useful, like their chores, but suspected they were out playing. 
 
- Grandma was almost dancing around the kitchen, humming happily, when she wasn't giving Caroline directions. She looked up at me, and gave me a smile. "Logan, could you run up to the store and get me a dozen Granny Smith apples, or McIntosh if they have them? That and I'm out of nutmeg. I think I'll make an apple pie for dessert." Report_Story #3 
+ Grandma was almost dancing around the kitchen, humming happily, when she wasn't giving Caroline directions. She looked up at me, and gave me a smile. "Logan, could you run up to the store and get me a dozen Granny Smith apples, or McIntosh if they have them? That and I'm out of nutmeg. I think I'll make an apple pie for dessert."  
 
  
 
@@ -550,7 +550,7 @@
 
  * * * 
 
- I loved my current project. Some projects are more critical than others, some time-lines more crucial. This was one of those projects where time was of the essence, and the company big enough to pay well. I'd been managing to keep up with my tasks and goals, and integration was going exceptionally well. I'd only had two minor issues to deal with. I was being paid to be on call, during integration and test. I understood that if my work had issues, I had to drop everything and deal with it until it was done. For the moment, as long as my code remained solid, my job was to check my emails each morning, join a daily progress conference call, and wait. Report_Story #4 
+ I loved my current project. Some projects are more critical than others, some time-lines more crucial. This was one of those projects where time was of the essence, and the company big enough to pay well. I'd been managing to keep up with my tasks and goals, and integration was going exceptionally well. I'd only had two minor issues to deal with. I was being paid to be on call, during integration and test. I understood that if my work had issues, I had to drop everything and deal with it until it was done. For the moment, as long as my code remained solid, my job was to check my emails each morning, join a daily progress conference call, and wait.  
 
  
 
@@ -826,7 +826,7 @@
 
  "Jesus H. Christ, Logan! Do I ever turn you down for sex? Aren't I willing, and loving? Do you really have any complaints? I think we have sex more than any other couple I know!" 
 
- This wasn't going well. "I think we have a great love life, and you're incredibly generous in bed. I have no complaints. It was just an observation. It doesn't mean anything. So I only get a blowjob a couple of times a year. I'm not complaining." Report_Story #5 
+ This wasn't going well. "I think we have a great love life, and you're incredibly generous in bed. I have no complaints. It was just an observation. It doesn't mean anything. So I only get a blowjob a couple of times a year. I'm not complaining."  
 
  
 
@@ -1050,7 +1050,7 @@
 
  Dana got a kick out of that. "Aww, poor baby! No Grandma pussy for you today? How will you ever survive?" 
 
- I fucked the brains out of her that night, and she used her mouth to get me up the second time. When I was completely done, she leaned over and gave me a kiss, smirking. "There, that should hold you for a while." Report_Story #6 
+ I fucked the brains out of her that night, and she used her mouth to get me up the second time. When I was completely done, she leaned over and gave me a kiss, smirking. "There, that should hold you for a while."  
 
  
 
@@ -1310,7 +1310,7 @@
 
  "I know, Dana. I know Billy's girl pretty well by now. You're a big tease and a flirt, and you may use your charms to help business, but you're a good woman, if a bit naughty. I bet he loved the naughty you." 
 
- She grinned, and moved back and forth easily on my cock. "He adored me. It was obvious to everybody. Especially when I was naughty for him." Report_Story #7 
+ She grinned, and moved back and forth easily on my cock. "He adored me. It was obvious to everybody. Especially when I was naughty for him."  
 
  
 

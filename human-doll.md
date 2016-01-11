@@ -168,7 +168,7 @@
 
  At that moment he began to orgasm. Knowing she was orgasmic had set him off. He had to thrust forward with every muscle available in a desperate primeval need to drive deep inside her body, to reach her womb with his seed. He held her balancing on tiptoe with a slight prodding movement confirming he was as deep as possible. 
 
- Rose collapsed into the mattress with his weight holding her down, not that she had the strength to rise. Her whole body felt complete as though it had been filled by his seed. A large smile lit her face. She was a happy contended doll. Report_Story #1 
+ Rose collapsed into the mattress with his weight holding her down, not that she had the strength to rise. Her whole body felt complete as though it had been filled by his seed. A large smile lit her face. She was a happy contended doll.  
 
  
 
@@ -340,7 +340,7 @@
 
  The thought of someone seeing her like this was dreadful. Despite herself a trembling thrill of expectancy ran through her body. Already feeling squishy she became hot at the thought of being shown off before a stranger. Unable to move she waited staring at the lounge door. 
 
- The ornate door handle turned so slowly it was an agony waiting to be discovered. As the door slowly swung open she looked down at the antique Persian rug trying to hide a blushing face in long blonde hair. Report_Story #2 
+ The ornate door handle turned so slowly it was an agony waiting to be discovered. As the door slowly swung open she looked down at the antique Persian rug trying to hide a blushing face in long blonde hair.  
 
  
 
@@ -510,7 +510,7 @@
 
  She looked up at him admiring her master, knowing this weekend would be just so wonderful it threatened to overwhelm her. Her heart beat strongly in her bosom with the thought that she had at last a master who could give her what she wanted. She was his doll ready to be played with without responsibility or recriminations, whatever she did, whatever he wanted her to do with her. 
 
- She hoped he would want to play this game again sometime and with this in mind determined to play it out to her best ability so as not to disappoint him. If he wanted to test her resolve with something distasteful she would comply as a doll only could. She set her mind to it. She would be his compliant doll for the whole weekend. She rested contentedly at his feet looking forward to carrying out whatever her owner desired. Report_Story #1 
+ She hoped he would want to play this game again sometime and with this in mind determined to play it out to her best ability so as not to disappoint him. If he wanted to test her resolve with something distasteful she would comply as a doll only could. She set her mind to it. She would be his compliant doll for the whole weekend. She rested contentedly at his feet looking forward to carrying out whatever her owner desired.  
 
  
 
@@ -704,7 +704,7 @@
 
  Randall searched for the professor and then his research organisation to find what they were developing. He sat back heavily to think. Was he putting two and two together to make five? Had this body suit triggered something in her, a deep seated need? The picture of a student wearing the suit was put together with the way Rose was behaving and it left him wondering. 
 
- Report_Story #2 
+  
 
  
 
@@ -798,7 +798,7 @@
 
  "Lay still for a moment. Take deep breaths," he told her. He arranged the dress and limbs taking in her subtle doll like beauty. 
 
- Randall now owned the doll for ever and would carefully look after it. He would mould it into a perfect human doll. Once it was able to stand he would have it dress in a more suitable outfit. There were several all in one doll suits in the wardrobe. They would help it get into the role of being a permanent living doll. Report_Story #1 
+ Randall now owned the doll for ever and would carefully look after it. He would mould it into a perfect human doll. Once it was able to stand he would have it dress in a more suitable outfit. There were several all in one doll suits in the wardrobe. They would help it get into the role of being a permanent living doll.  
 
  
 
@@ -1038,7 +1038,7 @@
 
  "I'll shout and scream, until you are both hounded into oblivion," Linda ranted. Her voice was rising to a scream, until it suddenly cut off. For a moment it seemed she had run out of words of condemnation; which would have been a first. She took a few deep breaths, to regain some calm. 
 
- It was no good. She couldn't speak! The damn maniac had taken control of that too! Report_Story #2 
+ It was no good. She couldn't speak! The damn maniac had taken control of that too!  
 
  
 

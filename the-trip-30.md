@@ -166,7 +166,7 @@
 
  "Jenna, I can handle this myself." I told her. 
 
- "Listen, if you screw this up, this could be it. You could drive him away for good. If you handle this wrong, you could make the biggest mistake of your life." She replied. I gave what she said some thought. "I know what I'm doing. Let me go with you guys. I can get a handle on what this Brian guy is all about. Then, I'll let you know what your best approach is." I considered what she said. "Please, pretty please Mary. I don't want to be cooped up here. You know what I'm saying is right." Report_Story #2 
+ "Listen, if you screw this up, this could be it. You could drive him away for good. If you handle this wrong, you could make the biggest mistake of your life." She replied. I gave what she said some thought. "I know what I'm doing. Let me go with you guys. I can get a handle on what this Brian guy is all about. Then, I'll let you know what your best approach is." I considered what she said. "Please, pretty please Mary. I don't want to be cooped up here. You know what I'm saying is right."  
 
  
 
@@ -336,7 +336,7 @@
 
  The drive was even more uncomfortable than the day before. It was just so hot. We were all sweating as we reached the afternoon. It was uncomfortable, yes, but it actually helped me in my plan. To be honest, I looked great with a sheen of sweat of me. Many guys could tell you that. I reached into the cooler to grab an ice cube. I leaned up and rub the cube against my forehead. The water dripped down my face and down onto my chest. It started to soak my top a little bit. I looked up into the mirror, and saw Brian's eyes dart away. 
 
- Ha! So he's started to notice. Well, time to turn it up a bit. I grabbed another ice cube, and started to rub it on my chest, just above my breasts. The water drips all over my large breasts. Down the top of them, soaking my top. Or right between them, disappearing in the cavern of my cleavage. I look up into the mirror. He's staring right at me. Or at my tits, to be specific. I drop the cube down my cleavage. I see him gulp. I stare at the mirror until he noticed that I noticed. He looked away and his cheeks turned red. I smiled. Of course, clueless in the passenger seat didn't notice a thing. This was almost too easy. Report_Story #3 
+ Ha! So he's started to notice. Well, time to turn it up a bit. I grabbed another ice cube, and started to rub it on my chest, just above my breasts. The water drips all over my large breasts. Down the top of them, soaking my top. Or right between them, disappearing in the cavern of my cleavage. I look up into the mirror. He's staring right at me. Or at my tits, to be specific. I drop the cube down my cleavage. I see him gulp. I stare at the mirror until he noticed that I noticed. He looked away and his cheeks turned red. I smiled. Of course, clueless in the passenger seat didn't notice a thing. This was almost too easy.  
 
  
 
@@ -482,7 +482,7 @@
 
  "Probably not." I told her. 
 
- "Well, I don't know about you guys, but I am starving. I think we should go out and get something to eat. Something nice, cause quite frankly, I'm tired of this fast food. It's messing with my figure." She said. I don't see a single flaw on her. Report_Story #4 
+ "Well, I don't know about you guys, but I am starving. I think we should go out and get something to eat. Something nice, cause quite frankly, I'm tired of this fast food. It's messing with my figure." She said. I don't see a single flaw on her.  
 
  
 
@@ -672,7 +672,7 @@
 
  "But you could get pregnant." he said, worried. 
 
- "So? Doesn't that make it better? Cumming inside some slut you barely know, with a good chance of getting her pregnant? That big dick of yours is built to get sluts pregnant. Sluts like me." I told him, letting my dark designs reach the surface for a moment. He tried to push me off of him again, but I fought him off and started to hump him harder. My ass flexing as I humped and grinded on that fat dick of his. His hands stopped fighting me, the pleasure too great. His arms fell back to my hips as he assisted me in making this fuck harder, helping in our mating rhythm, his base instincts reaching the surface. The instinct to fuck and impregnate the hottest bitch around. Me. I felt the orgasm I've been waiting for reaching the surface. Report_Story #5 
+ "So? Doesn't that make it better? Cumming inside some slut you barely know, with a good chance of getting her pregnant? That big dick of yours is built to get sluts pregnant. Sluts like me." I told him, letting my dark designs reach the surface for a moment. He tried to push me off of him again, but I fought him off and started to hump him harder. My ass flexing as I humped and grinded on that fat dick of his. His hands stopped fighting me, the pleasure too great. His arms fell back to my hips as he assisted me in making this fuck harder, helping in our mating rhythm, his base instincts reaching the surface. The instinct to fuck and impregnate the hottest bitch around. Me. I felt the orgasm I've been waiting for reaching the surface.  
 
  
 
@@ -912,7 +912,7 @@
 
  "Hold on, hold on. I'll make you a deal." I said. He calmed down and started to listen. 
 
- "Now, I have taught you so much. I have brought you from the beginner level stuff to the expert stuff. I have brought you so much pleasure. I think I deserve a little reward." I told him, unzipping the envelope. Report_Story #6 
+ "Now, I have taught you so much. I have brought you from the beginner level stuff to the expert stuff. I have brought you so much pleasure. I think I deserve a little reward." I told him, unzipping the envelope.  
 
  
 
@@ -1068,7 +1068,7 @@
 
  "Well, I was at a party a few weeks ago, and I ran into Brian. We got to talking, and we started hanging out. Mary, me and Brian have started seeing each other." she told me, still breathing hard. I went numb. I couldn't believe it. Jenna was seeing Brian. My Brian? How dare she? In my silence, she continued. 
 
- "I'm sorry, Mary. I know it's messed up, because he's your ex. But I've been trying to, you know, have more adult relationships, and settle down a bit. It's been going really well. But, I wanted you to know. I wanted to see if you're okay with this. I wanted to get your approval. If you're not okay with this, then I'll break it off. I'll stop seeing him." she said. Report_Story #7 
+ "I'm sorry, Mary. I know it's messed up, because he's your ex. But I've been trying to, you know, have more adult relationships, and settle down a bit. It's been going really well. But, I wanted you to know. I wanted to see if you're okay with this. I wanted to get your approval. If you're not okay with this, then I'll break it off. I'll stop seeing him." she said.  
 
  
 

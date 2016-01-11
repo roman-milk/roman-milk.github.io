@@ -232,7 +232,7 @@
 
  "We give everyone who comes in here on their twenty-first birthday a drink on the house." 
 
- I don't know about Fiona, but I was no stranger to alcohol. I'd been drinking wine with dinner (one glass only) since I turned sixteen and beer since becoming eighteen. I ordered a beer and Fiona asked for a Cosmo and then we drank and danced for the next three hours. I limited myself to two beers which I nursed because I was driving, but Fiona had half dozen drinks before we left. Report_Story #2 
+ I don't know about Fiona, but I was no stranger to alcohol. I'd been drinking wine with dinner (one glass only) since I turned sixteen and beer since becoming eighteen. I ordered a beer and Fiona asked for a Cosmo and then we drank and danced for the next three hours. I limited myself to two beers which I nursed because I was driving, but Fiona had half dozen drinks before we left.  
 
  
 
@@ -414,7 +414,7 @@
 
  "Your decision Miss Michelle. Do you want me to show you around or not?" 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -718,7 +718,7 @@
 
  "I'll call you" I said and she kissed me again and went into the house. 
 
- I did call and the next day we had dinner and took in a show. That led to several dates and a month later Mickey was on my bed crying out "Oh yes!" Three months later we were engaged to be married and that is when things started to get complicated. Report_Story #2 
+ I did call and the next day we had dinner and took in a show. That led to several dates and a month later Mickey was on my bed crying out "Oh yes!" Three months later we were engaged to be married and that is when things started to get complicated.  
 
  
 
@@ -888,7 +888,7 @@
 
  I was wrong. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -1124,7 +1124,7 @@
 
  Then Ronnie said. "I intend to get involved in the business. But not at that level – at least not for a while." 
 
- I saw Michelle's face when she heard "At least not for a while" and it was obvious that she didn't like hearing that and her face hardened a bit. When Ronnie went on to say "I'm going to throw my vote to making Rob the president of the company effective immediately" Michelle stood up, said, "This is bullshit. It is not what my father wanted" and stormed out of the room. Report_Story #2 
+ I saw Michelle's face when she heard "At least not for a while" and it was obvious that she didn't like hearing that and her face hardened a bit. When Ronnie went on to say "I'm going to throw my vote to making Rob the president of the company effective immediately" Michelle stood up, said, "This is bullshit. It is not what my father wanted" and stormed out of the room.  
 
  
 
@@ -1362,7 +1362,7 @@
 
  "What does Mickey have to do with this?" 
 
- "Since she isn't going without I figured that you shouldn't either and since I'm horny I thought we could take care of each other." Report_Story #3 
+ "Since she isn't going without I figured that you shouldn't either and since I'm horny I thought we could take care of each other."  
 
  
 
@@ -1622,7 +1622,7 @@
 
  "But she didn't have to do it once she knew she'd been found out. She could have said "Fuck you asshole. You can't threaten me any more because now he knows. But she didn't. She kept seeing him." 
 
- "Yes she did and I can't fault her on it. There isn't a woman alive who isn't a virgin who has never wondered what a really big cock is like I've wondered and I can't say for sure that I wouldn't go for it if I had the chance. And that's even if you and I were still together. You are bigger than Hank was. Not by much, but enough to make me feel a little bit different when we made love. So if you being just a little bigger makes a noticeable difference in how I feel how much different would it feel with something bigger that what you have? Report_Story #4 
+ "Yes she did and I can't fault her on it. There isn't a woman alive who isn't a virgin who has never wondered what a really big cock is like I've wondered and I can't say for sure that I wouldn't go for it if I had the chance. And that's even if you and I were still together. You are bigger than Hank was. Not by much, but enough to make me feel a little bit different when we made love. So if you being just a little bigger makes a noticeable difference in how I feel how much different would it feel with something bigger that what you have?  
 
  
 

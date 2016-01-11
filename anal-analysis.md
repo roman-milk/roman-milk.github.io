@@ -228,7 +228,7 @@
 
  'Did he ever! Jesus, I thought he was going to split my arsehole...' Charlotte revealed coarsely. 'He seemed to be having trouble shoving it in me. I suppose I was wriggling a bit, but he managed in the end.' Charlotte had unbuttoned her blouse and her breasts hung over the cups of her brassiere. Her nipples were thick and long, and she used her fingers to pluck and tweak the rubbery teats as she fingered her readily lubricating sex. 'I remember him spreading my arse cheeks and murmuring how lovely I was, how beautiful was. I felt the big dome of him bump me and then I felt the stretch as he pushed. His hands were on my hips and he was moaning about how tiny my waist was, how fucking gorgeous I was. He was holding me tight and I could hear him grunting like an animal as he pushed harder against my sphincter. Then, as he pushed in, I felt a burn, and I sort of panicked. He was too big, I thought, he was going to split me, and it felt as though I needed to push him out of me, like he was invading me and I had to squeeze my muscles to repel him. 
 
- 'Did Leon say anything?' Report_Story #2 
+ 'Did Leon say anything?'  
 
  
 

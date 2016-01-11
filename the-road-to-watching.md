@@ -222,7 +222,7 @@
 
  "I need to get back to my other guests. You want to stay here?" 
 
- I wanted to, but I would have been too embarrassed to let him know that yes, I did want to stay and watch his wife, Hell, what I wanted was to run into the room, pull her away from Harry and have her myself. I shook my head no in answer to his question and he hung the picture back up and we went back down to the basement rec room to join the others. Shortly after that I went home. Report_Story #2 
+ I wanted to, but I would have been too embarrassed to let him know that yes, I did want to stay and watch his wife, Hell, what I wanted was to run into the room, pull her away from Harry and have her myself. I shook my head no in answer to his question and he hung the picture back up and we went back down to the basement rec room to join the others. Shortly after that I went home.  
 
  
 
@@ -422,7 +422,7 @@
 
  She would try to tell me that it wasn't cheating because I was the one who wanted her to fuck other men, but that would be a load of bullshit! I did not want her out fucking other men and she knew it. I did want to watch her with another man once or maybe even twice, so I could satisfy my curiosity about some things, but there wasn't anything said about me watching her with Marv. No, she had cheated and what was I going to do about it. 
 
- I spent the entire day getting absolutely nothing done that I was being paid to do. All my thoughts were on my "Candy problem" and what to do about it and in the end I did nothing. Nothing at all! I loved Candy and I had no actual proof that she had done anything. I could suspect all I wanted, but in the absence of some sort of proof I was not going to fuck up my relationship with Candy by making accusations I couldn't back up. Report_Story #3 
+ I spent the entire day getting absolutely nothing done that I was being paid to do. All my thoughts were on my "Candy problem" and what to do about it and in the end I did nothing. Nothing at all! I loved Candy and I had no actual proof that she had done anything. I could suspect all I wanted, but in the absence of some sort of proof I was not going to fuck up my relationship with Candy by making accusations I couldn't back up.  
 
  
 
@@ -644,7 +644,7 @@
 
  +++++++++++++++++ 
 
- Wednesday evening found me sitting in a dark corner of the Apollo when Candy came in and sat down at a table. Within minutes there were four other girls and three guys sitting at two tables shoved together. I was confidant that if Candy looked my way she would not recognize me. I had on a wig and some old clothes that I had picked up at the Goodwill and with a pair of glasses with the lenses punched out and a ball cap she would be hard put to pick me out. Report_Story #4 
+ Wednesday evening found me sitting in a dark corner of the Apollo when Candy came in and sat down at a table. Within minutes there were four other girls and three guys sitting at two tables shoved together. I was confidant that if Candy looked my way she would not recognize me. I had on a wig and some old clothes that I had picked up at the Goodwill and with a pair of glasses with the lenses punched out and a ball cap she would be hard put to pick me out.  
 
  
 

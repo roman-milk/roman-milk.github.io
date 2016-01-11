@@ -92,7 +92,7 @@
 
  Leanne had to admit that it had felt weird wrestling and she wished that Vicki would don a few more clothes. Vicki certainly was strong physically and seemed to be overpowering mentally as well when dealing with her teammates. This challenging demeanor she displayed gave Leanne feelings of doubt and inadequacy to some degree, wondering whether she could fit in as the Pandas' coach. 
 
- The devious plan formed in her mind quickly and Vicki grinned with the satisfaction of knowing she was minutes away from tasting a woman's sweet innocence. There was nothing that would give her a bigger thrill than seducing a mature woman and with Leanne being married only added to the allure. She did feel a small tremor of guilt but it passed without leaving any lingering doubts. Report_Story #2 
+ The devious plan formed in her mind quickly and Vicki grinned with the satisfaction of knowing she was minutes away from tasting a woman's sweet innocence. There was nothing that would give her a bigger thrill than seducing a mature woman and with Leanne being married only added to the allure. She did feel a small tremor of guilt but it passed without leaving any lingering doubts.  
 
  
 
@@ -192,7 +192,7 @@
 
  There was no more begging or pleading for Vicki to stop the molesting as all Leanne's shame was overcome by the erotic passion flowing from the very core of her womanhood. Vicki could not believe how her coaches' body responded to her lesbian caresses as it thrashed madly under her touch. Without being asked, Leanne spread her legs to allow sole access to her most cherished domain and thrust her pussy into the waiting mouth. 
 
- The orgasm burst from its shell and it was most remarkable how it skipped from peak to peak. Leanne felt the most violent and rewarding ecstasy of all time as it washed over her body and Vicki's tenderness eroded any feelings of guilt she may have had. Earlier she prayed for help but now she prayed for forgiveness because she was succumbing to the most sinful lust. Report_Story #3 
+ The orgasm burst from its shell and it was most remarkable how it skipped from peak to peak. Leanne felt the most violent and rewarding ecstasy of all time as it washed over her body and Vicki's tenderness eroded any feelings of guilt she may have had. Earlier she prayed for help but now she prayed for forgiveness because she was succumbing to the most sinful lust.  
 
  
 
@@ -264,7 +264,7 @@
 
  A tender hug and peck on the lips eroded the last bit of resistance and Leanne again conceded defeat. She would go with the girls as it was important for her to gain their complete confidence and she rationalized that there would be two rookies also going through the same ceremony. Her fate was sealed in a bottle and it drifted slowly out to sea as both women relaxed for the last few moments of bedtime. 
 
- THE END Please email me with your comments or suggestions as they are appreciated. Report_Story #1 
+ THE END Please email me with your comments or suggestions as they are appreciated.  
 
  
 
@@ -360,7 +360,7 @@
 
  Leanne felt like crying out loud when she heard the swish, swish of the steel blades and felt the short, curly hair being cut. It took minutes for the job to be done as Mandy went pain staking slow as if to punish the woman. She clipped the fuzz until there was merely extremely short stubble left and now came the sweet task. Cindy suddenly applied the cool, lubricating lotion and it made Leanne jump again with shock. "What the hell are they doing now?" she wondered as the liquid was applied to her reddened skin. 
 
- "Now hold real steady as I really don't wish to cut your lovely skin," Cindy whispered to the distressed coach. Oh gawd, she is going to shave my pussy and all my hair will be gone, Leanne thought and anguished over the fact. The razor flowed smoothly over the entire area and stroke after stroke removed the last remnants of hair. Report_Story #2 
+ "Now hold real steady as I really don't wish to cut your lovely skin," Cindy whispered to the distressed coach. Oh gawd, she is going to shave my pussy and all my hair will be gone, Leanne thought and anguished over the fact. The razor flowed smoothly over the entire area and stroke after stroke removed the last remnants of hair.  
 
  
 
@@ -454,7 +454,7 @@
 
  Rose went to the door and opened it to find a timid Leanne waiting. "Please come in dear as we were expecting you," she told the woman. As she entered the room, the shock of seeing Vicki tied to the bed and totally naked halted her advance. Leanne stared at the sobbing woman and wondered what on earth was happening. Their eyes met and Vicki wanted so desperately to explain the situation that must have looked so immoral. She wanted to tell Leanne that she was tricked and these girls forced her to succumb to their perverted demands. 
 
- "Come in Leanne as your dear friend felt so remorseful for having you shaved during the initiation that she asked us to make her look the same," Jenny told the startled coach. "She wanted us to shave her pussy so she could look like her lover, as she told us how much she adores you," she lied and Vicki opened her mouth to respond. But how could she refute what Jenny had said as any explanation would sound unbelievable. She wanted to warn Leanne but knew it would serve no purpose, as the two villains were in total control of what was about to happen. Report_Story #3 
+ "Come in Leanne as your dear friend felt so remorseful for having you shaved during the initiation that she asked us to make her look the same," Jenny told the startled coach. "She wanted us to shave her pussy so she could look like her lover, as she told us how much she adores you," she lied and Vicki opened her mouth to respond. But how could she refute what Jenny had said as any explanation would sound unbelievable. She wanted to warn Leanne but knew it would serve no purpose, as the two villains were in total control of what was about to happen.  
 
  
 
@@ -544,7 +544,7 @@
 
  Then the most disgusting noise ever to reach Vicki's ears sounded as Jenny slowly withdrew the monster from the tight, confining tunnel. Every touch and caress from her teammate had a profound affect on Vicki and her body seemed to be more alive than ever before. She felt a slight sadness when the cock was withdrawn but also welcomed the temporary freedom. The realization came to Vicki that the one reason she hesitated to rekindle any relationship with Leanne was that she felt a unique compassion toward her. 
 
- Vicki's mind was now numb and she looked on with glassy eyes as Jenny slinked off the bed and proceeded to loosen the restrictive bonds on Leanne. As her wrists were freed, Leanne rubbed them to restore the circulation to each hand. Then her legs were untied and she was free to move. Sitting up, she looked to her right into the pleading eyes of Vicki who was still in bondage. The sight of her Amazon body in all its gorgeous splendor was a beautiful picture and Leanne's tummy quivered at the thought she was attracted to another woman's body. Report_Story #4 
+ Vicki's mind was now numb and she looked on with glassy eyes as Jenny slinked off the bed and proceeded to loosen the restrictive bonds on Leanne. As her wrists were freed, Leanne rubbed them to restore the circulation to each hand. Then her legs were untied and she was free to move. Sitting up, she looked to her right into the pleading eyes of Vicki who was still in bondage. The sight of her Amazon body in all its gorgeous splendor was a beautiful picture and Leanne's tummy quivered at the thought she was attracted to another woman's body.  
 
  
 

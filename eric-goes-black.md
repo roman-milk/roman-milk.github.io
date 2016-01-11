@@ -404,7 +404,7 @@
 
  He speeds up and she matches him thrust for thrust. He feels a stirring in his loins. 
 
- Report_Story #2 
+  
 
  
 
@@ -770,7 +770,7 @@
 
  The both laugh. 
 
- They finish lunch and Eric clears the table. He rinses off the dishes off and puts them in the dishwasher. He turns and looks at Tiff. He walks up to her with his dick almost in her face. She leans forward and kisses his cock. She cups his balls and takes it in her mouth. She sucks it up to full hard. He pulls her off his cock, grabs her arm. He pulls her up and bends her over the table. He swipes two fingers over the cube of butter on the table and lubes up her asshole. He rubs some on his cock and lines it up to her little pink pucker. Report_Story #3 
+ They finish lunch and Eric clears the table. He rinses off the dishes off and puts them in the dishwasher. He turns and looks at Tiff. He walks up to her with his dick almost in her face. She leans forward and kisses his cock. She cups his balls and takes it in her mouth. She sucks it up to full hard. He pulls her off his cock, grabs her arm. He pulls her up and bends her over the table. He swipes two fingers over the cube of butter on the table and lubes up her asshole. He rubs some on his cock and lines it up to her little pink pucker.  
 
  
 
@@ -1146,7 +1146,7 @@
 
  "OK, I'm not going to cite you. Just take it easy. I don't want to have to pick up your pieces somewhere down the hill." 
 
- "Thanks officer. I'll behave." Report_Story #4 
+ "Thanks officer. I'll behave."  
 
  
 

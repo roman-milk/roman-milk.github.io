@@ -314,7 +314,7 @@
 
  "I don't suppose there's any chance for us now, is there?" Lauren asked anxiously. 
 
- "You fucked another man in our home. In our bed. For months. You hid it from me, made me an unknowing cuckold. You treated me like crap for a month, a complete basket-case. No, I don't think there's much left of our marriage." Report_Story #2 
+ "You fucked another man in our home. In our bed. For months. You hid it from me, made me an unknowing cuckold. You treated me like crap for a month, a complete basket-case. No, I don't think there's much left of our marriage."  
 
  
 

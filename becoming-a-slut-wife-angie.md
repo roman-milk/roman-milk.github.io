@@ -104,7 +104,7 @@
 
  She got up and kissed my dick, told it not to go away and she left the room. She came back a minute later with a knife. She licked my cock a couple of more times and told it to stay up and then she cut me loose. She walked over to the bed and lay down. Spreading her legs she said, "Come on baby. Bring that hard cock over here and fuck the slut that loves you." 
 
- I stared at her for a full minute without moving and then I went over to the bed and did as she told me. Report_Story #1 
+ I stared at her for a full minute without moving and then I went over to the bed and did as she told me.  
 
  
 
@@ -330,7 +330,7 @@
 
  "You should have taken the divorce Angie," I said to her as I put the ball gag in her mouth. "It would have been a whole lot better for you and your lover if you had. You wouldn't be here now for one thing. Here's how it will play out. Steve's car is gone so if his buddies stop by they will all probably think he is not home. I'm gambling that none of them have a key and that even if they do and they come in the house they won't come down here. 
 
- With the ball gags you can't call for help and the machines are so quiet that they won't be heard upstairs. Eventually someone will find your bodies and the authorities will come to talk to me. By then I will have sold the house and moved. They will be curious as to why I never reported you missing and I'll show them the photos of you and your fuck buddies and tell them that I threw you out of the house. I'll tell them that I had no idea where you had gone and that I didn't care enough to look for you. Report_Story #2 
+ With the ball gags you can't call for help and the machines are so quiet that they won't be heard upstairs. Eventually someone will find your bodies and the authorities will come to talk to me. By then I will have sold the house and moved. They will be curious as to why I never reported you missing and I'll show them the photos of you and your fuck buddies and tell them that I threw you out of the house. I'll tell them that I had no idea where you had gone and that I didn't care enough to look for you.  
 
  
 

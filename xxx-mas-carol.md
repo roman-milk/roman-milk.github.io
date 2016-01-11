@@ -122,7 +122,7 @@
 
  As Christmas carols echoed through the buildings and snow whistled through the air, a bundled up Scott trudged home. Parties rang throughout as everyone enjoyed their Christmas Eve. It hurt a bit to know that Scott wouldn't be having that level of fun tonight. Neither he nor Kate exactly raked it in, and they both were practical, not living beyond their means. So they had a small Christmas planned, only a few gifts planned for each other as well as a small meal. But, despite that, he was still happy. 
 
- Scott smiled as he walked by some carolers and heard voices from the mass of people in the big church. He heard the steady ringing bell of a charity collector, braving the bitter cold for charity, and even though he didn't have lot of money, he was happy to part with a few bucks for a good cause. Because even though he didn't have a ton of wealth, he had a good life. His wife was beautiful, and smart, and intelligent. Kate supported him in all of his choices, even though they might not be for the best financially. She was always there for him and she always believed in him. Report_Story #2 
+ Scott smiled as he walked by some carolers and heard voices from the mass of people in the big church. He heard the steady ringing bell of a charity collector, braving the bitter cold for charity, and even though he didn't have lot of money, he was happy to part with a few bucks for a good cause. Because even though he didn't have a ton of wealth, he had a good life. His wife was beautiful, and smart, and intelligent. Kate supported him in all of his choices, even though they might not be for the best financially. She was always there for him and she always believed in him.  
 
  
 
@@ -312,7 +312,7 @@
 
  "Well..." she began. "I guess I'll have to rock someone else's world then." she said, setting her empty glass down firmly and sauntering away. 
 
- Older Scott looked away from his younger form to the spirit next to him. Her pale, slim lips curled ever so slightly. Report_Story #3 
+ Older Scott looked away from his younger form to the spirit next to him. Her pale, slim lips curled ever so slightly.  
 
  
 
@@ -456,7 +456,7 @@
 
  "Scott... yeah. Fuck me, Scott." Christine moaned out as she worked up a good pace, forcing nearly the entire length of the dildo inside her. Sophie smiled wide. 
 
- "Still think this is fake?" Sophie asked. "It feels too real to be fake, doesn't it? I tell you what... if you still don't believe me, next time you talk to her, tell her what you really think of her. Tell her how hot you find her. Tell her you would love to see her dress a little sluttier. Come up behind her, brush the hair from her neck and whisper in her ear how distracting it is to work with someone so sexy. Do that, and I promise you she will melt. She will do whatever you want her to. I guarantee it! No, wait... I can show you." Report_Story #4 
+ "Still think this is fake?" Sophie asked. "It feels too real to be fake, doesn't it? I tell you what... if you still don't believe me, next time you talk to her, tell her what you really think of her. Tell her how hot you find her. Tell her you would love to see her dress a little sluttier. Come up behind her, brush the hair from her neck and whisper in her ear how distracting it is to work with someone so sexy. Do that, and I promise you she will melt. She will do whatever you want her to. I guarantee it! No, wait... I can show you."  
 
  
 
@@ -622,7 +622,7 @@
 
  There were in a study in some pretty nice house. There was a woman passed out on a loveseat, and on the couch next to them, a sexy red-head was riding a man's thick cock. 
 
- "A wife has too much to drink at a neighborhood Christmas party but... her slutty neighbor certainly didn't mind having the opportunity to talk to the passed-out woman's husband, alone." Report_Story #5 
+ "A wife has too much to drink at a neighborhood Christmas party but... her slutty neighbor certainly didn't mind having the opportunity to talk to the passed-out woman's husband, alone."  
 
  
 
@@ -808,7 +808,7 @@
 
  Scott's eyes darted up as her lips curled into a smile. She turned back to face him, holding up her arm to her side, her hand hanging down. She jutted out her hip as she began to approach him. 
 
- "You've seen only a hint of what I have to offer." Rowena replied, indicating her shining, pale flesh. "But I guarantee you want to see what I have hidden under this robe. Hehehe." Her upper half listed over slightly before again straightening herself. "Despite everything, you have checked out the tits and asses of every one of us spirits. The selfish, greedy side of you is bursting to get out. Stop thinking up here..." she said, pointing at her own head. "And start thinking about what those heavy balls of yours need. What they crave. You have a wife who works hard and is too tired to give you the pleasure you need every night. And even when she is willing, what she provides is... lazy. Perfunctory. She has never been able to give you the lusty sex a man like you needs. She does not have the temperament, the creativity, the desire or the body to care for you in the way you need to be cared for. It would be impossible for you to still be attracted to her in the way you used to be. When a man goes home night after night, knowing he isn't getting much from his dull, boring wife... his desire for her would just plummet." Report_Story #6 
+ "You've seen only a hint of what I have to offer." Rowena replied, indicating her shining, pale flesh. "But I guarantee you want to see what I have hidden under this robe. Hehehe." Her upper half listed over slightly before again straightening herself. "Despite everything, you have checked out the tits and asses of every one of us spirits. The selfish, greedy side of you is bursting to get out. Stop thinking up here..." she said, pointing at her own head. "And start thinking about what those heavy balls of yours need. What they crave. You have a wife who works hard and is too tired to give you the pleasure you need every night. And even when she is willing, what she provides is... lazy. Perfunctory. She has never been able to give you the lusty sex a man like you needs. She does not have the temperament, the creativity, the desire or the body to care for you in the way you need to be cared for. It would be impossible for you to still be attracted to her in the way you used to be. When a man goes home night after night, knowing he isn't getting much from his dull, boring wife... his desire for her would just plummet."  
 
  
 
@@ -948,7 +948,7 @@
 
  Sophie stood proudly naked in front of the married man, wearing a wide smile and nothing else. She put her hands on her hips, her fingers pressing into her smooth skin. Her pussy was completely bare, and Scott couldn't take his eyes off of it. 
 
- "Ladies... it's my turn." Rowena said coolly. Sophie spun on her heels, showing Scott her round, juicy backside as she approached her cloaked colleague. Emily did the same, approaching Rowena from the other side, her breasts rippling as she walked. They stood on either side of Rowena as she faced the married man directly. Each of the two spirits grabbed the cloak in the middle where the cloak had split open, right at her chest. Emily and Sophie each had one hand gripping the split cloak, the backs of their fingers pressed against Rowena's bulging mounds as they held tight, ready to pull at a moment's notice. Report_Story #7 
+ "Ladies... it's my turn." Rowena said coolly. Sophie spun on her heels, showing Scott her round, juicy backside as she approached her cloaked colleague. Emily did the same, approaching Rowena from the other side, her breasts rippling as she walked. They stood on either side of Rowena as she faced the married man directly. Each of the two spirits grabbed the cloak in the middle where the cloak had split open, right at her chest. Emily and Sophie each had one hand gripping the split cloak, the backs of their fingers pressed against Rowena's bulging mounds as they held tight, ready to pull at a moment's notice.  
 
  
 
@@ -1074,7 +1074,7 @@
 
  Scott's eyes widened as he took in the mass of sweaty flesh on the bed. There were four naked bodies writhing in pleasure on it, and in the center, lying on his back, was Scott. He was completely naked, and on top of him, furiously riding his thick pulsing cock was Rowena. His arms were wrapped around her waist as she bounced roughly on his swollen meat. 
 
- "Fuck! Fuck my cunt you motherfucking piece of fucking shit!" Rowena spat out as she bounced up and down his turgid cock. In his position, watching the action, Scott had a first-hand view of the illicit action on the bed. He looked and saw Rowena's pussy wrapped around his thick shaft, stretched to the max around his invading weapon as she rode it violently. Her ass was spread apart, revealing her asshole to Scott's gaze. It was such a violently sexual view, but then again, it was becoming clear that Rowena was a violently sexual woman. Report_Story #8 
+ "Fuck! Fuck my cunt you motherfucking piece of fucking shit!" Rowena spat out as she bounced up and down his turgid cock. In his position, watching the action, Scott had a first-hand view of the illicit action on the bed. He looked and saw Rowena's pussy wrapped around his thick shaft, stretched to the max around his invading weapon as she rode it violently. Her ass was spread apart, revealing her asshole to Scott's gaze. It was such a violently sexual view, but then again, it was becoming clear that Rowena was a violently sexual woman.  
 
  
 
@@ -1176,7 +1176,7 @@
 
  Rowena pulled her breast away, finally, dragging the spit soaked nipple across his cheek, replacing his empty mouth with her other breast. She let the overwhelmed married man attack her other nipple for a few minutes, granting it the same worship that he did with the other. As the two women scrubbed his face with their mammoth breasts, Emily glanced at Rowena with jealousy, eager to feel that married mouth on her breasts as well. Rowena smiled knowingly at her fellow spirit, before glancing down at Sophie. She was attacking Scott's cock like it was her last meal, her lips wrapped around his thick pole as she inhaled it. Rowena knew she had to keep an eye on Sophie, cause she knew if she looked away for a moment, Sophie would seize the opportunity and ride that married cock for all it was worth. And that couldn't happen. Not yet anyway. There had to be an order to this. 
 
- With a forceful push, Emily was able to push Rowena out of the way, her wet nipple popping free. Scott's mouth was given a momentary respite, but it didn't last long. Rowena smiled at her pushy compatriot but let her have her turn, lowering her turgid nipple to Scott's mouth. As Scott began sucking hard on the massive breast, Rowena made sure to give the rest of his face the same smothering treatment she had given him before, all the while keeping an eye on Sophie. Report_Story #9 
+ With a forceful push, Emily was able to push Rowena out of the way, her wet nipple popping free. Scott's mouth was given a momentary respite, but it didn't last long. Rowena smiled at her pushy compatriot but let her have her turn, lowering her turgid nipple to Scott's mouth. As Scott began sucking hard on the massive breast, Rowena made sure to give the rest of his face the same smothering treatment she had given him before, all the while keeping an eye on Sophie.  
 
  
 
@@ -1298,7 +1298,7 @@
 
  "C'mon, Emily! You can do better than this!" Rowena said loudly. "You waited an eternity for this? This pathetic performance... C'mon, if you're going to fuck him, then do it right!" 
 
- Emily's face snarled in anger as she rode the cock harder. She knew that this so-called 'pathetic' performance was the best sex this marred man had ever had. But she knew she had to turn up the heat to prove she was just as capable as the two other women. She picked up the pace, Scott moaning and groaning even more as she did so. Report_Story #10 
+ Emily's face snarled in anger as she rode the cock harder. She knew that this so-called 'pathetic' performance was the best sex this marred man had ever had. But she knew she had to turn up the heat to prove she was just as capable as the two other women. She picked up the pace, Scott moaning and groaning even more as she did so. 0 
 
  
 
@@ -1414,7 +1414,7 @@
 
  "Uh, uh, uh." Sophie chided, leaping into action, jumping onto her knees next to Rowena, putting her hands on Rowena's arm. "I don't think so. It's my turn." 
 
- "You can be patient, dear." Rowena chided, balancing over Scott's dick. "I got him back to fighting shape. I did the work, now I get the pleasure." Report_Story #11 
+ "You can be patient, dear." Rowena chided, balancing over Scott's dick. "I got him back to fighting shape. I did the work, now I get the pleasure." 1 
 
  
 
@@ -1574,7 +1574,7 @@
 
  At this point, Sophie's cunt had taken over his focus, it somehow feeling even tighter and wetter than before. It was gripping him so hard! Scott tried to pull back, but Rowena held him in place. He still avidly ate her cunt, but it was getting tougher to do two things at once. Finally, Rowena stepped back. Scott looked up at her, confused, as Sophie drove her amazing ass back into him. 
 
- "Okay, I've got a solution to this that will make everyone happier." Rowena claimed. "Just hold her hips and fuck this impatient bitch. Let me do the rest." Report_Story #12 
+ "Okay, I've got a solution to this that will make everyone happier." Rowena claimed. "Just hold her hips and fuck this impatient bitch. Let me do the rest." 2 
 
  
 
@@ -1724,7 +1724,7 @@
 
  Rowena looked back, knowing exactly what was going through his head. She squeezed her ass-cheeks around his married cock, seeking to coax it back to life. 
 
- "Don't be afraid, Scott." she began. "Don't be afraid to admit the lust you have for me. Don't be afraid to admit how much your cock loves me... loves my body." she said, still firmly sliding her ass in a smooth motion up and down his cock. "Don't be afraid that your cock desires me more than Kate... more than Emily... more than Sophie. Your cock has never wanted to be inside a woman more than it wants to be inside me. The old lady with the big tits and the tattoos and the perfect ass... you love every inch of me. You love my tattoos, don't you Scott? I've seen the lust in your eyes when you look at them. You might get a few of your own, right? Permanently mark your skin with darkness, show everyone you have a dark side. I wear mine proudly. Will you?" Report_Story #13 
+ "Don't be afraid, Scott." she began. "Don't be afraid to admit the lust you have for me. Don't be afraid to admit how much your cock loves me... loves my body." she said, still firmly sliding her ass in a smooth motion up and down his cock. "Don't be afraid that your cock desires me more than Kate... more than Emily... more than Sophie. Your cock has never wanted to be inside a woman more than it wants to be inside me. The old lady with the big tits and the tattoos and the perfect ass... you love every inch of me. You love my tattoos, don't you Scott? I've seen the lust in your eyes when you look at them. You might get a few of your own, right? Permanently mark your skin with darkness, show everyone you have a dark side. I wear mine proudly. Will you?" 3 
 
  
 
@@ -1878,7 +1878,7 @@
 
  "Fuck! Fuck! FUCK!" Scott said though clenched teeth, the pleasure almost too much to bear. 
 
- Finally, at nearly the same time, both of their bodies collapsed. She fell onto him, their sweaty chests mashing together. Scott gasped for breath, his heart racing. It was incredible. It was the best sex of his life, and he didn't know what that meant. Were his words true? Would he start cheating on his wife? Why was it that these crazy spirits had opened his eyes and given him more pleasure in one night than his wife ever had? Report_Story #14 
+ Finally, at nearly the same time, both of their bodies collapsed. She fell onto him, their sweaty chests mashing together. Scott gasped for breath, his heart racing. It was incredible. It was the best sex of his life, and he didn't know what that meant. Were his words true? Would he start cheating on his wife? Why was it that these crazy spirits had opened his eyes and given him more pleasure in one night than his wife ever had? 4 
 
  
 
@@ -2056,7 +2056,7 @@
 
  "It's weird, both of our marriages, one of us keeps the package tight and toned, the other... not so much." Lindsay said with a laugh, glancing over at her husband, then her Aunt, then up to her Uncle. Scott simply smiled. 
 
- As the two chatted, the signs were there for anyone who was watching. The way she played with her golden hair, the way she exposed her neck, the way she pivoted her hips slightly, bouncing her foot back and forth on her heel as she stood in place. The way she would casually touch him. She wanted him, but both of them were so trusted that no one thought twice. But Scott wasn't biting the bait. Not yet. Report_Story #15 
+ As the two chatted, the signs were there for anyone who was watching. The way she played with her golden hair, the way she exposed her neck, the way she pivoted her hips slightly, bouncing her foot back and forth on her heel as she stood in place. The way she would casually touch him. She wanted him, but both of them were so trusted that no one thought twice. But Scott wasn't biting the bait. Not yet. 5 
 
  
 
@@ -2244,7 +2244,7 @@
 
  "Madeline... I'll do what you say." Emily relented. 
 
- "Good. I know you lost your family, as did I, but don't worry... I'll have a young man for you in no time. You'll have a new family very soon, just like me." Madeline said, jutting out her belly. Emily stared down at it. Madeline grabbed her wrist and put her sister's hand on her belly, sliding it under her coat. Just as she did, the baby inside her kicked. "Don't you want this, Emily?" Madeline asked. Emily looked up at Madeline, her eyes flashing with jealousy and want. Report_Story #16 
+ "Good. I know you lost your family, as did I, but don't worry... I'll have a young man for you in no time. You'll have a new family very soon, just like me." Madeline said, jutting out her belly. Emily stared down at it. Madeline grabbed her wrist and put her sister's hand on her belly, sliding it under her coat. Just as she did, the baby inside her kicked. "Don't you want this, Emily?" Madeline asked. Emily looked up at Madeline, her eyes flashing with jealousy and want. 6 
 
  
 

@@ -290,7 +290,7 @@
 
  To my surprise, she got off me and shrugged, "Okay," as she zipped to the bathroom. I watched her perfect hips swaying and realized I was wet just at the thought of eating her cunt. 
 
- The rest of our day was spent as any normal best friends would spend a day together, shopping, laughing, gossiping, etc. She didn't mention anything about the previous night for the rest of the day. Report_Story #2 
+ The rest of our day was spent as any normal best friends would spend a day together, shopping, laughing, gossiping, etc. She didn't mention anything about the previous night for the rest of the day.  
 
  
 

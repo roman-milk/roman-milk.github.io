@@ -304,7 +304,7 @@
 
  I hear him drive into the garage. I go to greet him. 
 
- He walks in and doesn't say a word. He stops and looks at me. He pulls me into his arms and we kiss. I surrender to him and open my mouth. His tongue finds mine. His hand moves down and he holds my pussy. His finger finds it's way in me. He finds my clit and rubs it. My hips hump on his hand. I'm in his control. He rubs my clit and brings me to my first orgasm. My knees are so weak I can hardly stand. He lifts me in his arms and carries me to the bedroom. He lays me on the bed and slowly takes his clothes off. He pulls his boxer briefs down and his huge cock springs up. I gasp at the sight of it. It has to be at least nine inches. Report_Story #2 
+ He walks in and doesn't say a word. He stops and looks at me. He pulls me into his arms and we kiss. I surrender to him and open my mouth. His tongue finds mine. His hand moves down and he holds my pussy. His finger finds it's way in me. He finds my clit and rubs it. My hips hump on his hand. I'm in his control. He rubs my clit and brings me to my first orgasm. My knees are so weak I can hardly stand. He lifts me in his arms and carries me to the bedroom. He lays me on the bed and slowly takes his clothes off. He pulls his boxer briefs down and his huge cock springs up. I gasp at the sight of it. It has to be at least nine inches.  
 
  
 
@@ -610,7 +610,7 @@
 
  "Yeah. I talked about it with my Mom. She said the same thing. I'll worry about that later. I just want to be cut loose from her first." 
 
- "OK, I'll file the papers in court and have her served tomorrow. Then we wait till her attorney contacts us." Report_Story #3 
+ "OK, I'll file the papers in court and have her served tomorrow. Then we wait till her attorney contacts us."  
 
  
 
@@ -990,7 +990,7 @@
 
  "Oh god yes. You're so good in there. It's been way too long. I want your hot cum shooting in me." 
 
- She starts moving around on me. She rocks, strokes and grinds. She has all the moves. She drops all the way down and grinds on my pelvis bone with her clit. He moaning gets louder and louder. She gives one last push and her head fall back. She screams and cums hard. Her body goes stiff and her orgasm rips through her body. She goes limp and falls on my chest. I hold her down on my cock." Report_Story #4 
+ She starts moving around on me. She rocks, strokes and grinds. She has all the moves. She drops all the way down and grinds on my pelvis bone with her clit. He moaning gets louder and louder. She gives one last push and her head fall back. She screams and cums hard. Her body goes stiff and her orgasm rips through her body. She goes limp and falls on my chest. I hold her down on my cock."  
 
  
 

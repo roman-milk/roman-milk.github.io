@@ -274,7 +274,7 @@
 
  "About what?" 
 
- "You and Rich are twins and you look and act alike and I wondered if you guys were the same in everything." Report_Story #2 
+ "You and Rich are twins and you look and act alike and I wondered if you guys were the same in everything."  
 
  
 
@@ -600,7 +600,7 @@
 
  "No Rob; it won't work. I said most weekends, maybe three out of every five or maybe six. I'll have to stay at school to have access to the library and the labs on weekends to work on assignments and projects. Even when I'm home on weekends I'll have to spend time studying. We will get married, but I won't be until I graduate and have my degree." 
 
- I had a bad feeling about it, but I could see that I wasn't going to change her mind so I dropped it. The third week in August Mickey was Bev's Maid of Honor when Bev and Rich were married. As they left for their honeymoon I watched the limo disappear down the road and felt sorry for myself because it wasn't Mickey and me. Report_Story #3 
+ I had a bad feeling about it, but I could see that I wasn't going to change her mind so I dropped it. The third week in August Mickey was Bev's Maid of Honor when Bev and Rich were married. As they left for their honeymoon I watched the limo disappear down the road and felt sorry for myself because it wasn't Mickey and me.  
 
  
 
@@ -880,7 +880,7 @@
 
  Mickey's facial expression when she heard that almost caused me to laugh. During the conversation it came out that Nancy knew Alicia's daughter Jessica and she asked how Jessica was liking the school she was going to. While Nancy and Alicia were talking Rich and Bev were inviting me to a barbecue at their place the next day. Bev gave me an evil grin and said: 
 
- "Make sure that you bring your very good friend." Report_Story #4 
+ "Make sure that you bring your very good friend."  
 
  
 
@@ -1150,7 +1150,7 @@
 
  "It is personal between your mother and me." 
 
- "Balder-hockey! I've already told you that I'm going to haunt you until I find out and I am one very persistent female." Report_Story #5 
+ "Balder-hockey! I've already told you that I'm going to haunt you until I find out and I am one very persistent female."  
 
  
 
@@ -1448,7 +1448,7 @@
 
  Knowing Bev as well as I did I knew what I was going to find when Jess and I got to her place for the barbecue and sure enough Mickey was there with some guy and Nancy and her date showed up about ten minutes after Jess and I got there. 
 
- "Why do you do this to me" I asked Bev and Rich when I got them alone. Rich just shrugged and pointed at Bev and she said, "Because I know, even if you don't, that you and Mickey belong together. And if I can't make it happen the second best girl for you would be Nancy." Report_Story #6 
+ "Why do you do this to me" I asked Bev and Rich when I got them alone. Rich just shrugged and pointed at Bev and she said, "Because I know, even if you don't, that you and Mickey belong together. And if I can't make it happen the second best girl for you would be Nancy."  
 
  
 
@@ -1738,7 +1738,7 @@
 
  The next two years went by in a rush. The first six months were taken up in setting up the dealership and getting the service department up and running smoothly. 
 
- I found an apartment fairly close to work and it had a pool and an exercise room so I was pretty much set. There were several single girls who lived in the complex and I met quite a few of them in the exercise room and around the pool. I dated a few of them, bedded a couple, but never found one that made me want to pursue her. There were five women working at the dealership; three married and two single and I did date both of the single ones, but again, no spark that made me want to develop anything long term. Report_Story #7 
+ I found an apartment fairly close to work and it had a pool and an exercise room so I was pretty much set. There were several single girls who lived in the complex and I met quite a few of them in the exercise room and around the pool. I dated a few of them, bedded a couple, but never found one that made me want to pursue her. There were five women working at the dealership; three married and two single and I did date both of the single ones, but again, no spark that made me want to develop anything long term.  
 
  
 

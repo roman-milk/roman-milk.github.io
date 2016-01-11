@@ -246,7 +246,7 @@
 
  "I was so mad when I broke it off with you that I swore off men altogether and buried my self in school work. Maybe three months after graduation I was at a party and one of the guys asked me why he hadn't seen me with you in a while and I told him. He told me that you had been the only one at the party that had stayed away from the stripper. I wasn't sure I believed him so I looked up a couple of the other guys that had been there that night and got the same story from them. I knew then that I had screwed up big time and I went looking for you so I could crawl back and beg you to forgive me, but you were gone and no one seemed to know where. 
 
- "I went to work as a systems administrator and one night on my way home from work I got into an accident and I needed to call a cab because my car had to be towed and the Top Hat was the only place around that was open. While I was there I decided to have a drink before calling a cab. I had three and suddenly I started crying. Watching the strippers reminded me of how I'd lost you. Marta came up and sat down with me and asked me what was wrong and I'd had just enough to drink to blubber out the whole story. I blamed strippers for ruining my life and Marla talked and talked with me until she had convinced me that there was a big difference between a whore who danced and a dancer who stripped. Then she talked me into trying it. I tried it and I liked it. I couldn't believe how much money I made that night. Since then it has been computers during the day and dancing five days a week for Marta." Report_Story #2 
+ "I went to work as a systems administrator and one night on my way home from work I got into an accident and I needed to call a cab because my car had to be towed and the Top Hat was the only place around that was open. While I was there I decided to have a drink before calling a cab. I had three and suddenly I started crying. Watching the strippers reminded me of how I'd lost you. Marta came up and sat down with me and asked me what was wrong and I'd had just enough to drink to blubber out the whole story. I blamed strippers for ruining my life and Marla talked and talked with me until she had convinced me that there was a big difference between a whore who danced and a dancer who stripped. Then she talked me into trying it. I tried it and I liked it. I couldn't believe how much money I made that night. Since then it has been computers during the day and dancing five days a week for Marta."  
 
  
 
@@ -294,7 +294,7 @@
 
  "Okay. You can take me to dinner tonight and we will see if you can still say that." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -466,7 +466,7 @@
 
  As I drifted off to an exhausted sleep I thought she was just commenting on her sluttish behavior of the last two Sundays. Two weeks later I found out that I didn't know the half of it. 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 

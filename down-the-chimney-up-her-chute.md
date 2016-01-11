@@ -198,7 +198,7 @@
 
  "That's it." she coaxed, "Fill me with that Christmas spirit. Give me those children you've been desperate to have." She came along with him, as she held his head tightly in her hands. After a minute, he rolled off of her, worn out from fucking this whore. What he just did ran through his head. He cheated on his wife! And it was with some whore off of the 'Naughty' list. What had he done? He had to get out of there. He rolled off the bed. 
 
- "I need to go." he mumbled. Report_Story #2 
+ "I need to go." he mumbled.  
 
  
 

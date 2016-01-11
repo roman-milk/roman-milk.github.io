@@ -126,7 +126,7 @@
 
  Sighing at the sheer pleasure of it, I then lowered myself on top of her and rested on my elbows. I might be many things, some less than savoury if you like, but you can't say I'm not a fucking gentleman when it comes to the lady's comfort. 
 
- "You love it, eh?" I moaned, staring into Avril's eyes as I began to move. "You might deny it, Avril, but I know you fucking love it really." My chest squashed Avril's breasts as I pressed closer to her. "Merry Christmas," I gasped, thrusting deep. I pressed my lips to hers and slid my tongue into her mouth. Despite the fresh dose I'd just injected into her Avril mumbled something and actually moved against me. Report_Story #2 
+ "You love it, eh?" I moaned, staring into Avril's eyes as I began to move. "You might deny it, Avril, but I know you fucking love it really." My chest squashed Avril's breasts as I pressed closer to her. "Merry Christmas," I gasped, thrusting deep. I pressed my lips to hers and slid my tongue into her mouth. Despite the fresh dose I'd just injected into her Avril mumbled something and actually moved against me.  
 
  
 
@@ -272,7 +272,7 @@
 
  "Come on then, wanker," I growled at him. "Go for it." 
 
- He actually considered it, I saw it in his expression, he, just for a second, thought about swinging the bat. But there was just too much distance between us for him to get a good hit. And even though my grip on the pistol wasn't all that firm, and despite the fact that the muzzle of the shooter described wavering circles as I held it up and out towards him, the bore of the fucker must've looked as big as a cannon to Tom as he faced the nasty black hole at the business end. Report_Story #3 
+ He actually considered it, I saw it in his expression, he, just for a second, thought about swinging the bat. But there was just too much distance between us for him to get a good hit. And even though my grip on the pistol wasn't all that firm, and despite the fact that the muzzle of the shooter described wavering circles as I held it up and out towards him, the bore of the fucker must've looked as big as a cannon to Tom as he faced the nasty black hole at the business end.  
 
  
 

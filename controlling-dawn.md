@@ -98,7 +98,7 @@
 
  Dawn never suspected anything was wrong. She followed the young woman down the hallway and into Brenda's hotel room. Brenda proceeded across the room until she reached the bed and then she turned around. Dawn sensed the woman's unspoken desire for her to be nearby, so she slowly walked over to Brenda. They abruptly fell into each other's arms and once again Dawn could not resist the strong temptation to embrace her newfound friend. 
 
- If Brenda knew about the cameras positioned in the room, she never let on. Ray mentioned he was going to record the affair, but Brenda never considered what that meant. All she knew was that he rented the adjourning room and that he would stay in it during the probable seduction. Ray placed three small cameras around the room and hid them so well a person couldn't tell where they were. All three were focused on the bed, as Ray knew that was where all of the action would be. It was easy for him to feed the camera signals into the adjourning room so he could record everything on his laptop. Report_Story #2 
+ If Brenda knew about the cameras positioned in the room, she never let on. Ray mentioned he was going to record the affair, but Brenda never considered what that meant. All she knew was that he rented the adjourning room and that he would stay in it during the probable seduction. Ray placed three small cameras around the room and hid them so well a person couldn't tell where they were. All three were focused on the bed, as Ray knew that was where all of the action would be. It was easy for him to feed the camera signals into the adjourning room so he could record everything on his laptop.  
 
  
 
@@ -216,7 +216,7 @@
 
  The feeling in the room was eerie, as everyone was affected in a different way. Dawn continued staring at the screen and she wondered if there was an easy solution to her dilemma. Ray promptly poured everyone a drink and then he turned off the lights, trying to improve the mood. He left the two women sitting on the sofa and the television emitted the only light, which left a very serene affect in the room. 
 
- Ray had outlined his plan to Brenda in great detail and now it was her queue to act. He left what happened entirely up to his girlfriend and his only demand was that the two women have sex so he could watch. When Ray shoved the drinks into their hands, Dawn and Brenda immediately drained the glasses. It was sort of a mutual feeling that they needed to relax and a nice, stiff drink seemed like the perfect remedy for their nervousness. Ray refilled the glasses and then he drifted off the side in an effort to remove any stress or pressure on the women. Report_Story #3 
+ Ray had outlined his plan to Brenda in great detail and now it was her queue to act. He left what happened entirely up to his girlfriend and his only demand was that the two women have sex so he could watch. When Ray shoved the drinks into their hands, Dawn and Brenda immediately drained the glasses. It was sort of a mutual feeling that they needed to relax and a nice, stiff drink seemed like the perfect remedy for their nervousness. Ray refilled the glasses and then he drifted off the side in an effort to remove any stress or pressure on the women.  
 
  
 
@@ -332,7 +332,7 @@
 
  "Thought what? That you weren't going to suck some cock," Ray replied. "I want both of you to be porno stars." 
 
- "But... but." This time it was Brenda's turn to look at Dawn for some kind of intervention. Both women knew they were powerless to stop Ray, yet it gave them solace knowing they continued to fight. Dawn watched the couple make their way down three rows and then sit beside a male patron. She noticed how Ray whispered in the man's ear and seemed to assure the man that his dreams had come true. Report_Story #4 
+ "But... but." This time it was Brenda's turn to look at Dawn for some kind of intervention. Both women knew they were powerless to stop Ray, yet it gave them solace knowing they continued to fight. Dawn watched the couple make their way down three rows and then sit beside a male patron. She noticed how Ray whispered in the man's ear and seemed to assure the man that his dreams had come true.  
 
  
 
@@ -462,7 +462,7 @@
 
  The sight of the sharp teeth holding the delicate, pink morsel was priceless. Nobody moved or nobody breathed when Brenda pulled on the clitty and stretched it outward like a thick elastic band. When the goddess cried, the crowd cried out loud. They cheered, as the rapist used her fingers like a weapon, and fucked the helpless woman. It was an orgasm they would all remember, especially when their coveted friend joined the fray. 
 
- Ray couldn't miss a glorious opportunity to display his control. He was like a cat sneaking into the room, as he hovered next to the bed. He leaned close to Dawn and put his face next to hers. "Can you hear them? They all want the pretty slut to get fucked by her young mistress." Report_Story #5 
+ Ray couldn't miss a glorious opportunity to display his control. He was like a cat sneaking into the room, as he hovered next to the bed. He leaned close to Dawn and put his face next to hers. "Can you hear them? They all want the pretty slut to get fucked by her young mistress."  
 
  
 
@@ -500,7 +500,7 @@
 
  ***THE END OF CHAPTER ONE 
 
- I plan for at least one more chapter reenacting more of my erotic stories. Brenda started me on this trail of erotic bliss and I thank her for giving me the inspiration. Report_Story #1 
+ I plan for at least one more chapter reenacting more of my erotic stories. Brenda started me on this trail of erotic bliss and I thank her for giving me the inspiration.  
 
  
 
@@ -634,7 +634,7 @@
 
  The glorious task made everyone hot except Dawn who stared straight ahead in great uncertainty, wondering how she would ever explain the sudden shaved appearance. Her neatly trimmed bush slowly disappeared. Dawn would never understand her inflamed emotions, which seemed to increase each time Doug moved the razor. The heightened tension filled her entire body and her flesh seemed to get hotter and hotter. Then Doug's fingers groped the narrow space between her legs and she was unable to prevent his finger from lingering on the tip of her raised slit. 
 
- There were so many things Dawn would remember, but none more than what happened next. Ray tilted her head up so she could witness a seduction of a lifetime. Her legs were lewdly splayed to the sides and Doug's grinning face was between them. Dawn wasn't the type of woman to look at herself during sex yet suddenly she stared at her crotch in disbelief. Her entire clitoris lay exposed to the world, as Doug's fingers spread the puffy labia. Doug's face was mere inches from her overheated flesh and his tongue lashed out in a flicking motion. Report_Story #2 
+ There were so many things Dawn would remember, but none more than what happened next. Ray tilted her head up so she could witness a seduction of a lifetime. Her legs were lewdly splayed to the sides and Doug's grinning face was between them. Dawn wasn't the type of woman to look at herself during sex yet suddenly she stared at her crotch in disbelief. Her entire clitoris lay exposed to the world, as Doug's fingers spread the puffy labia. Doug's face was mere inches from her overheated flesh and his tongue lashed out in a flicking motion.  
 
  
 
@@ -750,7 +750,7 @@
 
  "Well my sexy babysitter. Do you want it now? Do you want Bobby's big cock?" Ray's sudden outburst made her jump, but she remained in his arms. "Are you going to cream just like Sarah in your story?" 
 
- There was no stopping the overly aroused teenagers. Suddenly Ray shoved her across the floor and closer to the sofa. He kept pushing her, as he deviously finished stripping her blouse and bra, leaving her wearing only the well- stretched thong. Dawn struggled against the move, but step-by-step she drew closer to the teenagers. "Oh gawd, Ray, you can't." Report_Story #3 
+ There was no stopping the overly aroused teenagers. Suddenly Ray shoved her across the floor and closer to the sofa. He kept pushing her, as he deviously finished stripping her blouse and bra, leaving her wearing only the well- stretched thong. Dawn struggled against the move, but step-by-step she drew closer to the teenagers. "Oh gawd, Ray, you can't."  
 
  
 
@@ -914,7 +914,7 @@
 
  Out of nowhere, Ray's voice sounded. "Now you're being a good girl. A very good girl!" Ray whispered. "Keep looking into the camera and show everyone how a slut acts when she gets fucked by a boy." 
 
- Dawn blinked many times and tried to focus on the small camera in Brenda's hands. She realized her breathing had become very uneven and ragged, but she hoped that would not be evident. It was probably the hardest thing she'd ever done. She remained on her knees with a teenage cock planted so deep inside her womanhood that there was no mercy and she pretended nothing was happening. Her eyes glazed over as she uttered one more plea. "Stop, please make him stop." Report_Story #4 
+ Dawn blinked many times and tried to focus on the small camera in Brenda's hands. She realized her breathing had become very uneven and ragged, but she hoped that would not be evident. It was probably the hardest thing she'd ever done. She remained on her knees with a teenage cock planted so deep inside her womanhood that there was no mercy and she pretended nothing was happening. Her eyes glazed over as she uttered one more plea. "Stop, please make him stop."  
 
  
 

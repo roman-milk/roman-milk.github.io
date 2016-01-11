@@ -210,7 +210,7 @@
 
  "Because you called attention to yourself when you called me a racist. You would have been much better off keeping your mouth shut white boy, much, much better off." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 

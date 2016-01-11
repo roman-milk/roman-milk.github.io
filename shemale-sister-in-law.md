@@ -386,7 +386,7 @@
 
  "Yes, I want to see my wife suck your cock," I admitted. 
 
- Amanda smiled and said, "Watch, cocksucker, you're next." Report_Story #2 
+ Amanda smiled and said, "Watch, cocksucker, you're next."  
 
  
 

@@ -280,7 +280,7 @@
 
  Heather looked at her friend in amazement. "Wow. Do you like it." 
 
- Lynn looked almost in tears. "I hate it." She heaved a big sigh. "I love it." Report_Story #2 
+ Lynn looked almost in tears. "I hate it." She heaved a big sigh. "I love it."  
 
  
 
@@ -610,7 +610,7 @@
 
  "Turn over," he told her. He barely recognized his own voice. 
 
- Heather released his cock, and did as commanded. She lay across his legs, the small of her back centered between his open legs. Blatantly, she reached for his cock again, holding it firmly. Report_Story #3 
+ Heather released his cock, and did as commanded. She lay across his legs, the small of her back centered between his open legs. Blatantly, she reached for his cock again, holding it firmly.  
 
  
 
@@ -932,7 +932,7 @@
 
  "As long as you obey, fuckwad. Now sit." 
 
- By this time Heather was nearly naked. Lynn used the clothing and Harold's belt to tie him down. She looked up and Jeff passed her his own belt, "Here, for his other foot." Report_Story #4 
+ By this time Heather was nearly naked. Lynn used the clothing and Harold's belt to tie him down. She looked up and Jeff passed her his own belt, "Here, for his other foot."  
 
  
 

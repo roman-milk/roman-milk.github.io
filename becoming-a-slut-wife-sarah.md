@@ -128,7 +128,7 @@
 
  What was it that she didn't know about herself? What was it that Brian saw when he looked at her? He had known she wouldn't cry rape when he did what he did. He somehow looked at her and knew she would be his willing slut. How could he have possibly known she wouldn't run straight to Tim and tell him what happened. How could he have been so sure that she wouldn't call the police? Well she hadn't done any of those things had she. All she had done was spread her legs wide and open her mouth for him. And it seemed that she was going to continue doing it. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -296,7 +296,7 @@
 
  "Bingo" he said, "Your expression tells me that I hit the nail right on the head. Come on Sarah, two weeks, just give me two weeks. Look at it this way. Tim is gone, you love cock so if you don't give me the two weeks you will have to go without for two weeks. You don't want that do you? Think about it Sarah. I'll give you call on Monday when Tim is on his flight." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -488,7 +488,7 @@
 
  "Spoil sport" Jenny said as she turned and left the room." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -634,7 +634,7 @@
 
  "Call me, we'll see." 
 
- To be continued. Report_Story #1 
+ To be continued.  
 
  
 
@@ -866,7 +866,7 @@
 
  "Okay Brian, we have a deal." 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -1204,7 +1204,7 @@
 
  "Damn it Sarah, why do you keep after me about that? You know that I think that is disgusting and perverted." 
 
- "I keep trying Tim because I want to see what it is like. I may not even like it, but I'll never know if I don't try it. It would be perfect for times like this when I'm on the rag and it is automatic birth control. I wouldn't even have to put in my diaphragm." Report_Story #2 
+ "I keep trying Tim because I want to see what it is like. I may not even like it, but I'll never know if I don't try it. It would be perfect for times like this when I'm on the rag and it is automatic birth control. I wouldn't even have to put in my diaphragm."  
 
  
 

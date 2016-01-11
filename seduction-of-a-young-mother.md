@@ -164,7 +164,7 @@
 
  "Don't be silly. I've looked forward to spending time with my dearest friend and getting to know her better," Darlene said and acted like she was escorting Sharon out of the restaurant. "The driver said he was waiting for us out front. Guess he really wants to drive us." 
 
- They were outside and in the taxi before Sharon could utter any more protests. Darlene didn't care if the driver got an eyeful. She jumped in first and didn't give Sharon much room, as the cabby pulled away. Not a word was said, as Darlene kissed her lover on the eyes, on the nose and then hard on the mouth. She pinned Sharon in the corner of the car's backseat and acted like an out of control teenager. Report_Story #2 
+ They were outside and in the taxi before Sharon could utter any more protests. Darlene didn't care if the driver got an eyeful. She jumped in first and didn't give Sharon much room, as the cabby pulled away. Not a word was said, as Darlene kissed her lover on the eyes, on the nose and then hard on the mouth. She pinned Sharon in the corner of the car's backseat and acted like an out of control teenager.  
 
  
 
@@ -364,7 +364,7 @@
 
  "Sweet fuck, yes, you're the best. Fuck me... fuck me!" 
 
- Nobody had ever treated her like a whore and Sharon desperately knew she should protest, yet her body seemed out of control. When her hips started vibrating, her guts exploded. Suddenly she was pressed up against the wall and she had to turn her face. The vast cream flowed and intense convulsions erupted in her belly. "Gaaawww, gaaawwwkkk." Report_Story #3 
+ Nobody had ever treated her like a whore and Sharon desperately knew she should protest, yet her body seemed out of control. When her hips started vibrating, her guts exploded. Suddenly she was pressed up against the wall and she had to turn her face. The vast cream flowed and intense convulsions erupted in her belly. "Gaaawww, gaaawwwkkk."  
 
  
 
@@ -582,7 +582,7 @@
 
  Darlene pinned the timid woman on the sofa and she was determined to demonstrate who was in control. She let go of the arm and hair and literally ripped off Sharon's bra. Then she slumped over and leaned on top of the bare back, as her hands slithered under the heaving chest. "Oh, my love, you have the nicest tits," she stated and grabbed both boobs. "I wish I had nipples as big and hard as you." 
 
- Sharon tried to protest, but it was futile. She was face down on the sofa and then she heard sounds of intruders. There was hustling and bustling all around her and she felt someone grab the waistband of her loosened pants. She sucked in as much air as she could, as fear took over, and then she felt cool air all over her lower extremities. Report_Story #4 
+ Sharon tried to protest, but it was futile. She was face down on the sofa and then she heard sounds of intruders. There was hustling and bustling all around her and she felt someone grab the waistband of her loosened pants. She sucked in as much air as she could, as fear took over, and then she felt cool air all over her lower extremities.  
 
  
 
@@ -786,7 +786,7 @@
 
  Suddenly Sharon couldn't move and she felt something ominous and threatening. Darlene's skilled fingers had dipped into her crotch and the woman had a firm grip on the exposed clitoris. Sharon felt her clitty yanked out of the swollen pussy-lips and the bud was being twirled around furiously by Darlene's fingertips. Her back arched, but she couldn't get away from either the embedded cock or the fingers. 
 
- Darlene leaned forward and put her lips next to the Sharon's ear. "My love, we get to watch you again. I love watching you cum all over Ken's cock," she whispered and kissed the side of Sharon's rosy cheek. Report_Story #5 
+ Darlene leaned forward and put her lips next to the Sharon's ear. "My love, we get to watch you again. I love watching you cum all over Ken's cock," she whispered and kissed the side of Sharon's rosy cheek.  
 
  
 

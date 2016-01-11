@@ -192,7 +192,7 @@
 
  "Well, get started," urged Asshole Boyfriend; the fucker who was pimping my daughter. 
 
- Guys stepped up to her face and pussy and immediately began grinding their fucks into her front and back. Her sweaty body moved in time with the action and her tight muscles coiled like serpents beneath her glossy flesh as she accepted one fuck after another. She seemed to struggle as she realized they were shooting their loads into her pussy, but she was secured tightly and she could do nothing but accept all of the jism being poured into her. I watched in mute agony as I watched one old creep after another step up to use my little girl as a cum dumpster. Report_Story #2 
+ Guys stepped up to her face and pussy and immediately began grinding their fucks into her front and back. Her sweaty body moved in time with the action and her tight muscles coiled like serpents beneath her glossy flesh as she accepted one fuck after another. She seemed to struggle as she realized they were shooting their loads into her pussy, but she was secured tightly and she could do nothing but accept all of the jism being poured into her. I watched in mute agony as I watched one old creep after another step up to use my little girl as a cum dumpster.  
 
  
 

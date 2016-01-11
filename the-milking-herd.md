@@ -130,7 +130,7 @@
 
  The excitement grew, as they all knew what was about to happen to them. She leant forward to greedily pull the feeding nozzle into her mouth and sucked on it. The cups holding her huge breasts began to throb. The inner cups pulled strongly on the nipples. Cheryl felt the vibrators start up eliciting an excited animal like grunt. 
 
- The wonderful machine took her over. It had her whole body under its control. It would make her have a tremendous orgasm, and it would last for ages. It could keep her going, until it almost hurt. The feeling of contentment would last until the next time, and so it would begin, all over again. Report_Story #1 
+ The wonderful machine took her over. It had her whole body under its control. It would make her have a tremendous orgasm, and it would last for ages. It could keep her going, until it almost hurt. The feeling of contentment would last until the next time, and so it would begin, all over again.  
 
  
 
@@ -330,7 +330,7 @@
 
  Out of the corner of her eye she saw him leave. Left alone there was nothing to do, except wonder what was happening. She knew of course, yet it was difficult to accept. Why had she given into this? She lifted her head to see white fluid flowing along a clear plastic tube. 
 
- It was her milk! She concentrated on the pulsing of her breasts. One then the other was being squeezed. Her nipples felt as though they were being drawn out longer and longer. It was a pleasant sensation. It felt as though a baby was sucking hungrily on her teats. Report_Story #2 
+ It was her milk! She concentrated on the pulsing of her breasts. One then the other was being squeezed. Her nipples felt as though they were being drawn out longer and longer. It was a pleasant sensation. It felt as though a baby was sucking hungrily on her teats.  
 
  
 
@@ -518,7 +518,7 @@
 
  They were considerate too. They kept a small nozzle up her ass, so as to keep it tight. It still gave her a good cleaning enema each morning. 
 
- Suddenly she realised today was a special day! She was to be exercised in the yard. She lifted her head to moan a happy cow sound. She really was a happy, contented cow. Report_Story #1 
+ Suddenly she realised today was a special day! She was to be exercised in the yard. She lifted her head to moan a happy cow sound. She really was a happy, contented cow.  
 
  
 
@@ -734,7 +734,7 @@
 
  As he slowly walked passed he recognised the milker, it was his wife. The ecstasy of an orgasm screwed up her features, and she groaned loudly. What could he say? "Pull your cock out of my wife, before you cum!" From that moment on, he let things go. Trying to find an alternative drug to prevent the side effects was abandoned. He accepted the milkers were cattle, and would be treated all the same, whoever they had been. 
 
- What he told Jenny was the truth, it hadn't been planned, it just turned out this way. He looked along the rows of stalls with pride. They had forty milkers at the moment, and were still recruiting. Report_Story #1 
+ What he told Jenny was the truth, it hadn't been planned, it just turned out this way. He looked along the rows of stalls with pride. They had forty milkers at the moment, and were still recruiting.  
 
  
 
@@ -932,7 +932,7 @@
 
  Joshua's explanations became meaningless, as they turned into a resonant sound, reaching into her subconscious. She slowly sank to her knees, and he guided her further along, to an open stall. For a moment she resisted, with the last vestiges of her free will rejecting the idea of becoming a human cow. 
 
- He prodded her bottom, and she crawled forward. Janet shook in fear, as he cut away her clothes. Her head felt heavy, and it drooped down, looking as though she accepted her demise. He fitted a feeding teat into her mouth, and secured the straps around the back of her head. Report_Story #2 
+ He prodded her bottom, and she crawled forward. Janet shook in fear, as he cut away her clothes. Her head felt heavy, and it drooped down, looking as though she accepted her demise. He fitted a feeding teat into her mouth, and secured the straps around the back of her head.  
 
  
 

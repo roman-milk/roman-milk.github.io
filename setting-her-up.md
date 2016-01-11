@@ -154,7 +154,7 @@
 
  "We are here to see you, not Barry. We have a proposition for you." 
 
- "A proposition? What kind of a proposition?" Report_Story #2 
+ "A proposition? What kind of a proposition?"  
 
  
 

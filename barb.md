@@ -34,7 +34,7 @@
 
  For the next week Thad and I fucked everyday, but I am by nature an honest person and I knew I was going to have to put a stop to our little affair and to tell my husband and beg forgiveness. Friday night at the dinner table I looked my husband in the eye and said, "Danny, how strong is our marriage?" He gave me a strange look and I took a deep breath and told him the whole story. When I had finished he sat there with a little smile on his face. 
 
- How strong is my marriage? Thad called an hour ago and he should be here in about ten minutes. And my hubby? He's in the closet waiting. Report_Story #1 
+ How strong is my marriage? Thad called an hour ago and he should be here in about ten minutes. And my hubby? He's in the closet waiting.  
 
  
 
@@ -230,7 +230,7 @@
 
  "Oh? I guess that explains it and makes it all right." 
 
- "Look baby, I love you and I've never wanted to hurt you and I don't want to hurt you now, but I have to be honest here if I'm to have any chance at saving my marriage. I'm fucking Jeff because he gives me something you don't. You are a beautiful man, a fantastic husband in every way but one. You are lousy in bed. You are tender and affectionate, but you don't seem to care at all about sex. Tuesday and Saturday, regular as clock work, one time and then you roll over and go to sleep leaving me to get up and go to the bathroom and masturbate to get myself off. I need more than that. Report_Story #2 
+ "Look baby, I love you and I've never wanted to hurt you and I don't want to hurt you now, but I have to be honest here if I'm to have any chance at saving my marriage. I'm fucking Jeff because he gives me something you don't. You are a beautiful man, a fantastic husband in every way but one. You are lousy in bed. You are tender and affectionate, but you don't seem to care at all about sex. Tuesday and Saturday, regular as clock work, one time and then you roll over and go to sleep leaving me to get up and go to the bathroom and masturbate to get myself off. I need more than that.  
 
  
 

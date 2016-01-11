@@ -240,7 +240,7 @@
 
  I walked right by her without saying a word, got in my car and drove off to find a motel room. 
 
- Later the following week Harry told me as soon as I walked out Toni lit into Marsha for bringing her to a party where Marsha knew I would be and that was the first that any of them knew that Toni was my wife. I understand that the two of them haven't spoken to each other since. Report_Story #2 
+ Later the following week Harry told me as soon as I walked out Toni lit into Marsha for bringing her to a party where Marsha knew I would be and that was the first that any of them knew that Toni was my wife. I understand that the two of them haven't spoken to each other since.  
 
  
 

@@ -202,7 +202,7 @@
 
  "Well," Angus said, stepping neatly in to fill the silence that followed. "You're on holiday, right?" He shrugged and pursed his lips, forming a moue intended to convey understanding. "It was a party, you had a couple too many. It happens." 
 
- "But spewing all over the place ... And then just running off..." She let out a sigh. "Anyway, Julia saw you sitting here ... I've been trying to find the courage to go over to your place to apologise but I was just too embarrassed ... She saw you and said you were here and I just thought to hell with it ... So, here I am." An awkward pause followed by another shrug. "Okay, well ... uhm ... sorry." Report_Story #2 
+ "But spewing all over the place ... And then just running off..." She let out a sigh. "Anyway, Julia saw you sitting here ... I've been trying to find the courage to go over to your place to apologise but I was just too embarrassed ... She saw you and said you were here and I just thought to hell with it ... So, here I am." An awkward pause followed by another shrug. "Okay, well ... uhm ... sorry."  
 
  
 
@@ -458,7 +458,7 @@
 
  "I wanted it to be me," April said, her hand working at the root of his cock. 
 
- Angus winced and gasped while April cranked at him, his palm sliding from the smooth curve of her hip, the hand moving under the bunched material of the yellow dress, fingertips finding April's bra. Report_Story #3 
+ Angus winced and gasped while April cranked at him, his palm sliding from the smooth curve of her hip, the hand moving under the bunched material of the yellow dress, fingertips finding April's bra.  
 
  
 
@@ -698,7 +698,7 @@
 
  April's eager voice interrupted him: "Out again, Angus. Slide it out." The blonde breathed a satisfied sigh, a delighted chuckle snickering out of her when Angus complied. "Faster," she gasped, "just a little. Go faster, Angus." 
 
- He eased out again, stunned by the sight of his dick penetrating April/s body. It was odd, seeing his cock in that place. It had no right being there. He should be able to see April's sphincter in that position, his hard-on should be in her pussy, not stuffed into her rectum. He looked enormous, the first inches all packed into that dark cavern. Report_Story #4 
+ He eased out again, stunned by the sight of his dick penetrating April/s body. It was odd, seeing his cock in that place. It had no right being there. He should be able to see April's sphincter in that position, his hard-on should be in her pussy, not stuffed into her rectum. He looked enormous, the first inches all packed into that dark cavern.  
 
  
 

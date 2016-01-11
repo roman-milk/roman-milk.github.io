@@ -330,7 +330,7 @@
 
  The next one had Kara kissing one of her feet, while Janice kissed the other. 
 
- The next one had Kara between her legs while Janice sucked on her tits. Report_Story #2 
+ The next one had Kara between her legs while Janice sucked on her tits.  
 
  
 
@@ -788,7 +788,7 @@
 
  She again didn't look up, didn't want to look at me, and didn't want to allow me to see her as she gave in. She whispered, as she moved her hand to my cock, "I can't believe you're making me do this." 
 
- I considered responding I wasn't making her do anything, but then I wasn't sure if that was the truth anymore. I wasn't sure if the blackmail helped or if it was simply the size of my cock, but after a brief pause, she slowly leaned forward and took my cock in her mouth. Report_Story #3 
+ I considered responding I wasn't making her do anything, but then I wasn't sure if that was the truth anymore. I wasn't sure if the blackmail helped or if it was simply the size of my cock, but after a brief pause, she slowly leaned forward and took my cock in her mouth.  
 
  
 
@@ -1000,7 +1000,7 @@
 
  Cheerleader Sluts: Mom Too (Mom) 
 
- Cheerleader Sluts: Sweetheart (Janice) Report_Story #1 
+ Cheerleader Sluts: Sweetheart (Janice)  
 
  
 
@@ -1400,7 +1400,7 @@
 
  For a couple of minutes we kissed tenderly, a complete contrast to the recent, urgent, aggressive fucking. 
 
- Breaking the kiss, I asked, "Do you think you can have Sophia here in a couple of hours?" Report_Story #2 
+ Breaking the kiss, I asked, "Do you think you can have Sophia here in a couple of hours?"  
 
  
 
@@ -1886,7 +1886,7 @@
 
  I handed her her shirt and she used it to wipe the abundance of cum all over her. 
 
- When she finally opened her eyes, she saw the video camera and the phones, and she snapped, "Really?" Report_Story #3 
+ When she finally opened her eyes, she saw the video camera and the phones, and she snapped, "Really?"  
 
  
 

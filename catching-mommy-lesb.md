@@ -494,7 +494,7 @@
 
  Sarah: Thank you Mistress. 
 
- What the fuck? Fucking me too? This was getting past the point of ridiculous. I could feel my cheeks getting red with anger; how dare that bitch use my mother to get to me! That was the last chat. I went back to her e-mails and the first one was dated a couple of days later. Report_Story #2 
+ What the fuck? Fucking me too? This was getting past the point of ridiculous. I could feel my cheeks getting red with anger; how dare that bitch use my mother to get to me! That was the last chat. I went back to her e-mails and the first one was dated a couple of days later.  
 
  
 
@@ -716,7 +716,7 @@
 
  The End 4 Now.... 
 
- Coming Soon: Catching Mommy: Blackmailing a MILF (Victoria blackmails Olivia's Mom!!!) Report_Story #1 
+ Coming Soon: Catching Mommy: Blackmailing a MILF (Victoria blackmails Olivia's Mom!!!)  
 
  
 
@@ -1046,7 +1046,7 @@
 
  "Now, slut!" I demanded. 
 
- She nervously, pulled down her pantyhose and knickers and began frigging herself. She closed her eyes and I began taping again. In seconds her last signs of dignity faded as her moans and desire to come took over her body. It was easily the most dignified orgasm ever as she bit her lip and let out a lengthy whimper, clearly trying not to scream like her body desperately wanted to. Report_Story #2 
+ She nervously, pulled down her pantyhose and knickers and began frigging herself. She closed her eyes and I began taping again. In seconds her last signs of dignity faded as her moans and desire to come took over her body. It was easily the most dignified orgasm ever as she bit her lip and let out a lengthy whimper, clearly trying not to scream like her body desperately wanted to.  
 
  
 
@@ -1072,7 +1072,7 @@
 
  The End 4 Now... 
 
- Coming Soon: Catching Mommy: Creating a Slut Report_Story #1 
+ Coming Soon: Catching Mommy: Creating a Slut  
 
  
 
@@ -1464,7 +1464,7 @@
 
  Again there was no hesitation as she leaned up and dove into my cunt. It was amazing how someone so dignified and self-righteous in public could simply be a submissive dyke underneath that pretentious façade. It was also amazing how good a cunt licker she was. Her tongue teased and pleased my clit like no one else ever had. She had my cunt on fire in seconds and licked me with such expertise I was in awe of her. I closed my eyes and moaned, "Yes Mommy, lick my cunt," again imagining it was not my arch-enemy's mother between my legs, but my own. 
 
- The twisted fantasy, mixed with the aggressive pleasing of the pretty MILF had me on the brink in a few minutes. Grabbing her perfect hair, I pulled her into my cunt and bucked my hips up and down, literally fucking her face. To her credit, she continued licking, even as she struggled to breathe. Report_Story #2 
+ The twisted fantasy, mixed with the aggressive pleasing of the pretty MILF had me on the brink in a few minutes. Grabbing her perfect hair, I pulled her into my cunt and bucked my hips up and down, literally fucking her face. To her credit, she continued licking, even as she struggled to breathe.  
 
  
 
@@ -1502,7 +1502,7 @@
 
  The End 4 Now.... 
 
- Coming Soon: Catching Mommy: Daughter Domme Report_Story #1 
+ Coming Soon: Catching Mommy: Daughter Domme  
 
  
 
@@ -1884,7 +1884,7 @@
 
  The End 4 Now... 
 
- Coming In 2013: Catching Mommy: Evening the Score Report_Story #1 
+ Coming In 2013: Catching Mommy: Evening the Score  
 
  
 
@@ -2228,7 +2228,7 @@
 
  "Now go get dressed up in the cheerleading outfit, I am curious to see what you look like dressed as a slutty teenager," I quipped. 
 
- "Just like you, I imagine," my Mom quipped right back, her usual wit suddenly back. Report_Story #2 
+ "Just like you, I imagine," my Mom quipped right back, her usual wit suddenly back.  
 
  
 
@@ -2572,7 +2572,7 @@
 
  Her tongue began licking my very wet pussy, the crazy day of sexual submission having me reaching orgasmic bliss in less than a minute. I grinded my cunt on the MILF sub's face literally fucking her face with my cunt. "Here it comes," I moaned, as I coated the slut's face with my cunt juice. 
 
- Once my orgasm subsided a minute later, I got off the defeated, exhausted, slut and ordered, "You too, get each other off, cunt to cunt. I want to see a good shagging." Report_Story #3 
+ Once my orgasm subsided a minute later, I got off the defeated, exhausted, slut and ordered, "You too, get each other off, cunt to cunt. I want to see a good shagging."  
 
  
 
@@ -2592,7 +2592,7 @@
 
  Leave your suggestions below and I will base my final chapter on whoever the readers decide. 
 
- Coming fall of 2013 (I hope): The climatic ending to the Olivia &amp; Victoria saga. Report_Story #1 
+ Coming fall of 2013 (I hope): The climatic ending to the Olivia &amp; Victoria saga.  
 
  
 
@@ -2878,7 +2878,7 @@
 
  "You can't be serious?" I asked with disdain. 
 
- "Miss Watkins, tell my pet-to-be how serious I am," Olivia instructed. Report_Story #2 
+ "Miss Watkins, tell my pet-to-be how serious I am," Olivia instructed.  
 
  
 
@@ -3144,7 +3144,7 @@
 
  I smiled internally at her witty 'never' quip, as I quickly thrust my face between her legs and into her cunt. I licked and was instantly taken aback by her taste. It was surprisingly tangy and I knew that any morning after regret and guilt would be dissipated by the reality that I would drop to my knees and lick her cunt anytime or anyplace. I was addicted. I explored her pussy lips, her clit and, eventually, my tongue darted in and out of her pussy as her moans increased. My own cunt was leaking and begging to be finished off, yet I focused on Olivia's cunt, hoping that getting her off would eventually get me off. 
 
- I have no idea how long, I licked, nibbled and explored Olivia's cunt, but her hand on the back of my head, implied she was close. I sucked her clit between my lips and heard her moan, "Don't stop, my slut." Report_Story #3 
+ I have no idea how long, I licked, nibbled and explored Olivia's cunt, but her hand on the back of my head, implied she was close. I sucked her clit between my lips and heard her moan, "Don't stop, my slut."  
 
  
 
@@ -3432,7 +3432,7 @@
 
  As the cocks left my burning, hungry holes, I felt my hair grabbed and saw that it was Katrina who was about to drag me to the couch. I tried to follow as best I could as she threw me on my back, my head bouncing off the side of the couch. Katrina ordered, "Move up so your head is resting on the top of the arm." 
 
- I quickly obeyed. Report_Story #4 
+ I quickly obeyed.  
 
  
 
@@ -3544,7 +3544,7 @@
 
  Lastly, thanks for supporting this and all my other stories through your comments, e-mails and votes. 
 
- Jasmine February 2014 Report_Story #1 
+ Jasmine February 2014  
 
  
 
@@ -3890,7 +3890,7 @@
 
  Olivia's face burned red as I sauntered past her smugly. 
 
- Before she could formulate a response, I left the washroom leaving the mother- daughter to deal with their situation the same way I had to with mine not so long ago. Report_Story #2 
+ Before she could formulate a response, I left the washroom leaving the mother- daughter to deal with their situation the same way I had to with mine not so long ago.  
 
  
 
@@ -4310,7 +4310,7 @@
 
  Looking in the review mirror, I could see Mom watching me drive away. I turned away, there was no more looking back only looking forward with one goal in mind...to avenge my mother and crush Olivia. 
 
- Accepting I couldn't do it on my own, and accepting begrudgingly I had my own weakness towards Olivia, I knew I couldn't go against her alone. Report_Story #3 
+ Accepting I couldn't do it on my own, and accepting begrudgingly I had my own weakness towards Olivia, I knew I couldn't go against her alone.  
 
  
 
@@ -4336,7 +4336,7 @@
 
  Who will win? Victoria? Olivia? Both? Neither? 
 
- These and many more questions will be answered in the exciting conclusion of the Catching Mommy series that includes cheerleaders, nerds, MILF submissives, a teacher, a maid, two teen dommes and an epic lesbian orgy coming to a computer screen, phone or ipad near you in 2014. Report_Story #1 
+ These and many more questions will be answered in the exciting conclusion of the Catching Mommy series that includes cheerleaders, nerds, MILF submissives, a teacher, a maid, two teen dommes and an epic lesbian orgy coming to a computer screen, phone or ipad near you in 2014.  
 
  
 
@@ -4658,7 +4658,7 @@
 
  Olivia was furious at the insult, but continued to play nice as she continued to think she could buy her way out of her predicament. "My dad has major connections. He can get you into any college, and on a full scholarship." 
 
- I laughed, "I have already been accepted to Harvard and Columbia on full scholarships, but thanks anyways." Report_Story #2 
+ I laughed, "I have already been accepted to Harvard and Columbia on full scholarships, but thanks anyways."  
 
  
 
@@ -5100,7 +5100,7 @@
 
  "Eleanor, make sure someone returns the favor in that sweet cunt of yours," I said. 
 
- "Shotgun," Skyler called out, making us all laugh. Report_Story #3 
+ "Shotgun," Skyler called out, making us all laugh.  
 
  
 
@@ -5148,7 +5148,7 @@
 
  Lastly, thanks for supporting this and all my other stories through your comments, e-mails and votes. 
 
- Jasmine February 2014 Report_Story #1 
+ Jasmine February 2014  
 
  
 
@@ -5448,7 +5448,7 @@
 
  Olivia slapped her ass and ordered, "Obey her with respect or you will be punished." 
 
- Again Katrina's eyes went big and I was instantly curious what kind of punishments Olivia had handed out to disobedient pets, besides the ones I already knew about that she'd given to my mother. Report_Story #2 
+ Again Katrina's eyes went big and I was instantly curious what kind of punishments Olivia had handed out to disobedient pets, besides the ones I already knew about that she'd given to my mother.  
 
  
 

@@ -72,7 +72,7 @@
 
  Brian was his name. His wife, a talkative blonde named Patty who probably had been very cute before she had her four children, was working the other side of the crowd. Brian gave me a strong, manly handshake, then he turned and daintily greeted my small, slender wife with a pleasant grin. 
 
- My Kitty has some magic about her. Men who like sluts know the look in her eye. If guys don't cheat on their wives, they probably don't know that look; but some men, the ones whom Kitty seems to be able to find in a crowded bar or gym, fixate on her instantly. Maybe it's how she shook his hand, or how she looked up at him, or how she stood or something. I don't know. I met her online, and I fell in love with her long before actually making physical contact with her. But Brian saw it, and instantly, his smile to her wasn't just friendly, it was . . . hungry. Or, so I told myself. Maybe at the time it was just my wishful thinking. Report_Story #2 
+ My Kitty has some magic about her. Men who like sluts know the look in her eye. If guys don't cheat on their wives, they probably don't know that look; but some men, the ones whom Kitty seems to be able to find in a crowded bar or gym, fixate on her instantly. Maybe it's how she shook his hand, or how she looked up at him, or how she stood or something. I don't know. I met her online, and I fell in love with her long before actually making physical contact with her. But Brian saw it, and instantly, his smile to her wasn't just friendly, it was . . . hungry. Or, so I told myself. Maybe at the time it was just my wishful thinking.  
 
  
 
@@ -188,7 +188,7 @@
 
  My slutwife knew it. "Is that your credo, Brian -- do you 'go for it,' I mean, you too only live once, right?" 
 
- He stepped closer to her, nervously looking around a second time. He'd been talking to Kitty the majority of the party, and he hoped no one was noticing. He also hoped no one -- except Kitty -- observed the throbbing erection in his jogging shorts, which is why he stood facing her, away from everyone else. "I'd like to, you know," he moaned softly, almost in a depressed tone, "sometimes when you're all grown up, it's not always so easy." Report_Story #3 
+ He stepped closer to her, nervously looking around a second time. He'd been talking to Kitty the majority of the party, and he hoped no one was noticing. He also hoped no one -- except Kitty -- observed the throbbing erection in his jogging shorts, which is why he stood facing her, away from everyone else. "I'd like to, you know," he moaned softly, almost in a depressed tone, "sometimes when you're all grown up, it's not always so easy."  
 
  
 
@@ -296,7 +296,7 @@
 
  Kitty moved her face down, brushing her nose on his cheek, and he responded as she wanted. Their lips found each other again, madly pressing together in an animal kiss, making my wife's pussy gush with delight. "Mmm, love the way you kiss, Brian. . . oh my god . . . makes me sooo wet." 
 
- Their forbidden kiss continued, the married father of four making out with my wife, as the stripping began in more earnest. Kitty reached behind herself to open her bra, which wasn't covering her small breasts anyway. Brian's hands, meanwhile, slipped down her body, stroking her smooth velvety skin, then hooking inside her panties over her hips to push them down. Kitty allowed the man to make her naked, lowering her panties to her knees, fully exposing her bald shaved twat. Brian didn't finish the job, leaving her panties at her knees, instead pushing his hand down to her pussy and rubbing her clitoris again, lightly but quickly. "Ohhh fuccckkk!" screamed my wife into his mouth, loving his playfulness. Report_Story #4 
+ Their forbidden kiss continued, the married father of four making out with my wife, as the stripping began in more earnest. Kitty reached behind herself to open her bra, which wasn't covering her small breasts anyway. Brian's hands, meanwhile, slipped down her body, stroking her smooth velvety skin, then hooking inside her panties over her hips to push them down. Kitty allowed the man to make her naked, lowering her panties to her knees, fully exposing her bald shaved twat. Brian didn't finish the job, leaving her panties at her knees, instead pushing his hand down to her pussy and rubbing her clitoris again, lightly but quickly. "Ohhh fuccckkk!" screamed my wife into his mouth, loving his playfulness.  
 
  
 
@@ -412,7 +412,7 @@
 
  ***[I love those sounds. I recalled the first time I was present when Kitty's hot, older boyfriend Kent was drilling her. It wasn't their first time together; it was the first time I was in the room too. He takes off from work sometimes to fuck her, and this one time he only had like 90 minutes for a longer lunch. He works pretty far from the house, so to maximize their time together that day, I took off from work and drove Kitty out to a motel. Kent thought it might be fun to let the husband watch him screw the hot younger wife.]*** 
 
- ***[So I was sitting on a chair facing this motel bed, where Kitty was nude on her back under him, as he guy climbed over her -- but under the covers. The bedsheet was hiding his hips, legs and ass, thus keeping secret the very thing I wanted to see. He glanced at me, whispered in Kitty's ear, and my wife shrugged then looked over at me. "David, baby," she asked me politely but with some urgency in her voice -- because Kent's big penis was primed and ready to fuck her -- "I'm sooo sorry, but, Kent, actually, just realized, he doesn't want you to watch -- you know, just changed his mind -- so, please, I'm sorry, can you, like, just, not watch us?"]*** Report_Story #5 
+ ***[So I was sitting on a chair facing this motel bed, where Kitty was nude on her back under him, as he guy climbed over her -- but under the covers. The bedsheet was hiding his hips, legs and ass, thus keeping secret the very thing I wanted to see. He glanced at me, whispered in Kitty's ear, and my wife shrugged then looked over at me. "David, baby," she asked me politely but with some urgency in her voice -- because Kent's big penis was primed and ready to fuck her -- "I'm sooo sorry, but, Kent, actually, just realized, he doesn't want you to watch -- you know, just changed his mind -- so, please, I'm sorry, can you, like, just, not watch us?"]***  
 
  
 
@@ -518,7 +518,7 @@
 
  He was laughing at her, as my wife began having another orgasm, her pussy spastically squeezing his fat dick and her body furiously riding up and down that pole. The noise level of her orgasm was unwelcome, and he tried to shush her with just his voice, "Shhh, baby!" But Kitty was going out of control, "YESSS! FUCCKKK! OHHH GOD, YESS -- BABY -- CUMMING!" 
 
- Brian had no choice -- he took his fist, stuck three fingers together, and shoved them in Kitty's mouth -- deep. Kitty laughed instantly, but opened her jaw wide, allowing Brian to fist-fuck her mouth, drowning out her screams from the subsiding orgasm. Report_Story #6 
+ Brian had no choice -- he took his fist, stuck three fingers together, and shoved them in Kitty's mouth -- deep. Kitty laughed instantly, but opened her jaw wide, allowing Brian to fist-fuck her mouth, drowning out her screams from the subsiding orgasm.  
 
  
 
@@ -638,7 +638,7 @@
 
  I was smiling ear to ear, seeing my wife's raw, fucked cunt. Her shaved lips were reddened, sore; I could see the hole was still loose; and there were globs of juices all over her lips and thighs, even her asshole. She'd not only been fucked good, but Brian squirted some good loads in her pussy too. The smell was even more amazing, I could detect not only my wife's sexy fishy pussy, but the musky, salty odor of the stud who fucked her hard too. 
 
- ***[I fucking love that smell, and that stank instantly reminded me of this one day not all that long ago. I had come home from work and found an familiar car in our driveway. It was Patrick's, one of her very steady boyfriends. He always thinks Kitty is "cheating" behind my back, so I couldn't exactly barge in and announce my arrival. Instead, to hide myself, I parked down the block, then slipped into the house through the back door. Spying on the upstairs, I detected Kitty and him in the guest room behind a shut door. Her screams of pleasure were pretty loud.]*** Report_Story #7 
+ ***[I fucking love that smell, and that stank instantly reminded me of this one day not all that long ago. I had come home from work and found an familiar car in our driveway. It was Patrick's, one of her very steady boyfriends. He always thinks Kitty is "cheating" behind my back, so I couldn't exactly barge in and announce my arrival. Instead, to hide myself, I parked down the block, then slipped into the house through the back door. Spying on the upstairs, I detected Kitty and him in the guest room behind a shut door. Her screams of pleasure were pretty loud.]***  
 
  
 
@@ -692,7 +692,7 @@
 
  ***[After Tim left to go home to his wifey, I thanked Kitty profusely for letting me watch her get laid so wonderfully, telling her that "I loved that fuck you got!" Kitty, lying in bed with cum dripping over her smallish tits and streaming out of her cunt and asshole, giggled and said, "That makes two of us!"]*** 
 
- So to me, her offer was a pretty good deal -- she satisfies her pussy's intense craving for huge cock, and I get to watch my beautiful, petite wife having a great time. What more could a loving husband want? Report_Story #1 
+ So to me, her offer was a pretty good deal -- she satisfies her pussy's intense craving for huge cock, and I get to watch my beautiful, petite wife having a great time. What more could a loving husband want?  
 
  
 
@@ -788,7 +788,7 @@
 
  Kitty stroked his huge boner up and down, making it throb at its full peak, leaking out precum from the massive mushroom-shaped head. Her eyes stared at its size, the ridges, the bulging purple veins, the thickness in her small hand that couldn't wrap all the way around it. "Oooh, Dillon, it's soooo fucking big," my lusty wife panted, "David is going to love seeing you fuck me with that huge, big cock." Looking at me, she giggled playfully. "And, David -- do you like your present -- I know you'd love to see me get fucked by Dillon's awesome, huge cock -- you know how I love big cocks!" 
 
- Her lover glanced at my half-sized cock in my hand, and he joined the conversation. "Don't you wish your cock was as big as mine, David," the guy said to me, seeing my wife's total lust for his dick, "so you could fuck your hot little wife every day like I'm gonna fuck her tonight?" Report_Story #2 
+ Her lover glanced at my half-sized cock in my hand, and he joined the conversation. "Don't you wish your cock was as big as mine, David," the guy said to me, seeing my wife's total lust for his dick, "so you could fuck your hot little wife every day like I'm gonna fuck her tonight?"  
 
  
 
@@ -888,7 +888,7 @@
 
  "Mmmm!" Kitty's 29 year old voice crackled with electricity. "Oooh, David - - mmm, have him fuck me so hard -- I love his big cock!" 
 
- She was proceeding with the plan, standing up on the floor now, facing Dillon - - looking back at me over her shoulder briefly, winking. Then, turning all of her attention to her lover, she reached her hand to her chest. I could see how her arm bent, I assumed she was about to untie her blouse. I was right, her arm pulled back and the black chiffon blouse loosened, falling off her shoulders to the floor, exposing her naked tits to the married man. I watched his reaction, his deep-set eyes gazed at her super-hard nipples and soft rounded orbs. Her A- cup tits are gorgeous, they are so perfectly proportioned to her little frame. Having Dillon's full attention, Kitty slipped her thumbs inside the elastic band of her French-cut bikini panties, right at the top arching stops over her hips, and she wiggled her little fanny as she bent forward. I saw the panties slip off, down her slender sexy legs, to her feet where she gingerly stepped out of them. Then, giggling, she flicked one foot backwards, sending the panties airborne -- straight at me. Her black little panties landed perfectly on my lap, where I retrieved them, and smelled the aroma of her wet cunt that had soiled the front panel. Report_Story #3 
+ She was proceeding with the plan, standing up on the floor now, facing Dillon - - looking back at me over her shoulder briefly, winking. Then, turning all of her attention to her lover, she reached her hand to her chest. I could see how her arm bent, I assumed she was about to untie her blouse. I was right, her arm pulled back and the black chiffon blouse loosened, falling off her shoulders to the floor, exposing her naked tits to the married man. I watched his reaction, his deep-set eyes gazed at her super-hard nipples and soft rounded orbs. Her A- cup tits are gorgeous, they are so perfectly proportioned to her little frame. Having Dillon's full attention, Kitty slipped her thumbs inside the elastic band of her French-cut bikini panties, right at the top arching stops over her hips, and she wiggled her little fanny as she bent forward. I saw the panties slip off, down her slender sexy legs, to her feet where she gingerly stepped out of them. Then, giggling, she flicked one foot backwards, sending the panties airborne -- straight at me. Her black little panties landed perfectly on my lap, where I retrieved them, and smelled the aroma of her wet cunt that had soiled the front panel.  
 
  
 
@@ -980,7 +980,7 @@
 
  Surprising me, he took a hand off of her breast and curled his finger to me, indicating for me to come over, pointing at the ground on the floor between his spread-open knees. "C'mon, David," the confident male moaned from underneath my wife, "come over here, feel how deep I am inside her -- you know you want to!" 
 
- I wasn't sure what he had in mind, but I was so caught up in the fucking that I didn't ask. I just climbed off the chair, feeling my knees and butt sore from sitting there so long. Crawling on our carpet now, I pushed the coffee table far to the side -- almost knocking the chocolate cake over -- and giving myself plenty of space. Now kneeling in front of the sofa with his bony knees alongside me, I found myself inches away from his incredibly huge penis disappearing repeatedly into my wife's naked juicy pussy. He reached a hand down, taking my wrist as I offered it, and flattening my hand before planting it firmly against the very lowest part of her belly, my thumb grazing her vagina. Report_Story #4 
+ I wasn't sure what he had in mind, but I was so caught up in the fucking that I didn't ask. I just climbed off the chair, feeling my knees and butt sore from sitting there so long. Crawling on our carpet now, I pushed the coffee table far to the side -- almost knocking the chocolate cake over -- and giving myself plenty of space. Now kneeling in front of the sofa with his bony knees alongside me, I found myself inches away from his incredibly huge penis disappearing repeatedly into my wife's naked juicy pussy. He reached a hand down, taking my wrist as I offered it, and flattening my hand before planting it firmly against the very lowest part of her belly, my thumb grazing her vagina.  
 
  
 
@@ -1080,7 +1080,7 @@
 
  "Yeah!" Kitty's eyes opened, as she found me staring at the two of them having sex on our sofa. "David -- look at him -- he's so big -- he's fucking your little bitch wife, I'm his fucking hot toy for your birthday!" 
 
- Indeed, the sight of his awesome fat pole driving into Kitty's gushing wet vagina was delicious, my cock was throbbingly hard watching it. As Dillon spread his legs, I got on my knees behind him, seeing his fat balls dangling and his long dick disappearing into Kitty's pussy. Her small body was shoving backwards to meet him, and I could hear her grunting and gasping from the pounding she was taking, his superior weight smacking hard into her small body. My mouth watered at the sight of Dillon fucking her pink pussy, all stretched open for his shaft. Report_Story #5 
+ Indeed, the sight of his awesome fat pole driving into Kitty's gushing wet vagina was delicious, my cock was throbbingly hard watching it. As Dillon spread his legs, I got on my knees behind him, seeing his fat balls dangling and his long dick disappearing into Kitty's pussy. Her small body was shoving backwards to meet him, and I could hear her grunting and gasping from the pounding she was taking, his superior weight smacking hard into her small body. My mouth watered at the sight of Dillon fucking her pink pussy, all stretched open for his shaft.  
 
  
 
@@ -1168,7 +1168,7 @@
 
  As her cum subsided, he put his mouth back on hers and continued kissing her in front of me. His amazing dick didn't stop, it was still sliding in and out of her pussy, his bone was so wet and hard it looked like a concrete pole being pile-driven into the ground. He now was gripping her tiny shoulders, pinning her down, pulling her body against his so that his cock was as deep as possible, and she couldn't move away but was forced to lie there, split open, taking that awesome rock into her squishy wet pussy. I swear it seemed he had the whole thing inside her, all ten fabulous inches, and the way my wife was shrieking and crying -- tears dripping out of her slanted eyes -- I thought there was a possibility that he, indeed, had shoved every last bit of his prick into her cunt. 
 
- Kitty's petite little body was being shattered by her mind-blowing orgasms, the fire exploding out of her cunt was making every limb of hers shake and spasm, her breathing was short and painful, her face in lusty agony while her voice crackled like rocks being split apart. "OHHH FUCKKK -- ohhhhh fuckkk, fuckkk, SHIT -- uhhhhh, oooh fuck, yesss -- UHHHHH!!!" Her unintelligible screams reached the crescendo, a pitch of energy washing over her again, and Kitty had yet another orgasm with Dillon's huge bone inside her stretched-open slit. Report_Story #6 
+ Kitty's petite little body was being shattered by her mind-blowing orgasms, the fire exploding out of her cunt was making every limb of hers shake and spasm, her breathing was short and painful, her face in lusty agony while her voice crackled like rocks being split apart. "OHHH FUCKKK -- ohhhhh fuckkk, fuckkk, SHIT -- uhhhhh, oooh fuck, yesss -- UHHHHH!!!" Her unintelligible screams reached the crescendo, a pitch of energy washing over her again, and Kitty had yet another orgasm with Dillon's huge bone inside her stretched-open slit.  
 
  
 
@@ -1286,7 +1286,7 @@
 
  I sort of meant it as a joke, but Kitty frowned -- for reasons I wouldn't have guessed. 
 
- "Awww," she pouted, her voice dripping with disappointment, "you've ruined the surprise -- that was going to be my other present to you tomorrow night!" Report_Story #1 
+ "Awww," she pouted, her voice dripping with disappointment, "you've ruined the surprise -- that was going to be my other present to you tomorrow night!"  
 
  
 
@@ -1396,7 +1396,7 @@
 
  It made Kitty decide on her day. She was going to cancel her lunch date with her boyfriend Matt and just stay at home, keeping out of the summertime heat. Then, when I got home, she and I could have a party together, just the two of us, maybe doing something special. 
 
- It wasn't an easy thing to do. Her boyfriend Matt had 8 inches of 41-year-old cock himself, and he was an incredible fuck. The thought of getting naked with Brendan and Olya was even more arousing; the young redhead's wet cunt was delicious and a fabulous side dish to Brendan's 8 inches of 29-year-old dick. Either option would have made it an extremely fun day. But, to make the evening seem more special, Kitty was going to swear off fucking anyone else for the day. Report_Story #2 
+ It wasn't an easy thing to do. Her boyfriend Matt had 8 inches of 41-year-old cock himself, and he was an incredible fuck. The thought of getting naked with Brendan and Olya was even more arousing; the young redhead's wet cunt was delicious and a fabulous side dish to Brendan's 8 inches of 29-year-old dick. Either option would have made it an extremely fun day. But, to make the evening seem more special, Kitty was going to swear off fucking anyone else for the day.  
 
  
 
@@ -1498,7 +1498,7 @@
 
  Emily returned the look of desire, gazing into Kitty's eyes. "Well he's gonna see it -- 'cause I'm gonna fuck your brains out!" 
 
- The two sluts looked at each other and, anywhere else, would have immediately kissed each other. Instead, they both looked behind themselves, ensuring none of the males in the store could hear them. Realizing they were thinking the same thing, they giggled and playfully pushed each other a bit. Report_Story #3 
+ The two sluts looked at each other and, anywhere else, would have immediately kissed each other. Instead, they both looked behind themselves, ensuring none of the males in the store could hear them. Realizing they were thinking the same thing, they giggled and playfully pushed each other a bit.  
 
  
 
@@ -1600,7 +1600,7 @@
 
  Lovingly, my wife gave me a soft smile. "Oh, David, we're just playing," she snickered, but then laughing again she retorted, "and, baby, I just say that - - it always IS the size of the prize that counts!" She took one look at Emily, and the two girls started laughing yet again. 
 
- "God, you two," the long-haired blonde giggled, "are a trip, too funny." Report_Story #4 
+ "God, you two," the long-haired blonde giggled, "are a trip, too funny."  
 
  
 
@@ -1704,7 +1704,7 @@
 
  Kitty didn't see Emily's hand reaching into her small duffle bag, pulling out her first implement -- a vibrator, just a small roundish egg-shaped toy with an electric cord coming out of it like a tail. At the other end of the cord was the base unit, with batteries and two control switches. Emily snapped the device "on," and the egg thingy started to buzz and shake in her small hand. Giggling, Emily sat upright on her heels, legs spread, squatting below Kitty's body, as the girl from the sex shop held the egg toy in her fingers and started to caress it over Kitty's velvety-smooth inner thighs. Kitty immediately gasped, feeling the buzzing and vibrating on her sensitive inner leg, causing her to peel her knees far her your sides, pushing her hips up to offer her crotch to the toy. 
 
- Emily slipped the vibrating egg's blunt rounded end around Kitty's thighs, in circles, nearing her bald vagina. I could smell my wife's high state of arousal, and I could see the energy my slutty wife had for the girl, as she lay back on our bed. Emily drew the egg near to Kitty's thong, then at the edge, then -- deliberately, delicately -- she moved the vibrating plastic egg over her thong's front panel, over Kitty's mound, directly on top of my wife's throbbing clitty. Kitty's small body shook violently, as her hands shot to the sides and clutched the bedspread. "YESSS!" she screamed, looking down at her new friend and her pretty breasts. Leaning over now, with me staring at her ass from the side, Emily rubbed the vibrating egg against my wife's thong and began teasing her clitoris, applying satisfaction to the aching my wife was feeling down there. Report_Story #5 
+ Emily slipped the vibrating egg's blunt rounded end around Kitty's thighs, in circles, nearing her bald vagina. I could smell my wife's high state of arousal, and I could see the energy my slutty wife had for the girl, as she lay back on our bed. Emily drew the egg near to Kitty's thong, then at the edge, then -- deliberately, delicately -- she moved the vibrating plastic egg over her thong's front panel, over Kitty's mound, directly on top of my wife's throbbing clitty. Kitty's small body shook violently, as her hands shot to the sides and clutched the bedspread. "YESSS!" she screamed, looking down at her new friend and her pretty breasts. Leaning over now, with me staring at her ass from the side, Emily rubbed the vibrating egg against my wife's thong and began teasing her clitoris, applying satisfaction to the aching my wife was feeling down there.  
 
  
 
@@ -1802,7 +1802,7 @@
 
  I heard Kitty growl in glee. "Shhhit, yessss!" Then her eyes opened, she stared up at Emily, and with her hands pinned down to the bed besides herself, holding her hands, looking up at the horny girl fucking her. With an intense, almost angry glare, Kitty let out a flurry of nasty thought. "You fucking cunt -- fuck me harder! Make me cum, make your little asian slut cum -- fuck me you bitch!" Then, gathering air, Kitty let out that last loving insult with a burst. "You fucking BITCH!" 
 
- The girl fucking her gave it back. "Yeah -- fucking cunt!" Emily's face grinned ear to ear, as she heard my wife yelp at her. Emily wasn't trying to degrade Kitty, she was just so aroused. Her head dropped down, and she shoved her tongue inside Kitty's mouth. Instantly the two horny females were making out, French kissing, swapping hot breaths and sticky saliva, tongues lapping together, while Emily's ass pumped back and forth and drove that dildo into Kitty's pussy even harder. Kitty was moaning, mouths pressed together, jaws open, her hands down on Emily's small ass, fonding it, pulling the blonde's hips hard into her body, keeping that toy dick filling my wife's sloppy wet cunt. Report_Story #6 
+ The girl fucking her gave it back. "Yeah -- fucking cunt!" Emily's face grinned ear to ear, as she heard my wife yelp at her. Emily wasn't trying to degrade Kitty, she was just so aroused. Her head dropped down, and she shoved her tongue inside Kitty's mouth. Instantly the two horny females were making out, French kissing, swapping hot breaths and sticky saliva, tongues lapping together, while Emily's ass pumped back and forth and drove that dildo into Kitty's pussy even harder. Kitty was moaning, mouths pressed together, jaws open, her hands down on Emily's small ass, fonding it, pulling the blonde's hips hard into her body, keeping that toy dick filling my wife's sloppy wet cunt.  
 
  
 
@@ -1914,7 +1914,7 @@
 
  Next to us, Kitty removed the strapon that was tied to her small waist, then she leaned over to watch her husband impale his penis into the younger blonde. "Mmm, oooh yeah!" she encouraged, panting and moaning. 
 
- The girl's cunt felt divine; sexy and wet, silky, sucking my penis into her. As I laid my full weight into her, I felt my shaft sink deeply, all the way, my balls against her soft asscheeks. My arms were straight as I leaned over her small body, letting me admire her gorgeous C-cup boobs and flat tummy, and her bald kitty with my penis dipping into it. She was, indeed, very sexy. I felt a pang of guilt fucking and admiring the young woman with my wife immediately next to me, but as I turned to look at my little Asian slut, she instantly planted her lips on mine and gave me a throaty kiss. Then she broke the embrace and barked, "Now, FUCK her, David!" Report_Story #7 
+ The girl's cunt felt divine; sexy and wet, silky, sucking my penis into her. As I laid my full weight into her, I felt my shaft sink deeply, all the way, my balls against her soft asscheeks. My arms were straight as I leaned over her small body, letting me admire her gorgeous C-cup boobs and flat tummy, and her bald kitty with my penis dipping into it. She was, indeed, very sexy. I felt a pang of guilt fucking and admiring the young woman with my wife immediately next to me, but as I turned to look at my little Asian slut, she instantly planted her lips on mine and gave me a throaty kiss. Then she broke the embrace and barked, "Now, FUCK her, David!"  
 
  
 
@@ -1996,7 +1996,7 @@
 
  As Kitty backed off, Emily emitted a loud sigh. "Ohhh fuck!" the younger female grunted, laughing painfully, staring at both of us. "That was soooo awesome!" 
 
- I didn't respond, nor did Kitty. The two of us were busy kissing, hard, tasting sperm in Kitty's mouth -- but, more than that, loving each other after sharing the young woman. Report_Story #1 
+ I didn't respond, nor did Kitty. The two of us were busy kissing, hard, tasting sperm in Kitty's mouth -- but, more than that, loving each other after sharing the young woman.  
 
  
 
@@ -2072,7 +2072,7 @@
 
  God, I love hearing my wife joyously getting fucked by a huge penis. I don't have one; my under-six inches gets hard and stays hard for a long time, but what I can deliver in quantity (time) I can't do in quality (size). I can't get Kitty to scream like this, I've never made her cry from fucking. It's a beautiful thing to witness experiencing that kind of bliss with other men. 
 
- As Pete fucked my wife furiously, the bed sheet started to peel back. First I saw Kitty's hands, flailing uselessly above her head as she laid back, then her tangled hair sprayed around the bed sheets. Soon my eyes saw them kissing madly, not stopping during the sex. His meaty ass was powerfully pumping up and down, so the bed sheet was being tossed around above their bodies, and then he broke the kiss and rose above her on his straightened arms. Now I could see his naked torso, and her breasts and flat tummy. The bed sheets covered his hips and her spread-open legs, but I was still watching them screw. Report_Story #2 
+ As Pete fucked my wife furiously, the bed sheet started to peel back. First I saw Kitty's hands, flailing uselessly above her head as she laid back, then her tangled hair sprayed around the bed sheets. Soon my eyes saw them kissing madly, not stopping during the sex. His meaty ass was powerfully pumping up and down, so the bed sheet was being tossed around above their bodies, and then he broke the kiss and rose above her on his straightened arms. Now I could see his naked torso, and her breasts and flat tummy. The bed sheets covered his hips and her spread-open legs, but I was still watching them screw.  
 
  
 
@@ -2196,7 +2196,7 @@
 
  So, after trading emails and calls and all, they finally met -- here, in our house -- when he took almost literally the whole day off. No wonder she didn't answer her cellphone from about 10 a.m. until when I was driving home from work, past 6 o'clock. 
 
- Fuck, the images in my head were so intense. They made out in the living room. They stripped there. She sucked him; he licked her bald, shaved cunt. They fucked on the living room sofa. They went into the hot tub behind the house, in the swirling early July heat, naked in the tub having wine, cuddling. They fucked on the hot patio deck. They came inside and took a cool bath, fucking more. They napped together -- on our marital bed, actually. Normally Kitty takes her boyfriends into the guest room, but they had just come out of the bathroom where I was standing, so they didn't make it farther than our big King size bed where I slept. Kitty had sex with Joey right where I have sex with her just about every night. They went naked down to the kitchen, had a late lunch, and fucked there, then the TV room nearby. Then down to the basement and the big leather sofa, where they watched some home-made porn movies of Kitty fucking a couple of her boyfriends, and they fucked down there too. That's a day of hot sex with a very horny married man. Report_Story #3 
+ Fuck, the images in my head were so intense. They made out in the living room. They stripped there. She sucked him; he licked her bald, shaved cunt. They fucked on the living room sofa. They went into the hot tub behind the house, in the swirling early July heat, naked in the tub having wine, cuddling. They fucked on the hot patio deck. They came inside and took a cool bath, fucking more. They napped together -- on our marital bed, actually. Normally Kitty takes her boyfriends into the guest room, but they had just come out of the bathroom where I was standing, so they didn't make it farther than our big King size bed where I slept. Kitty had sex with Joey right where I have sex with her just about every night. They went naked down to the kitchen, had a late lunch, and fucked there, then the TV room nearby. Then down to the basement and the big leather sofa, where they watched some home-made porn movies of Kitty fucking a couple of her boyfriends, and they fucked down there too. That's a day of hot sex with a very horny married man.  
 
  
 
@@ -2342,7 +2342,7 @@
 
  Kitty responded first with another scream of pleasure, another orgasm flooding her body. I fucked her through it then she grunted, trying to form words, "Yes -- let's." 
 
- Almost painfully I pulled out, my body dripping wet with water and sweat and her juices, my cock sticking into the warm morning air. I quickly turned off the water, kicked open the shower stall's glass door, and grabbed her hand to drag her out. I eschewed the towels, as did she. We were too horny. Both of us soaking wet, I led her into the master bedroom, right over to our bed, with a big warm blanket on it. Report_Story #4 
+ Almost painfully I pulled out, my body dripping wet with water and sweat and her juices, my cock sticking into the warm morning air. I quickly turned off the water, kicked open the shower stall's glass door, and grabbed her hand to drag her out. I eschewed the towels, as did she. We were too horny. Both of us soaking wet, I led her into the master bedroom, right over to our bed, with a big warm blanket on it.  
 
  
 
@@ -2404,7 +2404,7 @@
 
  I don't know if my face was smiling at that moment, but my heart was. "And I," said her husband, who was head over heels in complete and unadulterated and unconditional love for her, "am so in love with you, Kitty." 
 
- My face hid the thoughts percolating between my vacuous skull. It was a very common thought I had, one that never had fully resolved itself in two years of living with her. Report_Story #1 
+ My face hid the thoughts percolating between my vacuous skull. It was a very common thought I had, one that never had fully resolved itself in two years of living with her.  
 
  
 
@@ -2538,7 +2538,7 @@
 
  With the mid-day sun streaming through the windows behind his head, she couldn't see his dark eyes to well. But she saw the surprised gape of his mouth on his face. "Well, well," he purred with a sinister giggle, "look what the Kitty dragged in?" 
 
- Kitty turned over her shoulder, catching a waive from Rick's hand-picked administrative assistant, Meldy, who stood behind a row of wooden cabinets that sort of hid the doorway of Rick's office from the building's marbled hallway. Meldy (short for Esmerelda) was one of those secretaries the males wanted to have so they could brag about her to other guys -- she was a curvy Latina, maybe five foot three, with a C-cup bust over a tiny size-0 waist, and draping, dark curly hair cascading down her slender shoulders and back. She always wore too much makeup and jewelry, with usually fifteen or more rings on her eight fingers. But, if Meldy was anything, she was hip to Rick's several-month affair with Kitty. Having allowed Kitty to his door without anyone else in the bank noticing, Meldy winked my Asian wife good-bye and made sure the coast remained clear while Kitty was with him. Report_Story #2 
+ Kitty turned over her shoulder, catching a waive from Rick's hand-picked administrative assistant, Meldy, who stood behind a row of wooden cabinets that sort of hid the doorway of Rick's office from the building's marbled hallway. Meldy (short for Esmerelda) was one of those secretaries the males wanted to have so they could brag about her to other guys -- she was a curvy Latina, maybe five foot three, with a C-cup bust over a tiny size-0 waist, and draping, dark curly hair cascading down her slender shoulders and back. She always wore too much makeup and jewelry, with usually fifteen or more rings on her eight fingers. But, if Meldy was anything, she was hip to Rick's several-month affair with Kitty. Having allowed Kitty to his door without anyone else in the bank noticing, Meldy winked my Asian wife good-bye and made sure the coast remained clear while Kitty was with him.  
 
  
 
@@ -2652,7 +2652,7 @@
 
  "Ohh god!" I heard her squeal, and I realized she was rubbing her pussy as she told me, sitting in her car. "David . . . it was sooo hot . . . I was so wet, he was sooo fucking hard, his cock is sooo sexy and big . . . huge . . . I really, really wanted a big cock today, baby -- I got him all hard, sucking him, then he put me on the sink and fucked me!" As she said that, I could picture it exactly, and I wanted to cum in my underwear at the thought of Rick's huge erection plowing into Kitty's pussy. She continued her tale. "They were talking out there while I cummed, I was sooo fucking wet -- I was fucking soaking -- cumming hard -- but I couldn't make noise, it was killing me -- you know I love to scream!" (As if I didn't know that.) "Then they left, and David, he stuck it all the way in me -- it was so good -- he came so hard, he unloaded his cum, he filled my hot slutty cunt with his cream, baby!" 
 
- My palm was flat, grinding on my erection, pressing it against my body through my pants. "Holy shit, baby -- that's so hot -- did this just happen, are you touching your pussy right now, is it all wet with his sperm?" Report_Story #3 
+ My palm was flat, grinding on my erection, pressing it against my body through my pants. "Holy shit, baby -- that's so hot -- did this just happen, are you touching your pussy right now, is it all wet with his sperm?"  
 
  
 
@@ -2772,7 +2772,7 @@
 
  "Mmmm?" She liked the sound of that, it was sexy, and it made her feel good about herself. "Promise?" It was her turn to roll onto her side, scooting next to his body, which was still heaving with heavy breaths from the workout, as was hers. "Your little wife wouldn't mind, you having a nasty little toy slut to play with every day, hmm?" Giggling, knowing his family situation was just like most of her lovers, she placed a soft kiss on his sweaty shoulder -- his broad, muscled, smooth, powerful shoulder. Wow, he was a sexy man. "It'd be pretty awesome, wouldn't it?" 
 
- Keith looked at her, wondering why she was teasing him with the notion, then he relaxed and laughed with her. "Yeah, except, I'd probably chain you to me, so we could do this nonstop!" After a deep breath again, he put the question to her. "Well, I doubt I'll be back here, but if I can get an excuse to come her, you know I will -- in the meantime, you like fucking on the computer and phone, cyber and phone and stuff?" Report_Story #4 
+ Keith looked at her, wondering why she was teasing him with the notion, then he relaxed and laughed with her. "Yeah, except, I'd probably chain you to me, so we could do this nonstop!" After a deep breath again, he put the question to her. "Well, I doubt I'll be back here, but if I can get an excuse to come her, you know I will -- in the meantime, you like fucking on the computer and phone, cyber and phone and stuff?"  
 
  
 
@@ -2894,7 +2894,7 @@
 
  She watched the guy for a few seconds, reassuring herself it was no big deal. He was, it seemed, there with his wife -- a portly woman who didn't particularly keep herself pretty, with drab, dirty-blonde hair and a body sagging at every large curve. "Nah," she shrugged, refocusing on her tall, handsome date, winking. "Just -- a guy I met last week, you know, 'for coffee' -- he's here with his wife, no biggie." 
 
- "Oh, coffee, huh?" Kent snickered, pretty much understanding what she meant. "What, you, ah, don't want him seeing you with me? Gonna create a prob for ya?" Report_Story #5 
+ "Oh, coffee, huh?" Kent snickered, pretty much understanding what she meant. "What, you, ah, don't want him seeing you with me? Gonna create a prob for ya?"  
 
  
 
@@ -2990,7 +2990,7 @@
 
  Hana hit her climax without Kitty's help, not screaming so much but gasping and spasming on the bed, shaking uncontrollably. No sooner had those waves subsided, however, before Rick thrust Kitty onto her back and gave her the next turn with his prick. As soon as that long shaft probed into Kitty's tight cunt, she screamed for mercy. "Ohhh FUCK!" Rick didn't have the biggest cock of all her boyfriends and Internet lovers, but it was plenty big and wide; and his incredibly delicious body, so tight and sexy, and his wonderfully handsome face gave her the highest state of arousal. He wasn't necessarily the nicest human being she knew, but he was affectionate, thoughtful and playful, and the entire package was pretty much beyond compare. "Ohh baby, Rick, fuck me honey!" 
 
- My wife's view from her back of the sexy naked stud fucking her didn't last long, as a few moments later Hana jumped on her face and filled Kitty's senses with wet blonde pussy. Kitty stuck her tongue up and began stuffing it inside the college student's sloppy pussy lips, and was rewarded with Hana screaming and grinding her ass down onto my wife's nose and forehead. Kitty slipped her hands up the front of Hana's lithe body, finding that Rick was already groping the blonde's large soft breasts with his big hands. Report_Story #6 
+ My wife's view from her back of the sexy naked stud fucking her didn't last long, as a few moments later Hana jumped on her face and filled Kitty's senses with wet blonde pussy. Kitty stuck her tongue up and began stuffing it inside the college student's sloppy pussy lips, and was rewarded with Hana screaming and grinding her ass down onto my wife's nose and forehead. Kitty slipped her hands up the front of Hana's lithe body, finding that Rick was already groping the blonde's large soft breasts with his big hands.  
 
  
 
@@ -3042,7 +3042,7 @@
 
  He caught the blown kiss in his hand, then kissed his fingers and returned it back to her. "I love you, baby." 
 
- "Me too, honey," she winked just before closing his door, "I love you, Rick, bye honey!" Report_Story #1 
+ "Me too, honey," she winked just before closing his door, "I love you, Rick, bye honey!"  
 
  
 
@@ -3164,7 +3164,7 @@
 
  As he licked across her chest, he moaned up to his mistress. "Fuck you're so wet -- I love it when you haven't been fucked for a few days by your husband - - you're so fucking tight today, you're so fucking horny, you hot slut!" 
 
- Kitty didn't correct his misimpressions; Patrick had no idea about her true sex life, and if he did, she doubted they would still fuck. It wasn't worth telling him. What exactly should she say -- no, she got laid earlier in the afternoon by a younger, muscular stud? Or the day before by Rick and his young female friend? It was against Kitty's ethics to openly lie. Report_Story #2 
+ Kitty didn't correct his misimpressions; Patrick had no idea about her true sex life, and if he did, she doubted they would still fuck. It wasn't worth telling him. What exactly should she say -- no, she got laid earlier in the afternoon by a younger, muscular stud? Or the day before by Rick and his young female friend? It was against Kitty's ethics to openly lie.  
 
  
 
@@ -3288,7 +3288,7 @@
 
  Sometimes I did this, Kitty always said she found it sexy. I started lathering her ass with my tongue, licking all over her buttocks, getting them sticky-wet with saliva, moving around and around, lapping, the creases at the bottom and the valley between them, all over. I could detect the sexy scent of her vagina, leaking below. Kitty spread her knees, pushing her butt higher, moaning, "Mmm, yesss, oooh!" I couldn't stop licking, I ran my tongue right to her little puckered asshole, lapping at it, sticking my tonguetip inside. "Ohhh yeah David -- ooh yes!" She reached a hand back, prying one of her saliva-covered buttcheeks to the side, exposing her ass and twat to me. "Mmm baby, yesss, more!" 
 
- Now I was kneeling behind her, bending over, licking my wife's butthole, tasting the musky dirty flavor, pushing tongue inside her butt so she could feel my presence. I felt Kitty pushing her ass back, wanting more. I just stuck my tongue straight out, fucking her ass, sliding my manly tongue in and out, drawing gurgles of joy from the little slut. "Ohhh -- uhhh -- ohhh, fuckkk - - mmm yeah -- ohhh fuckkk -- baby, yesss!" I pushed deeper, sealing my tongue against her asshole, fucking it while her cunt was juicing right below my chin. Report_Story #3 
+ Now I was kneeling behind her, bending over, licking my wife's butthole, tasting the musky dirty flavor, pushing tongue inside her butt so she could feel my presence. I felt Kitty pushing her ass back, wanting more. I just stuck my tongue straight out, fucking her ass, sliding my manly tongue in and out, drawing gurgles of joy from the little slut. "Ohhh -- uhhh -- ohhh, fuckkk - - mmm yeah -- ohhh fuckkk -- baby, yesss!" I pushed deeper, sealing my tongue against her asshole, fucking it while her cunt was juicing right below my chin.  
 
  
 
@@ -3430,7 +3430,7 @@
 
  Knowing how I like it, Kitty sat upright on me, arching her back to push her little breasts forward, her hands scraping my hairy thighs behind herself. She giggled at my adoration of her A-cup boobies, and she took one of her hands to lightly cup and brush her breast, just toying with it, while her eyes watched my eyes staring at the sight. Sticking out a finger, she sucked her digit until it was sopping wet with saliva, then she traced her wet fingertip over her nipple, making it glisten in the flickering candlelight. 
 
- "Mmmm," she muttered while still studying me facial reaction, feeling how hot I was jamming my prick into her beneath her thighs. She slipped her hand from her tit into her spread-open crotch, two fingertips teasing her little clitty while her cunt was riding up and down slowly on my pole. She moaned, her eyes closing, feeling the sensations of her fingers on her sizzling clitoris. Wanting to fuck more deeply, Kitty put both her hands on my chest, propping herself up, and she began to hump me with more vigor. Her hips swayed side to side, whipping her hips and my cock around, and the heavy lubrication of her juices on my cock made her cunt slide easily up and down my pole. Panting, staring down at my eyes, my wife started fucking me faster, rhythmically, picking up the sway. Report_Story #4 
+ "Mmmm," she muttered while still studying me facial reaction, feeling how hot I was jamming my prick into her beneath her thighs. She slipped her hand from her tit into her spread-open crotch, two fingertips teasing her little clitty while her cunt was riding up and down slowly on my pole. She moaned, her eyes closing, feeling the sensations of her fingers on her sizzling clitoris. Wanting to fuck more deeply, Kitty put both her hands on my chest, propping herself up, and she began to hump me with more vigor. Her hips swayed side to side, whipping her hips and my cock around, and the heavy lubrication of her juices on my cock made her cunt slide easily up and down my pole. Panting, staring down at my eyes, my wife started fucking me faster, rhythmically, picking up the sway.  
 
  
 
@@ -3524,7 +3524,7 @@
 
  So, while she wasn't sure she meant to say "yes" to his question, she also wasn't sure that she didn't mean to say it either. 
 
- For the moment, she avoided the quandary by putting her cellphone down, and going back to sleep. Report_Story #1 
+ For the moment, she avoided the quandary by putting her cellphone down, and going back to sleep.  
 
  
 
@@ -3622,7 +3622,7 @@
 
  My wife's small hands reached again for Rick's head, her slender fingers finding the short curly dark hair on his scalp, and she pressed her palms into his skull to drive his tongue harder against her pussy. Meanwhile she had her feet flat on our bed, shoulders against the bedsheets, and as she pushed her hips around her entire body arched up, full of sexual energy, lifting her ass and cunt off the bed, right up into his mouth. Rick pumped his long tongue inside her tight hole, stretching it open with just his tongue, reaching so deep inside it felt like his tonguetip was brushing over her G-spot. The first orgasm subsided but left her spasming twat in a tingling, aching state, demanding more of his tongue, deeper and faster. "Ohhh yes, Rick! Fuck me, more, more, eat your slut's cunt!" Grunting and wailing, gasping as she pressed her pelvis into his face and rapidly thrust her hips around in circles, Kitty masturbated herself against his tongue and lips, feeling his teeth even pressing her aching clitoris into her body. 
 
- Another sensation, his thumb at her anus; the little puckered hole was wet from her pussy's juices, and now he was rubbing that wetness over the hole, teasing it, preparing it for entry. Feeling that, Kitty raised her hips even more off the bed, opening her eyes in amazement at how horny she had become for him. "Yesss, Rick! Fuck me!" Report_Story #2 
+ Another sensation, his thumb at her anus; the little puckered hole was wet from her pussy's juices, and now he was rubbing that wetness over the hole, teasing it, preparing it for entry. Feeling that, Kitty raised her hips even more off the bed, opening her eyes in amazement at how horny she had become for him. "Yesss, Rick! Fuck me!"  
 
  
 
@@ -3738,7 +3738,7 @@
 
  Yet, here was the opportunity. And, as ridiculous as it sounded, immediately her heart was embracing the possibility. It sounded really, really good. 
 
- Kitty she sat back on her heels on the bed, her throat sore from the fucking, her mouth still stinky with his sperm, her body dripping juices from the hard fucking. Her first, most natural reaction was defensive, to retreat to her lack of self-esteem. "Baby, you really sure you want ME?" She threw her little hands up and shrugged, as if amazed by the question. "I mean, I'm sure I'm not your only girlfriend -- like, there was Hana--" Report_Story #3 
+ Kitty she sat back on her heels on the bed, her throat sore from the fucking, her mouth still stinky with his sperm, her body dripping juices from the hard fucking. Her first, most natural reaction was defensive, to retreat to her lack of self-esteem. "Baby, you really sure you want ME?" She threw her little hands up and shrugged, as if amazed by the question. "I mean, I'm sure I'm not your only girlfriend -- like, there was Hana--"  
 
  
 
@@ -3864,7 +3864,7 @@
 
  Her emotions changed in an instant, her tears retreated and she sat up with zest, energy in her voice. "Yeah, I'm free -- let me call you back in a bit, I have to rearrange something, okay?" 
 
- Patrick's voice cheered up too. "Great -- but, you wanna meet for lunch, or at the usual?" The latter referred to the cheap motel near his office, where he would typically bang her on extended lunchtimes. Report_Story #4 
+ Patrick's voice cheered up too. "Great -- but, you wanna meet for lunch, or at the usual?" The latter referred to the cheap motel near his office, where he would typically bang her on extended lunchtimes.  
 
  
 
@@ -4000,7 +4000,7 @@
 
  His erection rammed forward, spreading open her tight pussylips, sliding into my wife's married cunt. "Yesss!" she shrieked, arching against him, pushing her butt down to take more of his meat into her ultra-tight vagina. "Mmmm, ohhhh, fuckkk!" Her small body began wiggling, undulating wildly underneath him, feeling his amazing, fat penis pushing against the pressure and tightness inside her cunt. "More, Patrick, fuck me hard Daddy!" 
 
- Patrick's mouth found hers again, locking on it, the two lovers thrusting tongues deep into each other's mouths. The steel cock inside her gushing wet vagina thrust and probed deeper, screwing her in places her husband's cock could never reach, moving six, seven inches inside. She felt completely fulfilled, her cunt stretched, her heart lusting and loving the attention from the sweet, sexy man. "Ugghh, yesss!" she moaned, pushing her little body more against his, knowing he was completely inside her, his balls against her asscheeks. He was not pumping in and out, but pressing deep inside while their bodies ground together, humping in unison. "Mmmm, uhhhh, fuckkk!" Report_Story #5 
+ Patrick's mouth found hers again, locking on it, the two lovers thrusting tongues deep into each other's mouths. The steel cock inside her gushing wet vagina thrust and probed deeper, screwing her in places her husband's cock could never reach, moving six, seven inches inside. She felt completely fulfilled, her cunt stretched, her heart lusting and loving the attention from the sweet, sexy man. "Ugghh, yesss!" she moaned, pushing her little body more against his, knowing he was completely inside her, his balls against her asscheeks. He was not pumping in and out, but pressing deep inside while their bodies ground together, humping in unison. "Mmmm, uhhhh, fuckkk!"  
 
  
 
@@ -4106,7 +4106,7 @@
 
  "David," she moaned, kissing my forehead, "I love you." 
 
- With my eyes closed, I grinned and hugged her more closely. I knew she meant it. But only Kitty knew what that really meant to her. Report_Story #1 
+ With my eyes closed, I grinned and hugged her more closely. I knew she meant it. But only Kitty knew what that really meant to her.  
 
  
 
@@ -4214,7 +4214,7 @@
 
  Kitty shrugged, still concentrating on the big cock she was holding and licking. "Mmm, I dunno -- no, probably jerking off, thinking of his hot little wifey getting fucked by a really hot, sexy man with an awesome boner." Then she winked up at him, her hand stroking the bottom half of his thick, solid pole. "Just like this -- he's jerking himself, and I'm jerking you -- probably right now -- kinda funny, huh?" 
 
- Her lover laughed, and playfully he reached over to grab the phone sitting on the nightstand by the bed. "Here," he said, shoving her the cordless receiver, "call him -- find out what he's doing." Report_Story #2 
+ Her lover laughed, and playfully he reached over to grab the phone sitting on the nightstand by the bed. "Here," he said, shoving her the cordless receiver, "call him -- find out what he's doing."  
 
  
 

@@ -234,7 +234,7 @@
 
  ++++++++++++++++++++++++++++++ 
 
- The next day I was up and out of the house before Alma was up and I followed my father in law's advice. As soon as I got to work I arranged for a private detective and then I made arrangements to move into the company's apartment at the Embassy Suites until the dust settled. I didn't go home that night and Alma called my cell phone a half dozen times but I never took the calls or called her back. She was on the phone to me five minutes after I got to the office the next day. Report_Story #2 
+ The next day I was up and out of the house before Alma was up and I followed my father in law's advice. As soon as I got to work I arranged for a private detective and then I made arrangements to move into the company's apartment at the Embassy Suites until the dust settled. I didn't go home that night and Alma called my cell phone a half dozen times but I never took the calls or called her back. She was on the phone to me five minutes after I got to the office the next day.  
 
  
 

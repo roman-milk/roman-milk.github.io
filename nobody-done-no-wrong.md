@@ -214,7 +214,7 @@
 
  "Do you think we can" Miss Sims asked me. 
 
- "Can what?" Report_Story #2 
+ "Can what?"  
 
  
 

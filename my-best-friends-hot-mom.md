@@ -330,7 +330,7 @@
 
  "You really are fucking hot," I said, her body so amazing. 
 
- "As are you," she smiled back, putting her hands on my chest. Report_Story #2 
+ "As are you," she smiled back, putting her hands on my chest.  
 
  
 

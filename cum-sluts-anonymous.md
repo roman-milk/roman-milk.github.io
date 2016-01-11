@@ -32,7 +32,7 @@
 
  CSA is not against all sex, just certain parts that can be destructive if left uncontrolled. For example, neither John nor I have quit having sex with our own wives, nor have either of us tried to stop our wives when they want to go out looking for other cock. We are only trying to stop the self-destructive urge to eat them after other men have cum in them. With Mary the problem wasn't just sucking cum out of cocks, she wanted to feel that cum sprayed inside her cunt and ass. She could maybe get by with just making love to her husband (if he could get it up for her) but he was only interested in sex once, maybe twice a week and that just wasn't going to be enough for her. But we would try to help her save her marriage even if it meant that we would have to fuck her every once in a while (hey - we only swore off cum sucking) to help her take the edge off. 
 
- Ironically, we got several our new members from one would wouldn't join herself - my wife Sid. She sent us two more women and three more men. The group continues to grow and I really think we are doing some good. For most of us it is a day to day thing and the times I've been tempted to go down on Sid on one of her many nights out have been many, but a phone call and a conversation with another member of the group has always been enough to see me through the crisis. The time span between those calls has been getting longer and longer and I am looking forward to the day that I will never have to make that call again. Until then I'll just have to do the best that I can - one day at a time. Report_Story #1 
+ Ironically, we got several our new members from one would wouldn't join herself - my wife Sid. She sent us two more women and three more men. The group continues to grow and I really think we are doing some good. For most of us it is a day to day thing and the times I've been tempted to go down on Sid on one of her many nights out have been many, but a phone call and a conversation with another member of the group has always been enough to see me through the crisis. The time span between those calls has been getting longer and longer and I am looking forward to the day that I will never have to make that call again. Until then I'll just have to do the best that I can - one day at a time.  
 
  
 
@@ -70,7 +70,7 @@
 
  When Sid had gone and I had cleaned her out my wife hugged me to her and held me in her arms and cried. "Baby, oh god baby, what have I done to you. You need help baby, oh God I'm sorry that I did this to you. We have to get you some help." 
 
- And that's why I'm here at this meeting. I can that with your help I can beat this thing, this addiction of mine. I know I can. I know it! Report_Story #1 
+ And that's why I'm here at this meeting. I can that with your help I can beat this thing, this addiction of mine. I know I can. I know it!  
 
  
 
@@ -114,7 +114,7 @@
 
  Bonnie turned to me and told me that I was sick and that I needed help. When we got home that night she told me that if I didn't do something about my addiction she was going to leave me. I begged, I pleaded, I cried and I whined, but to no avail. She insisted that I seek help and I finally gave in. 
 
- I surveyed the sea of faces and as I moved from one to the other I saw compassion, pity, and understanding. I knew that most, if not all of them had once stood in my shoes and that if I was going to get help I was in the right place. I took a deep breath and said, "Hi. My name is Dave and I am a cum slut." Report_Story #1 
+ I surveyed the sea of faces and as I moved from one to the other I saw compassion, pity, and understanding. I knew that most, if not all of them had once stood in my shoes and that if I was going to get help I was in the right place. I took a deep breath and said, "Hi. My name is Dave and I am a cum slut."  
 
  
 
@@ -136,7 +136,7 @@
 
  In the front of the room the current speaker had finished and as I looked around the room I saw facial expressions and nodding heads that said all to clearly, "Yeah, been there, done that" and I felt a surge of hope that we might just have come to the right place. Up front a man stepped to the center of the room and asked if there was anyone else who wanted to address the group and Brenda and I looked at each other. 
 
- "Hi. I'm Brenda" "and I'm Mike" we said in unison, "and we are cum sluts." Report_Story #1 
+ "Hi. I'm Brenda" "and I'm Mike" we said in unison, "and we are cum sluts."  
 
  
 
@@ -182,7 +182,7 @@
 
  Tears were running down her cheeks as she said, "Please help me, please. Don't let me slide any farther down the road to hell." 
 
- My heart went out to the poor girl, and that's all she was - a young girl, and I promised myself that I would do all in my power to help her. During the social hour following the meeting I went looking for her and found that she was already in good hands. I saw Jerry giving her his phone number and I felt better. Jerry has helped so many of the women who have come to us that he could probably qualify for sainthood. Lisa was going to be all right. Report_Story #1 
+ My heart went out to the poor girl, and that's all she was - a young girl, and I promised myself that I would do all in my power to help her. During the social hour following the meeting I went looking for her and found that she was already in good hands. I saw Jerry giving her his phone number and I felt better. Jerry has helped so many of the women who have come to us that he could probably qualify for sainthood. Lisa was going to be all right.  
 
  
 

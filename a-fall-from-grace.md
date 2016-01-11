@@ -244,7 +244,7 @@
 
  Shannon commanded, "Be honest, whore. Are you enjoying eating my cunt?" 
 
- The other two girls watched in awe as Victoria looked up, her face shiny with pussy juice. Victoria contemplated the question. She should have been disgusted. She was not. She should have been furious. She was no longer. She should have been humiliated? She wanted only to cum. All these mixed emotions confused her, as her desire to cum was all that was on her mind. She knew she would only be able to cum if she made the young woman cum. She said, her shame clear, "Yes, I am. I need to cum, sooooo bad." Report_Story #2 
+ The other two girls watched in awe as Victoria looked up, her face shiny with pussy juice. Victoria contemplated the question. She should have been disgusted. She was not. She should have been furious. She was no longer. She should have been humiliated? She wanted only to cum. All these mixed emotions confused her, as her desire to cum was all that was on her mind. She knew she would only be able to cum if she made the young woman cum. She said, her shame clear, "Yes, I am. I need to cum, sooooo bad."  
 
  
 

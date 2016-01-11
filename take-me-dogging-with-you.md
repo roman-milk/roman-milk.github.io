@@ -214,7 +214,7 @@
 
  "Cover me in cum, boys," I grinned. 
 
- At that point, with spunk sliding over my body, ready for another hard dick in my mouth or pussy – or more probably, both – I heard a moan, a female groan of pleasure. Report_Story #2 
+ At that point, with spunk sliding over my body, ready for another hard dick in my mouth or pussy – or more probably, both – I heard a moan, a female groan of pleasure.  
 
  
 

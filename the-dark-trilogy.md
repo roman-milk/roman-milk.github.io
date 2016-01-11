@@ -162,7 +162,7 @@
 
  Her relationship with Jerry ended when she told him that he had given her AIDS. He told her she was full of shit and that he had gotten it from her and not the other way around. Then he told he that he shouldn't have been surprised since after all she was a cheating whore. She had cheated on me with him so he didn't doubt that she cheated on him with some one else. They only talked once more when he called to tell her that she was a worthless, disease-ridden whore who had infected him. 
 
- I had the meeting with the kids alone - Becky couldn't bring herself to face them - and I told them what was happening. They had a hard time accepting that their mother and 'Uncle Jerry' had been cheating on me and they were crushed when they found out that I was dying because of it. Following that meeting their relationship with their mother grew distant as Charlie and Barb showed their resentment at what Becky had done to me. Report_Story #2 
+ I had the meeting with the kids alone - Becky couldn't bring herself to face them - and I told them what was happening. They had a hard time accepting that their mother and 'Uncle Jerry' had been cheating on me and they were crushed when they found out that I was dying because of it. Following that meeting their relationship with their mother grew distant as Charlie and Barb showed their resentment at what Becky had done to me.  
 
  
 
@@ -180,7 +180,7 @@
 
  +++++++++++++++++++ 
 
- The clock is ticking down on me and as I write this I only have a few weeks left. Becky can't understand how I can be so cheerful and upbeat as the end nears, but she will find out soon and that knowledge is what keeps the smile on my face. Report_Story #1 
+ The clock is ticking down on me and as I write this I only have a few weeks left. Becky can't understand how I can be so cheerful and upbeat as the end nears, but she will find out soon and that knowledge is what keeps the smile on my face.  
 
  
 
@@ -358,7 +358,7 @@
 
  "Oh? What is that?" 
 
- "I have my seat belt on and I have the air bag," I said as I turned the wheel and sent the car toward the concrete bridge abutment at seventy-five miles an hour. In the instant before we hit I saw the look on her face as she glanced at the dash and saw the indicator light that said "Passenger air bag off." Report_Story #1 
+ "I have my seat belt on and I have the air bag," I said as I turned the wheel and sent the car toward the concrete bridge abutment at seventy-five miles an hour. In the instant before we hit I saw the look on her face as she glanced at the dash and saw the indicator light that said "Passenger air bag off."  
 
  
 
@@ -650,7 +650,7 @@
 
  "It is what I know Helen, not what I think. You have been fucking my cousin Jamie for God knows how long and I've got the last six weeks of it on tape." 
 
- "Bobby please, believe me, it isn't what you think. Yes, Jamie has been sleeping with me, but it isn't because I love him. I love you Bobby, not Jamie. Honest to God Bobby, I love you." Report_Story #2 
+ "Bobby please, believe me, it isn't what you think. Yes, Jamie has been sleeping with me, but it isn't because I love him. I love you Bobby, not Jamie. Honest to God Bobby, I love you."  
 
  
 

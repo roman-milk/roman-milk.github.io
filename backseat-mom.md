@@ -364,7 +364,7 @@
 
  I could see the car stop in the distance, closed my eyes and rode and rubbed... and erupted. 
 
- "God," I moaned loudly, holding onto the word long enough that I assumed my husband would know I was coming right behind him as I was unable to not open my mouth as my orgasm hit me like a thunderstorm, my cum gushing out of me and onto my son's cock and lap as I again grabbed the driver's seat and pulled up, my son's cock finally exiting my overheated pussy. Report_Story #2 
+ "God," I moaned loudly, holding onto the word long enough that I assumed my husband would know I was coming right behind him as I was unable to not open my mouth as my orgasm hit me like a thunderstorm, my cum gushing out of me and onto my son's cock and lap as I again grabbed the driver's seat and pulled up, my son's cock finally exiting my overheated pussy.  
 
  
 
@@ -804,7 +804,7 @@
 
  "Half an hour," Alex said, before adding, "give or take." 
 
- I almost quipped, 'hopefully give,' as I wanted my son to give it to me, but I was able to refrain, instead replying, "Good, because I am famished." Report_Story #3 
+ I almost quipped, 'hopefully give,' as I wanted my son to give it to me, but I was able to refrain, instead replying, "Good, because I am famished."  
 
  
 
@@ -1270,7 +1270,7 @@
 
  Backseat Mommy: Parents' Weekend 
 
- Mom comes to visit without husband. Report_Story #1 
+ Mom comes to visit without husband.  
 
  
 
@@ -1768,7 +1768,7 @@
 
  "Yesterday morning evennnnnn," I pointed out, as his cock broke the invisible barrier that prevented such outside violations. 
 
- "So tight," he groaned, as his cock moved inside me, slow like a turtle. Report_Story #2 
+ "So tight," he groaned, as his cock moved inside me, slow like a turtle.  
 
  
 

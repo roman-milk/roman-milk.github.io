@@ -226,7 +226,7 @@
 
  "Ah. I understand. I'll build a box around you so you'll have no choice." 
 
- No choice? I already had no choice. I wanted him so much I was dying inside. Couldn't he see that? A storm rose on his face, but the sunlight glimmered through the clouds in his eyes. Report_Story #2 
+ No choice? I already had no choice. I wanted him so much I was dying inside. Couldn't he see that? A storm rose on his face, but the sunlight glimmered through the clouds in his eyes.  
 
  
 
@@ -434,7 +434,7 @@
 
  The whip hissed through the air, slamming into the blue mat beside my leg. It sounded like a rifle shot. I screamed in panic, doubling over, holding myself in fear. Eric was a patient man, a patient man with laughter in his eyes he struggled to hide. He'll never use that whip on you, the voice in my head said. I know, I answered, but isn't it erotic to think he might? Eric waited until I composed myself. When I looked up at him, I saw the message in his expression: Surrender. You have no choice. 
 
- "Shall we try again? Say your mantra, Karen." Report_Story #3 
+ "Shall we try again? Say your mantra, Karen."  
 
  
 

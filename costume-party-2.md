@@ -52,7 +52,7 @@
 
   "It's not something I'd repeat or plan but it was…different. Yeah, I enjoyed it."  
 
-  When they got home they were both horny again. Dawn couldn't get the thought out of her head. Her Master had arranged it so her husband watched her fucking him and got off on it! The whole time! She was stunned. She wanted him, wanted him badly. John would have to do until she could see him again. And she could pretend especially tonight, she could get away with it. John laid her back in the bed and asked if she was ready for it again. She said, "Yes, Master." And let fantasies take hold. Report_Story #1 
+  When they got home they were both horny again. Dawn couldn't get the thought out of her head. Her Master had arranged it so her husband watched her fucking him and got off on it! The whole time! She was stunned. She wanted him, wanted him badly. John would have to do until she could see him again. And she could pretend especially tonight, she could get away with it. John laid her back in the bed and asked if she was ready for it again. She said, "Yes, Master." And let fantasies take hold.  
 
  
 

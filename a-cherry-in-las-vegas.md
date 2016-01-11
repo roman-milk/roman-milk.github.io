@@ -392,7 +392,7 @@
 
  "Bye baby." 
 
- He shows at her house right on time. She greets him as the door naked. She jumps into his arms and wraps her legs around him. She pulls his face down and kisses him. They kiss and suck on each others lips and tongues. Report_Story #2 
+ He shows at her house right on time. She greets him as the door naked. She jumps into his arms and wraps her legs around him. She pulls his face down and kisses him. They kiss and suck on each others lips and tongues.  
 
  
 

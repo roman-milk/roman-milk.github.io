@@ -166,7 +166,7 @@
 
  "I can handle it." Sydni said firmly. 
 
- "You sure?" Emma said, not believing these woman knew their way around money. Report_Story #2 
+ "You sure?" Emma said, not believing these woman knew their way around money.  
 
  
 
@@ -378,7 +378,7 @@
 
  I followed these two black girls over to their place. Even though we were only outside for a few seconds, but due to the oppressive heat, sweat beaded up on all three of us. My eyes were drawn to the sweat dripping down Sydni's long legs all the way to her stiletto heels. They led me inside, into the blessed air conditioning. I hadn't noticed during the party, but they had a very strong smelling house. Not bad, it just smelled very perfumey. 
 
- They led me upstairs, and down the hall. Without hesitation, they led me to a bedroom. I reluctantly followed. As I walked in, they were standing there, waiting for me. I looked around, and I saw a long, shiny pole leaning against the wall. Immediately, I realized what it was and I laughed. Report_Story #3 
+ They led me upstairs, and down the hall. Without hesitation, they led me to a bedroom. I reluctantly followed. As I walked in, they were standing there, waiting for me. I looked around, and I saw a long, shiny pole leaning against the wall. Immediately, I realized what it was and I laughed.  
 
  
 
@@ -568,7 +568,7 @@
 
  I couldn't get what had happened out of my head. Not just what happened with Ted, but the glimpse I got at my black neighbors sexy bodies. Luckily, work got busy, so I was able to push those thoughts away the best I could. 
 
- I had never been into black girls. Never. I wasn't opposed to the idea, but I just never really was attracted to any black girls. But those two, Monique and Sydni, were immeasurably sexy. They were gorgeous, and they had those giant breasts, and those perfect booty's. If I had met them in my single days, I wouldn't have hesitated to be with them. But I was married, and I couldn't go down that road. But the strange thing was, those girls seemed to want to show off their bodies to me. Why could that be? Report_Story #4 
+ I had never been into black girls. Never. I wasn't opposed to the idea, but I just never really was attracted to any black girls. But those two, Monique and Sydni, were immeasurably sexy. They were gorgeous, and they had those giant breasts, and those perfect booty's. If I had met them in my single days, I wouldn't have hesitated to be with them. But I was married, and I couldn't go down that road. But the strange thing was, those girls seemed to want to show off their bodies to me. Why could that be?  
 
  
 
@@ -820,7 +820,7 @@
 
  "Holy shit!" I muttered to myself. A 2011 Aston Martin DBS. A nice, deep black. One of the top sports cars in the world. One sexy fucking car. I couldn't help myself as I opened the door and sat in the driver's seat. It felt so good! So right! This was like a dream car for me. Then I looked at the price tag. 
 
- "Oooh shit." I said with a laugh as I realized it would only ever be a dream to have this car. Let's just say the price was in the six digits. Emma would laugh in my face if I told her I wanted this. I didn't want to tempt myself any further, so I opened the door and got ready to step out. Then I felt a hand on my shoulder. Before I could react, Monique slipped into the backseat behind me, taking her hand off my shoulder, and Sydni slipped in next to me. Report_Story #5 
+ "Oooh shit." I said with a laugh as I realized it would only ever be a dream to have this car. Let's just say the price was in the six digits. Emma would laugh in my face if I told her I wanted this. I didn't want to tempt myself any further, so I opened the door and got ready to step out. Then I felt a hand on my shoulder. Before I could react, Monique slipped into the backseat behind me, taking her hand off my shoulder, and Sydni slipped in next to me.  
 
  
 
@@ -1128,7 +1128,7 @@
 
  "Um, what do you mean exactly? Cause I have a pretty good knowledge about sex." I asked nervously. 
 
- "You know about cute little white sex. Black sex is completely different. Like we told you before, black women are far better lovers. Black women are built for sex. I mean, just look at us. Black women like us have hot bodies. Most black women have bigger tits than white women." Sydni said. Report_Story #6 
+ "You know about cute little white sex. Black sex is completely different. Like we told you before, black women are far better lovers. Black women are built for sex. I mean, just look at us. Black women like us have hot bodies. Most black women have bigger tits than white women." Sydni said.  
 
  
 
@@ -1298,7 +1298,7 @@
 
  They looked like they were on the set of a black porno. A black woman porn, where they probably team up and double team some white guy. That's what happens in porno starring black women, right? 
 
- "Hey Sean." they said in unison with smiles on their faces. I nodded and quickly made my way inside, shutting the door behind me, hoping to avoid having to talk them when they were so exposed. When they were showing off so much of their smooth black flesh. Like their huge black breasts. Their firm black legs. Their full, tight asses. And if I got close, I bet they would make sure to tighten their shirts to make sure I saw their nipples. Their no doubt hard nipples, sticking out from their perfect black breasts. God, they were so hot! Report_Story #7 
+ "Hey Sean." they said in unison with smiles on their faces. I nodded and quickly made my way inside, shutting the door behind me, hoping to avoid having to talk them when they were so exposed. When they were showing off so much of their smooth black flesh. Like their huge black breasts. Their firm black legs. Their full, tight asses. And if I got close, I bet they would make sure to tighten their shirts to make sure I saw their nipples. Their no doubt hard nipples, sticking out from their perfect black breasts. God, they were so hot!  
 
  
 
@@ -1508,7 +1508,7 @@
 
  "There ain't nothing wrong with seeing these, is there?" Monique said softly. I was struck dumb by her huge black breasts. "And since you've already seen my perfect black breasts, there is nothing wrong with seeing a little more, right?" She took my silence as an affirmative. She reached down and ran her fingers under her thong straps of her light blue thong. 
 
- I jumped as the stereo was flipped on by Sydni, the music jarring in the silence. I realized I recognized the beat, as I had heard it on the iPod Monique had given. A familiar female voice pervaded the room, the beat perfect for booty-shaking. Report_Story #8 
+ I jumped as the stereo was flipped on by Sydni, the music jarring in the silence. I realized I recognized the beat, as I had heard it on the iPod Monique had given. A familiar female voice pervaded the room, the beat perfect for booty-shaking.  
 
  
 
@@ -1634,7 +1634,7 @@
 
  "That's it baby. Suck my titty. Just relax and suck honey." Monique whispered, her voice like silk. My eyes lidded over as I focused on nipple, drowning out all other sensation. My dick was practically numb, the pleasure I was feeling was so great. I was feeling more pleasure than I ever had, but I was not that close to coming. I could go all day. As long as I focused on Monique's titty, her nipple in my mouth, I would last forever. 
 
- I played with her sweaty nipple, running my tongue around her smooth areola, then flicking the nipple. I wrapped my lips around the entire nipple and sucked as hard as I could, hollowing my cheeks. She used her hand to force as much of her breast into my mouth as she could. Report_Story #9 
+ I played with her sweaty nipple, running my tongue around her smooth areola, then flicking the nipple. I wrapped my lips around the entire nipple and sucked as hard as I could, hollowing my cheeks. She used her hand to force as much of her breast into my mouth as she could.  
 
  
 
@@ -1806,7 +1806,7 @@
 
  I hadn't known a lot of black women, but the ones I knew were very good looking. And they were blatantly sexual. Looking at them let you know they loved sex and were built to please. Black women were built for sex, it seemed. Like Monique and Sydni. They were built for sex. 
 
- To say that white girls and black girls were the same would be a lie. Of the girls I had known, most of the white women were very well put-together, proper, mature women. And that was great. But the black girls, they were more raw. More sexual. A bit trashy, but in a way that suited them. They were honest. They were upfront. They were real. White girls were a bit more reserved and proper. These black girls were in your face. They were honest. They let you know what they wanted. They took what they wanted. In a way, that was admirable. Report_Story #10 
+ To say that white girls and black girls were the same would be a lie. Of the girls I had known, most of the white women were very well put-together, proper, mature women. And that was great. But the black girls, they were more raw. More sexual. A bit trashy, but in a way that suited them. They were honest. They were upfront. They were real. White girls were a bit more reserved and proper. These black girls were in your face. They were honest. They let you know what they wanted. They took what they wanted. In a way, that was admirable. 0 
 
  
 
@@ -1972,7 +1972,7 @@
 
  "I think I proved I'm not racist. Not anymore." I said. 
 
- "You did, but you need to make it official. You need to vow to never fuck any white woman again. Not your wife. Not anybody. You are for black girls now. And to prove it, you need to find more black women. You need to pick up some black women and fucking rail them. Only then will you prove that you are not racist anymore. Can you do that for me?" Sydni said. I thought about it, and nodded in reply. "Good, because you are not going anywhere. You belong to us now. It will take years of reparations to make up for all that racism you showed us. The only way to make up for it is to become our slave. Cause we have fucked a lot of white guys in our time. A lot of white guys. And no one has kept up with us like you did. So you might as well agree to become our sex slave, cause we will be fucking you again, whether you want it or not." Sydni said sternly. I looked at her sprawled out form, and Monique's as well. Their statuesque bodies. Their huge black tits. They were so impressive. So imposing. You couldn't say no. I nodded as I gulped deeply. They smiled as I left the room. Report_Story #11 
+ "You did, but you need to make it official. You need to vow to never fuck any white woman again. Not your wife. Not anybody. You are for black girls now. And to prove it, you need to find more black women. You need to pick up some black women and fucking rail them. Only then will you prove that you are not racist anymore. Can you do that for me?" Sydni said. I thought about it, and nodded in reply. "Good, because you are not going anywhere. You belong to us now. It will take years of reparations to make up for all that racism you showed us. The only way to make up for it is to become our slave. Cause we have fucked a lot of white guys in our time. A lot of white guys. And no one has kept up with us like you did. So you might as well agree to become our sex slave, cause we will be fucking you again, whether you want it or not." Sydni said sternly. I looked at her sprawled out form, and Monique's as well. Their statuesque bodies. Their huge black tits. They were so impressive. So imposing. You couldn't say no. I nodded as I gulped deeply. They smiled as I left the room. 1 
 
  
 
@@ -2064,7 +2064,7 @@
 
  I know I make them sound bad, but in my mind, they were not stereotypical black women. Sure, they blasted their music day in and day out. Sure, sometimes, they laid around all day and smoked weed all day. Sure, they might be involved in criminal activities. But they were normal women, not caricatures. I had never met anyone like them. They didn't fit into any stereotype. They were independent black women. 
 
- Sydni had bought my old house, and had her friends move in there. When the housing board in the neighborhood raised a fuss, Sydni simply bought her way onto the board, eventually taking it over. She would not be denied, and soon, people all over the neighborhood were moving, as if terrified for some reason. As if someone had threatened them into moving. Soon, our entire neighborhood was full of black women. There were even big black bodyguards all over the place, as if there was someone here that needed protecting. It reminded me of those movies where a criminal kingpin would always be surrounded by bodyguards. I knew Sydni and Monique were going places in the criminal underworld if they had reached the point where they needed protection. I raised one last question, asking Sydni if I should be worried. But as she rode my cock in her tighter than tight pussy, her huge black breasts bouncing all over, she laughed, as if the question was a joke, and she confidently said no. That was all I needed to hear. If she wasn't worried, I wasn't either. Like I said before, I think she knew that I knew what they were up to, so when she asked for access to my bank account, we both knew the reason. We both knew that if I said yes, all the money I had earned for my hard work and dedication would be used to help fund these girls budding criminal empire. But if I got to have threesomes with insanely sexy black women every day, it would be worth it. That was how Monique and Sydni gained full access to my small fortune. That was how my small fortune was used to fund the criminal actions of two sexy black women. Report_Story #12 
+ Sydni had bought my old house, and had her friends move in there. When the housing board in the neighborhood raised a fuss, Sydni simply bought her way onto the board, eventually taking it over. She would not be denied, and soon, people all over the neighborhood were moving, as if terrified for some reason. As if someone had threatened them into moving. Soon, our entire neighborhood was full of black women. There were even big black bodyguards all over the place, as if there was someone here that needed protecting. It reminded me of those movies where a criminal kingpin would always be surrounded by bodyguards. I knew Sydni and Monique were going places in the criminal underworld if they had reached the point where they needed protection. I raised one last question, asking Sydni if I should be worried. But as she rode my cock in her tighter than tight pussy, her huge black breasts bouncing all over, she laughed, as if the question was a joke, and she confidently said no. That was all I needed to hear. If she wasn't worried, I wasn't either. Like I said before, I think she knew that I knew what they were up to, so when she asked for access to my bank account, we both knew the reason. We both knew that if I said yes, all the money I had earned for my hard work and dedication would be used to help fund these girls budding criminal empire. But if I got to have threesomes with insanely sexy black women every day, it would be worth it. That was how Monique and Sydni gained full access to my small fortune. That was how my small fortune was used to fund the criminal actions of two sexy black women. 2 
 
  
 

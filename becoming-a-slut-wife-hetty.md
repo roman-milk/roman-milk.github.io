@@ -152,7 +152,7 @@
 
  I called a friend of mine who was a detective on the local police force and explained the situation to him and asked him for some advice. He told me he would give it some thought and get back to me. That night things were a little strained around the house. I avoided talking to Hetty and when she tried to initiate sex in the evening I rolled away from her. The next morning Hetty said, "I'm supposed to work late tonight; what should I do?" 
 
- "I told you yesterday Hetty, you are making your own choices. If you aren't here tonight I'll know what choice you made." Report_Story #2 
+ "I told you yesterday Hetty, you are making your own choices. If you aren't here tonight I'll know what choice you made."  
 
  
 

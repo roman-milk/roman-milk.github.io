@@ -98,7 +98,7 @@
 
  That night Kerri cried herself to sleep. She felt much better in the morning and decided to look at the bright side. Remaining positive was imperative if she was going to rectify the situation. She reasoned that a calm and direct approach would convince Sky to stop and not carry out his vile threats. When she finally got dressed, all of her confidence and optimism disappeared, as she stared at her reflection in the bathroom mirror. 
 
- Kerri loved wearing the designer blouse despite the garment having a plunging neckline. She had several lacy modesty panels to cover her cleavage so it never bothered her to wear such a sexy top. When Kerri noticed a big portion of her breasts showing, she tried to adjust the swooping front to cover more, but the attempt at modesty seemed futile, as nothing hid the bare skin for long. She shrugged her shoulders in defiance and vowed to not let the unpleasant demand ruin her day. Report_Story #2 
+ Kerri loved wearing the designer blouse despite the garment having a plunging neckline. She had several lacy modesty panels to cover her cleavage so it never bothered her to wear such a sexy top. When Kerri noticed a big portion of her breasts showing, she tried to adjust the swooping front to cover more, but the attempt at modesty seemed futile, as nothing hid the bare skin for long. She shrugged her shoulders in defiance and vowed to not let the unpleasant demand ruin her day.  
 
  
 
@@ -216,7 +216,7 @@
 
  For some unknown reason the degrading and disgusting things that Lu was doing to her were having an adverse affect. Fire swept through her inner region and the image of her newly shaved pussy fueled her lust. Kerri squeezed her eyes shut with all of her might and she waited for the intense desire to subside. The darkness felt good and she tried to quell the rising emotions. 
 
- Kerri knew the man was taking liberties that were not necessary yet her protest was far too feeble. "No, no, please don't," she pleaded, but remained still with her legs spread. "Please don't." She wanted to escape but was unsure of the serious ramifications if she didn't follow Sky's demand. Report_Story #3 
+ Kerri knew the man was taking liberties that were not necessary yet her protest was far too feeble. "No, no, please don't," she pleaded, but remained still with her legs spread. "Please don't." She wanted to escape but was unsure of the serious ramifications if she didn't follow Sky's demand.  
 
  
 
@@ -324,7 +324,7 @@
 
  Her body still felt alive and mysteriously it seemed overly sensitive for some unknown reason. The shower felt more stimulating than usual and she let the hot, steamy water run over her exhausted muscles for many minutes. Eventually she felt relaxed and quickly got ready for work because the time was running short. 
 
- The day went well and there were no surprises in store for her until quitting time. Jim was feeling very sure of himself after his successful blackmail scheme and he met Kerri when she left work. He walked up to her as she approached her car and couldn't wipe the big grin off his face. "I was wondering if you would mind giving me some more lessons tonight," he said. Report_Story #4 
+ The day went well and there were no surprises in store for her until quitting time. Jim was feeling very sure of himself after his successful blackmail scheme and he met Kerri when she left work. He walked up to her as she approached her car and couldn't wipe the big grin off his face. "I was wondering if you would mind giving me some more lessons tonight," he said.  
 
  
 
@@ -388,7 +388,7 @@
 
  THE END OF CHAPTER ONE 
 
- I am revising my older stories and will hopefully write one new chapter when the revisions are done. Please send feedback, as I am always interested in what readers think of my stories. Report_Story #1 
+ I am revising my older stories and will hopefully write one new chapter when the revisions are done. Please send feedback, as I am always interested in what readers think of my stories.  
 
  
 
@@ -502,7 +502,7 @@
 
  It took Kerri a minute or two before her breathing and heart rate were back to normal. She composed herself enough to face the public, but still didn't relish walking around the college dressed in such a provocative fashion. Kerri exited and walked down the hallway, drawing the stares of admiration from many boys and even some envious looks from girls. She was well aware the sheer blouse did nothing to hide the beauty of her charms and she was in a constant flustered state of embarrassment. 
 
- It was with great relief when she got back to her home classroom and into the sanctity of familiar surroundings. Somehow she got through the rest of the day without too many interruptions, but there were lots of little giggles and snickers that she tried to ignore. Whenever there was a break or lull in the class, her mind drifted back to the rendezvous with Wendy. She was mystified by the fact she allowed the washroom incident to happen. Report_Story #2 
+ It was with great relief when she got back to her home classroom and into the sanctity of familiar surroundings. Somehow she got through the rest of the day without too many interruptions, but there were lots of little giggles and snickers that she tried to ignore. Whenever there was a break or lull in the class, her mind drifted back to the rendezvous with Wendy. She was mystified by the fact she allowed the washroom incident to happen.  
 
  
 
@@ -620,7 +620,7 @@
 
  Watching him admire her nudity, she decided to make one last attempt to get him to reconsider. "Please, Sky, don't do this to me," she whispered and cast her eyes down with guilt. The mistaken identity didn't bother Ward and he simply plunged ahead with his plan. He really didn't give a damn who this Sky was and just wanted to expose the rest of Kerri's raw assets. 
 
- He stripped the blouse from her body with one swift move and threw it into the far corner of the room. Why she watched the garment fly was a mystery and Kerri tried to remain calm, as the student stripped her dignity. His hands went immediately to her golden globes and within seconds they were bared, which brought a loud moan of delight from Ward's lips. Again he merely threw the lacy bra and his eyes devoured the two gorgeous breasts. The dangling rings drew his stare like powerful magnets. Report_Story #3 
+ He stripped the blouse from her body with one swift move and threw it into the far corner of the room. Why she watched the garment fly was a mystery and Kerri tried to remain calm, as the student stripped her dignity. His hands went immediately to her golden globes and within seconds they were bared, which brought a loud moan of delight from Ward's lips. Again he merely threw the lacy bra and his eyes devoured the two gorgeous breasts. The dangling rings drew his stare like powerful magnets.  
 
  
 
@@ -742,7 +742,7 @@
 
  Kerri closed her eyes and wished she wasn't there. Surely she must look like a whore who just satisfied a customer and Ward added to her final insult by coating his finger with semen; then wiping it into her mouth. The humiliation was complete and Kerri remained obedient, as she let her student scoop the remaining thick gobs between her open lips. 
 
- "I think you swallow cum better than any woman I have been with," Ward said and smiled with satisfaction. "We will have to do this many more times, my beautiful Teach, as you have one hell of a sexy body." Report_Story #4 
+ "I think you swallow cum better than any woman I have been with," Ward said and smiled with satisfaction. "We will have to do this many more times, my beautiful Teach, as you have one hell of a sexy body."  
 
  
 
@@ -852,7 +852,7 @@
 
  Robin had a sudden twinge of regret for wanting to join the select society, but she quickly ignored any warning signs, as the need to be accepted was too great. Kerri frantically looked for an avenue of escape, but one wasn't apparent to her confused mind. 
 
- All eyes were on the expectant newbies. Robin was well aware of what she was required to do and she had rehearsed it over and over in her mind. With Wendy as a mentor, she was given many suggestions and ideas on how to fulfill the initiation requirements. Robin slowly moved towards the cowering teacher and felt pangs of sympathy for the frightened woman. Report_Story #5 
+ All eyes were on the expectant newbies. Robin was well aware of what she was required to do and she had rehearsed it over and over in her mind. With Wendy as a mentor, she was given many suggestions and ideas on how to fulfill the initiation requirements. Robin slowly moved towards the cowering teacher and felt pangs of sympathy for the frightened woman.  
 
  
 
@@ -958,7 +958,7 @@
 
  Robin was fully occupied with the succulent womanly treasures and one of the other girls joined the fray. The girl quickly coated the areolas of Kerri's unguarded tits with wet saliva and fondled the boobs like a sex-hungry teenager. She squeezed and milked the big firm titties and marveled at the swollen nipples that were raw and about twice their normal size from the earlier abuse. 
 
- Kerri actually cried, as it felt like a thousand demons were attacking her body all at once, and she uttered bestial sounds when the sexual encounter reached a heightened pitch. More of the royal subjects paid homage to their gorgeous Queen, but not one girl interfered with Robin, as she worshiped the treasures between the splayed legs. The finger-fucking of both holes grew feverish and Robin's fingers were like two small cocks. She clamped her mouth over the top portion of the gushing slit and devoured the throbbing clitoris while pumping her fingers in and out of Kerri's cunt and ass. Report_Story #6 
+ Kerri actually cried, as it felt like a thousand demons were attacking her body all at once, and she uttered bestial sounds when the sexual encounter reached a heightened pitch. More of the royal subjects paid homage to their gorgeous Queen, but not one girl interfered with Robin, as she worshiped the treasures between the splayed legs. The finger-fucking of both holes grew feverish and Robin's fingers were like two small cocks. She clamped her mouth over the top portion of the gushing slit and devoured the throbbing clitoris while pumping her fingers in and out of Kerri's cunt and ass.  
 
  
 
@@ -976,7 +976,7 @@
 
  THE END 
 
- Please email me any suggestions or comments as I appreciate what readers have to say about my stories. Report_Story #1 
+ Please email me any suggestions or comments as I appreciate what readers have to say about my stories.  
 
  
 
@@ -1092,7 +1092,7 @@
 
  "Twice, but he forced me to do it," she blurted out almost like making an excuse. She didn't believe things could get any worse or more degrading than they were at that very moment. 
 
- "This is getting better all the time," Sally said to no one in particular. "Have you done anything with any other student from the class?" she inquired, looking for more dirt to hold over Kerri. There was no response and Sally decided to see if she could make her talk. Releasing the hold on Kerri's head, she quickly slapped the still blazing ass and the words flowed instantly. "Yes, I have with Wendy," she cried out and everyone's breathing stopped, waiting for the rest of the story. Report_Story #2 
+ "This is getting better all the time," Sally said to no one in particular. "Have you done anything with any other student from the class?" she inquired, looking for more dirt to hold over Kerri. There was no response and Sally decided to see if she could make her talk. Releasing the hold on Kerri's head, she quickly slapped the still blazing ass and the words flowed instantly. "Yes, I have with Wendy," she cried out and everyone's breathing stopped, waiting for the rest of the story.  
 
  
 
@@ -1190,7 +1190,7 @@
 
  Cory and Gary bided their time waiting for the bodies to quiet, as they knew it would soon be their turn. Things had preceded much differently than the plan outlined by Sally but the boys were easily able to adapt. It wouldn't take a rocket scientist to figure out what to do when sex was the lone subject. Their one-tracked minds were focused on self-gratification and Kerri would be the means to that end. 
 
- With Kerri continuing to rob Sally of every bit of decency she had left, Cory moved in for the kill. He simply rolled the excited teacher on top of Sally's outstretched body, finding a crevice between the sweaty body and the arm of the chair. Luckily it was a big chair with wide, cushioned arms, which allowed both girls to fit easily in the foamy seat, and very little weight was over Sally's slender body. Sally wanted to scream at her boyfriend to stop his madness and at least let her away from the action. Report_Story #3 
+ With Kerri continuing to rob Sally of every bit of decency she had left, Cory moved in for the kill. He simply rolled the excited teacher on top of Sally's outstretched body, finding a crevice between the sweaty body and the arm of the chair. Luckily it was a big chair with wide, cushioned arms, which allowed both girls to fit easily in the foamy seat, and very little weight was over Sally's slender body. Sally wanted to scream at her boyfriend to stop his madness and at least let her away from the action.  
 
  
 
@@ -1286,7 +1286,7 @@
 
  Lori was totally ashamed for letting her emotions get so far out of control but she was unable to reel them back in. The explosions robbed her of all decency and her tummy pulsed in and out from the violent convulsions as her teacher ate her pussy like a true lesbian. The darting tongued dipped between the puffy lips and every time it grazed the clit, Lori's hips displayed the hopelessness of her situation. 
 
- Such an undaunted display of lust and passion was the underlying reason Lori had always steadfastly refused to partake in any orgy like Keith kept suggesting. Deep down she knew the intensity of such an occurrence would make her appear to be a slut who loved sinful sex with anyone, male or female. The embarrassment of what her body was feeling was immense but still Lori was unable to calm the violent eruptions from her inner being. Report_Story #4 
+ Such an undaunted display of lust and passion was the underlying reason Lori had always steadfastly refused to partake in any orgy like Keith kept suggesting. Deep down she knew the intensity of such an occurrence would make her appear to be a slut who loved sinful sex with anyone, male or female. The embarrassment of what her body was feeling was immense but still Lori was unable to calm the violent eruptions from her inner being.  
 
  
 
@@ -1378,7 +1378,7 @@
 
  Emotions and desires slowly dwindled and subsided within the students and it allowed Kerri to collapse on the soft sofa in total exhaustion. Her life had been changed forever and she was well aware of the fact that these students were in complete control of her future. A little shiver ran through her tired muscles with the thought that they could make her do almost anything. Then the picture of being forced to stand naked in front of an entire classroom flashed into her mind and the endless possibilities brought fear to her delicate thinking. 
 
- THE END OF CHAPTER 3 Report_Story #1 
+ THE END OF CHAPTER 3  
 
  
 
@@ -1486,7 +1486,7 @@
 
  "You are such a slut and now I am going to punish you for being a bad, bad girl," she whispered and Kerri's heart rate was rising out of control. Laura jerked the captive head and demanded a verbal response from her prisoner. "Yes, yes, oh gawd yes he came inside me," Kerri whispered in a mournful voice. She immediately felt remorse for having broken a code of ethics for teachers. 
 
- Another quick jerk from Jim's mother and Kerri faithfully answered the woman's remaining question. "Yes, oh yes I came and really don't know how it happened," she said in almost an inaudible voice. "Oh gawd, I am so sorry for having sex with Jim. He was so loving and tender and he made me come and come so good. I've never had sex like that before and he made it so great," Kerri rambled on and on because her newfound master wanted to hear. Report_Story #2 
+ Another quick jerk from Jim's mother and Kerri faithfully answered the woman's remaining question. "Yes, oh yes I came and really don't know how it happened," she said in almost an inaudible voice. "Oh gawd, I am so sorry for having sex with Jim. He was so loving and tender and he made me come and come so good. I've never had sex like that before and he made it so great," Kerri rambled on and on because her newfound master wanted to hear.  
 
  
 
@@ -1590,7 +1590,7 @@
 
  They arrived at the Perkins' and Kerri's heart began to beat rapidly with trepidation. Both got out of the car and walked to the door with Kerri leading the way. The door opened on the first light knock and Mrs. Perkins face turned stoic at the sight of a stranger. Kerri felt obligated to explain the situation as best she could but the words didn't come easy. "I, I have invited Ward," she began and paused trying to find the correct thing to say. "He knows, knows what happened and made me bring him here," she whispered with the silly belief that Ward was not listening. Kerri looked into the eyes of Jim's mother and hoped that the woman would understand her hopeless predicament. 
 
- Neither woman knew what would happen and were willing to leave it up to fate. Laura held the door open as an invitation to Kerri and Ward and they entered going into the cozy living room. Ward took a seat on a couch, which was on one side of the room while the women each took an easy chair on either side of it. The young man smiled seeing the hesitation and nervousness shown by the two girls and wanted to play the suspense angle for all it was worth. The drama was truly exhilarating and his excitement was building. Report_Story #3 
+ Neither woman knew what would happen and were willing to leave it up to fate. Laura held the door open as an invitation to Kerri and Ward and they entered going into the cozy living room. Ward took a seat on a couch, which was on one side of the room while the women each took an easy chair on either side of it. The young man smiled seeing the hesitation and nervousness shown by the two girls and wanted to play the suspense angle for all it was worth. The drama was truly exhilarating and his excitement was building.  
 
  
 
@@ -1682,7 +1682,7 @@
 
  He dug his strong fingers into Laura's soft, rounded hips and released the molten lava into her nucleus. His emotional roller coaster picked up speed once it rolled over the highest peak and he emptied his reservoir into Jim's sexy mother. Laura wanted it to last forever and clung to the young man like he was her savior, which he really was. For years she had fantasized of this very thing occurring to her but life's true highway prevented anything so erotic or sinful from happening. 
 
- The orgasms slowly subsided until they were like small waves rolling onto the sandy shores. Mrs. Perkins was reluctant for the affair to end and held the boy tightly until he pulled away. His fiery eyes spotted the delectable teacher off to his right and saw how exposed and vulnerable she appeared. Her arms were held tightly to her sides and that pushed her breasts outward so they looked mouth-watering. The nipples were hard and protruded from Kerri's titties in inviting fashion. Report_Story #4 
+ The orgasms slowly subsided until they were like small waves rolling onto the sandy shores. Mrs. Perkins was reluctant for the affair to end and held the boy tightly until he pulled away. His fiery eyes spotted the delectable teacher off to his right and saw how exposed and vulnerable she appeared. Her arms were held tightly to her sides and that pushed her breasts outward so they looked mouth-watering. The nipples were hard and protruded from Kerri's titties in inviting fashion.  
 
  
 
@@ -1784,7 +1784,7 @@
 
  Kerri had read the note over and over while her mind flashed to her blackmailer but she was still unable to put a face to his name. She had wondered, at the time, whether he would be in the park but guessed that it was certain he would be. Kerri had reasoned that he would be close enough to observe her compliance to his smutty demands. She could only pray that no one who knew her would see her dressed in such a flamboyant manner. 
 
- "You are to wear these clothes plus running shoes, nothing else! No bra, no panties, no socks," the blackmailer had written. "And make sure you do three laps like you normally do," Kerri had read and realized the man was certainly aware of her routine. In a silly attempt to find more clothes, Kerri had actually looked in the empty bag but the two garments were the sum of what Sky demanded she wear. She had blushed a bright shade of red looking at the shirt and black leotards. Report_Story #5 
+ "You are to wear these clothes plus running shoes, nothing else! No bra, no panties, no socks," the blackmailer had written. "And make sure you do three laps like you normally do," Kerri had read and realized the man was certainly aware of her routine. In a silly attempt to find more clothes, Kerri had actually looked in the empty bag but the two garments were the sum of what Sky demanded she wear. She had blushed a bright shade of red looking at the shirt and black leotards.  
 
  
 
@@ -1816,7 +1816,7 @@
 
  * 
 
- Please email your comments or suggestions as I truly appreciate them. I intended to write one chapter but the story continued to where I decided to break it into two. I am posting Chapter 4 and Chapter 5 will be posted shortly. Report_Story #1 
+ Please email your comments or suggestions as I truly appreciate them. I intended to write one chapter but the story continued to where I decided to break it into two. I am posting Chapter 4 and Chapter 5 will be posted shortly.  
 
  
 
@@ -1912,7 +1912,7 @@
 
  It gave the impression of magic. Kerri watched the tip of his tongue dart out to caress the very end of her protruding clit and her mind exploded with brilliant flashes of bright light. Then he rolled the throbbing mass around with his tongue and Kerri's hips rolled from side to side. To survive, she willed her brain into another universe and watched the action unfold as if she were someone else. She must resist, halt the session before something drastic occurred and Kerri shut her eyes tightly. Rolling her head back so it tilted away from the ugly teacher, she welcomed the loss of sight. The only problem was that Mr. Tovell devoured the raw clitoris and sucked as hard as he could. 
 
- Suddenly a short, fat finger pierced her sphere. He pumped it like crazy allowing the fingernail to rake over the tender, vaginal walls. "Oh gawd, no, no, don't, oh don't," came the cries of a failing woman. Kerri wasn't begging the vile man to stop, she was pleading with her soul to quiet. She must fake it, fake that he was accomplishing his wicked goal and Kerri remembered how he promised to keep things a secret. Report_Story #2 
+ Suddenly a short, fat finger pierced her sphere. He pumped it like crazy allowing the fingernail to rake over the tender, vaginal walls. "Oh gawd, no, no, don't, oh don't," came the cries of a failing woman. Kerri wasn't begging the vile man to stop, she was pleading with her soul to quiet. She must fake it, fake that he was accomplishing his wicked goal and Kerri remembered how he promised to keep things a secret.  
 
  
 
@@ -2008,7 +2008,7 @@
 
  Kerri twisted and did everything in her power to evade his attacking hand and she fought as best she could, short of causing a big scene in front of everyone. She found it impossible to move away from his assault and cursed for dressing in such an exhibitionist manner. Kerri practically ran from the floor after the set was over and merely dashed by the booth on the way to the washroom. It was fairly crowded in the restroom but Kerri managed to find an empty stall. She sobbed a tiny bit and rested in the privacy of the small cubicle while trying to regain her sanity and dignity. 
 
- Dean slithered into the booth across from Harv. BJ had found another woman to discover and had departed for greener pastures, which made Dean very happy. He was still overly excited from what just happened on the dance floor and couldn't wait to build his male ego with some boasting. "Man, that's one hot woman. Let's get her out of here and get into her pants," he bragged and laughed out loud at the ironic humor. Report_Story #3 
+ Dean slithered into the booth across from Harv. BJ had found another woman to discover and had departed for greener pastures, which made Dean very happy. He was still overly excited from what just happened on the dance floor and couldn't wait to build his male ego with some boasting. "Man, that's one hot woman. Let's get her out of here and get into her pants," he bragged and laughed out loud at the ironic humor.  
 
  
 
@@ -2112,7 +2112,7 @@
 
  He suddenly pulled the delicate clitoris far out from her body stretching it beyond tolerable limits and separating it from its protective hood. Dean was forceful, much rougher than any man Kerri had ever had sex with but that did not upset her. Every time he pinched the elongated clit, Kerri discovered a willingness to endure the erotic pleasures of the devil. 
 
- Dean could smell the stale sex, the used semen and sweat from the earlier affair between Kerri and Harv but it did not bother him. His enraged mind had one goal and he was determined to succeed without any considerations for Kerri's feelings or well being. Report_Story #4 
+ Dean could smell the stale sex, the used semen and sweat from the earlier affair between Kerri and Harv but it did not bother him. His enraged mind had one goal and he was determined to succeed without any considerations for Kerri's feelings or well being.  
 
  
 

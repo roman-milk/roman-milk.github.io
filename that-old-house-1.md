@@ -256,7 +256,7 @@
 
  "Go out tonight and relax. Chat up a girl. Buy her a drink." 
 
- I laughed. "Ok, Mom, I'll see if I can't go out for a beer tonight. No promises about the girl." Report_Story #2 
+ I laughed. "Ok, Mom, I'll see if I can't go out for a beer tonight. No promises about the girl."  
 
  
 
@@ -414,7 +414,7 @@
 
  We headed for the luggage area and waited for their bags to arrive. Her personal wheelchair was delivered, reassembled after the flight, and Karen prepared the pillows on it, before helping Beverly into it. 
 
- I'd traded my Honda in for a used truck, when I'd started all the work. It was a crew cab, and we were able to place the luggage and wheelchair in the rear. Karen got in the back, and I lifted Beverly into the passenger seat. I was surprised how light she was, and wondered if it was hauling all that lumber around, or if she really was lighter than air. Report_Story #3 
+ I'd traded my Honda in for a used truck, when I'd started all the work. It was a crew cab, and we were able to place the luggage and wheelchair in the rear. Karen got in the back, and I lifted Beverly into the passenger seat. I was surprised how light she was, and wondered if it was hauling all that lumber around, or if she really was lighter than air.  
 
  
 
@@ -662,7 +662,7 @@
 
  I'd be hard pressed to ever say no to her. 
 
- We took her out, and gave her a tour of the area, as much as we could within her transport limitations. The old oak was huge, and had successfully held its own against the encroaching wild. The lowest branches could have been trees on their own, stretching out sideways, fighting for space. In some ways the tree was much like The House. Standing strong and solitary, taking whatever time and nature threw at it, and weathering it all. Report_Story #4 
+ We took her out, and gave her a tour of the area, as much as we could within her transport limitations. The old oak was huge, and had successfully held its own against the encroaching wild. The lowest branches could have been trees on their own, stretching out sideways, fighting for space. In some ways the tree was much like The House. Standing strong and solitary, taking whatever time and nature threw at it, and weathering it all.  
 
  
 
@@ -898,7 +898,7 @@
 
  Karen abruptly looked serious. She reached out and took Bev's free hand in hers. "Seriously. Anything you want. I owe you for this one." 
 
- That finally got to her and Bev blushed. "I'm just teasing, you little hussy!" She turned her attention to me. "I really am glad that you guys found some comfort in each other." She put her tea down, reached out for my hand, and placed Karen's hand in mine. Report_Story #5 
+ That finally got to her and Bev blushed. "I'm just teasing, you little hussy!" She turned her attention to me. "I really am glad that you guys found some comfort in each other." She put her tea down, reached out for my hand, and placed Karen's hand in mine.  
 
  
 
@@ -1168,7 +1168,7 @@
 
  I found myself imagining things, touches to my hair, something brushing against my hip. I was normally pretty quiet when on my own, but I was talking to The House, asking if anybody was there. What did they want? What was going on? 
 
- At least moving some wood and tools up to the second floor distracted me for a while, and I worked later than I would normally during the week. I still opted for a scotch on the porch, nervous about going to bed. I made it a double. Report_Story #6 
+ At least moving some wood and tools up to the second floor distracted me for a while, and I worked later than I would normally during the week. I still opted for a scotch on the porch, nervous about going to bed. I made it a double.  
 
  
 
@@ -1354,7 +1354,7 @@
 
  I felt her touch within moments, making me hard. "Can we take it slow? I'm here for you. As many times as you want, tonight. Whatever you need." 
 
- I guess she took me at my word. She teased me, her always faint touch just a whisper against my flesh. Her kiss, on the other hand, was firmer and warmer than ever. I had a flash of her face, it materialized for only a few seconds. Her hair was long and dark, piercing eyes that drilled down to my very soul, lips that offered a hint of a smile. Report_Story #7 
+ I guess she took me at my word. She teased me, her always faint touch just a whisper against my flesh. Her kiss, on the other hand, was firmer and warmer than ever. I had a flash of her face, it materialized for only a few seconds. Her hair was long and dark, piercing eyes that drilled down to my very soul, lips that offered a hint of a smile.  
 
  
 
@@ -1648,7 +1648,7 @@
 
  "Surely you don't think it's a coincidence, do you?" she asked enigmatically. "Some things are meant to happen. I'm certain this is one." She closed her book. "There are a few more things around her somewhere. When I have a chance I'll see if I can hunt them down." 
 
- I paid her, thanking her profusely. I loaded up my truck, still unable to believe my luck. I was never much of a believer in fate, but that was changing. I mean, seriously? What were the odds? Report_Story #8 
+ I paid her, thanking her profusely. I loaded up my truck, still unable to believe my luck. I was never much of a believer in fate, but that was changing. I mean, seriously? What were the odds?  
 
  
 
@@ -1888,7 +1888,7 @@
 
  She was shaking her head slowly, and I saw her eyes glistening. 
 
- I continued, "If it's your friends at the home, you can go to visit them as regularly as you want. If you're concerned about the winter weather, you can even be a snowbird, alternating your time between here and there. I'll miss the hell out of you, but we can make it work out. Don't leave me here alone." Report_Story #9 
+ I continued, "If it's your friends at the home, you can go to visit them as regularly as you want. If you're concerned about the winter weather, you can even be a snowbird, alternating your time between here and there. I'll miss the hell out of you, but we can make it work out. Don't leave me here alone."  
 
  
 
@@ -2128,7 +2128,7 @@
 
  "I missed you, beautiful." 
 
- "Holy shit! That was insane! I never, ever felt anything like it. I thought I was going to lose my mind there for a bit." She slid over next to me resting her head on my chest, her soft hand caressing me possessively. She reached down and pulled the covers up, cuddling in closer. Report_Story #10 
+ "Holy shit! That was insane! I never, ever felt anything like it. I thought I was going to lose my mind there for a bit." She slid over next to me resting her head on my chest, her soft hand caressing me possessively. She reached down and pulled the covers up, cuddling in closer. 0 
 
  
 
@@ -2368,7 +2368,7 @@
 
  Her hand stroked my cheek, and I opened my eyes to find her gazing on me lovingly, the look unmistakable. 
 
- "Later, please, Jack. I need to hear it when you're clear-headed." Report_Story #11 
+ "Later, please, Jack. I need to hear it when you're clear-headed." 1 
 
  
 
@@ -2628,7 +2628,7 @@
 
  As rarely as she spoke to me, and the effort I knew it cost her, the two consecutive phrases had me hesitating. Still, The House was my responsibility and I needed to check it out. Stepping into the wide open space, there was nothing out of place. The windows were boarded up, the fireplaces temporarily bricked off. The two light bulbs illuminating the space did a poor job of fighting off the shadows. The access to the attic was still closed. Nothing there to see. 
 
- I turned to see Andrew peeking up through the opening. I stepped his way, and my bowels turned to water when I felt a firm push in my back. I would have blamed it on Mary, I recognized the type of touch, but Mary had made it clear in the last few weeks she wouldn't go past the last couple of stairs. No way she was up there with me. Report_Story #12 
+ I turned to see Andrew peeking up through the opening. I stepped his way, and my bowels turned to water when I felt a firm push in my back. I would have blamed it on Mary, I recognized the type of touch, but Mary had made it clear in the last few weeks she wouldn't go past the last couple of stairs. No way she was up there with me. 2 
 
  
 
@@ -2926,7 +2926,7 @@
 
  We were a hit. At least the women were, always surrounded by admirers. I had to fight my way through the crowd a couple of times. I would have been more nervous, if there weren't as many women around them as men. 
 
- The party was at the local VFW. I learned it was the biggest hall in town, other than the high-school gym. They had it fixed up nice, and even had a local band. $50 a couple bought your entrance and a bottle of champagne. Our table of eight contained Marge and Ron, as well as two other couples. It was a little crowded squeezing Bev in, but nobody seemed to mind. We were royalty. We were sitting with both the Mayor and his wife, as well as the high school principal and her husband. Report_Story #13 
+ The party was at the local VFW. I learned it was the biggest hall in town, other than the high-school gym. They had it fixed up nice, and even had a local band. $50 a couple bought your entrance and a bottle of champagne. Our table of eight contained Marge and Ron, as well as two other couples. It was a little crowded squeezing Bev in, but nobody seemed to mind. We were royalty. We were sitting with both the Mayor and his wife, as well as the high school principal and her husband. 3 
 
  
 
@@ -3198,7 +3198,7 @@
 
  "Same here. I owe you. I hope you'll give me a chance to pay you back sometime." 
 
- "You owe me nothing. It was a treat working with you. I've got bragging rights in the office. No, we're even." Report_Story #14 
+ "You owe me nothing. It was a treat working with you. I've got bragging rights in the office. No, we're even." 4 
 
  
 
@@ -3428,7 +3428,7 @@
 
  "I didn't do that." 
 
- "I know. Now. I didn't then. I caught you talking to yourself, and found out you weren't. You were talking to her. Mary. I could hear you. I wondered for a moment if you weren't losing it. So I asked her. Over and over, until finally she relented. I let her know I was concerned, that I was worried for you, and how you'd changed. She opened up and told me. It's only been about a week now." Report_Story #15 
+ "I know. Now. I didn't then. I caught you talking to yourself, and found out you weren't. You were talking to her. Mary. I could hear you. I wondered for a moment if you weren't losing it. So I asked her. Over and over, until finally she relented. I let her know I was concerned, that I was worried for you, and how you'd changed. She opened up and told me. It's only been about a week now." 5 
 
  
 

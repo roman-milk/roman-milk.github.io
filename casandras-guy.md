@@ -230,7 +230,7 @@
 
  "Paul has been after me for about a month now so today I called him and asked him over. I know this is sudden and that you weren't expecting it, but I'm sorry about having left you out for so long and I wanted to get a quick start on making it up to you. I know that this is all new to you and you may want to ease into it. You may only want to watch the first time or two or you may want to just jump right in. There isn't any pressure honey, just do what you want. Come on Paul" and she took him by the hand and headed off toward the bedroom. 
 
- I just stood there and stared at her back as she walked away with Paul. I'd spent two and a half years with her in college, lived with her for a year and had been married to her for just a little over a year. After all that time you would think that I would know her pretty well, but it was now obvious that where she was concerned I really did not have a clue. Report_Story #2 
+ I just stood there and stared at her back as she walked away with Paul. I'd spent two and a half years with her in college, lived with her for a year and had been married to her for just a little over a year. After all that time you would think that I would know her pretty well, but it was now obvious that where she was concerned I really did not have a clue.  
 
  
 

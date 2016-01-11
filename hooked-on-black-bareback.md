@@ -318,7 +318,7 @@
 
  She feels it swell and touch her cervix. She starts stroking on it. She strokes and grinds it on he clit. She feels her orgasm coming on. She speeds up, humping him faster and faster. 
 
- "Cum in me again, baby. Give me more. More hot black cum." Report_Story #2 
+ "Cum in me again, baby. Give me more. More hot black cum."  
 
  
 
@@ -376,7 +376,7 @@
 
  She picks up her cell phone. She selects contacts. She touches 'Donna'. She hesitates and taps call. 
 
- The end. Report_Story #1 
+ The end.  
 
  
 
@@ -736,7 +736,7 @@
 
  'No, no. I shouldn't be having feelings like this. It's so wrong.' 
 
- Donald come home and goes to his room. He turns his laptop on and waits for it to boot up. He decides to check out his favorite porn site. He closes his door, pulls his shorts down and sits down. He clicks on favorites and selects the mother son site. He looks over the thumbnails. He sees a new video there. He opens it and he sees a small blonde in the kitchen doing dishes. Soon a young looking man walks up behind her. He reaches under her t shirt and holds her breasts. She moans and leans back against him. He lifts her shirt over her head. She turns and puts her arms around his neck. He notices she looks a lot like Amy. He watches as they go to the bedroom. She sucks him and fucks him. Instead of cumming on her face, he cums in her. It shows his cum running out of her pussy and down her ass crack. It ends and he clicks and runs it again. He strokes his cock as he watches. When she cums, he squirts his cum all over his desk. He pulls off his shorts and wipes up his cum. He sits there thinking. Report_Story #2 
+ Donald come home and goes to his room. He turns his laptop on and waits for it to boot up. He decides to check out his favorite porn site. He closes his door, pulls his shorts down and sits down. He clicks on favorites and selects the mother son site. He looks over the thumbnails. He sees a new video there. He opens it and he sees a small blonde in the kitchen doing dishes. Soon a young looking man walks up behind her. He reaches under her t shirt and holds her breasts. She moans and leans back against him. He lifts her shirt over her head. She turns and puts her arms around his neck. He notices she looks a lot like Amy. He watches as they go to the bedroom. She sucks him and fucks him. Instead of cumming on her face, he cums in her. It shows his cum running out of her pussy and down her ass crack. It ends and he clicks and runs it again. He strokes his cock as he watches. When she cums, he squirts his cum all over his desk. He pulls off his shorts and wipes up his cum. He sits there thinking.  
 
  
 

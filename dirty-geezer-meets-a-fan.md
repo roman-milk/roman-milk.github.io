@@ -70,7 +70,7 @@
 
  "Clean me slut, you haven't finished yet!" 
 
- .... To be continued? Report_Story #1 
+ .... To be continued?  
 
  
 
@@ -168,7 +168,7 @@
 
  ------------------------------------------ 
 
- I hope you like this new story, it is inspired by a special lady, who did indeed contact me as I stated. I hope you enjoy, and please do send feedback. Report_Story #1 
+ I hope you like this new story, it is inspired by a special lady, who did indeed contact me as I stated. I hope you enjoy, and please do send feedback.  
 
  
 

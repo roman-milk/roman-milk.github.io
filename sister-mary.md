@@ -264,7 +264,7 @@
 
  His finger touched a lip. It was drier than his cousin had been. He wondered if she had already been playing with herself, before sliding into bed with him. Under the covers she had guided his fingers. He remembered at the time wishing he had a torch. 
 
- Sister Mary had wisps of blonde hair in the way. As he clumsily fiddled with her lips, he watched them unfold. They seemed to be swelling up. He remembered her comments about Billy looking swollen and sore, which gave him confidence. Report_Story #2 
+ Sister Mary had wisps of blonde hair in the way. As he clumsily fiddled with her lips, he watched them unfold. They seemed to be swelling up. He remembered her comments about Billy looking swollen and sore, which gave him confidence.  
 
  
 
@@ -360,7 +360,7 @@
 
  "Yes, Sister Mary," he automatically answered. 
 
- He was certainly ready for bed. It would take little work to finish off what he had started. His cock was rock hard. Report_Story #1 
+ He was certainly ready for bed. It would take little work to finish off what he had started. His cock was rock hard.  
 
  
 
@@ -602,7 +602,7 @@
 
  Sister Mary had to suppress a sharp intake of breath, when his fingers found an especially sensitive spot. After his playing with her, she certainly knew where her most sensitive place was. 
 
- 'Thank you, James. You will see that it has all opened up now, and looks wet. That is lubrication for the penis to enter the vagina. The vagina has opened up a lot more than when first seen. Though it isn't ready yet, as it's too small to accommodate a penis. More stimulation is needed. That is important to remember, as you will hurt your wife if you don't prepare her enough,' she said. Report_Story #2 
+ 'Thank you, James. You will see that it has all opened up now, and looks wet. That is lubrication for the penis to enter the vagina. The vagina has opened up a lot more than when first seen. Though it isn't ready yet, as it's too small to accommodate a penis. More stimulation is needed. That is important to remember, as you will hurt your wife if you don't prepare her enough,' she said.  
 
  
 

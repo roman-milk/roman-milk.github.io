@@ -260,7 +260,7 @@
 
  Two years went by and I had gone through a couple of relationships that didn't take. To be honest, that they didn't catch fire and go was all on me. I never could get Jan out of my mind. And then one day at work Jan called me and asked me to meet her at the Landing Strip that evening. It just happened that it was a Wednesday and that was open mike night at the Strip. So there I was at eight drinking a vodka tonic with a slice of lime and listening to amateur comics as I waited for her. 
 
- Sarah was a housewife by day, but she was pretty funny. The jokes were kind of stale, but she had a great delivery. Her best one was: Report_Story #2 
+ Sarah was a housewife by day, but she was pretty funny. The jokes were kind of stale, but she had a great delivery. Her best one was:  
 
  
 

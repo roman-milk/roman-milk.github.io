@@ -192,7 +192,7 @@
 
  "It's a beautiful cock," she purred, "nice and thick." She took the shaft in her hand and wanked it slowly. 
 
- Frankie groaned. "Della... You're beautiful. Lovely big tits..." He lifted Della's breasts as though testing their weight in his palms. He took first one and then the other elongated nipple into his mouth and sucked at them. His fingers then moved between Della's legs, through the dark tangle of her bush until he found the wet core of her. Report_Story #2 
+ Frankie groaned. "Della... You're beautiful. Lovely big tits..." He lifted Della's breasts as though testing their weight in his palms. He took first one and then the other elongated nipple into his mouth and sucked at them. His fingers then moved between Della's legs, through the dark tangle of her bush until he found the wet core of her.  
 
  
 

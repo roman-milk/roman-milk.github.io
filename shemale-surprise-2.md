@@ -354,7 +354,7 @@
 
  "Fine," I said exasperated by the strange conversation. "I'll suck her cock." 
 
- "How about that sexy ass of yours, Robert, would you give that up, too?" she asked, teasing me relentlessly. Report_Story #2 
+ "How about that sexy ass of yours, Robert, would you give that up, too?" she asked, teasing me relentlessly.  
 
  
 
@@ -802,7 +802,7 @@
 
  "Go ahead," she purred. "Become my cocksucker." 
 
- Somehow being called a cocksucker was the final straw needed to cross the invisible line that was between fantasy and reality. Reading stories on Literotica, the word cocksucker had always gotten me hard, although I couldn't explain it. Yet now, the name-calling directed at me, something I had fantasied about but never imagined actually happening to me (except for Mary's name calling last week), brought me full circle. I moved closer, my hands trembling, as I tugged down Mia's pantyhose to her knees, releasing her massive cock. Report_Story #3 
+ Somehow being called a cocksucker was the final straw needed to cross the invisible line that was between fantasy and reality. Reading stories on Literotica, the word cocksucker had always gotten me hard, although I couldn't explain it. Yet now, the name-calling directed at me, something I had fantasied about but never imagined actually happening to me (except for Mary's name calling last week), brought me full circle. I moved closer, my hands trembling, as I tugged down Mia's pantyhose to her knees, releasing her massive cock.  
 
  
 
@@ -1228,7 +1228,7 @@
 
  "Yes, Mistress, what?" She questioned, her fully erect cock pointed right at me. 
 
- "Yes, Mistress, I want you to fuck my ass, my man-cunt. I want you to make me your bitch," I admitted, each self-derogatory word getting me hornier...making me feel like a little slut. Report_Story #4 
+ "Yes, Mistress, I want you to fuck my ass, my man-cunt. I want you to make me your bitch," I admitted, each self-derogatory word getting me hornier...making me feel like a little slut.  
 
  
 

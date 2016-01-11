@@ -486,7 +486,7 @@
 
  "I can see your little pink ass hole too. It's really cute." 
 
- He leans in and kisses her lips. She gasps. He licks her from asshole to her clit. She moans, and opens her legs wider. He licks up and down, passing on her clit. Her juice runs down her ass crack. He licks it up as fast as he can. She is getting really hot, and thrusting her hips up to his face. He gently licks her clit. She cries out. He keeps licking till she is right on the edge. Report_Story #2 
+ He leans in and kisses her lips. She gasps. He licks her from asshole to her clit. She moans, and opens her legs wider. He licks up and down, passing on her clit. Her juice runs down her ass crack. He licks it up as fast as he can. She is getting really hot, and thrusting her hips up to his face. He gently licks her clit. She cries out. He keeps licking till she is right on the edge.  
 
  
 
@@ -862,7 +862,7 @@
 
  "Now, baby, give it to me. Cum in me. Fill my pussy." 
 
- She squeezes is cock as hard as she can and his cock explodes his cum in her. She screams and cums with him. The grind against each other as he cums in her. Report_Story #3 
+ She squeezes is cock as hard as she can and his cock explodes his cum in her. She screams and cums with him. The grind against each other as he cums in her.  
 
  
 

@@ -94,7 +94,7 @@
 
  She continued moving around the circle undirected and unassisted by the high priests. 
 
- It seemed to me that she was becoming more eager with each cock. By the time she knelt at the fifth's feet, she seemed crazy with lust. As his member spurted deep in her throat, she dropped her bound hands between her legs and touched her clit, exploding in immediate orgasmic delight. Her whole body seemed to convulse wildly as she came, which only seemed add to the priest's enjoyment of her oral skills. Report_Story #2 
+ It seemed to me that she was becoming more eager with each cock. By the time she knelt at the fifth's feet, she seemed crazy with lust. As his member spurted deep in her throat, she dropped her bound hands between her legs and touched her clit, exploding in immediate orgasmic delight. Her whole body seemed to convulse wildly as she came, which only seemed add to the priest's enjoyment of her oral skills.  
 
  
 
@@ -176,7 +176,7 @@
 
  The horse drawn cage entered the room on cue, and the fourteen sluts piled in one at a time, come dripping from their engorged sex and glistening from their bare breasts. The twelve priests retrieved their robes and torches and filed around the platform twice, their cocks still at full attention, and then proceeded out the same entrance through which they had entered. The two high priests followed them out without a word. 
 
- The room went dark. The meager sunlight that had earlier illuminated the room from above had vanished into night. How long had we been there? As the last of the noises faded into the passageways, all was silent again. I wasn't sure if the ordeal was over or if this was just the end of the first act. Nevertheless, I proceeded crawl around the table and untie Amber from the silk bonds on her arms and legs. As I undid the last leg cuff, a mist began to rise around the table. Report_Story #3 
+ The room went dark. The meager sunlight that had earlier illuminated the room from above had vanished into night. How long had we been there? As the last of the noises faded into the passageways, all was silent again. I wasn't sure if the ordeal was over or if this was just the end of the first act. Nevertheless, I proceeded crawl around the table and untie Amber from the silk bonds on her arms and legs. As I undid the last leg cuff, a mist began to rise around the table.  
 
  
 

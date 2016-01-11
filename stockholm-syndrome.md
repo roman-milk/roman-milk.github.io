@@ -192,7 +192,7 @@
 
  "I'm sorry, Tammy." He said, protecting her. Tammy understood that he now would have to bite bullet and comply with the woman's evil plans, to protect her. Tammy loved him so much. She nodded at John, communicating that he should do what she asked. 
 
- "Okay, so we're in agreement." Jessica announced. "Very good." she added. With that she hooked her fingers under the straps of her thong and pushed them down, letting them fall to the floor. She bent over and picked up her thong. She stretched her thong between her hands like a slingshot and shot it at Tammy, hitting her in the face. Tammy could do nothing to avoid it, feeling the cloth hit her face before landing in her lap. She got a whiff of Jessica's scent and she could tell that Jessica was very turned on. Report_Story #2 
+ "Okay, so we're in agreement." Jessica announced. "Very good." she added. With that she hooked her fingers under the straps of her thong and pushed them down, letting them fall to the floor. She bent over and picked up her thong. She stretched her thong between her hands like a slingshot and shot it at Tammy, hitting her in the face. Tammy could do nothing to avoid it, feeling the cloth hit her face before landing in her lap. She got a whiff of Jessica's scent and she could tell that Jessica was very turned on.  
 
  
 
@@ -306,7 +306,7 @@
 
  "Tell me or I'll stop! Tell me or I'll stop fucking you! Tell me or you don't get to drain your balls!" Jessica yelled out, bringing her bouncing hips to a stop, his balls nestled snugly against her ass as his dick was buried inside her. John tried to bounce his hips to try to relieve the throbbing in his balls, but she held him down, preventing him from getting any pleasure. She leant down and laid on his chest, her breasts flattening out against him. The feeling of her soft breasts against his chest nearly set him off. Jessica put her mouth against his ear. 
 
- "C'mon, John. Tell me the truth." Jessica whispered "Tell me that my pussy feels better than anything you've ever felt. Tell me that my pussy feels so good on your dick. Tell me that you love my pussy more than anything. Tell me you love my pussy more than your wife. Tell me that you would leave your wife for me. Tell me that you would leave your wife for my tight little pussy. Tell me you love me."After she finished whispering her evil speech to John, he felt her soft lips kiss his ear. Her mouth moved down, licking and sucking his neck. John shivered as he felt this, and took in her dark designs. He now knew her true goal. Her goal was his fidelity, his loyalty to his wife. She hoped that he would leave Tammy for her, after experiencing her admittedly extra tight pussy. She hoped that the pleasure she could give him would override the love he had for Tammy. John shivered at this plan, and also the wet tongue sliding across his neck. He felt her tighten her pussy around his dick. He was then reminded of his aching balls, filled to the brim with cum, cum that was bursting to escape. He could feel his dick marinating in her juices, which had dripped down to his balls. If she would move just a little bit, he would no doubt cum. John tried to let his balls simmer, hoping the pressure would ease quickly. Report_Story #3 
+ "C'mon, John. Tell me the truth." Jessica whispered "Tell me that my pussy feels better than anything you've ever felt. Tell me that my pussy feels so good on your dick. Tell me that you love my pussy more than anything. Tell me you love my pussy more than your wife. Tell me that you would leave your wife for me. Tell me that you would leave your wife for my tight little pussy. Tell me you love me."After she finished whispering her evil speech to John, he felt her soft lips kiss his ear. Her mouth moved down, licking and sucking his neck. John shivered as he felt this, and took in her dark designs. He now knew her true goal. Her goal was his fidelity, his loyalty to his wife. She hoped that he would leave Tammy for her, after experiencing her admittedly extra tight pussy. She hoped that the pleasure she could give him would override the love he had for Tammy. John shivered at this plan, and also the wet tongue sliding across his neck. He felt her tighten her pussy around his dick. He was then reminded of his aching balls, filled to the brim with cum, cum that was bursting to escape. He could feel his dick marinating in her juices, which had dripped down to his balls. If she would move just a little bit, he would no doubt cum. John tried to let his balls simmer, hoping the pressure would ease quickly.  
 
  
 
@@ -440,7 +440,7 @@
 
  John woke up with the sunlight shining on his face through the window. He realized he was still tied to the bed. He looked over and saw his wife slumped over, asleep. He turned and saw Jessica sleeping next to him, peacefully. 'God, she's gorgeous' was John's first thought, taking in her serene face. Wait, what? He shook this thought out of his head. This bitch was holding him and his wife hostage, and she had hurt his wife. He hated this woman. But how could a woman he hated so much make him feel this good? 
 
- John tried to rationalize his thoughts. On a purely physical level, he was enjoying what she was doing. It didn't mean anything. They were just physical reactions, not emotional ones. How could he not respond? No one would hold it against him for responding to her. It wasn't even him, it was his dick that responded. His dick was betraying his better judgment. This woman was insane. She had tied him down in his own home and had her way with him. She was crazy and evil. The only thing she had going for her was her body. Her gorgeous face. Those massive breasts. Her tight, wet pussy. Her tasty asshole. John tried to get her body out of his mind, but then he realized he couldn't hide from the truth. Her body was spectacular. She was fantastically stunning. He just had to accept it and move on. Her having a great body changed nothing. What kind of woman fucks a man in front of his wife? What kind of woman humiliates someone like that? Report_Story #4 
+ John tried to rationalize his thoughts. On a purely physical level, he was enjoying what she was doing. It didn't mean anything. They were just physical reactions, not emotional ones. How could he not respond? No one would hold it against him for responding to her. It wasn't even him, it was his dick that responded. His dick was betraying his better judgment. This woman was insane. She had tied him down in his own home and had her way with him. She was crazy and evil. The only thing she had going for her was her body. Her gorgeous face. Those massive breasts. Her tight, wet pussy. Her tasty asshole. John tried to get her body out of his mind, but then he realized he couldn't hide from the truth. Her body was spectacular. She was fantastically stunning. He just had to accept it and move on. Her having a great body changed nothing. What kind of woman fucks a man in front of his wife? What kind of woman humiliates someone like that?  
 
  
 
@@ -578,7 +578,7 @@
 
  "Yeah, but to me, the skin is a sign of how much care a girl puts into pleasing her man. With a girl like me, with smooth, tan, sexy skin, it's clear that I put a lot of working into making myself look attractive. But her? She has dry, pasty skin. She clearly never tans." Jessica said. 
 
- "She burns easily." John replied, defending his wife. Report_Story #5 
+ "She burns easily." John replied, defending his wife.  
 
  
 
@@ -714,7 +714,7 @@
 
  "Holy Shit!" John called out, his dick numb with pleasure. His eyes were transfixed by her bouncing ass. Her firm cheeks bouncing looked so fucking good. Just watching her ass bump and grind and flex. It truly was hypnotizing. John could do nothing but take it. Just lay back and take in the full force of Jessica's ass. 
 
- John couldn't help but marvel at her stamina. Her ass was a blur in front of him at it bounced in his lap at an incredible speed. She did not stop. She kept going and going, and it kept pushing him closer to the edge. As if she knew exactly what he was feeling, as he turned the corner towards his orgasm, she brought her ass down into his lap and stayed there, his entire dick buried in her ass. John saw her ass cheeks flex as she clenched her ass around his dick, sending him over the edge. Report_Story #6 
+ John couldn't help but marvel at her stamina. Her ass was a blur in front of him at it bounced in his lap at an incredible speed. She did not stop. She kept going and going, and it kept pushing him closer to the edge. As if she knew exactly what he was feeling, as he turned the corner towards his orgasm, she brought her ass down into his lap and stayed there, his entire dick buried in her ass. John saw her ass cheeks flex as she clenched her ass around his dick, sending him over the edge.  
 
  
 
@@ -888,7 +888,7 @@
 
  "Yes." John said, just trying to move this along as fast as possible. 
 
- "It must have bothered you to marry down. I bet you've heard all the whispers. All of your friends wondering how an ugly bitch like her locked down a stud like you. It's sad to see this. I'm sad for you, John, simply because you don't know any better. You don't know that you are capable of so much more. You are deserving of so much more." Jessica said, sympathizing with John. John remained silent. Report_Story #7 
+ "It must have bothered you to marry down. I bet you've heard all the whispers. All of your friends wondering how an ugly bitch like her locked down a stud like you. It's sad to see this. I'm sad for you, John, simply because you don't know any better. You don't know that you are capable of so much more. You are deserving of so much more." Jessica said, sympathizing with John. John remained silent.  
 
  
 
@@ -1060,7 +1060,7 @@
 
  "Here, you'd better drink it now. It's so much better when it's warm." Jessica advised, bringing the cup to his lips. 
 
- John thought over the ridiculous nature of the situation he was now in. A slut was about to feed him a mug of her girl-cum that had squirted out of her pussy while fingering herself next to a man tied to his bed while his wife watched, tied to a chair next to him. John looked over at Tammy, gauging her reaction to this. She was clearly disgusted, but she kept watching. Report_Story #8 
+ John thought over the ridiculous nature of the situation he was now in. A slut was about to feed him a mug of her girl-cum that had squirted out of her pussy while fingering herself next to a man tied to his bed while his wife watched, tied to a chair next to him. John looked over at Tammy, gauging her reaction to this. She was clearly disgusted, but she kept watching.  
 
  
 
@@ -1184,7 +1184,7 @@
 
  John was shocked by all of this. She was such a practice in contrasts. He'd never seen a surgeon with a body like hers. A surgeon with the body of a stripper. And she was a genius. A prodigy. He knew she was intelligent, but damn. Mind of a genius, body of a slut. People always think of surgeons as heroes. They were, but you never imagine them being as slightly crazy as Jessica was. And she was a mean, evil bitch too. You don't meet too many evil people who save lives during their day job. 
 
- "Despite what you may think, John, I have trouble finding men. Well, I should say, I have trouble having relationships with men. I have no issues with getting laid, it's just the rest of it. Men can't deal with my busy schedule. Most men aren't willing to deal with the fact that I just want to be treated like a princess. Is that too much to ask? I spend my days saving lives. Is it too much to ask to just go home after a long day saving lives, and have a man waiting there for me, whatever time it may be? Is it too much to ask that this man greet me with a smile, take off my clothes, throw me on the bed, and stretch my tight cunt out on a regular basis? I save lives! Don't I deserve a reward for that! Don't I deserve to have a man serve me, to take care of me? To rub my sore shoulders? To massage my aching feet? To fill my aching cunt? Maybe visit me during the day, when I have a few minutes free, no matter how inconvenient it is for them, and bang me over my desk. Maybe relieve my stress. Maybe fill up my asshole with their huge dick. Maybe let me suck their huge dick for awhile, and get my mind off things. Is that too much to ask?" Jessica said. Report_Story #9 
+ "Despite what you may think, John, I have trouble finding men. Well, I should say, I have trouble having relationships with men. I have no issues with getting laid, it's just the rest of it. Men can't deal with my busy schedule. Most men aren't willing to deal with the fact that I just want to be treated like a princess. Is that too much to ask? I spend my days saving lives. Is it too much to ask to just go home after a long day saving lives, and have a man waiting there for me, whatever time it may be? Is it too much to ask that this man greet me with a smile, take off my clothes, throw me on the bed, and stretch my tight cunt out on a regular basis? I save lives! Don't I deserve a reward for that! Don't I deserve to have a man serve me, to take care of me? To rub my sore shoulders? To massage my aching feet? To fill my aching cunt? Maybe visit me during the day, when I have a few minutes free, no matter how inconvenient it is for them, and bang me over my desk. Maybe relieve my stress. Maybe fill up my asshole with their huge dick. Maybe let me suck their huge dick for awhile, and get my mind off things. Is that too much to ask?" Jessica said.  
 
  
 
@@ -1334,7 +1334,7 @@
 
  "I never told you how addictive it was to insult her, did I? You just can't stop can you? Now you see why I like it. It gets me so hot. Just like it gets you hot. Your dick's still hard. I can feel it. One more insult, and we'll be together forever. Just bite the bullet and end your marriage. Pull the trigger on it. Confess your love for me. Betray her." Jessica suggested. 
 
- John looked over at his wife. His tired, defeated wife. John saw the resentment in her eyes. She saw the disbelief in his actions. But he noticed a spark of hope. John noticed she was looking at the cuffs in his hand. She must be hopeful that he would cuff Jessica down and turn her in. End everything. Maybe she thought this last fuck was part of his plan. John realized he might be able to escape this with his marriage intact. But if he did do that, if he cuffed Jessica down and had her arrested, after fucking her, and returned to his wife, would his marriage to Tammy be a sham? John knew that last fuck wasn't part of any plan. He just wanted to fuck Jessica. He had just wanted her tits. He had just wanted her body. If he went back to his marriage, it would be a lie. He knew he had fucked her because he wanted to. He had not been loyal to Tammy. He had cheated on Tammy, and he knew that Tammy would look over it. She would lie to herself and say that her husband had fucked Jessica just to get her in a relaxed position so he could cuff her. Report_Story #10 
+ John looked over at his wife. His tired, defeated wife. John saw the resentment in her eyes. She saw the disbelief in his actions. But he noticed a spark of hope. John noticed she was looking at the cuffs in his hand. She must be hopeful that he would cuff Jessica down and turn her in. End everything. Maybe she thought this last fuck was part of his plan. John realized he might be able to escape this with his marriage intact. But if he did do that, if he cuffed Jessica down and had her arrested, after fucking her, and returned to his wife, would his marriage to Tammy be a sham? John knew that last fuck wasn't part of any plan. He just wanted to fuck Jessica. He had just wanted her tits. He had just wanted her body. If he went back to his marriage, it would be a lie. He knew he had fucked her because he wanted to. He had not been loyal to Tammy. He had cheated on Tammy, and he knew that Tammy would look over it. She would lie to herself and say that her husband had fucked Jessica just to get her in a relaxed position so he could cuff her. 0 
 
  
 

@@ -180,7 +180,7 @@
 
  Here she was floodlight flaunting her naked aroused body before everyone. She shut her eyes tight as they closed in around her expecting a show. Feeling the dildo slide so easily into her was expected but when she involuntarily bucked her hips up and down in response it was shocking. 
 
- Her head whipped up and down as her whole body rocked back and forth on the dildo her whole being seemed to revolve around it. It had become the centre of her universe while she was being reduced to a mere pleasure sensor around it. Report_Story #2 
+ Her head whipped up and down as her whole body rocked back and forth on the dildo her whole being seemed to revolve around it. It had become the centre of her universe while she was being reduced to a mere pleasure sensor around it.  
 
  
 

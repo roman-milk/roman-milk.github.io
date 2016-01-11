@@ -52,7 +52,7 @@
 
  "Well then, the question of the day for me is do I go to work, call in and quit or go in and give two weeks notice. Help me out here." 
 
- I got up from the table shaking my head no; "You made all the choices up to last night Marty, so you get to make that choice to. I have to get ready for work" and I walked away leaving her with her coffee. Five minutes later she came into the bedroom and began dressing for work. She saw me watching and said, "If you decide to throw me out I'm going to need a job so I might as well keep the one I have until the dust settles." Report_Story #2 
+ I got up from the table shaking my head no; "You made all the choices up to last night Marty, so you get to make that choice to. I have to get ready for work" and I walked away leaving her with her coffee. Five minutes later she came into the bedroom and began dressing for work. She saw me watching and said, "If you decide to throw me out I'm going to need a job so I might as well keep the one I have until the dust settles."  
 
  
 

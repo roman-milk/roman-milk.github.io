@@ -164,7 +164,7 @@
 
  Desire for Robyn's round buttocks flared inside me. 
 
- There would be more. Report_Story #1 
+ There would be more.  
 
  
 
@@ -334,7 +334,7 @@
 
  "All true," Robyn nodded from her awkward position scrunched up on the sofa. "But you're the only one I'd let fuck me. And you haven't fucked me yet. Do you want to, Simon?" Robyn challenged. "Are you going to fuck me or have I made a mistake?" 
 
- My reply was to push her thighs wider apart and to take a long, lascivious lick through her greasy labia. Robyn's body jerked and she groaned when my tongue slid through the folds of her piss-flaps. Her sighs of pleasure were my barometer. I licked her sex, experimenting with different pressures upon different parts of her while my cock stiffened and leaked its anticipatory pre- cum. Robyn writhed and groaned and muttered obscene compliments and guidance. Report_Story #2 
+ My reply was to push her thighs wider apart and to take a long, lascivious lick through her greasy labia. Robyn's body jerked and she groaned when my tongue slid through the folds of her piss-flaps. Her sighs of pleasure were my barometer. I licked her sex, experimenting with different pressures upon different parts of her while my cock stiffened and leaked its anticipatory pre- cum. Robyn writhed and groaned and muttered obscene compliments and guidance.  
 
  
 
@@ -364,7 +364,7 @@
 
  I grinned as I advanced, bayonet thrust forward. 
 
- Robyn opened her legs in lewd invitation. We kissed again as her arms encircled me ... Report_Story #1 
+ Robyn opened her legs in lewd invitation. We kissed again as her arms encircled me ...  
 
  
 
@@ -520,7 +520,7 @@
 
  "Beautiful," Alan concurred. His camera buzzed. 
 
- Robyn lifted the skirt higher and laid the blazer over the back of the wooden- backed chair in the corner. She squeezed her breasts with her biceps, deepening the magnificent chasm already presented. The boys took their pictures, moving around the model like hyenas, circling but never getting too close. I looked at Peter who surveyed the scene with slack-jawed concentration as he perched on the edge of the bed. I noticed his eyes were glazed with lust for Robyn. A flash of empathy registered within me as I recognised how the man must feel; I felt the same frisson of desire. The old man absently reached into the inside pocket of his jacket and pulled out a packet of cigarettes. He put one between his lips and then realised that smoking was forbidden in the hotel. I rolled my eyes when he looked towards me. Peter grinned and shrugged before he returned the packet to a pocket. Report_Story #2 
+ Robyn lifted the skirt higher and laid the blazer over the back of the wooden- backed chair in the corner. She squeezed her breasts with her biceps, deepening the magnificent chasm already presented. The boys took their pictures, moving around the model like hyenas, circling but never getting too close. I looked at Peter who surveyed the scene with slack-jawed concentration as he perched on the edge of the bed. I noticed his eyes were glazed with lust for Robyn. A flash of empathy registered within me as I recognised how the man must feel; I felt the same frisson of desire. The old man absently reached into the inside pocket of his jacket and pulled out a packet of cigarettes. He put one between his lips and then realised that smoking was forbidden in the hotel. I rolled my eyes when he looked towards me. Peter grinned and shrugged before he returned the packet to a pocket.  
 
  
 
@@ -684,7 +684,7 @@
 
  Peter grinned evilly. "My turn now," he said, stroking his length slowly with his fist. "Get on it," he instructed Robyn after he sat on the chair. "Stir that porridge with my big spoon." 
 
- That Robyn would even contemplate fucking that man, after the fuss she'd made over condoms earlier, never mind him being a disgusting specimen, came as a shock. To see her clambering eagerly onto his lap, her legs either side of his skinny, pale shanks was overwhelming. Report_Story #3 
+ That Robyn would even contemplate fucking that man, after the fuss she'd made over condoms earlier, never mind him being a disgusting specimen, came as a shock. To see her clambering eagerly onto his lap, her legs either side of his skinny, pale shanks was overwhelming.  
 
  
 
@@ -750,7 +750,7 @@
 
  "Thank you for being there today," she murmured when, in her house, showered and fragrant now, she offered her mouth for my kiss. 
 
- That was the precursor event. In the days to come Peter would influence Robyn even more. The nickname of Mrs Jizm became even more apt. Of course, as I slid my leaking cock between Robyn's oiled breasts later that evening, I had little idea of what was to come. Report_Story #1 
+ That was the precursor event. In the days to come Peter would influence Robyn even more. The nickname of Mrs Jizm became even more apt. Of course, as I slid my leaking cock between Robyn's oiled breasts later that evening, I had little idea of what was to come.  
 
  
 
@@ -914,7 +914,7 @@
 
  And so, while Mrs Jizm's cunt squelched and farted around Peter's girth, and while he groaned and spluttered a lewd description of how it felt to have her body clenching around him, I kissed the woman. Her tongue danced with mine as she held my face in her hands and panted into my mouth. I pulled away from her and stared into her eyes. 
 
- "Who are you?" I asked; a rhetorical question delivered more to me then to her. I was questioning whether or not I truly knew Robyn, searching for how she'd changed so dramatically. I recalled our first meeting, the reticence she'd shown, her objection when I'd launched myself at her, unable to hold back, desperate to suck her nipples. She'd protested that she didn't offer that kind of service, claimed that she was a model; no sexual contact. Where had that woman gone? Who was this here now? Wasn't this still Robyn, albeit dressed in a black latex corset, boots and mask? Who was this slut who'd fucked two men, one after the other, and who wanted, no, who craved, their spunk? Report_Story #2 
+ "Who are you?" I asked; a rhetorical question delivered more to me then to her. I was questioning whether or not I truly knew Robyn, searching for how she'd changed so dramatically. I recalled our first meeting, the reticence she'd shown, her objection when I'd launched myself at her, unable to hold back, desperate to suck her nipples. She'd protested that she didn't offer that kind of service, claimed that she was a model; no sexual contact. Where had that woman gone? Who was this here now? Wasn't this still Robyn, albeit dressed in a black latex corset, boots and mask? Who was this slut who'd fucked two men, one after the other, and who wanted, no, who craved, their spunk?  
 
  
 

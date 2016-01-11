@@ -176,7 +176,7 @@
 
  When I saw Melody's tits bared for the first time I wondered, somewhere at the back of my mind because most of my attention was focussed on making sense of just what my eyes were actually seeing, how the woman had managed to get such an even tan all over her body. I'd seen her sunbathing in her bikini, but where had she been with her breasts completely uncovered? 
 
- I'm not sure but I think I might have whined a little as I imagined being on some beach holiday with Melody Parker. The thought of lying next to her all day as we sunbathed before going back to our air-conditioned hotel for drinks and rampant sex made me squirm in my chair. Report_Story #2 
+ I'm not sure but I think I might have whined a little as I imagined being on some beach holiday with Melody Parker. The thought of lying next to her all day as we sunbathed before going back to our air-conditioned hotel for drinks and rampant sex made me squirm in my chair.  
 
  
 

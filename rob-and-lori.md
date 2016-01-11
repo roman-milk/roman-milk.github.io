@@ -198,7 +198,7 @@
 
  "Good answer, especially that "good thing" part." 
 
- As I circulated and socialized I kept an eye on Lori and every time it looked like she was going to head my way I got back to Sue so Lori would stay clear. Report_Story #2 
+ As I circulated and socialized I kept an eye on Lori and every time it looked like she was going to head my way I got back to Sue so Lori would stay clear.  
 
  
 
@@ -240,7 +240,7 @@
 
  Sue actually left on the third and Lori did call early on the fifth to confirm our date for the night. I took Lori out to dinner and a show and after a couple of dates we picked up where we left off. By unspoken agreement what we each had done while we were separated was never mentioned. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -450,7 +450,7 @@
 
  The next evening I called Lori and made a date for the next day and by the end of our senior year we were engaged and six months after graduation we were married. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -578,7 +578,7 @@
 
  What Lori was doing with Randy freed me from my wedding vows as far as I was concerned and I started dating. I found a sweet little redhead who was open to a 'friends with benefits' relationship and all in all I was doing well. I was happy with my job, happy with my life and now it was all going to hell. 
 
- To be continued... Report_Story #1 
+ To be continued...  
 
  
 
@@ -822,7 +822,7 @@
 
  "You did it so I did it too and now that we are even we can sit down and talk." 
 
- "The more I thought about it the more I liked the idea. I loved you and I didn't want our marriage to end, but I could not sit still while you cheated on me. So I decided that I would do it to you, but not sneak around to do it. I would make us even and then we would sit down and work things out. I would let you know in no uncertain terms that I would not put up with you running around on me. And of course Randy volunteered to be the man I'd do it with. Looking back on it now I think his idea all along was for what happened to happen. You would leave and he would have what he thought was a clear field. Report_Story #2 
+ "The more I thought about it the more I liked the idea. I loved you and I didn't want our marriage to end, but I could not sit still while you cheated on me. So I decided that I would do it to you, but not sneak around to do it. I would make us even and then we would sit down and work things out. I would let you know in no uncertain terms that I would not put up with you running around on me. And of course Randy volunteered to be the man I'd do it with. Looking back on it now I think his idea all along was for what happened to happen. You would leave and he would have what he thought was a clear field.  
 
  
 

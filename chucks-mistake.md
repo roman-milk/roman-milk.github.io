@@ -136,7 +136,7 @@
 
  "She thought Ellie had left on her own?" 
 
- "According to Miss Talbot they had gone to Aladdin's to look for men to pick up. She thought your wife had "scored" as she put it. It wasn't until 6 PM on Saturday evening that she became worried and went looking for your wife. She found someone who had heard that some guys had a bar pick-up that they had been partying with all day Saturday. Miss Talbot got and address, went over and saw what was happening and then she placed the 911 call." Report_Story #2 
+ "According to Miss Talbot they had gone to Aladdin's to look for men to pick up. She thought your wife had "scored" as she put it. It wasn't until 6 PM on Saturday evening that she became worried and went looking for your wife. She found someone who had heard that some guys had a bar pick-up that they had been partying with all day Saturday. Miss Talbot got and address, went over and saw what was happening and then she placed the 911 call."  
 
  
 

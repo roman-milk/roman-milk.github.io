@@ -372,7 +372,7 @@
 
  "Good slut," he groaned, as she slowly milked his cock. 
 
- Pulling his cock out, he said, "You will never tell anyone about this." Report_Story #2 
+ Pulling his cock out, he said, "You will never tell anyone about this."  
 
  
 
@@ -430,7 +430,7 @@
 
  The rejection of the formula by that bitch Sarah just may have been be the best thing that ever happened to him. 
 
- The end for now... Report_Story #1 
+ The end for now...  
 
  
 
@@ -724,7 +724,7 @@
 
  "She's very stubborn," Becky added. Although Carrie was her best friend, it always annoyed her that Carrie thought she was always the top dog. 
 
- Brandon, noticing just the slightest hint of resentment from Becky towards his sister, asked, "Do you want me to make Carrie your personal pussy pleaser?" Report_Story #2 
+ Brandon, noticing just the slightest hint of resentment from Becky towards his sister, asked, "Do you want me to make Carrie your personal pussy pleaser?"  
 
  
 
@@ -998,7 +998,7 @@
 
  Revenge of the Nerd: Humiliate Boss 
 
- Confident that the formula works as anticipated, he finalizes the plan of getting revenge with the bitch who fired him. Report_Story #1 
+ Confident that the formula works as anticipated, he finalizes the plan of getting revenge with the bitch who fired him.  
 
  
 
@@ -1274,7 +1274,7 @@
 
  "Yeah, right," Parker said, as he finally stood up, holding his nuts. 
 
- "And then go to college and find a guy to fuck your ass," Brandon added, wanting to make this dick pay. Report_Story #2 
+ "And then go to college and find a guy to fuck your ass," Brandon added, wanting to make this dick pay.  
 
  
 
@@ -1590,7 +1590,7 @@
 
  Brandon sighed. "You will go right now and find a pussy to munch and won't come home until you have found one." 
 
- "Please, no more," she pleaded, immediately regretting her defiance. Report_Story #3 
+ "Please, no more," she pleaded, immediately regretting her defiance.  
 
  
 
@@ -1612,7 +1612,7 @@
 
  The end 
 
- Coming in the fall: MOM Report_Story #1 
+ Coming in the fall: MOM  
 
  
 
@@ -1942,7 +1942,7 @@
 
  Instantly, with cum hitting her face, Sharon screamed, "Fuuuuuuuuck," as her orgasm exploded out of her. 
 
- The mother, now in a robe, after watching the sex act for a minute or so, her pussy getting undeniably tingly, asked, trying to be firm, "What is going on here?" Report_Story #2 
+ The mother, now in a robe, after watching the sex act for a minute or so, her pussy getting undeniably tingly, asked, trying to be firm, "What is going on here?"  
 
  
 
@@ -2310,7 +2310,7 @@
 
  Elizabeth was instantly jealous. She wanted a cock in her ass too. Even as her orgasm continued coursing through her, she moved onto her knees and purred, "Don't forget about Mommy's ass." 
 
- Brandon smiled, today becoming the perfect day. He pulled out of Carrie's ass and slid into his Mom's ass, and grunted, "Take it all, Mommy." Report_Story #3 
+ Brandon smiled, today becoming the perfect day. He pulled out of Carrie's ass and slid into his Mom's ass, and grunted, "Take it all, Mommy."  
 
  
 

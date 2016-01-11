@@ -160,7 +160,7 @@
 
  "Sure, Mom," he replied, switching feet and not stammering this time, clearly enjoying the task. 
 
- I started the conversation. "So do you have a girlfriend yet, Michael?" Report_Story #2 
+ I started the conversation. "So do you have a girlfriend yet, Michael?"  
 
  
 
@@ -430,7 +430,7 @@
 
  "Take my clit into your mouth, baby," I requested, "swallow it whole." Again he obeyed, and the minute my swollen needy clit was in his mouth I screamed, "Oh God fuck, son, now lick Mommy's clit, suck it hard, make Mommy come." He increased the pressure and my moans became louder as my inevitable orgasm began to rise. "Oh God, son. Make Mommy your slut, make me come and I am yours unconditionally, baby. Is that what you want, son? Your very own Mommy- sluuuuuuut," I screamed, as he surprised me by sliding two fingers without warning deep inside me. Like a veteran pussy pleaser, he hooked his fingers inside me and found my g-spot in seconds. On contact, I wailed and my legs stiffened. 
 
- The mixture of the pleasure of having my g-spot tapped like a drum, mixed with the long ignored desire of submission, twisted with the reality of the taboo incestuous act I was willingly committing and I was a bundle of goo in seconds and babbling like a teenage slut. "Oh God Michael, you got Mommy, you got Mommy, oh fuck, oh fuck, yes Michael, uh, ah, uuuuuuuuuh, fuuuuuuck, Mommy's coming baaaaaaby, don't stoooooop," I screamed, grabbing my son's head to add even more pleasure on my exploding cunt. It was easily the best, most intense, toe tingling, leg stiffing, cunt dripping, mind numbing orgasm I had ever experienced. Pleasure pulsed through my very being and I knew in this brief moment of euphoria, what Heaven feels like: a brief moment of acceptance of what I had just done and what I knew I would be doing over and over. Report_Story #3 
+ The mixture of the pleasure of having my g-spot tapped like a drum, mixed with the long ignored desire of submission, twisted with the reality of the taboo incestuous act I was willingly committing and I was a bundle of goo in seconds and babbling like a teenage slut. "Oh God Michael, you got Mommy, you got Mommy, oh fuck, oh fuck, yes Michael, uh, ah, uuuuuuuuuh, fuuuuuuck, Mommy's coming baaaaaaby, don't stoooooop," I screamed, grabbing my son's head to add even more pleasure on my exploding cunt. It was easily the best, most intense, toe tingling, leg stiffing, cunt dripping, mind numbing orgasm I had ever experienced. Pleasure pulsed through my very being and I knew in this brief moment of euphoria, what Heaven feels like: a brief moment of acceptance of what I had just done and what I knew I would be doing over and over.  
 
  
 
@@ -652,7 +652,7 @@
 
  After a brief pause, I smiled, "So your sister, hey?" 
 
- THE END Report_Story #1 
+ THE END  
 
  
 
@@ -970,7 +970,7 @@
 
  "Yes, I mean, no," I stammered, in the conflicting emotion of continuing to resist or just giving in to my carnal desires. 
 
- He kept the banana in my pussy as he walked around the other end of my desk and undid his pants. "Is teacher hungry?" he asked, releasing his firm cock. Report_Story #2 
+ He kept the banana in my pussy as he walked around the other end of my desk and undid his pants. "Is teacher hungry?" he asked, releasing his firm cock.  
 
  
 
@@ -1304,7 +1304,7 @@
 
  I gave Michael a nod and on cue as we finished dinner and he said, "I need to go to the washroom." 
 
- Seconds after my son was gone and I immediately went to work. I returned my hand to Frederick's cock and after giving it a firm squeeze, I began to unzip his pants. "Frederick dear, is it ok if I get some desert from you?" Report_Story #3 
+ Seconds after my son was gone and I immediately went to work. I returned my hand to Frederick's cock and after giving it a firm squeeze, I began to unzip his pants. "Frederick dear, is it ok if I get some desert from you?"  
 
  
 
@@ -1680,7 +1680,7 @@
 
  Michael agreed, "Well, let's take a few minutes to recovery, grab some wine, maybe some whip cream and strawberries before going another round." 
 
- "You have ten minutes and then I want you boys reloaded," I demanded, standing up to stretch my legs, cum leaking down my leg. "Fuck Frederick, you came buckets." Report_Story #4 
+ "You have ten minutes and then I want you boys reloaded," I demanded, standing up to stretch my legs, cum leaking down my leg. "Fuck Frederick, you came buckets."  
 
  
 
@@ -1750,7 +1750,7 @@
 
  I really have no idea how I plan to make such a complicated seduction work. So if you enjoyed the story and have any ideas drop me a line or leave a comment. 
 
- Jasmine Report_Story #1 
+ Jasmine  
 
  
 
@@ -2036,7 +2036,7 @@
 
  Crystal was so surprised by the shift in our mother-daughter relationship, she said, "Cool," still sounding like a teenager, which she technically was. 
 
- I gave her leg a firm squeeze as I added, "Of course, I am still your mother, and I always know what is best for you." Report_Story #2 
+ I gave her leg a firm squeeze as I added, "Of course, I am still your mother, and I always know what is best for you."  
 
  
 
@@ -2426,7 +2426,7 @@
 
  I heard the fridge close and Crystal say, "Like I care what you think." 
 
- Michael didn't respond as Crystal left the kitchen and I, realizing my submissive slut mother secret was still safe, began bobbing faster. Report_Story #3 
+ Michael didn't respond as Crystal left the kitchen and I, realizing my submissive slut mother secret was still safe, began bobbing faster.  
 
  
 
@@ -2820,7 +2820,7 @@
 
  Crystal smiled, "We are." 
 
- "Oh my," the woman smiled deviously. "That is delicious, absolutely delicious." Report_Story #4 
+ "Oh my," the woman smiled deviously. "That is delicious, absolutely delicious."  
 
  
 
@@ -3022,7 +3022,7 @@
 
  THE END...?... 
 
- Author's Note to readers: How do I have Michael still get Crystal as his pet now? Or does the plot change? Or does it end now? Your suggestions and ideas are greatly appreciated as I seem to have painted myself into a corner with the plot twist. Report_Story #1 
+ Author's Note to readers: How do I have Michael still get Crystal as his pet now? Or does the plot change? Or does it end now? Your suggestions and ideas are greatly appreciated as I seem to have painted myself into a corner with the plot twist.  
 
  
 
@@ -3462,7 +3462,7 @@
 
  Just then my cell buzzed. 
 
- Crystal grabbed my phone and looked at the message. "Well speak of the devil." Report_Story #2 
+ Crystal grabbed my phone and looked at the message. "Well speak of the devil."  
 
  
 
@@ -3894,7 +3894,7 @@
 
  "Aaaaaah," Michael grunted simultaneously as my two children reached mutual orgasms. 
 
- As soon as Michael pulled out, I handed him the camera and buried my face in her ass, hungry to retrieve as much of Master's cum as I could. Report_Story #3 
+ As soon as Michael pulled out, I handed him the camera and buried my face in her ass, hungry to retrieve as much of Master's cum as I could.  
 
  
 
@@ -3970,7 +3970,7 @@
 
  "Exactly what I plan to do," Michael retorted. 
 
- The End... Report_Story #1 
+ The End...  
 
  
 
@@ -4322,7 +4322,7 @@
 
  "I did," he nodded, before shoving his cock in my mouth, holding my head and beginning to fuck my face. I had gotten very good at not gagging when my mouth was roughly fucked, his whole cock filling my mouth so fully, his balls bouncing off my chin...which made the act so much hotter. 
 
- As usual, in less than two minutes, my throat was being coated with cum, the face fucking almost always the finale of a blow job. Report_Story #2 
+ As usual, in less than two minutes, my throat was being coated with cum, the face fucking almost always the finale of a blow job.  
 
  
 

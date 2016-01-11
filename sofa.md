@@ -204,7 +204,7 @@
 
  When they appeared he looked into their faces trying to fathom the depth of his trouble. When Sylvia started on the treadmill the other woman waited behind her. He realised that this woman was going to follow the same routine from the same tape and would follow Sylvia around the gym waiting her turn. 
 
- Becoming a little more relaxed he suddenly noticed they were both in bare feet. He wondered what else the woman had picked up from the tape and how deep into the trance she was. Report_Story #2 
+ Becoming a little more relaxed he suddenly noticed they were both in bare feet. He wondered what else the woman had picked up from the tape and how deep into the trance she was.  
 
  
 

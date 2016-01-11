@@ -218,7 +218,7 @@
 
  "Oh my God!" Heather cried. "I don't want you to do that. I thought we ... we ... I thought we were together." 
 
- Samson laughed and sneered. "You're my woman," he said as he slid his shorts down his legs. Heather heard the girl gasp when she saw the size of Samson's cock. "You do what I say, but you do not control me. I am the man, and if I want to fuck this girl while you watch ... then that's what I will do." Report_Story #2 
+ Samson laughed and sneered. "You're my woman," he said as he slid his shorts down his legs. Heather heard the girl gasp when she saw the size of Samson's cock. "You do what I say, but you do not control me. I am the man, and if I want to fuck this girl while you watch ... then that's what I will do."  
 
  
 

@@ -258,7 +258,7 @@
 
  "No worry there. He was in the cell just down from me and I have at least six witnesses that will say that the fight started when he came at me with a pool cue. He swung it at me and then I took it away from him and stomped his ass." 
 
- And it was true. He saw me coming and he knew what was going to happen. All that the others saw was me walk into the room and walk toward Jerry. I never said one word or made a threatening gesture, but Jerry knew what was coming and he swung the pool cue at me. Report_Story #2 
+ And it was true. He saw me coming and he knew what was going to happen. All that the others saw was me walk into the room and walk toward Jerry. I never said one word or made a threatening gesture, but Jerry knew what was coming and he swung the pool cue at me.  
 
  
 
@@ -428,7 +428,7 @@
 
  "You did it for me?" 
 
- "Yes Rob, I did it for you. You always got so turned on watching me flirt with and lead other men on that you wouldn't leave me alone for days. The sex was overwhelming and I thought that if pretend did that to you something real would really set you off." Report_Story #3 
+ "Yes Rob, I did it for you. You always got so turned on watching me flirt with and lead other men on that you wouldn't leave me alone for days. The sex was overwhelming and I thought that if pretend did that to you something real would really set you off."  
 
  
 

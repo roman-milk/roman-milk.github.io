@@ -234,7 +234,7 @@
 
  But of course it did affect us or me anyway. Basically what it amounted to was that I had just been taken from what I thought was a romantic relationship and had been placed in a fuck buddy relationship. The problem was that I just wasn't a fuck buddy kind of guy. I needed more than just sex out of a relationship and Robin and I slowly pulled apart. The sex was there when we went to bed at night, but the everyday interaction that takes place between couples became forced and strained. 
 
- Four months – almost to the day – from the day Robin put a stop to my romantic aspirations she said to me: Report_Story #2 
+ Four months – almost to the day – from the day Robin put a stop to my romantic aspirations she said to me:  
 
  
 
@@ -452,7 +452,7 @@
 
  I had no reason to doubt the report and photos from Gary's detective, but photos could be doctored and Gary did have an agenda. I wanted to be dead certain before I took action so I went back to the office and called a friend who worked for an insurance agency and asked him who they used to investigate suspicious claims. Armed with that information I called and made an appointment and thirteen days later I had my certainty. On Wednesdays when Jim was supposedly out visiting job sites he was actually meeting Laura and the Comfort Inn on Melrose. How she managed to get off work for their meetings I had no idea. 
 
- All that was left was for me to decide what to do. Actually I knew what I wanted to do, but I needed to find a way to make it work. Two hours with an attorney got me a list of things I could do and couldn't do and a list of things I should do. We were a no fault state and so everything would have to be split equally between us. My concern was going to be avoiding giving her a dime of what I realized from the sale of my half of the company. I finally had to accept that the only way I could do that was lie. Even then she would still get some of it. Report_Story #3 
+ All that was left was for me to decide what to do. Actually I knew what I wanted to do, but I needed to find a way to make it work. Two hours with an attorney got me a list of things I could do and couldn't do and a list of things I should do. We were a no fault state and so everything would have to be split equally between us. My concern was going to be avoiding giving her a dime of what I realized from the sale of my half of the company. I finally had to accept that the only way I could do that was lie. Even then she would still get some of it.  
 
  
 
@@ -652,7 +652,7 @@
 
  "The next time you went out of town Jim stopped over and we both knew why he was there and we did it again. I had a huge orgasm, but it wasn't because of the way Jim made love to me, it was because the cheating was such a turn on and yes, I'll admit a good part of the turn on was because I was doing it with your best friend. 
 
- "There was no love involved Rob. As trite as it may sound it was just sex Rob. Just some excitement added to my life. I never shorted you while it was going on. I love you Rob. I really do and you know it. We can get by this. We don't need to get a divorce." Report_Story #4 
+ "There was no love involved Rob. As trite as it may sound it was just sex Rob. Just some excitement added to my life. I never shorted you while it was going on. I love you Rob. I really do and you know it. We can get by this. We don't need to get a divorce."  
 
  
 

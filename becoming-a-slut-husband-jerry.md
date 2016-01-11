@@ -190,7 +190,7 @@
 
  After they had gone I sat down on the wooden bench in front of the lockers and just stared at the wall. 
 
- My God! What had I done. I'd totally misread what was happening and then had allowed myself to go off half-cocked. I had done what I had erroneously thought Patty had done - I had cheated. I had gone behind the back of the woman who loved me and I had cheated and not just once, but a dozen times. The only saving factor was that I had not confronted Patty and said: Report_Story #2 
+ My God! What had I done. I'd totally misread what was happening and then had allowed myself to go off half-cocked. I had done what I had erroneously thought Patty had done - I had cheated. I had gone behind the back of the woman who loved me and I had cheated and not just once, but a dozen times. The only saving factor was that I had not confronted Patty and said:  
 
  
 

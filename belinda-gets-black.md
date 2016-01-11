@@ -144,7 +144,7 @@
 
  "Oh God, oh God," she murmured through a glazed-eyed expression. "It's all so... You're so..." Belinda didn't have the words. The feelings and emotions surging through her body and mind were a confusion of sensations and mixed thoughts. Benji's rough and almost callous manner with her was so arousing. She'd always been used to men -- in the days before her husband -- pandering to her whims; now, being used so unsympathetically, as though he could take her or leave her, was oddly arousing. 
 
- "Suck it." Belinda heard the command as though from a long way away. She cried out in fright and shock when Benji, angry at her slow response, pushed her from the chair and onto her knees in front of him. He stood up and held the terrible length of his cock in front of her face. With the fingers of one hand pushed through Belinda's short hair, Benji held her head steady and slapped his cock against first one cheek and then the other. "I said suck it, bitch," he growled and pushed the big dome of his cock head at her lips. Report_Story #2 
+ "Suck it." Belinda heard the command as though from a long way away. She cried out in fright and shock when Benji, angry at her slow response, pushed her from the chair and onto her knees in front of him. He stood up and held the terrible length of his cock in front of her face. With the fingers of one hand pushed through Belinda's short hair, Benji held her head steady and slapped his cock against first one cheek and then the other. "I said suck it, bitch," he growled and pushed the big dome of his cock head at her lips.  
 
  
 

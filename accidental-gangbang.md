@@ -314,7 +314,7 @@
 
  "Do you hate me?" I asked, petrified of hearing the answer to the question. 
 
- "I could never hate you," he replied, leaning in and kissing me. Report_Story #2 
+ "I could never hate you," he replied, leaning in and kissing me.  
 
  
 

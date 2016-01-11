@@ -186,7 +186,7 @@
 
  "Are you going to tell me about where you come from, Amy? Why you turned up here with just some change in your pocket and nowhere to go?" 
 
- The girl sipped at her drink before placing the glass purposefully on the table. She tilted her head to one side and smiled shyly at Billy. "Och ... It were nothin'," she began. "A bit of a spat with my father. He threw me out an' I just went; I was blind angry, see; I didnae have a clue what I was about, so I took some money from his wallet and buggered off to the station. I got from Motherwell to Edinburgh and there in the station was a train for London. I just got on. When the conductor came around I only had cash enough for York ..." Taking another sip of wine, she smiled around the glass. "An' that's it," she finished. "That's where you come in." Billy had his doubts about the tale but left his misgivings unvoiced. After swigging at his beer he nodded toward the bar. "I'll just get a pint, you ready for another?" Report_Story #2 
+ The girl sipped at her drink before placing the glass purposefully on the table. She tilted her head to one side and smiled shyly at Billy. "Och ... It were nothin'," she began. "A bit of a spat with my father. He threw me out an' I just went; I was blind angry, see; I didnae have a clue what I was about, so I took some money from his wallet and buggered off to the station. I got from Motherwell to Edinburgh and there in the station was a train for London. I just got on. When the conductor came around I only had cash enough for York ..." Taking another sip of wine, she smiled around the glass. "An' that's it," she finished. "That's where you come in." Billy had his doubts about the tale but left his misgivings unvoiced. After swigging at his beer he nodded toward the bar. "I'll just get a pint, you ready for another?"  
 
  
 
@@ -350,7 +350,7 @@
 
  Amy's dreadful, wracking sobs subsided to a series of sniffles. "Could I phone my mother?" she asked quietly. 
 
- Billy kissed the top of Amy's head. "Of course," he replied softly. "She must be worried about you." He watched as the girl left the bed. Residual desire from the previous night rippled through him when Amy, nude and lithe, bent to gather her clothes from the bedroom floor. She dressed quickly against the morning cold. Report_Story #3 
+ Billy kissed the top of Amy's head. "Of course," he replied softly. "She must be worried about you." He watched as the girl left the bed. Residual desire from the previous night rippled through him when Amy, nude and lithe, bent to gather her clothes from the bedroom floor. She dressed quickly against the morning cold.  
 
  
 
@@ -490,7 +490,7 @@
 
  "Amy," Billy hissed. "I can't ..." 
 
- "It's OK," the girl whispered tenderly. "Don't hold back. Do whatever you want to. Fuck me, but please, kiss me while you do. Love me ..." They kissed, Amy's hands holding his face while their tongues slid and slithered. Billy savoured the sweet wetness of the girl's sex around his girth. He pulled back, leaving the dome of his cock nudging Amy's opening before sliding back inside. They kissed again before Billy leaned down to suck at Amy's breasts. The girl shifted herself under him. She moved her body slowly upward to meet each downward thrust. Her hands moved along his flanks as she guided him gently over her supine form. Report_Story #4 
+ "It's OK," the girl whispered tenderly. "Don't hold back. Do whatever you want to. Fuck me, but please, kiss me while you do. Love me ..." They kissed, Amy's hands holding his face while their tongues slid and slithered. Billy savoured the sweet wetness of the girl's sex around his girth. He pulled back, leaving the dome of his cock nudging Amy's opening before sliding back inside. They kissed again before Billy leaned down to suck at Amy's breasts. The girl shifted herself under him. She moved her body slowly upward to meet each downward thrust. Her hands moved along his flanks as she guided him gently over her supine form.  
 
  
 

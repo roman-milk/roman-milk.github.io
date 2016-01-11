@@ -226,7 +226,7 @@
 
  Mandy brought some work home with her that night so I went down into my basement workshop and worked on the bookcase I was making. In a way it was a relief because I didn't have to face her. If I didn't face her she wouldn't see that I was bothered by something. The last thing I needed right then was to make her worry and think she needed to be even more careful about what she was doing. 
 
- On Friday morning the man on the other end of the line said, "Have a nice weekend" and that told me that whatever Mandy was involved in was a Monday through Friday thing only. Trying to figure out what was going on was driving me nuts. Mandy's behavior towards me was the same as it had been since we started dating. She was loving, affectionate and our love life was great. We hadn't had an argument in years. I could not spot anything wrong in our relationship. What the hell could she be doing that she and whoever she was doing it with had to be so afraid of letting me find out? Well I'd start to maybe get some answers on Monday when I started working afternoons and Glen got to work on the problem. Report_Story #2 
+ On Friday morning the man on the other end of the line said, "Have a nice weekend" and that told me that whatever Mandy was involved in was a Monday through Friday thing only. Trying to figure out what was going on was driving me nuts. Mandy's behavior towards me was the same as it had been since we started dating. She was loving, affectionate and our love life was great. We hadn't had an argument in years. I could not spot anything wrong in our relationship. What the hell could she be doing that she and whoever she was doing it with had to be so afraid of letting me find out? Well I'd start to maybe get some answers on Monday when I started working afternoons and Glen got to work on the problem.  
 
  
 
@@ -438,7 +438,7 @@
 
  Over dinner Mandy asked, "What got into you tonight?" 
 
- "I thought you might like it. You were ready last night and I didn't take care of you." Report_Story #3 
+ "I thought you might like it. You were ready last night and I didn't take care of you."  
 
  
 
@@ -614,7 +614,7 @@
 
  Gaynor had slipped Mandy a "date rape cocktail," apparently it was something that he did often and he always had some in his car, his briefcase or his pocket. When Phil told Mandy to go up to the hospitality suite Gaynor said he was on his way up to his room and he offered to walk Mandy the room and make sure that she got there okay. 
 
- He got Mandy on the bed and then hurried up to room he had already rented. He had planned on setting up a buyer from another company with a hooker and taping it. He hurried to the room, got the camera and took it back to the hospitality suite. He hid the camera, turned it on and went to get Baxter. By the time he got back to the room Mandy and Phil were already at it. Report_Story #4 
+ He got Mandy on the bed and then hurried up to room he had already rented. He had planned on setting up a buyer from another company with a hooker and taping it. He hurried to the room, got the camera and took it back to the hospitality suite. He hid the camera, turned it on and went to get Baxter. By the time he got back to the room Mandy and Phil were already at it.  
 
  
 

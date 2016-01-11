@@ -162,7 +162,7 @@
 
  "We can do this, Colin," Emily said. "I want to do it," she added. "I'm lonely and I need a man in my bed, Colin. I'm only fifty-seven, darling. I still have urges and desires. Your granddad and I were very active before he got ill. He was so much older than me, Colin. When we first met I was only eighteen; he was nearly thirty and so much more experienced than me. I miss what I had with him. And you..." Emily's voice caught with emotion as she stared into her grandson's face. "You look like him. I can see him in you, Colin, and I want you to do the things he used to do." 
 
- "But you're my grandmother," Colin said, persisting in his negative line. "We can't..." Report_Story #2 
+ "But you're my grandmother," Colin said, persisting in his negative line. "We can't..."  
 
  
 

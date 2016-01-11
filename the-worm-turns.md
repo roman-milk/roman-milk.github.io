@@ -158,7 +158,7 @@
 
  'Mel ... I ... Jesus!' 
 
- 'Come on,' Melanie purred, smiling. She held herself open for him. 'Get on this chair with me. I know it'll be awkward and uncomfortable for you, but just pretend I'm Loraine laying here with her cunt all hot for you.' Report_Story #2 
+ 'Come on,' Melanie purred, smiling. She held herself open for him. 'Get on this chair with me. I know it'll be awkward and uncomfortable for you, but just pretend I'm Loraine laying here with her cunt all hot for you.'  
 
  
 

@@ -266,7 +266,7 @@
 
  "You want a quickie or do you want to hear the rest of the story first?" she asked. 
 
- "A quickie." After walking to the bed, Becky lay back, gave me a slutty look and spread her legs wide, grabbing her ankles to hold herself open. I had never seen her do that before. I knee walked between her legs and slipped my cock into her. She was sopping wet. She wrapped those legs around me and fucked me until I came, which was not long. Report_Story #2 
+ "A quickie." After walking to the bed, Becky lay back, gave me a slutty look and spread her legs wide, grabbing her ankles to hold herself open. I had never seen her do that before. I knee walked between her legs and slipped my cock into her. She was sopping wet. She wrapped those legs around me and fucked me until I came, which was not long.  
 
  
 
@@ -394,7 +394,7 @@
 
  To be continued 
 
- Please! Give me your comments. Report_Story #1 
+ Please! Give me your comments.  
 
  
 
@@ -534,7 +534,7 @@
 
  To be continued . . . 
 
- Please! Give me your comments. Report_Story #1 
+ Please! Give me your comments.  
 
  
 
@@ -778,7 +778,7 @@
 
  To be continued . . . 
 
- Please! Give me your comments. Report_Story #1 
+ Please! Give me your comments.  
 
  
 
@@ -1022,7 +1022,7 @@
 
  "Yes, Bob. You'll give her the punishment with this." He handed me a riding crop. 
 
- "The stroke should be hard enough so it's visible two hours later, but not so hard that it can be seen after twelve hours. It'll take you a while to learn how to do it. Don't be afraid to hurt her. Better too strong than too weak. Just experiment. In addition, Bob, follow these instructions." Report_Story #2 
+ "The stroke should be hard enough so it's visible two hours later, but not so hard that it can be seen after twelve hours. It'll take you a while to learn how to do it. Don't be afraid to hurt her. Better too strong than too weak. Just experiment. In addition, Bob, follow these instructions."  
 
  
 
@@ -1070,7 +1070,7 @@
 
  To be continued . . . 
 
- Please! Give me your comments. Report_Story #1 
+ Please! Give me your comments.  
 
  
 
@@ -1090,7 +1090,7 @@
 
  "Trudy." "Trudy? Why she is nowhere near the woman or the slut I am. I was afraid you might have been with someone who would make you want to leave me. I'm not worried about Trudy," she said smugly. "You don't need to worry about anyone, Becky. I'll never leave you." "I know that now. I really shouldn't have said anything. If Mr. Williams told you to do it, I'm glad you did. But, please, Bobby, don't go chasing women. Come to me. I'm the best fuck you could find anyway. And look at the way I look. I'm a fucker's playground now, Bobby, and you're welcome in my sandbox any time." Becky did look like a fucker's playground, with those huge tits and that narrow waist, which made her ass look more inviting, and with those piercings everywhere. But it was more than that. She had a look in her eye, a smile on her face, which said, "I want to be fucked now." I thought it was strange that a woman who fucked anything was upset if her husband had another woman. I didn't need to understand. I needed Becky to be happy with me. She seemed to be happy, happy with me, herself and Mr. Williams. I wanted to keep her that way. "I wish we could fuck, but the doctor said I'm off limits until tomorrow. I can give you a hand job if you want. Maybe we can try out this new brad." She had a happy smile on her face. Her Becky smile. The one I liked so much. "Come on. Get your clothes off and lie down. I'll play with you." When I lay down naked on the bed, she scooted up against me. Those huge tits rested against my chest. She started playing with my cock. "Let me tell you about the rest of my weekend before the surgery. That's something you always enjoyed." "I want to hear." "Where did I leave off? Oh, I remember. That Friday night I spent with Horse and his friends. I told you why they call him Horse. Good lord, that man's well hung! Bobby, before dawn I think I had sex with every man in that retirement home who could get it up. And a few tried and could not do it, but most sure could. It was really fun, you know. Not only did I have a variety of cocks shoved up my pussy for hours on end which any slut would like, they were a bunch of nice guys. Most of those men had never fucked a slut like me. And it had been a long time since they had fucked a woman my age. There were so grateful and sweet with me. By morning, I was exhausted. They'd fucked me a long time and I only got a couple of hours sleep. I bathed and changed into the clothes Mr. Williams left for me. It was just a top and pair of short shorts. When Mr. Williams arrived, he was peeved to see how tired I was. I guess he understood, however. He took me back to his place and let me sleep the rest of the day. Oh, Bobby, I love how hard you are. Want to come in my hand?" "Your mouth." "I'll try," she said. She lowered her mouth around my cock. I felt her tongue swishing around. The brad felt great on my cock. I could feel every bump on it. She stopped. "Bobby, my tongue's still sore. Let me use my hand." "No. Just play with him while you finish your story." "Okay. About six, Mr. Williams awakened me. He led me into the shower and turned on the water. I didn't want to get my hair wet, but he had other ideas. And, you know, a good slut always does what her man wants her to do. Not that I had any choice. He shoved my head under the shower and turned off the hot water. God, it was cold! I was shivering, with goose bumps all over me. It was strange. Every place his body touched me, he was so warm compared to the cold water, it felt like I was burning from his touch. He turned the water to a normal temperature. He lifted me up so my legs were around his waist. I just eased down, letting that big cock of his slide up me. Bobby, it's too bad you are not a woman. You're missing out on the greatest feeling in the world, having a big cock shoved up your cunt. He fucked me there like that. The water was flowing all over us. He was banging my back against the wall. Fucking me. I started to cum, Bobby. It wasn't a mind-blowing orgasm, more like floating and getting electrical shocks which made me twitch and spasm on his cock. He leaned into me, trapping me against the wall with his cock still in me, and turned off the water. He eased out and pushed me to my knees. He stuck his cock in my mouth. I sucked him real good. Soon, he came in my mouth, the hot cum spurting against the roof. I swished it around before I swallowed. He softened there as I continued to suck him. Do you want to cum?" "No. But I want you to play with him a little more." "You know, Bobby, you're learning to hold back better. I'm going to like that. Let me try sucking him again." Becky wrapped her lips around my cock again. It felt so good. So good. I decided to cum in her mouth. I held her head with both hands as I pumped my cock in her mouth and let myself go. I heard her slurping and swallowing as her head bobbed on my firing cock. "That was nice, Bobby. I like swallowing your cum for a change. Sluts love cum, you know. Let me tell you more of my weekend. After our shower, I asked Mr. Williams what I should wear. 'Just this,' he replied. He took a heavy steel chain from the drawer. He wrapped it twice around my neck, pulled it snug and locked it in place with a heavy padlock. The weight felt strange and about a foot of chain hung loose down my front so it dangled against my breasts. 'That's so we'll know you are a slut and will do as you are told,' he said. 'Do I wear anything else?' I asked. 'No,' Mr. Williams said. 'Tonight, some of my club members are coming over to play poker. You will service us, all of us. You'll do anything anyone wants. I also expect you to keep the snacks and the drinks coming. Sluts like cum, Becky. From now on, you'll eat all the cum you can get. If someone cums in your pussy or ass, you'll use your fingers to trap that cum and suck it down. Do you understand?' 'Yes, Mr. Williams,' I answered. 'Address all the men by their last names. I expect you to be a perfect slut with my friends, Becky.' 'Yes, sir. You can count on me.' Well, Bobby, there I was naked except for a chain around my neck. I was going to service the whole poker club. I felt so slutty. I felt so good!" I could tell Becky was excited about her weekend, about being a slut for them. She kissed me and I could taste my cum in her mouth. I didn't mind. 
 
- "Mr. Simmons was the first to arrive. He is a rancher and businessman. Mr. Williams and I were both naked. I helped Mr. Simmons undress, hanging his clothes in the closet. He gave me a big smile and pushed me to my knees right there in the hall. Mr. Williams just grinned. I'm a slut. I knew exactly what to do. I grabbed his cock and stuck it in my mouth and started sucking. He rested his hands on my head, letting me suck him. I'm a good cock sucker, Bobby. I'll be the best ever someday if I'm not already. Mr. Simmons came in my mouth. 'Very well done, Becky,' he said. 'I have a present for you.' Bobby, her handed me two wine bottles. But it wasn't wine inside them. It was a white viscous liquid. 'What is this?' I asked. 'Cum. Farm animal cum. Horse, bull, ram, all mixed.' 'Cum?' 'Yes. You'll drink all of it before the night is over. I know how sluts like cum.' He was right, Bobby. Sluts like cum. This slut loves cum. All evening when I got them drinks, I topped off my own glass with the cum Mr. Simmons brought me. My lord, Bobby, I have no idea how much cum I swallowed that night, but it was a lot. You know, that cum tasted differently than a man's cum, but it was still very good cum. I know besides all the cum the men gave me, I drank both bottles of the animal cum. Well, actually, some of it I rubbed all over my face when they told me to do it. But I drank almost all of it. Do you want me to make you cum again, Bobby? I'll swallow all of it, I promise." "Just play with it, and finish your story." "I really would like some cum." "I need to buy you a dog," I said with a laugh. "Bobby, that would be sweet. Maybe two dogs. Big dogs with big balls that hold a lot of cum." Becky laughed, but she was being serious. "Bobby, it was a wild night. I helped every man undress after he walked in the door. I hung up his clothes. Then I blew him. I fixed them drinks and got the snacks. They started playing poker. After I got all the drinks, Mr. Williams had me kneel on the floor by him for a while. But then he ordered me under the table. 'Now, Becky, suck my cock. When I say switch, you move to the man on your right and suck his cock until I say switch again. Understand?' 'Yes, Mr. Williams,' I said as I crawled under the table. Well, Bobby, the idea was to keep all of them hard but not let them cum, to build up their desire. I was under that table an hour, I bet, sucking one cock, then the next. Is that slutty or what? Just sucking one cock then another. I loved it. Of course, I could identify the men by their cocks even if I didn't know what seat they were in. Mr. Williams told me to kneel by him again. Oh, Bobby, my pussy was dripping juices from sucking all those cocks. I hadn't orgasmed and I wanted a cock in me so badly I was about to die. But I didn't say anything. A slut does not demand, Bobby. Not a good slut anyway. She waits on her man. I didn't have to wait long. Bobby, do you like hearing these stories?" "Yes." "Why? Why do you like hearing about your wife fucking and sucking other men?" If Becky had asked me that question a few weeks ago, I don't know what I would have said. But I'd thought a lot about that. A whole lot. I guess seeing Becky and all the joy she was having and my week with Trudy is what made it clear in my mind. "Becky, you're a natural born, true slut. You need to fuck and suck a lot. I would rather you be my happy wife and a slut for other men, then unhappy like you were before. And I want us to have a baby." "But, after I'm pregnant, do you expect me to be faithful again?" "No." "That's good, Bobby, because you're correct. I am a natural born slut. More importantly, I love being a slut. I love sucking cocks under the table, and having big tits, and knowing a lot of different cocks are going to be rammed up my slimy slue. I loved being commanded and being tied up and being whipped. I love it, Bobby. I just absolutely love all of it." She was smiling down at me when the doorbell rang. She jumped up and reached for her robe. "Answer in the nude," I said. She gave me a slutty grin and pranced out to the door. I wondered what was happening, but she returned shortly with a glass in her hand. "You should have seen the deliveryman's face. He couldn't take his eyes off my tits as I signed the receipt." She held up a bottle of white liquid for me to see. "Look, Bobby. Animal cum. Mr. Simmons sent it. Wasn't that sweet of him to do? His note said I would get a quart every other day. Isn't that great? All that cum and just for me." She poured some into her glass and took a big gulp of the cum. It left a white line above her lip which she licked off like a cat licking cream. "All for me, unless you want some? Do you, Bobby? Do you want to share this cum? I know you like to eat your cum from my pussy." "I don't want any. I like seeing your orgasm, Becky. I don't eat you to get cum." "I'm glad to hear that, Bobby. A quart every two days is not a lot and I really don't want to share." She turned the glass upside down and drained it into her mouth. She stuck her finger, sliding it around the edge of the glass to glean whatever was left. She sucked her finger clean as I watched her. She lay down beside me again. "Should I go on with my story?" "Yes." "Mr. Jones said, 'I'm ready to fuck the slut, but I think we should tie her up first.' 'Why? She'll do anything willingly,' Mr. Williams responded. He turned to me. 'Do you need to be bound, Becky?' 'No, sir. Just tell me what you want.' 'I want to whip her,' Mr. Jones said. Bobby, I know you whipped Trudy. And Mr. Williams told me you would be whipping me each day. Actually, I am looking forward to it. Being whipped and then fucked is so slutty, it makes me horny thinking about it. But, you know, I like being tied up, too. Remember when Mr. Williams tied me to his desk and whipped me. God, I loved it! But I knew Mr. Williams was trying to show his friends how eager and obedient I was. I wanted him to be proud of his slut. They were all watching me, to see what I would do. Report_Story #2 
+ "Mr. Simmons was the first to arrive. He is a rancher and businessman. Mr. Williams and I were both naked. I helped Mr. Simmons undress, hanging his clothes in the closet. He gave me a big smile and pushed me to my knees right there in the hall. Mr. Williams just grinned. I'm a slut. I knew exactly what to do. I grabbed his cock and stuck it in my mouth and started sucking. He rested his hands on my head, letting me suck him. I'm a good cock sucker, Bobby. I'll be the best ever someday if I'm not already. Mr. Simmons came in my mouth. 'Very well done, Becky,' he said. 'I have a present for you.' Bobby, her handed me two wine bottles. But it wasn't wine inside them. It was a white viscous liquid. 'What is this?' I asked. 'Cum. Farm animal cum. Horse, bull, ram, all mixed.' 'Cum?' 'Yes. You'll drink all of it before the night is over. I know how sluts like cum.' He was right, Bobby. Sluts like cum. This slut loves cum. All evening when I got them drinks, I topped off my own glass with the cum Mr. Simmons brought me. My lord, Bobby, I have no idea how much cum I swallowed that night, but it was a lot. You know, that cum tasted differently than a man's cum, but it was still very good cum. I know besides all the cum the men gave me, I drank both bottles of the animal cum. Well, actually, some of it I rubbed all over my face when they told me to do it. But I drank almost all of it. Do you want me to make you cum again, Bobby? I'll swallow all of it, I promise." "Just play with it, and finish your story." "I really would like some cum." "I need to buy you a dog," I said with a laugh. "Bobby, that would be sweet. Maybe two dogs. Big dogs with big balls that hold a lot of cum." Becky laughed, but she was being serious. "Bobby, it was a wild night. I helped every man undress after he walked in the door. I hung up his clothes. Then I blew him. I fixed them drinks and got the snacks. They started playing poker. After I got all the drinks, Mr. Williams had me kneel on the floor by him for a while. But then he ordered me under the table. 'Now, Becky, suck my cock. When I say switch, you move to the man on your right and suck his cock until I say switch again. Understand?' 'Yes, Mr. Williams,' I said as I crawled under the table. Well, Bobby, the idea was to keep all of them hard but not let them cum, to build up their desire. I was under that table an hour, I bet, sucking one cock, then the next. Is that slutty or what? Just sucking one cock then another. I loved it. Of course, I could identify the men by their cocks even if I didn't know what seat they were in. Mr. Williams told me to kneel by him again. Oh, Bobby, my pussy was dripping juices from sucking all those cocks. I hadn't orgasmed and I wanted a cock in me so badly I was about to die. But I didn't say anything. A slut does not demand, Bobby. Not a good slut anyway. She waits on her man. I didn't have to wait long. Bobby, do you like hearing these stories?" "Yes." "Why? Why do you like hearing about your wife fucking and sucking other men?" If Becky had asked me that question a few weeks ago, I don't know what I would have said. But I'd thought a lot about that. A whole lot. I guess seeing Becky and all the joy she was having and my week with Trudy is what made it clear in my mind. "Becky, you're a natural born, true slut. You need to fuck and suck a lot. I would rather you be my happy wife and a slut for other men, then unhappy like you were before. And I want us to have a baby." "But, after I'm pregnant, do you expect me to be faithful again?" "No." "That's good, Bobby, because you're correct. I am a natural born slut. More importantly, I love being a slut. I love sucking cocks under the table, and having big tits, and knowing a lot of different cocks are going to be rammed up my slimy slue. I loved being commanded and being tied up and being whipped. I love it, Bobby. I just absolutely love all of it." She was smiling down at me when the doorbell rang. She jumped up and reached for her robe. "Answer in the nude," I said. She gave me a slutty grin and pranced out to the door. I wondered what was happening, but she returned shortly with a glass in her hand. "You should have seen the deliveryman's face. He couldn't take his eyes off my tits as I signed the receipt." She held up a bottle of white liquid for me to see. "Look, Bobby. Animal cum. Mr. Simmons sent it. Wasn't that sweet of him to do? His note said I would get a quart every other day. Isn't that great? All that cum and just for me." She poured some into her glass and took a big gulp of the cum. It left a white line above her lip which she licked off like a cat licking cream. "All for me, unless you want some? Do you, Bobby? Do you want to share this cum? I know you like to eat your cum from my pussy." "I don't want any. I like seeing your orgasm, Becky. I don't eat you to get cum." "I'm glad to hear that, Bobby. A quart every two days is not a lot and I really don't want to share." She turned the glass upside down and drained it into her mouth. She stuck her finger, sliding it around the edge of the glass to glean whatever was left. She sucked her finger clean as I watched her. She lay down beside me again. "Should I go on with my story?" "Yes." "Mr. Jones said, 'I'm ready to fuck the slut, but I think we should tie her up first.' 'Why? She'll do anything willingly,' Mr. Williams responded. He turned to me. 'Do you need to be bound, Becky?' 'No, sir. Just tell me what you want.' 'I want to whip her,' Mr. Jones said. Bobby, I know you whipped Trudy. And Mr. Williams told me you would be whipping me each day. Actually, I am looking forward to it. Being whipped and then fucked is so slutty, it makes me horny thinking about it. But, you know, I like being tied up, too. Remember when Mr. Williams tied me to his desk and whipped me. God, I loved it! But I knew Mr. Williams was trying to show his friends how eager and obedient I was. I wanted him to be proud of his slut. They were all watching me, to see what I would do.  
 
  
 
@@ -1292,7 +1292,7 @@
 
  "Where did I leave off? Oh, I remember. That Friday night I spent with Horse and his friends. I told you why they call him Horse. Good lord, that man's well hung! Bobby, before dawn I think I had sex with every man in that retirement home who could get it up. And a few tried and could not do it, but most sure could. It was really fun, you know. Not only did I have a variety of cocks shoved up my pussy for hours on end which any slut would like, they were a bunch of nice guys. Most of those men had never fucked a slut like me. And it had been a long time since they had fucked a woman my age. There were so grateful and sweet with me. 
 
- By morning, I was exhausted. They'd fucked me a long time and I only got a couple of hours sleep. I bathed and changed into the clothes Mr. Williams left for me. It was just a top and pair of short shorts. When Mr. Williams arrived, he was peeved to see how tired I was. I guess he understood, however. He took me back to his place and let me sleep the rest of the day. Report_Story #3 
+ By morning, I was exhausted. They'd fucked me a long time and I only got a couple of hours sleep. I bathed and changed into the clothes Mr. Williams left for me. It was just a top and pair of short shorts. When Mr. Williams arrived, he was peeved to see how tired I was. I guess he understood, however. He took me back to his place and let me sleep the rest of the day.  
 
  
 
@@ -1476,7 +1476,7 @@
 
  To be continued . . . . 
 
- Comments? Report_Story #1 
+ Comments?  
 
  
 
@@ -1790,7 +1790,7 @@
 
  "Wow. Where, sir?" 
 
- "On the bottom of her feet. That's very painful. She probably won't be able to walk for a few days, maybe even a few weeks. Don't help her out, or make it easy on her. Make her crawl everywhere. Be sure to tell her you want her to crawl. Explain every time she steps out of line, she'll receive swats that hard either on the bottom of her feet, her nipples, or right on her pussy. Be very explicit, Bob." Report_Story #2 
+ "On the bottom of her feet. That's very painful. She probably won't be able to walk for a few days, maybe even a few weeks. Don't help her out, or make it easy on her. Make her crawl everywhere. Be sure to tell her you want her to crawl. Explain every time she steps out of line, she'll receive swats that hard either on the bottom of her feet, her nipples, or right on her pussy. Be very explicit, Bob."  
 
  
 
@@ -1940,7 +1940,7 @@
 
  To be continued . . . 
 
- Comments? Report_Story #1 
+ Comments?  
 
  
 
@@ -2200,7 +2200,7 @@
 
  "That's why I'm the professional here. You know what else? One of them is a car dealer. I ordered a new convertible, which he's selling me at his cost. I can pick it up tomorrow. A slut needs good wheels, Bobby." 
 
- She dug her nails into my arms. Report_Story #2 
+ She dug her nails into my arms.  
 
  
 
@@ -2358,7 +2358,7 @@
 
  To be continued . . . 
 
- Please! Comments! Report_Story #1 
+ Please! Comments!  
 
  
 
@@ -2580,7 +2580,7 @@
 
  "I don't want to have sex with you, Becky. I'm not a slut like you are," Trudy said shyly. 
 
- "Oh, Trudy, don't be ashamed by that. It's okay. Not every woman can be a world class slut like me. Not everyone is a professional golfer but a lot of people still like to hit the ball around. You can still have fun and not be a pro like me," Becky said reassuringly as she held Trudy's hands. Report_Story #2 
+ "Oh, Trudy, don't be ashamed by that. It's okay. Not every woman can be a world class slut like me. Not everyone is a professional golfer but a lot of people still like to hit the ball around. You can still have fun and not be a pro like me," Becky said reassuringly as she held Trudy's hands.  
 
  
 
@@ -2632,7 +2632,7 @@
 
  To be concluded . . . 
 
- Please! Send me your comments! Report_Story #1 
+ Please! Send me your comments!  
 
  
 
@@ -2876,7 +2876,7 @@
 
  "Certainly," I replied, wondering if an explosion of cosmic proportions was imminent. However, she seemed very calm and controlled. 
 
- They were in the nursery. Becky was nursing Roy. Trudy was feeding Jade pablum since they were starting to wean her. Maria was sound asleep in her crib. She was still nursing and I wondered if she had been fed already. We had passed Colt in the living room where he was engrossed in a children's show on TV. Report_Story #2 
+ They were in the nursery. Becky was nursing Roy. Trudy was feeding Jade pablum since they were starting to wean her. Maria was sound asleep in her crib. She was still nursing and I wondered if she had been fed already. We had passed Colt in the living room where he was engrossed in a children's show on TV.  
 
  
 

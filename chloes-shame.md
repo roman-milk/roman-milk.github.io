@@ -136,7 +136,7 @@
 
  One of the men casually reached for her and lifted her breasts free of the corset cups. "Lovely," he grinned in appreciation, "just fucking lovely." 
 
- Chloe felt the coarse skin of the man's face against her breast as he sucked a nipple between his lips. Another man slid his hand between her thighs and whistled when he felt the slick, slippery folds. Report_Story #2 
+ Chloe felt the coarse skin of the man's face against her breast as he sucked a nipple between his lips. Another man slid his hand between her thighs and whistled when he felt the slick, slippery folds.  
 
  
 

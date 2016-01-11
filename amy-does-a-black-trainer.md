@@ -314,7 +314,7 @@
 
  "Yeah. The black on white thing is a real turn on." 
 
- "It is for me too. We need to do this again. I'll call you as soon as I have a free afternoon. What are your days off?" Report_Story #2 
+ "It is for me too. We need to do this again. I'll call you as soon as I have a free afternoon. What are your days off?"  
 
  
 

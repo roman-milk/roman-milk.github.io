@@ -232,7 +232,7 @@
 
  The hand ends just as Mike blew his load in juliette, I looked at her, "Get me another beer slut." 
 
- I watched as she crawled off Mikes lap, a mix of cum running down her thigh as every eye watched that ass of hers. Report_Story #2 
+ I watched as she crawled off Mikes lap, a mix of cum running down her thigh as every eye watched that ass of hers.  
 
  
 
