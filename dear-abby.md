@@ -1,8 +1,5 @@
 Dear Abby
 =========
-#1 
-
-===
 
 Dear Abby, 
 
@@ -26,4 +23,4 @@ That's the way it was for the next two years. I did whatever I was told to do an
 
 After that I gave up any thought of trying to get away and settled in to be the punch board for everyone willing to pay Washington for the privilege; twosomes, threesomes and foursomes were common place and gangbangs were the norm rather than the exception. I was made to sit in a bathtub and be peed on and I had to straddle the tub and do the peeing and there were lots of other things that I had to do that were too disgusting to write about. 
 
-Then one day a miracle occurred; I was being gangbanged during a high stakes poker game and the police raided the place. A couple of people at the game told the cops that I was being paid to be there and I was arrested and given six months. The good part was that I was given treatment for my drug problem. I have been clean for almost a full year now and I've met the most wonderful man and we have a great relationship. He wants to marry me and my question is: Should I tell him about my past or cross my fingers and hope to God he never finds out? Report_Story 
+Then one day a miracle occurred; I was being gangbanged during a high stakes poker game and the police raided the place. A couple of people at the game told the cops that I was being paid to be there and I was arrested and given six months. The good part was that I was given treatment for my drug problem. I have been clean for almost a full year now and I've met the most wonderful man and we have a great relationship. He wants to marry me and my question is: Should I tell him about my past or cross my fingers and hope to God he never finds out? 
