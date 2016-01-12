@@ -1,8 +1,5 @@
 Becoming A Slut Wife: Darlene
 =============================
-#1 
-
-===
 
 I spent the first ten years as Darlene's husband being a normal guy, whatever normal means. You know, loving husband and father, the family provider, churchgoer every Sunday, all that stuff that is good and wholesome. I'd never had any weird thoughts or fantasies about my wife and the kinkiest I ever got was having anal sex with Darlene, and even that only happened because she said she wanted to try it. And then one day Darlene and I went to her best friend's birthday party and my life changed - radically. 
 
