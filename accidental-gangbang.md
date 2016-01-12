@@ -1,20 +1,5 @@
 Accidental Gangbang
 ===================
-#1 
-
-===
-
-Summary: Wife-to-be ends up fuck-slut at her fiancé's bachelor party. 
-
-Note 1: This is a holiday 2014 contest story. 
-
-Note 2: Thanks to goamz86 and Robert for editing. 
-
-Note 3: Thanks to Ender27 who first came up with the idea in my Christmas stories idea thread. Also, Gift Box by Hypoxia also uses the same plot suggestion, released a couple weeks before mine, although you will see the stories are a lot different (yet also have some similarities as we both use a few of the ideas of Ender27). 
-
-Note 4: Although there is a brief accidental incest scene, this is mostly a group sex story. 
-
-* 
 
 It seemed like a good idea at the time...that is what I said to my fiancé four hours later. 
 
