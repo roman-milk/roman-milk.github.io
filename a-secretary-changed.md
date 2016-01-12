@@ -1,8 +1,5 @@
 A Secretary Changed
-==========================
-#1 
-
-===
+===================
 
 Yawn, stretch, eyes open. 
 
