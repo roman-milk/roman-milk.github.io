@@ -1,8 +1,14 @@
+Housebuying Boogie
+==================
 #1 
 
  
 
- ****** Housebuying Boogie ****** bygeronimo_appleby© My wife Samantha and I had been looking at properties for a few weeks when we decided to view Number 22. The experience so far had left me unenthusiastic and even Sam was beginning to find the ongoing process a little tedious. We couldn't agree on which place to buy. One of us always had a negative point about the few places we had considered, and so it was with a growing feeling of frustration that we arrived at the next address to meet the agent. 
+ 
+
+===
+
+My wife Samantha and I had been looking at properties for a few weeks when we decided to view Number 22. The experience so far had left me unenthusiastic and even Sam was beginning to find the ongoing process a little tedious. We couldn't agree on which place to buy. One of us always had a negative point about the few places we had considered, and so it was with a growing feeling of frustration that we arrived at the next address to meet the agent. 
 
  Because it was Saturday afternoon, our usual agent wasn't available since it was her rota for the weekend off. She'd called to apologise, but emphasised that Richard would look after us and assured us that he was more than capable. 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Housebuying Boogie ****** bygeronimo_appleby© Samantha was really going to town as she slurped and drooled saliva over Richard's penis. She held it close to the root at its base and licked up the outside of the shaft from top to bottom and back again. She then popped the big dome back between her painted lips and sucked at it so that her cheeks were concave. As she sucked, Samantha wanked at the shaft of the cock and then licked Richard's hanging balls. 
+ 
+
+===
+
+Samantha was really going to town as she slurped and drooled saliva over Richard's penis. She held it close to the root at its base and licked up the outside of the shaft from top to bottom and back again. She then popped the big dome back between her painted lips and sucked at it so that her cheeks were concave. As she sucked, Samantha wanked at the shaft of the cock and then licked Richard's hanging balls. 
 
  'Do you like it?' Samantha whispered up at her lover as his black cock dribbled precum from the end and a silvery thread of the stuff hung from my wife's chin. 'I love sucking cock,' Samantha said and emphasised the point by squashing the spongy dome against her pursed lips. 'I especially love sucking your black one,' she added, 'my first one, yummy.' 
 

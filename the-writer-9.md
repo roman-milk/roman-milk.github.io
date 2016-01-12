@@ -1,8 +1,14 @@
+The Writer
+==========
 #1 
 
  
 
- ****** The Writer ****** byJust_Plain_Bob© I got up from the computer with a smile on my face. If I was right, within the next twenty-four hours my husband would read what I had just typed and if I knew him - and believe me I did - he would be smiling and rubbing his cock. Hell - he might even take it out and stroke it. 
+ 
+
+===
+
+I got up from the computer with a smile on my face. If I was right, within the next twenty-four hours my husband would read what I had just typed and if I knew him - and believe me I did - he would be smiling and rubbing his cock. Hell - he might even take it out and stroke it. 
 
  Revenge could sometimes be so sweet! 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** The Writer ****** byJust_Plain_Bob© ++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++ 
 
  I finished typing the story of my afternoon with Jason into the lap top, making only minor changes to disguise Jason, Steve and me. Things like changing Jason's name to Jonas, changing feed store to gas station and making Jason my north side neighbor instead of my south side one. And of course I changed Steve's name and mine. I added the disclaimer that the names had been changed to protect the guilty and then I sent the story off to the four sites. Hopefully, if my wish was granted, Steve would be sitting at the computer stroking his cock as he read the story and thought that "some guys had all the luck." 
 

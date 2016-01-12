@@ -1,8 +1,14 @@
+The Small Package
+=================
 #1 
 
  
 
- ****** The Small Package ****** byJust_Plain_Bob© They say that good things come in small packages, but a stick of dynamite is pretty small and one of them can ruin your day. Both of those things could describe my wife Betsy. At five foot even and a hundred and five pounds soaking wet she is definitely a small package. Great looking, a fantastic cook, superb in the bedroom and ninety percent of her time is spent in spoiling me rotten. 
+ 
+
+===
+
+They say that good things come in small packages, but a stick of dynamite is pretty small and one of them can ruin your day. Both of those things could describe my wife Betsy. At five foot even and a hundred and five pounds soaking wet she is definitely a small package. Great looking, a fantastic cook, superb in the bedroom and ninety percent of her time is spent in spoiling me rotten. 
 
  It is the other ten percent where the dynamite comes in. Betsy does have a short fuse and when something sets her off there is hell to pay and to be bluntly honest about it if I had known of that ten percent and how she could be when she was in that "zone" I'm not all that sure that I would have asked her to marry me. I suppose the red hair should have been a sign, but I didn't think of it at the time. I mean when she goes off, she goes OFF! 
 

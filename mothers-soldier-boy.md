@@ -1,8 +1,14 @@
+Mother's Soldier Boy Ch. 01
+===========================
 #1 
 
  
 
- ****** Mother's Soldier Boy Ch. 01 ****** bygeronimo_appleby© I've always been shy. I can't give any reason for it or explain why I feel the way I do in certain situations, all I know is that as a child I was painfully shy and it's only as I've grown more mature that things have improved. 
+ 
+
+===
+
+I've always been shy. I can't give any reason for it or explain why I feel the way I do in certain situations, all I know is that as a child I was painfully shy and it's only as I've grown more mature that things have improved. 
 
  It was because of my social awkwardness that I'd never had a girlfriend. Don't misunderstand me; I liked girls very much as a teenager, it's just that I wasn't able to communicate very effectively with them. I would try to hard to impress them and look like a twat or I would go bright red and start to sweat if a pretty girl spoke to me which wasn't the best way to attract members of the opposite sex. 
 
@@ -126,7 +132,11 @@
 
  
 
- ****** Mother's Soldier Boy Ch. 02 ****** bygeronimo_appleby© When I awoke on that first morning after losing my virginity to my precious mother, I had to take stock of the situation and remind myself that the events of the previous night had actually happened. 
+ 
+
+===
+
+When I awoke on that first morning after losing my virginity to my precious mother, I had to take stock of the situation and remind myself that the events of the previous night had actually happened. 
 
  I was feeling a little hung over from the booze I'd drunk in the hotel bar but as I looked at my mother lying next to me in the wide hotel bed I felt the effects of the alcohol just melt away. My mother opened her eyes and blinked as she struggled to remember where she was. 'Good morning baby,' she smiled, reaching out to pull my face to hers in a good morning kiss. 
 
@@ -262,7 +272,11 @@
 
  
 
- ****** Mother's Soldier Boy Ch. 03 ****** bygeronimo_appleby© The day arrived at last, my sister's 18th birthday. I still had a couple of days leave remaining before I had to report back to camp and I hoped to enjoy myself some more prior to going back. The day of Emma's birthday was spent as a family, my father, my mother, my sister and me. Emma had the day at college and we all went out for a meal in the evening to celebrate. 
+ 
+
+===
+
+The day arrived at last, my sister's 18th birthday. I still had a couple of days leave remaining before I had to report back to camp and I hoped to enjoy myself some more prior to going back. The day of Emma's birthday was spent as a family, my father, my mother, my sister and me. Emma had the day at college and we all went out for a meal in the evening to celebrate. 
 
  However things were due to be a little different later on that night, my mother and father were going to work on Emma's seduction and I was to spend the night with my aunt and my grandma. As far as Emma was concerned I was staying with an old school friend, little did she know I would be burying my young prick inside 2 greedy pussies. 
 
@@ -410,7 +424,11 @@
 
  
 
- ****** Mother's Soldier Boy Ch. 04 ****** bygeronimo_appleby© The train pulled into the grandeur of York railway station, carrying me on the final leg of my journey north. It had been two months since I'd been home after my passing out parade, two months since I'd been initiated into the world of incestuous sex. I was looking forward to seeing my beautiful mother, Aunt Amy, my grandmother and my hot sister again. 
+ 
+
+===
+
+The train pulled into the grandeur of York railway station, carrying me on the final leg of my journey north. It had been two months since I'd been home after my passing out parade, two months since I'd been initiated into the world of incestuous sex. I was looking forward to seeing my beautiful mother, Aunt Amy, my grandmother and my hot sister again. 
 
  I had spent many an idle moment remembering how my mother had seduced me on the afternoon following the parade and how good it felt to slide my prick into the bodies of my other female relatives during my first family orgy during my last leave. 
 

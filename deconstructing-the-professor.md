@@ -1,8 +1,14 @@
+Deconstructing the Professor
+============================
 #1 
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© Deconstructing the Professor: A Novella 
+ 
+
+===
+
+Deconstructing the Professor: A Novella 
 
  Summary: A proud black MILF is slowly dommed by a racist white co-ed. 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© At 40, I had long accepted myself for who I was and didn't expect to change. I had tried to be more open with my second husband, I had tried to let go of my insecurities and my feminist ways, an odd contradiction I know; but in the end I had never been able to free myself of the invisible chains holding me back...and then came Madison. 
+ 
+
+===
+
+At 40, I had long accepted myself for who I was and didn't expect to change. I had tried to be more open with my second husband, I had tried to let go of my insecurities and my feminist ways, an odd contradiction I know; but in the end I had never been able to free myself of the invisible chains holding me back...and then came Madison. 
 
  3. OUT OF THE BLUE 
 
@@ -314,7 +324,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© The class had time to read an article and discuss it in small groups until class ended. I chickened out and didn't confront Madison and returned to my office to assess papers. 
+ 
+
+===
+
+The class had time to read an article and discuss it in small groups until class ended. I chickened out and didn't confront Madison and returned to my office to assess papers. 
 
  That afternoon Miko knocked on my door. I invited her in and she cautiously came in with a look of fear written all over her face. 
 
@@ -472,7 +486,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© "Madison?" I asked, wanting official confirmation. 
+ 
+
+===
+
+"Madison?" I asked, wanting official confirmation. 
 
  She avoided answering the question directly, although her facial expression answered it for me, "Mistress disciplined me in her attempt to add you to her harem of subs." 
 
@@ -648,7 +666,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© A reminder since apparently following instructions has been difficult for you, slave. Each disobedience will be followed by a harsh and humiliating punishment. You are already at 3!!! You should know that no one has ever been able to refuse submitting to me and I doubt very much if a stupid ass Nigger like you will be the first. 
+ 
+
+===
+
+A reminder since apparently following instructions has been difficult for you, slave. Each disobedience will be followed by a harsh and humiliating punishment. You are already at 3!!! You should know that no one has ever been able to refuse submitting to me and I doubt very much if a stupid ass Nigger like you will be the first. 
 
  Now accept your role as a slut and submit.... 
 
@@ -802,7 +824,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© My kids had always attended church with me. But this time they resisted going to church, only giving in after I'd pleaded with them, almost whining. I wondered what this meant, nearly apoplectic about the prospect of my children finding out what I'd been going through and losing all their respect for me, maybe church could cleanse me of my sins and thoughts. I was sweating profusely the whole drive to church, alone in my car, the kids insisting on driving themselves over separately. The kids and I got to church just as the first hymn was playing. 
+ 
+
+===
+
+My kids had always attended church with me. But this time they resisted going to church, only giving in after I'd pleaded with them, almost whining. I wondered what this meant, nearly apoplectic about the prospect of my children finding out what I'd been going through and losing all their respect for me, maybe church could cleanse me of my sins and thoughts. I was sweating profusely the whole drive to church, alone in my car, the kids insisting on driving themselves over separately. The kids and I got to church just as the first hymn was playing. 
 
  As hymn after hymn played, I began to feel rejuvenated. I felt the old me coming back. The preacher gave a lengthy sermon on inner strength and resisting temptation. I felt as though he was speaking directly to me and my resolve became even stronger. 
 
@@ -984,7 +1010,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© Once she was gone and I had closed the door, Madison instantly turned back on her dominant persona, standing up, "Now let's get back to where we were." 
+ 
+
+===
+
+Once she was gone and I had closed the door, Madison instantly turned back on her dominant persona, standing up, "Now let's get back to where we were." 
 
  "Ms. Adams, this is over. I have a meeting in less than an hour." 
 
@@ -1234,7 +1264,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© Madison added, acting like a sweet southern belle, "I am so sorry to impose, but Felicia said she made way too much food." 
+ 
+
+===
+
+Madison added, acting like a sweet southern belle, "I am so sorry to impose, but Felicia said she made way too much food." 
 
  I winced at her calling me Felicia, one more thing Keisha knew I would never allow. I hid my worries and offered Madison a seat beside me. Once she sat down, I began dishing out the dinner, as I always did. 
 
@@ -1472,7 +1506,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© Madison whispered, "Looks like you will be drinking a lot of pee, Nigger Mommy." 
+ 
+
+===
+
+Madison whispered, "Looks like you will be drinking a lot of pee, Nigger Mommy." 
 
  Her words brought me back to the task at hand and the consequences of losing, I crawled, like a puppy, to a pretty brunette and asked, "Ma'am, can this Nigger Mammy lick your vagina?" 
 
@@ -1712,7 +1750,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© I snapped back, "Why are you really here?" 
+ 
+
+===
+
+I snapped back, "Why are you really here?" 
 
  Her smirk returned, "For you to prove to me that I am wrong." 
 
@@ -1926,7 +1968,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© "Really?" I responded, dumbfounded. 
+ 
+
+===
+
+"Really?" I responded, dumbfounded. 
 
  "Yes," she whimpered, utterly humiliated by her predicament. 
 
@@ -2222,7 +2268,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© "Yes, for white pussy," I concurred. 
+ 
+
+===
+
+"Yes, for white pussy," I concurred. 
 
  "Go upstairs and get dressed in what was instructed in the note," she ordered. When I didn't immediately move, she ordered, "Move your Nigger ass now!" 
 
@@ -2454,7 +2504,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© "Well, society expects perfection from women. They have to be the main caregiver, the perfect wife and also a productive member in her work field. We are so bombarded by the expectations of society, that we begin to believe them and lose our inner sexual selves and our right to be sexual beings on our conditions... and not society's," she continued. 
+ 
+
+===
+
+"Well, society expects perfection from women. They have to be the main caregiver, the perfect wife and also a productive member in her work field. We are so bombarded by the expectations of society, that we begin to believe them and lose our inner sexual selves and our right to be sexual beings on our conditions... and not society's," she continued. 
 
  "Good assessment," I agreed. 
 
@@ -2752,7 +2806,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© Emily's moans continued to increase and she exploded only seconds after being told, a scream so shockingly loud I couldn't believe it could come from the sweet, innocent Emily. "AaaaaaaaaahHHHHHHHHHhhhaaaaaaaaaaaaaaaaaafuuuuuuck, fuck, fuck, fuck, fuck, fuck." 
+ 
+
+===
+
+Emily's moans continued to increase and she exploded only seconds after being told, a scream so shockingly loud I couldn't believe it could come from the sweet, innocent Emily. "AaaaaaaaaahHHHHHHHHHhhhaaaaaaaaaaaaaaaaaafuuuuuuck, fuck, fuck, fuck, fuck, fuck." 
 
  I watched her distorted facial expression, her closed eyes and her trembling lips as the orgasm spread through her. I was mesmerized by the beauty of it all, regardless of the way it transpired. Emily's orgasm was truly blissful and erotic. 
 
@@ -2998,7 +3056,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© I shrugged and said with a naughty smile, dripping with the innuendo that he would never know, "I am nothing like when we were married." 
+ 
+
+===
+
+I shrugged and said with a naughty smile, dripping with the innuendo that he would never know, "I am nothing like when we were married." 
 
  "So it seems," he smiled back, putting his cock away. He gave me a look that was a mixture of surprise, admiration and desire that actually had me aroused and wishing I could just fuck him. 
 
@@ -3170,7 +3232,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© 28. A SIXTH BRIEF INTERLUDE INTO THE LIFE OF KEISHA JEFFERSON: A SHOCKING REVELATION 
+ 
+
+===
+
+28. A SIXTH BRIEF INTERLUDE INTO THE LIFE OF KEISHA JEFFERSON: A SHOCKING REVELATION 
 
  On the flight home, I decided to ask Mr. Walters about Madison. "Have you met Ms. Washington?" 
 
@@ -3492,7 +3558,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© The kids finished their breakfast and both hugged me for the first time in for as long as I can remember, not counting Nicole's earlier hug today. Nicole's was a normal daughter-mother hug, but Nicolas's hug lingered way longer then society's expectations, his hand lingering on my ass the entire time. He surprised me a second time by kissing my cheek before leaving saying, "Bye, Mommy." 
+ 
+
+===
+
+The kids finished their breakfast and both hugged me for the first time in for as long as I can remember, not counting Nicole's earlier hug today. Nicole's was a normal daughter-mother hug, but Nicolas's hug lingered way longer then society's expectations, his hand lingering on my ass the entire time. He surprised me a second time by kissing my cheek before leaving saying, "Bye, Mommy." 
 
  Once they were both gone, I sat down trying to understand what just happened. Looking at the clock, I realized if I didn't hurry I would be late for work so I left the kitchen a mess, something I never did, and headed to work, again trying to find a way to stop the unravelling of my life which had now come to involve all three of my children. 
 
@@ -3734,7 +3804,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© As soon as I was home, I went to my bedroom, pulled out my seldom-used vibrator and began pleasuring myself. I closed my eyes and unlike the times my dreams played tricks on me, this time I was wide awake when I fantasized about submitting to Madison. 
+ 
+
+===
+
+As soon as I was home, I went to my bedroom, pulled out my seldom-used vibrator and began pleasuring myself. I closed my eyes and unlike the times my dreams played tricks on me, this time I was wide awake when I fantasized about submitting to Madison. 
 
  I tried to fight it, but eventually just gave in, my desire to come overriding common sense. I pulled out Madison's panties from the envelope and put them to my nose. The scent was intoxicating in a way I couldn't explain. I suddenly wanted more, my mouth salivating at the thought of tasting such perfection. My mind on standby, my pussy doing all the thinking, I felt my hand move the crotch of Madison's panties to my mouth and I involuntarily sucked the still wet crotch in my mouth. The fabric was unappealing, but the wetness was heaven. Madison's panties in my mouth, my eyes closed, I fantasized Madison forcing me to eat her pussy, forcing me to become her slave. I frantically fucked myself, my vibrator on high, while rubbing my clit with my other hand. It was the quickest and hardest I had ever come as convolutions quaked my very being, from my pinky toe to the hair on my head. The sensations came in wave after wave as I sucked her dried cum into my mouth as my own juices exploded out of me. 
 
@@ -4026,7 +4100,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© "All for you, son, and now fuck Mommy hard," I begged. 
+ 
+
+===
+
+"All for you, son, and now fuck Mommy hard," I begged. 
 
  He obliged, his deep hard thrusts sending chills of rapture throughout my body. In seconds I could feel my orgasm, my long held-in orgasm, bubbling, "I begged, can Mommy come son?" 
 
@@ -4316,7 +4394,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© I moved between her legs again being drawn in by the intoxicating scent that fogged my mind. I licked her pussy and was again mesmerized by her delicious taste. Wanting to get her off as soon as possible and end this humiliating ordeal, I slid two fingers inside her wet pussy while sucking on her clit. Madison's moans increased exponentially and in only a couple of minutes my face was being coated by her cum. I lapped it up eagerly, suddenly addicted to the taste. I couldn't get enough wanting nothing more than to savour Madison's cum. 
+ 
+
+===
+
+I moved between her legs again being drawn in by the intoxicating scent that fogged my mind. I licked her pussy and was again mesmerized by her delicious taste. Wanting to get her off as soon as possible and end this humiliating ordeal, I slid two fingers inside her wet pussy while sucking on her clit. Madison's moans increased exponentially and in only a couple of minutes my face was being coated by her cum. I lapped it up eagerly, suddenly addicted to the taste. I couldn't get enough wanting nothing more than to savour Madison's cum. 
 
  Suddenly she pulled away and ordered, "On your desk, slave." 
 
@@ -4588,7 +4670,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© On Wednesday, with Madison sitting directly in front of me, I lectured about sex selling. After showing music videos by Lady Gaga, Rihanna and Britney Spears, and a plethora of advertisements using sex to sell, I went on my rant. 
+ 
+
+===
+
+On Wednesday, with Madison sitting directly in front of me, I lectured about sex selling. After showing music videos by Lady Gaga, Rihanna and Britney Spears, and a plethora of advertisements using sex to sell, I went on my rant. 
 
  "As you can see, the problem with today's society is that sex is used to sell to all. Hot women are used to sell to men, to women and to teenagers. Scantily clad women are used to sell everything marketable as they showcase their breasts and bodies to tantalize. A commercial with a guy being swarmed by girls as he drinks a certain brand of beer tries to convince consumers that if they drink that beer they too will get hot women." 
 
@@ -4894,7 +4980,11 @@
 
  
 
- ****** Deconstructing the Professor ****** bysilkstockingslover© Allison's hands played softly in my hair, making the intimate moment even sweeter. I wanted nothing more than to give this beautiful, radiant, redhead the most earth-shattering, body-quaking orgasm of her young life. 
+ 
+
+===
+
+Allison's hands played softly in my hair, making the intimate moment even sweeter. I wanted nothing more than to give this beautiful, radiant, redhead the most earth-shattering, body-quaking orgasm of her young life. 
 
  Ten minutes became fifteen which became twenty before Allison gently pulled my head deeper into her oasis of sweetness, a subtle instruction that I, of course, obeyed. My tongue penetrated her pussy while my mouth nibbled on her clit. Slow at first and then quicker, I moved my head up and down, painting her pussy with my paintbrush tongue. My head pulled in once again, deep inside her, she gently rubbed her pussy on my face, slyly fucking herself. I extended my tongue as far as I could and allowed the beautiful goddess to get herself off on my tongue and face. 
 

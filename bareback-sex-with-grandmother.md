@@ -1,8 +1,14 @@
+Bareback Sex with Grandmother
+=============================
 #1 
 
  
 
- ****** Bareback Sex with Grandmother ****** bygeronimo_appleby© Another on a grandmother theme – I seem to be on a roll (no pun). 
+ 
+
+===
+
+Another on a grandmother theme – I seem to be on a roll (no pun). 
 
  Anyway, it's grandson/grandmother incest. I hope you enjoy it. Feedback is appreciated. 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Bareback Sex with Grandmother ****** bygeronimo_appleby© The shock of hearing his gran uttering those words with such a casual demeanour hit Nate like a physical blow. He felt his face warm, heat rising as, simultaneously, his stomach flipped. 
+ 
+
+===
+
+The shock of hearing his gran uttering those words with such a casual demeanour hit Nate like a physical blow. He felt his face warm, heat rising as, simultaneously, his stomach flipped. 
 
  "And we must have been going at it ... we must have been ... fucking ... for another couple of minutes, perhaps five?" 
 
@@ -544,7 +554,11 @@
 
  
 
- ****** Bareback Sex with Grandmother ****** bygeronimo_appleby© Her hand worked harder, cranking at the shaft of her grandson's cock. 
+ 
+
+===
+
+Her hand worked harder, cranking at the shaft of her grandson's cock. 
 
  His arm went around her waist; his buttocks squirmed on the settee as he swivelled as far around to face her as he could. 
 
@@ -824,6 +838,10 @@
 
  
 
- ****** Bareback Sex with Grandmother ****** bygeronimo_appleby© Then she stood to one side and watched, a hand kneading her big breasts while she fingered a clitoris swollen and slippery with desire, watching her daughter and grandson rutting together. Madeline came with them, juddering and gasping when Nate filled his mother with spurts of love. 
+ 
+
+===
+
+Then she stood to one side and watched, a hand kneading her big breasts while she fingered a clitoris swollen and slippery with desire, watching her daughter and grandson rutting together. Madeline came with them, juddering and gasping when Nate filled his mother with spurts of love. 
 
  "Oh God," Madeline mumbled, chewing her lower lip. "This is only the beginning." Report_Story 

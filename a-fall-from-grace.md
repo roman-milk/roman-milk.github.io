@@ -1,8 +1,14 @@
+A Fall From Grace
+=================
 #1 
 
  
 
- ****** A Fall From Grace ****** bysilkstockingslover© NOTE 1: A special thank you goes to my two editors (Estragon and Steven B) who made this work A LOT better than it originally was...as usual. 
+ 
+
+===
+
+NOTE 1: A special thank you goes to my two editors (Estragon and Steven B) who made this work A LOT better than it originally was...as usual. 
 
  NOTE 2: This is my Earth Day contest story. The story is a mind control, revenge, lesbian story...that also saves the environment. Enjoy and vote... 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** A Fall From Grace ****** bysilkstockingslover© Shannon pulled Victoria's face into her pussy and began to rub up and down on the powerful (though getting less so) CEO's face. Victoria tried to lick, but mostly tried to breathe, as her face was engulfed by the young girl's soaking wet pussy. After only a minute of this humiliation, Victoria felt the girl's legs tighten around her head. Suddenly Shannon gave a whoop of pleasure and an explosive amount of juice sprayed from her pussy. Simultaneously, an orgasm was triggered inside Victoria, a joy that she could not remember having ever felt before. 
+ 
+
+===
+
+Shannon pulled Victoria's face into her pussy and began to rub up and down on the powerful (though getting less so) CEO's face. Victoria tried to lick, but mostly tried to breathe, as her face was engulfed by the young girl's soaking wet pussy. After only a minute of this humiliation, Victoria felt the girl's legs tighten around her head. Suddenly Shannon gave a whoop of pleasure and an explosive amount of juice sprayed from her pussy. Simultaneously, an orgasm was triggered inside Victoria, a joy that she could not remember having ever felt before. 
 
  Shannon screamed an orgasm and as she let go of her captive's head, she announced, "Yeah, I'm kind of a gusher all right. And that was a good one." 
 

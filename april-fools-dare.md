@@ -1,8 +1,14 @@
+April Fools Dare
+================
 #1 
 
  
 
- ****** April Fools Dare ****** bygeronimo_appleby© Foreword 
+ 
+
+===
+
+Foreword 
 
  Okay, here's one for the April Fools contest. It was fun to write, I hope you enjoy it. 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** April Fools Dare ****** bygeronimo_appleby© I was relieved to see Zoe nod in approval, her eyes on me before she turned to Cate and said, "Nothing new there." Her focus returned to me and she added, "I like it. It's--" Zoe paused, face tilted to the ceiling while searching for the word. "Raw," she finished. "It's dirty and nasty ... Elemental." 
+ 
+
+===
+
+I was relieved to see Zoe nod in approval, her eyes on me before she turned to Cate and said, "Nothing new there." Her focus returned to me and she added, "I like it. It's--" Zoe paused, face tilted to the ceiling while searching for the word. "Raw," she finished. "It's dirty and nasty ... Elemental." 
 
  "Yeah," Cate put in. 
 
@@ -494,7 +504,11 @@
 
  
 
- ****** April Fools Dare ****** bygeronimo_appleby© I touched the girl for the first time, laying a hand on her back while guiding the blunt cock-end to her body. My throat worked and I swallowed heavily when my erection nudged her, Zoe's labia distorting. 
+ 
+
+===
+
+I touched the girl for the first time, laying a hand on her back while guiding the blunt cock-end to her body. My throat worked and I swallowed heavily when my erection nudged her, Zoe's labia distorting. 
 
  A pause and a thrust and I heard her gasp. 
 

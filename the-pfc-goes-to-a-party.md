@@ -1,8 +1,14 @@
+The PFC Goes to a Party
+=======================
 #1 
 
  
 
- ****** The PFC Goes to a Party ****** byJust_Plain_Bob© The lights came on and voices screamed "Off it and on it" as Sgt. Morales went down the aisle kicking bunks. Teresa rolled off the upper bunk and looked at her watch. Four forty-five; god damn you George Bush, this is just too damned early to get put of bed. "Get your shit together people and clean up this pig sty" Sgt. Morales yelled, "I want you back from the mess hall by 0600. It's a two-hour march to the range and I intend to have your asses there by 0800. Now move it!" 
+ 
+
+===
+
+The lights came on and voices screamed "Off it and on it" as Sgt. Morales went down the aisle kicking bunks. Teresa rolled off the upper bunk and looked at her watch. Four forty-five; god damn you George Bush, this is just too damned early to get put of bed. "Get your shit together people and clean up this pig sty" Sgt. Morales yelled, "I want you back from the mess hall by 0600. It's a two-hour march to the range and I intend to have your asses there by 0800. Now move it!" 
 
  The day was a long one for Teresa Moore. A two-hour march to the range, hours spent pulling and marking targets, and then firing from the prone, standing, sitting and kneeling positions at known distance targets. Then, because she had pissed one of the noncoms off she had to clean not only her piece but her squad leaders too. The only good thing about it was that they weren't treated like boots and they were allowed to dip the actions in kettles of boiling water. Then came the two hour march back to barracks, the last half mile at double time, and every step of the way Teresa cursed Saddam Hussein, George Bush and all of the other idiots who were determined to attack Iraq. She cursed herself for being so stupid as to join the reserves to help her pay for her nurses training. Her husband had warned her, but she wouldn't listen. He had gone to Desert Storm and he had warned her two years ago that the US wasn't done over there. Now he was at home drinking beer with his buddies while she was putting in sixteen-hour days and being yelled at by some cretin of an NCO almost every minute of it. Thank God it was Friday and she had a weekend pass. It was too far to make the trip home and back, but at least she could get off the base and away from that fucking idiot Morales. 
 

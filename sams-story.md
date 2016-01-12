@@ -1,8 +1,14 @@
+Sam's Story
+===========
 #1 
 
  
 
- ****** Sam's Story ****** byJust_Plain_Bob© Depending on your point of view Sam is either voluptuous, pleasingly plump, or a chubby little sexpot. Whichever way you see her there is never a doubt in your mind that she is an extremely fuckable woman. I've yet to see the man whose head doesn't turn when she walks by. In her never ending battle against becoming fat Samantha follows an exercise program that would put a professional athlete to shame and many are the times that I've gone to the gym to pick her up and watched the men who were there watch Sam. I have gotten so used to men not being able to take their eyes off her that I don't even notice them anymore, and that’s how the trouble started - I should have been paying more attention. 
+ 
+
+===
+
+Depending on your point of view Sam is either voluptuous, pleasingly plump, or a chubby little sexpot. Whichever way you see her there is never a doubt in your mind that she is an extremely fuckable woman. I've yet to see the man whose head doesn't turn when she walks by. In her never ending battle against becoming fat Samantha follows an exercise program that would put a professional athlete to shame and many are the times that I've gone to the gym to pick her up and watched the men who were there watch Sam. I have gotten so used to men not being able to take their eyes off her that I don't even notice them anymore, and that’s how the trouble started - I should have been paying more attention. 
 
  Samantha has never realized how sexually alluring she is. She thinks she is too fat and that most men have no interest in a "fat broad" (her words, not mine) and so she has always ignored me when I've told her to be careful when she is around men, "You let your guard down sweetie, and they'll have you on your back in a New York Minute." Sam is also a very trusting person and doesn't think ill of anyone. I've told her a thousand times that she is too naive, but she just laughs and tells me that I'm too cynical. To help complicate the mix, Sam can't handle liquor very well. It does not take much to get her looped and when she gets looped she loses her common sense and most of her natural inhibitions. It has never been much of a problem because Sam is everybody's buddy, and even though most of the men would rather fuck her than eat, most of the time they treat her like a younger sister and they are very protective of her. She often stops for a beer or two with the guys she works with and there had never been a problem - like I said, the guys look after her - or at least once upon a time they did. 
 
@@ -36,7 +42,11 @@
 
  
 
- ****** Sam's Story Ch. 02 ****** byJust_Plain_Bob© Authors note: 
+ 
+
+===
+
+Authors note: 
 
  Of all the stories I've posted on Literotica the one that drew the most comment (although, curiously enough, the lowest vote rating) was Sam's Story. Almost everyone said they liked the story, but that it fairly cried out for a Part 2. To everyone who sent a valid email address with their comment I replied that not all stories had happy endings and that some stories were best ended in a fashion that the reader could apply his/her own imagination. The replies I got from that email were almost identical -"It doesn't need a happy ending, but it does need just a little bit more." 
 
@@ -242,7 +252,11 @@
 
  
 
- ****** Sam's Story Ch. 02 ****** byJust_Plain_Bob© To her credit she was honest. She looked away from me and said, "I don't know." 
+ 
+
+===
+
+To her credit she was honest. She looked away from me and said, "I don't know." 
 
  "That tells me all I need to know Sam. Best I just set you free so you can go out and find big cocks to play with." 
 

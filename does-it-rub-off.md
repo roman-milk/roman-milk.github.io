@@ -1,8 +1,14 @@
+Does It Rub Off?
+================
 #1 
 
  
 
- ****** Does It Rub Off? ****** byJust_Plain_Bob© Authors note: If you didn't like my story, "The Racist" you won't like this one either. 
+ 
+
+===
+
+Authors note: If you didn't like my story, "The Racist" you won't like this one either. 
 
  +++++++++++++++++++++++++++++++++++++++++ 
 

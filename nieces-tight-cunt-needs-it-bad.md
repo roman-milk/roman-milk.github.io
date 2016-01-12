@@ -1,8 +1,14 @@
+Niece's Tight Cunt Needs It Bad
+===============================
 #1 
 
  
 
- ****** Niece's Tight Cunt Needs It Bad ****** byNonStopFunGuy© "Uhhh, fuck!" Heather shrieked, pulling her two sore fingers out of her gushing bald vagina and immediately sticking them in her mouth to suck off her sweet juices. Her knees trembled from the shattering orgasm as she lay back on her bed, her naked body flopping backwards to relax from the exquisite masturbation. 
+ 
+
+===
+
+"Uhhh, fuck!" Heather shrieked, pulling her two sore fingers out of her gushing bald vagina and immediately sticking them in her mouth to suck off her sweet juices. Her knees trembled from the shattering orgasm as she lay back on her bed, her naked body flopping backwards to relax from the exquisite masturbation. 
 
  The masculine giggle over the phone rang in her ear. "Baby, you sound like you had quite a good time!" 
 
@@ -86,7 +92,11 @@
 
  
 
- ****** Niece's Tight Cunt Needs It Bad ****** byNonStopFunGuy© Heather ran some hot water and stepped into the shower. She wasn't shampooing or soaping up. Instead, she stood with her back to the water, one hand on the tiled wall to steady herself, and her other hand slipped to her vagina. Her cunt was demanding to be fucked. Pausing to play with her soaking clitty a few moments, Heather then gave herself what she wanted. She rammed a stiff finger into her hole, followed about a minute later with a second digit. She was so tight, her vagina wanted to be stretched by big dick. Uncle's dick. Yes, Uncle Jake's cock. Heather wasn't resisting the image. She wanted him too badly. Imagining what Uncle Jake must look like naked -- how gorgeous his tanned body must be -- she imagined him inspecting her nudity, her thighs spreading to show him her holes, and in her fantasy he showed his niece how big his prick gets. For that, Heather shows him what an expert cocksucker she is. The idea of his hot sticky cum shooting into her throat, her own uncle's penis, was so powerful. She's never fantasized about fucking a relative before, but when your uncle was a stud-muffin, she couldn't resist. Her two fingers plunged into her pussy as the hot water cascaded down her long sleek back, and the girl finger- fucked herself madly while she visualized her uncle's nice sexy cock stuffed in place of her fingers. She figured, what, he had to be at least average, 6 or 6.5 inches long, right? That would be great, she could suck it in her throat, and he could fit it deep in her pussy, plunging into her, shoving his balls against her ass, and she would have the biggest orgasm getting fucked by her uncle. 
+ 
+
+===
+
+Heather ran some hot water and stepped into the shower. She wasn't shampooing or soaping up. Instead, she stood with her back to the water, one hand on the tiled wall to steady herself, and her other hand slipped to her vagina. Her cunt was demanding to be fucked. Pausing to play with her soaking clitty a few moments, Heather then gave herself what she wanted. She rammed a stiff finger into her hole, followed about a minute later with a second digit. She was so tight, her vagina wanted to be stretched by big dick. Uncle's dick. Yes, Uncle Jake's cock. Heather wasn't resisting the image. She wanted him too badly. Imagining what Uncle Jake must look like naked -- how gorgeous his tanned body must be -- she imagined him inspecting her nudity, her thighs spreading to show him her holes, and in her fantasy he showed his niece how big his prick gets. For that, Heather shows him what an expert cocksucker she is. The idea of his hot sticky cum shooting into her throat, her own uncle's penis, was so powerful. She's never fantasized about fucking a relative before, but when your uncle was a stud-muffin, she couldn't resist. Her two fingers plunged into her pussy as the hot water cascaded down her long sleek back, and the girl finger- fucked herself madly while she visualized her uncle's nice sexy cock stuffed in place of her fingers. She figured, what, he had to be at least average, 6 or 6.5 inches long, right? That would be great, she could suck it in her throat, and he could fit it deep in her pussy, plunging into her, shoving his balls against her ass, and she would have the biggest orgasm getting fucked by her uncle. 
 
  She had three easy, flowing orgasms in the shower. Then, drying off afterwards, she sat on the toilet and had a fourth. 
 
@@ -186,7 +196,11 @@
 
  
 
- ****** Niece's Tight Cunt Needs It Bad ****** byNonStopFunGuy© Heather's body, however, was out of control. She moaned softly but urgently, pulling her knees back even farther. "Ohhhhh!" was all she could say, overwhelmed at the intense desire for something more erotic to happen. 
+ 
+
+===
+
+Heather's body, however, was out of control. She moaned softly but urgently, pulling her knees back even farther. "Ohhhhh!" was all she could say, overwhelmed at the intense desire for something more erotic to happen. 
 
  Uncle Jake's reaction shook her to reality. He snatched his hand back from her thigh, and with his other arm he pushed her to sit upright next to him, not leaning into him anymore. "Shit, Heather," he groaned disappointedly, "we really, really shouldn't be here, doing this." 
 
@@ -294,7 +308,11 @@
 
  
 
- ****** Niece's Tight Cunt Needs It Bad ****** byNonStopFunGuy© Heather promptly stuffed her two fingers into her pussy, drawing a squeek of excitement from herself. Uncle Jake's eyes stared at the tight of her teenage fingers disappearing into her pink pussylips, as if her cunt was swallowing them, then watching them re-emerge only to be shoved back inside. "Yeah, baby," he moaned, "do it, fuck youself -- now, tell me, who's Camille, what's she look like?" 
+ 
+
+===
+
+Heather promptly stuffed her two fingers into her pussy, drawing a squeek of excitement from herself. Uncle Jake's eyes stared at the tight of her teenage fingers disappearing into her pink pussylips, as if her cunt was swallowing them, then watching them re-emerge only to be shoved back inside. "Yeah, baby," he moaned, "do it, fuck youself -- now, tell me, who's Camille, what's she look like?" 
 
  "Oh, fuck!" Heather grunted and winced, her pussy seemed so tight, yet it was so wet, she wanted to fuck him so badly. "Um -- Camille --" Her breaths were short, it was hard to talk, she just wanted to get laid. "Um -- she's a girl in my dorm -- she's hot, black hair, nice tits, hot ass, she's Latin." 
 

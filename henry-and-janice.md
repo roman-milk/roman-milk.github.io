@@ -1,8 +1,14 @@
+Henry and Janice Ch. 01
+=======================
 #1 
 
  
 
- ****** Henry and Janice Ch. 01 ****** byJust_Plain_Bob© Henry spent most of the day at work wanting to go to the bathroom and beat his meat. Just the thought of Janice waiting for him at the motel kept him hard. She was the best piece of pussy he'd ever had and he had gotten her because of an off-handed remark. Janice and Doug were his next door neighbors and Janice had invited him over to a party she was throwing to celebrate Doug's birthday. He had wandered around talking to the few people he knew, mostly neighbors, and in general looking at the women and wishing he had one. His wife had split for parts unknown with a guy she had met in an aerobics class and he hadn't been laid in three months. He was leaning against a wall, sipping a drink and looking at a sexy looking redhead when Janice had come up to him. 
+ 
+
+===
+
+Henry spent most of the day at work wanting to go to the bathroom and beat his meat. Just the thought of Janice waiting for him at the motel kept him hard. She was the best piece of pussy he'd ever had and he had gotten her because of an off-handed remark. Janice and Doug were his next door neighbors and Janice had invited him over to a party she was throwing to celebrate Doug's birthday. He had wandered around talking to the few people he knew, mostly neighbors, and in general looking at the women and wishing he had one. His wife had split for parts unknown with a guy she had met in an aerobics class and he hadn't been laid in three months. He was leaning against a wall, sipping a drink and looking at a sexy looking redhead when Janice had come up to him. 
 
  "Careful neighbor, that look could melt the poor girl." 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** Henry and Janice Ch. 02 ****** byJust_Plain_Bob© His cock was already hard when he pulled into the motel parking lot. It had been three days since he had last seen Janice and he was eager to bury himself in her again. Although that might have to wait a while. She always insisted that he eat her first. She had really taken a liking to oral sex and she especially got turned on when he ate her when she had cum in her. He hadn't been all that surprised when one day, about three weeks after the start of their affair, he had gone down on her and noticed something different about her taste. When he had looked up at her he found her looking back down at him with a sheepish grin on her face and he knew then that she had fucked her husband before coming to him. Since then Janice had made it a point to be well fucked by Doug before she came to Henry. At first it had bothered him, but Henry soon came to realize that sucking Doug's cum out of Janice was a small price to pay for the energetic sex she was so happy to give him. Henry pulled into a parking slot and headed for the office. He and Janice had been there so often that the desk clerk knew them. 
+ 
+
+===
+
+His cock was already hard when he pulled into the motel parking lot. It had been three days since he had last seen Janice and he was eager to bury himself in her again. Although that might have to wait a while. She always insisted that he eat her first. She had really taken a liking to oral sex and she especially got turned on when he ate her when she had cum in her. He hadn't been all that surprised when one day, about three weeks after the start of their affair, he had gone down on her and noticed something different about her taste. When he had looked up at her he found her looking back down at him with a sheepish grin on her face and he knew then that she had fucked her husband before coming to him. Since then Janice had made it a point to be well fucked by Doug before she came to Henry. At first it had bothered him, but Henry soon came to realize that sucking Doug's cum out of Janice was a small price to pay for the energetic sex she was so happy to give him. Henry pulled into a parking slot and headed for the office. He and Janice had been there so often that the desk clerk knew them. 
 
  "Has my wife checked in yet?" 
 

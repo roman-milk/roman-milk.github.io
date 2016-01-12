@@ -1,8 +1,14 @@
+It Went Wrong
+=============
 #1 
 
  
 
- ****** It Went Wrong ****** byJust_Plain_Bob© I suppose that when it comes to wanting to watch your wife with another man my story is pretty much like everyone else's. At least at the start. 
+ 
+
+===
+
+I suppose that when it comes to wanting to watch your wife with another man my story is pretty much like everyone else's. At least at the start. 
 
  For a long time I've had a desire to see my wife make it with another man. My wife is very active during sex, legs flailing and kicking, her body bouncing up and down on the bed, her hands constantly grabbing and clutching at my shoulders and ass. Being as close to the action as I am during the act I've never been able to see how she looks (or how it looks) when it is happening. 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** It Went Wrong ****** byJust_Plain_Bob© "So what you are saying is that I've lost you to an asshole with a big dick?" 
+ 
+
+===
+
+"So what you are saying is that I've lost you to an asshole with a big dick?" 
 
  She stared at me for several seconds without saying a word and then she said: 
 

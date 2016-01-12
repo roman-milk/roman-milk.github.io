@@ -1,8 +1,14 @@
+The Fat Cow
+===========
 #1 
 
  
 
- ****** The Fat Cow ****** byJust_Plain_Bob© The story started several years ago. After having three kids I was not the slender sexy wife I had been when Jerry married me. I had put on some weight and I admit to having a somewhat 'beaten down look' after spending all day trying to handle three kids all under the age of five. 
+ 
+
+===
+
+The story started several years ago. After having three kids I was not the slender sexy wife I had been when Jerry married me. I had put on some weight and I admit to having a somewhat 'beaten down look' after spending all day trying to handle three kids all under the age of five. 
 
  There were times that I was so whipped that I didn't have the energy when Jerry got home and wanted to play. It wasn't his fault and I don't really think that it was mine. It was just life the way life was. There were also times when I wanted some bedroom play and Jerry played the 'too tired' card. Whatever the reason we drew apart and it seemed like Jerry had lost interest in me. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** The Fat Cow ****** byJust_Plain_Bob© He was able in the morning and we got it done before meeting Mike and Gloria for breakfast. 
+ 
+
+===
+
+He was able in the morning and we got it done before meeting Mike and Gloria for breakfast. 
 
  ++++++++++++++++++++++++++ 
 
@@ -530,7 +540,11 @@
 
  
 
- ****** The Fat Cow ****** byJust_Plain_Bob© "That I wouldn't care for. I know Mike and I trust him, but a lounge pick up? I'd probably want you to be tested when you got back home." 
+ 
+
+===
+
+"That I wouldn't care for. I know Mike and I trust him, but a lounge pick up? I'd probably want you to be tested when you got back home." 
 
  "But you wouldn't object?" 
 

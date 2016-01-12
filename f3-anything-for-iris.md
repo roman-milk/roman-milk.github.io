@@ -1,8 +1,14 @@
+F3 Anything for Iris
+====================
 #1 
 
  
 
- ****** F3 Anything for Iris ****** byTx_Tall_Tales© (Author's note: This story is an entry into the third Friendly Anonymous Writing Challenge (FAWC). The true author of this story will be kept secret until Wednesday, November 20, 2013, when the author will be revealed in the comments section following this story. There are no prizes awarded during FAWC; this is simply a friendly competition.) 
+ 
+
+===
+
+(Author's note: This story is an entry into the third Friendly Anonymous Writing Challenge (FAWC). The true author of this story will be kept secret until Wednesday, November 20, 2013, when the author will be revealed in the comments section following this story. There are no prizes awarded during FAWC; this is simply a friendly competition.) 
 
  (Inspiration for this and all FAWC 3 stories was taken from a single picture, which can be found here) 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** F3 Anything for Iris ****** byTx_Tall_Tales© "I'm gonna shower," Sierra announced, picking some clothing out of the dresser. 
+ 
+
+===
+
+"I'm gonna shower," Sierra announced, picking some clothing out of the dresser. 
 
  Cameron was about to joke if she needed any help, but felt he'd already pressed things way to far already. Not that he wouldn't love to help her, but that wasn't their agreement. "Take your time, I'm gonna check on our surveillance." 
 
@@ -394,7 +404,11 @@
 
  
 
- ****** F3 Anything for Iris ****** byTx_Tall_Tales© His mouth moved back to hers, kissing her deeply, pulling her body close, one arm clutching her body, the other hand settling over her butt cheek, massaging it. 
+ 
+
+===
+
+His mouth moved back to hers, kissing her deeply, pulling her body close, one arm clutching her body, the other hand settling over her butt cheek, massaging it. 
 
  She leaned into him, feeling his hardness pressing against her belly. It made her feel good, that she could get to him like that. "Mmm," she whispered, once she could free her lips. "Somebody's happy," she teased, turning and pressing her hip into his erection. 
 
@@ -652,7 +666,11 @@
 
  
 
- ****** F3 Anything for Iris ****** byTx_Tall_Tales© She drew away from him, headed toward the ladder. "Thanks, but you're full of crap, Cam. You're high off the dive, and the atmosphere." 
+ 
+
+===
+
+She drew away from him, headed toward the ladder. "Thanks, but you're full of crap, Cam. You're high off the dive, and the atmosphere." 
 
  Cam followed her up the steps, watching as she picked up her unit, rinsing it. He looked up, and saw they had an audience. Not quite as obvious as last time, but the Devereaux were definitely looking their way. He picked up his own unit, and felt Sierra shift away from him, when he went rinse off his gear. 
 
@@ -920,7 +938,11 @@
 
  
 
- ****** F3 Anything for Iris ****** byTx_Tall_Tales© "Match this," she whispered to herself. 
+ 
+
+===
+
+"Match this," she whispered to herself. 
 
  * * * 
 

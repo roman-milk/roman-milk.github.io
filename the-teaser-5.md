@@ -1,8 +1,14 @@
+The Teaser
+==========
 #1 
 
  
 
- ****** The Teaser ****** bygeronimo_appleby© A relatively short stroker in this one. 
+ 
+
+===
+
+A relatively short stroker in this one. 
 
  Jon sees an attractive woman in the supermarket, he follows her. Marion is there to tease, to show off to men. 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** The Teaser ****** bygeronimo_appleby© When I heard her gasp and felt her pull away, I looked up, the source of her anxiety apparent immediately. A couple and a shopping trolley approached, their destination, it seemed, being the car immediately next to us. 
+ 
+
+===
+
+When I heard her gasp and felt her pull away, I looked up, the source of her anxiety apparent immediately. A couple and a shopping trolley approached, their destination, it seemed, being the car immediately next to us. 
 
  "Shit," the woman spat. 
 
@@ -510,7 +520,11 @@
 
  
 
- ****** The Teaser ****** bygeronimo_appleby© Marion clung to Jon, holding his cock inside her during the risky move. "Fuck me through it," she urged him, squirming. Marion moved up to meet the downstroke while she mauled at one breast, pinching a nipple between forefinger and thumb, her hot-eyed glare fixed on Jon's face. She rubbed at herself, the climax rolling on and on, snarling at Jon to use her. 
+ 
+
+===
+
+Marion clung to Jon, holding his cock inside her during the risky move. "Fuck me through it," she urged him, squirming. Marion moved up to meet the downstroke while she mauled at one breast, pinching a nipple between forefinger and thumb, her hot-eyed glare fixed on Jon's face. She rubbed at herself, the climax rolling on and on, snarling at Jon to use her. 
 
  "Punish that pussy," Marion grunted, the last coherent sentence to come out of her before the juddering paroxysm struck. It hit hard, with every tendon straining, muscles taut while her body squelched around the piston of male gristle. 
 

@@ -1,8 +1,14 @@
+The New Lawn
+============
 #1 
 
  
 
- ****** The New Lawn ****** byJust_Plain_Bob© Thinking back on it I would never have believed that bad grass (and I'm not talking pot here) could turn my life upside down, but it did. I don't know if it made life better or worse, it's too soon to tell, but change things it most certainly did. 
+ 
+
+===
+
+Thinking back on it I would never have believed that bad grass (and I'm not talking pot here) could turn my life upside down, but it did. I don't know if it made life better or worse, it's too soon to tell, but change things it most certainly did. 
 
  I had been trying for several years to do something about my lawn. When we moved into the house it was brand new and the lot was just plain dirt. I rented a roto-tiller and had five yards of sheep and peat delivered and I tilled real good and then I used a spreader to spread the seed. Two years later and my lawn still looked like a dirt patch. There's a clump of grass here, one over there, and a couple of more over yonder - I'm sure you get my drift here - but between all of those isolated clumps of grass is dirt, yards and yards of dirt! I've tried reseeding and covering it with straw and the result is dirt. Some one told me about a new method - you seed, cover it with cheesecloth and keep the cloth damp. I tried it, and the result? Dirt! I finally admitted defeat and called for professional help. 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** The New Lawn ****** byJust_Plain_Bob© I sat there in stunned silence and listened as Clara tore my image of myself to pieces. I'd always thought that making love twice a week was often enough, especially if you didn't want children and early on Clara and I decided that we wouldn't be good parents. And I almost always brought her to orgasm - didn't that make me an adequate lover? 
+ 
+
+===
+
+I sat there in stunned silence and listened as Clara tore my image of myself to pieces. I'd always thought that making love twice a week was often enough, especially if you didn't want children and early on Clara and I decided that we wouldn't be good parents. And I almost always brought her to orgasm - didn't that make me an adequate lover? 
 
  "Why in heavens name have you never spoken to me about this?" I wanted to know. 
 

@@ -1,8 +1,14 @@
+The Denouncement Ch. 01
+=======================
 #1 
 
  
 
- ****** The Denouncement Ch. 01 ****** byJust_Plain_Bob© The lights were off and I sat on the couch in the dark living room and stared at the opposite wall and wondered how it could possibly have happened to me. I had always thought of myself as a man. Truth be told, and I admit to some ego here, I would have considered myself a 'manly man.' As a middle linebacker I made All State in my junior and senior years in high school. As a wrestler I was undefeated in my weight class three years running. I engaged in and was good at manly pursuits like hunting, fishing, rafting, bowling, golf and I was one hell of a good poker player. 
+ 
+
+===
+
+The lights were off and I sat on the couch in the dark living room and stared at the opposite wall and wondered how it could possibly have happened to me. I had always thought of myself as a man. Truth be told, and I admit to some ego here, I would have considered myself a 'manly man.' As a middle linebacker I made All State in my junior and senior years in high school. As a wrestler I was undefeated in my weight class three years running. I engaged in and was good at manly pursuits like hunting, fishing, rafting, bowling, golf and I was one hell of a good poker player. 
 
  Not having the money for college I joined the Army right out of high school to learn a trade and take advantage of the Army's educational opportunities and at the end of my three year enlistment I returned home with knowledge of computers, a Bronze Star and two Purple Hearts. So yes, all in all I did consider myself a man. At least I did until a five foot one inch one hundred and five pound woman reduced my six foot two inch two hundred and ten pound self to ashes. 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** The Denouncement Ch. 01 ****** byJust_Plain_Bob© "The others are not natural." 
+ 
+
+===
+
+"The others are not natural." 
 
  "Not natural?" 
 
@@ -240,7 +250,11 @@
 
  
 
- ****** The Denouncement Ch. 02 ****** byJust_Plain_Bob© I managed to get through the next four or five days without coming unglued and then one night I got a phone call from my mother. 
+ 
+
+===
+
+I managed to get through the next four or five days without coming unglued and then one night I got a phone call from my mother. 
 
  "How have you been sweetie? I haven't heard from you all week." 
 
@@ -488,7 +502,11 @@
 
  
 
- ****** The Denouncement Ch. 02 ****** byJust_Plain_Bob© "I had a good time tonight Rob; maybe we can do it again." 
+ 
+
+===
+
+"I had a good time tonight Rob; maybe we can do it again." 
 
  As I was driving home I wondered what was wrong with me. Where did I get off thinking that just because a woman went out with me she was going to fall into bed with me? Lord knows it wasn't that way when I dated before I got married so why did I think it was different now? Of course it only took half a second to come up with the answer to that question. Gail Sue's rant on sex followed by Katrina's forward manner, Marge's outright promise that next Wednesday we were going to fuck topped off by Veronica's taking me home with her had me thinking that things had changed in the way women behaved or I was suddenly irresistible. Obviously it was neither - just a set of circumstances. 
 
@@ -582,7 +600,11 @@
 
  
 
- ****** The Denouncement Ch. 03 ****** byJust_Plain_Bob© At ten that morning Marge stopped by my cubicle. 
+ 
+
+===
+
+At ten that morning Marge stopped by my cubicle. 
 
  "You are keeping tomorrow open for me, right?" 
 
@@ -832,7 +854,11 @@
 
  
 
- ****** The Denouncement Ch. 03 ****** byJust_Plain_Bob© I was totally out of sync with the world around me. 
+ 
+
+===
+
+I was totally out of sync with the world around me. 
 
  +++++++++++++++++++++ 
 
@@ -980,7 +1006,11 @@
 
  
 
- ****** The Denouncement Ch. 04 ****** byJust_Plain_Bob© I stopped in my tracks and stared at her. 
+ 
+
+===
+
+I stopped in my tracks and stared at her. 
 
  "I couldn't wait until Sunday," she said. 
 
@@ -1158,7 +1188,11 @@
 
  
 
- ****** The Denouncement Ch. 04 ****** byJust_Plain_Bob© "I like you Robbie so I wish you well in this - whatever 'well' is for you - but I will admit that I'm selfishly pulling for her not to go home to you or for you to take her back." 
+ 
+
+===
+
+"I like you Robbie so I wish you well in this - whatever 'well' is for you - but I will admit that I'm selfishly pulling for her not to go home to you or for you to take her back." 
 
  "Thank you Marge." 
 

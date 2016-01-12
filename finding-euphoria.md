@@ -1,8 +1,14 @@
+Finding Euphoria
+================
 #1 
 
  
 
- ****** Finding Euphoria ****** bysilkstockingslover© Summary: A shy teen lesbian virgin is seduced by a sexy older woman. 
+ 
+
+===
+
+Summary: A shy teen lesbian virgin is seduced by a sexy older woman. 
 
  Note 1: This story is dedicated to the real Katherine, who is a young lady still finding her sexuality. 
 
@@ -330,7 +336,11 @@
 
  
 
- ****** Finding Euphoria ****** bysilkstockingslover© I was again surprised as she flipped me onto my back and buried her face between my legs, licking my cum. This new pleasure while I was still in the throes of orgasm, was so intense that it brought even greater pleasure than I thought possible. Finally, once the last remnants of my orgasm had pulsed through my body, I had to push her away as it shifted from pleasure to tickling, which made no sense. 
+ 
+
+===
+
+I was again surprised as she flipped me onto my back and buried her face between my legs, licking my cum. This new pleasure while I was still in the throes of orgasm, was so intense that it brought even greater pleasure than I thought possible. Finally, once the last remnants of my orgasm had pulsed through my body, I had to push her away as it shifted from pleasure to tickling, which made no sense. 
 
  She moved back up and assessed. "It tickled?" 
 

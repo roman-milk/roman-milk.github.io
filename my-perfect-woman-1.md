@@ -1,8 +1,14 @@
+My Perfect Woman
+================
 #1 
 
  
 
- ****** My Perfect Woman ****** byJust_Plain_Bob© Chuck put his clubs in the back of my pickup and then said, "Oops, I forgot my wallet" and he hurried back into the house. That gave me my chance. I opened the bag cover, pulled out his putter, closed the bag back up and put the putter behind the seat. He came out f the house with his wallet in his hand and said: 
+ 
+
+===
+
+Chuck put his clubs in the back of my pickup and then said, "Oops, I forgot my wallet" and he hurried back into the house. That gave me my chance. I opened the bag cover, pulled out his putter, closed the bag back up and put the putter behind the seat. He came out f the house with his wallet in his hand and said: 
 
  "I probably won't need this since I expect to beat you turkeys and you will have to buy the beer." 
 
@@ -286,7 +292,11 @@
 
  
 
- ****** My Perfect Woman ****** byJust_Plain_Bob© "Where are you going?" 
+ 
+
+===
+
+"Where are you going?" 
 
  "I'm ready to shoot and I don't have a rubber on." 
 
@@ -524,7 +534,11 @@
 
  
 
- ****** My Perfect Woman ****** byJust_Plain_Bob© "Why are you being such a hard ass over this Rob? Why can't you let me explain that it isn't what you think it is?" 
+ 
+
+===
+
+"Why are you being such a hard ass over this Rob? Why can't you let me explain that it isn't what you think it is?" 
 
  "Why can't you understand that what I think isn't the problem here? The problem is what I know, not what I think. I know that you have been cheating on me wholesale and while I don't know exactly how long you have been doing it I do know that it has been at least a year." 
 

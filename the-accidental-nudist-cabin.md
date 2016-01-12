@@ -1,8 +1,14 @@
+The Accidental Nudist Cabin
+===========================
 #1 
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© =========================== 
+ 
+
+===
+
+=========================== 
 
  A weekend outing goes awry for three couples. 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© On my turn, it was easy enough. "I'm glad that if we're going to have to make the best of a bad situation, it's with you guys." It was true enough. Not only did I get along well with both Jack and Dan, Dan in particular, I was always happy to be around their sexy wives. 
+ 
+
+===
+
+On my turn, it was easy enough. "I'm glad that if we're going to have to make the best of a bad situation, it's with you guys." It was true enough. Not only did I get along well with both Jack and Dan, Dan in particular, I was always happy to be around their sexy wives. 
 
  Robin took the bottle eagerly without doing the salt. "I'm glad that I found out about this stuff. I swear I'm never drinking Jose Cuervo again." She took her time sipping at the bottle, before deciding to relinquish it. 
 
@@ -312,7 +322,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© "I'm not going to second-guess him. He's the one doing the work, and the grass looks amazing." I had stepped off of the walkway onto the grass, which felt soft and cool under my feet. Robin fell in beside me. 
+ 
+
+===
+
+"I'm not going to second-guess him. He's the one doing the work, and the grass looks amazing." I had stepped off of the walkway onto the grass, which felt soft and cool under my feet. Robin fell in beside me. 
 
  We walked a few steps in silence before she spoke. "I'm sorry about last night." 
 
@@ -494,7 +508,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© When I finally pulled out of her, she sighed. "God, that was incredible. I felt so helpless while you used me." 
+ 
+
+===
+
+When I finally pulled out of her, she sighed. "God, that was incredible. I felt so helpless while you used me." 
 
  "You think that's incredible? You should try being on my side of it." I told her, leaning down and kissing her. 
 
@@ -684,7 +702,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© "I didn't mind," I admitted. "I kind of enjoyed it. I like working outdoors. This may sound stupid, but I feel great after all the work today." 
+ 
+
+===
+
+"I didn't mind," I admitted. "I kind of enjoyed it. I like working outdoors. This may sound stupid, but I feel great after all the work today." 
 
  "I know what you mean. Robin gives me crap for spending most of our outings up here working on the place, but I love to see the results. There's something really fulfilling about it." 
 
@@ -950,7 +972,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© No more eager than Jill it seemed, who was climbing into my lap so quickly that Sheri barely had time to get out of the way. 
+ 
+
+===
+
+No more eager than Jill it seemed, who was climbing into my lap so quickly that Sheri barely had time to get out of the way. 
 
  I looked at the nude Amazon, perched on my lap sideways, her legs extended toward her husband, my hard-on pressed against her hip. I held her easily, one arm around her back, one arm around her waist, just enjoying feeling her, seeing her naked flesh so close. Then she leaned back, almost stretched out, using the couch arm as a back rest. She looked incredible, with all her substantial charms in easy reach. 
 
@@ -1162,7 +1188,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© I picked her up by her hips and sat her on the arm of the couch, then spread her legs and stood between them. I leaned in and kissed her, while my hard-on pressed against her. "I think it's time," I finally told her. 
+ 
+
+===
+
+I picked her up by her hips and sat her on the arm of the couch, then spread her legs and stood between them. I leaned in and kissed her, while my hard-on pressed against her. "I think it's time," I finally told her. 
 
  She trembled. "Now?" 
 
@@ -1386,7 +1416,11 @@
 
  
 
- ****** The Accidental Nudist Cabin ****** byTx_Tall_Tales© "Forget it. It was a pretty weird night. In a good way, I think, but it might take a while to really wrap my mind around it." 
+ 
+
+===
+
+"Forget it. It was a pretty weird night. In a good way, I think, but it might take a while to really wrap my mind around it." 
 
  "No shit. I guess I just wasn't ready to see Jill like that," he sighed. 
 

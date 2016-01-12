@@ -1,8 +1,14 @@
+Curiosity and the Pavel Sisters
+===============================
 #1 
 
  
 
- ****** Curiosity and the Pavel Sisters ****** byJust_Plain_Bob© Sitting at the dinner table with my wife Vivian, her sister Valerie and Valerie's husband Bill I thought again what I had been thinking for years - God but would I love to fuck Valerie. I could even remember the exact time and place that I'd had that thought. It was on my wedding night about two minutes after Vivian and I had consummated our marriage. Sick? Probably, but the circumstances were not necessarily normal. 
+ 
+
+===
+
+Sitting at the dinner table with my wife Vivian, her sister Valerie and Valerie's husband Bill I thought again what I had been thinking for years - God but would I love to fuck Valerie. I could even remember the exact time and place that I'd had that thought. It was on my wedding night about two minutes after Vivian and I had consummated our marriage. Sick? Probably, but the circumstances were not necessarily normal. 
 
  Vivian and Valerie are identical twins, identical in every way. They walk the same, they talk the same, their mannerisms are the same and not even their parents could tell them apart. It was easy enough when they were young because the parents had some control then, they could dress them differently, put different colored ribbons in their hair and even cut their hair differently. But once the twins were old enough to realize what a unique situation they were in they began to play mind games with the world. They began to dress the same; they wore their hair the same and they did everything that they could to make sure that no one could tell them apart. Once they reached that point the fun began. 
 

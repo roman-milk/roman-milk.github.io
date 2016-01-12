@@ -1,8 +1,14 @@
+Coming and Going
+================
 #1 
 
  
 
- ****** Coming and Going ****** byJust_Plain_Bob© Forward: 
+ 
+
+===
+
+Forward: 
 
  I know that a lot of people think that the letters sent in to magazines such as Penthouse Letters are phony and are actually written by the magazine's staff. On that I can't say for sure one way or another. I do know that a lot of the letters sent in are fantasies and I also know for sure that when the magazine receives letters the editors change them for one reason or another. How do I know this? Because it has happened to me. In the fall of 1996 I sent a letter to Penthouse Letters that was published as The Letter of the Month in December 1996 under the title of Coming and Going. The letter had been changed so much that the original "flavor" had been lost. In fact, from my standpoint, they butchered it. I was doing a hard drive cleanup last week and I pulled up the original that I had sent in and thought it would be a kick to post it in its original form and see if anyone remembered it and could see the changes made by the Penthouse Letters staff. The title that I had originally given the story was The Wedding and The Funeral. 
 

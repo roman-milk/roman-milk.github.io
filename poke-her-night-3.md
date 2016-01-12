@@ -1,8 +1,14 @@
+Poke-Her-Night
+==============
 #1 
 
  
 
- ****** Poke-Her-Night ****** bysilkstockingslover© NOTE: This is another story written by request for a married couple. 
+ 
+
+===
+
+NOTE: This is another story written by request for a married couple. 
 
  NOTE 2: This story includes bondage so if that is a turn-off stop reading now. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Poke-Her-Night ****** bysilkstockingslover© Wally grunted, "Take my cum up your ass slave," and began exploding a large wad of his seed up her rectum. 
+ 
+
+===
+
+Wally grunted, "Take my cum up your ass slave," and began exploding a large wad of his seed up her rectum. 
 
  As he pulled out, Amanda began to really bounce up and down on her husband's best friend's stiff erection never once taking her husband's cock out of her mouth. With each bounce, Ryan's cock disappeared deep inside the horny slut. Her fourth and fifth orgasms shook her body before 
 

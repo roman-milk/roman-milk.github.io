@@ -1,8 +1,14 @@
+Another One
+===========
 #1 
 
  
 
- ****** Another One ****** byJust_Plain_Bob© I should have known disaster was on the horizon the night my wife told me that she'd had a call from Monica. It was at the dinner table and my first tip off should have been the fact that everything on the table was from my list of favorites. Meat loaf, scalloped potatoes au gratin, French style green beans and sourdough bread hot from the oven. Midway through the meal Audrey said: 
+ 
+
+===
+
+I should have known disaster was on the horizon the night my wife told me that she'd had a call from Monica. It was at the dinner table and my first tip off should have been the fact that everything on the table was from my list of favorites. Meat loaf, scalloped potatoes au gratin, French style green beans and sourdough bread hot from the oven. Midway through the meal Audrey said: 
 
  "Guess who I heard from today. Monica Speers. She moved back to town and wants to get together for lunch." 
 
@@ -280,7 +286,11 @@
 
  
 
- ****** Another One ****** byJust_Plain_Bob© "Do you really think I would do that to you?" 
+ 
+
+===
+
+"Do you really think I would do that to you?" 
 
  "You already have Audrey; twice." 
 
@@ -518,7 +528,11 @@
 
  
 
- ****** Another One ****** byJust_Plain_Bob© "I wanted to show you how much I appreciate you." She was quiet for a moment and then said, "In talking to the girls tonight I came to realize that you are a treasure. Mary Sue has been married and divorced twice. Betsy is divorced and Carol is separated from her husband and it will probably end up in a divorce. Their husbands cheated on them; Mary Sue's first had a habit of coming home drunk and using her for a punching bag and there was a host of other faults that their ex husbands had. I on the other hand seem to have the perfect husband so I thought I should do something to let you know how special you are." 
+ 
+
+===
+
+"I wanted to show you how much I appreciate you." She was quiet for a moment and then said, "In talking to the girls tonight I came to realize that you are a treasure. Mary Sue has been married and divorced twice. Betsy is divorced and Carol is separated from her husband and it will probably end up in a divorce. Their husbands cheated on them; Mary Sue's first had a habit of coming home drunk and using her for a punching bag and there was a host of other faults that their ex husbands had. I on the other hand seem to have the perfect husband so I thought I should do something to let you know how special you are." 
 
  I pulled her to me, kissed her and we fell asleep in each other's arms. 
 

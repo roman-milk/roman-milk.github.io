@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Judy
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Judy ****** byJust_Plain_Bob© I probably never would have experienced the excitement of watching my wife fucking another man if she hadn't gotten drunk at her cousin's wedding. She didn't get 'passed out' drunk, just silly, giggly, almost falling down drunk, but it was enough to set the stage for the most excitingly erotic scene I'd ever seen to that point in my life. 
+ 
+
+===
+
+I probably never would have experienced the excitement of watching my wife fucking another man if she hadn't gotten drunk at her cousin's wedding. She didn't get 'passed out' drunk, just silly, giggly, almost falling down drunk, but it was enough to set the stage for the most excitingly erotic scene I'd ever seen to that point in my life. 
 
  Judy is not normally a heavy drinker, in fact in nine years of marriage I'd only seen her drunk once, but even then she was ambulatory and I had no problem in getting her home. When we attended the reception for her Cousin Connie's wedding I had no inkling of what was to happen and how it just might change our lives. There were over a hundred guests at the reception and Judy and I knew most of them. Some of them we hadn't seen in several years so it was get reacquainted time for both Judy and me. There were several that I didn't know, a lot of them people who had gone to school with both Judy and Connie and who I'd never met. 
 

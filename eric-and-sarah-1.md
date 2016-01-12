@@ -1,8 +1,14 @@
+Eric and Sarah
+==============
 #1 
 
  
 
- ****** Eric and Sarah ****** byGotBacon© There are no BBC sluts or white whores for black pimps or anything like that in this story. If that's what you're looking for, move on. 
+ 
+
+===
+
+There are no BBC sluts or white whores for black pimps or anything like that in this story. If that's what you're looking for, move on. 
 
  ***** 
 
@@ -326,7 +332,11 @@
 
  
 
- ****** Eric and Sarah ****** byGotBacon© "We're ready to go. You need to go cast off the lines for me." 
+ 
+
+===
+
+"We're ready to go. You need to go cast off the lines for me." 
 
  "OK, how do I do that?" 
 
@@ -638,7 +648,11 @@
 
  
 
- ****** Eric and Sarah ****** byGotBacon© "Rudder in the middle and more throttle. Look at the compass. Go due east." 
+ 
+
+===
+
+"Rudder in the middle and more throttle. Look at the compass. Go due east." 
 
  I turned the wheel till the mark was on the E. 
 

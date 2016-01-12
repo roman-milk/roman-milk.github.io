@@ -1,8 +1,14 @@
+Blacked In Suburbia
+===================
 #1 
 
  
 
- ****** Blacked In Suburbia ****** byGotBacon© Mary and John Larsen are a typical suburban husband and wife. They had two children in college. He was a successful businessman. Mary had always been the typical stay at home mom. Since the kids started college, she devoted her life to social functions, yoga classes and coffee with her friends. 
+ 
+
+===
+
+Mary and John Larsen are a typical suburban husband and wife. They had two children in college. He was a successful businessman. Mary had always been the typical stay at home mom. Since the kids started college, she devoted her life to social functions, yoga classes and coffee with her friends. 
 
  She was 5ft tall, with a figure to die for, despite having given birth to two children. He breasts had just a slight sag and are C cup. She has a narrow waist and a world class ass. 
 

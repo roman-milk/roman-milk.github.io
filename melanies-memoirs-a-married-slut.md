@@ -1,8 +1,14 @@
+Melanie's Memoirs - A Married Slut 01
+=====================================
 #1 
 
  
 
- ****** Melanie's Memoirs - A Married Slut 01 ****** byNonStopFunGuy© 1. The Ad: 
+ 
+
+===
+
+1. The Ad: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -84,7 +90,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 01 ****** byNonStopFunGuy© I wasn't thinking about cheating, not in person. I wasn't going to cross THAT line, I told myself. I'm not THAT kind of woman. But, I wanted to find more men to play with online, and I wanted some new experiences. Just talking to men about the fantasy of meeting in person -- talking about where, and when, and what we might do -- was really exciting. It made the whole cheating thing seem so much more real, even if the talk was just fantasy. So the idea of trading emails with men, guys who lived near me and wanted to set up real dates to fuck, that was new and different, and making me cream at the thought. 
+ 
+
+===
+
+I wasn't thinking about cheating, not in person. I wasn't going to cross THAT line, I told myself. I'm not THAT kind of woman. But, I wanted to find more men to play with online, and I wanted some new experiences. Just talking to men about the fantasy of meeting in person -- talking about where, and when, and what we might do -- was really exciting. It made the whole cheating thing seem so much more real, even if the talk was just fantasy. So the idea of trading emails with men, guys who lived near me and wanted to set up real dates to fuck, that was new and different, and making me cream at the thought. 
 
  Just make a personal ad, get some attention, have some fun with it, I told myself. I didn't need to meet anyone in person from it, it's just like an interactive online game, that's all. 
 
@@ -120,7 +130,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 02 ****** byNonStopFunGuy© 2. The First: 
+ 
+
+===
+
+2. The First: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -216,7 +230,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 02 ****** byNonStopFunGuy© Fuck I was horny! 
+ 
+
+===
+
+Fuck I was horny! 
 
  Now lying totally bare for my new lover, I pried my knees apart while I watching the divine man stand upright and disrobe for me. God, what a specimen, way hotter than my husband. Firm, chiseled chest, not ripped or muscular but without any flab, and thick curly salt-and-pepper hairs on it. His hips were wide but bony. And, ohhh shit -- his cock! Seven inches, maybe; cut; huge, cum- filled balls dangling under it, a bulbous round cockhead already leaking precum. Stiff as concrete. And for what? For ME -- just for me. 
 
@@ -274,7 +292,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 03 ****** byNonStopFunGuy© 3. The Hotel: 
+ 
+
+===
+
+3. The Hotel: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -376,7 +398,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 03 ****** byNonStopFunGuy© Later that afternoon, just before my husband returned home, I was on the phone telling Belinda that she was my excuse for going into the city. Belinda cajoled me into revealing what really happened, and she was thrilled to hear that I'd gotten fucked by a hung, horny stud. Hell, she asked me for Chuck's email address -- only half-jokingly. 
+ 
+
+===
+
+Later that afternoon, just before my husband returned home, I was on the phone telling Belinda that she was my excuse for going into the city. Belinda cajoled me into revealing what really happened, and she was thrilled to hear that I'd gotten fucked by a hung, horny stud. Hell, she asked me for Chuck's email address -- only half-jokingly. 
 
  "You know," Belinda predicted sagely, probably smiling on her end of the phone call, "that you're hooked now -- you're gonna want more and more sex all the time, aren't you?" 
 
@@ -388,7 +414,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 04 ****** byNonStopFunGuy© 4. The Condo: 
+ 
+
+===
+
+4. The Condo: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -490,7 +520,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 04 ****** byNonStopFunGuy© Used is the proper term. After Blayne crawled off my face, Paul paid attention to me with kisses, but it wasn't personal, not like Chuck kissed me. I guess that is how a whore kisses her client, we went through the motions -- very fun motions -- without any real emotions. He pumped his dick in and out of my married twat while Blayne watched, rubbing herself, then Paul had me ride him backwards so Blayne could suck his balls and lick my clitty. 
+ 
+
+===
+
+Used is the proper term. After Blayne crawled off my face, Paul paid attention to me with kisses, but it wasn't personal, not like Chuck kissed me. I guess that is how a whore kisses her client, we went through the motions -- very fun motions -- without any real emotions. He pumped his dick in and out of my married twat while Blayne watched, rubbing herself, then Paul had me ride him backwards so Blayne could suck his balls and lick my clitty. 
 
  Paul's second load shot all over my pussy, and he had Blayne lick me clean. That was sexy, feeling male sperm licked off my pussylips and asscheeks by another girl. 
 
@@ -524,7 +558,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 05 ****** byNonStopFunGuy© 5. The Store: 
+ 
+
+===
+
+5. The Store: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -650,7 +688,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 05 ****** byNonStopFunGuy© "No, baby!" I couldn't believe I was being so truthful to a total stranger, as I spread open my naked body under his to prepare to be fucked. "I need BIG dicks -- fuck me with that big, hot dick of yours!" 
+ 
+
+===
+
+"No, baby!" I couldn't believe I was being so truthful to a total stranger, as I spread open my naked body under his to prepare to be fucked. "I need BIG dicks -- fuck me with that big, hot dick of yours!" 
 
  Pressing the swollen head of his cock against my wet vagina, my new lover sneered with delight. "Fuckin' shame, you're so fuckin' gorgeous and sexy, and your husband doesn't satisfy you -- here comes what you need, you slut!" 
 
@@ -702,7 +744,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 06 ****** byNonStopFunGuy© 6. The Bar: 
+ 
+
+===
+
+6. The Bar: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -814,7 +860,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 06 ****** byNonStopFunGuy© "I'm so glad Telly didn't cum," I snickered to myself, aloud, drawing giggles from the men. 
+ 
+
+===
+
+"I'm so glad Telly didn't cum," I snickered to myself, aloud, drawing giggles from the men. 
 
  Looking up submissively at the two studs, I moved my mouth to Brad's big penis now, sucking and slurping it. His flavor was more salty, more earthy, like sweaty in a way. Different, but still a turn-on. I noisily stuck that dick into my married mouth and almost into my throat, going slowly, eyes clenched, jaw open, gasping, slurping on his penis. While I sucked the two men they kicked off their pants and underwear and removed their shirts, so they were nude except for socks as I sucked them off. 
 
@@ -860,7 +910,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 07 ****** byNonStopFunGuy© 7. The Day: 
+ 
+
+===
+
+7. The Day: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -926,7 +980,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 08 ****** byNonStopFunGuy© 8. The Day: 
+ 
+
+===
+
+8. The Day: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -1040,7 +1098,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 08 ****** byNonStopFunGuy© "Oh?" So horny from the sex, the words were mystical to me, almost incomprehensible, like anyone would really want a relationship like that? Sounded fucking perfect, of course, too good to be true. Not that I was going to think about it long, I was fucking him, not trading fantasies. Damn, his penis felt awesome, sliding in and out of my horny, aching twat, filling and stretching me. I smiled up at him from the sex, playing along with his fantasies a little bit. "You could get me ready for a date -- paint my toenails, shave my pussy, pick out my perfume and bra and thong -- then wait up for me, until I come home all messy, with cum in my pussy for you?" 
+ 
+
+===
+
+"Oh?" So horny from the sex, the words were mystical to me, almost incomprehensible, like anyone would really want a relationship like that? Sounded fucking perfect, of course, too good to be true. Not that I was going to think about it long, I was fucking him, not trading fantasies. Damn, his penis felt awesome, sliding in and out of my horny, aching twat, filling and stretching me. I smiled up at him from the sex, playing along with his fantasies a little bit. "You could get me ready for a date -- paint my toenails, shave my pussy, pick out my perfume and bra and thong -- then wait up for me, until I come home all messy, with cum in my pussy for you?" 
 
  I hit a button, he flattened a hand and SMACKED my face again, very hard. "Yes!" I roared in approval, grunting deeply at the powerful emotions I was drawing out. "You fucking whore -- yes -- cuckolding me, go on a fucking date with some awesome guy you just met on the Internet -- you love his cock is so big, bigger than your cop's right, you'd rather fuck him than me, don't you?" 
 
@@ -1154,7 +1216,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 09 ****** byNonStopFunGuy© 9. The Day: 
+ 
+
+===
+
+9. The Day: 
 
  I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
@@ -1258,7 +1324,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 09 ****** byNonStopFunGuy© He pulled the covers back, showing me the huge erection sticking out of his firm lap, the way-above-average penis swollen, leaking precum, pulsating for my attention. Ribbed, with veins popping out, a purple rim around his fat helmet, Brad's manhood was ready for me. He opened a space under the covers next to himself, patting it again. "Right here, honey." 
+ 
+
+===
+
+He pulled the covers back, showing me the huge erection sticking out of his firm lap, the way-above-average penis swollen, leaking precum, pulsating for my attention. Ribbed, with veins popping out, a purple rim around his fat helmet, Brad's manhood was ready for me. He opened a space under the covers next to himself, patting it again. "Right here, honey." 
 
  Turning my back to him to slip into the bed, I giggled to myself, then had to explain to Brad as I slid my nude body up against his, hip to hip. "I'm sorry," I quipped, "I called you the same thing I did my husband -- 'darling' -- do you want me to call you something else?" 
 
@@ -1302,7 +1372,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 10 ****** byNonStopFunGuy© I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
+ 
+
+===
+
+I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
  At the time I'm writing this, I've got about eight to ten guys who I count as "boyfriends" -- guys I fuck somewhat regularly. I decided to write down how I got here -- the doting, boring suburban housewife to the cheating, cock-loving little bitch that I know I am -- because I know how impressed many guys are with me. I've done some really, ridiculously naughty things. Really depraved, outrageous things. Two years ago, before all this started, I barely even had fantasies about some of the things I've done. 
 
@@ -1394,7 +1468,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 10 ****** byNonStopFunGuy© Wearing the bra and thong had been to get back at my husband, but they were superfluous by this point. I allowed Mark to remove the bra, so my big tits were free, and he could manhandle and suckle them as he pleased. His hands were groping my small asscheeks as I leaned over him, sliding back and forth, working his erection deep in my married vagina. I was grunting, gasping, feeling Mark's lips and tongue over my boobies while he fucked my pussy. I was having orgasms, multiples, screaming and crying now, riding Mark hard, feeling used and appreciated. 
+ 
+
+===
+
+Wearing the bra and thong had been to get back at my husband, but they were superfluous by this point. I allowed Mark to remove the bra, so my big tits were free, and he could manhandle and suckle them as he pleased. His hands were groping my small asscheeks as I leaned over him, sliding back and forth, working his erection deep in my married vagina. I was grunting, gasping, feeling Mark's lips and tongue over my boobies while he fucked my pussy. I was having orgasms, multiples, screaming and crying now, riding Mark hard, feeling used and appreciated. 
 
  Mark put me on my back, removing my thong, not asking if it was alright. I didn't stop him. When I was now as naked as he was, he spread me wide open and climbed over me. I pulled my knees back, inviting his cock back inside me, reaching to his face to pull him down for a hungry kiss. We started making out, French kissing, while Mark slipped his penis back inside my pussy. "So good, baby," I roared as we screwed on the motel bed, "you fuck me so good!" I couldn't stop blurting out what I was thinking, being fucked so well by this horny man. "I love you Mark, fuck me!" 
 
@@ -1476,7 +1554,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 10 ****** byNonStopFunGuy© The sex became fluid. I couldn't describe the sequence of positions, of who did what to whom, from that point; we were always in motion, pausing to fuck one way or another, but constantly moving. He had Susan on her back, fucking her on top, while I sat on her face. She licked my cunt expertly, drawing out more orgasms. That allowed me to kiss beautiful Nick, and he was a sensuous, amazing kisser, sucking my little tongue into his mouth, pawing at my big tits which he loved. My tits, mmm. He licked them while fucking Susan's pussy, and I cummed from the attention of his mouth on my stiff nipples and her tongue against my twat. She licked my clean asshole, while he licked me pussy -- two tongues on me at the same time, it was heavenly. Then it was my turn, licking Susan's wet, fuzzy vagina while Nick's long penis was buried in it, and Susan had her fingers inside my cunt. I was on my side on the bed, spread open, tasting Nick's fucking of Susan while pumping my pelvis against Susan's fist and feeling three fingers stretching out my vaginal lips. 
+ 
+
+===
+
+The sex became fluid. I couldn't describe the sequence of positions, of who did what to whom, from that point; we were always in motion, pausing to fuck one way or another, but constantly moving. He had Susan on her back, fucking her on top, while I sat on her face. She licked my cunt expertly, drawing out more orgasms. That allowed me to kiss beautiful Nick, and he was a sensuous, amazing kisser, sucking my little tongue into his mouth, pawing at my big tits which he loved. My tits, mmm. He licked them while fucking Susan's pussy, and I cummed from the attention of his mouth on my stiff nipples and her tongue against my twat. She licked my clean asshole, while he licked me pussy -- two tongues on me at the same time, it was heavenly. Then it was my turn, licking Susan's wet, fuzzy vagina while Nick's long penis was buried in it, and Susan had her fingers inside my cunt. I was on my side on the bed, spread open, tasting Nick's fucking of Susan while pumping my pelvis against Susan's fist and feeling three fingers stretching out my vaginal lips. 
 
  As hot and sexy as the threesome was, I was finding I was resenting Susan's presence. I just wanted to fuck Nick. At one point I was on my back, spread open, reaching my hands down to his divine body. His flat, hairy chest was above my body, he was leaning upright, pounding his pelvis into me, pumping that awesome, large erection in and out of my juicy cunt, making me scream like a schoolgirl. "Uh, yes, Nicky! Fuck me! Yes baby! Fuck me! Fuck me!" Yeah, I had a pet nickname for him already. He looked so good, those sexy brown eyes, handsome chiseled face, narrow body, muscular shoulders, rock-solid abdomen - - pumping over me, thrusting that huge, gorgeous dick in and out of me, I couldn't love it any more. I was in total lust, furiously humping him back, concentrating on how he looked and how he felt. But Susan was there, somewhere, trying to kiss him, or me, or suck my tits; I wasn't stopping her, but at that moment, I wished it was just her fuck buddy and me. I wanted him to be my fuck buddy that day, no one else's. 
 
@@ -1530,7 +1612,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 11 ****** byNonStopFunGuy© I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
+ 
+
+===
+
+I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
  At the time I'm writing this, I've got about eight to ten guys who I count as "boyfriends" -- guys I fuck somewhat regularly. I decided to write down how I got here -- the doting, boring suburban housewife to the cheating, cock-loving little bitch that I know I am -- because I know how impressed many guys are with me. I've done some really, ridiculously naughty things. Really depraved, outrageous things. Two years ago, before all this started, I barely even had fantasies about some of the things I've done. 
 
@@ -1634,7 +1720,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 11 ****** byNonStopFunGuy© Terry took his turn above me, so aroused that he didn't need a lot of fucking to cum. He pulled out, maybe five minutes later or less even, squirting his jism in streams onto my petite, perspiring body. Some of the cream splattered on my big tits; most of it pooled on my flat tummy, mixing with my beads of sweat there. "Yeah, baby, give it to me!" I screamed at him, watching him pump his shaft, covering my abdomen in semen. It was gooey, hot, so sexy, I got him to cum so hard. 
+ 
+
+===
+
+Terry took his turn above me, so aroused that he didn't need a lot of fucking to cum. He pulled out, maybe five minutes later or less even, squirting his jism in streams onto my petite, perspiring body. Some of the cream splattered on my big tits; most of it pooled on my flat tummy, mixing with my beads of sweat there. "Yeah, baby, give it to me!" I screamed at him, watching him pump his shaft, covering my abdomen in semen. It was gooey, hot, so sexy, I got him to cum so hard. 
 
  As soon as the older fuck released his load from me, the other men were clamoring to replace him -- and encouraging me to keep going. "Here's the next one for you, bitch," said someone; another said, "Play two, baby, play two." I felt Terry withdraw his steely-hard penis from my gooey vagina, and he crawled off of me. Immediately Gouch, the thick, powerful stud was on top of me, touching his penis to my married cunt. Gouch's buddy Johnny was on his knees next to me at my side, pulling my knees back to help me expose myself to Gouch's cock. I yelped as Gouch's thick erection dipped into my sloppy-wet pussy, and with a loud shove he smashed his body forward and squeezed over half of his dick inside my twat. Almost at the same time, Johnny leaned down, putting his cockhead against my face, and I turned to look at it. I was now swallowing that prick, feeling Johnny poking his cockhead against the back of my tongue, while his friend Gouch was fucking me between my thighs. 
 
@@ -1714,7 +1804,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 11 ****** byNonStopFunGuy© I felt another orgasm cumming, seeing how hot Johnny was, and feeling that amazing dick inside my cunt. "Ohh, yeah -- give it to me, make me cum you hot stud, fuck me baby!" I screamed, cumming as promised, getting dizzy and light- headed while the waves and waves of pleasure squirted through my body, making me tremble and quake around the dick deep inside me. 
+ 
+
+===
+
+I felt another orgasm cumming, seeing how hot Johnny was, and feeling that amazing dick inside my cunt. "Ohh, yeah -- give it to me, make me cum you hot stud, fuck me baby!" I screamed, cumming as promised, getting dizzy and light- headed while the waves and waves of pleasure squirted through my body, making me tremble and quake around the dick deep inside me. 
 
  Johnny kept fucking me that way a little while, then Gouch wanted some action. I looked up, noticed Hector was getting dressed -- he was, after all still "on duty" at the gym, although he'd been in here with us who knows how long. He looked sheepishly, like he didn't want to leave but didn't have a choice; but, I know from fucking him in the past, he didn't have great stamina, and after two hard orgasms I doubted he could get it up again anyway. Having to leave for work was an excuse. So he wasn't looking pathetic because he had to work; he was pouting because he knew, deep down inside, he wasn't the man that these other three studs were. 
 
@@ -1764,7 +1858,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 12 ****** byNonStopFunGuy© I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
+ 
+
+===
+
+I'm Melanie. I'm a 30 year old, married slut who cheats on her husband almost daily, if not even more often than that, because he can't come close to satisfying me and I can't possibly get enough cock anyway. This is another entry in my memoirs. 
 
  At the time I'm writing this, I've got about eight to ten guys who I count as "boyfriends" -- guys I fuck somewhat regularly. I decided to write down how I got here -- the doting, boring suburban housewife to the cheating, cock-loving little bitch that I know I am -- because I know how impressed many guys are with me. I've done some really, ridiculously naughty things. Really depraved, outrageous things. Two years ago, before all this started, I barely even had fantasies about some of the things I've done. 
 
@@ -1836,7 +1934,11 @@
 
  
 
- ****** Melanie's Memoirs - A Married Slut 12 ****** byNonStopFunGuy© Shit, I could get depressed. 
+ 
+
+===
+
+Shit, I could get depressed. 
 
  Truth was, I had options, if I didn't want to stay with my hubby. Good ones, too. The most obvious was y most regular fuck buddy, Michael, who was really now my boyfriend, in truth. I mean, he wasn't the hottest or sexiest guy I knew, he didn't fuck the best, his cock wasn't the biggest, I didn't have the hottest cums with him. But, unlike anyone else, Michael understood me. I'd tell him everything -- meaning, literally, every time I had a date, especially the really horny ones like fucking strangers, or a guy and a girl -- and he would get hot, not jealous. He got off on me being a slut. He'd lick other men's cum out of my twat, or lap it off my breasts. He kept talking about watching me fuck in person, he'd jerk off to pictures of me having sex. I could tell him anything I wanted, even boring "feelings." He knew them, he'd been separated from his 12-year marriage for about a year when he hit on me (or, really, on my ass) at the grocery store. I was fucking comfortable around Michael, he was like the nice warm glove in the wintertime. He had his own (small) apartment, I could move in with him at least temporarily, he'd even let me fuck other guys anytime I wanted, as long as I let him get the sloppy seconds. 
 

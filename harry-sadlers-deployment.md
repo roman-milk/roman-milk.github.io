@@ -1,8 +1,14 @@
+Harry Sadler's Deployment
+=========================
 #1 
 
  
 
- ****** Harry Sadler's Deployment ****** byJust_Plain_Bob© Harry Sadler stood on the fantail of the U. S. S. John Pershing and scanned the evening sky looking for the North Star. The Pershing was making turns for twenty-five knots as it churned toward the Mediterranean to join the US fleet supporting the invasion of Iraq. Harry had promised his wife Cathy that he would find the star every evening and be looking at it at exactly 21:00 hours and then he would tell her how much he loved her and how much he missed her. Cathy would be looking at the same star at the same time and telling him the same things. In this way the two of them hoped to continuously reinforce their undying love for each other. Harry found the star and looked at his watch, it was 20:49 hours and he leaned on the rail, thought about Cathy and waited for his digital watch to tell him that it was twenty-one hundred. 
+ 
+
+===
+
+Harry Sadler stood on the fantail of the U. S. S. John Pershing and scanned the evening sky looking for the North Star. The Pershing was making turns for twenty-five knots as it churned toward the Mediterranean to join the US fleet supporting the invasion of Iraq. Harry had promised his wife Cathy that he would find the star every evening and be looking at it at exactly 21:00 hours and then he would tell her how much he loved her and how much he missed her. Cathy would be looking at the same star at the same time and telling him the same things. In this way the two of them hoped to continuously reinforce their undying love for each other. Harry found the star and looked at his watch, it was 20:49 hours and he leaned on the rail, thought about Cathy and waited for his digital watch to tell him that it was twenty-one hundred. 
 
  Eighteen hundred miles behind the wake of the Pershing, in the sleepy little town of Kempsville, a short distance from Norfolk, Cathy Sadler was also watching the clock tick toward twenty-one hundred. While she watched she was seductively dancing and stripping in front of three friends of her husband. She had known when Charlie had called her and asked her to have dinner with him what was going to happen. Charlie had promised Harry that he would look in on Cathy from time to time to see if she was all right or needed anything and Cathy knew that Charlie knew just what it was that she needed when he had called. When he had shown up at her door with Jake and Jeff she had only hesitated a few moments before stepping back and letting the three of them in. 
 

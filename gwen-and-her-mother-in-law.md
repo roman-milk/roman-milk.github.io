@@ -1,8 +1,14 @@
+Gwen and Her Mother in Law
+==========================
 #1 
 
  
 
- ****** Gwen and Her Mother in Law ****** byJust_Plain_Bob© I recently posted a story (see Vickie, The Baby and Me) with alternative endings and as I had predicted the feedback was both good and bad and the break down was pretty close to what I had predicted. - 9 got on me about grammar, structure, punctuation and the like. - 4 said, "You suck" or other words that meant the same thing. - 7 suggested other possible ends, but too me the big surprise was, - 26 loved the idea of alternative endings and they asked me to do it again. 
+ 
+
+===
+
+I recently posted a story (see Vickie, The Baby and Me) with alternative endings and as I had predicted the feedback was both good and bad and the break down was pretty close to what I had predicted. - 9 got on me about grammar, structure, punctuation and the like. - 4 said, "You suck" or other words that meant the same thing. - 7 suggested other possible ends, but too me the big surprise was, - 26 loved the idea of alternative endings and they asked me to do it again. 
 
  So, in keeping with my desire to satisfy my public I have decided to give the poor misguided fools what they say they want. Once again I add the disclaimer: I write for my own enjoyment and then I offer to share. Whether you like the story or hate it know that I have satisfied my target audience - me! That said, I give you 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** Gwen and Her Mother in Law ****** byJust_Plain_Bob© When he finished and pulled out she got up and went over to Joyce who had just finished off the guy she was working on and then the two of them walked over to where Gwen was being gangbanged. They stood and watched until the man fucking her had cum and when he pulled out my mother held Gwen's legs open while Joyce pulled out her diaphragm. 
+ 
+
+===
+
+When he finished and pulled out she got up and went over to Joyce who had just finished off the guy she was working on and then the two of them walked over to where Gwen was being gangbanged. They stood and watched until the man fucking her had cum and when he pulled out my mother held Gwen's legs open while Joyce pulled out her diaphragm. 
 
  "I'll get this bitch pregnant whether she wants it or not." 
 

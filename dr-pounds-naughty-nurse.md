@@ -1,8 +1,14 @@
+Dr. Pound's Naughty Nurse Ch. 01-03
+===================================
 #1 
 
  
 
- ****** Dr. Pound's Naughty Nurse Ch. 01-03 ****** bydlsloan© PART 1: PROFESSIONAL COURTESY 
+ 
+
+===
+
+PART 1: PROFESSIONAL COURTESY 
 
  Many of you are already familiar with me and my work, but for those of you who don't know me, my name is Dr. Frederick Pound and I am literally a sex machine. Some geniuses use their intellect to cure diseases, develop new technology or answer ancient riddles. Me, I used it to create a couple three supplements which have made me a literal superman of sex. 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** Dr. Pound's Naughty Nurse Ch. 01-03 ****** bydlsloan© I pulled both of her arms behind her back and used them as a handle to pull her back and forth as I steadily worked more and more of my cock up that tight ass, feeling it stretch reluctantly to take every inch. I grunted, fucking her hard and fast, using her for a quickie in the middle of the afternoon. I didn't try to hold back my orgasm or make it last. I simply pulled out, spun her around and aimed my cock at her face again. 
+ 
+
+===
+
+I pulled both of her arms behind her back and used them as a handle to pull her back and forth as I steadily worked more and more of my cock up that tight ass, feeling it stretch reluctantly to take every inch. I grunted, fucking her hard and fast, using her for a quickie in the middle of the afternoon. I didn't try to hold back my orgasm or make it last. I simply pulled out, spun her around and aimed my cock at her face again. 
 
  "Getting a little dry," I said. "Better freshen you up a bit." Once again, I plastered her face with a gigantic load. I paid special attention to her eyes and hair, making sure to matte her hair, eyebrows and lashes down with as much sticky goo as I could. 
 
@@ -320,7 +330,11 @@
 
  
 
- ****** Dr. Pound's Naughty Nurse Ch. 04-05 ****** bydlsloan© PART 4: HOUSE CALL 
+ 
+
+===
+
+PART 4: HOUSE CALL 
 
  I knew Frankie would be expecting me that night, so I didn't call or show up either one. I didn't visit her at work the next day either. Hey, I had my hands full with a pair of twins. That's a full day's work. 
 
@@ -518,7 +532,11 @@
 
  
 
- ****** Dr. Pound's Naughty Nurse Ch. 04-05 ****** bydlsloan© "See, if you had a clit ring, we could tie another rope from it to the other side of the pool," I said. "But this will do for now." 
+ 
+
+===
+
+"See, if you had a clit ring, we could tie another rope from it to the other side of the pool," I said. "But this will do for now." 
 
  I sat down between the sides of the ladder, putting my cock directly in front of her face and fed her about 6 inches, letting her lick and suck the head while I played with her nipples, which were as erect as I had ever seen them. 
 

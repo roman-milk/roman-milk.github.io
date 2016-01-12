@@ -1,8 +1,14 @@
+A Shed, Summer, and Scarborough
+===============================
 #1 
 
  
 
- ****** A Shed, Summer, and Scarborough ****** bygeronimo_appleby© OK, here's my offering for the Summer Loving contest. It's a love story primarily but, because the principal character's mother is involved in an incestuous liaison with her son, it's an incest piece too. 
+ 
+
+===
+
+OK, here's my offering for the Summer Loving contest. It's a love story primarily but, because the principal character's mother is involved in an incestuous liaison with her son, it's an incest piece too. 
 
  Some of the terms I use are colloquial, but where I've included local expressions I've also put in a brief explanation for those unfamiliar with the terms. 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** A Shed, Summer, and Scarborough ****** bygeronimo_appleby© The room closed in around me then. I felt emotion swell in my chest as I stared at her. Those lips ... 
+ 
+
+===
+
+The room closed in around me then. I felt emotion swell in my chest as I stared at her. Those lips ... 
 
  Before I could think about what I was doing, I leaned closer to her and pressed my mouth to hers. For a moment Carolyn sat there, our lips compressed, and then, to my delight and surprise, she opened her mouth and slid her tongue past my teeth. 
 
@@ -442,7 +452,11 @@
 
  
 
- ****** A Shed, Summer, and Scarborough ****** bygeronimo_appleby© Carolyn chuckled from low and deep in her chest before groaning at me to fuck her. "You're a nice, big boy, Eric. Use that lovely cock and fuck me." 
+ 
+
+===
+
+Carolyn chuckled from low and deep in her chest before groaning at me to fuck her. "You're a nice, big boy, Eric. Use that lovely cock and fuck me." 
 
  My hips jerked instinctively while my fingers found Carolyn's and I pulled her onto my cock. She smelled gorgeous when I pressed my mouth against her shoulder, licking her there before kissing her soft and vulnerable neck. Carolyn moaned and leaned back, offering her throat to me. Her breasts thrust forward with her movement, and so I sucked at each nipple, all the time fucking into her with urgent strokes. 
 
@@ -666,7 +680,11 @@
 
  
 
- ****** A Shed, Summer, and Scarborough ****** bygeronimo_appleby© Of course it got a little awkward. There was some confusion, and some urgent instructions from Carolyn to the effect that I should, "Bugger off to your own room. I'll come and see you in a minute." 
+ 
+
+===
+
+Of course it got a little awkward. There was some confusion, and some urgent instructions from Carolyn to the effect that I should, "Bugger off to your own room. I'll come and see you in a minute." 
 
  She got out of the bed, nude I noticed despite my confused state. She pushed me on the shoulder. "Out," Carolyn commanded, pointing to the door. "I'm sorry, Marjorie," I heard her say to my mother's shocked face as it hovered above the cover. "I'll go and give him a telling off." 
 
@@ -894,7 +912,11 @@
 
  
 
- ****** A Shed, Summer, and Scarborough ****** bygeronimo_appleby© She let the length of me plop from her lips. "What, darling?" she asked. "Don't you like it when I suck your cock?" 
+ 
+
+===
+
+She let the length of me plop from her lips. "What, darling?" she asked. "Don't you like it when I suck your cock?" 
 
  I still wasn't used to hearing my own mother use language like that, and every time she spoke about sucking cock or fucking or how good Carolyn's cunt tasted when she came, a thrill surged through my veins. 
 

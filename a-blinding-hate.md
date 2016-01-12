@@ -1,8 +1,14 @@
+A Blinding Hate
+===============
 #1 
 
  
 
- ****** A Blinding Hate ****** byJust_Plain_Bob© Have you ever hated someone so much that you would willingly risk going to jail just to get even with them for something that they had done to you? Well, I have and I did and now I'm waiting to see how things turn out. 
+ 
+
+===
+
+Have you ever hated someone so much that you would willingly risk going to jail just to get even with them for something that they had done to you? Well, I have and I did and now I'm waiting to see how things turn out. 
 
  Yolanda was a bitch! A miserable fucking bitch and she made my life a living hell for over ten years. Yolanda was my stepmother and from the day my father brought her home until the day I moved out we did not get along at all. She hadn't been in the house a week and she took over the running of my life. She bought my clothes, she chose my friends and she interfered in everything I did. She made me take piano lessons, she made me take dance lessons and she hauled me to church every Tuesday, Thursday and Sunday. Tuesday was bible study and Thursday was Youth Group. She gave me bible lessons and I had to have them letter perfect or I got sent to my room. She tossed out my video games, censored what I watched on television and even picked out the movies I was allowed to see. I was the only kid in the world who never saw Star Wars, but I had The Sound of Music and Mary Poppins shoved down my throat over and over. 
 

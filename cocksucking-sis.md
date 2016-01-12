@@ -1,8 +1,14 @@
+Cocksucking College Sister
+==========================
 #1 
 
  
 
- ****** Cocksucking College Sister ****** bysilkstockingslover© SUMMARY: A brother accidently gets blown by his sister and becomes obsessed. 
+ 
+
+===
+
+SUMMARY: A brother accidently gets blown by his sister and becomes obsessed. 
 
  Note 1: This is a story for the National Nude Day Competition. So please vote. 
 
@@ -126,7 +132,11 @@
 
  
 
- ****** Cocksucking College Sister ****** bysilkstockingslover© Over the next twenty minutes, she swallowed a couple more loads and wore a few more. My sister was soaked in cum. Her breasts had cum dripping off them. I was next. I was number 21. 
+ 
+
+===
+
+Over the next twenty minutes, she swallowed a couple more loads and wore a few more. My sister was soaked in cum. Her breasts had cum dripping off them. I was next. I was number 21. 
 
  After a tall black guy shot his load on my sister's tits, I walked over to my blindfolded sister. Just as I placed my cock at her sweet, shiny, cock-sucking lips, the girl who had been keeping track of my sister's impressive total announced, "Lilly, one of our new recruits, is about to break the Pi Sigma Pi record with her twenty-first cock." 
 
@@ -168,7 +178,11 @@
 
  
 
- ****** Cocksucking College Sister: Again ****** bysilkstockingslover© Summary: A brother attempts to escalate his sexual relationship with his sister. 
+ 
+
+===
+
+Summary: A brother attempts to escalate his sexual relationship with his sister. 
 
  Note: Obviously it's better to read part one first, but here is a summary in case. In part one Anthony accidentally gets his cock sucked by his sister at a gloryhole and again a second time at a sorority party. 
 
@@ -376,7 +390,11 @@
 
  
 
- ****** Cocksucking College Sister: Fucked ****** bysilkstockingslover© Summary: A brother finally fucks his shy, beautiful sister. 
+ 
+
+===
+
+Summary: A brother finally fucks his shy, beautiful sister. 
 
  Note: Obviously it's better to read the earlier parts first (Cocksucking College Sister and Cocksucking College Sister: Again), but here is a very quick summary in case. In part one Anthony accidentally gets his cock sucked by his sister at a gloryhole and again a second time at a sorority party. In the sequel, they are at their parents' 25th wedding anniversary and Anthony returns the favour by going down on his sister in their parents' wine cellar. 
 
@@ -556,7 +574,11 @@
 
  
 
- ****** Cocksucking College Sister: Fucked ****** bysilkstockingslover© She looked in the mirror and gasped, "Holy crap." She began to fix her hair while I stretched and slowly got dressed. 
+ 
+
+===
+
+She looked in the mirror and gasped, "Holy crap." She began to fix her hair while I stretched and slowly got dressed. 
 
  Once both of us looked respectable, I kissed her one last time and looked into her eyes and said sincerely, meaning every word, "Lilly, I love you and regardless of whether we do this again, which I hope we do, I will always respect you for the sweet, kind-hearted and sexy woman you are." 
 
@@ -600,7 +622,11 @@
 
  
 
- ****** Cocksucking College Sister: Mom-Dad ****** bysilkstockingslover© Note 1: This is the forth part of my cocksucking college sister series. Here is a brief summary of each previous part. 
+ 
+
+===
+
+Note 1: This is the forth part of my cocksucking college sister series. Here is a brief summary of each previous part. 
 
  Part 1: Cocksucking College Sister In part one Anthony accidentally gets his cock sucked by his sister at a gloryhole and again a second time at a sorority party. 
 
@@ -956,7 +982,11 @@
 
  
 
- ****** Cocksucking College Sister: Mom-Dad ****** bysilkstockingslover© "Harder daddy, fuck your slutty daughter harder," she begged, which only turned me on more. 
+ 
+
+===
+
+"Harder daddy, fuck your slutty daughter harder," she begged, which only turned me on more. 
 
  I returned my gaze to my mother who was worshipping my cock like it was the holy grail of cocks. Deciding to be aggressive myself, confident in my assessment that she was submissive, I ordered, "Let's see you bend over beside Lilly, my mommy slut." 
 

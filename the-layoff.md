@@ -1,8 +1,14 @@
+The Layoff
+==========
 #1 
 
  
 
- ****** The Layoff ****** byJust_Plain_Bob© The story starts in early June of 2002. My boss called me into his office and told me that he was going to have to file for bankruptcy and then he told me not to worry, that my final paycheck would be covered and then he asked me to stay with him until the day that he actually had to close the doors. He had been good to me during the five years I'd been with him so I said I'd stay. 
+ 
+
+===
+
+The story starts in early June of 2002. My boss called me into his office and told me that he was going to have to file for bankruptcy and then he told me not to worry, that my final paycheck would be covered and then he asked me to stay with him until the day that he actually had to close the doors. He had been good to me during the five years I'd been with him so I said I'd stay. 
 
  Over the coming weeks I worked with vendors who came in and picked up merchandise and credited back to Dale's account. Two days before the day that Dale had designated as the final day one of his largest competitors came in and introduced himself to me and then asked me what I planned on doing when Dale closed his doors. I admitted that I hadn't looked that far ahead and then he asked me if I would consider coming to work for him. 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** The Layoff ****** byJust_Plain_Bob© "You know what to do now." 
+ 
+
+===
+
+"You know what to do now." 
 
  She turned onto her back and looked up at me and I saw on her face that she was going to refuse. 
 

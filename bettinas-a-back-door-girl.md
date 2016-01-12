@@ -1,8 +1,14 @@
+Bettina's a Back-door Girl
+==========================
 #1 
 
  
 
- ****** Bettina's a Back-door Girl ****** bygeronimo_appleby© It's been a couple of weeks, so I thought I'd better get something put up on Lit. In this one a hot lady, late-thirties, with a penchant for anal, seduces a younger man. He's nervous at first, but as things get hotter ... 
+ 
+
+===
+
+It's been a couple of weeks, so I thought I'd better get something put up on Lit. In this one a hot lady, late-thirties, with a penchant for anal, seduces a younger man. He's nervous at first, but as things get hotter ... 
 
  Feedback is appreciated, either here in the public comments section below, email, or PM on the Lit forums. If you want a response to feedback then email is best. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Bettina's a Back-door Girl ****** bygeronimo_appleby© Her sodden vulva, smoothly waxed, mashed against my lips. The blonde's hips jerked as she fucked down onto my face, her clit sliding over the protuberance of my nose. She began to moan in earnest, lust obviously boiling inside her as desire slid from her cunt. 
+ 
+
+===
+
+Her sodden vulva, smoothly waxed, mashed against my lips. The blonde's hips jerked as she fucked down onto my face, her clit sliding over the protuberance of my nose. She began to moan in earnest, lust obviously boiling inside her as desire slid from her cunt. 
 
  In reciprocation I bucked my hips, forcing gristle into the back of her throat. It was too much and she gagged and coughed, spitting my drool-soaked penis out of her mouth, her eyes watering. 
 

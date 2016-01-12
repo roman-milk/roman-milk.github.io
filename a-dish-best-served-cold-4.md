@@ -1,8 +1,14 @@
+A Dish Best Served Cold
+=======================
 #1 
 
  
 
- ****** A Dish Best Served Cold ****** bygeronimo_appleby© Just a quickie for the LW crowd. I usually write at the other end of the spectrum in that category, so I thought I'd put something together for those who want to see the cheating bitch get her just desserts. 
+ 
+
+===
+
+Just a quickie for the LW crowd. I usually write at the other end of the spectrum in that category, so I thought I'd put something together for those who want to see the cheating bitch get her just desserts. 
 
  If you're expecting hot, nasty sex then I suggest you don't bother reading this submission. There's some stuff in it, but it's mainly to describe the scene that confronts the [anti] hero. If you want to leave feedback on it you can PM me on Lit, leave a Public Comment below, or email. If you want a reply or response, then email is best. 
 

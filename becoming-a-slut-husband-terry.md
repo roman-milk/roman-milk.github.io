@@ -1,8 +1,14 @@
+Becoming a Slut Husband: Terry
+==============================
 #1 
 
  
 
- ****** Becoming a Slut Husband: Terry ****** byJust_Plain_Bob© I find that I am in an interesting situation and I'm not at all sure as to how I should handle it. On the one hand I know what I'm doing isn't right (although I thought it was when it started), but on the other hand I am getting what I don't get at home and I don't want to stop. I guess I need to explain. 
+ 
+
+===
+
+I find that I am in an interesting situation and I'm not at all sure as to how I should handle it. On the one hand I know what I'm doing isn't right (although I thought it was when it started), but on the other hand I am getting what I don't get at home and I don't want to stop. I guess I need to explain. 
 
  +++++ 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** Becoming a Slut Husband: Terry ****** byJust_Plain_Bob© In a way I was sorry to see Bev come back because she seemed so intent on being the only one in my life when she was around. I was seriously considering sitting down with the three of them and seeing if they would be amenable to setting up some sort of rotation. To be honest I expected that they would laugh at me if I did try that, but since I didn't have a clue as to what was going on between the four of us and I expected that it was going to end soon I figured what did I have to lose. I wasn't ready to tie myself down to any one person. I'd done that with Darlene and look how well that had turned out. 
+ 
+
+===
+
+In a way I was sorry to see Bev come back because she seemed so intent on being the only one in my life when she was around. I was seriously considering sitting down with the three of them and seeing if they would be amenable to setting up some sort of rotation. To be honest I expected that they would laugh at me if I did try that, but since I didn't have a clue as to what was going on between the four of us and I expected that it was going to end soon I figured what did I have to lose. I wasn't ready to tie myself down to any one person. I'd done that with Darlene and look how well that had turned out. 
 
  +++++ 
 

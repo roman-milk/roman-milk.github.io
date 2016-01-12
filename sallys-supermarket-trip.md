@@ -1,8 +1,14 @@
+Sally's Supermarket Trip
+========================
 #1 
 
  
 
- ****** Sally's Supermarket Trip ****** bygeronimo_appleby© Sally was standing in the checkout queue, bored, waiting for her turn at the till. Her mind was empty, eyes focussed upon nothing in particular as she went through the ritual sequence of the family shop. A necessary job, but one that she found utterly thankless as her husband and family took it for granted that the fridge and cupboards would be full and bountiful whenever they looked for a snack or a biscuit as the urge took them. 
+ 
+
+===
+
+Sally was standing in the checkout queue, bored, waiting for her turn at the till. Her mind was empty, eyes focussed upon nothing in particular as she went through the ritual sequence of the family shop. A necessary job, but one that she found utterly thankless as her husband and family took it for granted that the fridge and cupboards would be full and bountiful whenever they looked for a snack or a biscuit as the urge took them. 
 
  She listlessly placed the items in the trolley onto the conveyor, and then packed the groceries into carrier bags one by one after the dull girl behind the till had scanned them. Just as Sally had placed all of the bulging plastic bags into her trolley and collected her bankcard she looked up to see a tall man looking at her from another aisle. He was gazing so intently at her that Sally felt a blush bloom hotly over her cheeks. Surely, he's not looking at me? She thought as her eyes dropped instinctively, avoiding his gaze. 
 

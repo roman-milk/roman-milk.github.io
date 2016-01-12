@@ -1,8 +1,14 @@
+The Stalking Horse
+==================
 #1 
 
  
 
- ****** The Stalking Horse ****** byJust_Plain_Bob© I looked at Barry lying there next to me on the bed and wished I could go to bed with him every night and wake up with him every morning instead of just once in a while. What was hardest on me was knowing that Barry wanted it to, but I just could not do it. I knew what would happen if I did and I just could not do that to him. 
+ 
+
+===
+
+I looked at Barry lying there next to me on the bed and wished I could go to bed with him every night and wake up with him every morning instead of just once in a while. What was hardest on me was knowing that Barry wanted it to, but I just could not do it. I knew what would happen if I did and I just could not do that to him. 
 
  x-x-x-x-x-x-x-x 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** The Stalking Horse ****** byJust_Plain_Bob© "I see you finally wised up to Bobby." 
+ 
+
+===
+
+"I see you finally wised up to Bobby." 
 
  A couple of people had seen the altercation between Bobby, Billy Jean and me in Mack's parking lot and the word had spread and most of the people who knew Bobby and me had heard about it. I shrugged and said: 
 
@@ -386,7 +396,11 @@
 
  
 
- ****** The Stalking Horse ****** byJust_Plain_Bob© I did work at trying to suck Charlie's monster and I did eventually get to the point where I could get about a third of it in my mouth. I promised myself that I would take it all before Charlie and I ended our little affair. 
+ 
+
+===
+
+I did work at trying to suck Charlie's monster and I did eventually get to the point where I could get about a third of it in my mouth. I promised myself that I would take it all before Charlie and I ended our little affair. 
 
  Friday afternoon I got a call from Bobby at work. His truck had blown its transmission and it would be at least two or three more days before he could get home and as I hung up I wondered what her name was. I called Charlie and let him know and he asked: 
 

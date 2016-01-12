@@ -1,8 +1,14 @@
+Mom's Stockings: My Son's Cum Bucket
+====================================
 #1 
 
  
 
- ****** Mom's Stockings: My Son's Cum Bucket ****** bysilkstockingslover© Summary: Mom gives her son the best present ever... a live-in slut. 
+ 
+
+===
+
+Summary: Mom gives her son the best present ever... a live-in slut. 
 
  Note 1: This is a Holiday 2015 Contest Story so please vote. 
 
@@ -348,7 +354,11 @@
 
  
 
- ****** Mom's Stockings: My Son's Cum Bucket ****** bysilkstockingslover© The way he said 'I am the man of the house' made my pussy tingle. He sounded exactly like his father. 
+ 
+
+===
+
+The way he said 'I am the man of the house' made my pussy tingle. He sounded exactly like his father. 
 
  "It's just," I began, trying to look shy and nervous, a hint at my submissive side. 
 
@@ -778,7 +788,11 @@
 
  
 
- ****** Mom's Stockings: My Son's Cum Bucket ****** bysilkstockingslover© 1 coupon for a blow job while you drive 
+ 
+
+===
+
+1 coupon for a blow job while you drive 
 
  1 coupon for a three hole marathon night with your long neglected mother 
 

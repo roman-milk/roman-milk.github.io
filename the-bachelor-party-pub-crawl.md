@@ -1,8 +1,14 @@
+The Bachelor Party Pub Crawl
+============================
 #1 
 
  
 
- ****** The Bachelor Party Pub Crawl ****** byJust_Plain_Bob© I don't know if I will ever forget that night. I know that on the one hand I hope to God I never do, while on the other I know it might be best if I did. It was the most sexually exciting event of my life and one I would dearly love to happen again. But at the same time it showed me how easy it was to cross a line and I'm not sure that I want to go through the rest of my life knowing that. 
+ 
+
+===
+
+I don't know if I will ever forget that night. I know that on the one hand I hope to God I never do, while on the other I know it might be best if I did. It was the most sexually exciting event of my life and one I would dearly love to happen again. But at the same time it showed me how easy it was to cross a line and I'm not sure that I want to go through the rest of my life knowing that. 
 
  +++++ 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** The Bachelor Party Pub Crawl ****** byJust_Plain_Bob© After everyone had done her once Monte moved into position to get his cock sucked and I moved behind her to take her pussy, but she pulled away from me and then pushed me down on my back. She swung over me and settled down on my cock and reached for Monte's cock. She pulled him to her mouth and licked his cock several times like she was licking an ice cream cone and then said, in a voice fairly dripping with lust: 
+ 
+
+===
+
+After everyone had done her once Monte moved into position to get his cock sucked and I moved behind her to take her pussy, but she pulled away from me and then pushed me down on my back. She swung over me and settled down on my cock and reached for Monte's cock. She pulled him to her mouth and licked his cock several times like she was licking an ice cream cone and then said, in a voice fairly dripping with lust: 
 
  "In my ass. I want you in my ass bachelor boy, put your cock in my ass." 
 

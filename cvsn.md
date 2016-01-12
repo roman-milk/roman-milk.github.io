@@ -1,8 +1,14 @@
+CvsN 01: Convenience Vs. Need
+=============================
 #1 
 
  
 
- ****** CvsN 01: Convenience Vs. Need ****** byTx_Tall_Tales© When Karen first started working with us, I didn't give her that much attention. She was quite a bit older than me, almost 30, and rather plain. She had a kid and a live-in boyfriend. Not exactly what a guy 2 years out of college, and fresh out of his first serious relationship would consider part of the talent pool. 
+ 
+
+===
+
+When Karen first started working with us, I didn't give her that much attention. She was quite a bit older than me, almost 30, and rather plain. She had a kid and a live-in boyfriend. Not exactly what a guy 2 years out of college, and fresh out of his first serious relationship would consider part of the talent pool. 
 
  Most of the 20 or so people in the office were older than I was, and they were often eager for news of my dating life; seemed like the whole lot of them lived vicariously through me. They were certainly full of advice, most of which I blissfully ignored. I'm sure I kept them entertained with my shenanigans. I may not have been the world's most successful Romeo, but it was certainly not for lack of trying. And I did have my successes. 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** CvsN 01: Convenience Vs. Need ****** byTx_Tall_Tales© "C'mon Karen, I'll be nice to her. Hell she's a beautiful girl; you know my weaknesses for pretty blondes. I'll be nice," I told her, as I climbed into my 924. The poor man's Porsche. 
+ 
+
+===
+
+"C'mon Karen, I'll be nice to her. Hell she's a beautiful girl; you know my weaknesses for pretty blondes. I'll be nice," I told her, as I climbed into my 924. The poor man's Porsche. 
 
  She leaned into the car and looked surprisingly sober. "Ok, but I'm serious. She's really insecure and could use some support. Try hard. Believe me, I'll make it worth your while," she made her meaning abundantly clear by reaching in and giving my latest erection, well into it's 5th hour now, a squeeze. (Ok, maybe not quite a continuous erection, but it sure as hell seemed like it.) 
 
@@ -422,7 +432,11 @@
 
  
 
- ****** CvsN 01: Convenience Vs. Need ****** byTx_Tall_Tales© One fell, landing on her lips. She captured it with a flick of her tongue. 
+ 
+
+===
+
+One fell, landing on her lips. She captured it with a flick of her tongue. 
 
  I collapsed against her, my head buried in her neck, tasting her sweat, caressing her skin, breathing in my own breath, mixed with her scent. 
 
@@ -456,7 +470,11 @@
 
  
 
- ****** CvsN 02: Celebration ****** byTx_Tall_Tales© I woke, a little disoriented, to the aroma of bacon cooking. 
+ 
+
+===
+
+I woke, a little disoriented, to the aroma of bacon cooking. 
 
  I slowly recalled the events of the previous evening. I was lying in my own bed, with a delightfully warm female body pressed against mine. A situation that I was really not too accustomed to but I wasn't about to complain. 
 
@@ -686,7 +704,11 @@
 
  
 
- ****** CvsN 02: Celebration ****** byTx_Tall_Tales© Karen placed her head beside Debbie's, and pressed the head of my cock first to her own lips then to Debbie's. With a series of teasing licks and kisses, the girls worked together to drive me even further towards the edge of my own release. 
+ 
+
+===
+
+Karen placed her head beside Debbie's, and pressed the head of my cock first to her own lips then to Debbie's. With a series of teasing licks and kisses, the girls worked together to drive me even further towards the edge of my own release. 
 
  I wanted to make this last forever. The pure eroticism in seeing these two sets of lips battling for possession of my cock was as intense as the action itself. 
 
@@ -764,7 +786,11 @@
 
  
 
- ****** CvsN 03: A Tangled Web ****** byTx_Tall_Tales© This is a continuation of the story started in Convenience vs. Need and continued in CvsN: Celebration. If you haven’t read those first, you might enjoy this one better if you did. 
+ 
+
+===
+
+This is a continuation of the story started in Convenience vs. Need and continued in CvsN: Celebration. If you haven’t read those first, you might enjoy this one better if you did. 
 
  * * * * 
 
@@ -918,7 +944,11 @@
 
  
 
- ****** CvsN 03: A Tangled Web ****** byTx_Tall_Tales© As I got closer to her she spat out, "You bastard." Her words were venomous. 
+ 
+
+===
+
+As I got closer to her she spat out, "You bastard." Her words were venomous. 
 
  I didn't know what to say or do. So I went for the old standby. I apologized. 
 
@@ -1110,7 +1140,11 @@
 
  
 
- ****** CvsN 03: A Tangled Web ****** byTx_Tall_Tales© She could even sense when I was getting close to cumming. She pulled away, stroking me firmly, giving me a long lick, and eyes locked with mine, she commanded me: "That's right, cum. Cum in my mouth. Fuck my mouth and pump your hot cum down my throat." She took my cock back in her mouth, fixed her lips tightly around my shaft, and placed my hand on the back of her head. 
+ 
+
+===
+
+She could even sense when I was getting close to cumming. She pulled away, stroking me firmly, giving me a long lick, and eyes locked with mine, she commanded me: "That's right, cum. Cum in my mouth. Fuck my mouth and pump your hot cum down my throat." She took my cock back in her mouth, fixed her lips tightly around my shaft, and placed my hand on the back of her head. 
 
  I grabbed her hair in my hands, and fucked her face thoroughly. Within moments I was there, cumming strongly, gasping with the pleasure, loosing stream after stream of hot seed in her mouth. 
 
@@ -1186,7 +1220,11 @@
 
  
 
- ****** CvsN 04: Teaching Beth ****** byTx_Tall_Tales© Part 4 of Convenience vs. Need 
+ 
+
+===
+
+Part 4 of Convenience vs. Need 
 
  Ok, I've got a situation most men would kill for, two hot women who will live with me and share my bed, and an open invitation to screw my best friend's wife. I'm still going to have to make sure Joe is ok with that, and see if maybe we can't make a private party out of the whole thing. 
 
@@ -1358,7 +1396,11 @@
 
  
 
- ****** CvsN 04: Teaching Beth ****** byTx_Tall_Tales© I leaned forward and kissed her. "You are like a dream for me. You can't sleep; I am in a waking sleep, dreaming this – of being with you." 
+ 
+
+===
+
+I leaned forward and kissed her. "You are like a dream for me. You can't sleep; I am in a waking sleep, dreaming this – of being with you." 
 
  "Can I stay?" she asked hopefully. 
 
@@ -1608,7 +1650,11 @@
 
  
 
- ****** CvsN 04: Teaching Beth ****** byTx_Tall_Tales© She lifted her head up to look at me. "How are you doing that? That's wild." 
+ 
+
+===
+
+She lifted her head up to look at me. "How are you doing that? That's wild." 
 
  I smiled back. "It's just muscle control, I'm just enjoying being inside you." 
 
@@ -1690,7 +1736,11 @@
 
  
 
- ****** CvsN 05: Altogether Now ****** byTx_Tall_Tales© Part 5 of Convenience vs. Need 
+ 
+
+===
+
+Part 5 of Convenience vs. Need 
 
  Wherein Jack (that's me), a man of extreme horniness and questionable morals, invites his new girlfriend, his other new girlfriend, his best friend, and his best friend's wife into his bed. 
 
@@ -1944,7 +1994,11 @@
 
  
 
- ****** CvsN 05: Altogether Now ****** byTx_Tall_Tales© Beth was whispering to Debbie, and they both pulled back. 
+ 
+
+===
+
+Beth was whispering to Debbie, and they both pulled back. 
 
  "Joe, stand up a second." Beth said. 
 
@@ -2038,7 +2092,11 @@
 
  
 
- ****** CvsN 06: Payback ****** byTx_Tall_Tales© * * * * 
+ 
+
+===
+
+* * * * 
 
  Part 6 of Convenience vs. Need 
 
@@ -2240,7 +2298,11 @@
 
  
 
- ****** CvsN 06: Payback ****** byTx_Tall_Tales© She disappeared up the stairs. 
+ 
+
+===
+
+She disappeared up the stairs. 
 
  I returned to John, who had never ceased his act of contrition. 
 
@@ -2460,7 +2522,11 @@
 
  
 
- ****** CvsN 06: Payback ****** byTx_Tall_Tales© "It wasn't too bad, the place was already pretty clean. Want to take a break?" 
+ 
+
+===
+
+"It wasn't too bad, the place was already pretty clean. Want to take a break?" 
 
  Break? I wanted to break her in half like a shotgun, and clean her barrel. 
 
@@ -2660,7 +2726,11 @@
 
  
 
- ****** CvsN 07: Projects &amp; Polyamory ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -2890,7 +2960,11 @@
 
  
 
- ****** CvsN 07: Projects &amp; Polyamory ****** byTx_Tall_Tales© "So, what do you want to do? Not what do you wish, but what do you think we can do?" She didn't sound angry or irritated; she was just discussing things honestly. 
+ 
+
+===
+
+"So, what do you want to do? Not what do you wish, but what do you think we can do?" She didn't sound angry or irritated; she was just discussing things honestly. 
 
  I lost myself for a couple of minutes in the sensation of my cock sliding in and out of her tight, nearly virginal pussy. "How often can you spend the night?" 
 
@@ -3084,7 +3158,11 @@
 
  
 
- ****** CvsN 07: Projects &amp; Polyamory ****** byTx_Tall_Tales© "I'm not sure what you want. Karen and Debbie have to sleep with you to live here." 
+ 
+
+===
+
+"I'm not sure what you want. Karen and Debbie have to sleep with you to live here." 
 
  "Beth, nobody HAS to sleep with me. I told Debbie that. Karen and I were somewhat involved even before we discussed moving in. It's not like that. I thought we'd discussed this." 
 
@@ -3200,7 +3278,11 @@
 
  
 
- ****** CvsN 08: Virgin No More ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -3406,7 +3488,11 @@
 
  
 
- ****** CvsN 08: Virgin No More ****** byTx_Tall_Tales© Jim was looking up at the ceiling, his hips thrusting forward, his hands gingerly holding the sides of her head. 
+ 
+
+===
+
+Jim was looking up at the ceiling, his hips thrusting forward, his hands gingerly holding the sides of her head. 
 
  "Damn, Karen. You look so hot gobbling his whole cock like that. I thought you didn't like to suck cock that much?" 
 
@@ -3668,7 +3754,11 @@
 
  
 
- ****** CvsN 08: Virgin No More ****** byTx_Tall_Tales© "Ah, that's better, I've got you about as far inside me as you're going to get. Are you ready to get fucked, Jim? Ready to come inside my hot little pussy?" She was bent over her face inches from his. 
+ 
+
+===
+
+"Ah, that's better, I've got you about as far inside me as you're going to get. Are you ready to get fucked, Jim? Ready to come inside my hot little pussy?" She was bent over her face inches from his. 
 
  "Yes, please, yes, please..." he gasped. 
 
@@ -3832,7 +3922,11 @@
 
  
 
- ****** CvsN 09: Threepeat ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -4076,7 +4170,11 @@
 
  
 
- ****** CvsN 09: Threepeat ****** byTx_Tall_Tales© "I've got one rule for tonight. Lay off my ass. I'm so sore I can barely sit, you beast." She rubbed her butt with her hand, as if she'd been spanked. 
+ 
+
+===
+
+"I've got one rule for tonight. Lay off my ass. I'm so sore I can barely sit, you beast." She rubbed her butt with her hand, as if she'd been spanked. 
 
  "What is it with you and butts?" Beth asked me. 
 
@@ -4298,7 +4396,11 @@
 
  
 
- ****** CvsN 09: Threepeat ****** byTx_Tall_Tales© "I think he's sweet. Did you see the flowers he brought? And he was going to leave when he thought he was interrupting. You'd never do that. You'd have walked in and joined us. He's considerate." 
+ 
+
+===
+
+"I think he's sweet. Did you see the flowers he brought? And he was going to leave when he thought he was interrupting. You'd never do that. You'd have walked in and joined us. He's considerate." 
 
  "Karen, he's a great guy. He's been my friend for ages, and I love him like a brother. I think it's wonderful that you were his first. You are perfect for him, able to take control and guide him, and he needs the help." I told her, taking her back in my arms, and peeking out to see he was dancing with Beth again, and teaching her some twirl that brought her t-shirt up around her waist exposing her tiny panties. Beth was clearly a great dancer, and denying it was just BS. 
 
@@ -4380,7 +4482,11 @@
 
  
 
- ****** CvsN 10: A New Addition ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -4574,7 +4680,11 @@
 
  
 
- ****** CvsN 10: A New Addition ****** byTx_Tall_Tales© We hashed out the design over dinner, and everyone seemed to be getting really excited. 
+ 
+
+===
+
+We hashed out the design over dinner, and everyone seemed to be getting really excited. 
 
  "Tell me, Robin, would you be willing to help us with this project? I couldn't pay you much, but it would be great experience." I asked her. 
 
@@ -4688,7 +4798,11 @@
 
  
 
- ****** CvsN 11: A New Addition ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -4894,7 +5008,11 @@
 
  
 
- ****** CvsN 11: A New Addition ****** byTx_Tall_Tales© "Think about it Jim, these are sisters, there're all kinds of dynamics there we don't know anything about. And my case was different, I walked into an arrangement with two women from the beginning, and the third got involved knowing all about the other two, my commitment to them, and just where she stood. Trust me, this is way different." 
+ 
+
+===
+
+"Think about it Jim, these are sisters, there're all kinds of dynamics there we don't know anything about. And my case was different, I walked into an arrangement with two women from the beginning, and the third got involved knowing all about the other two, my commitment to them, and just where she stood. Trust me, this is way different." 
 
  "It's not like Karen and I are boyfriend-girlfriend or anything." Jim answered. 
 
@@ -5010,7 +5128,11 @@
 
  
 
- ****** CvsN 12: Joe's Sleepover ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -5268,7 +5390,11 @@
 
  
 
- ****** CvsN 12: Joe's Sleepover ****** byTx_Tall_Tales© Beth took the plunge, raised her head, and gave a soft lick to Debbie's thighs, just at the edge of her lips. Another lick on the opposite side. And then a long slow lick right up the middle, that separated those blood engorged lips for our viewing. 
+ 
+
+===
+
+Beth took the plunge, raised her head, and gave a soft lick to Debbie's thighs, just at the edge of her lips. Another lick on the opposite side. And then a long slow lick right up the middle, that separated those blood engorged lips for our viewing. 
 
  "Joe, I could watch this all night," I told him, "but I think it's show-time, and you're on." I nodded toward the end of the bed, and he smiled and walked over to watch what Beth was doing. 
 
@@ -5442,7 +5568,11 @@
 
  
 
- ****** CvsN 13: Amie and Robin ****** byTx_Tall_Tales© A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
+ 
+
+===
+
+A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
  * * * * 
 
@@ -5676,7 +5806,11 @@
 
  
 
- ****** CvsN 13: Amie and Robin ****** byTx_Tall_Tales© "Grrrrowl," she answered, "Momma's gotta protect her baby. What do they know?" 
+ 
+
+===
+
+"Grrrrowl," she answered, "Momma's gotta protect her baby. What do they know?" 
 
  "Nothing it looks like, but the Momma suspects." I sighed. 
 
@@ -5910,7 +6044,11 @@
 
  
 
- ****** CvsN 14: Road Rules ****** byTx_Tall_Tales© Chapter 14: Road Rules... 
+ 
+
+===
+
+Chapter 14: Road Rules... 
 
  A previously unpublished chapter in the story of Jack, and the home he shares with three lovelies. 
 
@@ -6116,7 +6254,11 @@
 
  
 
- ****** CvsN 14: Road Rules ****** byTx_Tall_Tales© "Wow," she said, "I don't think Jerry lasts 60 seconds once I go down on him," she told me. 
+ 
+
+===
+
+"Wow," she said, "I don't think Jerry lasts 60 seconds once I go down on him," she told me. 
 
  "I'm sorry, but I always take a while. I've never really had a short fuse. I'm not holding back or anything, I'm just enjoying the wonderful job you're doing." I told her, reaching down and stroking her hair. 
 
@@ -6382,7 +6524,11 @@
 
  
 
- ****** CvsN 15: All the World's a Stage ****** byTx_Tall_Tales© ================ 
+ 
+
+===
+
+================ 
 
  Coming home from travel, Robin gets frisky, and the girls act up. 
 
@@ -6562,7 +6708,11 @@
 
  
 
- ****** CvsN 15: All the World's a Stage ****** byTx_Tall_Tales© "Deb's out doing the weekly shopping, with the tykes in tow, and apparently they've authorized overtime in the office, and Karen is working Saturdays for the next few weeks." She stopped me and gave me a big hug. "God, Jack, it's just not the same around her without you." 
+ 
+
+===
+
+"Deb's out doing the weekly shopping, with the tykes in tow, and apparently they've authorized overtime in the office, and Karen is working Saturdays for the next few weeks." She stopped me and gave me a big hug. "God, Jack, it's just not the same around her without you." 
 
  I laughed easily, waving at the hole in the wall. "It's not the same around here, even with me!" 
 
@@ -6728,7 +6878,11 @@
 
  
 
- ****** CvsN 16: Beth's Last Virgin Hole ****** byTx_Tall_Tales© ================ 
+ 
+
+===
+
+================ 
 
  Sisters work it out, Amie plays well in small groups, and Beth's Virgin ass, finally! 
 
@@ -6992,7 +7146,11 @@
 
  
 
- ****** CvsN 16: Beth's Last Virgin Hole ****** byTx_Tall_Tales© I wasn't easy on her, and fucked her face pretty aggressively, but couldn't get Beth's admonition out of my mind. I looked around and saw that Jim was seated on the bed behind me, and Karen was hidden from my view. I had a pretty good idea what she was up to. I pulled my cock out of Robin's warm and willing mouth and helped her stand, then took her hand and guided her around the bed. 
+ 
+
+===
+
+I wasn't easy on her, and fucked her face pretty aggressively, but couldn't get Beth's admonition out of my mind. I looked around and saw that Jim was seated on the bed behind me, and Karen was hidden from my view. I had a pretty good idea what she was up to. I pulled my cock out of Robin's warm and willing mouth and helped her stand, then took her hand and guided her around the bed. 
 
  I sat beside Jim, and encouraged Robin to get back to work. It was fun to watch, the two sisters doing their best to satisfy us. After a minute or two it looked like Jim was getting too close. I leaned over and tapped Karen on the shoulder. "Ease up sweetheart, and come over here and help your little sister." 
 
@@ -7258,7 +7416,11 @@
 
  
 
- ****** CvsN 16: Beth's Last Virgin Hole ****** byTx_Tall_Tales© "I'd love to, given half-a-chance," I admitted freely. 
+ 
+
+===
+
+"I'd love to, given half-a-chance," I admitted freely. 
 
  Beth giggled. "I guess we'll have to schedule a play date." 
 
@@ -7280,7 +7442,11 @@
 
  
 
- ****** CvsN 17: Sisters and Friends ****** byTx_Tall_Tales© CvsN 17 - Sisters and Friends 
+ 
+
+===
+
+CvsN 17 - Sisters and Friends 
 
  ================ 
 
@@ -7530,7 +7696,11 @@
 
  
 
- ****** CvsN 17: Sisters and Friends ****** byTx_Tall_Tales© "Don't worry baby, you'll get yours." 
+ 
+
+===
+
+"Don't worry baby, you'll get yours." 
 
  Jim was going at Robin doggy-style, and looked to be having a good time of it. Karen drew me to the bed, and I was a bit surprised when she positioned me in front of her sister's face. Robin was less surprised, or responded to it better, and sucked my cock down like a pro. At least like the very talented amateur she was. 
 
@@ -7706,7 +7876,11 @@
 
  
 
- ****** CvsN 17: Sisters and Friends ****** byTx_Tall_Tales© I looked over and Amie looked like she was sleeping on her side. I released Beth, kissed her sweet ass, and let her climb into our bed. Going back to Amie, I picked her up to put her on the bed too. 
+ 
+
+===
+
+I looked over and Amie looked like she was sleeping on her side. I released Beth, kissed her sweet ass, and let her climb into our bed. Going back to Amie, I picked her up to put her on the bed too. 
 
  "I'm so sore," Amie mumbled, half asleep. 
 
@@ -7726,7 +7900,11 @@
 
  
 
- ****** CvsN 18: Business Complications ****** byTx_Tall_Tales© CvsN 18 -- Business Complications 
+ 
+
+===
+
+CvsN 18 -- Business Complications 
 
  ================ 
 
@@ -7954,7 +8132,11 @@
 
  
 
- ****** CvsN 18: Business Complications ****** byTx_Tall_Tales© I think that surprised even Ron. I was getting hard by all the interplay. I could only imagine what it was doing for him. I should have realized how worked up Robin would be, the center of attention for an entire work team. 
+ 
+
+===
+
+I think that surprised even Ron. I was getting hard by all the interplay. I could only imagine what it was doing for him. I should have realized how worked up Robin would be, the center of attention for an entire work team. 
 
  Beth grabbed Amie by the arm and pulled her over next to me. She pushed the shocked girl into my arms, and then sidled in beside her, leaving me holding the two teenagers while Robin continued her full body massage of Ron's front side. 
 
@@ -8200,7 +8382,11 @@
 
  
 
- ****** CvsN 18: Business Complications ****** byTx_Tall_Tales© "That's nice, Jack," she sighed. "I don't need any more than this." She dozed off like that, which was sweet. I let my hands wander all over her sleeping body, caressing her tight little butt, even reaching down and fingering her bunghole. The play was doing wonders for me, and I got hard enough to fuck into her nice and deep, and she moaned in her sleep, not waking as I pumped my PC and swelled inside of her. Looking over, I saw my two lovers were already in dreamland, so I was slow and gentle, not wanting to move the bed too much. It felt so good, so decadent, fucking Robin's near unconscious body. I surprised myself, getting worked up enough to come inside of her, hearing her whimper in her dreams, while my seed coated her insides. Within moments I was joining her in dream land. 
+ 
+
+===
+
+"That's nice, Jack," she sighed. "I don't need any more than this." She dozed off like that, which was sweet. I let my hands wander all over her sleeping body, caressing her tight little butt, even reaching down and fingering her bunghole. The play was doing wonders for me, and I got hard enough to fuck into her nice and deep, and she moaned in her sleep, not waking as I pumped my PC and swelled inside of her. Looking over, I saw my two lovers were already in dreamland, so I was slow and gentle, not wanting to move the bed too much. It felt so good, so decadent, fucking Robin's near unconscious body. I surprised myself, getting worked up enough to come inside of her, hearing her whimper in her dreams, while my seed coated her insides. Within moments I was joining her in dream land. 
 
  ---- 
 
@@ -8208,7 +8394,11 @@
 
  
 
- ****** CvsN 19: Closing the Deal ****** byTx_Tall_Tales© CvsN 19 - Closing the Deal 
+ 
+
+===
+
+CvsN 19 - Closing the Deal 
 
  
 
@@ -8438,7 +8628,11 @@
 
  
 
- ****** CvsN 19: Closing the Deal ****** byTx_Tall_Tales© Robin sat up and snuggled in close to Amie's father, her hand busy in his lap. Looks like she'd gotten the results she was looking for. I guess she wasn't done with our guest. And from the look of him, he wasn't done, not by a long shot. 
+ 
+
+===
+
+Robin sat up and snuggled in close to Amie's father, her hand busy in his lap. Looks like she'd gotten the results she was looking for. I guess she wasn't done with our guest. And from the look of him, he wasn't done, not by a long shot. 
 
  Debbie stood up and dropped her shorts, bending over and giving the loveseat gang a great view of her ass. Then she stood in front of Amie, put her hands on the girl's shoulders then leaned in and gave her a kiss. "You're in my seat." 
 
@@ -8646,7 +8840,11 @@
 
  
 
- ****** CvsN 20: Something Old and New ****** byTx_Tall_Tales© 20 - Something Old Something New 
+ 
+
+===
+
+20 - Something Old Something New 
 
  by Tx Tall Tales © 
 
@@ -8852,7 +9050,11 @@
 
  
 
- ****** CvsN 20: Something Old and New ****** byTx_Tall_Tales© The whole group had retired to the new living room and we'd paired off in groups around the U-shaped sectional. I sat on one side, bracketed by Debbie and Amie, while opposite me was Karen and Jim. Robin was in the corner, seated between Jim and Ron, and Beth had Ron's other side covered. It was cozy. And portended well for the near future. 
+ 
+
+===
+
+The whole group had retired to the new living room and we'd paired off in groups around the U-shaped sectional. I sat on one side, bracketed by Debbie and Amie, while opposite me was Karen and Jim. Robin was in the corner, seated between Jim and Ron, and Beth had Ron's other side covered. It was cozy. And portended well for the near future. 
 
  The girls on my side were mostly talking about the day-care shopping they were planning for the weekend. The other side of the couch was talking about the moving plans for the next day, and Ron was just soaking it all in. 
 
@@ -9026,7 +9228,11 @@
 
  
 
- ****** CvsN 20: Something Old and New ****** byTx_Tall_Tales© Gargantuan might have been a bit of an exaggeration, but the excitement of taking her virgin asshole, in front of everybody, had me about as big and hard as I get. And she was taking it all. 
+ 
+
+===
+
+Gargantuan might have been a bit of an exaggeration, but the excitement of taking her virgin asshole, in front of everybody, had me about as big and hard as I get. And she was taking it all. 
 
  A few minutes and I was getting a little tired, so I put her on her hands and knees, and fucked that tight butthole some more. It was so sweet, but I knew that it would be a while before I was ready to come, and didn't want to hurt her. I gazed over at Debbie, and knew I wanted more of her. She came to me, giving me a kiss. 
 
@@ -9110,7 +9316,11 @@
 
  
 
- ****** CvsN 21: Confession and Contrition ****** byTx_Tall_Tales© ======= Amie opens up, and Karen moves out ======= 
+ 
+
+===
+
+======= Amie opens up, and Karen moves out ======= 
 
  As usual, I was the last to wake. But this time I wasn't completely alone. Amie was clinging to me, arms and legs thrown across my body, strands of her tousled hair caressing my face. Unlike tiny Beth, or even the smallish Debbie, Amie was nearly 6' of long lovely torso, arms, and seemingly endless legs. When you'd been hugged by those legs, you certainly knew it! 
 
@@ -9262,7 +9472,11 @@
 
  
 
- ****** CvsN 21: Confession and Contrition ****** byTx_Tall_Tales© Ron leaned forward, grinning at her and took her in his arms. She lifted her arms, twisting at the waist, and wrapped them around his neck. "I'm sorry Dad. I should have told you." 
+ 
+
+===
+
+Ron leaned forward, grinning at her and took her in his arms. She lifted her arms, twisting at the waist, and wrapped them around his neck. "I'm sorry Dad. I should have told you." 
 
  "No baby, you're entitled to your privacy, and to make your own decisions." He held her close, rocking back and forth, which was doing nice things down where Amie and I were connected. "You don't have to tell me anything. You're a big girl. But just remember. You CAN tell me anything." 
 
@@ -9532,7 +9746,11 @@
 
  
 
- ****** CvsN 21: Confession and Contrition ****** byTx_Tall_Tales© She came over and lay on top of me. I was surprised to see a big grin on her face. "I can't believe it. I wore both of you out." 
+ 
+
+===
+
+She came over and lay on top of me. I was surprised to see a big grin on her face. "I can't believe it. I wore both of you out." 
 
  "Hardly. Looks like Jim's ready for another go," I told her. 
 
@@ -9562,7 +9780,11 @@
 
  
 
- ****** CvsN 22: A New Housemate ****** byTx_Tall_Tales© --- 
+ 
+
+===
+
+--- 
 
  It's a revolving door: Karen's out but Amie's in. 
 
@@ -9810,7 +10032,11 @@
 
  
 
- ****** CvsN 22: A New Housemate ****** byTx_Tall_Tales© I was embarrassed to admit it was true. I'd probably put on 10 pounds in the last few months, and my pants were getting tight. 
+ 
+
+===
+
+I was embarrassed to admit it was true. I'd probably put on 10 pounds in the last few months, and my pants were getting tight. 
 
  Debbie chuckled. "I like a solid man. Skinny boys don't do it for me." 
 
@@ -10078,7 +10304,11 @@
 
  
 
- ****** CvsN 22: A New Housemate ****** byTx_Tall_Tales© Beth's knee was brushing against Debbie's and she reached across my body, stroking Deb's shoulder then clasping her hand. "I love you Debbie," she said softly. 
+ 
+
+===
+
+Beth's knee was brushing against Debbie's and she reached across my body, stroking Deb's shoulder then clasping her hand. "I love you Debbie," she said softly. 
 
  "Mmm. Me too," she said sleepily. 
 
@@ -10092,7 +10322,11 @@
 
  
 
- ****** CvsN 23: Travel Benefits ****** byTx_Tall_Tales© --- 
+ 
+
+===
+
+--- 
 
  A new workout program, back with the Boss, and a memorable flight 
 
@@ -10330,7 +10564,11 @@
 
  
 
- ****** CvsN 23: Travel Benefits ****** byTx_Tall_Tales© I explained it to Chris, answering all of her question, and pointed out the differences between a solution for the Swiss and Malaysians. 
+ 
+
+===
+
+I explained it to Chris, answering all of her question, and pointed out the differences between a solution for the Swiss and Malaysians. 
 
  "That's good. Really good. I better call Dale when we get in tomorrow morning, and put the brakes on any discussions they have about repackaging. This would be a lot better." 
 
@@ -10598,7 +10836,11 @@
 
  
 
- ****** CvsN 23: Travel Benefits ****** byTx_Tall_Tales© I knew when I found it, wrenching a moan out of her. With the target in sight, I worked her there, my cock head pounding against her pleasure center, while my thumb massaged her clit within its protective hood. I watched her reach out suddenly and grasp a wash cloth, pulling it into her mouth and biting down on it. I kept the same exact motion going, not wanting to break her rhythm, and watched in joy as she came for me hard. She cried out through the cloth she was biting, her eyes squeezed shut, and I eased up on her clit, but continued my assault on the top of her pussy. 
+ 
+
+===
+
+I knew when I found it, wrenching a moan out of her. With the target in sight, I worked her there, my cock head pounding against her pleasure center, while my thumb massaged her clit within its protective hood. I watched her reach out suddenly and grasp a wash cloth, pulling it into her mouth and biting down on it. I kept the same exact motion going, not wanting to break her rhythm, and watched in joy as she came for me hard. She cried out through the cloth she was biting, her eyes squeezed shut, and I eased up on her clit, but continued my assault on the top of her pussy. 
 
  The little tease was multi-orgasmic, and once I got her off, every couple of minutes she would explode again. After a while it didn't matter how I fucked her, as long as I filled her with my cock, she'd eventually shatter for me. I loved the feeling. She was gasping heavily when I finally felt my own finish approaching. I lifted her legs up to my shoulders again, grabbed her hips and fucked her as fast and hard as I could. After a few seconds she was coming continuously, and I doubt she even felt it when I exploded inside her. I eased her legs apart, and finished with a series of easy strokes, enjoying the last of my hard-on, contemplating the possibility of getting hard for her again. She had been one of the most responsive fucks I'd ever had, and I was going to be sorry to finish. 
 
@@ -10664,7 +10906,11 @@
 
  
 
- ****** CvsN 24: Spanish Treasure ****** byTx_Tall_Tales© CvsN 24 - Spanish Treasure 
+ 
+
+===
+
+CvsN 24 - Spanish Treasure 
 
  ---- 
 
@@ -10896,7 +11142,11 @@
 
  
 
- ****** CvsN 24: Spanish Treasure ****** byTx_Tall_Tales© On base, Captain Perez led me to the central data center, where a backup system was ready for the install. We had a small team, Captain Perez, Enrique, one of the contractors from the day before, Sargent Jimenez, the system admin, and Ana Isabel, seemingly in the role of observer. 
+ 
+
+===
+
+On base, Captain Perez led me to the central data center, where a backup system was ready for the install. We had a small team, Captain Perez, Enrique, one of the contractors from the day before, Sargent Jimenez, the system admin, and Ana Isabel, seemingly in the role of observer. 
 
  The install went pretty smoothly, with one small hiccup we were able to resolve in about half-an-hour. We were ready to bring it up and establish the live connections to the two main databases by lunch. We took a well deserved break, relaxing over a meal in the Officer's Mess, before going back and lighting up the system. Our test code found a database inconsistency right away, but I was able to fix that, with some help from the Sargent, and by three o'clock, all lights were go. 
 
@@ -11150,7 +11400,11 @@
 
  
 
- ****** CvsN 24: Spanish Treasure ****** byTx_Tall_Tales© She leaned down and kissed me. "Thank you. That's just the effect I was hoping for." 
+ 
+
+===
+
+She leaned down and kissed me. "Thank you. That's just the effect I was hoping for." 
 
  She stepped aside, and gestured me upward. "Come now, wouldn't you like to get a little more comfortable as well?" 
 
@@ -11260,7 +11514,11 @@
 
  
 
- ****** CvsN 25: Tour de Spain ****** byTx_Tall_Tales© --- 
+ 
+
+===
+
+--- 
 
  Jack sees more of Spain, and of his Spanish Beauty 
 
@@ -11534,7 +11792,11 @@
 
  
 
- ****** CvsN 25: Tour de Spain ****** byTx_Tall_Tales© "Absolutely. No doubt. Without any reservations." I reached over and stroked her leg, only inches from me. 
+ 
+
+===
+
+"Absolutely. No doubt. Without any reservations." I reached over and stroked her leg, only inches from me. 
 
  She looked at me very intently. "The rules have not changed, Jack. If that bothers you, and you wish to leave, I understand." 
 
@@ -11806,7 +12068,11 @@
 
  
 
- ****** CvsN 25: Tour de Spain ****** byTx_Tall_Tales© Beth heard my moan. "That's right. Stroke it for me. Stroke that fat cock. Imagine my mouth on you right now." I could hear her making noises like she was sucking me. "Can you hear that? It's not as big as you, but I'm going to suck it just like I'm sucking you. Here I come, Jack." 
+ 
+
+===
+
+Beth heard my moan. "That's right. Stroke it for me. Stroke that fat cock. Imagine my mouth on you right now." I could hear her making noises like she was sucking me. "Can you hear that? It's not as big as you, but I'm going to suck it just like I'm sucking you. Here I come, Jack." 
 
  She was making wild noises, slurping away on one of our toys, while Chris gave me her best effort blow-job. I closed my eyes and listened to my girl at home fantasize about sucking me. I heard her gasp. 
 
@@ -11866,7 +12132,11 @@
 
  
 
- ****** CvsN 26: Royally Fucked ****** byTx_Tall_Tales© CvsN 26 - Royally Fucked 
+ 
+
+===
+
+CvsN 26 - Royally Fucked 
 
  Tx Tall Tales (c) 
 
@@ -12142,7 +12412,11 @@
 
  
 
- ****** CvsN 26: Royally Fucked ****** byTx_Tall_Tales© But Ana Isabel was more. More than a casual lustful passing. She was an incredible woman who deserved more than I could offer. An amazing woman, with a tangled life, waiting for the man who was worthy of her. 
+ 
+
+===
+
+But Ana Isabel was more. More than a casual lustful passing. She was an incredible woman who deserved more than I could offer. An amazing woman, with a tangled life, waiting for the man who was worthy of her. 
 
  I knew I wasn't that man. 
 
@@ -12430,7 +12704,11 @@
 
  
 
- ****** CvsN 27: The New Rules ****** byTx_Tall_Tales© ======= Coming home and facing an internal crisis. Cathy rides to the rescue again, with a surprise. ======= 
+ 
+
+===
+
+======= Coming home and facing an internal crisis. Cathy rides to the rescue again, with a surprise. ======= 
 
  The trip home was anticlimactic. No last minute calls from Ana Isabel, no nefarious visits from men in black suits, and we were on our own at the airport. No mile-high club. My new favorite stewardess wasn't on our particular flight. Even the petting on the flight was curtailed, nothing more than hand- holding and leg caressing. 
 
@@ -12676,7 +12954,11 @@
 
  
 
- ****** CvsN 27: The New Rules ****** byTx_Tall_Tales© "Of course I love you. I've never felt anything close to what I feel for you. And to know that I hurt you, seeing you hesitate to be with me, knowing I'd lost a part of you through my insanity, it's destroying me. How can I do what I do to you? To you!" I leaned my head back and screamed "FUCK!" 
+ 
+
+===
+
+"Of course I love you. I've never felt anything close to what I feel for you. And to know that I hurt you, seeing you hesitate to be with me, knowing I'd lost a part of you through my insanity, it's destroying me. How can I do what I do to you? To you!" I leaned my head back and screamed "FUCK!" 
 
  Her hand struck my cheek hard enough to make me see stars. A second blow followed quickly and I welcomed it. I turned my cheek and waited eagerly for another. 
 
@@ -12964,7 +13246,11 @@
 
  
 
- ****** CvsN 27: The New Rules ****** byTx_Tall_Tales© She was teasing me, and it was working. I found myself getting closer and closer to coming. She closed her eyes, speaking softly. "I was scared you were going to strip me and fuck my brains out right in the open, in front of all those people, and all I'd be able to do would be to come for you." 
+ 
+
+===
+
+She was teasing me, and it was working. I found myself getting closer and closer to coming. She closed her eyes, speaking softly. "I was scared you were going to strip me and fuck my brains out right in the open, in front of all those people, and all I'd be able to do would be to come for you." 
 
  "Fuck, Cathy, I'm going to come," I groaned. 
 
@@ -13116,7 +13402,11 @@
 
  
 
- ****** CvsN 28: Robin's Revelation ****** byTx_Tall_Tales© CvsN 28 - Robin's Revelation 
+ 
+
+===
+
+CvsN 28 - Robin's Revelation 
 
  ======== 
 
@@ -13364,7 +13654,11 @@
 
  
 
- ****** CvsN 28: Robin's Revelation ****** byTx_Tall_Tales© Jim had gotten braver, and was sharing Debbie's tit with Karen. While I watched she ceded that perfect melon to him, and squirmed between his legs so she could get to his hard-on. 
+ 
+
+===
+
+Jim had gotten braver, and was sharing Debbie's tit with Karen. While I watched she ceded that perfect melon to him, and squirmed between his legs so she could get to his hard-on. 
 
  I wondered if I shouldn't feel jealous, but there was something worshipful about their attention, that I understood. It was only fitting. 
 
@@ -13668,7 +13962,11 @@
 
  
 
- ****** CvsN 28: Robin's Revelation ****** byTx_Tall_Tales© "Happened pretty fast," I mentioned casually. 
+ 
+
+===
+
+"Happened pretty fast," I mentioned casually. 
 
  "Ha! This from the guy that let's a different new love interest move into his house every couple of weeks!" 
 
@@ -13748,7 +14046,11 @@
 
  
 
- ****** CvsN 29: So Long, Sisters ****** byTx_Tall_Tales© === 
+ 
+
+===
+
+=== 
 
  Another house shakeup, with Robin's extended goodbye, and a discussion about plans for the future, including some major ones. 
 
@@ -13980,7 +14282,11 @@
 
  
 
- ****** CvsN 29: So Long, Sisters ****** byTx_Tall_Tales© She looked at me with those big green eyes, opened wide. "That...that was amazing," she whispered. "So intense." 
+ 
+
+===
+
+She looked at me with those big green eyes, opened wide. "That...that was amazing," she whispered. "So intense." 
 
  I brushed my hand against her cheek, and kissed her lips softly. "That was the first time a woman squirted for me. Your come is as sweet as you are." 
 
@@ -14286,7 +14592,11 @@
 
  
 
- ****** CvsN 29: So Long, Sisters ****** byTx_Tall_Tales© Beth slid off of me, and pulled at Debbie who took her place. "If that's what you want, I could never say no to you," Debbie said softly. "I'd love it." 
+ 
+
+===
+
+Beth slid off of me, and pulled at Debbie who took her place. "If that's what you want, I could never say no to you," Debbie said softly. "I'd love it." 
 
  "Get off the pill." I told her firmly. 
 

@@ -1,8 +1,14 @@
+Fucked a Slut, Watched Two Others
+=================================
 #1 
 
  
 
- ****** Fucked a Slut, Watched Two Others ****** byNonStopFunGuy© Even with my college-age girlfriend on her way up to my hotel room to help me cheat on my wife, I logged into the chat rooms to see if I could find any women interested in some sex talk. I'd been hard for hours, looking forward to boning Lucy even more that day after having fucked her the previous night and that morning. But since she'd left my hotel room the wait for her to return was killing me, and sitting alone wearing just shorts and underwear with my boner raging furiously, I couldn't stop myself from opening the Literotica chat window and sending some whispers (non-public messages) to female chatters. 
+ 
+
+===
+
+Even with my college-age girlfriend on her way up to my hotel room to help me cheat on my wife, I logged into the chat rooms to see if I could find any women interested in some sex talk. I'd been hard for hours, looking forward to boning Lucy even more that day after having fucked her the previous night and that morning. But since she'd left my hotel room the wait for her to return was killing me, and sitting alone wearing just shorts and underwear with my boner raging furiously, I couldn't stop myself from opening the Literotica chat window and sending some whispers (non-public messages) to female chatters. 
 
  As I sat at the desk in the hotel room trying to catch the attention of someone in the chat room, I was saying to myself, why the fuck am I wasting energy doing this when a slutty 19-year-old girl was going to be in my room in 20 minutes (or less), wanting to fuck my married dick all night? 
 
@@ -108,7 +114,11 @@
 
  
 
- ****** Fucked a Slut, Watched Two Others ****** byNonStopFunGuy© I turned Lucy around on my lap, kissing her mouth at first and she voraciously sucked my tongue in response, but quickly I broke the kiss and began licking down her chin and neck towards her chest. I had Lacy standing next to me, leaning over me from the side, so the girls could see Lucy's naked, petite boobs as I devoured them in my wet lips. Wrapping my mouth around one of her pretty titties, I started sucking it in my lips, making it all wet, my tongue running circles around her hard nipple. Then I repeated it on her other boob. Both teen girls were stilling very still, intently staring at the show Lucy and I were putting on for them. I typed, "do you like watching this?" Both girls smiled toothy-white grins, and Amanda confirmed, "Mmm definitely!" 
+ 
+
+===
+
+I turned Lucy around on my lap, kissing her mouth at first and she voraciously sucked my tongue in response, but quickly I broke the kiss and began licking down her chin and neck towards her chest. I had Lacy standing next to me, leaning over me from the side, so the girls could see Lucy's naked, petite boobs as I devoured them in my wet lips. Wrapping my mouth around one of her pretty titties, I started sucking it in my lips, making it all wet, my tongue running circles around her hard nipple. Then I repeated it on her other boob. Both teen girls were stilling very still, intently staring at the show Lucy and I were putting on for them. I typed, "do you like watching this?" Both girls smiled toothy-white grins, and Amanda confirmed, "Mmm definitely!" 
 
  I pushed my mistress down to her knees, right by my side, as I turn sideways in the chair -- so the petite Asian female was kneeling between my spread-open, hairy thighs, viewed sideways from my computer. My pulsating cock was making a stiff tent, stretching the clean, white fabric of my underwear, and Lucy could easily smell how hard it was. A wet spot was growing around the shape formed by my bulbous cockhead. I smile to the girls in the monitor, as I pushed Lucy's slim face downward. She dutifully stuck her tongue out, and teasingly she begin licking my penis back and forth, through my underwear-- feeling its heat, smelling it, almost tasting it, knowing it was driving me nuts. 
 
@@ -178,7 +188,11 @@
 
  
 
- ****** Fucked a Slut, Watched Two Others ****** byNonStopFunGuy© My cock, pressed against my body with Lucy's nude ass sitting over me, wanted to get inside some cunt. Time to fuck, I thought to myself. 
+ 
+
+===
+
+My cock, pressed against my body with Lucy's nude ass sitting over me, wanted to get inside some cunt. Time to fuck, I thought to myself. 
 
  I pushed Lucy off of me, and grabbed the laptop. Carrying it quickly to the hotel room's bed, I plopped it near the bottom edge of the bed and sat myself in front of it, leaning against the headboard like the girls were doing with Amanda's headboard. Naked and horny, Lucy obligingly followed me, crawling onto the bed at my side. I had the wireless keyboard on one thigh as I made sure the webcam was able to show the two girls the sight of my rigid, married dick and fat balls, with naked Lucy sitting hip to hip next to me. I told Amanda in the IM, "I'll let you see my cock go inside Lucy's cunt -- BUT only IF you girls put your fingers inside the OTHER girl's pussy!" 
 
@@ -278,7 +292,11 @@
 
  
 
- ****** Fucked a Slut, Watched Two Others ****** byNonStopFunGuy© Finally, I typed to Amanda, "You have MAIL." 
+ 
+
+===
+
+Finally, I typed to Amanda, "You have MAIL." 
 
  She grinned at me, wondering what I had done. When the blonde opened my email a few seconds later, she saw attached to it a PDF of a confirmation and a PDF of a travel itinerary -- consisting of a round-trip flight for me the following Friday and Sunday, with a two-night stay at a motel about ten minutes from her home address. And I booked it through Lucy's credit card, so my wife would never know about it. I'd just have the company reimburse Lucy, and I'd float the money myself over the next few months in my budget. I'd eventually repay it, in chunks, and wifey would have had no idea that the "client event" was really a sex opportunity between a blonde teenager's thighs. 
 

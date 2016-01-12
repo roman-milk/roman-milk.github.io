@@ -1,8 +1,14 @@
+The Sure Thing Ch. 01
+=====================
 #1 
 
  
 
- ****** The Sure Thing Ch. 01 ****** byJust_Plain_Bob© I'm a gambler. Oh, not a high roller by any means, but I do love to bet on things. Once, in Houston at the Hyatt Regency, a couple of us sat in the lobby and bet on the elevators; which one would get to the top first, get down first, or if it was stopped at a floor would it go up or down. Not big bets, but bets just the same. I'll never put myself in the poor house, or lose my house for that matter, but I will bet on almost anything. Sometimes with some very surprising results. 
+ 
+
+===
+
+I'm a gambler. Oh, not a high roller by any means, but I do love to bet on things. Once, in Houston at the Hyatt Regency, a couple of us sat in the lobby and bet on the elevators; which one would get to the top first, get down first, or if it was stopped at a floor would it go up or down. Not big bets, but bets just the same. I'll never put myself in the poor house, or lose my house for that matter, but I will bet on almost anything. Sometimes with some very surprising results. 
 
  I am also one of those men who would like to see his wife make love to another man. It is a desire that my wife has steadfastly refused to honor ("what a disgusting idea" - how can you say you love me and suggest something like that" etc., etc.) so I had resigned myself to the fact that it was never going to happen. 
 
@@ -54,7 +60,11 @@
 
  
 
- ****** The Sure Thing Ch. 02 ****** byJust_Plain_Bob© This story is the continuation of the story titled "The Sure Thing" 
+ 
+
+===
+
+This story is the continuation of the story titled "The Sure Thing" 
 
  Todd and I were sitting in the Dew Drop Inn drinking beers, making bets, and talking about (what else) my wife Betty and my mistaken assumption that she was faithful to me. Todd had proved me oh so wrong on that. We had just bet on what the next person to sit down at the bar would order, I said beer and Todd said mixed drink, when I asked the Burning Question - "Just how long have you and Betty been getting it on?" 
 

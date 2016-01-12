@@ -1,8 +1,14 @@
+Mary Beth
+=========
 #1 
 
  
 
- ****** Mary Beth ****** byJust_Plain_Bob© I suppose it would be fair to say that I asked for it. It wasn't as if I hadn't been given an early warning, but still, it came as a surprise. 
+ 
+
+===
+
+I suppose it would be fair to say that I asked for it. It wasn't as if I hadn't been given an early warning, but still, it came as a surprise. 
 
  I met Mary Beth at the beginning of our junior year at college. Even though she was not the kind of girl I was normally attracted to there was just something about her that drew me to her. The girls I normally fell for were tall, trim athletic typed and Mary Beth was just the opposite of that. Barely over five feet she weighed 130 lbs. and was what some might call 'chubby' while others might say voluptuous. She had a small waist, a large ass (her sorority sisters called her 'bubble butt') and an abundance of tits. When I bought her a medium sized sweatshirt she laughed at me, "Honey, no way is a medium going to go over these 40DDs." Mary Beth and I had the same Managerial Economics class and we were thrown together on a class project. Three weeks into the project I asked her out, she accepted, one thing led to another and soon we were a steady couple. After two months of dating I tried to get into Mary Beth's pants and was slapped down. 
 
@@ -178,6 +184,10 @@
 
  
 
- ****** Mary Beth ****** byJust_Plain_Bob© I turned and said, "Not this time Mary Beth. You know the old saying, "Fuck me once, shame on you. Fuck me twice and shame on me." 
+ 
+
+===
+
+I turned and said, "Not this time Mary Beth. You know the old saying, "Fuck me once, shame on you. Fuck me twice and shame on me." 
 
  I left her standing there yelling, "Please honey, you know I love you" as I got on the elevator and pushed the button for the lobby. Report_Story 

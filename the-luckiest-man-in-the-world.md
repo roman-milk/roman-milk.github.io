@@ -1,8 +1,14 @@
+The Luckiest Man in the World
+=============================
 #1 
 
  
 
- ****** The Luckiest Man in the World ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  The lengths a man will go to for love. 
 
@@ -278,7 +284,11 @@
 
  
 
- ****** The Luckiest Man in the World ****** byTx_Tall_Tales© "God, baby, that was..." I was lost for the right superlative. 
+ 
+
+===
+
+"God, baby, that was..." I was lost for the right superlative. 
 
  She kissed my cock, giving me a smile. She rose up and offered me her lips. I could still see a drop of my essence on the corner of her mouth. I hesitated only a second, then took her face in my hands and kissed her deeply. I couldn't taste much difference, and didn't care. If she could do that for me, I was sure as hell willing to kiss her afterward. 
 
@@ -560,7 +570,11 @@
 
  
 
- ****** The Luckiest Man in the World ****** byTx_Tall_Tales© "I've been preparing myself," she moaned softly. "I'm ready for you, lover." 
+ 
+
+===
+
+"I've been preparing myself," she moaned softly. "I'm ready for you, lover." 
 
  I applied a generous amount to my cock, stroking it. I was hard as a rock, my pulse running wild. I pressed the head of my cock against her opening, holding the shaft firmly as I pushed. I felt the pressure and moaned as I saw the crown enter her. 
 
@@ -834,7 +848,11 @@
 
  
 
- ****** The Luckiest Man in the World ****** byTx_Tall_Tales© "You were amazing," I told her. 
+ 
+
+===
+
+"You were amazing," I told her. 
 
  I used the facecloth to clean myself, then climbed in the tub behind her, holding her in my arms. "I love you, Mrs. Hammonds." 
 
@@ -1096,7 +1114,11 @@
 
  
 
- ****** The Luckiest Man in the World ****** byTx_Tall_Tales© "You tried to make me hate you," she said. 
+ 
+
+===
+
+"You tried to make me hate you," she said. 
 
  He was getting tired again. He tried to sleep as much as the pain would let him. "Because I love you," he explained. 
 

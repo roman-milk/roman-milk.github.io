@@ -1,8 +1,14 @@
+Faye's Anal Buddy
+=================
 #1 
 
  
 
- ****** Faye's Anal Buddy ****** byJust_Plain_Bob© I was one of those men who had a great desire to watch his wife have sex with another man. I guess my situation was a little unique because I had seen it happen before I married her and it had been the most exciting thing that I had ever seen. 
+ 
+
+===
+
+I was one of those men who had a great desire to watch his wife have sex with another man. I guess my situation was a little unique because I had seen it happen before I married her and it had been the most exciting thing that I had ever seen. 
 
  It had happened several months before we were married. Faye had been having second thoughts about getting married and she instigated an argument so she would have a reason for breaking off the engagement. The real reason, as I found out from my cousin Barb who is Faye's best friend, was that an old boyfriend had come back to town. Faye had been madly in love with the guy and then something happened, they had split and the guy had left town. She got over him, met me and we had gotten engaged. Then three months before our wedding he had come back and I guess Faye wasn't as over the guy as she thought. 
 

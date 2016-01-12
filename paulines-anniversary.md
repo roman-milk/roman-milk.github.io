@@ -1,8 +1,14 @@
+Pauline's Anniversary
+=====================
 #1 
 
  
 
- ****** Pauline's Anniversary ****** byJust_Plain_Bob© Author's note. If the "N" word upsets you give this one a pass. 
+ 
+
+===
+
+Author's note. If the "N" word upsets you give this one a pass. 
 
  The day had been an extremely productive one for me. I landed two new clients and closed a mega-deal with another and my boss took me out to celebrate. We had a couple of drinks at the lounge across the street from our office building and then he took me to his favorite titty bar where he paid for me to have several lap dances. I was having a great time and then he tried to make it even better. He pointed to a ravishing redhead and said, "If you want her I'll pay. You can consider it as part of your bonus." 
 

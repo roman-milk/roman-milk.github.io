@@ -1,8 +1,14 @@
+Cum Sluts Anonymous 1: Ralph
+============================
 #1 
 
  
 
- ****** Cum Sluts Anonymous 1: Ralph ****** byJust_Plain_Bob© I needed help! I was over the edge and no matter what I did I couldn't stop. I had to have it. It consumed my thoughts every waking hour and it haunted me in my dreams. The desire for it overrode all other concern; it interfered with my job, and with my relationships with others - if they couldn't help me get more of what I needed I had no time for them. Alcohol? Cocaine? Heroin? No, nothing that simple, my problem was much more insidious. Plentiful, easy to obtain, it was free, totally legal and I craved it every morning, noon and night. The evil life destroying substance was sperm! Jizz, spunk, trouser snake milk, sponk, cum, call it what you will, it was destroying me and the only person who was happy about it was the person who had started it all - my wife! 
+ 
+
+===
+
+I needed help! I was over the edge and no matter what I did I couldn't stop. I had to have it. It consumed my thoughts every waking hour and it haunted me in my dreams. The desire for it overrode all other concern; it interfered with my job, and with my relationships with others - if they couldn't help me get more of what I needed I had no time for them. Alcohol? Cocaine? Heroin? No, nothing that simple, my problem was much more insidious. Plentiful, easy to obtain, it was free, totally legal and I craved it every morning, noon and night. The evil life destroying substance was sperm! Jizz, spunk, trouser snake milk, sponk, cum, call it what you will, it was destroying me and the only person who was happy about it was the person who had started it all - my wife! 
 
  It was a story that is repeated across the face of the Earth every day; a husband who becomes just a bit too wrapped up in climbing the corporate ladder and a wife who becomes neglected because of it. She allows herself to be seduced and finds she likes sex with other men, and in some cases, many other men. The inevitable happens and the husband finds out. In most cases it leads to separation and then divorce, but in my case it only led me down the road to hell. A business trip out of town, a cancelled flight, a return home to find two strange cars in the drive, and four surprised people - my wife, her two lovers and me - started it all. The incident still seems unreal to me even after five years. Me standing in the doorway to the bedroom watching two men fuck my wife in what I have since learned is called the Classic Double Penetration - one in her cunt and one in her ass - and her looking up to see me standing there. No sign of surprise, no fear, no worry, just a big smile on her face and the words "You're just in time dear, I need a cock in my mouth. Hurry honey, bring your cock over here to me." 
 
@@ -36,7 +42,11 @@
 
  
 
- ****** Cum Sluts Anonymous 2: Bob ****** byJust_Plain_Bob© Hi, my name is Bob and I'm a cum slut. I haven't always been one, but I guess that everyone here can say that. The credo of this organization is that you have to admit that you have a problem and then identify the problem before you have any chance of licking it. Not to be facetious, but licking it is the problem that has brought me to this meeting, to this group, in the hope that you can help me in overcoming this addiction. Like most of the members of this group were at one time or another, I was in denial before I came to this meeting. I needed it, I wanted it, I looked forward to it and I always said that I could stop whenever I wanted. But I never seemed to want to stop, not even when I began to realize just how self-destructive the addiction was. 
+ 
+
+===
+
+Hi, my name is Bob and I'm a cum slut. I haven't always been one, but I guess that everyone here can say that. The credo of this organization is that you have to admit that you have a problem and then identify the problem before you have any chance of licking it. Not to be facetious, but licking it is the problem that has brought me to this meeting, to this group, in the hope that you can help me in overcoming this addiction. Like most of the members of this group were at one time or another, I was in denial before I came to this meeting. I needed it, I wanted it, I looked forward to it and I always said that I could stop whenever I wanted. But I never seemed to want to stop, not even when I began to realize just how self-destructive the addiction was. 
 
  
 
@@ -74,7 +84,11 @@
 
  
 
- ****** Cum Sluts Anonymous 3: Dave ****** byJust_Plain_Bob© I took a deep breath and looked out at the sea of faces, a surprising number of women among them, and knew that this was going to be one of the most difficult things I'd ever done, but I also knew that it was one of the most necessary. I had to do it for the sake of my marriage and for the sake of my own sanity. As I organized my thoughts I thought back on the circumstances that brought me to this point in my life. 
+ 
+
+===
+
+I took a deep breath and looked out at the sea of faces, a surprising number of women among them, and knew that this was going to be one of the most difficult things I'd ever done, but I also knew that it was one of the most necessary. I had to do it for the sake of my marriage and for the sake of my own sanity. As I organized my thoughts I thought back on the circumstances that brought me to this point in my life. 
 
  I am a forty year old father of three who is married to a thirty-eight year old wife and mother who just happens to be the woman of most men's dreams. Smart, witty, the face of an angel and the body of a porn queen, I worshipped Bonnie and the ground she walked on. Regardless of the fact that Bonnie was every man's wet dream she was still a virgin when we married and one year later she was the mother of twins. I, on the other hand, had cut a pretty wide swath through the ladies before we were married. Not that I'm a Brad Pitt or anything like that, I was just an average guy who was bold and persistent and who went after what I wanted. As a result I got shot down a lot, but I scored once for every four times I got shot down and before agreeing to be my wife Bonnie had required that I tell her of all my many affairs. That this was a major mistake was not to become obvious for several more years. 
 
@@ -118,7 +132,11 @@
 
  
 
- ****** Cum Sluts Anonymous 4: Mike ****** byJust_Plain_Bob© I sat there next to my wife and listened to people introduce themselves, admit their addictions, tell their stories and I wondered why I was there. The stories being told were all similar to mine. The major difference was that I didn't consider that I had a problem; maybe Brenda did, but I didn't. True, I did love the taste of cum delivered directly from my wife's pussy to my mouth and yes, I did encourage her to go out with other guys and let herself be filled to the brim so she could bring it home to me, but so what? I liked it! And Brenda sure didn't seem to mind helping me get what I wanted. In fact, it was because she was already out there getting it that I found out that I liked it. 
+ 
+
+===
+
+I sat there next to my wife and listened to people introduce themselves, admit their addictions, tell their stories and I wondered why I was there. The stories being told were all similar to mine. The major difference was that I didn't consider that I had a problem; maybe Brenda did, but I didn't. True, I did love the taste of cum delivered directly from my wife's pussy to my mouth and yes, I did encourage her to go out with other guys and let herself be filled to the brim so she could bring it home to me, but so what? I liked it! And Brenda sure didn't seem to mind helping me get what I wanted. In fact, it was because she was already out there getting it that I found out that I liked it. 
 
  Like most men in a secure and happy marriage I stumbled along without a care in the world. Brenda was a wonderful wife and mother, a great cook and a fantastic lover. Our sex life was superb, at least in my mind. Brenda was a very sexy lady and she got hit on all the time, but for years I had watched her ward off advances with a smile and I was secure in the knowledge that she was mine. And then one day I found out that she wasn't. Mine maybe, but definitely not all mine. 
 
@@ -140,7 +158,11 @@
 
  
 
- ****** Cum Sluts Anonymous 5: Lisa ****** byJust_Plain_Bob© My heart went out to her as I saw her make her way to the front of the room. She just looked so young and fragile. She was nervous too, but that was to be expected. We were all of us nervous when we made the same trip; Lord knows it's not an easy thing to get up in front of a group like ours and confess your weakness even though we were going to be the most sympathetic audience she would ever find. If she could be helped we were most definitely the ones who could help her. 
+ 
+
+===
+
+My heart went out to her as I saw her make her way to the front of the room. She just looked so young and fragile. She was nervous too, but that was to be expected. We were all of us nervous when we made the same trip; Lord knows it's not an easy thing to get up in front of a group like ours and confess your weakness even though we were going to be the most sympathetic audience she would ever find. If she could be helped we were most definitely the ones who could help her. 
 
  Sadly though, not everyone who needs or even wants help is strong enough. A lot of them backslide, but quite a few keep coming back and trying again. Some of them even make it, but it's not easy - God knows it's not easy. I hope we can help her because if I ever saw anyone who looks so desperately in need of help it is her. She bravely faced us and there was a quavering in her voice when she said, "My name is Lisa and I am a cum hungry slut" and then she faltered, almost like she had forgotten why she was here. She took a deep breath and said, "Yes, I am a cum slut and I have allowed my addiction to destroy my life. It has cost me my family, my marriage and I'm here to try and save what little I have left - my sanity." 
 
@@ -186,7 +208,11 @@
 
  
 
- ****** Cum Sluts Anonymous 6: Jerry ****** byJust_Plain_Bob© As I watched her walk toward the front of the room I had a hard time believing that anyone who looked so innocent and angelic could stand in the front of this room and admit to being one of us. But then I should know by now that all kinds of people have our problem. Among us are a doctor, a minister, a ministers wife (not related), several government officials, a couple of lawyers, a cop, a fireman, a garbage man, several housewives and the list could go on for hours. All of them are here because they all share the same addiction - they are all lovers of cum - cum junkies - cream pie lovers - call them what you will, they all love cum. Cum in their mouths, cum in their pussies; man or woman, it doesn't matter, they are all here to try and kick their habit. 
+ 
+
+===
+
+As I watched her walk toward the front of the room I had a hard time believing that anyone who looked so innocent and angelic could stand in the front of this room and admit to being one of us. But then I should know by now that all kinds of people have our problem. Among us are a doctor, a minister, a ministers wife (not related), several government officials, a couple of lawyers, a cop, a fireman, a garbage man, several housewives and the list could go on for hours. All of them are here because they all share the same addiction - they are all lovers of cum - cum junkies - cream pie lovers - call them what you will, they all love cum. Cum in their mouths, cum in their pussies; man or woman, it doesn't matter, they are all here to try and kick their habit. 
 
  Well, almost all of them. I'm not here because I'm a cum slut, I'm here because they are. I'm here because I'm drawn to cum junkies. I'm a predator and this is my feeding ground. As I watched the innocent looking young lady making her way to the front of the gathering I felt eyes on me and I looked around and saw them all looking at me. Brenda, Julie, Mary Jo, Beverly and Joyce; they all knew what I was sitting there thinking and they also knew that they wouldn't say anything to anybody about it. I had that kind of power over them and they all feared that I would exercise that power by denying them what they wanted, no - make that what they needed. 
 

@@ -1,8 +1,14 @@
+Lesbian Polygamy: A Beginning
+=============================
 #1 
 
  
 
- ****** Lesbian Polygamy: A Beginning ****** bysilkstockingslover© Summary:The beginning of how a domme began her own lesbian harem. 
+ 
+
+===
+
+Summary:The beginning of how a domme began her own lesbian harem. 
 
  Note:Thanks to J for the story idea. 
 
@@ -304,7 +310,11 @@
 
  
 
- ****** Lesbian Polygamy: A Beginning ****** bysilkstockingslover© I had met him on a few occasions and considered him a pretentious dick, but in all fairness I considered 99% percent of high society to be pretentious dicks or bitches...myself included. 
+ 
+
+===
+
+I had met him on a few occasions and considered him a pretentious dick, but in all fairness I considered 99% percent of high society to be pretentious dicks or bitches...myself included. 
 
  As he talked about some new castle he had purchased in Catterick, I put my hand under the table, beneath her dress, and began teasing her pussy, getting it wet enough to slide the polo ball inside. Watching her try to keep a straight face was incredibly amusing as he continued to ramble on oblivious to the fact I was now fingering his wife and that no one was listening to him. 
 

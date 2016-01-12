@@ -1,8 +1,14 @@
+Ann Goes To Detroit
+===================
 #1 
 
  
 
- ****** Ann Goes To Detroit ****** byJust_Plain_Bob© Ann looked at the card in her hand and wondered when Tom had put it in her suitcase. The card had a simple handwritten message in Tom's handwriting, "You are 1300 miles from home. No one knows you there. Go for it!" Ann knew only to well what that message meant, just as she understood the message sent by the other items Tom had slipped into her suitcase. She found nylons, garter belt, black bustier, a black negligee, and what Tom called her 'come fuck me' high heels. Oh yes indeed, the message was plain - "Get yourself fucked by another man!" 
+ 
+
+===
+
+Ann looked at the card in her hand and wondered when Tom had put it in her suitcase. The card had a simple handwritten message in Tom's handwriting, "You are 1300 miles from home. No one knows you there. Go for it!" Ann knew only to well what that message meant, just as she understood the message sent by the other items Tom had slipped into her suitcase. She found nylons, garter belt, black bustier, a black negligee, and what Tom called her 'come fuck me' high heels. Oh yes indeed, the message was plain - "Get yourself fucked by another man!" 
 
  A few years ago Ann had asked her husband why he read magazines like Penthouse, Gallery, Forum, and others like them. Tom had said that they were the way he was able to feed his fantasies. Ann had not wanted to visit that topic so she let the matter drop, but one day when she was on the toilet in the master bedroom she noticed one of his magazines on the floor and she picked it up out of idle curiosity. It was a copy of Penthouse Letters and it was opened to a section called "Someone is Watching." All the letters seemed to be from people who watched their wives fuck other men. She wondered - is that Tom's fantasy, to see me with someone else? Her curiosity aroused she went to the drawer in which he kept his magazines and found that seven out of the dozen or so in the drawer were opened to a certain section. She had read the stories in those sections and they had all pertained to wife watching. She had not wanted to acknowledge that some of the stories had piqued her interest, but they had. 
 

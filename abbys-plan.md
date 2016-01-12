@@ -1,8 +1,14 @@
+Abby's Plan
+===========
 #1 
 
  
 
- ****** Abby's Plan ****** byJust_Plain_Bob© We weren't the first couple to find ourselves in the situation. Fifteen years married and the passion was lacking. The affection was there and the love making was a little off - down from three or four times a week to twice and usually on Tuesday and Friday - but we were happy together. At least we were until she got her sister involved. 
+ 
+
+===
+
+We weren't the first couple to find ourselves in the situation. Fifteen years married and the passion was lacking. The affection was there and the love making was a little off - down from three or four times a week to twice and usually on Tuesday and Friday - but we were happy together. At least we were until she got her sister involved. 
 
  I never did find out how Abby and her sister Jane got on the subject, but one evening Abby said to me: 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Abby's Plan ****** byJust_Plain_Bob© "I think the interior light is going bad. When I open the door the light looks dimmer." 
+ 
+
+===
+
+"I think the interior light is going bad. When I open the door the light looks dimmer." 
 
  If Abby had a flat I would have heard about it as soon as it happened. For some reason Abby did not want me looking in the trunk of her car. I could have verified that easy enough by saying, "No need to call Triple A. We will just throw my flat in the trunk of your car and take it over to the Texaco station." But I didn't want to push things until I knew more. 
 
@@ -432,7 +442,11 @@
 
  
 
- ****** Abby's Plan ****** byJust_Plain_Bob© ++++++++++++++++++++++++++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++++++++++++++++++++++++++ 
 
  Abby got home from her "beauty parlor" appointment and from the looks of her I would say that she went from being fucked to the beauty parlor since she didn't have a hair out of place. I knew what was coming so I helped set the stage. 
 
@@ -718,7 +732,11 @@
 
  
 
- ****** Abby's Plan ****** byJust_Plain_Bob© When Abby got home I tried to interest her in a quick romp, but she said no. "I want you good and horny tonight." 
+ 
+
+===
+
+When Abby got home I tried to interest her in a quick romp, but she said no. "I want you good and horny tonight." 
 
  "Oh? And just what do you have in mind for me?" 
 

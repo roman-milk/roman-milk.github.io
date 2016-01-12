@@ -1,8 +1,14 @@
+Older Sluts
+===========
 #1 
 
  
 
- ****** Older Sluts ****** byJust_Plain_Bob© It was the night of my father's funeral and there had been a wake at the house following the burial. It had lasted well into the night and once everyone had gone home I found myself sitting in the kitchen drinking and talking with my mom. 
+ 
+
+===
+
+It was the night of my father's funeral and there had been a wake at the house following the burial. It had lasted well into the night and once everyone had gone home I found myself sitting in the kitchen drinking and talking with my mom. 
 
  Mostly we reminisced about dad. Mom wasn't all that weepy eyed and truth be told she was relieved that he was gone. That sounds cold, but it really wasn't. He had been sick for such a long time and she had been forced to watch him slowly waste away. She was relieved that his suffering was over and she was relieved that the rest of the family could now move on with their lives. 
 

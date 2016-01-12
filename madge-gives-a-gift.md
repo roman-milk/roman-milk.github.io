@@ -1,8 +1,14 @@
+Madge Gives A Gift
+==================
 #1 
 
  
 
- ****** Madge Gives A Gift ****** byJust_Plain_Bob© Betsy had been my wife's best friend all through high school and college and Madge had taken it pretty hard when Betsy had married and moved to New York. The two had kept in constant touch, but Madge had not seen Betsy in almost five years. Last Saturday Betsy had called to say that her husband Rick would be coming to town on business and she had talked him into bringing her along. Madge naturally insisted that they stay with us and for the next two days she bustled around the house getting ready for company. Madge met their flight on Monday and brought them to our house. 
+ 
+
+===
+
+Betsy had been my wife's best friend all through high school and college and Madge had taken it pretty hard when Betsy had married and moved to New York. The two had kept in constant touch, but Madge had not seen Betsy in almost five years. Last Saturday Betsy had called to say that her husband Rick would be coming to town on business and she had talked him into bringing her along. Madge naturally insisted that they stay with us and for the next two days she bustled around the house getting ready for company. Madge met their flight on Monday and brought them to our house. 
 
  I've known Betsy almost as long as Madge, but we were just friends, not good friends, if you know what I mean, but I'd never met her husband until now. As we were introduced I had the distinct impression that he was sizing me up, but I put the thought out of my mind when I got a good look at Betsy. She had changed - dramatically. She'd lost a good sixty pounds and you could see evidence of a lot of time spent in a gym. She was, what some of my younger co- workers would call, a 'hard body'. Her personality had also undergone a major change. She was no longer the constantly insecure girl she used to be; that person had been replaced by a very confident, self assured woman. 
 

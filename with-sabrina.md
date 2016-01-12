@@ -1,8 +1,14 @@
+With Sabrina
+============
 #1 
 
  
 
- ****** With Sabrina ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  A quick, intense Daddy/daughter tale this time. It's quite brief, and quite unbelievable; I haven't built this one up much at all. All the action takes place over the course of seven hours or so. Still, suspension of disbelief notwithstanding, I hope you enjoy the piece. 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** With Sabrina ****** bygeronimo_appleby© Barry eyed his daughter's glistening core, thinking how lovely she was as he jacked his length and shuffled in on his knees. "What a body," he gasped, nudging Sabrina's opening. 
+ 
+
+===
+
+Barry eyed his daughter's glistening core, thinking how lovely she was as he jacked his length and shuffled in on his knees. "What a body," he gasped, nudging Sabrina's opening. 
 
  "Fuck me," the girl groaned in reply, head lolling loose when she felt him easing inside. "Go on, Daddy, fuck it. Smash me with that big thing..." 
 

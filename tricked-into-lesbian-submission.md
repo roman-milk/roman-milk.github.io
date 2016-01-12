@@ -1,8 +1,14 @@
+Tricked into Lesbian Submission
+===============================
 #1 
 
  
 
- ****** Tricked into Lesbian Submission ****** bysilkstockingslover© Summary: Straight girl is tricked into becoming a submissive pet. 
+ 
+
+===
+
+Summary: Straight girl is tricked into becoming a submissive pet. 
 
  Note 1: This is an April Fool's Day 2015 Contest entry...so please vote. 
 
@@ -360,7 +366,11 @@
 
  
 
- ****** Tricked into Lesbian Submission ****** bysilkstockingslover© Suddenly, I felt something clamp on my wrist. I looked down and saw I was now handcuffed to Chantelle! 
+ 
+
+===
+
+Suddenly, I felt something clamp on my wrist. I looked down and saw I was now handcuffed to Chantelle! 
 
  "What are you doing?" I asked, shocked. 
 
@@ -644,7 +654,11 @@
 
  
 
- ****** Tricked into Lesbian Submission ****** bysilkstockingslover© "Move up until your cock is at her rosebud, ass fuck whore," Chantelle ordered, after she put what was likely lube on my cock. 
+ 
+
+===
+
+"Move up until your cock is at her rosebud, ass fuck whore," Chantelle ordered, after she put what was likely lube on my cock. 
 
  I obeyed, kind of intrigued by the strange contraption. 
 
@@ -974,7 +988,11 @@
 
  
 
- ****** Tricked into Lesbian Submission ****** bysilkstockingslover© "I'm sorry, Mistress," I absurdly apologized for being insulted. 
+ 
+
+===
+
+"I'm sorry, Mistress," I absurdly apologized for being insulted. 
 
  Laura asked, "Who is the CEO of your bank?" 
 

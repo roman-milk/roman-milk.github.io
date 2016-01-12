@@ -1,8 +1,14 @@
+Homecoming
+==========
 #1 
 
  
 
- ****** Homecoming ****** bygeronimo_appleby© A first-time piece from me on this occasion. Some of what follows is taken from my own personal experience -- I'm just not saying which parts! 
+ 
+
+===
+
+A first-time piece from me on this occasion. Some of what follows is taken from my own personal experience -- I'm just not saying which parts! 
 
  Although Tom has just returned from a defining, life-changing experience, I deliberately avoided detail of what he saw and did during that short, intense conflict in 1982. After all, this ain't a war story, so I kept all of that out and focussed on his virginity and the outcome of being met by Rita upon his return. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Homecoming ****** bygeronimo_appleby© Tom had haunted her thoughts that night: him in his uniform, resplendent and handsome, the mouth she'd wanted to kiss smiling at her. She imagined him there in her in bed, his hands on her body, the weight of him on top of her, the girth of him filling her, stretching her open before they began to move together. 
+ 
+
+===
+
+Tom had haunted her thoughts that night: him in his uniform, resplendent and handsome, the mouth she'd wanted to kiss smiling at her. She imagined him there in her in bed, his hands on her body, the weight of him on top of her, the girth of him filling her, stretching her open before they began to move together. 
 
  Then, in April there had been the gut-sinking news of potential conflict. There had been the worry during May as the Task Force steamed south, and the sleepless nights in June when they were ashore and marching across the island. Even when the good news came and it was over Rita still worried, going so far as to phone Tom's father in the camp in Germany, unable to rest until she knew categorically that Tom was alive and well. 
 
@@ -394,7 +404,11 @@
 
  
 
- ****** Homecoming ****** bygeronimo_appleby© His mind raced, heartbeat revving while he struggled to think of a response to the inevitable. Then it registered that Rita had said something else, added something he hadn't caught. 
+ 
+
+===
+
+His mind raced, heartbeat revving while he struggled to think of a response to the inevitable. Then it registered that Rita had said something else, added something he hadn't caught. 
 
  Tom blinked. 
 
@@ -408,7 +422,7 @@
 
  The hubbub of a summer night, a Friday night at that, swelled around the couple as Rita leaned forward and reached out a hand. 
 
- Time slowed for him and Tom noticed the thin gold strap of |Rita's watch, a delicate adornment on her wrist when her fingers brushed the back of his hand. 
+ Time slowed for him and Tom noticed the thin gold strap of Rita's watch, a delicate adornment on her wrist when her fingers brushed the back of his hand. 
 
  "Are you sure, Tom?" she persisted, her voice low. "Is it ... is it something to do with what you saw ... you know ... something that happened ... down there, in the Falklands?" 
 
@@ -670,7 +684,11 @@
 
  
 
- ****** Homecoming ****** bygeronimo_appleby© What a thrill to watch his face while she told him. 
+ 
+
+===
+
+What a thrill to watch his face while she told him. 
 
  "I think I'd like to dress up for you, darling boy. Before we fuck, I think I'll dress up for you. Would you like that, Tom? Shall I make this a very special night for you? Make it a real night to remember?" 
 
@@ -884,7 +902,11 @@
 
  
 
- ****** Homecoming ****** bygeronimo_appleby© The surge began, feeling like it came from beyond his toes the pleasure was so intense. 
+ 
+
+===
+
+The surge began, feeling like it came from beyond his toes the pleasure was so intense. 
 
  Rita took the first squirt in her mouth but then allowed Tom's dick, still spitting its load, to plop from between her lips. 
 
@@ -1120,7 +1142,11 @@
 
  
 
- ****** Homecoming ****** bygeronimo_appleby© Then she lifted her hips and reached between their bodies. 
+ 
+
+===
+
+Then she lifted her hips and reached between their bodies. 
 
  Tom gasped when he felt Rita grasp the shaft of his cock. 
 

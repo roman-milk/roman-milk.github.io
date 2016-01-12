@@ -1,8 +1,14 @@
+My Pregnant Mum
+===============
 #1 
 
  
 
- ****** My Pregnant Mum ****** bygeronimo_appleby© Thanks to Soli, as usual. 
+ 
+
+===
+
+Thanks to Soli, as usual. 
 
  Angelus, in Oz - here ya go. 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** My Pregnant Mum ****** bygeronimo_appleby© 'No, Mum,' I whispered, 'it's not enough, not by a long shot.' I unzipped my jeans and at the same time kicked off my running shoes. 'Take your dress off,' I ordered as I stripped and soon I was standing naked in front of my unmoving mother. I sighed and reached for my mother's hands and half pulled her to her feet. 'The dress,' I insisted. 'Take it off – Now.' 
+ 
+
+===
+
+'No, Mum,' I whispered, 'it's not enough, not by a long shot.' I unzipped my jeans and at the same time kicked off my running shoes. 'Take your dress off,' I ordered as I stripped and soon I was standing naked in front of my unmoving mother. I sighed and reached for my mother's hands and half pulled her to her feet. 'The dress,' I insisted. 'Take it off – Now.' 
 
  My mother unbuttoned the front of her dress and reluctantly let it slip over her shoulders. I watched as her swollen abdomen was exposed to me and I was amazed at the tightness of her skin as it stretched over her precious cargo. I reached out and felt the bump that had so altered my mother's body and I caressed it gently. 
 

@@ -1,8 +1,14 @@
+The Roof
+========
 #1 
 
  
 
- ****** The Roof ****** byJust_Plain_Bob© A very short story from a very sick mind, but a mind that I am none the less completely happy with. It needs, however, to be pointed out that all persons in this very short story are eighteen or older and are consenting adults. 
+ 
+
+===
+
+A very short story from a very sick mind, but a mind that I am none the less completely happy with. It needs, however, to be pointed out that all persons in this very short story are eighteen or older and are consenting adults. 
 
  * 
 

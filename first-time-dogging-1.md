@@ -1,8 +1,14 @@
+First Time Dogging
+==================
 #1 
 
  
 
- ****** First Time Dogging ****** bygeronimo_appleby© Just a short stroker this time. The scene sees a woman enjoying her first dogging session. I hope you enjoy it despite the brevity and female, first- person POV. It's a slight departure from my usual, the reason being it was written for someone who wanted it short and nasty. 
+ 
+
+===
+
+Just a short stroker this time. The scene sees a woman enjoying her first dogging session. I hope you enjoy it despite the brevity and female, first- person POV. It's a slight departure from my usual, the reason being it was written for someone who wanted it short and nasty. 
 
  I wouldn't mind some feedback, as usual. Apologies for any fuck-ups or typos, etc; I do check, but sometimes these things escape my notice. 
 

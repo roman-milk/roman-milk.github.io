@@ -1,8 +1,14 @@
+Getting To Marie
+================
 #1 
 
  
 
- ****** Getting To Marie ****** byJust_Plain_Bob© She was on her third husband and had one son who was as old as I was and she had been giving me hard ons for over twenty years. Marie was five-foot even and weighed maybe one-twenty and a third of that was tits. Her bust size was thirty-eight and she knew they were attention getting and she displayed them accordingly. Low cut blouses were a staple in her wardrobe and when she waited on your table she made sure you got a good shot of her cleavage. I'm sure she thought that helped her get bigger tips. 
+ 
+
+===
+
+She was on her third husband and had one son who was as old as I was and she had been giving me hard ons for over twenty years. Marie was five-foot even and weighed maybe one-twenty and a third of that was tits. Her bust size was thirty-eight and she knew they were attention getting and she displayed them accordingly. Low cut blouses were a staple in her wardrobe and when she waited on your table she made sure you got a good shot of her cleavage. I'm sure she thought that helped her get bigger tips. 
 
  Marie worked as a waitress at the restaurant that her parents owned. I had breakfast and lunch there on the average of five times a week. The food was good and the service and atmosphere were great, but the main reason I started stopping at the restaurant when I moved to town was that I loved looking at her tits and I wanted to fuck her. 
 

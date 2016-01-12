@@ -1,8 +1,14 @@
+The Hardheads
+=============
 #1 
 
  
 
- ****** The Hardheads ****** byJust_Plain_Bob© It had been a perfect California day. The temperature had stayed in the mid to high eighties, not a cloud in the sky and the beach had been wall to wall with tanned bikini clad hotties. Topping it all off was a magnificent sunset and I sat there and watched till the last sliver of sun disappeared into the Pacific Ocean. I stood up, shook off the sand and then headed for my apartment. I parked the car and got out before I spotted the last person in the world that I wanted to see - my wife Beverly. 
+ 
+
+===
+
+It had been a perfect California day. The temperature had stayed in the mid to high eighties, not a cloud in the sky and the beach had been wall to wall with tanned bikini clad hotties. Topping it all off was a magnificent sunset and I sat there and watched till the last sliver of sun disappeared into the Pacific Ocean. I stood up, shook off the sand and then headed for my apartment. I parked the car and got out before I spotted the last person in the world that I wanted to see - my wife Beverly. 
 
  It had been almost three years since I had packed my bags and walked away from her; three years during which I had never talked to her on the phone, written her a letter or sent her an email and I didn't want to talk to her now. It looked like I wasn't going to be given a choice. I couldn't get into my apartment without asking her to move which I was pretty sure that she wouldn't do, especially after coming all the way from Denver, and I'd be damned before I'd play the wuss and get back in my car and leave. As I walked toward my door I thought back and remembered all that had brought us to this point. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** The Hardheads ****** byJust_Plain_Bob© "There wasn't anyway that I was going to have an affair with Randy, but I needed to confront you over Gloria so I led him on and did what I did on the tennis court was supposed to make the confrontation happen. When it was obvious that you were gone and were not coming back Gloria came to me in tears and told me that Randy was the one who threatened to fire her if she didn't tell me what he told her to tell me. As a single mother with two kids she couldn't afford to lose her job so she did it. She also told me about how everyone thought Randy was bedding me all along. By then it was too late and you were gone and I couldn't find you. Your mother either wouldn't or couldn't help me and nobody else could help me either." 
+ 
+
+===
+
+"There wasn't anyway that I was going to have an affair with Randy, but I needed to confront you over Gloria so I led him on and did what I did on the tennis court was supposed to make the confrontation happen. When it was obvious that you were gone and were not coming back Gloria came to me in tears and told me that Randy was the one who threatened to fire her if she didn't tell me what he told her to tell me. As a single mother with two kids she couldn't afford to lose her job so she did it. She also told me about how everyone thought Randy was bedding me all along. By then it was too late and you were gone and I couldn't find you. Your mother either wouldn't or couldn't help me and nobody else could help me either." 
 
  "That's all very interesting Beverly, but so what?" 
 

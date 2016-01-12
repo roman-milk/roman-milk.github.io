@@ -1,8 +1,14 @@
+The Keeper of My Brother's Wife
+===============================
 #1 
 
  
 
- ****** The Keeper of My Brother's Wife ****** byJust_Plain_Bob© He walked into the bar and looked around. As his eyes became accustomed to the low level of the lighting and he was able to see into some of the darker recesses of the place he saw her. She was sitting at a table in the back corner and she wasn't alone. But then he hadn't really expected her to be. The guy sitting next to her had his arm draped across her shoulders and his right hand was caressing her right breast. He kept his eyes on the two of them as he stepped to the bar and ordered a Coors Light. Taking a sip of the beer he looked around the bar trying to get a feel for the place. Two middle aged guys in John Deere caps sitting at the other end of the bar, two young couples sitting in a both along the east wall of the joint, and the bartender. He wasn't looking for trouble, but it never hurt to know where some might come from. He took a long pull on the beer, set the empty down on the bar and headed for the table in the back corner. 
+ 
+
+===
+
+He walked into the bar and looked around. As his eyes became accustomed to the low level of the lighting and he was able to see into some of the darker recesses of the place he saw her. She was sitting at a table in the back corner and she wasn't alone. But then he hadn't really expected her to be. The guy sitting next to her had his arm draped across her shoulders and his right hand was caressing her right breast. He kept his eyes on the two of them as he stepped to the bar and ordered a Coors Light. Taking a sip of the beer he looked around the bar trying to get a feel for the place. Two middle aged guys in John Deere caps sitting at the other end of the bar, two young couples sitting in a both along the east wall of the joint, and the bartender. He wasn't looking for trouble, but it never hurt to know where some might come from. He took a long pull on the beer, set the empty down on the bar and headed for the table in the back corner. 
 
  +++++++++++++++++++++++++++++++++++++++ 
 

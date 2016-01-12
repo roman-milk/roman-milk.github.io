@@ -1,8 +1,14 @@
+Daddy's Bad Girl
+================
 #1 
 
  
 
- ****** Daddy's Bad Girl ****** bygeronimo_appleby© A role-play piece for those that enjoy 'em. Not the longest in the world, but I hope you enjoy it all the same. 
+ 
+
+===
+
+A role-play piece for those that enjoy 'em. Not the longest in the world, but I hope you enjoy it all the same. 
 
  As ever, feedback is good. Even if you don't enjoy the piece, tell me what it was that spoiled it for you. Make it constructive though, 'you're sick and your writing sucks' doesn't rate as feedback, eh? 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Daddy's Bad Girl ****** bygeronimo_appleby© The couple climaxed simultaneously; her on her outstretched arms, supported by her hands palm down on the bed, while he hunched over her, his hips jerking, thighs convulsing and they both moaned and sighed and shouted with pleasure at their release. 
+ 
+
+===
+
+The couple climaxed simultaneously; her on her outstretched arms, supported by her hands palm down on the bed, while he hunched over her, his hips jerking, thighs convulsing and they both moaned and sighed and shouted with pleasure at their release. 
 
  'That was so good,' Jessica sighed when the old man withdrew his dribbling cock. 'I get so turned on just thinking about fucking you,' she said, lying on her side to grin up at her lover. 
 

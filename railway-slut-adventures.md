@@ -1,8 +1,14 @@
+Railway Slut Adventures Ch. 01
+==============================
 #1 
 
  
 
- ****** Railway Slut Adventures Ch. 01 ****** bygeronimo_appleby© I left the house in the afternoon and caught the train at York Station for the first leg of my trip to Paris. I was going to travel by the Eurostar and was very excited by the prospect of adventure that lay before me. Not only was I going to be visiting a city I'd never been to be before there was also the obvious opportunity for some wild sexual adventures along the way. 
+ 
+
+===
+
+I left the house in the afternoon and caught the train at York Station for the first leg of my trip to Paris. I was going to travel by the Eurostar and was very excited by the prospect of adventure that lay before me. Not only was I going to be visiting a city I'd never been to be before there was also the obvious opportunity for some wild sexual adventures along the way. 
 
  It was a lovely, warm July afternoon when I set out, the sort of weather that really allows me to show off my body to all those lovely men out there and to see the effect I have on them. I love to show myself off, I love the attention I receive from men AND women and I'm fortunate that I am regarded as being cute, desirable and hot because I am such a total slut. 
 
@@ -108,7 +114,11 @@
 
  
 
- ****** Railway Slut Adventures Ch. 02 ****** bygeronimo_appleby© I got off the train at Kings Cross and with my upper thighs still covered in dried spunk from my toilet encounter earlier on the trip and strode briskly down the platform and onto the busy main concourse. 
+ 
+
+===
+
+I got off the train at Kings Cross and with my upper thighs still covered in dried spunk from my toilet encounter earlier on the trip and strode briskly down the platform and onto the busy main concourse. 
 
  I travelled down the escalator, deep into the tunnels below London to catch the tube train to my hotel. I was staying at a place close to Waterloo so I could be up bright and early and catch my Eurostar departure for Paris. 
 
@@ -204,7 +214,11 @@
 
  
 
- ****** Railway Slut Adventures Ch. 03 ****** bygeronimo_appleby© I settled into my seat in the first class section of the Eurostar and unpacked my MP3 player along with my book. I find that I get a lot of male attention, not all of it unwanted by any means, but sometimes I just like to be left alone and I find that by wearing the MP3 headphones men tend to leave me alone. 
+ 
+
+===
+
+I settled into my seat in the first class section of the Eurostar and unpacked my MP3 player along with my book. I find that I get a lot of male attention, not all of it unwanted by any means, but sometimes I just like to be left alone and I find that by wearing the MP3 headphones men tend to leave me alone. 
 
  I decided that I had no immediate need for that particular ruse however, when I noticed the seat next to me was about to be occupied by a big, burly man dressed in smart trousers and blazer. He checked his seat allocation against his ticket, and satisfied that he'd made the right connection; he lowered his large frame down alongside me. 
 

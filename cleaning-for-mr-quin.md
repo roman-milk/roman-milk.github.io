@@ -1,8 +1,14 @@
+Cleaning for Mr Quin
+====================
 #1 
 
  
 
- ****** Cleaning for Mr Quin ****** bygeronimo_appleby© I couldn't decide between Mature or Non-con/Reluctance for this piece. This time it's two girls - twenty years old - who owe their pervy old landlord two months rent. He comes up with a suggestion that they could clean his house - one in a bikini, the other as the saucy French maid. 
+ 
+
+===
+
+I couldn't decide between Mature or Non-con/Reluctance for this piece. This time it's two girls - twenty years old - who owe their pervy old landlord two months rent. He comes up with a suggestion that they could clean his house - one in a bikini, the other as the saucy French maid. 
 
  I hope you enjoy it. feedback is appreciated, either in public comments below, PM on Lit forums, or email. email is best if you want a response or have a question, or even just want to get involved. 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Cleaning for Mr Quin ****** bygeronimo_appleby© 'Open your legs, you teasing cunt,' Quin snarled as his fist slid along the length of his enormous tumescence. 'If I'm paying a month's rent for this, you better put on the show I was promised.' 
+ 
+
+===
+
+'Open your legs, you teasing cunt,' Quin snarled as his fist slid along the length of his enormous tumescence. 'If I'm paying a month's rent for this, you better put on the show I was promised.' 
 
  Adele's reaction to the sight of Quin's erection surprised both the principals in the scene so far. 
 

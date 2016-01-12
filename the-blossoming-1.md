@@ -1,8 +1,14 @@
+The Blossoming
+==============
 #1 
 
  
 
- ****** The Blossoming ****** bygeronimo_appleby© One I put together after an idea, but it went a little out of control. As ever, I hope you enjoy the story. If you do, post feedback saying what you enjoyed; if you didn't like it, again, post feedback citing why. 
+ 
+
+===
+
+One I put together after an idea, but it went a little out of control. As ever, I hope you enjoy the story. If you do, post feedback saying what you enjoyed; if you didn't like it, again, post feedback citing why. 
 
  Personally, I'm unsure about the premise of a finishing school, but I wanted to manage a contrast between the [apparently] stern Mrs Blythe and Mathilda. How to arrange a mixing of all three characters that's plausible? Difficult, so I probably pushed the boundary in terms of suspension of belief. What the hell, it's only stroke! 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** The Blossoming ****** bygeronimo_appleby© 'You went through it, too?' asked Mathilda, moaning and squirming against Jason's fingers. 
+ 
+
+===
+
+'You went through it, too?' asked Mathilda, moaning and squirming against Jason's fingers. 
 
  'I did say I'd attended the school. My mother insisted. It's always the mothers who choose whether their daughters go through it. The fathers,' she smiled slyly, 'never know. It's a little secret between us girls. Quite often, mostly in fact, the mothers are alumni.' Mrs Blythe winked theatrically, a conspiratorial gesture of sorority. 'But now,' she continued, suddenly brusque and businesslike, more like the Mrs Blythe Mathilda was used to. 'Now we really should get on. Jason will be growing impatient. And besides,' she eyed the man's erection. 'I want to get fucked by that absolutely enormous appendage of his. What about it, Jason? Would you mind fucking me, from behind, while I lick Mathilda's little honey-pot?' 
 

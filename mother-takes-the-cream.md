@@ -1,8 +1,14 @@
+Mother Takes the Cream
+======================
 #1 
 
  
 
- ****** Mother Takes the Cream ****** bygeronimo_appleby© A reasonably short stroke piece with this submission. It's been a while since I submitted to Lit, and thought it was time to add another scene to the count. 
+ 
+
+===
+
+A reasonably short stroke piece with this submission. It's been a while since I submitted to Lit, and thought it was time to add another scene to the count. 
 
  It begins mid-affair, the deed has been done, and I pick it up one morning with the mother preparing for an encounter with her son. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Mother Takes the Cream ****** bygeronimo_appleby© "Come on, you naughty boy," Diane said. She pulled away from Liam's grasping fingers and sucking mouth. "You wanted me in your father's bed ... Come on." 
+ 
+
+===
+
+"Come on, you naughty boy," Diane said. She pulled away from Liam's grasping fingers and sucking mouth. "You wanted me in your father's bed ... Come on." 
 
  She moved quickly, one hand between her legs, the other mauling her tits. 
 

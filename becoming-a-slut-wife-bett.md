@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Bett
+==========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Bett ****** byJust_Plain_Bob© Bett and I are an average couple in our early forties and we had been married just a little over sixteen years. Like in a lot of marriages of that length the sexual excitement had disappeared. I guess that after sixteen years of the same old thing we had gotten bored - maybe not of each other, but of sex with each other. A few years ago I had found a magazine in the seat pocket of an airplane and for the lack of anything better to do on the flight I sat back and read it from cover to cover. There were several letters in what was called the "Feed Back" section from men who got a kick out of seeing their wives with other men. I don't know why, but somehow the idea of seeing Bett with another man appealed to me. I began to imagine Bett showing herself to other men and trying to attract them and then making love to them. The more I had these thoughts the more excited I became and when Bett and I made love I constantly had the picture of her and someone else in my mind. I tried to imagine what she would look like sucking the cock of this friend or what that friend would look like shoving himself into her willing cunt. In short I became consumed by the idea of my wife teasing or making love with other men. 
+ 
+
+===
+
+Bett and I are an average couple in our early forties and we had been married just a little over sixteen years. Like in a lot of marriages of that length the sexual excitement had disappeared. I guess that after sixteen years of the same old thing we had gotten bored - maybe not of each other, but of sex with each other. A few years ago I had found a magazine in the seat pocket of an airplane and for the lack of anything better to do on the flight I sat back and read it from cover to cover. There were several letters in what was called the "Feed Back" section from men who got a kick out of seeing their wives with other men. I don't know why, but somehow the idea of seeing Bett with another man appealed to me. I began to imagine Bett showing herself to other men and trying to attract them and then making love to them. The more I had these thoughts the more excited I became and when Bett and I made love I constantly had the picture of her and someone else in my mind. I tried to imagine what she would look like sucking the cock of this friend or what that friend would look like shoving himself into her willing cunt. In short I became consumed by the idea of my wife teasing or making love with other men. 
 
  This went on for over a year and I began to buy men's magazines just to read the stories from men who felt the same as I did. I began buying Bett low cut blouses, short skirts and high heels so that she would attract the attention of other men when we went out. I had hopes that they would hit on her and try and seduce her and several times I saw it happen, but Bett never gave them what they and I both wanted. Throughout this period though, I never got up enough nerve to tell Bett what I really wanted. 
 

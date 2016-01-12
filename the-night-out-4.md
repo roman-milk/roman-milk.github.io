@@ -1,8 +1,14 @@
+The Night Out
+=============
 #1 
 
  
 
- ****** The Night Out ****** byJust_Plain_Bob© She looked at herself in the dressing table mirror and wondered why she was wasting her time with putting on makeup when it didn't matter. A short skirt, a low cut blouse and high heels was all it was going to take. She could have a bag over her head and it wouldn't matter one little bit; she knew she would be hit on before the waitress even got there to take her drink order. 
+ 
+
+===
+
+She looked at herself in the dressing table mirror and wondered why she was wasting her time with putting on makeup when it didn't matter. A short skirt, a low cut blouse and high heels was all it was going to take. She could have a bag over her head and it wouldn't matter one little bit; she knew she would be hit on before the waitress even got there to take her drink order. 
 
  As she prepared herself for going out to get laid she wondered what her husband was doing at that very moment. Would Jake be sitting in a motel room flipping channels on the TV, would he be wining and dining a client, or would he be sitting in a lounge waiting for someone like her to walk in the door? The bastard better be staying faithful she thought even as she herself prepared not to be. If Jake would stay home and take care of business she would be staying home. If his sales trips would take him out of town on Monday and bring him home on Friday she would stay home. As much as she loved and craved sex she could still get by with a Friday night, a Saturday and a Sunday, but staying away for two, three and sometimes even four weeks when all she got was a phone call? No fucking way. Shit, sometimes she didn't even get the phone call. It didn't make sense to her, not even a little bit. Jake made good money and there was no reason for him to be cheap, and that's all it was -- Jake was cheap! 
 

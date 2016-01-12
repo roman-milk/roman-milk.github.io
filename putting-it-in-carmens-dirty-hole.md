@@ -1,8 +1,14 @@
+Putting It In Carmen's Dirty-Hole
+=================================
 #1 
 
  
 
- ****** Putting It In Carmen's Dirty-Hole ****** bygeronimo_appleby© A simple scene straight out of porn film, it didn't take much imagination at all to write - but for all the predictability I hope you enjoy it. 
+ 
+
+===
+
+A simple scene straight out of porn film, it didn't take much imagination at all to write - but for all the predictability I hope you enjoy it. 
 
  As usual, please send feedback of points you enjoy or don't enjoy. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Putting It In Carmen's Dirty-Hole ****** bygeronimo_appleby© But Carmen wasn't defeated. A thought came to her, OK, it wasn't not ideal ... But part of her found the prospect more arousing than her original intent. 
+ 
+
+===
+
+But Carmen wasn't defeated. A thought came to her, OK, it wasn't not ideal ... But part of her found the prospect more arousing than her original intent. 
 
  "I've got an idea," she said, climbing out of bed. Mark again stared at the curve of Carmen's spine and the sweep of her buttocks when the woman went to a cupboard and, stretching her lithe body deliciously in Mark's view, reached for a small bag on a high shelf. She carried the simple, plastic, zip-up holdall to the bed. She smirked at Mark's questioning gaze. "I can fuck myself with this." Mark gasped when a rubber cock waggled crazily in Carmen's fist. "And I can tickle my clit with this ..." She held up a thumb-sized vibrator. Dropping both items onto the bed, Carmen reached into the bag for a third time. "And this is for you." 
 

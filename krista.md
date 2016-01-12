@@ -1,8 +1,14 @@
+Krista
+======
 #1 
 
  
 
- ****** Krista ****** byJust_Plain_Bob© I had fantasies about it. I'd see her tied up on a bed while I beat her with a whip. I imagined sitting on a float at the lake and pushing her head underwater and holding it there every time she tried to climb out of the water. I pictured her being tied up and being tossed into a cage full of pit bulls that hadn't been fed in a week. If it was gruesome enough and painful enough I would imagine it happening to her. Who was it that brought out all this anger? None other than my older, overbearing and absolutely hateful sister. 
+ 
+
+===
+
+I had fantasies about it. I'd see her tied up on a bed while I beat her with a whip. I imagined sitting on a float at the lake and pushing her head underwater and holding it there every time she tried to climb out of the water. I pictured her being tied up and being tossed into a cage full of pit bulls that hadn't been fed in a week. If it was gruesome enough and painful enough I would imagine it happening to her. Who was it that brought out all this anger? None other than my older, overbearing and absolutely hateful sister. 
 
  Krista had decided early on that her mission in life was to torment me. From taking my toys away from me and breaking them when we were young, to ratting me out to our parents when I was older, to interfering with my love life (or more to the point - preventing me from having one) Krista went out of her way to cause me pain and grief. There was the time she told my parents that I had copies of Playboy in my room and that I looked at the pictures and masturbated. I came home one night, missing my curfew by ten minutes, and the next morning Krista said to my mom and dad, "Did you know that Bobby came home two hours late last night?" 
 

@@ -1,8 +1,14 @@
+Poor Annie Ch. 01
+=================
 #1 
 
  
 
- ****** Poor Annie Ch. 01 ****** byJust_Plain_Bob© I should have had enough sense to say no. Not that I had even the remotest thought that what happened would happen, but because I had l had gotten used to living alone. I had gotten kind of set in my ways after my wife left me. I lived alone and I liked living alone, but when my son came up to me and said, "Please dad" what could I say? His National Guard unit had just received orders sending them to Iraq. 
+ 
+
+===
+
+I should have had enough sense to say no. Not that I had even the remotest thought that what happened would happen, but because I had l had gotten used to living alone. I had gotten kind of set in my ways after my wife left me. I lived alone and I liked living alone, but when my son came up to me and said, "Please dad" what could I say? His National Guard unit had just received orders sending them to Iraq. 
 
  "Annie can't afford to keep the apartment on my allotment check and what she makes at her job. You have three bedrooms and two aren't being used for anything but storage. It is only supposed to be for six months dad and I know you can tough it out for that long. Please dad?" 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Poor Annie Ch. 02 ****** byJust_Plain_Bob© It had been a long and exhausting night and one that taught me that there wasn't any way that a horny, sex starved and sex crazed old man could stay with a horny, sex crazed young woman. Annie took everything I had and she still wanted more. When I finally fell asleep she was lying next to me trying to get herself again with her fingers. 
+ 
+
+===
+
+It had been a long and exhausting night and one that taught me that there wasn't any way that a horny, sex starved and sex crazed old man could stay with a horny, sex crazed young woman. Annie took everything I had and she still wanted more. When I finally fell asleep she was lying next to me trying to get herself again with her fingers. 
 
  Annie woke me up in the morning with a blow job and we managed to make love one time before I pushed her away from me. 
 

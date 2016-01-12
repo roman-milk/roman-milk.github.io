@@ -1,8 +1,14 @@
+Celeste
+=======
 #1 
 
  
 
- ****** Celeste ****** byJust_Plain_Bob© I stared at the note that had come in the day's mail and wondered just who in the world could hate me enough to send it to me: 
+ 
+
+===
+
+I stared at the note that had come in the day's mail and wondered just who in the world could hate me enough to send it to me: 
 
  "Hal - Just wanted you to know that your wife is the best piece of pussy I've ever had and she is damned well worth more than the hundred dollars I paid for the privilege." 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Celeste ****** byJust_Plain_Bob© "I can't bring myself to believe what I'm hearing here Cee." 
+ 
+
+===
+
+"I can't bring myself to believe what I'm hearing here Cee." 
 
  "There is more Hal. I've turned into a blackmailer. I'd seen Steve drive me crazy on that tape, but I didn't remember a second of it and I finally decided that I had to know what it was like. I tried to seduce Steve, but he wouldn't go for it so I showed him a copy of Louie's tape and told him if he didn't fuck me I'd send a copy to Marty. I made him fuck me Hal. I'm no better than Louie, in fact, I'm probably worse. Louie has always been poor and you can hardly blame him for seeing a chance to make some money and going for it, but I did it for self-gratification. I'm not sorry I did it; it was absolutely fantastic and I loved it. Steve fucks me on his desk or my desk once a day now and I'm glad to say I don't have to force him to do it. 
 

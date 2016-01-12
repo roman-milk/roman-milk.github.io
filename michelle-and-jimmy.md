@@ -1,8 +1,14 @@
+Michelle and Jimmy
+==================
 #1 
 
  
 
- ****** Michelle and Jimmy ****** byJust_Plain_Bob© I couldn't say that I wasn't warned. I had been and rather forcefully. "No!" Brian had said to me, "I will not be your best man, I will not be a party to the biggest mistake of your life." 
+ 
+
+===
+
+I couldn't say that I wasn't warned. I had been and rather forcefully. "No!" Brian had said to me, "I will not be your best man, I will not be a party to the biggest mistake of your life." 
 
  "It isn't a mistake Brian. I love her and she loves me." 
 

@@ -1,8 +1,14 @@
+Samantha, Beth and Me
+=====================
 #1 
 
  
 
- ****** Samantha, Beth and Me ****** byJust_Plain_Bob© All of the signs were there; had been for some time, but for various reasons they hadn't registered on me. The biggest reason being my job. My company had been bought out and the new management had come in, reorganized and I was scrambling to re-learn that I thought, up until then, that I had down cold. I concentrated on work and as a result I didn't notice what was going on at home. 
+ 
+
+===
+
+All of the signs were there; had been for some time, but for various reasons they hadn't registered on me. The biggest reason being my job. My company had been bought out and the new management had come in, reorganized and I was scrambling to re-learn that I thought, up until then, that I had down cold. I concentrated on work and as a result I didn't notice what was going on at home. 
 
  The one thing I did notice was that my wife Beth was working late more often than she had been and when I asked about it she explained that she was shooting for a promotion at work. 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** Samantha, Beth and Me ****** byJust_Plain_Bob© "I am not a lesbian Rob, I am bisexual; there is a difference. I have been bi- sexual since my roommate seduced me in my freshman year at college." 
+ 
+
+===
+
+"I am not a lesbian Rob, I am bisexual; there is a difference. I have been bi- sexual since my roommate seduced me in my freshman year at college." 
 
  "That doesn't matter Beth. All that matters is that you had a lover on the side; someone you snuck off with and had sex with. That was cheating Beth and cheating is the one thing that I can absolutely not abide. I loved you Beth, and you will never know how much it killed me to find out that you loved someone else." 
 
@@ -400,7 +410,11 @@
 
  
 
- ****** Samantha, Beth and Me ****** byJust_Plain_Bob© "Please baby, please." 
+ 
+
+===
+
+"Please baby, please." 
 
  She tugged on my by now stiff cock and I rolled over on top of her and she spread her legs wide and I settled in between them. As I slid into her she cried out softly, but urgently: 
 
@@ -656,7 +670,11 @@
 
  
 
- ****** Samantha, Beth and Me ****** byJust_Plain_Bob© There was silence for maybe a minute and then she asked, "Are we even now? Are the books balanced?" 
+ 
+
+===
+
+There was silence for maybe a minute and then she asked, "Are we even now? Are the books balanced?" 
 
  "As balanced as they can be." 
 

@@ -1,8 +1,10 @@
-#1 
-
+Candace's Anniversary
+=====================
  
 
- ****** Candace's Anniversary ****** byJust_Plain_Bob© I learned a lesson the other day. I found out that doing your best to take care of your family is not always appreciated and in some instances it can actually destroy your marriage. 
+===
+
+I learned a lesson the other day. I found out that doing your best to take care of your family is not always appreciated and in some instances it can actually destroy your marriage. 
 
  Candace and I have been married for more than twenty-five years and during that time we lived what most would consider an upper middle class life. We had three children, acquired a house, two cars, and all of the other things that people accumulate over the years. We also acquired the debt that goes with all those things. Candace was a stay at home mom and it fell to me to see to it that the money for the mortgage, car payments, furniture payments, money for braces for the kids, etc., etc., kept coming in. It didn't matter how much I made, it was never enough. Candace, while not necessarily greedy, never the less had an endless list of things we just had to have; tuition fund for the kids so they could go to college, a patio off the back of the house so we could entertain, new carpet because the old was showing wear, new furniture because the old stuff was sagging, new clothes because the old was out of style or did not fit any more. The end result was that the bills continued to pile up. To make the money I needed to fuel the "family machine" I worked long hours and as a result saw less and less of the family that I was taking care of. With the third child a larger house was needed which meant a larger mortgage and the need to make more money. With the new house came all the expenses of a new house like drapes, blinds, furniture for additional rooms, landscaping and a whole host of other things. This of course meant more hours at work to earn the necessary raises to cover the additional bill. It was a never ending cycle. 
 

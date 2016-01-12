@@ -1,8 +1,14 @@
+The Company Barb-B-Que
+======================
 #1 
 
  
 
- ****** The Company Barb-B-Que ****** byJust_Plain_Bob© Actually, I don't know what pissed me off the most, the fact that my asshole of a boss was fucking my wife, that half my coworkers were fucking my wife, or that my wife was doing all of this fucking without telling me about it. She knows that my favorite fantasy is to watch her with other men and for six months now she has been getting banged right and left and has hidden it from me. 
+ 
+
+===
+
+Actually, I don't know what pissed me off the most, the fact that my asshole of a boss was fucking my wife, that half my coworkers were fucking my wife, or that my wife was doing all of this fucking without telling me about it. She knows that my favorite fantasy is to watch her with other men and for six months now she has been getting banged right and left and has hidden it from me. 
 
  I found out about it quite by accident. My wife Meredith and I were at a bar-b- que at my boss's house. It was just after dark and I had gone outside to take a breather. There was a four foot brick wall around the patio and I had climbed over it, sat down with my back against it and watched the stars come out. I heard footsteps on the other side of the wall and a woman say, "Do you think that Jack (that's me) has any idea that his wife is the company whore?" 
 

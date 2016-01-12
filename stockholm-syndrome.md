@@ -1,8 +1,14 @@
+Stockholm Syndrome
+==================
 #1 
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. This story is pretty long, and it also features some very light female-on-female violence, so be warned. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. This story is pretty long, and it also features some very light female-on-female violence, so be warned. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© They now could both take in Jessica's fully nude form. It was so jarring to see a strange, nude woman in their bedroom. The only woman who had ever been nude in this room was Tammy. But just seeing this new and gorgeous naked woman in this room was a jarring change. 
+ 
+
+===
+
+They now could both take in Jessica's fully nude form. It was so jarring to see a strange, nude woman in their bedroom. The only woman who had ever been nude in this room was Tammy. But just seeing this new and gorgeous naked woman in this room was a jarring change. 
 
  Tammy hated that there was not a flaw or blemish anywhere on her. She watched her perfect ass bounce as she walked to the bed, towards John. John looked up to the ceiling, not wanting to give Jessica the pleasure of catching him staring at her naked form. He exhaled loudly, nervous for what was about to happen. 
 
@@ -310,7 +320,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© Watching this bugged Tammy more than anything she had seen so far. Watching Jessica whisper in his ear, whispering something she didn't want Tammy to hear. Then watching her start kissing him. It just seemed so intimate. Like something that lovers would do. 
+ 
+
+===
+
+Watching this bugged Tammy more than anything she had seen so far. Watching Jessica whisper in his ear, whispering something she didn't want Tammy to hear. Then watching her start kissing him. It just seemed so intimate. Like something that lovers would do. 
 
  Jessica pulled her lips from John's neck and leaned up over him. Tammy could see Jessica start flexing her ass, no doubt tightening her pussy against John's hard dick. John groaned out loud, now back on edge. Then, she stopped. 
 
@@ -444,7 +458,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© John looked over at Tammy. He hated to see her so defeated. Tied up. Helpless. The fact that she just wanted to get through it and move on just kinda bugged him for some reason. He wanted to see more fight from her. He liked to see her yelling and cursing at Jessica, not just sitting there and watching, crying. He loved that fight in her. She had always been a very independent, strong woman. But Jessica's actions were wearing her down. Jessica humiliating her was, in fact, getting to her. 
+ 
+
+===
+
+John looked over at Tammy. He hated to see her so defeated. Tied up. Helpless. The fact that she just wanted to get through it and move on just kinda bugged him for some reason. He wanted to see more fight from her. He liked to see her yelling and cursing at Jessica, not just sitting there and watching, crying. He loved that fight in her. She had always been a very independent, strong woman. But Jessica's actions were wearing her down. Jessica humiliating her was, in fact, getting to her. 
 
  John wondered what Tammy was thinking. She said she understood what he was going through, that it was okay with her that he had responded physically. But he wondered if that was the truth. He wondered if part of her was afraid that he was enjoying himself too much. That maybe he enjoyed the sex with Jessica more than he let on. Then he remembered the late night blowjob. 
 
@@ -582,7 +600,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© "Hmm, I bet. She probably wears a one piece on the beach, to cover her oh so sensitive skin. I bet you hate her one-pieces. I bet you wish she would slut it up and wear a string bikini and a thong to the beach. Not that it would help. It would just show off her terrible body. Expose all of that pale skin. She's so pale it would probably blind you. She's not trying to please anyone visually. It's practical, not sexy. Her own behavior shows that she knows that she has little to offer, so she doesn't even try. You know what the fact that she burns easily tells me? It tells me she was not built to attract. She was not meant to be attractive to a man. She couldn't pull off a teeny bikini if she tried. Her body was not built for it. Only sluts like me can pull them off." 
+ 
+
+===
+
+"Hmm, I bet. She probably wears a one piece on the beach, to cover her oh so sensitive skin. I bet you hate her one-pieces. I bet you wish she would slut it up and wear a string bikini and a thong to the beach. Not that it would help. It would just show off her terrible body. Expose all of that pale skin. She's so pale it would probably blind you. She's not trying to please anyone visually. It's practical, not sexy. Her own behavior shows that she knows that she has little to offer, so she doesn't even try. You know what the fact that she burns easily tells me? It tells me she was not built to attract. She was not meant to be attractive to a man. She couldn't pull off a teeny bikini if she tried. Her body was not built for it. Only sluts like me can pull them off." 
 
  "I bet you love going to the beach, don't you? I bet you love staring at those tanned beach sluts in their tiny bikinis. And when they make eyes at you, and see what your wife has to offer, I bet they all know what you're thinking. I bet they see what you're thinking in your dirty little mind. They know that you are dying to sneak away from the hag. Maybe sneak away after she takes a nap. After she had asked you to wake her up if she falls asleep so she doesn't burn. Those sluts know that you are dying to sneak down the beach, take a tanned beach slut in each arm, find a nice shady spot, and fuck their brains out. Your wife would be getting roasted in the sun when you're spraying your load inside some slut you barely know. Your wife would be woken up by some slut screaming in orgasm around her husband's dick. That's what you would be thinking, right?" Jessica said. 
 
@@ -718,7 +740,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© "Oh, Fuck Yes!" Jessica screamed out, cumming from the violent ass fucking. 
+ 
+
+===
+
+"Oh, Fuck Yes!" Jessica screamed out, cumming from the violent ass fucking. 
 
  "Holy Shit!" John yelled out, her ass providing a pleasure he had never experienced. His hips leapt off of the bed as cum started spewing out of his dick into her warm, welcoming ass. Her clenching ass just drew the cum out of his balls in just the right way. His dick just kept spewing and spewing. How did she keep doing this to him? How did she keep making him cum in unbelievable amounts? After shooting what felt like a gallon of cum deep into Jessica's ass, he fell back to the bed, completely drained. She lifted her ass up until his softening dick plopped out of her ass onto his torso. John watched her asshole tighten to its previous form, quickly looking good as new. 
 
@@ -892,7 +918,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© "I bet you've visited her at work before. Right, John? It must be funny, thinking about it. She realized she is of a lower class than most of us, so she went to a job where she serves people their money. She is forced to help richer people handle their money. She is forced to sit on her ass and give rich, successful people their money. I bet there's not a moment that goes by that she's not jealous of those rich, successful women that come through her line. She understands her inferiority, so she put herself in a position where she serves those that are better than her." 
+ 
+
+===
+
+"I bet you've visited her at work before. Right, John? It must be funny, thinking about it. She realized she is of a lower class than most of us, so she went to a job where she serves people their money. She is forced to help richer people handle their money. She is forced to sit on her ass and give rich, successful people their money. I bet there's not a moment that goes by that she's not jealous of those rich, successful women that come through her line. She understands her inferiority, so she put herself in a position where she serves those that are better than her." 
 
  "I bet you noticed this when you visited her. You saw all of those rich, gorgeous women get their money, and you wished you had married one of them instead. I bet one of those rich sluts saw you sitting there, and they couldn't resist saying hello. How could they? How could they resist a stud like you? These rich women, they think they can get whoever they want. It doesn't matter if you're married. And they hit on you. And you were receptive, but resistant. I bet you kept turning these sluts away, trying desperately to stay loyal to your wife. But then that one slut came along. That one who was irresistible. That one who made it clear she would do anything. That she was a total slut. And you were just about ready to walk out with her. To get in her Porsche, drive to her mansion, and spend some quality time together. To trade up from this nasty life into the good one, with a nasty slut. A rich slut who could give you anything you ever wanted. But then your wife came along to ruin your fun. To drag you back to this crappy place, and your crappy marriage. I bet there's not a day that's gone by where you didn't wonder where you would be if you had left with that slut. I bet there's not a day that's gone by where you didn't wonder how tight that bitch's pussy would be. How much of your dick you could get in her ass. Right?" Jessica asked. 
 
@@ -1064,7 +1094,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© "Here, drink up John. It'll cure what ails you." Jessica said. Jessica put the mug against his lips and tipped it upward. Warm girl-cum slid into his mouth, filling it. She let him take in the taste. He couldn't help but slosh it around his mouth, whetting his appetite, before gulping it down. John was shocked at the taste. Why did everything about her taste so good? Her pussy had tasted amazing when he ate her out earlier. And the mouthful of girl-cum he just swallowed? It tasted great! Jessica's warm girl-cum tasted great. It had only made him want to drink the rest of that cup and beg for more. Even Jessica's asshole tasted great. Why did every part of this woman taste so good? He had gone down on Tammy once, and never again. It was not a pleasant experience for him. And her asshole in no way looked appetizing like Jessica's did. Why was that? Why was it that his wife did not agree with him taste wise? Why was it that Jessica matched his appetite perfectly? 
+ 
+
+===
+
+"Here, drink up John. It'll cure what ails you." Jessica said. Jessica put the mug against his lips and tipped it upward. Warm girl-cum slid into his mouth, filling it. She let him take in the taste. He couldn't help but slosh it around his mouth, whetting his appetite, before gulping it down. John was shocked at the taste. Why did everything about her taste so good? Her pussy had tasted amazing when he ate her out earlier. And the mouthful of girl-cum he just swallowed? It tasted great! Jessica's warm girl-cum tasted great. It had only made him want to drink the rest of that cup and beg for more. Even Jessica's asshole tasted great. Why did every part of this woman taste so good? He had gone down on Tammy once, and never again. It was not a pleasant experience for him. And her asshole in no way looked appetizing like Jessica's did. Why was that? Why was it that his wife did not agree with him taste wise? Why was it that Jessica matched his appetite perfectly? 
 
  He did not have time to think about this more as Jessica tipped the mug, pouring its contents into his mouth again. He opened wide, trying to get as much of her girl-cum as he could into his mouth. Once filled, he savored the taste again for as long as he could before swallowing and opening his mouth wide, begging for more. She poured the remaining girl-cum into his mouth, before setting the mug down. Once he swallowed it, he realized how hard his dick was. Her girl-cum tasted so good it was making him hard. 
 
@@ -1188,7 +1222,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© John realized how deeply crazy this woman was. She was a self-centered, evil bitch. A smoking hot, big-titted, self-centered, evil bitch. Was she right, though? Was allowing her to de-stress by fucking her on a regular basis in order for her to perform her job better a bad thing? Not necessarily. She might be evil, but she did save lives. Would choosing to fuck her on a regular basis, to serve her, would that constitute an act of charity? 
+ 
+
+===
+
+John realized how deeply crazy this woman was. She was a self-centered, evil bitch. A smoking hot, big-titted, self-centered, evil bitch. Was she right, though? Was allowing her to de-stress by fucking her on a regular basis in order for her to perform her job better a bad thing? Not necessarily. She might be evil, but she did save lives. Would choosing to fuck her on a regular basis, to serve her, would that constitute an act of charity? 
 
  "I think you can be that man, John? In fact, I know you're that man. We were meant to be together. Will you be that man for me?" Jessica asked. John paused, taken aback. He was already married. Jessica may be ridiculously hot and sexy, but that's not enough for a man to leave a woman, is it? 
 
@@ -1338,7 +1376,11 @@
 
  
 
- ****** Stockholm Syndrome ****** byTheTalkMan© John would get away with cheating because his wife was too naïve to understand the truth. Understand that some men really like to fuck. Some men like their women to slut it up. Some men like to have a slut in the bedroom. Men like their women to be sexual. Men don't like prudes in the bedroom. Tammy thought that what she provided should be enough to hold onto a man. John now realized how little effort she had put in to making herself attractive for him. Jessica had done more for him sexually in the last three days than Tammy had done in the last three years. And if she thought he could go back to the same vanilla sex after experiencing what Jessica had to offer, then she was mistaken. But she would not change. The sex would stay the same. If she tried to be rough like Jessica was, it would just come across as pathetic. A poor excuse for the real thing. John knew that in the back of her head Tammy knew the truth. She knew he had fucked Jessica because he wanted to. But she would lie to herself. She would hide the truth. Tammy was naïve enough to let her husband fuck Jessica and come back to her. Tammy was naïve enough to believe that her husband would come back to her after experiencing real sex, what a real woman had to offer. If she was that stupid, then John lost all respect for her intelligence. She clearly had no idea how the world worked. 
+ 
+
+===
+
+John would get away with cheating because his wife was too naïve to understand the truth. Understand that some men really like to fuck. Some men like their women to slut it up. Some men like to have a slut in the bedroom. Men like their women to be sexual. Men don't like prudes in the bedroom. Tammy thought that what she provided should be enough to hold onto a man. John now realized how little effort she had put in to making herself attractive for him. Jessica had done more for him sexually in the last three days than Tammy had done in the last three years. And if she thought he could go back to the same vanilla sex after experiencing what Jessica had to offer, then she was mistaken. But she would not change. The sex would stay the same. If she tried to be rough like Jessica was, it would just come across as pathetic. A poor excuse for the real thing. John knew that in the back of her head Tammy knew the truth. She knew he had fucked Jessica because he wanted to. But she would lie to herself. She would hide the truth. Tammy was naïve enough to let her husband fuck Jessica and come back to her. Tammy was naïve enough to believe that her husband would come back to her after experiencing real sex, what a real woman had to offer. If she was that stupid, then John lost all respect for her intelligence. She clearly had no idea how the world worked. 
 
  Jessica was right. Their marriage was over. John tossed the handcuffs on the floor. 
 

@@ -1,8 +1,14 @@
+The Nice Bloke
+==============
 #1 
 
  
 
- ****** The Nice Bloke ****** bygeronimo_appleby© Thank-you, Ryan and Chip. Any errors that remain in the text are all my own fuck-ups! 
+ 
+
+===
+
+Thank-you, Ryan and Chip. Any errors that remain in the text are all my own fuck-ups! 
 
                                         1 
 
@@ -182,7 +188,11 @@
 
  
 
- ****** The Nice Bloke ****** bygeronimo_appleby© I was relieved when no jealous husband jumped out of the shadows wielding an axe. ... 
+ 
+
+===
+
+I was relieved when no jealous husband jumped out of the shadows wielding an axe. ... 
 
  She was a hard, aggressive driver, piloting the car like it was a missile. Rosalinde gave me a look of chagrin when music filled the car; a girlish smile, like I'd caught her eating forbidden chocolate. 
 
@@ -374,7 +384,11 @@
 
  
 
- ****** The Nice Bloke ****** bygeronimo_appleby© Rosalinde's fingers curled around my cock. 
+ 
+
+===
+
+Rosalinde's fingers curled around my cock. 
 
  My hangover was forgotten in an instant. I was suddenly huge in her fist. 
 

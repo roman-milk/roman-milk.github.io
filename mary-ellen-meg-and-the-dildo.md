@@ -1,8 +1,14 @@
+Mary Ellen, Meg and The Dildo
+=============================
 #1 
 
  
 
- ****** Mary Ellen, Meg and The Dildo ****** byJust_Plain_Bob© I didn't think that I would ever be able to contribute a story like this, not in a hundred years. My wife and I have always gotten a kick out of reading the posted stories and they have certainly spiced up our sex life, but several years back we discussed my watching her with another man and we decided that neither of us was really interested in doing it. But we still read the stories. 
+ 
+
+===
+
+I didn't think that I would ever be able to contribute a story like this, not in a hundred years. My wife and I have always gotten a kick out of reading the posted stories and they have certainly spiced up our sex life, but several years back we discussed my watching her with another man and we decided that neither of us was really interested in doing it. But we still read the stories. 
 
  My wife Mary Ellen and I are working professionals in our early thirties and one of our shared interests is photography. I have taken literally thousands of photos of Mary Ellen and have even posted about sixty of them on various web sites. The feedback has always been great and there are hundreds, if not thousands, of guys out there who would love to fuck Mary Ellen. 
 

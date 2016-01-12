@@ -1,8 +1,14 @@
+Cara's Mother
+=============
 #1 
 
  
 
- ****** Cara's Mother ****** byJust_Plain_Bob© When Darryl and his family moved in next door I took an instant dislike to him. He was a professor at the local community college and was just as arrogant and egotistical as most of the professors I'd studied under. His wife Judy, on the other hand, was as sweet as they come. She was a little on the plain side, wore her hair up in a bun all the time and it seemed like every dress she owned was a shapeless sack, but she was sweetheart and I loved talking to her. She and Darryl also had a sixteen-year-old daughter who was a walking wet dream. Cara may only have been sixteen, but she looked and acted every bit of twenty-one. 
+ 
+
+===
+
+When Darryl and his family moved in next door I took an instant dislike to him. He was a professor at the local community college and was just as arrogant and egotistical as most of the professors I'd studied under. His wife Judy, on the other hand, was as sweet as they come. She was a little on the plain side, wore her hair up in a bun all the time and it seemed like every dress she owned was a shapeless sack, but she was sweetheart and I loved talking to her. She and Darryl also had a sixteen-year-old daughter who was a walking wet dream. Cara may only have been sixteen, but she looked and acted every bit of twenty-one. 
 
  I lived alone - my wife of eleven years having taken off with a drummer for a rock band, a kid ten years younger than she was. I hadn't heard from her and I hoped that I never would. If she would just stay away for another six months I would be able to sue for divorce on the grounds of abandonment and I would get the house and everything and the bitch wouldn't get a dime. 
 

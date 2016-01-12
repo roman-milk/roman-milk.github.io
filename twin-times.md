@@ -1,8 +1,14 @@
+Twin Times Ch. 01
+=================
 #1 
 
  
 
- ****** Twin Times Ch. 01 ****** bygeronimo_appleby© My sister and I are twins, as are our father and his sister. There have been twin siblings in our family as far back as is recorded, not every generation had a set, but a quick look over our family tree reveals a very high incidence indeed. 
+ 
+
+===
+
+My sister and I are twins, as are our father and his sister. There have been twin siblings in our family as far back as is recorded, not every generation had a set, but a quick look over our family tree reveals a very high incidence indeed. 
 
  As is common with twins, my sister and I are very close. Too close you could say, but that was our little secret. At least we thought it was until last week, last week events really took off in our house, let me explain. 
 
@@ -146,13 +152,21 @@
 
  
 
- ****** Twin Times Ch. 01 ****** bygeronimo_appleby© We knew we had our own little secret; well it was more like a big secret really! But little did we know that ours wasn't the only dark secret in the house. 
+ 
+
+===
+
+We knew we had our own little secret; well it was more like a big secret really! But little did we know that ours wasn't the only dark secret in the house. 
 
  Do you want me to go on??  
 
  
 
- ****** Twin Times Ch. 02 ****** bygeronimo_appleby© My sister and I continued our incestuous affair, taking every opportunity to enjoy our illicit coupling. Belinda continued to visit my bed, rarely sleeping in her own. She would go to her room each evening and spend a few minutes under her own covers, just to give the impression that her bed had been used. 
+ 
+
+===
+
+My sister and I continued our incestuous affair, taking every opportunity to enjoy our illicit coupling. Belinda continued to visit my bed, rarely sleeping in her own. She would go to her room each evening and spend a few minutes under her own covers, just to give the impression that her bed had been used. 
 
  We explored each other's bodies with fingers and tongues, rapidly adding to our repertoire of positions as we discovered new ways in which to bring each other pleasure. I adored the taste and texture of Belinda's pussy, and would quite happily tongue her syrupy centre for what seemed like hours at a time. In turn Belinda would lovingly suck and lick my dick, bringing me almost to boiling point before ceasing her oral attention. This would drive me almost insane with desire for her, and would inevitably lead to a hot, frenzied, forbidden fuck. 
 
@@ -282,7 +296,11 @@
 
  
 
- ****** Twin Times Ch. 02 ****** bygeronimo_appleby© 'Oh!' she cried in surprise as the hot stuff spattered against her skin. 'God Sammy, how much of the stuff can one man hold.' Aunt Felicity wiped my viscous cream from her face, leaving the stuff that clung to her blouse unheeded. She stood a little unsteadily and pulled her skirt down over her thighs. 
+ 
+
+===
+
+'Oh!' she cried in surprise as the hot stuff spattered against her skin. 'God Sammy, how much of the stuff can one man hold.' Aunt Felicity wiped my viscous cream from her face, leaving the stuff that clung to her blouse unheeded. She stood a little unsteadily and pulled her skirt down over her thighs. 
 
  No sooner had she recovered her modesty than an approaching car's headlights split the night sky, and seconds later someone sped past us as they headed home. Aunt Felicity grabbed my arm and we laughed at our close call as we carried on down the lane towards the house. 
 
@@ -388,7 +406,11 @@
 
  
 
- ****** Twin Times Ch. 03 ****** bygeronimo_appleby© If you've been following the previous two chapters you'll know what's going on with my family. If not then - To cut a long story short, my sister and I began an incestuous affair during our long vacation from university. Our aunt saw us during a tryst in the summerhouse one afternoon, and she seduced me later that evening after a visit to our local pub. We had just come to the finale of a very energetic fuck when my father burst into the bedroom, catching us as we basked in the post coital glow of our love making. 
+ 
+
+===
+
+If you've been following the previous two chapters you'll know what's going on with my family. If not then - To cut a long story short, my sister and I began an incestuous affair during our long vacation from university. Our aunt saw us during a tryst in the summerhouse one afternoon, and she seduced me later that evening after a visit to our local pub. We had just come to the finale of a very energetic fuck when my father burst into the bedroom, catching us as we basked in the post coital glow of our love making. 
 
  Although I didn't know it at the moment of my father's entrance, he and Aunt Felicity, his sister, had also been having an incestuous affair. 
 
@@ -558,7 +580,11 @@
 
  
 
- ****** Twin Times Ch. 03 ****** bygeronimo_appleby© I put my index finger to my lips in a theatrical gesture for her to be quiet. She nodded at me and then clasped my hand while I led her towards the door. I let Belinda take the first look and I saw her body stiffen when the full effect of what she was witnessing hit her. 
+ 
+
+===
+
+I put my index finger to my lips in a theatrical gesture for her to be quiet. She nodded at me and then clasped my hand while I led her towards the door. I let Belinda take the first look and I saw her body stiffen when the full effect of what she was witnessing hit her. 
 
  I moved close behind my sister and looked into the room. Aunt Felicity was playing a blinder. She had my father flat on his back on the bed, she was holding his huge cock upright and was once again slobbering and licking the large helmet. 
 

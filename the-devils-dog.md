@@ -1,8 +1,14 @@
+The Devil's Dog
+===============
 #1 
 
  
 
- ****** The Devil's Dog ****** bygeronimo_appleby© Here's my Halloween story. It's quite brief and non-erotic. If you're expecting a jizz-fest from me, you'll be let-down. There's no sex in this one. 
+ 
+
+===
+
+Here's my Halloween story. It's quite brief and non-erotic. If you're expecting a jizz-fest from me, you'll be let-down. There's no sex in this one. 
 
  Still, I hope you enjoy the tale enough to vote. I do have a concern that it won't hit the 25 votes needed to be eligible in the Halloween contest, but Non- Erotic is where it belongs. 
 
@@ -308,7 +314,11 @@
 
  
 
- ****** The Devil's Dog ****** bygeronimo_appleby© Then I'll wander, some instinct taking me to wherever I need to be for next Halloween. 
+ 
+
+===
+
+Then I'll wander, some instinct taking me to wherever I need to be for next Halloween. 
 
  The prospect of another year alone drags at my guts. I'm heart-sore, close to genuine grief when I think about it. A drink would be welcome, a proper drink, something hard to smash the melancholy that's gripping me. 
 

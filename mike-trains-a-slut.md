@@ -1,8 +1,14 @@
+Mike Trains a Slut
+==================
 #1 
 
  
 
- ****** Mike Trains a Slut ****** byColdfinger© Mike smiled to himself as he gazed at the bare ass of his Aunt Beth, unconsciously stroking his hard cock straining against the material of his running shorts. Beth was bent over the big oak desk in his grandfather's office, waiting for ten strokes from the switch that lay on the desk next to her. As he stroked at his cock, Mike reflected on the events that had led to this situation. 
+ 
+
+===
+
+Mike smiled to himself as he gazed at the bare ass of his Aunt Beth, unconsciously stroking his hard cock straining against the material of his running shorts. Beth was bent over the big oak desk in his grandfather's office, waiting for ten strokes from the switch that lay on the desk next to her. As he stroked at his cock, Mike reflected on the events that had led to this situation. 
 
  Mike, now a strapping nineteen year old, had been orphaned fours years earlier when his Mother, Father and Uncle Dean had been killed in a plane crash. Beth was Mike's Aunt by marriage to Uncle Dean. 
 
@@ -254,7 +260,11 @@
 
  
 
- ****** Mike Trains a Slut ****** byColdfinger© Deciding that this was not nearly as horrible as she had expected, Beth inhaled the head of the twitching cock once more, alternately sucking at it and swirling her tongue around and around. All the while her hand steadily jacked up and down the shaft, using the other hand to roll his balls gently back and forth like marbles, massaging them lightly. 
+ 
+
+===
+
+Deciding that this was not nearly as horrible as she had expected, Beth inhaled the head of the twitching cock once more, alternately sucking at it and swirling her tongue around and around. All the while her hand steadily jacked up and down the shaft, using the other hand to roll his balls gently back and forth like marbles, massaging them lightly. 
 
  Mike's breath was becoming ragged now, the hot boiling sensation growing stronger as Beth's hand and mouth worked faster along his raging cock. Thrusting his hips forward, he began to feed more and more of his cock into her mouth, moving back and forth. Beth responded, her lips sliding further down his shaft, feeling it starting to twitch more and more vigorously. 
 
@@ -486,7 +496,11 @@
 
  
 
- ****** Mike Trains a Slut ****** byColdfinger© Beth licked her lips, "I want you to fuck me," she said softly, nervously. 
+ 
+
+===
+
+Beth licked her lips, "I want you to fuck me," she said softly, nervously. 
 
  "Sorry Beth couldn't quite hear you." 
 
@@ -552,7 +566,11 @@
 
  
 
- ****** Mike Trains a Slut Ch. 02 ****** byColdfinger© Mike stretched lazily, struggling to suppress a loud yawn. He didn't usually nap in the afternoon, but his Aunt Beth was testing his stamina. They had spent the past few days having sex in every corner of the house. Beth had become a willing and obedient slut and seemed to be keen on catching up on all the years of sexual neglect she had endured at the whim of her late husband and a few other selfish lovers. 
+ 
+
+===
+
+Mike stretched lazily, struggling to suppress a loud yawn. He didn't usually nap in the afternoon, but his Aunt Beth was testing his stamina. They had spent the past few days having sex in every corner of the house. Beth had become a willing and obedient slut and seemed to be keen on catching up on all the years of sexual neglect she had endured at the whim of her late husband and a few other selfish lovers. 
 
  For her part, Beth was humming to herself as she prepared the evening meal. Apart from her ass still being a little tender from the punishment of a few days ago, she felt good, relaxed for the first time in years. She was surprised at her own reaction to what had happened. 
 
@@ -792,7 +810,11 @@
 
  
 
- ****** Mike Trains a Slut Ch. 02 ****** byColdfinger© Dismayed at being stopped short of a thunderous climax Beth lifted her trembling leg over and flopped onto the floor in front of Mike, who stood there cock in hand lapping up at the scene before him. 
+ 
+
+===
+
+Dismayed at being stopped short of a thunderous climax Beth lifted her trembling leg over and flopped onto the floor in front of Mike, who stood there cock in hand lapping up at the scene before him. 
 
  "What the fuck is going on here?" boomed the voice. 
 

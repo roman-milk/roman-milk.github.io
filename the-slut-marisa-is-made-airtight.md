@@ -1,8 +1,14 @@
+The Slut Marisa is Made Airtight
+================================
 #1 
 
  
 
- ****** The Slut Marisa is Made Airtight ****** bygeronimo_appleby© A story with it's central character inspired by bootgrrl. It's a fantasy she tells me she'd love to play out in realty one day. 
+ 
+
+===
+
+A story with it's central character inspired by bootgrrl. It's a fantasy she tells me she'd love to play out in realty one day. 
 
  Read it, and if you enjoy it then please vote. Also send feedback that you think could be relevant. 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** The Slut Marisa is Made Airtight ****** bygeronimo_appleby© At almost the same time as Pete fired his load into Marisa's mouth, the man pumping into her cunt grunted and shuddered and Marisa squealed loudly when she felt the second load burst inside her body. 
+ 
+
+===
+
+At almost the same time as Pete fired his load into Marisa's mouth, the man pumping into her cunt grunted and shuddered and Marisa squealed loudly when she felt the second load burst inside her body. 
 
  Marisa lifted herself up from the pool table and stepped down onto the floor. 'I need to ride one of you now,' she said as she looked for a suitable platform. 
 

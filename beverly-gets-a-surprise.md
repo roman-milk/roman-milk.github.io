@@ -1,8 +1,14 @@
+Beverly Gets a Surprise
+=======================
 #1 
 
  
 
- ****** Beverly Gets a Surprise ****** byJust_Plain_Bob© I was just carrying the last of my things into Sarah's bedroom when I heard the garage door opener start to run. I glanced at my watch and saw that it was only ten-thirty and I thought "That sure didn't take long. Only three and a half hours to wreck a marriage that had lasted twenty-three years. Actually, it had taken less than five minutes. 
+ 
+
+===
+
+I was just carrying the last of my things into Sarah's bedroom when I heard the garage door opener start to run. I glanced at my watch and saw that it was only ten-thirty and I thought "That sure didn't take long. Only three and a half hours to wreck a marriage that had lasted twenty-three years. Actually, it had taken less than five minutes. 
 
  I heard the door from the garage into the utility room open and then close and then I heard her high heels clicking across the tiled kitchen floor and then across the hardwood floor to the stairs. The heels made no noise on the carpeted steps, but I could still hear her coming. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Beverly Gets a Surprise ****** byJust_Plain_Bob© I was sitting at the desk going over the Snelling contract and making notes on some things that needed to be changed or clarified when Beverly came into the room. 
+ 
+
+===
+
+I was sitting at the desk going over the Snelling contract and making notes on some things that needed to be changed or clarified when Beverly came into the room. 
 
  "We have to have a serious talk Rob. Things are getting way out of hand here." 
 

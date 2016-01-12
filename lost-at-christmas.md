@@ -1,8 +1,14 @@
+Lost at Christmas
+=================
 #1 
 
  
 
- ****** Lost at Christmas ****** byTx_Tall_Tales© This story is a little different from most I've written. It seems in the past while writing a lot of my stories, I've tried to keep in mind what people are looking for, what feedback I've gotten, etc. I try to make sure that when splitting stories into sections, each one has a nice 'scene' to it. I've also often sanitized the setting, to make it less obvious exactly where and when it occurred. This time out of the chute, I'm writing this one for me. Just recounting one of the most memorable occasions in my life. I hope you like it. If you don't, that's alright too. It's probably too late for the contest, and not quite titillating enough for most, but it's my favorite Christmas memory of all. (And for anyone keeping track, it's the same Mike from my Road-Trip series.) Thanks for reading. 
+ 
+
+===
+
+This story is a little different from most I've written. It seems in the past while writing a lot of my stories, I've tried to keep in mind what people are looking for, what feedback I've gotten, etc. I try to make sure that when splitting stories into sections, each one has a nice 'scene' to it. I've also often sanitized the setting, to make it less obvious exactly where and when it occurred. This time out of the chute, I'm writing this one for me. Just recounting one of the most memorable occasions in my life. I hope you like it. If you don't, that's alright too. It's probably too late for the contest, and not quite titillating enough for most, but it's my favorite Christmas memory of all. (And for anyone keeping track, it's the same Mike from my Road-Trip series.) Thanks for reading. 
 
  ----------------------- 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Lost at Christmas ****** byTx_Tall_Tales© "You know, that was one of the most memorable moments in my life. Touching a girl like that for the first time. I had no idea what I should do, or what I could do, but I kept looking down the row at Dennis and Suzanne, and figured I should be able to do that too. I was in heaven; you were so amazing to be with." I told her, reaching out and taking her hand in mine. Her palm was moist. 
+ 
+
+===
+
+"You know, that was one of the most memorable moments in my life. Touching a girl like that for the first time. I had no idea what I should do, or what I could do, but I kept looking down the row at Dennis and Suzanne, and figured I should be able to do that too. I was in heaven; you were so amazing to be with." I told her, reaching out and taking her hand in mine. Her palm was moist. 
 
  "You're telling me? You were the big 9th grader with the learner's permit and motorcycle. Big Man on Campus. The guy every girl wanted. And you wanted me. I had no idea what we should or shouldn't do on a date. I was hoping you knew." 
 
@@ -380,7 +390,11 @@
 
  
 
- ****** Lost at Christmas ****** byTx_Tall_Tales© I admitted that I really liked two people, you and her. Then she asked me if I minded if she 'monopolized' me for a while. I went along. You know the rest. One out-of-town bus trip. One back-row of the movie. And me completely screwing everything up." 
+ 
+
+===
+
+I admitted that I really liked two people, you and her. Then she asked me if I minded if she 'monopolized' me for a while. I went along. You know the rest. One out-of-town bus trip. One back-row of the movie. And me completely screwing everything up." 
 
  She listened without showing too much surprise. "But how come you never tried anything after that?" 
 
@@ -622,7 +636,11 @@
 
  
 
- ****** Lost at Christmas ****** byTx_Tall_Tales© "Merry Christmas. Don't forget about me. 
+ 
+
+===
+
+"Merry Christmas. Don't forget about me. 
 
  Love, Sheri" 
 

@@ -1,8 +1,14 @@
+A New Life
+==========
 #1 
 
  
 
- ****** A New Life ****** byGotBacon© I'm Eric. I'm 28 years old and I stand 6ft 2in high. I weight around 210 pounds. I'm a carpenter by trade and I work for a guy that builds tract houses. My boss likes me because I show up every day on time and give him an honest day's work. Because of this he pays me a little extra in cash each pay period. There is nothing better than tax fee income. I have a secret stash in my garage. I use it for little surprises for my wife. Sometime a sexy nightgown or a piece of jewelry. I'm saving up now for a vacation in Hawaii. It will be the biggest surprise yet for Sarah. 
+ 
+
+===
+
+I'm Eric. I'm 28 years old and I stand 6ft 2in high. I weight around 210 pounds. I'm a carpenter by trade and I work for a guy that builds tract houses. My boss likes me because I show up every day on time and give him an honest day's work. Because of this he pays me a little extra in cash each pay period. There is nothing better than tax fee income. I have a secret stash in my garage. I use it for little surprises for my wife. Sometime a sexy nightgown or a piece of jewelry. I'm saving up now for a vacation in Hawaii. It will be the biggest surprise yet for Sarah. 
 
  Sarah is my lovely 26 year old wife. She works for the courts as a court recorder. She runs one of those funny typewriters. She is just 5ft tall and weighs around 100 pounds. She has B cups but they look bigger due to her small size. She is the love of my life and an absolutely the best fuck I ever had. She can make me cum just using her pussy muscles. It's surprising but her favorite fucking position is missionary. She says she like the weight of her man on her. 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** A New Life ****** byGotBacon© "Oh fuck yes. Milk it baby. Milk my cock." 
+ 
+
+===
+
+"Oh fuck yes. Milk it baby. Milk my cock." 
 
  My pussy muscles hold him in the breeding position and I milk his cock with all my might. He flexes again and I cry out and cum. I squeeze and he flexes. I cum again. Finally I feel his cock swelling. My pussy muscles grip his cock and I feel it flare. His hot cum hitting my cervix pushes me over the edge. More hot cum pumps into me and I start screaming and cumming. He pumps and pumps. I hear his cries too. I milk every drop from him. I give it one last squeeze and feel the last drops of his cum go in. His cock starts to shrink and my cervix closes as he pulls out. All of this load of cum is in my womb too. He falls off to my side and his cock comes out with a slurp. He pulls me into his arms and kisses me on the neck. 
 
@@ -592,7 +602,11 @@
 
  
 
- ****** A New Life ****** byGotBacon© I decide to make an appointment with my doctor. I need to have him confirm that I'm really pregnant. He has a cancellation and can see me tomorrow afternoon. 
+ 
+
+===
+
+I decide to make an appointment with my doctor. I need to have him confirm that I'm really pregnant. He has a cancellation and can see me tomorrow afternoon. 
 
  I show up on time and the nurse shows me into an examination room. The doctor walks in. 
 
@@ -892,7 +906,11 @@
 
  
 
- ****** A New Life ****** byGotBacon© "Who's Sandy. She's my best friend and my lover." 
+ 
+
+===
+
+"Who's Sandy. She's my best friend and my lover." 
 
  "You're lover?" 
 
@@ -1188,7 +1206,11 @@
 
  
 
- ****** A New Life ****** byGotBacon© "Well, everyone. I've had enough fun for one weekend. I have to work tomorrow." 
+ 
+
+===
+
+"Well, everyone. I've had enough fun for one weekend. I have to work tomorrow." 
 
  Everyone says good bye. I get dressed and go home. I fill the tub and pour some Epsom salts in. I soak till I run out of hot water. I fall into bed and go to sleep immediately. 
 

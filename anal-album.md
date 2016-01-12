@@ -1,8 +1,14 @@
+Anal Album
+==========
 #1 
 
  
 
- ****** Anal Album ****** bygeronimo_appleby© I was going to put this up for the Valentine's Day Contest but, after taking a good look, decided that it really isn't in the spirit of that contest. The valentine's references in this piece are spurious rather than an integral theme. So, here it is, a rehash of an old theme; a photographer taking dirty pictures, but I do hope you enjoy it. If you do, send feedback, if you don't, send feedback... 
+ 
+
+===
+
+I was going to put this up for the Valentine's Day Contest but, after taking a good look, decided that it really isn't in the spirit of that contest. The valentine's references in this piece are spurious rather than an integral theme. So, here it is, a rehash of an old theme; a photographer taking dirty pictures, but I do hope you enjoy it. If you do, send feedback, if you don't, send feedback... 
 
  Thanks to those who helped with it. The ones who looked at it in embryonic form and made comments. Some I've used, some I've discounted. A special thanks to lovemonster for the time she put in checking my inumerable errors; I do appreciate it. Any errors that remain are purely my own 'cos I'm too lazy to check it again. 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Anal Album ****** bygeronimo_appleby© "You're giving me that cream," Annabel groaned. "Bathe my guts with semen you filthy cunt. Pump it deep." 
+ 
+
+===
+
+"You're giving me that cream," Annabel groaned. "Bathe my guts with semen you filthy cunt. Pump it deep." 
 
  The man writhed and moaned, no doubt fulfilling the Lady's wish, as well as filling her rectum. Spent and panting he rolled from her as soon as he was done, probably in accordance with earlier instructions. 
 

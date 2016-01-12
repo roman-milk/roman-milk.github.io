@@ -1,8 +1,14 @@
+Watching Another's Wife
+=======================
 #1 
 
  
 
- ****** Watching Another's Wife ****** byJust_Plain_Bob© I was laid off from my job on December 16th. It was not totally unexpected as I had known for over a year that the lay-off was coming, but I had been told the effective date would be in mid-March so I was a little stunned when they kicked me out in December. When I took the lay-off it had been my intention to just collect unemployment for a couple of months and catch up on some things that I had let slide around the house, but after two weeks I was going stir crazy. So, on the first Thursday in January I answered an ad in the local paper, was hired on the spot and put to work the same day. 
+ 
+
+===
+
+I was laid off from my job on December 16th. It was not totally unexpected as I had known for over a year that the lay-off was coming, but I had been told the effective date would be in mid-March so I was a little stunned when they kicked me out in December. When I took the lay-off it had been my intention to just collect unemployment for a couple of months and catch up on some things that I had let slide around the house, but after two weeks I was going stir crazy. So, on the first Thursday in January I answered an ad in the local paper, was hired on the spot and put to work the same day. 
 
  The second day on the job I was sent to the front office to sign insurance forms and there was Mona. Mona and her husband George were neighbors. George was a bank vice president and Mona had been selling real estate. I was surprised to see her there because I thought she was still selling real estate. I asked her how long she had been there and she said she had been working there for a little over two months. She told me that selling houses was getting to be too cut-throat, that there were too many agents scrambling around for too few houses and nobody was making any money at real estate anymore. 
 

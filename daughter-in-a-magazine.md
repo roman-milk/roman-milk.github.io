@@ -1,8 +1,14 @@
+Daughter in a Magazine
+======================
 #1 
 
  
 
- ****** Daughter in a Magazine ****** bygeronimo_appleby© The shock of recognition hit me like a slap to the face when I saw her smiling openly and brazenly from between the pages of the men's magazine. I don't usually look at that type of publication, but I was idly thumbing through the pages whilst on my break at work. Someone had left the magazine lying on the table in the coffee area and since the place was deserted and I had nothing else in particular to do... 
+ 
+
+===
+
+The shock of recognition hit me like a slap to the face when I saw her smiling openly and brazenly from between the pages of the men's magazine. I don't usually look at that type of publication, but I was idly thumbing through the pages whilst on my break at work. Someone had left the magazine lying on the table in the coffee area and since the place was deserted and I had nothing else in particular to do... 
 
  The magazine in question had a section devoted to reader's wives and it was in that particular area that I saw the pictures of Emma, my daughter. 
 

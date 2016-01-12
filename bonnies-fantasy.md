@@ -1,8 +1,14 @@
+Bonnie's Fantasy
+================
 #1 
 
  
 
- ****** Bonnie's Fantasy ****** byJust_Plain_Bob© Bonnie was bored. Actually, Bonnie was beyond bored. She was ready to scream and start breaking things just to have something to do. The house was clean, the laundry was done, folded and put away. That night's dinner was even done, or at least in the crock pot cooking. It was only ten in the morning and all she had to look forward too until jack got home was a bunch of idiotic TV shows. Every day it was the same. She felt like an animal in a cage. She was stuck in the house, her only outside activities the Tuesday and Thursday afternoon card games and the Monday night that Jack insisted that she should go out with her girl friends. The card games were with a group of women who were just as bored out of their skulls as she was and the only thing they did was sit and bitch about their husbands. The Monday night out with the girls was a joke and all it did was frustrate her. It didn't matter if she went out alone or with a bunch of girls the outcome was always the same. She would get hit on which made her horny and then she went home to a sleeping husband. She sometimes wondered what would happen if she did have a fling on one of her nights out. She had been tempted a time or two, but she couldn't bring herself to give in to the temptation. She loved Jack, had loved him from the first second he had approached her with his shy smile and introduced himself. There had never been a second of doubt that he was the man for her. So certain had she been that she gave him her virginity on their second date. But as much as she loved Jack she felt that something was missing from her life, from her marriage. She and Jack were in a sexual rut. The same positions, the same foreplay, the same words, the predictability of how Jack would act; it was almost as if he were programmed. She enjoyed sex with Jack, but lately it seemed to lack the fire of their early years together. Still, another man was out of the question - except in her fantasies of course. 
+ 
+
+===
+
+Bonnie was bored. Actually, Bonnie was beyond bored. She was ready to scream and start breaking things just to have something to do. The house was clean, the laundry was done, folded and put away. That night's dinner was even done, or at least in the crock pot cooking. It was only ten in the morning and all she had to look forward too until jack got home was a bunch of idiotic TV shows. Every day it was the same. She felt like an animal in a cage. She was stuck in the house, her only outside activities the Tuesday and Thursday afternoon card games and the Monday night that Jack insisted that she should go out with her girl friends. The card games were with a group of women who were just as bored out of their skulls as she was and the only thing they did was sit and bitch about their husbands. The Monday night out with the girls was a joke and all it did was frustrate her. It didn't matter if she went out alone or with a bunch of girls the outcome was always the same. She would get hit on which made her horny and then she went home to a sleeping husband. She sometimes wondered what would happen if she did have a fling on one of her nights out. She had been tempted a time or two, but she couldn't bring herself to give in to the temptation. She loved Jack, had loved him from the first second he had approached her with his shy smile and introduced himself. There had never been a second of doubt that he was the man for her. So certain had she been that she gave him her virginity on their second date. But as much as she loved Jack she felt that something was missing from her life, from her marriage. She and Jack were in a sexual rut. The same positions, the same foreplay, the same words, the predictability of how Jack would act; it was almost as if he were programmed. She enjoyed sex with Jack, but lately it seemed to lack the fire of their early years together. Still, another man was out of the question - except in her fantasies of course. 
 
  Because of all her free time Bonnie watched a lot of soap operas in the afternoon and she fantasized about being fucked silly by some of the handsome male stars. One of her few secrets from Jack was the large dildo that was in her panty drawer. It had been given to her as a gag gift at her bridal shower along with a note that said, "For the times you are alone." She had been using it a lot lately, an awful lot. But even fucking herself with a fake cock while fantasizing it was some handsome stud was getting old. Lately her fantasies had taken a surprising turn. She had been thinking a lot about black men. It was surprising in that she was Southern, born and bred, and from a family that was as racist as it was was possible to be. To her folks Blacks were 'mud people' and had been put on Earth for the sole purpose of serving the white race. That it wasn't so was due to the fact that the misguided beliefs of Northern rabble- rousers and flaming liberals had upset the natural order of things. 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** Bonnie's Fantasy ****** byJust_Plain_Bob© "Why did you do that to me? I thought you were my friend." 
+ 
+
+===
+
+"Why did you do that to me? I thought you were my friend." 
 
  "I am your friend sweetie," Jeanie said. "Didn't I manage to get you the best fuck of your life?" 
 

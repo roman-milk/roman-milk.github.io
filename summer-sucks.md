@@ -1,8 +1,14 @@
+Summer Sucks!
+=============
 #1 
 
  
 
- ****** Summer Sucks! ****** byTx_Tall_Tales© --------- 
+ 
+
+===
+
+--------- 
 
  His Summer Job Clients Suck. Literally. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Summer Sucks! ****** byTx_Tall_Tales© She took a linen napkin off the table, and wiped me gently, observing my manhood. "How long before it's ready to go again?" she asked. 
+ 
+
+===
+
+She took a linen napkin off the table, and wiped me gently, observing my manhood. "How long before it's ready to go again?" she asked. 
 
  I looked down at her, disparate to find out how much more she'd allow me to do. "With a little attention, just a few moments," I assured her. 
 
@@ -378,7 +388,11 @@
 
  
 
- ****** Summer Sucks! ****** byTx_Tall_Tales© My very first girl raised up enough to kiss me. I could taste the saltiness of her tears on my lips, and hoped I hadn't pushed the envelope too hard. Her first soft kiss was followed by a series of gentle pecks all over my face, ending with another deep soulful mouth exploration from her devilish tongue. 
+ 
+
+===
+
+My very first girl raised up enough to kiss me. I could taste the saltiness of her tears on my lips, and hoped I hadn't pushed the envelope too hard. Her first soft kiss was followed by a series of gentle pecks all over my face, ending with another deep soulful mouth exploration from her devilish tongue. 
 
  When my new friend rolled off of me, the warm cloth cleaned me up once more, before I was helped to my feet. I was wary of being able to perform again after that blowout, but Sandra returned the robe to my shoulders and walked me to the door. 
 
@@ -706,7 +720,11 @@
 
  
 
- ****** Summer Sucks! ****** byTx_Tall_Tales© "You too." She gave my hand a little squeeze. "You can keep a secret right?" 
+ 
+
+===
+
+"You too." She gave my hand a little squeeze. "You can keep a secret right?" 
 
  "Absolutely." 
 

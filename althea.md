@@ -1,8 +1,14 @@
+Althea
+======
 #1 
 
  
 
- ****** Althea ****** byJust_Plain_Bob© I should have known better. I should have remembered that old saying, "If it looks too good to be true, it is." 
+ 
+
+===
+
+I should have known better. I should have remembered that old saying, "If it looks too good to be true, it is." 
 
  I was in love. She was damned near all I thought about with the exception of my studies and it didn't make sense to me. I prided myself on my intellect and my ability to think logically, but there wasn't anything logical about the way I felt about Althea. She was beautiful, smart and very popular and I was not. I wasn't a bed looking guy, but I was nothing exceptional. I was smart, but popular was something I had never been and probably would never be. Not that I didn't want to be, but for some reason shy, nerdy types like me were avoided. I didn't play sports; all I did was study and concentrate on my passion - computers and the wondrous things that you can do with them. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Althea ****** byJust_Plain_Bob© "That sounds suspiciously like you intend to keep on doing it." 
+ 
+
+===
+
+"That sounds suspiciously like you intend to keep on doing it." 
 
  "Of course I do Herb. I already pointed out that it hasn't hurt us." 
 

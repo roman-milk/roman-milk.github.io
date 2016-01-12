@@ -1,8 +1,14 @@
+Lost
+====
 #1 
 
  
 
- ****** Lost ****** bygeronimo_appleby© Foreword 
+ 
+
+===
+
+Foreword 
 
  A mature brother/sister piece this time. Caroline is 45, her brother Simon is twelve years younger. She's staying in his London apartment during a divorce. One afternoon, Simon arrives home early... 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** Lost ****** bygeronimo_appleby© I was lost in a pit of depravity. 
+ 
+
+===
+
+I was lost in a pit of depravity. 
 
  "Oh God, Oh Jesus," my sister blasphemed. She had my dick in her hand, the shaft upright while my swollen cock-head was aimed at her pussy. "I'm damned," she went on in a whisper, then rubbed the slippery dome through her labia and over her clit. "Incest," Caroline mumbled, the word clotted with need as she sank down, her velvet embrace closing over my girth. "Isn't this so fucking wrong?" added my sister, her breasts squashing against me when she leaned in low to kiss my mouth. 
 

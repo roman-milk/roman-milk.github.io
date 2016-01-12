@@ -1,8 +1,14 @@
+On the Canal Bank and After
+===========================
 #1 
 
  
 
- ****** On the Canal Bank and After ****** bygeronimo_appleby© Okay, here's my entry for the Earth Day contest. I'm not 100% as to which category it should go in, so it'll be interesting (for me) to see where it ends up. 
+ 
+
+===
+
+Okay, here's my entry for the Earth Day contest. I'm not 100% as to which category it should go in, so it'll be interesting (for me) to see where it ends up. 
 
  It begins with Amy watching her mother as they take part in an Earth Day project to clean up the local canal bank. Amy has a suspicion her mother might have a new lover in the offing, but she's determined to put a stop to their hanky-panky. 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** On the Canal Bank and After ****** bygeronimo_appleby© What the hell was she doing? 
+ 
+
+===
+
+What the hell was she doing? 
 
  The congratulations were coming to an end. The crowd of volunteers, happy and self-satisfied, begin to drift away. 
 
@@ -468,7 +478,11 @@
 
  
 
- ****** On the Canal Bank and After ****** bygeronimo_appleby© Her mother will be back soon. 
+ 
+
+===
+
+Her mother will be back soon. 
 
  He gives her a few seconds more. He can see signs of her inner turmoil. Anthony knows she wants to have her say, to berate him for the affair with her mother. He isn't sure how the girl knows, but is certain that's why she's here. 
 
@@ -758,7 +772,11 @@
 
  
 
- ****** On the Canal Bank and After ****** bygeronimo_appleby© I gasp and groan and try to hold it together by distancing myself. I think about the canal clean-up and what a success the day was. There will be column inches in the local rag, nothing like the inches of column that Amy is so noisily appreciating at this moment, but I'll have my name and picture in the paper. This is the start for me, with local elections looming and my name on the ballot. 
+ 
+
+===
+
+I gasp and groan and try to hold it together by distancing myself. I think about the canal clean-up and what a success the day was. There will be column inches in the local rag, nothing like the inches of column that Amy is so noisily appreciating at this moment, but I'll have my name and picture in the paper. This is the start for me, with local elections looming and my name on the ballot. 
 
  It works, my mental diversion gains me enough ground that I hold the flood back while Amy succumbs to her orgasm. 
 

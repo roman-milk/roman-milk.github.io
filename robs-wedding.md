@@ -1,8 +1,14 @@
+Rob's Wedding
+=============
 #1 
 
  
 
- ****** Rob's Wedding ****** byJust_Plain_Bob© The music started and all the guests stood and looked toward the back of the church as the bride on the arm of her father started down the aisle toward my son who stood there watching her walk toward him. Forty-eight hours ago I'd have given odds of ten thousand to one that the wedding would never happen. I still didn't understand why it was taking place, but who in the hell can understand kids these days. Oh well, it was Rob's life to live, not mine, but I would have thought that the night of his bachelor party would have been a wake up call. 
+ 
+
+===
+
+The music started and all the guests stood and looked toward the back of the church as the bride on the arm of her father started down the aisle toward my son who stood there watching her walk toward him. Forty-eight hours ago I'd have given odds of ten thousand to one that the wedding would never happen. I still didn't understand why it was taking place, but who in the hell can understand kids these days. Oh well, it was Rob's life to live, not mine, but I would have thought that the night of his bachelor party would have been a wake up call. 
 
  ++++++++++++++++ 
 

@@ -1,8 +1,14 @@
+Karen's Repairman
+=================
 #1 
 
  
 
- ****** Karen's Repairman ****** byJust_Plain_Bob© Author's note: If the "N" word upsets you give this one a pass. 
+ 
+
+===
+
+Author's note: If the "N" word upsets you give this one a pass. 
 
  * 
 

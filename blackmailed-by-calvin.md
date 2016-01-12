@@ -1,8 +1,14 @@
+Blackmailed By Calvin
+=====================
 #1 
 
  
 
- ****** Blackmailed By Calvin ****** byJust_Plain_Bob© As far as company parties went this one wasn't all that bad. It would have been better off if her husband had come with her, but with a project that was behind schedule and a deadline looming he had to work late to catch up. It was awkward being the only unattached woman at the party. All the single guys seemed to see her as a target of opportunity and they were vying with each other to see who might get lucky. They kept bringing her fresh drinks and she was glad that she had taken a room for the night. There was absolutely no sense taking a chance on driving after drinking the amount she was taking in. She didn't mind the attention and she knew what they were up too and she also knew that none of them had a chance. What self-respecting white woman was going to have anything to do with a black man? 
+ 
+
+===
+
+As far as company parties went this one wasn't all that bad. It would have been better off if her husband had come with her, but with a project that was behind schedule and a deadline looming he had to work late to catch up. It was awkward being the only unattached woman at the party. All the single guys seemed to see her as a target of opportunity and they were vying with each other to see who might get lucky. They kept bringing her fresh drinks and she was glad that she had taken a room for the night. There was absolutely no sense taking a chance on driving after drinking the amount she was taking in. She didn't mind the attention and she knew what they were up too and she also knew that none of them had a chance. What self-respecting white woman was going to have anything to do with a black man? 
 
  Her eyes opened and she was staring up at an unfamiliar ceiling. Before she could panic enough of the fog cleared away to let her remember that she had taken a room at the hotel. She felt odd, almost as if she'd had a workout at the gym, and she had a salty bitter taste in her mouth. She sat up and noticed that she was completely naked. That was strange - she never slept in the nude. She swung out of bed and went to use the toilet and as soon as her legs came together she felt the soreness and she looked down and saw that her pubic hair had a crust and she noticed that her left breast had a love bite. More confused than ever she continued on her way to the toilet and as she passed by the vanity mirror she got a good overall look at herself. Her hair was damp and matted, she had hickeys on her neck, her nipples were bruised and there were dried white spots all over her face, breasts and stomach. She knew as soon as she saw them what they were - dried cum stains! What the hell had happened to her last night? More to the point - who had happened to her last night? 
 

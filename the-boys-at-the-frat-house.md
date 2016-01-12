@@ -1,8 +1,14 @@
+The Boys at the Frat House
+==========================
 #1 
 
  
 
- ****** The Boys at the Frat House ****** byJust_Plain_Bob© The Boys At The Frat House By Just Plain Bob 
+ 
+
+===
+
+The Boys At The Frat House By Just Plain Bob 
 
  Stephanie and I had been living in Houston in a rented apartment when her parents died in an automobile accident. In their will they left Steph their house in a college town that I will not name and we flew back to put the house on the market. Once there we found that the job market was good and that work in both our fields was plentiful and so we decided to keep the house and relocate. The house was located on a street that was known as "fraternity row" since two thirds of the fraternity and sorority houses were located on it. Our house was about an eighth of a mile from them and it meant a lot of traffic on the street, especially on Fridays and Saturdays, but that was pretty much the only drawback to living there. 
 

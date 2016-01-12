@@ -1,8 +1,14 @@
+Getting to Know the Daughter in Law
+===================================
 #1 
 
  
 
- ****** Getting to Know the Daughter in Law ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com:81/forum/. Go to Authors Hangout and look for Open Letter from Just Plain Bob. 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com:81/forum/. Go to Authors Hangout and look for Open Letter from Just Plain Bob. 
 
  * 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** Getting to Know the Daughter in Law ****** byJust_Plain_Bob© She'd had to admit that she'd gotten an unusually strong orgasm when Dan had sucked the three men out of her. It had been a major, major turn on, but she didn't think it was something that she could chance doing too often. Luckily she had David to fall back on when she needed her pussy sucked clean. He was still reluctant where she was concerned, but she had learned from Tiffany. Her son was a wimp and all she had to do was be assertive. Whoever would have thought that ordering your own son to eat your cum filled pussy would be such a turn on. 
+ 
+
+===
+
+She'd had to admit that she'd gotten an unusually strong orgasm when Dan had sucked the three men out of her. It had been a major, major turn on, but she didn't think it was something that she could chance doing too often. Luckily she had David to fall back on when she needed her pussy sucked clean. He was still reluctant where she was concerned, but she had learned from Tiffany. Her son was a wimp and all she had to do was be assertive. Whoever would have thought that ordering your own son to eat your cum filled pussy would be such a turn on. 
 
  ++++++++++++++++++++++++++ 
 

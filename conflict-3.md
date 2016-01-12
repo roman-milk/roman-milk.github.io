@@ -1,8 +1,14 @@
+Conflict
+========
 #1 
 
  
 
- ****** Conflict ****** bygeronimo_appleby© Foreword 
+ 
+
+===
+
+Foreword 
 
  A short incest piece this time. Amy arrives the evening before her sister's wedding. She goes to bed in her brother's hotel room, exhausted after a long flight from Malaysia to Europe... 
 
@@ -312,7 +318,11 @@
 
  
 
- ****** Conflict ****** bygeronimo_appleby© He lit up and sucked smoke deep. 
+ 
+
+===
+
+He lit up and sucked smoke deep. 
 
  "What are we going to do?" Gareth asked. 
 

@@ -1,8 +1,14 @@
+Snowed In
+=========
 #1 
 
  
 
- ****** Snowed In ****** bygeronimo_appleby© Here's a quick one I put out for the V-Day contest. It was written on the fly, but I hope you enjoy it despite the rush. 
+ 
+
+===
+
+Here's a quick one I put out for the V-Day contest. It was written on the fly, but I hope you enjoy it despite the rush. 
 
  Feedback is appreciated. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** Snowed In ****** bygeronimo_appleby© Even as those thoughts tumbled through his head Adam knew it was hypocritical of him. After all he'd been spying on Gillian only a short time before. He had little compunction about tugging his cock until it spat cum while he fantasised about scenes very similar to the one he was living; but being there with Gillian like they were, incest hung in the air like smoke on the wind. 
+ 
+
+===
+
+Even as those thoughts tumbled through his head Adam knew it was hypocritical of him. After all he'd been spying on Gillian only a short time before. He had little compunction about tugging his cock until it spat cum while he fantasised about scenes very similar to the one he was living; but being there with Gillian like they were, incest hung in the air like smoke on the wind. 
 
  And reality was so far removed from fantasy. It was just so wrong to be where he was, naked, with her. 
 
@@ -478,7 +488,11 @@
 
  
 
- ****** Snowed In ****** bygeronimo_appleby© She still struggled to fully appreciate it was actually her own brother she was sucking on. The invitation to join her in the bath had been a spur of the moment decision and it had gone very serious very quickly: she'd been in the bath and called for a drink. Adam had complied and then they were talking about their parents' situation, the awful threat of their divorce. After that, Gillian wasn't too clear on just what had happened. She recalled some quip about her brother having seen her nude, but then it got weird. 
+ 
+
+===
+
+She still struggled to fully appreciate it was actually her own brother she was sucking on. The invitation to join her in the bath had been a spur of the moment decision and it had gone very serious very quickly: she'd been in the bath and called for a drink. Adam had complied and then they were talking about their parents' situation, the awful threat of their divorce. After that, Gillian wasn't too clear on just what had happened. She recalled some quip about her brother having seen her nude, but then it got weird. 
 
  The way he'd looked at her—all hungry and desperate, well, it had been a similar expression to the one she'd seen on Alan's face when she'd taken her clothes off for him. Gillian could recall the arterial burst of lust she'd experienced for her brother, but the invitation to join her in the water had come from nowhere. 
 

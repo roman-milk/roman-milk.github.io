@@ -1,8 +1,14 @@
+Consent
+=======
 #1 
 
  
 
- ****** Consent ****** bygeronimo_appleby© The knocking at the door persisted and eventually penetrated the layers of sleep. The rain had stopped and whoever was out there wasn't going away. A number of possibilities came to mind, none of them good. It had to be connected to the girl. Her father; her mother; a boyfriend ...? I've always been a glass half empty kind of bloke, a pessimist. 
+ 
+
+===
+
+The knocking at the door persisted and eventually penetrated the layers of sleep. The rain had stopped and whoever was out there wasn't going away. A number of possibilities came to mind, none of them good. It had to be connected to the girl. Her father; her mother; a boyfriend ...? I've always been a glass half empty kind of bloke, a pessimist. 
 
  My accommodation was a static caravan, the place I'd come to bash out the fourth in a series of novels, and escape out of a back door was impossible, simply because there was no back door. I didn't fancy the ignominious prospect of being seen by a neighbour, no matter how transitory their stay at the holiday camp might be, so shuffling my middle-aged arse out of a window was a non-starter as well. 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** Consent ****** bygeronimo_appleby© "Don't mark me," she warned with a whimper. 
+ 
+
+===
+
+"Don't mark me," she warned with a whimper. 
 
  My mind missed the significance of this instruction since was it was filled with other matters but I simply lifted my teeth from the indented flesh and squirmed my fingers deeper into her body, screwing them around, searching for the rough place inside her. I added my thumb to the equation and rubbed the ball over the slippery bud of her clitoris. Her head lifted and her face turned towards mine. I saw the heavy-lidded glaze of her own desire on her face as she pressed her torso against me and reached for my belt buckle. My fingers came out of her sodden opening smeared with lust when, in an act I found to be even more stimulating than licking her anus or feeling her body clench around my expeditionary fingers, she kissed me for the second time. 
 
@@ -266,7 +276,11 @@
 
  
 
- ****** Consent ****** bygeronimo_appleby© "That's it," she panted. "Tell me ... tell me what you're going to do ..." 
+ 
+
+===
+
+"That's it," she panted. "Tell me ... tell me what you're going to do ..." 
 
  "When I'm ready," I snarled, "and when my cock's wet with your bubbling cunt, I'm going to take us to the bed and I'm going to lie with my cock upright and you can watch your arse stretch around it as you slide down." A sob burst from her mouth. "Would you like that? Would you enjoy watching your sphincter being stretched?" 
 

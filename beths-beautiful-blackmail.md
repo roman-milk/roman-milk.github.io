@@ -1,8 +1,14 @@
+Beth's Beautiful Blackmail
+==========================
 #1 
 
  
 
- ****** Beth's Beautiful Blackmail ****** bysilkstockingslover© I am a track coach at a prestigious college. I should explain I am black, 5'10 and have an athlete's body. Small breasts, long firm legs and am perfectly fit. Ashley, my new and upcoming track star was as white as they come, with blonde hair, perky small breasts, long perfectly tanned legs and an ass so tight even straight people noticed it. 
+ 
+
+===
+
+I am a track coach at a prestigious college. I should explain I am black, 5'10 and have an athlete's body. Small breasts, long firm legs and am perfectly fit. Ashley, my new and upcoming track star was as white as they come, with blonde hair, perky small breasts, long perfectly tanned legs and an ass so tight even straight people noticed it. 
 
  Anyhow, Ashley was a great runner, but had major problems taking orders from me. I quickly realized it was a race issue and decided to do something about it. Now I should say that I have almost always kept my work life and my sex life separate, but when Ashley gave me attitude day after day, I decided to do something about it. Then I met her mother at our first track meet and it all came together. Ashley finished 2nd, which is very good for a first year college student, but her mom implied to me that it was my coaching that prevented her from winning. Ashley had never lost a track meet in high school and thus was not used to defeat. Anyways, I told her mother, Mary, to meet me in my office on Monday after practice and we could discuss this situation. She left in a huff, but told me she would be there. I called Ashley into my office on Monday morning. 
 
@@ -420,7 +426,11 @@
 
  
 
- ****** Beth's Beautiful Blackmail ****** bysilkstockingslover© As she laid there, on the floor, eight loads of cum in her cunt, I took more pictures. I then said, "I expect there will be no more problems from you will there?" 
+ 
+
+===
+
+As she laid there, on the floor, eight loads of cum in her cunt, I took more pictures. I then said, "I expect there will be no more problems from you will there?" 
 
  "No," she whimpered. 
 

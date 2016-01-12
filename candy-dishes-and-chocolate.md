@@ -1,8 +1,14 @@
+Candy Dishes and Chocolate
+==========================
 #1 
 
  
 
- ****** Candy Dishes and Chocolate ****** byJust_Plain_Bob© I suppose it really started two years ago when I was working for a small community newspaper in Colorado. It was the holiday season and, as in a lot of places, when the holiday season arrived the offices take on a gay, festive air. Banners and posters appear, Christmas cards get pinned up on cork memo boards and desks suddenly sprout scented candles and candy dishes. It was a candy dish that did it; a candy dish and Dove dark chocolate individually wrapped squares. 
+ 
+
+===
+
+I suppose it really started two years ago when I was working for a small community newspaper in Colorado. It was the holiday season and, as in a lot of places, when the holiday season arrived the offices take on a gay, festive air. Banners and posters appear, Christmas cards get pinned up on cork memo boards and desks suddenly sprout scented candles and candy dishes. It was a candy dish that did it; a candy dish and Dove dark chocolate individually wrapped squares. 
 
  +++++ 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Candy Dishes and Chocolate ****** byJust_Plain_Bob© "No, nothing like that. As hard as it may be for you to believe I'm actually here to offer you my help if you should need any." 
+ 
+
+===
+
+"No, nothing like that. As hard as it may be for you to believe I'm actually here to offer you my help if you should need any." 
 
  "You? Help me? And you expect me to believe that?" 
 
@@ -408,7 +418,11 @@
 
  
 
- ****** Candy Dishes and Chocolate ****** byJust_Plain_Bob© "What do you mean it won't do?" 
+ 
+
+===
+
+"What do you mean it won't do?" 
 
  "It's too small for the three of us." 
 

@@ -1,8 +1,14 @@
+Dan's Homecoming
+================
 #1 
 
  
 
- ****** Dan's Homecoming ****** byJust_Plain_Bob© As far as business trips go this one was a bust. The client I was to meet with had a burst appendix two hours into our first meeting and had to be carried off to the hospital. As a result I was home two days early. Beverly's car was in the driveway; good, I thought, I was horny as a goat and a round in the sack and a good dinner at Carl's Chop House would do me just fine. 
+ 
+
+===
+
+As far as business trips go this one was a bust. The client I was to meet with had a burst appendix two hours into our first meeting and had to be carried off to the hospital. As a result I was home two days early. Beverly's car was in the driveway; good, I thought, I was horny as a goat and a round in the sack and a good dinner at Carl's Chop House would do me just fine. 
 
  I walked in the house and hollered, "Bev, I'm home." No answer. Maybe she was taking a nap. I carried my suitcase into the bedroom and stopped dead at the sight in front of me. What are you supposed to do when you walk into your bedroom after a two-day absence and find it looking like a whorehouse? A pair of high heels lying on the floor with a pair of black lace panties draped across the toe of one - panties with a thin white crust on the crotch band; an open box of condoms on the bedside table and three used condoms tied off and thrown into the waist basket by the bed. There was another used condom floating in the toilet bowl, and the room fairly reeked of sex. It was pretty obvious to me that my bride was using my absence to play around, and I wondered how long it had been going on. 
 

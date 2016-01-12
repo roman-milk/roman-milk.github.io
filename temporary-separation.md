@@ -1,8 +1,14 @@
+Temporary Separation
+====================
 #1 
 
  
 
- ****** Temporary Separation ****** byGotBacon© My wife of ten years walked into the living room and handed me a glass of my favorite wine. This wasn't unusual. She tended to spoil me. Not a lot, but just enough for me to notice and make me spoil her. She had a serious look on her face that got me to wondering what was up. I had a bad feeling that I wouldn't like it. 
+ 
+
+===
+
+My wife of ten years walked into the living room and handed me a glass of my favorite wine. This wasn't unusual. She tended to spoil me. Not a lot, but just enough for me to notice and make me spoil her. She had a serious look on her face that got me to wondering what was up. I had a bad feeling that I wouldn't like it. 
 
  "Honey, we need to talk." 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Temporary Separation ****** byGotBacon© I looked around near the office for an apartment. I found one and signed a month to month rental agreement. I found a company called 'Two guys with a truck' and moved some of the furniture and kitchen stuff to my apartment. I loaded all my clothes and personal stuff in my car. I returned the rental car and had them drive me back to my car. I stayed busy the rest of the day getting my apartment ready to live in. 
+ 
+
+===
+
+I looked around near the office for an apartment. I found one and signed a month to month rental agreement. I found a company called 'Two guys with a truck' and moved some of the furniture and kitchen stuff to my apartment. I loaded all my clothes and personal stuff in my car. I returned the rental car and had them drive me back to my car. I stayed busy the rest of the day getting my apartment ready to live in. 
 
  Tuesday morning I was parked in sight of Sarah's office. The process server was standing by. I saw Sarah drive up. I watched her walk in the front door and I called the server. 
 
@@ -556,6 +566,10 @@
 
  
 
- ****** Temporary Separation ****** byGotBacon© I saw Sarah a few times but we never spoke. Later I heard through the grapevine that she transferred to another city. I didn't ask which one. I really didn't care. 
+ 
+
+===
+
+I saw Sarah a few times but we never spoke. Later I heard through the grapevine that she transferred to another city. I didn't ask which one. I really didn't care. 
 
  Ten years later Amy and I are still madly in love and still trying to fuck each other to death. Report_Story 

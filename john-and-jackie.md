@@ -1,8 +1,14 @@
+John and Jackie
+===============
 #1 
 
  
 
- ****** John and Jackie ****** byJust_Plain_Bob© John Beckman sat in his lawyer's office and waited for him to get off the phone. Christ! Only six months ago he and Jackie had been so happy together and now here he was starting divorce proceedings. He thought back to the night when he gave in to Jackie and let her live out her fantasy. For months she had been after him to take her to an adult movie theatre where she could watch the X- rated movie and tease the men present and then go home for a wild night of sex. While the idea had excited him, he was afraid that things might get out of hand and so he had resisted her, but Jackie had kept after him and he had finally relented. 
+ 
+
+===
+
+John Beckman sat in his lawyer's office and waited for him to get off the phone. Christ! Only six months ago he and Jackie had been so happy together and now here he was starting divorce proceedings. He thought back to the night when he gave in to Jackie and let her live out her fantasy. For months she had been after him to take her to an adult movie theatre where she could watch the X- rated movie and tease the men present and then go home for a wild night of sex. While the idea had excited him, he was afraid that things might get out of hand and so he had resisted her, but Jackie had kept after him and he had finally relented. 
 
  ++++++++++++++++++++ 
 

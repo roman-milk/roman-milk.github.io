@@ -1,8 +1,14 @@
+Alana Asserts Herself
+=====================
 #1 
 
  
 
- ****** Alana Asserts Herself ****** byJust_Plain_Bob© I sat in my office staring out the window with thoughts of murder on my mind. Murder would be the quickest way to go and it would definitely be the most satisfying, but I also know that there is no such thing as the Perfect Crime - not for an ordinary guy like me anyway - and I have no desire to go to jail. Who would I like to do in? My loving wife of course, and all because we both love sex. 
+ 
+
+===
+
+I sat in my office staring out the window with thoughts of murder on my mind. Murder would be the quickest way to go and it would definitely be the most satisfying, but I also know that there is no such thing as the Perfect Crime - not for an ordinary guy like me anyway - and I have no desire to go to jail. Who would I like to do in? My loving wife of course, and all because we both love sex. 
 
  Alana and I married after a whirlwind courtship. We met at a cocktail party in LA on a Thursday night, spent all of Friday and half a day Saturday in bed and then drove to Vegas and were married on Saturday night. I know, I can hear it now, "You met and got married in the space of twenty-four hours and you got marriage problems? Well duh!" 
 
@@ -66,7 +72,11 @@
 
  
 
- ****** Alana Asserts Herself Ch. 02 ****** byJust_Plain_Bob© When the idea finally came to me it had the benefit of utter simplicity. All I had to do was act normally and let the pieces fall into place. 
+ 
+
+===
+
+When the idea finally came to me it had the benefit of utter simplicity. All I had to do was act normally and let the pieces fall into place. 
 
  It had been three weeks since I had walked out of the house and I had not spoken to Alana in all that time. Not because she didn't try to get in touch with me, but because I wanted nothing to do with her. I came home at three in the afternoon when I knew she would still be at work and moved myself into the spare bedroom. I was in the kitchen making myself a sandwich when Alana came home. Having seen my car in the garage she knew I was there and she came running into the house calling out my name. I ignored her as she went through the house calling out for me. She finally came into the kitchen, saw me and then she ran to me and threw her arms around me. 
 

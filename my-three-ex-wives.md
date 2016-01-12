@@ -1,8 +1,14 @@
+My Three Ex-Wives
+=================
 #1 
 
  
 
- ****** My Three Ex-Wives ****** byJust_Plain_Bob© I am getting more pussy now than I have ever gotten before in my life and it boggles the mind that it is happening. I have three women who are trying to fuck my brains out. The odd thing is that one time all three of them hated my guts and all three of them, with varying degrees of success, had tried to ruin me. All three of them are ex-wives. 
+ 
+
+===
+
+I am getting more pussy now than I have ever gotten before in my life and it boggles the mind that it is happening. I have three women who are trying to fuck my brains out. The odd thing is that one time all three of them hated my guts and all three of them, with varying degrees of success, had tried to ruin me. All three of them are ex-wives. 
 
  I married Helen in 1956 when I was eighteen and stupid and we were married just a little over seven years. The marriage ended when I came home from work early one day and found her playing hide the sausage with the asshole who was supposed to be my best friend. The divorce was a very bitter one and the custody fights over the three kids went on for the next ten years with neither of us willing to give an inch. Helen usually prevailed because the court system was loaded in favor of the woman even when you could show evidence of bad character. The Helen dropped out of sight and I didn't see her or hear about her for the next twenty years. 
 

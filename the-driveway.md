@@ -1,8 +1,14 @@
+The Driveway
+============
 #1 
 
  
 
- ****** The Driveway ****** byJust_Plain_Bob© I found out about my wife quite by accident. Well, actually it was a combination of her lack of self-control and an accident. 
+ 
+
+===
+
+I found out about my wife quite by accident. Well, actually it was a combination of her lack of self-control and an accident. 
 
  For some time now I have suspected that Mary has been having an affair. No one thing, just a lot of little things seem to point in that direction. It all started when Mary went back to work. When our youngest started kindergarten Mary took on a full time job with a new company just starting up in the mortgage referral business. When she started the job she found that most of her fellow workers were in their mid twenties and early thirties and single. They would work long hours and then they would go out drinking together. Mary always felt like an outsider because she couldn't join the group; she always had to put in her eight hours and then hurry home to her second career as wife and mother. Because she felt that she needed to develop a rapport with her co- workers I agreed to come home early one night a week to watch the kids so she could go out with the group. 
 

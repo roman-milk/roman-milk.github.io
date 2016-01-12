@@ -1,8 +1,14 @@
+&quot;Oh&quot; Submission Town: A Mother Falls
+==============================================
 #1 
 
  
 
- ****** &quot;Oh&quot; Submission Town: A Mother Falls ****** bysilkstockingslover© "Oh" Submission Town: A Mother Falls 
+ 
+
+===
+
+"Oh" Submission Town: A Mother Falls 
 
  Summary: Wholesome MILF gets pulled into submission by domme daughter. 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: A Mother Falls ****** bysilkstockingslover© "Me too," Cinthia agreed, throwing another innuendo at her mother, "I am really worn out myself." 
+ 
+
+===
+
+"Me too," Cinthia agreed, throwing another innuendo at her mother, "I am really worn out myself." 
 
  The Mother's mind flashed back to seeing her daughter getting fucked by Tommy's big, thick, hard cock. 
 
@@ -518,7 +528,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: A Mother Falls ****** bysilkstockingslover© 
+ 
+
+===
+
+
 
  ..... 
 
@@ -804,7 +818,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: A Mother Falls ****** bysilkstockingslover© "Fuuuuuuck, Mommmmmmy," Cinthia screamed, her mother bringing her to climax. 
+ 
+
+===
+
+"Fuuuuuuck, Mommmmmmy," Cinthia screamed, her mother bringing her to climax. 
 
  Kimberly opened her mouth and learned that her daughter was a flooder like herself as a river of cum exploded out of her daughter's pussy and into her mouth. 
 
@@ -1032,7 +1050,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: Brother &amp; Son ****** bysilkstockingslover© Summary: Submissive mother submits sexually to daughter and son. 
+ 
+
+===
+
+Summary: Submissive mother submits sexually to daughter and son. 
 
  Note 1: This story is a short sexually charged chapter that finishes off part one's cliff hanger and will set up the future chapters of the naughty little town. 
 
@@ -1282,7 +1304,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: Brother &amp; Son ****** bysilkstockingslover© Cinthia asked, as she watched the hot mom-son action, "What about Daddy?" 
+ 
+
+===
+
+Cinthia asked, as she watched the hot mom-son action, "What about Daddy?" 
 
  Kimberly's eyes went wide at the reference to her husband, yet she was too far- gone and hungry for another orgasm to consider the long-term consequences of her sins. "I don't know, Mistress, I guess that is up to you." 
 
@@ -1368,7 +1394,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: Dutiful Mommy ****** bysilkstockingslover© "Oh" Submission Town: Dutiful Mommy 
+ 
+
+===
+
+"Oh" Submission Town: Dutiful Mommy 
 
  Summary: Mom fucks son, eats daughter, hairdresser and best friend. 
 
@@ -1638,7 +1668,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: Dutiful Mommy ****** bysilkstockingslover© "You look delicious," Cinthia complimented as she assessed her mother, the outfit making her look years younger. 
+ 
+
+===
+
+"You look delicious," Cinthia complimented as she assessed her mother, the outfit making her look years younger. 
 
  "Thank you, Mistress," Kimberly smiled; loving getting compliments something she never got from her old-fashioned husband. 
 
@@ -1954,7 +1988,11 @@
 
  
 
- ****** &quot;Oh&quot; Submission Town: Dutiful Mommy ****** bysilkstockingslover© "Oh God yes. It was sinful, naughty, immoral and fucking hot," Lucy said. "Knowing behind your serious facade of respectability is a dirty incest slut is the hottest fucking thing ever." 
+ 
+
+===
+
+"Oh God yes. It was sinful, naughty, immoral and fucking hot," Lucy said. "Knowing behind your serious facade of respectability is a dirty incest slut is the hottest fucking thing ever." 
 
  "You know just the right words to say," Kimberly joked, even though the truth was Lucy's words only enhanced her pleasure. She loved being called names, being seen for who she really was. 
 

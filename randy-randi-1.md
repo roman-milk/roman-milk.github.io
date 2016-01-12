@@ -1,8 +1,14 @@
+Randy Randi
+===========
 #1 
 
  
 
- ****** Randy Randi ****** byJust_Plain_Bob© I have a real love/hate relationship going on with Becky up in the front office -- she loves to hate me. I have never figured out why unless she is on some class kick. Maybe she thinks that being dressed up and working in the office makes her better than someone wearing grease and ink stained coveralls out in the shop. Then again, maybe it is my hair tonic or deodorant; I really don't have a clue. 
+ 
+
+===
+
+I have a real love/hate relationship going on with Becky up in the front office -- she loves to hate me. I have never figured out why unless she is on some class kick. Maybe she thinks that being dressed up and working in the office makes her better than someone wearing grease and ink stained coveralls out in the shop. Then again, maybe it is my hair tonic or deodorant; I really don't have a clue. 
 
  +++++++++++++++++++++ 
 

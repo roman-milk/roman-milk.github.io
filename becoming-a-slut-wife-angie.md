@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Angie
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Angie ****** byJust_Plain_Bob© Angie and I finished moving into the new house on a Sunday and on Monday I took a day off work to help her open boxes and move furniture. We were both very happy that day because the new house was the culmination of a long held dream. A large, comfortable home built on ten acres of rolling hills and far from the smog filled skies of the city. 
+ 
+
+===
+
+Angie and I finished moving into the new house on a Sunday and on Monday I took a day off work to help her open boxes and move furniture. We were both very happy that day because the new house was the culmination of a long held dream. A large, comfortable home built on ten acres of rolling hills and far from the smog filled skies of the city. 
 
  Our nearest neighbor was over a quarter of a mile away and was the only house within a mile on either side of us. All you could see of it between a gap in the trees was the swimming pool. I came home from work on the fourth night of living in our new house and Angie met me at the door with a drink. She kissed me and as we headed toward the kitchen she said, "I saw our new neighbor today." 
 
@@ -108,7 +114,11 @@
 
  
 
- ****** Becoming a Slut Wife: Angie Ch. 02 ****** byJust_Plain_Bob© Author's note: This story is not stand-alone. To understand where it is coming from you need to read Becoming A Slut Wife: Angie (1). This is not a stroke story; it is all about revenge. 
+ 
+
+===
+
+Author's note: This story is not stand-alone. To understand where it is coming from you need to read Becoming A Slut Wife: Angie (1). This is not a stroke story; it is all about revenge. 
 
  +++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -334,7 +344,11 @@
 
  
 
- ****** Becoming a Slut Wife: Angie Ch. 02 ****** byJust_Plain_Bob© The machines were ordered on your credit card and I built the stands with lumber stolen from construction sites. All the hardware was purchased at Home Depot on a busy Saturday and was paid for with cash. I even built new pine shelves for our garage to explain any sawdust the cops might find. As added window dressing I will waste money on getting an attorney and starting divorce proceedings. The cops should ask themselves why I would waste money on a lawyer when I knew I wouldn't need one. Plus, when they search this house they will find all the videotapes of you and Steve's friends." 
+ 
+
+===
+
+The machines were ordered on your credit card and I built the stands with lumber stolen from construction sites. All the hardware was purchased at Home Depot on a busy Saturday and was paid for with cash. I even built new pine shelves for our garage to explain any sawdust the cops might find. As added window dressing I will waste money on getting an attorney and starting divorce proceedings. The cops should ask themselves why I would waste money on a lawyer when I knew I wouldn't need one. Plus, when they search this house they will find all the videotapes of you and Steve's friends." 
 
  I saw Angie's eyes go wide at that. "Oh ho? You didn't know about that? Lover boy taped everything you did while you were here. I'm betting the cops will look at those tapes and think that you and Steve got kinky and it went wrong somehow. I could be wrong; I could have slipped up somehow and I might get caught. But think about this Angie as the machine keeps fucking you. Think about how much I hate what you did to me that I'm willing to gamble on not getting caught just to get even. Pray for a power outage Angie; beg God to make the machine fail. Hope that one of Steve's friend's gets in the house and for some reason decides to come down here. 
 

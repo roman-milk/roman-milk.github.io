@@ -1,8 +1,14 @@
+Troubled Waters: The First Day
+==============================
 #1 
 
  
 
- ****** Troubled Waters: The First Day ****** byfastandsloppy© Authors Note: This story is a Brother-Sister Incest/Group Sex tale that also contains a wide variety of other flavors of sexual perversion. 
+ 
+
+===
+
+Authors Note: This story is a Brother-Sister Incest/Group Sex tale that also contains a wide variety of other flavors of sexual perversion. 
 
  It is a three part story. I will post each installment about a week apart. All characters are at least eighteen and, like all my fiction, this story is fictional. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** Troubled Waters: The First Day ****** byfastandsloppy© "Now, Mr. Barstow. Who will you pick to soothe your sea-sickness?" 
+ 
+
+===
+
+"Now, Mr. Barstow. Who will you pick to soothe your sea-sickness?" 
 
  "I want L…" he paused, unable to speak her name in this context. As he looked at her he could tell she was knitting her eyebrows in a silent "No" and almost imperceptibly shaking her head. But, he had to keep her away from the likes of Thompson. "Blue. The one there in the blue." 
 
@@ -336,7 +346,11 @@
 
  
 
- ****** Troubled Waters: The First Day ****** byfastandsloppy© He felt sick. He should drop it, but he had one more question. "How about Thompson?" 
+ 
+
+===
+
+He felt sick. He should drop it, but he had one more question. "How about Thompson?" 
 
  "Oh you messed him up good. Broken nose, fractured… whatever this bone is here," she said pointing to her face just below the eye. "They had to sedate him and pump him full of painkillers. He didn't join us." 
 
@@ -402,7 +416,11 @@
 
  
 
- ****** Troubled Waters: The Second Day ****** byfastandsloppy© Authors Note: This story is a Brother-Sister Incest/Group Sex tale that also contains a wide variety of other flavors of sexual perversion. 
+ 
+
+===
+
+Authors Note: This story is a Brother-Sister Incest/Group Sex tale that also contains a wide variety of other flavors of sexual perversion. 
 
  It is the second part of a three part story. I will post each installment about a week apart. All characters are at least eighteen and, like all my fiction, this story is fictional. 
 
@@ -552,7 +570,11 @@
 
  
 
- ****** Troubled Waters: The Second Day ****** byfastandsloppy© "What's wrong?" he asked. 
+ 
+
+===
+
+"What's wrong?" he asked. 
 
  "Desiree is gone." 
 
@@ -702,7 +724,11 @@
 
  
 
- ****** Troubled Waters: The Second Day ****** byfastandsloppy© Alex turned to Yanna and Min who stood with their arms limply at their sides and their heads pulled back into their shoulders. They were nude except for their omnipresent dog collars and they looked up at him with emotionless faces of dull resignation; prepared to be used; ready to just get it over with. Their bodies were thin almost to the point of emaciation, their skin pale and waxy. They seemed sad rather than alluring. 
+ 
+
+===
+
+Alex turned to Yanna and Min who stood with their arms limply at their sides and their heads pulled back into their shoulders. They were nude except for their omnipresent dog collars and they looked up at him with emotionless faces of dull resignation; prepared to be used; ready to just get it over with. Their bodies were thin almost to the point of emaciation, their skin pale and waxy. They seemed sad rather than alluring. 
 
  Lucy had circled him to stand pressed against his back with her chin resting on his shoulder. She reached around to pull his cock from his robe and ran her hand up to the head. It responded with a twitch and began to grow firm again. As Lucy took his earlobe in her teeth she rasped at him, "I want to use you as a fuck puppet to nail these two little cunts." 
 
@@ -836,7 +862,11 @@
 
  
 
- ****** Troubled Waters: The Third Day ****** byfastandsloppy© Authors Note: This story is a Brother-Sister Incest/Group Sex tale that also contains a wide variety of other flavors of sexual perversion. 
+ 
+
+===
+
+Authors Note: This story is a Brother-Sister Incest/Group Sex tale that also contains a wide variety of other flavors of sexual perversion. 
 
  This is the last installment of a three part story. All characters are at least eighteen and, like all my fiction, this story is fictional. 
 
@@ -1020,7 +1050,11 @@
 
  
 
- ****** Troubled Waters: The Third Day ****** byfastandsloppy© "And Desiree's disappearance gets pinned on Thompson too, huh?" 
+ 
+
+===
+
+"And Desiree's disappearance gets pinned on Thompson too, huh?" 
 
  "Who?" 
 
@@ -1224,7 +1258,11 @@
 
  
 
- ****** Troubled Waters: The Third Day ****** byfastandsloppy© Alex snorted at the T.V., "Fucking amateur." 
+ 
+
+===
+
+Alex snorted at the T.V., "Fucking amateur." 
 
  He spent a long time at the table trying to configure his finances so he could support both Lorelei and Emma while paying for Emma's medical bills, but it just didn't add up. Besides, he suspected that he'd be looking for a new job within a week. Word of his weekend of sister-fucking would be sure to get around. His position at Apex would be untenable. He threw the pen down in disgust and climbed into bed miserable and exhausted. 
 

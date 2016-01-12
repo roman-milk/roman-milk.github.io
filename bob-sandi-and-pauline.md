@@ -1,8 +1,14 @@
+Bob, Sandi, and Pauline
+=======================
 #1 
 
  
 
- ****** Bob, Sandi, and Pauline ****** byJust_Plain_Bob© It was a surprise to me just as I suppose it was a surprise to every other man who finds out that his beloved isn't his alone. And, like most others who found out, I found out by accident. 
+ 
+
+===
+
+It was a surprise to me just as I suppose it was a surprise to every other man who finds out that his beloved isn't his alone. And, like most others who found out, I found out by accident. 
 
  I was in Chicago and had just closed the deal that was going to get me promoted to regional director. I called a good friend that I'd gone to school with and who lived in the Chicago area and whom I hadn't seen I quite a while. We had talked on the phone a lot, but hadn't had a face to face in ten years. I called him and asked if he be up to a drink or three and he said "Hell yes!" 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Bob, Sandi, and Pauline ****** byJust_Plain_Bob© "I went back to work and my working relationship with Dale was a little cool at first, but by the end of the week we were back on track. It was the Tuesday of the following week that everything changed. Dale and I had a working lunch with some people from the ad agency and I'd had a couple glasses of wine. Not enough to cause me to do anything like I had in Chicago, but enough to loosen me up. The people from the agency left and Dale said: 
+ 
+
+===
+
+"I went back to work and my working relationship with Dale was a little cool at first, but by the end of the week we were back on track. It was the Tuesday of the following week that everything changed. Dale and I had a working lunch with some people from the ad agency and I'd had a couple glasses of wine. Not enough to cause me to do anything like I had in Chicago, but enough to loosen me up. The people from the agency left and Dale said: 
 
  "I know that it is a sore subject for you, but I can't get Chicago off my mind. It was the most exciting and sexually satisfying thing that ever happened to me and I want to thank you for it." 
 
@@ -254,7 +264,11 @@
 
  
 
- ****** Bob, Sandi, and Pauline Ch. 02 ****** byJust_Plain_Bob© The next morning I was up and gone before Sandi got up. I had breakfast at a coffee shop just up the street from work and when I got to the office I did just what Frank had suggested. I put the names of all six women on my PA list in a small box, shook it up and then reached inside and pulled out a name. 
+ 
+
+===
+
+The next morning I was up and gone before Sandi got up. I had breakfast at a coffee shop just up the street from work and when I got to the office I did just what Frank had suggested. I put the names of all six women on my PA list in a small box, shook it up and then reached inside and pulled out a name. 
 
  Pauline French was going to be my new personal assistant. Were the Gods fucking with me? Pauline is the only one of all the women on my list that I had lustful thoughts about. I imagined myself telling her that my wife was also a PA and then telling Pauline about how my wife took care of Dale and then telling Pauline that I wanted the same kind of PA. Then I saw myself in a sexual harassment suit and the thought faded fast. 
 
@@ -470,7 +484,11 @@
 
  
 
- ****** Bob, Sandi, and Pauline Ch. 02 ****** byJust_Plain_Bob© She kept going until I came and rode me until I started to soften and then she got off me and left the room. 
+ 
+
+===
+
+She kept going until I came and rode me until I started to soften and then she got off me and left the room. 
 
  She came back ten minutes later fully dressed and with a knife in her hands. I suddenly realized that my earlier thought that she had no intention of harming me might have been faulty and I guess it showed on my face as she said: 
 
@@ -568,7 +586,11 @@
 
  
 
- ****** Bob, Sandi, and Pauline Ch. 03 ****** byJust_Plain_Bob© Sunday was a day of getting used to my new life. I spent time in the exercise room and at the pool and I spent some time at the storage unit working on the Mustang. 
+ 
+
+===
+
+Sunday was a day of getting used to my new life. I spent time in the exercise room and at the pool and I spent some time at the storage unit working on the Mustang. 
 
  Monday morning when I got to work Doris, who had already been there for a half hour, told me that Sandi had called three times in the past fifteen minutes. I decided to get it over with and I called her at work. The receptionist told me that she was in a meeting, but had left instructions that if I called Cheri was to interrupt the meeting and get her. Thirty seconds later Sandi was on the phone. 
 
@@ -780,7 +802,11 @@
 
  
 
- ****** Bob, Sandi, and Pauline Ch. 03 ****** byJust_Plain_Bob© "If you need a bed warmer why not let your wife do it? She would kill for the chance." 
+ 
+
+===
+
+"If you need a bed warmer why not let your wife do it? She would kill for the chance." 
 
  "How do you know that?" 
 
@@ -964,7 +990,11 @@
 
  
 
- ****** Bob, Sandi, and Pauline Ch. 03 ****** byJust_Plain_Bob© Neubert had Sandi on her hands and knees and was doing her doggie while he worked on her butt hole with his fingers. She kept telling him to stop, but she was pushing back at him and he mistook that to mean that she didn't really mean for him to stop. Even I, watching the video, knew that she was pushing back on the cock that was fucking her because that was what she always did when getting it doggie, but Neubert decided that it was his fingers in her ass that was making her respond that way. 
+ 
+
+===
+
+Neubert had Sandi on her hands and knees and was doing her doggie while he worked on her butt hole with his fingers. She kept telling him to stop, but she was pushing back at him and he mistook that to mean that she didn't really mean for him to stop. Even I, watching the video, knew that she was pushing back on the cock that was fucking her because that was what she always did when getting it doggie, but Neubert decided that it was his fingers in her ass that was making her respond that way. 
 
  He pulled out of Sandi's pussy, put his cock against her asshole and started to push. Sandi dropped flat on the bed, rolled onto her back and kicked Neubert square in the nuts. 
 

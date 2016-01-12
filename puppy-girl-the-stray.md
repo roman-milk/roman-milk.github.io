@@ -1,8 +1,14 @@
+Puppy Girl: The Stray
+=====================
 #1 
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© =========================== 
+ 
+
+===
+
+=========================== 
 
  A broken man, an innocent injured girl, a time for healing. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© He grinned. "You're right. I wouldn't. A dog doesn't bite the hand that feeds it. A dog is loyal. It knows its place." He stared at her hard. "A dog wouldn't interrupt my work. Wouldn't sit here whining on my doorstep. Fuck, I wish you were a dog. Maybe you'd just lie down out of the way and shut the fuck up." 
+ 
+
+===
+
+He grinned. "You're right. I wouldn't. A dog doesn't bite the hand that feeds it. A dog is loyal. It knows its place." He stared at her hard. "A dog wouldn't interrupt my work. Wouldn't sit here whining on my doorstep. Fuck, I wish you were a dog. Maybe you'd just lie down out of the way and shut the fuck up." 
 
  Amy couldn't believe the bile and disgust that radiated from this man. He was broken inside. That much was obvious. She was stuck on a deserted island with a man who was probably unhinged. 
 
@@ -420,7 +430,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© Hunter looked down at the poor creature. She was a brave little thing. That had to hurt. She hardly whined at all. He started at her neck, washing her as gently as he could, cleaning off the sand, salt and dirt. She smelled bad, stinking up his house. This would help. 
+ 
+
+===
+
+Hunter looked down at the poor creature. She was a brave little thing. That had to hurt. She hardly whined at all. He started at her neck, washing her as gently as he could, cleaning off the sand, salt and dirt. She smelled bad, stinking up his house. This would help. 
 
  She would make the occasional groan or whimper when he hit the worst spots, but she didn't complain. He looked at her breasts, big tits, only purpose in life was to snare helpless weak men. She was built for temptation. He squeezed them roughly and she whimpered, looking up at him piteously. He looked down and saw the skin was scraped raw, her nipples bruised. Dragging herself across the sand and wood, probably. He looked closer and saw another splinter. "Stay," he said softly. 
 
@@ -616,7 +630,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© She crawled out to the living room, seeing her temporary master once again working at his computer. She could smell the cooked food, and found her bowl, cold scrambled eggs and some meat product. No gentle feeding of a 5-star dinner this time. She smiled, recalling lying in his arms, being fed the steak and incredible chocolate cake. 
+ 
+
+===
+
+She crawled out to the living room, seeing her temporary master once again working at his computer. She could smell the cooked food, and found her bowl, cold scrambled eggs and some meat product. No gentle feeding of a 5-star dinner this time. She smiled, recalling lying in his arms, being fed the steak and incredible chocolate cake. 
 
  She ate her breakfast, surprised at how hungry she still was. She drank from her bowl, wiping her face on her arm. She crawled around the room, examining her surroundings for a long while. The man ignored her. Apparently she didn't have to stay huddled in the corner all day. 
 
@@ -830,7 +848,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© He stood, holding her, then put her down on the couch. He took her foot in his hand, examining it for a moment, and eased a slipper over it. The same for the other. "Walk for me, Red. Let me know if it hurts too much." 
+ 
+
+===
+
+He stood, holding her, then put her down on the couch. He took her foot in his hand, examining it for a moment, and eased a slipper over it. The same for the other. "Walk for me, Red. Let me know if it hurts too much." 
 
  She stood up carefully, her feet sensitive. She took a few tentative steps and found her feet, while still painful, weren't in agony. A few more paces, and she was walking carefully, without much pain. 
 
@@ -1026,7 +1048,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© His writing had been more productive than ever. The words spilled onto the page as fast as he could write them, complete, with no hesitation. He felt good about his work, and those feelings carried over into his evenings. 
+ 
+
+===
+
+His writing had been more productive than ever. The words spilled onto the page as fast as he could write them, complete, with no hesitation. He felt good about his work, and those feelings carried over into his evenings. 
 
  Red followed him around once he'd finished his writing. She'd stay close by while he cooked their dinner, and all too often as he fed her from his plate. She'd bounce around playfully, rubbing against him, eager for his touch. While he worked on the upkeep of his home, she remained in arm's reach, quiet, obedient. 
 
@@ -1262,7 +1288,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© Hunter knew what he had to do. In a little more than a week, the supply boat would come, dropping off his order, and leaving with his latest writing effort and his next order for supplies. He knew he'd have to take her back, let his puppy-girl go. Put her on a plane to her family, who must be going crazy with worry. He didn't want to, but he knew it was the right thing to do. 
+ 
+
+===
+
+Hunter knew what he had to do. In a little more than a week, the supply boat would come, dropping off his order, and leaving with his latest writing effort and his next order for supplies. He knew he'd have to take her back, let his puppy-girl go. Put her on a plane to her family, who must be going crazy with worry. He didn't want to, but he knew it was the right thing to do. 
 
  But it was dangerous. He's gone to great lengths to disappear, and he'd have to make sure she understood that. She couldn't reveal who he was or his whereabouts. He'd seen her looking at his books, peeking at his work. He was aware that she probably knew who he was. He could only hope she really was as loyal as she seemed. 
 
@@ -1472,7 +1502,11 @@
 
  
 
- ****** Puppy Girl: The Stray ****** byTx_Tall_Tales© He found her shorts just beyond the steps, and found her shirt hanging from a tree a dozen yards from the house. He screamed her name, searching everywhere he could. She had to hear him. 
+ 
+
+===
+
+He found her shorts just beyond the steps, and found her shirt hanging from a tree a dozen yards from the house. He screamed her name, searching everywhere he could. She had to hear him. 
 
  He'd covered most of the island, when he heard the two short and one long blast of the delivery boat's horn. He was torn. He had to find his puppy-girl, but if he didn't meet the boat, they wouldn't deliver his goods. They'd likely starve in the two months before the boat would come again, if it ever did come again. His cabinets were bare, and he'd dug deeply into his emergency rations. What was left wouldn't be enough for the two of them. 
 

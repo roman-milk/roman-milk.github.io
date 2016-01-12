@@ -1,8 +1,14 @@
+Pissing for Aunty Nikola
+========================
 #1 
 
  
 
- ****** Pissing for Aunty Nikola ****** bygeronimo_appleby© A fairly short one at around 4900 words but one I hope you find entertaining. I aimed this primarily at the pee fetishists, however I couldn't help myself and made Nikola a big-boobed MILF (I was in that kind of mood). Also, as I got close to the finale I then injected the 'Aunty Nikola' thing. I do hope this cross-categorisation doesn't detract from the overall impression of a nasty piss tale. 
+ 
+
+===
+
+A fairly short one at around 4900 words but one I hope you find entertaining. I aimed this primarily at the pee fetishists, however I couldn't help myself and made Nikola a big-boobed MILF (I was in that kind of mood). Also, as I got close to the finale I then injected the 'Aunty Nikola' thing. I do hope this cross-categorisation doesn't detract from the overall impression of a nasty piss tale. 
 
  What happens is this one is that Ryan -- 20, has lusted over Nikola -- 40 for a few months. One Saturday night, out of the blue, he gets a phone call from Nikola inviting him to her house. Over he goes on his motorbike and ... 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** Pissing for Aunty Nikola ****** bygeronimo_appleby© "Kiss my pussy," Nikola moaned. "That's it Ryan," lick my clit. Suck my cunt. Come on, baby, wriggle that tongue inside me." 
+ 
+
+===
+
+"Kiss my pussy," Nikola moaned. "That's it Ryan," lick my clit. Suck my cunt. Come on, baby, wriggle that tongue inside me." 
 
  Minutes ticked past as I tickled every fold and flap of skin between Nikola's legs. The urge to pee increased, because of all that beer and fucking water, but I couldn't stop, not then, not until I'd taken Nikola to that place. I had to give her a climax the first time on my tongue; I had to get her there. 
 

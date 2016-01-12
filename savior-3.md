@@ -1,8 +1,14 @@
+Savior
+======
 #1 
 
  
 
- ****** Savior ****** byJust_Plain_Bob© I watched her walk into the room and she was as hot and as gorgeous as ever and I wondered just what she wanted to do to me now. To understand the situation you have to know the back story. 
+ 
+
+===
+
+I watched her walk into the room and she was as hot and as gorgeous as ever and I wondered just what she wanted to do to me now. To understand the situation you have to know the back story. 
 
  +++++++++++++++++++++ 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** Savior ****** byJust_Plain_Bob© The happy couple left and things started breaking up. It was an eighty mile drive to get home and I knew I wouldn't want to make the drive after the drinking I expected to do at the reception so I'd taken two rooms at a local motel. When we got to the motel I gave Joleen the key to her room and she looked at it and said: 
+ 
+
+===
+
+The happy couple left and things started breaking up. It was an eighty mile drive to get home and I knew I wouldn't want to make the drive after the drinking I expected to do at the reception so I'd taken two rooms at a local motel. When we got to the motel I gave Joleen the key to her room and she looked at it and said: 
 
  "What's this?" 
 
@@ -482,7 +492,11 @@
 
  
 
- ****** Savior ****** byJust_Plain_Bob© One evening while sitting in a booth at the Texas Roadhouse having dinner Pauline French came up to me and said hello and asked if she could join me. I hadn't seen Pauline since high school and I said; 
+ 
+
+===
+
+One evening while sitting in a booth at the Texas Roadhouse having dinner Pauline French came up to me and said hello and asked if she could join me. I hadn't seen Pauline since high school and I said; 
 
  "Please do." 
 

@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Pam
+=========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Pam ****** byJust_Plain_Bob© I had known Daniel and Pam for over ten years and I considered them very good friends. But I do have to admit that I would have loved to get a whole lot friendlier with Pam if given the chance. Blonde, blue-eyed, five feet nine with a chest that probably came in at 36C. Unfortunately Pam was in love with Daniel and she never gave any indication that she would consider playing around. 
+ 
+
+===
+
+I had known Daniel and Pam for over ten years and I considered them very good friends. But I do have to admit that I would have loved to get a whole lot friendlier with Pam if given the chance. Blonde, blue-eyed, five feet nine with a chest that probably came in at 36C. Unfortunately Pam was in love with Daniel and she never gave any indication that she would consider playing around. 
 
  I was sitting in the gate area at Detroit Metropolitan Airport waiting to board the flight home to Denver when a soft voice behind me said, "Hi there stranger" and I turned around to see Pam and her two boys standing there. She had taken the boys to visit their grand parents in Bay City and was returning to Denver on the same flight I was waiting for. She sat with me and we made small talk while the two boys ran up and down the concourse. I kept glancing at the clock as flight time came closer and closer without any of the boarding announcements being made and as an experienced traveler I knew that it wasn't a good sign. Finally they announced that the flight was being delayed for thirty minutes because of a maintenance problem. Thirty minutes later came another announcement that there would be a further delay because the aircraft would need to go to the maintenance hanger. I got up and went to the bank of phones behind the gate area and made a phone call and went back to sit down. 
 

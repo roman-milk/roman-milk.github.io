@@ -1,8 +1,14 @@
+Tiffany
+=======
 #1 
 
  
 
- ****** Tiffany ****** byJust_Plain_Bob© I flirt with the ladies. It is just something that I did. I did it without even thinking about it; it just came natural. None of them were ever going to take me up on anything I said and I knew it. Christ, I was fifty-two years old and the girls I flirted with were all in their twenties and were married or had boyfriends. Besides, they all knew my wife and thought that we were happily married. 
+ 
+
+===
+
+I flirt with the ladies. It is just something that I did. I did it without even thinking about it; it just came natural. None of them were ever going to take me up on anything I said and I knew it. Christ, I was fifty-two years old and the girls I flirted with were all in their twenties and were married or had boyfriends. Besides, they all knew my wife and thought that we were happily married. 
 
  We weren't. Weren't happily married I mean, and hadn't been since the day two years ago when I found her in bed with another man. Harry Wiggins had cut his hand on the job and the boss had me drive him to the emergency room at the hospital. It was close to lunchtime so while Harry waited for them to do whatever it was that they were going to do I thought I'd run home for lunch. 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** Tiffany ****** byJust_Plain_Bob© "Since it is the best offer on the table I guess I'll just have to take it won't I?" 
+ 
+
+===
+
+"Since it is the best offer on the table I guess I'll just have to take it won't I?" 
 
  "There is one more thing baby; will it bother you that I'm married?" 
 

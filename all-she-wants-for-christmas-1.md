@@ -1,8 +1,14 @@
+All She Wants for Christmas...
+==============================
 #1 
 
  
 
- ****** All She Wants for Christmas... ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Although this story can stand on its own, reading my last Christmas story, "Down the Chimney, Up her Chute", will give you some background on this one. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Although this story can stand on its own, reading my last Christmas story, "Down the Chimney, Up her Chute", will give you some background on this one. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  Dear Santa, 
 
@@ -76,7 +82,11 @@
 
  
 
- ****** All She Wants for Christmas... ****** byTheTalkMan© And I found your note, tucked deep within, hidden under the wrappings. It certified that, this clothing here, was the best that could be offered. 'Made of Christmas Fibers, Enchanted with Magic, Perfect for a Christmas Slut.' But no magic was needed, I knew that for sure, Hank just needed to glance at my body. So undies and stockings, bra's and perfume, I got some new make-up as well. I slipped off my robe, and tapped my feet, trying to decide what to wear. Each would be great, but I had to choose, which one would Hank like the best? Pink, white, or black, Christmas red or green, which would show me off best when they get seen? Black conjures up dark thoughts, nasty naughty things, the kinds of things I had planned for that big dick of his. Now which bra should I go with, to get my tits jiggling, I knew I had to pick the right one. It won't take much, they're just so big, they bounce in just about anything. I picked out a bra, a perfect one, that allowed the perfect jiggle. Made my cleavage look huge, bigger than normal, pouring over the top of the bra. I picked out a thong, a matching black, as tiny as it could be. I pulled it up tight, made sure it was snug, it just barely covered my pussy. I looked in the mirror, Hank couldn't resist, who didn't like a thong clad ass? 
+ 
+
+===
+
+And I found your note, tucked deep within, hidden under the wrappings. It certified that, this clothing here, was the best that could be offered. 'Made of Christmas Fibers, Enchanted with Magic, Perfect for a Christmas Slut.' But no magic was needed, I knew that for sure, Hank just needed to glance at my body. So undies and stockings, bra's and perfume, I got some new make-up as well. I slipped off my robe, and tapped my feet, trying to decide what to wear. Each would be great, but I had to choose, which one would Hank like the best? Pink, white, or black, Christmas red or green, which would show me off best when they get seen? Black conjures up dark thoughts, nasty naughty things, the kinds of things I had planned for that big dick of his. Now which bra should I go with, to get my tits jiggling, I knew I had to pick the right one. It won't take much, they're just so big, they bounce in just about anything. I picked out a bra, a perfect one, that allowed the perfect jiggle. Made my cleavage look huge, bigger than normal, pouring over the top of the bra. I picked out a thong, a matching black, as tiny as it could be. I pulled it up tight, made sure it was snug, it just barely covered my pussy. I looked in the mirror, Hank couldn't resist, who didn't like a thong clad ass? 
 
  I pulled up my stockings, made they sure smooth, made sure they looked really sexy. Of course they did, my legs were the shit, a part of the perfect package. Slipped on a garter belt, long black suspenders, I looked like Hank's hot Christmas slut. I put on some make-up, not blatant but subtle, hiding my true intentions. My lips looked soft and smooth, my eyes damn appealing, a perfectly made-up hottie. I sprayed more perfume, in all the right places, and then slipped my silk robe back on. I picked up the vial, slipped out of the room, let's make this party happen. 
 

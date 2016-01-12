@@ -1,8 +1,14 @@
+The Corruption Of Selena Ch. 01
+===============================
 #1 
 
  
 
- ****** The Corruption Of Selena Ch. 01 ****** bygeronimo_appleby© Madison heard the muffled tones of voices in the anteroom where Mrs Barton, his PA, usually kept guard. He cursed inwardly at the imminent intrusion. He'd lost track of the time and realised that it must be about eight thirty, time for the cleaners to appear. 
+ 
+
+===
+
+Madison heard the muffled tones of voices in the anteroom where Mrs Barton, his PA, usually kept guard. He cursed inwardly at the imminent intrusion. He'd lost track of the time and realised that it must be about eight thirty, time for the cleaners to appear. 
 
  He quickly logged out of the system and switched his laptop to shut down. There was no way he could afford to allow any busybody cleaning scum to see which sites he visited – no way on this earth. 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** The Corruption Of Selena Ch. 01 ****** bygeronimo_appleby© 'Turn around, let me see you from behind,' Madison growled and stroked his erection slowly. 
+ 
+
+===
+
+'Turn around, let me see you from behind,' Madison growled and stroked his erection slowly. 
 
  Selena turned a slow 360° pirouette; she paused briefly to allow the man time to appreciate the inverted heart shape of her narrow waist and delectable buttocks before finally completing the turn. 
 
@@ -258,7 +268,11 @@
 
  
 
- ****** The Corruption Of Selena Ch. 02 ****** bygeronimo_appleby© For the full story, you may wish to read Part 1... Of course, you may choose not to. Either way, I hope you enjoy the work that follows. 
+ 
+
+===
+
+For the full story, you may wish to read Part 1... Of course, you may choose not to. Either way, I hope you enjoy the work that follows. 
 
  In the weeks following Madison's seduction of the girl he slowly and patiently groomed her for the sordid work he had planned. Surprisingly, Selena was proving to be quite amenable to the situation so far. Madison had broached the subject of three-way sex with Selena during one of their frequent, and as usual, intense meetings. Selena had been turned on by the idea of a third party, of either gender, joining them even after the heat of her climax had cooled. 
 
@@ -446,7 +460,11 @@
 
  
 
- ****** The Corruption Of Selena Ch. 02 ****** bygeronimo_appleby© 'It won't be long,' the man grunted and dug his fingers into Selena's hips. 'She's tight around me,' he gasped and fucked the girl with long strokes. 
+ 
+
+===
+
+'It won't be long,' the man grunted and dug his fingers into Selena's hips. 'She's tight around me,' he gasped and fucked the girl with long strokes. 
 
  Soon there was the slapping of the Ambassador's skin against Selena's round buttocks as he pounded at the girl. He was hugely aroused by the sight of such a beauty licking his wife's sex, and he was further excited by what he knew would happen when he came. 
 

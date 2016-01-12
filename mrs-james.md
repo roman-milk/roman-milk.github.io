@@ -1,8 +1,14 @@
+Mrs James
+=========
 #1 
 
  
 
- ****** Mrs James ****** bygeronimo_appleby© She knew I watched her; she knew and she made me suffer. I couldn't help myself, I had to watch her; she was so damn sexy I was hooked. 
+ 
+
+===
+
+She knew I watched her; she knew and she made me suffer. I couldn't help myself, I had to watch her; she was so damn sexy I was hooked. 
 
  I would watch from the study window on the second floor of our house. I could see down onto the decking at the rear of her house, it was a vantage point that offered a superb view of her whenever she sunbathed during that long, hot summer. 
 

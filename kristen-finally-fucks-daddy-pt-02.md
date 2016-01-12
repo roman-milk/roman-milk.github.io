@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 02
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 02 ****** byNonStopFunGuy© As he laid his thick, rotund mass over her petite little Thai body, the male's rigid penis drove into my Mom's small frame, stretching her 38 year old pussylips wider, driving so deep until his balls were bouncing off her soft golden asscheeks. I watched her small Asian hands gripping his fat white buttocks, pulling her business partner's erection even deeper into her married twat, while her high-pitched voice shrieked across the room to me, as I was hiding behind the partition near the steps. 
+ 
+
+===
+
+As he laid his thick, rotund mass over her petite little Thai body, the male's rigid penis drove into my Mom's small frame, stretching her 38 year old pussylips wider, driving so deep until his balls were bouncing off her soft golden asscheeks. I watched her small Asian hands gripping his fat white buttocks, pulling her business partner's erection even deeper into her married twat, while her high-pitched voice shrieked across the room to me, as I was hiding behind the partition near the steps. 
 
  "Oh yeah baby," my Mom purred in a lusty, uncontrolled squeal, "do me, fuck me!" 
 
@@ -114,7 +120,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 02 ****** byNonStopFunGuy© "Oh baby," he moaned to my mother, "Malee, you fucking hot slut, yeah, you're making me so fucking hard." 
+ 
+
+===
+
+"Oh baby," he moaned to my mother, "Malee, you fucking hot slut, yeah, you're making me so fucking hard." 
 
  I couldnt believe he was talking to her that way -- my own mother! A married woman! But she definitely didn't mind, and I could tell, the dirty talk was part of their normal lovemaking. "Fuck yeah, Mr. David," my Mom purred, so aroused, her voice heavy with lust, "I'm your fucking little slut, yeah, fuck your little slut!" 
 

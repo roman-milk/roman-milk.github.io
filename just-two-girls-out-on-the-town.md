@@ -1,8 +1,14 @@
+Just Two Girls Out On The Town
+==============================
 #1 
 
  
 
- ****** Just Two Girls Out On The Town ****** byJust_Plain_Bob© "Damn, you sure are tight for a bar bitch," the man grunted as he pumped into her. "Must only pick up guys with little dicks. Come on honey, push that ass at me, take me deep." 
+ 
+
+===
+
+"Damn, you sure are tight for a bar bitch," the man grunted as he pumped into her. "Must only pick up guys with little dicks. Come on honey, push that ass at me, take me deep." 
 
  I looked over at her and saw that she had her eyes closed and her head turned slightly away from him and I wondered if it was because he had bad breath. It was obvious to me that she wasn't getting much out of it. He was huffing and puffing and he started moaning: 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Just Two Girls Out On The Town ****** byJust_Plain_Bob© For the next six months we got together every time that John left on one of his excursions and a few times when he was still at home. Once I did Ralph in the basement while John watched a football game just over our heads. One night after we had just finished a strenuous bout and while I was sucking Ralph's cock to try and get him up again he'd said: 
+ 
+
+===
+
+For the next six months we got together every time that John left on one of his excursions and a few times when he was still at home. Once I did Ralph in the basement while John watched a football game just over our heads. One night after we had just finished a strenuous bout and while I was sucking Ralph's cock to try and get him up again he'd said: 
 
  "I know I'm twenty years older that you Marion and I know it will scandalize the family, but you and I belong together" and that was the end of it. I wasn't all that happy as far as my situation with John was concerned, but I was nowhere near being ready to leave John and I sure wasn't ready to marry his father. 
 

@@ -1,8 +1,14 @@
+What Mom Knows Fucks Her Again
+==============================
 #1 
 
  
 
- ****** What Mom Knows Fucks Her Again ****** bysilkstockingslover© Summary: The day after son fucks Mom and her friend. 
+ 
+
+===
+
+Summary: The day after son fucks Mom and her friend. 
 
  Note 1: This is a sequel to the story What Mom Doesn't Know Will Fuck Her. Although this story can stand on its own, I highly recommend you read Part One before reading this one.... 
 
@@ -298,7 +304,11 @@
 
  
 
- ****** What Mom Knows Fucks Her Again ****** bysilkstockingslover© Mom concurred. "I told you. Last night was the best sex if my life. You can see why I can't just stop like a good mother should." 
+ 
+
+===
+
+Mom concurred. "I told you. Last night was the best sex if my life. You can see why I can't just stop like a good mother should." 
 
  I revelled in the glow of such praise until my cock reminded me it still was raring to go. Suddenly brimming with a confidence I never had before, I flipped Miranda onto her side and slid my cock inside her from behind. From this angle she was so fucking tight, even after her orgasm. 
 

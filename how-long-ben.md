@@ -1,8 +1,14 @@
+How Long Ben?
+=============
 #1 
 
  
 
- ****** How Long Ben? ****** byJust_Plain_Bob© It all began on a Saturday afternoon when I came home from playing golf with three of my girlfriends. I guess I must have been fairly quiet when I walked into the house because Ben didn't know I was there until I walked up to the spare bedroom that he had turned into an office and den. I saw him give a start when he heard the word "What" when I started to ask him: 
+ 
+
+===
+
+It all began on a Saturday afternoon when I came home from playing golf with three of my girlfriends. I guess I must have been fairly quiet when I walked into the house because Ben didn't know I was there until I walked up to the spare bedroom that he had turned into an office and den. I saw him give a start when he heard the word "What" when I started to ask him: 
 
  "What would you like for dinner?" 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** How Long Ben? ****** byJust_Plain_Bob© "Now bring him over to me." 
+ 
+
+===
+
+"Now bring him over to me." 
 
  Ben stood up and holding Jason's cock in his hand he led him over to me. Jason got on the bed and moved over me and I looked up at Ben. 
 

@@ -1,8 +1,14 @@
+What You Wish For
+=================
 #1 
 
  
 
- ****** What You Wish For ****** bybodyfluids© Whilst being driven back to the hotel in the taxi after a party with friends, Tom was thinking smugly of his great life. Six weeks before he had just turned down £8 million for his I.T. Company, pulling out last minute from a deal with a South Korean firm. 
+ 
+
+===
+
+Whilst being driven back to the hotel in the taxi after a party with friends, Tom was thinking smugly of his great life. Six weeks before he had just turned down £8 million for his I.T. Company, pulling out last minute from a deal with a South Korean firm. 
 
  He had taken no notice of the warning not to do so. 
 
@@ -58,7 +64,11 @@
 
  
 
- ****** What You Wish For Ch. 02 ****** bybodyfluids© RECAP. 
+ 
+
+===
+
+RECAP. 
 
  Tom 40 who is married to Ellie 36 has a successful I.T. Company. Tom withdrew from an £8 million buyout very late in the day and has fallen foul of the S. Korean potential buyer. 
 
@@ -136,7 +146,11 @@
 
  
 
- ****** What You Wish For Ch. 03 ****** bybodyfluids© All characters depicted herein are adults. If you do not like non-consensual stories then I respectfully suggest you look elsewhere. 
+ 
+
+===
+
+All characters depicted herein are adults. If you do not like non-consensual stories then I respectfully suggest you look elsewhere. 
 
  The author does not condone rape or violence against women. 
 
@@ -266,7 +280,11 @@
 
  
 
- ****** What You Wish For Ch. 04 ****** bybodyfluids© The continuation of a couples decline into humiliation and degradation. 
+ 
+
+===
+
+The continuation of a couples decline into humiliation and degradation. 
 
  Readers who do not like blackmail, forced sex ,interracial, pain and punishment are advised against reading this story. Each chapter the reader will find the sex content becomes greater as does the degradation. 
 
@@ -388,7 +406,11 @@
 
  
 
- ****** What You Wish For Ch. 05 ****** bybodyfluids© Note to readers. 
+ 
+
+===
+
+Note to readers. 
 
  This author has never forced anyone in his life and would never do so. However, I have had both dominant and submissive sexual relationships and found both to be highly erotic. 
 
@@ -484,7 +506,11 @@
 
  
 
- ****** What You Wish For Ch. 06 ****** bybodyfluids© Thank you to those who have written to me and those who have favourited this story. 
+ 
+
+===
+
+Thank you to those who have written to me and those who have favourited this story. 
 
  This is a non con story regarding adults. It contains explicit acts of forced or coerced sex. 
 
@@ -614,7 +640,11 @@
 
  
 
- ****** What You Wish For Ch. 07a ****** bybodyfluids© My sincere apologies for such a long delay since chapter 6. My grateful thanks to those who have written to me and those who made my chapters their favourite. It is for you that I write. 
+ 
+
+===
+
+My sincere apologies for such a long delay since chapter 6. My grateful thanks to those who have written to me and those who made my chapters their favourite. It is for you that I write. 
 
  This is a non con story. It contains forced hetero and Lesbian sex and some discipline. 
 
@@ -718,7 +748,11 @@
 
  
 
- ****** What You Wish For Ch. 08 ****** bybodyfluids© Thank you to all who have read any of my chapters, especially those who take the time to favourite a chapter or write a constructive named critique. 
+ 
+
+===
+
+Thank you to all who have read any of my chapters, especially those who take the time to favourite a chapter or write a constructive named critique. 
 
  This is a non con story with forced and coerced sex and discipline of both genders and is interracial with LGBT sex scenes. 
 

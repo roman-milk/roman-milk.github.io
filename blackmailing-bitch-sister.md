@@ -1,8 +1,14 @@
+Blackmailing Bitch Sister
+=========================
 #1 
 
  
 
- ****** Blackmailing Bitch Sister ****** bysilkstockingslover© Summary: A nerdy brother blackmails his slutty bitch twin sister. 
+ 
+
+===
+
+Summary: A nerdy brother blackmails his slutty bitch twin sister. 
 
  Note 1: This is a summer 2012 contest story so please vote. 
 
@@ -286,7 +292,11 @@
 
  
 
- ****** Blackmailing Bitch Sister ****** bysilkstockingslover© "Are they sluts too?" I asked, hoping they were. 
+ 
+
+===
+
+"Are they sluts too?" I asked, hoping they were. 
 
  She laughed. "No, not that I know of. Fuck, you're still stiff as a rock." 
 

@@ -1,8 +1,14 @@
+You Shouldn't Be Here
+=====================
 #1 
 
  
 
- ****** You Shouldn't Be Here ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  Just a quick few scenes I thought I'd put out there. It's a group thing, a threesome that involves a degree of anal sex - hence the category choice - although there are other acts involved. 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** You Shouldn't Be Here ****** bygeronimo_appleby© "You like it, don't you?" Stephanie gasps. She gazes at the older woman, face slackening while her eyelids fall like a heavy curtain. "It's getting you hot, isn't it, Jan?" mumbles Stephanie, throat clotted with the orgasm foaming inside her. 
+ 
+
+===
+
+"You like it, don't you?" Stephanie gasps. She gazes at the older woman, face slackening while her eyelids fall like a heavy curtain. "It's getting you hot, isn't it, Jan?" mumbles Stephanie, throat clotted with the orgasm foaming inside her. 
 
  "Tell me," Janet grimaces. "Just fucking tell me, Steph." 
 
@@ -498,7 +508,11 @@
 
  
 
- ****** You Shouldn't Be Here ****** bygeronimo_appleby© Max settles against the girl, deliberately pressing against her, his cock sinking deep. "Yes you did mean it, Steph," he whispers, pushing his meat further into her rectum. 
+ 
+
+===
+
+Max settles against the girl, deliberately pressing against her, his cock sinking deep. "Yes you did mean it, Steph," he whispers, pushing his meat further into her rectum. 
 
  The girl moans, her eyes closing. Her head lolls and her mouth hangs slack. Then she recovers and opens her eyes, and when she levers around again she finds find her lover staring at her, his expression avid. 
 
@@ -720,7 +734,11 @@
 
  
 
- ****** You Shouldn't Be Here ****** bygeronimo_appleby© Holding Max in her mouth Stephanie beckons to Janet with a wave of one arm. She grabs at the chain when the older woman eventually steps forward, pulling Janet to join her on the bed. 
+ 
+
+===
+
+Holding Max in her mouth Stephanie beckons to Janet with a wave of one arm. She grabs at the chain when the older woman eventually steps forward, pulling Janet to join her on the bed. 
 
  "You now," the girl hisses, forcing Janet closer. Stephanie holds Max's cock upright with one fist. "Suck him," she breathes. 
 

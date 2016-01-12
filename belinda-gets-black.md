@@ -1,8 +1,14 @@
+Belinda Gets Black
+==================
 #1 
 
  
 
- ****** Belinda Gets Black ****** bygeronimo_appleby© OK, I'm going for the last place prize. 
+ 
+
+===
+
+OK, I'm going for the last place prize. 
 
  The night hung over me like a cloak. Not that I need the dark to hide in for I'm as formless as the clouds; but, like a cloud, I do exist. My preferred hunting grounds are places where a lot of you gather -- Shopping malls; office blocks; sports stadia, anywhere there's a crowd and plenty of choice. I let myself drift. A row of modern, recently built terraced houses drew me. I sensed someone there who'd be useful to me. I found her. 
 
@@ -148,7 +154,11 @@
 
  
 
- ****** Belinda Gets Black ****** bygeronimo_appleby© Belinda reached up and took Benji's penis in a two-handed grip. She opened her mouth and, with a look of fear, pursed her lips. Benji pushed into her mouth at the first contact. He held the woman's head fast with both hands and forced himself between her stretched lips. Again Belinda gagged; she coughed and spluttered when Benji relented and pulled the few inches of meat she'd managed to take out of her throat. 
+ 
+
+===
+
+Belinda reached up and took Benji's penis in a two-handed grip. She opened her mouth and, with a look of fear, pursed her lips. Benji pushed into her mouth at the first contact. He held the woman's head fast with both hands and forced himself between her stretched lips. Again Belinda gagged; she coughed and spluttered when Benji relented and pulled the few inches of meat she'd managed to take out of her throat. 
 
  "Oh no..." she spluttered. "I can't take—" Her words were cut off instantly as Benji forced himself into her mouth again. This time Belinda's eyes teared quickly, she gagged again and coughed, nearly vomiting as Benji kept up the force and jammed more cock into her resisting face. "Oh, fuck... No... No more. It's too big." A long, thick rope of drool hung from Benji's hanging cock. Belinda wiped a smear of goo from her chin with the back of her hand. 
 

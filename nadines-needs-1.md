@@ -1,8 +1,14 @@
+Nadine's Needs
+==============
 #1 
 
  
 
- ****** Nadine's Needs ****** byJust_Plain_Bob© She was short, plump, had big tits (40DD she said) and had long, thick black hair that hung down to her ass. But she also had something that most short chubby girls don't have - she had sex appeal! She had that certain something, an aura if you will, that just radiated from her. When she walked into a room and you saw her you got an immediate hard on, your palms got wet and your eyes never left her. The funny thing was that she never realized it. 
+ 
+
+===
+
+She was short, plump, had big tits (40DD she said) and had long, thick black hair that hung down to her ass. But she also had something that most short chubby girls don't have - she had sex appeal! She had that certain something, an aura if you will, that just radiated from her. When she walked into a room and you saw her you got an immediate hard on, your palms got wet and your eyes never left her. The funny thing was that she never realized it. 
 
  +++++++++++++++++++++++++++ 
 

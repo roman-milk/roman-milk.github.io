@@ -1,8 +1,14 @@
+The Trip to Rancho Mirage
+=========================
 #1 
 
  
 
- ****** The Trip to Rancho Mirage ****** byJust_Plain_Bob© The sign read "Harpersville – 1 mile" and just beyond it another sign listed the restaurants and other services available at the exit. I needed gas and there was a Conoco station at the exit and I had a Conoco card so I pulled into the right lane and slowed for the exit. 
+ 
+
+===
+
+The sign read "Harpersville – 1 mile" and just beyond it another sign listed the restaurants and other services available at the exit. I needed gas and there was a Conoco station at the exit and I had a Conoco card so I pulled into the right lane and slowed for the exit. 
 
  As I filled the tank I looked around and saw that there was a restaurant across the street. It was a little early for supper, but what the hell, I was already stopped. After I topped off I drove over to the restaurant and went inside. It had a nice 'homey' atmosphere and there were some nice aromas wafting through the place. 
 
@@ -288,7 +294,11 @@
 
  
 
- ****** The Trip to Rancho Mirage ****** byJust_Plain_Bob© "Use this" she said. "There hasn't been anything but a hairbrush handle in there for over a year and it might be tight." 
+ 
+
+===
+
+"Use this" she said. "There hasn't been anything but a hairbrush handle in there for over a year and it might be tight." 
 
  She leaned forward against the wall and I lathered up my cock with some shampoo, used some on my thumb to open her a bit and then I put the head of my cock between her pussy lips and started to slowly work it in. She was right. It was a bit tight, but I made steady progress until I was all the way in. She helped by fucking back at me and pretty soon we had a rhythm going and she was starting to moan. The moans turned into gasps of: 
 
@@ -588,7 +598,11 @@
 
  
 
- ****** The Trip to Rancho Mirage ****** byJust_Plain_Bob© I drove to a large parking lot that was two-thirds empty and I stopped the truck. Joyce asked what I was doing and I told her it was time for her Driver's Ed hands on practice. We spent an hour with her driving around, pulling into and backing out of parking spots and then I let her drive us home. She was doing a pretty good job and I didn't think it was going to take much time at all to have her ready to take her drive test. 
+ 
+
+===
+
+I drove to a large parking lot that was two-thirds empty and I stopped the truck. Joyce asked what I was doing and I told her it was time for her Driver's Ed hands on practice. We spent an hour with her driving around, pulling into and backing out of parking spots and then I let her drive us home. She was doing a pretty good job and I didn't think it was going to take much time at all to have her ready to take her drive test. 
 
  When we got home she said, "Tonight is going to be a first for you." 
 
@@ -746,7 +760,11 @@
 
  
 
- ****** The Trip to Rancho Mirage ****** byJust_Plain_Bob© For the next week things were kind of cool around the house as Bev avoided me. I'd about had enough of it by Friday and I was just getting ready to tell her to sit down and that we needed to talk when she said: 
+ 
+
+===
+
+For the next week things were kind of cool around the house as Bev avoided me. I'd about had enough of it by Friday and I was just getting ready to tell her to sit down and that we needed to talk when she said: 
 
  "We need to talk Rob and maybe you should get a beer or have a stiff drink first. "I'll meet you in the living room in a couple of minutes." 
 
@@ -926,6 +944,10 @@
 
  
 
- ****** The Trip to Rancho Mirage ****** byJust_Plain_Bob© Joyce went back to work after she gave birth since there was a day care center a block down from the restaurant. After Joyce went back to work Alice offered to sell Joyce the place so she could get back to her world tour. The financing was arranged and we took ownership six months after the birth of Dennis and Darlene. 
+ 
+
+===
+
+Joyce went back to work after she gave birth since there was a day care center a block down from the restaurant. After Joyce went back to work Alice offered to sell Joyce the place so she could get back to her world tour. The financing was arranged and we took ownership six months after the birth of Dennis and Darlene. 
 
  Life is good. Report_Story 

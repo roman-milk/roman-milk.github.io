@@ -1,8 +1,14 @@
+Room 123
+========
 #1 
 
  
 
- ****** Room 123 ****** byJust_Plain_Bob© "Honest to God Marge, I'm just hanging in there until he becomes vested in his pension plan. Then when I leave him I can get the court to award me half. What? No, I should be all right until I can land some one else. Sure. I'll get half of everything he has and the beauty of it is that the court will order him to pay my lawyer out of what he has left. No. Hey, he's a nice enough guy, but he just doesn't satisfy me sexually." 
+ 
+
+===
+
+"Honest to God Marge, I'm just hanging in there until he becomes vested in his pension plan. Then when I leave him I can get the court to award me half. What? No, I should be all right until I can land some one else. Sure. I'll get half of everything he has and the beauty of it is that the court will order him to pay my lawyer out of what he has left. No. Hey, he's a nice enough guy, but he just doesn't satisfy me sexually." 
 
  I had smashed my thumb at work and had gone to the clinic. After putting two stitches in it they had given me some pain medication and the warning label said it would probably make me drowsy and that I shouldn't drive or operate machinery. I'd come straight home from the clinic, arriving three hours before my usual time, and when I came in the front door I heard Jillian on the phone in the kitchen talking to her friend Marge. I stood silently in the living room and listened to what else my "loving wife" had to say. Of course I couldn't hear what Marge was saying, but then I didn't really have to. What I heard coming out of Jillian's mouth was pretty self-explanatory. 
 

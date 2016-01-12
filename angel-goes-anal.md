@@ -1,8 +1,14 @@
+Angel Goes Anal
+===============
 #1 
 
  
 
- ****** Angel Goes Anal ****** bygeronimo_appleby© This story is for Vinnie and Angel. Go and check their thread! 
+ 
+
+===
+
+This story is for Vinnie and Angel. Go and check their thread! 
 
  Also thanks to JQ hack for his advice and guidance. More to come. 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Angel Goes Anal ****** bygeronimo_appleby© Angel's hair swung wildly as her head bobbed up and down enthusiastically. She ran her open palms up and over Jonny's tightly muscled stomach, and relished the feeling of his taut abdominal muscles as her fingers traced the hard, ridged outline of the man's six pack. She traced a route around his body and took a tight grip on Jonny's clenching buttocks, then pulled the groaning man further into her mouth. 
+ 
+
+===
+
+Angel's hair swung wildly as her head bobbed up and down enthusiastically. She ran her open palms up and over Jonny's tightly muscled stomach, and relished the feeling of his taut abdominal muscles as her fingers traced the hard, ridged outline of the man's six pack. She traced a route around his body and took a tight grip on Jonny's clenching buttocks, then pulled the groaning man further into her mouth. 
 
  'Shit,' Jonny groaned, his teeth clenched and face contorted as he struggled to hold himself in check. 'She's fucking mad for it,' Jonny looked at Phil in desperation. 'I'm going to blow if she doesn't ease up.' 
 

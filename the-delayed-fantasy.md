@@ -1,8 +1,14 @@
+The Delayed Fantasy
+===================
 #1 
 
  
 
- ****** The Delayed Fantasy ****** byJust_Plain_Bob© It was almost seven years ago when I told my wife that my biggest fantasy was to watch her have sex with another man. As you might expect she was outraged, disgusted, disbelieving and in general pretty much told me not only no, but fuck no! It was the response I had expected and so I put it out of my mind (the part about her actually doing it anyway) and kept my fantasy alive by reading magazines that catered to the idea. I would read the letters and stories and in my mind I would always picture my wife as the woman in the story. The increase in sexual activity following my reading of the latest issue always pleased Mary even if she never knew what caused it. 
+ 
+
+===
+
+It was almost seven years ago when I told my wife that my biggest fantasy was to watch her have sex with another man. As you might expect she was outraged, disgusted, disbelieving and in general pretty much told me not only no, but fuck no! It was the response I had expected and so I put it out of my mind (the part about her actually doing it anyway) and kept my fantasy alive by reading magazines that catered to the idea. I would read the letters and stories and in my mind I would always picture my wife as the woman in the story. The increase in sexual activity following my reading of the latest issue always pleased Mary even if she never knew what caused it. 
 
  So imagine my surprise lo these many years later when she said to me, "How come you've never mentioned your fantasies to me again?" 
 

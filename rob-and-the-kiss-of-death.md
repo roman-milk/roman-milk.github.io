@@ -1,8 +1,14 @@
+Rob and the Kiss of Death
+=========================
 #1 
 
  
 
- ****** Rob and the Kiss of Death ****** byJust_Plain_Bob© She used the key I'd given her to let herself in. I wasn't expecting her so I was sitting on the couch reading James Lee Burke's latest, "The Glass Rainbow." I put the book down and gave her an appreciative look. She was drop dead gorgeous and the sexiest looking woman I had ever laid eyes on. She was the kind of woman that a star had on his arm at the Academy Awards or some MTV award show. She was the kind of woman you saw with super stars, famous athletes or some extremely rich bachelor. The kind of woman a guy like me normally couldn't even get close to. 
+ 
+
+===
+
+She used the key I'd given her to let herself in. I wasn't expecting her so I was sitting on the couch reading James Lee Burke's latest, "The Glass Rainbow." I put the book down and gave her an appreciative look. She was drop dead gorgeous and the sexiest looking woman I had ever laid eyes on. She was the kind of woman that a star had on his arm at the Academy Awards or some MTV award show. She was the kind of woman you saw with super stars, famous athletes or some extremely rich bachelor. The kind of woman a guy like me normally couldn't even get close to. 
 
  I suffered under no illusions about myself. Thirty-five years old, early male pattern baldness and ten pounds overweight -- in decent shape -- but still overweight. But I wasn't a normal guy. I had something that she wanted - - something that she needed. 
 
@@ -334,7 +340,11 @@
 
  
 
- ****** Rob and the Kiss of Death ****** byJust_Plain_Bob© "I'm a big girl Rob and I'm old enough to know that what is done is done. Crying isn't going to change any of it and the way I've chosen to deal with it is accept that it happened through no fault of my own and move on. So tell me Rob, why did you shit on me?" 
+ 
+
+===
+
+"I'm a big girl Rob and I'm old enough to know that what is done is done. Crying isn't going to change any of it and the way I've chosen to deal with it is accept that it happened through no fault of my own and move on. So tell me Rob, why did you shit on me?" 
 
  I told her about Harv and Gail and how I'd taken it." 
 
@@ -550,7 +560,11 @@
 
  
 
- ****** Rob and the Kiss of Death ****** byJust_Plain_Bob© "Welcome to my party Rob." 
+ 
+
+===
+
+"Welcome to my party Rob." 
 
  She turned and walked into the living room and I followed along behind her. She walked to a coffee table, picked up something from it and handed it to me. 
 
@@ -734,7 +748,11 @@
 
  
 
- ****** Rob and the Kiss of Death ****** byJust_Plain_Bob© ++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++ 
 
  The next morning I made an appointment to see my attorney, gave him the files and the DVD and pointed out Bently and told my attorney who he was and pointed out that Bently committed sodomy on Mary Ellen. Jay was practically rubbing his hands in glee. I found out later that Bently had stuck it to him in a court case. I can just imagine how he felt at getting a chance for some payback. We set it up to have the papers served at the offices of CBB and T at ten in the morning on Friday. That would give me time to set up a locksmith to be at the house half an hour after Mary Ellen left for work. 
 

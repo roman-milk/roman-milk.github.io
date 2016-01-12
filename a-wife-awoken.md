@@ -1,8 +1,14 @@
+A Wife Awoken Ch. 01
+====================
 #1 
 
  
 
- ****** A Wife Awoken Ch. 01 ****** bydirty_geezer© We are an English couple, who have been married for nearly ten years, living and working in a fairly typical English city. While the early days of our relationship was filled with hot hungry fucking, things have tamed down over the years, much to my disappointment, but oh well, I guess that's what happens over time. At least the love and friendship is still as strong. 
+ 
+
+===
+
+We are an English couple, who have been married for nearly ten years, living and working in a fairly typical English city. While the early days of our relationship was filled with hot hungry fucking, things have tamed down over the years, much to my disappointment, but oh well, I guess that's what happens over time. At least the love and friendship is still as strong. 
 
  It's not as if my desire for my sexy little wife Sam has diminished, her body still stirs me every time she is close. Her long dark hair, framing her youthful face (you would never guess she is just over thirty), falls down to her chest, which draws the eyes to her pale white complexion, her large soft breasts begging for attention. I can never resist a squeeze of her full arse whenever she passes me at home, and her always so wet pussy just demands attention. 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** A Wife Awoken Ch. 01 ****** bydirty_geezer© I'm amazed that Charles manages to keep control, starting slowly, his long deep thrusts filling Sam completely. Sam makes animal sounds in her throat has he pulls out, only to ram home again, stretching her pussy lips around his cock. Slowly and surely he starts pumping into her faster, and I hear his balls slap against her arse, and her pussy making the wet sounds of a cunt being fucked hard and fast. 
+ 
+
+===
+
+I'm amazed that Charles manages to keep control, starting slowly, his long deep thrusts filling Sam completely. Sam makes animal sounds in her throat has he pulls out, only to ram home again, stretching her pussy lips around his cock. Slowly and surely he starts pumping into her faster, and I hear his balls slap against her arse, and her pussy making the wet sounds of a cunt being fucked hard and fast. 
 
  "That's it, fuck her, fuck her hard!" I chant, my own cock getting hard again, my body on a high, watching my wife turn into the slut I always wanted. I move around so I can help pin her down, my strong arms holding her down, so that Charles can fuck her harder, deeper. My tongue finds a nipple, and I bite and suck it hard, making Sam cry out, gasping for more. 
 
@@ -146,7 +156,11 @@
 
  
 
- ****** A Wife Awoken Ch. 02 ****** bydirty_geezer© After the events that unfurled in part 1, our sex life took on a new intensity we hadn't had since the early days. Sam's sexual appetite grew and grew into something like I always dreamed it would, and our sex was much more wild and dirty. No longer did she give my cock a few licks, oh no, now she sucked me dry, actually enjoying every mouthful of cum I could give her. 
+ 
+
+===
+
+After the events that unfurled in part 1, our sex life took on a new intensity we hadn't had since the early days. Sam's sexual appetite grew and grew into something like I always dreamed it would, and our sex was much more wild and dirty. No longer did she give my cock a few licks, oh no, now she sucked me dry, actually enjoying every mouthful of cum I could give her. 
 
  What we both vocalised during our fuck sessions, was the excitement we felt that first threesome with Charles, and while we hadn't repeated it, I think we both knew that it was only the first of many such steamy adventures. 
 
@@ -256,7 +270,11 @@
 
  
 
- ****** A Wife Awoken Ch. 03 ****** bydirty_geezer© Months had passed since Sam opened herself to her inner 'slut' -- a term which would have shocked her to be called before our first threesome, but now, and especially since she gave her virgin arse to a muscle-bound bodybuilder as I watched, she relished the term. I have since whispered and growled it into her ear while fucking her arse over and over... looked into her eyes while she's sucked me dry dressed like a whore, and fucked ourselves silly while watching porn... again something we'd never dreamed have doing before her awakening. 
+ 
+
+===
+
+Months had passed since Sam opened herself to her inner 'slut' -- a term which would have shocked her to be called before our first threesome, but now, and especially since she gave her virgin arse to a muscle-bound bodybuilder as I watched, she relished the term. I have since whispered and growled it into her ear while fucking her arse over and over... looked into her eyes while she's sucked me dry dressed like a whore, and fucked ourselves silly while watching porn... again something we'd never dreamed have doing before her awakening. 
 
  My pride in her ability to 'let go' only matches how horny it gets me, and if anything we are now more in love than ever, our sex lives like two teenagers... perverted teenagers though, ha! 
 

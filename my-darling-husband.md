@@ -1,8 +1,14 @@
+My Darling Husband
+==================
 #1 
 
  
 
- ****** My Darling Husband ****** bygeronimo_appleby© A short, hopefully sweet submission. Please, don't email me giving your views about the morality of the situation I describe here. There are hundreds and thousands of faithful wives out there who are paragons of virtue while their husband's are away serving in skirmishes around the globe. I speak from experience on that subject. Just enjoy the tale. 
+ 
+
+===
+
+A short, hopefully sweet submission. Please, don't email me giving your views about the morality of the situation I describe here. There are hundreds and thousands of faithful wives out there who are paragons of virtue while their husband's are away serving in skirmishes around the globe. I speak from experience on that subject. Just enjoy the tale. 
 
  My Darling Husband 
 

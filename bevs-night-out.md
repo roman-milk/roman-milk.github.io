@@ -1,8 +1,14 @@
+Bev's Night Out
+===============
 #1 
 
  
 
- ****** Bev's Night Out ****** byJust_Plain_Bob© Barb, my secretary, stuck her head in the door and said, "Your wife is on line 2." 
+ 
+
+===
+
+Barb, my secretary, stuck her head in the door and said, "Your wife is on line 2." 
 
  I gave her a little wave to indicate that I'd heard her, finished adding the column of numbers I was working on and then picked up the phone. 
 

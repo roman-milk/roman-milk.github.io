@@ -1,8 +1,14 @@
+Thirty Minutes or Free
+======================
 #1 
 
  
 
- ****** Thirty Minutes or Free ****** byTx_Tall_Tales© ===================== 
+ 
+
+===
+
+===================== 
 
  A pizza delivery boy's first naturist experience. 
 
@@ -254,7 +260,11 @@
 
  
 
- ****** Thirty Minutes or Free ****** byTx_Tall_Tales© Alexis scooted over on the couch, closer to her mother, and patted the small space next to her. "You can sit by me, Dan." 
+ 
+
+===
+
+Alexis scooted over on the couch, closer to her mother, and patted the small space next to her. "You can sit by me, Dan." 
 
  Mrs. Reynolds chuckled. "I think it best if you sit over here, young man. That might be a little too much stimulation over there, and we just shampooed the rugs." She indicated the space beside her on the loveseat. 
 

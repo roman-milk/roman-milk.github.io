@@ -1,8 +1,14 @@
+Grandma's Cottage
+=================
 #1 
 
  
 
- ****** Grandma's Cottage ****** bygeronimo_appleby© Another incest tale from me. I decided to move into new territory with this one by introducing a different generational mix. I tried to make Granny as sexy as I could without bending reality too much; I mean, a lady in her 60s isn't going to be smooth and flawless as a 20 year old, but I used yoga to keep her supple and toned. Anyway I hope the imagery comes across. 
+ 
+
+===
+
+Another incest tale from me. I decided to move into new territory with this one by introducing a different generational mix. I tried to make Granny as sexy as I could without bending reality too much; I mean, a lady in her 60s isn't going to be smooth and flawless as a 20 year old, but I used yoga to keep her supple and toned. Anyway I hope the imagery comes across. 
 
  As usual, since I self-edit, there are probably fuck-ups. And, as usual, I ask for your understanding. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Grandma's Cottage ****** bygeronimo_appleby© "As best we can. It will always be there, Michael; we can't turn back the clock, but at least we're clear between us. Nobody needs to know." She stood briskly, attending to business after their talk. "Now, if you'll excuse me I'd best tidy myself up and get off to the meeting. Will you be staying on and doing a little work?" She nodded at the can in his hand. "You can finish your beer first. I'll be back at five if you want to stay for some supper." 
+ 
+
+===
+
+"As best we can. It will always be there, Michael; we can't turn back the clock, but at least we're clear between us. Nobody needs to know." She stood briskly, attending to business after their talk. "Now, if you'll excuse me I'd best tidy myself up and get off to the meeting. Will you be staying on and doing a little work?" She nodded at the can in his hand. "You can finish your beer first. I'll be back at five if you want to stay for some supper." 
 
  Michael sat and stared into space, thinking about his grandmother's revelations as she moved about upstairs. The woman came back down, bid her grandson goodbye, and left. 
 

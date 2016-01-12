@@ -1,8 +1,14 @@
+What Mom Knows Fucks Her In Vegas
+=================================
 #1 
 
  
 
- ****** What Mom Knows Fucks Her In Vegas ****** bysilkstockingslover© Summary: Mom, son, girlfriend and busty seductress get nasty in Vegas. 
+ 
+
+===
+
+Summary: Mom, son, girlfriend and busty seductress get nasty in Vegas. 
 
  Note 1: This is part five of a continuing incest series (although it is much more complex than simply an incest story). I highly recommend you read the first four parts as the layered subplots may be confusing without the background information...but here is a very brief primer of the series so far: 
 
@@ -358,7 +364,11 @@
 
  
 
- ****** What Mom Knows Fucks Her In Vegas ****** bysilkstockingslover© Hearing Miranda coo, "Oh Curtis, don't stop," and "Yes, baby, I love your tongue, baby," and "Oh God, you are getting me so fucking wet," only enhances my eagerness to please. 
+ 
+
+===
+
+Hearing Miranda coo, "Oh Curtis, don't stop," and "Yes, baby, I love your tongue, baby," and "Oh God, you are getting me so fucking wet," only enhances my eagerness to please. 
 
  I took my time enjoying the slow build of Miranda's orgasm. Finally, ten minutes later give or take, her moans had escalated and I knew she was near the brink of euphoria and I sucked her clit into my mouth while sliding two fingers inside her very wet pussy. 
 
@@ -728,7 +738,11 @@
 
  
 
- ****** What Mom Knows Fucks Her In Vegas ****** bysilkstockingslover© "Brilliant," Miranda said, "that is even more devious than I could have come up with." 
+ 
+
+===
+
+"Brilliant," Miranda said, "that is even more devious than I could have come up with." 
 
  "Why thank you," Ellie replied, clearly glowing in her latest conquest. 
 

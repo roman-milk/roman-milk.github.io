@@ -1,8 +1,14 @@
+The Diary
+=========
 #1 
 
  
 
- ****** The Diary ****** byJust_Plain_Bob© I read it for perhaps the tenth time, "Dear Diary, this afternoon I stood in my bedroom closet finger fucking myself while watching Angela's big tits swaying back and forth over my husbands face." 
+ 
+
+===
+
+I read it for perhaps the tenth time, "Dear Diary, this afternoon I stood in my bedroom closet finger fucking myself while watching Angela's big tits swaying back and forth over my husbands face." 
 
  It was by far the most interesting entry my diary had seen in quite a while. Why was a thirty-six year old woman in her closet playing with herself? That's the story. 
 

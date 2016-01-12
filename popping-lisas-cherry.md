@@ -1,8 +1,14 @@
+Popping Lisa's Cherry
+=====================
 #1 
 
  
 
- ****** Popping Lisa's Cherry ****** bygeronimo_appleby© The door slammed and Lisa's heart leapt. She was alone, finally alone with all the time in the world to pamper herself. She had hours and hours to look forward to, to be a real lady. 
+ 
+
+===
+
+The door slammed and Lisa's heart leapt. She was alone, finally alone with all the time in the world to pamper herself. She had hours and hours to look forward to, to be a real lady. 
 
  It wasn't often that Lisa had such an opportunity, even if she did find herself alone occasionally there was always the certainty that someone would make an appearance before long. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Popping Lisa's Cherry ****** bygeronimo_appleby© Laurie's climax exploded, she writhed and thrashed wildly as Lisa continued her relentless attack on Laurie's electrified clitoris. Lisa felt her stepdaughter's insides clenching around her slippery fingers and she increased the tempo of her already frenzied finger fucking. 
+ 
+
+===
+
+Laurie's climax exploded, she writhed and thrashed wildly as Lisa continued her relentless attack on Laurie's electrified clitoris. Lisa felt her stepdaughter's insides clenching around her slippery fingers and she increased the tempo of her already frenzied finger fucking. 
 
  No sooner had the wave of one climax broken, than Laurie felt another rolling in behind. She was lost on the rise and fall of her ocean of orgasm, her body continually being bathed in the agony of ecstasy a she came and came again. 
 

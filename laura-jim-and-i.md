@@ -1,8 +1,14 @@
+Laura, Jim and I
+================
 #1 
 
  
 
- ****** Laura, Jim and I ****** byJust_Plain_Bob© I was sitting on the hood of the car parked in front of room 128 when the door opened and they came out. She saw me and her face lost its color. Her eyes couldn't meet mine and she looked away. As I slid off the hood of the car he put his hands up in a defensive gesture and I said: 
+ 
+
+===
+
+I was sitting on the hood of the car parked in front of room 128 when the door opened and they came out. She saw me and her face lost its color. Her eyes couldn't meet mine and she looked away. As I slid off the hood of the car he put his hands up in a defensive gesture and I said: 
 
  "Don't bother. Neither one of you is worth wasting my time on." 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** Laura, Jim and I ****** byJust_Plain_Bob© "You don't really want to be here do you?" 
+ 
+
+===
+
+"You don't really want to be here do you?" 
 
  I told her that I was uncomfortable and I told her why. 
 
@@ -456,7 +466,11 @@
 
  
 
- ****** Laura, Jim and I ****** byJust_Plain_Bob© I made the deal with Mellows to sell him my share of the company on paper for a third of what he actually paid. That third went into a bank account in my name only. The other two thirds went to an offshore account that I set up. The deal was that he wouldn't show up at the office and take over my desk until the morning after I served Laura and Jim with the papers. Laura for a divorce on the grounds of adultery and Jim for alienation of affections. Even though we were in a no fault state I could still sue for adultery and depending on the judge we drew it could mean a little better split than fifty-fifty. 
+ 
+
+===
+
+I made the deal with Mellows to sell him my share of the company on paper for a third of what he actually paid. That third went into a bank account in my name only. The other two thirds went to an offshore account that I set up. The deal was that he wouldn't show up at the office and take over my desk until the morning after I served Laura and Jim with the papers. Laura for a divorce on the grounds of adultery and Jim for alienation of affections. Even though we were in a no fault state I could still sue for adultery and depending on the judge we drew it could mean a little better split than fifty-fifty. 
 
  In order for the adultery grounds to fly I needed proof. A review of the reports from Gary's PI and mine showed that every time they were under observation they used the same motel and it was always on a Wednesday. My detective rented a room and set it up to record the action and a healthy bribe to the desk clerk insured that they would be put into that room. 
 
@@ -656,7 +670,11 @@
 
  
 
- ****** Laura, Jim and I ****** byJust_Plain_Bob© "We" doesn't enter into it Laura. I need a divorce. I can't live with someone who has betrayed me. It is just that simple Laura. You betrayed me. If I kept you I would spend the rest of my life watching you like a hawk and waiting for you to do it again. By your own admission you kept doing it because cheating was such a turn on. How long would it be before you remembered how great the orgasms were when you were cheating on me? How long before you decided that you wanted to experience those great orgasms again? You can promise me all you want that you will never do it again, but your promises aren't worth spit. You already promised me to "forsake all others" when we got married and you broke that promise. 
+ 
+
+===
+
+"We" doesn't enter into it Laura. I need a divorce. I can't live with someone who has betrayed me. It is just that simple Laura. You betrayed me. If I kept you I would spend the rest of my life watching you like a hawk and waiting for you to do it again. By your own admission you kept doing it because cheating was such a turn on. How long would it be before you remembered how great the orgasms were when you were cheating on me? How long before you decided that you wanted to experience those great orgasms again? You can promise me all you want that you will never do it again, but your promises aren't worth spit. You already promised me to "forsake all others" when we got married and you broke that promise. 
 
  "I can't believe anything you say Laura. Jim's story about how it happened doesn't even come close to yours. According to Jim it didn't 'accidently' happen. According to him you made a play for him. He could be lying or you could be. The problem is that after what the two of you did neither one of you is trustworthy as far as I'm concerned so I can't pick one story over the other. The bottom line Laura is that we are done as a couple." 
 

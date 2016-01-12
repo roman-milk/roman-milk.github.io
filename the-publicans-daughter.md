@@ -1,8 +1,14 @@
+The Publican's Daughter
+=======================
 #1 
 
  
 
- ****** The Publican's Daughter ****** bygeronimo_appleby© Sam locked the door behind the last of the boozy customers and heaved a sigh of relief. It had been another busy Friday night, and the pub had been heaving with people since 8pm. He looked across the bar towards his pretty, dark haired daughter, Karen. Karen had been working for her father behind the bar of the pub since her 18th birthday only 3 weeks earlier, and had so far proven to be a big hit with the male clientele. Perhaps this was due to the low cut tops and short skirts that the girl wore. Her choice of clothing meant that generous amounts of deep valleyed cleavage and long, lithe thigh were on display, and that was bound to draw the punters. 
+ 
+
+===
+
+Sam locked the door behind the last of the boozy customers and heaved a sigh of relief. It had been another busy Friday night, and the pub had been heaving with people since 8pm. He looked across the bar towards his pretty, dark haired daughter, Karen. Karen had been working for her father behind the bar of the pub since her 18th birthday only 3 weeks earlier, and had so far proven to be a big hit with the male clientele. Perhaps this was due to the low cut tops and short skirts that the girl wore. Her choice of clothing meant that generous amounts of deep valleyed cleavage and long, lithe thigh were on display, and that was bound to draw the punters. 
 
  Sam had mixed feelings about his buxom daughter's popularity. She definitely attracted the boys and drew them into the pub, where they spent their hard cash and ogled at Karen's voluptuous curves. Sam was entirely happy to take their money from them, but he had grown very concerned about the interest they had in his daughter. Karen was a vivacious, pretty girl, with her large bosom and long legs adding to her obvious attractiveness. She had been getting on well with one of the local lads, a little too well Sam thought, and he knew for a fact he had good grounds for his concern. 
 

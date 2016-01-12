@@ -1,8 +1,14 @@
+Bareback In My Mom Ch. 01
+=========================
 #1 
 
  
 
- ****** Bareback In My Mom Ch. 01 ****** byGotBacon© Sarah is a 38 year old beauty. She is 5 feet 6 inches tall and has D cup breasts. He waist is 34 inches and her hips are 38 inches. She is smokin hot. Her bright red hair and green eyes attracted every male eye within sight. 
+ 
+
+===
+
+Sarah is a 38 year old beauty. She is 5 feet 6 inches tall and has D cup breasts. He waist is 34 inches and her hips are 38 inches. She is smokin hot. Her bright red hair and green eyes attracted every male eye within sight. 
 
  She was widowed 4 years ago. Her husband was coming home from work and a drunk driver crossed the center line at 80 miles per hour and hit him head on. Both were killed instantly. It took her and Gary about a year to get over it. Between his life insurance and the sale of her husbands business she is set financially. 
 
@@ -350,7 +356,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 01 ****** byGotBacon© 'He's going to fuck me now. His big cock is going in my pussy. He's going to shoot his cum in me." 
+ 
+
+===
+
+'He's going to fuck me now. His big cock is going in my pussy. He's going to shoot his cum in me." 
 
  He rolls her on her back. He kisses her face and neck. His hands find her breasts and her nipples. Her nipples perk up rock hard. He twirls one and then the other. Lightening bolts leave her nipples and hit her pussy. She moans as he brings her passion up. He moves down and sucks one nipple while he twists the other. He kisses his way down to her wet pussy. He caresses it tenderly. Her flower is open and ready for him. He wets his finger and touches her puckered asshole. She squeals and tightens her sphincter. He sticks it in up the the first joint. She cries out and squeezes his finger. 
 
@@ -536,7 +546,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 02 ****** byGotBacon© Gary is asleep. Sarah is timing her contractions. The doctor told her to use the 411 method. 4 minutes apart, lasting for 1 minute for 1 hour. She isn't there yet. She doesn't want to wake Gary because she thinks he will lose it. Three hours later she checks again. The only change is they are now 10 minutes apart. Gary wakes up. 
+ 
+
+===
+
+Gary is asleep. Sarah is timing her contractions. The doctor told her to use the 411 method. 4 minutes apart, lasting for 1 minute for 1 hour. She isn't there yet. She doesn't want to wake Gary because she thinks he will lose it. Three hours later she checks again. The only change is they are now 10 minutes apart. Gary wakes up. 
 
  "Good morning. Are you having contractions?" 
 
@@ -738,7 +752,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 03 ****** byGotBacon© Gary is in the study preparing for an upcoming exam in his business class. Sarah is sitting on the couch imitating a beached whale. She is timing her contractions. She is getting close, but not ready yet. Her contractions are 10 minutes apart and last for about 30 seconds. She checks again an hour later. They are 6 minutes apart and last for 45 seconds. 
+ 
+
+===
+
+Gary is in the study preparing for an upcoming exam in his business class. Sarah is sitting on the couch imitating a beached whale. She is timing her contractions. She is getting close, but not ready yet. Her contractions are 10 minutes apart and last for about 30 seconds. She checks again an hour later. They are 6 minutes apart and last for 45 seconds. 
 
  "Baby!! I think I'm getting close. Will you call Betty and have her come over." 
 
@@ -1046,7 +1064,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 03 ****** byGotBacon© "That's sweet of you. I love looking at you. You're a beautiful woman." 
+ 
+
+===
+
+"That's sweet of you. I love looking at you. You're a beautiful woman." 
 
  "You can look at me any time you want. It makes me feel good." 
 
@@ -1392,7 +1414,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 03 ****** byGotBacon© The get on their knees and open their mouths like baby birds in the nest. The stroke his cock and his cock swells and he shoots cum in both of their mouths. He misses a couple of time and shoots some on their faces. The wipe it off and lick their fingers clean. He stands them up and fingers them both to an orgasm. They cry out as he makes them cum. He turns the water on and they rinse off. They dry each other off and go out. Sarah hears all the noise and smiles. Daddy is training his little girls. She loves him for it. 
+ 
+
+===
+
+The get on their knees and open their mouths like baby birds in the nest. The stroke his cock and his cock swells and he shoots cum in both of their mouths. He misses a couple of time and shoots some on their faces. The wipe it off and lick their fingers clean. He stands them up and fingers them both to an orgasm. They cry out as he makes them cum. He turns the water on and they rinse off. They dry each other off and go out. Sarah hears all the noise and smiles. Daddy is training his little girls. She loves him for it. 
 
  The walk into the living room. Sarah is sitting naked, watching TV. The girls sit on each side of her. 
 
@@ -1428,7 +1454,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 04 ****** byGotBacon© Gary is at his computer. Jane come in and kisses him. She sits on his lap. 
+ 
+
+===
+
+Gary is at his computer. Jane come in and kisses him. She sits on his lap. 
 
  "Hi Daddy, doing computer stuff again?" 
 
@@ -1864,7 +1894,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 04 ****** byGotBacon© "We just wanted to tell you how glad you're home. We really missed you." 
+ 
+
+===
+
+"We just wanted to tell you how glad you're home. We really missed you." 
 
  Jane feels Jacob's cock on her ass. It's filling with blood. Jane gets off Jacobs lap and pulls him into her room. 
 
@@ -2010,7 +2044,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 05 ****** byGotBacon© Everyone is sitting around with big grins on their face. Gary looks at Sarah and shakes his head up and down. Sarah smiles. 
+ 
+
+===
+
+Everyone is sitting around with big grins on their face. Gary looks at Sarah and shakes his head up and down. Sarah smiles. 
 
  "It's time to tell you kids something you don't know about our family. What you don't know is that your father is also my son. 
 
@@ -2426,7 +2464,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 05 ****** byGotBacon© "Oh god, Daniel. You make me cum so much. I love it." 
+ 
+
+===
+
+"Oh god, Daniel. You make me cum so much. I love it." 
 
  "Hold me in you. Your pussy is so good around my cock. I love the way it holds my cock. It's a perfect fit." 
 
@@ -2744,7 +2786,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 06 ****** byGotBacon© This is a continuation of the "Bareback in my Mom" series. Daniel, Amber, Jacob and Kim have gone to college, leaving Gary, Sarah, Jane and Jean at home. Jane and Jean are pregnant with Gary's babies. 
+ 
+
+===
+
+This is a continuation of the "Bareback in my Mom" series. Daniel, Amber, Jacob and Kim have gone to college, leaving Gary, Sarah, Jane and Jean at home. Jane and Jean are pregnant with Gary's babies. 
 
  Kim and Amber have gone off the pill. I'll get to them later. 
 
@@ -3068,7 +3114,11 @@
 
  
 
- ****** Bareback In My Mom Ch. 06 ****** byGotBacon© Sarah says, "Oh fuck. Nothing like a good double. I got them to cum at the same time. So fucking good." 
+ 
+
+===
+
+Sarah says, "Oh fuck. Nothing like a good double. I got them to cum at the same time. So fucking good." 
 
  "Hey, Gary. This girl can fuck. You've been hiding her for far too long. I'm really glad you accepted our offer." 
 

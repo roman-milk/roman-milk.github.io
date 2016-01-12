@@ -1,8 +1,14 @@
+The Cock Report
+===============
 #1 
 
  
 
- ****** The Cock Report ****** byJust_Plain_Bob© "Joey, can I ask you what sounds like a silly question?" 
+ 
+
+===
+
+"Joey, can I ask you what sounds like a silly question?" 
 
  "Sure, as long as you don't mind silly answers." 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** The Cock Report ****** byJust_Plain_Bob© "It took a lot more booze that I thought it would, but it worked. That's Tyrone in the saddle and the other two are Sam and Wendell. They all know what the score is, good luck." 
+ 
+
+===
+
+"It took a lot more booze that I thought it would, but it worked. That's Tyrone in the saddle and the other two are Sam and Wendell. They all know what the score is, good luck." 
 
  On the bed Tyrone said, "Next up get ready, I'm almost there." 
 

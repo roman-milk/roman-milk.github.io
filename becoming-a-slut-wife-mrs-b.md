@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mrs. B.
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mrs. B. ****** byJust_Plain_Bob© I stood there looking into the mirror. What I saw was a married woman of thirty-nine who had a grown son and a hard working husband. It was a good looking (okay, so I'm prejudiced) woman who looked back at me. Five feet four, a hundred and eighteen pounds with nice breasts (no sag), dirty blonde shoulder length hair and with what I've heard called a sexy mouth. The woman I was looking at and who was looking back at me used to be a faithful wife, but not anymore. Now she was a slut! A whore! A fuck pig and a sex toy for young boys. I looked at me looking back at me as I remembered how it all came about. 
+ 
+
+===
+
+I stood there looking into the mirror. What I saw was a married woman of thirty-nine who had a grown son and a hard working husband. It was a good looking (okay, so I'm prejudiced) woman who looked back at me. Five feet four, a hundred and eighteen pounds with nice breasts (no sag), dirty blonde shoulder length hair and with what I've heard called a sexy mouth. The woman I was looking at and who was looking back at me used to be a faithful wife, but not anymore. Now she was a slut! A whore! A fuck pig and a sex toy for young boys. I looked at me looking back at me as I remembered how it all came about. 
 
  +++++ 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Becoming A Slut Wife: Mrs. B. ****** byJust_Plain_Bob© For the next hour the boys took turns fucking me, getting off in me and putting cocks in my mouth. Then Billy had them all sit on the side of the bed and I crawled along on the floor going from cock to cock until I'd gotten each of them off again. Al was the last one to cum and while I was working on his cock Billy, who had been in the room many, many times and knew where things were, went over to the dresser and got the KY and headed back for the bed. 
+ 
+
+===
+
+For the next hour the boys took turns fucking me, getting off in me and putting cocks in my mouth. Then Billy had them all sit on the side of the bed and I crawled along on the floor going from cock to cock until I'd gotten each of them off again. Al was the last one to cum and while I was working on his cock Billy, who had been in the room many, many times and knew where things were, went over to the dresser and got the KY and headed back for the bed. 
 
  "Give it to Matt" I said, "I want him to be first." 
 

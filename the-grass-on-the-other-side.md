@@ -1,8 +1,14 @@
+The Grass on the Other Side
+===========================
 #1 
 
  
 
- ****** The Grass on the Other Side ****** byJust_Plain_Bob© I guess from what I've heard and read that my situation was not at all unique. I'd been married to Howard for fifteen years and things had reached a point where things just seemed to be going on because of inertia. Howie and I still made love, but it was more like we did it because it was a duty we owed each other. 
+ 
+
+===
+
+I guess from what I've heard and read that my situation was not at all unique. I'd been married to Howard for fifteen years and things had reached a point where things just seemed to be going on because of inertia. Howie and I still made love, but it was more like we did it because it was a duty we owed each other. 
 
  I couldn't remember the last time I pulled him into the bedroom because I wanted him nor could I remember the last time he came after me with any great degree of passion. The affection was still there. I loved cuddling up to Howie in the morning and I usually fell asleep at night snuggled up next to him. I guess the best way to describe our marriage was that we were comfortable with each other, but the passion was gone. 
 

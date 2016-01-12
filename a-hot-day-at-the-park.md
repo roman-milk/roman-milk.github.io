@@ -1,8 +1,14 @@
+A Hot Day at the Park
+=====================
 #1 
 
  
 
- ****** A Hot Day at the Park ****** byJs_Keeper© It was the kind of day that always makes me thankful I live in the deep South: searing sun shining through humid haze, and it was only May. We'd likely be enjoying this kind of weather almost until October, and though some find our long southern summers rather oppressive, for me, the hotter it is, the more I love it. 
+ 
+
+===
+
+It was the kind of day that always makes me thankful I live in the deep South: searing sun shining through humid haze, and it was only May. We'd likely be enjoying this kind of weather almost until October, and though some find our long southern summers rather oppressive, for me, the hotter it is, the more I love it. 
 
  This prematurely summer-like Saturday came to us as a pleasant surprise, and I was excited that Tim had insisted we enjoy the afternoon together at Goose Creek Park, an idyllic sprawling nature preserve with miles of trails and streams, a few small lakes and several broad, grassy fields, ideal for picnicking. It's always been one of our favorite spots, and after the fun we had together on that particular gorgeous spring day, it would become even more so. 
 

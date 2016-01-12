@@ -1,8 +1,14 @@
+Nobody Done No Wrong
+====================
 #1 
 
  
 
- ****** Nobody Done No Wrong ****** byJust_Plain_Bob© I met her at the wedding reception held following the ceremony that joined my brother Sam and his longtime girlfriend Samantha. I knew at least two-thirds of the people there, but there was this one girl (woman actually) that I'd never seen before. I'll say upfront that she was not drop dead gorgeous and that as soon as I saw her it was love (or lust) at first sight, but there was something about her that attracted me. 
+ 
+
+===
+
+I met her at the wedding reception held following the ceremony that joined my brother Sam and his longtime girlfriend Samantha. I knew at least two-thirds of the people there, but there was this one girl (woman actually) that I'd never seen before. I'll say upfront that she was not drop dead gorgeous and that as soon as I saw her it was love (or lust) at first sight, but there was something about her that attracted me. 
 
  When I was able to separate Sam from the throng of well-wishers I asked him who she was. He told me that the woman was one of Samantha's cousins. 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Nobody Done No Wrong ****** byJust_Plain_Bob© "Have fun together." 
+ 
+
+===
+
+"Have fun together." 
 
  "I guess the answer to that question has to be that we won't know unless we try." 
 

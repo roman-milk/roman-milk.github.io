@@ -1,8 +1,14 @@
+Do You Want To Be A Daddy?
+==========================
 #1 
 
  
 
- ****** Do You Want To Be A Daddy? ****** byJust_Plain_Bob© I hadn't seen or heard from Deserae since college and I didn't even realize that she still knew I was alive, let alone where to find me. The phone call inviting me to lunch came out of the blue and I was still wondering what she could possibly want to talk about after all these years. 
+ 
+
+===
+
+I hadn't seen or heard from Deserae since college and I didn't even realize that she still knew I was alive, let alone where to find me. The phone call inviting me to lunch came out of the blue and I was still wondering what she could possibly want to talk about after all these years. 
 
  It was six years since I had graduated and we had broken up six months prior to that. I had spent a lot of time thinking about her over the years, but I had never expected to hear from her or see her again. 
 

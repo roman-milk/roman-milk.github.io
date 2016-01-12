@@ -1,8 +1,14 @@
+M&amp;M Kisses
+==============
 #1 
 
  
 
- ****** M&amp;M Kisses ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  Sweets revenge exposes a weakness and opportunity 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** M&amp;M Kisses ****** byTx_Tall_Tales© "I was hoping to collect on my missing kiss." 
+ 
+
+===
+
+"I was hoping to collect on my missing kiss." 
 
  She leaned toward me smiling. "I think that's only fair. It was a very nice lunch, thank you." 
 
@@ -596,7 +606,11 @@
 
  
 
- ****** M&amp;M Kisses ****** byTx_Tall_Tales© We seemed to have weathered the storm. We hadn't seen a kid for a few minutes. A group of teenagers came running up to the door, and I felt like something was missing when Briana pulled out the candy, my other side lonely. 
+ 
+
+===
+
+We seemed to have weathered the storm. We hadn't seen a kid for a few minutes. A group of teenagers came running up to the door, and I felt like something was missing when Briana pulled out the candy, my other side lonely. 
 
  I reached into the pocket, and Angela was there, slapping my hand away. "I'll be good," she said. 
 
@@ -920,7 +934,11 @@
 
  
 
- ****** M&amp;M Kisses ****** byTx_Tall_Tales© "Someday." I moved in behind her, thrusting into my third KISS, looking forward to the day she'd offer me the fourth one. But this one was more than enough for now. 
+ 
+
+===
+
+"Someday." I moved in behind her, thrusting into my third KISS, looking forward to the day she'd offer me the fourth one. But this one was more than enough for now. 
 
  She moaned, thrusting back against me. I grabbed her cute ass cheeks, holding them tightly while I long-stroked her, amazed at how wonderful it felt. I made her come for me twice more before I couldn't hold back any longer. 
 

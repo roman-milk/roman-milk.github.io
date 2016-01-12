@@ -1,8 +1,14 @@
+Nude with Mum in the Sun
+========================
 #1 
 
  
 
- ****** Nude with Mum in the Sun ****** bygeronimo_appleby© One for the contest schedule. Margot and her son find a nudist beach, which leads to the mother's desire to have her pussy shaved. Who's going to help her? What happens after? 
+ 
+
+===
+
+One for the contest schedule. Margot and her son find a nudist beach, which leads to the mother's desire to have her pussy shaved. Who's going to help her? What happens after? 
 
  I hope you enjoy the piece. If you do, vote for it in the story contest by clicking the stars below. Send feedback if you like. Feedback can be given in public comments below, by PM on Lit forums, or email. If you want a response, email is best. 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** Nude with Mum in the Sun ****** bygeronimo_appleby© Mark balked. 'But what if someone sees us?' 
+ 
+
+===
+
+Mark balked. 'But what if someone sees us?' 
 
  'Even better to be watched, darling. They won't know I'm your mother. They'll just think I'm a lucky old tart who's seduced a fit young cock.' 
 

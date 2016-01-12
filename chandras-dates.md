@@ -1,8 +1,14 @@
+Chandra's Dates
+===============
 #1 
 
  
 
- ****** Chandra's Dates ****** byJust_Plain_Bob© Chandra and I work for the same company and the company has a policy that says married couples can't work in the same area of the company if one of the partners reports to the other. Unfortunately Chandra works for me and it put us into a predicament. We only have three secretaries in the office and all the rest of the jobs at my division are high tech jobs and have to be filled by highly trained and experienced technicians. If it comes out that Chandra and I are married I would have to let her go. With the economy as sour as it is it might take Chandra a long time to find a job that pays as well and that has benefits as good. And we need the money so the only thing we can do is keep our marriage secret. 
+ 
+
+===
+
+Chandra and I work for the same company and the company has a policy that says married couples can't work in the same area of the company if one of the partners reports to the other. Unfortunately Chandra works for me and it put us into a predicament. We only have three secretaries in the office and all the rest of the jobs at my division are high tech jobs and have to be filled by highly trained and experienced technicians. If it comes out that Chandra and I are married I would have to let her go. With the economy as sour as it is it might take Chandra a long time to find a job that pays as well and that has benefits as good. And we need the money so the only thing we can do is keep our marriage secret. 
 
  How did we get in this mess? Chandra worked in our St. Louis office and I met her when I was sent there on temporary assignment. We meet, dated and fell in love. I proposed, she accepted and we were married in a civil ceremony. One of the secretaries in my home office was quitting and Chandra put in for a transfer to fill the vacancy and got it. We did not expect to have a problem because I was due for a promotion as soon as my temporary assignment was over. We planned to keep the marriage a secret until I got the promotion and then as soon as my replacement was over her as her supervisor we would fall in love, have a whirlwind courtship and announced to all that we were getting married. Except I didn't get the promotion. Two weeks after I returned from St. Louis the company reorganized and eliminated fourteen positions. I got a raise, more responsibility and a new job title, but I stayed where I was. 
 
@@ -84,7 +90,11 @@
 
  
 
- ****** Chandra's Dates ****** byJust_Plain_Bob© The door hadn't fully closed behind Bill and I was on her. I ripped her clothes off and took her right the on the living room floor. She pulled my head down and kissed me and I tasted the salty bitterness of Bill's discharge in her mouth and I rammed her all the harder. When I came it was so hard I was almost surprised that cum didn't come out of Chandra's nose. I didn't wait to go soft, I pulled out and shoved my cock in Chandra's mouth, "Suck it you fucking slut. Get me hard again so I can fuck your slutty little asshole." When I was erect again Chandra pulled away from me and got on her hands and knees, "Do it! Fuck your unfaithful little whore in her ass." I plunged my cock in her pussy to get some lube on it and then I lined the head of my cock up with her asshole and pushed. It slid right in and I started banging Chandra as hard as I could. 
+ 
+
+===
+
+The door hadn't fully closed behind Bill and I was on her. I ripped her clothes off and took her right the on the living room floor. She pulled my head down and kissed me and I tasted the salty bitterness of Bill's discharge in her mouth and I rammed her all the harder. When I came it was so hard I was almost surprised that cum didn't come out of Chandra's nose. I didn't wait to go soft, I pulled out and shoved my cock in Chandra's mouth, "Suck it you fucking slut. Get me hard again so I can fuck your slutty little asshole." When I was erect again Chandra pulled away from me and got on her hands and knees, "Do it! Fuck your unfaithful little whore in her ass." I plunged my cock in her pussy to get some lube on it and then I lined the head of my cock up with her asshole and pushed. It slid right in and I started banging Chandra as hard as I could. 
 
  "That's it, that's it baby, fuck your cheating whore. Fuck my ass baby, fuck me hard." 
 

@@ -1,8 +1,14 @@
+The Black Hat
+=============
 #1 
 
  
 
- ****** The Black Hat ****** byJust_Plain_Bob© I stop at the same restaurant for breakfast four or five days a week and for lunch maybe twice. There are a lot of regulars that frequent the place and I don't know half of them even though I've seen most of them off and on for the last fifteen years. It was a case of 'you know who they are but you don't know them.' You see them often enough to nod at them and say "Good morning" but it rarely goes any farther than that. 
+ 
+
+===
+
+I stop at the same restaurant for breakfast four or five days a week and for lunch maybe twice. There are a lot of regulars that frequent the place and I don't know half of them even though I've seen most of them off and on for the last fifteen years. It was a case of 'you know who they are but you don't know them.' You see them often enough to nod at them and say "Good morning" but it rarely goes any farther than that. 
 
  You see them often enough to observe their character traits and idiosyncrasies and some of them can be pretty entertaining to watch. There is the cop who comes in and sits in the same booth every day. If he comes in and some one else is sitting in that particular booth he will sit at the counter even if there are other booths and tables empty and drink coffee and read the morning paper until "his" booth becomes available and then he will move to it and order his breakfast. I've seen him sit at the counter for almost an hour waiting for that booth. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** The Black Hat ****** byJust_Plain_Bob© +++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++ 
 
  The second thing that happened was that I was discovered. It was the Tuesday after I returned from my St. Louis trip. I was sitting at the restaurant having lunch when Candy came in. She looked my way, saw me, and her face lit up with a smile. "What's up with that" I thought and then she headed straight for my table. As I stood up and pulled out a chair for her I looked around and noticed several empty booths and tables. Once she was seated she said: 
 
@@ -436,7 +446,11 @@
 
  
 
- ****** The Black Hat ****** byJust_Plain_Bob© "You aren't eating it anyway so let's get out of here." 
+ 
+
+===
+
+"You aren't eating it anyway so let's get out of here." 
 
  "Where are we going?" 
 

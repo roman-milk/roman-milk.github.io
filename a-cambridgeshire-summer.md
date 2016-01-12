@@ -1,8 +1,14 @@
+A Cambridgeshire Summer Ch. 01
+==============================
 #1 
 
  
 
- ****** A Cambridgeshire Summer Ch. 01 ****** bygeronimo_appleby© She searched the house; they were nowhere to be found. The gardens, they had to be in the gardens -- there was no other place they could be. I know I'm right, she thought. I know they're lovers. With feline stealth she crept down the path into the well-kept gardens. The sun, at its zenith, bathed the solitude with its benign warmth; it was a glorious summer day. A light breeze breathed a sigh through the trees, cooling the afternoon. 
+ 
+
+===
+
+She searched the house; they were nowhere to be found. The gardens, they had to be in the gardens -- there was no other place they could be. I know I'm right, she thought. I know they're lovers. With feline stealth she crept down the path into the well-kept gardens. The sun, at its zenith, bathed the solitude with its benign warmth; it was a glorious summer day. A light breeze breathed a sigh through the trees, cooling the afternoon. 
 
  Cecilia cautiously skirted the orchard, every nerve and sinew alert. Then, as she neared the edge of the orchard, she saw them. Even though she'd anticipated the scene, the shock of the discovery sent her heart racing. "Oh my god..." She muttered. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** A Cambridgeshire Summer Ch. 02 ****** bygeronimo_appleby© Damian felt a player in his own surreal dream. Ten minutes earlier sleep had held him, but now he found his sister offering his erect penis to their aunt. It was a moment of confusion for Damian. His aunt's unbidden entry to his bedroom, the revelation that she knew of his and Rebekah's incestuous affair, the arrival of his sister on the scene, and the obvious conspiracy between aunt and niece... It was all too much to take in at once. 
+ 
+
+===
+
+Damian felt a player in his own surreal dream. Ten minutes earlier sleep had held him, but now he found his sister offering his erect penis to their aunt. It was a moment of confusion for Damian. His aunt's unbidden entry to his bedroom, the revelation that she knew of his and Rebekah's incestuous affair, the arrival of his sister on the scene, and the obvious conspiracy between aunt and niece... It was all too much to take in at once. 
 
  "Bekah, I..." He began. 
 

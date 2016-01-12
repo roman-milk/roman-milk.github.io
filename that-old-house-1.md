@@ -1,8 +1,14 @@
+That Old House
+==============
 #1 
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© ================ 
+ 
+
+===
+
+================ 
 
  He got more than a house - for better or worse 
 
@@ -260,7 +266,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© She was quiet. "Mom. Nobody ever called me that." 
+ 
+
+===
+
+She was quiet. "Mom. Nobody ever called me that." 
 
  "I'm sorry, I hope I didn't offend you." 
 
@@ -418,7 +428,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© "You can put me in the truck now, Jack. Although I certainly don't mind being held by such a handsome young man." 
+ 
+
+===
+
+"You can put me in the truck now, Jack. Although I certainly don't mind being held by such a handsome young man." 
 
  I was embarrassed I'd been standing there holding her, and set her into the cab. I was always a little surprised when she called me handsome. I knew better. Striking, maybe, with the large scar down the side of my jawbone, eyes too small and narrow, nose too wide. Wild hair which I could do nothing with and pretty much let it do whatever it would. No, not handsome. Still, it was nice to hear it from her. 
 
@@ -666,7 +680,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© Bev asked to take a break under the tree and we parked her there, while we sat on the ground nearby. We talked about her past, her childhood, what the country was like in the thirties and forties. 
+ 
+
+===
+
+Bev asked to take a break under the tree and we parked her there, while we sat on the ground nearby. We talked about her past, her childhood, what the country was like in the thirties and forties. 
 
  She had been in love, married young, and her husband of eight months joined the nascent Army Air Forces after Pearl Harbor. He'd died over the skies of Europe, and she'd never married again. 
 
@@ -902,7 +920,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© "And now I owe you twice," I told her. "First for giving me this wonderful place to fix up, and now bringing this sexy, saucy wench into my home." 
+ 
+
+===
+
+"And now I owe you twice," I told her. "First for giving me this wonderful place to fix up, and now bringing this sexy, saucy wench into my home." 
 
  I guess she wasn't quite done teasing. "I'm just glad you were up to both tasks." 
 
@@ -1172,7 +1194,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© When I finally retired to my room, it was well after midnight. I put on a pair of boxers, and climbed under the covers. I kept my hand clear of my waist, in case playing with myself had been a catalyst to whatever the hell happened. I felt foolish, more convinced than ever that my mind was playing tricks on me. 
+ 
+
+===
+
+When I finally retired to my room, it was well after midnight. I put on a pair of boxers, and climbed under the covers. I kept my hand clear of my waist, in case playing with myself had been a catalyst to whatever the hell happened. I felt foolish, more convinced than ever that my mind was playing tricks on me. 
 
  I fell asleep easier than I would have thought possible. 
 
@@ -1358,7 +1384,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© "You are beautiful," I whispered softly. "So young and beautiful, it makes my heart ache." 
+ 
+
+===
+
+"You are beautiful," I whispered softly. "So young and beautiful, it makes my heart ache." 
 
  Her appearance faded after a few more seconds, but I knew where her face had gone, as my shaft was taken into her mouth. "I love how you do that," I told her. 
 
@@ -1652,7 +1682,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© * * * 
+ 
+
+===
+
+* * * 
 
  I walked in the front door, empty handed. "Mary? I need you to do me a favor." 
 
@@ -1892,7 +1926,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© "It all sounds so wonderful, Jack, but I don't think it's feasible. I can't take care of myself. I have my medications, doctors. I need full-time assistance. You have your job, and you need to move on with your life once you've finished this project." 
+ 
+
+===
+
+"It all sounds so wonderful, Jack, but I don't think it's feasible. I can't take care of myself. I have my medications, doctors. I need full-time assistance. You have your job, and you need to move on with your life once you've finished this project." 
 
  I laughed. "We can work it out. Heck, I can sell off a chunk of the land, and we'll have more than enough money to hire a full-time nurse. We have plenty of room in the house. Four huge bedrooms upstairs, and enough space on the third floor to house an entire staff if need be. I earn a good living, and once I finish most of the work, my expenses will drop to almost nothing. If you want to do this, I guarantee we can make it work. You should know I can be as stubborn as you. I've only had my Mom for about 9 months, there's no way I'm letting her get away." 
 
@@ -2132,7 +2170,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© "You bastard," she mumbled, "You've ruined me. Ruined me for anyone else." 
+ 
+
+===
+
+"You bastard," she mumbled, "You've ruined me. Ruined me for anyone else." 
 
  "Good," I answered, pulling the covers over her shoulders, kissing the top of her head. At the same time, the covers were moved away from my waist, my greedy girl refusing me rest, her ghostly touch taking its time milking me for her need. 
 
@@ -2372,7 +2414,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© I rolled with her, putting her on her back, kissing her firmly. "Whatever you need. I...I was afraid to tell you. It's too soon. I didn't want to scare you away." 
+ 
+
+===
+
+I rolled with her, putting her on her back, kissing her firmly. "Whatever you need. I...I was afraid to tell you. It's too soon. I didn't want to scare you away." 
 
  She awarded me a shy little smile. "You could never scare me away. You should know that by now." 
 
@@ -2632,7 +2678,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© I stumbled into the stairwell opening, propelled by the shove. If I hadn't caught the edge of the door, I would have fallen through the opening, taking Andrew with me. As it was he caught me, teasing me for being clumsy. "Careful, Bub." 
+ 
+
+===
+
+I stumbled into the stairwell opening, propelled by the shove. If I hadn't caught the edge of the door, I would have fallen through the opening, taking Andrew with me. As it was he caught me, teasing me for being clumsy. "Careful, Bub." 
 
  "I didn't see anything out of the ordinary. It must have been an accident," I tried to explain, while pulling the doors shut above me. The door slammed shut, in spite of my trying to control its descent. My hands were shaking when I slid the bolt home. 
 
@@ -2930,7 +2980,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© I learned that Sarah, the principal, had a doctorate in history, specializing in the Civil War. She was utterly fascinated with The House, and had stories to tell. According to her, it had served as a Civil War makeshift hospital. It had been burned to the ground, and more than a dozen people were supposed to have perished in it. It wasn't making me feel any better. 
+ 
+
+===
+
+I learned that Sarah, the principal, had a doctorate in history, specializing in the Civil War. She was utterly fascinated with The House, and had stories to tell. According to her, it had served as a Civil War makeshift hospital. It had been burned to the ground, and more than a dozen people were supposed to have perished in it. It wasn't making me feel any better. 
 
  "Never heard of a place with such bad luck. Burned down in 1863 after the battle of Fredericksburg. You know more than 3500 men perished that winter in Stafford County alone. After an aborted attempt to rebuild it around 1870, it wasn't until 1878 that it was rebuilt and lost again around 1920. Then again in 1929. Such a shame, it's such a beautiful building." She was staring into her drink as she spoke, then abruptly looked up at me. "I...I'm sure it was just bad luck. Times have changed. I'm certain you won't have any issues like that. I think we're all counting on seeing the mansion on the hill, with all four chimneys belching smoke for many years to come." 
 
@@ -3202,7 +3256,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© The women informed me they'd be ready by mid-March. It had taken longer than I'd hoped, and I still knew I'd be rushing like crazy to pull things together. Now it was a matter of outfitting the rooms, getting Bev's bathroom in shape, and making the place presentable. I'd been lax with the day-to-day upkeep. That would have to change. 
+ 
+
+===
+
+The women informed me they'd be ready by mid-March. It had taken longer than I'd hoped, and I still knew I'd be rushing like crazy to pull things together. Now it was a matter of outfitting the rooms, getting Bev's bathroom in shape, and making the place presentable. I'd been lax with the day-to-day upkeep. That would have to change. 
 
  As much as I hated working on the third floor, there was more I wanted to do there as well. I kept putting it off, finding a reason to do anything else. I had run out of excuses. 
 
@@ -3432,7 +3490,11 @@
 
  
 
- ****** That Old House ****** byTx_Tall_Tales© "And Karen's in on it too?" 
+ 
+
+===
+
+"And Karen's in on it too?" 
 
  "No. Karen can't see her, can't hear her, can barely feel her, and only if Mary really works at it. She's not family, and is too distant. She's not open." 
 

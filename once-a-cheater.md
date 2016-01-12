@@ -1,8 +1,14 @@
+Once a Cheater...
+=================
 #1 
 
  
 
- ****** Once a Cheater... ****** byJust_Plain_Bob© It was a Monday morning and we were sitting at the kitchen table. We had finished eating breakfast and I was drinking my coffee and reading the morning paper. My wife Bea said: 
+ 
+
+===
+
+It was a Monday morning and we were sitting at the kitchen table. We had finished eating breakfast and I was drinking my coffee and reading the morning paper. My wife Bea said: 
 
  "Would you put the paper down Rob? I have to talk to you." 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Once a Cheater... ****** byJust_Plain_Bob© All the calls out of the way I made one more pass through the house looking for stuff of Bea's and then I fixed myself some lunch. I'd just finished eating when the guys from Apex Security showed up. Not trusting Bea in the least and having absolutely no doubt that she would violate the restraining order and try to get in the house I'd decided to put a security system in the house complete with cameras. 
+ 
+
+===
+
+All the calls out of the way I made one more pass through the house looking for stuff of Bea's and then I fixed myself some lunch. I'd just finished eating when the guys from Apex Security showed up. Not trusting Bea in the least and having absolutely no doubt that she would violate the restraining order and try to get in the house I'd decided to put a security system in the house complete with cameras. 
 
  When the guys from Apex were gone I flipped a mental coin -- the bookshelf that I was working on in my woodworking shop or the 1934 Ford three window coupe that I was restoring out in the garage. The Ford won and I got busy. 
 

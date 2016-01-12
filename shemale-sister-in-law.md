@@ -1,8 +1,14 @@
+Shemale Sister-in-Law
+=====================
 #1 
 
  
 
- ****** Shemale Sister-in-Law ****** bysilkstockingslover© Summary: Man gets massage from sister-in-law with crazy, shocking results. 
+ 
+
+===
+
+Summary: Man gets massage from sister-in-law with crazy, shocking results. 
 
  Note 1: This is a Nude Day 2015 Contest Story so please vote. 
 
@@ -390,7 +396,11 @@
 
  
 
- ****** Shemale Sister-in-Law ****** bysilkstockingslover© I couldn't believe she called me a cocksucker. Yet, it turned me on, my cock again flinching in its confined space. I again lifted my ass up to reposition my dick. I watched my wife take another person's cock in her mouth. I also couldn't believe she was expecting me to suck her sister's cock... I also couldn't believe how much I wanted to. 
+ 
+
+===
+
+I couldn't believe she called me a cocksucker. Yet, it turned me on, my cock again flinching in its confined space. I again lifted my ass up to reposition my dick. I watched my wife take another person's cock in her mouth. I also couldn't believe she was expecting me to suck her sister's cock... I also couldn't believe how much I wanted to. 
 
  "That's it, baby sis, suck cock like you do almost every day," Kara moaned, revealing yet another shocking secret in this surreal experience. I knew they were close, seeing each other almost every day and talking on the phone every day, but I had no idea they were this close. Yet, I didn't feel like she had cheated on me, they were doing this long before I was in the picture. Plus, the idea was as hot as hell. 
 

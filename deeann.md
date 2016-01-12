@@ -1,8 +1,14 @@
+DeeAnn
+======
 #1 
 
  
 
- ****** DeeAnn ****** byJust_Plain_Bob© You've seen it and I know you have wondered about it just as I have. How the best-looking and supposedly smartest girls always seem to go for the assholes and the dickheads. They ignore the guys who want to date them and who would treat them right and go for the guys who treat them like shit. Then after being treated like shit do they learn a lesson? Hell no, they go back for more and hang onto the jerk for dear life. 
+ 
+
+===
+
+You've seen it and I know you have wondered about it just as I have. How the best-looking and supposedly smartest girls always seem to go for the assholes and the dickheads. They ignore the guys who want to date them and who would treat them right and go for the guys who treat them like shit. Then after being treated like shit do they learn a lesson? Hell no, they go back for more and hang onto the jerk for dear life. 
 
  My daughter was one of those girls. 
 

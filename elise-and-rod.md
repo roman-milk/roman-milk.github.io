@@ -1,8 +1,14 @@
+Elise and Rod
+=============
 #1 
 
  
 
- ****** Elise and Rod ****** byJust_Plain_Bob© Not all stories that start out with "Once upon a time" have happy endings. The characters do not necessarily live happily ever after as was the case in this one. It started as a fair tale that my wife tried to tell me, but unfortunately for her (or me – depending on how you look at it) I knew the game she was going to play. 
+ 
+
+===
+
+Not all stories that start out with "Once upon a time" have happy endings. The characters do not necessarily live happily ever after as was the case in this one. It started as a fair tale that my wife tried to tell me, but unfortunately for her (or me – depending on how you look at it) I knew the game she was going to play. 
 
  Once upon a time there was a marriage planned. Elise and I had grown up together and it had always been expected, at least by our mothers, that we would marry when we were old enough. Our mothers were best friends since grade school, they had gone to college together, belonged to the same sorority and even thirty years after graduation the two of them were extremely close. My mom had married first and Elise's mom had been her maid of honor and then my mom performed the same function for Elise's mother. When I was born Elise's mother became my godmother and when Elise was born my mother became her godmother. 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** Elise and Rod ****** byJust_Plain_Bob© I danced twice more with her and then it was my turn to go to the bathroom. When I got back to the table Rod was standing there talking with Elise. As I walked up to the table Elise stood up and said: 
+ 
+
+===
+
+I danced twice more with her and then it was my turn to go to the bathroom. When I got back to the table Rod was standing there talking with Elise. As I walked up to the table Elise stood up and said: 
 
  "Watch my purse sweetie, this nice young man asked me to dance." 
 

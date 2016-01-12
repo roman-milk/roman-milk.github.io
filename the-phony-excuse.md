@@ -1,8 +1,14 @@
+The Phony Excuse
+================
 #1 
 
  
 
- ****** The Phony Excuse ****** byJust_Plain_Bob© Dave Valerta stared at his wife sitting across the room from him, stunned by what she had said. How could his wife of eighteen years and the mother of his children say something like that to him? "Don't look at me like that Dave. It's your own damned fault. 
+ 
+
+===
+
+Dave Valerta stared at his wife sitting across the room from him, stunned by what she had said. How could his wife of eighteen years and the mother of his children say something like that to him? "Don't look at me like that Dave. It's your own damned fault. 
 
  It had happened the night of Diane's sister's birthday party. At the last minute a problem had come up at the plant and Dave couldn't get away from work until the problem was solved. He had called Diane and told her she would have to go alone and that he would meet her there when he could get away. Diane had gone off on him because she was sure he was making a phony excuse so he could get out of going. It didn't help that he and Diane'' sister couldn't stand each other and did their best to avoid being in the same place at the same time. But there wasn't much Dave could do about it. As production manager he had to be there when there were production problems. It was past midnight when Dave finally left the plant and since he figured that it was way too late to go to Donna's party he went on home. He was not surprised that Diane was not home yet. His parents had taken the kids for the weekend and Diane would stay at the party until the last dog was hung, if for no other reason than to spite Dave. He had gone to bed knowing that Saturday was going to be a bitch even if Diane didn't talk to him. She had a way of turning the house into a huge deep freeze when she was pissed. 
 

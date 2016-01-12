@@ -1,8 +1,14 @@
+The Dark Trilogy Ch. 01
+=======================
 #1 
 
  
 
- ****** The Dark Trilogy Ch. 01 ****** byJust_Plain_Bob© Author's note: Because I'm a romantic at heart I get a lot of static over the fact that the husbands and boyfriends in my stories tend to love their ladies enough to forgive them their peccadilloes. The most common comment is "Another damned wimpy husband story. Why can't you write a story about a 'real man' not some fucking wimp." All I can say is that the people who make those comments probably have never been deeply in love. Love can make a strong man stupid. Love can make a man forgive his lady of damned near anything, just as love can blind him as to what is going on where she is concerned. 
+ 
+
+===
+
+Author's note: Because I'm a romantic at heart I get a lot of static over the fact that the husbands and boyfriends in my stories tend to love their ladies enough to forgive them their peccadilloes. The most common comment is "Another damned wimpy husband story. Why can't you write a story about a 'real man' not some fucking wimp." All I can say is that the people who make those comments probably have never been deeply in love. Love can make a strong man stupid. Love can make a man forgive his lady of damned near anything, just as love can blind him as to what is going on where she is concerned. 
 
  But a really strong love can turn into a really strong hate under the right circumstances. When I caught my first wife in bed with my cousin I was confused, bewildered and upset. I wondered what I had done wrong to make her do it and wondered what I could do to make things right between us. It only took the time necessary for her to say nine little words to turn everything around and plant a hate in my heart so strong that even now, thirty years later, I would still kill the bitch if I thought I could get away with it. Over the years I've thought of a thousand things that I wished I could have done to her, but never had the courage to try. Just the very thought of her makes me think dark thoughts and it is hard not to think of her at certain times, like this last Father's Day when I received cards and phone calls from the kids that we had. 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** The Dark Trilogy Ch. 01 ****** byJust_Plain_Bob© I changed my insurance policy and made the kids my beneficiary and I also changed my will to leave everything to them. All I would leave Becky was bitter memories. 
+ 
+
+===
+
+I changed my insurance policy and made the kids my beneficiary and I also changed my will to leave everything to them. All I would leave Becky was bitter memories. 
 
  +++++++++++++++++++ 
 
@@ -184,7 +194,11 @@
 
  
 
- ****** The Dark Trilogy Ch. 02 ****** byJust_Plain_Bob© Author's note: This story will stand alone, but to understand the driving force behind it you should read the author's note in "The Dark Trilogy (1)." 
+ 
+
+===
+
+Author's note: This story will stand alone, but to understand the driving force behind it you should read the author's note in "The Dark Trilogy (1)." 
 
  * 
 
@@ -362,7 +376,11 @@
 
  
 
- ****** The Dark Trilogy Ch. 03 ****** byJust_Plain_Bob© This story will stand alone, but to see where the driving force behind this dark tale comes from you need to at least read the intro to The Dark Trilogy (1). 
+ 
+
+===
+
+This story will stand alone, but to see where the driving force behind this dark tale comes from you need to at least read the intro to The Dark Trilogy (1). 
 
  +++++++++++++++++++++ 
 
@@ -654,7 +672,11 @@
 
  
 
- ****** The Dark Trilogy Ch. 03 ****** byJust_Plain_Bob© "You expect me to believe that shit after what I've listened to you saying on those tapes?" 
+ 
+
+===
+
+"You expect me to believe that shit after what I've listened to you saying on those tapes?" 
 
  "It is true Bobby, honest to God. What I said I had to say to keep Jamie happy and I had to keep him happy because he was blackmailing me." 
 

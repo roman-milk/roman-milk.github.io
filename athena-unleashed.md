@@ -1,8 +1,14 @@
+Athena Unleashed
+================
 #1 
 
  
 
- ****** Athena Unleashed ****** byfastandsloppy© Many thanks to friend and reader Eric_Shift for his valuable suggestions with some of the dialog in this story. 
+ 
+
+===
+
+Many thanks to friend and reader Eric_Shift for his valuable suggestions with some of the dialog in this story. 
 
  *** 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Athena Unleashed ****** byfastandsloppy© She was panting as she felt the pleasure building in her again, flooding into her from her breasts, her clit, from deep within her pumping sex. The other man moved in to join the action and she felt his hands on her and his mouth take her other nipple. The pleasure rapidly overcame her. She barked a cry as every cell in her body convulsed in an orgasm. She slammed down on the rod inside her as each wave crashed over her; finally collapsing on top of the tall handyman beneath her: a jellied mass of flushed, sweaty skin and unruly black hair. 
+ 
+
+===
+
+She was panting as she felt the pleasure building in her again, flooding into her from her breasts, her clit, from deep within her pumping sex. The other man moved in to join the action and she felt his hands on her and his mouth take her other nipple. The pleasure rapidly overcame her. She barked a cry as every cell in her body convulsed in an orgasm. She slammed down on the rod inside her as each wave crashed over her; finally collapsing on top of the tall handyman beneath her: a jellied mass of flushed, sweaty skin and unruly black hair. 
 
  For a minute they were still but for their heaving breaths. The shorter handyman asked the taller one, "Did you shoot off mate?" 
 

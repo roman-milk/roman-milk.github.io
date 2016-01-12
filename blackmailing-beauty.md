@@ -1,8 +1,14 @@
+Blackmailing Beauty
+===================
 #1 
 
  
 
- ****** Blackmailing Beauty ****** bysilkstockingslover© A in the closet lesbian teacher catches a student cheat and decides to blackmail her. 
+ 
+
+===
+
+A in the closet lesbian teacher catches a student cheat and decides to blackmail her. 
 
  Note 1: Thanks as always to Steve and Estragon for their editing help. 
 

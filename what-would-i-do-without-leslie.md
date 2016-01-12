@@ -1,8 +1,14 @@
+What Would I Do Without Leslie
+==============================
 #1 
 
  
 
- ****** What Would I Do Without Leslie ****** byJust_Plain_Bob© I remember the day and the time. It was the day of my thirty-fifth birthday and the time was 5: 26 am. I know because I saw the clock when I reached over and silenced the alarm. I looked over at Leslie who would stay in bed another hour and saw something that I hadn't noticed before. Her night gown had slid down and I saw a love bite - a small hickey - on the underside of her left breast. And I had not been the one to put it there. I have at times put love bites on my wife so I knew how long it usually took them to fade and that told me that the one on her breast was recent. 
+ 
+
+===
+
+I remember the day and the time. It was the day of my thirty-fifth birthday and the time was 5: 26 am. I know because I saw the clock when I reached over and silenced the alarm. I looked over at Leslie who would stay in bed another hour and saw something that I hadn't noticed before. Her night gown had slid down and I saw a love bite - a small hickey - on the underside of her left breast. And I had not been the one to put it there. I have at times put love bites on my wife so I knew how long it usually took them to fade and that told me that the one on her breast was recent. 
 
  My wife was cheating on me! 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** What Would I Do Without Leslie ****** byJust_Plain_Bob© I was in bed when she called. "Hi honey. Miss me?" 
+ 
+
+===
+
+I was in bed when she called. "Hi honey. Miss me?" 
 
  As I lied to her and told her that I did I wondered if she was on a bed with a cock in her. 
 

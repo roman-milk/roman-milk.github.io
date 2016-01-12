@@ -1,8 +1,14 @@
+Old Jared Knows
+===============
 #1 
 
  
 
- ****** Old Jared Knows ****** byJust_Plain_Bob© There I stood in hospital greens, video camera in hand, ready to tape the birth of our first child. The doctor, the head nurse, the rest of the delivery room crew moved around in their well-practiced ballet. Janet was breathing hard and moaning as the doctor was telling her to concentrate, to push, and the nurses were all cooing, "Everything is going to be okay honey" and other comforting things. Then someone said, "Here it comes" and I zoomed in with the telephoto lens. We had wanted the surprise so when the ultrasound was done we told then not to tell us the sex of the baby, "We want it to be a surprise" and a surprise it was - a very big surprise. As the baby came out into it's first day of life in the open air everyone there saw that the skin of the baby was not white. 
+ 
+
+===
+
+There I stood in hospital greens, video camera in hand, ready to tape the birth of our first child. The doctor, the head nurse, the rest of the delivery room crew moved around in their well-practiced ballet. Janet was breathing hard and moaning as the doctor was telling her to concentrate, to push, and the nurses were all cooing, "Everything is going to be okay honey" and other comforting things. Then someone said, "Here it comes" and I zoomed in with the telephoto lens. We had wanted the surprise so when the ultrasound was done we told then not to tell us the sex of the baby, "We want it to be a surprise" and a surprise it was - a very big surprise. As the baby came out into it's first day of life in the open air everyone there saw that the skin of the baby was not white. 
 
  I went home from the hospital not understanding what had just happened. How could my wife have delivered a black baby? I mean the answer was obvious, but I was too shocked to be thinking straight and it wasn't until after I got home and had several stiff drinks that I faced up to the fact the my wife had been impregnated by a Negro. The child that I had joyously awaited since the day that Janet told me she was pregnant was not mine. The father was a black man. My wife had been fucking a black man! I don't know what killed me more; the fact that the hoped for child wasn't mine or that my wife was an unfaithful whore. 
 

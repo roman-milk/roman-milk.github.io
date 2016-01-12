@@ -1,8 +1,14 @@
+Violated Valerie
+================
 #1 
 
  
 
- ****** Violated Valerie ****** bygeronimo_appleby© Valerie was already there when I arrived. I was early and was surprised to see her sat at the corner table. I had hoped that I would have a little time to calm my nerves before Valerie showed up, but it wasn't to be obviously. I took a deep breath, fixed a confident smile on my face and walked in. 
+ 
+
+===
+
+Valerie was already there when I arrived. I was early and was surprised to see her sat at the corner table. I had hoped that I would have a little time to calm my nerves before Valerie showed up, but it wasn't to be obviously. I took a deep breath, fixed a confident smile on my face and walked in. 
 
  Val noticed me as soon as I pushed the door open. She smiled a nervous smile and even lifted her hand six inches off the table top to wave her fingers at me in a sign of recognition. I walked to the table and Valerie stood up as I approached. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Violated Valerie ****** bygeronimo_appleby© 'Fuck!' she cried. 'That's so dirty, it's so bad… Mike, Mike, he's tonguing my arse… I love it, I love it.' 
+ 
+
+===
+
+'Fuck!' she cried. 'That's so dirty, it's so bad… Mike, Mike, he's tonguing my arse… I love it, I love it.' 
 
  'I know, baby,' Mike grunted. 'I can see it all… I can see his fingers in your cunt… And you fucking love it… What a slut!' 
 

@@ -1,8 +1,14 @@
+Rob and Gail
+============
 #1 
 
  
 
- ****** Rob and Gail ****** byJust_Plain_Bob© Author's note. 
+ 
+
+===
+
+Author's note. 
 
  This is the first of three chapters and as has become my habit I will not turn on comments and voting until the last chapter has been posted. 
 
@@ -262,7 +268,11 @@
 
  
 
- ****** Rob and Gail ****** byJust_Plain_Bob© After looking around Gail asked what the sleeping arrangements were. 
+ 
+
+===
+
+After looking around Gail asked what the sleeping arrangements were. 
 
  "You get the bed up in the loft. The sofa on the south wall is a pullout sofa bed and that's where I'll bunk." 
 
@@ -528,7 +538,11 @@
 
  
 
- ****** Rob and Gail ****** byJust_Plain_Bob© Saturday I went to the gallery, paid for the painting and then paid extra to have the painting packaged and shipped to Gail. I hoped that she would think of me every time she looked at it and wonder about what could have been. 
+ 
+
+===
+
+Saturday I went to the gallery, paid for the painting and then paid extra to have the painting packaged and shipped to Gail. I hoped that she would think of me every time she looked at it and wonder about what could have been. 
 
  Thursday I walked across the stage, received my sheepskin and headed into the next portion of my life. My parent's graduation present to me was a one year lease on a two bedroom condo and the furniture to fill it. I spent the weekend moving in and on Monday I started my full time job in the family business. 
 
@@ -810,7 +824,11 @@
 
  
 
- ****** Rob and Gail ****** byJust_Plain_Bob© "No sugar; not making love, just fucking and believe it or not there is a difference." 
+ 
+
+===
+
+"No sugar; not making love, just fucking and believe it or not there is a difference." 
 
  I knelt there, ring in hand, and tried not to show how pissed off and angry I was. I stood, put the ring in my pocket and offered my hand to Gail. She gave me a questioning look, took my hand and I pulled her up off the couch and walked her to the door. 
 
@@ -830,7 +848,11 @@
 
  
 
- ****** Rob and Gail Ch. 02 ****** byJust_Plain_Bob© I lost myself in work and fortunately there was so much of it that I never had a free moment to spend thinking about Gail. 
+ 
+
+===
+
+I lost myself in work and fortunately there was so much of it that I never had a free moment to spend thinking about Gail. 
 
  I hadn't been home five minutes when the phone rang and caller ID showed that it was Gail. I didn't take the call or any of the four others that came after it before unplugging the phone and going to bed. 
 
@@ -1024,7 +1046,11 @@
 
  
 
- ****** Rob and Gail Ch. 02 ****** byJust_Plain_Bob© There was Bea whom I knew. Knew fairly well as a matter of fact. Bea was one of the two girls who had dumped me for not having sex with her. There were the Fowler twins, Mary and Martha. They were fraternal and not identical. 
+ 
+
+===
+
+There was Bea whom I knew. Knew fairly well as a matter of fact. Bea was one of the two girls who had dumped me for not having sex with her. There were the Fowler twins, Mary and Martha. They were fraternal and not identical. 
 
  And then there was Cindy. 
 
@@ -1222,7 +1248,11 @@
 
  
 
- ****** Rob and Gail Ch. 02 ****** byJust_Plain_Bob© Everyone seemed to have a good time although there was one sour moment for me when I saw Gail off to the side of the patio talking to Norm. I remembered what I'd overheard while under that bathroom window so seeing the two of them talking did bother me some, but I shook it off when they separated and Gail went over to talk to Mike. I was surprised when she went up on her toes and kissed his cheek and I wondered if I would ever know the story behind that. 
+ 
+
+===
+
+Everyone seemed to have a good time although there was one sour moment for me when I saw Gail off to the side of the patio talking to Norm. I remembered what I'd overheard while under that bathroom window so seeing the two of them talking did bother me some, but I shook it off when they separated and Gail went over to talk to Mike. I was surprised when she went up on her toes and kissed his cheek and I wondered if I would ever know the story behind that. 
 
  The party started breaking up around ten and as he was leaving Mike said the weather was nice enough for a round of golf and he asked if I would like to give it a shot on Saturday and I told him Gail and I had a lunch date for Saturday so he suggested Sunday and I told him I would give him a call after checking with Gail to see if she had anything planned. 
 
@@ -1370,7 +1400,11 @@
 
  
 
- ****** Rob and Gail Ch. 03 ****** byJust_Plain_Bob© Four days before we moved into the house Gail asked me if I would mind if she had a girl's night out after work with Cindy, Bea and the twins. It didn't surprise me because I knew it was coming after listening to the bathroom conversations and I'd heard Cindy bring it up on yesterday's output from the phone tap. Gail said that she would think about it and let Cindy know after running it by me. 
+ 
+
+===
+
+Four days before we moved into the house Gail asked me if I would mind if she had a girl's night out after work with Cindy, Bea and the twins. It didn't surprise me because I knew it was coming after listening to the bathroom conversations and I'd heard Cindy bring it up on yesterday's output from the phone tap. Gail said that she would think about it and let Cindy know after running it by me. 
 
  I gambled on Cindy not rushing into her plans and taking the time to set things up so I told Gail I was okay with her having a night out with the girls. 
 
@@ -1600,7 +1634,11 @@
 
  
 
- ****** Rob and Gail Ch. 03 ****** byJust_Plain_Bob© It was a much different Cindy who left my office that afternoon. Our relationship wasn't suddenly sunshine and roses, but it did get better over time. It even got to the point where we hugged each other and kissed each other on the cheek. 
+ 
+
+===
+
+It was a much different Cindy who left my office that afternoon. Our relationship wasn't suddenly sunshine and roses, but it did get better over time. It even got to the point where we hugged each other and kissed each other on the cheek. 
 
  +++++++++++++++++ 
 

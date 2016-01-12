@@ -1,8 +1,14 @@
+Nerd Girl at Faculty Stag Night
+===============================
 #1 
 
  
 
- ****** Nerd Girl at Faculty Stag Night ****** byfastandsloppy© "I hate to break it to you gentlemen, but we are pathetic," sighed Roger Lamar, head of the Theater Department of the North Metropolitan Community College. "Look at us: six grown men on a Friday night, debating which Goddamned porno to watch. Back in the day, when fresh collegiate trim was a perquisite of our profession, guys like us would gather at the end of semester to share storis of all the coeds they'd bedded and cherries they'd popped. Nowadays, the best we can do is compare notes on which girls we'd like to bang, watch a few pornographic films and go home to jack off before bed. These are sad times, my friends. Sad times." 
+ 
+
+===
+
+"I hate to break it to you gentlemen, but we are pathetic," sighed Roger Lamar, head of the Theater Department of the North Metropolitan Community College. "Look at us: six grown men on a Friday night, debating which Goddamned porno to watch. Back in the day, when fresh collegiate trim was a perquisite of our profession, guys like us would gather at the end of semester to share storis of all the coeds they'd bedded and cherries they'd popped. Nowadays, the best we can do is compare notes on which girls we'd like to bang, watch a few pornographic films and go home to jack off before bed. These are sad times, my friends. Sad times." 
 
  "And when exactly was this golden age of profs banging coeds, Roger?" asked Joel Weiss. He was in the Mathematics Department and was hosting the evening's festivities. 
 
@@ -318,7 +324,11 @@
 
  
 
- ****** Nerd Girl at Faculty Stag Night ****** byfastandsloppy© The men took their seats as Jill stood nude and at attention. James moved the tall, free-standing mirror as requested. Roger, still behind Jill, put his hands on her shoulders and guided her to a spot in directly in front of it. 
+ 
+
+===
+
+The men took their seats as Jill stood nude and at attention. James moved the tall, free-standing mirror as requested. Roger, still behind Jill, put his hands on her shoulders and guided her to a spot in directly in front of it. 
 
  "Have you ever looked at your body, my dear. Look with me now. See? Your skin: beautiful blue-veined alabaster," his hands glided gently along her thigh as he spoke to her from over her shoulder. She twitched nervously as his hands began to roam across her body. "Your belly has the effortless firmness of youth..." his hand slipped along the quivering flesh of her abdomen and circled back beneath her belly button. "But your hips have the voluptuousness of womanhood..." his hand stroked along her hipbone and continued to move up her body. "And your breasts! Round, full, pert... Perfection, my dear." His hand cupped her under her right breast, his thumb barely brushing the edge of her areola. "Perfection." 
 
@@ -500,7 +510,11 @@
 
  
 
- ****** Nerd Girl at Faculty Stag Night ****** byfastandsloppy© "Easy child, that's just the preliminary." Roger pulled his cock from her. Wet with her juice and thick clotted strands of Martin's semen, it glistened and stank as he brought to her face. As he held it over her a thick dollop of cum dripped onto the center of the right lens of her glasses. "Clean it up, slut," he said. 
+ 
+
+===
+
+"Easy child, that's just the preliminary." Roger pulled his cock from her. Wet with her juice and thick clotted strands of Martin's semen, it glistened and stank as he brought to her face. As he held it over her a thick dollop of cum dripped onto the center of the right lens of her glasses. "Clean it up, slut," he said. 
 
  *** 
 

@@ -1,8 +1,14 @@
+How to Get a Job at Fucking
+===========================
 #1 
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ****************** 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© Beautiful. 
+ 
+
+===
+
+Beautiful. 
 
  ************** 
 
@@ -278,7 +288,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© Knowing I had a few minutes before the interview was set to begin, I pulled my phone from the pocket of my suit jacket and pulled up some pictures of me and Andrea. I know it sounds dorky and cheesy, but I couldn't get enough of just looking at her. Seeing someone so pretty, with such an infectious smile, and such an effervescent personality, and knowing she had chosen me to marry, it filled my heart with love. I don't know what I did to be so lucky. 
+ 
+
+===
+
+Knowing I had a few minutes before the interview was set to begin, I pulled my phone from the pocket of my suit jacket and pulled up some pictures of me and Andrea. I know it sounds dorky and cheesy, but I couldn't get enough of just looking at her. Seeing someone so pretty, with such an infectious smile, and such an effervescent personality, and knowing she had chosen me to marry, it filled my heart with love. I don't know what I did to be so lucky. 
 
  I was looking at a picture of us standing together outside of a nice older movie theatre downtown, my arm around her. Her brilliant smile let me know that she was as happy with me as I was with her. I admired her again, her silky blonde hair, her slim, taut runner's body. It reminded me of how proud I was that she had run multiple marathons, not just for personal accomplishment, but to raise awareness for various children's charities. She was such an amazing, impressive woman, and I couldn't imagine loving anyone as much as I loved her. 
 
@@ -440,7 +454,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "Like I said, Paul, I know exactly who I am," she continued, talking in a seemingly professional manner while showcasing these obscene images. "I am a slut! A huge slut! The sluttiest of the sluts. The skankiest of the skanks. The trashiest of the trashy. The whoriest of the whores. Ever since I grew tits, I've been letting guys, and the occasional girl, play with them. I've been told I should be ashamed of myself, that no one likes a slut, but I don't care. I love it! I love being a slut! It's my best my quality. Paul, I am really, REALLY, good at sex, like, amazing at it. You do your work in the boardroom, I work in the bedroom." 
+ 
+
+===
+
+"Like I said, Paul, I know exactly who I am," she continued, talking in a seemingly professional manner while showcasing these obscene images. "I am a slut! A huge slut! The sluttiest of the sluts. The skankiest of the skanks. The trashiest of the trashy. The whoriest of the whores. Ever since I grew tits, I've been letting guys, and the occasional girl, play with them. I've been told I should be ashamed of myself, that no one likes a slut, but I don't care. I love it! I love being a slut! It's my best my quality. Paul, I am really, REALLY, good at sex, like, amazing at it. You do your work in the boardroom, I work in the bedroom." 
 
  "Oh my God..." I said to myself, rubbing my eyes in disbelief at what was happening in front of me. When I looked up at her, she smiled, loving my consternation. She was loving it so much that her nipples were evident beneath her top, throbbing to escape into the cool air of my office. And I had a bad feeling, no matter what I said and did, they would be soon getting their wish. Why was I letting this happen? 
 
@@ -544,7 +562,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "You are out there, Tori." I said, shaking my head at her insanity. She just smirked. 
+ 
+
+===
+
+"You are out there, Tori." I said, shaking my head at her insanity. She just smirked. 
 
  "Now, I can tell you things about your wife that only you know. Things that only sluts like me can see. For example, Andrea strikes me as being a bit... precious... in bed. I bet she makes you do all the work. Sure, she buys some lingerie that she thinks is fancy, but it's actually pretty cheap and unflattering. I bet she whispers adorable dirty talk, talks to you in between the sheets, lies back, spreads her legs, and lets you do your thing. She doesn't talk, she just moans cutely in your ear. She clutches you tight as you take care of her needs, and sure, you feel the love, but it's not love that makes a guy's balls boil. You don't know enough to know that what she's giving you is the beginner stuff, and you're too nice to ask for the good stuff. You both are practically begging for a slut like me to swoop in and show you what real fucking is all about," she finished, gesturing her arm as she did so, brushing it against her jutting rack. I bet those huge breasts got in the way a lot... wait, what am I thinking? 
 
@@ -654,7 +676,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© No... no, NO! Paul, stop it! You are not one of these guys! Quit it! 
+ 
+
+===
+
+No... no, NO! Paul, stop it! You are not one of these guys! Quit it! 
 
  Only after studying every inch of her rear end for a few silent moments did I realize what I was doing. I blinked a few times, trying to clear the image that was now burned onto my retinas. I looked at her, only seeing a small smirk pass across her plump lips. She walked away from the desk, shaking her butt as she walked, highlighting the rump hidden beneath the tight, molded skirt. She kept her butt facing me, smoothing down her skirt over it as she continued. God, I'd love to see it bare... no. STOP! 
 
@@ -728,7 +754,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "This is one of the many positions you'll find me on daily basis when you hire me," Tori said, undeterred from her mission. She reached behind herself, slapping her ass, causing the right cheek to jiggle. She then bent over the desk even further, resting on her breasts so she could reach behind herself, pulling her ass-cheeks apart, exposing the full cleft of her ass-crack. I could see the entire length of the string of her thong, and behind it, barely hidden, was her bare, exposed asshole. My momentary stupor was shaken, and I was filled with a sudden panic. This needed to end, now. 
+ 
+
+===
+
+"This is one of the many positions you'll find me on daily basis when you hire me," Tori said, undeterred from her mission. She reached behind herself, slapping her ass, causing the right cheek to jiggle. She then bent over the desk even further, resting on her breasts so she could reach behind herself, pulling her ass-cheeks apart, exposing the full cleft of her ass-crack. I could see the entire length of the string of her thong, and behind it, barely hidden, was her bare, exposed asshole. My momentary stupor was shaken, and I was filled with a sudden panic. This needed to end, now. 
 
  "Tori! Please... just leave! Cover yourself up and leave. Don't make me call security." I began. "Because I will, and then..." 
 
@@ -826,7 +856,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "But you're so HARD!" she remarked smugly, her hand working wonders on me. It felt so good! Dammit! How did I let things get this far? "I knew you were a sick fuck like me, and this fucking rock hard cock just fucking proves it! Now, let me take a look at what I'm working with here," she said, stepping back slightly, giving her busy hand some room to scoop my manhood from my pants. 
+ 
+
+===
+
+"But you're so HARD!" she remarked smugly, her hand working wonders on me. It felt so good! Dammit! How did I let things get this far? "I knew you were a sick fuck like me, and this fucking rock hard cock just fucking proves it! Now, let me take a look at what I'm working with here," she said, stepping back slightly, giving her busy hand some room to scoop my manhood from my pants. 
 
  "Hooooolllllly shit!" she gasped out, eyes going wide as she took in my engorged penis in the flesh for the first time. My thick, fully hard nine-and- half inch dick was now exposed to her eyes, my heavy balls hanging below it, finally extricated from my pants and briefs. Tori was gawking at it, studying its impressive length for a few moments, appraising it lustily. "Jesus, Paul... I knew you were fucking big, but fuck... you're huge! How did this nice, sweet, charming man end up having a fat monster cock between his legs?" she asked, smirking at me as she maintained her grip around the root of my cock. "Unless you're not so nice. Unless you're not designed for business, but for pleasuring women." I shook my head, but I couldn't find any words. The pleasure was overwhelming. Seeing me in this state, her hand began to travel my length, affirming her control over me. "This dick is fucking wasted on a girl like Andrea! It needs someone like me to care for it in the way it needs!" 
 
@@ -916,7 +950,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "Fucking fuck! Amazing!" I moaned out. She went to town on me, smoothly taking my spit-soaked cock in her mouth, in and out, in and out, over and over again. Her face was getting red again from lack of air, but that didn't stop her from heaving herself forward once again, taking my full length down her throat and holding it here. Her lips were stretched wide around the root of my penis, forming a tight seal. Her tongue massaged my aching dick as she hummed slightly, the vibration traveling down my shaft to my saliva-coated balls, making them rumble again. And just when my balls were once again right on the edge of boiling over, she pulled back, my drool-soaked dick sliding out from her tight throat like an oversized serpent, never looking bigger. 
+ 
+
+===
+
+"Fucking fuck! Amazing!" I moaned out. She went to town on me, smoothly taking my spit-soaked cock in her mouth, in and out, in and out, over and over again. Her face was getting red again from lack of air, but that didn't stop her from heaving herself forward once again, taking my full length down her throat and holding it here. Her lips were stretched wide around the root of my penis, forming a tight seal. Her tongue massaged my aching dick as she hummed slightly, the vibration traveling down my shaft to my saliva-coated balls, making them rumble again. And just when my balls were once again right on the edge of boiling over, she pulled back, my drool-soaked dick sliding out from her tight throat like an oversized serpent, never looking bigger. 
 
  "No... fuck... please!" I begged, nearly in pain, I so needed to cum. I reached out to pull her mouth back onto me, but she easily brushed my attempts aside. Despite the fact that she was panting for breath, she looked up at me and gave me a wicked smile. Still holding my lubed cock between her fingers, she leaned forward, my cock achingly close to her amazing lips. 
 
@@ -1004,7 +1042,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "If it's so amazing, then why don't you fuck it!?" she asked, her snotty tone returning. "If you love my tight cunt so my much, then give it the fucking it deserves!" Reminded that I did in fact hate this woman for what she was making me do. I made a vow to take my revenge. I vowed to make this bitch squeal. I reared back, sliding my cock out so only the tip was inside her before reversing course, driving my dick in her to the root again. 
+ 
+
+===
+
+"If it's so amazing, then why don't you fuck it!?" she asked, her snotty tone returning. "If you love my tight cunt so my much, then give it the fucking it deserves!" Reminded that I did in fact hate this woman for what she was making me do. I made a vow to take my revenge. I vowed to make this bitch squeal. I reared back, sliding my cock out so only the tip was inside her before reversing course, driving my dick in her to the root again. 
 
  "Ah, ohhhh!" Tori moaned. Gripping her hips hard, I began to work up a good rhythm, pumping in and out of her. 
 
@@ -1116,7 +1158,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "Uhhh, fuck that was good!" Tori moaned out, recovering from her world shaking orgasm. I couldn't help but glance up slightly, just in time to see her peel her sweat-soaked body off my heavy wooden desk, pushing herself up to her feet. Stumbling for balance, as I had done, she found her footing, amazingly still in her high heels. She stood up straight, putting her hands on her hips facing me, her juicy, sweaty naked body exposed to me again, her huge tits bouncing slightly. Despite having been balls deep inside her, this was my first full- frontal view of her bare pussy, completely shaved, the two small, puffy lips looked immaculate. I had to look away, burying my eyes in my palms, not letting this temptress pull me back in again. "So... I assume I've got the job now, right?" 
+ 
+
+===
+
+"Uhhh, fuck that was good!" Tori moaned out, recovering from her world shaking orgasm. I couldn't help but glance up slightly, just in time to see her peel her sweat-soaked body off my heavy wooden desk, pushing herself up to her feet. Stumbling for balance, as I had done, she found her footing, amazingly still in her high heels. She stood up straight, putting her hands on her hips facing me, her juicy, sweaty naked body exposed to me again, her huge tits bouncing slightly. Despite having been balls deep inside her, this was my first full- frontal view of her bare pussy, completely shaved, the two small, puffy lips looked immaculate. I had to look away, burying my eyes in my palms, not letting this temptress pull me back in again. "So... I assume I've got the job now, right?" 
 
  "No, Tori... I don't think that's a good idea." I said, not even looking up at her. 
 
@@ -1246,7 +1292,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© "Fuck! FUCK!" she screamed out. "Tell me you love me! Tell me you love the office slut's hot body more than your pathetic fucking wife!" 
+ 
+
+===
+
+"Fuck! FUCK!" she screamed out. "Tell me you love me! Tell me you love the office slut's hot body more than your pathetic fucking wife!" 
 
  "Yes! YES!" I screamed. "I fucking love you! I love your ass! I love your fucking big tits! I love your fucking hot body more than my wife!" 
 
@@ -1378,7 +1428,11 @@
 
  
 
- ****** How to Get a Job at Fucking ****** byTheTalkMan© So, right now, I was lying on a beach in Brazil, my hot body getting perfectly sun-kissed. I was topless, hoping to give my tits the tan they deserved. I had a powder blue thong barely covering my lower half, fitting right in with all the Brazilian sluts strolling down the beach, looking positively filthy. I looked down, seeing some good color on my chest, so I opted to turn back over onto my belly. I lied there, getting a tan, waiting for my man to return. 
+ 
+
+===
+
+So, right now, I was lying on a beach in Brazil, my hot body getting perfectly sun-kissed. I was topless, hoping to give my tits the tan they deserved. I had a powder blue thong barely covering my lower half, fitting right in with all the Brazilian sluts strolling down the beach, looking positively filthy. I looked down, seeing some good color on my chest, so I opted to turn back over onto my belly. I lied there, getting a tan, waiting for my man to return. 
 
  I spied Paul approaching, looking sexy, his tanned upper half looking better than ever, and his stylish board shorts helping him fit right in on the beach. I got up on my elbows, glancing at my nails as I felt him approach. My lower legs were pointed upward, kicking up in the air lightly as I lied here. I smiled as I felt his lips kissing up my leg and up to my round butt, focusing on my exposed ass for a few moments. Paul loved the thongs I wore. He couldn't get enough. Like I told Andrea, he had REALLLY been on my ass lately. He kissed up my back before reaching my ear. 
 

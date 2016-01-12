@@ -1,8 +1,14 @@
+Momma's Boys
+============
 #1 
 
  
 
- ****** Momma's Boys ****** byJust_Plain_Bob© "Come on Yvonne, you know it ain't right." 
+ 
+
+===
+
+"Come on Yvonne, you know it ain't right." 
 
  "Oh stop your whining Dion. I can't help it that you were raised a prude. I wasn't and I'm not going to become one just to suit you." 
 

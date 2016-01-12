@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Ripley
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Ripley ****** byJust_Plain_Bob© I sat in the car and stared out the windshield at the solid brick wall of the building in front of my parking space. I didn't know what I was feeling, relief or sadness. In fact, I guess all I felt was numb. Why had it come to this? Could I have stopped it? I suppose I could have if only I had known the true level of her desire, but I didn't. There was no way I could have know; it was just too way out for a simple guy like me. But it had happened and there was no denying it and I couldn't live with it and that is why I'd just left the lawyers office. All it took was the six seconds necessary to scrawl my signature on the bottom of the petition for divorce. 
+ 
+
+===
+
+I sat in the car and stared out the windshield at the solid brick wall of the building in front of my parking space. I didn't know what I was feeling, relief or sadness. In fact, I guess all I felt was numb. Why had it come to this? Could I have stopped it? I suppose I could have if only I had known the true level of her desire, but I didn't. There was no way I could have know; it was just too way out for a simple guy like me. But it had happened and there was no denying it and I couldn't live with it and that is why I'd just left the lawyers office. All it took was the six seconds necessary to scrawl my signature on the bottom of the petition for divorce. 
 
  ++++++++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Becoming A Slut Wife: Ripley ****** byJust_Plain_Bob© "I'm going to give you just five minutes to get dressed and get out. If you are still here in five I won't be responsible for what I do to your worthless ass. Get your worthless ass out of here before I hurt you." 
+ 
+
+===
+
+"I'm going to give you just five minutes to get dressed and get out. If you are still here in five I won't be responsible for what I do to your worthless ass. Get your worthless ass out of here before I hurt you." 
 
  "You can't make me leave" she sobbed, "This is my house too." 
 

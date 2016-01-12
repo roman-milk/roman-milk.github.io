@@ -1,8 +1,14 @@
+The Cursed House of Crow
+========================
 #1 
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story features some characters from one of my other stories, 'Church on State'. Reading that one would give a bit of background to this one, but it is honestly not required to enjoy this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story features some characters from one of my other stories, 'Church on State'. Reading that one would give a bit of background to this one, but it is honestly not required to enjoy this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  October, 1692 
 
@@ -114,7 +120,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© This image was a painting of Madeline. It was almost like a family portrait. It had Madeline standing with her husband and her two children. Most of the time, the women in these types of paintings seemed very dour and plain, but Madeline was not. She was strikingly beautiful, especially compared to the paintings of other women from around that time. Some people theorized that her uncommon, mature beauty was part of the reason she was accused of being a witch. No woman could be that beautiful in that day and time. She no doubt inspired jealousy in others, no doubt causing them to make baseless accusations. 
+ 
+
+===
+
+This image was a painting of Madeline. It was almost like a family portrait. It had Madeline standing with her husband and her two children. Most of the time, the women in these types of paintings seemed very dour and plain, but Madeline was not. She was strikingly beautiful, especially compared to the paintings of other women from around that time. Some people theorized that her uncommon, mature beauty was part of the reason she was accused of being a witch. No woman could be that beautiful in that day and time. She no doubt inspired jealousy in others, no doubt causing them to make baseless accusations. 
 
  Copies of this painting were hung up around town, in various buildings, schools, the town hall, the mayor's office, and even local bars. For some, this picture was a haunting reminder of the town's dark past, and a reminder to not let a mob mentality rule. But some took these reminders as some sort of proof of how witchcraft had permeated throughout the town. A lot of people were freaked out by these paintings. They got a vibe from them. A lot of people walked by them and felt as if they were being watched. 
 
@@ -326,7 +336,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© And he also didn't know that he wasn't the only person in this house who had sex on their mind. 
+ 
+
+===
+
+And he also didn't know that he wasn't the only person in this house who had sex on their mind. 
 
  Nadine trailed behind Dom, watching his hot body as they walked, barely able to stop herself from jumping his bones and forcing herself on him. He was just so hot to her. He had the deep, brooding attitude that could drive any girl nuts, and the sense of humor to make anyone like him. He had close cropped brown hair and a bit of stubble that made him look rough and mature. He had deep, dark eyes that pulled you in. And his body was fit and sexy. And his demeanor made him even more sexy. He was surprisingly quiet for such a joker, but when he spoke out and made a joke it made his jokes even funnier. His words carried weight, and his ability to not have to force his humor on people made him even more appealing. 
 
@@ -534,7 +548,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© Nadine sauntered forward towards the kitchen area, looking for Tony and Timmy. Her eyes scanned the room, noting the shelves and the cast iron stove. But what she didn't see was Tony and Timmy. She scrunched her eyes in confusion. Where the hell did they go? They didn't puss out, did they? 
+ 
+
+===
+
+Nadine sauntered forward towards the kitchen area, looking for Tony and Timmy. Her eyes scanned the room, noting the shelves and the cast iron stove. But what she didn't see was Tony and Timmy. She scrunched her eyes in confusion. Where the hell did they go? They didn't puss out, did they? 
 
  Nadine was about to walk towards the front door and see if they had chickened out and went outside. She was stopped when she heard a noise. It was faint and muffled, but she could hear it. It sounded like... sucking. Vigorous, wet sucking. 
 
@@ -714,7 +732,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© Again, his view of her glowing eyes was broken as his eyes were drawn to her deep cleavage. So deep, deep enough to make him wish he could fall into it face first and never escape. 
+ 
+
+===
+
+Again, his view of her glowing eyes was broken as his eyes were drawn to her deep cleavage. So deep, deep enough to make him wish he could fall into it face first and never escape. 
 
  "Nadine!" Dom called out. "Wake up!" Dom knew she was a slut, but he knew that this wasn't her. She wouldn't be this brazen. This was something else. A new force entirely. 
 
@@ -906,7 +928,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© Sally looked around, studying her friends. Dom and Nadine were still fucking the shit out of each other. Timmy was standing in place, awaiting others. Tony was still behind her, standing guard. And Alex was still unconscious on the bed. 
+ 
+
+===
+
+Sally looked around, studying her friends. Dom and Nadine were still fucking the shit out of each other. Timmy was standing in place, awaiting others. Tony was still behind her, standing guard. And Alex was still unconscious on the bed. 
 
  "What did you do to my friends?" Sally asked. 
 
@@ -1062,7 +1088,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© Madeline had said that she wouldn't use any of her magic against the young man to get him on her side, but that wasn't entirely true. Sure, she wouldn't just put him under a spell like she did the others. But, that didn't mean she couldn't grease the wheels a bit. Madeline knew her breast milk could be quite addictive. She knew that one taste could drive a man wild with lust and dark thoughts. So although at first it was simply Madeline forcing her milk upon him, she could now feel his mouth lightly sucking at her nipple. 
+ 
+
+===
+
+Madeline had said that she wouldn't use any of her magic against the young man to get him on her side, but that wasn't entirely true. Sure, she wouldn't just put him under a spell like she did the others. But, that didn't mean she couldn't grease the wheels a bit. Madeline knew her breast milk could be quite addictive. She knew that one taste could drive a man wild with lust and dark thoughts. So although at first it was simply Madeline forcing her milk upon him, she could now feel his mouth lightly sucking at her nipple. 
 
  Alex couldn't explain it. He shouldn't be in any way enjoying this. He was being forced into this! He shouldn't take any pleasure in this, this was just so, so wrong. But God her milk tasted good. As soon as it hit his tongue, he felt like a man dying of thirst being given a drop of water. He had to have more. So, despite this predicament, he found himself not fighting back as strongly. He found his hands resting on her full hips. He was letting her fill his mouth with the sweet substance. And once the pressure of the milk within her full breast was lessened, and the flow of milk slowed a bit, Alex couldn't stop himself from sucking ever so lightly as to help pull more milk into his mouth. He pressed himself into her just a bit and made sure his mouth completely surrounded her nipple, making sure none of the precious fluid escaped his mouth. And he let his tongue circle around her nipple, soaking it with his spit, cause that probably made the milk come out easier, right? And he found himself biting lightly at the rubber nipple, making her moan in satisfaction, cause making her moan probably made her milk really flow. 
 
@@ -1184,7 +1214,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© "Listen dear..." Madeline began, leaning forward, forcing her breasts into his still outstretched palms, filling his manly hands up again. "I could make you cum at any point, and my plan would probably work. But I haven't waited 300 years for probably. For this to work, I need not only your cum... I need your heart. I need your loyalty. And I will get it, whether you want it or not. By the end of this night, you will belong to me." 
+ 
+
+===
+
+"Listen dear..." Madeline began, leaning forward, forcing her breasts into his still outstretched palms, filling his manly hands up again. "I could make you cum at any point, and my plan would probably work. But I haven't waited 300 years for probably. For this to work, I need not only your cum... I need your heart. I need your loyalty. And I will get it, whether you want it or not. By the end of this night, you will belong to me." 
 
  Alex was in conflict. Her cunt had him so on edge that he could barely move without cumming inside her and filling her cunt with what felt like the biggest wad of cum he ever shot. He tried to pull his hands from her rack, but he had little room to maneuver, and his hands had minds of their own. Despite hating this woman, he loved squeezing her huge, soft tits. He couldn't stop himself. He was so on edge by the never-ending squeezing and tightening of her silky cunt that he couldn't control himself. Madeline looked over her shoulder. 
 
@@ -1394,7 +1428,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© Finally, they both relaxed, collapsing against each other, gathering their strength and clearing their heads. Both moved only slightly as they came back to reality. Sally watched her boyfriend, hoping that now since his balls were empty, he could now understand what he did and remember his love and loyalty for his girlfriend and stop this evil bitch once and for all. 
+ 
+
+===
+
+Finally, they both relaxed, collapsing against each other, gathering their strength and clearing their heads. Both moved only slightly as they came back to reality. Sally watched her boyfriend, hoping that now since his balls were empty, he could now understand what he did and remember his love and loyalty for his girlfriend and stop this evil bitch once and for all. 
 
  Alex rolled off of Madeline and laid next to her, as both tried to regain their strength. Both were still covered with sweat, but both his chest and Madeline's mountainous peaks were covered with her milk. And Alex's dick, even though drained of cum, was still swollen and semi-hard. But Sally knew there was no way he would be up for more action after what she just saw. It would take a while for him to recover. 
 
@@ -1554,7 +1592,11 @@
 
  
 
- ****** The Cursed House of Crow ****** byTheTalkMan© "What! You can't? They've been in love since they were kids!" Sally cried out, but Timmy just laughed evilly. Seeing there was no hope there, Sally moved on. 
+ 
+
+===
+
+"What! You can't? They've been in love since they were kids!" Sally cried out, but Timmy just laughed evilly. Seeing there was no hope there, Sally moved on. 
 
  "Tony! Please!" she begged. 
 

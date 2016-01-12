@@ -1,8 +1,14 @@
+Melissa's Tight Jeans
+=====================
 #1 
 
  
 
- ****** Melissa's Tight Jeans ****** bygeronimo_appleby© A quick one about a young man captivated by Melissa's tight jeans when she arrive at the hotel. He braves security to speak to her at the poolside. He asks her to give him a picture of her backside in her tight jeans, but what, if anything, will she send him over the phone? 
+ 
+
+===
+
+A quick one about a young man captivated by Melissa's tight jeans when she arrive at the hotel. He braves security to speak to her at the poolside. He asks her to give him a picture of her backside in her tight jeans, but what, if anything, will she send him over the phone? 
 
  If you enjoy this, give me some feedback. Feedback can be via public comments below, PM on the Lit forum, or email. If you want a response to feedback then email is best. 
 
@@ -308,7 +314,11 @@
 
  
 
- ****** Melissa's Tight Jeans ****** bygeronimo_appleby© 'You've got a cracking figure,' he said. 
+ 
+
+===
+
+'You've got a cracking figure,' he said. 
 
  Resting on one elbow she craned to look at him. 'Is that good?' 
 

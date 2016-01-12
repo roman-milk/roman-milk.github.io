@@ -1,8 +1,14 @@
+The Drive In Movie
+==================
 #1 
 
  
 
- ****** The Drive In Movie ****** byJust_Plain_Bob© It was a stupid thing for me to do and I knew better, but I let it happen anyway. The problem is that I loved it and I want to do it again, but I don't dare. The consequences of getting caught would destroy my marriage, ruin my family and stamp a brand on my forehead for all to see. 
+ 
+
+===
+
+It was a stupid thing for me to do and I knew better, but I let it happen anyway. The problem is that I loved it and I want to do it again, but I don't dare. The consequences of getting caught would destroy my marriage, ruin my family and stamp a brand on my forehead for all to see. 
 
  I am a forty-three year old wife and mother. My husband Joel and I have three great children; eighteen year old Mike, sixteen year old Cassandra and fourteen year old Donna. My husband is an electrical engineer and he makes very good money and that allows me to be a stay at home mom. Being a stay at home mom can be a very stressful thing what with trying to keep up with three teenagers, a husband and a four bedroom house. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** The Drive In Movie ****** byJust_Plain_Bob© "Harry is my current lover" Caroline said, "I invited him to join us to see to it that you got the full experience tonight. Your first infidelity, your first incestuous relationship, your first three some, your first foursome and Tony, another one of my lovers should be here in a minute or so to see that you get your first gang bang. No need to thank me now sweetie, you can do that later." 
+ 
+
+===
+
+"Harry is my current lover" Caroline said, "I invited him to join us to see to it that you got the full experience tonight. Your first infidelity, your first incestuous relationship, your first three some, your first foursome and Tony, another one of my lovers should be here in a minute or so to see that you get your first gang bang. No need to thank me now sweetie, you can do that later." 
 
  Jeff was the first one to cum and he got out from under me and Harry worked his way under me and into me and Jeff pushed his cock into my mouth. Mike was the next to let go and he pulled out of my ass and another cock (I guessed Tony had arrived) slid into my ass and after that cocks just moved from hole to hole as they took turns fucking me. I had cum so many times that I was getting weak and I was being bounced around like a rag doll. 
 

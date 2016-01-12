@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Hot Hunny
+===============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Hot Hunny ****** byJust_Plain_Bob© The best blow job I ever got was when I blackmailed a married woman. She was also the first woman I ever fucked in the ass, but there was no blackmail involved in that, no sir re-bob, she begged me for that. It all started because I am a porn junkie and I have a good memory. I spend a lot of my free time on the Net cruising the porn sites and one of my favorites is RedClouds, the explicit photo section of VoyuerWeb.com. I like it because it is all amateur and has very little in the way of professional models. The photos are changed daily and so I go there almost every day. 
+ 
+
+===
+
+The best blow job I ever got was when I blackmailed a married woman. She was also the first woman I ever fucked in the ass, but there was no blackmail involved in that, no sir re-bob, she begged me for that. It all started because I am a porn junkie and I have a good memory. I spend a lot of my free time on the Net cruising the porn sites and one of my favorites is RedClouds, the explicit photo section of VoyuerWeb.com. I like it because it is all amateur and has very little in the way of professional models. The photos are changed daily and so I go there almost every day. 
 
  ++++++++++++++++++++++++++ 
 

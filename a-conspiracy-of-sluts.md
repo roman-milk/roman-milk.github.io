@@ -1,8 +1,14 @@
+A Conspiracy of Sluts Ch. 01
+============================
 #1 
 
  
 
- ****** A Conspiracy of Sluts Ch. 01 ****** byfastandsloppy© Author's note: This is the first part of a five part novella. Each chapter will be devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
+ 
+
+===
+
+Author's note: This is the first part of a five part novella. Each chapter will be devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
 
  * 
 
@@ -262,7 +268,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 01 ****** byfastandsloppy© "Huh?" 
+ 
+
+===
+
+"Huh?" 
 
  "Oh, vampires; you have to invite them into your home or they have no power over you." 
 
@@ -378,7 +388,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 02 ****** byfastandsloppy© Author's note: This is the second part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
+ 
+
+===
+
+Author's note: This is the second part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
 
  
 
@@ -574,7 +588,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 02 ****** byfastandsloppy© Then their hands were on her, holding her, controlling her; strong hands. They were laying her back on the mattress, working with unified but wordless intent as they positioned her for the next act. Paige's heart beat quicker. Her pussy squirmed and dripped with expectation. 
+ 
+
+===
+
+Then their hands were on her, holding her, controlling her; strong hands. They were laying her back on the mattress, working with unified but wordless intent as they positioned her for the next act. Paige's heart beat quicker. Her pussy squirmed and dripped with expectation. 
 
  Tony was down by her feet, kissing along her legs as he pulled off her panties and pried her thighs open. Neil was climbing up on the bed, crawling up toward the headboard on his knees, smiling down past his proud erection as he loomed over her. Paige looked from one to the other with wild, disbelieving eyes. She swallowed heavily. 
 
@@ -692,7 +710,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 03 ****** byfastandsloppy© Author's note: This is the third part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
+ 
+
+===
+
+Author's note: This is the third part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
 
  * 
 
@@ -982,7 +1004,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 03 ****** byfastandsloppy© "Are there people watching us?" she asked, her voice a whisper now. 
+ 
+
+===
+
+"Are there people watching us?" she asked, her voice a whisper now. 
 
  "What do you think?" he said to her as he urged her back down into the chair. He stepped closer so he was straddling her knees. Paige looked up at him, terrified at what he'd do, impatient that he just go ahead and do it. 
 
@@ -1094,7 +1120,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 04 ****** byfastandsloppy© Author's note: This is the fourth part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
+ 
+
+===
+
+Author's note: This is the fourth part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
 
  * 
 
@@ -1310,7 +1340,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 04 ****** byfastandsloppy© Paige realized she'd been sitting there wrapped in her sheet and thinking furiously for some time. Malcolm stood at the side of the bed looking confused and holding out another of his silly cards. 
+ 
+
+===
+
+Paige realized she'd been sitting there wrapped in her sheet and thinking furiously for some time. Malcolm stood at the side of the bed looking confused and holding out another of his silly cards. 
 
  "Would you like something to eat / drink?" it read. 
 
@@ -1480,7 +1514,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 04 ****** byfastandsloppy© "Recruiting!" he shrieked his voice rising high and shrill. "You're being drafted or something! Fuck if I know! Let go my dick!!!" 
+ 
+
+===
+
+"Recruiting!" he shrieked his voice rising high and shrill. "You're being drafted or something! Fuck if I know! Let go my dick!!!" 
 
  "PAIGE!" shouted a familiar voice from somewhere over Paige's shoulder. 
 
@@ -1492,7 +1530,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 05 ****** byfastandsloppy© Author's note: This is the final part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
+ 
+
+===
+
+Author's note: This is the final part of a five part novella. Each chapter is devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
 
  
 
@@ -1720,7 +1762,11 @@
 
  
 
- ****** A Conspiracy of Sluts Ch. 05 ****** byfastandsloppy© "Remember kiddo, it's better to regret something you havedone than something you haven'tdone," added Craig around the ice in the drink he was sipping. His pale blue eyes stared at her over the rim of his tumbler. 
+ 
+
+===
+
+"Remember kiddo, it's better to regret something you havedone than something you haven'tdone," added Craig around the ice in the drink he was sipping. His pale blue eyes stared at her over the rim of his tumbler. 
 
  Paige looked away, up through the tinted sunroof. The limo seemed to be stopped in traffic, nosing its way onto 7th Avenue. One of the several open-topped, double-decker sight-seeing busses caught in the snarl was looming over them. Asian tourists hung over the rails, snapping shots of Times Square, which they were currently oozing towards at a glacial pace. Next to the sunroof she noticed a toggle. She reached up, flicked it and the glass began to slide open. The bleat and growl of New York City traffic flooded the car. The oily fumes of exhaust assaulted their nostrils. The sticky warmth of the late-spring evening washed over their skin. 
 

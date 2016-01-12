@@ -1,8 +1,14 @@
+The Sweet Seduction
+===================
 #1 
 
  
 
- ****** The Sweet Seduction ****** bysilkstockingslover© Author comments: This story was based on an e-mail from a fan. She has a Muslim roommate she fantasies about and asked me to write a story about it. The story is not meant to offend, but to entertain. That said, comments on what you thought, good or bad, are appreciated. 
+ 
+
+===
+
+Author comments: This story was based on an e-mail from a fan. She has a Muslim roommate she fantasies about and asked me to write a story about it. The story is not meant to offend, but to entertain. That said, comments on what you thought, good or bad, are appreciated. 
 
  THE SWEET SEDUCTION 
 
@@ -178,4 +184,8 @@
 
  
 
- ****** The Sweet Seduction ****** bysilkstockingslover© Since then Afaf has become a perfect slave. She never disobeys and will eat the pussy of any woman who asks. I have sent her on a girl's basketball road trip, where she serviced all members of the team on the bus, in the dressing room, in the hotel and on the ride home again. Ms. Wilson borrowed her to eat her pussy under her kitchen table for hours as she marked tests. Sadie has taken her with her to her Asian club meetings where Afaf is there to service all the high strung Asians needing sexual relief. Ironically, Afaf is still a virgin to real cock. Until this weekend that is. Report_Story 
+ 
+
+===
+
+Since then Afaf has become a perfect slave. She never disobeys and will eat the pussy of any woman who asks. I have sent her on a girl's basketball road trip, where she serviced all members of the team on the bus, in the dressing room, in the hotel and on the ride home again. Ms. Wilson borrowed her to eat her pussy under her kitchen table for hours as she marked tests. Sadie has taken her with her to her Asian club meetings where Afaf is there to service all the high strung Asians needing sexual relief. Ironically, Afaf is still a virgin to real cock. Until this weekend that is. Report_Story 

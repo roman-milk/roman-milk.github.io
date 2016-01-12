@@ -1,8 +1,14 @@
+A Daddy's Love
+==============
 #1 
 
  
 
- ****** A Daddy's Love ****** byTx_Tall_Tales© ============================ 
+ 
+
+===
+
+============================ 
 
  A father's cautionary tale 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** A Daddy's Love ****** byTx_Tall_Tales© Forty minute delay - Sorry. 
+ 
+
+===
+
+Forty minute delay - Sorry. 
 
  The response was almost immediate. 
 
@@ -436,7 +446,11 @@
 
  
 
- ****** A Daddy's Love ****** byTx_Tall_Tales© She remembered the tears on his face, when he finished spanking her. 
+ 
+
+===
+
+She remembered the tears on his face, when he finished spanking her. 
 
  The spanking from Michael didn't result in tears, at least not on his part. The sex was passionate, fierce, demanding. She was almost afraid to tell him it was the best in years, later, while cuddled in his arms. 
 

@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Tina
+==========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Tina ****** byJust_Plain_Bob© The evening was a blast. I had broken up with my wife and was supposed to be feeling miserable, but I wasn't. If the stupid cunt needed to go and 'find herself' good fucking riddance, she was a lousy cook anyway. Not bad in bed, but the silly bitch couldn't boil water. I was still having a hard time believing that after ten years of marriage she had come up to me and said, "There is something missing in my life. I feel that there is a void in me, that I am lacking something, that I am unfulfilled in some way and I need to go and find myself. I do love you John, but our marriage is trapping me. Please understand, but I need to find the real me." Well, the silly bitch found fulfillment. Last I heard she'd fallen in with a bunch of bikers and they were taking turns filling her full. 
+ 
+
+===
+
+The evening was a blast. I had broken up with my wife and was supposed to be feeling miserable, but I wasn't. If the stupid cunt needed to go and 'find herself' good fucking riddance, she was a lousy cook anyway. Not bad in bed, but the silly bitch couldn't boil water. I was still having a hard time believing that after ten years of marriage she had come up to me and said, "There is something missing in my life. I feel that there is a void in me, that I am lacking something, that I am unfulfilled in some way and I need to go and find myself. I do love you John, but our marriage is trapping me. Please understand, but I need to find the real me." Well, the silly bitch found fulfillment. Last I heard she'd fallen in with a bunch of bikers and they were taking turns filling her full. 
 
  My brother Tom and his wife Tina decided that I needed a night out with some good friends and they talked me into meeting a bunch of them where Tom was working. Tom was an aircraft mechanic by day and a frustrated musician by night. He played drums for a band that played the local clubs and bars. They were pretty damn good, better than a lot of the ones that were dragging down the big bucks making records and playing concerts, but none of them had the balls to quit their day jobs and make a run for the gold. Bad for them, good for the rest of us. It was great having a good local band that we enjoyed dancing and listening to. 
 

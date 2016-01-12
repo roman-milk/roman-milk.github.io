@@ -1,8 +1,14 @@
+A Con Game Interrupted
+======================
 #1 
 
  
 
- ****** A Con Game Interrupted ****** byJust_Plain_Bob© "Oh god baby, that's it, like that, oh yes, oh yes, push baby, push it in deeper. Come on lover, fuck me hard, fuck me." 
+ 
+
+===
+
+"Oh god baby, that's it, like that, oh yes, oh yes, push baby, push it in deeper. Come on lover, fuck me hard, fuck me." 
 
  Her raven black hair was spread out in a fan across the white pillowcase; her legs were spread wide and her feet, still in her high heels, were pointed straight up at the ceiling. The man, his name was Dave, was ramming his cock into her as hard and as fast as he could go. She was clawing at his back and her nails were leaving red marks on his skin. 
 
@@ -314,7 +320,11 @@
 
  
 
- ****** A Con Game Interrupted ****** byJust_Plain_Bob© "You would really want me to do that?" 
+ 
+
+===
+
+"You would really want me to do that?" 
 
  "Yes I would." 
 

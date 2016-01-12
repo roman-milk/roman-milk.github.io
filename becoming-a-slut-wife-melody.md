@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Melody
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Melody ****** byJust_Plain_Bob© I know that everybody wondered why one entire wall of my office was a mirror. I know there were people who proposed all sorts of silly reasons, chief among them the idea that I was so full of myself that I loved to sit at my desk and admire myself. But no one had ever guessed the real reason. Oh if they could only see me now. 
+ 
+
+===
+
+I know that everybody wondered why one entire wall of my office was a mirror. I know there were people who proposed all sorts of silly reasons, chief among them the idea that I was so full of myself that I loved to sit at my desk and admire myself. But no one had ever guessed the real reason. Oh if they could only see me now. 
 
  When Melody came to work for me as a secretary and receptionist she was just a young newly married woman who looked fresh and wholesome and had pretty much the look of the 'girl next door' about her. A pretty girl, but not one that a lecher like me would lust after. All that changed about seven months after she started working for me. Melody got pregnant and her pregnancy transformed her. Suddenly she had a glow, an aura about her that screamed out at you, "Look at me, see how sexy I look and please come and fuck me." That look was driving me wild. Every time she came in my office I wanted to bend her over my desk and fuck her. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Becoming A Slut Wife: Melody ****** byJust_Plain_Bob© "Oh yessss," she moaned, "Fuck me, please fuck me, I need it, I need it bad." 
+ 
+
+===
+
+"Oh yessss," she moaned, "Fuck me, please fuck me, I need it, I need it bad." 
 
  After several minutes I came and my cock surprised me by not wanting to shrivel up. I pulled out of Melody and carried her, still dripping wet, to the bed and got between her legs. She didn't give me any, "No we can't" and I slid my cock in her, pulled her legs up on my shoulders and fucked her again. She was still squirming and moaning when I pulled out of her so I slid down and went to work on her pussy with my mouth. 
 

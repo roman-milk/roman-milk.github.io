@@ -1,8 +1,14 @@
+Missed Signals
+==============
 #1 
 
  
 
- ****** Missed Signals ****** byJust_Plain_Bob© You would think that the longer you live with someone the better you would understand them. Well, it might be true for others, but it certain wasn't true for me. 
+ 
+
+===
+
+You would think that the longer you live with someone the better you would understand them. Well, it might be true for others, but it certain wasn't true for me. 
 
  Janice and had been married for eleven years and they had been pretty good years. We were in tune with each other and a lot of the things we did we did without discussion because we knew each other well enough to know what the other would be up for. Janice and I married late in life – later than others in our age group anyway – and so we had a chance to see how the marriages of our contemporaries were going. The one thing that they all seemed to have in common is that they had gotten used to each other and were taking each other for granted. Janice and I learned through casual talk with friends that in a lot of the marriages the problem was sexual. They had gone from daily on their honeymoons to twice a week, if that, after a few years. Janice and I promised each other that we would not let that happen to us. 
 

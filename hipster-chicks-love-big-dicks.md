@@ -1,8 +1,14 @@
+Hipster Chicks Love Big Dicks
+=============================
 #1 
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story is a bit different from my usual fare. To be clear, this is a cheating wife story, and it's not for the faint of heart. There is betrayal, seduction, and heartbreak. Don't expect a happy ending. This is the story of a hot-bodied, big-breasted, innocent wife getting seduced and corrupted by a misogynistic asshole of a man with a huge dick. And this guy is just a motherfucker in this story, so I think it would be a good idea to make something clear: the words and language this character uses are harsh, and do not reflect the views of the author or any right minded thinking individual. He is a villain, and his views support that. So, for those who think they can handle it, go forward. Just don't say you weren't warned... 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story is a bit different from my usual fare. To be clear, this is a cheating wife story, and it's not for the faint of heart. There is betrayal, seduction, and heartbreak. Don't expect a happy ending. This is the story of a hot-bodied, big-breasted, innocent wife getting seduced and corrupted by a misogynistic asshole of a man with a huge dick. And this guy is just a motherfucker in this story, so I think it would be a good idea to make something clear: the words and language this character uses are harsh, and do not reflect the views of the author or any right minded thinking individual. He is a villain, and his views support that. So, for those who think they can handle it, go forward. Just don't say you weren't warned... 
 
  ************** 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© "Wow. Well, that's pretty pessimistic, dude." Eli said. 
+ 
+
+===
+
+"Wow. Well, that's pretty pessimistic, dude." Eli said. 
 
  "Yeah, I don't know if I agree with that." Steph said. 
 
@@ -364,7 +374,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© And there was a very good reason for that. Because Bill's cock was hanging out of his pants, having just finished his business, and it was in full view of the busty young wife. And it was truly a cock. A big, fat, hard COCK! Ten hard, thick inches of meaty dick. Steph couldn't take her eyes off of it. It was absolutely massive! She couldn't help but study it, her wide eyes hungrily gazing over every inch. It was hanging between his legs, his full, heavy balls hanging below in his smooth scrotum. She had taken a picture of his cock as soon as she opened the door, reflexively, as if on instinct. As if, deep down, she wanted a permanent record of this massive cock. She had intended to open and shut the door quickly, but she was staring, hypnotized. 
+ 
+
+===
+
+And there was a very good reason for that. Because Bill's cock was hanging out of his pants, having just finished his business, and it was in full view of the busty young wife. And it was truly a cock. A big, fat, hard COCK! Ten hard, thick inches of meaty dick. Steph couldn't take her eyes off of it. It was absolutely massive! She couldn't help but study it, her wide eyes hungrily gazing over every inch. It was hanging between his legs, his full, heavy balls hanging below in his smooth scrotum. She had taken a picture of his cock as soon as she opened the door, reflexively, as if on instinct. As if, deep down, she wanted a permanent record of this massive cock. She had intended to open and shut the door quickly, but she was staring, hypnotized. 
 
  "You like?" Bill said. She didn't say anything. Almost imperceptibly, she nodded. Only a keen eye would notice, a keen eye possessed by Bill. The hook had been successfully baited, and now it was simply a matter of reeling her in. 
 
@@ -538,7 +552,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© She sat up straight and tossed her hair over her shoulder, turning on her seductive charm, a side of her few got to see. She looked straight at Bill. She glanced towards the bathrooms to verify Eli was still there, and she began to speak. 
+ 
+
+===
+
+She sat up straight and tossed her hair over her shoulder, turning on her seductive charm, a side of her few got to see. She looked straight at Bill. She glanced towards the bathrooms to verify Eli was still there, and she began to speak. 
 
  "You're right." Steph began, her voice breathy as she leaned close to Bill, "I am a little slut. I desperately want to get fucked, really fucking hard. I want to get all hot and sweaty as much as possible. And Eli... he doesn't make me cum. He has never made me cum. No man has ever made me cum." 
 
@@ -660,7 +678,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© "Look at it, bitch!" He growled, not hiding behind his fatherly veneer. He was cold and calculating, putting this uppity woman in her place. "Study it. Learn every nook and cranny of it, because you will be getting to know every inch of it very well." Bill whispered. Steph didn't even notice or object to how casually he used the word bitch around her. Which was good, cause it would probably not be the last time Bill would call her that. 
+ 
+
+===
+
+"Look at it, bitch!" He growled, not hiding behind his fatherly veneer. He was cold and calculating, putting this uppity woman in her place. "Study it. Learn every nook and cranny of it, because you will be getting to know every inch of it very well." Bill whispered. Steph didn't even notice or object to how casually he used the word bitch around her. Which was good, cause it would probably not be the last time Bill would call her that. 
 
  "How big is it?" Steph whispered, eyes wide behind her hipster glasses, her nipples throbbing beneath her tight top. 
 
@@ -740,7 +762,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© Is Steph that type of girl? Is she the type of girl that serves her man, does what he says, and yields her body and mind to? She was afraid she knew the answer, and she knew the test was coming. Bill was about to give her a command, and whether or not she was a good girl or a true slut would depend on her response. It would depend on whether or not she would comply with the order or not. 
+ 
+
+===
+
+Is Steph that type of girl? Is she the type of girl that serves her man, does what he says, and yields her body and mind to? She was afraid she knew the answer, and she knew the test was coming. Bill was about to give her a command, and whether or not she was a good girl or a true slut would depend on her response. It would depend on whether or not she would comply with the order or not. 
 
  Was Steph a good girl, or a slut? 
 
@@ -872,7 +898,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© That would have to change. 
+ 
+
+===
+
+That would have to change. 
 
  Bill marveled at them for a few moments. Steph had been so sure he would never get to be in this position, and now, here she was, jutting out her chest, offering up her mammoth, bare breasts to this misogynistic older man. And they were indeed mammoth. Bill had a soft spot for large breasts, and this immaculate pair was making him drool. Making him lose a bit of self-control. 
 
@@ -1002,7 +1032,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© Perfect. 
+ 
+
+===
+
+Perfect. 
 
  She spun around again, facing him, now exposing her naked cunt to his eyes. She was mostly bare, save for a slim, sexy landing strip. Her pussy was perfect, looking small and tight, seemingly barely used. But Bill... he would be using it. His eyes slid up her body, over her fit stomach, past the mountainous peaks of her giant breasts, to her hungry, waiting eyes. 
 
@@ -1146,7 +1180,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© "Yes! Yes! Yessuh... uh, uh, ugh!" She grunted, her moans becoming less ladylike every time he drove his massive shaft roughly into her squeezing cunt. He was not letting up, showing no mercy, his years of experience with rough, filthy sex paying off. "UGH! UGH! UGH! MASTER! YES! YES! YES!" 
+ 
+
+===
+
+"Yes! Yes! Yessuh... uh, uh, ugh!" She grunted, her moans becoming less ladylike every time he drove his massive shaft roughly into her squeezing cunt. He was not letting up, showing no mercy, his years of experience with rough, filthy sex paying off. "UGH! UGH! UGH! MASTER! YES! YES! YES!" 
 
  She was no longer the one doing the work, staying in place above the older man as he fucked her roughly and without mercy. 
 
@@ -1358,7 +1396,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© He was pretty much making her cum with every stroke of his massive penis at this point. As he fucked Steph roughly, the haughty young woman was now in a state of near constant orgasm. This might seem generous for a cold-hearted man like Bill, but Steph's pleasure was secondary to him. He just needed her nice and compliant for what was to come, and making her so drunk with pleasure that she couldn't think straight was one way to accomplish that. 
+ 
+
+===
+
+He was pretty much making her cum with every stroke of his massive penis at this point. As he fucked Steph roughly, the haughty young woman was now in a state of near constant orgasm. This might seem generous for a cold-hearted man like Bill, but Steph's pleasure was secondary to him. He just needed her nice and compliant for what was to come, and making her so drunk with pleasure that she couldn't think straight was one way to accomplish that. 
 
  "Fuck!" Bill grunted roughly, slowing down. Steph's tight cunt nearly getting him off, testing his expert level of self control. He would never give her the credit, but Steph was very good at sex. Now that she had warmed up to him, now that she was giving it back to him a bit, she was quickly progressing from beginner to expert. In no time at all, Steph would be a fantastic whore for him. This was some of the best sex of his life, and for a man like Bill, that's saying something. And the fact they were doing this practically right in front of Steph's idiotic, dick-less husband made this extra sweet. 
 
@@ -1492,7 +1534,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© "Yes! Fuck me Daddy! Use me! Use my tight ass! Fuck my married ass with your huge cock! Make me scream! Make your little bitch scream!" Steph screamed out. While still using his left hand to molest the married woman's huge tits, he slid his other hand back to the young woman's scalp, pushing her face forward till it was pressed against the mirror. The side of her face slid against the mirror, the sweat of heated sexual exertion causing her cheek to slide against the smooth pane as the man behind her drove into her roughly. 
+ 
+
+===
+
+"Yes! Fuck me Daddy! Use me! Use my tight ass! Fuck my married ass with your huge cock! Make me scream! Make your little bitch scream!" Steph screamed out. While still using his left hand to molest the married woman's huge tits, he slid his other hand back to the young woman's scalp, pushing her face forward till it was pressed against the mirror. The side of her face slid against the mirror, the sweat of heated sexual exertion causing her cheek to slide against the smooth pane as the man behind her drove into her roughly. 
 
  "Tell your Daddy how much you love his cock? Tell me you fucking bitch!" Bill grunted, squeezing one of her huge, soft tits as he looked at the overwhelmed young woman in front of him, her eyes closed and her mouth hanging open in pleasure. 
 
@@ -1614,7 +1660,11 @@
 
  
 
- ****** Hipster Chicks Love Big Dicks ****** byTheTalkMan© But Eli would never get that chance. 
+ 
+
+===
+
+But Eli would never get that chance. 
 
  The young man spent a couple nights in jail as things were being sorted out. He finally found a sympathetic ear, and when Eli explained to his own shame what had happened on the plane, he was finally able to get out of jail with only a few minor charges. He rushed home, hoping to finally locate his wife and talk to her. But when he stepped into his house, he found it half-empty. As he stepped slowly through the crumbled remnants of his past life, he noticed most of his wife's stuff was gone, as was the illicit contraband that had gotten Eli into this mess. The only signs of life he saw were the unkempt bed sheets, indicating that sex had happened here, and the wedding band sitting discarded on the kitchen table. 
 

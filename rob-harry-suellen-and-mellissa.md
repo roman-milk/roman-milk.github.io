@@ -1,8 +1,14 @@
+Rob, Harry, Suellen and Mellissa
+================================
 #1 
 
  
 
- ****** Rob, Harry, Suellen and Mellissa ****** byJust_Plain_Bob© Harry had been my best friend for so long that it was hard for me to sometimes remember how far back we went. I'm pretty sure that it was around the second grade, but it might have been the first. He lived three doors down from me and we started walking to school together in the morning and then home again after school. We played together after school and on the weekends and as we grew older the bonds became tighter. 
+ 
+
+===
+
+Harry had been my best friend for so long that it was hard for me to sometimes remember how far back we went. I'm pretty sure that it was around the second grade, but it might have been the first. He lived three doors down from me and we started walking to school together in the morning and then home again after school. We played together after school and on the weekends and as we grew older the bonds became tighter. 
 
  When we were thirteen the Ellsworth brothers took his bike and I went with him to get it back. I got a black eye out of the deal, but I broke Burt Ellsworth nose and we did get Harry's bike back. When we were fourteen I got it a fight with Ronnie Liss over something I said to his sister and I was cleaning his clock until his cousin Sam jumped in to help him. Harry waded in and took care of Sammy while I finished with Ronnie. Harry had my back and I had his. 
 
@@ -252,7 +258,11 @@
 
  
 
- ****** Rob, Harry, Suellen and Mellissa ****** byJust_Plain_Bob© I grabbed a rag and cleaned my hands and then headed for the stairs. I heard Suellen laughing as she came through the connecting door to the garage and then I heard: 
+ 
+
+===
+
+I grabbed a rag and cleaned my hands and then headed for the stairs. I heard Suellen laughing as she came through the connecting door to the garage and then I heard: 
 
  "Are you sure this is all right?" 
 
@@ -530,7 +540,11 @@
 
  
 
- ****** Rob, Harry, Suellen and Mellissa ****** byJust_Plain_Bob© "Why are you afraid of me?" 
+ 
+
+===
+
+"Why are you afraid of me?" 
 
  "What makes you think I'm afraid of you?" 
 
@@ -824,7 +838,11 @@
 
  
 
- ****** Rob, Harry, Suellen and Mellissa ****** byJust_Plain_Bob© "He came back the next night and I didn't even bother to protest when he pushed me down on the floor just inside the front door. I just let him take me and while he was doing it I had orgasms like you wouldn't believe. Not because he was a skillful lover because he wasn't, but because I was getting off on the being taken part. Then things took on a life of their own. The 'taking' morphed into getting off because your super good buddy was fucking your wife then it slid into being a kick doing Harry behind your back and it was the cheating itself that was getting me off. 
+ 
+
+===
+
+"He came back the next night and I didn't even bother to protest when he pushed me down on the floor just inside the front door. I just let him take me and while he was doing it I had orgasms like you wouldn't believe. Not because he was a skillful lover because he wasn't, but because I was getting off on the being taken part. Then things took on a life of their own. The 'taking' morphed into getting off because your super good buddy was fucking your wife then it slid into being a kick doing Harry behind your back and it was the cheating itself that was getting me off. 
 
  "I know it sounds trite Rob, but it was only sex. I never stopped disliking Harry, but it was a major kick fucking him. I don't understand it; I can't explain it, but it was there. 
 

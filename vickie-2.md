@@ -1,8 +1,14 @@
+Vickie
+======
 #1 
 
  
 
- ****** Vickie ****** byJust_Plain_Bob© "You're sure that I can bring this back for a full refund if she says no?" 
+ 
+
+===
+
+"You're sure that I can bring this back for a full refund if she says no?" 
 
  "As long as you do nothing to it like resizing it to fit her finger we will take it back." 
 
@@ -252,7 +258,11 @@
 
  
 
- ****** Vickie ****** byJust_Plain_Bob© +++++++++++++++ 
+ 
+
+===
+
++++++++++++++++ 
 
  Two days later when I got home from work there were three guys leaning on a pickup in front of my place. One was bandaged and I was betting he was the driver of the red Dodge and that he had brought a couple of friends. 
 
@@ -578,7 +588,11 @@
 
  
 
- ****** Vickie ****** byJust_Plain_Bob© Once she had me stripped she stood up and took off her clothes. Naked she was every bit as spectacular as I had thought she might be the first night Charlie had asked me to let her ride with me. I was flat on my back on the floor with my cock pointing straight up like the Washington Monument when Odette lowered herself onto me and took me inside her and after that it was one very long evening that progressed from the living room floor to the bedroom. When at last I couldn't respond any more I started to get up and get dressed she pulled me back down and said: 
+ 
+
+===
+
+Once she had me stripped she stood up and took off her clothes. Naked she was every bit as spectacular as I had thought she might be the first night Charlie had asked me to let her ride with me. I was flat on my back on the floor with my cock pointing straight up like the Washington Monument when Odette lowered herself onto me and took me inside her and after that it was one very long evening that progressed from the living room floor to the bedroom. When at last I couldn't respond any more I started to get up and get dressed she pulled me back down and said: 
 
  "This is your place. You belong here next to me now." 
 

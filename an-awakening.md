@@ -1,8 +1,14 @@
+An Awakening Ch. 01
+===================
 #1 
 
  
 
- ****** An Awakening Ch. 01 ****** bygeronimo_appleby© Chapter 01: Angelique 
+ 
+
+===
+
+Chapter 01: Angelique 
 
  I plan to add further scenes to this first one. As yet I only have an amorphous idea of where it is going to go. There is the obvious route of the mother's seduction, but also I may include Angelique's husband in some capacity. I really haven't decided yet. 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** An Awakening Ch. 01 ****** bygeronimo_appleby© 'Kneel, love, and fuck your big cock back into me,' Angelique demanded, finally looking up at her brother's eyes, pulling at him until he fell to his knees between her spread thighs. 'Yes!' squealed Angelique when Lawrence slid deep into her again. 'Now, kiss me,' she insisted. 'Kiss me like you've never kissed any other woman before, dear brother.' 
+ 
+
+===
+
+'Kneel, love, and fuck your big cock back into me,' Angelique demanded, finally looking up at her brother's eyes, pulling at him until he fell to his knees between her spread thighs. 'Yes!' squealed Angelique when Lawrence slid deep into her again. 'Now, kiss me,' she insisted. 'Kiss me like you've never kissed any other woman before, dear brother.' 
 
  Lawrence watched his sister's eager pussy take his thickness easily. The flaps of her labia clung to the goo smearing his cock when he pulled several inches from her greedy grip. He bent to his sister's face to kiss her passionately while his cock began to piston in and out of her. Angelique returned the kiss with far more ardour than before, her tongue swirling around her brother's that wriggled for control. A rush to urgency overcame the excited woman. She knew a glorious release was imminent and would hold back no longer. As her climax began to boil outwards from her sex, Angelique grunted straight into her brother's mouth as she thrust as much of her tongue into him as was possible. She stopped breathing for a long moment as she stiffened in his grasp. She then drew back to catch her breath. 
 
@@ -152,7 +162,11 @@
 
  
 
- ****** An Awakening Ch. 02 ****** bygeronimo_appleby© Chapter 02: Elisabeth 
+ 
+
+===
+
+Chapter 02: Elisabeth 
 
  The following is the second scene in the Awakening series. A reader may possibly prefer to read An Awakening (Angelique) to gain an idea of previous occurrences relevant to this particular piece. Thanks to Selena for her work on this. Any errors that remain are entirely mine. 
 
@@ -278,7 +292,11 @@
 
  
 
- ****** An Awakening Ch. 03 ****** bygeronimo_appleby© Chapter 03: Marcus 
+ 
+
+===
+
+Chapter 03: Marcus 
 
  The third scene in the series so far. An Awakening (Angelique) and An Awakening (Elisabeth) are the first two scenes, and may give the reader some history of the occurrences to date. Thanks to Selena for the work she's put in. Any errors remaining are as a result of my own stupidity and from drinking far too much cider last night. 
 
@@ -412,7 +430,11 @@
 
  
 
- ****** An Awakening Ch. 04 ****** bygeronimo_appleby© The door opened at Lawrence's touch. He paused on the brink, uncertain now. His body tingled. He knew it was folly, this mad adventure, but he could no more stop the course he was set than he could stop the tides. There was inevitability to his actions, as though his movements were scripted and he was merely acting his part in a play. 
+ 
+
+===
+
+The door opened at Lawrence's touch. He paused on the brink, uncertain now. His body tingled. He knew it was folly, this mad adventure, but he could no more stop the course he was set than he could stop the tides. There was inevitability to his actions, as though his movements were scripted and he was merely acting his part in a play. 
 
  He looked into the room beyond the open door. A broad shaft of sunlight, its edge sharply defined, bisected the already bright room and highlighted the lazy dust motes that danced within its smile. The light came through the single window, the very window in which she had been so fatefully framed on the morning Lawrence had spied her nudity. He sighed heavily at the sudden memory of her shocking nakedness, a memory that blazed in his mind and which had caused him so much anguish. 
 

@@ -1,8 +1,14 @@
+Cheerleader's Mom: A Power Shift
+================================
 #1 
 
  
 
- ****** Cheerleader's Mom: A Power Shift ****** bysilkstockingslover© Summary: Mom is caught on her daughter's bed and made a submissive. 
+ 
+
+===
+
+Summary: Mom is caught on her daughter's bed and made a submissive. 
 
  Note 1: Thanks to < a href="https://www.literotica.com/stories/ memberpage.php?uid=2133551" target="_blank">hfernandez1983  for doing the visuals for this story and potential multi-part series. 
 
@@ -242,7 +248,11 @@
 
  
 
- ****** Cheerleader's Mom: A Power Shift ****** bysilkstockingslover© The defeated Mother sighed and pleaded with her daughter, feeling completely helpless to defy her, "Please don't make me do this." 
+ 
+
+===
+
+The defeated Mother sighed and pleaded with her daughter, feeling completely helpless to defy her, "Please don't make me do this." 
 
  "Do it!" the uncompassionate Allie replied. 
 
@@ -432,7 +442,11 @@
 
  
 
- ****** Cheerleader's Mom: Blackmailed Pet ****** bysilkstockingslover© Summary: Mom is blackmailed into submitting to her dominant daughter. 
+ 
+
+===
+
+Summary: Mom is blackmailed into submitting to her dominant daughter. 
 
  Note 1: Thanks to hfernandez1983 for doing the visuals for this story. 
 
@@ -574,7 +588,7 @@
 
  Allie roared, tossing her whip on the bed and pinching both her mother's already very erect nipples, "Don't you ever fucking dismiss me again. Is that fucking clear?" 
 
- "Y-y-yes,|" Michelle stammered, suddenly terrified of her daughter. She was also bewildered by the reality that the pain from having her nipples pinched and twisted somehow made her pussy leak. 
+ "Y-y-yes," Michelle stammered, suddenly terrified of her daughter. She was also bewildered by the reality that the pain from having her nipples pinched and twisted somehow made her pussy leak. 
 
  "Do you really want Dad to know you're a rug muncher?" Allie asked. 
 
@@ -810,7 +824,11 @@
 
  
 
- ****** Cheerleader's Mom: Blackmailed Pet ****** bysilkstockingslover© "Good, Mommy," Allie whispered, "clean up your mess." 
+ 
+
+===
+
+"Good, Mommy," Allie whispered, "clean up your mess." 
 
  And the mother did, surprised by the oddly satisfying taste of herself, something she had never tasted. She had fingered herself and gave a whiff out of curiosity, but she had never actually put her own finger in her mouth. 
 

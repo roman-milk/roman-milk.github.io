@@ -1,8 +1,14 @@
+Ralph's Slut
+============
 #1 
 
  
 
- ****** Ralph's Slut ****** byJust_Plain_Bob© I have worked for the same company for almost ten years. With the exception of the first year and a half when I was hit on by everyone, including the seventeen-year kid in the mailroom, I have been pretty much left alone. Once the office Don Juan's figured out that I was a married woman who didn't play around the serious passes stopped and things around the office settled into harmless flirting and some kidding around. I did get a tad carried away at a couple of office Christmas parties, but it never went past some french kissing and a quick feel or two so it came as a big surprise to me when all of a sudden the office wolves were back in force. They were not only after me hot and heavy, but they seemed to think that I would be receptive. 
+ 
+
+===
+
+I have worked for the same company for almost ten years. With the exception of the first year and a half when I was hit on by everyone, including the seventeen-year kid in the mailroom, I have been pretty much left alone. Once the office Don Juan's figured out that I was a married woman who didn't play around the serious passes stopped and things around the office settled into harmless flirting and some kidding around. I did get a tad carried away at a couple of office Christmas parties, but it never went past some french kissing and a quick feel or two so it came as a big surprise to me when all of a sudden the office wolves were back in force. They were not only after me hot and heavy, but they seemed to think that I would be receptive. 
 
  Receptive I was not. I was flattered by all the attention I was getting, what forty-year-old woman with four kids wouldn't be, but it wasn't attention that I sought or wanted. One night after a couple of weeks of fighting off the heavy passes, I stopped at a local lounge with some people from work. I had a couple of drinks and I danced with a few of the guys. I was on the dance floor with Herb when he suddenly cupped my breast and whispered, "What say you and me go out into the parking lot for some backseat action?" 
 

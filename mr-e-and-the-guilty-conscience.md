@@ -1,8 +1,14 @@
+Mr E and the Guilty Conscience
+==============================
 #1 
 
  
 
- ****** Mr E and the Guilty Conscience ****** byTx_Tall_Tales© ================== 
+ 
+
+===
+
+================== 
 
  What does he know? What will he do? 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Mr E and the Guilty Conscience ****** byTx_Tall_Tales© I'm sure many would think me a wimp. Perhaps I am. I enjoyed it, the access to her body, wrenching the orgasms from her shuddering flesh, pampering her, cuddling with her. I was shocked when I was included on calls with her husband, and he thanked me for taking care of her, and being a gentleman about it. Mingling with the station royalty, the people the other hundreds of us were there for, was exciting. 
+ 
+
+===
+
+I'm sure many would think me a wimp. Perhaps I am. I enjoyed it, the access to her body, wrenching the orgasms from her shuddering flesh, pampering her, cuddling with her. I was shocked when I was included on calls with her husband, and he thanked me for taking care of her, and being a gentleman about it. Mingling with the station royalty, the people the other hundreds of us were there for, was exciting. 
 
  She cried when I told her it was going to be my last duty. Every year we were required to leave for a short period. I confessed to her that I wouldn't be returning from the next. 
 
@@ -482,7 +492,11 @@
 
  
 
- ****** Mr E and the Guilty Conscience ****** byTx_Tall_Tales© The drinks were flowing, and nobody was feeling much pain. Sue was obviously buzzed, in her party, flirting mood. I liked that. It almost always meant hot sex. I loved that. She was amazing. 
+ 
+
+===
+
+The drinks were flowing, and nobody was feeling much pain. Sue was obviously buzzed, in her party, flirting mood. I liked that. It almost always meant hot sex. I loved that. She was amazing. 
 
  "You ever sorry you gave up the old life?" Mark asked. 
 
@@ -858,7 +872,11 @@
 
  
 
- ****** Mr E and the Guilty Conscience ****** byTx_Tall_Tales© A loving wife, great friends, an excellent job. I had it pretty damn good. Even if I had the social graces of a rhino. My wife loved me, and only me, and nothing else mattered. 
+ 
+
+===
+
+A loving wife, great friends, an excellent job. I had it pretty damn good. Even if I had the social graces of a rhino. My wife loved me, and only me, and nothing else mattered. 
 
  As many have said before me, and more will in the future, life was good. 
 

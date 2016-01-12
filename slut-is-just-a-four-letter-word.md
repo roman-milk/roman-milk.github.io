@@ -1,8 +1,14 @@
+Slut is Just a Four Letter Word
+===============================
 #1 
 
  
 
- ****** Slut is Just a Four Letter Word ****** bywhiteslutwife© The story you are about to read is fictional, but based on a real person. I want to offer a special thank you to Brooke for providing the concept, inspiration, and the request for this story. This story contains references to interracial, group, bi and forced sex, as well as submission and family fun. Please don't read any further if these topics don't interest you. As always thanks for reading and remember to vote! 
+ 
+
+===
+
+The story you are about to read is fictional, but based on a real person. I want to offer a special thank you to Brooke for providing the concept, inspiration, and the request for this story. This story contains references to interracial, group, bi and forced sex, as well as submission and family fun. Please don't read any further if these topics don't interest you. As always thanks for reading and remember to vote! 
 
  K 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Slut is Just a Four Letter Word ****** bywhiteslutwife© "Hey Mom?" Brooke asked sweetly. "Can we chat later? I want to call some friends and let them know I'm home." 
+ 
+
+===
+
+"Hey Mom?" Brooke asked sweetly. "Can we chat later? I want to call some friends and let them know I'm home." 
 
  Cheryl smiled and rose, gently kissing her daughter again and left her alone. 
 
@@ -454,7 +464,11 @@
 
  
 
- ****** Slut is Just a Four Letter Word ****** bywhiteslutwife© Tom's lust got the better of him. Taking her hair in his hands, just as he saw Andy do, he pulled her face up and lined his cock up to her full lips. Cheryl looked up at her son and slowly parted her lips, allowing him to ease his cock into her waiting mouth. When Andy was satisfied that she had it all the way in, he began to pound her from behind. This had the added pleasure of forcing Tom's swollen cock deeper into Cheryl's waiting throat. 
+ 
+
+===
+
+Tom's lust got the better of him. Taking her hair in his hands, just as he saw Andy do, he pulled her face up and lined his cock up to her full lips. Cheryl looked up at her son and slowly parted her lips, allowing him to ease his cock into her waiting mouth. When Andy was satisfied that she had it all the way in, he began to pound her from behind. This had the added pleasure of forcing Tom's swollen cock deeper into Cheryl's waiting throat. 
 
  Tom was in a lustful heaven. His bravery in the situation multiplied each time he heard his mother gag on his cock. He left one hand on her head and used his other to grope Cheryl's swaying breasts. The pleasure soon became more then Tom could take, though he held back from climax as long as he could. Andy noticed the all too familiar look on his face and realizing he was about to cum, he pushed himself deeply into Cheryl, forcing her to again impale her throat with Tom's cock. 
 

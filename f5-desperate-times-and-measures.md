@@ -1,8 +1,14 @@
+F5: Desperate Times and Measures
+================================
 #1 
 
  
 
- ****** F5: Desperate Times and Measures ****** byTx_Tall_Tales© F5: Desperate Times, Desperate Measures 
+ 
+
+===
+
+F5: Desperate Times, Desperate Measures 
 
  (Author's note: This story is an entry into FAWC (Friendly Anonymous Writing Challenge), a collaborative competition among Lit authors. FAWC is not an official contest sponsored by Literotica, and there are no prizes given to the winner. Every story for this FAWC begins with the exact same line. Where it goes from there is up to the author.) 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** F5: Desperate Times and Measures ****** byTx_Tall_Tales© I turned away, got in my car, and started driving. I had nowhere to go, and planned on taking a long time to get there. 
+ 
+
+===
+
+I turned away, got in my car, and started driving. I had nowhere to go, and planned on taking a long time to get there. 
 
  * * * * 
 
@@ -334,7 +344,11 @@
 
  
 
- ****** F5: Desperate Times and Measures ****** byTx_Tall_Tales© "Sounds wonderful." 
+ 
+
+===
+
+"Sounds wonderful." 
 
  I stepped down off the porch, and fired up my homemade grill. Once I was convinced it was going strong, I went indoors. 
 
@@ -562,7 +576,11 @@
 
  
 
- ****** F5: Desperate Times and Measures ****** byTx_Tall_Tales© I could feel myself getting angry again. So many damn excuses. None worth a damn, in my opinion. 
+ 
+
+===
+
+I could feel myself getting angry again. So many damn excuses. None worth a damn, in my opinion. 
 
  "I knew it wasn't true, Dan. That's why when you asked, I couldn't tell you the same lame excuses he fed me. Not that a lot of that wasn't true. It was. But that's not why." 
 
@@ -728,7 +746,11 @@
 
  
 
- ****** F5: Desperate Times and Measures ****** byTx_Tall_Tales© There was a new cleared trail that circled the property. It ran past the swimming hole, and my 'official' Maya Ruins. Honestly, it looked like a pile of rocks. No temple to the sun here, but a professor from the university in Belize City confirmed it. It turns out the area was littered with ruins. Manolo said for only $2000 Belize, he could have it excavated, and see what was under the dirt. I was curious, but not that curious. He still cleaned it up, exposed a couple of steps and a piece of wall, put up a stone and another sign. "Jenna's Rest". It was near the edge of my property, and less than fifty feet later Manolo had the end of the trail coming out on the side road, conveniently across from where the trails at the community next door started. 
+ 
+
+===
+
+There was a new cleared trail that circled the property. It ran past the swimming hole, and my 'official' Maya Ruins. Honestly, it looked like a pile of rocks. No temple to the sun here, but a professor from the university in Belize City confirmed it. It turns out the area was littered with ruins. Manolo said for only $2000 Belize, he could have it excavated, and see what was under the dirt. I was curious, but not that curious. He still cleaned it up, exposed a couple of steps and a piece of wall, put up a stone and another sign. "Jenna's Rest". It was near the edge of my property, and less than fifty feet later Manolo had the end of the trail coming out on the side road, conveniently across from where the trails at the community next door started. 
 
  The roads were improved, with a nice cleared space on each side. The fruit trees were trimmed, sprayed, and mulched. I even had my shade gazebo with thatched roof to the east side of the beach. My original little grill was enclosed, and was big enough to cook a side of beef. I had a half-ton of wood charcoal in the brick box beside it. There were two hammocks down by the water, hanging between some of the trees that had been left when the beach was originally cleared. Two. There was only one of me. You do the math. 
 
@@ -972,7 +994,11 @@
 
  
 
- ****** F5: Desperate Times and Measures ****** byTx_Tall_Tales© I saw a tiny smile turn up the corner's of her mouth, which she tried to hide. I couldn't help it. I chuckled. She giggled. We ended up laughing unable to stop. I held her close, feeling her laughter. We had almost recovered, when she slapped my chest. "Jesus, Dan, I can't believe we both forgot how to fuck." 
+ 
+
+===
+
+I saw a tiny smile turn up the corner's of her mouth, which she tried to hide. I couldn't help it. I chuckled. She giggled. We ended up laughing unable to stop. I held her close, feeling her laughter. We had almost recovered, when she slapped my chest. "Jesus, Dan, I can't believe we both forgot how to fuck." 
 
  That brought on another attack of the giggles, which ended with me on my back, and her laying on top of me. She sat up, and grinned. "Remind me baby, it's been so long. This thing here," she said, holding me by the shaft. "I know it's supposed to go somewhere." 
 

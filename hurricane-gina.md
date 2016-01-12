@@ -1,8 +1,14 @@
+Hurricane Gina
+==============
 #1 
 
  
 
- ****** Hurricane Gina ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Matt) 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Hurricane Gina ****** byTheTalkMan© "What do you think of Gina, your mother-in-law?" She asked. 
+ 
+
+===
+
+"What do you think of Gina, your mother-in-law?" She asked. 
 
  "To be honest, I barely know her. From what I've seen of her, I have no problems with her." 
 
@@ -444,7 +454,11 @@
 
  
 
- ****** Hurricane Gina ****** byTheTalkMan© "I think you can do a little better than that." She said. I sped up even more. I was now going ninety in a seventy zone. I never went this fast. 
+ 
+
+===
+
+"I think you can do a little better than that." She said. I sped up even more. I was now going ninety in a seventy zone. I never went this fast. 
 
  "That's a good start, Matt. I'll tell you what, Matt. On the way back, you let me drive. I'll show you how to really do it." Gina said. 
 
@@ -574,7 +588,11 @@
 
  
 
- ****** Hurricane Gina ****** byTheTalkMan© "You're wrong. I won't do it." Matt denied. 
+ 
+
+===
+
+"You're wrong. I won't do it." Matt denied. 
 
  "Why are you fighting your instincts Matt? Every instinct in your body is telling you to fuck me. Why fight nature? Your huge cock and my tight cunt were made for each other. You were meant to be with me. Every one of Jenny's boyfriends, every one, left her they met me. They knew, once they saw me, they could do better than my idiot daughter. I never fucked them, but I could have. They understood their instincts and they accepted them. Why can't you?" Gina asked. 
 
@@ -674,7 +692,11 @@
 
  
 
- ****** Hurricane Gina ****** byTheTalkMan© "Yes! I want to get you pregnant. Yes, I want you to have my babies, all my babies. Just please, FUCK ME!" I yelled out, delirious, but meaning every word. 
+ 
+
+===
+
+"Yes! I want to get you pregnant. Yes, I want you to have my babies, all my babies. Just please, FUCK ME!" I yelled out, delirious, but meaning every word. 
 
  She lifted her hand off my dick with a flourish and rose up. She crawled over me on all fours. It was at this point that I realized how swollen my balls felt. Keeping me on edge for so long had backed up so much cum in my balls that they felt twice their size. I needed to cum so fucking bad. She was now straddling my dick. She reached down to point it straight towards her pussy. She rubbed the head up and down her pussy, and through the hair above it. She finally settled it at the entrance of her pussy. 
 
@@ -804,7 +826,11 @@
 
  
 
- ****** Hurricane Gina ****** byTheTalkMan© ************ 
+ 
+
+===
+
+************ 
 
  Jenny stayed in the mental health hospital for two months. They wouldn't let her leave until Dr. White gave the okay. The day she was released, no one was able to pick her up. I couldn't find time to retrieve her, so she took a cab home. I knew what she was hoping to come home to as she walked inside. She headed upstairs to our room, to face her fear. I heard her footsteps, and I knew exactly what was going through her head as she approached our room. To be able to go in our room and not see her nightmares come to life. She pushed open the door. 
 

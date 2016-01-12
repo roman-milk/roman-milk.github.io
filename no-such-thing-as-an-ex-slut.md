@@ -1,8 +1,14 @@
+No Such Thing as an Ex-Slut Ch. 01
+==================================
 #1 
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 01 ****** byfastandsloppy© Greetings beloved readers, this is the first part of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
+ 
+
+===
+
+Greetings beloved readers, this is the first part of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
 
  The cabin's tiny shower was difficult to fine-tune, demanding ample patience to finesse into the comfortable spot between icy and scalding. Roy impatiently fiddled with the faucet for couple of seconds before mumbling "fuck it" and stepping under the cold water. "I'll be right out," he called to Tuli through chattering teeth. "Don't fall asleep!" Her reply came back as an indiscernible mumble over the sound of the water. Roy nodded to himself. He had no idea what she had said; he was just pleased to confirm she was still awake. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 01 ****** byfastandsloppy© "Oh yeah, OK," said Roy. He let his spent cock flop out of Tuli and moved back. She turned from the window and stepped into his embrace. 
+ 
+
+===
+
+"Oh yeah, OK," said Roy. He let his spent cock flop out of Tuli and moved back. She turned from the window and stepped into his embrace. 
 
  "Do you think our boy was watching?" asked Tuli into Roy's shoulder. 
 
@@ -230,7 +240,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 02 ****** byfastandsloppy© Greetings beloved readers, this is the second of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
+ 
+
+===
+
+Greetings beloved readers, this is the second of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
 
  * 
 
@@ -492,7 +506,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 02 ****** byfastandsloppy© "Fuck you Jimmy," she sneered. 
+ 
+
+===
+
+"Fuck you Jimmy," she sneered. 
 
  "Now you're talkin'! Come here baby. Let's show these guys how Jimmy K. and Wanda Jean get freaky." 
 
@@ -666,7 +684,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 02 ****** byfastandsloppy© Jimmy laughed and shook his head in disbelief as he got to his knees behind Tuli. Roy saw her suck in her breath at the sensation of Jimmy's tongue sliding down the crack of her ass. Wanda released her nipples and began moving down Tuli's body too; settling into her pussy as Jimmy ravenously ate her ass. Tuli's entire body went rigid at the feel of the two tongues invading her from front and back. Her face opened into an expression of sublime pleasure as she threw her head back and cried out in truncated sounds of animal ecstasy. 
+ 
+
+===
+
+Jimmy laughed and shook his head in disbelief as he got to his knees behind Tuli. Roy saw her suck in her breath at the sensation of Jimmy's tongue sliding down the crack of her ass. Wanda released her nipples and began moving down Tuli's body too; settling into her pussy as Jimmy ravenously ate her ass. Tuli's entire body went rigid at the feel of the two tongues invading her from front and back. Her face opened into an expression of sublime pleasure as she threw her head back and cried out in truncated sounds of animal ecstasy. 
 
  It was an odd tableau: Tuli standing with busy faces buried between her legs from the front and back; every muscle rigid with pleasure; her ribs straining against her skin; perspiration pouring down her face, chest and abdomen; her head hanging back so her mass of sable hair danced inches above Jimmy's bald scalp; her eyes focused unseeing on the ceiling, blinded by bliss. Roy felt his cock stir in his lap. He reached down and felt that it was halfway hard. Taking it in hand, he began stroking it towards fullness. 
 
@@ -732,7 +754,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 03 ****** byfastandsloppy© Greetings beloved readers, this is the second of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
+ 
+
+===
+
+Greetings beloved readers, this is the second of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
 
  * 
 
@@ -998,7 +1024,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 03 ****** byfastandsloppy© When Roy returned, he found Tuli and Mike intertwined against a lamp post as a few passersby tut-tutted their public miscegenation with sour looks and hard stares. Roy felt an increasingly familiar summersault in his guts as he watched his wife gleefully submit to Mike's affections. It struck him how he didn't see the tension and aggression that she'd shown when she'd been with Jimmy. Her motions were now fluid, eager, hot. He remembered what she'd said this morning: "Jimmy and Wanda are perfect for a vacation fling exactly because they're so awful." Roy looked at Mike: English accent, future doctor, open shirt exposing his two hundred push-up chest. Belatedly he saw the wisdom in what Tuli had said. Maybe Jimmy wasn't so bad after all. 
+ 
+
+===
+
+When Roy returned, he found Tuli and Mike intertwined against a lamp post as a few passersby tut-tutted their public miscegenation with sour looks and hard stares. Roy felt an increasingly familiar summersault in his guts as he watched his wife gleefully submit to Mike's affections. It struck him how he didn't see the tension and aggression that she'd shown when she'd been with Jimmy. Her motions were now fluid, eager, hot. He remembered what she'd said this morning: "Jimmy and Wanda are perfect for a vacation fling exactly because they're so awful." Roy looked at Mike: English accent, future doctor, open shirt exposing his two hundred push-up chest. Belatedly he saw the wisdom in what Tuli had said. Maybe Jimmy wasn't so bad after all. 
 
  "So this is your make-out spot? It isn't as secret as I'd imagined," said Roy conversationally as he walked up to them. He resisted a sharp urge to punch Mike in the face, which was easy to do since Mike looked like he could definitely beat his ass into the ground. 
 
@@ -1212,7 +1242,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 03 ****** byfastandsloppy© Roy couldn't think. His head had been flushed clear by the rush of orgasm and it remained clear in the slowly fading high he'd been maintaining all evening... 
+ 
+
+===
+
+Roy couldn't think. His head had been flushed clear by the rush of orgasm and it remained clear in the slowly fading high he'd been maintaining all evening... 
 
  "Hmmm, you know, Terri won't do oral. It's been a long time since I got my dick sucked. Why don't you take the Mister outside? I can't function when I'm watched." 
 
@@ -1300,7 +1334,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 04 ****** byfastandsloppy© Greetings beloved readers, this is the fourth of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
+ 
+
+===
+
+Greetings beloved readers, this is the fourth of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
 
  * 
 
@@ -1572,7 +1610,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 04 ****** byfastandsloppy© Roy felt a sudden surge of panic. What the hell was his wife doing? He leaned in and whispered in Tuli's ear, "She's only nineteen!" 
+ 
+
+===
+
+Roy felt a sudden surge of panic. What the hell was his wife doing? He leaned in and whispered in Tuli's ear, "She's only nineteen!" 
 
  "How do you know that?" asked Tuli sharply. 
 
@@ -1774,7 +1816,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 04 ****** byfastandsloppy© "And who would we try that kind of stuff on, Molly?" asked Tuli quietly. The crowd drew a half step closer. Molly blushed as she grinned devilishly. Tuli picked up a pair of fur-lined manacles and handed them to Molly. "Put these on behind your back, dear." 
+ 
+
+===
+
+"And who would we try that kind of stuff on, Molly?" asked Tuli quietly. The crowd drew a half step closer. Molly blushed as she grinned devilishly. Tuli picked up a pair of fur-lined manacles and handed them to Molly. "Put these on behind your back, dear." 
 
  Molly snapped one cuff onto her wrist and, with her arms behind her, the other clicked shut. Her breaths were quick and shallow as the room inspected her. They doubled in intensity when Tuli stepped behind her, tugged off her bikini top and tossed it into the crowd. 
 
@@ -1900,7 +1946,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 05 ****** byfastandsloppy© Greetings beloved readers, this is the last of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
+ 
+
+===
+
+Greetings beloved readers, this is the last of a five part series. I will post each chapter about a week apart. Many thanks to fellow authors and occasional collaborators Friskee_cpl who gave me notes on the story and whose stories served as a vital inspiration for this tale. 
 
  All characters are at least 18 years old 
 
@@ -2174,7 +2224,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 05 ****** byfastandsloppy© "Oh come on Mike, you're studying to be a doctor!" laughed Tuli. "Surely you don't believe in..." 
+ 
+
+===
+
+"Oh come on Mike, you're studying to be a doctor!" laughed Tuli. "Surely you don't believe in..." 
 
  "It is part of my culture. Witches are much feared. Please understand," he said with increasing panic. His voice cracked as he pleaded, "Please make her stop!" 
 
@@ -2412,7 +2466,11 @@
 
  
 
- ****** No Such Thing as an Ex-Slut Ch. 05 ****** byfastandsloppy© Roy pushed her forward onto her hands and knees. He pushed her down so her chin met the floor. He spread her ass and probed lightly at her pucker. She groaned. He saw a bottle of oil across the room, but he had a worse idea. Puckering his lips, he spat on her sphincter. He looked up and Mike was looking at him in perverse fascination. 
+ 
+
+===
+
+Roy pushed her forward onto her hands and knees. He pushed her down so her chin met the floor. He spread her ass and probed lightly at her pucker. She groaned. He saw a bottle of oil across the room, but he had a worse idea. Puckering his lips, he spat on her sphincter. He looked up and Mike was looking at him in perverse fascination. 
 
  "Help me with this. I'm a little dry." Obediently Mike stepped up and spat on Tuli's asshole. Roy did again too. He pushed a finger into her and she groaned more loudly. "Still need some more," he said. They all joined in raining spit on Tuli's ass. She writhed beneath the horrible rain as Roy pushed two, then three, fingers in her. Molly hovered close, recording it all. 
 

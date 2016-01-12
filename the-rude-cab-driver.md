@@ -1,8 +1,14 @@
+The Rude Cab Driver
+===================
 #1 
 
  
 
- ****** The Rude Cab Driver ****** byJust_Plain_Bob© I had always heard that New York cab drivers were the rudest people in the world. A recent trip to New York proved, at least to me, that some of them were. 
+ 
+
+===
+
+I had always heard that New York cab drivers were the rudest people in the world. A recent trip to New York proved, at least to me, that some of them were. 
 
  My company sent me to New York on a business trip. The trip was going to keep me there over the weekend and so I asked my wife if she would like to go with me and since she never had been to New York she said yes. She made arrangements to take a few days off from her job and on Wednesday we caught a flight to Newark. Bobbie was the original rubbernecked tourist on the ride into Manhattan and she kept going on and on about what she wanted to see while we were there. I laughed at her and reminded her that we were only going to be there four days, not four months. We checked into our motel, unpacked and then went down to the hotel dining room for dinner, after which we went out and walked around looking at the sights. 
 

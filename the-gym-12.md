@@ -1,8 +1,14 @@
+The Gym
+=======
 #1 
 
  
 
- ****** The Gym ****** byJust_Plain_Bob© I was on the leg press when I saw her come in. Tall woman, I would guess 5'8'' or 5'9" and maybe 125 pounds. Blond hair put up in a pony-tail and from the looks of her I figured that she was there more to stay in shape than to get into shape. She was the kind of woman I liked to see in the circuit machine area -- someone easy on the eyes, someone you could watch and appreciate while you worked out. 
+ 
+
+===
+
+I was on the leg press when I saw her come in. Tall woman, I would guess 5'8'' or 5'9" and maybe 125 pounds. Blond hair put up in a pony-tail and from the looks of her I figured that she was there more to stay in shape than to get into shape. She was the kind of woman I liked to see in the circuit machine area -- someone easy on the eyes, someone you could watch and appreciate while you worked out. 
 
  I finished my three sets on the leg press and was moving to the chest press to work on the anterior deltoids, and triceps when I noticed that she looked a little confused as she stood there looking at the leg extension machine. I walked over to her. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** The Gym ****** byJust_Plain_Bob© Brad was already gone when I got home so on the off chance that I would be having dinner with Rob I selected a bra and panty set that I had purchased at Victoria's Secret to tantalize Brad but which he would now never see and then I pulled on a dress that showed my legs to their best advantage. I put my sexiest heels in a tote bag. I'd put them on after work if I was going to meet Rob. For work I chose a pair of flats. 
+ 
+
+===
+
+Brad was already gone when I got home so on the off chance that I would be having dinner with Rob I selected a bra and panty set that I had purchased at Victoria's Secret to tantalize Brad but which he would now never see and then I pulled on a dress that showed my legs to their best advantage. I put my sexiest heels in a tote bag. I'd put them on after work if I was going to meet Rob. For work I chose a pair of flats. 
 
  Ten minutes after getting to work I was on the phone to Brad. "I don't remember honey. Did you say you were going to be working late tonight?" 
 

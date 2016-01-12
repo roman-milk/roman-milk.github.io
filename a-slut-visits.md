@@ -1,8 +1,14 @@
+A Slut Visits
+=============
 #1 
 
  
 
- ****** A Slut Visits ****** bydirty_geezer© 'Only a few minutes' I think to myself, busily tidying up the last few bits and pieces. Not that it's messy, but the nerves are making me use up some of my pent up energy. Better not waste that I smile to myself, not if this weekend goes to plan. 
+ 
+
+===
+
+'Only a few minutes' I think to myself, busily tidying up the last few bits and pieces. Not that it's messy, but the nerves are making me use up some of my pent up energy. Better not waste that I smile to myself, not if this weekend goes to plan. 
 
  Yes, this weekend should be lots of fun - for both of us. You, my hot dirty slut, and me, your dirty minded 'master'. Not that I use that name from any 'official' BDSM scene kinda thing. No, it's just how you know I like to be addressed while we play our dirty sex games. 
 
@@ -92,7 +98,11 @@
 
  
 
- ****** A Slut Visits ****** bydirty_geezer© "Oh god yes" you scream, feeling my whole fist slide inside you, the burning heat is too much, the pain.. exquisite pain so good.. the waves of pleasure exploding around my hand.. your cunt tightening, contracting across my fingers, squeezing them.. the fingers in your arse being crushed with the force of it. It last for seconds.. but for you time is stretching out, trying to hold onto that feeling, burning through your body. 
+ 
+
+===
+
+"Oh god yes" you scream, feeling my whole fist slide inside you, the burning heat is too much, the pain.. exquisite pain so good.. the waves of pleasure exploding around my hand.. your cunt tightening, contracting across my fingers, squeezing them.. the fingers in your arse being crushed with the force of it. It last for seconds.. but for you time is stretching out, trying to hold onto that feeling, burning through your body. 
 
  "Mmmmm yes..." you murmur, collapsing down onto the floor, totally exhausted, feeling a sudden loss as I slide my fingers from you. Putting my hand to your face, you smell your cunt, and know what your master expects. Your tongue snakes out, tasting yourself on me, licking every finger, showing me how you will do anything for me. I want to test you to your limits, so present you with the fingers that have just been stuffed deep in your bowels, and you don't even hesitate, licking the musky taste from them. 
 
@@ -160,7 +170,11 @@
 
  
 
- ****** A Slut Visits ****** bydirty_geezer© "Maybe we'll come again tomorrow" I smile, bringing my cock to your lips you eagerly lick me, even after swallowing so much cum tonight. Even after cumming several times, I still have enough left to shower your face, almost sticking your eyelids together with it, ropes of cum sticking in your hair. You shudder with one last orgasm, your finger a blur on your clit, body heaving. 
+ 
+
+===
+
+"Maybe we'll come again tomorrow" I smile, bringing my cock to your lips you eagerly lick me, even after swallowing so much cum tonight. Even after cumming several times, I still have enough left to shower your face, almost sticking your eyelids together with it, ropes of cum sticking in your hair. You shudder with one last orgasm, your finger a blur on your clit, body heaving. 
 
  "Get those wet clothes on slut.... We are walking home" 
 
@@ -298,7 +312,11 @@
 
  
 
- ****** A Slut Visits ****** bydirty_geezer© I knew I needed to get my slut ready, so forced her up onto her feet, dragging her by her hair into the bedroom. I stopped only once, to rip her skirt from her, before pinning her down on the bed, using all my weight to hold her still, my crotch pushing against her face, my own mouth close to her ripe pussy. 
+ 
+
+===
+
+I knew I needed to get my slut ready, so forced her up onto her feet, dragging her by her hair into the bedroom. I stopped only once, to rip her skirt from her, before pinning her down on the bed, using all my weight to hold her still, my crotch pushing against her face, my own mouth close to her ripe pussy. 
 
  Being pinned helpless drove my slut wild, and she tried to grind her thighs together to stimulate her clit, and I allowed her to try and lick my growing bulge, the slut trying to get to my cock and balls through my clothes. "Just wait one second my slut, then you can have what you want. Now don't you dare move" I warned her, getting up off her to pull some key items I had placed in a bedside drawer. 
 
@@ -402,7 +420,11 @@
 
  
 
- ****** A Slut Visits ****** bydirty_geezer© "yess.. yes, yes" she murmured, in time with my tongue invading her arse, and fingers sliding, rubbing, screwing in her velvet folds. Finally her mind could no longer keep up the pretence, she was mine and she knew it. I was using four fingers, squeezing and stretching their way inside her, the fine pink skin of her pussy stretching around my knuckles, her breath gasping at the ferocity of my finger fucking. I pulled her arse open with my other hand, letting me spit more saliva into her relaxing arse, preparing it for a hard fuck. 
+ 
+
+===
+
+"yess.. yes, yes" she murmured, in time with my tongue invading her arse, and fingers sliding, rubbing, screwing in her velvet folds. Finally her mind could no longer keep up the pretence, she was mine and she knew it. I was using four fingers, squeezing and stretching their way inside her, the fine pink skin of her pussy stretching around my knuckles, her breath gasping at the ferocity of my finger fucking. I pulled her arse open with my other hand, letting me spit more saliva into her relaxing arse, preparing it for a hard fuck. 
 
  I was ready, and I pulled my fingers from her hungry cunt, to hear her moan in disappointment, the fire in her pussy needing more. Reaching around I pushed my slippery sex smelling fingers to her face, rubbing the juices over her lips, forcing fingers into her mouth, where she sucked greedily. "Taste yourself cunt, suck off all your juices" I urged, my body now pushing down on her, my cock now nestled in between her splayed arse. She was so nasty, sucking and licking, enjoying the tastes and smell of sex. 
 
@@ -424,7 +446,11 @@
 
  
 
- ****** A Slut Visits Ch. 02 ****** bydirty_geezer© I was so exciting, after what seemed like far too long, I was again going to meet, and use, my more than willing slut. To my good fortune, a training course had been booked, which required a four night stay in a hotel, to which I indented to make very good use. I can remember the excitement shared with my slut when I told her over our internet chat that we would be able to cum together again, for nights of filthy pleasure. 
+ 
+
+===
+
+I was so exciting, after what seemed like far too long, I was again going to meet, and use, my more than willing slut. To my good fortune, a training course had been booked, which required a four night stay in a hotel, to which I indented to make very good use. I can remember the excitement shared with my slut when I told her over our internet chat that we would be able to cum together again, for nights of filthy pleasure. 
 
  We again had worked ourselves into a highly aroused state, by chatting online, sharing more fantasies, telling each other of our need to act out our deepest and darkest sexual urges. More than once I had stroked myself to orgasm, as my slut described how she wanted me to use her beyond any limits, and give herself completely, and to debase herself before me, her master. All this had to be done in secret, as I am married to a loving yet sexually 'vanilla' wife, and she would be shocked to the core if I tried to bring her into the world of hot and hardcore sex I enjoyed online, and in person with a very select few. 
 
@@ -490,7 +516,11 @@
 
  
 
- ****** A Slut Visits Ch. 03 ****** bydirty_geezer© After initial fun with my slut, I found myself resting on the bed in our shared hotel room, wondering what else we could get up to while I was visiting London. 
+ 
+
+===
+
+After initial fun with my slut, I found myself resting on the bed in our shared hotel room, wondering what else we could get up to while I was visiting London. 
 
  
 
@@ -588,13 +618,21 @@
 
  
 
- ****** A Slut Visits Ch. 03 ****** bydirty_geezer© Stepping away, the unknown arse fucker grinned and tucked his cock away, nodding to me as he left us. It was the cue for everyone else to melt away back into the darkness, their cocks drained of their lust. I was left with my slut, a nasty fucking mess before me, still writing on her seat, pussy dripping with cum, her face a nasty mask of cum. 
+ 
+
+===
+
+Stepping away, the unknown arse fucker grinned and tucked his cock away, nodding to me as he left us. It was the cue for everyone else to melt away back into the darkness, their cocks drained of their lust. I was left with my slut, a nasty fucking mess before me, still writing on her seat, pussy dripping with cum, her face a nasty mask of cum. 
 
  I gently un-cuffed her, massaging her legs to let the blood get flowing again. "Well done my good slut," I rewarded her, gently stroking her cum stained hair. "You have done very well."  
 
  
 
- ****** A Slut Visits Ch. 04 ****** bydirty_geezer© I spent the following day in an air conditioned room listening to someone in a suit go and on about their products, while all the time my mind wondered back to my hotel room, imagining the dirty delights that awaited me there. I so enjoyed my stolen time with my slut, pushing both our boundaries, boundaries that would shock and disgust so called 'normal' people. Is anyone really normal? Or do we all have dirty little secrets? Maybe only some of us dare unlock the Pandora's box of our deepest desires, allowing them to break through when we find someone with the key to help us? 
+ 
+
+===
+
+I spent the following day in an air conditioned room listening to someone in a suit go and on about their products, while all the time my mind wondered back to my hotel room, imagining the dirty delights that awaited me there. I so enjoyed my stolen time with my slut, pushing both our boundaries, boundaries that would shock and disgust so called 'normal' people. Is anyone really normal? Or do we all have dirty little secrets? Maybe only some of us dare unlock the Pandora's box of our deepest desires, allowing them to break through when we find someone with the key to help us? 
 
  All I know is that my slut had revealed a dark and nasty sexual power within me, which is exactly the master she herself craved – someone willing to use her totally, control, degrade, humiliate, and excite. Giving me pleasure was her life in our sessions together – and giving her pleasure was my reward to her being such a good slut. 
 

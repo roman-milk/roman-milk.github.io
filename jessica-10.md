@@ -1,8 +1,14 @@
+Jessica
+=======
 #1 
 
  
 
- ****** Jessica ****** byJust_Plain_Bob© I never expected my life to turn out like it has. How could I? When I was growing up sex was everywhere. Ads on TV, ads in the newspapers and magazines, on billboards and on the sides of buses. Scantily clad ladies and buff guys all over the place. Raunchy television shows and movies, magazines dedicated to the beautiful, sexy and famous people. Sex education in the classrooms and guys trying to get in your pants as soon as puberty hit. In my case it was even worse - my parents were swingers and even though they tried to hide it from me they were wasting their time. You can't hide anything from an inquisitive teenager. 
+ 
+
+===
+
+I never expected my life to turn out like it has. How could I? When I was growing up sex was everywhere. Ads on TV, ads in the newspapers and magazines, on billboards and on the sides of buses. Scantily clad ladies and buff guys all over the place. Raunchy television shows and movies, magazines dedicated to the beautiful, sexy and famous people. Sex education in the classrooms and guys trying to get in your pants as soon as puberty hit. In my case it was even worse - my parents were swingers and even though they tried to hide it from me they were wasting their time. You can't hide anything from an inquisitive teenager. 
 
  +++++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Jessica ****** byJust_Plain_Bob© I never did find out who it was that banged my box that night. 
+ 
+
+===
+
+I never did find out who it was that banged my box that night. 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

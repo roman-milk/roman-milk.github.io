@@ -1,8 +1,14 @@
+Randy's Revenge
+===============
 #1 
 
  
 
- ****** Randy's Revenge ****** byJust_Plain_Bob© The odds were ten thousand to one against it happening, but I got caught with another woman. Not caught in the act, but close enough and the sad fact was that it was not my doing or my fault. Well, that isn't exactly true, there was a small window of time when I could have stopped things but I didn't. 
+ 
+
+===
+
+The odds were ten thousand to one against it happening, but I got caught with another woman. Not caught in the act, but close enough and the sad fact was that it was not my doing or my fault. Well, that isn't exactly true, there was a small window of time when I could have stopped things but I didn't. 
 
  What happened was that I had flown to New York for a business meeting. There was a company that was trying to get my company's business and while I was there they put on a full court press. I was wined and dined, saw presentations and was pumped full of bullshit about their product lines. On my second night there they took me out drinking and I guess I did more than my fair share because I woke up in my hotel room the next morning with an aching head and a bedmate. I didn't remember her from the night before, but when I woke up she was sucking my cock. It naturally responded to the attention it was getting and when it was hard enough to suit her the redhead climbed aboard and used me to get herself off. And I do mean "used me". 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Randy's Revenge ****** byJust_Plain_Bob© She paled a little at that, but she got up and left the room. 
+ 
+
+===
+
+She paled a little at that, but she got up and left the room. 
 
  I slept on the couch again that night and left for work before Randi got up. I guess what I'd said to her didn't really register because I got a phone call from her that afternoon. 
 

@@ -1,8 +1,14 @@
+Spice of Transgression
+======================
 #1 
 
  
 
- ****** Spice of Transgression ****** byfastandsloppy© She decided she would call herself "Rose". Not that anyone would care; not with the dress she was wearing. She could be Eunice or Bertha or Griselda or Enid, but with her tits just about hanging out and her back exposed nearly down to her ass any man would nod and tell her it was a beautiful name. But in keeping with her dress, which was a deep crimson red, Rose it would be. 
+ 
+
+===
+
+She decided she would call herself "Rose". Not that anyone would care; not with the dress she was wearing. She could be Eunice or Bertha or Griselda or Enid, but with her tits just about hanging out and her back exposed nearly down to her ass any man would nod and tell her it was a beautiful name. But in keeping with her dress, which was a deep crimson red, Rose it would be. 
 
  With that settled, she peered into the dimly lit hotel bar and scanned the scattered crowd. She saw what she expected to see; tired, lonely looking businessmen swilling down a few drinks before heading back to their empty rooms for a quick toss and a restless sleep. It was good hunting grounds for a woman eager for some easy, rootless company. It was a good place for a neglected wife and mother to find a chance to feel like a woman again. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Spice of Transgression ****** byfastandsloppy© "You don't have to be gentle with me John," she said to him, looking up at him through her disheveled mass of hair that had tumbled across her face. 
+ 
+
+===
+
+"You don't have to be gentle with me John," she said to him, looking up at him through her disheveled mass of hair that had tumbled across her face. 
 
  "Oh?" he said, freezing in his hurried undressing to arch an eyebrow at her. "You like it rough?" 
 

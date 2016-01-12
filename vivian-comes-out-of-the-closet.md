@@ -1,8 +1,14 @@
+Vivian Comes Out of the Closet
+==============================
 #1 
 
  
 
- ****** Vivian Comes Out of the Closet ****** byJust_Plain_Bob© There is absolutely nothing in the world that can compare to the feeling you get when you start out your day by finding out that your wife is a party whore. 
+ 
+
+===
+
+There is absolutely nothing in the world that can compare to the feeling you get when you start out your day by finding out that your wife is a party whore. 
 
  Like most men I found out strictly by accident. There is a restaurant right across the street from my office and it has been my habit to stop there every morning on my way to work and have coffee and toast while I read the morning paper. The restaurant was laid out with high-backed booths along the wall just inside the door and along the back wall and then tables and chairs filling the area off the ell. I came in the front door and grabbed the first open booth along the wall. Stella brought me coffee and said, "The usual?" I nodded my head and opened the paper to the business section. I could hear the people in the next booth talking and I recognized the voices of Stan and Mike, two guys I work with. I debated joining them and then decided not to. I didn't know how long they had been there and they might have just been getting to leave. 
 

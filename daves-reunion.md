@@ -1,8 +1,14 @@
+Dave's Reunion
+==============
 #1 
 
  
 
- ****** Dave's Reunion ****** byJust_Plain_Bob© I was sitting in Bennigan's with my wife and my best friend Ben. Ben and I had been friends forever it seemed, at least from the sixth grade on. After we finished eating we sat there making small talk and Ben asked me if I was going to our classes twentieth reunion and I told him that I wasn't. 
+ 
+
+===
+
+I was sitting in Bennigan's with my wife and my best friend Ben. Ben and I had been friends forever it seemed, at least from the sixth grade on. After we finished eating we sat there making small talk and Ben asked me if I was going to our classes twentieth reunion and I told him that I wasn't. 
 
  "Hey bud, you really need to go, the things are a blast." 
 
@@ -138,7 +144,11 @@
 
  
 
- ****** Dave's Reunion ****** byJust_Plain_Bob© "I have to live with the same memories." 
+ 
+
+===
+
+"I have to live with the same memories." 
 
  "Yeah, you lived it, but you loved it. You might not have wanted to do it, but you did, and your memories are going to be good ones. You will think back and remember that you had never been so thoroughly satisfied. Every time you see a black man it will trigger the memory and you will get a warm fuzzy feeling. You can say bullshit, but you just got through reminding me how sexual you are. Every time I see a black man my memories are going to be of being tied to a chair and forced to watch you be a black cock-loving slut. I will always see you begging for it and I don't know that I can live with that." 
 

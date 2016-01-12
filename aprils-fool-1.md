@@ -1,8 +1,14 @@
+April's Fool
+============
 #1 
 
  
 
- ****** April's Fool ****** bygeronimo_appleby© Foreword 
+ 
+
+===
+
+Foreword 
 
  Well, these April Fool themes are a little difficult to find. Coming up with ideas for something different [I hope] takes some doing. 
 
@@ -296,7 +302,11 @@
 
  
 
- ****** April's Fool ****** bygeronimo_appleby© "Now," he continues, leaning forward, elbows on his knees. "Tell me ... are the two of youz..." he points the knife at each in turn. "Are the two of youz doin' the dirty? Did I hear it right? Did you ask if I wuz her old man?" 
+ 
+
+===
+
+"Now," he continues, leaning forward, elbows on his knees. "Tell me ... are the two of youz..." he points the knife at each in turn. "Are the two of youz doin' the dirty? Did I hear it right? Did you ask if I wuz her old man?" 
 
  "I ... We ... Uh..." Adam babbles. 
 

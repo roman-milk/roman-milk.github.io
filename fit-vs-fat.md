@@ -1,8 +1,14 @@
+Fit vs. Fat
+===========
 #1 
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. One last warning, this story is a long one. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. One last warning, this story is a long one. Enjoy.) 
 
  (Shannon) 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© "Nothing!" I giggled as his lips brushed against my sensitive neck. Ben knew just where to kiss, applying gentle pressure to the ticklish little spot at the nap of my neck; a spot only he knew about, having discovered it after hours of necking in our youth. He knew just how to get me going; all the right places to kiss, the right parts to caress. I could feel that familiar slow heat begin to radiate through my flushed body as he pressed himself firmly against me. I could feel his hard dick rubbing insistently against the generous curve of my ass. One good thing about him was that it wasn't just his muscles that were big. I thoroughly enjoyed sex with Ben, and it would be hard not to, with that 10-inch dick he had that was now throbbing hot and hard against me. 
+ 
+
+===
+
+"Nothing!" I giggled as his lips brushed against my sensitive neck. Ben knew just where to kiss, applying gentle pressure to the ticklish little spot at the nap of my neck; a spot only he knew about, having discovered it after hours of necking in our youth. He knew just how to get me going; all the right places to kiss, the right parts to caress. I could feel that familiar slow heat begin to radiate through my flushed body as he pressed himself firmly against me. I could feel his hard dick rubbing insistently against the generous curve of my ass. One good thing about him was that it wasn't just his muscles that were big. I thoroughly enjoyed sex with Ben, and it would be hard not to, with that 10-inch dick he had that was now throbbing hot and hard against me. 
 
  "I've been thinking about you all day," he whispered, nipping playfully at my ear. 
 
@@ -320,7 +330,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© I realized something was off about me after my first few years of school. I felt no connection or common bond with anyone. I did not understand how these other children functioned. How they interacted with one another; so I learned how to behave through imitation of others. 
+ 
+
+===
+
+I realized something was off about me after my first few years of school. I felt no connection or common bond with anyone. I did not understand how these other children functioned. How they interacted with one another; so I learned how to behave through imitation of others. 
 
  It was not until middle school that I finally learned the truth about myself. I was looking through a psychology book when I came across the term 'sociopath.' As I read through the symptoms, I realized it read as a description of myself. Aggressiveness. Lack of empathy or attachment to others. Shallow emotions. Lack of guilt. Superficial charm. A need for stimulation. Manipulative. An incapacity for love. It all fit. Reading this was the first time I felt what may be categorized as 'relief.' I knew what I was now. I knew what secret my parents and my therapist had been hiding from me. I was a sociopath. And nothing could have me...happier, if you want it in terms you can easily relate too. 
 
@@ -436,7 +450,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© "Oh-uh...sorry. That's great," I blinked, slightly embarrassed; had Shannon gotten it mixed up? I felt like an ass. 
+ 
+
+===
+
+"Oh-uh...sorry. That's great," I blinked, slightly embarrassed; had Shannon gotten it mixed up? I felt like an ass. 
 
  "Now, I can't help but notice that you seem pretty good shape already," she complimented me, her soft hand lingering on my arm, tracing down my bicep and giving it a firm squeeze, testing it's hardness. I was starting to feel a little uncomfortable; the impression Shannon had given me was that she was a cold fish, but she seemed more like a playful puppy dog. I had come in ready to raise heck, but her casual flirtiness was throwing me off my game. 
 
@@ -600,7 +618,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© "I took one bite then stopped. It was the first time I ever cheated on the diet, but you probably won't believe me anyway," I said. 
+ 
+
+===
+
+"I took one bite then stopped. It was the first time I ever cheated on the diet, but you probably won't believe me anyway," I said. 
 
  "You are damn right I do not believe you! It is no wonder you are packing on the pounds after all of this. I don't know why I'm bothering. You are lucky I am a nice and forgiving person," Alexis said. I had to stop myself from laughing at that. 
 
@@ -776,7 +798,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© ********* 
+ 
+
+===
+
+********* 
 
  (Shannon) 
 
@@ -910,7 +936,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© That was why I snuck out after I got home, went out and pigged out on a nice, juicy burger. I'm sorry, but I needed to cheat on this diet. I needed real food. I don't know if it was comfort food, or stress eating, or whatever, but I felt so much better after eating it. 
+ 
+
+===
+
+That was why I snuck out after I got home, went out and pigged out on a nice, juicy burger. I'm sorry, but I needed to cheat on this diet. I needed real food. I don't know if it was comfort food, or stress eating, or whatever, but I felt so much better after eating it. 
 
  I couldn't get over the fact that Ben had checked out Alexis. Was he attracted to her? Part of me realized that if the three of us were in a room, they would be the two viewed as a couple. They were, in many ways, a perfect couple. They were both fitness freaks. They were both beautiful. It was infuriating. I obviously couldn't just confront him about it. But, I could remove the temptation. I knew he would never cheat or anything like that, but I knew it was a good idea to just remove the temptation of Alexis from our lives and be done with her for good. 
 
@@ -1070,7 +1100,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© "What are you doing here?" I asked, confused and a little flabbergasted; I had specifically made sure he wouldn't be here today to witness my humiliation. It was going to be bad enough with Alexis' cruel judgmentality, much less watching Ben's disappointment...why was he here? 
+ 
+
+===
+
+"What are you doing here?" I asked, confused and a little flabbergasted; I had specifically made sure he wouldn't be here today to witness my humiliation. It was going to be bad enough with Alexis' cruel judgmentality, much less watching Ben's disappointment...why was he here? 
 
  "Um, Alexis asked me to be here," Ben replied. 
 
@@ -1274,7 +1308,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© "Do you look at other women? Aside from Alexis?" she continued her inquisition. 
+ 
+
+===
+
+"Do you look at other women? Aside from Alexis?" she continued her inquisition. 
 
  "No, of course not. I love you. Only you," I pleaded, taking a step towards her, only to see her recoil. 
 
@@ -1416,7 +1454,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© Shannon was blonde, short, pretty, nice but overweight. Alexis was a brunette, tall, gorgeous, evil, but in incredible shape. Shannon had a beautiful soul, while Alexis hid her corrupt core with superficial beauty. 
+ 
+
+===
+
+Shannon was blonde, short, pretty, nice but overweight. Alexis was a brunette, tall, gorgeous, evil, but in incredible shape. Shannon had a beautiful soul, while Alexis hid her corrupt core with superficial beauty. 
 
  Despite her obvious maliciousness, there were some things I did begrudgingly admire about her. She was dedicated to physical fitness and personal health. She was undeniably beautiful. But she was nasty. She had said horrible, hateful, things. She was awful to Shannon, and she had shown herself to be capable of deception by how seemingly friendly she was to me. It was incredible how well she hid the true her. But most worrying was the fact that she had made advances towards me and had done so brazenly. 
 
@@ -1574,7 +1616,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© I thought it over for a bit. It was a tempting offer. I wanted this woman out of my life, and she was giving me a way to do that. I just had to grit my teeth and hear her out. What was the worst that could happen? They were just words. She couldn't make me do anything I didn't want to. 
+ 
+
+===
+
+I thought it over for a bit. It was a tempting offer. I wanted this woman out of my life, and she was giving me a way to do that. I just had to grit my teeth and hear her out. What was the worst that could happen? They were just words. She couldn't make me do anything I didn't want to. 
 
  Finally, I held my arm out and she slid under it, bracing me. We resumed walking. 
 
@@ -1710,7 +1756,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© But I had no intention of testing that theory. I needed to get away from her as soon as possible, for the sake of my marriage. I had shown myself to be incapable of fighting her off when she offered even the slightest temptation. Public exposure was no deterrent; I didn't care. I just lost myself in her, powerless. 
+ 
+
+===
+
+But I had no intention of testing that theory. I needed to get away from her as soon as possible, for the sake of my marriage. I had shown myself to be incapable of fighting her off when she offered even the slightest temptation. Public exposure was no deterrent; I didn't care. I just lost myself in her, powerless. 
 
  I just needed to turn her away as soon as we got to my house. I could not let her in my house. That would spell doom for my marriage. 
 
@@ -1890,7 +1940,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© "Hurry the fuck up! Don't make me sit on your fucking face!" Alexis hissed threateningly. I rolled and moved to within inches of her ass. 
+ 
+
+===
+
+"Hurry the fuck up! Don't make me sit on your fucking face!" Alexis hissed threateningly. I rolled and moved to within inches of her ass. 
 
  'At least it looked clean,' I thought to myself. 
 
@@ -2050,7 +2104,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© Ben looked up, and he slowed down when he saw me, but he didn't stop. Alexis addressed me. 
+ 
+
+===
+
+Ben looked up, and he slowed down when he saw me, but he didn't stop. Alexis addressed me. 
 
  "I told you this would happen, Shannon. I told you that if you didn't lose weight, your husband would get some better pussy elsewhere. And lucky for him and me, he chose mine," Alexis cackled maliciously. 
 
@@ -2220,7 +2278,11 @@
 
  
 
- ****** Fit vs. Fat ****** byTheTalkMan© But who could blame them? There had always been an undercurrent of...tolerance within their little clique; like I didn't belong. They were all so attractive, beautiful, popular, and successful...but what was I without Ben? A fat, depressing, wreck. Alexis, meanwhile, belonged. She was a perfect fit; hell she probably took over. That was just how things worked; the most attractive woman with the biggest tits was the head of the pack; the Alpha female...and despite my self-denials, I knew that I had always been the Omega...the runt. The Freak. And they were glad to be rid of me. 
+ 
+
+===
+
+But who could blame them? There had always been an undercurrent of...tolerance within their little clique; like I didn't belong. They were all so attractive, beautiful, popular, and successful...but what was I without Ben? A fat, depressing, wreck. Alexis, meanwhile, belonged. She was a perfect fit; hell she probably took over. That was just how things worked; the most attractive woman with the biggest tits was the head of the pack; the Alpha female...and despite my self-denials, I knew that I had always been the Omega...the runt. The Freak. And they were glad to be rid of me. 
 
  Week after week, these discs arrived. I don't know why I tortured myself by watching these, but I did. I watched every single one. These workout videos/sex tapes kept coming, and I kept watching. I eventually had a shelf full of them. DVD's full of the man I love fucking another woman. I must be a masochist to hold onto them, but I couldn't help myself. 
 

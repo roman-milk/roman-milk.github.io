@@ -1,8 +1,14 @@
+Witness to My Daughter's Debasement
+===================================
 #1 
 
  
 
- ****** Witness to My Daughter's Debasement ****** byfastandsloppy© I had decided to play hooky from work. By God, I told myself. I deserve a day off. My back-log of projects at work was in control, the boss was out of town and I had needed to get the brakes fixed on my car for a couple of months anyway. So that morning, after sending an email explaining I wouldn't be in, I took the car to the mechanic and had them drop me off back home while they worked on it. Ann, my wife, was at work. Lisa, my daughter, was at school. I had the house all to myself. For a husband and father a little time alone is like gold. 
+ 
+
+===
+
+I had decided to play hooky from work. By God, I told myself. I deserve a day off. My back-log of projects at work was in control, the boss was out of town and I had needed to get the brakes fixed on my car for a couple of months anyway. So that morning, after sending an email explaining I wouldn't be in, I took the car to the mechanic and had them drop me off back home while they worked on it. Ann, my wife, was at work. Lisa, my daughter, was at school. I had the house all to myself. For a husband and father a little time alone is like gold. 
 
  After a quick sweep of the house to verify that I was home alone, I made a bee- line to my daughter's room. Ann had told me that last weekend she had happened across a portfolio on Lisa's desk. It contained a several 8 x 10 pictures of Lisa's friend Tish in skimpy lingerie and tight swimwear. Lisa told her that Tish was trying to break into modeling and had lent Lisa her portfolio to hold onto so her parents didn't find out. Ann promised to keep it a secret but told Lisa to keep it put away. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Witness to My Daughter's Debasement ****** byfastandsloppy© Bare cocks plunged into her mouth, pussy and ass and came back filthy, trailing strands of spent cum. I moved closer and closer reluctantly, but unable to resist. Then the guy vigorously nailing her pussy shook off the last of his orgasm and stepped away. I felt hands pushing me forward, someone saying in my ear "Your turn man". 
+ 
+
+===
+
+Bare cocks plunged into her mouth, pussy and ass and came back filthy, trailing strands of spent cum. I moved closer and closer reluctantly, but unable to resist. Then the guy vigorously nailing her pussy shook off the last of his orgasm and stepped away. I felt hands pushing me forward, someone saying in my ear "Your turn man". 
 
  I looked down at her. Her face was dripping strands of cum as an old Hispanic man violently slammed his meat into her mouth over and over again. Her body shook with the rhythm of the face fuck. They had her tied so her ass was elevated and thighs spread. Her vagina and anus were agape, a thick stream of jism flowing out to ooze down her legs or drip from her pink and swollen lips and clit. 
 

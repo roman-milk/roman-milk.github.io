@@ -1,8 +1,14 @@
+The Promise
+===========
 #1 
 
  
 
- ****** The Promise ****** byJust_Plain_Bob© I looked around the room taking in the chair sitting on the floor in the middle of the room and the eight smiling faces looking back at me. Promise or no promise I had absolutely no business being there. I was a married woman with three kids and not some young, hard-bodied stripper and when the call came I initially said no. And then Gary had pissed me off and I was in a spiteful mood and so there I was. 
+ 
+
+===
+
+I looked around the room taking in the chair sitting on the floor in the middle of the room and the eight smiling faces looking back at me. Promise or no promise I had absolutely no business being there. I was a married woman with three kids and not some young, hard-bodied stripper and when the call came I initially said no. And then Gary had pissed me off and I was in a spiteful mood and so there I was. 
 
  ++++++++++++++++++++ 
 

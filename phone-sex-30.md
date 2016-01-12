@@ -1,8 +1,14 @@
+Phone Sex
+=========
 #1 
 
  
 
- ****** Phone Sex ****** byJust_Plain_Bob© I wanted to scream at her. Actually, killing her would be too nice a way to end the torture. Day after day she continued to drive me nuts and there wasn't anything that I could do about it. I couldn't take the problem to management because all that would do is make me the laughing stock of the office. The problem? Working in a cubicle next to a woman who couldn't be made to understand that cubicles are not sound proof and that I could hear every word she said - every fucking word! Why was that so bad? Because she had phone sex with her husband two or three times a day. 
+ 
+
+===
+
+I wanted to scream at her. Actually, killing her would be too nice a way to end the torture. Day after day she continued to drive me nuts and there wasn't anything that I could do about it. I couldn't take the problem to management because all that would do is make me the laughing stock of the office. The problem? Working in a cubicle next to a woman who couldn't be made to understand that cubicles are not sound proof and that I could hear every word she said - every fucking word! Why was that so bad? Because she had phone sex with her husband two or three times a day. 
 
  It has been going on for almost a month. For three months the cubicle next to mine had been empty and then one day I saw Jerry, our maintenance man, moving a desk into it. I asked him what was up and he told me that the company had hired a new engineer, "And I hear that she is one hot mama." 
 

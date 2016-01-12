@@ -1,8 +1,14 @@
+Caught off Guard ... By the Guard
+=================================
 #1 
 
  
 
- ****** Caught off Guard ... By the Guard ****** bygeronimo_appleby© Susan considered the young man's proposal. She had no intention of accepting, but, her already purring libido snarled like a big cat. His offer had shocked her; his audacity had been breathtaking, especially considering his youth; Susan could feel the pulse of interest between her thighs. However adventurous she believed herself to be, her suburban chains held fast. 
+ 
+
+===
+
+Susan considered the young man's proposal. She had no intention of accepting, but, her already purring libido snarled like a big cat. His offer had shocked her; his audacity had been breathtaking, especially considering his youth; Susan could feel the pulse of interest between her thighs. However adventurous she believed herself to be, her suburban chains held fast. 
 
  Besides, she had other business. 
 

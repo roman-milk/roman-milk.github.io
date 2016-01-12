@@ -1,8 +1,14 @@
+The Barmaid
+===========
 #1 
 
  
 
- ****** The Barmaid ****** bygeronimo_appleby© In this one, which is set in Yorkshire, England in the summer of 1976, the pub barmaid begins a naughty little game. She likes to show off, and she likes to watch him play with his cock. The thing is she's also his father's girlfriend - but that doesn't stop her from enjoying her fun. 
+ 
+
+===
+
+In this one, which is set in Yorkshire, England in the summer of 1976, the pub barmaid begins a naughty little game. She likes to show off, and she likes to watch him play with his cock. The thing is she's also his father's girlfriend - but that doesn't stop her from enjoying her fun. 
 
  As usual I hope you enjoy this little piece. If you do, send feedback; if you don't like it, let me know why, but make it constructive criticism please. Feedback can be in public comments below; PM in Lit forums; or email. If you want a response back from me email is best. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** The Barmaid ****** bygeronimo_appleby© I feigned ignorance. 'Not since this afternoon,' I replied. Could he not hear the tremor in my voice? Did my face not scream my guilt? She's hiding behind the door ... naked! She poses nude for me every other Tuesday while I ogle her tits and bush and wank off ... 
+ 
+
+===
+
+I feigned ignorance. 'Not since this afternoon,' I replied. Could he not hear the tremor in my voice? Did my face not scream my guilt? She's hiding behind the door ... naked! She poses nude for me every other Tuesday while I ogle her tits and bush and wank off ... 
 
  'Fuckin' hell ...' Joy gasped, collapsing onto my bed next to me when the door slammed downstairs. She giggled. 'He almost caught us,' she muttered, shaking her head and turning huge eyes towards me. A light shone there, Joy looked like she actually enjoyed the close call. A laugh bubbled from her chest. 'You covered up so fuckin' quick,' she spluttered. 'Jumped like a scalded cat.' She rolled on the bed, laughter, uncontrolled now, coming in huge sobs. 'Your face ...' she managed before erupting again. 
 

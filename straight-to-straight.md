@@ -1,8 +1,14 @@
+Straight to...Straight?
+=======================
 #1 
 
  
 
- ****** Straight to...Straight? ****** byTx_Tall_Tales© ========================== 
+ 
+
+===
+
+========================== 
 
  The girls try to turn the gay guy straight. 
 
@@ -252,7 +258,11 @@
 
  
 
- ****** Straight to...Straight? ****** byTx_Tall_Tales© "Good. We can never have enough best friends, right?" 
+ 
+
+===
+
+"Good. We can never have enough best friends, right?" 
 
  Actually, I thought the definition of 'best' friend kind of limited the quantity, but I didn't say so. I put my arm around her and gave her a squeeze. "BFFs, honey. BFFs." 
 
@@ -498,7 +508,11 @@
 
  
 
- ****** Straight to...Straight? ****** byTx_Tall_Tales© "Yeah. I swear it wasn't like that. It was just a mistake, alright? I won't bother her again, except to apologize if I see her." 
+ 
+
+===
+
+"Yeah. I swear it wasn't like that. It was just a mistake, alright? I won't bother her again, except to apologize if I see her." 
 
  "Good. Have a nice day." 
 
@@ -866,7 +880,11 @@
 
  
 
- ****** Straight to...Straight? ****** byTx_Tall_Tales© I got up and escorted her to her seat, which had her card, rose, and ring box on her plate. "Happy Valentine's Day, Ash," I said, giving her a peck on the cheek. "Have you eaten?" 
+ 
+
+===
+
+I got up and escorted her to her seat, which had her card, rose, and ring box on her plate. "Happy Valentine's Day, Ash," I said, giving her a peck on the cheek. "Have you eaten?" 
 
  "No," she said softly, opening up the ring box. 
 

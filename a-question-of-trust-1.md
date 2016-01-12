@@ -1,8 +1,14 @@
+A Question of Trust
+===================
 #1 
 
  
 
- ****** A Question of Trust ****** byJust_Plain_Bob© I tapped him on the shoulder and when he turned I hit him with everything that I had. I brought the punch up from the boot tops with all two hundred and five pounds behind it. I felt his nose crunch and the blood flew and when his hands went up to his face I sunk my fist into his gut and got a loud "oof" out of him as he doubled up. One more smash to the side of his head and he went down to the ground. I debated kicking the asshole a half dozen times, but then thought: 
+ 
+
+===
+
+I tapped him on the shoulder and when he turned I hit him with everything that I had. I brought the punch up from the boot tops with all two hundred and five pounds behind it. I felt his nose crunch and the blood flew and when his hands went up to his face I sunk my fist into his gut and got a loud "oof" out of him as he doubled up. One more smash to the side of his head and he went down to the ground. I debated kicking the asshole a half dozen times, but then thought: 
 
  "What the hell, he got the message." 
 
@@ -252,7 +258,11 @@
 
  
 
- ****** A Question of Trust ****** byJust_Plain_Bob© x-x-x-x-x-x-x-x-x 
+ 
+
+===
+
+x-x-x-x-x-x-x-x-x 
 
  As I drove I wondered why I had begun thinking of Darcy while having sex with Juanita. I'd never done that before. There had been half dozen women whose bed I had shared since breaking up with Darcy and not once had thoughts of Darcy intruded. Then, since Darcy was back in my mind I started thinking about what Darcy had said earlier at Ernie's. Was it true? Could I believe her? In my anger that night did I read more into what I saw than was really there? If we got back together would I always wonder and as a result always be suspicious of her? 
 

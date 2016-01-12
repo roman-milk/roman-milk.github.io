@@ -1,8 +1,14 @@
+Bobbie and Bobby
+================
 #1 
 
  
 
- ****** Bobbie and Bobby ****** byJust_Plain_Bob© Bobbie and I had gotten tired of the constant fight of trying to keep a good- looking lawn in front of our house. Drought conditions and water restrictions had resulted in patches of dead grass all over the place. We decided to take the grass out and xeroscape the yard. The yard slopes down from the house to the street so the plan was to level the ground from the sidewalk to about fifteen feet from the house and then terrace the rest. 
+ 
+
+===
+
+Bobbie and I had gotten tired of the constant fight of trying to keep a good- looking lawn in front of our house. Drought conditions and water restrictions had resulted in patches of dead grass all over the place. We decided to take the grass out and xeroscape the yard. The yard slopes down from the house to the street so the plan was to level the ground from the sidewalk to about fifteen feet from the house and then terrace the rest. 
 
  I hired a couple of college kids to do the leveling and to haul away the dirt and then I had a load of landscaping blocks delivered to build the terrace walls. While I was laying the block Bobbie had our rotor tiller running and she was trying to loosen the soil where we were going to plant ferns. The machine was a little one and only a half horse and it just wasn't up to the task. It was too small and the ground was just too hard. I was enjoying the sight of Bobbie running the tiller. The blades were beating on the ground, but not breaking it up and the vibration of the machine was transmitted through the handle bars to Bobbie's arms and then to her upper torso. She wasn't wearing a bra and her 36 C's were bouncing all over the place. It turned out that I wasn't the only one watching and enjoying the show. 
 

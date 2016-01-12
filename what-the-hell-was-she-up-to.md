@@ -1,8 +1,14 @@
+What The Hell Was She Up To?
+============================
 #1 
 
  
 
- ****** What The Hell Was She Up To? ****** byJust_Plain_Bob© "Damn it Tim, you had better stop ignoring me on this. I'm getting damned sick and tired of putting up with it." 
+ 
+
+===
+
+"Damn it Tim, you had better stop ignoring me on this. I'm getting damned sick and tired of putting up with it." 
 
  The 'it' she was tired of putting up with was actually a 'them.' Hal and Charlie were my two best buds. We had come together in the third grade and had been pals ever since. We had drifted apart after high school. Hal joined the Air Force, Charlie had joined the Navy and I had joined the XYZ Corporation. My first choice had been the Marines, but I found out that they had no use for a guy who had blown out his right knee playing football. 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** What The Hell Was She Up To? ****** byJust_Plain_Bob© Tuesday at work Heidi's father came storming up to me all red in the face and began calling me all kinds of mother fuckers, cock suckers and assholes for tossing his daughter out on the street. 
+ 
+
+===
+
+Tuesday at work Heidi's father came storming up to me all red in the face and began calling me all kinds of mother fuckers, cock suckers and assholes for tossing his daughter out on the street. 
 
  "She tell you why?" 
 

@@ -1,8 +1,14 @@
+Becoming a Slut Couple (1) Martin
+=================================
 #1 
 
  
 
- ****** Becoming a Slut Couple (1) Martin ****** byJust_Plain_Bob© I sat on the edge of the bed and looked down at her napping and wondered about the way my life had changed. I got up and staggered into the bathroom and took a whiz surprised that she had left me enough strength to hold my dick and aim it. I washed my hands and as I dried them I looked in the mirror. What I saw was a decent looking - not great - but decent looking man of thirty-five in reasonably good shape. By no means movie star quality and yet in the past six months I'd had more pussy than I could handle. And I didn't understand it; not even a little bit. I remembered the day it all started. 
+ 
+
+===
+
+I sat on the edge of the bed and looked down at her napping and wondered about the way my life had changed. I got up and staggered into the bathroom and took a whiz surprised that she had left me enough strength to hold my dick and aim it. I washed my hands and as I dried them I looked in the mirror. What I saw was a decent looking - not great - but decent looking man of thirty-five in reasonably good shape. By no means movie star quality and yet in the past six months I'd had more pussy than I could handle. And I didn't understand it; not even a little bit. I remembered the day it all started. 
 
  +++++ 
 
@@ -260,7 +266,11 @@
 
  
 
- ****** Becoming a Slut Couple (1) Martin ****** byJust_Plain_Bob© "What about your husband?" 
+ 
+
+===
+
+"What about your husband?" 
 
  "What about him?" 
 
@@ -332,7 +342,11 @@
 
  
 
- ****** Becoming a Slut Couple (2) Jennie ****** byJust_Plain_Bob© She stood at the sink looking out the window as she did the breakfast dishes. The yard looked, for lack of a better word, unkempt. The flower beds were full of color and the grass was green, but something was a little off. A little like a man dressed up in a suit and tie and with polished shoes that gleamed, but needing a haircut. Unkempt, needing a trim. Taking care of the yard had always been Martin's job, but he had been putting in so much time at work lately that he hadn't been able to keep up around the house. 
+ 
+
+===
+
+She stood at the sink looking out the window as she did the breakfast dishes. The yard looked, for lack of a better word, unkempt. The flower beds were full of color and the grass was green, but something was a little off. A little like a man dressed up in a suit and tie and with polished shoes that gleamed, but needing a haircut. Unkempt, needing a trim. Taking care of the yard had always been Martin's job, but he had been putting in so much time at work lately that he hadn't been able to keep up around the house. 
 
  She finished the dishes and headed for the living room. She dropped down on the couch, picked up the remote and started channel hopping and couldn't find anything that could keep her interest. She turned off the TV and got up to take a shower. The shower head had a bad washer or something and dripped. Just one more thing for Martin to take care of one of these days. She washed and dried her hair and then toweled off. She reclined on the bed and picked up the latest issue of Redbook from the bedside stand and wondered why she kept renewing her subscription. She originally took out the subscription for household tip and recipes, but she hardly ever saw any of that anymore. Now it was all stuff like "Secrets for Lasting Love" and "Make the Ultimate Sex Connection" and "Sex Talk and Tips to Make Yourself More Alluring to Your Partner." You couldn't even get away from it when you did a simple thing like reading your horoscope. 
 
@@ -540,7 +554,11 @@
 
  
 
- ****** Becoming a Slut Couple (2) Jennie ****** byJust_Plain_Bob© "How do I do that?" 
+ 
+
+===
+
+"How do I do that?" 
 
  "Let me think on it." 
 
@@ -736,7 +754,11 @@
 
  
 
- ****** Becoming a Slut Couple (3) Martin a ****** byJust_Plain_Bob© She was bent forward over her desk, skirt pushed up to her waist and her thong in a pile around her right ankle as I pushed my hard cock into her from behind. She had a file folder gripped between her teeth to keep her from crying out and letting everyone in the outer office know what was happening to her. I gripped her hips and drove hard into her wanting to get as deep as I could before I came. 
+ 
+
+===
+
+She was bent forward over her desk, skirt pushed up to her waist and her thong in a pile around her right ankle as I pushed my hard cock into her from behind. She had a file folder gripped between her teeth to keep her from crying out and letting everyone in the outer office know what was happening to her. I gripped her hips and drove hard into her wanting to get as deep as I could before I came. 
 
  I still could not get over how readily this hot beauty would open herself for me and I took as much advantage of it as I could. One of these days I was going to have to make a choice and I was dreading it, but I just could not keep up with Beth, Angela and Cathy. Something had to give. The trouble was that I didn't want to give up any of them. Each one was gorgeous, each one was sexy, they all three fucked like nymphomaniacs and each one had their own little quirk. 
 
@@ -990,7 +1012,11 @@
 
  
 
- ****** Becoming a Slut Couple (3) Martin a ****** byJust_Plain_Bob© "Yes ma'am." 
+ 
+
+===
+
+"Yes ma'am." 
 
  "There, that wasn't so hard, was it?" 
 
@@ -1152,7 +1178,11 @@
 
  
 
- ****** Becoming a Slut Couple Jeannie ****** byJust_Plain_Bob© A story by Just Plain Bob 
+ 
+
+===
+
+A story by Just Plain Bob 
 
  She stood at the sink looking out the window as she did the breakfast dishes. The yard looked, for lack of a better word, unkempt. The flower beds were full of color and the grass was green, but something was a little off. A little like a man dressed up in a suit and tie and with polished shoes that gleamed, but needing a haircut. Unkempt, needing a trim. Taking care of the yard had always been Martin's job, but he had been putting in so much time at work lately that he hadn't been able to keep up around the house. 
 
@@ -1362,7 +1392,11 @@
 
  
 
- ****** Becoming a Slut Couple Jeannie ****** byJust_Plain_Bob© "How do I do that?" 
+ 
+
+===
+
+"How do I do that?" 
 
  "Let me think on it." 
 
@@ -1558,7 +1592,11 @@
 
  
 
- ****** Becoming a Slut Couple Martin/Jean ****** byJust_Plain_Bob© She was bent forward over her desk, skirt pushed up to her waist and her thong in a pile around her right ankle as I pushed my hard cock into her from behind. She had a file folder gripped between her teeth to keep her from crying out and letting everyone in the outer office know what was happening to her. I gripped her hips and drove hard into her wanting to get as deep as I could before I came. 
+ 
+
+===
+
+She was bent forward over her desk, skirt pushed up to her waist and her thong in a pile around her right ankle as I pushed my hard cock into her from behind. She had a file folder gripped between her teeth to keep her from crying out and letting everyone in the outer office know what was happening to her. I gripped her hips and drove hard into her wanting to get as deep as I could before I came. 
 
  I still could not get over how readily this hot beauty would open herself for me and I took as much advantage of it as I could. One of these days I was going to have to make a choice and I was dreading it, but I just could not keep up with Beth, Angela and Cathy. Something had to give. The trouble was that I didn't want to give up any of them. Each one was gorgeous, each one was sexy, they all three fucked like nymphomaniacs and each one had their own little quirk. 
 
@@ -1812,7 +1850,11 @@
 
  
 
- ****** Becoming a Slut Couple Martin/Jean ****** byJust_Plain_Bob© "Yes ma'am." 
+ 
+
+===
+
+"Yes ma'am." 
 
  "There, that wasn't so hard, was it?" 
 

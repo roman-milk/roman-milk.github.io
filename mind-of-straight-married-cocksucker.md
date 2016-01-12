@@ -1,8 +1,14 @@
+Mind of Straight Married Cocksucker
+===================================
 #1 
 
  
 
- ****** Mind of Straight Married Cocksucker ****** bysilkstockingslover© Summary: The 10-part philosophy of a straight cocksucker. 
+ 
+
+===
+
+Summary: The 10-part philosophy of a straight cocksucker. 
 
  DISCLAIMER: This story is based on a couple years of research and conversations with straight men who are curious or are cocksuckers. Although I am female, I find a man sucking cock hot, I suppose like most men find two women hot. Thus, I thought I would, based on my many conversations with straight men (straight being a subjective term) write this rather interesting analysis inside the MIND OF THE STRAIGHT MARRIED COCKSUCKER. 
 
@@ -312,7 +318,11 @@
 
  
 
- ****** Mind of Straight Married Cocksucker ****** bysilkstockingslover© I'm straight. 
+ 
+
+===
+
+I'm straight. 
 
  I'm married. 
 

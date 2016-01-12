@@ -1,8 +1,14 @@
+Tricia's Dirty Hole
+===================
 #1 
 
  
 
- ****** Tricia's Dirty Hole ****** byJust_Plain_Bob© Trisha and I had been together for almost twenty years - sixteen of them married. At thirty-eight she had put on an extra pound or two, but then three kids can do that to you. Those extra pounds didn't matter to me because as far as I was concerned those pounds were in all the right places and Trish was still the sexiest woman I'd ever seen. Besides, who was I to say anything about extra weight? I was fifteen pounds heavier than I was on the day we were married. I blame most of it Trish being a great cook. And I did fight it. I worked out at the gym three days a week and I ran four miles a day on the days I didn't go to the gym. Even if I have to say so myself I wasn't in bad shape for a forty year old who spent his days sitting at a desk. 
+ 
+
+===
+
+Trisha and I had been together for almost twenty years - sixteen of them married. At thirty-eight she had put on an extra pound or two, but then three kids can do that to you. Those extra pounds didn't matter to me because as far as I was concerned those pounds were in all the right places and Trish was still the sexiest woman I'd ever seen. Besides, who was I to say anything about extra weight? I was fifteen pounds heavier than I was on the day we were married. I blame most of it Trish being a great cook. And I did fight it. I worked out at the gym three days a week and I ran four miles a day on the days I didn't go to the gym. Even if I have to say so myself I wasn't in bad shape for a forty year old who spent his days sitting at a desk. 
 
  Trisha and I had a good marriage and enjoyed a comfortable life style. My job paid enough that we were able to own a decent house, have two cars and save enough for the three weeks of vacation that I received every year. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Tricia's Dirty Hole ****** byJust_Plain_Bob© My cock slid right in and I bottomed out on the first stroke. She was wet! Not "moist" wet, but "slick" wet if you know what I mean. As soon as I was in her she went wild. She bucked, pushed up at me, dug her nails in my ass as she tried to pull me even deeper into her and her heels beat bruises into the backs of my legs. When I finally came she pushed me off of her, spun around and took my cock in her mouth and sucked me hard again and then she mounted me. She bounced up and down on me until I was so close I had to roll her over onto her back and fuck her hard to get myself off. When I fell to the bed beside her she made as if to go after my cock and I pushed her hand away and told her that I was done. 
+ 
+
+===
+
+My cock slid right in and I bottomed out on the first stroke. She was wet! Not "moist" wet, but "slick" wet if you know what I mean. As soon as I was in her she went wild. She bucked, pushed up at me, dug her nails in my ass as she tried to pull me even deeper into her and her heels beat bruises into the backs of my legs. When I finally came she pushed me off of her, spun around and took my cock in her mouth and sucked me hard again and then she mounted me. She bounced up and down on me until I was so close I had to roll her over onto her back and fuck her hard to get myself off. When I fell to the bed beside her she made as if to go after my cock and I pushed her hand away and told her that I was done. 
 
  Trish was softly snoring beside me while I was staring up at the ceiling thinking about the night. I desperately wanted to believe that what happened that night was a one time thing, but in the end I knew that I was going to have to find out for sure. Since I didn't dare bring it up with Trish that meant that I was going to have to spy on her and the very thought of having to do that weighed heavily on me. 
 
@@ -476,7 +486,11 @@
 
  
 
- ****** Tricia's Dirty Hole ****** byJust_Plain_Bob© "What's this for?" 
+ 
+
+===
+
+"What's this for?" 
 
  "You need to hit a flower shop and order some flowers." 
 

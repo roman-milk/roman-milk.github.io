@@ -1,8 +1,14 @@
+Rob and Millie Go to Atlanta
+============================
 #1 
 
  
 
- ****** Rob and Millie Go to Atlanta ****** byJust_Plain_Bob© I watched her skirt tighten over her tight round ass as she bent to put some papers in the lower drawer of the file cabinet. Everything about Candace made me hard and it tore me up that I would never be able to do what I wanted which was to spend hours, days, weeks and months making love to her. She knew I wanted her and I was pretty sure that she'd had a few licentious thoughts about me, but I was cursed. A wicked spell had been cast over me and that spell prevented me from having Candace. The spell had a name - marriage. 
+ 
+
+===
+
+I watched her skirt tighten over her tight round ass as she bent to put some papers in the lower drawer of the file cabinet. Everything about Candace made me hard and it tore me up that I would never be able to do what I wanted which was to spend hours, days, weeks and months making love to her. She knew I wanted her and I was pretty sure that she'd had a few licentious thoughts about me, but I was cursed. A wicked spell had been cast over me and that spell prevented me from having Candace. The spell had a name - marriage. 
 
  As I looked at Candy's tight ass I wondered why I was so different from most of the other men that I knew; men I worked with, socialized with and played various sports with. I watched them run around on their wives and girlfriends like it was the most natural thing in the world to do. Was it natural? Were they normal and I was the oddball? 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Rob and Millie Go to Atlanta ****** byJust_Plain_Bob© ++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++ 
 
  The next morning I woke up to Millie fondling my dick and as soon as she saw that I was awake she slid down and took my cock in her mouth and sucked on it until it was hard and then she moved over me and lowered herself down on my cock. She bounced up and down on me until I got close to cumming and then I rolled her off of me and onto her back and fucked her as hard as I could until I came. 
 

@@ -1,8 +1,14 @@
+What I Came Home To
+===================
 #1 
 
  
 
- ****** What I Came Home To ****** byJust_Plain_Bob© It had been a bad day all around. The car had a dead battery when I left the house to go to work. I got a ration of shit from my foreman for being late to work and thirty minutes before quitting time I cut my arm so bad that I had to have four stitches. I got home to find my wife not there and my dinner not ready which I admit is no big thing in the great scheme of life, but it was my bowling night and for the last six years the pattern was I came home to a ready dinner, grabbed my bowling shirt and split for the bowling alley getting there just in time for the start of the early league. Ten minutes after I got home Shelly came in with an arm full of packages from the stores at the mall. Normally I am a calm, quiet guy and I tend to think before I speak, but it had been a bad day and dinner not waiting and Shelly shopping was just too much. 
+ 
+
+===
+
+It had been a bad day all around. The car had a dead battery when I left the house to go to work. I got a ration of shit from my foreman for being late to work and thirty minutes before quitting time I cut my arm so bad that I had to have four stitches. I got home to find my wife not there and my dinner not ready which I admit is no big thing in the great scheme of life, but it was my bowling night and for the last six years the pattern was I came home to a ready dinner, grabbed my bowling shirt and split for the bowling alley getting there just in time for the start of the early league. Ten minutes after I got home Shelly came in with an arm full of packages from the stores at the mall. Normally I am a calm, quiet guy and I tend to think before I speak, but it had been a bad day and dinner not waiting and Shelly shopping was just too much. 
 
  "Damn it Shelly, I told you that we needed to watch the budget. What the hell are you doing out spending money instead of being here fixing dinner. You know it is my bowling night." 
 

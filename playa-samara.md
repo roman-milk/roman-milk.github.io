@@ -1,8 +1,14 @@
+Playa Samara
+============
 #1 
 
  
 
- ****** Playa Samara ****** bygeronimo_appleby© Just a quick one inspired by Playa Samara, Costa Rica. This is my effort for the Earth Day contest, and as such I hope I haven't gone too flowery with the philosophical musings of the principal character herein; I was just trying to justify the link to Earth Day. 
+ 
+
+===
+
+Just a quick one inspired by Playa Samara, Costa Rica. This is my effort for the Earth Day contest, and as such I hope I haven't gone too flowery with the philosophical musings of the principal character herein; I was just trying to justify the link to Earth Day. 
 
  Anyway, as usual, there may be errors, if there are, forgive me. Send feedback if the mood takes; let me know what you like -- if anything -- or what you didn't like. If you do send/post feedback/comments please make 'em constructive. 
 

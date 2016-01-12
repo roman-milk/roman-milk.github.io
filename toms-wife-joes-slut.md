@@ -1,8 +1,14 @@
+Tom's Wife, Joe's Slut Ch. 01
+=============================
 #1 
 
  
 
- ****** Tom's Wife, Joe's Slut Ch. 01 ****** byJust_Plain_Bob© My husband's side of the family thinks that I am a round heeled slut and I suppose that I am, but only because my husband and his brother made me one. No, that's not entirely true; Tom's bother made me a slut, Tom just didn't stop him. 
+ 
+
+===
+
+My husband's side of the family thinks that I am a round heeled slut and I suppose that I am, but only because my husband and his brother made me one. No, that's not entirely true; Tom's bother made me a slut, Tom just didn't stop him. 
 
  Tom and I had been married a little over eight years. As far as marriages go I guessed that ours was a pretty good one. We had our ups and downs, but the ups always greatly outnumbered the downs and whatever the troubles we managed to work our way through them without any lasting damage to our relationship. As far as I know Tom didn't run around on me and I had never cheated on him. Our sex life was adequate, but the excitement had died down a little. Frequency was okay - three or four times a week - but the passion seemed gone. I suppose that it was because we had gotten used to each other and had started taking each other for granted which might have contributed to what happened, but the major cause was my husband's lack of backbone where his family was concerned. 
 
@@ -96,7 +102,11 @@
 
  
 
- ****** Tom's Wife, Joe's Slut Ch. 02 ****** byJust_Plain_Bob© Joe walked out of the den and returned to Shelly's party and the other three men followed him a minute later. That left me standing in Joe's den wondering how I was going to be able to go back to the party and face the people who no doubt knew what had gone on. Most of Tom's family were at the party and for the last eight years they had all seen me as Tom's loving wife. And just how in the hell was I going to face my husband. 
+ 
+
+===
+
+Joe walked out of the den and returned to Shelly's party and the other three men followed him a minute later. That left me standing in Joe's den wondering how I was going to be able to go back to the party and face the people who no doubt knew what had gone on. Most of Tom's family were at the party and for the last eight years they had all seen me as Tom's loving wife. And just how in the hell was I going to face my husband. 
 
  I couldn't. I couldn't do either; I couldn't face Tom and I couldn't face his family. What had started out as an attempt to embarrass Joe to the point where he would leave me alone - stop sexually harassing me - had gone terribly wrong. I had not only not embarrassed him, but I had allowed Joe to turn me into a whore. What was worse was that he made me like it. It was over and he was gone, but I couldn't say to myself, "Okay, you screwed up, put it behind you and get on with your life." I couldn't do that because I knew that Joe would be at my front door the next day at eleven thirty-five and I knew that I would be waiting for him just like he said he wanted me - in my slutty high heels and with a wet and eager pussy. 
 

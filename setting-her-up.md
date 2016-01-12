@@ -1,8 +1,14 @@
+Setting Her Up
+==============
 #1 
 
  
 
- ****** Setting Her Up ****** byJust_Plain_Bob© Merrie was a cheerleader and the most beautiful girl in the school. In the town as far as I was concerned. I was the quarterback and captain of the football team. It was a match made in Heaven. 
+ 
+
+===
+
+Merrie was a cheerleader and the most beautiful girl in the school. In the town as far as I was concerned. I was the quarterback and captain of the football team. It was a match made in Heaven. 
 
  +++++++++++++++++++++ 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** Setting Her Up ****** byJust_Plain_Bob© "We have both wanted a piece of your fine ass since high school." 
+ 
+
+===
+
+"We have both wanted a piece of your fine ass since high school." 
 
  At that point Merrie tried to close the door, but Tony stopped her and said: 
 

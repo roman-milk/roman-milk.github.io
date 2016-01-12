@@ -1,8 +1,14 @@
+Meet Me in the Middle
+=====================
 #1 
 
  
 
- ****** Meet Me in the Middle ****** bygeronimo_appleby© OK, let's see how this goes. I hope you enjoy it. Briana sees her hot neighbour, who's also her boss, sunbathing nude. She masturbates and imagines making love to the woman twenty years her senior. Briana reveals to the woman that she saw her naked in the garden, which leads to an invitation ... 
+ 
+
+===
+
+OK, let's see how this goes. I hope you enjoy it. Briana sees her hot neighbour, who's also her boss, sunbathing nude. She masturbates and imagines making love to the woman twenty years her senior. Briana reveals to the woman that she saw her naked in the garden, which leads to an invitation ... 
 
  Please, as usual, forgive any errors in the text. Send feedback! 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Meet Me in the Middle ****** bygeronimo_appleby© Marina settled her backside on the bed and opened her legs. Her pussy gaped, the thick labia hanging slack and heavy, a sight that set an arterial burst of lust charging through me, and which oiled my already sodden sex even further. 
+ 
+
+===
+
+Marina settled her backside on the bed and opened her legs. Her pussy gaped, the thick labia hanging slack and heavy, a sight that set an arterial burst of lust charging through me, and which oiled my already sodden sex even further. 
 
  I watched, open-mouthed and horny as she rubbed one of the ends of that thing along her sex. She split her labia and sighed, closing her eyes to smirk at the pleasure she felt as the malleable head slid over her clitoris. Holding the shaft of the dildo in a forehand grip, Marina held herself open and fed the first three inches into her body. 
 

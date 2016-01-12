@@ -1,8 +1,14 @@
+Aunt's Stockings &amp; Mom's Pantyhose
+======================================
 #1 
 
  
 
- ****** Aunt's Stockings &amp; Mom's Pantyhose ****** bysilkstockingslover© Aunt's Stockings &amp; Mom's Pantyhose 
+ 
+
+===
+
+Aunt's Stockings &amp; Mom's Pantyhose 
 
  Summary: A lucky guy gets his Mom and Aunt as Christmas presents. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Aunt's Stockings &amp; Mom's Pantyhose ****** bysilkstockingslover© "Then he will really come," Aunt Cassie replied playing on the word come. 
+ 
+
+===
+
+"Then he will really come," Aunt Cassie replied playing on the word come. 
 
  "Oh God?" Mom moaned. 
 
@@ -568,7 +578,11 @@
 
  
 
- ****** Aunt's Stockings &amp; Mom's Pantyhose ****** bysilkstockingslover© Mom gasped again as I reached for mistletoe. 
+ 
+
+===
+
+Mom gasped again as I reached for mistletoe. 
 
  I dropped my pants, revealing I was going commando, put the mistletoe over my cock and said, "Mom, come get your Christmas present." 
 

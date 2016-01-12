@@ -1,8 +1,14 @@
+Stone and the Gangster's Girls
+==============================
 #1 
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© OK, quite a lengthy one with a little mix I hope you enjoy. Stone is a bodyguard -- ex-military who heads a small team responsible for close protection of Dave Devine. Dave Devine is a gangster, a king of the underworld with a wife and daughter who are both very sexy and very kinky. 
+ 
+
+===
+
+OK, quite a lengthy one with a little mix I hope you enjoy. Stone is a bodyguard -- ex-military who heads a small team responsible for close protection of Dave Devine. Dave Devine is a gangster, a king of the underworld with a wife and daughter who are both very sexy and very kinky. 
 
  I did think about submitting the chapters individually, but opted instead to lump all 25000 words together in one hit (no pun intended ... gangster ... hit ... geddit?) *ahem* Right, well, yes, I decided to put the piece up in Novels and Novellas, just for the grin. 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© This was no tender lovemaking, this was an all out assault on that girl's tender body. What really got me raging, though, was the filth that poured out of her mouth. The face of an angel and the vocabulary of a docker, that was my first experience of my princess. 
+ 
+
+===
+
+This was no tender lovemaking, this was an all out assault on that girl's tender body. What really got me raging, though, was the filth that poured out of her mouth. The face of an angel and the vocabulary of a docker, that was my first experience of my princess. 
 
  "I put things in my pussy and imagine it's your big cock, Daddy," Amy gasped. "I'll show you. When you come to my room to kiss me goodnight, I'll show you how I fuck my little cunt with a big rubber cock." 
 
@@ -296,7 +306,11 @@
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© "Fuck," I gasped, taking all of her in. "You're put together well, Julie." 
+ 
+
+===
+
+"Fuck," I gasped, taking all of her in. "You're put together well, Julie." 
 
  A laugh tinkled from the woman as her eyes glistened and she studied my penis. "You're not bad either, Stone," she said with a nod of her head. "Kept yourself fit ... And, soldier boy," she added, "that's a nice weapon you've got there." Julie uncrossed her legs and leaned towards me. "Come here." She reached for me as I moved a step towards her. "Nice and thick," Julie commented approvingly after her fingers closed around my girth. "That should fill me up nicely." 
 
@@ -450,7 +464,11 @@
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© Soon, when Amy became so aroused that her pussy squelched and farted, goo sliding out of her to dribble along the crease of her arse, I was tugging at myself with urgency. 
+ 
+
+===
+
+Soon, when Amy became so aroused that her pussy squelched and farted, goo sliding out of her to dribble along the crease of her arse, I was tugging at myself with urgency. 
 
  Amy raised her legs and, with the dildo hanging out of her, held her knees with one hand as she rolled onto her side. In this position, knees together and her labia clamped around the rubber cock, Amy reached back and took hold of the shaft with a backhand grip. 
 
@@ -602,7 +620,11 @@
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© The sudden switch from rabid dominatrix to this fawning over the girl's bottom fooled me completely, and it wasn't until the first sharp slap of Stella's palm and Amy's yelp that I realised what was to come. 
+ 
+
+===
+
+The sudden switch from rabid dominatrix to this fawning over the girl's bottom fooled me completely, and it wasn't until the first sharp slap of Stella's palm and Amy's yelp that I realised what was to come. 
 
  "I'll teach you to put things inside your pussy, you filthy whore," Stella snarled. Her palm struck tender flesh again. "Who the fuck do you think you are?" Two more handprints appeared as Amy's skin began to redden. 
 
@@ -770,7 +792,11 @@
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© "That was incredible," Stella sighed, a stream of smoke jetting from her nostrils. "I don't know where you get the ideas from, Amy." She shook her head and dragged heavily at her cigarette. "I'm amazed that a nineteen-year-old can be so damned perverted. You really do love it, don't you?" 
+ 
+
+===
+
+"That was incredible," Stella sighed, a stream of smoke jetting from her nostrils. "I don't know where you get the ideas from, Amy." She shook her head and dragged heavily at her cigarette. "I'm amazed that a nineteen-year-old can be so damned perverted. You really do love it, don't you?" 
 
  Amy, with smears of my jizm glistening on her cheek and chin from where she'd sucked the spunk out of Stella, giving the blonde an intense, juddering climax into the bargain, smirked. "I'm taking a shower," she replied. "Thanks for coming over," the girl said after leaning down to kiss Stella's mouth. "Stay in the flat as long as you like." Then she looked over at me. "Joining me in the shower, Stone?" 
 
@@ -964,7 +990,11 @@
 
  
 
- ****** Stone and the Gangster's Girls ****** bygeronimo_appleby© "But the truth is, Stone, I didn't ever love Julie. It were never gonna 'appen. Course, back in the old days I never gave a shit about her, but now ... well, now something's happened to me, Stone. I've changed. I've met someone I really love and I feel as sick as fuck about Julie and I wanna try to help her. I want to move on; I want her to move on. 
+ 
+
+===
+
+"But the truth is, Stone, I didn't ever love Julie. It were never gonna 'appen. Course, back in the old days I never gave a shit about her, but now ... well, now something's happened to me, Stone. I've changed. I've met someone I really love and I feel as sick as fuck about Julie and I wanna try to help her. I want to move on; I want her to move on. 
 
  "Look where we are, Stone. Nineteen years later and it's come to this." Dave spread his arms while I glugged beer. Tommo sat there next to us, silent and immobile. "There are going to be some changes in the organisation soon, Stone. I'm giving it up, the nastiness. I'm retiring. I'm getting out and the fucking Russians or Albanians or the fucking Romanians can have it. The mad load of cunts." He leaned across the rickety table and crushed the butt of his smoke into a scratched and battered ashtray. "And you've got some decisions to make." 
 

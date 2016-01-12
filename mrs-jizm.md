@@ -1,8 +1,14 @@
+Mrs Jizm Ch. 01
+===============
 #1 
 
  
 
- ****** Mrs Jizm Ch. 01 ****** bygeronimo_appleby© here's one i put together one weekend. i have more ideas for Mrs Jizm - it depends on if youz like her and want more. GA - Gatwick Airport - Nov 2011 
+ 
+
+===
+
+here's one i put together one weekend. i have more ideas for Mrs Jizm - it depends on if youz like her and want more. GA - Gatwick Airport - Nov 2011 
 
  THE WOMAN PEERED at me over the top of her glasses. The spectacles and frown were a surprise; I didn't expect a glamour model, albeit a lady in her early forties, to look like a schoolteacher. That was the first impression. It was to prove an inaccurate assumption. Surprised by her severe expression, stepping backwards, I almost fell off the raised doorstep. To my relief she laughed, which softened the fierce look she'd worn when the door had first opened at my knock. 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Mrs Jizm Ch. 02 ****** bygeronimo_appleby© The second part of the Mrs Jizm tale. It ends midway through a sex scene so I hope people are not put off by that. That's the hook to get you to read Ch. 3 *wink*. 
+ 
+
+===
+
+The second part of the Mrs Jizm tale. It ends midway through a sex scene so I hope people are not put off by that. That's the hook to get you to read Ch. 3 *wink*. 
 
  If people like it, and send me feedback, I'll keep on going with this. 
 
@@ -338,7 +348,11 @@
 
  
 
- ****** Mrs Jizm Ch. 02 ****** bygeronimo_appleby© My response was to lap at her opening, suck against her clitoris and, after probing inside her body with a finger, to roll her over onto her stomach and spread her buttocks. A low moan slid from the woman when, with her body angled awkwardly half-on, half-off the sofa, I took a tentative dab at her sphincter with my tongue. The moan tapered to a bubbling sigh. 
+ 
+
+===
+
+My response was to lap at her opening, suck against her clitoris and, after probing inside her body with a finger, to roll her over onto her stomach and spread her buttocks. A low moan slid from the woman when, with her body angled awkwardly half-on, half-off the sofa, I took a tentative dab at her sphincter with my tongue. The moan tapered to a bubbling sigh. 
 
  "You like that, Robyn?" I asked. Lust displaced my previous restraint. Desire and longing, a desperate, visceral urge to physically dominate my tormentor clenched in some indeterminate place in my guts. Overcome to the point of insanity, driven by a primeval instinct, I pushed my face into the crevice and, while one hand scrabbled in urgent desperation at my belt, wriggled my tongue as deep as I could manage into the taboo stain of her anus. 
 
@@ -368,7 +382,11 @@
 
  
 
- ****** Mrs Jizm Ch. 03 ****** bygeronimo_appleby© The third Mrs Jizm scene. I'd appreciate some feedback, either in Public Comments or email; the feedback makes it all worth the effort. 
+ 
+
+===
+
+The third Mrs Jizm scene. I'd appreciate some feedback, either in Public Comments or email; the feedback makes it all worth the effort. 
 
  If you haven't read the previous chapters I hope you'll take the time to look them up and, as per my usual request, send feedback! 
 
@@ -524,7 +542,11 @@
 
  
 
- ****** Mrs Jizm Ch. 03 ****** bygeronimo_appleby© "You getting this, Simon?" he asked. 
+ 
+
+===
+
+"You getting this, Simon?" he asked. 
 
  Nodding I turned back to the scene in front of me. By now Robyn's top was unbuttoned. The collar flapped loose and her breasts threatened to pop out as she moved between poses. The two men continued to click away, their cameras tireless. At each pop of a flash Robyn would take that as her cue to change position until, eventually, she climbed onto the bed still wearing her heels. 
 
@@ -688,7 +710,11 @@
 
  
 
- ****** Mrs Jizm Ch. 03 ****** bygeronimo_appleby© Her long groan of pleasure when she sank down onto the monolith was testimony to what was happening in front of my eyes. I sat on the bed, mouth hanging open, as I watched Mrs Jizm squirm on Peter's cock. At least she was facing away from him. If she'd kissed him ... 
+ 
+
+===
+
+Her long groan of pleasure when she sank down onto the monolith was testimony to what was happening in front of my eyes. I sat on the bed, mouth hanging open, as I watched Mrs Jizm squirm on Peter's cock. At least she was facing away from him. If she'd kissed him ... 
 
  As it was I could see her skin stretched tight around the thick shaft. Her clitoris shone, greasy and swollen with arousal while obscene farts and squelches erupted from their coupling. A thick, opaque dribble of my semen squirted around Peter's shaft when Robyn rose to the domed tip, the viscous trickle skidding over his balls and along the cleft of his arse to stain the chair fabric. Robyn's cunt farted as she sank down onto that column again. 
 
@@ -754,7 +780,11 @@
 
  
 
- ****** Mrs Jizm Ch. 04 ****** bygeronimo_appleby© The fourth installment of Mrs Jizm. I think there will be just one more chapter after this one. 
+ 
+
+===
+
+The fourth installment of Mrs Jizm. I think there will be just one more chapter after this one. 
 
  I deliberated about which category to submit this piece too - it could, perhaps, have found a home in Fetish. There's a latex outfit in it (Mrs Jizm's naturally), and a lot of references to semen ... come ... jizm ... 
 
@@ -918,7 +948,11 @@
 
  
 
- ****** Mrs Jizm Ch. 04 ****** bygeronimo_appleby© "Mrs Jizm," the woman groaned, the cannonball of her head in that black mask lolling forward as her arms collapsed. "I'm Mrs Jizm and I'm going to come ..." she sighed. 
+ 
+
+===
+
+"Mrs Jizm," the woman groaned, the cannonball of her head in that black mask lolling forward as her arms collapsed. "I'm Mrs Jizm and I'm going to come ..." she sighed. 
 
  When Mrs Jizm's climax tapered and cooled, I watched, with green-eyed envy, as Peter slowly eased the glistening length of his cock from Mrs Jizm's body. The thing was smeared with opaque goo, whether my spunk, Mrs Jizm's lust, or a combination of both, I had no idea. I heard a sucking slide as the woman's body reluctantly relinquished its grip on Peter's girth. 
 

@@ -1,8 +1,14 @@
+Herb, Tricia and Me
+===================
 #1 
 
  
 
- ****** Herb, Tricia and Me ****** byJust_Plain_Bob© There are some that say that revenge is a waste of valuable time; time that could be put to more productive use doing other things. To me and to my way of thinking good mental health requires payback when you are fucked over. You have a choice: In ten or fifteen years you can look back and say, "Damn it! I should have......" or you can look back and smile at what you did. 
+ 
+
+===
+
+There are some that say that revenge is a waste of valuable time; time that could be put to more productive use doing other things. To me and to my way of thinking good mental health requires payback when you are fucked over. You have a choice: In ten or fifteen years you can look back and say, "Damn it! I should have......" or you can look back and smile at what you did. 
 
  +++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Herb, Tricia and Me ****** byJust_Plain_Bob© "I would have thought that you would have wanted to talk." 
+ 
+
+===
+
+"I would have thought that you would have wanted to talk." 
 
  "What's to talk about? You replaced me." 
 

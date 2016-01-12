@@ -1,8 +1,14 @@
+Becoming a Slut Husband Alan
+============================
 #1 
 
  
 
- ****** Becoming a Slut Husband Alan ****** byJust_Plain_Bob© As far as Tuesdays went this one sucked big time. I was ten minutes early and not even at my desk yet when my boss hollered at me to come into his office. I was no sooner in the door when he threw a piece of paper at me and said: 
+ 
+
+===
+
+As far as Tuesdays went this one sucked big time. I was ten minutes early and not even at my desk yet when my boss hollered at me to come into his office. I was no sooner in the door when he threw a piece of paper at me and said: 
 
  "What the hell is this shit?" 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Becoming a Slut Husband Alan ****** byJust_Plain_Bob© "So how would I go about getting her to divorce me?" 
+ 
+
+===
+
+"So how would I go about getting her to divorce me?" 
 
  "Simple. Do to her what she is doing to you. Stop having sex with her, get yourself a girlfriend or two and when the wife finds out let her be the one to get the divorce. The big thing is to stop having sex with her. If she throws your indiscretion at you, you can throw hers back at her, but if you exercise your conjugal rights with her AFTER finding out about her affair you will, in effect, have condoned what she did." 
 
@@ -472,7 +482,11 @@
 
  
 
- ****** Becoming a Slut Husband Alan ****** byJust_Plain_Bob© It has been six months since the divorce was final and Laurie is still telling people that she loves me, but that I never gave her a chance to explain. When people tell me that I say: 
+ 
+
+===
+
+It has been six months since the divorce was final and Laurie is still telling people that she loves me, but that I never gave her a chance to explain. When people tell me that I say: 
 
  "Explain what? She cheated, she got caught and the trust was gone. Once the trust is gone it is over." 
 

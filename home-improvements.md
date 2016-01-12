@@ -1,8 +1,14 @@
+Home Improvements
+=================
 #1 
 
  
 
- ****** Home Improvements ****** bygeronimo_appleby© Inspired by 'a friend'. Thanks to her. Also thanks to JQ Hack for the edits and suggestions. 
+ 
+
+===
+
+Inspired by 'a friend'. Thanks to her. Also thanks to JQ Hack for the edits and suggestions. 
 
  I wasn't sure which category to put this story in. Be warned, there is an anal sex scene in the following, so if that isn't to your taste, please don't read it. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Home Improvements ****** bygeronimo_appleby© Rick finished his obscene monologue and turned his attention back to Marisa's buzzing clitoris. He stretched her cunt with his fingers as he tongued at the stiff nub of flesh that nestled normally shyly in the folds of her sweet tasting labia. The stifled moaning became more intense, and turned into an almost animal grunting as Marisa's climax tingled outwards from the centre of her sex. 
+ 
+
+===
+
+Rick finished his obscene monologue and turned his attention back to Marisa's buzzing clitoris. He stretched her cunt with his fingers as he tongued at the stiff nub of flesh that nestled normally shyly in the folds of her sweet tasting labia. The stifled moaning became more intense, and turned into an almost animal grunting as Marisa's climax tingled outwards from the centre of her sex. 
 
  She pushed Mark away from her face as the wave of her climax broke, and a huge rush of air burst from her lungs. Harsh, guttural sounds burst thickly from her throat as Marisa surrendered to the force of her orgasm. Rick was forced to hold onto the table tightly when Marisa's juddering and shuddering threatened to collapse it. 
 

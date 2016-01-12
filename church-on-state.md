@@ -1,8 +1,14 @@
+Church on State
+===============
 #1 
 
  
 
- ****** Church on State ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story, and I would like to thank ForeShadow as well for his help. This story deals with religious themes. I know this is a touchy subject; this is not meant as a criticism of organized religion, and should be read in good humor. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story, and I would like to thank ForeShadow as well for his help. This story deals with religious themes. I know this is a touchy subject; this is not meant as a criticism of organized religion, and should be read in good humor. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  
 
@@ -124,7 +130,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© Adam smiled, as she finished her speech. 
+ 
+
+===
+
+Adam smiled, as she finished her speech. 
 
  "So, you have been called untraditional. What makes you guys untraditional?" Adam inquired, knitting his fingers together as he leaned forward to hear her reply. 
 
@@ -300,7 +310,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© "Why haven't I seen these before?" Paula asked, looking around in confused wonderment. A lot of the nuns had helped out at the event they just held, and they were all wearing similar outfits to Catherine. Traditional habits. It was as if they changed now that they were out of sight of the public. 
+ 
+
+===
+
+"Why haven't I seen these before?" Paula asked, looking around in confused wonderment. A lot of the nuns had helped out at the event they just held, and they were all wearing similar outfits to Catherine. Traditional habits. It was as if they changed now that they were out of sight of the public. 
 
  "Some people are hesitant when confronted with change. We keep the peace, for now, but eventually, these will be our daily wear in public." Catherine responded matter-of-factly. Paula had to admit that she was impressed by her bold confidence in what she viewed as an unlikely future. 
 
@@ -510,7 +524,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© Paula felt bad for withholding sex from her husband, but it just felt weird to her to have sex while debating whether or not to become a Nun. Yes, she was now considering it. It just felt right. 
+ 
+
+===
+
+Paula felt bad for withholding sex from her husband, but it just felt weird to her to have sex while debating whether or not to become a Nun. Yes, she was now considering it. It just felt right. 
 
  She had not thought about her desire to join the Church for a long time. She had been very dedicated to the Church in her younger years, and she had never felt happier than she was when she was at Church. As she grew up though, her interests veered elsewhere, and even though she was still an avid Church-goer, she started to feel like her talents would lead her to politics. 
 
@@ -656,7 +674,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© Adam felt the sensation of smooth, soft skin against his face. His eyes opened and he realized where he was and what he was doing. He realized he was face deep in some juicy cleavage. He tried to pull away but she held him tight. 
+ 
+
+===
+
+Adam felt the sensation of smooth, soft skin against his face. His eyes opened and he realized where he was and what he was doing. He realized he was face deep in some juicy cleavage. He tried to pull away but she held him tight. 
 
  "It's okay. This will make you feel better," Catherine breathed soothingly, reassuringly, as she firmly clutched the married man to her soft titties. While being smothered in warm cleavage was nice, he was a bit confused, his senses returning. 
 
@@ -818,7 +840,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© "Holy Shit!" Adam yelled out, squeezing over and over again. They felt so good! They were so firm. So soft! He had been missing out on the pleasures huge breasts could provide. He couldn't get enough as he kept squeezing, followed by rough pinches of her nipples. 
+ 
+
+===
+
+"Holy Shit!" Adam yelled out, squeezing over and over again. They felt so good! They were so firm. So soft! He had been missing out on the pleasures huge breasts could provide. He couldn't get enough as he kept squeezing, followed by rough pinches of her nipples. 
 
  "That's it. You are so good at this." Catherine moaned out, her hands on his chest. She let him squeeze until he lost himself in her chest. Using his hands to hold herself up, she leaned forward and reached down to pull the habit, that was now bunched at her waist, past her hips and ass. She was able to lift her legs, one at a time, out of the habit, until she was free from it. She then tossed it onto the ground with the rest of her clothes, leaving her clad only in her skimpy thong. She knew it was time to take this to the next level, so, with a little bit of effort, she was able to pull her tits away from Adam's squeezing hands. She moved down the bed and pulled the sheets down, finally revealing the married man's dick to her eyes. Nine fat, dripping inches of married cock greeted her leering eyes. 
 
@@ -960,7 +986,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© Paula snuck out of the church early in the morning. She returned home to find fallen branches in the driveway. There was no car in the driveway, but if there was, it would not be able to pass the fallen pieces of wood. Adam was clearly not here, so she went to the campaign headquarters next. No sign of Adam there either. She could not help but look through the drawers again, and she was shocked to find no sign of the pictures she had seen the day before. Had she gone crazy? 
+ 
+
+===
+
+Paula snuck out of the church early in the morning. She returned home to find fallen branches in the driveway. There was no car in the driveway, but if there was, it would not be able to pass the fallen pieces of wood. Adam was clearly not here, so she went to the campaign headquarters next. No sign of Adam there either. She could not help but look through the drawers again, and she was shocked to find no sign of the pictures she had seen the day before. Had she gone crazy? 
 
  Her last hope was to go talk to Catherine. Maybe she knew where Adam was. 
 
@@ -1126,7 +1156,11 @@
 
  
 
- ****** Church on State ****** byTheTalkMan© And as Adam drove his thick cock into Catherine's needy pussy, she smiled, as she realized that Parkersboro was hers now and forever. And as she looked back at Adam, the beacon of hope for this city and its citizens, driving his cock into her, she realized Adam belonged to her, too. Adam, and that fat cock of his, belonged to Catherine, forever and ever. 
+ 
+
+===
+
+And as Adam drove his thick cock into Catherine's needy pussy, she smiled, as she realized that Parkersboro was hers now and forever. And as she looked back at Adam, the beacon of hope for this city and its citizens, driving his cock into her, she realized Adam belonged to her, too. Adam, and that fat cock of his, belonged to Catherine, forever and ever. 
 
  
 

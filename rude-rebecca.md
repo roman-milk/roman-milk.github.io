@@ -1,8 +1,14 @@
+Rude Rebecca
+============
 #1 
 
  
 
- ****** Rude Rebecca ****** bygeronimo_appleby© Rebecca was excited. Today was going to be one of her special days. She'd been building up to it or a couple of weeks now, and no matter how she struggled against her perverted desires no matter how much she tried to suppress the depravity of her craving, Rebecca knew that eventually she would weaken and give in. Her sexual urges appalled her in the immediate aftermath of one of her soirees and Rebecca would analyse her actions constantly in the days that followed, but inevitably that analysis would leave Rebecca in a fugue of self loathing and disgust at her own conduct. 
+ 
+
+===
+
+Rebecca was excited. Today was going to be one of her special days. She'd been building up to it or a couple of weeks now, and no matter how she struggled against her perverted desires no matter how much she tried to suppress the depravity of her craving, Rebecca knew that eventually she would weaken and give in. Her sexual urges appalled her in the immediate aftermath of one of her soirees and Rebecca would analyse her actions constantly in the days that followed, but inevitably that analysis would leave Rebecca in a fugue of self loathing and disgust at her own conduct. 
 
  At those times Rebecca would promise herself that she would change; that she'd resist, that she'd be strong; she swore that this time, this time it would be different. Then, as the days and weeks passed the itch between her legs would begin again, almost imperceptibly at first, but growing more insistent the longer Rebecca tried to ignore it, and the woman knew it was only a matter of time before she degraded herself again. 
 
@@ -120,7 +126,11 @@
 
  
 
- ****** Rude Rebecca ****** bygeronimo_appleby© The other two men followed suit and unzipped their trousers and soon Rebecca had three erect cocks standing to attention in her honour. The men stroked their engorged penises and murmured Spanish phrases at her in low tones. The eldest of the men moved close to Rebecca and reached out to touch her skin. Rebecca tensed at his touch, not sure if she really wanted him to touch her body. It was the power over them that she craved, not the actual physical contact, but Rebecca relented and allowed the man to run his hands over the smooth skin of her legs and torso. 
+ 
+
+===
+
+The other two men followed suit and unzipped their trousers and soon Rebecca had three erect cocks standing to attention in her honour. The men stroked their engorged penises and murmured Spanish phrases at her in low tones. The eldest of the men moved close to Rebecca and reached out to touch her skin. Rebecca tensed at his touch, not sure if she really wanted him to touch her body. It was the power over them that she craved, not the actual physical contact, but Rebecca relented and allowed the man to run his hands over the smooth skin of her legs and torso. 
 
  'Come on boys, wank those big cocks, show me how fucking horny you are,' Rebecca said confidently, not caring whether or not the men actually understood her. She rubbed at the puffy lips of her cunt and fiddled with her clit as her lust and passion mounted. The man who was feeling her body was cupping her heavy breasts and muttering under his breath at the same time. He was tugging vigorously at his cock and groaned and moaned with his heightened ardour. 
 
@@ -248,7 +258,11 @@
 
  
 
- ****** Rude Rebecca ****** bygeronimo_appleby© The lewd words and the look on Rebecca's flushed face were too much for David and he grunted as his first jets of come pumped into Rebecca. 'Oh, fuck...' was all he could manage to say as the intense climax took control of his senses. 
+ 
+
+===
+
+The lewd words and the look on Rebecca's flushed face were too much for David and he grunted as his first jets of come pumped into Rebecca. 'Oh, fuck...' was all he could manage to say as the intense climax took control of his senses. 
 
  'Yes!' Rebecca cried when she felt the pulses of David's cream inside her body. 'I can feel it, yes, give it all to me.' 
 

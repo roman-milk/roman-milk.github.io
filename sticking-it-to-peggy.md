@@ -1,8 +1,14 @@
+Sticking it to Peggy
+====================
 #1 
 
  
 
- ****** Sticking it to Peggy ****** byJust_Plain_Bob© I stood there at the window and watched as the car backed down the drive, turned right and then disappear down the street. I wondered why I wasn't more upset. I'd just seen ten years of my life drive away. Shouldn't I have felt something? Shouldn't there have been something other than a shrug of the shoulders and an, "Oh well; I guess I should go and take care of that dripping faucet?" As I turned and headed for the kitchen I ran the events of the last half hour back through my mind. 
+ 
+
+===
+
+I stood there at the window and watched as the car backed down the drive, turned right and then disappear down the street. I wondered why I wasn't more upset. I'd just seen ten years of my life drive away. Shouldn't I have felt something? Shouldn't there have been something other than a shrug of the shoulders and an, "Oh well; I guess I should go and take care of that dripping faucet?" As I turned and headed for the kitchen I ran the events of the last half hour back through my mind. 
 
  I'd come home from work to find my wife Peggy sitting at the kitchen table with a full glass of wine sitting in front of her. I knew something was up as soon as I saw her sitting there. First - she was home before me and she never got home from work until a half hour to an hour after I did. Secondly - the understanding we had was the first one home would start dinner and there was nothing on the stove. Lastly - there was the glass of wine. Peg rarely drank. I was no sooner in the room than she asked me to sit down and told me she had something to say. I grabbed a beer out of the fridge, sat down across from her and she said: 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** Sticking it to Peggy ****** byJust_Plain_Bob© "I know this is awkward for you Rob; hell buddy, it is awkward for me, but I have to talk with you about the situation we are in. First off, and I told you this when I left you and Tanya alone, I am 100% okay with it. I mean that Rob, but that said I have to tell you that Tanya didn't tell you the full truth. I know she told you about wanting a child and about me being sterile, but I also know that she didn't tell you the rest of it. To be blunt about it buddy - I can't get it up! I haven't been able to make love to Tanya in over a year." 
+ 
+
+===
+
+"I know this is awkward for you Rob; hell buddy, it is awkward for me, but I have to talk with you about the situation we are in. First off, and I told you this when I left you and Tanya alone, I am 100% okay with it. I mean that Rob, but that said I have to tell you that Tanya didn't tell you the full truth. I know she told you about wanting a child and about me being sterile, but I also know that she didn't tell you the rest of it. To be blunt about it buddy - I can't get it up! I haven't been able to make love to Tanya in over a year." 
 
  My God! That is why she was so hot last night; she was playing catch up. And her telling me that she didn't want to give Tom sloppy seconds was her way of covering for his inability. She didn't want me to know he was impotent because she didn't want me to think less of him as a man. Not that I would have, but she didn't know that. What a difference between her and Peg. Tanya put Tom first, even in difficult circumstances while Peg thought only of herself. 
 
@@ -298,7 +308,11 @@
 
  
 
- ****** Sticking it to Peggy ****** byJust_Plain_Bob© "Your lawyer, still billing you for his time, goes back to court and gets a judgment against me. I have no savings or checking accounts that can be attached. My car is a lease so nothing for you there. I live in a furnished apartment so there isn't anything there you can get. All you can do with your judgment is garnish my wages and the first time that I get a paycheck that has been garnished I will quit my job. So what do we have here Peg? A good years worth of lawyers fees out of your pocket and all for maybe two hundred dollars out of one paycheck. 
+ 
+
+===
+
+"Your lawyer, still billing you for his time, goes back to court and gets a judgment against me. I have no savings or checking accounts that can be attached. My car is a lease so nothing for you there. I live in a furnished apartment so there isn't anything there you can get. All you can do with your judgment is garnish my wages and the first time that I get a paycheck that has been garnished I will quit my job. So what do we have here Peg? A good years worth of lawyers fees out of your pocket and all for maybe two hundred dollars out of one paycheck. 
 
  "All that's left for you to try is to go back to the judge and get him to threaten me with going to jail for contempt of court if I don't comply with his orders. All that will get you Peg is a post card from me from some small fishing village in Mexico where I will take up residence until my money runs out. And I've got a lot Peg, thanks to you. Face it Peggy. You fucked over me, got caught and I got even. Consider yourself fortunate. Think about what happened to your boyfriend and consider yourself very fortunate. He lost his balls and now he can never fuck with another man's wife. You, on the other hand, can still spread for anyone you want." 
 

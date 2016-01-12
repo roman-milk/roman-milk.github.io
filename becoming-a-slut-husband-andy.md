@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Andy
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Andy ****** byJust_Plain_Bob© The fact that it wasn't really my fault (honest - it wasn't) didn't seem to mean a damn thing to my wife. She decided to punish me anyway and in doing so she just may have ended our marriage. 
+ 
+
+===
+
+The fact that it wasn't really my fault (honest - it wasn't) didn't seem to mean a damn thing to my wife. She decided to punish me anyway and in doing so she just may have ended our marriage. 
 
  I have two problems, neither of which I can do anything about. The first is relatively minor and easily controlled - I can't hold my liquor. I have a low tolerance for alcohol and it doesn't take a lot to fuck me up. Like I said, easily controlled, all I have to do is not drink, but I like to have a good time as much as the next guy so at parties I'll usually have one or two drinks and nurse them all night except for sometimes when I don't and then I end up shitfaced. 
 
@@ -146,6 +152,10 @@
 
  
 
- ****** Becoming A Slut Husband: Andy ****** byJust_Plain_Bob© I have no idea what Leslie chose to do because I haven't gone home yet. I stopped at Mary's like I promised and was surprised when I walked into the room to find that she had Anna with her. Anna was another name from the list. Both women were naked except for high heels. Mary grinned and said, "I told you I would help. What do you think Tiger, can you handle us both?" I grinned and started to undress and Mary said, "I told Anna about the list and she said she would help with getting you the others, but she wants the same deal you gave me, okay?" 
+ 
+
+===
+
+I have no idea what Leslie chose to do because I haven't gone home yet. I stopped at Mary's like I promised and was surprised when I walked into the room to find that she had Anna with her. Anna was another name from the list. Both women were naked except for high heels. Mary grinned and said, "I told you I would help. What do you think Tiger, can you handle us both?" I grinned and started to undress and Mary said, "I told Anna about the list and she said she would help with getting you the others, but she wants the same deal you gave me, okay?" 
 
  I just smiled and thought, "God Andy, but you are such a slut." Report_Story 

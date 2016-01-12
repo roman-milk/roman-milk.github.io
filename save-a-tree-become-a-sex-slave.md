@@ -1,8 +1,14 @@
+Save a Tree Become a Sex Slave
+==============================
 #1 
 
  
 
- ****** Save a Tree Become a Sex Slave ****** bysilkstockingslover© Summary: Daughter used to blackmail MILF mom into sexual servitude. 
+ 
+
+===
+
+Summary: Daughter used to blackmail MILF mom into sexual servitude. 
 
  Note: This is an Earth Day 2013 Contest story so please vote. 
 
@@ -332,7 +338,11 @@
 
  
 
- ****** Save a Tree Become a Sex Slave ****** bysilkstockingslover© Finally their conversation ended and he asked, "Are you ready to begin your training Mrs. White?" 
+ 
+
+===
+
+Finally their conversation ended and he asked, "Are you ready to begin your training Mrs. White?" 
 
  I tried one last time to convince him to change his mind. Taking his cock out of mouth, and stretching my jaw, I replied, "Please, Mr. Jones, I promise I will never be a bother again." 
 

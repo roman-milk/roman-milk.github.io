@@ -1,8 +1,14 @@
+The LW Troll
+============
 #1 
 
  
 
- ****** The LW Troll ****** bygeronimo_appleby© Well, I thought I might as well enjoy myself. 
+ 
+
+===
+
+Well, I thought I might as well enjoy myself. 
 
  I had Snakes in mind when I wrote this. It didn't take long to do. I just imagined him having a good time. 
 

@@ -1,8 +1,14 @@
+Something About Mary
+====================
 #1 
 
  
 
- ****** Something About Mary ****** bygeronimo_appleby© Please forgive any errors in the punctuation in the following. I've gone over it several times -- taking stuff out, putting it back... 
+ 
+
+===
+
+Please forgive any errors in the punctuation in the following. I've gone over it several times -- taking stuff out, putting it back... 
 
  This may just stand alone or I may write on. It depends on how it does and people's feedback -- and whether I have time to continue! 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Something About Mary ****** bygeronimo_appleby© Mary took the opportunity presented to her. Jake had volunteered to take the half a mile walk to the supermarket for wine and beer, leaving the two women alone. The evening so far possessed a surreal edge for Mary. She had behaved normally, spoken normally, and played the part of unconcerned holidaymaker to perfection, but all the time her thoughts had been in constant turmoil. Now she had the chance to voice her concerns to the cause. 
+ 
+
+===
+
+Mary took the opportunity presented to her. Jake had volunteered to take the half a mile walk to the supermarket for wine and beer, leaving the two women alone. The evening so far possessed a surreal edge for Mary. She had behaved normally, spoken normally, and played the part of unconcerned holidaymaker to perfection, but all the time her thoughts had been in constant turmoil. Now she had the chance to voice her concerns to the cause. 
 
  "I thought you had something on your mind," Helena responded coolly. "I wonder what it could be." Her impassive expression broke into a smirk. 
 
@@ -420,7 +430,11 @@
 
  
 
- ****** Something About Mary ****** bygeronimo_appleby© James ran his fingers through his daughter's dark hair and then lowered his face to hers. He tasted his cum on her tongue and knew he would be ready to fuck her again very soon. 
+ 
+
+===
+
+James ran his fingers through his daughter's dark hair and then lowered his face to hers. He tasted his cum on her tongue and knew he would be ready to fuck her again very soon. 
 
  "I love you, Baby." 
 

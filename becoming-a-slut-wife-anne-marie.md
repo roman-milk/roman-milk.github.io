@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Anne-Marie
+================================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Anne-Marie ****** byJust_Plain_Bob© I'm a trusting kind of guy. I've been married to Ann-Marie for over twenty years now and in all that time I've never been unfaithful to her and I never even considered that she might not be true to me. Imagine my surprise when I found evidence that she was not only unfaithful, but unfaithful in a big way. 
+ 
+
+===
+
+I'm a trusting kind of guy. I've been married to Ann-Marie for over twenty years now and in all that time I've never been unfaithful to her and I never even considered that she might not be true to me. Imagine my surprise when I found evidence that she was not only unfaithful, but unfaithful in a big way. 
 
  +++++++++++++++++++++++++++++++++++ 
 

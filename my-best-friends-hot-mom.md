@@ -1,8 +1,14 @@
+My Best Friend's Hot Mom
+========================
 #1 
 
  
 
- ****** My Best Friend's Hot Mom ****** bysilkstockingslover© Summary: Young stud bangs MILF in all 3 holes during hot summer day. 
+ 
+
+===
+
+Summary: Young stud bangs MILF in all 3 holes during hot summer day. 
 
  Note: This is a summer 2014 Contest story so please vote. 
 
@@ -334,7 +340,11 @@
 
  
 
- ****** My Best Friend's Hot Mom ****** bysilkstockingslover© Suddenly my belly growled, "So did you order food?" 
+ 
+
+===
+
+Suddenly my belly growled, "So did you order food?" 
 
  "Still hungry?" She smiled seductively. 
 

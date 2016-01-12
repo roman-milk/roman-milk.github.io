@@ -1,8 +1,14 @@
+Catherine
+=========
 #1 
 
  
 
- ****** Catherine ****** byJust_Plain_Bob© We had been to my cousin's wedding reception and were on our way home when my wife Catherine slid over next to me and put her hand on my leg. I knew what she wanted; hell, she'd been wanting it all night. She had wanted it as we were getting ready to go to the wedding, but I had put her off because we were running late. She had been 'antsy' ever since. Twice during the reception she had tried to maneuver me into an empty room for a quickie, but instead of thinking of her steaming hot pussy I thought of the consequences of getting caught so I put her off again. I knew that she had to be so horny that she wanted to scream, but I had to put her off one more time because there just wasn't any way to take care of a wife who was eight months pregnant on the front seat of a pick up truck. I told her to hang on just a little bit longer and we'd be home soon. She had giggled and said, "Give me something to hang on to" and her hands had gone to my zipper. 
+ 
+
+===
+
+We had been to my cousin's wedding reception and were on our way home when my wife Catherine slid over next to me and put her hand on my leg. I knew what she wanted; hell, she'd been wanting it all night. She had wanted it as we were getting ready to go to the wedding, but I had put her off because we were running late. She had been 'antsy' ever since. Twice during the reception she had tried to maneuver me into an empty room for a quickie, but instead of thinking of her steaming hot pussy I thought of the consequences of getting caught so I put her off again. I knew that she had to be so horny that she wanted to scream, but I had to put her off one more time because there just wasn't any way to take care of a wife who was eight months pregnant on the front seat of a pick up truck. I told her to hang on just a little bit longer and we'd be home soon. She had giggled and said, "Give me something to hang on to" and her hands had gone to my zipper. 
 
  I don't know if it is the same with all women – my experience was limited to Catherine – but when she got pregnant she became a sex fiend. We went from three or four times a week to six and seven times a week and the farther along she got the more insatiable she became. There were mornings when I couldn't wait to get out of the house and get to work just so I could get some rest. I couldn't get away from her at the house. Taking a shower the curtain would be suddenly pulled aside and there would be Catherine smiling at me. She would get in the shower with me and I would end up taking her from behind while she leaned against the wall. I would be working in the basement and she would come down the stairs in nothing but high-heeled pumps, sweep whatever I was working on off the workbench and then lay back on it and make 'come here' gestures with her fingers. One Saturday I was in the garage changing the oil in my pick up and she came in and slid up on the hood of her Accord, lifted her skirt and started fingering herself. 
 

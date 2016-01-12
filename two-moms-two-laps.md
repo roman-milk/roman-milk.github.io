@@ -1,8 +1,14 @@
+Two Moms, Two Laps: Home Rules
+==============================
 #1 
 
  
 
- ****** Two Moms, Two Laps: Home Rules ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  The mom's set the rules and Dad gets involved. 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** Two Moms, Two Laps: Home Rules ****** byTx_Tall_Tales© I groaned and let loose, filling that sexy, warm opening. 
+ 
+
+===
+
+I groaned and let loose, filling that sexy, warm opening. 
 
  She let me finish, and I felt her tongue teasing me, the wetness of her full mouth incredible. She pulled back, until just the head was between her lips, and swallowed. She slid her lips back over the head, sucking me, making me squirm. I was super sensitive, and each time her tongue stroked me, I jerked. 
 
@@ -512,7 +522,11 @@
 
  
 
- ****** Two Moms, Two Laps: Home Rules ****** byTx_Tall_Tales© "Not even in the same league. If you're a ten, there not even five's. Hell, I might have to come up with a whole new scale." I rose up on my elbows, looking down at her. "That was mean, Mom. Completely unfair." 
+ 
+
+===
+
+"Not even in the same league. If you're a ten, there not even five's. Hell, I might have to come up with a whole new scale." I rose up on my elbows, looking down at her. "That was mean, Mom. Completely unfair." 
 
  She looked at me puzzled. "What?" 
 
@@ -734,7 +748,11 @@
 
  
 
- ****** Two Moms, Two Laps: Home Rules ****** byTx_Tall_Tales© "I know," I said, stroking her smooth back. "When I said I wanted to share you, I meant like now. He can have you sometimes, and so can I. Not together." 
+ 
+
+===
+
+"I know," I said, stroking her smooth back. "When I said I wanted to share you, I meant like now. He can have you sometimes, and so can I. Not together." 
 
  She ran her tongue across my chest, making my erection harden. "I know, sugar. It's just too easy to tease you." 
 
@@ -982,7 +1000,11 @@
 
  
 
- ****** Two Moms, Two Laps: Home Rules ****** byTx_Tall_Tales© Mom wiggled her ass. "You boys have fun," she said cheerfully, heading into the house. 
+ 
+
+===
+
+Mom wiggled her ass. "You boys have fun," she said cheerfully, heading into the house. 
 
  Dad sat back down and took a deep swig of beer. "Almost forty years old. Your Penny might be cute as a button, but she's got nothing on your mother." 
 
@@ -1168,7 +1190,11 @@
 
  
 
- ****** Two Moms, Two Laps: Home Rules ****** byTx_Tall_Tales© "Harold!" Mom gasped. 
+ 
+
+===
+
+"Harold!" Mom gasped. 
 
  "Now Alice. I'm not waiting a minute more." 
 
@@ -1266,7 +1292,11 @@
 
  
 
- ****** Two Moms, Two Laps: Innocence Lost ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  Mom is off-limits, but Jeremy has a plan to make her accessible again. 
 
@@ -1550,7 +1580,11 @@
 
  
 
- ****** Two Moms, Two Laps: Innocence Lost ****** byTx_Tall_Tales© "That's nice. Now can you take a hint? I like sucking. A lot." 
+ 
+
+===
+
+"That's nice. Now can you take a hint? I like sucking. A lot." 
 
  "Can you get naked with me?" I asked. 
 
@@ -1872,7 +1906,11 @@
 
  
 
- ****** Two Moms, Two Laps: Innocence Lost ****** byTx_Tall_Tales© She giggled, looking away from the camera. "Oops. Now look what I've done! Time to start all over again. Sorry, this one's all mine." She blew a kiss at the camera. 
+ 
+
+===
+
+She giggled, looking away from the camera. "Oops. Now look what I've done! Time to start all over again. Sorry, this one's all mine." She blew a kiss at the camera. 
 
  I wasn't really hard, although I was getting there. "You are a naughty little tease, aren't you?" 
 
@@ -2174,7 +2212,11 @@
 
  
 
- ****** Two Moms, Two Laps: Innocence Lost ****** byTx_Tall_Tales© "Hey Mom and Dad, he's about to blow," we heard her announce. I watched her bring me to the edge, the camera shot getting wobbly when I climbed off the bed, following her, taking a last few strokes in her mouth before bathing her face in my cum, and watching her clean herself. 
+ 
+
+===
+
+"Hey Mom and Dad, he's about to blow," we heard her announce. I watched her bring me to the edge, the camera shot getting wobbly when I climbed off the bed, following her, taking a last few strokes in her mouth before bathing her face in my cum, and watching her clean herself. 
 
  "If you were here Alice, I'd let you clean them for me. I'd let you lick my whole face clean," she said to the camera. 
 
@@ -2468,7 +2510,11 @@
 
  
 
- ****** Two Moms, Two Laps: Innocence Lost ****** byTx_Tall_Tales© "Mom, nothing happened. You told me a naughty story. That's all. I'm not going to do anything with you behind Dad's back." 
+ 
+
+===
+
+"Mom, nothing happened. You told me a naughty story. That's all. I'm not going to do anything with you behind Dad's back." 
 
  She hugged me tightly, almost painfully. "Win me, Jeremy. You can win me from him, I know. I don't know how, but he'll share me with you if you do. Win Mommy, baby." 
 
@@ -2750,7 +2796,11 @@
 
  
 
- ****** Two Moms, Two Laps: Innocence Lost ****** byTx_Tall_Tales© She went back to sucking faster, her hand moving quickly, desperate for my seed. She looked up at the camera, her eyes pleading. I was hardening in her mouth, coming close, and she responding by moaning for me. She had a wonderful rhythm going, maybe a dozen strokes of her head, before pressing me to the back of her throat, holding me there for a few seconds. She would pull off, lick my length and do it again. She was driving me crazy. 
+ 
+
+===
+
+She went back to sucking faster, her hand moving quickly, desperate for my seed. She looked up at the camera, her eyes pleading. I was hardening in her mouth, coming close, and she responding by moaning for me. She had a wonderful rhythm going, maybe a dozen strokes of her head, before pressing me to the back of her throat, holding me there for a few seconds. She would pull off, lick my length and do it again. She was driving me crazy. 
 
  "Yes," she moaned, stroking me, holding the head at the edge of her mouth, moments before I came. I groaned, shooting hard, rope after rope into that teasing warm opening. She sucked me gently, until I stopped, then pulled the head away, showing a mouth full of my cum. She moved her tongue around, then tilted her head back and swallowed. Opening her mouth again, you could see she'd finished most of it. She smiled, taking my cock in her mouth, and pulling it out, messy with my cum. She sucked it back in cleaning it, and when she opened her mouth again, it was empty. 
 
@@ -2820,7 +2870,11 @@
 
  
 
- ****** Two Moms, Two Laps: Laying Penny ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  Laying the groundwork (and Penny) for a culture of sharing 
 
@@ -3120,7 +3174,11 @@
 
  
 
- ****** Two Moms, Two Laps: Laying Penny ****** byTx_Tall_Tales© "Like mother, like daughter," Colleen answered, sounding proud. 
+ 
+
+===
+
+"Like mother, like daughter," Colleen answered, sounding proud. 
 
  "Stop you two. If you keep that up, I'm not going to last two minutes." 
 
@@ -3416,7 +3474,11 @@
 
  
 
- ****** Two Moms, Two Laps: Laying Penny ****** byTx_Tall_Tales© "You liked it?" I teased. 
+ 
+
+===
+
+"You liked it?" I teased. 
 
  She hit me. "Asshole! You tore me open, fucked me inside out, reshaped my insides and forced me to come all over that monster cock, endlessly. You were supposed to be gentle, you fucking animal! I'm ruined for all other men now. God! I loved it." She kissed my lips softly. "We're going to be doing that a lot more often. Just as soon as my dislocated hips heal, and my poor kitty stops feeling like there's a Red Bull can still stuffed inside of me." 
 
@@ -3754,7 +3816,11 @@
 
  
 
- ****** Two Moms, Two Laps: Laying Penny ****** byTx_Tall_Tales© "Like it was yesterday," he said, hugging her close. 
+ 
+
+===
+
+"Like it was yesterday," he said, hugging her close. 
 
  "How difficult it was for me? For a long time?" 
 
@@ -4078,7 +4144,11 @@
 
  
 
- ****** Two Moms, Two Laps: Laying Penny ****** byTx_Tall_Tales© Dad stood over her, his cock red and angry. "Open up, Alice. Now!" he said very firmly. I was shocked by her response, sitting up, stretching her head forward, opening her mouth wide, sticking her tongue out. Dad slid his cock between her lips and looking back at the paused image of Aunt Marie's puckered butt-hole, he came in Mom's mouth, groaning. She swallowed his load, sucking softly until he pulled away. Dad stroked her cheek. "Very good, Alice. Good girl." 
+ 
+
+===
+
+Dad stood over her, his cock red and angry. "Open up, Alice. Now!" he said very firmly. I was shocked by her response, sitting up, stretching her head forward, opening her mouth wide, sticking her tongue out. Dad slid his cock between her lips and looking back at the paused image of Aunt Marie's puckered butt-hole, he came in Mom's mouth, groaning. She swallowed his load, sucking softly until he pulled away. Dad stroked her cheek. "Very good, Alice. Good girl." 
 
  She smiled, her eyes still closed. "Thank you, Harold," she murmured, settling back into my arms. 
 
@@ -4246,7 +4316,11 @@
 
  
 
- ****** Two Moms, Two Laps: Movie Night ****** byTx_Tall_Tales© Lap Moms 5: Two Moms, Two Laps: Movie Night by Tx Tall Tales © ============================= 
+ 
+
+===
+
+Lap Moms 5: Two Moms, Two Laps: Movie Night by Tx Tall Tales © ============================= 
 
  Movie night at home will never be the same 
 
@@ -4610,7 +4684,11 @@
 
  
 
- ****** Two Moms, Two Laps: Movie Night ****** byTx_Tall_Tales© "He will. And he'll dream about it until he does. Don't give it all away the first time. In the mouth, swallowing, deep-throat, face-fucking, those are gifts we give him gradually, specials. He'll appreciate them all the more that way. You only get one first time." 
+ 
+
+===
+
+"He will. And he'll dream about it until he does. Don't give it all away the first time. In the mouth, swallowing, deep-throat, face-fucking, those are gifts we give him gradually, specials. He'll appreciate them all the more that way. You only get one first time." 
 
  She got off the bed, and picked up her shirt, wiping her face clean. I had hoped she was going to let Penny lick her clean, like she had done for her daughter. 
 
@@ -4958,7 +5036,11 @@
 
  
 
- ****** Two Moms, Two Laps: Movie Night ****** byTx_Tall_Tales© "Aunt Marie taught me. We've been getting lots of practice." 
+ 
+
+===
+
+"Aunt Marie taught me. We've been getting lots of practice." 
 
  "Figures she'd be an expert at that." 
 
@@ -5224,7 +5306,11 @@
 
  
 
- ****** Two Moms, Two Laps: Movie Night ****** byTx_Tall_Tales© "I told you to be gentle," Mom said. 
+ 
+
+===
+
+"I told you to be gentle," Mom said. 
 
  "Mom! You were the one telling me to go harder! Everyone heard it." 
 
@@ -5586,7 +5672,11 @@
 
  
 
- ****** Two Moms, Two Laps: Movie Night ****** byTx_Tall_Tales© I held her until she calmed, and noticed she'd sunk all the way down, taking my entire length. She gave me a tiny smile. "Perfect. You are always perfect." 
+ 
+
+===
+
+I held her until she calmed, and noticed she'd sunk all the way down, taking my entire length. She gave me a tiny smile. "Perfect. You are always perfect." 
 
  "I loved that," I told her honestly. 
 
@@ -5832,7 +5922,11 @@
 
  
 
- ****** Two Moms, Two Laps: Old Wounds ****** byTx_Tall_Tales© Lap Moms 6: Two Moms, Two Laps: Old Wounds 
+ 
+
+===
+
+Lap Moms 6: Two Moms, Two Laps: Old Wounds 
 
  ============================= 
 
@@ -6164,7 +6258,11 @@
 
  
 
- ****** Two Moms, Two Laps: Old Wounds ****** byTx_Tall_Tales© "Why, Mom? Wearing nothing but that thin shirt, and those tiny panties, sitting in my lap for hours?" 
+ 
+
+===
+
+"Why, Mom? Wearing nothing but that thin shirt, and those tiny panties, sitting in my lap for hours?" 
 
  "I've sat in your lap before," she said. 
 
@@ -6486,7 +6584,11 @@
 
  
 
- ****** Two Moms, Two Laps: Old Wounds ****** byTx_Tall_Tales© She relaxed, her arms hugging me tightly. "Oh, Jeremy. You're too good to me." 
+ 
+
+===
+
+She relaxed, her arms hugging me tightly. "Oh, Jeremy. You're too good to me." 
 
  I laughed, running my hand down her side. "Impossible. Nothing's too good for my special girl. My first fantasy woman. My confidante and teacher." 
 
@@ -6788,7 +6890,11 @@
 
  
 
- ****** Two Moms, Two Laps: Old Wounds ****** byTx_Tall_Tales© I was stunned. I'd really thought things were going well. Damn it. 
+ 
+
+===
+
+I was stunned. I'd really thought things were going well. Damn it. 
 
  She stomped off without an answer, practically running down the stairs. I heard her bellowing for Colin and I was almost back on the first floor when she started interrogating him. 
 
@@ -7048,7 +7154,11 @@
 
  
 
- ****** Two Moms, Two Laps: Old Wounds ****** byTx_Tall_Tales© For a moment I felt jealous of Colin. I imagine once his mother got over the fact that Mom had given him a BJ, he'd be getting more action from Aunt Marie than I would. 
+ 
+
+===
+
+For a moment I felt jealous of Colin. I imagine once his mother got over the fact that Mom had given him a BJ, he'd be getting more action from Aunt Marie than I would. 
 
  I guess I'd been too pensive, for too long. Mom gave me a squeeze. "Whatcha thinking about, Jeremy? No more planning I hope." 
 
@@ -7078,7 +7188,11 @@
 
  
 
- ****** Two Moms, Two Laps: Quiet ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  Storms on the Horizon for Moms and Sons 
 
@@ -7362,7 +7476,11 @@
 
  
 
- ****** Two Moms, Two Laps: Quiet ****** byTx_Tall_Tales© "Is this what you want, Jeremy? End your relationship like that? I thought you liked her? More than liked her. You're just going to throw her away, over a stupid lunch seating?" 
+ 
+
+===
+
+"Is this what you want, Jeremy? End your relationship like that? I thought you liked her? More than liked her. You're just going to throw her away, over a stupid lunch seating?" 
 
  "It's not what I want," I snapped, getting tired of the carping. "I wanted a loyal girlfriend. Someone I could trust when we were apart, not turning to the first guy she sees, the first chance she gets. I'm not going to share her. If that's what she wants, she picked the wrong guy." I stood up. "There, I explained myself. She made her choice. I've accepted it. Time to move on." I turned and walked back upstairs, leaving the meddlesome Mom's in my wake. 
 
@@ -7600,7 +7718,11 @@
 
  
 
- ****** Two Moms, Two Laps: Quiet ****** byTx_Tall_Tales© I kissed her, and she kissed me back. She leaned against me, her soft body pressed against mine. I cradled her in my arms, determined to never let her go. Next time I'd just confront the guy immediately. Make it clear that she was mine, and I wasn't going to give her up without a fight. She was mine, damn it. 
+ 
+
+===
+
+I kissed her, and she kissed me back. She leaned against me, her soft body pressed against mine. I cradled her in my arms, determined to never let her go. Next time I'd just confront the guy immediately. Make it clear that she was mine, and I wasn't going to give her up without a fight. She was mine, damn it. 
 
  I woke up to Colleen shaking my shoulder. She was gentle, nudging me awake. "You want to stay here, Jeremy? Should we call your house?" 
 
@@ -7964,7 +8086,11 @@
 
  
 
- ****** Two Moms, Two Laps: Quiet ****** byTx_Tall_Tales© "We're having some issues. Big issues, really. Mom, Dad, Aunt Marie, me, even Colin. Family stuff. I'd love to tell you, but I don't think it's my place. It's mostly about Dad and Mom." 
+ 
+
+===
+
+"We're having some issues. Big issues, really. Mom, Dad, Aunt Marie, me, even Colin. Family stuff. I'd love to tell you, but I don't think it's my place. It's mostly about Dad and Mom." 
 
  "That's hard to believe. They're obviously nuts about each other. Is that why he's home on a Monday morning?" 
 
@@ -8212,7 +8338,11 @@
 
  
 
- ****** Two Moms, Two Laps: Quiet ****** byTx_Tall_Tales© "A few. Nothing like you guys." 
+ 
+
+===
+
+"A few. Nothing like you guys." 
 
  "Crap." 
 
@@ -8576,7 +8706,11 @@
 
  
 
- ****** Two Moms, Two Laps: Rage ****** byTx_Tall_Tales© Lap Moms 8: Two Moms, Two Laps: Rage 
+ 
+
+===
+
+Lap Moms 8: Two Moms, Two Laps: Rage 
 
  by Tx Tall Tales © 
 
@@ -9064,7 +9198,11 @@
 
  
 
- ****** Two Moms, Two Laps: Rage ****** byTx_Tall_Tales© "She seems to like it," he argued. 
+ 
+
+===
+
+"She seems to like it," he argued. 
 
  "Trust me Colin. What did your Mom say?" 
 
@@ -9454,7 +9592,11 @@
 
  
 
- ****** Two Moms, Two Laps: Rage ****** byTx_Tall_Tales© "You threw the first punch. Knocked him on his ass without any warning!" 
+ 
+
+===
+
+"You threw the first punch. Knocked him on his ass without any warning!" 
 
  He chuckled. "Yeah, I did, didn't I? One punch." 
 
@@ -9842,7 +9984,11 @@
 
  
 
- ****** Two Moms, Two Laps: Rage ****** byTx_Tall_Tales© She pulled off, gagging, coughing a couple of times. She sat up, wiping her mouth and eyes. I saw a shiver travel down her body. 
+ 
+
+===
+
+She pulled off, gagging, coughing a couple of times. She sat up, wiping her mouth and eyes. I saw a shiver travel down her body. 
 
  She smiled. "That was different." 
 
@@ -10126,7 +10272,11 @@
 
  
 
- ****** Two Moms, Two Laps: Rage ****** byTx_Tall_Tales© "Me neither, to be honest. I never expected him to hit me like that." She peeked over my shoulder. "Check out Alice." 
+ 
+
+===
+
+"Me neither, to be honest. I never expected him to hit me like that." She peeked over my shoulder. "Check out Alice." 
 
  I looked over, and Mom was cuddling up to Colin. His hand was stroking up and down her thigh, right up to the edge of her shorts, but no further. 
 
@@ -10278,7 +10428,11 @@
 
  
 
- ****** Two Moms, Two Laps: Taking Charge ****** byTx_Tall_Tales© Lap Moms 9: Two Moms, Two Laps: Taking Charge by Tx Tall Tales © ============================= 
+ 
+
+===
+
+Lap Moms 9: Two Moms, Two Laps: Taking Charge by Tx Tall Tales © ============================= 
 
  There's a new Sheriff in town. 
 
@@ -10586,7 +10740,11 @@
 
  
 
- ****** Two Moms, Two Laps: Taking Charge ****** byTx_Tall_Tales© "Honey, sex is different. You can feel love for our family, but you don't get to screw everyone you meet." 
+ 
+
+===
+
+"Honey, sex is different. You can feel love for our family, but you don't get to screw everyone you meet." 
 
  "I told Mom that if she wasn't in my bed, you would be." 
 
@@ -10982,7 +11140,11 @@
 
  
 
- ****** Two Moms, Two Laps: Taking Charge ****** byTx_Tall_Tales© "C'mon Aunt Marie. You've got the best tits in Texas. Give us a peek." 
+ 
+
+===
+
+"C'mon Aunt Marie. You've got the best tits in Texas. Give us a peek." 
 
  She was blushing. "Are you crazy?" 
 
@@ -11370,7 +11532,11 @@
 
  
 
- ****** Two Moms, Two Laps: Taking Charge ****** byTx_Tall_Tales© "I guess we'll just have to make sure they don't get that chance then." 
+ 
+
+===
+
+"I guess we'll just have to make sure they don't get that chance then." 
 
  I nuzzled between her legs, chewing on her butt, opening her legs wide, licking her through the nearly transparent material. "Naughty... boy," she groaned sexily. 
 
@@ -11706,7 +11872,11 @@
 
  
 
- ****** Two Moms, Two Laps: Taking Charge ****** byTx_Tall_Tales© She ignored me, holding my hips down and moving up the tree. Number four of the secret seven. "Mom..." I whined. 
+ 
+
+===
+
+She ignored me, holding my hips down and moving up the tree. Number four of the secret seven. "Mom..." I whined. 
 
  She chuckled and it felt wild, as I settled deep into her throat. I groaned, and Aunt Marie was watching me intently. "What?" she whispered. 
 
@@ -12018,7 +12188,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  This little tale is an homage to some of the most popular stories on Literotica. 
 
@@ -12210,7 +12384,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© Maybe it was just the beers talking. The idea seemed beyond crazy to me. I mean, Aunt Marie was always teasing, but this was a new extreme. Especially since Mom would be involved too. But Mom and Aunt Marie seemed to think it the most natural solution in the world. 
+ 
+
+===
+
+Maybe it was just the beers talking. The idea seemed beyond crazy to me. I mean, Aunt Marie was always teasing, but this was a new extreme. Especially since Mom would be involved too. But Mom and Aunt Marie seemed to think it the most natural solution in the world. 
 
  Colin, on the other hand, seemed to be even more shocked by the concept than me. He kept looking back and forth between our mothers, the mere idea of what they were talking about short-circuiting his brain. 
 
@@ -12420,7 +12598,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© She looked like she was about to answer, when the Jeep came to a near stop, then turned onto the paved road. I held her tight while we got tossed around for a second, before the Jeep started to straighten out and pick up speed. "Everyone doing Ok?" Dad asked. 
+ 
+
+===
+
+She looked like she was about to answer, when the Jeep came to a near stop, then turned onto the paved road. I held her tight while we got tossed around for a second, before the Jeep started to straighten out and pick up speed. "Everyone doing Ok?" Dad asked. 
 
  Mom announced that they were alright up front. 
 
@@ -12652,7 +12834,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© "A Gatorade would be nice," I said. Then I grabbed her hand and pulled her closer. I whispered in her ear. "You might want to get some breath mints." 
+ 
+
+===
+
+"A Gatorade would be nice," I said. Then I grabbed her hand and pulled her closer. I whispered in her ear. "You might want to get some breath mints." 
 
  She nodded. "You don't know the half of it. That stuff doesn't sit well in my stomach. And you had to pump out enough to choke a pro. I'm gonna need some pepto, or alka-seltzer or something. I hope you appreciate it." 
 
@@ -12884,7 +13070,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© She settled back down, burying her head in my shoulder. "I can't believe I'm telling you all this." 
+ 
+
+===
+
+She settled back down, burying her head in my shoulder. "I can't believe I'm telling you all this." 
 
  "Mom, you have no idea what this means to me. I feel closer to you than I ever have." 
 
@@ -13144,7 +13334,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© I took my hands away from her breasts long enough to pull her forearms across her toned belly. I gripped them tightly with one hand, pulling her back against my chest. She struggled against my hands half-heartedly. "Don't, Jeremy. Please don't." 
+ 
+
+===
+
+I took my hands away from her breasts long enough to pull her forearms across her toned belly. I gripped them tightly with one hand, pulling her back against my chest. She struggled against my hands half-heartedly. "Don't, Jeremy. Please don't." 
 
  I raised my other hand back to her breast, and tweaked her nipple, making her gasp. I pressed my lips against hers softly. "Close your eyes, Mom. Feel me." 
 
@@ -13424,7 +13618,11 @@
 
  
 
- ****** Two Moms, Two Laps, Two Hours ****** byTx_Tall_Tales© I climbed out of the Jeep, stretching my legs and making sure I was decent. Didn't look too bad. Dad was already carrying two suitcases inside, and I grabbed one of the coolers. 
+ 
+
+===
+
+I climbed out of the Jeep, stretching my legs and making sure I was decent. Didn't look too bad. Dad was already carrying two suitcases inside, and I grabbed one of the coolers. 
 
  "Leave that in the garage, Jeremy," Mom said, "and I'll take care of the meat later." 
 
@@ -13442,7 +13640,11 @@
 
  
 
- ****** Two Moms, Two Laps: United ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  Don't you love it when a family comes together? 
 
@@ -13766,7 +13968,11 @@
 
  
 
- ****** Two Moms, Two Laps: United ****** byTx_Tall_Tales© "You and Kelly doing Ok?" I asked. 
+ 
+
+===
+
+"You and Kelly doing Ok?" I asked. 
 
  He grinned. "Better than Ok. I only wish we'd gotten together sooner. She's leaving in a week and a half." 
 
@@ -14076,7 +14282,11 @@
 
  
 
- ****** Two Moms, Two Laps: United ****** byTx_Tall_Tales© "Irresistible, remember?" I leaned down and kissed her. 
+ 
+
+===
+
+"Irresistible, remember?" I leaned down and kissed her. 
 
  She chuckled. "We're really going to have to do something about your morning breath, Dear. No kissing until after cleanup." 
 
@@ -14396,7 +14606,11 @@
 
  
 
- ****** Two Moms, Two Laps: United ****** byTx_Tall_Tales© "Time?" Mom asked. 
+ 
+
+===
+
+"Time?" Mom asked. 
 
  "Eight and a half minutes," Aunt Marie answered softly. 
 
@@ -14688,7 +14902,11 @@
 
  
 
- ****** Two Moms, Two Laps: United ****** byTx_Tall_Tales© Mom kissed me deeply. "We're going to have so much fun training her, aren't we?" 
+ 
+
+===
+
+Mom kissed me deeply. "We're going to have so much fun training her, aren't we?" 
 
  I chuckled, then felt Marie climb back on top of me. I felt her warmth envelope my cock, then she was lying on top of me, Mom scooting over to give her room. "That was naughty, Sissy," Marie whined. 
 

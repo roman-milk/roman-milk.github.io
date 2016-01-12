@@ -1,8 +1,14 @@
+What to Do With a Drunken Sailor
+================================
 #1 
 
  
 
- ****** What to Do With a Drunken Sailor ****** byJust_Plain_Bob© There is a refrain from a song that keeps playing over and over in my head. I don't even remember for sure where it came from. I think it was something from the Kingston Trio back in the mid to late Sixties although I wouldn't bet on it. It goes: 
+ 
+
+===
+
+There is a refrain from a song that keeps playing over and over in my head. I don't even remember for sure where it came from. I think it was something from the Kingston Trio back in the mid to late Sixties although I wouldn't bet on it. It goes: 
 
  "What to do with a drunken sailor, what to do with a drunken sailor, what to do with a drunken sailor early in the morning." 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** What to Do With a Drunken Sailor ****** byJust_Plain_Bob© "I came home and climbed into the bathtub and scrubbed myself for hours, but I could never get to where I felt clean. That night about six Chad called and said he wanted to come over and I told him no. Then he told me that he knew that I liked what he had done, he wanted more and he was coming right over. I told him no again, but then I lied and said you had called, said you had gotten your elk and were coming home early and I expected you at any minute and then I said, "Here he is now" and I hung up on him. 
+ 
+
+===
+
+"I came home and climbed into the bathtub and scrubbed myself for hours, but I could never get to where I felt clean. That night about six Chad called and said he wanted to come over and I told him no. Then he told me that he knew that I liked what he had done, he wanted more and he was coming right over. I told him no again, but then I lied and said you had called, said you had gotten your elk and were coming home early and I expected you at any minute and then I said, "Here he is now" and I hung up on him. 
 
  "At work on Monday the girls all tried to pretend that Saturday never happened and we kind of reached an unspoken agreement never to mention it. I did tell Linda to tell Chad to stop calling me and she said she would." 
 

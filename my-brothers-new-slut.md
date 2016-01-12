@@ -1,8 +1,14 @@
+My Brother's New Slut
+=====================
 #1 
 
  
 
- ****** My Brother's New Slut ****** byJust_Plain_Bob© The nice thing about coming from a family where both parents have good paying jobs is that you don't have to live in the dorm unless you want to. I spent my first two years in college living in a dorm, but in my junior year I wanted to be able to party and I talked mom and dad into spring for an apartment. They were leery until I used the argument that I needed to start learning how to live on my own against the day I graduated. 
+ 
+
+===
+
+The nice thing about coming from a family where both parents have good paying jobs is that you don't have to live in the dorm unless you want to. I spent my first two years in college living in a dorm, but in my junior year I wanted to be able to party and I talked mom and dad into spring for an apartment. They were leery until I used the argument that I needed to start learning how to live on my own against the day I graduated. 
 
  It wasn't party, party, party - I did work hard at keeping my grades up - but I wanted to be able to "get down" on Friday and Saturday nights, bring ladies into my bed and not have to worry about being caught. I wanted to be able to drink and not have to sweat getting a DUI while driving home from a party or have the asshole campus cops stop me for staggering across the quad. I wanted unsupervised freedom. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** My Brother's New Slut ****** byJust_Plain_Bob© I don't really know if there is a difference between a climax and an orgasm or whether they are different names for the same thing, but to me this was an orgasm. It was ten times more intense than the previous one - and I kept my hands on her tits and my mouth working on her cunt to try and make it last as long as I could. She kept crying out, "Oh fuck, oh fuck, oh fuck" as her body shook and then she started to come down from the high. "Oh god, oh Jesus, oh sweet fucking Jesus" she moaned and then she surprised the hell out of me. "Keep eating me you cocksucker" and she grabbed my cock. I braced myself, expecting her to do some bodily harm, but instead I felt her hot mouth engulf my cock. I kept licking and sucking and playing with her tits while Mindy gave me some of the best head I'd ever gotten. For several minutes she worked on me and then suddenly she pulled away from me, swung around and mounted me. 
+ 
+
+===
+
+I don't really know if there is a difference between a climax and an orgasm or whether they are different names for the same thing, but to me this was an orgasm. It was ten times more intense than the previous one - and I kept my hands on her tits and my mouth working on her cunt to try and make it last as long as I could. She kept crying out, "Oh fuck, oh fuck, oh fuck" as her body shook and then she started to come down from the high. "Oh god, oh Jesus, oh sweet fucking Jesus" she moaned and then she surprised the hell out of me. "Keep eating me you cocksucker" and she grabbed my cock. I braced myself, expecting her to do some bodily harm, but instead I felt her hot mouth engulf my cock. I kept licking and sucking and playing with her tits while Mindy gave me some of the best head I'd ever gotten. For several minutes she worked on me and then suddenly she pulled away from me, swung around and mounted me. 
 
  Then she fucked me. It was all Mindy - I just laid there as she moved up and down and rocked back and forth and moaned. It went on for several minutes and then the moans started to get louder and she started slamming herself down on me, "Oh fuck, oh fuck, oh god damn it, oh sweet fucking Jesussssssss" she wailed as she had an orgasm. Her body shook, her cunt muscles contracted squeezing my dick and I shot into her. Mindy's body slowly stopped shaking and then she rolled off me leaving me staring up at he ceiling trying to catch my breath. Finally I looked over at Mindy and saw that she was asleep. 
 

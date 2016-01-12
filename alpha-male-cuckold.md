@@ -1,8 +1,14 @@
+Alpha Male Cuckold
+==================
 #1 
 
  
 
- ****** Alpha Male Cuckold ****** byGotBacon© Dave is a bean counter. He is 42 years old. He stands 5 ft 9 in tall. He weighs 230 pounds. His job requires him to sit all day long. He has given up on keeping his weight down. He was once a fit and handsome man, but that is way in the past. His sex drive has all but gone too. Sometimes his cock works just fine. Sometimes it works part of the time and sometimes it doesn't work at all. He is at his mid life crisis. His way of handling it is to basically ignore it. He is a prime candidate for Viagra, but he won't admit it. 
+ 
+
+===
+
+Dave is a bean counter. He is 42 years old. He stands 5 ft 9 in tall. He weighs 230 pounds. His job requires him to sit all day long. He has given up on keeping his weight down. He was once a fit and handsome man, but that is way in the past. His sex drive has all but gone too. Sometimes his cock works just fine. Sometimes it works part of the time and sometimes it doesn't work at all. He is at his mid life crisis. His way of handling it is to basically ignore it. He is a prime candidate for Viagra, but he won't admit it. 
 
  Debbie is 37 years old. She stands 5 ft 4 in tall. She weights 115 pounds. She has brown hair and green eyes. He smile lights up the room. She works at a department store as the manager of women' apparel. She is very good looking and gets a lot of male attention. So far she has remained faithful to Dave. She thinks of taking a lover, but no one has appealed to her. She relies on her power tools for satisfaction. 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** Alpha Male Cuckold ****** byGotBacon© I slowly slide his hard cock up in my pussy. I squeeze it and it slides in me. Halfway in he flexes and I scream out and cum. He looks at me and smiles. I drop hard and his cock hits my cervix. I scream and cum again. 
+ 
+
+===
+
+I slowly slide his hard cock up in my pussy. I squeeze it and it slides in me. Halfway in he flexes and I scream out and cum. He looks at me and smiles. I drop hard and his cock hits my cervix. I scream and cum again. 
 
  "Oh baby. My pussy is so sensitive. You make me cum so easy. You cock is poking into my cervix now. It's where I want you cum to go." 
 

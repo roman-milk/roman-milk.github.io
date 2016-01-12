@@ -1,8 +1,14 @@
+Best Friends Become More
+========================
 #1 
 
  
 
- ****** Best Friends Become More ****** bysilkstockingslover© NOTE 1: This is a Nude Day 2012 contest story so please enjoy and vote. 
+ 
+
+===
+
+NOTE 1: This is a Nude Day 2012 contest story so please enjoy and vote. 
 
  NOTE 2: Thanks to Estragon for copy-editing and catching a couple of plot flaws in the original draft and LaRascasse for plot suggestions. 
 
@@ -258,7 +264,11 @@
 
  
 
- ****** Best Friends Become More ****** bysilkstockingslover© Deciding to continue my aggressive nature, I broke the kiss and moved to her voluptuous breasts. Zoey, for the first time ever, was speechless, the only sounds escaping her lips being soft moans as my tongue swirled around her left, extremely hard and protruding, nipple. I cupped her breast and splattered kisses all over it as I explored every inch. A couple of minutes later, I switched breasts and replicated the concentrated exploration. Zoey had always said her breasts were her most electric erogenous zone, mine were my ears, and by the time I was done with her right breast her breathing was getting erratic. 
+ 
+
+===
+
+Deciding to continue my aggressive nature, I broke the kiss and moved to her voluptuous breasts. Zoey, for the first time ever, was speechless, the only sounds escaping her lips being soft moans as my tongue swirled around her left, extremely hard and protruding, nipple. I cupped her breast and splattered kisses all over it as I explored every inch. A couple of minutes later, I switched breasts and replicated the concentrated exploration. Zoey had always said her breasts were her most electric erogenous zone, mine were my ears, and by the time I was done with her right breast her breathing was getting erratic. 
 
  Zoey finally speaking, although it was more of a bewildered moan, whimpered, "Oh God,I can't believe this is happening. Mia, you have me ready to burst." 
 

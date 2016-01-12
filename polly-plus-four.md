@@ -1,8 +1,14 @@
+Polly Plus Four
+===============
 #1 
 
  
 
- ****** Polly Plus Four ****** byJust_Plain_Bob© I had never considered myself a mean and vindictive guy, at least not up until the day that I discovered my wife Polly was fucking my next door neighbor. 
+ 
+
+===
+
+I had never considered myself a mean and vindictive guy, at least not up until the day that I discovered my wife Polly was fucking my next door neighbor. 
 
  It was a Saturday and I was supposed to be playing eighteen holes of golf, but I pulled a muscle lifting my clubs out of my trunk and there was no way I was going to be able to swing a club that day so I got back in the car and headed home. I turned on our street just in time to see Mel, my next door neighbor, walk in my front door. Mel's wife works at the Piggly Wiggly as a cashier and she works on the weekends. I pulled over and parked at the curb. See if you can follow my thought process here. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** Polly Plus Four ****** byJust_Plain_Bob© I looked at her and then at the Llama. I ejected the clip and pulled the slide back to make sure the chamber was clear and then I set the pistol on the bedside table and then looked at her standing there looking down at me. 
+ 
+
+===
+
+I looked at her and then at the Llama. I ejected the clip and pulled the slide back to make sure the chamber was clear and then I set the pistol on the bedside table and then looked at her standing there looking down at me. 
 
  "What do you mean that you aren't going to leave me?" 
 

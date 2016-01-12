@@ -1,8 +1,14 @@
+Josephine
+=========
 #1 
 
  
 
- ****** Josephine ****** bygeronimo_appleby© Thanks to Private_Label and Black Tulip for the suggestions and their time. 
+ 
+
+===
+
+Thanks to Private_Label and Black Tulip for the suggestions and their time. 
 
  July 1916 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Josephine ****** bygeronimo_appleby© Josephine took hold of my hand and placed my finger against a small nub of skin. Her reaction to the pressure I applied to the spot was alarming and at first I thought I'd hurt her. 
+ 
+
+===
+
+Josephine took hold of my hand and placed my finger against a small nub of skin. Her reaction to the pressure I applied to the spot was alarming and at first I thought I'd hurt her. 
 
  'More,' she whispered, 'touch me there more, please.' 
 

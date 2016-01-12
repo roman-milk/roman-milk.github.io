@@ -1,8 +1,14 @@
+Joanna: Mia Cara
+================
 #1 
 
  
 
- ****** Joanna: Mia Cara ****** bygeronimo_appleby© Thank you to those who helped me with this piece. In no particular order - LM, janey, and IC. Any errors or bits you don't like are entirely down to me. 
+ 
+
+===
+
+Thank you to those who helped me with this piece. In no particular order - LM, janey, and IC. Any errors or bits you don't like are entirely down to me. 
 
  
 
@@ -122,7 +128,11 @@
 
  
 
- ****** Joanna: Mia Cara ****** bygeronimo_appleby© Joanna's fist slid back and forth along her husband's engorged length. "My God, Eduard," Carla blurted. "Ronaldo's got a decent sized cock, but yours is so thick! If I'd known how blessed you were ..." She continued to stare for a moment and then blurted, "Joanna, get up, let him lie here; I want to suck that cock." 
+ 
+
+===
+
+Joanna's fist slid back and forth along her husband's engorged length. "My God, Eduard," Carla blurted. "Ronaldo's got a decent sized cock, but yours is so thick! If I'd known how blessed you were ..." She continued to stare for a moment and then blurted, "Joanna, get up, let him lie here; I want to suck that cock." 
 
  Joanna let go of Eduard's penis and shifted her position onto her elbows before she heaved herself upright onto her knees. Her dress fell back to cover her modesty, but her breasts were still bare and swayed and jiggled as she moved. She stood and finally came face to face with her husband, their eyes now on the same level. Joanna cast her gaze down to the floor when she experienced the flare of guilt. The responsibility for what happened next in her marriage was hers. Eduard might be caught up in the heat of the moment, but what would happen tomorrow? Would he still want her? 
 

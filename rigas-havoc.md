@@ -1,8 +1,14 @@
+Riga's Havoc Ch. 01
+===================
 #1 
 
  
 
- ****** Riga's Havoc Ch. 01 ****** bygeronimo_appleby© A mind control story. I considered non-human as well, but opted for the mind control. 
+ 
+
+===
+
+A mind control story. I considered non-human as well, but opted for the mind control. 
 
  Thanks to Sulk for her comments and help during the development of the story. I think she had fun! Thanks also to Private Label for the proof and the edit. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Riga's Havoc Ch. 01 ****** bygeronimo_appleby© 'Come and sit between us, honey,' Jennifer drawled and slid away from Chrissie. 
+ 
+
+===
+
+'Come and sit between us, honey,' Jennifer drawled and slid away from Chrissie. 
 
  The driver moved over to the back seat and simply gazed at Jennifer's big, round breasts. She laughed at the expression on his face and held lifted the heaviness of herself to him. 'Touch them,' she whispered huskily. 'Kiss them,' she added, and the man fell against her with a groan. He pawed at Jennifer's jugs and slobbered over them, and his limp cock slowly twitched and began to show signs of interest. 
 
@@ -268,7 +278,11 @@
 
  
 
- ****** Riga's Havoc Ch. 01 ****** bygeronimo_appleby© Riga knew that Chrissie was close to her climax, and he manoeuvred himself nest to the girl's face in preparation for his own release. He took hold of Chrissie's blonde hair with one hand, and his other fist blurred as he pulled at his cock. 
+ 
+
+===
+
+Riga knew that Chrissie was close to her climax, and he manoeuvred himself nest to the girl's face in preparation for his own release. He took hold of Chrissie's blonde hair with one hand, and his other fist blurred as he pulled at his cock. 
 
  'Are you going to come on me you filthy bastard?' Chrissie asked when she saw Riga's pre cum soaked glans close to her face. 'Are you going to spray my face with your jizz? Do it, do it over me. Do it on my tongue while this bitch fucks me.' Chrissie closed her eyes and opened her mouth as a target for Riga to shoot into. Her body stiffened and she groaned loudly and the first jet of Riga's semen sprayed against the pink of her outstretched tongue. Riga's ejaculation splashed across Chrissie's face as the girl closed her mouth to swallow the thick drops that hit her tongue. She cried out and writhed spastically as she continued to climax, and Riga's goo clung to her face where it had spattered hotly as he came loudly himself. 
 

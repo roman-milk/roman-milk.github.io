@@ -1,8 +1,14 @@
+The Naive Wife
+==============
 #1 
 
  
 
- ****** The Naive Wife ****** byJust_Plain_Bob© I've been married to Ben for seven years and sometimes I wonder how I've managed to stay with him and not go crazy. He's a good man and he takes very good care of me. You might even say that he puts me up on a pedestal, but he has what is, to me anyway, a major flaw - he is cheap! 
+ 
+
+===
+
+I've been married to Ben for seven years and sometimes I wonder how I've managed to stay with him and not go crazy. He's a good man and he takes very good care of me. You might even say that he puts me up on a pedestal, but he has what is, to me anyway, a major flaw - he is cheap! 
 
  Well, maybe frugal is a better way of saying it. We never lacked for the necessities of life, but Ben was obsessed with putting away money for a rainy day and if the rainy day never came all the better, we would have plenty in the bank for retirement. But I wasn't interested in something that was thirty-five years away; I lived in the here and now and I wanted to enjoy things while I was still young. I was tired of vacations consisting of throwing a tent in the trunk of the car and then driving to the nearest State Park for a week. I wanted to travel and see other places, but Ben always said no, that it would cost too much, "Better to stay close to home and put the money in the bank where it might do us some good one day." 
 

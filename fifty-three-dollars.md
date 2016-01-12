@@ -1,8 +1,14 @@
+Fifty-Three Dollars
+===================
 #1 
 
  
 
- ****** Fifty-Three Dollars ****** byJust_Plain_Bob© Looking back on it I realize that I should have known how it was going to turn out. Back then the little head was in charge and I more or less followed its lead. 
+ 
+
+===
+
+Looking back on it I realize that I should have known how it was going to turn out. Back then the little head was in charge and I more or less followed its lead. 
 
  The little head was like a piece of steel and she was like a magnet that constantly pulled the little head to her. Just the way I met Monica told me everything that I should have needed to know, but the big head needs blood to operate just as the little head needs blood to inflate and Monica kept the little head inflated which kept the blood away from where it was needed most. 
 
@@ -276,7 +282,11 @@
 
  
 
- ****** Fifty-Three Dollars ****** byJust_Plain_Bob© "The baby sitter has to be home by ten. We have time for one more if you can get him up." 
+ 
+
+===
+
+"The baby sitter has to be home by ten. We have time for one more if you can get him up." 
 
  "With a little help I'm sure that I can." 
 
@@ -564,7 +574,11 @@
 
  
 
- ****** Fifty-Three Dollars ****** byJust_Plain_Bob© ++++++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++++++ 
 
  I picked the girls up at nine and we drove over to the gas station to get the Mustang. Mon drove my truck and followed me over to Ray's Collision. Ray looked over the car and asked me the same question that he always asked me every time I brought him a car to paint. 
 
@@ -740,7 +754,11 @@
 
  
 
- ****** Fifty-Three Dollars ****** byJust_Plain_Bob© "I want to do it. I'm ready to do it and I really, really want to do it, but I guess I need to be practical. If I do what I want and cut his cock off the blood will soak through the sheets and into the mattress and the asswipe isn't worth the cost of a new mattress. Just cut him loose and throw him out." 
+ 
+
+===
+
+"I want to do it. I'm ready to do it and I really, really want to do it, but I guess I need to be practical. If I do what I want and cut his cock off the blood will soak through the sheets and into the mattress and the asswipe isn't worth the cost of a new mattress. Just cut him loose and throw him out." 
 
  Then she looked Alex right in the eye and said, "I'm going to start carrying a knife to work with me and if you give me any more shit I swear to God I'll walk up to you in the middle of the office and bury the blade in your crotch! Believe it!" 
 

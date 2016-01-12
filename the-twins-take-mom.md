@@ -1,8 +1,14 @@
+The Twins Take Mom
+==================
 #1 
 
  
 
- ****** The Twins Take Mom ****** byGotBacon© Bill and Bob are 20 year old identical twins. They have brown hair, hazel eyes. They are 6 feet 4 inches tall. Bill weighs 215 pounds and Bob weighs 220. They are both exceedingly handsome. After this summer they will both be starting their second year in college. They are competitive and this causes them to be good at most things they try. They have their differences but it's never a problem for them. They excel at basketball, tennis and wrestling. No one messes with them. 
+ 
+
+===
+
+Bill and Bob are 20 year old identical twins. They have brown hair, hazel eyes. They are 6 feet 4 inches tall. Bill weighs 215 pounds and Bob weighs 220. They are both exceedingly handsome. After this summer they will both be starting their second year in college. They are competitive and this causes them to be good at most things they try. They have their differences but it's never a problem for them. They excel at basketball, tennis and wrestling. No one messes with them. 
 
  Their favorite pastime is double teaming the same girl. Sometimes they try to switch without the girls knowing it and sometimes they fuck two girls at the same time in the same room. Because of their good looks there are plenty of girls at college for them to choose from. They are very careful to use condoms. 
 

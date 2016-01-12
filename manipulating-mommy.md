@@ -1,8 +1,14 @@
+Manipulating Mommy
+==================
 #1 
 
  
 
- ****** Manipulating Mommy ****** bysilkstockingslover© Summary: A rebel son uses scripture to seduce his conservative Mother 
+ 
+
+===
+
+Summary: A rebel son uses scripture to seduce his conservative Mother 
 
  Note 1: This story was requested in the story ideas thread on Literotica and it is dedicated to Mike. 
 
@@ -338,7 +344,11 @@
 
  
 
- ****** Manipulating Mommy ****** bysilkstockingslover© "So I need to be cleansed and have the sin washed off of me," I suggested. 
+ 
+
+===
+
+"So I need to be cleansed and have the sin washed off of me," I suggested. 
 
  "Yes, you do," Mom said, agreeing completely. 
 

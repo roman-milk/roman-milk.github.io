@@ -1,8 +1,14 @@
+Fred's Whore
+============
 #1 
 
  
 
- ****** Fred's Whore ****** byJust_Plain_Bob© "You know your choices Bess. Stop your whining and get ready to do it or get your ass out of here." My wife Bess gave me a nasty look, but then she turned and went upstairs to get ready for the evening. 
+ 
+
+===
+
+"You know your choices Bess. Stop your whining and get ready to do it or get your ass out of here." My wife Bess gave me a nasty look, but then she turned and went upstairs to get ready for the evening. 
 
  My marriage to Bess was pretty much a sham, but it hadn't always been that way. For almost ten years it had been what I would have called a model marriage and indeed people had pointed at us and said, "That's what a marriage should be like." Not anymore! Six months ago the wheels had come off and the marriage had cratered. That Bess and I are still together is because Bess won't give up on trying to win me back. I don't think it is possible, but if she wants to try I'll let her. There is a price that she has to pay for being able to stay with me while she tries work things out with me and she's not happy that she has to pay it, but pay it she does. 
 

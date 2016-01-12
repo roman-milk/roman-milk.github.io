@@ -1,8 +1,14 @@
+Leanne and Her Lovers
+=====================
 #1 
 
  
 
- ****** Leanne and Her Lovers ****** bygeronimo_appleby© "Dammit." Leanne cursed perhaps a little loudly and, surprised at the expletive, the man seated next to her looked up. "Sorry," Leanne gave a wan smile and then lied. "I don't like flying too much." 
+ 
+
+===
+
+"Dammit." Leanne cursed perhaps a little loudly and, surprised at the expletive, the man seated next to her looked up. "Sorry," Leanne gave a wan smile and then lied. "I don't like flying too much." 
 
  "Hey, I understand," the man smiled, brightening considerably while obviously surveying Leanne's legs. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Leanne and Her Lovers ****** bygeronimo_appleby© "You taste divine, darling," he growled in the brief moment his mouth was detached from her mons. 
+ 
+
+===
+
+"You taste divine, darling," he growled in the brief moment his mouth was detached from her mons. 
 
  Leanne responded by grunting and gritting her teeth before pulling his face even closer. Her juice slid over his face as Luke tongued her desperately. He slid between her opening and her anus. He probed deep into her dirty-hole and then slid and slurped at her clitoris before plunging into the molten core of her. 
 
@@ -398,7 +408,11 @@
 
  
 
- ****** Leanne and Her Lovers ****** bygeronimo_appleby© Luke surrendered control of his cock to Leanne when the woman took a firm hold of it down at the root. He sighed as Leanne took a gentle dab at the purple dome with the tip of her tongue. Then, without breaking her gaze with James's, Leanne took a single lascivious lick from balls to tip. 
+ 
+
+===
+
+Luke surrendered control of his cock to Leanne when the woman took a firm hold of it down at the root. He sighed as Leanne took a gentle dab at the purple dome with the tip of her tongue. Then, without breaking her gaze with James's, Leanne took a single lascivious lick from balls to tip. 
 
  James knelt and Leanne immediately stopped her oral attention upon Luke's shaft. She pointed the blunt cock-head at James in invitation. 
 

@@ -1,8 +1,14 @@
+A Cuckold, Two Blondes, and BBC
+===============================
 #1 
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© Okay, a word of warning from the off -- if you're going to be offended by a white cuck husband whose wife gives herself to a group of black men, don't read this piece. If a scene that features black men impregnating white women turns you into a seething ball of outrage, don't read this piece. If you're going to get all snarled up with hate at descriptions of a white man cleaning a black man's semen from a white woman's pussy ... don't read this piece. 
+ 
+
+===
+
+Okay, a word of warning from the off -- if you're going to be offended by a white cuck husband whose wife gives herself to a group of black men, don't read this piece. If a scene that features black men impregnating white women turns you into a seething ball of outrage, don't read this piece. If you're going to get all snarled up with hate at descriptions of a white man cleaning a black man's semen from a white woman's pussy ... don't read this piece. 
 
  I wonder how many vitriolic public comments will still appear at the end of this scene when it's up on Lit -- even after the above paragraph. 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© Seeing his wife's tongue snake out to lick the pale bulb of the cock-head was agony. How could she do it after what the man had said? It felt like betrayal. 
+ 
+
+===
+
+Seeing his wife's tongue snake out to lick the pale bulb of the cock-head was agony. How could she do it after what the man had said? It felt like betrayal. 
 
  "Lick her or you're out of here," the man growled. "I'll fucking throw you out myself if you don't fucking get onto it." 
 
@@ -462,7 +472,11 @@
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© "I wanna fuck you again," Nathaniel groaned. "Take some time to suck Philip's cock," he muttered. "Taste your cunt on him." 
+ 
+
+===
+
+"I wanna fuck you again," Nathaniel groaned. "Take some time to suck Philip's cock," he muttered. "Taste your cunt on him." 
 
  Emma gasped and spluttered when Nathaniel eased his length from her gullet. She reached for it and worked her fist along the glistening shaft, reluctant to let it go. 
 
@@ -688,7 +702,11 @@
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© Tia yelped and squealed and smeared Philip's outpouring over her skin, apparently delighted at being liberally covered in jizm. 
+ 
+
+===
+
+Tia yelped and squealed and smeared Philip's outpouring over her skin, apparently delighted at being liberally covered in jizm. 
 
  "I fucking love it," she grinned. "A man's spunk all over me. I fucking love seeing a black cock coming." She struggled to her feet, her heavy-soled platform shoes cumbersome. Then, with no regard at all for the furniture Tia walked across the room and flopped into another two-seater settee. All scrunched up, with her back low down on the sofa, legs sprawled out in front of her, her spunk-smeared buttocks sliding over the leather, she then spread her thighs. 
 
@@ -918,7 +936,11 @@
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© But Emma was in full flow. She wanted to hurt him, to dig at him with her taunts. Emma wanted David to know it all -- every last sordid, depraved detail. Emma's nostrils flared and she folded her arms beneath her breasts. Her chin came up, a defiant gesture before she glared at the shell of her husband for long seconds. 
+ 
+
+===
+
+But Emma was in full flow. She wanted to hurt him, to dig at him with her taunts. Emma wanted David to know it all -- every last sordid, depraved detail. Emma's nostrils flared and she folded her arms beneath her breasts. Her chin came up, a defiant gesture before she glared at the shell of her husband for long seconds. 
 
  "It happened, David," Emma said. "I can prove it. You can see some of it if you don't believe me." 
 
@@ -1114,7 +1136,11 @@
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© "Jesus," David breathed, agog. "Emma ... Fucking hell ... Emma..." 
+ 
+
+===
+
+"Jesus," David breathed, agog. "Emma ... Fucking hell ... Emma..." 
 
  "Tia's a bad influence," Nathaniel said, chuckling. He gave a half shrug, lifting one shoulder. "I think your wife picked up some of her nasty habits," he added. "Tia likes to do the dirty talk." 
 
@@ -1314,7 +1340,11 @@
 
  
 
- ****** A Cuckold, Two Blondes, and BBC ****** bygeronimo_appleby© The sissy-boy blinked and avoided the grin, her eyes downcast. 
+ 
+
+===
+
+The sissy-boy blinked and avoided the grin, her eyes downcast. 
 
  Following behind Nathaniel, Philip walked into the house, economical with his words as usual. He just glanced at the sissy-boy as he went past. 
 

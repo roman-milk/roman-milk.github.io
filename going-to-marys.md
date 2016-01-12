@@ -1,8 +1,14 @@
+Going To Mary's
+===============
 #1 
 
  
 
- ****** Going To Mary's ****** byJust_Plain_Bob© Sam is a wonderful husband, a good provider and he loves me and I have never doubted it for one minute. But Sam is not all that great in bed. Barely adequate, but barely adequate doesn't cut it when you are young and have the strong sexual desires that I have. I have found something that helps take the edge off my sexual hunger - no, I better be honest here - that satisfies me completely and allows me to accept Sam as he is. I love him, I really do, but sex is a very powerful urge and a girl has to do what a girl has to do. 
+ 
+
+===
+
+Sam is a wonderful husband, a good provider and he loves me and I have never doubted it for one minute. But Sam is not all that great in bed. Barely adequate, but barely adequate doesn't cut it when you are young and have the strong sexual desires that I have. I have found something that helps take the edge off my sexual hunger - no, I better be honest here - that satisfies me completely and allows me to accept Sam as he is. I love him, I really do, but sex is a very powerful urge and a girl has to do what a girl has to do. 
 
  As I said, I have found something that works for me, but that something brings with it a problem. In order to be able to do what I want to do I have to get past Sam. Sam is insanely jealous and possessive and my leaving the house to go and get sexually satisfied would ring all kinds of alarm bells where he is concerned. But I know my Sam and I know that I can work it so that I can get what I want without Sam feeling threatened. What I had to do was get it out in the open in a way that would make Sam rest easy. 
 

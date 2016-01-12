@@ -1,8 +1,14 @@
+Nan's Boyfriends
+================
 #1 
 
  
 
- ****** Nan's Boyfriends ****** byJust_Plain_Bob© I knew something was up because Nan had been fidgety since I walked in the front door. It was one of the signs that she had something to say that she didn't think I was going to like to hear. After fifteen years of marriage I knew the signs and I also knew that I couldn't hurry things along. When Nan had something like that to say she had to work herself up to say it. So, while I waited for her to finish dinner I grabbed a beer and went into the living room to watch CNN. 
+ 
+
+===
+
+I knew something was up because Nan had been fidgety since I walked in the front door. It was one of the signs that she had something to say that she didn't think I was going to like to hear. After fifteen years of marriage I knew the signs and I also knew that I couldn't hurry things along. When Nan had something like that to say she had to work herself up to say it. So, while I waited for her to finish dinner I grabbed a beer and went into the living room to watch CNN. 
 
  When Nan called me for dinner I was surprised to see that she had opened a couple of bottles of wine, one on the table and one on the sideboard to 'breathe,' and she had already poured two glasses. Since we rarely had wine with our meals during the week I asked her what was the occasion. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Nan's Boyfriends ****** byJust_Plain_Bob© The rest of the weekend was pretty much shot as far as I was concerned. It didn't matter what I did I couldn't get Nan and her black lover and what they did out of my mind. Wherever I looked I saw Nan's white hands on the back of Chad's black head pulling his face into her cum filled pussy. I saw her head buried in the pillow and I heard her moans as Chad pushed his black cock into Nan's tight white ass. I saw them sixty-nine as I was trying to watch Fox News. I saw Nan on her knees with her head bobbing up and down on Chad's cock when I tried to watch the football game. 
+ 
+
+===
+
+The rest of the weekend was pretty much shot as far as I was concerned. It didn't matter what I did I couldn't get Nan and her black lover and what they did out of my mind. Wherever I looked I saw Nan's white hands on the back of Chad's black head pulling his face into her cum filled pussy. I saw her head buried in the pillow and I heard her moans as Chad pushed his black cock into Nan's tight white ass. I saw them sixty-nine as I was trying to watch Fox News. I saw Nan on her knees with her head bobbing up and down on Chad's cock when I tried to watch the football game. 
 
  It was like that all weekend and it was even like that when I tried to sleep. Saturday I had one dream where Nan was in a room with four black men and she was tugging on their cocks and saying "Eeny, meeny, miney moe" to choose the boyfriend who would fuck her for the next week. That dream faded and was replaced by one where Nan was standing on a street corner with a sign that said, "Need boyfriend to fuck me because my husband won't. Black only need to apply." Sunday I had the "Eeny meeny" dream again only this time Nan couldn't choose so she told them all to follow her into the bedroom. Then I followed and tried to peek into the room and someone slammed the door in my face. I didn't get much sleep all that weekend and when I woke up Monday morning I was a wreck. 
 

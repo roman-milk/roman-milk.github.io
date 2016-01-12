@@ -1,8 +1,14 @@
+Losing It Ch. 01
+================
 #1 
 
  
 
- ****** Losing It Ch. 01 ****** byJust_Plain_Bob© You remember when you were a young teenager, still a virgin, and with all of those raging hormones? The only thing important to you then was getting rid of your cherry; finding some girl willing to play 'doctor' with you, willing to let you lift her skirt and lead you to the promised land. 
+ 
+
+===
+
+You remember when you were a young teenager, still a virgin, and with all of those raging hormones? The only thing important to you then was getting rid of your cherry; finding some girl willing to play 'doctor' with you, willing to let you lift her skirt and lead you to the promised land. 
 
  Remember how you felt when your buddies would tell you that they had gotten laid? Remember drooling as they recounted each and ever juicy detail? Remember getting the name of the girl and hitting on her and being told to "Fuck off asshole?" 
 
@@ -126,7 +132,11 @@
 
  
 
- ****** Losing It Ch. 02 ****** byJust_Plain_Bob© I had managed to reach the age of eighteen with out having one incestuous thought and then during a weekend when my parents were gone I ended up having a red-hot incestuous affair with my sister. I blackmailed my sister into finding me a girl to take my hated virginity and when she couldn't find one she did it herself. When it was over she had said, "You don't feel the least bit bad at fucking your own sister do you?" Before I could answer she said, "Of course you don't. You would have fucked mom if it would have gotten your cherry popped. Maybe the next time that dad goes out of town you can try and nail her." 
+ 
+
+===
+
+I had managed to reach the age of eighteen with out having one incestuous thought and then during a weekend when my parents were gone I ended up having a red-hot incestuous affair with my sister. I blackmailed my sister into finding me a girl to take my hated virginity and when she couldn't find one she did it herself. When it was over she had said, "You don't feel the least bit bad at fucking your own sister do you?" Before I could answer she said, "Of course you don't. You would have fucked mom if it would have gotten your cherry popped. Maybe the next time that dad goes out of town you can try and nail her." 
 
  May had planted the thought and I found that it wouldn't go away. At forty-five my mom was still a fox, something that I guess that I had always known in the back of my mind, but she was my mom so I never looked at her that way. Then I committed incest with my sister and didn't get struck down by a bolt of fiery lightening and then May made the comment about nailing mom and suddenly that was all I could think about. Mind now, I lacked the confidence to actually make a move on mom, but that did not stop me from thinking about it. 
 
@@ -204,7 +214,11 @@
 
  
 
- ****** Losing It Ch. 03 ****** byJust_Plain_Bob© Looking back on it now I realize that it had to happen. It was just inevitable. I can only thank God that I wasn't there when it did. 
+ 
+
+===
+
+Looking back on it now I realize that it had to happen. It was just inevitable. I can only thank God that I wasn't there when it did. 
 
  I had been in a confusing incestuous threeway for almost a year. It started one night when my sister crawled into my bed and gained steam three months later when my mother caught me in her closet taping her being gangbanged by four men while my father was out of town on business. Sis knew about mom, but mom never knew about Sis. Between the two of them I was getting more pussy than I could handle. In fact I was getting so much pussy that I never ever bothered to get a girl friend. I was virgin when my sister crawled into my bed and she and mom were the only pussy that I ever had so I have nothing to use as a comparison, but I'd be willing to bet that there wasn't any better pussy in the world. 
 

@@ -1,8 +1,14 @@
+Kathy and Pete
+==============
 #1 
 
  
 
- ****** Kathy and Pete ****** byJust_Plain_Bob© My name is Kathy; I am 28 years old and married to a wonderful guy who is 12 years older than I am. Ken is a sales rep and he travels a lot, which means that I'm home alone a lot. Home alone is not a condition I care for so for the past two years I have been fucking around on Ken whenever he is out of town. Believe me, it is just for the sex. I am 5'6" and have auburn hair and I tape out at 34C-25-35. I keep my pussy shaved and I absolutely adore sex. 
+ 
+
+===
+
+My name is Kathy; I am 28 years old and married to a wonderful guy who is 12 years older than I am. Ken is a sales rep and he travels a lot, which means that I'm home alone a lot. Home alone is not a condition I care for so for the past two years I have been fucking around on Ken whenever he is out of town. Believe me, it is just for the sex. I am 5'6" and have auburn hair and I tape out at 34C-25-35. I keep my pussy shaved and I absolutely adore sex. 
 
  I love everything except anal sex and I have no desire to try anything really kinky like BDSM, golden showers or anything like that. I just love sucking cock and fucking and I really like girls too. Ken has no idea about the guys I've been having fun with and I pray that he never finds out because I really love him. He is a great sexual partner, but he just isn't there when he needs to be. He is marvelous in bed and if he were home all the time it really wouldn't matter, but he only has a 6 1/2 cock. As much as I love him and making love to him I have had large cocks in my life and I miss them. When I go out on the prowl I look for large bulges. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Kathy and Pete ****** byJust_Plain_Bob© Over the next month Pete fucked me in every room in my house and on damned near every piece of furniture and appliance that we owned. Ken was always in town, but never close like Pete wanted. Just when I was about to give up hope that it would ever happen (I wanted it, I wanted it bad - I wanted to see stars again) Ken gave us the opportunity. He hosted a poker party at our house. 
+ 
+
+===
+
+Over the next month Pete fucked me in every room in my house and on damned near every piece of furniture and appliance that we owned. Ken was always in town, but never close like Pete wanted. Just when I was about to give up hope that it would ever happen (I wanted it, I wanted it bad - I wanted to see stars again) Ken gave us the opportunity. He hosted a poker party at our house. 
 
  I told Pete about it and told him that it was our chance. 
 

@@ -1,8 +1,14 @@
+1974: A Summer of Incestuous Love
+=================================
 #1 
 
  
 
- ****** 1974: A Summer of Incestuous Love ****** bysilkstockingslover© Summary: A crazy summer forever changes father, daughter and son. 
+ 
+
+===
+
+Summary: A crazy summer forever changes father, daughter and son. 
 
  Note 1: Thanks to Bill who shared this story of his life and his special intimate loving relationship with his children. Much of the story and dialogue are Bill's words. 
 
@@ -228,7 +234,11 @@
 
  
 
- ****** 1974: A Summer of Incestuous Love ****** bysilkstockingslover© "Wow," I said, "that is a lot of alcohol in such a short time." 
+ 
+
+===
+
+"Wow," I said, "that is a lot of alcohol in such a short time." 
 
  "Like I said, I was pretty hammered," she repeated. 
 
@@ -478,7 +488,11 @@
 
  
 
- ****** 1974: A Summer of Incestuous Love ****** bysilkstockingslover© Nita, meanwhile, had an almost identical bikini in white that became just as sheer and transparent. I could almost make out the pores in her skin through the material. My cock was hard as a rock, thankfully hidden under my trunks, as I wrestled mentally over which of them was turning me on the most. 
+ 
+
+===
+
+Nita, meanwhile, had an almost identical bikini in white that became just as sheer and transparent. I could almost make out the pores in her skin through the material. My cock was hard as a rock, thankfully hidden under my trunks, as I wrestled mentally over which of them was turning me on the most. 
 
  We eventually wrapped up pool time and it was time to go home. We dried and dressed, thanked our hosts and Julie and I headed home. We were half way there when I realized I had left my watch on the table by the pool before going in the water. Julie then exclaimed she'd done the same thing, so both our watches were left behind. Only a few minutes away, I turned around and we pulled into Nita's driveway less than twenty minutes after we had left. The house was already dark, so not wanting to wake them, we decided to walk around the house and through the gate to the pool area. We were both trying to be very quiet and carefully opened the gate. Both of us stopped when we heard sounds that were definitely sex. 
 
@@ -720,7 +734,11 @@
 
  
 
- ****** 1974: A Summer of Incestuous Love ****** bysilkstockingslover© "Why not?" She asked. 
+ 
+
+===
+
+"Why not?" She asked. 
 
  Another stumper I couldn't answer, besides the obvious moral issue which she obviously wasn't concerned with. What reason do you give to a woman who's sucking your cock why she should stop, regardless of blood relation? "It's wrong, Julie. We can't keep doing this," I repeated, not really answering the question. 
 
@@ -966,7 +984,11 @@
 
  
 
- ****** 1974: A Summer of Incestuous Love ****** bysilkstockingslover© As she furiously pumped on his cock, she screamed "I'm coming" just as Billy's cum rocketed in the air. Julie took his still coming cock in her mouth, even as she trembled, and eagerly swallowed the rest of his cum. The scene was undeniably hot as my own cock seemed ready to burst. 
+ 
+
+===
+
+As she furiously pumped on his cock, she screamed "I'm coming" just as Billy's cum rocketed in the air. Julie took his still coming cock in her mouth, even as she trembled, and eagerly swallowed the rest of his cum. The scene was undeniably hot as my own cock seemed ready to burst. 
 
  She rolled beside him and said, her breathing still erratic, "That was spectacular, bro. Really good for a first time. I came super hard." 
 
@@ -1258,7 +1280,11 @@
 
  
 
- ****** 1974: A Summer of Incestuous Love ****** bysilkstockingslover© "Good God," I groaned, as my second orgasm in an hour hit, something I couldn't recall happening since college. 
+ 
+
+===
+
+"Good God," I groaned, as my second orgasm in an hour hit, something I couldn't recall happening since college. 
 
  She scooped my cum from her tits and put it to her lips, and said, "I love you, Daddy," before putting my cum in her mouth. 
 

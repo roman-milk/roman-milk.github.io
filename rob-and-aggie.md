@@ -1,8 +1,14 @@
+Rob and Aggie
+=============
 #1 
 
  
 
- ****** Rob and Aggie ****** byJust_Plain_Bob© I met Agnes in the ninth grade, started dating her and we were pretty much an established couple from the tenth grade on. We had no problems all the way through high school and -- cliché of all clichés -- we exchanged our virginities the night of the senior prom. Once we discovered sex we were at it every chance we got. 
+ 
+
+===
+
+I met Agnes in the ninth grade, started dating her and we were pretty much an established couple from the tenth grade on. We had no problems all the way through high school and -- cliché of all clichés -- we exchanged our virginities the night of the senior prom. Once we discovered sex we were at it every chance we got. 
 
  We had been talking about getting married since the eleventh grade and we had decided that we would wait until we finished college before tying the knot. 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** Rob and Aggie ****** byJust_Plain_Bob© That evening Aggie wanted to make love. 
+ 
+
+===
+
+That evening Aggie wanted to make love. 
 
  "I need something to hold me for the three nights you will be gone." 
 
@@ -408,7 +418,11 @@
 
  
 
- ****** Rob and Aggie ****** byJust_Plain_Bob© "Stop it Rob or I'll shot you." 
+ 
+
+===
+
+"Stop it Rob or I'll shot you." 
 
  I looked over at Aggie and saw that she was pointing a gun at me. 
 

@@ -1,8 +1,14 @@
+Beach Bubble Butts
+==================
 #1 
 
  
 
- ****** Beach Bubble Butts ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Brent) 
 
@@ -110,7 +116,11 @@
 
  
 
- ****** Beach Bubble Butts ****** byTheTalkMan© I tried to find some flaw in her. I realized that she was probably an easy lay. Sure, she was smoking hot, but it probably wouldn't be rocket science to bed her. A hot guy would probably be all that was required for her to spread her legs. Easy girls served their purpose, but they weren't as fun as other girls. I always preferred it when the girls I was with were confident. I always enjoyed confident, hot-bodied sluts, not airheaded, easy sluts. I always preferred it when the girls were the hunters, not the prey. It was never as much fun when you had to settle for the girls who were waiting to be picked up. It was always much more fun when the girls knew how to play the game. It was much more fun when the girls were slutty, but not pushovers. Girls who went after the man they wanted. Girls that wouldn't settle for a shitty pick up line. It was always much more fun when you had to work for the girl. I always liked when you immediately realized that a girl was a wildcat in the sack, but you had to work to be the man who would be honored to be taken home by her and see her talents in person. Seduction was the ultimate sport, and like any sport, the game was far more fun with a worthy competitor. 
+ 
+
+===
+
+I tried to find some flaw in her. I realized that she was probably an easy lay. Sure, she was smoking hot, but it probably wouldn't be rocket science to bed her. A hot guy would probably be all that was required for her to spread her legs. Easy girls served their purpose, but they weren't as fun as other girls. I always preferred it when the girls I was with were confident. I always enjoyed confident, hot-bodied sluts, not airheaded, easy sluts. I always preferred it when the girls were the hunters, not the prey. It was never as much fun when you had to settle for the girls who were waiting to be picked up. It was always much more fun when the girls knew how to play the game. It was much more fun when the girls were slutty, but not pushovers. Girls who went after the man they wanted. Girls that wouldn't settle for a shitty pick up line. It was always much more fun when you had to work for the girl. I always liked when you immediately realized that a girl was a wildcat in the sack, but you had to work to be the man who would be honored to be taken home by her and see her talents in person. Seduction was the ultimate sport, and like any sport, the game was far more fun with a worthy competitor. 
 
  It would take a lot of time and experience for a girl to get that good. I had banged a lot of high school girls back in the day, and not one of them was a worthy challenge. In my experience, it wasn't until a girl reached the later years of college when they started to become worthy adversaries. Those girls were always the most fun. And as hot as the girl in the pink bikini was, she was probably nowhere close to being a true master of seduction. 
 
@@ -236,7 +246,11 @@
 
  
 
- ****** Beach Bubble Butts ****** byTheTalkMan© "I know what you're thinking. Why saddle yourself with some dumb 18 year old slut? But the good thing is, my daddy is rich... and he is never around. To make up for never being around, he keeps my bank account nice and fat. I never have to worry about getting a job or any of that silliness. I spend my days lying by the pool, making myself pretty. If you knock me up, that life can be yours too. You don't have to work. You can just spend your days with me, keeping me nice and satisfied. You never have to work. You never have to worry about money. All you have to focus on is making me a mommy... again and again. I am so ready to be a mommy." Bree whispered. Damn, this girl was getting to me. She was so nasty. My dick was throbbing. 
+ 
+
+===
+
+"I know what you're thinking. Why saddle yourself with some dumb 18 year old slut? But the good thing is, my daddy is rich... and he is never around. To make up for never being around, he keeps my bank account nice and fat. I never have to worry about getting a job or any of that silliness. I spend my days lying by the pool, making myself pretty. If you knock me up, that life can be yours too. You don't have to work. You can just spend your days with me, keeping me nice and satisfied. You never have to work. You never have to worry about money. All you have to focus on is making me a mommy... again and again. I am so ready to be a mommy." Bree whispered. Damn, this girl was getting to me. She was so nasty. My dick was throbbing. 
 
  "My daddy bought me and my girls a beach house for the week. An early graduation gift for us girls. Now look at Maya." Bree started. I complied with her command. 
 
@@ -338,7 +352,11 @@
 
  
 
- ****** Beach Bubble Butts ****** byTheTalkMan© ********** 
+ 
+
+===
+
+********** 
 
  (Brent) 
 
@@ -474,7 +492,11 @@
 
  
 
- ****** Beach Bubble Butts ****** byTheTalkMan© If they would have let me, I would have passed out due to exhaustion. But Bree was not done with me. She pulled me off of her friend, pulling me to my knees. As she did, she smiled coyly at me before getting on all fours next to Maya. She imitated her friend, going head down, ass up. 
+ 
+
+===
+
+If they would have let me, I would have passed out due to exhaustion. But Bree was not done with me. She pulled me off of her friend, pulling me to my knees. As she did, she smiled coyly at me before getting on all fours next to Maya. She imitated her friend, going head down, ass up. 
 
  "Tell me, Brent." Bree started. "When's the last time you've had your dick up an 18 year-old's ass?" 
 

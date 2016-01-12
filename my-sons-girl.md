@@ -1,8 +1,14 @@
+My Son's Girl
+=============
 #1 
 
  
 
- ****** My Son's Girl ****** bygeronimo_appleby© I've done something appalling, something that I have tried to stop doing but can't. No matter how severely I berate myself with a vow never to repeat my actions in moments of remorse, I can't resist such an overwhelming power. It's not lust; lust is such a puny word when I compare it to the wash of sheer, irresistible craving that I feel. 
+ 
+
+===
+
+I've done something appalling, something that I have tried to stop doing but can't. No matter how severely I berate myself with a vow never to repeat my actions in moments of remorse, I can't resist such an overwhelming power. It's not lust; lust is such a puny word when I compare it to the wash of sheer, irresistible craving that I feel. 
 
  Ha! Lust, desire, wanting? Pathetic words, meaningless words that convey absolutely nothing of the intensity and depth of whatever this emotion is that I'm gripped by. 
 
@@ -146,6 +152,10 @@
 
  
 
- ****** My Son's Girl ****** bygeronimo_appleby© There's more to come, much more, but I'm at my wits end. I can't see any resolution to the conflict that is sure to arise when, and it's inevitable that he will find out. When my son discovers what his Dad and girlfriend are up to... 
+ 
+
+===
+
+There's more to come, much more, but I'm at my wits end. I can't see any resolution to the conflict that is sure to arise when, and it's inevitable that he will find out. When my son discovers what his Dad and girlfriend are up to... 
 
  Now, I've got to go. Adriana wants me to take her anally tonight. Something new for me and I just can't refuse. Report_Story 

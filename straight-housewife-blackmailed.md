@@ -1,8 +1,14 @@
+Straight Housewife Blackmailed
+==============================
 #1 
 
  
 
- ****** Straight Housewife Blackmailed ****** bysilkstockingslover© STRAIGHT HOUSEWIFE BLACKMAILED 
+ 
+
+===
+
+STRAIGHT HOUSEWIFE BLACKMAILED 
 
  SUMMARY: MILF mother will do whatever it takes to protect (her) daughter. 
 
@@ -386,7 +392,11 @@
 
  
 
- ****** Straight Housewife Blackmailed ****** bysilkstockingslover© "Okay," I agreed, just wanting them to leave so I could turtle up and cry. 
+ 
+
+===
+
+"Okay," I agreed, just wanting them to leave so I could turtle up and cry. 
 
  "Good," she said, spanking my ass as she went to the kitchen. 
 
@@ -766,7 +776,11 @@
 
  
 
- ****** Straight Housewife Blackmailed ****** bysilkstockingslover© "Is that any way to speak to your Mistress," Tamara asked. 
+ 
+
+===
+
+"Is that any way to speak to your Mistress," Tamara asked. 
 
  "This has got to end," I said, firmly. 
 

@@ -1,8 +1,14 @@
+Glenda
+======
 #1 
 
  
 
- ****** Glenda ****** byJust_Plain_Bob© You have a lot of time to think when you are sitting on a cot in a jail cell. No TV, no radio or newspapers to distract you, nothing but a wall with names and dates crudely scratched into it. You could spend time wondering what was behind RAMOS 4-12-81 or what the story was that went with I FUCKED MARIE AND HERE I AM, but I didn't. What I thought of mostly was why I was there - what caused me to be sitting in a jail cell. The primary reason was clear enough; another man found me with his wife and decided to get physical over it and it turned out that my game was better than his. The end result was that he was at the hospital emergency room and I was in jail, but the real question was why was I with his woman in the first place? Just what was it in my make up that had put us in my bed? 
+ 
+
+===
+
+You have a lot of time to think when you are sitting on a cot in a jail cell. No TV, no radio or newspapers to distract you, nothing but a wall with names and dates crudely scratched into it. You could spend time wondering what was behind RAMOS 4-12-81 or what the story was that went with I FUCKED MARIE AND HERE I AM, but I didn't. What I thought of mostly was why I was there - what caused me to be sitting in a jail cell. The primary reason was clear enough; another man found me with his wife and decided to get physical over it and it turned out that my game was better than his. The end result was that he was at the hospital emergency room and I was in jail, but the real question was why was I with his woman in the first place? Just what was it in my make up that had put us in my bed? 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

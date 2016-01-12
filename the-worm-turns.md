@@ -1,8 +1,14 @@
+The Worm Turns
+==============
 #1 
 
  
 
- ****** The Worm Turns ****** bygeronimo_appleby© One from me that I hope you enjoy. In this one a suburban housewife hears a tale of debauchery from her friend, and then wonders what it would be like to watch her husband with her friend ... 
+ 
+
+===
+
+One from me that I hope you enjoy. In this one a suburban housewife hears a tale of debauchery from her friend, and then wonders what it would be like to watch her husband with her friend ... 
 
  Feedback of the constructive criticism kind welcome; either in public comments section below, PM on Lit, or email. If you want a response, then email is best. 
 
@@ -162,7 +168,11 @@
 
  
 
- ****** The Worm Turns ****** bygeronimo_appleby© 'Fucking hell, Melanie!" Pete blurted, shocked yet suddenly overwhelmed with an animal lust. 'I'd love to fuck Loraine,' he groaned, sliding into his wife's body. He felt the heat of her as her insides clenched around his girth. He'd never felt so stiff, so fucking big. 'I'd bang her so hard, baby. I'd fuck her till she farted. I'd tear her cunt open and leave her sore and bow-legged.' 
+ 
+
+===
+
+'Fucking hell, Melanie!" Pete blurted, shocked yet suddenly overwhelmed with an animal lust. 'I'd love to fuck Loraine,' he groaned, sliding into his wife's body. He felt the heat of her as her insides clenched around his girth. He'd never felt so stiff, so fucking big. 'I'd bang her so hard, baby. I'd fuck her till she farted. I'd tear her cunt open and leave her sore and bow-legged.' 
 
  'Do that to me, Pete. Do it like that to me. Now!' Melanie jerked her hips frantically as she forced herself onto her husband's erection. 'Treat me like you'd treat Loraine. Really do it to me hard. Do it.' 
 

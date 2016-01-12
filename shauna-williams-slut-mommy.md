@@ -1,8 +1,14 @@
+Shauna Williams: Slut-Mommy Ch. 01
+==================================
 #1 
 
  
 
- ****** Shauna Williams: Slut-Mommy Ch. 01 ****** byWank_Gough© Ever since my parents got divorced I've met Pops at the 'Green Frog Café' most Fridays for a strawberry shake and a slice of cherry pie. 
+ 
+
+===
+
+Ever since my parents got divorced I've met Pops at the 'Green Frog Café' most Fridays for a strawberry shake and a slice of cherry pie. 
 
  It's kind of become a tradition between us and we have our favorite booth where we like to sit. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Shauna Williams: Slut-Mommy Ch. 01 ****** byWank_Gough© It was like Pops knew about all this latent potential within Shauna to be a slut-mommy. 
+ 
+
+===
+
+It was like Pops knew about all this latent potential within Shauna to be a slut-mommy. 
 
  "I'm going to spank you mom." I felt her body tense, but she made no movement to get away. 
 
@@ -322,7 +332,11 @@
 
  
 
- ****** Shauna Williams: Slut-Mommy Ch. 02 ****** byWank_Gough© Mary-Anne had joined us at our booth at the 'Green Frog' and was doing a damn fine impression of Shauna the slut-mommy confiding in her. The earnest expression and prudish stumblings over risque language were bang on. 
+ 
+
+===
+
+Mary-Anne had joined us at our booth at the 'Green Frog' and was doing a damn fine impression of Shauna the slut-mommy confiding in her. The earnest expression and prudish stumblings over risque language were bang on. 
 
  "I mean, Cletus likes to, you know...put it in there." She mimicked a delicate pointing to her rear. 
 
@@ -558,7 +572,11 @@
 
  
 
- ****** Shauna Williams: Slut-Mommy Ch. 02 ****** byWank_Gough© Cletus as the kinky but supportive lover would nurture her dependence by helping her manage her difficult son and Mary-Anne, Cletus and I would all be giving consistent messages to slut-mommy that she was doing well. It would just be that the strain was forever increasing for slut-mommy. 
+ 
+
+===
+
+Cletus as the kinky but supportive lover would nurture her dependence by helping her manage her difficult son and Mary-Anne, Cletus and I would all be giving consistent messages to slut-mommy that she was doing well. It would just be that the strain was forever increasing for slut-mommy. 
 
  Suzi would compliment Shauna on her extended nipples and encourage as much lactation as possible so that in the upcoming months Shauna's life would be an exhaustive combination of punishments, milking her breasts every few hours, and hopelessly trying to placate the contrary needs of her son and lover. 
 
@@ -584,7 +602,11 @@
 
  
 
- ****** Shauna Williams: Slut-Mommy Ch. 03 ****** byWank_Gough© Being involved with Pops and Cletus in Pop's masterwork was a real honor, but the bit I dug the most was when it was just me and Pops because that's when he would pass on what I liked to call 'Pop's pearls'. 
+ 
+
+===
+
+Being involved with Pops and Cletus in Pop's masterwork was a real honor, but the bit I dug the most was when it was just me and Pops because that's when he would pass on what I liked to call 'Pop's pearls'. 
 
  You see Cletus was a dang fine misogynist in his own right and he did have moments of true inspiration. Like convincing Shauna to stretch her cunt flaps. 
 
@@ -804,6 +826,10 @@
 
  
 
- ****** Shauna Williams: Slut-Mommy Ch. 03 ****** byWank_Gough© shame as a slut + guilt as a mother = slut-mommy. 
+ 
+
+===
+
+shame as a slut + guilt as a mother = slut-mommy. 
 
  I truly wandered just how many 'Pop's pearls' there would be and if they would all be as magnificent as his work to date. Report_Story 

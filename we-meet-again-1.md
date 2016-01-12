@@ -1,8 +1,14 @@
+We Meet Again
+=============
 #1 
 
  
 
- ****** We Meet Again ****** bygeronimo_appleby© It had been a couple of years since I'd last seen Erika and to be honest I didn't expect to ever hear from her again. Time had passed, fleetingly as is the nature of time when you reach the forty something stage of life and I'd just sort of let Erika drift away from me as the days slipped by. 
+ 
+
+===
+
+It had been a couple of years since I'd last seen Erika and to be honest I didn't expect to ever hear from her again. Time had passed, fleetingly as is the nature of time when you reach the forty something stage of life and I'd just sort of let Erika drift away from me as the days slipped by. 
 
  I'd worked at the same establishment as the busty blonde and I'd developed a bit of a 'thing' for her. I'd made my feelings pretty clear and even though Erika was spoken for, it appeared that she wasn't averse to any advances that I made. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** We Meet Again ****** bygeronimo_appleby© As Erika built towards her second orgasm I felt my own beginning its surge along my shaft. I struggled to control the rising tide but I could only let it wash over me as Erika writhed incessantly beneath me. The friction from her clasping vagina and the sight of her big breasts wobbling on her chest sent me crashing into the throes of my orgasm. 
+ 
+
+===
+
+As Erika built towards her second orgasm I felt my own beginning its surge along my shaft. I struggled to control the rising tide but I could only let it wash over me as Erika writhed incessantly beneath me. The friction from her clasping vagina and the sight of her big breasts wobbling on her chest sent me crashing into the throes of my orgasm. 
 
  My cock spat deep into Erika's body as I pumped and pumped what seemed to me to be an impossible volume of my seed into her. It felt as though Erika was sucking the flux from my balls, my prick pulsing with the effort of emptying its hot load up into her womb. 
 

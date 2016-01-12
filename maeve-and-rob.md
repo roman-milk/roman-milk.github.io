@@ -1,8 +1,14 @@
+Maeve and Rob Ch. 01
+====================
 #1 
 
  
 
- ****** Maeve and Rob Ch. 01 ****** byJust_Plain_Bob© It is my fault and I accept it. I don't try to blame anyone else. I allowed it to happen and up to the point where it went bad I was an active participant. If I blame it on anything it would have to be love. 
+ 
+
+===
+
+It is my fault and I accept it. I don't try to blame anyone else. I allowed it to happen and up to the point where it went bad I was an active participant. If I blame it on anything it would have to be love. 
 
  I fell head over heels in love with Maeve the first time I laid eyes on her. It was at a cocktail party that my company was throwing for our customers and suppliers. I was talking with the sales rep for the company that sold us some of the chemicals we use in our manufacturing process when she walked into the room. She was on the arm of a man I took an instant dislike to. Had never met, had never spoken to him, had never even heard of him, but my dislike was intense because she was with him and not me. 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Maeve and Rob Ch. 01 ****** byJust_Plain_Bob© "But I have a need to boss men around. The men I've gone out with since meeting you? In each of them I sensed a touch of the submissive so I dated them, pushed them around until I got sick of them and then walked away from them. As far as you being my base? That is partially true, but only partially. What you are Rob is my rock, my anchor. I need you Rob. I love you and I have to be with you. I feel empty when you aren't there for me. These last two months I've been absolutely miserable. I need you Rob; I really do need you." 
+ 
+
+===
+
+"But I have a need to boss men around. The men I've gone out with since meeting you? In each of them I sensed a touch of the submissive so I dated them, pushed them around until I got sick of them and then walked away from them. As far as you being my base? That is partially true, but only partially. What you are Rob is my rock, my anchor. I need you Rob. I love you and I have to be with you. I feel empty when you aren't there for me. These last two months I've been absolutely miserable. I need you Rob; I really do need you." 
 
  "Your need changes nothing Maeve. I meant what I said. I am not willing to be your 'main man'. It is 'only man' or nothing." 
 
@@ -446,7 +456,11 @@
 
  
 
- ****** Maeve and Rob Ch. 02 ****** byJust_Plain_Bob© It was hard to put Maeve out of my mind. Her scent was still on the bed. I washed the pillow covers, but her scent still lingered on the pillows themselves. Likewise the mattress. I kept finding things of hers that got left behind. A hairpin here, the button from a blouse there, a lipstick that had somehow rolled under the couch. 
+ 
+
+===
+
+It was hard to put Maeve out of my mind. Her scent was still on the bed. I washed the pillow covers, but her scent still lingered on the pillows themselves. Likewise the mattress. I kept finding things of hers that got left behind. A hairpin here, the button from a blouse there, a lipstick that had somehow rolled under the couch. 
 
  Maeve called me two or three times a day and I finally had to get an unlisted number for the home phone and a new cell phone number. She called me at work, but I had all ready bribed Donna to handle that. A couple of times when I came home from work she was waiting in the parking lot for me and as soon as I saw her I pulled out of the lot and found a sports bar where I could kill time until she left. 
 
@@ -628,7 +642,11 @@
 
  
 
- ****** Maeve and Rob Ch. 02 ****** byJust_Plain_Bob© "Is it Maeve? Then explain a few things to me" and I laid out all the signs that pointed to her cheating – besides the night at the Purple Mushroom and the night she brought Jack home with her. 
+ 
+
+===
+
+"Is it Maeve? Then explain a few things to me" and I laid out all the signs that pointed to her cheating – besides the night at the Purple Mushroom and the night she brought Jack home with her. 
 
  She looked down at the table and then said, "I swear to God Rob, there has never been anyone else." 
 

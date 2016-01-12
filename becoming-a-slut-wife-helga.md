@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Helga
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Helga ****** byJust_Plain_Bob© Even given what I'm going through now I would probably still do it over again if I had to. Bobby had tried to be honest and up front about it, but I wouldn't listen. We had dated for over eight months and for most of that time we had been sleeping together. One day I asked him when he was going to make an honest woman out of me and he told me that he wasn't going to. I was crushed. I thought we had something good going and then he tells me he has no intention of marrying me. But then he told me why. He was fifteen years older than I was, "When I'm sixty you will only be forty-five and in the peak of your sexual prime. I won't be able to take care of your needs and from forty-five to fifty- five those needs will only get stronger, but as I move from sixty to seventy I'll be less and less able to do anything for you. In fact, there is a damn good chance that I won't be able to help you at all." 
+ 
+
+===
+
+Even given what I'm going through now I would probably still do it over again if I had to. Bobby had tried to be honest and up front about it, but I wouldn't listen. We had dated for over eight months and for most of that time we had been sleeping together. One day I asked him when he was going to make an honest woman out of me and he told me that he wasn't going to. I was crushed. I thought we had something good going and then he tells me he has no intention of marrying me. But then he told me why. He was fifteen years older than I was, "When I'm sixty you will only be forty-five and in the peak of your sexual prime. I won't be able to take care of your needs and from forty-five to fifty- five those needs will only get stronger, but as I move from sixty to seventy I'll be less and less able to do anything for you. In fact, there is a damn good chance that I won't be able to help you at all." 
 
  I cried and I argued that none of that mattered and that as long as we had each other and our love for each other everything would work out for us. I finally wore him down and we were married. 
 

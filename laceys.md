@@ -1,8 +1,14 @@
+Lacey's First Double-Penetration
+================================
 #1 
 
  
 
- ****** Lacey's First Double-Penetration ****** byNonStopFunGuy© Robert saw how the stranger's eyes could not decide whether to fixate on his daughter Lacey's 18 year old little butt or her pointy B-cup titties. Lacey had just emerged from the house into the Saturday afternoon sunshine, preparing to go for a short jog. She had painted-on white thin running shorts and a soft pink cotton t-shirt that was a couple of years old, not hiding the bumps of her nipples. As Lacey arched her back brushing out her long dangling blonde hair, the guy who'd come to buy Robert's car was caught in mid-sentence, finding himself devouring the sight of the gorgeous thin teenager a few feet away. 
+ 
+
+===
+
+Robert saw how the stranger's eyes could not decide whether to fixate on his daughter Lacey's 18 year old little butt or her pointy B-cup titties. Lacey had just emerged from the house into the Saturday afternoon sunshine, preparing to go for a short jog. She had painted-on white thin running shorts and a soft pink cotton t-shirt that was a couple of years old, not hiding the bumps of her nipples. As Lacey arched her back brushing out her long dangling blonde hair, the guy who'd come to buy Robert's car was caught in mid-sentence, finding himself devouring the sight of the gorgeous thin teenager a few feet away. 
 
  Lacey's father repressed a grin, humored by his slutty daughter's constant ability to turn men into jello merely by walking into a room (or, in this case, walking outside). Robert pretended not to notice so as not to embarrass whateverhisnameis, John Somethingorother. Robert casually turned his back towards his daughter so he could plausibly deny knowing what had kidnapped the other guy's attention, instead slowly lowering the hood of the Miata back into place. 
 
@@ -134,7 +140,11 @@
 
  
 
- ****** Lacey's First Double-Penetration ****** byNonStopFunGuy© His eyes did not move from her nude, shaved pussy, and his tongue was licking saliva starting to drool out of his open mouth. "Um, no, what?" 
+ 
+
+===
+
+His eyes did not move from her nude, shaved pussy, and his tongue was licking saliva starting to drool out of his open mouth. "Um, no, what?" 
 
  The teenage slut giggled. "Now that I showed you mine, you have to show me yours." 
 
@@ -258,7 +268,11 @@
 
  
 
- ****** Lacey's First Double-Penetration ****** byNonStopFunGuy© The truck driver snorted again, and his smiled broadly. "Nice to make your acquaintance, Lacey honey," he chuckled as he thrust his erection harder into the girl's sloppy wet vagina. 
+ 
+
+===
+
+The truck driver snorted again, and his smiled broadly. "Nice to make your acquaintance, Lacey honey," he chuckled as he thrust his erection harder into the girl's sloppy wet vagina. 
 
  Lacey's reaction was sudden and guttural. "Fuck me, John, harder!" 
 
@@ -380,7 +394,11 @@
 
  
 
- ****** Lacey's First Double-Penetration ****** byNonStopFunGuy© She felt her father's kiss at the nape of her neck, under her. "I love you, baby," her daddy groaned in her ear. 
+ 
+
+===
+
+She felt her father's kiss at the nape of her neck, under her. "I love you, baby," her daddy groaned in her ear. 
 
  The blonde was gasping for air, feeling her body being ravaged, but she forced out a response. "Fuck, Daddy, I'm so hot, fuck me, both of you!" 
 
@@ -494,7 +512,11 @@
 
  
 
- ****** Lacey's First Double-Penetration ****** byNonStopFunGuy© Robert shook his head. "Naw, not really." 
+ 
+
+===
+
+Robert shook his head. "Naw, not really." 
 
  John then looked down at Lacey's face. "You want something?" Lacey politely smiled but declined. John shrugged again, pushing himself up from the bed, exiting Lacey's bedroom temporarily. 
 

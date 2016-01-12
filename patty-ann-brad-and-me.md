@@ -1,8 +1,14 @@
+Patty Ann, Brad and Me
+======================
 #1 
 
  
 
- ****** Patty Ann, Brad and Me ****** byJust_Plain_Bob© I watched her dress for the party and thought for the thousandth time how fortunate I had been to have her say yes when I asked her to marry me. 
+ 
+
+===
+
+I watched her dress for the party and thought for the thousandth time how fortunate I had been to have her say yes when I asked her to marry me. 
 
  As I watched her I knew that the party was going to be special. She was going all out to showcase what she had. Black lacy shelf bra that lifted her breasts so the low cut blouse could display the creamy upper slopes and the enticing cleavage. An almost non-existent black thong that I had never seen before. Her long tanned legs were stockingless as she put on a pair of strappy sandals with four inch heels. She stepped into a short black skirt that came down to mid- thigh and displayed her legs to the fullest. As a finishing touch she put an ankle chain on her right ankle and a gold chain with a locket around her neck. Still more things I'd never seen before. She spun around in front of me and asked: 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** Patty Ann, Brad and Me ****** byJust_Plain_Bob© "I've thought about this ever since I agreed to your plan. You know that my heart belongs to Brad, but you are my husband now and I am your wife. Regardless of why we got married we are married and I intend that for as long as it lasts it will be a real marriage." 
+ 
+
+===
+
+"I've thought about this ever since I agreed to your plan. You know that my heart belongs to Brad, but you are my husband now and I am your wife. Regardless of why we got married we are married and I intend that for as long as it lasts it will be a real marriage." 
 
  Her hand slipped down my body to my erect cock and as she wrapped her fingers around it she said: 
 
@@ -460,7 +470,11 @@
 
  
 
- ****** Patty Ann, Brad and Me ****** byJust_Plain_Bob© "Then Bev told me she was going to do the welcome home party for Brad and I told Brad that I was finally ready and that I would let you know at the party and then I'd leave with him. He gave me the locket and the ankle bracelet and asked me to wear them at the party as a sign that I was his. Then at the party I told him that I had chickened out and that I couldn't face you and I asked him to tell you that I would be going home with him. I knew he would do it in front of everyone and then I would come over and make him look like a total dumb shit. 
+ 
+
+===
+
+"Then Bev told me she was going to do the welcome home party for Brad and I told Brad that I was finally ready and that I would let you know at the party and then I'd leave with him. He gave me the locket and the ankle bracelet and asked me to wear them at the party as a sign that I was his. Then at the party I told him that I had chickened out and that I couldn't face you and I asked him to tell you that I would be going home with him. I knew he would do it in front of everyone and then I would come over and make him look like a total dumb shit. 
 
  "I didn't know that you knew he was back and that I was talking to him. I thought you would be too stunned by what he said and you would sit there and stare at him like he was from another planet and then I would come up and make him look like a fool. It never occurred to me that you might just get up and leave. I'm sorry baby; I never meant to put you through what I put you through." 
 

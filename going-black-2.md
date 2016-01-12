@@ -1,8 +1,14 @@
+Going Black
+===========
 #1 
 
  
 
- ****** Going Black ****** byGotBacon© The players 
+ 
+
+===
+
+The players 
 
  Eric is a Vice President of very prestigious law firm in San Diego. He is the youngest VP in the history of the firm. He is 40 years old and is as black as night. He stands 6' 1" and weighs about 190 lbs. He has about 10% body fat. His cock is a very respectable 9 in and is 2½ inches in diameter. He has a smile that will burn the paint off the walls. He lost his wife two years ago to the big C. 
 
@@ -448,7 +454,11 @@
 
  
 
- ****** Going Black ****** byGotBacon© "Take my clothes off baby. I want to be naked with you." 
+ 
+
+===
+
+"Take my clothes off baby. I want to be naked with you." 
 
  She slowly takes his shirt and runs her hands over his chiseled chest. 
 
@@ -914,7 +924,11 @@
 
  
 
- ****** Going Black ****** byGotBacon© "They're gonna know what we're up to." 
+ 
+
+===
+
+"They're gonna know what we're up to." 
 
  "Yep, but I don't think they'll be surprised." 
 

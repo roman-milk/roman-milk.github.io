@@ -1,8 +1,14 @@
+Accidental Gangbang
+===================
 #1 
 
  
 
- ****** Accidental Gangbang ****** bysilkstockingslover© Summary: Wife-to-be ends up fuck-slut at her fiancé's bachelor party. 
+ 
+
+===
+
+Summary: Wife-to-be ends up fuck-slut at her fiancé's bachelor party. 
 
  Note 1: This is a holiday 2014 contest story. 
 
@@ -318,7 +324,11 @@
 
  
 
- ****** Accidental Gangbang ****** bysilkstockingslover© When he broke the kiss, I asked, "You're not mad?" 
+ 
+
+===
+
+When he broke the kiss, I asked, "You're not mad?" 
 
  "Surprised, and a little turned on," he answered, 
 

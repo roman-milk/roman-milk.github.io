@@ -1,8 +1,14 @@
+Joan's Baby
+===========
 #1 
 
  
 
- ****** Joan's Baby ****** byJust_Plain_Bob© I hated the holidays. I didn't used to, but for the last three years they had been hell for me. Actually, it wasn't the holidays so much as it was my mother. Don't get me wrong, I don't hate my mother, but I did hate being around her. She lives far enough away from me that for most of the year my only contact with her is by phone. When I'm on the phone and she gets on her kick I can hang up, but when she visits over the holidays and the contact is up close and in person I can't get away. Her kick? 
+ 
+
+===
+
+I hated the holidays. I didn't used to, but for the last three years they had been hell for me. Actually, it wasn't the holidays so much as it was my mother. Don't get me wrong, I don't hate my mother, but I did hate being around her. She lives far enough away from me that for most of the year my only contact with her is by phone. When I'm on the phone and she gets on her kick I can hang up, but when she visits over the holidays and the contact is up close and in person I can't get away. Her kick? 
 
  "When are you going to have kids? When are you going to give me grandbabies? Jesus Joan, you have been married six years now and it is time for you to start a family. I want grandchildren." 
 

@@ -1,8 +1,14 @@
+Tainted
+=======
 #1 
 
  
 
- ****** Tainted ****** bygeronimo_appleby© This is one I wrote and previously submitted under the title Amy. I deleted it from Lit because someone wanted to buy it, but since it also appears on other sites -- having been 'stolen' from Lit -- the deal fell through. So here it is again. If you haven't already read it I hope you enjoy it. 
+ 
+
+===
+
+This is one I wrote and previously submitted under the title Amy. I deleted it from Lit because someone wanted to buy it, but since it also appears on other sites -- having been 'stolen' from Lit -- the deal fell through. So here it is again. If you haven't already read it I hope you enjoy it. 
 
  As usual I'd appreciate feedback. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Tainted ****** bygeronimo_appleby© "Might as well. Cheers." Amy drained the glass and held it towards the man. "So," she said, deliberately brightening when Billy settled back onto his seat. "What about you? No wife you said, but what about a lady friend? Is there no woman that you fancy?" 
+ 
+
+===
+
+"Might as well. Cheers." Amy drained the glass and held it towards the man. "So," she said, deliberately brightening when Billy settled back onto his seat. "What about you? No wife you said, but what about a lady friend? Is there no woman that you fancy?" 
 
  With secrets of his own, it was Billy's turn to bluster. "I ..." he began. "That's a little personal," he lamely responded, hiding his discomfit behind the pint glass. 
 
@@ -354,7 +364,11 @@
 
  
 
- ****** Tainted ****** bygeronimo_appleby© "I'll be back soon," she said, wiping her sleeve across her face. "Thank you." 
+ 
+
+===
+
+"I'll be back soon," she said, wiping her sleeve across her face. "Thank you." 
 
  Billy thought about Amy's story. His cock stiffened with vicarious voyeuristic arousal as Amy's lurid description came back to him. His impotence seemed conditional, fantasy posed no problem, it was when he was faced with the physical act that his body betrayed him. Even with Amy in his bed fumbling with his cock, even after the lurid details of Jenny and Patrick's coupling, and even after the description of her own acts with Patrick, Billy's penis refused to stiffen. 
 
@@ -494,7 +508,11 @@
 
  
 
- ****** Tainted ****** bygeronimo_appleby© The tempo of their coupling increased with Billy's confidence. "Amy," he sighed again. 
+ 
+
+===
+
+The tempo of their coupling increased with Billy's confidence. "Amy," he sighed again. 
 
  "Love me," the girl insisted. "Not like Patrick. Don't use me like that. Be nice to me. Love me ..." 
 

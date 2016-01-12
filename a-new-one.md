@@ -1,8 +1,14 @@
+A New One
+=========
 #1 
 
  
 
- ****** A New One ****** byJust_Plain_Bob© You often hear the phrase that "Life isn't fair" and I'm living proof that it is true. But every once in a while life gives you a gift that helps ease things somewhat. Again, I'm living proof. 
+ 
+
+===
+
+You often hear the phrase that "Life isn't fair" and I'm living proof that it is true. But every once in a while life gives you a gift that helps ease things somewhat. Again, I'm living proof. 
 
  +++++++++++++++++++ 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** A New One ****** byJust_Plain_Bob© "He didn't." 
+ 
+
+===
+
+"He didn't." 
 
  "Yes he did and with my best friend." 
 
@@ -428,7 +438,11 @@
 
  
 
- ****** A New One ****** byJust_Plain_Bob© No, she was just worried about what I might say and to who. 
+ 
+
+===
+
+No, she was just worried about what I might say and to who. 
 
  The party started breaking up around two. I dressed, but before I could leave Norm grabbed me and asked me to help him pick the place up a bit. 
 

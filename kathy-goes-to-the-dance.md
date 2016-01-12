@@ -1,8 +1,14 @@
+Kathy Goes to the Dance
+=======================
 #1 
 
  
 
- ****** Kathy Goes to the Dance ****** byJust_Plain_Bob© "What's on your schedule this week?" Kathy asked her husband Mark. 
+ 
+
+===
+
+"What's on your schedule this week?" Kathy asked her husband Mark. 
 
  He looked up from the morning paper and said, "Nothing special. Why?" 
 

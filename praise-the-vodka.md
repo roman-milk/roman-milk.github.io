@@ -1,8 +1,14 @@
+Praise the Vodka
+================
 #1 
 
  
 
- ****** Praise the Vodka ****** bygeronimo_appleby© I was working my shift at the local petrol station when she drove in. I had to do a double take to check that it was really her. It had been 10 years but sure enough it was her, Mrs Ramsey my old teacher, the teacher I'd hated for her mocking ways and superior attitude, the same one I had lusted after fantasising over her big breasts, dirty blonde hair, husky voice and raw sex appeal. If I'm completely honest it must have been because I lusted after my teacher so powerfully, with no hope of realising the dream, that I disliked her so much. Her arrogance alone couldn't have been the sole cause for my dislike. 
+ 
+
+===
+
+I was working my shift at the local petrol station when she drove in. I had to do a double take to check that it was really her. It had been 10 years but sure enough it was her, Mrs Ramsey my old teacher, the teacher I'd hated for her mocking ways and superior attitude, the same one I had lusted after fantasising over her big breasts, dirty blonde hair, husky voice and raw sex appeal. If I'm completely honest it must have been because I lusted after my teacher so powerfully, with no hope of realising the dream, that I disliked her so much. Her arrogance alone couldn't have been the sole cause for my dislike. 
 
  I watched her as she climbed out of her car and began to fill it with fuel. She was dressed immaculately in a pastel blue two piece suit with a white blouse underneath the smart jacket. Her skirt was mid thigh, long enough to be decent but short enough to display her legs, her high shoes adding to the whole effect of elegant aloofness. She was still an attractive woman; even though she must have been nearing 50 the years had been kind enough to the old bitch. 
 
@@ -164,7 +170,11 @@
 
  
 
- ****** Praise the Vodka ****** bygeronimo_appleby© Mrs Ramsey pulled at my cock briefly and then licked the shiny, purple dome of it. She licked my shaft from head to root and then back up again before she opened her mouth and took the tip of my penis into her mouth. 
+ 
+
+===
+
+Mrs Ramsey pulled at my cock briefly and then licked the shiny, purple dome of it. She licked my shaft from head to root and then back up again before she opened her mouth and took the tip of my penis into her mouth. 
 
  When she had about 2 or 3 inches of my meat inside her mouth Mrs Ramsey tickled the underside of my cock head with her tongue. I groaned out loud as she took hold of me at the base of my hard on and wanked as she sucked. 
 

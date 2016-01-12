@@ -1,8 +1,14 @@
+Jessica's Change Management Ch. 01
+==================================
 #1 
 
  
 
- ****** Jessica's Change Management Ch. 01 ****** byCathartico© ---Premise--- 
+ 
+
+===
+
+---Premise--- 
 
  This story is based on a female reader's fantasy and more hardcore than erotic writing. It's about dominance, submission, sexual humiliation and rough sex. Always keep in mind it's a fantasy. I'm not a native English speaker. So I hope you may forgive some wrong use of punctuation etc. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 01 ****** byCathartico© I got frantic at once and tried to cover up my exposed tits. Shit! This wasn't supposed to happen! What was this plumber doing in the house? How was I supposed to know that my neighbors had contracted a laborer to do some repairs while they were away over the weekend? 
+ 
+
+===
+
+I got frantic at once and tried to cover up my exposed tits. Shit! This wasn't supposed to happen! What was this plumber doing in the house? How was I supposed to know that my neighbors had contracted a laborer to do some repairs while they were away over the weekend? 
 
  He had seen me naked. He had seen me stripping and dancing for the pool boy! He could tell my neighbors and expose me as a naughty slut all over the neighborhood. I had just moved here! I didn't want my reputation ruined after only a couple of weeks! 
 
@@ -380,7 +390,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 01 ****** byCathartico© "If ya beg nicely, he might make ya cum." He added while I stared at him with wide open eyes. 
+ 
+
+===
+
+"If ya beg nicely, he might make ya cum." He added while I stared at him with wide open eyes. 
 
  He wanted me to fuck a second stranger for the day. He wanted to turn me into a real slut. It wasn't me actively approaching the plumber. Instead, he was telling me to offer my body to him! How did he dare! This was still my house! 
 
@@ -508,7 +522,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 02 ****** byCathartico© ---Week 1 -- Monday--- 
+ 
+
+===
+
+---Week 1 -- Monday--- 
 
  "No, no, no!" I stammered to myself over and over again. 
 
@@ -682,7 +700,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 02 ****** byCathartico© Panic was creeping up inside of me as I continued searching. After checking every office on the lower floor, I even walked back upstairs to make sure that he wasn't waiting in my office. Finally, I gave up. Was it all over before it had started? 
+ 
+
+===
+
+Panic was creeping up inside of me as I continued searching. After checking every office on the lower floor, I even walked back upstairs to make sure that he wasn't waiting in my office. Finally, I gave up. Was it all over before it had started? 
 
  I left the building with a queasy feeling. Walking out, I almost bumped into my counterpart Ortega who stood next to the entrance door, having a chat while smoking a cigarette. Leaning against the wall talking to Ortega was D-Rod, having a cig as well. 
 
@@ -876,7 +898,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 02 ****** byCathartico© "Time to grab a beer." D-Rod exclaimed when he had finally deleted the picture. "See ya tomorrow, Miss Tease!" 
+ 
+
+===
+
+"Time to grab a beer." D-Rod exclaimed when he had finally deleted the picture. "See ya tomorrow, Miss Tease!" 
 
  He then strolled into the house after waving me away like an annoying fly. Under his neighbors' lecherous looks, I walked back to my car and drove away. The goose bumps didn't go away until I had reached my home. All the time, I mulled over the events of the day and barely got any sleep during the night. 
 
@@ -1042,7 +1068,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 02 ****** byCathartico© I had to grab a chair to keep myself steady as I almost fell to the ground. Too bad, the chair was already occupied. Tumbling over, I bumped right into a bald, middle-aged Latino with a goatee. My big, ample juggs got firmly pressed against his chest when he grabbed my shoulders to steady me. He didn't let got when I had come to a halt, though, clutching me tightly with my big, soft rack against his chest. 
+ 
+
+===
+
+I had to grab a chair to keep myself steady as I almost fell to the ground. Too bad, the chair was already occupied. Tumbling over, I bumped right into a bald, middle-aged Latino with a goatee. My big, ample juggs got firmly pressed against his chest when he grabbed my shoulders to steady me. He didn't let got when I had come to a halt, though, clutching me tightly with my big, soft rack against his chest. 
 
  In this bent over position, I felt my tight, pinstriped skirt riding up again. Involuntarily, my ass started shaking, fueled by the vigorous vibrations of the love egg. Deep down, I yearned for the bald Latino to grab and fondle my ass but hurried to straighten back up instead. I had to keep at least an ounce of decency! 
 
@@ -1178,7 +1208,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 03 ****** byCathartico© --- Week 1 -- Wednesday --- 
+ 
+
+===
+
+--- Week 1 -- Wednesday --- 
 
  Arriving home, I needed some time till my brain started working again. I had a hard time processing everything that had happened. The arrogance and casualness with which D-Rod had showed me up in the strip mall left me totally aghast. Even more, I was shocked about myself for letting it happen all too easily! 
 
@@ -1320,7 +1354,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 03 ****** byCathartico© I was jittery and wired up as if I was walking into an important exam. This was so stupid! I cursed myself. But somehow, I yearned for their approval. Garza raised his beer bottle indicating his vote. The other two remained unimpressed, though. 
+ 
+
+===
+
+I was jittery and wired up as if I was walking into an important exam. This was so stupid! I cursed myself. But somehow, I yearned for their approval. Garza raised his beer bottle indicating his vote. The other two remained unimpressed, though. 
 
  For a moment, I was disappointed, and uncousciously, pursed my lips in a dramatic pout which only made the guys chuckle. I had worked hard to give them a sexy car wash, but apparently, it hadn't been enough to convince all of them. This was purely arbitrary, though, I thought bitterly. They were playing me. They wouldn't give me all the votes no matter how well I performed. They were here to savor the slutty show. They wanted to use and degrade a fine, rich, self-assured lady. 
 
@@ -1486,7 +1524,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 03 ****** byCathartico© I spread my legs and stepped over the lap of this intimidating gangbanger still wearing the ridiculous sideways hat. This time, I grabbed his cock and lowered myself down on it. My pussy was so wet that Lucho's dick easily slipped inside of me. Feeling my cunt stretching around the hard meat pole was a wonderful feeling that made me groan. 
+ 
+
+===
+
+I spread my legs and stepped over the lap of this intimidating gangbanger still wearing the ridiculous sideways hat. This time, I grabbed his cock and lowered myself down on it. My pussy was so wet that Lucho's dick easily slipped inside of me. Feeling my cunt stretching around the hard meat pole was a wonderful feeling that made me groan. 
 
  I rode the buff musclehead hard while I let him grope my big, ripe melons. He roughly kneaded them deforming my soft tit meat in each and every direction. He was so concentrated on my titties that he let me do all the work. 
 
@@ -1652,7 +1694,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 04 ****** byCathartico© ---Week 2--- 
+ 
+
+===
+
+---Week 2--- 
 
  I came to work in a perfect mood the next Monday. It had been one of my best weekends in ages. Bursting D-Rod's hold over me had put me in a euphoric state, and I had partied all night long with some of my girlfriends. 
 
@@ -1828,7 +1874,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 04 ****** byCathartico© "You're here to teach your office pet a lesson about sticking to your rules, Sir Da-Rod." I meekly said. "I'm sorry for disappointing you, sir." 
+ 
+
+===
+
+"You're here to teach your office pet a lesson about sticking to your rules, Sir Da-Rod." I meekly said. "I'm sorry for disappointing you, sir." 
 
  The way I responded made me nauseous. I acted in a totally submissive way. Why did I offer so little resistance? Was it really just the fear for my career? Why didn't I show some backbone? I got angry with myself but kept up my submissive demeanor anyhow. D-Rod nodded and started to explain what he had planned for me. 
 
@@ -2000,7 +2050,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 04 ****** byCathartico© "Present your asshole, office pet!" My intern ordered arrogantly. 
+ 
+
+===
+
+"Present your asshole, office pet!" My intern ordered arrogantly. 
 
  I realized that I was about to get fucked up my ass next. With my buns burning fiercely it wasn't something I was looking forward to. But I didn't have a say in the matter, right? It was better than another thrashing, and I could hardly start my life as an office pet by denying him my backdoor. 
 
@@ -2028,7 +2082,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 05 ****** byCathartico© -- Week 2 -- Tuesday -- 
+ 
+
+===
+
+-- Week 2 -- Tuesday -- 
 
  After a restless night, I wasn't much smarter than yesterday. My all-too-easy surrender to D-Rod continued to trouble me. I hadn't been able to come up with any useful ideas about how to escape my intern's control either. So I had to accept the fact that I was his office pet - for the moment. 
 
@@ -2220,7 +2278,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 05 ****** byCathartico© "What you say?" D-Rod taunted me. "Mrs. Powers begging to cum like an easy office tramp? Can you imagine that! Do you deserve an orgasm, though?" 
+ 
+
+===
+
+"What you say?" D-Rod taunted me. "Mrs. Powers begging to cum like an easy office tramp? Can you imagine that! Do you deserve an orgasm, though?" 
 
  "Please Sir Da-Rod!" I pleaded by now, saying whatever came to my mind. "I'll gladly serve you. Please, let me be your office pet. Just let your fuckdoll cum, please!" 
 
@@ -2400,7 +2462,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 05 ****** byCathartico© But it didn't happen. 
+ 
+
+===
+
+But it didn't happen. 
 
  Reaching the right stocking top, the fucking macho simply reached over to the left stocking top. He completely spared my cunt and ran his hand back down my left thigh. I almost sighed out loudly. I was so disappointed. Fortunately, I didn't do it. I better not wanted to find out how the other interns' would react to that! 
 
@@ -2612,7 +2678,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 05 ****** byCathartico© "Getting in the mood, huh, office pet?" The Latin macho grinned mockingly before walking down the line of toilet booths. 
+ 
+
+===
+
+"Getting in the mood, huh, office pet?" The Latin macho grinned mockingly before walking down the line of toilet booths. 
 
  There were four booths on each side with the urinals placed at the end of the room. Gosh! Not the urinals, please! I had been such a good office pet, hadn't I? 
 
@@ -2780,7 +2850,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 06 ****** byCathartico© --Week 2 - Saturday-- 
+ 
+
+===
+
+--Week 2 - Saturday-- 
 
  It was Saturday morning, and I got woken up by the ring of my alarm clock. This wasn't my usual weekend routine as I preferred to sleep in. However, I was pretty sure that this wouldn't by a usual weekend anyways. D-Rod was coming by to take me to the shopping mall so I had to get ready. He hadn't said what he was planning to do there. Still, he hadn't left any room for doubt that I had to come along. 
 
@@ -2930,7 +3004,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 06 ****** byCathartico© The guys picked a pair of slutty, clear, open-toed platform heels which could only be described as 'stripper heels'. They were real ankle breakers with a 6" heel and 2" platform. When walking a circuit in the store, I instantly got a cramp in my lower legs. To be honest, I was staggering rather than walking and almost fell to my face. 
+ 
+
+===
+
+The guys picked a pair of slutty, clear, open-toed platform heels which could only be described as 'stripper heels'. They were real ankle breakers with a 6" heel and 2" platform. When walking a circuit in the store, I instantly got a cramp in my lower legs. To be honest, I was staggering rather than walking and almost fell to my face. 
 
  "Sum lil ditz cha're, huh?" D-Rod commented on my wobbly gait. "Guess ya need sum trainin', Missy." 
 
@@ -3112,7 +3190,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 06 ****** byCathartico© Whatever I was about to wear the next weeks, the bow tattoo would be visible whenever there was a gap between my top and skirt. I had to be cautious of every move! 
+ 
+
+===
+
+Whatever I was about to wear the next weeks, the bow tattoo would be visible whenever there was a gap between my top and skirt. I had to be cautious of every move! 
 
  The tacky gang sign on my crotch didn't make me feel much better. At least, it wasn't visible at first sight. Still, I only had to pull my skirt down a few inches to reveal it. 
 
@@ -3342,7 +3424,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 06 ****** byCathartico© "Been 'LGZ' for life, ya know." Checo finally told me. "Helped buildin' it up from scratch 'n spent years in da slammer for my homies." 
+ 
+
+===
+
+"Been 'LGZ' for life, ya know." Checo finally told me. "Helped buildin' it up from scratch 'n spent years in da slammer for my homies." 
 
  "So tell me." He directly addressed me. "What I'm s'pposed to do wit such fresh gang meat. What cha got to offer dat no younger hoodrat can, huh? 
 
@@ -3566,7 +3652,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 06 ****** byCathartico© "Oh, da slut's fine. She's happily munchin' away on her cum fries. Hehehe!" He made a joke at my expense. "Dat ho's even beggin' for mo'. Go figure!" 
+ 
+
+===
+
+"Oh, da slut's fine. She's happily munchin' away on her cum fries. Hehehe!" He made a joke at my expense. "Dat ho's even beggin' for mo'. Go figure!" 
 
  "Yeah! No kiddin'!" He told his fellow gang member. "She's beggin' to get her cunt stuffed like a bitch in heat." 
 
@@ -3742,7 +3832,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 07 ****** byCathartico© -Week 3 - Monday- 
+ 
+
+===
+
+-Week 3 - Monday- 
 
  It was Monday morning, and I was getting ready to leave for work when my doorbell rang. I had a good sense of who was standing in front of my door and my suspicions got confirmed when it turned out to be D-Rod. Without waiting for me to invite him in, he strolled into the lounge as if it was a given. 
 
@@ -3914,7 +4008,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 07 ****** byCathartico© "Were you just shouting something to me?" He asked, alluding to my groans. "Did sound like moaning or something." 
+ 
+
+===
+
+"Were you just shouting something to me?" He asked, alluding to my groans. "Did sound like moaning or something." 
 
  He had heard me! I was on the brink of getting busted! I had to come up with some excuse. 
 
@@ -4138,7 +4236,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 07 ****** byCathartico© "OK!" Justin finally accepted D-Rod's explanation. 
+ 
+
+===
+
+"OK!" Justin finally accepted D-Rod's explanation. 
 
  Letting out a sigh of relief, I felt like I had just been snapped from the jaws of exposure. That had been close. 
 
@@ -4374,7 +4476,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 07 ****** byCathartico© With my face burning in shame, I scrambled to my feet. All four guys had taken a seat on the old worn-out couch, observing each and every move I made. D-Rod's look revealed a hint of pride about his office pet. Matt's gaze was full of malicious glee. Justin looked all pumped whereas Taylor still seemed uneasy and insecure. 
+ 
+
+===
+
+With my face burning in shame, I scrambled to my feet. All four guys had taken a seat on the old worn-out couch, observing each and every move I made. D-Rod's look revealed a hint of pride about his office pet. Matt's gaze was full of malicious glee. Justin looked all pumped whereas Taylor still seemed uneasy and insecure. 
 
  Facing them, I pulled my black leather skirt down my ass and buttoned the white vest. With my outfit back in its initial state, I stood there for a moment, not really knowing what to do. I was fully aware that I had to get going or time would be running out on me. 
 
@@ -4600,7 +4706,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 07 ****** byCathartico© "Yes sir!" I replied off the top of my head. "Your office pet needed to cum sooo badly. Thanks for that!" 
+ 
+
+===
+
+"Yes sir!" I replied off the top of my head. "Your office pet needed to cum sooo badly. Thanks for that!" 
 
  My mind was still clouded with fuzziness. These young college students had watched me cum like a wanton slut. I couldn't sink any lower, could I? Somehow, it didn't bother me anymore. I was too occupied with my relief to even think about it. 
 
@@ -4820,7 +4930,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 07 ****** byCathartico© With his shaft buried deeply up my cunt, D-Rod gripped my hips and started hammering into me. He didn't waste any time, simply dishing out a hard rutting fuck. He pistoned his meat tool so vigorously in and out of my pussy that he forced my whole body to lurch forward, basically impaling my throat onto Matt's prick. I was getting spit-roasted by two college boys and loved it. 
+ 
+
+===
+
+With his shaft buried deeply up my cunt, D-Rod gripped my hips and started hammering into me. He didn't waste any time, simply dishing out a hard rutting fuck. He pistoned his meat tool so vigorously in and out of my pussy that he forced my whole body to lurch forward, basically impaling my throat onto Matt's prick. I was getting spit-roasted by two college boys and loved it. 
 
  "Fuck! That's like a knife through butter. Such a wet slut!" He said while pumping me with deep, hard strokes. 
 
@@ -4860,7 +4974,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 08 ****** byCathartico© Jessica's Change Management Ch. 08 
+ 
+
+===
+
+Jessica's Change Management Ch. 08 
 
  ---Week3 - Tuesday--- 
 
@@ -5038,7 +5156,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 08 ****** byCathartico© 'MISSBRAT'. With a whimper, I realized that it was the exact name Matt had given me. He was labeling me a trashy Barbie imitation. 
+ 
+
+===
+
+'MISSBRAT'. With a whimper, I realized that it was the exact name Matt had given me. He was labeling me a trashy Barbie imitation. 
 
  "Right now, that's what you are. A cheap wannabe doll." The frat boy drove his point home. "The cougar cunt should wear the bracelet like that to show off her actual title! What you say, D-Rod?" 
 
@@ -5270,7 +5392,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 08 ****** byCathartico© "Time's up!" Taylor chimed in, making Matt stop. "You managed to get it all the way down. Props for that, lil hussy." 
+ 
+
+===
+
+"Time's up!" Taylor chimed in, making Matt stop. "You managed to get it all the way down. Props for that, lil hussy." 
 
  "But it was too late. Five minutes were over." He told me. "You didn't fulfill your task, Miss Brat. So you're not allowed to cum today. 
 
@@ -5504,7 +5630,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 08 ****** byCathartico© "Danny, show me the slides you prepared thus far." I heard my colleague tell D- Rod. 
+ 
+
+===
+
+"Danny, show me the slides you prepared thus far." I heard my colleague tell D- Rod. 
 
  Obviously, he was holding a meeting with the interns. The meeting time must have been fixed before. They had known that Blake would walk into the room. They had waited for it! They had trapped me! It must have been D-Rod's plan from the beginning. 
 
@@ -5718,7 +5848,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 08 ****** byCathartico© He took the business cards from the middle compartment and carelessly threw them onto the ground. Then he used the stick to plug the dildo into the middle compartment. I couldn't believe it. The pink popsicle was sticking out from the wooden business card holder right in the middle of my desk. 
+ 
+
+===
+
+He took the business cards from the middle compartment and carelessly threw them onto the ground. Then he used the stick to plug the dildo into the middle compartment. I couldn't believe it. The pink popsicle was sticking out from the wooden business card holder right in the middle of my desk. 
 
  Goddamnit! Where had they found this fucking dildo? It was such a depraved tool of degradation. Sucking on it felt so silly because it made me look like a girl sucking on a pop ice. Fucking it stretched my holes wide because of its girth. Using the stick, it could be attached to something like the shredder or the business card holder and god knows what else. 
 
@@ -5936,7 +6070,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 08 ****** byCathartico© "FFFRRRTTT!" A farting noise erupted from my ass, and finally a stream of thick jizz poured onto my hand. 
+ 
+
+===
+
+"FFFRRRTTT!" A farting noise erupted from my ass, and finally a stream of thick jizz poured onto my hand. 
 
  I whimpered when I hurt the noise. I had farted loudly in front of the young boys! What could be more shameful? 
 
@@ -6028,7 +6166,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© -Week 3 - Wednesday- 
+ 
+
+===
+
+-Week 3 - Wednesday- 
 
  Once again, my alarm clock started ringing at 6:30 in the morning. Another day in the life of Miss Brat, the interns' luxury toy, was about to begin. Another day, in which I was about to drive to the mall to buy some slut upgrades before work. 
 
@@ -6208,7 +6350,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© "Tell us you're sorry for being too dumb, bitch!" Matt upped the ante. 
+ 
+
+===
+
+"Tell us you're sorry for being too dumb, bitch!" Matt upped the ante. 
 
  "I... I..." Having to degrade myself like that was so bad it made me stammer. "I'm sorry for being such a stupid ditz. I'm too dumb to catch your meaning. I can only learn by example, sir. Please, don't be mad." 
 
@@ -6408,7 +6554,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© My movement was stopped by the frat boy, though. He let go off my hair and stepped onto the back of my neck with his left shoe. I felt the dirty sole on my neck, forcefully pressing me down. With my arms tied, I had no chance to push it off. 
+ 
+
+===
+
+My movement was stopped by the frat boy, though. He let go off my hair and stepped onto the back of my neck with his left shoe. I felt the dirty sole on my neck, forcefully pressing me down. With my arms tied, I had no chance to push it off. 
 
  I was trapped! 
 
@@ -6614,7 +6764,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© "Ooohhh! Aaahhh!" I soon found myself moaning through gritted teeth. 
+ 
+
+===
+
+"Ooohhh! Aaahhh!" I soon found myself moaning through gritted teeth. 
 
  Just when I reached the edge of orgasm, he stopped and landed two harsh slaps on my butt stifling my arousal. 
 
@@ -6814,7 +6968,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© They were choosing their sandwiches over me! This was worse than any kind of perverted sex act Matt could dish out. Even crawling around underneath a table and licking ketchup off their dicks was better than being put on the back burner. 
+ 
+
+===
+
+They were choosing their sandwiches over me! This was worse than any kind of perverted sex act Matt could dish out. Even crawling around underneath a table and licking ketchup off their dicks was better than being put on the back burner. 
 
  Justin was the first to finish his lunch. Getting off the sofa, he strolled past the coffee table. In passing, he nonchalantly spit right onto my spread open pussy. He didn't even look at me! 
 
@@ -7020,7 +7178,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© The hour crept by in a snarl's pace. Finally, the door opened and D-Rod marched into my office walking straight up to my desk. 
+ 
+
+===
+
+The hour crept by in a snarl's pace. Finally, the door opened and D-Rod marched into my office walking straight up to my desk. 
 
  "So did you hold the fort? Hehehe!" He asked me. "Always appreciate an office tart taking her job serious. Even if it's a menial task." 
 
@@ -7238,7 +7400,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 09 ****** byCathartico© D-Rod pumped me so hard from behind that it was difficult to keep on pleasuring Taylor with my mouth. Still, I held onto his dick with my lips as best as I could like a dog that wouldn't let go of its bone. 
+ 
+
+===
+
+D-Rod pumped me so hard from behind that it was difficult to keep on pleasuring Taylor with my mouth. Still, I held onto his dick with my lips as best as I could like a dog that wouldn't let go of its bone. 
 
  My lips were rapidly sliding over his dick and my tongue relentlessly twirled around his cockhead while drool ran out of the corners of my mouth in torrents. Damn! It tasted delightful! Squelching sounds emerged from my overflowing pussy forming a vulgar rhythm with my gagging. 
 
@@ -7380,7 +7546,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 10 ****** byCathartico© --- Week 3 -- Thursday --- 
+ 
+
+===
+
+--- Week 3 -- Thursday --- 
 
  Wednesday had been a long, hard day at work that I had barely survived without D-Rod getting canned by Matt's reckless actions. However, I didn't have much time to reflect on the frat boy's revolt, because I had to leave for a two-day business trip out of town the next day. 
 
@@ -7548,7 +7718,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 10 ****** byCathartico© "We're outside 'n ready, puta. Haul yo ass outta da backdoor." Lucho blurted into the phone when I picked up. 
+ 
+
+===
+
+"We're outside 'n ready, puta. Haul yo ass outta da backdoor." Lucho blurted into the phone when I picked up. 
 
  He didn't say anything else, simply hanging up and leaving me totally dumbfounded. I couldn't seriously follow his request. I couldn't walk out of the restaurant right now. Not with all these important topics on the line. Not with my career at stakes! 
 
@@ -7750,7 +7924,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 10 ****** byCathartico© Up and down! 
+ 
+
+===
+
+Up and down! 
 
  "Aaahhh!" 
 
@@ -7978,7 +8156,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 10 ****** byCathartico© "Now biatch, show me dat cunt! Show me it wants a good stretchin'!" Checo told me when the jizz had disappeared down my throat. 
+ 
+
+===
+
+"Now biatch, show me dat cunt! Show me it wants a good stretchin'!" Checo told me when the jizz had disappeared down my throat. 
 
  While the intimidating brute walked to the side of the lowrider, I put my left leg onto the bumper. Reaching down, I ran my right index finger over my puffy pussy lips, circling the gaping hole. 
 
@@ -8174,7 +8356,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 10 ****** byCathartico© Fortunately, I had leaned over to Ortega so O'Bannon hadn't been able to see the cum stain. My rival had been fixated on my lips and long French nails so he didn't show any signs of having noticed my fashion faux pas, either. Still, I blushed and lowered my gaze, because I couldn't look those business men in the eyes any longer. I was dying of shame. 
+ 
+
+===
+
+Fortunately, I had leaned over to Ortega so O'Bannon hadn't been able to see the cum stain. My rival had been fixated on my lips and long French nails so he didn't show any signs of having noticed my fashion faux pas, either. Still, I blushed and lowered my gaze, because I couldn't look those business men in the eyes any longer. I was dying of shame. 
 
  For the rest of the dinner, I felt like being under the microscope. The two business men wouldn't stop peeking at me and sticking their heads together. Every time they were snickering, I knew they were laughing at me after cracking a joke about the dumb bimbo. Ortega wouldn't stop drilling me with questions and the yukky, aggressive sperm taste kept distracting me. My nervousness never ceased, but also my horniness was at an all time high. 
 
@@ -8190,7 +8376,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© --- Week 3 - Saturday --- 
+ 
+
+===
+
+--- Week 3 - Saturday --- 
 
  The weekend had come but the workweek continued having an effect on me. My project pitch had been a total failure and I had to take the blame for it. The result would certainly stick to my career. 
 
@@ -8372,7 +8562,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© For a second, the arrogant douchebag stared straight into my eyes before the corners of his mouth pulled up and he spread his arms apologetically. 
+ 
+
+===
+
+For a second, the arrogant douchebag stared straight into my eyes before the corners of his mouth pulled up and he spread his arms apologetically. 
 
  "Of course, bunny." He acted all casually. "Why don't you come inside first? We can discuss everything there." 
 
@@ -8592,7 +8786,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© "C'mon bitch, join our game." He told me. 
+ 
+
+===
+
+"C'mon bitch, join our game." He told me. 
 
  To tell the truth, I didn't feel like playing a drinking game. I didn't feel like joining this pompous jerk, either. Due to his black, over-gelled hair, I had started simply calling him Gel-Boy in my mind. After all, there were about 20 frat boys around the house and they all looked similar. I couldn't keep up with all those names. 
 
@@ -8834,7 +9032,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© Whoops! I was standing in front of a bunch of horny college kids with a naked rack while another student gave me a wedgie like he was bullying a girl on the school yard. So demeaning! I had worked so hard to keep a bit of decency, but I had failed. 
+ 
+
+===
+
+Whoops! I was standing in front of a bunch of horny college kids with a naked rack while another student gave me a wedgie like he was bullying a girl on the school yard. So demeaning! I had worked so hard to keep a bit of decency, but I had failed. 
 
  "Ahahaha! Dumb slut! Ahahaha!" The fratsters roared with laughter when I reflexively tried to cover my naked bust with my hands. 
 
@@ -9098,7 +9300,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© Another jab into my pussy made me lurch forward. I was too occupied with my lust, so I reacted too late. My hand swerved and the beer bottle fell over. Oops! 
+ 
+
+===
+
+Another jab into my pussy made me lurch forward. I was too occupied with my lust, so I reacted too late. My hand swerved and the beer bottle fell over. Oops! 
 
  Just that moment, Matt's grip on my juggies tightened and his whole body tensed. Letting out a low growl, his cock pumped his thick seed into me. That was enough to set me off and I reached my orgasm while sobbing out my joy. 
 
@@ -9332,7 +9538,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© "You remember the presentation you assigned me to finish on Monday, slut bunny?" Matty suddenly addressed me. 
+ 
+
+===
+
+"You remember the presentation you assigned me to finish on Monday, slut bunny?" Matty suddenly addressed me. 
 
  Huh? This came out of the blue. What did he care about work out of a sudden? I mean, I didn't care right now. So... 
 
@@ -9580,7 +9790,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 11 ****** byCathartico© "Mmmppphhh!" 
+ 
+
+===
+
+"Mmmppphhh!" 
 
  A gush of piss jetted out of his cock! He was pissing. Again! He was pissing into my mouth! 
 
@@ -9628,7 +9842,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© --- Week 3 -- Saturday --- 
+ 
+
+===
+
+--- Week 3 -- Saturday --- 
 
  Jessica Addams, senior consultant, head of change management department. That was what my business card said. Watching me right now, though, that couldn't be further from the way I looked. Missy Bitchface, stripper coug, simple-minded waitress. That was what my outfit said. Somehow, it sounded a lot more suitable. 
 
@@ -9854,7 +10072,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© He didn't. 
+ 
+
+===
+
+He didn't. 
 
  With precision, the tanned prick downed his final throw in the red plastic cup. Groan! I had to drink another load of slobber. This time, I didn't shoot Justy a look 'cause simply shrugging. 
 
@@ -10092,7 +10314,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© "Urgh! Urgh! Huuurrrgghhh!!" I gagged and choked pitifully. 
+ 
+
+===
+
+"Urgh! Urgh! Huuurrrgghhh!!" I gagged and choked pitifully. 
 
  My body was literally shaking and trembling like a leaf while Justy held me in place with the chains. My body was basically performing a lewd, jerky dance around his cock. My throat, however, was way stuffed with Justy's shaft so no spit drooled out at all. Out of a sudden, the slimeball clutched my ponytail and pulled on it. With my mouth free, a gush of slobber sloshed out and poured down onto my titties. 
 
@@ -10312,7 +10538,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© "Bros, let's see if we can make the slut gapefart some more." F.B.I.-Boy suggested. 
+ 
+
+===
+
+"Bros, let's see if we can make the slut gapefart some more." F.B.I.-Boy suggested. 
 
  He had barely finished telling his idea when he was over me. Pulling on the chains, he directed me into a position with my face totally pressed into the backrest. Following Justy's model, that boy straddled my ass by stepping onto the cushion. From this angle, he basically drilled his cock down into my dilated, spit-filled asshole in an almost vertical angle. Making full use of the angle, he started ramming my poor, little bunghole über-hard. 
 
@@ -10536,7 +10766,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© PLOP 
+ 
+
+===
+
+PLOP 
 
  "Ummmph!" I grunted deeplier than ever. 
 
@@ -10732,7 +10966,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© "Keep drinking water, lil hussy. Then join me in the entrance hall." He told me while turning around and leaving the kitchen. 
+ 
+
+===
+
+"Keep drinking water, lil hussy. Then join me in the entrance hall." He told me while turning around and leaving the kitchen. 
 
  Oh man! I really liked the way I was all wired and bubbly. I mean, it was lotsa fun. However, I guess D-Rod was right. I should sober up 'cause plan and all. So I obediently drank a few glasses of water while I pulled the white tanky back over my juicy juggies. 
 
@@ -10890,7 +11128,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© After stepping in between his legs, I let him lick the jaegger from above my bellybutton. Then I danced over to Blond-Boy, that other freshman from the 'Bus Driver' game, and let him suck the dark liqueur off the fake-tanned skin underneath my bellybutton. 
+ 
+
+===
+
+After stepping in between his legs, I let him lick the jaegger from above my bellybutton. Then I danced over to Blond-Boy, that other freshman from the 'Bus Driver' game, and let him suck the dark liqueur off the fake-tanned skin underneath my bellybutton. 
 
  I knew, however, that I couldn't finish the whole round like that 'cause the jaegger bottle was empty by now. I had to utilize the beer bottle. Thank goodie I had finally come up with an idea 'though it had really taken me longer than usual. In work meetings, mostly, I was bubbling over with ideas. Here and now, though, I had totally been occupied with dancing. I mean, pulling off these sexy dance moves was hard so being creative to boot was super hard, right? After all, serving hoe's weren't known for their creativity. Whatever! It wasn't really my idea anyways but Lucho's brainchild. Just yesterday, he had taught me a new skill that neither D-Rod nor Matt had seen yet. 
 
@@ -11102,7 +11344,11 @@
 
  
 
- ****** Jessica's Change Management Ch. 12 ****** byCathartico© None of the fratties seemed interested in joining Matt on the beer run so the idea must have sounded kinda awesome to him. Besides, he would have a birthday bitch to entertain him at his side. 
+ 
+
+===
+
+None of the fratties seemed interested in joining Matt on the beer run so the idea must have sounded kinda awesome to him. Besides, he would have a birthday bitch to entertain him at his side. 
 
  "OK! I already fucked Hooters 'n Bombshell." The arrogant host stated. "So I take Kilty with me." 
 

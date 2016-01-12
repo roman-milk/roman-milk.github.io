@@ -1,8 +1,14 @@
+Nude Melissa
+============
 #1 
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© Writer's note: 
+ 
+
+===
+
+Writer's note: 
 
  All characters are over 18 years of age -- blah blah blah, etc. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© "You know what, Eammon," Julia began, frustration and resentment bubbling inside her when she recovered from her husband's abrupt arrival. "Stop being such a supercilious wanker. I'm forty-three for God's sake. If I want a cigarette, I'll bloody well have one. It isn't as though you care about me, is it? It's just that you can't control me. That's the fucking truth of it." 
+ 
+
+===
+
+"You know what, Eammon," Julia began, frustration and resentment bubbling inside her when she recovered from her husband's abrupt arrival. "Stop being such a supercilious wanker. I'm forty-three for God's sake. If I want a cigarette, I'll bloody well have one. It isn't as though you care about me, is it? It's just that you can't control me. That's the fucking truth of it." 
 
  And, with her cheeks burning with bitterness and the beginnings of embarrassment at her outburst in front of Ben, ire burning inside her, Julia pushed past her gape-mouthed spouse and stomped into the caravan. 
 
@@ -358,7 +368,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© Not that she meant to seduce her daughter's boyfriend, not that, but the way he'd looked at her -- not to mention the things they'd said that morning -- had given Julia a kick in the backside. She needed to do something, and soon. 
+ 
+
+===
+
+Not that she meant to seduce her daughter's boyfriend, not that, but the way he'd looked at her -- not to mention the things they'd said that morning -- had given Julia a kick in the backside. She needed to do something, and soon. 
 
  She settled herself on the bed with a glass of wine on the nightstand and the vibrator next to her. Julia let her thoughts wander and she drifted away, thoughts of Ben and what might have been if Eammon hadn't blundered out of the caravan and interrupted. 
 
@@ -554,7 +568,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© Julia gripped Ben's wrist, desperate for his touch. She held him tight against her body and muttered for him to slide a finger inside. 
+ 
+
+===
+
+Julia gripped Ben's wrist, desperate for his touch. She held him tight against her body and muttered for him to slide a finger inside. 
 
  "Ben..." the woman gasped when his finger slid over her clitoris. "Fuck ... Oh fucking hell, Ben. Yes." 
 
@@ -566,7 +584,7 @@
 
  Ben felt the same urgency, but for him it was a near overwhelming desperation for release. He saw himself pounding at Julia, his cock driving into her body as he sought his climax. He had no time for finesse or gentle love-making, Ben was blind to all that. For him it was pure, animal lust, an instinctive and visceral urge. 
 
- "Naked," Ben babbled. "You're nude and |I fucking love it." The words grated out of him, a harsh exhalation of desperation through gritted teeth. 
+ "Naked," Ben babbled. "You're nude and I fucking love it." The words grated out of him, a harsh exhalation of desperation through gritted teeth. 
 
  Ben's fingers curled inside Julia and the woman gasped. 
 
@@ -794,7 +812,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© "Why did you try to kiss me last night, Dad?" Melissa asked after several bites of toast and a slurp of near scalding tea. 
+ 
+
+===
+
+"Why did you try to kiss me last night, Dad?" Melissa asked after several bites of toast and a slurp of near scalding tea. 
 
  The direct question came at him like a blow, and Eammon winced at the brutal honesty. He knew then what it felt like for the criminals -- alleged criminals that is -- he'd interviewed over the years. His mind spun as he tried to come up with any plausible answer other than the truth. He couldn't tell Melissa the bald actuality of the matter -- How could he? How could he tell the girl, his own flesh and blood, that he'd lusted after her body, had masturbated while thinking about her, and had even pictured Melissa's nudity while he'd fucked her mother? 
 
@@ -996,7 +1018,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© He knelt there, covered by the scrub, hidden behind a straggly clump of greenery and gave up his morality. Eammon traded his honour for a few minutes of grubbing around on his knees spying on his own flesh and blood. 
+ 
+
+===
+
+He knelt there, covered by the scrub, hidden behind a straggly clump of greenery and gave up his morality. Eammon traded his honour for a few minutes of grubbing around on his knees spying on his own flesh and blood. 
 
  He watched, eyes bulging, his cock doing the same when the girl oiled her breasts and pudenda. 
 
@@ -1250,7 +1276,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© He half expected to find the girl in his bed, waiting, but had been relieved to find it empty. 
+ 
+
+===
+
+He half expected to find the girl in his bed, waiting, but had been relieved to find it empty. 
 
  Now, in the light of another day, groggy and uncoordinated, he stared blearily at Melissa as the girl pouted at him, obviously amused. 
 
@@ -1506,7 +1536,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© Melissa served up a shrug of indifference and pulled a face. 
+ 
+
+===
+
+Melissa served up a shrug of indifference and pulled a face. 
 
  "He didn't have the balls to phone me or send a text." 
 
@@ -1726,7 +1760,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© An hour later, Eammon, seated in his favourite chair in front of the television, a can of lager thoughtfully supplied by his daughter, turned his head in the direction of the front door. 
+ 
+
+===
+
+An hour later, Eammon, seated in his favourite chair in front of the television, a can of lager thoughtfully supplied by his daughter, turned his head in the direction of the front door. 
 
  "I'll get it!" Melissa called when the bell rang. 
 
@@ -1978,7 +2016,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© Julia clenched her teeth. She could feel the anger bubbling inside her. Why couldn't Mel just shut up? Wasn't all that in the past?" 
+ 
+
+===
+
+Julia clenched her teeth. She could feel the anger bubbling inside her. Why couldn't Mel just shut up? Wasn't all that in the past?" 
 
  "Mel, please, do we have to talk about all that? I'd rather just forget." 
 
@@ -2226,7 +2268,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© Eammon took a step outside for a closer examination and boggled at the sight of his wife beneath the vast canopy of the umbrella. Julia was most definitely nude, and apparently asleep. 
+ 
+
+===
+
+Eammon took a step outside for a closer examination and boggled at the sight of his wife beneath the vast canopy of the umbrella. Julia was most definitely nude, and apparently asleep. 
 
  He realised in an instant -- it didn't take a detective's powers of deduction to figure out this little scene -- whose influence was at work here. This was Melissa again. The girl had somehow influenced her slightly uptight mother to go nude in the garden. 
 
@@ -2458,7 +2504,11 @@
 
  
 
- ****** Nude Melissa ****** bygeronimo_appleby© This year he'd splurged and gone for the villa rather than a caravan on the beach; they could afford it, and this place would be so much more private. 
+ 
+
+===
+
+This year he'd splurged and gone for the villa rather than a caravan on the beach; they could afford it, and this place would be so much more private. 
 
  They needed privacy. 
 

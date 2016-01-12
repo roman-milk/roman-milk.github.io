@@ -1,8 +1,14 @@
+Annabelle Gets Caught Ch. 01
+============================
 #1 
 
  
 
- ****** Annabelle Gets Caught Ch. 01 ****** byJust_Plain_Bob© It was one of those improbable occurrences that have a way of suddenly altering your life; something that you would look back on ten years later and wonder about the odds of it ever happening. 
+ 
+
+===
+
+It was one of those improbable occurrences that have a way of suddenly altering your life; something that you would look back on ten years later and wonder about the odds of it ever happening. 
 
  My wife Annabelle was taking advantage of one of my rare long business trips to visit her family in Denver. I'd spent the last week flying from city to city to visit branch offices and I still had a week to go. I'd caught a flight out of St. Louis for Salt Lake City and just west of Kansas City the pilot announced that a mechanical problem was going to force him to divert to Denver. Once on the ground in Denver I found that there were no flights to Salt Lake until the next day. The airline I was flying put all the passengers from my flight up at local hotels and after I had checked into my room I decided to go see my wife and in-laws. I rented a car and then headed for the little town of Castle Rock. 
 
@@ -86,7 +92,11 @@
 
  
 
- ****** Annabelle Gets Caught Ch. 02 ****** byJust_Plain_Bob© Annabelle wasn't very happy with her new arrangement. She didn't seem to mind finally having to give me blow jobs and anal sex and one day I intended to ask her about that. But she hadn't liked it one bit when I told her the price of her continued comfortable life and my not telling her sister's husband about their black lovers. 
+ 
+
+===
+
+Annabelle wasn't very happy with her new arrangement. She didn't seem to mind finally having to give me blow jobs and anal sex and one day I intended to ask her about that. But she hadn't liked it one bit when I told her the price of her continued comfortable life and my not telling her sister's husband about their black lovers. 
 
  "Do you really hate me that much?" 
 
@@ -278,7 +288,11 @@
 
  
 
- ****** Annabelle Gets Caught Ch. 02 ****** byJust_Plain_Bob© She started slamming herself down on me, "Make me cum you bastard, make me cum." 
+ 
+
+===
+
+She started slamming herself down on me, "Make me cum you bastard, make me cum." 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

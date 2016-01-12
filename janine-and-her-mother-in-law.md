@@ -1,8 +1,14 @@
+Janine and Her Mother in Law
+============================
 #1 
 
  
 
- ****** Janine and Her Mother in Law ****** byJust_Plain_Bob© How's this for a twist on the old catching your wife screwing around with another man story - My mother made her do it. Honest to God, that's her story and she was sticking to it. 
+ 
+
+===
+
+How's this for a twist on the old catching your wife screwing around with another man story - My mother made her do it. Honest to God, that's her story and she was sticking to it. 
 
  I caught my wife cheating on me in a most unusual way. I was cheating on her when I saw her cheating on me, but she didn't see me so I got to claim the moral high ground, at least for now. 
 

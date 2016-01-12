@@ -1,8 +1,14 @@
+Daddy's Obsession
+=================
 #1 
 
  
 
- ****** Daddy's Obsession ****** byNonStopFunGuy© Here is the definition of MIXED EMOTIONS: 
+ 
+
+===
+
+Here is the definition of MIXED EMOTIONS: 
 
  Hiding breathlessly in my 18-year-old daughter Vanessa's bedroom closet, peering out of the slits in the door, holding my aching erection in my hand with my shorts at my knees, while I secretly invaded her most personal private moment of her life, finding myself staring at Vanessa nude except for her bra lying on her back on her bed spreading her legs to her sides, while a big- titted, topless blonde (her red thong raising above her low-rise jeans over her skinny ass) bent forward and drove her tongue into my daughter's bald hairless vagina; meanwhile, my daughter was sucking the mammoth, rock-hard cock of some adult ethnic stud, her eyelids half-closed as she moaned lost in delight. 
 
@@ -88,7 +94,11 @@
 
  
 
- ****** Daddy's Obsession ****** byNonStopFunGuy© But more intense than the emails to Vanessa, I was really on edge reading her emails. I figured she might describe any actual sexual experiences of hers; but after reading through what she'd written, I couldn't tell if she was still a virgin or not. It was wickedly erotic to read my daughter's sexual thoughts, although they were not well formulated or very advanced. Big cocks turn her on; guys with muscles and long hair make her wet; she loves fingerfucking herself and would do it all day if she had the chance. The emails strands I saw didn't have any long stories by Vanessa herself, but she would write guys to tell them she dreams of fucking their big dicks and "loves" to get stretched open and pounded hard. I took that to mean, she would want it; she might have been trying to hide being a virgin. Her descriptions of sex were so generic that it didn't sound like she was speaking from actual experiences. Still, knowing my horny daughter had these thoughts in her head? It was magical. 
+ 
+
+===
+
+But more intense than the emails to Vanessa, I was really on edge reading her emails. I figured she might describe any actual sexual experiences of hers; but after reading through what she'd written, I couldn't tell if she was still a virgin or not. It was wickedly erotic to read my daughter's sexual thoughts, although they were not well formulated or very advanced. Big cocks turn her on; guys with muscles and long hair make her wet; she loves fingerfucking herself and would do it all day if she had the chance. The emails strands I saw didn't have any long stories by Vanessa herself, but she would write guys to tell them she dreams of fucking their big dicks and "loves" to get stretched open and pounded hard. I took that to mean, she would want it; she might have been trying to hide being a virgin. Her descriptions of sex were so generic that it didn't sound like she was speaking from actual experiences. Still, knowing my horny daughter had these thoughts in her head? It was magical. 
 
  Okay, now after hearing all of this, you get the state of my mind at the time. I'd spied on her fucking herself, I'd read her private, hidden emails, and all I could think about was -- fuck, this is fun! 
 
@@ -166,7 +176,11 @@
 
  
 
- ****** Daddy's Obsession ****** byNonStopFunGuy© She's probably assume it was one of her online friends, I figured. Actually, it kind of freaked her out. That night, she was a little edgy and was asking her mom about "stalking," which at first I thought was random and odd, but later in the evening I put two and two together. Oh fuck! I scared her. Now, that hurt. Daddy was such a horny pervert and asshole, I did something because it made my cock hard, and Vanessa was now worried some guy was going to find her and get what he wanted. Ouch. I mean . . . wham, ouch, thud. 
+ 
+
+===
+
+She's probably assume it was one of her online friends, I figured. Actually, it kind of freaked her out. That night, she was a little edgy and was asking her mom about "stalking," which at first I thought was random and odd, but later in the evening I put two and two together. Oh fuck! I scared her. Now, that hurt. Daddy was such a horny pervert and asshole, I did something because it made my cock hard, and Vanessa was now worried some guy was going to find her and get what he wanted. Ouch. I mean . . . wham, ouch, thud. 
 
  By the time I convinced myself -- a couple days later -- that I probably needed to confess my soul to her, she didn't seem perturbed at all and I let it pass. But the anger I had at myself made me promise never to do the closet-thing again. Oh, I thought about a hidden videocamera, or a second phone on her private phone line so I could listen in, but those ideas seemed criminal to me. Daddy hiding in the closet? Well, it's my house, right? (Okay, it's the bank's; but you know what I mean.) 
 
@@ -242,7 +256,11 @@
 
  
 
- ****** Daddy's Obsession ****** byNonStopFunGuy© On the bed past the shielding closet door, the adult stud was humping my 18 year old daughter, pounding his thick body up and down over her, pushing her erection into her twat deeper and deeper. Her legs pulled up more, she was almost bent in half backwards, and his ass too raised up. Briefly he spread his thighs, and between them I could see her round pale ass, and his fat shaved balls banging it, driving his prick into her vaigna. Her hands were on his upper arms, holding him as he fucked her, driving harder and harder until I am sure his entire length was inside her. It was way more cock than Daddy could ever give her, that's for sure. 
+ 
+
+===
+
+On the bed past the shielding closet door, the adult stud was humping my 18 year old daughter, pounding his thick body up and down over her, pushing her erection into her twat deeper and deeper. Her legs pulled up more, she was almost bent in half backwards, and his ass too raised up. Briefly he spread his thighs, and between them I could see her round pale ass, and his fat shaved balls banging it, driving his prick into her vaigna. Her hands were on his upper arms, holding him as he fucked her, driving harder and harder until I am sure his entire length was inside her. It was way more cock than Daddy could ever give her, that's for sure. 
 
  As Vanessa moaned and screamed from the thick deep fucking, Foxanna reached a hand between the two fuckers and must have been toying with my daughter's clitty. Vanessa screamed louder. The blonde had this serious look on her face, working her arm hard to rub and grind while Vanessa was getting screwed by the adult male. My daughter began having orgasms and rapidly too; those shrieks and high-pitched moans were familiar to me, but they came much louder, one after another. 
 
@@ -350,7 +368,11 @@
 
  
 
- ****** Daddy's Obsession ****** byNonStopFunGuy© As the girls made out, I watched Vanessa's round soft butt hover above the bed, her knees spread, her pink vagina beckoning for attention. Meanwhile, her fingers were pumping the blonde, and Foxanna's hips undulated in rapid circles taking the two fingers into her pussy. I heard a toilet flush (the pipes are right behind my head, in the closet here), and a few seconds later the nude male entered the room. Upon seeing Vanessa leaning forward to kiss and fingerfuck Foxanna, the male smiled to himself, admired my daughter's position, and came to the bed and leaned forward himself. 
+ 
+
+===
+
+As the girls made out, I watched Vanessa's round soft butt hover above the bed, her knees spread, her pink vagina beckoning for attention. Meanwhile, her fingers were pumping the blonde, and Foxanna's hips undulated in rapid circles taking the two fingers into her pussy. I heard a toilet flush (the pipes are right behind my head, in the closet here), and a few seconds later the nude male entered the room. Upon seeing Vanessa leaning forward to kiss and fingerfuck Foxanna, the male smiled to himself, admired my daughter's position, and came to the bed and leaned forward himself. 
 
  I saw the stud's fat adult tongue shoot out, he began licking my daughter's clean tight little butthole. Vanessa purred, and the guy started shoving tongue up her anus. Daddy was incredibly turned on. He licked her tight butthole, then after fucking it a few moments, licked down to her pussy and clitty. His cock got hard again, even after all of this sex, and he climbed onto the bed to fuck my daughter again from the rear. 
 

@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Terry
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Terry ****** byJust_Plain_Bob© "How much do you love me," asked my wife of ten years as we sipped our morning coffee. That question has been known to strike fear in the hearts of most men and I was no exception. I sat opposite Terry and contemplated how best to answer all the while knowing full well that I was being set up for something. 
+ 
+
+===
+
+"How much do you love me," asked my wife of ten years as we sipped our morning coffee. That question has been known to strike fear in the hearts of most men and I was no exception. I sat opposite Terry and contemplated how best to answer all the while knowing full well that I was being set up for something. 
 
  "Even more important" she went on, "How much do you trust me?" 
 

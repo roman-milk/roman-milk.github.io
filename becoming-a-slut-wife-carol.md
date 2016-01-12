@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Carol
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Carol ****** byJust_Plain_Bob© "Man, would I ever like to fuck that!" 
+ 
+
+===
+
+"Man, would I ever like to fuck that!" 
 
  I was standing next to him at the bar and I turned to see who he was looking at. Couldn't blame him when I saw where he was looking; she was tall, well built and blonde and easily the best looking woman in the place that night. She was also the biggest slut. What the man next to me didn't know was that he could fuck her if he really wanted to; all he had to do was walk up to her and ask. If he didn't have bad breath (Carol was hell on bad breath) Carol would walk him outside to the parking lot and fuck his eyes out. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Becoming a Slut Wife: Carol ****** byJust_Plain_Bob© "I'm seeing her two nights a week and I'm going to try and make it three. Carol thinks I bowl, but I don't know if I can get her to believe I'm bowling three nights a week." 
+ 
+
+===
+
+"I'm seeing her two nights a week and I'm going to try and make it three. Carol thinks I bowl, but I don't know if I can get her to believe I'm bowling three nights a week." 
 
  I laughed and said, "You won't know until you try." 
 

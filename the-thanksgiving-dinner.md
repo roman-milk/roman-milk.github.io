@@ -1,8 +1,14 @@
+The Thanksgiving Dinner
+=======================
 #1 
 
  
 
- ****** The Thanksgiving Dinner ****** byJust_Plain_Bob© I sat there and looked around the room as the turkey was being carved and shook my head in disbelief at the way things had turned out. 
+ 
+
+===
+
+I sat there and looked around the room as the turkey was being carved and shook my head in disbelief at the way things had turned out. 
 
  I grew up next door to Matilda and Michael. Matty was sweet on me and Michael, who was two years older than me was a bully. So, Matty and I played and Michael and I fought. Sometimes he would win and sometimes I would and we ended up having a rough and tumble kind of friendship. Matty and I did the usual childhood things that curious boys and girls do; we played 'doctor' and went through the 'you show me yours and I'll show you mine' business and we suffered the ridicule of others our age pointing fingers and yelling "Matty is sweet on Sammy" and "Sammy's got a girl friend, Sammy's got a girl friend." Then one Saturday I went out of my house and saw a moving van parked in front of Matty's house and in two days she was gone. 
 

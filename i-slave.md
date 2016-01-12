@@ -1,8 +1,14 @@
+I, Slave
+========
 #1 
 
  
 
- ****** I, Slave ****** byfastandsloppy© 1. The Prospect 
+ 
+
+===
+
+1. The Prospect 
 
  I was almost late for my appointment but I paused -- actually, hesitated would be a more accurate word, I suppose - to recheck the address. I was sitting in my mom's car, parked in a tidy, tree-lined office park, looking up at the squat, mirrored box of a building in front of me. It was numbered 9951, just like the email had said, but I decided to check the website for "Paragon Companions" on my phone's browser, just to be extra sure. Sure enough, the address was listed as 9951 Elm Crescent Parkway, suite 333. Yup, I was at the right place. And I was three minutes late... so far. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© A soft whir from the camera in front of me as it adjusted its focus temporarily interrupted my incipient orgasm. I wondered who was watching me debase myself with that obscene devise in that bland hotel room. I wondered how many eyes were looking at me squirming in pleasure atop my stool. For all I knew it might have been a live feed to millions of internet perverts all watching me while they pleasured themselves. My body felt hot at the thought of all those potential eyes drinking me in. I looked into the camera, right into it, to let them all know I was thinking about them just as they were thinking about me. 
+ 
+
+===
+
+A soft whir from the camera in front of me as it adjusted its focus temporarily interrupted my incipient orgasm. I wondered who was watching me debase myself with that obscene devise in that bland hotel room. I wondered how many eyes were looking at me squirming in pleasure atop my stool. For all I knew it might have been a live feed to millions of internet perverts all watching me while they pleasured themselves. My body felt hot at the thought of all those potential eyes drinking me in. I looked into the camera, right into it, to let them all know I was thinking about them just as they were thinking about me. 
 
  "I want you to come for me," said the voice. 
 
@@ -382,7 +392,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© I was, in short, ready to be a slave. 
+ 
+
+===
+
+I was, in short, ready to be a slave. 
 
  My hands were still tied behind me. After a short time aloft, the blouse and blazer of my ersatz schoolgirl uniform were pushed down by the wind and were snapping like tattered flags around my shoulders. My skirt beat my thighs raw until it ripped free and fluttered away down into the sea. After the green land had turned into a blue smear on the horizon and, finally, an indistinct gray line, the deep blue water beneath me grew lighter and greener. Suddenly, it gave way to sand and trees. 
 
@@ -558,7 +572,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© Next, still balanced in that horrible position, the two slaves started lathering my legs, pussy and armpits. Mistress Black produced a straight edged razor and held it up for me to see. 
+ 
+
+===
+
+Next, still balanced in that horrible position, the two slaves started lathering my legs, pussy and armpits. Mistress Black produced a straight edged razor and held it up for me to see. 
 
  "Now hold still you stupid girl. If I accidently kill you I might get into trouble." 
 
@@ -716,7 +734,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© I thrust my tongue out for him. They laughed. 
+ 
+
+===
+
+I thrust my tongue out for him. They laughed. 
 
  "Well, I have this out now," he said, snapping the pliers twice. "Might as well use it." 
 
@@ -864,7 +886,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© A door creaked open somewhere below me. I craned my neck and I saw The Master stride out into the grass. He wore a white robe and his bald head showed a faint rind of fuzz that wrapped around the back of his skull. He walked to the middle of the yard to where the small pouch of money sat in the dewy grass. He picked it up. Pulling a long loop of leather strap from the pouch he placed it around his neck so the bag hung against his chest. He opened his robe and let if fall to the ground. He was completely naked. He slapped the bag around his neck with the palm of his hand and shouted something in Spanish to the peasants arrayed in a circle around him. They looked at each other, each peasant waiting for the other to move first. I noticed for the first time that they all held thick wooden sticks about half a yard long: clubs. 
+ 
+
+===
+
+A door creaked open somewhere below me. I craned my neck and I saw The Master stride out into the grass. He wore a white robe and his bald head showed a faint rind of fuzz that wrapped around the back of his skull. He walked to the middle of the yard to where the small pouch of money sat in the dewy grass. He picked it up. Pulling a long loop of leather strap from the pouch he placed it around his neck so the bag hung against his chest. He opened his robe and let if fall to the ground. He was completely naked. He slapped the bag around his neck with the palm of his hand and shouted something in Spanish to the peasants arrayed in a circle around him. They looked at each other, each peasant waiting for the other to move first. I noticed for the first time that they all held thick wooden sticks about half a yard long: clubs. 
 
  The Black Lieutenant growled something in Spanish. His voice was impatient. The peasants advanced on the Master in a tightening circle. He turned to inspecting them each with hard, predatory eyes. A couple of them raised clubs and tensed themselves for an attack. The Master stood with his feet wide and arms ready in front of him. A few fat drops of rain started to fall. 
 
@@ -980,7 +1006,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© I was relieved. But, to be honest, I was also a little disappointed. 
+ 
+
+===
+
+I was relieved. But, to be honest, I was also a little disappointed. 
 
  12. The Fall of Mistress Black 
 
@@ -1144,7 +1174,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© "Word is you've been letting things get away from you out here. Word is you been gettin' soft being knee deep in pussy all day. So I decided to buy you out and get into the resort business." 
+ 
+
+===
+
+"Word is you've been letting things get away from you out here. Word is you been gettin' soft being knee deep in pussy all day. So I decided to buy you out and get into the resort business." 
 
  "I've only got one thing for sale here and I see you've already made you selection," said Master, nodding towards me. 
 
@@ -1340,7 +1374,11 @@
 
  
 
- ****** I, Slave ****** byfastandsloppy© Before the job, I had asked Leo why. The Europeans didn't hassle us much and I didn't like the idea of targeting a mere accountant. "Men who trade in women as property will always see our operation in the Caribbean and think they can do it better and more profitably with unpaid help," he explained. "I don't agree. Nor do I appreciate their business model. I have a daughter myself, you know. It's best to nip these things in the bud before they have a reason to suspect us. We'll let them slaughter each other and we won't get our hands dirty." 
+ 
+
+===
+
+Before the job, I had asked Leo why. The Europeans didn't hassle us much and I didn't like the idea of targeting a mere accountant. "Men who trade in women as property will always see our operation in the Caribbean and think they can do it better and more profitably with unpaid help," he explained. "I don't agree. Nor do I appreciate their business model. I have a daughter myself, you know. It's best to nip these things in the bud before they have a reason to suspect us. We'll let them slaughter each other and we won't get our hands dirty." 
 
  "Yes, we won't get our hands dirty," I giggled to myself as I wiped my finger clean on a paper towel. I flushed the towel down the toilet before hooking the hard drive up to my phone. I dialed Leo. 
 

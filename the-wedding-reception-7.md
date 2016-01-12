@@ -1,8 +1,14 @@
+The Wedding Reception
+=====================
 #1 
 
  
 
- ****** The Wedding Reception ****** byJust_Plain_Bob© After years of reading slut wife stories in various magazines and on Internet sites I finally have one of my own to tell. It is not about my wife, at least not this time, and it happened at a very unlikely place - my daughter's wedding. The slut? None other that the mother of the groom. 
+ 
+
+===
+
+After years of reading slut wife stories in various magazines and on Internet sites I finally have one of my own to tell. It is not about my wife, at least not this time, and it happened at a very unlikely place - my daughter's wedding. The slut? None other that the mother of the groom. 
 
  Rick and Anna had been a couple for several years before Rick popped the question and Anna said yes. Jean (my wife) and I had met and had socialized with Rick's parents for over two years. There was nothing about Tom and Denise that would make you think that they were anything other that a middle-aged suburban couple with a stable marriage, but as the old saying goes, looks can be deceiving. The wedding had taken place at one o'clock Saturday afternoon and the reception was being held at our home. About two hours into the reception I noticed that Tom was spending a lot of time with one of Anna's bridesmaids and I wondered about that because (a) the girl's husband was usually a very jealous sort and he hung around his wife like a guard dog and (b) Denise was in the area. But, I was tending bar and I got busy and forgot about it. 
 

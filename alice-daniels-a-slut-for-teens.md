@@ -1,8 +1,14 @@
+Alice Daniels, A Slut for Teens
+===============================
 #1 
 
  
 
- ****** Alice Daniels, A Slut for Teens ****** byJust_Plain_Bob© Alice Daniels sat at the kitchen table drinking a cup of coffee and looking out the window at the back yard swimming pool. What she really needed, she thought, was a good stiff drink, but stiff drinks were the cause of her problems. As she sipped her coffee she asked herself just how in the hell did she allow herself to get in such a predicament. It just wasn't fair! She did every thing she was supposed to do. She cooked, cleaned, kept the house spotless, and was a good mother to her two children - Tom couldn't ask for a better wife. Didn't she treat him like a king? She waited on him hand and foot - his every wish was like a command to her. God, it just wasn't fair. 
+ 
+
+===
+
+Alice Daniels sat at the kitchen table drinking a cup of coffee and looking out the window at the back yard swimming pool. What she really needed, she thought, was a good stiff drink, but stiff drinks were the cause of her problems. As she sipped her coffee she asked herself just how in the hell did she allow herself to get in such a predicament. It just wasn't fair! She did every thing she was supposed to do. She cooked, cleaned, kept the house spotless, and was a good mother to her two children - Tom couldn't ask for a better wife. Didn't she treat him like a king? She waited on him hand and foot - his every wish was like a command to her. God, it just wasn't fair. 
 
  She thought back to how it had all started. Tom had been working hard at his new job and was putting in ten and twelve hours a day six days a week. He was exhausted when he came home and as a result their sex life had gone from marvelous to zilch. She hadn't been laid in so long she was afraid her pussy might grow shut. Desperate to turn things around she had gone to Frederick's of Hollywood and purchased enough sexy lingerie to turn on a platoon of men. She had sent the kids to her mother's for the night and when Tom had come home that night she had greeted him at the door with a martini and wearing only high heels and a few black pieces of almost nothing. He had taken the martini and walked past her asking, "What's for dinner?" Stunned, she had run crying to her bedroom. 
 

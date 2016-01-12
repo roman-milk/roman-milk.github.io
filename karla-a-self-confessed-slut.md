@@ -1,8 +1,14 @@
+Karla - A Self Confessed Slut
+=============================
 #1 
 
  
 
- ****** Karla - A Self Confessed Slut ****** bygeronimo_appleby© I've always been promiscuous. I adore men. I adore their cocks. I've opened my legs for more men than I can remember. Not that I'm keeping any kind of score, but I've been fucked by plenty. Slut is a name I've been called in the past. I love the sound of that word. I love the way I can roll it around my tongue, just like I roll a big cock-head around my tongue when I'm on my knees in front of a man. S. L. U. T. That word conjures up images in my mind of me being fucked hard and fast in an alleyway. In an alleyway, at night – surrounded by the filth of a city, rubbish skips, puddles of piss, and maybe even a few voyeurs tugging at their cocks. 
+ 
+
+===
+
+I've always been promiscuous. I adore men. I adore their cocks. I've opened my legs for more men than I can remember. Not that I'm keeping any kind of score, but I've been fucked by plenty. Slut is a name I've been called in the past. I love the sound of that word. I love the way I can roll it around my tongue, just like I roll a big cock-head around my tongue when I'm on my knees in front of a man. S. L. U. T. That word conjures up images in my mind of me being fucked hard and fast in an alleyway. In an alleyway, at night – surrounded by the filth of a city, rubbish skips, puddles of piss, and maybe even a few voyeurs tugging at their cocks. 
 
  God, the more depraved the better as far as I'm concerned. 
 

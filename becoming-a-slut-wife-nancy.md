@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Nancy
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Nancy ****** byJust_Plain_Bob© Nancy and I have been married for a bit more than twenty year and for nineteen of those years my biggest fantasy has been to see her with another man. Nancy and I have always been open and honest with each other so she has always known about my desire to watch her. It really didn't surprise me when she said no, but her 'no' didn't stop my continuing to fantasize about it off and on over the years. Nancy and I both work and her job requires some travel while mine doesn't. Nancy was in New York and I was home watching the Raven's play the Bronco's on Monday Night Football when the phone rang. I had been expecting Nancy to call so I hit the mute button on the TV and picked up the cordless. We exchanged hellos, made small talk for a minute or so and I got the feeling that something was bothering her. 
+ 
+
+===
+
+Nancy and I have been married for a bit more than twenty year and for nineteen of those years my biggest fantasy has been to see her with another man. Nancy and I have always been open and honest with each other so she has always known about my desire to watch her. It really didn't surprise me when she said no, but her 'no' didn't stop my continuing to fantasize about it off and on over the years. Nancy and I both work and her job requires some travel while mine doesn't. Nancy was in New York and I was home watching the Raven's play the Bronco's on Monday Night Football when the phone rang. I had been expecting Nancy to call so I hit the mute button on the TV and picked up the cordless. We exchanged hellos, made small talk for a minute or so and I got the feeling that something was bothering her. 
 
  "What's the matter sweetie?" 
 

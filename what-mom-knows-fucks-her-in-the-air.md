@@ -1,8 +1,14 @@
+What Mom Knows Fucks Her In The Air
+===================================
 #1 
 
  
 
- ****** What Mom Knows Fucks Her In The Air ****** bysilkstockingslover© Summary: Mother helps son join the mile-high club. 
+ 
+
+===
+
+Summary: Mother helps son join the mile-high club. 
 
  Note 1: This is part four of a continuing incest series. I highly recommend you read the first three parts (What Mom Doesn't Know Will Fuck Her, What Mom Knows Fucks Her Again and What Mom Knows Fucks Her Ass) as the layered subplots may be confusing without the background information...but here is a very brief primer of the series so far: 
 
@@ -228,7 +234,11 @@
 
  
 
- ****** What Mom Knows Fucks Her In The Air ****** bysilkstockingslover© "Fuck, yes," I grunted, in awe of what she was about to do...on camera...for me. 
+ 
+
+===
+
+"Fuck, yes," I grunted, in awe of what she was about to do...on camera...for me. 
 
  The awe continued, as she stood up, bent her knees in a way very few limber eighteen year olds could do and slowly lowered herself onto the wine bottle. I let out a gasp as the top of the bottle began to disappear inside my girlfriend's cunt. 
 
@@ -550,7 +560,11 @@
 
  
 
- ****** What Mom Knows Fucks Her In The Air ****** bysilkstockingslover© Once on the plane, I noticed Miranda quickly talking to a very cute flight attendant, before either Mom or Ellie got on. I was curious about the brief exchange and would later learn so much more. I was sitting with Mom who had the window seat, while Ellie had the other window seat, meaning Miranda and I could still chat. The stewardess for first class, the one Miranda briefly spoke to, was exactly that, a Katy Perry lookalike in traditional flight wear and delicious tan pantyhose. 
+ 
+
+===
+
+Once on the plane, I noticed Miranda quickly talking to a very cute flight attendant, before either Mom or Ellie got on. I was curious about the brief exchange and would later learn so much more. I was sitting with Mom who had the window seat, while Ellie had the other window seat, meaning Miranda and I could still chat. The stewardess for first class, the one Miranda briefly spoke to, was exactly that, a Katy Perry lookalike in traditional flight wear and delicious tan pantyhose. 
 
  Before the flight even started, Miranda had started the sexual innuendo by asking our flight attendant, whose name tag read Dana, "So I have to ask you something." 
 
@@ -938,7 +952,11 @@
 
  
 
- ****** What Mom Knows Fucks Her In The Air ****** bysilkstockingslover© "There you have it," Miranda said. 
+ 
+
+===
+
+"There you have it," Miranda said. 
 
  "There we have what?" Ellie asked, clearly close to orgasm herself, but unable to come while having this bizarre conversation. 
 

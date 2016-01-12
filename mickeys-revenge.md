@@ -1,8 +1,14 @@
+Mickey's Revenge
+================
 #1 
 
  
 
- ****** Mickey's Revenge ****** byJust_Plain_Bob© Mickey was the woman that most men spend their life hoping to find. Great looking in a wholesome girl next door sort of way. A fantastic cook and a baker who won prizes at the county fair each year. She was the adoring mother of three wonderful children, she sang in the church choir, and taught Sunday school classes. She volunteered her services to various local charities, was recording secretary of the PTA and even with all the above going on she still found time to spoil me rotten. But as great as she was my lovely wife had a flaw. It probably wouldn't be a flaw to anyone else, but it was to me. Mickey loved sex, but only sex in the missionary position. Any other position than missionary was degrading to woman. Oral sex was disgusting and only whores did it. Anal sex? An abomination and the practitioners of it would surely go to hell. I, however, was a little more cosmopolitan in my tastes. I'd had oral sex before getting married and I loved both getting and giving it. Anal sex with a woman who liked it could be an exciting rush and I could think of any number of positions that could be sexually satisfying. I spent several years trying to get Mickey to come around to my way of thinking, but to no avail. In short - I was feeling sexually deprived. 
+ 
+
+===
+
+Mickey was the woman that most men spend their life hoping to find. Great looking in a wholesome girl next door sort of way. A fantastic cook and a baker who won prizes at the county fair each year. She was the adoring mother of three wonderful children, she sang in the church choir, and taught Sunday school classes. She volunteered her services to various local charities, was recording secretary of the PTA and even with all the above going on she still found time to spoil me rotten. But as great as she was my lovely wife had a flaw. It probably wouldn't be a flaw to anyone else, but it was to me. Mickey loved sex, but only sex in the missionary position. Any other position than missionary was degrading to woman. Oral sex was disgusting and only whores did it. Anal sex? An abomination and the practitioners of it would surely go to hell. I, however, was a little more cosmopolitan in my tastes. I'd had oral sex before getting married and I loved both getting and giving it. Anal sex with a woman who liked it could be an exciting rush and I could think of any number of positions that could be sexually satisfying. I spent several years trying to get Mickey to come around to my way of thinking, but to no avail. In short - I was feeling sexually deprived. 
 
  I travel quite a bit as part of my job and over the years I'd sampled a lady or two, but the fear of taking home a disease made me put a stop to that. Instead I managed to come up with a steady girl friend in several cities - a sailor's girl in every port kind of thing as it were - and it worked out well for me. I did feel somewhat guilty about it at first, but I was able to rationalize the guilt away. I didn't love any of those women the way I loved Mickey and all I was doing with them was what Mickey had denied me. Shirley gave state of the art blow jobs and she loved the taste of cum so much that she swallowed it and then licked my cock clean to make sure she got every last drop. Angela had the tightest little asshole and she loved taking a cock in it. In fact, she preferred ass fucking to regular fucking and I was more that happy to see that she got what she wanted. Jennifer was a married woman who just loved to fuck, but what she loved even more was to have her pussy eaten when it had cum in it. Mine or her husbands, it didn't matter, as long as I was willing to suck it out of her she promised to be my girlfriend forever. Alice was a twenty-five year old who had been a gymnast in high school and college and she loved to contort her taut body into various positions for having sex. So there I was, sitting on top of the world with all that any man could hope to ask for. Great anal sex in Portland, superb head inn Salt Lake City, kinky cream pies in Denver, energetic and athletic sex in Kansas City and the hottest missionary position sex in the world at home. 
 
@@ -118,7 +124,11 @@
 
  
 
- ****** Mickey's Revenge ****** byJust_Plain_Bob© "You would really let him sell you as a whore." 
+ 
+
+===
+
+"You would really let him sell you as a whore." 
 
  "Why not? I told you I'm going to be getting stuffed with black cock when you are on business trips, why not make a little on the deal? So, what's it to be?" 
 

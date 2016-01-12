@@ -1,8 +1,14 @@
+Picnic on Pebble Beach
+======================
 #1 
 
  
 
- ****** Picnic on Pebble Beach ****** bygeronimo_appleby© A quick one in which Eric and Rebecca are re-united after two decades. 
+ 
+
+===
+
+A quick one in which Eric and Rebecca are re-united after two decades. 
 
  If you enjoy it send feedback. If you don't enjoy it, tell me why. Feedback can be either in public comments below, PM on Lit forum, or email. If you want a response to feedback, email is best. 
 

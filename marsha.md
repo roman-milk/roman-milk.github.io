@@ -1,8 +1,14 @@
+Marsha
+======
 #1 
 
  
 
- ****** Marsha ****** byJust_Plain_Bob© Marsha, my wife of twenty-six years, walked into the kitchen and sat down on the other side of the table from me and said: 
+ 
+
+===
+
+Marsha, my wife of twenty-six years, walked into the kitchen and sat down on the other side of the table from me and said: 
 
  "Honey, can we talk?" 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Marsha ****** byJust_Plain_Bob© "I'm sorry Frankie. I never meant to be the one to ruin your life." 
+ 
+
+===
+
+"I'm sorry Frankie. I never meant to be the one to ruin your life." 
 
  "What are you talking about?" 
 

@@ -1,8 +1,14 @@
+A Tale Noir
+===========
 #1 
 
  
 
- ****** A Tale Noir ****** bysubslutjenna© This is something different. I thought I would try something new for a change. 
+ 
+
+===
+
+This is something different. I thought I would try something new for a change. 
 
  I hope you dear readers enjoy it. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** A Tale Noir ****** bysubslutjenna© CHAPTER SIX 
+ 
+
+===
+
+CHAPTER SIX 
 
  The marauder belched forth a shuttle. A landing craft for a small team of ruffians. As it sped away, the main craft tracked its offspring's descent. Twin laser cannons mounted on the marauder's hull turned in all directions, searching for any threat. As the shuttle achieved orbit, the marauder class vessel turned and set a course for orbit around a small moon not far away. Hiding. Watching. Waiting. 
 
@@ -310,7 +320,11 @@
 
  
 
- ****** A Tale Noir ****** bysubslutjenna© Turning her head she saw the entire other side of the lab was a bank of monitors. All of them showing her naked helpless body from several different angles. With a whimper, she thought she was completely screwed. At long last she began to wonder who her captors were. Aliens, pirates, or some unknown threat to Mankind were the first things to cross her mind. 
+ 
+
+===
+
+Turning her head she saw the entire other side of the lab was a bank of monitors. All of them showing her naked helpless body from several different angles. With a whimper, she thought she was completely screwed. At long last she began to wonder who her captors were. Aliens, pirates, or some unknown threat to Mankind were the first things to cross her mind. 
 
  Then, the doors to the lab slid open on a track, and Hugo entered. His squat dwarf frame muscular and his face evilly low browed. Pushing a cart covered with a tarpulin. As she watched him Rachel trembled. 
 
@@ -446,7 +460,11 @@
 
  
 
- ****** A Tale Noir ****** bysubslutjenna© "Try to relax a bit Miss," Hugo told her. "And prepare for Master to come see you," he finished. Pushing the tray and smiling at her as he walked away. The injection already taking effect, Rachel could only weakly watch Hugo leave. 
+ 
+
+===
+
+"Try to relax a bit Miss," Hugo told her. "And prepare for Master to come see you," he finished. Pushing the tray and smiling at her as he walked away. The injection already taking effect, Rachel could only weakly watch Hugo leave. 
 
  And all she could even think to do or say was to weakly smile and whisper, "Bye." 
 

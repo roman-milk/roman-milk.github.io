@@ -1,8 +1,14 @@
+Melissa's Personal Time
+=======================
 #1 
 
  
 
- ****** Melissa's Personal Time ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  A quick scene which popped into being for no apparent reason. In this one, it's Melissa's once-a-week personal time, a time where she lets rip and allows her mind a free run. 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Melissa's Personal Time ****** bygeronimo_appleby© "Shut up," she snarls in response as the one between her lips pulls back as well. There's spunk on her chin, her breasts are spattered with goo. Melissa fingers the gloop at her opening while gasping for more. 
+ 
+
+===
+
+"Shut up," she snarls in response as the one between her lips pulls back as well. There's spunk on her chin, her breasts are spattered with goo. Melissa fingers the gloop at her opening while gasping for more. 
 
  She's soon got one wedged between her lips while another man's hard-on squelches into her cunt. 
 

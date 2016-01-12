@@ -1,8 +1,14 @@
+Poor Rob
+========
 #1 
 
  
 
- ****** Poor Rob ****** byJust_Plain_Bob© There were times when it sucked to be me and in the last three years those times had been too damned frequent. As I sat at the bar in my favorite night spot and nursed my beer I did have to admit to myself that I brought a lot of those times down on me on my own. I seemed to have the world's best AND worst taste in women. Best because I always seemed to come up with the great looking ones; the ones with personality to spare and who were fun loving and a joy to be with and who usually grabbed my heart. Worst because they all seemed to have a hidden flaw - they were all round-heeled sluts. Well, maybe that is being a little bit harsh, but they all did leave me for someone else. But usually not until I caught them "sharing." I remembered each and every one of them and as I looked down into my beer glass the memories came back again. 
+ 
+
+===
+
+There were times when it sucked to be me and in the last three years those times had been too damned frequent. As I sat at the bar in my favorite night spot and nursed my beer I did have to admit to myself that I brought a lot of those times down on me on my own. I seemed to have the world's best AND worst taste in women. Best because I always seemed to come up with the great looking ones; the ones with personality to spare and who were fun loving and a joy to be with and who usually grabbed my heart. Worst because they all seemed to have a hidden flaw - they were all round-heeled sluts. Well, maybe that is being a little bit harsh, but they all did leave me for someone else. But usually not until I caught them "sharing." I remembered each and every one of them and as I looked down into my beer glass the memories came back again. 
 
  +++++++++++++++++++ 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** Poor Rob ****** byJust_Plain_Bob© I didn't want a relationship, but I did want to get laid so instead of looking for someone I could ask out on a date I went looking for someone I could pick up. 
+ 
+
+===
+
+I didn't want a relationship, but I did want to get laid so instead of looking for someone I could ask out on a date I went looking for someone I could pick up. 
 
  She looked about my age and she looked hot! Long dark hair and what looked like a magnificent pair of legs. The mirror showed me her front and the face was beautiful and the cleavage I could see was impressive. I slid onto the barstool next to her and she glanced at me with an amused look on her face and I knew what she was thinking. 
 

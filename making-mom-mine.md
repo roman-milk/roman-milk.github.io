@@ -1,8 +1,14 @@
+Making Mommy Mine
+=================
 #1 
 
  
 
- ****** Making Mommy Mine ****** bysilkstockingslover© An incest love story entry for the Valentine's Day competition, if such a story can exist. Please read and vote. 
+ 
+
+===
+
+An incest love story entry for the Valentine's Day competition, if such a story can exist. Please read and vote. 
 
  Have you ever had dreams of fucking your mother? 
 
@@ -288,7 +294,11 @@
 
  
 
- ****** Making Mommy Mine ****** bysilkstockingslover© "Honey," she said surprised by my candidness. 
+ 
+
+===
+
+"Honey," she said surprised by my candidness. 
 
  "Mom, if I am being honest, if you were not my mother I would have tried seducing you long time ago. You are really hot." 
 
@@ -616,7 +626,11 @@
 
  
 
- ****** Making Mommy Mine ****** bysilkstockingslover© In the car I said, "Elaine, do you need to get off?" Before she could respond, I reached for the egg remote and turned it up. 
+ 
+
+===
+
+In the car I said, "Elaine, do you need to get off?" Before she could respond, I reached for the egg remote and turned it up. 
 
  She instantly moaned and said, "Oh Jeremy, this is not right." 
 
@@ -842,7 +856,11 @@
 
  
 
- ****** Making Mommy Mine Ch. 02 ****** bysilkstockingslover© 2: The Next Day 
+ 
+
+===
+
+2: The Next Day 
 
  NOTE: A special thanks goes to estragon for his copy edit. His time and suggestions are invaluable. 
 
@@ -1082,7 +1100,11 @@
 
  
 
- ****** Making Mommy Mine Ch. 02 ****** bysilkstockingslover© Desperate to come, I positioned myself behind Hannah, glanced over to my Mom and winked at her as she stared in hypnotic pleasure, and began to slide into Hannah's warm ass. As soon as I began to slide inside her, she pushed back and began bucking back on my cock. In a few seconds my cock was buried in her ass and I was simply standing still as I allowed this hot MILF to ride my cock like the nasty whore she was. The tightness and fast pace of the fucking had my balls boiling and after only a couple of minutes I was ready to shoot my third load of the day. I grabbed Hannah's ass and began pumping hard as she screamed in delirious pleasure as my seed began filling her rectum. I kept pumping until every last drop sprayed out of my cock. 
+ 
+
+===
+
+Desperate to come, I positioned myself behind Hannah, glanced over to my Mom and winked at her as she stared in hypnotic pleasure, and began to slide into Hannah's warm ass. As soon as I began to slide inside her, she pushed back and began bucking back on my cock. In a few seconds my cock was buried in her ass and I was simply standing still as I allowed this hot MILF to ride my cock like the nasty whore she was. The tightness and fast pace of the fucking had my balls boiling and after only a couple of minutes I was ready to shoot my third load of the day. I grabbed Hannah's ass and began pumping hard as she screamed in delirious pleasure as my seed began filling her rectum. I kept pumping until every last drop sprayed out of my cock. 
 
  Pulling out, I turned to my Mom and demanded, "Mommy, please clean me up." 
 

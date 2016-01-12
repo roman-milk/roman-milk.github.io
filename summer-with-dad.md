@@ -1,8 +1,14 @@
+Summer with Dad
+===============
 #1 
 
  
 
- ****** Summer with Dad ****** bysilkstockingslover© Summary: Daughter catches Dad and then decides she must have him. 
+ 
+
+===
+
+Summary: Daughter catches Dad and then decides she must have him. 
 
  Note 1: This is a Summer 2013 Contest Story so please vote. 
 
@@ -242,7 +248,11 @@
 
  
 
- ****** Summer with Dad ****** bysilkstockingslover© Hi sweetheart, 
+ 
+
+===
+
+Hi sweetheart, 
 
  Out surfing...just walk out the back door. 
 
@@ -618,7 +628,11 @@
 
  
 
- ****** Summer with Dad ****** bysilkstockingslover© Surprisingly, over the next half hour she actually showed me around the small downtown strip, introduced me to a couple dozen people, and showed me the best place to see the sun set. Although the sun had long set, she brought me to this very secluded spot. 
+ 
+
+===
+
+Surprisingly, over the next half hour she actually showed me around the small downtown strip, introduced me to a couple dozen people, and showed me the best place to see the sun set. Although the sun had long set, she brought me to this very secluded spot. 
 
  She smiled as she took my hands, "You have the exact same eyes as your father." 
 
@@ -938,7 +952,11 @@
 
  
 
- ****** Summer with Dad ****** bysilkstockingslover© "Always for you, Daddy," I replied, between bobs. 
+ 
+
+===
+
+"Always for you, Daddy," I replied, between bobs. 
 
  Once his cock was fully erect, he ordered, "Stand up and bend over." 
 

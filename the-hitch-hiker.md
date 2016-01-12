@@ -1,8 +1,14 @@
+The Hitch Hiker: Alice 01
+=========================
 #1 
 
  
 
- ****** The Hitch Hiker: Alice 01 ****** byJust_Plain_Bob© It had been a along trip and I needed a break from the Interstate. I was tired of truck stop food and the constant monotony of "straight ahead" driving. I saw the sign that said, "Wigginsville Next Exit" and on a whim I pulled off on the exit and saw the sign with the left pointing arrow and the words "Wigginsville 6 miles." I turned left to follow the arrow and six miles later I passed the city limit sign and began looking for a restaurant. 
+ 
+
+===
+
+It had been a along trip and I needed a break from the Interstate. I was tired of truck stop food and the constant monotony of "straight ahead" driving. I saw the sign that said, "Wigginsville Next Exit" and on a whim I pulled off on the exit and saw the sign with the left pointing arrow and the words "Wigginsville 6 miles." I turned left to follow the arrow and six miles later I passed the city limit sign and began looking for a restaurant. 
 
  As I slowly cruised down Main Street looking at the businesses on either side of the street I spotted a sign that said, "Estelle's Caf‚" and I pulled into the next open parking place. Estelle's was just what I was looking for. Home cooked meals, home baked pies and cakes and some pretty damned good coffee. When I left an hour later I was stuffed. I stopped at the Diamond Shamrock at the far edge of town, filled my tank and then drove back through town headed for the exit that would put me back on the four lane. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** The Hitch Hiker: Alice 02 ****** byJust_Plain_Bob© I had spent a long time looking over my shoulder since meeting Alice, but when the trouble came it was not in the form of an FBI agent with a warrant or even a goombah with a gun. No, it was in the form of a dumpy looking businessman with a briefcase. 
+ 
+
+===
+
+I had spent a long time looking over my shoulder since meeting Alice, but when the trouble came it was not in the form of an FBI agent with a warrant or even a goombah with a gun. No, it was in the form of a dumpy looking businessman with a briefcase. 
 
  A customer of mine had flown into town and had called me and asked me to meet him for lunch at the motel where he was staying. By coincidence it was the motel where I had been putting Alice when we returned from my road trips. 
 
@@ -322,7 +332,11 @@
 
  
 
- ****** The Hitch Hiker: Amy ****** byJust_Plain_Bob© "My trousers fell to the floor and her eyes widened as she saw my proud tower of flesh. She stared in fascination as I climbed on the bed and positioned my thick, eight-inch piece of man meat at the entrance to her tunnel of love. Suddenly, as if coming out of a trance, she cried out, "No, we can't, we must not. It would kill my husband if he found out." 
+ 
+
+===
+
+"My trousers fell to the floor and her eyes widened as she saw my proud tower of flesh. She stared in fascination as I climbed on the bed and positioned my thick, eight-inch piece of man meat at the entrance to her tunnel of love. Suddenly, as if coming out of a trance, she cried out, "No, we can't, we must not. It would kill my husband if he found out." 
 
  "Hush girl, you know that you want this." 
 
@@ -460,7 +474,11 @@
 
  
 
- ****** The Hitch Hiker: Cookie ****** byJust_Plain_Bob© We stopped for dinner and gas at a truck stop just outside of Wichita. We had been visiting Cookie's folks in Mulvane and we were headed back home to Denver. I was looking forward to getting home to my own bed and not just because I wanted to sleep. Cookie's parents live in a house with paper-thin walls and Cookie wouldn't let me make love to her there. I had slept next to her, but had gone without sex for the whole nine days we were there and I was hurting. I had pulled into a rest stop and had tried to get Cookie into the back seat, but she told me no, "I want it as bad as you do baby, but let's wait until we get home." 
+ 
+
+===
+
+We stopped for dinner and gas at a truck stop just outside of Wichita. We had been visiting Cookie's folks in Mulvane and we were headed back home to Denver. I was looking forward to getting home to my own bed and not just because I wanted to sleep. Cookie's parents live in a house with paper-thin walls and Cookie wouldn't let me make love to her there. I had slept next to her, but had gone without sex for the whole nine days we were there and I was hurting. I had pulled into a rest stop and had tried to get Cookie into the back seat, but she told me no, "I want it as bad as you do baby, but let's wait until we get home." 
 
  I had gotten up to use the bathroom and when I came back to the table Cookie wasn't there. I guessed that she had also gone to the bathroom, but when she hadn't come back after five minutes I began to wonder just where in the hell she had gotten to. I was just getting ready to get up and stick my head in the ladies room when the waitress came up to me and handed me a piece of paper. 
 
@@ -510,7 +528,11 @@
 
  
 
- ****** The Hitch Hiker: Debbie ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com:81/forum/. Go to Authors Hangout and look for An Open Letter from Just Plain Bob. 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com:81/forum/. Go to Authors Hangout and look for An Open Letter from Just Plain Bob. 
 
  * 
 
@@ -628,7 +650,11 @@
 
  
 
- ****** The Hitch Hiker: Denise ****** byJust_Plain_Bob© I was leaning against the door of the car trying to catch a short nap. It was a Union 76 truck stop and I was parked in the back of the lot where it was fairly dark. On the way from Kansas City to Denver I had gotten sleepy and had caught myself nodding off and I figured I better pull over before I ran off the road and killed myself. I had been there about three hours and while I had gotten some sleep it had been a fitful nap what with air brakes hissing on and off. The whining of the diesel engines as the trucks pulled into and out of the lot didn't help either. I had just made up my mind to go into the restaurant, drink a gallon of hot black coffee and hit the road when there was a 'tap tap' on the window. I sat up and looked out to see a young girl standing there. I rolled the window down and waited for her to tell me what she wanted. I'd heard about hookers who worked truck stops, but this girl looked way too young to be a hooker. It turned out that she both was and wasn't - it just depended on the way you looked at it. 
+ 
+
+===
+
+I was leaning against the door of the car trying to catch a short nap. It was a Union 76 truck stop and I was parked in the back of the lot where it was fairly dark. On the way from Kansas City to Denver I had gotten sleepy and had caught myself nodding off and I figured I better pull over before I ran off the road and killed myself. I had been there about three hours and while I had gotten some sleep it had been a fitful nap what with air brakes hissing on and off. The whining of the diesel engines as the trucks pulled into and out of the lot didn't help either. I had just made up my mind to go into the restaurant, drink a gallon of hot black coffee and hit the road when there was a 'tap tap' on the window. I sat up and looked out to see a young girl standing there. I rolled the window down and waited for her to tell me what she wanted. I'd heard about hookers who worked truck stops, but this girl looked way too young to be a hooker. It turned out that she both was and wasn't - it just depended on the way you looked at it. 
 
  "Mister, I haven't eaten in three days and I'm desperate. I'll give you a blow job for the price of a meal." 
 
@@ -738,7 +764,11 @@
 
  
 
- ****** The Hitch Hiker: Elise ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
 
  * 
 
@@ -844,7 +874,11 @@
 
  
 
- ****** The Hitch Hiker: Joyce ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
 
  * 
 
@@ -980,7 +1014,11 @@
 
  
 
- ****** The Hitch Hiker: Lee Ann ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
 
  * 
 
@@ -1144,7 +1182,11 @@
 
  
 
- ****** The Hitch Hiker: Shauna ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com:81/forum/. Go to Authors Hangout and look for Open Letter From Just Plain Bob. 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com:81/forum/. Go to Authors Hangout and look for Open Letter From Just Plain Bob. 
 
  * 
 
@@ -1274,7 +1316,11 @@
 
  
 
- ****** The Hitch Hiker: Stephanie ****** byJust_Plain_Bob© For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
+ 
+
+===
+
+For a message from Just Plain Bob go to www.literotica.com/forum/ showthread.php?t=431176 
 
  * 
 

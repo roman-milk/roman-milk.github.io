@@ -1,8 +1,14 @@
+Mandy's Revenge
+===============
 #1 
 
  
 
- ****** Mandy's Revenge ****** byJust_Plain_Bob© Revenge can be so sweet. It is even better when the other party doesn't even know that they are being fucked over and you can make it go on and on. It is almost enough that just the thought can make you climax. 
+ 
+
+===
+
+Revenge can be so sweet. It is even better when the other party doesn't even know that they are being fucked over and you can make it go on and on. It is almost enough that just the thought can make you climax. 
 
  It started because I had an extremely lucky day. The day before, a Wednesday, I had been crossing the Safeway parking lot when I happened to notice a shopping cart sitting next to an empty parking space with a purse in it. I took the purse into the store and was just handing it to the clerk behind the customer service desk when a young woman carrying a child came running in. She saw the purse and cried, "Oh thank God. I thought that I had lost it - that it would be gone by now." 
 

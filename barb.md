@@ -1,8 +1,14 @@
+Barb's Dancer
+=============
 #1 
 
  
 
- ****** Barb's Dancer ****** byJust_Plain_Bob© I have spent the last fifteen years trying to be the perfect wife for my husband and I think I have pretty much succeeded. He has never gone without sex when he has wanted it; I have never used the old headache excuse, or I'm on my period", or even the old standby "I just don't feel good tonight." I've always been ready and willing. And my husband is no slouch in bed either; he has always been able to bring me to multiple orgasms and he has always said that taking care of my wants and needs is his first priority. And its not like I was inexperienced when I met my husband. I'd had several lovers before marrying my husband and a few of them had bigger cocks, but Danny knew how to use his. All in all I've been damn happy with my choice of husbands. Which makes the story I am about to relate all the dumber. 
+ 
+
+===
+
+I have spent the last fifteen years trying to be the perfect wife for my husband and I think I have pretty much succeeded. He has never gone without sex when he has wanted it; I have never used the old headache excuse, or I'm on my period", or even the old standby "I just don't feel good tonight." I've always been ready and willing. And my husband is no slouch in bed either; he has always been able to bring me to multiple orgasms and he has always said that taking care of my wants and needs is his first priority. And its not like I was inexperienced when I met my husband. I'd had several lovers before marrying my husband and a few of them had bigger cocks, but Danny knew how to use his. All in all I've been damn happy with my choice of husbands. Which makes the story I am about to relate all the dumber. 
 
  My best friend Becky invited me to a bridal shower for her sister Rosemary. It was typical shower with a lot of gag gifts and kidding around. I did my fair share of the kidding by giving Rosemary a large polish sausage with a jar of Vaseline and a note telling her that practice makes perfect. We had several drinks during the party and while we were not drunk, we were in a good mood. One of the girls suggested we take the party to a local strip club because this particular night was ladies night and some of the male strippers were supposed to be 'really hot'. Hey, I thought, why not? A little fun is good for the soul so we all piled in to our cars and went to the bar. One of the girls knew somebody there and after speaking to them we ended up at tables right up front. More drinks and a lot of laughter later we were all stuffing dollar bills into the g-strings that the guys were wearing. One of the dancers seemed to take a particular interest in me and the other girls noticed it. 
 
@@ -38,7 +44,11 @@
 
  
 
- ****** Barb Cheated ****** byJust_Plain_Bob© Authors note: Not much sex, just a story. 
+ 
+
+===
+
+Authors note: Not much sex, just a story. 
 
  * 
 
@@ -234,7 +244,11 @@
 
  
 
- ****** Barb Cheated ****** byJust_Plain_Bob© "When I ran into Jeff on my night out with the girls I remembered when we were going together and how he would go three, four and sometimes even five times a night. I wondered if he still could and when he made a move on me I went to a motel with him. It was just sex Rob. There was no love or affection, just plain hard sex. He gave me the one thing you didn't. He got me off two or three times every time we got together. It was only sex Rob. It did not lessen the love I have for you one iota. If the choice is you and no sex life or Jeff and great sex I chose you Rob." 
+ 
+
+===
+
+"When I ran into Jeff on my night out with the girls I remembered when we were going together and how he would go three, four and sometimes even five times a night. I wondered if he still could and when he made a move on me I went to a motel with him. It was just sex Rob. There was no love or affection, just plain hard sex. He gave me the one thing you didn't. He got me off two or three times every time we got together. It was only sex Rob. It did not lessen the love I have for you one iota. If the choice is you and no sex life or Jeff and great sex I chose you Rob." 
 
  "Gee Barb, I'm so happy to know that. Let me ask you something. When I come home from work and you don't feel like cooking and you say, "Can we go out to eat" do I take you out?" 
 

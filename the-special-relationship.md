@@ -1,8 +1,14 @@
+The Special Relationship
+========================
 #1 
 
  
 
- ****** The Special Relationship ****** bygeronimo_appleby© Carol had been teasing me all day – not a verbal kind of teasing, but teasing of a more exquisite, physical kind that had me fraught with desperation. Teasing that had me lusting for her. She had begun with her smutty talk, guaranteed to light the fuse of my desire. I loved it when Carol talked dirty; she always gave the impression that she was unapproachable, she possessed a somewhat aloof air, but I knew the real woman, I knew the true depths to which she could sink. I relished the occasions that my girlfriend used profanity at those special moments, I adored her accent, the Geordie twang in her tone as the obscenity poured from her. 
+ 
+
+===
+
+Carol had been teasing me all day – not a verbal kind of teasing, but teasing of a more exquisite, physical kind that had me fraught with desperation. Teasing that had me lusting for her. She had begun with her smutty talk, guaranteed to light the fuse of my desire. I loved it when Carol talked dirty; she always gave the impression that she was unapproachable, she possessed a somewhat aloof air, but I knew the real woman, I knew the true depths to which she could sink. I relished the occasions that my girlfriend used profanity at those special moments, I adored her accent, the Geordie twang in her tone as the obscenity poured from her. 
 
  'Don't you come,' she whispered as I stroked my cock. 'Don't you dare come. I want you to be bursting with it all day. I want to know that you're desperate.' 
 
@@ -164,7 +170,11 @@
 
  
 
- ****** The Special Relationship ****** bygeronimo_appleby© Lee had used the shaft of his cock to split Carol's gooey labia and was now running the underside of his length along her sex. She was panting and sighing while Lee teased her, and I was completely thrown by the look of sheer, wanton desire on her face. I hardly recognised Carol. Her features were twisted into a mask of what appeared to be agony, her teeth were bared, and the cords along her throat stood out starkly as she stared up at her new lover with what I can only describe as a mixture of anticipation and excitement in her expression. 
+ 
+
+===
+
+Lee had used the shaft of his cock to split Carol's gooey labia and was now running the underside of his length along her sex. She was panting and sighing while Lee teased her, and I was completely thrown by the look of sheer, wanton desire on her face. I hardly recognised Carol. Her features were twisted into a mask of what appeared to be agony, her teeth were bared, and the cords along her throat stood out starkly as she stared up at her new lover with what I can only describe as a mixture of anticipation and excitement in her expression. 
 
  'Give it to me,' I heard her beg breathlessly. 'Please, put it in.' 
 

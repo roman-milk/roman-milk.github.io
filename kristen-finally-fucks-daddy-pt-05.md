@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 05
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 05 ****** byNonStopFunGuy© "I can pick u up @ 10," the text read on my cellphone, "even if its a schl nite I can get u home @ 12 & thats 2 hrs of hot fuckin." 
+ 
+
+===
+
+"I can pick u up @ 10," the text read on my cellphone, "even if its a schl nite I can get u home @ 12 & thats 2 hrs of hot fuckin." 
 
  My pussy leaked, seeing those words. I was so fucking tempted to immediately email back and accept the offer for no-strings-attached sex from a pretty sexy, very experienced grown up man. A petite, horny 18 year old girl like me shouldn't give their cellphone numbers to an adulterous, horny business man on an overnight trip in the girl's home city. I mean, unless you want to end up with the guy burying his married adult cock in the girl's tight young pussy. 
 
@@ -138,7 +144,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 05 ****** byNonStopFunGuy© My fingers were getting sore already, pushing into my cunt while my eyes examined every detail of my Daddy's bone probing the woman's pussy. He was so fucking hard and long, and his redhot angry shaft pooled with juices around its thick steely ridges. I wasn't jealous of the woman; I was erotically happy, knowing my Daddy was getting from her what my mother decided to give David instead. 
+ 
+
+===
+
+My fingers were getting sore already, pushing into my cunt while my eyes examined every detail of my Daddy's bone probing the woman's pussy. He was so fucking hard and long, and his redhot angry shaft pooled with juices around its thick steely ridges. I wasn't jealous of the woman; I was erotically happy, knowing my Daddy was getting from her what my mother decided to give David instead. 
 
  This was an amazing journey, I realized, staring at my Dad's cellphone; I was literally taking a trip backwards through some of my father's affairs. It was making me even more insanely lustful for his awesome prick. 
 
@@ -228,7 +238,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 05 ****** byNonStopFunGuy© He did, fuck him -- the guy stiffened his finger and shoved it into my ass; I felt the thickness penetrate me, I'm so tight down there, he was so fucking stiff. I shrieked again, muffled by the cock in my mouth, feeling the horny man start to shove that finger into my ass a bit at a time, twisting it around, moving inside. His tongue was hard against my clitoris, his lips sucking my juices as they flowed, and orgasms were taxiing onto the active runway to start launching through my body. 
+ 
+
+===
+
+He did, fuck him -- the guy stiffened his finger and shoved it into my ass; I felt the thickness penetrate me, I'm so tight down there, he was so fucking stiff. I shrieked again, muffled by the cock in my mouth, feeling the horny man start to shove that finger into my ass a bit at a time, twisting it around, moving inside. His tongue was hard against my clitoris, his lips sucking my juices as they flowed, and orgasms were taxiing onto the active runway to start launching through my body. 
 
  His cock in my mouth made me want to taste the best he had to offer. "God, Thom," I panted, sucking around his cockhead, "I wanna eat your cum, cum in my mouth, honey!" 
 

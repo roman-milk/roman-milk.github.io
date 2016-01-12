@@ -1,8 +1,14 @@
+Obedience: A Study in Seduction
+===============================
 #1 
 
  
 
- ****** Obedience: A Study in Seduction ****** bysilkstockingslover© Summary: 2 powerful women seduce straight women in different ways. 
+ 
+
+===
+
+Summary: 2 powerful women seduce straight women in different ways. 
 
  Note 1: Thanks to hfernandez1983 for the original idea to what turned out to be a very lengthy, complex NOVELLA, in the vein, I hope, of my Catching_Mommy series except without the incest (mostly). 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** Obedience: A Study in Seduction ****** bysilkstockingslover© Carolyn leaned in, her hot breath on the young woman's neck and ear. She whispered, her tone dripping with sexual implication, "The password to get to the penthouse is 'I will obey'." 
+ 
+
+===
+
+Carolyn leaned in, her hot breath on the young woman's neck and ear. She whispered, her tone dripping with sexual implication, "The password to get to the penthouse is 'I will obey'." 
 
  Mindy moaned softly, her strongest erogenous zone her neck. With the three words, every last lingering doubt of what this older woman wanted was gone. 
 
@@ -550,7 +560,11 @@
 
  
 
- ****** Obedience: A Study in Seduction ****** bysilkstockingslover© Mindy opened the robe slowly, as if unwrapping a Christmas present. 
+ 
+
+===
+
+Mindy opened the robe slowly, as if unwrapping a Christmas present. 
 
  Mindy stared at the voluptuous breasts that were held up firmly in a sexy black bra. 
 
@@ -814,7 +828,11 @@
 
  
 
- ****** Obedience: A Study in Seduction ****** bysilkstockingslover© Carolyn returned, harness on, and moved to her still coming pet. Without warning, she slid the entire seven inch cock (not too big, not too small), deep in the pet's very wet pussy. 
+ 
+
+===
+
+Carolyn returned, harness on, and moved to her still coming pet. Without warning, she slid the entire seven inch cock (not too big, not too small), deep in the pet's very wet pussy. 
 
  "Oh my," Mindy gasped, completely not expecting her pussy to be filled with a cock. A cock bigger than any she had ever fucked. 
 
@@ -1070,7 +1088,11 @@
 
  
 
- ****** Obedience: A Study in Seduction ****** bysilkstockingslover© Christine remained paralyzed, now by indecision. Her mind was screaming no, but her body, heated up from what she had witnessed and the kiss she just had, was screaming yes just as loud. 
+ 
+
+===
+
+Christine remained paralyzed, now by indecision. Her mind was screaming no, but her body, heated up from what she had witnessed and the kiss she just had, was screaming yes just as loud. 
 
  "Everyone is asleep, my pet," Samantha pointed out, using the submissive term for the first time. "No one will ever know." 
 
@@ -1318,7 +1340,11 @@
 
  
 
- ****** Obedience: A Study in Seduction ****** bysilkstockingslover© Samatha asked, "Is Treena a part of the full package?" 
+ 
+
+===
+
+Samatha asked, "Is Treena a part of the full package?" 
 
  "She can be," Scarlett nodded, before adding, "all employees are available for special treatments when requested." 
 

@@ -1,8 +1,14 @@
+The White Van
+=============
 #1 
 
  
 
- ****** The White Van ****** byJust_Plain_Bob© It was a chance remark that started it all. I had just walked off the elevator at work as Charlie was saying to Mel: 
+ 
+
+===
+
+It was a chance remark that started it all. I had just walked off the elevator at work as Charlie was saying to Mel: 
 
  ".....Becca and Phil if they can make it." 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** The White Van ****** byJust_Plain_Bob© "Oh?" 
+ 
+
+===
+
+"Oh?" 
 
  "She asked me to drop you so she could get you back." 
 
@@ -440,7 +450,11 @@
 
  
 
- ****** The White Van ****** byJust_Plain_Bob© "What about me Becca? How did you think I was going to feel about it when I found out?" 
+ 
+
+===
+
+"What about me Becca? How did you think I was going to feel about it when I found out?" 
 
  "I never worried about that because you were never going to know. I was very careful not to do anything that would clue you in." 
 

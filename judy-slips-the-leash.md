@@ -1,8 +1,14 @@
+Judy Slips the Leash
+====================
 #1 
 
  
 
- ****** Judy Slips the Leash ****** byJust_Plain_Bob© For a message from Just Plain Bob go to the Literotica_Forum. Go to Authors Hangout and look for Open Letter from Plain Bob 
+ 
+
+===
+
+For a message from Just Plain Bob go to the Literotica_Forum. Go to Authors Hangout and look for Open Letter from Plain Bob 
 
  It started out innocently enough, if you can call cheating on your husband innocent, but I'd have to say it was - at least compared with what happened later. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Judy Slips the Leash ****** byJust_Plain_Bob© "Mom, I got off work early...oh shit!" 
+ 
+
+===
+
+"Mom, I got off work early...oh shit!" 
 
  Robbie knew about Billy, but Billy didn't know about Robbie. There wasn't any use in trying to hide things as Billy could see Robbie standing naked in the doorway with his hard cock sticking straight out in front of him. I looked at Robbie standing there and the first thing I thought was that if I had one more cock in the room I could recreate the night of my bridal shower. 
 

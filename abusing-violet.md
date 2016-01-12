@@ -1,8 +1,14 @@
+Abusing Violet
+==============
 #1 
 
  
 
- ****** Abusing Violet ****** bygeronimo_appleby© You open the front door and see violet and her husband standing on the front step. You move to one side and invite them in. Violet makes an entrance with a haughty expression on her pretty face. She strides confidently into the room and her meek husband follows. Violet is obviously the boss in this relationship. Her wimp husband is under her control, and you're determined to bring the superior bitch under your control and influence. A task you face with obvious relish. 
+ 
+
+===
+
+You open the front door and see violet and her husband standing on the front step. You move to one side and invite them in. Violet makes an entrance with a haughty expression on her pretty face. She strides confidently into the room and her meek husband follows. Violet is obviously the boss in this relationship. Her wimp husband is under her control, and you're determined to bring the superior bitch under your control and influence. A task you face with obvious relish. 
 
  It has taken weeks and months of manipulation to get to this point. You knew as soon as you saw the apparently ice cold Violet at the wedding reception of a mutual friend that you had to have her, had to control her, and to had to bend her will to your own. 
 

@@ -1,8 +1,14 @@
+Becky Was Bad (A)
+=================
 #1 
 
  
 
- ****** Becky Was Bad (A) ****** byJust_Plain_Bob© She had worked on me for over two weeks to talk me into coming to this party and I had to admit that my reservations about meeting and getting along with her co-workers were groundless. I was getting along great with them although I did wonder why the women, especially those talking in groups, kept looking my way. I kept wondering if I'd left my fly open. The men there seemed to be mostly my age and in talking with them I found that we had a lot in common. Several were old car buffs and they wanted to talk about the problems I had encountered, and was still encountering, in rebuilding my 1965 Mustang. All of them seemed to be sports nuts and with our fair city having five professional sports teams (if you count soccer) there was plenty to talk about. They were a very friendly bunch and went out of their way to help me fit in. I knew that my wife Becky was going to be in a major "I told you so" mood when we got home that night and I resigned myself to it. 
+ 
+
+===
+
+She had worked on me for over two weeks to talk me into coming to this party and I had to admit that my reservations about meeting and getting along with her co-workers were groundless. I was getting along great with them although I did wonder why the women, especially those talking in groups, kept looking my way. I kept wondering if I'd left my fly open. The men there seemed to be mostly my age and in talking with them I found that we had a lot in common. Several were old car buffs and they wanted to talk about the problems I had encountered, and was still encountering, in rebuilding my 1965 Mustang. All of them seemed to be sports nuts and with our fair city having five professional sports teams (if you count soccer) there was plenty to talk about. They were a very friendly bunch and went out of their way to help me fit in. I knew that my wife Becky was going to be in a major "I told you so" mood when we got home that night and I resigned myself to it. 
 
  +++++++++++ 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** Becky Was Bad (B) ****** byJust_Plain_Bob© She had worked on me for over two weeks to talk me into coming to this party and I had to admit that my reservations about meeting and getting along with her co-workers were groundless. I was getting along great with them although I did wonder why the women, especially those talking in groups, kept looking my way. I kept wondering if I'd left my fly open. The men there seemed to be mostly my age and in talking with them I found that we had a lot in common. Several were old car buffs and they wanted to talk about the problems I had encountered, and was still encountering, in rebuilding my 1965 Mustang. All of them seemed to be sports nuts and with our fair city having five professional sports teams (if you count soccer) there was plenty to talk about. They were a very friendly bunch and went out of their way to help me fit in. I knew that my wife Becky was going to be in a major "I told you so" mood when we got home that night and I resigned myself to it. 
+ 
+
+===
+
+She had worked on me for over two weeks to talk me into coming to this party and I had to admit that my reservations about meeting and getting along with her co-workers were groundless. I was getting along great with them although I did wonder why the women, especially those talking in groups, kept looking my way. I kept wondering if I'd left my fly open. The men there seemed to be mostly my age and in talking with them I found that we had a lot in common. Several were old car buffs and they wanted to talk about the problems I had encountered, and was still encountering, in rebuilding my 1965 Mustang. All of them seemed to be sports nuts and with our fair city having five professional sports teams (if you count soccer) there was plenty to talk about. They were a very friendly bunch and went out of their way to help me fit in. I knew that my wife Becky was going to be in a major "I told you so" mood when we got home that night and I resigned myself to it. 
 
  ++++++++++++ 
 
@@ -216,7 +226,11 @@
 
  
 
- ****** Becky At Fifty ****** byJust_Plain_Bob© There are friends, good friend, really good friends and best friends. Best friends can be both the best thing in your life, or the worst, depending on the day and the circumstances. Today I think I'm going to move Brad to the latter category. 
+ 
+
+===
+
+There are friends, good friend, really good friends and best friends. Best friends can be both the best thing in your life, or the worst, depending on the day and the circumstances. Today I think I'm going to move Brad to the latter category. 
 
  I met Brad when we were both seventeen although it was more than a year and a half later before I knew his name. We both played football, but on different teams. The two schools were cross-town rivals and the rivalry was an intense one. Our first meeting came when I broke out of the backfield on what looked like a clear run to the sticks when all of a sudden a train hit me and I found myself face down in the dirt. As I shook the cobwebs out of my head I grasped the hand that was extended to me and when I was up I saw it was a player from the other team. 
 

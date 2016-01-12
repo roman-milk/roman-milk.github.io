@@ -1,8 +1,14 @@
+Good Girl vs. Slut Ch. 01
+=========================
 #1 
 
  
 
- ****** Good Girl vs. Slut Ch. 01 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  * 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 01 ****** byHiddenDevil_© "Whew!" Gingerly, on trembling legs, she stood up, placing a hand on the bench to steady herself. She gently slid her panties back over her sopping mound. Then, she began to slowly walk forward, shaky and unstable. She could feel the stickiness of her juices, all over her crotch, soaking her inner thighs. Her body gave one last shudder of joy as she bent over to pick up the soaked dildo, and she couldn't help but giggle in joy. I have to do this again,she thought, as she turned around to bring the dildo to the sink. Next time, after practice, before my class, I can &ndash; 
+ 
+
+===
+
+"Whew!" Gingerly, on trembling legs, she stood up, placing a hand on the bench to steady herself. She gently slid her panties back over her sopping mound. Then, she began to slowly walk forward, shaky and unstable. She could feel the stickiness of her juices, all over her crotch, soaking her inner thighs. Her body gave one last shudder of joy as she bent over to pick up the soaked dildo, and she couldn't help but giggle in joy. I have to do this again,she thought, as she turned around to bring the dildo to the sink. Next time, after practice, before my class, I can &ndash; 
 
  Oh shit! 
 
@@ -112,7 +122,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 02 ****** byHiddenDevil_© All characters are over 18. 
+ 
+
+===
+
+All characters are over 18. 
 
  * 
 
@@ -294,7 +308,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 02 ****** byHiddenDevil_© "Yeah…yeah…" 
+ 
+
+===
+
+"Yeah…yeah…" 
 
  Once again, he thrust too hard, and Trisha couldn't take it anymore. She wrenched her head away from his grip, his cock sliding out of her lips with a loud smack,and lowered her head as she was overtaken by a fit of coughs and gags. A stream of drool dribbled onto the floor. 
 
@@ -342,7 +360,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 03 ****** byHiddenDevil_© Trisha's shower the next day was extra long. As soon as she woke up, she felt confused, and a bit ashamed and dirty. Yesterday's encounter with Mr. Braun had been a product of panic, she had decided, panic that caused her to make a terrible decision, and nothing more. If she hadn't been so flustered, she would have realized that it was just a test, but now there was nothing to do but move on. Just move on, Trisha. 
+ 
+
+===
+
+Trisha's shower the next day was extra long. As soon as she woke up, she felt confused, and a bit ashamed and dirty. Yesterday's encounter with Mr. Braun had been a product of panic, she had decided, panic that caused her to make a terrible decision, and nothing more. If she hadn't been so flustered, she would have realized that it was just a test, but now there was nothing to do but move on. Just move on, Trisha. 
 
  Try as she might, though, she couldn't convince herself. She had worn one of her favorite outfits to try to take her mind off of it; her comfy, lacey pink top, and her frilled white skirt that stopped just below her knees. Her friend Mandy, the sweet thing she was, had surprised her with a croissant and cappuccino in between second and third period. But nothing worked. Everything felt the exact same, and yet, somehow, it was all different. Trisha knew that nothing was wrong with her, that she was still the good girl she had always been, just a good girl who had made a bad decision. So why did she still have that lurching, weird feeling in her stomach? 
 
@@ -478,7 +500,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 03 ****** byHiddenDevil_© "Yes! Oh God, yes, Mr. Braun, I want your dick! Please! Please, Joe, please!" Without even thinking, the words were spewing forth, flooding out of her mouth like saliva. Trisha didn't have to will herself to talk for Mr. Braun's benefit &ndash; the begging and pleading was gushing out by itself. Bewildered by horniness, Trisha's brain was suddenly overcome with a realization. I…I really do want his cock,she thought, terrified. These words are just coming out because…they're true. I want his cock. I want his cock. 
+ 
+
+===
+
+"Yes! Oh God, yes, Mr. Braun, I want your dick! Please! Please, Joe, please!" Without even thinking, the words were spewing forth, flooding out of her mouth like saliva. Trisha didn't have to will herself to talk for Mr. Braun's benefit &ndash; the begging and pleading was gushing out by itself. Bewildered by horniness, Trisha's brain was suddenly overcome with a realization. I…I really do want his cock,she thought, terrified. These words are just coming out because…they're true. I want his cock. I want his cock. 
 
  Again, words spewed out of her mouth, unintended, uncontrolled. She repeated her thoughts out loud. "I want your cock! I want your cock!" 
 
@@ -542,7 +568,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 04 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Two Weeks Later… 
 
@@ -724,7 +754,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 04 ****** byHiddenDevil_© "Holy…fuck…Jesus…fuck!" Mr. Braun couldn't seem to string together a sentence as he gasped for breath, and he reached down to press Britney's head into his hips, shoving her lips against his balls. The head cheerleader slurped and drooled at his meat, and Trisha watched in awe as Britney's tongue flicked out from beneath Mr. Braun's throbbing rod, and began to lightly lick at his balls, making him twitch as she caressed the soft flesh. Finally, with a slobbery squelchand a loud gasp, Britney pulled her head off of Mr. Braun's dick, breathing hard. Trisha remembered her own choking, gasping attempts at deepthroating Mr. Braun, how it had cut off her breathing entirely. She was astonished at how easily Britney was doing it. Mr. Braun's hands were still resting on Britney's head, his cock coated and dribbling with the head cheerleader's drool. He wheezed as he tried to recover, and Britney smirked up at him. 
+ 
+
+===
+
+"Holy…fuck…Jesus…fuck!" Mr. Braun couldn't seem to string together a sentence as he gasped for breath, and he reached down to press Britney's head into his hips, shoving her lips against his balls. The head cheerleader slurped and drooled at his meat, and Trisha watched in awe as Britney's tongue flicked out from beneath Mr. Braun's throbbing rod, and began to lightly lick at his balls, making him twitch as she caressed the soft flesh. Finally, with a slobbery squelchand a loud gasp, Britney pulled her head off of Mr. Braun's dick, breathing hard. Trisha remembered her own choking, gasping attempts at deepthroating Mr. Braun, how it had cut off her breathing entirely. She was astonished at how easily Britney was doing it. Mr. Braun's hands were still resting on Britney's head, his cock coated and dribbling with the head cheerleader's drool. He wheezed as he tried to recover, and Britney smirked up at him. 
 
  "Like that, huh?" She reached up with one hand and began to stroke his slick meat. 
 
@@ -820,7 +854,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 05 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Trisha sat quietly in the chair across from the principal, frozen with fear. What was going to happen to her? To be caught in the boys' locker room like that…and by the principal! She hadn't even been having sex &ndash; it was only Britney and Mr. Braun &ndash; but it didn't matter. Principal Johnson was a huge man, strong and imposing, and with a mean-looking face; he was well-suited for his job. He was always intimidating to most of the students, and the cheerleader was no exception. Right now he was sitting across from Trisha, staring straight at her, his hands resting on his desk. Oh God…will he force me to tell him the entire thing? What I've been doing with Mr. Braun? That I did it all to get a good grade?She trembled slightly, clutching her hands together. 
 
@@ -996,7 +1034,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 05 ****** byHiddenDevil_© "Did you hear what I said?" His voice as strained and angry, and he was fucking her again, with the same deep, hard thrusts. Trisha stayed quiet, clamping her lips shut, still feeling the pain of each thrust. She ignored his question. No way! 
+ 
+
+===
+
+"Did you hear what I said?" His voice as strained and angry, and he was fucking her again, with the same deep, hard thrusts. Trisha stayed quiet, clamping her lips shut, still feeling the pain of each thrust. She ignored his question. No way! 
 
  "I TOLD you to talk dirty!" He grabbed her hair and yanked her up again, prompting another squeal of pain. Pain shot through her neck and her back as she was pulled upwards, and all of a sudden, without even thinking, the words began to spew out of the cheerleader's mouth. 
 
@@ -1064,7 +1106,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 06 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  FYI: This is the 6th chapter in the story Good Girl vs. Slut. Some of this chapter refers to past events...if it gets confusing, read the other chapters! =) 
 
@@ -1294,7 +1340,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 06 ****** byHiddenDevil_© "Yeah!" Britney cried out loud, as her body shuddered with his impalement. "Fuck me, bitch, fuck me! Take that pussy!" 
+ 
+
+===
+
+"Yeah!" Britney cried out loud, as her body shuddered with his impalement. "Fuck me, bitch, fuck me! Take that pussy!" 
 
  "You whore! Agh...ahh!" Principal Johnson grunted with effort as he pounded furiously into Britney's pussy, his dick plowing into her, making her entire body rock back and forth on the desk with the force of his thrusts. His hands were buried in the tender flesh of Britney's ass, and Trisha could see one of the head cheerleader's hands sneaking down to her crotch, tweaking her own clit as the Principal hammered into her. The class slut was breathing fast, and the harder Mr. Braun treated her, the more she seemed to enjoy it. 
 
@@ -1398,7 +1448,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 07 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Trisha threw her backpack and her gym bag into the trunk of her mother's car. Her mom worked from home on Fridays, so she let Trisha drive herself to school. Cheerleading practice had run longer than usual, and the sun was already dipping down below the horizon as Trisha pulled out of the school parking lot. She turned on the radio as she drove and began to softly hum along with the song, but almost immediately, her mind started to drift, just as it always did these days. 
 
@@ -1562,7 +1616,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 07 ****** byHiddenDevil_© "Oh God....oh that feels so good..." 
+ 
+
+===
+
+"Oh God....oh that feels so good..." 
 
  "Fuck yeah...suck it, sweetheart, suck it..." 
 
@@ -1658,7 +1716,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 08 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  The weekend flashed by in a blur, and Trisha and Britney spent every minute possible together. For some reason, when Trisha wasn't around her other friends, all the things about Britney that she disapproved of didn't matter anymore. Sure...she's a little over the top...but really, she's just comfortable with who she is. It was amazing how at ease Trisha felt around the head cheerleader. And yet, when Monday came, she felt more uneasy than ever. What will my friends think if I tell them I spent the weekend with Britney? Should I keep it a secret? What will Britney think if I do? 
 
@@ -1816,7 +1878,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 08 ****** byHiddenDevil_© "Ohhh..." 
+ 
+
+===
+
+"Ohhh..." 
 
  Her lust had completely overtaken her now, but just at that moment, she felt Britney standing behind her, her massive tits pressed into Trisha's back. One of the head cheerleader's hands were gently sliding over Trisha's boobs, groping each one in turn. The other was outstretched in front of the petite cheerleader, and Trisha couldn't take her eyes off it. Grasped in Britney's hand was the head cheerleader's thick, 12-inch dildo. 
 
@@ -1988,7 +2054,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 08 ****** byHiddenDevil_© "Till next time, boys!" 
+ 
+
+===
+
+"Till next time, boys!" 
 
  Trisha was now looking down at herself, carefully cleaning the cum spot by spot off her petite body. "So I guess this isn't the first time you've done this, huh?" 
 
@@ -2042,7 +2112,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 09 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Five Months Later... 
 
@@ -2248,7 +2322,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 09 ****** byHiddenDevil_© "All right, then." Trisha reached behind him and gave the door a shove, closing it herself, and the loud slam seemed to awaken the manager. 
+ 
+
+===
+
+"All right, then." Trisha reached behind him and gave the door a shove, closing it herself, and the loud slam seemed to awaken the manager. 
 
  "Now hold on just a minute..." 
 
@@ -2392,7 +2470,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 09 ****** byHiddenDevil_© The man's sweaty, red face nodded vigorously, and Trisha knew she had said the right thing. 
+ 
+
+===
+
+The man's sweaty, red face nodded vigorously, and Trisha knew she had said the right thing. 
 
  "Oooh, yeah...you wanna cum on my face, huh? You wanna shoot your hot load all over my pretty little face?" 
 
@@ -2430,7 +2512,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 10 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Trisha's cheeks were bright red, and her hair was flopping across her face and her neck. The petite cheerleader was on her knees, a thick coat of drool blanketing her plump lips and her chin, running down her neck, dribbling onto her cheerleaders' uniform. Her pleated miniskirt was hitched up around her waist, revealing a black G-string, framing her round, firm ass. Both of her hands were pressing against the thighs of the varsity quarterback standing in front of her, and she gripped his legs hard, pulling herself into him, jutting her head hard and fast against his throbbing rod. 
 
@@ -2588,7 +2674,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 10 ****** byHiddenDevil_© "Ghaggghh!! Aggghhhh!" 
+ 
+
+===
+
+"Ghaggghh!! Aggghhhh!" 
 
  The effect was exactly as Trisha expected. The blonde-haired boy grinned evilly at her and let out a low moan of excitement she choked, and he fucked her mouth harder, pounding into her, his hips slamming painfully into her cheeks, his pubes jamming into her stretched lips. 
 
@@ -2728,7 +2818,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 10 ****** byHiddenDevil_© Jake's face broke into a grin. "No way, slut." Rob let out a sharp, barking laugh. 
+ 
+
+===
+
+Jake's face broke into a grin. "No way, slut." Rob let out a sharp, barking laugh. 
 
  "Yeah, we're keeping you for the night. Both of you." 
 
@@ -2844,7 +2938,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 10 ****** byHiddenDevil_© Jake laughed again and kept taunting her. "Take it, you whore! Take it!" 
+ 
+
+===
+
+Jake laughed again and kept taunting her. "Take it, you whore! Take it!" 
 
  A fierce shudder ran through Trisha's body as the pleasure kept rising, and her hands gripped at the pebbly pavement in her effort to contain herself. Oh no... oh no!Rob's fucking was so incredible, so rough and powerful, and it was sending Trisha up a wild peak of pleasure, each thrust pushing her farther and higher, and she was close to the top now... so close. No... he can't make me cum... he can't!Trisha knew from experience that her orgasms were uncontainable &ndash; her loud, earsplitting screams, her uncontrollable writhing and thrashing. If she climaxed, there was no way she could hide it. No way,she thought, but even as she did, she felt his meat pumping into her, punishing her, each thrust sending her body forward and her tits flailing, spilling her hair onto the street and her legs twitching and wobbling with lust. 
 
@@ -2884,7 +2982,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 11 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  "Okay, Mandy. I'll talk to you later. No, don't worry about it. Okay, bye." Trisha hung up the phone, and sighed. It had been only a few days since she had found Mandy in the alleyway after cheerleading practice, after she had rescued her from her kidnappers by offering herself instead. Mandy had called her the next day only to thank her, but Trisha quickly realized in the days that followed that it was more than that; she was the only person that Mandy could talk to about it. The cheerleader shook her head as she stood by the window, thinking. Poor Mandy…she's so innocent… 
 
@@ -3016,7 +3118,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 11 ****** byHiddenDevil_© "So…" She said, still on her knees, stroking his erection through his shorts and pouting up at him. "How do I prove myself worthy?" 
+ 
+
+===
+
+"So…" She said, still on her knees, stroking his erection through his shorts and pouting up at him. "How do I prove myself worthy?" 
 
  Dan didn't answer. Instead, he reached down, grabbed the petite cheerleader around the waist, and easily picked her up. She squealed in surprise as he turned around with her in tow. Then, he pushed her up against the wall, directly under the shower head, prompting another loud squeal, and then a giggle. I hope no one heard that! 
 
@@ -3092,7 +3198,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 11 ****** byHiddenDevil_© "Wow…" she whispered, into Dan's ear. That was…unbelievable!Dan laughed, deep and loud. 
+ 
+
+===
+
+"Wow…" she whispered, into Dan's ear. That was…unbelievable!Dan laughed, deep and loud. 
 
  "I think you've proved you're worthy," he whispered back, and slowly bent forward until he was resting the petite cheerleader on the floor, letting her lean against the wall. "Hope we meet again, Trisha." He picked up his swimsuit and pulled them on. Then, he reached up above the exhausted cheerleader, and switched off the shower. Without another word, he unlocked the stall door and walked out, leaving the panting girl sitting by herself against the wall. 
 
@@ -3204,7 +3314,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 12 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Trisha stood in front of the mirror in her bedroom, chewing her lip, deep in thought. The petite cheerleader was clad in only a bra and a thong, her perky, 32C-cup breasts snug and bulging in their bra, round and ample in contrast to her thin waist. The red thong hugged her slender hips, tight against the faint bulge of Trisha's pussy, the tiny g-string back disappearing between her generous butt cheeks. Her long brown hair was draped over her shoulders and down her back, matching perfectly with her brown eyes. One hand was holding up her cell phone to her cheek. The other was holding a light pink dress against her body, examining it in the mirror. 
 
@@ -3348,7 +3462,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 12 ****** byHiddenDevil_© As she watched John start to face-fuck Britney once more, Trisha realized that this was a system they'd worked out: he would viciously fuck Britney's throat until the head cheerleader couldn't take it anymore, and she would slap him on the thigh. Then he would let her gasp in just enough oxygen to last her through another hard face-fucking, and he would give her the same treatment once more. Wow... Trisha thought as she watched Britney choke and gasp, but continue to plunge herself down on John's rod. She's really into it... 
+ 
+
+===
+
+As she watched John start to face-fuck Britney once more, Trisha realized that this was a system they'd worked out: he would viciously fuck Britney's throat until the head cheerleader couldn't take it anymore, and she would slap him on the thigh. Then he would let her gasp in just enough oxygen to last her through another hard face-fucking, and he would give her the same treatment once more. Wow... Trisha thought as she watched Britney choke and gasp, but continue to plunge herself down on John's rod. She's really into it... 
 
  Britney slapped John's thigh again, and he let go of her hair, letting the head cheerleader wrench herself backwards, her chest heaving as she gasped and sputtered for breath, her tits swaying with her breathing. After a few seconds, John grabbed her once more, and shoved his dick back down her throat, eliciting a loud cough from the blonde teenager, her flawless figure on display in her low-cut blouse and tight skirt. 
 
@@ -3456,7 +3574,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 12 ****** byHiddenDevil_© "No..." Trisha shook her head. What about Britney?? Britney asked me to stay away from Dan...and she's my friend. I can't betray her like that.But already the cheerleader had pulled out of her parking spot, and was heading down the street. She wanted to tell herself that she was just heading home, but part of her already knew that her desperate lust was about to take over. God...I was so close to cumming...but no, I can't! I won't!She was still driving, her pussy throbbing with desire, her panties soaked, her body flushed. I...I-I'll just stop by. I'll just stop by and say hello.But even as she thought it, the cheerleader already knew it wasn't true. 
+ 
+
+===
+
+"No..." Trisha shook her head. What about Britney?? Britney asked me to stay away from Dan...and she's my friend. I can't betray her like that.But already the cheerleader had pulled out of her parking spot, and was heading down the street. She wanted to tell herself that she was just heading home, but part of her already knew that her desperate lust was about to take over. God...I was so close to cumming...but no, I can't! I won't!She was still driving, her pussy throbbing with desire, her panties soaked, her body flushed. I...I-I'll just stop by. I'll just stop by and say hello.But even as she thought it, the cheerleader already knew it wasn't true. 
 
  *** 
 
@@ -3564,7 +3686,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 12 ****** byHiddenDevil_© "O-Ohhh my God....y-yesss..." Trisha was sagging in Dan's arms, leaning into him. At that moment, lost in the throes of her orgasm, the cheerleader knew that he was right. She was his slut, and she would do anything for the feeling of his cock inside of her, pumping her desperate twat, driving her to another amazing orgasm. Anything... anything...She could feel the heat of his lust as he pressed against her, his hands still groping her tits, his throbbing dick still buried in her cunt. 
+ 
+
+===
+
+"O-Ohhh my God....y-yesss..." Trisha was sagging in Dan's arms, leaning into him. At that moment, lost in the throes of her orgasm, the cheerleader knew that he was right. She was his slut, and she would do anything for the feeling of his cock inside of her, pumping her desperate twat, driving her to another amazing orgasm. Anything... anything...She could feel the heat of his lust as he pressed against her, his hands still groping her tits, his throbbing dick still buried in her cunt. 
 
  "Fuck....fuck..." Dan was also gasping for breath, his hips working his meat deep into Trisha's pussy, and at that moment the cheerleader felt his hands on her back, pushing her back forward. Already off-balance, the cheerleader tumbled down, falling onto her hands and knees on the balcony, the surface cold and rough against her soft skin. Her dress was still bunched around her waist, the shoulder straps now flopping around her forearms, the hem hitched up to offer her ass to Dan's meat. Her thighs were pinned together by the thong still stretched between them. The lifeguard was now crouched over her like an animal in heat, his hands hard on her slender shoulders, his hips bucking down and hard into Trisha's swollen cunt. His thrusts were ferocious and wild, sending the cheerleading reeling back and forth on the pavement, her breasts swinging, her hair flopping, her knees scraping on the pavement. Rocking back and forth, on her hands and knees, the cheerleader could feel Dan's shaft pulsing inside of her, so deep that she could feel the throbbing through every inch of her petite body, stretching her tight cunt as it wrapped around his meat. 
 
@@ -3580,7 +3706,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 13 ****** byHiddenDevil_© "Trish! Hey, Trisha! Wait up!" 
+ 
+
+===
+
+"Trish! Hey, Trisha! Wait up!" 
 
  Trisha turned around at the sound of the voice, and saw Britney hurrying towards her. The head cheerleader looked just as drop-dead gorgeous as always, her long legs stretching out from a denim miniskirt, her massive tits swaying in a lacy, low-cut tank top. But all Trisha could do was stare down at her feet in shame. I betrayed Britney…I went back and fucked Dan…after she asked me not to! She's never asked me to stay away from any other guy, except Dan, and…and I couldn't even do that. 
 
@@ -3734,7 +3864,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 13 ****** byHiddenDevil_© "Well, Trisha? Be a good slut and suck the man's cock." A ripple of snickers ran through the room in response to Dan's command. 
+ 
+
+===
+
+"Well, Trisha? Be a good slut and suck the man's cock." A ripple of snickers ran through the room in response to Dan's command. 
 
  "Wait…no…Dan, h-hold on…" Trisha stammered. She didn't even know what she was going to say. What am I supposed to do? Why didn't he tell me beforehand? 
 
@@ -3818,7 +3952,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 13 ****** byHiddenDevil_© "Hey, Chuck, hurry up man!" 
+ 
+
+===
+
+"Hey, Chuck, hurry up man!" 
 
  "Yeah, we've got a line here buddy!" 
 
@@ -3908,7 +4046,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 13 ****** byHiddenDevil_© "Ohhhhh! YES! GOD!!" Trisha had never felt so violated, so ravished in her life. Her tits harshly groped and yanked, her lips feeling stretched and tired from sucking so many cocks, her pussy swollen and tender with the effort of taking half a dozen men. The feeling filled her with an excited hunger, and the only relief was to scream her pleasure out to the room, spreading her own legs wide and begging Dan to fuck her even harder. His cock was thick and throbbing, filling her little cunt so perfectly, firm and hot inside her tender canal. She could feel his lust for her radiating through his body, propelling his hips into hers with inhuman strength, burying his meat so deep inside of her that the force shook through the rest of the bed, tossing her back and forth, stuffing her aching body completely with his manhood. 
+ 
+
+===
+
+"Ohhhhh! YES! GOD!!" Trisha had never felt so violated, so ravished in her life. Her tits harshly groped and yanked, her lips feeling stretched and tired from sucking so many cocks, her pussy swollen and tender with the effort of taking half a dozen men. The feeling filled her with an excited hunger, and the only relief was to scream her pleasure out to the room, spreading her own legs wide and begging Dan to fuck her even harder. His cock was thick and throbbing, filling her little cunt so perfectly, firm and hot inside her tender canal. She could feel his lust for her radiating through his body, propelling his hips into hers with inhuman strength, burying his meat so deep inside of her that the force shook through the rest of the bed, tossing her back and forth, stuffing her aching body completely with his manhood. 
 
  Just then, the cheerleader opened her eyes, and glanced around. The rest of Dan's friends were all staring at her, their pants still around their ankles, their eyes wide and their mouths hanging open. Trisha drank in their glances, her lust rising and growing as she stared at each of their faces in turn. Their expressions were a mix of lust and amazement; admiring her lithe, ravaged body as Dan plunged into it, shocked at her sheer nastiness, at the unquenchable lust of this eighteen-year-old slut. They can't believe how dirty I am…Trisha thought, grinning to herself. She found it hard to believe herself, imagining the sight in front of them: a petite cheerleader, her pleated miniskirt still flopping around her waist, her blouse hanging open as Dan fondled her tits. Her flexible legs were split and thrown so far back over her dainty frame that her toes nearly tapped the bedspread above her head every time one of Dan's thrusts sent her body rearing back. Her pussy was swollen and tender, soaking wet after being fiercely pounded by every one of their cocks. Her innocent, pouty face was coated in a drying sheet of their cum, her hair splattered and sticky with white streaks, her plump, soft lips open as scream after scream wrenched through her. 
 
@@ -3976,7 +4118,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 14 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Even as soon as she woke up, Trisha was already mortified at the day before. The events were so clear now that she replayed it in her mind; her petite body sprawled across the hotel room, her legs spread, her miniskirt bunched around her waist, her back arched as she wailed in pleasure. Surrounded by men, watching her, bearing down on her, each waiting in line for their turn to slide their rock-hard cocks into her soft, ravished pussy, or to plunge deep past her soft lips, stuffing her mouth full. The cheerleader remembered losing herself completely to her lust, unable to stop her body from wanting more even though she knew it was wrong, even though she was half-frightened. It was like I became a completely different person.Even now, in her memories, it was as if she was watching a movie of someone else. The girl on that bed looked just like her, had the same petite, dainty figure, the same face and cheerleading outfit; but it wasn't her, it was some wild, insatiable, sex-crazed slut. Trisha was quickly staring to realize that there was a part of her that she just couldn't control; the same part that lusted for Dan's cock each and every second, that would eagerly give in to his dirtiest desires and would drag the rest of her body along with it, no matter how scared or ashamed or reluctant she was. I just can't control my lust...my body just won't listen to me! All those strangers...I fucked them, sucked their cocks, swallowed their cum...I couldn't help myself. Why can't I listen to myself?? 
 
@@ -4084,7 +4230,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 14 ****** byHiddenDevil_© Trisha pushed herself as deep as she could go, gripping his thigh with her hands as she thrust her head forward, her lips wrapped around his shaft and jamming down into his balls. Back and forth she bobbed, balanced over his car seat, his entire dick buried in her mouth, slurping and moaning loudly, her body rocking and thrusting in her own lust. His hand was hard in her hair, pushing her, pressing her. Yes!The cheerleader's lust was mixing with excitement, with an eagerness for his load. Shoot your spunk down my throat! Pump your cum into me!She wanted to shout it out loud, but she couldn't with her mouth and throat full. A moment later, she felt Dan's entire body jerking upwards, pushing his crotch against her slobbery lips, his cock thrusting and shuddering deep in her mouth. 
+ 
+
+===
+
+Trisha pushed herself as deep as she could go, gripping his thigh with her hands as she thrust her head forward, her lips wrapped around his shaft and jamming down into his balls. Back and forth she bobbed, balanced over his car seat, his entire dick buried in her mouth, slurping and moaning loudly, her body rocking and thrusting in her own lust. His hand was hard in her hair, pushing her, pressing her. Yes!The cheerleader's lust was mixing with excitement, with an eagerness for his load. Shoot your spunk down my throat! Pump your cum into me!She wanted to shout it out loud, but she couldn't with her mouth and throat full. A moment later, she felt Dan's entire body jerking upwards, pushing his crotch against her slobbery lips, his cock thrusting and shuddering deep in her mouth. 
 
  'Fuck, Trisha! FUCK!" Dan yelled out loud, and Trisha felt a huge spasm rush through his cock as his cum spurted forth. The cheerleader had her lips wrapped tight around his meat, and she could feel every jet, bursting out of his balls and shooting through his shaft. But his cock was so deep in her mouth that she didn't even taste it; he was shooting his cum straight down her throat into her stomach. All she had to do was swallow, and she did that eagerly, thirstily gulping his spunk down like it was water, moaning as his seed filled her. 
 
@@ -4150,7 +4300,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 14 ****** byHiddenDevil_© The boy was still staring at her, struck frozen by shock, eyes wide and mouth open. Trisha thought that his name was Stan, though she wasn't sure; she faintly remember him being one of the seniors on the swimming team. His pencil had slipped out of his hand and rattled to the floor, but he hadn't even noticed it. All he could do was stare at Trisha and watch her, masturbating in the middle of class, her legs spread wide, her back arched in her seat so that her perky tits strained against her strapless dress, her bare shoulders rigid as she drove her hand deeper and harder into her eager pussy. Even as horny as she was, the cheerleader was shocked at her own rashness. She knew that being watched was always a turn-on for her, but this was way beyond anything she could have imagined. This is over the line! What if he says something? What if the teacher catches me?? 
+ 
+
+===
+
+The boy was still staring at her, struck frozen by shock, eyes wide and mouth open. Trisha thought that his name was Stan, though she wasn't sure; she faintly remember him being one of the seniors on the swimming team. His pencil had slipped out of his hand and rattled to the floor, but he hadn't even noticed it. All he could do was stare at Trisha and watch her, masturbating in the middle of class, her legs spread wide, her back arched in her seat so that her perky tits strained against her strapless dress, her bare shoulders rigid as she drove her hand deeper and harder into her eager pussy. Even as horny as she was, the cheerleader was shocked at her own rashness. She knew that being watched was always a turn-on for her, but this was way beyond anything she could have imagined. This is over the line! What if he says something? What if the teacher catches me?? 
 
  But even as those thoughts raced through her head, all the cheerleader could do was press her hand further into her cunt, her legs quivering as the pleasure rushed through her, her fingers frantically gliding and skimming into her tender pussy through her dress. It was like she was in a dream; so shocked at her own behavior, but at the same time so overwhelmed by her lust that she couldn't stop fingering herself, even after she knew she had been caught. 
 
@@ -4246,7 +4400,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 14 ****** byHiddenDevil_© Now, as she felt Steve's cock throbbing and tensing inside of her, she thought about Dan cumming in her pussy, filling her yet again with his seed, his cock so deep that she would feel each spurt pulsate through her body. First he pumped his cum down my throat...now he would shoot it deep in my twat! He would use me the way he always does, like a filthy slut, a dirty cum whore! Nothing but a petite body to fill with his cum! Every inch of her quivered with lust at the thought of it – of her, violated and ravished, thrashing and flailing on Dan's cock. Her body ached for Dan's cum, and she couldn't hold in her fantasy any longer. 
+ 
+
+===
+
+Now, as she felt Steve's cock throbbing and tensing inside of her, she thought about Dan cumming in her pussy, filling her yet again with his seed, his cock so deep that she would feel each spurt pulsate through her body. First he pumped his cum down my throat...now he would shoot it deep in my twat! He would use me the way he always does, like a filthy slut, a dirty cum whore! Nothing but a petite body to fill with his cum! Every inch of her quivered with lust at the thought of it – of her, violated and ravished, thrashing and flailing on Dan's cock. Her body ached for Dan's cum, and she couldn't hold in her fantasy any longer. 
 
  "YES! Cum in me! Cum in my cunt!" Trisha's screams echoed out in the empty classroom, her entire quivering body thrown into riding the cock to its climax. 
 
@@ -4372,7 +4530,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 15 ****** byHiddenDevil_© "So...she just told you to stay away from Dan? And that's it?" 
+ 
+
+===
+
+"So...she just told you to stay away from Dan? And that's it?" 
 
  Trisha nodded, keeping her eyes on the road. "Yup." 
 
@@ -4506,7 +4668,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 15 ****** byHiddenDevil_© "Ahhh FUCK Fuck yeah!" The groans became even louder. 
+ 
+
+===
+
+"Ahhh FUCK Fuck yeah!" The groans became even louder. 
 
  Trisha looked up at the mirror again, imagining the face on the other side, tense with lust and pleasure, imagining what he was seeing as he stared down at her. A petite, dainty cheerleader, barely five feet tall, seated on the floor in front of him, her top and her bra yanked down to show off her perky, soft tits, her miniskirt hitched up over her hips. Her wavy hair dangling down her bare chest and back, her hands planted on the wall in front of her, her big brown eyes glittering up at him. And her soft, drool-coated lips, gulping down his cock, swallowing him so deep that his entire shaft had vanished in her warm mouth, and the only thing he could see were her lips pressed directly against the wall, slurping and drooling hungrily. Trisha could feel her slobber dripping off her chin, pooling on the floor in front of her knees. 
 
@@ -4642,7 +4808,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 15 ****** byHiddenDevil_© But then there were another two knocks on the wall; a third guy was waiting. Wow, Trisha though. It's a crowded day!Without hesitating, the cheerleader knocked back twice, and then grinned at Mandy. "Ready for another one?" 
+ 
+
+===
+
+But then there were another two knocks on the wall; a third guy was waiting. Wow, Trisha though. It's a crowded day!Without hesitating, the cheerleader knocked back twice, and then grinned at Mandy. "Ready for another one?" 
 
  "Me?" Mandy responded, surprised. She was always so excited, but as soon as an actual cock appeared, she became nervous again. "But it's your turn!" 
 
@@ -4764,7 +4934,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 15 ****** byHiddenDevil_© "Tell next time, babe!" A voice shouted out from the other wall. 
+ 
+
+===
+
+"Tell next time, babe!" A voice shouted out from the other wall. 
 
  Trisha laughed, and fluttered a wave at the mirror over her shoulder. "See ya, boys!" She threw a little extra sway into her hips as she walked out into the store, feeling her miniskirt swish against her swinging hips, just barely tickling the tops of her thighs, knowing that many eyes were following her petite figure out the door. She remembered the first time that Britney had brought her here, how the head cheerleader had forced her to walk out in just her skirt and her bra, how she had timidly scurried through the store, embarrassed that the people in the other room would see her face to face. Now, she felt her chest rising with pride as she walked out, her heels clicking, her slender legs shown off by her little skirt, her tiny waist and frame hugged by her tank top, accented even more by her perky tits, peeking out of her plunging V-neck. Her wavy brown hair draped across her slim shoulders and down her back. 
 
@@ -4778,7 +4952,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 16 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  Trisha was seated on Britney's bed, her eyes down on her lap. The petite cheerleader's legs didn't reach the floor, so her feet dangled in the air, her flip-flops ajar. She had pulled her long, wavy brown hair into a long ponytail that dangled down her slim back, between the straps of her lacy tank top. Her hands were folded quietly in her lap, resting on top of her miniskirt. 
 
@@ -4942,7 +5120,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 16 ****** byHiddenDevil_© *** 
+ 
+
+===
+
+*** 
 
  Later that night, Trisha was slowly walking up each flight of stairs to Dan's apartment. She remembered so clearly the afternoon in that hotel room, when Dan had invited a group of friends to bang her together; how filthy it felt to be spread out on the bed, surrounded by horny guys, feeling a storm of hands all over her petite body, getting taken and pounded from every direction. She remembered the feeling of getting passed around from one hard cock to the next, of hungrily slurping down a rod without even knowing who it belonged to. She had acted so slutty; but that time she had an excuse. That time Dan had blindfolded her and taken her to the hotel without telling her about it. 
 
@@ -5032,7 +5214,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 16 ****** byHiddenDevil_© The man's hands had slid around the back of Trisha's head, burying his fingers in her hair, his fingers tightly gripping her skull, and now he was jamming her forward, shoving his cock between her lips, fucking her mouth like a cunt. The cheerleader let out a muffled moan and her lips smacked loudly on his meat, drool dribbling down the shaft as she gulped and slurped. Her mouth was being stuffed and invaded, the rock-hard dick powering deep, forcing its way in and stretching her jaw wide. Trisha moaned again, but it was drowned out by another groan, this one more fierce and wild, as the man continued to pound his cock into Trisha's slobbery lips. 
+ 
+
+===
+
+The man's hands had slid around the back of Trisha's head, burying his fingers in her hair, his fingers tightly gripping her skull, and now he was jamming her forward, shoving his cock between her lips, fucking her mouth like a cunt. The cheerleader let out a muffled moan and her lips smacked loudly on his meat, drool dribbling down the shaft as she gulped and slurped. Her mouth was being stuffed and invaded, the rock-hard dick powering deep, forcing its way in and stretching her jaw wide. Trisha moaned again, but it was drowned out by another groan, this one more fierce and wild, as the man continued to pound his cock into Trisha's slobbery lips. 
 
  "Hey buddy, don't hog her!" 
 
@@ -5124,7 +5310,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 16 ****** byHiddenDevil_© "Yes…yes…yes!" Trisha's whimpers were rhythmic as she felt his grip tighten even more around her little waist, pulling her body against him, sending her sliding across the slick table as he pounded into her. Her slender, outstretched legs were now rocking in the air, her heels swinging. Her perky tits were flopping on her arched chest as she slid back and forth on the table, her petite figure being yanked by the man, her pussy stuffed and filled by his throbbing cock. 
+ 
+
+===
+
+"Yes…yes…yes!" Trisha's whimpers were rhythmic as she felt his grip tighten even more around her little waist, pulling her body against him, sending her sliding across the slick table as he pounded into her. Her slender, outstretched legs were now rocking in the air, her heels swinging. Her perky tits were flopping on her arched chest as she slid back and forth on the table, her petite figure being yanked by the man, her pussy stuffed and filled by his throbbing cock. 
 
  "Oh fuck…oh yeah…she's so fucking tight…so tight…" The man was lost in the pleasure of plunging into Trisha, his moans a stream of subconscious words, mixing with the cheerleader's own wails and the sound of his hips colliding with hers, of his balls slapping the mound of her cunt as he drilled into her. Trisha had titled her head back and closed her eyes, relishing the feeling of his hard cock inside of her, feeling his harsh grip around her waist as he thrust against her hips. In an instant, she had forgotten about the pain in her pinned arms, about the discomfort of the hard wood on her smooth skin. All she could feel now was her own lust, coursing through her trembling body, and the lust of the man pounding her hard and fast. 
 
@@ -5224,7 +5414,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 16 ****** byHiddenDevil_© "Uhhh…ohhhh yesss!!!" 
+ 
+
+===
+
+"Uhhh…ohhhh yesss!!!" 
 
  Trisha's eyes were closed, her body rocking and sliding uncontrollably on the table, her face red and flushed. The three men were cumming together, on and in her, all over her body and within her mouth, and she was drowning in the feeling of it, her body pulsing with pleasure, her lust throbbing through her head. Even as she felt the jism run down her throat, she could feel more of it all over her; a fan of streams on her belly between her pussy and her navel, more spurts coating her chest and collar. The first jet had been so powerful that she could feel it nearly reaching her chin, thick and sticky on her stretched, straining neck. All of it was wet and warm, tingling on her skin, evidence of her sluttiness, of the men's sated lust for her whimpering, bucking body. 
 
@@ -5332,7 +5526,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 17 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  
 
@@ -5540,7 +5738,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 17 ****** byHiddenDevil_© Trisha quickly turned to face Dan, ignoring a whistle from the room as they were all treated to the sight of her ass, firm and curvy in her tight dress. "Dan..." she whispered, pleading. "Can we talk? Please?" 
+ 
+
+===
+
+Trisha quickly turned to face Dan, ignoring a whistle from the room as they were all treated to the sight of her ass, firm and curvy in her tight dress. "Dan..." she whispered, pleading. "Can we talk? Please?" 
 
  The lifeguard grinned down at her and took a step forward, saying nothing. Trisha jolted as she felt a hard bulge press up against her stomach – he was already rock-hard for her. The petite girl shuddered as she felt lust beginning to bubble in her own hips. She couldn't help it; by now it was her natural reaction to feeling Dan's erection, her pussy so used to being ravished that she was already growing wet just at the knowledge that he was hard. No! Focus!Trisha looked up at Dan, her chin barely at the level of his shoulders. "Please..." she repeated. "I...I'm not sure about Mandy, Dan. Maybe...let's talk. I'll make up for her!" 
 
@@ -5616,7 +5818,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 17 ****** byHiddenDevil_© For the first time that evening, Trisha felt a grin spread across her face. Deep down, Mandy was a slut, just like Trisha; she had loved sucking random cocks through holes in the wall, when Trisha had brought her to the adult bookstore a week ago. She had loved being surrounded by horny men and gulping down their meat tonight, and now she loved being fucked hard while everyone watched. She's just like me...she loves being a whore...she just needs a little encouragement! 
+ 
+
+===
+
+For the first time that evening, Trisha felt a grin spread across her face. Deep down, Mandy was a slut, just like Trisha; she had loved sucking random cocks through holes in the wall, when Trisha had brought her to the adult bookstore a week ago. She had loved being surrounded by horny men and gulping down their meat tonight, and now she loved being fucked hard while everyone watched. She's just like me...she loves being a whore...she just needs a little encouragement! 
 
  "Ohhh..." Mandy's whimpers were still barely audible. The little blonde had now turned her head back to watch as the man plunged deep into her cunt, filling her trembling, dainty body with his meat. The man looked up then too, and saw the sweet eighteen-year-old's innocent face, her cute lips pursed in a moan of pleasure, her dimpled cheeks flushed and her light blue eyes staring excitedly at the cock pounding into her own pussy. The sight kicked his lust into another gear, and he grabbed hold of Mandy's stretched hips and bucked hard into the little blonde, sending her reeling forward as the full length of his shaft pierced into her. 
 
@@ -5684,7 +5890,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 17 ****** byHiddenDevil_© "Ahhhh FUCK!" He pulled out in just in time, and Trisha staggered backwards as he quickly slipped his meat out of her cunt, carefully jacking himself off with one hand, hurrying over to Mandy. The little blonde eagerly opened her mouth, her blue eyes as wide as saucers with eagerness. Mandy was enjoying the taste of cum in her mouth just as much as Trisha; she was staring hungrily at the throbbing cock, her tongue out and waiting. 
+ 
+
+===
+
+"Ahhhh FUCK!" He pulled out in just in time, and Trisha staggered backwards as he quickly slipped his meat out of her cunt, carefully jacking himself off with one hand, hurrying over to Mandy. The little blonde eagerly opened her mouth, her blue eyes as wide as saucers with eagerness. Mandy was enjoying the taste of cum in her mouth just as much as Trisha; she was staring hungrily at the throbbing cock, her tongue out and waiting. 
 
  But the man didn't make it. He only got within two paces of Mandy's flushed face, and then he let out a frantic groan. 
 
@@ -5786,7 +5996,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 17 ****** byHiddenDevil_© A muffled, gurgled scream burst out of Trisha's chest as she gulped down Dan's cock, savoring the taste of Mandy's cunt, of the lifeguard's delicious cum. At long last, the cheerleader felt her body rush with her own orgasm, her pussy spasming with pleasure, her body wracked and trembling as her body flooded with carnal joy. 
+ 
+
+===
+
+A muffled, gurgled scream burst out of Trisha's chest as she gulped down Dan's cock, savoring the taste of Mandy's cunt, of the lifeguard's delicious cum. At long last, the cheerleader felt her body rush with her own orgasm, her pussy spasming with pleasure, her body wracked and trembling as her body flooded with carnal joy. 
 
  I'm such a naughty slut! And...I'm not the only one!She could still taste Mandy's juices in her mouth, the taste of the blonde's twat, ravished and pounded just as thoroughly as her own. Her climax burst through her in waves, flushing her little body with wild, red-hot pleasure. We're two nasty whores! Two eighteen-year-old cheerleaders that just serviced a roomful of strangers! Two cock-hungry sluts! 
 
@@ -5836,7 +6050,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 18 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  "Great job, everyone! Let's do some stretches real quick and then we'll call it a day." 
 
@@ -5944,7 +6162,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 18 ****** byHiddenDevil_© "Yesss!" Mandy repeated, again nodding, her little hips grinding in a circle as he finger-fucked her. 
+ 
+
+===
+
+"Yesss!" Mandy repeated, again nodding, her little hips grinding in a circle as he finger-fucked her. 
 
  "You're a nasty slut, isn't that right, Mandy?" Dan taunted. Trisha could see a massive bulge straining out of his jeans now, and the petite brunette felt a shudder of lust run through her own body as she peeked around the wall. He's really getting off on this!The brunette's hand was now buried in her own miniskirt &ndash; she couldn't take her eyes of the lifeguard's bulge. 
 
@@ -6060,7 +6282,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 18 ****** byHiddenDevil_© The cheerleader's window was still wide open as she fingered herself. Anybody walking through the parking lot had a full view of Trisha as she masturbated; a petite brunette, barely five feet tall. But she didn't even care. All she could think about was Dan's hard shaft, ravishing her hard, slamming and pumping her little body. Trisha slunk further down in the car seat now, scooting her hips outward as she raised both of her slim legs in the air. She carefully planted each sneaker on the steering wheel, steadying her legs as she spread them, giving her better access to her soaking, aching pussy. Her two fingers were sliding in and out of her twat with quick, hard motions, plunging between the soft lips to the knuckles, sending jolts and shivers of lust up the cheerleader's spine. With her hips up and out, she could now pump down into her cunt with new force, and now Trisha let out a soft yelp of pleasure as she drove her fingers deep in her twat, pressing hard against the steering wheel with both feet, her shoelaces dangling around her ankles. 
+ 
+
+===
+
+The cheerleader's window was still wide open as she fingered herself. Anybody walking through the parking lot had a full view of Trisha as she masturbated; a petite brunette, barely five feet tall. But she didn't even care. All she could think about was Dan's hard shaft, ravishing her hard, slamming and pumping her little body. Trisha slunk further down in the car seat now, scooting her hips outward as she raised both of her slim legs in the air. She carefully planted each sneaker on the steering wheel, steadying her legs as she spread them, giving her better access to her soaking, aching pussy. Her two fingers were sliding in and out of her twat with quick, hard motions, plunging between the soft lips to the knuckles, sending jolts and shivers of lust up the cheerleader's spine. With her hips up and out, she could now pump down into her cunt with new force, and now Trisha let out a soft yelp of pleasure as she drove her fingers deep in her twat, pressing hard against the steering wheel with both feet, her shoelaces dangling around her ankles. 
 
  He could fuck me just like this…right in my car, with me pressed into the seat as he slammed his cock into me…he'd roughly hold me down and punish me…Trisha's mind whirled with eager lust as she imagined the scene, each thought sending her fingers skimming back into her twat. He'd force my legs open, he'd make me spread myself for him! Even if I begged him to stop he wouldn't even listen! 
 
@@ -6134,7 +6360,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 18 ****** byHiddenDevil_© "Ohhh!!!" Trisha bucked fiercely upwards then, so hard that Mr. Jackson's cock slipped out of her mouth as her head shot upwards. Lust flooded her body, overwhelming her thoughts It made her want more, her limbs trembling with desire, her pussy still desperately needing something else even as it was stuffed full by three fingers. 
+ 
+
+===
+
+"Ohhh!!!" Trisha bucked fiercely upwards then, so hard that Mr. Jackson's cock slipped out of her mouth as her head shot upwards. Lust flooded her body, overwhelming her thoughts It made her want more, her limbs trembling with desire, her pussy still desperately needing something else even as it was stuffed full by three fingers. 
 
  She didn't think about it for another second. Trisha found herself straightening in the car seat, sliding her feet back off the dashboard. She was suddenly raising herself to her knees on the seat. Her carnal instincts had taken over, and now Trisha found herself eagerly submitting to them. Her hands flew to her hips, yanking her thong down to her mid-thighs, just far enough to reveal her tight butt and sopping pussy. In the same instant Trisha was turning on the seat so that she could bend over, planting her hands on the passenger seat cushion, her slim waist and supple chest hovering over the gear shift in the middle. Now, as Mr. Jackson peered into the open car window, he was staring right at Trisha's tight, firm ass. 
 
@@ -6226,7 +6456,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 18 ****** byHiddenDevil_© Wave after wave of pleasure rushed through her. Her pussy convulsed on Mr. Jackson's cock, and the cheerleader never felt tighter; her entire body was stuffed full by his stiff rod. At last, Trisha felt her muscles relaxing, and suddenly the cheerleader collapsed on the seats, gasping for breath, relishing her pleasure. Ooh…I'm so nasty I'll cum on a complete stranger's cock! She was still on her knees with her butt in the air, but the cheerleader let her shoulders and head rest on the other seat, ass up and face down as she recovered from her climax. She was so preoccupied that she didn't even notice when Mr. Jackson gently slid out of her and leaned down to glance in the window at the panting, ravished cheerleader. Trisha's body was perfectly on display. Her firm butt was still positioned next to the open window, and now a tiny drop of cum was leaking out of her red, swollen cunt. Her slender legs and lithe waist were all revealed by her skimpy cheerleading uniform, her back sharply arched to show off her slim figure as she rested her head on the cushion. Her long brown hair spilled out across the seat, her perky tits pressed into the seat as she panted. 
+ 
+
+===
+
+Wave after wave of pleasure rushed through her. Her pussy convulsed on Mr. Jackson's cock, and the cheerleader never felt tighter; her entire body was stuffed full by his stiff rod. At last, Trisha felt her muscles relaxing, and suddenly the cheerleader collapsed on the seats, gasping for breath, relishing her pleasure. Ooh…I'm so nasty I'll cum on a complete stranger's cock! She was still on her knees with her butt in the air, but the cheerleader let her shoulders and head rest on the other seat, ass up and face down as she recovered from her climax. She was so preoccupied that she didn't even notice when Mr. Jackson gently slid out of her and leaned down to glance in the window at the panting, ravished cheerleader. Trisha's body was perfectly on display. Her firm butt was still positioned next to the open window, and now a tiny drop of cum was leaking out of her red, swollen cunt. Her slender legs and lithe waist were all revealed by her skimpy cheerleading uniform, her back sharply arched to show off her slim figure as she rested her head on the cushion. Her long brown hair spilled out across the seat, her perky tits pressed into the seat as she panted. 
 
  She only noticed he was staring at her when she heard him speak. 
 
@@ -6244,7 +6478,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 19 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  "I am so excited to graduate this weekend, Trish. I can't fucking wait!" 
 
@@ -6392,7 +6630,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 19 ****** byHiddenDevil_© "Okay, you ready?" 
+ 
+
+===
+
+"Okay, you ready?" 
 
  Trisha started to nod, but then paused. "Well...I don't know what we're doing yet, Brit!" 
 
@@ -6512,7 +6754,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 19 ****** byHiddenDevil_© Trisha turned to the girl, surprised, gripping the chair hard as she struggled to look normal. The girl was looking at her with a sympathetic look, and suddenly Trisha realized that her cheeks must be flushed red and hot. The girl thought Trisha's face was shiny and red just because of the heat. She didn't realize that the petite cheerleader next to her was desperately struggling to keep her pleasure in – that her body, hidden under the gown, was rigid and stiff in her chair in response to the sex toy plunged into her cunt. Trisha responded with a stilted nod, her lips struggling to move. 
+ 
+
+===
+
+Trisha turned to the girl, surprised, gripping the chair hard as she struggled to look normal. The girl was looking at her with a sympathetic look, and suddenly Trisha realized that her cheeks must be flushed red and hot. The girl thought Trisha's face was shiny and red just because of the heat. She didn't realize that the petite cheerleader next to her was desperately struggling to keep her pleasure in – that her body, hidden under the gown, was rigid and stiff in her chair in response to the sex toy plunged into her cunt. Trisha responded with a stilted nod, her lips struggling to move. 
 
  "O-oh..." she finally managed back, in a stammering whisper. "Y-yes...I k- know!" 
 
@@ -6604,7 +6850,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 19 ****** byHiddenDevil_© "Fuck...fuck...gulp it down, baby..." The stage hand was staring down at Britney as the blonde slurped on his cock, watching her impressive tits dance back and forth as she bounced. Now, Trisha suddenly jolted as she felt someone kneeling behind her, and hands began to slide up and down her petite body. He was groping the slim cheerleader, eager to feel her slender curves, to enjoy the soft skin of the little brunette kneeling and gurgling in front of him. Trisha's skin tingled and prickled as his fingers slid up and over her plump tits, down her tiny waist, across the curves of her wiggling hips. It was such a thrill, to feel so on display, to know that this man was so lustful at the sight of her young body that he couldn't keep his hands off her. And then, she felt his hand sliding under her skirt, feeling the cheerleader's firm ass. His fingers glided across the insides of her slim thighs. They reached Trisha's thong – dripping wet with lust – and he felt what was buried deep underneath, what was making the cheerleader thrill and whimper with desire. 
+ 
+
+===
+
+"Fuck...fuck...gulp it down, baby..." The stage hand was staring down at Britney as the blonde slurped on his cock, watching her impressive tits dance back and forth as she bounced. Now, Trisha suddenly jolted as she felt someone kneeling behind her, and hands began to slide up and down her petite body. He was groping the slim cheerleader, eager to feel her slender curves, to enjoy the soft skin of the little brunette kneeling and gurgling in front of him. Trisha's skin tingled and prickled as his fingers slid up and over her plump tits, down her tiny waist, across the curves of her wiggling hips. It was such a thrill, to feel so on display, to know that this man was so lustful at the sight of her young body that he couldn't keep his hands off her. And then, she felt his hand sliding under her skirt, feeling the cheerleader's firm ass. His fingers glided across the insides of her slim thighs. They reached Trisha's thong – dripping wet with lust – and he felt what was buried deep underneath, what was making the cheerleader thrill and whimper with desire. 
 
  Trisha let out a gasp as she felt the vibrator shifting in her cunt, and drool spilled out of the brunette's lips as she gurgled and moaned in response, her body shuddering and trembling. 
 
@@ -6720,7 +6970,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 19 ****** byHiddenDevil_© "So fucking good...you should feel these tits! Unbelievable...damn, man..." 
+ 
+
+===
+
+"So fucking good...you should feel these tits! Unbelievable...damn, man..." 
 
  "Yeah...I saw that blonde before the ceremony...what a fucking body..." 
 
@@ -6828,7 +7082,11 @@
 
  
 
- ****** Good Girl vs. Slut Ch. 19 ****** byHiddenDevil_© And he did. With a wild, ragged groan, Kyle jammed his hips as hard as he could into the little cheerleader, and Trisha screamed out in pleasure as she felt his force, driving his cock savagely hard into her pussy. She was stuffed so tightly that she could feel each pulse in his rock-hard cock, every beat of the blood coursing through his hot shaft, of his lust for her sweet, young body. Now, the brunette felt his cock pumping even more, swelling and throbbing inside of her, and in the next second Trisha felt his cum erupt out of his shaft, flooding her twat, pumping his seed into her. Her eyes opened wide and the cheerleader's face burst into joy as she cried out in pleasure. 
+ 
+
+===
+
+And he did. With a wild, ragged groan, Kyle jammed his hips as hard as he could into the little cheerleader, and Trisha screamed out in pleasure as she felt his force, driving his cock savagely hard into her pussy. She was stuffed so tightly that she could feel each pulse in his rock-hard cock, every beat of the blood coursing through his hot shaft, of his lust for her sweet, young body. Now, the brunette felt his cock pumping even more, swelling and throbbing inside of her, and in the next second Trisha felt his cum erupt out of his shaft, flooding her twat, pumping his seed into her. Her eyes opened wide and the cheerleader's face burst into joy as she cried out in pleasure. 
 
  "YESSSSS!!!!" She shoved her own hips into Kyle's, wanting to bury every last bit of his cock in her pussy, desperate to feel his cum spurt from balls to tip into her cunt. Pulse after pulse, shot after shot, Kyle was filling Trisha's petite body with his jism, each burst so hot and thick in her twat. Every jet of his seed made her skin tingle like it was on fire. She could feel his hand on the back of her head, her hair tangled and bunched in his fingers, his hips jammed hard against hers. Ohhhhh yesss!!! 
 

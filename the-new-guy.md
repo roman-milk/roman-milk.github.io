@@ -1,8 +1,14 @@
+The New Guy Ch. 01
+==================
 #1 
 
  
 
- ****** The New Guy Ch. 01 ****** byJust_Plain_Bob© Chapter 1: Mary 
+ 
+
+===
+
+Chapter 1: Mary 
 
  I don't know what it is with me, but I have a thing for married women. Put me in a room full of good-looking women with one of them being married and I'll home in on her every time. She wouldn't even have to be the best looking woman in the room, it wouldn't matter at all. I'd still be drawn to her like iron filings to a magnet. 
 
@@ -344,7 +350,11 @@
 
  
 
- ****** The New Guy Ch. 02 ****** byJust_Plain_Bob© Chapter 2: The Plan 
+ 
+
+===
+
+Chapter 2: The Plan 
 
  The plan was for Mary to tell Matty, Betsy and Sonia about our evening together and then let slip some of the "pillow talk" we'd had. She would tell them that we had parted friends because while we had had a good time we really hadn't 'clicked.' She would tell them that I had let it slip (reinforcing what Sonia had been telling them) that what I really wanted for a relationship was a married woman who was happy with her marriage overall, but just wanted to have a fling. 
 
@@ -508,7 +518,11 @@
 
  
 
- ****** The New Guy Ch. 03 ****** byJust_Plain_Bob© Chapter 3: Sonia 
+ 
+
+===
+
+Chapter 3: Sonia 
 
  The atmosphere in the office the next day was a little chilly as far as the women were concerned. They all seemed to be stepping lightly around each other. Most of them were ignoring Mary because she was walking around with a smug expression on her face. Matty and Betsy kept shooting daggers at each other as they eyed each other across the office. For the first time in over a week I didn't get a morning visit from Sonia, probably because she knew she had a lock on being the first married woman to get to my bed. The only woman in the office who was acting normal was Alice. 
 
@@ -672,7 +686,11 @@
 
  
 
- ****** The New Guy Ch. 04 ****** byJust_Plain_Bob© Chapter 4: Matty 
+ 
+
+===
+
+Chapter 4: Matty 
 
  The next day at work one of the first people I saw was Sonia and as our eyes met she quickly looked away. Around nine Mary came over and sat down on the edge of my desk. 
 
@@ -864,7 +882,11 @@
 
  
 
- ****** The New Guy Ch. 05 ****** byJust_Plain_Bob© Chapter 5: Betsy, part 1 
+ 
+
+===
+
+Chapter 5: Betsy, part 1 
 
  Betsy followed me home, but once inside my apartment she seemed a little hesitant. "Having second thoughts?" 
 
@@ -994,7 +1016,11 @@
 
  
 
- ****** The New Guy Ch. 06 ****** byJust_Plain_Bob© Chapter 6: Betsy, part 2 
+ 
+
+===
+
+Chapter 6: Betsy, part 2 
 
  I had mixed thoughts as I sat at my desk and watched Sonia move around the office. On the one hand she was the one woman in the office that I had really wanted. If I had been given a choice in the beginning - you can have one and only one - I would have gone for Sonia. On the other hand I currently had more pussy than I ever expected to have and the loss of Sonia did take some of the pressure off of me. Now I only had three women to try and satisfy instead of four. I was looking at Sonia's tight, well shaped ass as she stood at the copier making copies when a voice from behind me said, "Well lover, have you come up with something that your slut can do tonight?" I turned and found Betsy standing behind me. 
 
@@ -1266,7 +1292,11 @@
 
  
 
- ****** The New Guy Ch. 06 ****** byJust_Plain_Bob© "Well good for you Betsy." 
+ 
+
+===
+
+"Well good for you Betsy." 
 
  "That's it? Good for you Betsy?" 
 

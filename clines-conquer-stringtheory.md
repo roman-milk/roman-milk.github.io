@@ -1,8 +1,14 @@
+The Cline's Conquer Time Ch. 01
+===============================
 #1 
 
  
 
- ****** The Cline's Conquer Time Ch. 01 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Also, this story deals with some scientific concepts. My knowledge of the theories within is rudimentary, so please understand if my explanations are not entirely correct. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Also, this story deals with some scientific concepts. My knowledge of the theories within is rudimentary, so please understand if my explanations are not entirely correct. Enjoy.) 
 
  
 
@@ -174,7 +180,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 01 ****** byTheTalkMan© "Hey guys!" Heather said excitedly, bouncing up and down as she ran towards her family, the only family she knew. The first thing she did was run towards her sister and give her a big hug, followed by a hug to her mother then her grandmother. 
+ 
+
+===
+
+"Hey guys!" Heather said excitedly, bouncing up and down as she ran towards her family, the only family she knew. The first thing she did was run towards her sister and give her a big hug, followed by a hug to her mother then her grandmother. 
 
  Although she simply greeted her mom and sister, she took the opportunity to say a bit more to her favorite relative, her grandmother. 
 
@@ -338,7 +348,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 01 ****** byTheTalkMan© Lots of playful kissing. Light, sexy touching. Blindfolds and feathers. Slow teasing. Getting a little carried away in public. Different positions, like having her on top! Maybe even doggy style! Up to their standards, they were pushing the boundaries of indecency. In their opinion, their sex life was pretty wild. 
+ 
+
+===
+
+Lots of playful kissing. Light, sexy touching. Blindfolds and feathers. Slow teasing. Getting a little carried away in public. Different positions, like having her on top! Maybe even doggy style! Up to their standards, they were pushing the boundaries of indecency. In their opinion, their sex life was pretty wild. 
 
  But to a Cline woman, their sex life was laughable. 
 
@@ -472,7 +486,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 01 ****** byTheTalkMan© "Well, I appreciate the help." 
+ 
+
+===
+
+"Well, I appreciate the help." 
 
  "I think my dear granddaughter might need your help now." Helena indicated. Derek turned around to look for Heather. 
 
@@ -694,7 +712,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 01 ****** byTheTalkMan© "Don't worry. It happens all the time." she said. Derek smiled. 
+ 
+
+===
+
+"Don't worry. It happens all the time." she said. Derek smiled. 
 
  "You guys have a good night." Kaitlyn said, opening the door and handing the key to Derek. She held the door open, allowing the couple to enter. She smiled at Heather, and spoke to Derek. 
 
@@ -872,7 +894,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 01 ****** byTheTalkMan© "I rarely meet a man who can go for as long as I can. I mean, I know I can fuck all night, but I've never met a man who can actually keep up with me. I've never met a married man who acts so innocent but fucks so hard! All I had to do is get a drink or two in you and you were down for anything. It only took a couple drinks before you were complimenting my ass. Asking to see my tits. Asking to see my thong. If I didn't know any better, I would say someone is not so satisfied with what he's getting from the missus." Kaitlyn said, grinding her tight cunt around the full length of his sizable cock, milking his cock, extending the pleasure he was feeling. 
+ 
+
+===
+
+"I rarely meet a man who can go for as long as I can. I mean, I know I can fuck all night, but I've never met a man who can actually keep up with me. I've never met a married man who acts so innocent but fucks so hard! All I had to do is get a drink or two in you and you were down for anything. It only took a couple drinks before you were complimenting my ass. Asking to see my tits. Asking to see my thong. If I didn't know any better, I would say someone is not so satisfied with what he's getting from the missus." Kaitlyn said, grinding her tight cunt around the full length of his sizable cock, milking his cock, extending the pleasure he was feeling. 
 
  "MMMMPPPHH!" Derek groaned in pleasure, his words muffled by the giant breast in his mouth. 
 
@@ -920,7 +946,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 02 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, there are characters in this story that are featured more prominently in my story "The Devil Wears Nada." Reading that story is not necessary to enjoy this one, but it would surely help. And finally,I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, there are characters in this story that are featured more prominently in my story "The Devil Wears Nada." Reading that story is not necessary to enjoy this one, but it would surely help. And finally,I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ************ 
 
@@ -1138,7 +1168,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 02 ****** byTheTalkMan© "What is this place?" Derek asked. 
+ 
+
+===
+
+"What is this place?" Derek asked. 
 
  "Derek, get ready to see how the other half lives." Audrey said as the bouncers opened the doors, allowing them to enter. 
 
@@ -1284,7 +1318,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 02 ****** byTheTalkMan© "Room 101, baby. I'll be there. Waiting. I'll bring the champagne. You bring the cock." Audrey tittered, giving the married man a peck on the lips, winking at him, and walking away, shaking her hips proudly, causing her perfect ass to bounce. 
+ 
+
+===
+
+"Room 101, baby. I'll be there. Waiting. I'll bring the champagne. You bring the cock." Audrey tittered, giving the married man a peck on the lips, winking at him, and walking away, shaking her hips proudly, causing her perfect ass to bounce. 
 
  As soon as she was out of sight, Derek faced the rest of the room. Already, a few women were moving closer to him, quickly. Derek was panicking. He struggled saying no to Audrey. Clearly, Derek had a weakness for aggressive women. And with so many women quickly approaching, aggressively, Derek knew he didn't have the strength to turn them all down. He didn't have it in him. 
 
@@ -1418,7 +1456,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 02 ****** byTheTalkMan© Audrey smugly placed her ankles on his shoulders, making sure that fat cock of his got in deep. He pressed his dick into her, smothering it in its silky tightness until his balls rested against her ass. Derek looked down at Audrey, his fiery eyes meeting her arrogant stare. 
+ 
+
+===
+
+Audrey smugly placed her ankles on his shoulders, making sure that fat cock of his got in deep. He pressed his dick into her, smothering it in its silky tightness until his balls rested against her ass. Derek looked down at Audrey, his fiery eyes meeting her arrogant stare. 
 
  "If you're really a man... prove it." Audrey dared, smiling. Sneering Derek pulled back, easing his shaft out of his smothering wetness up to the tip. Then he slammed it back in roughly. 
 
@@ -1504,7 +1546,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ************ 
 
@@ -1600,7 +1646,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© Jackie knew how to shake her perfect ass, and her ass bounced side to side in just the right way. Jackie was an expert at popping her hips back and forth, her firm cheeks sashaying under the material of the silky dress. The thin dress allowed any viewer to see the way her perky ass jiggled. 
+ 
+
+===
+
+Jackie knew how to shake her perfect ass, and her ass bounced side to side in just the right way. Jackie was an expert at popping her hips back and forth, her firm cheeks sashaying under the material of the silky dress. The thin dress allowed any viewer to see the way her perky ass jiggled. 
 
  Kaitlyn, the sexy young hotel clerk, was watching this group approach with shock. She was not stupid, and it became clear to her that during the set-up for this reception, when Jocelyn worked with Kaitlyn to set up everything, Kaitlyn knew Jocelyn was after her daughter's man. It was clear to Kaitlyn that Jocelyn had an eye for Derek, even before she had met him. So Kaitlyn, ever the ambitious slut, was eager to watch Jocelyn at work. Kaitlyn was still learning her craft, so she was willing to watch someone more experienced use all her wiles to seduce the young husband. And of course, if Kaitlyn had the opportunity, she would swoop in and run some game on the new husband. 
 
@@ -1718,7 +1768,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© Jackie's breasts were just barely restrained. With Heather, the dress covered the full expanse of her breasts. With Jackie, the dress struggled to cover her breasts above the nipples. If they jiggled in just the right way, her rack would explode from underneath, destroying the purity of the dress. The dress was so tight, and her tits were so, so big, that it was unavoidable that the dress would create a mile of cavernous cleavage. Just a fucking canyon between her fantastic jugs. Her breasts were bulging over the top, her hard nipples pressing into the dress that were probably the only thing preventing the top of her dress from sliding down the smooth, mountainous flesh and exposing the delights underneath. 
+ 
+
+===
+
+Jackie's breasts were just barely restrained. With Heather, the dress covered the full expanse of her breasts. With Jackie, the dress struggled to cover her breasts above the nipples. If they jiggled in just the right way, her rack would explode from underneath, destroying the purity of the dress. The dress was so tight, and her tits were so, so big, that it was unavoidable that the dress would create a mile of cavernous cleavage. Just a fucking canyon between her fantastic jugs. Her breasts were bulging over the top, her hard nipples pressing into the dress that were probably the only thing preventing the top of her dress from sliding down the smooth, mountainous flesh and exposing the delights underneath. 
 
  The rest of the silky flesh of her chest was bare. Her thin, glittering necklace the only thing interrupting the purity of the tit flesh. The skin of her chest led his eyes to the smooth flesh of Jackie's arms. Smooth, lightly muscled, faultless. He looked past the graceful curves of her elbows to her smooth hands, her nails glossy and well cared for. Her fingers were planted on her prominent hips. 
 
@@ -1916,7 +1970,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© "What?" Derek asked. 
+ 
+
+===
+
+"What?" Derek asked. 
 
  "You heard me, Derek. What's that desire that makes you shiver? What's that thing that titillates you most? That desire that brings you to your knees?" Jackie whispered, moving in close to Derek. 
 
@@ -2086,7 +2144,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© Some believed the universe was chaos. Derek did not. Derek believed the universe was ordered, regimented from the top down, from the infinity of space to the smallest quark. Cause if he didn't believe in this order, his life's work would be for naught. And staring at his wife's sister's perfect big breasts only reaffirmed that his beliefs were true. The universe was not chaos. Because chaos could not create such flawlessness. Only a deft, disciplined, ordered hand could create such perfection, such a work of beauty. Looking at his sister-in-law's tits, Derek's beliefs were confirmed. Derek knew his life's work was not for naught. String theory, multiple timelines, alternate universes, all now proven in his mind, thanks to his sister-in-law's succulent tits. 
+ 
+
+===
+
+Some believed the universe was chaos. Derek did not. Derek believed the universe was ordered, regimented from the top down, from the infinity of space to the smallest quark. Cause if he didn't believe in this order, his life's work would be for naught. And staring at his wife's sister's perfect big breasts only reaffirmed that his beliefs were true. The universe was not chaos. Because chaos could not create such flawlessness. Only a deft, disciplined, ordered hand could create such perfection, such a work of beauty. Looking at his sister-in-law's tits, Derek's beliefs were confirmed. Derek knew his life's work was not for naught. String theory, multiple timelines, alternate universes, all now proven in his mind, thanks to his sister-in-law's succulent tits. 
 
  Derek had to stop himself from drooling. He had to stop himself from falling to his knees in worship at these tits that had already shown him so much. Derek couldn't get Jackie's earlier words out of his head. Only a filthy pervert would be so enraptured by a big pair of tits. A good guy would not be so gob- smacked. This was his wife's sister! He shouldn't be gawking, but he couldn't stop himself. Did Derek not have any limits? Was he a dirty asshole who lets himself become obsessed with his sister-in-law's chest? If he could reach such depths, what was stopping him from doing other bad things? Was he the type of guy who liked such things? Was he a... cheater? Would he cheat on his wife? He loved his wife, but if he was truly satisfied with Heather, he shouldn't get so enraptured from something as simple and cosmetic as a pair of succulent titties. If he couldn't handle this, something as simple as clandestine nudity between in-laws, what was going to stop him the first time some gorgeous woman put the moves on him? Could he stop himself then? Could he stop himself if some slutty woman approached him at a bar, cleavage bared, desperate for a man? Could he stop himself when some opportunistic slut snuck in and gave him a sensual kiss, her pouty lips pressed to his softly, the flesh of their lips mashing together lightly but beautifully as her bulbous breasts lightly kissed his fit chest? 
 
@@ -2158,7 +2220,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© Jackie was using her tits to basically reprogram Derek's mind, his educated mind. All that knowledge, all that talent, all that education, his good nature, all the things that made him the man he was, were being wiped away. All the years of work he spent trying to better understand how the world works, all that potential to make true progress and to better the world, were now shoved aside in favor of the pleasures a pair of really big boobs could offer. 
+ 
+
+===
+
+Jackie was using her tits to basically reprogram Derek's mind, his educated mind. All that knowledge, all that talent, all that education, his good nature, all the things that made him the man he was, were being wiped away. All the years of work he spent trying to better understand how the world works, all that potential to make true progress and to better the world, were now shoved aside in favor of the pleasures a pair of really big boobs could offer. 
 
  Derek's mind was now filled with these thoughts, thoughts of breasts, tits, knockers, hooters, whatever name you could think of. Derek would not be able to think of much else besides humongous tits. He would try to focus on his work, or his wife, but he would not be able to get huge boobs off his brain. He was basically an addict at this point. A big breast addict. And he could not satisfy this addiction at home, or at work. He would not be able to satisfy this addiction without indulging. He would not be able to get by without finding the first slut with big tits that he could get his hands on, convince her to slip off her bra, and let him indulge his addiction for a few hours. Thanks to Jackie, Derek would never be the same. 
 
@@ -2262,7 +2328,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© Derek looked absolutely terrified. He didn't know what to do. He didn't want to see what Jackie would do if he disobeyed her. He hated to make people upset, and he knew Jackie would be furious if he opposed her. Even if what she was asking for was really messed up, he had no choice but to comply. So he gave... a very slight nod. This caused Jackie to flash him a smile, and a rush of relief flooded Derek, happy that he made her happy. 
+ 
+
+===
+
+Derek looked absolutely terrified. He didn't know what to do. He didn't want to see what Jackie would do if he disobeyed her. He hated to make people upset, and he knew Jackie would be furious if he opposed her. Even if what she was asking for was really messed up, he had no choice but to comply. So he gave... a very slight nod. This caused Jackie to flash him a smile, and a rush of relief flooded Derek, happy that he made her happy. 
 
  "That's great Derek. What a great brother-in-law you are. Probably a better brother-in-law than you are a husband!" Jackie said with a laugh, her monstrous breasts jiggling with every giggle. "Like I said, you will be running your life through me. And that's a lot of work for a girl! So, it does come with a fee. Sis tells me you make quite a bit of money. Like, a lot of money. So, any gift you give to her, you will get me something better. You get her a cubic zirconia, you buy me a diamond. You buy her a cute set of underwear, you buy me a thong. You buy your wife a swimsuit, you buy me a pool. You put a thousand bucks in your shared bank account, you put ten thousand in mine. Got it? Running a man's life is a lot of work, so you need to make it worth my time. You need to make sure all my needs are being cared for. And I am a girl with a lot of needs. Not only with money, or with pretty things for me to wear. You need to keep my needs satisfied in the bedroom." 
 
@@ -2336,7 +2406,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© "Babe, if I don't stop you, you'll be sucking my ass all day!" Jackie said, swiveling around on the bed. She pulled off her thong completely and tossed it on her sister's face with an evil smile. Derek was dazed, and the now totally nude Jackie took advantage by leaning over and sticking her tongue down his throat. 
+ 
+
+===
+
+"Babe, if I don't stop you, you'll be sucking my ass all day!" Jackie said, swiveling around on the bed. She pulled off her thong completely and tossed it on her sister's face with an evil smile. Derek was dazed, and the now totally nude Jackie took advantage by leaning over and sticking her tongue down his throat. 
 
  Derek's eyes widened as he felt Jackie's plump lips press softly against his. Jackie's firm tongue mashed against his, her sweet saliva mixing with his. Her wet tongue was everywhere, dominating his mouth as she pumped her tongue in and out. 
 
@@ -2462,7 +2536,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© "I don't love her. She's nothing compared to you. She's just a beginner girlfriend. A girl you're with for awhile before you upgrade to a real woman. I thought she was pretty, but once I met you, I realized she's not even good- looking. I thought personality was all that mattered, but then I saw your cleavage and realized what really mattered. Her body is pathetic! Her tits are non-existent! She's bad in bed! Please, let me feel your tits again! I need them!" Derek cried out desperately, trying to give her as much pleasure as he could. 
+ 
+
+===
+
+"I don't love her. She's nothing compared to you. She's just a beginner girlfriend. A girl you're with for awhile before you upgrade to a real woman. I thought she was pretty, but once I met you, I realized she's not even good- looking. I thought personality was all that mattered, but then I saw your cleavage and realized what really mattered. Her body is pathetic! Her tits are non-existent! She's bad in bed! Please, let me feel your tits again! I need them!" Derek cried out desperately, trying to give her as much pleasure as he could. 
 
  "Yes! Take them! They're yours now!" Jackie gasped. Derek's hands flew from her prodigious ass cheeks to her enormous breasts, slapping onto them. His hands squeezed them again, availing in being able to touch these perfect big breasts. 
 
@@ -2640,7 +2718,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 03 ****** byTheTalkMan© "Do it, Derek! Fuck me!" Jackie commanded. Derek flexed his hips back, pulling his shaft from her ass. Once only the tip was still inside her, he drove into her again. 
+ 
+
+===
+
+"Do it, Derek! Fuck me!" Jackie commanded. Derek flexed his hips back, pulling his shaft from her ass. Once only the tip was still inside her, he drove into her again. 
 
  "C'mon, baby. Harder! Give it to me! I can take it!" Jackie begged. 
 
@@ -2700,7 +2782,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ************ 
 
@@ -2832,7 +2918,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© Heather tensed up when her mother whispered in her ear. She had heard that tone many times before, whenever she had misbehaved in her younger years. She loved her mother, but Heather knew better than to piss her off. When Jocelyn got angry, you did not want to be near her. She would get furious. She was a hurricane, and she could create a wide swath of damage in her wake. 
+ 
+
+===
+
+Heather tensed up when her mother whispered in her ear. She had heard that tone many times before, whenever she had misbehaved in her younger years. She loved her mother, but Heather knew better than to piss her off. When Jocelyn got angry, you did not want to be near her. She would get furious. She was a hurricane, and she could create a wide swath of damage in her wake. 
 
  Jocelyn was a strict, cutthroat bitch, and she knew it. In her opinion that's what made her not only a good mother, but also an effective seductress. Her manner of seduction was not one of coy interplay and light flirting, but one of cold dominance and aggressive sexual confidence. There was no mystery with her. If she wanted to fuck you into submission, you would know it. And this method was tried and true. Most men didn't know how to handle a woman so coldly aggressive, and they usually had no choice but to bend to her unwavering will and yield their thick dicks to this aggressive MILF slut. And once they gave into her, there was no going back. No matter who these men promised their love, loyalty, and cum to, when Jocelyn came calling, these men belonged to her. 
 
@@ -2982,7 +3072,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© And a good son-in-law should think that there is no greater way for a man to honor his wife than by making sure her mother, the woman who brought his wife into the world, is in a constant state of bliss. A good son-in-law makes sure that his mother-in-law cums ten times a day. A good son-in-law makes sure his mother-in-law's cunt, mouth and asshole are all well fucked, every single day. A good son-in-law ignores his wife at all opportunities and saves his best for her mother. Cause that's what good son-in-laws do. And a good daughter understands. Even if her mother decides to make this arrangement permanent, she shouldn't be angry. She should be honored. 
+ 
+
+===
+
+And a good son-in-law should think that there is no greater way for a man to honor his wife than by making sure her mother, the woman who brought his wife into the world, is in a constant state of bliss. A good son-in-law makes sure that his mother-in-law cums ten times a day. A good son-in-law makes sure his mother-in-law's cunt, mouth and asshole are all well fucked, every single day. A good son-in-law ignores his wife at all opportunities and saves his best for her mother. Cause that's what good son-in-laws do. And a good daughter understands. Even if her mother decides to make this arrangement permanent, she shouldn't be angry. She should be honored. 
 
  A good daughter should be overjoyed when she finds out her mother is keeping her husband. A good daughter should feel so proud that her mother is so sexy than she could successfully steal her husband. A good daughter should be pleased when her husband and her mother go on vacation and leave her behind. A good daughter should be happy to see the pictures online of her husband and her mom canoodling intimately. A good daughter should be happy when her mother lets all of her daughter's friends know that she has stolen her hunky hubby. A good daughter should feel so proud when all of her friends think her mom is so much cooler than she is and become friends with her instead. A good daughter should be overjoyed when her mother decides it would best if she carried all of her hubby's children in her mature belly instead of in the stomach of her unprepared daughter. A good daughter should feel so happy when her mother asks her to sign divorce papers so her hubby can put a ring on her mother's finger. A good daughter would accept her mother's explanation that this is a marriage for legal reasons only and that she can still act like she is married, and that the whole thing is too complicated for her to understand. And a good daughter should totally understand when her mother tells her that she should ultimately move out and get her own place, leaving her mother and her husband to share the house together. A good daughter will happily live in a tiny apartment alone, knowing her mother and hubby are happily sharing their big house together. A good daughter will totally accept it when her mother and her husband never return her calls and never make any attempt to contact her, because they are probably too busy in each others' arms to answer any silly phone calls. A good daughter would happily live the rest of her life alone just so her mother and her husband spend a life together in unending bliss. A good daughter would be happy knowing her mother has greedily stolen the life that was meant for her. A good daughter should feel honored that her mother would spend the rest of her life getting fucked by the dick that she should have had locked down. A good daughter should be pleased knowing her mother had all the children meant for her. 
 
@@ -3068,7 +3162,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© "So you need to admit the truth, and you can start your new life, a life of worship at the altar of mature women. A life where you live under the heel of a strong, mature bitch who knows that is all you ever wanted. You will give an older women permission to be the bitchy, vile cunt she was born to be and you will love her for it. You will give an older woman permission to run your life through and through, to make all the decisions you are not built to handle, and you will thank her for it. You will admit the truth, Derek, and you will be reborn. You will answer my questions with the truth, and when you do, the rewards will be, indescribable." Jocelyn finished. 
+ 
+
+===
+
+"So you need to admit the truth, and you can start your new life, a life of worship at the altar of mature women. A life where you live under the heel of a strong, mature bitch who knows that is all you ever wanted. You will give an older women permission to be the bitchy, vile cunt she was born to be and you will love her for it. You will give an older woman permission to run your life through and through, to make all the decisions you are not built to handle, and you will thank her for it. You will admit the truth, Derek, and you will be reborn. You will answer my questions with the truth, and when you do, the rewards will be, indescribable." Jocelyn finished. 
 
  Derek's mind was in chaos. He was over-stimulated, and he couldn't get his thoughts straight. Various thoughts rushed through his mind. His wife. Her pretty face. His mother-in-law. Her shockingly gorgeous face. His marriage. Jocelyn's barely clad pussy. The way Heather's hand felt in his own. The feel of Ms. Cline's firm thighs against his face. The sight of Heather in her wedding gown. The sight of all those sexy mature butts of the women at his wedding. The sound of Heather's cute moans when they made love. The scent of Ms. Cline's juicy pussy against his nose. Heather's relaxed, playful personality. Ms. Cline's harsh, dominant, overbearing attitude. 
 
@@ -3206,7 +3304,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© "I, uh... I don't think I can do this." Derek cried out, terrified. Jocelyn rolled her eyes. She calmly reached down and peeled her wet thong to the side, revealing her bare cunt to her son-in-law for the first time. 
+ 
+
+===
+
+"I, uh... I don't think I can do this." Derek cried out, terrified. Jocelyn rolled her eyes. She calmly reached down and peeled her wet thong to the side, revealing her bare cunt to her son-in-law for the first time. 
 
  "That change your mind?" Jocelyn asked coldly. Derek's eyes widened in shock. He was staring straight his mother-in-law's bare, wet cunt. Jocelyn said nothing, she just let the young man take it in. She knew she didn't have to say anything. Nature would take its course. 
 
@@ -3314,7 +3416,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© "Well, that's the truth." Kaitlyn said. "Then I guess, scream your head off, cum like crazy, and wake up everyone in the hotel." she added. 
+ 
+
+===
+
+"Well, that's the truth." Kaitlyn said. "Then I guess, scream your head off, cum like crazy, and wake up everyone in the hotel." she added. 
 
  "That sounds about right." Jocelyn said. "I do appreciate your help dear. I know you wanted a piece of him, and you still might get it, but for now, he's all mine." 
 
@@ -3492,7 +3598,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© "Derek, this could have been so much easier. See what happens when you fight back! See what happens when you defy me!" Jocelyn screamed out. She looked down her back at her son-in-law's weakening stare. She showed some mercy and lifted her ass slightly, allowing him to breath. He breathed in harshly, attempting to regain his strength. As he returned from his daze, Jocelyn spoke. 
+ 
+
+===
+
+"Derek, this could have been so much easier. See what happens when you fight back! See what happens when you defy me!" Jocelyn screamed out. She looked down her back at her son-in-law's weakening stare. She showed some mercy and lifted her ass slightly, allowing him to breath. He breathed in harshly, attempting to regain his strength. As he returned from his daze, Jocelyn spoke. 
 
  "Derek, face the facts. You can't defeat me. You can't defeat this ass! You can't resist it! You are not strong enough to stop me! You can't escape! You will never escape me. Look at it, Derek! Look at this ass! It is your future! It is your fate! It is your destiny!"Jocelyn moaned out. 
 
@@ -3588,7 +3698,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© "Derek, my son, this could have been so much easier for you. So much better. You could have been free to enjoy yourself. Free to cum whenever you want. But you have been such a brat, such an entitled, spoiled boy, that you have to be punished. You must atone for your bad behavior, my son. You need to prove you can be a good son and are not just completely hopeless. So your punishment is simple..." Jocelyn began. She reached down to his hands, which were clutching the bed, holding on for the ride. She ripped his hands from the bed and slapped them onto her giant breasts. She put her hands over his and cupped them, causing Derek to cup them, causing her big breasts to pour through her son-in- law's manly fingers. "Your punishment for being such a brat is that you have to squeeze my big, mature breasts. Squeeze them rough, squeeze them hard until they are all you can think about. Let them consume your soul, until you can't feel the breasts of a younger woman anymore without getting disgusted. Until you are addicted to squeezing the breasts of an older woman. Until you realize that those big hands are being wasted when they aren't full of big, mature titties. And, my son, while you're squeezing my magnificent breasts, you need to take back all of those filthy lies you said before. Lies are the tool of the untamed young man. You need to be tamed, collared, and domesticated. So, my son, you need to confess your sins and atone for the lies you have told. Worship your goddess. Pledge yourself to your mother. Make me cum! And you do not get to cum till I tell you. So you'd better be good, you obedient boy, or I may never let you cum. You'll try to get by without me, fucking my pathetic daughter, and you'll call me, desperate for my permission, permission you will never receive. So decide now, boy, decide your own fate." Jocelyn demanded, acting like the evil villainess she was. 
+ 
+
+===
+
+"Derek, my son, this could have been so much easier for you. So much better. You could have been free to enjoy yourself. Free to cum whenever you want. But you have been such a brat, such an entitled, spoiled boy, that you have to be punished. You must atone for your bad behavior, my son. You need to prove you can be a good son and are not just completely hopeless. So your punishment is simple..." Jocelyn began. She reached down to his hands, which were clutching the bed, holding on for the ride. She ripped his hands from the bed and slapped them onto her giant breasts. She put her hands over his and cupped them, causing Derek to cup them, causing her big breasts to pour through her son-in- law's manly fingers. "Your punishment for being such a brat is that you have to squeeze my big, mature breasts. Squeeze them rough, squeeze them hard until they are all you can think about. Let them consume your soul, until you can't feel the breasts of a younger woman anymore without getting disgusted. Until you are addicted to squeezing the breasts of an older woman. Until you realize that those big hands are being wasted when they aren't full of big, mature titties. And, my son, while you're squeezing my magnificent breasts, you need to take back all of those filthy lies you said before. Lies are the tool of the untamed young man. You need to be tamed, collared, and domesticated. So, my son, you need to confess your sins and atone for the lies you have told. Worship your goddess. Pledge yourself to your mother. Make me cum! And you do not get to cum till I tell you. So you'd better be good, you obedient boy, or I may never let you cum. You'll try to get by without me, fucking my pathetic daughter, and you'll call me, desperate for my permission, permission you will never receive. So decide now, boy, decide your own fate." Jocelyn demanded, acting like the evil villainess she was. 
 
  With that, uncaring of her son-in-law's decision, she began to bounce, not caring about him, only caring about using him, using his body, using his thick cock in order to cum like crazy. Derek lied there, unmoving, as he felt her tight cunt smothering him, up and down, again and again. 
 
@@ -3772,7 +3886,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 04 ****** byTheTalkMan© "You want an older woman? A 40-year-old, bossy bitch? A bitch with a hot ass, long legs, huge, fleshy tits?" she asked, knowing she was close. 
+ 
+
+===
+
+"You want an older woman? A 40-year-old, bossy bitch? A bitch with a hot ass, long legs, huge, fleshy tits?" she asked, knowing she was close. 
 
  "Yeaughhh." Derek whispered. 
 
@@ -3962,7 +4080,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. This chapter and the last are essentially one story split into two parts, so keep that in mind when reading. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. This chapter and the last are essentially one story split into two parts, so keep that in mind when reading. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ************ 
 
@@ -4088,7 +4210,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© There was no pleasure finer than to feel a young man driving his thick, beefy cock into her, desperate to cum deep inside this 'old lady'. Helena had fucked the best of the best. Rich and arrogant young men that thought they could keep up with any woman, let alone this grandmother. Helena had fucked men of power, politicians... royalty... celebrities. And it was all for her benefit. To prove a point. That no man, no matter how built, how confident, could overcome the will of this gorgeous, slutty grandmother. All they were here for was to make sexy old ladies like her cum. These young men, with such bright futures, were corrupted by the hot body of a fifty-something grandmother. These young men, so spoiled by the one night they spent with her, spent night after night fucking some other slutty old MILF, trying desperately to recreate that pleasure Helena brought them, but always coming up disappointed. These men should have been fucking girls their own age, not slutty old ladies. All that creamy, potent sperm, designed for the wombs of young women, designed to make the best possible babies, was now being spilled into the tight cunts of old women, filling their sweet cunts, giving them babies instead. And those men would do whatever Helena said to possibly get another taste of her juicy body. Helena probably had more influence on world affairs than she had any right to. She was that well connected that she could do whatever she wanted to. 
+ 
+
+===
+
+There was no pleasure finer than to feel a young man driving his thick, beefy cock into her, desperate to cum deep inside this 'old lady'. Helena had fucked the best of the best. Rich and arrogant young men that thought they could keep up with any woman, let alone this grandmother. Helena had fucked men of power, politicians... royalty... celebrities. And it was all for her benefit. To prove a point. That no man, no matter how built, how confident, could overcome the will of this gorgeous, slutty grandmother. All they were here for was to make sexy old ladies like her cum. These young men, with such bright futures, were corrupted by the hot body of a fifty-something grandmother. These young men, so spoiled by the one night they spent with her, spent night after night fucking some other slutty old MILF, trying desperately to recreate that pleasure Helena brought them, but always coming up disappointed. These men should have been fucking girls their own age, not slutty old ladies. All that creamy, potent sperm, designed for the wombs of young women, designed to make the best possible babies, was now being spilled into the tight cunts of old women, filling their sweet cunts, giving them babies instead. And those men would do whatever Helena said to possibly get another taste of her juicy body. Helena probably had more influence on world affairs than she had any right to. She was that well connected that she could do whatever she wanted to. 
 
  Helena loved changing men, loved making men addicted to her and women like her. So often she would bring a young man home. Those guys would act like they weren't there to fuck this old lady. They just wanted to get to know her. They would turn on the TV, only to find a shocking sight on screen, hours of the finest MILF porn imaginable. 
 
@@ -4182,7 +4308,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© But that was nothing compared to what she was about to see. She thought she had seen filth. She thought she had seen nastiness. She thought she had seen the nastiest sex possible. 
+ 
+
+===
+
+But that was nothing compared to what she was about to see. She thought she had seen filth. She thought she had seen nastiness. She thought she had seen the nastiest sex possible. 
 
  She had not seen Helena Cline in action. 
 
@@ -4282,7 +4412,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© "Come with me, dear." Helena said, pulling Heather towards the bathroom. Helena led her in and shut the door behind them. 
+ 
+
+===
+
+"Come with me, dear." Helena said, pulling Heather towards the bathroom. Helena led her in and shut the door behind them. 
 
  "Grandma, how dare you say that in front of Derek!" Heather said angrily, still drunk but speaking clearly out of her anger. 
 
@@ -4448,7 +4582,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© Derek looked up at her in shock. It wasn't that she was wrong. It was that she was right. It was that she wasn't talking to him like his wife's grandmother would. She was talking to him like a professor would. Like a brilliant mind would talk to a student in order to motivate him. 
+ 
+
+===
+
+Derek looked up at her in shock. It wasn't that she was wrong. It was that she was right. It was that she wasn't talking to him like his wife's grandmother would. She was talking to him like a professor would. Like a brilliant mind would talk to a student in order to motivate him. 
 
  Helena watched as this understanding came over him. She knew when you lived in that bubble, that fragile glass house, you could look out and avoid the unwanted. The undesirable. The way to invade that bubble was not by brute force, but with a deft hand. You didn't break the door down and barge in. You convinced the occupant to open up and invite you inside. 
 
@@ -4570,7 +4708,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© Derek looked at Helena, stunned at her ranting. He looked at her with scrunched eyebrows. 
+ 
+
+===
+
+Derek looked at Helena, stunned at her ranting. He looked at her with scrunched eyebrows. 
 
  "Time and space have been conspiring against us. Preventing us from the true understanding we both need. I've felt it, as have you." Helena said. 
 
@@ -4656,7 +4798,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© Keeping one hand on his dick, Helena pulled him so he turned his back to Heather, and she started to walk towards the bed, pulling Derek with her. She led him by the dick, pulling him away from Heather, into a whole new world. Derek glanced down, at his grandmother-in-law's body, and the copious amount of voluptuous mature flesh she was exposing. He looked down at her firm, softly muscled back, with the lavender bra-straps digging into her smooth, shiny flesh. His eyes trailed down to her impressive, imposing ass. The round, perky cheeks standing proudly outward to Derek's lucky eyes. The teeny string of the lavender thong was being consumed by the meaty cheeks of Helena's ass. 
+ 
+
+===
+
+Keeping one hand on his dick, Helena pulled him so he turned his back to Heather, and she started to walk towards the bed, pulling Derek with her. She led him by the dick, pulling him away from Heather, into a whole new world. Derek glanced down, at his grandmother-in-law's body, and the copious amount of voluptuous mature flesh she was exposing. He looked down at her firm, softly muscled back, with the lavender bra-straps digging into her smooth, shiny flesh. His eyes trailed down to her impressive, imposing ass. The round, perky cheeks standing proudly outward to Derek's lucky eyes. The teeny string of the lavender thong was being consumed by the meaty cheeks of Helena's ass. 
 
  "Look where following the rules have gotten you. A nervous, stammering boy. But, after tonight... I'll make a man out of you." Helena said as they reached the bed. Helena held his dick and forced them both to spin until his back was to the bed. Helena deftly shoved him back, forcing him to sit on the end of the bed. 
 
@@ -4758,7 +4904,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© Kaitlyn was from a small town, and she had always been the town looker back home. Her striking looks and big tits made her the envy of all the other girls in town. But now, she was in the big city. And she was beginning to realize there was a whole, wide, world out there, and there were women out there that somehow had body's hotter than hers. And as much as she hated to admit it, this old lady's body had hers beat by a mile. 
+ 
+
+===
+
+Kaitlyn was from a small town, and she had always been the town looker back home. Her striking looks and big tits made her the envy of all the other girls in town. But now, she was in the big city. And she was beginning to realize there was a whole, wide, world out there, and there were women out there that somehow had body's hotter than hers. And as much as she hated to admit it, this old lady's body had hers beat by a mile. 
 
  Kaitlyn couldn't take her eyes off of Helena. Helena's tits were so big! Kaitlyn has some big DD's, but Helena had some fucking blimps on her chest. Kaitlyn had never seen such big breasts, and she couldn't approximate their size. And they were so perky and firm. How could this old lady be so stacked? Even this old lady's ass was somehow hotter, rounder and fuller than hers. Kaitlyn had always been proud of her top-shelf rear-end. But this fucking grandmother, the grandmother of the bride, had an ass that was far hotter, sexier, and more impressive than hers. Even her mature cunt looked tight, taut, and youthful. Even the tiny strip of silver cunt hair worked for her, somehow making her look even sexier. And Kaitlyn had put the hotel's gym to good use, staying fit and firm. But this mature slut over double her age had a body more taut and fit than hers. Kaitlyn had been the homecoming queen, but she knew that if Helena had somehow wandered in during the ceremony, even at her older age they would have given her the crown instead. 
 
@@ -4848,7 +4998,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© "Ahhhh, that's it!" Helena called out with a pleasured laugh. 
+ 
+
+===
+
+"Ahhhh, that's it!" Helena called out with a pleasured laugh. 
 
  Derek felt her juices coat his tongue. He pulled his tongue back and savored the taste. Once he savored it and tasted it's flavor, his mouth began to drool. She tasted so good! Her juices were like honey, sweet and flavorful, an ambrosia-like nectar. With no more hesitance, Derek's tongue dove in and dug deep into his wife's grandmother's sweet pussy. 
 
@@ -4970,7 +5124,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© "No, Helena, it's... uh... I just... I just can't think straight." Derek pleaded. The gravity of the situation was now hitting him. The reality of what he was doing. Like having his face splashed with water, he suddenly saw where he was and what he was doing with clarity. He was balls deep in his wife's grandmother. His wife's grandmother! He was about to start fucking with his wife's grandmother. This was so wrong. So fucked up. He felt lower than dirt. Like a sick, twisted freak. The scum of the Earth. He had to escape. He had to get out. He felt ill. 
+ 
+
+===
+
+"No, Helena, it's... uh... I just... I just can't think straight." Derek pleaded. The gravity of the situation was now hitting him. The reality of what he was doing. Like having his face splashed with water, he suddenly saw where he was and what he was doing with clarity. He was balls deep in his wife's grandmother. His wife's grandmother! He was about to start fucking with his wife's grandmother. This was so wrong. So fucked up. He felt lower than dirt. Like a sick, twisted freak. The scum of the Earth. He had to escape. He had to get out. He felt ill. 
 
  He had been playing with fire. He had been toying with the serpent. Letting it coil around him. Letting him think it was all good, that everything was just fun and games. But now the serpent had attacked, and he realized how foolish he had been. How foolish he had been to even toy with a predator, who's only instinct was to attack. 
 
@@ -5052,7 +5210,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© Derek was overwhelmed. Overwhelmed by the situation. Overwhelmed by Helena's body. Overwhelmed by the sensations she was bringing him. He was amazed that he hadn't burst yet. Her earlier ministrations to his cock had taken him to the edge. He thought he would explode as soon as he was balls deep. But, even though her pussy was absolutely incredible, he wasn't turning the corner. Sure, her cunt was stretched to the brim as it tried to contain his massive dick, and that tightness surrounding his dick was an incredible feeling. But, he was somehow holding himself on edge, letting the pleasure fill him to the brim. Derek realized he had more stamina than he thought. 
+ 
+
+===
+
+Derek was overwhelmed. Overwhelmed by the situation. Overwhelmed by Helena's body. Overwhelmed by the sensations she was bringing him. He was amazed that he hadn't burst yet. Her earlier ministrations to his cock had taken him to the edge. He thought he would explode as soon as he was balls deep. But, even though her pussy was absolutely incredible, he wasn't turning the corner. Sure, her cunt was stretched to the brim as it tried to contain his massive dick, and that tightness surrounding his dick was an incredible feeling. But, he was somehow holding himself on edge, letting the pleasure fill him to the brim. Derek realized he had more stamina than he thought. 
 
  "Heather doesn't give you this, does she? She doesn't ride your dick like this? She lies back, closes her eyes, and lets you do your thing. AHHH FUCK! She doesn't realize how badly you need to be dominated. How you need your woman to take control." Helena said. 
 
@@ -5196,7 +5358,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 05 ****** byTheTalkMan© "Don't fight it Derek! DON'T FUCKING FIGHT IT! FUCK YES!" Helena roared as her never-relenting ass drove Derek into the bed. 
+ 
+
+===
+
+"Don't fight it Derek! DON'T FUCKING FIGHT IT! FUCK YES!" Helena roared as her never-relenting ass drove Derek into the bed. 
 
  "No... ugh... nughhh!" Derek grunted, nearly incoherent. 
 
@@ -5398,7 +5564,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. This series of stories feature some light sci-fi elements, but for the most part, they are in the background. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. And finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ************ 
 
@@ -5562,7 +5732,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© "I mean, I do it all in bed. It all!" Jackie began. 
+ 
+
+===
+
+"I mean, I do it all in bed. It all!" Jackie began. 
 
  "So do I, dear." Jocelyn replied. 
 
@@ -5684,7 +5858,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© "Holy fuck!" Derek groaned out. Just feeling the entirety of his dick smothered in his wife's grandmother's tight asshole was nearly indescribable. It was just tightness surrounding his cock, smothering it in pleasure. 
+ 
+
+===
+
+"Holy fuck!" Derek groaned out. Just feeling the entirety of his dick smothered in his wife's grandmother's tight asshole was nearly indescribable. It was just tightness surrounding his cock, smothering it in pleasure. 
 
  "Remember this Derek. REMEMBER THIS!" Helena moaned out. "Remember how my ass feels! Compare this to your wife. Does she do this to you? Has she ever made you feel this good! Admit it, Derek. C'mon, Derek, admit it. Admit how good my ass feels. Admit my asshole makes you feel better than Heather ever did. Admit you love your wife's grandmother's asshole more than your wife!" 
 
@@ -5940,7 +6118,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© "Right place. Right time." she muttered. 
+ 
+
+===
+
+"Right place. Right time." she muttered. 
 
  "What was that?" Jocelyn asked, puffing at her cigarette. 
 
@@ -6176,7 +6358,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© And Derek, he was just holding on for the ride. His hands were squeezing her sweaty breasts avidly, manipulating the firm flesh. 
+ 
+
+===
+
+And Derek, he was just holding on for the ride. His hands were squeezing her sweaty breasts avidly, manipulating the firm flesh. 
 
  Helena's head turned to note her audience. 
 
@@ -6458,7 +6644,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© This tableau of sex was frozen like a painting. Frozen in all of their minds. Then, the world went black. 
+ 
+
+===
+
+This tableau of sex was frozen like a painting. Frozen in all of their minds. Then, the world went black. 
 
  Derek's mind, his consciousness left his body. His body was frozen in pleasure, but his mind was not. It felt like he was cascading downward, through different layers of time. Derek did not feel bound by the rules of time anymore. He could see everything, and he could come and go as he pleased. Frozen to the spot, frozen while ejaculating into his wife's grandmother, he saw how this scene played out. 
 
@@ -6644,7 +6834,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© Audrey kept a tight leash on him, vetting each and every woman he spent time with. He was a major investment, and she made sure he paid off. And he did. Derek's dick had provided her a small fortune, and Audrey's social status grew higher and higher. But as her social status grew, as her level of power increased, her tight leash on Derek loosened. 
+ 
+
+===
+
+Audrey kept a tight leash on him, vetting each and every woman he spent time with. He was a major investment, and she made sure he paid off. And he did. Derek's dick had provided her a small fortune, and Audrey's social status grew higher and higher. But as her social status grew, as her level of power increased, her tight leash on Derek loosened. 
 
  And as her grip on Derek lessened, Audrey made her first mistake. Derek found himself walking up the steps of a mansion, ready to get to work, only to realize the woman who had paid such a hefty sum for his services was his ex- wife's grandmother. He was shocked to find how little anger she felt towards him for cheating on Heather. In fact, she greeted him very... warmly, champagne bottle in hand. Audrey's favorite champagne, ironically. 
 
@@ -6854,7 +7048,11 @@
 
  
 
- ****** The Cline's Conquer Time Ch. 06 ****** byTheTalkMan© Why was she getting these weird vibes from her grandmother? She had done nothing wrong. Heather couldn't figure out what was up. But Helena, she would know. Helena was the most knowledgeable, worldly person she knew. She was sure her grandmother understood dreams and what they meant. She was sure she would have better understanding of déjà vu and what caused it. She was sure Helena had an explanation. Maybe she could bring all this to the surface. 
+ 
+
+===
+
+Why was she getting these weird vibes from her grandmother? She had done nothing wrong. Heather couldn't figure out what was up. But Helena, she would know. Helena was the most knowledgeable, worldly person she knew. She was sure her grandmother understood dreams and what they meant. She was sure she would have better understanding of déjà vu and what caused it. She was sure Helena had an explanation. Maybe she could bring all this to the surface. 
 
  It would seem Derek and Helena's journey to conquer time had an unintended consequence. In their journey to conquer time, in the act of helping each other conquer time, they had dragged someone else with them. Someone less intelligent, someone who couldn't understand what she was seeing. Or more specifically, Helena's mighty ass, used as a weapon to subdue her granddaughter and fuck her granddaughter's husband, that ass is what dragged Heather through the layers of time. Heather's face first experience with her grandmother's ass- crack had shattered her world and bound her to the enlightened couple trough their journey, bound submissively by the power of her grandmother's ass. Helena's ass made Heather a hanger-on, a toy in a bigger game. Going face first into her grandmother's rear end had transformed Helena and Derek into conquerors, and like it or not, Heater was along for the ride. 
 

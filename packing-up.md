@@ -1,8 +1,14 @@
+Packing Up
+==========
 #1 
 
  
 
- ****** Packing Up ****** bygeronimo_appleby© A short incest piece this time. It seems his friend's mother has designs on Alan. he makes a move and then her son walks in. 
+ 
+
+===
+
+A short incest piece this time. It seems his friend's mother has designs on Alan. he makes a move and then her son walks in. 
 
  I hope you enjoy the piece; even as short as it is. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Packing Up ****** bygeronimo_appleby© But, somehow, my ejaculate was stilled. I must have been right on the cusp of letting it go, the explosion imminent, but some physiological quirk prevented the gush. 
+ 
+
+===
+
+But, somehow, my ejaculate was stilled. I must have been right on the cusp of letting it go, the explosion imminent, but some physiological quirk prevented the gush. 
 
  Mrs Lloyd had stepped away from me and moved to her bedroom door. "Come on," she said before she disappeared from view. "Come to mummy's room." Her eyebrows lifted and she pointed at my cock. "And bring that with you. I want it in my pussy." 
 

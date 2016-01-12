@@ -1,8 +1,14 @@
+Mistletoe, Candy Canes, and a Lesbian
+=====================================
 #1 
 
  
 
- ****** Mistletoe, Candy Canes, and a Lesbian ****** bysilkstockingslover© Mistletoe, Candy Canes &amp; a Lesbian 
+ 
+
+===
+
+Mistletoe, Candy Canes &amp; a Lesbian 
 
  Summary: Frigid MILF turned by one of her husband's young employees. 
 
@@ -388,7 +394,11 @@
 
  
 
- ****** Mistletoe, Candy Canes, and a Lesbian ****** bysilkstockingslover© She just nodded as I walked away, smiling wide at the thought of another seduction ready for completion. 
+ 
+
+===
+
+She just nodded as I walked away, smiling wide at the thought of another seduction ready for completion. 
 
  I watched her get up, wobble a bit, a mixture of being tipsy and weak from my touch, before she headed up the stairway. She avoided eye contact with others and slyly made her way up the stairs and down a hallway and assumedly to the room in which we were to rendezvous in a few minutes. 
 

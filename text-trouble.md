@@ -1,8 +1,14 @@
+Text Trouble
+============
 #1 
 
  
 
- ****** Text Trouble ****** bygeronimo_appleby© It was a chance comment that started me thinking, just one of those random statements during a conversation that can trigger a thought process where one thought leads to another, then another and so on. 
+ 
+
+===
+
+It was a chance comment that started me thinking, just one of those random statements during a conversation that can trigger a thought process where one thought leads to another, then another and so on. 
 
  I'd just mentioned to a colleague that my twenty-fifth wedding anniversary was coming up, Silver anniversary as it goes, and in all those years I'd never strayed from the path of marital fidelity. 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Text Trouble ****** bygeronimo_appleby© 'Why not?' she thought. 'Why not just throw caution to the wind? Ok, maybe not a full on three-way, not tonight, but just having this handsome thirty- something take her to bed, have a different cock in her hand, her mouth and yes, inside her kitty. Why not? 
+ 
+
+===
+
+'Why not?' she thought. 'Why not just throw caution to the wind? Ok, maybe not a full on three-way, not tonight, but just having this handsome thirty- something take her to bed, have a different cock in her hand, her mouth and yes, inside her kitty. Why not? 
 
  Suddenly Abigail's desire burst hotly between her thighs and she squirmed in her seat. Her clitty began to pulse and she felt her nipples throb in sympathy. 
 
@@ -442,7 +452,11 @@
 
  
 
- ****** Text Trouble ****** bygeronimo_appleby© That was like a physical slap in the face for me. Slept with him? She'd fucked him? My world spun and I felt nauseous. 
+ 
+
+===
+
+That was like a physical slap in the face for me. Slept with him? She'd fucked him? My world spun and I felt nauseous. 
 
  'You slept with him?' A gasp from me. 
 

@@ -1,8 +1,14 @@
+The Personal Assistant
+======================
 #1 
 
  
 
- ****** The Personal Assistant ****** byJust_Plain_Bob© As I touched up my makeup in the ladies room I thought about what was likely to happen when I went back to the table. No, that wasn't true - I knew what was going to happen - what I wondered about were the likely outcomes from what was going to happen. It wasn't every day that my boss asked me to "take care" of a large group of people and I had to wonder why he thought that I would go along with it. Granted that I was letting him bed me even though I was a married woman, but that didn't make me a slut. Or did it? I guess that would be a matter of perspective. I didn't think of myself as a slut, but it was a good bet that my husband would - if he knew. I would just have to make sure that he never did. 
+ 
+
+===
+
+As I touched up my makeup in the ladies room I thought about what was likely to happen when I went back to the table. No, that wasn't true - I knew what was going to happen - what I wondered about were the likely outcomes from what was going to happen. It wasn't every day that my boss asked me to "take care" of a large group of people and I had to wonder why he thought that I would go along with it. Granted that I was letting him bed me even though I was a married woman, but that didn't make me a slut. Or did it? I guess that would be a matter of perspective. I didn't think of myself as a slut, but it was a good bet that my husband would - if he knew. I would just have to make sure that he never did. 
 
  +++++++++++++++++++++++++++++++++++++ 
 

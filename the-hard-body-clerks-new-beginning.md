@@ -1,8 +1,14 @@
+The Hard Body Clerk's New Beginning Ch. 01
+==========================================
 #1 
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 01 ****** bydlsloan© CHAPTER ONE: HEADING WEST ... WITH A HITCH 
+ 
+
+===
+
+CHAPTER ONE: HEADING WEST ... WITH A HITCH 
 
  Cori Banks looked out the window of the jet, watching her past life in little Darien, Georgia, and her job at the Hard Body Shop slip away. She hoped to get back someday soon. She loved her co-workers, Ben, John and Ty, with whom she had developed a unique working relationship. She had worn sexy clothes for them and fucked them all on a regular basis. Other than the sex, they treated her like a family member -- always caring for her, protecting her, making her feel special. They were like family and she missed them already. 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 01 ****** bydlsloan© "Thanks," Jake said. "My turn." He quickly guided the car to the side of the road and hopped out. He and Roy switched places and a minute later, they were back on the road, Roy behind the while and Cori once again mounted on top of a cock. Jake's was a little larger, almost as thick but nearly two inches longer. He was strong and showed it off by lifting Cori until only the head of his cock was inside her, then spinning her halfway around so she faced him. 
+ 
+
+===
+
+"Thanks," Jake said. "My turn." He quickly guided the car to the side of the road and hopped out. He and Roy switched places and a minute later, they were back on the road, Roy behind the while and Cori once again mounted on top of a cock. Jake's was a little larger, almost as thick but nearly two inches longer. He was strong and showed it off by lifting Cori until only the head of his cock was inside her, then spinning her halfway around so she faced him. 
 
  "Spin cycle!" Roy laughed. "Spin that bitch like a top. Make that pussy dance for you." 
 
@@ -338,7 +348,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 01 ****** bydlsloan© "Your uncle will fly me for free?" 
+ 
+
+===
+
+"Your uncle will fly me for free?" 
 
  "I didn't say that. But I think he'd probably wave the charges for the same kind of deal." 
 
@@ -418,7 +432,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 02 ****** bydlsloan© CHAPTER TWO: LENDING A HAND 
+ 
+
+===
+
+CHAPTER TWO: LENDING A HAND 
 
  Cori left the jet and carried her bags through the airport. She hadn't told anyone she was coming, so no one was there to pick her up. She went to the front of the airport and, not surprisingly, had no trouble hailing a cab. 
 
@@ -592,7 +610,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 02 ****** bydlsloan© She finished cutting his hair and quickly cleaned up the mess. "Would you like a bath or shower before you go to bed?" Cori asked. 
+ 
+
+===
+
+She finished cutting his hair and quickly cleaned up the mess. "Would you like a bath or shower before you go to bed?" Cori asked. 
 
  "Yeah, I think a bath would feel good," Norm said. "Are you sure you don't mind?" 
 
@@ -696,7 +718,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 03 ****** bydlsloan© Chapter Three: California Creamin' 
+ 
+
+===
+
+Chapter Three: California Creamin' 
 
  Norm woke up with his step-daughter knocking on the door and entering his room. He had another hard-on and thought Cori might offer to take care of it for him again, but she pretended not to notice. 
 
@@ -850,7 +876,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 03 ****** bydlsloan© His full hand worked inside her until her pussy snapped shut around his wrist. What an amazing feeling! Her cunt had kidnapped his hand and wasn't going to give it back until it was done using it. So he kept pushing and poking and fist-fucking her, giving it to her harder and deeper as her moans grew louder and louder. 
+ 
+
+===
+
+His full hand worked inside her until her pussy snapped shut around his wrist. What an amazing feeling! Her cunt had kidnapped his hand and wasn't going to give it back until it was done using it. So he kept pushing and poking and fist-fucking her, giving it to her harder and deeper as her moans grew louder and louder. 
 
  Cori couldn't believe this was happening. How could she let this happen? How could she be getting off on this? Was she really that horny? I guess when you fuck and cum several times a day, she thought, this is the result. She didn't know the reason and didn't care. She needed this. She needed to cum. She needed his fingers, his hand, hell -- his whole fucking arm -- to fill her up and get her off. She didn't care about the taboo relationship or what he might think of her. She just wanted to cream. And she did. Again and again. And Again. It was a triple climax as powerful as Cori could remember. Certainly she had been fucked better many times, but for whatever reason, she had one of the best orgasms she ever had. 
 
@@ -960,7 +990,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 03 ****** bydlsloan© After a few minutes in the store, Cori's headlights dimmed slightly. They were still quite noticeable, but Norm wanted them to really stand out. He ushered her to the frozen foods and said. "I think I'd like some ice cream." Cori opened the freezer door to get some, but each time she'd reach for a flavor, he'd stop her and tell her to reach for a different kind. He had her bending over to reach ones on the bottom, then standing on her tiptoes for the ones on top. Every move displayed her body in a different way, showcasing her ass or her legs. A crowd of about half a dozen men were now circling around the area, pretending to be shopping while stealing glances at the perky 22-year-old blonde being shown off by the 62-year-old man in the wheelchair. 
+ 
+
+===
+
+After a few minutes in the store, Cori's headlights dimmed slightly. They were still quite noticeable, but Norm wanted them to really stand out. He ushered her to the frozen foods and said. "I think I'd like some ice cream." Cori opened the freezer door to get some, but each time she'd reach for a flavor, he'd stop her and tell her to reach for a different kind. He had her bending over to reach ones on the bottom, then standing on her tiptoes for the ones on top. Every move displayed her body in a different way, showcasing her ass or her legs. A crowd of about half a dozen men were now circling around the area, pretending to be shopping while stealing glances at the perky 22-year-old blonde being shown off by the 62-year-old man in the wheelchair. 
 
  Norm noticed the crowd and, as Cori would turn away to reach for something else, he'd turn to them and smile, pointing at her bare ass or motioning toward her impressive rack. He was letting them know he was doing this on purpose. A couple of the guys started discreetly snapping pictures or shooting video with their cell phone cameras. 
 
@@ -1020,7 +1054,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 04 ****** bydlsloan© CHAPTER FOUR: HERE KITTY, KITTY 
+ 
+
+===
+
+CHAPTER FOUR: HERE KITTY, KITTY 
 
  After dinner that night, Cori again helped Norm with a bath. When she was kneeling down next to him, he acted like he slipped a bit in the tub, resulting in a splash that soaked the front of her sweater and made it nearly transparent. It also made it that much heavier and tighter and it began sliding down over her breasts inch by inch until the top band was resting atop her nipples, which held it up like two nails supporting a wall-hanging. Norm wanted to lean over and chew a hole through that sweater and then gnaw on her tits, but he resisted. 
 
@@ -1174,7 +1212,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 04 ****** bydlsloan© Norm told her to take the balls out of her mouth and asked her, "Do you want to cum?" 
+ 
+
+===
+
+Norm told her to take the balls out of her mouth and asked her, "Do you want to cum?" 
 
  "Oh, yes," Cori said. 
 
@@ -1234,7 +1276,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 05 ****** bydlsloan© CHAPTER FIVE: BREAKFAST TACO 
+ 
+
+===
+
+CHAPTER FIVE: BREAKFAST TACO 
 
  Norm slept well himself and woke up the next morning the way every man should be allowed to start his day -- with a naked, hard-bodied babe curled up next to him. Norm studied her perfect body in the pale morning light, reminding himself that all that good stuff -- those tits, that pussy, that ass, those legs -- was his for the taking now. It was hard to believe. He imagined he understood how lottery winners felt now. One day, you're struggling to make ends meet, working two jobs and the next you don't have a financial worry. It had to be hard to remember that money was no longer an object. 
 
@@ -1344,7 +1390,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 06 ****** bydlsloan© CHAPTER SIX: THREE-RING CIRCUS 
+ 
+
+===
+
+CHAPTER SIX: THREE-RING CIRCUS 
 
  By early afternoon, Cori had completed the household chores Norm needed done. She had vacuumed, dusted, washed dishes, done two loads of laundry and cleaned the bathrooms. She refused to let Norm help, despite his offers to lend a hand. Of course, where he wanted to lend a hand most was on her body, because she was doing all this work in a very enticing outfit that he had selected for her. 
 
@@ -1496,7 +1546,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 06 ****** bydlsloan© Cori hugged Norm around his neck, her breasts pressed against his cheek as he pushed the surprisingly powerful wheelchair to top speed. It certainly wasn't fast, but once they found an opening, they were able to maintain some space between them and the throng by swerving back and forth. Norm had already showed that he would run into them and, while a truly determined attacker certainly could have stopped them or simply yanked Cori out of his lap, it was enough of a deterrent to keep them at bay. Since they were out in the open now instead of concealed by a crowd, any attacker would be visible to everyone. 
+ 
+
+===
+
+Cori hugged Norm around his neck, her breasts pressed against his cheek as he pushed the surprisingly powerful wheelchair to top speed. It certainly wasn't fast, but once they found an opening, they were able to maintain some space between them and the throng by swerving back and forth. Norm had already showed that he would run into them and, while a truly determined attacker certainly could have stopped them or simply yanked Cori out of his lap, it was enough of a deterrent to keep them at bay. Since they were out in the open now instead of concealed by a crowd, any attacker would be visible to everyone. 
 
  Cori squirmed in Norm's lap to look back and keep an eye out behind them. She felt his erection poking against her ass cheek, but paid little attention. She was focused on getting out of there, which they did. They hit the doors as someone, unaware of the situation, was coming in and politely held the door open for them. Soon they were motoring back out into the parking lot. 
 
@@ -1676,7 +1730,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 06 ****** bydlsloan© "Wow, you came up with that list pretty fast," Norm said. "All right, it's a deal." 
+ 
+
+===
+
+"Wow, you came up with that list pretty fast," Norm said. "All right, it's a deal." 
 
  Ricky said he had a camera in the back and went to get it. 
 
@@ -1798,7 +1856,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 07 ****** bydlsloan© CHAPTER SEVEN: ALL HANDS ON DECK 
+ 
+
+===
+
+CHAPTER SEVEN: ALL HANDS ON DECK 
 
  Neither Cori nor Norm talked much about the rings or the sexy pictures that night. On the way home, Norm had simply said, "That was fun" and "You were fantastic" and those words of praise were enough for Cori. She was pleased he had controlled the situation in the tattoo parlor throughout, had saved her at the mall and, even though he hadn't asked her approval of certain acts, at least hadn't let things get out of hand – at least not by her standards. Handjobs and public displays had been part of Cori's daily life for a long time now. 
 
@@ -1930,7 +1992,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 07 ****** bydlsloan© "Yeah, getting better every day," Norm smiled. "Cori's really helping me." 
+ 
+
+===
+
+"Yeah, getting better every day," Norm smiled. "Cori's really helping me." 
 
  "So, where is she?" Crisp said, ready to get down to business. "She better be as hot as you said or you'll be paying. I'll give you a discount, but free means more than good-looking or cute. She better be fucking hot. I'm talking model pretty with a world-class body." 
 
@@ -2092,7 +2158,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 07 ****** bydlsloan© Waters knelt behind her and licked up and down her slit with his long tongue. When he didn't come up for air for about a minute, everyone knew what his review would be. "As good as I've ever tasted," he confirmed, licking his lips. "She's as sweet as she is juicy." 
+ 
+
+===
+
+Waters knelt behind her and licked up and down her slit with his long tongue. When he didn't come up for air for about a minute, everyone knew what his review would be. "As good as I've ever tasted," he confirmed, licking his lips. "She's as sweet as she is juicy." 
 
  "Well, all I know is her ass is baked," Crisp said, "and I want to squeeze out another wad. So let's flip her over and play with those tits for a while." 
 
@@ -2256,11 +2326,19 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 07 ****** bydlsloan© She got out of the pool and Norm ushered her inside. "Now that you're not disgusting," he said, "take a shower and really clean up. I'll pick out a good outfit for you to entertain our guests in."  
+ 
+
+===
+
+She got out of the pool and Norm ushered her inside. "Now that you're not disgusting," he said, "take a shower and really clean up. I'll pick out a good outfit for you to entertain our guests in."  
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 08 ****** bydlsloan© Author's Note: Many thanks to mamachucha for his insights and suggestions. I appreciate any feedback, criticism or story ideas. If you would like to propose new ideas please contact me. 
+ 
+
+===
+
+Author's Note: Many thanks to mamachucha for his insights and suggestions. I appreciate any feedback, criticism or story ideas. If you would like to propose new ideas please contact me. 
 
  CHAPTER EIGHT: DIRTY DANCING 
 
@@ -2388,7 +2466,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 08 ****** bydlsloan© Next, Crisp used Cori's g-string to tie her wrists behind her back. Now, her head and tits were hanging over one end of the platform that supported her mid- section. Then, six inches higher up, her ass and pussy were elevated and spread across the pillar while her legs hung straight over the sides, the stilettos several inches from the deck surface. The baby oil on her dark skin glistened in the night sky and her body trembled with anticipation. 
+ 
+
+===
+
+Next, Crisp used Cori's g-string to tie her wrists behind her back. Now, her head and tits were hanging over one end of the platform that supported her mid- section. Then, six inches higher up, her ass and pussy were elevated and spread across the pillar while her legs hung straight over the sides, the stilettos several inches from the deck surface. The baby oil on her dark skin glistened in the night sky and her body trembled with anticipation. 
 
  "Get comfortable," Crisp said, "because you're probably going to be in that position for the next hour. Start the clock, Norm." 
 
@@ -2550,7 +2632,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 08 ****** bydlsloan© "Faster fellas," he said when he finally came up for air. 
+ 
+
+===
+
+"Faster fellas," he said when he finally came up for air. 
 
  "Time to pound that twat, huh?" Cruz laughed. He and Cho worked in unison, doubling their pace, slamming Cori down hard on Norm's cock, then picking her up until she was nearly off it. Water splashed all around and Cori's tits bounced enthusiastically in Norm's face. Norm felt his cum rising and knew he was ready to blast off. 
 
@@ -2566,7 +2652,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 09 ****** bydlsloan© CHAPTER NINE: ESCAPE PLAN 
+ 
+
+===
+
+CHAPTER NINE: ESCAPE PLAN 
 
  Cori woke up the next morning in exactly the same position she had fallen asleep in -- laying nude, sprawled across Norm's naked body. But there was one difference, now she had Norm's cock in her pussy. The old man had woken up to the best view imaginable -- a gorgeous 22-year-old blonde laying naked on top of him with her pierced nipples poking into him and her warm thighs pressed against his crotch. 
 
@@ -2680,7 +2770,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 09 ****** bydlsloan© She had an idea, but pulling it off in two weeks would be tough. 
+ 
+
+===
+
+She had an idea, but pulling it off in two weeks would be tough. 
 
  "All right," she said, taking a deep breath, "how about this. We know what will draw men in and San Diego is full of beautiful women. We need to find about 10. Even though they'll get big tips, you'll need to pay them and give them a clothing allowance. You'll need to offer benefits. You have to make it worth their while to tease and please your customers. If you get the right girls, they'll do a good job and you'll make more than enough to cover your increased overhead. You'll need to hire security because there will be guys who want to go too far. And we're going to need some new menus and to make a few changes in here." 
 
@@ -2764,7 +2858,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 10 ****** bydlsloan© CHAPTER 10: THE PLAN IN ACTION 
+ 
+
+===
+
+CHAPTER 10: THE PLAN IN ACTION 
 
  She ate breakfast before Norm was even up, leaving a plate for him. As she ate, she mulled over what type of girls she needed to find. Aside from the obvious - - young and beautiful -- they also needed to be energetic, willing to work hard, creative and fun-loving. They had to be strong-willed enough to give and take with some horny, hard-working, hard-living men, yet diplomatic enough to not overreact when they went too far. It wasn't going to be easy. She thought about strippers, but the ones who enjoyed that were making more than she could offer and the ones who didn't probably would be too jaded about men to have the right attitude for this job. 
 
@@ -2914,7 +3012,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 10 ****** bydlsloan© "Would you believe she can cum just by giving a blowjob?" 
+ 
+
+===
+
+"Would you believe she can cum just by giving a blowjob?" 
 
  "Fuck no." 
 
@@ -3086,7 +3188,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Ch. 10 ****** bydlsloan© About 15 minutes later, the show continued with Cori on her hands and knees on the living room carpet and Tony giving her ass a major reaming. Remembering his promise to Bud, the doorman and stuffed her thong inside her pussy and left them there until it was thoroughly soaked with pussy juice. They capped off the evening an hour later with a sensual cowgirl ride in the bed and Tony woke up the next morning with his cock in between Cori's soft lips as her tongue playfully lapped at his head. 
+ 
+
+===
+
+About 15 minutes later, the show continued with Cori on her hands and knees on the living room carpet and Tony giving her ass a major reaming. Remembering his promise to Bud, the doorman and stuffed her thong inside her pussy and left them there until it was thoroughly soaked with pussy juice. They capped off the evening an hour later with a sensual cowgirl ride in the bed and Tony woke up the next morning with his cock in between Cori's soft lips as her tongue playfully lapped at his head. 
 
  After they showered, Cori put her dress back on, minus the thong. She started to tuck it inside her purse, but Tony stopped her. 
 
@@ -3108,7 +3214,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Finale ****** bydlsloan© CHAPTER 11: SLUTS IN TRAINING 
+ 
+
+===
+
+CHAPTER 11: SLUTS IN TRAINING 
 
  On Saturday evening, Cori went to the truck stop to meet with and train the girls she had recruited. Norm and Chuck were there as well, along with 24 of the girls Cori had invited. While Cori hadn't requested the girls wear anything specific, she was impressed to see that most had bought into the general concept she had laid out for them by dressing in some fairly provocative attire. As she scanned the room, she saw lots of cleavage, skirts, shorts and heels. She glanced at Norm and Chuck, who clearly were enjoying having a restaurant filled with young, pretty co-eds. The girls were enjoying a buffet spread as fulfillment of Cori's promise for a free meal. 
 
@@ -3256,7 +3366,11 @@
 
  
 
- ****** The Hard Body Clerk's New Beginning Finale ****** bydlsloan© "Really?" Amber said. 
+ 
+
+===
+
+"Really?" Amber said. 
 
  "Absolutely," Cori said. "Same goes for the rest of you. Don't look at the prices, look at how it makes you look." 
 

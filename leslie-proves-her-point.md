@@ -1,8 +1,14 @@
+Leslie Proves Her Point
+=======================
 #1 
 
  
 
- ****** Leslie Proves Her Point ****** byJust_Plain_Bob© I should have known better than to get into an argument with my wife. Past experience has shown that she will go to extremes to win, even if she ends up biting off her nose to spite her face, and that's just what happened here. 
+ 
+
+===
+
+I should have known better than to get into an argument with my wife. Past experience has shown that she will go to extremes to win, even if she ends up biting off her nose to spite her face, and that's just what happened here. 
 
  Leslie is an outspoken woman and she has an opinion on everything under the sun. Those opinions are strong and forceful and for the sake of peace and harmony I've learned to keep my mouth shut since I have never been able to change her mind on anything. The latest brouhaha came about at a cocktail party that her company was throwing for its customers. We were at a table in the center of the room and I noticed a tall, good looking black man circulating through the crowd and greeting people. I also noticed that while he had visited every table around us he had not even glanced our way. I asked Leslie who he was and she told me that his name was Tony and he was the head of accounting. When I mentioned that he seemed to be avoiding our table she said, "That's not surprising. He knows that I don't care for him." 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Leslie Proves Her Point Ch. 02 ****** byJust_Plain_Bob© Leslie was very wet and I was certain that it was someone else's cum and not, as she tried to tell me, her own juices. The one thing I did know for sure is whatever had happened at the party that night, it had turned Leslie into a sex maniac. Our sex life was usually limited to three or four times a week and then usually only one time, but that night she would not leave me alone. As soon as we got into the bedroom she pulled me to the bed and we did it with our clothes still on. When I came we undressed and she sucked me hard again, pushed me back on the bed and mounted me. I came the second time and she went to work on me again. The more she fucked me, the more I had to know what had happened to her at the party, and the only way I was going to find that out was call the number that Sylvia had given me. I made up my mind to do it the first thing next morning. 
+ 
+
+===
+
+Leslie was very wet and I was certain that it was someone else's cum and not, as she tried to tell me, her own juices. The one thing I did know for sure is whatever had happened at the party that night, it had turned Leslie into a sex maniac. Our sex life was usually limited to three or four times a week and then usually only one time, but that night she would not leave me alone. As soon as we got into the bedroom she pulled me to the bed and we did it with our clothes still on. When I came we undressed and she sucked me hard again, pushed me back on the bed and mounted me. I came the second time and she went to work on me again. The more she fucked me, the more I had to know what had happened to her at the party, and the only way I was going to find that out was call the number that Sylvia had given me. I made up my mind to do it the first thing next morning. 
 
  The next day I called Sylvia and asked her to lunch. She laughed, "Curiosity killing you?" and I admitted that it was. "Okay baby, but it's going to cost you more than lunch." 
 
@@ -296,7 +306,11 @@
 
  
 
- ****** Leslie Proves Her Point Ch. 03 ****** byJust_Plain_Bob© I was home in front of the TV when Leslie came home. I looked at my watch and saw that it was almost eight-thirty. She was all smiles and I said, "You obviously had more than a couple of drinks. What did he do? Ply you with drinks and then have his way with you?" 
+ 
+
+===
+
+I was home in front of the TV when Leslie came home. I looked at my watch and saw that it was almost eight-thirty. She was all smiles and I said, "You obviously had more than a couple of drinks. What did he do? Ply you with drinks and then have his way with you?" 
 
  She laughed and said, "No silly. A couple of other people that we knew joined us and we got to talking and lost track of time. Tony was very nice and I think I can learn to like him. I still think he is a little too arrogant, but so what? I have a surprise for you." 
 
@@ -388,7 +402,11 @@
 
  
 
- ****** Leslie Proves Her Point Ch. 04 ****** byJust_Plain_Bob© I spent a good five minutes eating Leslie's pussy. It was the first time I'd tasted cum other than mine and to be honest about it I couldn't tell the difference. I brought Leslie to two orgasms before I raised myself up to slide my cock in her, "What do you want?" I asked, "Should I make love to you, or fuck you?" 
+ 
+
+===
+
+I spent a good five minutes eating Leslie's pussy. It was the first time I'd tasted cum other than mine and to be honest about it I couldn't tell the difference. I brought Leslie to two orgasms before I raised myself up to slide my cock in her, "What do you want?" I asked, "Should I make love to you, or fuck you?" 
 
  She looked me right in the eye and said, "Make love to me baby, I've already been fucked tonight." 
 

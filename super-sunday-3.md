@@ -1,8 +1,14 @@
+Super Sunday
+============
 #1 
 
  
 
- ****** Super Sunday ****** bysilkstockingslover© Summary: Two frustrated and ignored wives create their own Super Bowl Sunday. 
+ 
+
+===
+
+Summary: Two frustrated and ignored wives create their own Super Bowl Sunday. 
 
  NOTE: This story is dedicated to Loretta and Diane to good friends who have since this story was written become MORE than good friends. 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** Super Sunday ****** bysilkstockingslover© I couldn't believe it but the mixture of being fingered in my virgin ass, having my clit spanked and being called a slut were three sensations I'd never experienced, that had my mind reeling, my body quaking and my pussy flooding as I reached a second earth quaking orgasm. "Oh my god, fuck, Dianne, it feels so good." 
+ 
+
+===
+
+I couldn't believe it but the mixture of being fingered in my virgin ass, having my clit spanked and being called a slut were three sensations I'd never experienced, that had my mind reeling, my body quaking and my pussy flooding as I reached a second earth quaking orgasm. "Oh my god, fuck, Dianne, it feels so good." 
 
  She asked, adding to the orgasmic bliss, "Who owns you, slut?" 
 

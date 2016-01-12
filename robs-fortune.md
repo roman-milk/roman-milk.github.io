@@ -1,8 +1,14 @@
+Rob's Fortune
+=============
 #1 
 
  
 
- ****** Rob's Fortune ****** byJust_Plain_Bob© I guess this story starts with a man I never knew. I knew of him, but I'd never seen him or even seen a picture of him. 
+ 
+
+===
+
+I guess this story starts with a man I never knew. I knew of him, but I'd never seen him or even seen a picture of him. 
 
  My mother had two brothers named Wendell and James. Some time before I was born James did something that shamed or badly embarrassed the family and he split. As I grew up I would occasionally hear my mother or grandmother say, "I wonder where James is right now" and when I would ask who James was there would be a sudden change of subject. It wasn't until I was seventeen that I found out that James was my uncle and I was nineteen before I found out why he was the family outcast. 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** Rob's Fortune ****** byJust_Plain_Bob© And then Robin Atlee came on the scene and things got interesting. 
+ 
+
+===
+
+And then Robin Atlee came on the scene and things got interesting. 
 
  Robin was extremely good looking, intelligent and witty and for some reason Robin decided that I was the one she wanted for her significant other. It was a unique experience for me. I had never been pursued before. Well maybe pursued is the wrong way to put it, but Robin came after me before I even knew who she was. I was at a party (that Marcy had wanted to go to, but I got my phone call in first) and I was leaning on the makeshift bar with a beer in my hand when this sexy looking redhead came up to me and said: 
 
@@ -408,7 +418,11 @@
 
  
 
- ****** Rob's Fortune ****** byJust_Plain_Bob© "It was nothing Rob; it didn't mean a thing." 
+ 
+
+===
+
+"It was nothing Rob; it didn't mean a thing." 
 
  I started to stand up. 
 
@@ -630,7 +644,11 @@
 
  
 
- ****** Rob's Fortune ****** byJust_Plain_Bob© I smiled and said, "Luckiest accident I've ever been involved with." 
+ 
+
+===
+
+I smiled and said, "Luckiest accident I've ever been involved with." 
 
  When we arrived we were each given a ticket for the drawing that would determine who would get the signed first editions that were being given away and my number was called. On the drive to the event Ellen and I had discussed the dinner and the circumstances and I learned that the author was one of her favorites so I took Ellen's ticket and gave her mine and sent her up to get the book. The author personalized the inscription and Ellen thanked me and asked why I didn't want the book for myself. I lied and told her that as a member of the committee I didn't feel that it would be right for me to take the book. The truth was that I had read two of his other books and hadn't liked either one of them. 
 
@@ -834,7 +852,11 @@
 
  
 
- ****** Rob's Fortune ****** byJust_Plain_Bob© One night at a charity event Monica Kois was talking to Ellen and me and out of nowhere she said: 
+ 
+
+===
+
+One night at a charity event Monica Kois was talking to Ellen and me and out of nowhere she said: 
 
  "When are you going to put a ring on her finger Rob?" 
 
@@ -1046,7 +1068,11 @@
 
  
 
- ****** Rob's Fortune ****** byJust_Plain_Bob© "She told me she needed some space. I haven't talked to her in three weeks." 
+ 
+
+===
+
+"She told me she needed some space. I haven't talked to her in three weeks." 
 
  "Why on Earth would she do something like that?" 
 

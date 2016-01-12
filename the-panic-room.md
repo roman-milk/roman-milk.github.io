@@ -1,8 +1,14 @@
+The Panic Room
+==============
 #1 
 
  
 
- ****** The Panic Room ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  She cheats, he thinks 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** The Panic Room ****** byTx_Tall_Tales© "-dicknose, sleezebag, douche-drinking, ass-kissing, slut-banging-" she added. 
+ 
+
+===
+
+"-dicknose, sleezebag, douche-drinking, ass-kissing, slut-banging-" she added. 
 
  I grinned, at her creativity. "-numbnut, no-ball, pigeon-toed-" 
 
@@ -480,7 +490,11 @@
 
  
 
- ****** The Panic Room ****** byTx_Tall_Tales© "Whatever you want." 
+ 
+
+===
+
+"Whatever you want." 
 
  "I'm hiring Marcie's decorator for the nursery." 
 

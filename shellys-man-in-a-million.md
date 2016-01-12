@@ -1,8 +1,14 @@
+Shelly's Man In A Million
+=========================
 #1 
 
  
 
- ****** Shelly's Man In A Million ****** byJust_Plain_Bob© It was love at first sight. I got off the elevator and she was sitting behind the reception desk. The term drop dead gorgeous didn't even begin to do her justice. Her beautiful face was surrounded by a mass of honey-blonde hair, and breasts, oh God did she have breasts - thirty-eights at least. The rest of her was hidden behind the desk, but there was no doubt in my mind that what I couldn't see was just as perfect as what I could. She gave me a dazzling smile as I came off the elevator and said, "Good morning, can I help you?" 
+ 
+
+===
+
+It was love at first sight. I got off the elevator and she was sitting behind the reception desk. The term drop dead gorgeous didn't even begin to do her justice. Her beautiful face was surrounded by a mass of honey-blonde hair, and breasts, oh God did she have breasts - thirty-eights at least. The rest of her was hidden behind the desk, but there was no doubt in my mind that what I couldn't see was just as perfect as what I could. She gave me a dazzling smile as I came off the elevator and said, "Good morning, can I help you?" 
 
  I smiled back, "I work here" and I extended my hand. "Manny Grotz. I work in marketing." 
 
@@ -180,4 +186,8 @@
 
  
 
- ****** Shelly's Man In A Million ****** byJust_Plain_Bob© Shelly looked at me and said, "I might have said yes if you had asked me in the living room, but now that I see what else I have to choose from I'll have to think about it." She started to undress, "Ask me again in the morning." Report_Story 
+ 
+
+===
+
+Shelly looked at me and said, "I might have said yes if you had asked me in the living room, but now that I see what else I have to choose from I'll have to think about it." She started to undress, "Ask me again in the morning." Report_Story 

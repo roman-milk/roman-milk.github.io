@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 06
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 06 ****** byNonStopFunGuy© Daddy wants his horny, slutty 18 year old daughter to get fucked, and have the happiest tight teen cunt in town. That Friday night he proved it to me, over and over. Only, he did it without ever once touching me. 
+ 
+
+===
+
+Daddy wants his horny, slutty 18 year old daughter to get fucked, and have the happiest tight teen cunt in town. That Friday night he proved it to me, over and over. Only, he did it without ever once touching me. 
 
  I fucking loved it! And -- hated it! 
 
@@ -114,7 +120,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 06 ****** byNonStopFunGuy© "Wait a moment." He checked something and the stupid machine went whir for him, then a few seconds later he was good. He held up the camera facing me, watching the view from the rearside monitor, and the light on the camera turned on to illuminate his horny daughter kneeling on his bed. "Um, go in 3 . . . 2 . . . 1 . . . " Then he didn't say anything; but he pointed a finger at me from his other hand. 
+ 
+
+===
+
+"Wait a moment." He checked something and the stupid machine went whir for him, then a few seconds later he was good. He held up the camera facing me, watching the view from the rearside monitor, and the light on the camera turned on to illuminate his horny daughter kneeling on his bed. "Um, go in 3 . . . 2 . . . 1 . . . " Then he didn't say anything; but he pointed a finger at me from his other hand. 
 
  Now words escaped me, I found myself giggling at the camera, trying not to look at my father but pretend I was talking to Jack. Why I wanted to do this, I had no idea, except, it put me in front of my Dad tonight. "So, hi, Jack," I moaned into the camera, trying to look sexy but feeling all the butterflies in my tummy, "I wanted to make this for you, because, well -- because I was nervous, I mean, I just turned 18 this past month, and I haven't, like, you know, really known any adult guys." (I have to say, I felt really stupid saying all this, but the words just came out. Plus, it was a fucking lie, having been screwed by two adult men in the past three days -- but that was an irrelevant detail, wasn't it?) "So, I was just sitting here tonight, I mean, thinking about you, about dinner the other night, and, I dunno, I was wanting to talk to you, but really kind of nervous about it." 
 
@@ -194,7 +204,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 06 ****** byNonStopFunGuy© My eyes were pooling with sweat and tears, as I looked up at my Daddy, seeing him continue to stare at the camera's little monitor. He was pointing the camcorder right at the nasty nude teenage slut on his bed; his face didn't have emotions, but his shorts were bulging with the massive shaft of his beautiful penis. The sight of that shape kept me aroused more than the feelings in my pussy did; that's why I was here. But don't stare at it, I told myself. 
+ 
+
+===
+
+My eyes were pooling with sweat and tears, as I looked up at my Daddy, seeing him continue to stare at the camera's little monitor. He was pointing the camcorder right at the nasty nude teenage slut on his bed; his face didn't have emotions, but his shorts were bulging with the massive shaft of his beautiful penis. The sight of that shape kept me aroused more than the feelings in my pussy did; that's why I was here. But don't stare at it, I told myself. 
 
  Even though my entire body hurt and my muscles in my arms and wrists and hands wanted to quit, I kept fucking myself furiously, really jamming the thing as deep into me as I could. It was so long and thick, it was a wonderful lover; my vagina felt so good stretching to take the contoured long rubbery shaft. It was better than David's dick earlier in the week, I was actually really happy to be learning that this hairbrush was a pretty good substitute for an actual male. As I continued to fuck myself for Daddy and the recording device, I thought to myself, I'll be fucking this hairbrush regularly now. 
 

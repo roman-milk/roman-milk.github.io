@@ -1,8 +1,14 @@
+A Family Affair
+===============
 #1 
 
  
 
- ****** A Family Affair ****** byJust_Plain_Bob© The tearing apart of my family came about because of a power outage. 
+ 
+
+===
+
+The tearing apart of my family came about because of a power outage. 
 
  Maybe once every couple of months or so there will be a power outage in the area where we live. They last anywhere from a minute or two to several hours. As everyone knows power outages affect electrical and electronic devises. When our alarm clock loses power it resets itself to 12:00 a.m. and the LEDs start flashing to alert you to the fact that power has been interrupted. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** A Family Affair ****** byJust_Plain_Bob© "We have a unique situation here. Your brother was in the house with your wife's permission so he had every right to be there and feel safe there. He can press charges against you and you will no doubt be found guilty. He can also press charges against your wife for what she did to him. That one is a little more cloudy since she says she did it to protect you. A judge and jury would probably accept it. 
+ 
+
+===
+
+"We have a unique situation here. Your brother was in the house with your wife's permission so he had every right to be there and feel safe there. He can press charges against you and you will no doubt be found guilty. He can also press charges against your wife for what she did to him. That one is a little more cloudy since she says she did it to protect you. A judge and jury would probably accept it. 
 
  "You could also press charges against your wife, but the same would apply since she says she did it too keep you from killing your brother. That means that of the three of you your brother, outside of having a fractured skull, walks away from it. Your wife could possibly, though not likely, go to jail for her actions. You, on the other hand, don't stand a chance of walking if your brother presses charges. 
 
@@ -420,7 +430,11 @@
 
  
 
- ****** A Family Affair ****** byJust_Plain_Bob© Finding that out changed everything. To hell with holding to my vows. All thoughts of Laura left my mind. To hell with Billy and Beth. I didn't give a rat's ass if they did find out about my having sex with Annie. I flat out asked Annie if she had dressed to entice me and she smiled and said she had so I asked her why we were wasting time talking when there was a bed close at hand. 
+ 
+
+===
+
+Finding that out changed everything. To hell with holding to my vows. All thoughts of Laura left my mind. To hell with Billy and Beth. I didn't give a rat's ass if they did find out about my having sex with Annie. I flat out asked Annie if she had dressed to entice me and she smiled and said she had so I asked her why we were wasting time talking when there was a bed close at hand. 
 
  I finished for the third time and was catching my breath before getting up and going home to confront Beth with my new found information when Annie asked me if I had ever done anal. I told her that I never had because Beth wouldn't allow it. 
 

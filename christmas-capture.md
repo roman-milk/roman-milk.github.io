@@ -1,8 +1,14 @@
+Christmas Capture
+=================
 #1 
 
  
 
- ****** Christmas Capture ****** bygeronimo_appleby© I'm not sure if this piece will end up in Non-consent/Reluctance or Non-Erotic, so if you're looking for filthy sex scenes in this offering, I'd suggest you leave it now. There's sex in it, but the main focus is in the narrative from the principal character's point of view. It's more, I hope, about a glimpse behind the curtain at a nasty place where people of this ilk exist. 
+ 
+
+===
+
+I'm not sure if this piece will end up in Non-consent/Reluctance or Non-Erotic, so if you're looking for filthy sex scenes in this offering, I'd suggest you leave it now. There's sex in it, but the main focus is in the narrative from the principal character's point of view. It's more, I hope, about a glimpse behind the curtain at a nasty place where people of this ilk exist. 
 
  If you do read on, I hope you ... enjoy it, which probably isn't correct of me; perhaps it would be better if I say that I hope it leaves an impression upon you. 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** Christmas Capture ****** bygeronimo_appleby© This could be dangerous for me if she was coming out of the effects already. If she surfaced too quickly she could catch me off guard and cause problems. I didn't relish the idea of another scar on my forehead, or worse, but it was a fine line I enjoyed, the knowledge that she knew what was happening, could feel me moving inside her, aroused me almost to spunking point, the risk of a struggle only heightening my enjoyment. Avril's weak squirming, albeit a feeble attempt to be rid of my weight atop her prostrate form, sent an arterial burst of lust through me; I knew she was really struggling against me, but to feel her moving gave the impression she was fucking me back. 
+ 
+
+===
+
+This could be dangerous for me if she was coming out of the effects already. If she surfaced too quickly she could catch me off guard and cause problems. I didn't relish the idea of another scar on my forehead, or worse, but it was a fine line I enjoyed, the knowledge that she knew what was happening, could feel me moving inside her, aroused me almost to spunking point, the risk of a struggle only heightening my enjoyment. Avril's weak squirming, albeit a feeble attempt to be rid of my weight atop her prostrate form, sent an arterial burst of lust through me; I knew she was really struggling against me, but to feel her moving gave the impression she was fucking me back. 
 
  I heaved my torso off her body and, jabbing hard and fast, watched Avril's big tits shiver and roll. "I'm going to come inside you, you sexy fucking bitch," I groaned. Avril mumbled again, even lifting a feeble arm from the bed. I imagine her intent was to strike me or push me off, but she didn't have the strength for that ... Yet. 
 
@@ -276,7 +286,11 @@
 
  
 
- ****** Christmas Capture ****** bygeronimo_appleby© "No?" I offered, my tone taunting. He didn't know it but I was going to shoot him anyway. I'd been compromised and would definitely be on for a capture by the rozzers if I stuck around England for too long after this caper. Fuck the police and their forensics; since I'd blown my cover anyway, putting a nine milly hole in Tom's face wasn't much of an issue. And speaking of issue, there was probably enough DNA around, dollops of semen, most of which had dribbled out of Avril's cunt, and all that evidence meant I'd have to leave the UK for a while. 
+ 
+
+===
+
+"No?" I offered, my tone taunting. He didn't know it but I was going to shoot him anyway. I'd been compromised and would definitely be on for a capture by the rozzers if I stuck around England for too long after this caper. Fuck the police and their forensics; since I'd blown my cover anyway, putting a nine milly hole in Tom's face wasn't much of an issue. And speaking of issue, there was probably enough DNA around, dollops of semen, most of which had dribbled out of Avril's cunt, and all that evidence meant I'd have to leave the UK for a while. 
 
  I fancied a look at Costa Rica. 
 

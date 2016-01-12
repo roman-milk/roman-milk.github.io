@@ -1,8 +1,14 @@
+The Next One Ch. 01
+===================
 #1 
 
  
 
- ****** The Next One Ch. 01 ****** byJust_Plain_Bob© Note to readers -- There are no sexual situations in this story where the participants are under eighteen. 
+ 
+
+===
+
+Note to readers -- There are no sexual situations in this story where the participants are under eighteen. 
 
  Also, I am well aware that the National Guard the way I describe it here is not the way that it really is at this time. The way I have described it is the way that it was in my time and that is the way it works best for the story. If it bothers you just think of this story as taking place in an alternate universe. 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** The Next One Ch. 01 ****** byJust_Plain_Bob© "You'll notice that you are fully dressed and if you check yourself out you'll see that nothing happened to you. There's a coffee and an Egg McMuffin on the vanity counter for you. You need to do whatever it is that you are going to do so that I can run you home or to wherever you left your car." 
+ 
+
+===
+
+"You'll notice that you are fully dressed and if you check yourself out you'll see that nothing happened to you. There's a coffee and an Egg McMuffin on the vanity counter for you. You need to do whatever it is that you are going to do so that I can run you home or to wherever you left your car." 
 
  I turned on the TV and was watching the news and weather and working on my coffee when the bathroom door opened and she cautiously came out. She looked at me and then the food on the counter and she picked it up and sat down on the edge of her bed. She took a bite of the McMuffin and asked: 
 
@@ -524,7 +534,11 @@
 
  
 
- ****** The Next One Ch. 01 ****** byJust_Plain_Bob© "It's just the way you left." 
+ 
+
+===
+
+"It's just the way you left." 
 
  I dropped the subject. Both mom and dad knew what caused me to leave and going back to it would serve no useful purpose. Dad and I talked jobs and sports as he dried the dishes that I washed and then he said goodnight and went on home. 
 
@@ -740,7 +754,11 @@
 
  
 
- ****** The Next One Ch. 02 ****** byJust_Plain_Bob© The next three weekends Allison came home and we spent seventy-five percent of that time in my apartment and a goodly portion of that time was spent in the bedroom. 
+ 
+
+===
+
+The next three weekends Allison came home and we spent seventy-five percent of that time in my apartment and a goodly portion of that time was spent in the bedroom. 
 
  Then it was Christmas break and Allison was home for three weeks. She was waiting at my apartment every night when I got home from work. I'm sure that my mom knew what was going on and I wondered if Mrs. Ames also knew and if the two of them were back in their wedding planner mode. 
 
@@ -1022,7 +1040,11 @@
 
  
 
- ****** The Next One Ch. 02 ****** byJust_Plain_Bob© ++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++ 
 
  My dinner date with Sarah was a revelation. After dinner we went to the movies. About halfway through the movie Sarah leaned over to me and said: 
 
@@ -1274,7 +1296,11 @@
 
  
 
- ****** The Next One Ch. 02 ****** byJust_Plain_Bob© After about a half hour Sarah asked me, "Why is that tramp constantly looking at you?" 
+ 
+
+===
+
+After about a half hour Sarah asked me, "Why is that tramp constantly looking at you?" 
 
  "Remember back to the time when you said that surely my girlfriend wouldn't mind you and I going out for a simple thank you dinner?" 
 
@@ -1332,7 +1358,11 @@
 
  
 
- ****** The Next One Ch. 03 ****** byJust_Plain_Bob© The next week was a quiet one as far as having females in my life was concerned. All the girls had gone back to school so it was pretty much work, go home, watch some TV and read books. It did not come as a surprise when Gloria ("I'm coming home every weekend from now on") didn't show up, but I was kind of surprised when Sarah didn't, especially after telling me that she was going to do a full court press to land me. 
+ 
+
+===
+
+The next week was a quiet one as far as having females in my life was concerned. All the girls had gone back to school so it was pretty much work, go home, watch some TV and read books. It did not come as a surprise when Gloria ("I'm coming home every weekend from now on") didn't show up, but I was kind of surprised when Sarah didn't, especially after telling me that she was going to do a full court press to land me. 
 
  Allison did come home and she made sure that she and her date (not the same guy from New Year's Eve) showed up everywhere I went that weekend. I think it pissed her off when I ignored her. I don't know who did what the following weekend because that was the weekend I owed the Guard and I wasn't around. 
 
@@ -1544,7 +1574,11 @@
 
  
 
- ****** The Next One Ch. 03 ****** byJust_Plain_Bob© I was first in line at the time clock for the first time since I had been hired and I left the parking lot like I was competing in the Daytona 500. When I got home I showered, put on some cologne that I had gotten on my birthday or maybe at Christmas but had never worn and then put on a robe and waited to see if Vangie would show up. 
+ 
+
+===
+
+I was first in line at the time clock for the first time since I had been hired and I left the parking lot like I was competing in the Daytona 500. When I got home I showered, put on some cologne that I had gotten on my birthday or maybe at Christmas but had never worn and then put on a robe and waited to see if Vangie would show up. 
 
  As I sat waiting I suddenly remembered that I was supposed to go bowling. I dug around until I found the number for my team captain and called him to let him know I couldn't make it and that he would need to find a substitute for me. 
 
@@ -1744,7 +1778,11 @@
 
  
 
- ****** The Next One Ch. 04 ****** byJust_Plain_Bob© About a month after Sarah kicked me to the curb I was sitting in a booth at the Denny's at Fourth and Hamilton when Gloria walked up and asked if I was alone and when I said that I was she asked if she could join me. 
+ 
+
+===
+
+About a month after Sarah kicked me to the curb I was sitting in a booth at the Denny's at Fourth and Hamilton when Gloria walked up and asked if I was alone and when I said that I was she asked if she could join me. 
 
  I told her to take a seat and we talked. I found out that she was home for a week because of a death in her family and when she asked where my girlfriend was I told her that Sarah and I had split. I asked her how her love life was going and she told me that she didn't have a steady boyfriend and then she asked if I still had my apartment. I told her that I did and she said: 
 
@@ -1996,7 +2034,11 @@
 
  
 
- ****** The Next One Ch. 04 ****** byJust_Plain_Bob© "Who are you and what are you doing in my apartment?" 
+ 
+
+===
+
+"Who are you and what are you doing in my apartment?" 
 
  I saw fear flash across Gloria's face. Barrington was quick; I'd have to give him that. He took a step back and looked at the apartment number on the door and said: 
 
@@ -2236,7 +2278,11 @@
 
  
 
- ****** The Next One Ch. 04 ****** byJust_Plain_Bob© "A duty dance?" 
+ 
+
+===
+
+"A duty dance?" 
 
  "The boss's wife." 
 
@@ -2446,7 +2492,11 @@
 
  
 
- ****** The Next One Ch. 05 ****** byJust_Plain_Bob© For the next four and a half months I saw Vangie at least twice a week and Allison on the weekends. One day in mid April the inevitable happened. 
+ 
+
+===
+
+For the next four and a half months I saw Vangie at least twice a week and Allison on the weekends. One day in mid April the inevitable happened. 
 
  "Have you given any thought to when the wedding should be Frank?" 
 
@@ -2766,7 +2816,11 @@
 
  
 
- ****** The Next One Ch. 05 ****** byJust_Plain_Bob© Allison took the job and I have to give her credit; she did not let the job interfere with our home life other than being gone a lot. 
+ 
+
+===
+
+Allison took the job and I have to give her credit; she did not let the job interfere with our home life other than being gone a lot. 
 
  Maybe a year after the wedding Vangie started asking me how the marriage was going. I told her fine and asked her why she was asking. 
 
@@ -3012,7 +3066,11 @@
 
  
 
- ****** The Next One Ch. 05 ****** byJust_Plain_Bob© "Move." 
+ 
+
+===
+
+"Move." 
 
  She got an annoyed look on her face, but then she took notice of the look on mine and she got up and moved. I sat down and looked at the two of them and then said: 
 
@@ -3196,7 +3254,11 @@
 
  
 
- ****** The Next One Ch. 06 ****** byJust_Plain_Bob© I put the house on the market for 310 thousand and it sat for two months before I got what I considered a serious offer. I had several offers of 280 and 285, but I didn't pay any attention to them. I got one for 295, but the bidder wanted a new roof on the house as part of the deal so I passed. I finally got an offer for 300 and I took it. Closing was to be in thirty days so I started looking for another place to live. I started looking at apartments and Vangie asked me why. 
+ 
+
+===
+
+I put the house on the market for 310 thousand and it sat for two months before I got what I considered a serious offer. I had several offers of 280 and 285, but I didn't pay any attention to them. I got one for 295, but the bidder wanted a new roof on the house as part of the deal so I passed. I finally got an offer for 300 and I took it. Closing was to be in thirty days so I started looking for another place to live. I started looking at apartments and Vangie asked me why. 
 
  "I don't want another house. A single guy living in a house doesn't make any sense to me." 
 
@@ -3410,7 +3472,11 @@
 
  
 
- ****** The Next One Ch. 06 ****** byJust_Plain_Bob© Her face paled and she said, "I don't know what you are talking about." 
+ 
+
+===
+
+Her face paled and she said, "I don't know what you are talking about." 
 
  What I said next I made up on the spot, but she wouldn't know it. 
 
@@ -3622,7 +3688,11 @@
 
  
 
- ****** The Next One Ch. 06 ****** byJust_Plain_Bob© She paused as she thought about something and then she said: 
+ 
+
+===
+
+She paused as she thought about something and then she said: 
 
  "But there is one more reason why I want you to do it. Actually there are a couple more. The first is that she needs a husband like you and we do know from the tapes that she does love you and that by itself should count for something. Another thing is something that I really don't want to talk about, but it is something that has to be said. I'm twice as old as you are lover and I'm not going to be around forever, but for as long as I'm here I want you to be around. The best way to see that you are is to have you as a son-in-law. The last reason is that when I go I want to go knowing that my baby is going to be taken care of and I know that you will do that. Think about it lover, but do your thinking later. Right now mommy wants your cock." 
 
@@ -3770,7 +3840,11 @@
 
  
 
- ****** The Next One Ch. 07 ****** byJust_Plain_Bob© I came home from work to find Sarah sitting at the kitchen table drinking a beer. That alone told me something was up because she was normally a wine drinker. I bent down to kiss her and she jerked her head away and said: 
+ 
+
+===
+
+I came home from work to find Sarah sitting at the kitchen table drinking a beer. That alone told me something was up because she was normally a wine drinker. I bent down to kiss her and she jerked her head away and said: 
 
  "Don't you dare touch me you fucking asshole." 
 

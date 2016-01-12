@@ -1,8 +1,14 @@
+Football Bet FTW!
+=================
 #1 
 
  
 
- ****** Football Bet FTW! ****** byTx_Tall_Tales© ------------- 
+ 
+
+===
+
+------------- 
 
  A costume reveals a whole new woman. And leads to a risky bet. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Football Bet FTW! ****** byTx_Tall_Tales© "Run the BALL!" Lori was shouting at the TV. "When it's working keep it up until they show they can stop it!" 
+ 
+
+===
+
+"Run the BALL!" Lori was shouting at the TV. "When it's working keep it up until they show they can stop it!" 
 
  Of course, being up by 28, you could do pretty much anything you wanted to, but I kept that to myself. 
 
@@ -424,7 +434,11 @@
 
  
 
- ****** Football Bet FTW! ****** byTx_Tall_Tales© Lori was feeling pretty confident. "God, I love my new shirt, Jack. Thank you SO much." 
+ 
+
+===
+
+Lori was feeling pretty confident. "God, I love my new shirt, Jack. Thank you SO much." 
 
  "It's not over until the fat lady sings," I reminded her. I didn't give two shits about the shirt. I wanted what was in it. 
 
@@ -766,7 +780,11 @@
 
  
 
- ****** Football Bet FTW! ****** byTx_Tall_Tales© I worked my way down her legs, a long, long journey, all the way to her feet. Kissing her instep she giggled. "Careful buster, I'm ticklish, in case you haven't noticed." 
+ 
+
+===
+
+I worked my way down her legs, a long, long journey, all the way to her feet. Kissing her instep she giggled. "Careful buster, I'm ticklish, in case you haven't noticed." 
 
  She wasn't that ticklish, and didn't flinch when I took her long slender toes between my lips, not wanting to miss an inch of her. My last girlfriend had tiny feet that could fit in one hand. Lori had long narrow feet, deep arches, and cute painted toes that decried her normal attempts to look tomboyish. Until today I'd never found her sexy. Pretty, yes, and fun. But this was an eye- opener. A game-changer. There was a very sexy, very hot woman hidden behind her "one of the guys" facade. 
 
@@ -1020,7 +1038,11 @@
 
  
 
- ****** Football Bet FTW! ****** byTx_Tall_Tales© "What do you think?" 
+ 
+
+===
+
+"What do you think?" 
 
  "I don't think I've overstayed my welcome." 
 

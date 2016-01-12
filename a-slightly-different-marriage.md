@@ -1,8 +1,14 @@
+A Slightly Different Marriage
+=============================
 #1 
 
  
 
- ****** A Slightly Different Marriage ****** byJust_Plain_Bob© I suppose that the best way to start this is to tell a little bit about how I look at things. I have always believed that sex is a basic human need. Not a want, but a need. As far as needs go – in my mind at least – sex is every bit as necessary to human health, physical and mental, as air, water and food. That belief carries with it the belief that sex and love – while complimentary – are not the same thing. My belief is that you can have sex without love and you can have love without sex. 
+ 
+
+===
+
+I suppose that the best way to start this is to tell a little bit about how I look at things. I have always believed that sex is a basic human need. Not a want, but a need. As far as needs go – in my mind at least – sex is every bit as necessary to human health, physical and mental, as air, water and food. That belief carries with it the belief that sex and love – while complimentary – are not the same thing. My belief is that you can have sex without love and you can have love without sex. 
 
  Why this explanation? Because it is the foundation for the story that follows. 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** A Slightly Different Marriage ****** byJust_Plain_Bob© "Trust me. It did happen and I was devastated when you left the party and I thought I'd never see you again." 
+ 
+
+===
+
+"Trust me. It did happen and I was devastated when you left the party and I thought I'd never see you again." 
 
  "Well okay, but I have to be honest with you. I didn't feel a spark pass between us, but you are kind of cute so maybe I'll take a chance and see if there is something there. When is your last class?" 
 
@@ -464,7 +474,11 @@
 
  
 
- ****** A Slightly Different Marriage ****** byJust_Plain_Bob© As I walked through the building I waved at several of the people I knew from attending office partied with Sam and I walked into her office just as her telephone answering machine was giving out the "leave a message" announcement. I'd just placed her day planner on her desk when I heard: 
+ 
+
+===
+
+As I walked through the building I waved at several of the people I knew from attending office partied with Sam and I walked into her office just as her telephone answering machine was giving out the "leave a message" announcement. I'd just placed her day planner on her desk when I heard: 
 
  "Good morning sexy lady. I got in last night and checked into room 127 at the Super 8 on Foster. I get out of training at four and should be in my room by four-thirty. Looking forward to seeing you. I'll be ready and waiting. Bye." 
 
@@ -668,7 +682,11 @@
 
  
 
- ****** A Slightly Different Marriage ****** byJust_Plain_Bob© "I don't know Sam. I'm not comfortable with it and I'm going to have to think on it." 
+ 
+
+===
+
+"I don't know Sam. I'm not comfortable with it and I'm going to have to think on it." 
 
  I did think about it and the bottom line was that I had been trusting Sam all along so there didn't seem to be any reason for not trusting her in what she wanted to do and so I gave her my permission. 
 
@@ -840,7 +858,11 @@
 
  
 
- ****** A Slightly Different Marriage ****** byJust_Plain_Bob© "You think that they think all that highly of me? Of course they don't. To them I'm just a married woman who fucks around. A slut as far as they are concerned. Do I care? Fuck no! They serve a purpose. They give me fun sexually and that's all. Once I leave the party I don't even think about them so what the hell do I care about what they think. The only important thing is that I love you. I love the fact that you love me and trust me enough to let me go out and play, but it isn't working. No matter how much fun it is and how much I enjoy it it isn't worth what we are going through because of it. I'm not going to do it any more. I'm not going to kill my marriage because of it. Now please take me to bed and make love to me? I've never had sloppy seconds from you before." 
+ 
+
+===
+
+"You think that they think all that highly of me? Of course they don't. To them I'm just a married woman who fucks around. A slut as far as they are concerned. Do I care? Fuck no! They serve a purpose. They give me fun sexually and that's all. Once I leave the party I don't even think about them so what the hell do I care about what they think. The only important thing is that I love you. I love the fact that you love me and trust me enough to let me go out and play, but it isn't working. No matter how much fun it is and how much I enjoy it it isn't worth what we are going through because of it. I'm not going to do it any more. I'm not going to kill my marriage because of it. Now please take me to bed and make love to me? I've never had sloppy seconds from you before." 
 
  ++++++++++++++++++++ 
 
@@ -1002,7 +1024,11 @@
 
  
 
- ****** A Slightly Different Marriage ****** byJust_Plain_Bob© "I'd get to sit there and be laughed at until he brought you back and I won't have it Samantha! I won't put up with it. I just will not put up with it!" 
+ 
+
+===
+
+"I'd get to sit there and be laughed at until he brought you back and I won't have it Samantha! I won't put up with it. I just will not put up with it!" 
 
  She sat there and stared out the window and was quiet all the way home. Once at home we avoided each other for most of the day and then at dinner she said: 
 

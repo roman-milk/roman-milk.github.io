@@ -1,8 +1,14 @@
+Take Me Dogging With You
+========================
 #1 
 
  
 
- ****** Take Me Dogging With You ****** bygeronimo_appleby© Writer's note: 
+ 
+
+===
+
+Writer's note: 
 
  Another first-person female POV piece I wrote for my friend's blog, and which I thought I'd share here. 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Take Me Dogging With You ****** bygeronimo_appleby© Emma! I'd forgotten all about her. 
+ 
+
+===
+
+Emma! I'd forgotten all about her. 
 
  When I struggled to my feet – bloody high heels snagging on that stupid blanket – I walked around to the far side of the Jag and found my husband balls deep in the police woman. They were on another blanket, a group of men surrounding them, twelve or so, a slightly larger number than had been watching me I was miffed to notice. Emma was on her hands and knees already stripped down to her stockings. Her skirt, blouse and bra were piled into a heap on the grass, her big jugs swinging while my husband held her hips and gave her the good news. 
 

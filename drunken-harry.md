@@ -1,8 +1,14 @@
+Drunken Harry
+=============
 #1 
 
  
 
- ****** Drunken Harry ****** byJust_Plain_Bob© Tonight when I get off work I am going to go home, fix dinner, open a bottle of wine and after dinner is over I am going to tell Harry that I am divorcing him. It will be a shock since he is totally unaware that our marriage has been in trouble. 
+ 
+
+===
+
+Tonight when I get off work I am going to go home, fix dinner, open a bottle of wine and after dinner is over I am going to tell Harry that I am divorcing him. It will be a shock since he is totally unaware that our marriage has been in trouble. 
 
  I love him. I love him to death, but he is a good man and he deserves much better than me. He has been a good husband and for the most part our marriage has been great. He is affectionate and he is damned good in bed so he is not going to understand it at all. The one thing he won't know because I won't tell him is that he is the one mostly to blame for it happening. Then again maybe I will tell Harry why he is to blame. It might help him with his next wife. 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Drunken Harry ****** byJust_Plain_Bob© "I knew you were a slut. I knew you loved cock and I'm going to see to it that you get a lot." 
+ 
+
+===
+
+"I knew you were a slut. I knew you loved cock and I'm going to see to it that you get a lot." 
 
  "Shut up and fuck me you asshole." 
 
@@ -374,7 +384,11 @@
 
  
 
- ****** Drunken Harry ****** byJust_Plain_Bob© ++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++ 
 
  Because it was my time of the month all Ken could get out of me the following week were blow jobs although he was able to get downtown with his van on a Wednesday and have my ass on my lunch hour. He did come over Sunday, but I chased him away and told him that my mother was coming to visit and I didn't have time to let him have a piece. He wasn't happy, but there wasn't anything he could do. He could get pissed if he sat in his front window watching for mom and never saw her, but I would just say that her car broke down. Bottom line is that I fucked Ken out of a day. 
 

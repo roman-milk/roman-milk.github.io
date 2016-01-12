@@ -1,8 +1,14 @@
+Daddy's Precious Present to Dani
+================================
 #1 
 
  
 
- ****** Daddy's Precious Present to Dani ****** byNonStopFunGuy© Dani looked at the gift completely stunned. Immediately she knew why her father told her to open it when she was alone. 
+ 
+
+===
+
+Dani looked at the gift completely stunned. Immediately she knew why her father told her to open it when she was alone. 
 
  She pulled the black lingerie out of the gift box, piece by piece. A soft, flimsy camisole. An incredibly tiny thong. Two black stockings that couldn't be as long as her legs. And a small, lacy black strap a few inches long with a silver clasp -- too big to wrap around a wrist, too small for a thigh. Oh, it was a choker -- for her neck. 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** Daddy's Precious Present to Dani ****** byNonStopFunGuy© Daddy rolled his daughter onto her back, and she moved willingly, almost without conscience. Her thighs parted instinctively, the thong now bunched tightly to the side, exposing her drenched twitching pussy. Dani dared to raise her head and look down at her father's handsome face now moving between her legs to her mound. His lips surrounded her clit and began to suck it greedily. Dani's state of arousal was unprecedented; her teen body was so ready for the maximum pleasure. Within less than 15 seconds she reached her orgasm, throwing her head to the bed, her back arching up, her perky tits pointing to the ceiling, her hips bucking wildly in her father's face. "DADDY!!!" she screamed again as her pussy quivered and cummed in his mouth. 
+ 
+
+===
+
+Daddy rolled his daughter onto her back, and she moved willingly, almost without conscience. Her thighs parted instinctively, the thong now bunched tightly to the side, exposing her drenched twitching pussy. Dani dared to raise her head and look down at her father's handsome face now moving between her legs to her mound. His lips surrounded her clit and began to suck it greedily. Dani's state of arousal was unprecedented; her teen body was so ready for the maximum pleasure. Within less than 15 seconds she reached her orgasm, throwing her head to the bed, her back arching up, her perky tits pointing to the ceiling, her hips bucking wildly in her father's face. "DADDY!!!" she screamed again as her pussy quivered and cummed in his mouth. 
 
  Daddy spread her even wider and drove his tongue inside her sweet pussy. Dani began panting, clutching the bedsheets, thinking to herself OMG this gets even MORE incredible. She'd had many objects in there before, but never anything so sweet as Daddy's tongue. Dani let go of the bedsheets and grabbed her knees, pulling her legs back and letting him fuck her vagina with his tongue. His head was bobbing driving his tongue in deep. Between her wails of pleasure she moaned from the intensity of the aching pleasure; and making the cacaphony of girly noises Dani could hardly breath. She felt Daddy's hand slide under her cami, pushing it up, beginning to expose her tits. Agreeing with the concept she released her knees and grabbed the lingerie, puling it up more, offering him her full boobs. Both of his hands surrounded them, fingertips touching her hardened nipples, then his palms rubbed around the flesh of her breasts. 
 
@@ -218,7 +228,11 @@
 
  
 
- ****** Daddy's Precious Present to Dani ****** byNonStopFunGuy© She was lost. The throbbing in her pussy, so sore from the orgasms, was eased only by the presence of his thick erection. She had her sore legs pulled as high as she could, her back arched up, and her pelvis felt the pounding of his sturdy frame with each thrust. The aching in her pussy made her body squirm as he filled her hole with his thick manly penis. His daughter clutched his torso, almost riding him from underneath, as he began making powerful love to her little body. Her words were almost automated, she was so eroticized. "Daddy fuck my cunt with your hard cock . . . fuuuuck me Daddeeee fuuuuck me . . . oh god Daddy I want your cock so badly . . ." 
+ 
+
+===
+
+She was lost. The throbbing in her pussy, so sore from the orgasms, was eased only by the presence of his thick erection. She had her sore legs pulled as high as she could, her back arched up, and her pelvis felt the pounding of his sturdy frame with each thrust. The aching in her pussy made her body squirm as he filled her hole with his thick manly penis. His daughter clutched his torso, almost riding him from underneath, as he began making powerful love to her little body. Her words were almost automated, she was so eroticized. "Daddy fuck my cunt with your hard cock . . . fuuuuck me Daddeeee fuuuuck me . . . oh god Daddy I want your cock so badly . . ." 
 
  "Ohgod angel, ohgod," Daddy started muttering, pumping his penis into her tight pussy. Even after all the sex her vagina was tiny, the walls wet but stretched, and he felt her body almost ripping his thick cock off of him as he pushed it farther into her hole. His eyes were half-closed, half staring down at her little frame and perky little titties. Her long brown hair was now a sweaty, dirty, disheveled mess. 
 
@@ -330,7 +344,11 @@
 
  
 
- ****** Daddy's Precious Present to Dani ****** byNonStopFunGuy© "Oh Daddeee fuuuuuck meeeee," she moaned again, panting, pumping her tiny teenage body on his thick penis. She made her tight wet pussy slide up and down his shaft, feeling the ribs of his cock fucking her, and she leaned her little frame onto his hands on her tits so he was almost holding her up. 
+ 
+
+===
+
+"Oh Daddeee fuuuuuck meeeee," she moaned again, panting, pumping her tiny teenage body on his thick penis. She made her tight wet pussy slide up and down his shaft, feeling the ribs of his cock fucking her, and she leaned her little frame onto his hands on her tits so he was almost holding her up. 
 
  Then her father put his head up and licked her breast as she fucked him, and that did it. She felt her pussy explode with an orgasm. "Ohhhh GAWWWWD!" she cried out loud, screaming it, cumming hard, her vagina clenching tight and milking his cock, her tit and nipple burning inside his mouth. She felt her juices gushing out and covering his erection, making it even easier to fuck him up and down, she didn't stop, continuing to drive her little body onto his manhood through her sensational orgasm. Dani collapsed onto his body, lying flat on top of him, her ass still wiggling around with his penis deep in her pussy. Both of his hands slid down to her ass, stroking it, making her slide up and down his shaft. She was exhausted and sore but the feeling of his hard prick was never something to stop. 
 
@@ -420,7 +438,11 @@
 
  
 
- ****** Daddy's Precious Present to Dani ****** byNonStopFunGuy© She wasn't a tenth as anxious as HE was; her father had to endure having his dick sucked and fucked while he was on the phone with his wife. Now that he was free, he was ready to explode into his little fucktoy. 
+ 
+
+===
+
+She wasn't a tenth as anxious as HE was; her father had to endure having his dick sucked and fucked while he was on the phone with his wife. Now that he was free, he was ready to explode into his little fucktoy. 
 
  Her father split her legs even more wide open, positioned his cock at the entrance to her cunt, and without waiting just shoved it in HARD. Dani shrieked. "OH DADDY!" She put her hands up on his hairy chest, and he began pumping his body into her. She was soaking already, his cock slipped into the back of her pussy without resistance, he started fucking her forcefully. He sneered down, staring at her hot tiny young body, almost angry at her for teasing him so. Well now Daddy would have revenge. He slammed his pelvis into her body, making loud thumping noises with each thrust, knocking his little girl hard and thrusting his huge cock into her tight wet cunt. Dani almost bit her lit, her eyes rolled in her head and she moaned with pain and pleasure. "Oh Daddeeee!" she groaned, her back arching, his cock stuffing itself past her pussylips and into the dark hot depths of her vagina. His heavy body was ferociously pumping into her, banging her, madly fucking her hot little cunt even more forcefully than she could imagine. 
 

@@ -1,8 +1,14 @@
+Mystery Woman
+=============
 #1 
 
  
 
- ****** Mystery Woman ****** byJust_Plain_Bob© I had been out running errands and had stopped by the fish store to pick up some live brine for the critters in my salt-water tank. While they were bagging the brine I was wandering the aisles and looking at the livestock they had. I'd just lost my Cuban Hog and was looking for something to replace him with when I noticed a girl up by the front of the store. She was short, maybe four foot seven or so, and she couldn't see the fish in the top level of tanks. She would walk to a tank, jump up to see what was in the top tank and then move to the next one. 
+ 
+
+===
+
+I had been out running errands and had stopped by the fish store to pick up some live brine for the critters in my salt-water tank. While they were bagging the brine I was wandering the aisles and looking at the livestock they had. I'd just lost my Cuban Hog and was looking for something to replace him with when I noticed a girl up by the front of the store. She was short, maybe four foot seven or so, and she couldn't see the fish in the top level of tanks. She would walk to a tank, jump up to see what was in the top tank and then move to the next one. 
 
  As she worked her way toward me I saw that she wasn't a little girl, she was a short woman - a short woman with a killer body. Waist I could probably get my hands around, nice ass, good rack and a great face. I've been known to be a little on the impulsive side so I moved up behind her and the next time she jumped I put my hands on her waist, lifted her at the same time lowering myself, and when I stood up she was sitting on my shoulders. Even though I couldn't see her since she was behind my head I said, "You were wearing me out with all that jumping. Just tell me where you want to go." 
 

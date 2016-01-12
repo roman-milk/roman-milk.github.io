@@ -1,8 +1,14 @@
+Meet Claudia, A Real Slut
+=========================
 #1 
 
  
 
- ****** Meet Claudia, A Real Slut ****** byNonStopFunGuy© This is the story of Claudia, related to the author in a videotape the author made of Claudia. It is not an exact dialogue or transcription; to make the stories flow, and adding details added over time, the text is an extrapolation of Claudia's exact dialogue. The tape was made on February 14, 2005, which you correctly will identify as Valentine's Day. It has taken time to draft it and have Claudia proof it, relate more details, and agree to content. No names have been changed. 
+ 
+
+===
+
+This is the story of Claudia, related to the author in a videotape the author made of Claudia. It is not an exact dialogue or transcription; to make the stories flow, and adding details added over time, the text is an extrapolation of Claudia's exact dialogue. The tape was made on February 14, 2005, which you correctly will identify as Valentine's Day. It has taken time to draft it and have Claudia proof it, relate more details, and agree to content. No names have been changed. 
 
  * 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** Meet Claudia, A Real Slut ****** byNonStopFunGuy© Now, I started to think Dave hand changed the rule that I shouldn't fuck Shawn. He didn't tell me directly, but I thought I knew him well enough by now to realize how his perverted mind works. As we got back to the car and saw Shawn, Dave offered to drive, and said it would not be a problem if I sat on Shawn's lap. Shawn was pretty stunned and he openly questioned Dave's sanity, but Dave said Shawn shouldn't do the entire drive (even though Dave had said as much back in Michigan when Dave proposed the idea). I only got wetter, figuring Dave wanted me to tease his friend mercilessly. 
+ 
+
+===
+
+Now, I started to think Dave hand changed the rule that I shouldn't fuck Shawn. He didn't tell me directly, but I thought I knew him well enough by now to realize how his perverted mind works. As we got back to the car and saw Shawn, Dave offered to drive, and said it would not be a problem if I sat on Shawn's lap. Shawn was pretty stunned and he openly questioned Dave's sanity, but Dave said Shawn shouldn't do the entire drive (even though Dave had said as much back in Michigan when Dave proposed the idea). I only got wetter, figuring Dave wanted me to tease his friend mercilessly. 
 
  But I was nervous as I sat on Shawn, as we pulled back onto the highway. He and I sat so that his crotch was nowhere near my body; I was almost sidesways on him. He had his arm around my shoulders touching my arm, and I kind of sunk into his body, and he had this nice, manly aroma too -- it was definitely turning me on, lying on him. So within a half hour of driving in the pitch black, with Dave and Shawn talking to each other about sports, I found myself getting even more wet for Shawn. I stretched out my legs and rolled onto my back on top of Shawn, putting my ass right on his crotch. And there it was, a large, throbbing package against my ass under my miniskirt and thong. 
 
@@ -176,7 +186,11 @@
 
  
 
- ****** Meet Claudia, A Real Slut ****** byNonStopFunGuy© That night was sort of the night I look back as the beginning of being a total slut. I now seduce and fuck pretty much anyone I want. Usually I tell Dave, especially if I'm still horny, but not every time. I have four boyfriends, regular guys I fuck I mean, and Dave knows about three of them. The other - - well, he's pretty hot, a body-builder, I get so wet and have the best orgasms with him. I fuck him more than anyone, about two or three times a week, always during the daytime. His cock is so big, I cum from trying to squeeze my muscles around it. He's like 6 foot 5, he towers over me, I must look like a rag doll on him. Fuck he rams me so hard! So no, Dave doesn't know about him, he's my secret toy. When I fuck him, it definitely feels like I'm cheating, in a way. 
+ 
+
+===
+
+That night was sort of the night I look back as the beginning of being a total slut. I now seduce and fuck pretty much anyone I want. Usually I tell Dave, especially if I'm still horny, but not every time. I have four boyfriends, regular guys I fuck I mean, and Dave knows about three of them. The other - - well, he's pretty hot, a body-builder, I get so wet and have the best orgasms with him. I fuck him more than anyone, about two or three times a week, always during the daytime. His cock is so big, I cum from trying to squeeze my muscles around it. He's like 6 foot 5, he towers over me, I must look like a rag doll on him. Fuck he rams me so hard! So no, Dave doesn't know about him, he's my secret toy. When I fuck him, it definitely feels like I'm cheating, in a way. 
 
  I guess the other time I felt I was "cheating" was this time I made Dave miss this important flight for work, and he doesn't know the reason was that I was getting fucked. I blamed it on my parents, so he hates them even more now than he used to. I was supposed to get to his office, drive him home to get him changed and packed, then off to the airport. Well, I was running around town about to go to his office, honestly, when this really hot guy started hitting on me at the bookstore. It was a fucking hot day out, I was wearing something fucking skimpy, and I could see him checking out my hair and ass and tits. I was thinking, Claudia just get his phone number you have to leave, but he offered to buy me an iced latte. I was like, that won't take long. One thing led to another, we were talking, he was staring at my chest, it was so fucking hot, he invited me back to his apartment to "cool off," and the whole time he was staring at my tits. I just wanted his dick so bad, it was aweful of me. I told myself, just blow him or something and leave. We got back to his apartment and almost as soon as we were in the door, we were making out, and I grabbed his crotch and gave him a blowjob in front of his door. Only, when he came on my face and tits, I didn't get up to leave, he carried me into his bedroom and started eating me. I wanted it so bad -- I just pulled my legs back and begged him to fuck me. When he was hard again, he shoved it in, and I came so fast, and we just kept fucking all afternoon, it was really good sex. I kept watching the clock, I was like 3 hours late but couldn't really stop, he was always cuddling me or kissing me if he wasn't fucking me. By the time Dave realized I wasn't coming to get him, he missed his flight and couldn't get a seat until the next morning. He was so fucking, fucking furious, as you can imagine, because he had to postpone an important meeting at his client. So I just lied, I said my parents were on the phone with me arguing with me to come back to Toronto (as they always do), they hate my lifestyle married to a non-Asian, in America, with a boob job. But they have NO idea, of course, if you get my meaning. I told Dave I couldn't get out of the argument, it was horrible. Dave took my side, swore off ever talking to my parents, and that was that. You know what's really bad? When Dave was out of town the next day, I went back to the guy's apartment, left him a message, and he called me and fucked me the next night. That all ended, when he started calling me telling me he loved me and shit? I told him I was married to a hot-shot lawyer (which is true), so stop bothering me, and he eventually did. 
 
@@ -264,7 +278,11 @@
 
  
 
- ****** Meet Claudia, A Real Slut ****** byNonStopFunGuy© Dave knew I liked fucking girls, or had always wanted to, so almost all of the women I've fucked Dave set up for me. The hookers, the girls online, then couples. Seems it is almost impossible for a couple to use the internet to meet a single woman for a threesome; most girls online are actually guys, or even if they are girls, chicken out before doing it. But conversely, Dave easily found couples who wanted me to join them for threesomes. They never wanted another guy or foursome, and Dave didn't make that a point. 
+ 
+
+===
+
+Dave knew I liked fucking girls, or had always wanted to, so almost all of the women I've fucked Dave set up for me. The hookers, the girls online, then couples. Seems it is almost impossible for a couple to use the internet to meet a single woman for a threesome; most girls online are actually guys, or even if they are girls, chicken out before doing it. But conversely, Dave easily found couples who wanted me to join them for threesomes. They never wanted another guy or foursome, and Dave didn't make that a point. 
 
  Dave set up internet ads for me, and prowled chatrooms for Maryland-DC-Virginia people, to find suitable couples for me to fuck. That's how he finds most people to fuck me. He's taken dirty pictures of me and uses them to say, here's Claudia, do you want to fuck her? At first that freaked me out, but now, I pretty much let him do whatever he wants. 
 
@@ -368,7 +386,11 @@
 
  
 
- ****** Meet Claudia, A Real Slut ****** byNonStopFunGuy© Now, I meet lots of guys I instantly like, but I don't go fucking them right away. Never know who the guy really is, could be a mistake. Someone I know, like husband of a neighbor, or brother or whatever. I like being the quiet, shy Chinese housewife, not the neighborhood slut. So I usually let time pass before I try to fuck a guy. But Kurt had me so wet instantly. He was married and rarely used the gym during daytime, but his wife was on some trip so he had the day to kill. He wasn't looking to get picked up, and actually he thought I was getting pretty lonesome by blatantly hanging all over him. Finally I just told him, you're dreamy and I'm married but don't get enough cock from hubby -- a lie, but it works -- and if he wanted to come to my house and fuck me all afternoon, I wish he would. Kurt was stunned I said it, but he blinked, smiled, grabbed my ass and ground his fantastic cock against my stomach. "Take that as a yes," he said. So we went to my home and he fucked me all afternoon. I called Dave and told him to get home late, past 10 p.m. Dave mockingly asked "why?" and I just said, I'm busy. Dave did ask asked, he got home very late, and meanwhile I kept fucking Kurt until about 8:30. Whenver Dave got home, he found me asleep in bed, I swear, I was so worn out. The next morning, Dave said he found my naked body in messed-up bedsheet damp from sweat and sex, the room smelling like a gym -- it was so sexy, Dave told me, he jerked off standing over me and the bed. 
+ 
+
+===
+
+Now, I meet lots of guys I instantly like, but I don't go fucking them right away. Never know who the guy really is, could be a mistake. Someone I know, like husband of a neighbor, or brother or whatever. I like being the quiet, shy Chinese housewife, not the neighborhood slut. So I usually let time pass before I try to fuck a guy. But Kurt had me so wet instantly. He was married and rarely used the gym during daytime, but his wife was on some trip so he had the day to kill. He wasn't looking to get picked up, and actually he thought I was getting pretty lonesome by blatantly hanging all over him. Finally I just told him, you're dreamy and I'm married but don't get enough cock from hubby -- a lie, but it works -- and if he wanted to come to my house and fuck me all afternoon, I wish he would. Kurt was stunned I said it, but he blinked, smiled, grabbed my ass and ground his fantastic cock against my stomach. "Take that as a yes," he said. So we went to my home and he fucked me all afternoon. I called Dave and told him to get home late, past 10 p.m. Dave mockingly asked "why?" and I just said, I'm busy. Dave did ask asked, he got home very late, and meanwhile I kept fucking Kurt until about 8:30. Whenver Dave got home, he found me asleep in bed, I swear, I was so worn out. The next morning, Dave said he found my naked body in messed-up bedsheet damp from sweat and sex, the room smelling like a gym -- it was so sexy, Dave told me, he jerked off standing over me and the bed. 
 
  Ok, I just forgot, I did fuck this guy during Christmas shopping season a couple months ago, the day I met him. Only it wasn't so good, which is why I forgot about it. I went to the mall to flirt, I put on a really fucking hot outfit, showed off my tits, lots of cleavage, and extreme short skirt. I could do that in the winter, because I had a big overcoat on, I kept it closed so no one saw what a slutty outfit I had on. Then, in stores or whatever, if I liked a guy, I'd open the coat -- show off my body, for only him to see it. I can do it casually, like I don't realize I'm doing it; but it sure gets men staring at me. They turn into babbling idiots, trying to pick me up. It's fun. So I did it with this guy, he looked kind of cute, but he was shopping alone, which was basically all I needed. When he saw my body, he couldn't take his eyes off of me, and that got me turned on so we chatted. He was single, he said, shopping for his mom and his niece he said, although I guess that sounds like he could have been married. But I was getting more horny and I let him buy me a soda, then we wound up making out in his car while he groped my tits. It was so cold outside, we were steaming the windows, we joked about it. I told him I was married but my husband liked me to fuck around. He didn't believe me at first, so I shoved my wedding ring in his face and said, "there's half the proof, why don't you just take me home and fuck me for the other half?" It wasn't really good sex, honestly; I got his phone number but never called it. I told Dave about it later that evening and Dave gave me a massive, hard fucking, and that kind of clensed me of that guy. 
 
@@ -458,7 +480,11 @@
 
  
 
- ****** Meet Claudia, A Real Slut ****** byNonStopFunGuy© I was hardly in the mood to fuck anyone, it was very strange, but I let Dave and Charisma do all the talking. Charisma did ask over drinks if this was all Dave's idea. I quickly said no, I really wanted this too, it sounded very sexy. The hooker wasn't going to say no to a payday, so up to the hotel room we went -- separately, Dave first, then me and her together. In the elevator going up, she hugged me around my shoulders and said, "Relax, you probably could enjoy this." 
+ 
+
+===
+
+I was hardly in the mood to fuck anyone, it was very strange, but I let Dave and Charisma do all the talking. Charisma did ask over drinks if this was all Dave's idea. I quickly said no, I really wanted this too, it sounded very sexy. The hooker wasn't going to say no to a payday, so up to the hotel room we went -- separately, Dave first, then me and her together. In the elevator going up, she hugged me around my shoulders and said, "Relax, you probably could enjoy this." 
 
  In the room, Dave sat on a chair as she got down to business. She stripped to her thong, and actually, I was amazed how gorgeous her body was. Then she stripped me nude, and laid me back on the bed. It was really unromantic, very antiseptic, and I was still totally nervous. She began by licking up my inner legs, up to my pussy, and by the time she got there I was starting to get aroused. Her tongue did its trick and pretty soon I was spreading wide, clutching at her long hair as she sucked my clit in her mouth. I had my first girl/girl orgasm with my clit in her mouth, with my second orgasms formed around her tongue shoved up my pussy. 
 

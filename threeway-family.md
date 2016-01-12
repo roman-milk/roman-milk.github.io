@@ -1,8 +1,14 @@
+Threeway Family
+===============
 #1 
 
  
 
- ****** Threeway Family ****** bygeronimo_appleby© This is a short incest story that was inspired by someone on lit asking about just such a scenario. Some readers may find it a little too 'unbelievable' and I'll go along with that. This is just a quick one I did on a Saturday morning, so take it as you find it and just enjoy it if incest is your thing. 
+ 
+
+===
+
+This is a short incest story that was inspired by someone on lit asking about just such a scenario. Some readers may find it a little too 'unbelievable' and I'll go along with that. This is just a quick one I did on a Saturday morning, so take it as you find it and just enjoy it if incest is your thing. 
 
  Aaron lapped at Klara's stiff little clitoris and was instantly rewarded by her moans and soft sighs of pleasure. After nearly 20 years of marriage Aaron knew exactly the right moves to make in order to have his beautiful wife squirming and writhing on his face. Klara was a very sensual and sexual woman, her long dark hair, pretty face and lush, still tightly packed body was even now capable of raising Aaron's prick by mere viewing alone. 
 
@@ -142,7 +148,11 @@
 
  
 
- ****** Threeway Family ****** bygeronimo_appleby© Klara's climax hit her with a sudden intensity, and now that there were no barriers to how vocal she could be, she cried out loudly, shouting her son's name as her climax broke. 'Jamie, oh my God Jamie. I'm coming baby, I'm coming on your tongue.' She abandoned her husband's cock as she shuddered and convulsed, her hips lifting from the bed as she pushed her mons against her son's face. She calmed down after a long moment and then pulled Jamie up along her body. She kissed him passionately, Aaron's cock juice still sticky on her lips, with her own ooze smeared across Jamie's youthful face. She was like a bitch in heat as she kissed her son deeply, her hand reaching down at the same time to steer his cock towards her burning itch. 
+ 
+
+===
+
+Klara's climax hit her with a sudden intensity, and now that there were no barriers to how vocal she could be, she cried out loudly, shouting her son's name as her climax broke. 'Jamie, oh my God Jamie. I'm coming baby, I'm coming on your tongue.' She abandoned her husband's cock as she shuddered and convulsed, her hips lifting from the bed as she pushed her mons against her son's face. She calmed down after a long moment and then pulled Jamie up along her body. She kissed him passionately, Aaron's cock juice still sticky on her lips, with her own ooze smeared across Jamie's youthful face. She was like a bitch in heat as she kissed her son deeply, her hand reaching down at the same time to steer his cock towards her burning itch. 
 
  Jamie broke away and held himself up on his hands as he slid into his mother's opening. He saw his cock disappear between her labia and slide deep into Klara, the tightness of her insides surprising him with its tight embrace. 
 

@@ -1,8 +1,14 @@
+Traci and Tina
+==============
 #1 
 
  
 
- ****** Traci and Tina ****** byJust_Plain_Bob© My wife and Tina have been as close as Siamese Twins since the first grade. They went everywhere together and did everything together all the way from grade school through college. They even lost their virginity together - Traci in the back seat and Tina in the front - on a double date at a drive-in movie. My wife's parents even looked upon Tina as a second daughter. 
+ 
+
+===
+
+My wife and Tina have been as close as Siamese Twins since the first grade. They went everywhere together and did everything together all the way from grade school through college. They even lost their virginity together - Traci in the back seat and Tina in the front - on a double date at a drive-in movie. My wife's parents even looked upon Tina as a second daughter. 
 
  Tina did not like me from the moment I met and started dating Traci and she spent a considerable amount of effort and time to try and cause Traci and I to break up. Frankly, as close as the two of them where I was surprised that Tina wasn't successful, but I guess Traci's love for me was stronger than her friendship with Tina. I thought that once Tina saw that the wedding was going to take place she would accept things and mellow out, but she didn't and I almost called the wedding off. Tina was the Maid of Honor of course, but her attitude and behavior were such that I finally told Traci that I didn't want Tina to be a part of the wedding. 
 

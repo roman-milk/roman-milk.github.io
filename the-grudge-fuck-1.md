@@ -1,8 +1,14 @@
+The Grudge Fuck
+===============
 #1 
 
  
 
- ****** The Grudge Fuck ****** byJust_Plain_Bob© The best piece of ass I've ever had -- without a doubt -- was a grudge fuck brought on by my being stupid and yes, there is a story behind it. 
+ 
+
+===
+
+The best piece of ass I've ever had -- without a doubt -- was a grudge fuck brought on by my being stupid and yes, there is a story behind it. 
 
  +++++++++++++++++++++ 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** The Grudge Fuck ****** byJust_Plain_Bob© I stood up and told them I'd see them at work the next day and I left Phil's house. 
+ 
+
+===
+
+I stood up and told them I'd see them at work the next day and I left Phil's house. 
 
  +++++++++++++++++++ 
 

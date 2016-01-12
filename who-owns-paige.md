@@ -1,8 +1,14 @@
+Who Owns Paige?
+===============
 #1 
 
  
 
- ****** Who Owns Paige? ****** byJust_Plain_Bob© Paige and I have been married for a little over twenty-five years. We are both in our mid-forties and we both work. Paige went back to work when our kids grew up more because she needed something to do than because we needed the money. We belong to the Fraternal Order Of Eagles; I bowl on Thursday nights, Paige has a woman's garden club meeting on Tuesdays and we play cards with some friends once every couple of weeks. On weekends Paige always seems to want the grand babies over so she can spoil them rotten. In short, a nice middle-aged, middle class couple that nothing exciting ever happens to. Or so it seemed. 
+ 
+
+===
+
+Paige and I have been married for a little over twenty-five years. We are both in our mid-forties and we both work. Paige went back to work when our kids grew up more because she needed something to do than because we needed the money. We belong to the Fraternal Order Of Eagles; I bowl on Thursday nights, Paige has a woman's garden club meeting on Tuesdays and we play cards with some friends once every couple of weeks. On weekends Paige always seems to want the grand babies over so she can spoil them rotten. In short, a nice middle-aged, middle class couple that nothing exciting ever happens to. Or so it seemed. 
 
  Paige may have been a slut all of her life and just didn't know it, but when the slut in her surfaced it came on like gangbusters. What was most surprising though was that for years I didn't know about it and then when I did find out, it turned out that in the end, I didn't care. 
 
@@ -108,7 +114,11 @@
 
  
 
- ****** Who Owns Paige? ****** byJust_Plain_Bob© "Does he own you now?" 
+ 
+
+===
+
+"Does he own you now?" 
 
  "I don't know. The reason he drove me home was so that when he pulls up in front tomorrow and honks his horn you can watch me walk out to him and know that he has taken me away from you. If I walk out and get in his car I guess he will own me, won't he? If I walk or don't walk is up to you." 
 

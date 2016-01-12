@@ -1,8 +1,14 @@
+The Competition
+===============
 #1 
 
  
 
- ****** The Competition ****** byJust_Plain_Bob© I slammed down the phone. The conversations with Tina were getting harder and harder. Why couldn't the woman understand that I need to make the money when it's there? These out of town jobs are just as hard on me as they are on her. I want to go home and be with her on the weekends, but I can't turn down the overtime. When this winter comes and construction slows down I'm going to need the overtime I'm making now sitting in the bank to carry us through the lean time. It's a god damned no win situation. Make the overtime now and fight with Tina because she is horny and I can't get home, or go home now and have constant fights over money when the snow flies. Shit! I can't win for losing. 
+ 
+
+===
+
+I slammed down the phone. The conversations with Tina were getting harder and harder. Why couldn't the woman understand that I need to make the money when it's there? These out of town jobs are just as hard on me as they are on her. I want to go home and be with her on the weekends, but I can't turn down the overtime. When this winter comes and construction slows down I'm going to need the overtime I'm making now sitting in the bank to carry us through the lean time. It's a god damned no win situation. Make the overtime now and fight with Tina because she is horny and I can't get home, or go home now and have constant fights over money when the snow flies. Shit! I can't win for losing. 
 
  ++++++++++++++++++ 
 

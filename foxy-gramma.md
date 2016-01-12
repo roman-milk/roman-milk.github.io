@@ -1,8 +1,14 @@
+Foxy Grandma Ch. 01
+===================
 #1 
 
  
 
- ****** Foxy Grandma Ch. 01 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story, as well as other fans for their help making this story come together. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story, as well as other fans for their help making this story come together. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  
 
@@ -146,7 +152,11 @@
 
  
 
- ****** Foxy Grandma Ch. 01 ****** byTheTalkMan© Janice had developed a taste for younger men. Could she be blamed for this? The only thing that prevented her from still having the sex she had been having for years was that her older husband's heart had crapped out. While the sex was always good, Janice realized that an older man like him couldn't quite keep up with her. He wasn't the optimal mate for her. A man that was young, full of energy, and eager to prove himself is what she needed. And her experiences with these younger men had been great, but there was something missing. Janice had noticed the young men she had been with tended to be extremely arrogant and overconfident in their skills. While they were good at what they did, they were too arrogant to let Janice run the show, so to speak. They wanted to "be the man" in the bedroom. They were too proud to admit that this "old lady" was their sexual superior. Too proud to let this "old lady" with the rocking body dominate them in the bedroom like they so deserved. Janice didn't push the subject because most of the young men she was with were too bigheaded to ever be anything more than a one night stand for her. 
+ 
+
+===
+
+Janice had developed a taste for younger men. Could she be blamed for this? The only thing that prevented her from still having the sex she had been having for years was that her older husband's heart had crapped out. While the sex was always good, Janice realized that an older man like him couldn't quite keep up with her. He wasn't the optimal mate for her. A man that was young, full of energy, and eager to prove himself is what she needed. And her experiences with these younger men had been great, but there was something missing. Janice had noticed the young men she had been with tended to be extremely arrogant and overconfident in their skills. While they were good at what they did, they were too arrogant to let Janice run the show, so to speak. They wanted to "be the man" in the bedroom. They were too proud to admit that this "old lady" was their sexual superior. Too proud to let this "old lady" with the rocking body dominate them in the bedroom like they so deserved. Janice didn't push the subject because most of the young men she was with were too bigheaded to ever be anything more than a one night stand for her. 
 
  Janice had often fantasized about going full force and dominating a man in the bedroom like she so craved. Often, when in a social setting, she would stare at the younger men preening and trying to impress those young idiotic girls. Janice fantasized about wiping the smirks off their faces, forcing them into a bedroom and showing them what a real woman can do. What a real woman is capable of. 
 
@@ -278,7 +288,11 @@
 
  
 
- ****** Foxy Grandma Ch. 01 ****** byTheTalkMan© "I'm sorry. I didn't mean to offend you." Janice said. 
+ 
+
+===
+
+"I'm sorry. I didn't mean to offend you." Janice said. 
 
  "It's okay. It's just that I don't like to think about not being with LeAnn." Danny said. 
 
@@ -424,7 +438,11 @@
 
  
 
- ****** Foxy Grandma Ch. 01 ****** byTheTalkMan© Danny's immediate reaction was to shield his eyes. He never looked at porn, and was quite repressed in many areas. He was a good boy, still a virgin. So this image was foreign territory to him. 
+ 
+
+===
+
+Danny's immediate reaction was to shield his eyes. He never looked at porn, and was quite repressed in many areas. He was a good boy, still a virgin. So this image was foreign territory to him. 
 
  He was freaked out that he had accidently looked up porn. He shut down the computer, hoping that Janice would not know somehow what he had done. 
 
@@ -616,7 +634,11 @@
 
  
 
- ****** Foxy Grandma Ch. 01 ****** byTheTalkMan© "Janice, I'm not being naïve! I love LeAnn. That won't change." Danny replied. He could see her roll her eyes. 
+ 
+
+===
+
+"Janice, I'm not being naïve! I love LeAnn. That won't change." Danny replied. He could see her roll her eyes. 
 
  "Okay, Danny. If you insist. It seems you inherited more of your mother than you should have. You're as stubborn as she is. Just don't come crying to me when it doesn't work out." Janice replied. 
 
@@ -702,7 +724,11 @@
 
  
 
- ****** Foxy Grandma Ch. 02 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story, as well as other fans for their help making this story come together. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. Also, I would like to thank my biggest fan for his help coming up with the idea and preparing this story, as well as other fans for their help making this story come together. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -858,7 +884,11 @@
 
  
 
- ****** Foxy Grandma Ch. 02 ****** byTheTalkMan© One time, while Danny was on the couch, and Janice was cleaning, she leaned over him from the front to grab something from behind him. As she did, she inadvertently shoved her breasts in his face. He realized that she had done this to him a couple of times over his stay. It must be just the way she did things. 
+ 
+
+===
+
+One time, while Danny was on the couch, and Janice was cleaning, she leaned over him from the front to grab something from behind him. As she did, she inadvertently shoved her breasts in his face. He realized that she had done this to him a couple of times over his stay. It must be just the way she did things. 
 
  Things settled into normalcy, as Janice said they would. No weird sex talk or anything like that. Just normal, regular stuff. She even allowed Danny to call home. Danny was sitting by the pool. Janice was standing in her bikini, talking to her neighbor, who she had invited over for a swim. Danny couldn't help but notice the neighbor was quite attractive as well. As with most of Janice's friends, she was about her age, and still attractive. She still looked good in a bikini. 
 
@@ -1062,7 +1092,11 @@
 
  
 
- ****** Foxy Grandma Ch. 02 ****** byTheTalkMan© Danny had his head in his hands, completely baffled. His grandmother was evil. And sick. He could never go along with her perverted incest fantasies. But he was so terrified of her at this moment. He had never been around a woman like her. He didn't know what she would do to him if he tried to resist. He decided he would just go along with her, and listen to her sick ideas as long as he could, before declining her offer. 
+ 
+
+===
+
+Danny had his head in his hands, completely baffled. His grandmother was evil. And sick. He could never go along with her perverted incest fantasies. But he was so terrified of her at this moment. He had never been around a woman like her. He didn't know what she would do to him if he tried to resist. He decided he would just go along with her, and listen to her sick ideas as long as he could, before declining her offer. 
 
  "Are you a virgin, Danny?" Janice asked. He looked at her and nodded. 
 
@@ -1212,7 +1246,11 @@
 
  
 
- ****** Foxy Grandma Ch. 02 ****** byTheTalkMan© "Thank you." Danny replied. 
+ 
+
+===
+
+"Thank you." Danny replied. 
 
  "Does the age difference bother you?" she asked. 
 
@@ -1326,7 +1364,11 @@
 
  
 
- ****** Foxy Grandma Ch. 02 ****** byTheTalkMan© "I'm, uh, I'm getting close." he warned. 
+ 
+
+===
+
+"I'm, uh, I'm getting close." he warned. 
 
  "I know." she whispered, now controlling the action as she humped against her grandson's cock. He tried to pull away but he couldn't resist the pleasure he was feeling. He started to hump against her again. Very soon, the sensation of his wet dick, soaking in his grandmother's juices, inside her tight sucking hole was driving him over the edge. Knowing he had no choice, he buried his dick all the way in her, not realizing that she was no longer forcing him against her. 
 
@@ -1486,7 +1528,11 @@
 
  
 
- ****** Foxy Grandma Ch. 02 ****** byTheTalkMan© "How could you?" LeAnn asked, near hysterics. 
+ 
+
+===
+
+"How could you?" LeAnn asked, near hysterics. 
 
  "Fuck off, bitch!" Danny said, tossing the phone away, and leaning down into his grandmother's arms. 
 

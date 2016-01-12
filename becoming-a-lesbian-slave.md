@@ -1,8 +1,14 @@
+Becoming a Lesbian Slave
+========================
 #1 
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© Summary: An older business woman is slowly dommed by a younger bitch. 
+ 
+
+===
+
+Summary: An older business woman is slowly dommed by a younger bitch. 
 
  Thanks to MAB7991 for his editing and story suggestions. 
 
@@ -276,7 +282,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© "I can't go to Hawaii," I replied, the suggestion ludicrous. 
+ 
+
+===
+
+"I can't go to Hawaii," I replied, the suggestion ludicrous. 
 
  "You can and you will," she said, her tone firm, as she stood up and slipped back into her heels. 
 
@@ -572,7 +582,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© "Lunch is served," Bao called. 
+ 
+
+===
+
+"Lunch is served," Bao called. 
 
  Grabbing a robe after I dried off, I headed back to the dining room where another crazy spread of food awaited me. 
 
@@ -884,7 +898,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© "Sorry ma'am, but Amber's instructions were very clear," Bao explained, still between my legs. Without another word, Bao returned between my legs licking me gently, slowly getting me warmed up and wet, a slow burn wake-up call. I lay back and enjoyed the gentleness surprised at just how good having my pussy licked could be. Most men I was intimate with were either terrible pussy lickers, or didn't even bother going down on me, but Bao had obviously done this before. 
+ 
+
+===
+
+"Sorry ma'am, but Amber's instructions were very clear," Bao explained, still between my legs. Without another word, Bao returned between my legs licking me gently, slowly getting me warmed up and wet, a slow burn wake-up call. I lay back and enjoyed the gentleness surprised at just how good having my pussy licked could be. Most men I was intimate with were either terrible pussy lickers, or didn't even bother going down on me, but Bao had obviously done this before. 
 
  The slow increasing build up finally came to a crashing wave after an eternity of sweet tease and I came harder than I ever had with a man. 
 
@@ -1194,7 +1212,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© Nicole looked at me apologetically, "Amber let them go." 
+ 
+
+===
+
+Nicole looked at me apologetically, "Amber let them go." 
 
  "What?" I gasped. 
 
@@ -1540,7 +1562,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© "Of course you do, you are in denial," Amber continued. "Such a cold harsh reality is hard to accept, but lucky for you I am here to help you accept it." 
+ 
+
+===
+
+"Of course you do, you are in denial," Amber continued. "Such a cold harsh reality is hard to accept, but lucky for you I am here to help you accept it." 
 
  "Oh, lucky me," I sarcastically shot back. 
 
@@ -1838,7 +1864,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© I again repeated, "I am not a slut." 
+ 
+
+===
+
+I again repeated, "I am not a slut." 
 
  "Sorry," she laughed, "Lesbian pets like you should dress like sluts underneath their business attire." 
 
@@ -2136,7 +2166,11 @@
 
  
 
- ****** Becoming a Lesbian Slave ****** bysilkstockingslover© She chuckled, opening her legs to allow me a clear view of her perfectly shaved pussy, "Beg, to please your Mistress." 
+ 
+
+===
+
+She chuckled, opening her legs to allow me a clear view of her perfectly shaved pussy, "Beg, to please your Mistress." 
 
  Her pussy so tantalizing close to me, her scent lingering teasingly, I answered, giving in yet again unconditionally, "Please Mistress Amber, may I eat your cunt." 
 

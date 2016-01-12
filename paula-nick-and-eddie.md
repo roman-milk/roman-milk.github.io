@@ -1,8 +1,14 @@
+Paula, Nick and Eddie
+=====================
 #1 
 
  
 
- ****** Paula, Nick and Eddie ****** byJust_Plain_Bob© Paula and I have been married for fifteen years now and it's been a good marriage. We have two great kids and we have a great family life. We are active in the community and the church and are fairly well known in our town. Paula is a beautiful woman who looks more like a twenty-year-old model than the thirty- six year old housewife that she is. She turns male heads wherever she goes and I long ago got used to it. For the last ten years our sex life has been good, if somewhat routine and predictable and I had no reason to think that it would ever change. Until a Friday night one month ago. 
+ 
+
+===
+
+Paula and I have been married for fifteen years now and it's been a good marriage. We have two great kids and we have a great family life. We are active in the community and the church and are fairly well known in our town. Paula is a beautiful woman who looks more like a twenty-year-old model than the thirty- six year old housewife that she is. She turns male heads wherever she goes and I long ago got used to it. For the last ten years our sex life has been good, if somewhat routine and predictable and I had no reason to think that it would ever change. Until a Friday night one month ago. 
 
  Paula and I had been invited to a party being held by some friends of ours. We were glad to get out of the house and since we knew, and more importantly, liked most of the people who would be there, we were looking forward to it. Paula looked absolutely stunning in a simple white cocktail dress that showed off her great tan and sexy legs and I would have to say that she was by far the best looking woman there that night. 
 

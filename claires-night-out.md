@@ -1,8 +1,14 @@
+Claire's Night Out
+==================
 #1 
 
  
 
- ****** Claire's Night Out ****** byJust_Plain_Bob© She spun around in front of me and asked, "How do I look?" 
+ 
+
+===
+
+She spun around in front of me and asked, "How do I look?" 
 
  "Stunningly beautiful" I replied and it was the absolute truth. She was even more beautiful than she'd been on the day I married her. My cock was rock hard and it had been for two days, but I couldn't touch her, not yet, that was the agreement. I'd watched her dressing and the slow, sensual way she had done it had me ready to climb walls, (which is why she had done it that way - she wanted me to suffer). She had turned putting on her white nylons, garter belt and four inch "fuck me" pumps into an exquisite reverse strip tease and when I'd said nothing she'd stood up and walked by me with a slow sensuous walk until she got to the bed. Turning, she had looked at me and raised an eyebrow and when I still said nothing she picked her wedding dress up off the bed and stepped into it. 
 

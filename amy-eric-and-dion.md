@@ -1,8 +1,14 @@
+Amy, Eric and Dion
+==================
 #1 
 
  
 
- ****** Amy, Eric and Dion ****** byGotBacon© Amy is 5 ft. 2 in. tall. She has blonde hair and blue eyes. She weighs 110 pounds and has C cups. She is a beauty. She is in her senior year, taking business and marketing. 
+ 
+
+===
+
+Amy is 5 ft. 2 in. tall. She has blonde hair and blue eyes. She weighs 110 pounds and has C cups. She is a beauty. She is in her senior year, taking business and marketing. 
 
  Eric is studying engineering. He is in his senior year. He is 6ft. 1 in. tall. He has brown hair and hazel eyes. He weighs 190 pounds. He us on the boxing and wrestling team. He is undefeated. He is into keeping fit. He works out the old fashioned way. He pumps iron. He carried a heavy load last year and only has two classes a week to finish his degree. 
 

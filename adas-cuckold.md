@@ -1,8 +1,14 @@
+Ada's Cuckold
+=============
 #1 
 
  
 
- ****** Ada's Cuckold ****** byJust_Plain_Bob© "Jerry?" 
+ 
+
+===
+
+"Jerry?" 
 
  "Yes dear?" "Would you come in here please?" 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Ada's Cuckold ****** byJust_Plain_Bob© I'm not totally stupid and even though it wasn't true I knew what to say, "I didn't stay through all of that shit for your money Ada. I stayed because I loved you and I hoped that whatever it was that you were doing would work it's way out of your system. I finally couldn't take it anymore. It was obvious that you didn't love me or you couldn't have done to me what you did so I did the only thing I could do and I left and I don't see any reason for me to even be talking to you now. You made your bed Ada, go lie in it and leave me alone." 
+ 
+
+===
+
+I'm not totally stupid and even though it wasn't true I knew what to say, "I didn't stay through all of that shit for your money Ada. I stayed because I loved you and I hoped that whatever it was that you were doing would work it's way out of your system. I finally couldn't take it anymore. It was obvious that you didn't love me or you couldn't have done to me what you did so I did the only thing I could do and I left and I don't see any reason for me to even be talking to you now. You made your bed Ada, go lie in it and leave me alone." 
 
  "Please Jerry, please. We can work it out, I know we can. Please Jerry, please come home with me." 
 

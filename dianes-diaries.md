@@ -1,8 +1,14 @@
+Diane's Diaries
+===============
 #1 
 
  
 
- ****** Diane's Diaries ****** byJust_Plain_Bob© I was sitting at my desk at work and looking at my co-workers. There were sixteen of us the large open area. The boss didn't like cubicles; he said that they cut down on employee interaction and he thought it inhibited productivity. I was sitting there looking at the nine men and seven women – there used to be thirteen men, but that comes later in the story – and I wondered if the men were like me and the women like my wife. What secrets were there that I couldn't see? Were the men as clueless as I had been? Were the five married women cheating on their husbands? Were the two single women spreading for some other woman's husband? What brought out that curiosity? That's the story. 
+ 
+
+===
+
+I was sitting at my desk at work and looking at my co-workers. There were sixteen of us the large open area. The boss didn't like cubicles; he said that they cut down on employee interaction and he thought it inhibited productivity. I was sitting there looking at the nine men and seven women – there used to be thirteen men, but that comes later in the story – and I wondered if the men were like me and the women like my wife. What secrets were there that I couldn't see? Were the men as clueless as I had been? Were the five married women cheating on their husbands? Were the two single women spreading for some other woman's husband? What brought out that curiosity? That's the story. 
 
  ++++++++++++++++++++++ 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Diane's Diaries ****** byJust_Plain_Bob© I looked over and saw Amos, the colored janitor watching. I'd never had a black cock before so I waved him over and told him to take it out. I opened my mouth and he put it in. I was a little disappointed. I'd always heard that black men had large cocks, but Amos's cock wasn't any bigger that Rich's and it didn't taste any different than a white cock. Rich came in me and then I had Amos take his place. He didn't fuck any different than a white man either. There was a puddle of cum on hubby's desk when I got up and I thought of leaving it there so hubby could look at it and wonder what it was, but decided not too. I gave Amos some tongue and made him promise that what we did would be our secret and that maybe some day we could do it again. 
+ 
+
+===
+
+I looked over and saw Amos, the colored janitor watching. I'd never had a black cock before so I waved him over and told him to take it out. I opened my mouth and he put it in. I was a little disappointed. I'd always heard that black men had large cocks, but Amos's cock wasn't any bigger that Rich's and it didn't taste any different than a white cock. Rich came in me and then I had Amos take his place. He didn't fuck any different than a white man either. There was a puddle of cum on hubby's desk when I got up and I thought of leaving it there so hubby could look at it and wonder what it was, but decided not too. I gave Amos some tongue and made him promise that what we did would be our secret and that maybe some day we could do it again. 
 
  When I got home hubby was in the basement working on one of his woodworking projects and I did a quick clean up job and then hubby and I went to bed and made love. I just love giving hubby used pussy and kissing him after I've had some other man's cock in my mouth and swallowed his cum. I'm just such a bad little slut." 
 
@@ -300,7 +310,11 @@
 
  
 
- ****** Diane's Diaries ****** byJust_Plain_Bob© Fortunately there was a way and Diane's freewheeling sex life would make it easy. A half hour conversation and a check for three thousand dollars got the house wired for audio and video by Absolute Investigations and then all I needed to do was wait for my next trip to visit my district. 
+ 
+
+===
+
+Fortunately there was a way and Diane's freewheeling sex life would make it easy. A half hour conversation and a check for three thousand dollars got the house wired for audio and video by Absolute Investigations and then all I needed to do was wait for my next trip to visit my district. 
 
  Diane made two trips during the wait, but I didn't get to read her diary entries. On both trips I went over to where her car was parked, but the diary wasn't there. I guess she took it on her trips with her and I had just gotten lucky that she had forgotten it the time that I found it. 
 
@@ -434,7 +448,11 @@
 
  
 
- ****** Diane's Diaries ****** byJust_Plain_Bob© Since I had gotten home early I had prepared dinner so I got up, fixed myself a plate and sat down to eat. Diane said she wasn't hungry and she got up and went up to her room. I cleaned the dishes and then sat down to watch the evening news. Still nothing on the four assholes. I watched the Discovery channel for a while and then went to bed. 
+ 
+
+===
+
+Since I had gotten home early I had prepared dinner so I got up, fixed myself a plate and sat down to eat. Diane said she wasn't hungry and she got up and went up to her room. I cleaned the dishes and then sat down to watch the evening news. Still nothing on the four assholes. I watched the Discovery channel for a while and then went to bed. 
 
  +++++++++++++++++ 
 
@@ -610,7 +628,11 @@
 
  
 
- ****** Diane's Diaries ****** byJust_Plain_Bob© "May I come in?" 
+ 
+
+===
+
+"May I come in?" 
 
  I almost said "no" but then curiosity kicked in so I stepped aside and let her in. She was carrying a box and she walked into the kitchen and sat down at the table. 
 

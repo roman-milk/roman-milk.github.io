@@ -1,8 +1,14 @@
+Sarah Wanted a Little Thrill
+============================
 #1 
 
  
 
- ****** Sarah Wanted a Little Thrill ****** byGotBacon© A quick little story about cheating and a little revenge. 
+ 
+
+===
+
+A quick little story about cheating and a little revenge. 
 
  My name is Eric Larsen. I'm 28 years old. I work for Allied Security. I've been with them for three years. I worked my up from the bottom. I watched for shoplifters, stood around at private parties, watched closed warehouses and so on. It was all pretty boring but it paid the rent. Finally I got promoted to the office. My job was assigning everyone to our clients. I tried to rotate them around so they didn't get so bored. They told me they liked that. I had about fifty employees I had to keep track of. 
 

@@ -1,8 +1,14 @@
+Lesson for the Teacher's Sub
+============================
 #1 
 
  
 
- ****** Lesson for the Teacher's Sub ****** byJs_Keeper© Author's Note: This story is one of the few I've written with a female dominant character. I hope you enjoy it. 
+ 
+
+===
+
+Author's Note: This story is one of the few I've written with a female dominant character. I hope you enjoy it. 
 
  If you take time to read the story, please take an extra minute to leave feedback or an extra second to vote. 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Lesson for the Teacher's Sub ****** byJs_Keeper© "You'd like to see what I have on under this shirt wouldn't you, slave?" she teased. 
+ 
+
+===
+
+"You'd like to see what I have on under this shirt wouldn't you, slave?" she teased. 
 
  "Yes Mistress Amanda, very much." His cock was growing noticeably harder by the second. Amanda slipped one hand inside her shirt and massaged her breasts, one at a time, with big, slow circular motions. She turned her back and pulled her shirt open. 
 

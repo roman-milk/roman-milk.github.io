@@ -1,8 +1,14 @@
+Saving Me From Helen
+====================
 #1 
 
  
 
- ****** Saving Me From Helen ****** byJust_Plain_Bob© I looked at her standing there naked except for a pair of high heels. She ran her hands over her breasts and smiled at me, "You like?" I smiled back at her, stroked my cock and said, "No, I don't like, I love." 
+ 
+
+===
+
+I looked at her standing there naked except for a pair of high heels. She ran her hands over her breasts and smiled at me, "You like?" I smiled back at her, stroked my cock and said, "No, I don't like, I love." 
 
  Oh baby, for a young man you sure do know the right things to say." 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Saving Me From Helen ****** byJust_Plain_Bob© "Come on baby, we have some catching up to do." 
+ 
+
+===
+
+"Come on baby, we have some catching up to do." 
 
  I just could not believe the sexual appetite of that woman. She was always ready, always after me to do it, "just one more time baby, please?" I got to thinking I'd like to see her with the two guys who had watched us and maybe even a half dozen more just to see if she had a limit. I was in hog heaven; a great looking woman was fucking my brains out and giving me all the sex I could handle and I didn't even have to leave the house to get it. 
 

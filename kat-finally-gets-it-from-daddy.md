@@ -1,8 +1,14 @@
+Kat Finally Gets It From Daddy
+==============================
 #1 
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© Kat kept her face forward, ostensibly staring out the car's windshield at the expanse of utterly boring scenery, but her eye strained to the side as far as she could to admire the stiff bulge of Daddy's erection in his tight gray shorts. For the last twenty minutes, at least, his prick was fully erect inside those somewhat-tight shorts, so stiff that she could easily see not only the bulbous head but even the ridge of the helmet of his cock, and some of the ribs of the thick base. Over eight inches below the head, his balls filled out another bulbous sack of his shorts. 
+ 
+
+===
+
+Kat kept her face forward, ostensibly staring out the car's windshield at the expanse of utterly boring scenery, but her eye strained to the side as far as she could to admire the stiff bulge of Daddy's erection in his tight gray shorts. For the last twenty minutes, at least, his prick was fully erect inside those somewhat-tight shorts, so stiff that she could easily see not only the bulbous head but even the ridge of the helmet of his cock, and some of the ribs of the thick base. Over eight inches below the head, his balls filled out another bulbous sack of his shorts. 
 
  The 18 year old high school senior pulled her knees up closer to her chest, wrapping her arms around her naked legs so that her bare feet pressed against her soft tushy on the passenger seat of the car. Inside her thong and shorts, she felt her vagina leaking again, aching for attention she hadn't given it in over three days. This eternal road trip to look at colleges originally sounded fun, but spending day after day after day in the car -- often driving five to ten hours at a time -- was its own maddening form of torture. 
 
@@ -96,7 +102,11 @@
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© Doing her business and wiping off, she stood to pull her thong and shorts back up. But the damp thong really needed to be changed; and her shorts, even, were perspiry. Kat immediately decided she'd get dressed, wash her hands, then go to the room and retrieve some clean panties and jeans. 
+ 
+
+===
+
+Doing her business and wiping off, she stood to pull her thong and shorts back up. But the damp thong really needed to be changed; and her shorts, even, were perspiry. Kat immediately decided she'd get dressed, wash her hands, then go to the room and retrieve some clean panties and jeans. 
 
  As she stood and bent forward, however, a twinge of lust shot from her crotch. Well, wouldn't it be more fun if, just for a moment, she wasn't wearing the thong? It was pretty wet and, frankly, disgusting. And the shorts were probably pretty smelly, too. Daddy was in the other room, maybe touching his erection, if he still had one, thinking of whatever was making him hard. She wasn't going to get near his dick or anything, but just knowing she was in the same room as it, with it hard in his pants and her wet and unclothed, seemed like a pretty sexy thought. Hard cock and wet cunt, both would love to hook up, but it wasn't allowed to happen. 
 
@@ -186,7 +196,11 @@
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© She dove back into the water, hoping that some swimming would relief the anxiety for a good fuck. 
+ 
+
+===
+
+She dove back into the water, hoping that some swimming would relief the anxiety for a good fuck. 
 
  * * * * 
 
@@ -268,7 +282,11 @@
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© Daddy carefully emptied the contents of her toiletry bag, one by one cataloging its inventory of female supplies. Kat was even embarrassed how long it took him; he traveled so light. But it gave her the chance to stand almost nude next to his fabulous figure, and she could watch his muscled chest or his nearly- flat tummy while he helped her search for the hiding bottle. And, without him seeing, she could just stare down at the roundness of his erection in his tight underwear. The huge cock hardly moved at all, it just throbbed in there while his arms and torso were moving around. Daddy's dick was unquestionably the biggest cock she'd every laid eyes on, except for maybe pictures on the Internet of young blonde women getting boned by almost inhumanly-hung black men. 
+ 
+
+===
+
+Daddy carefully emptied the contents of her toiletry bag, one by one cataloging its inventory of female supplies. Kat was even embarrassed how long it took him; he traveled so light. But it gave her the chance to stand almost nude next to his fabulous figure, and she could watch his muscled chest or his nearly- flat tummy while he helped her search for the hiding bottle. And, without him seeing, she could just stare down at the roundness of his erection in his tight underwear. The huge cock hardly moved at all, it just throbbed in there while his arms and torso were moving around. Daddy's dick was unquestionably the biggest cock she'd every laid eyes on, except for maybe pictures on the Internet of young blonde women getting boned by almost inhumanly-hung black men. 
 
  "Here, is this it?" Holding a bottle in his hand on the opposite side of his body away from his daughter, Daddy reached out to display one of the bottles he'd set out on the table. But that didn't get Kat's attention. No, it was Daddy's other hand, reaching behind her body. She felt her father's warm, strong hand come to rest on her soft teenage skin, his palm and fingertips on her nude hip, barely above her buttcheek -- below the strap of her thong. Holy shit, his hand was right there, right there. His palm was on the part of her upper butt right where it began to curve outward; and his fingers were reaching to the side, curling onto her hip, so he could feel the shape of her round muscular swimmer's ass. Three inches lower and he'd get arrested for molestation. 
 
@@ -366,7 +384,11 @@
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© Daddy's tongue touched her lips and Kat instantly opened her mouth for it. She was going to suck face with her own father, but out here in the middle of nowhere almost nude together in bed, it was the most taboo and exciting thought of the night. Daddy sunk his tongue into her mouth and probed deep, licking the walls of her cheeks and running his tongue along her tongue, as Kat closed her lips on it and sucked it like she had done with other males. Kat couldn't resist moaning when she realized how deep his tongue was, it was larger than the tongues of other males. Fuck, was wasn't small about Daddy? He kissed expertly, wrapping his tongue around hers and almost pulling her tongue into his mouth where he sucked it hard. 
+ 
+
+===
+
+Daddy's tongue touched her lips and Kat instantly opened her mouth for it. She was going to suck face with her own father, but out here in the middle of nowhere almost nude together in bed, it was the most taboo and exciting thought of the night. Daddy sunk his tongue into her mouth and probed deep, licking the walls of her cheeks and running his tongue along her tongue, as Kat closed her lips on it and sucked it like she had done with other males. Kat couldn't resist moaning when she realized how deep his tongue was, it was larger than the tongues of other males. Fuck, was wasn't small about Daddy? He kissed expertly, wrapping his tongue around hers and almost pulling her tongue into his mouth where he sucked it hard. 
 
  As he drew back from the French kiss, a thin clear bridge of saliva stretched from lip to lip, which Daddy instantly sucked up. Kat found herself smiling at her Dad with his erection in her hand, and she wondered what was next. Her pussy in her thong ached, she wanted to fuck. It was disgusting, fucking her own father, but she wanted him. She wanted that huge penis in her pussy; she wanted her father to be pleasured out of his mind. No one else had to know, and it seemed incredibly natural -- and, more importantly, fun. 
 
@@ -478,7 +500,11 @@
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© "Good," panted her father, "because your pussy is so tight, Kat, I won't be able to stop fucking it!" He pumped his dick in her several more times in silence, then asked what was on his mind. "Seriously, Kat, I'm horny all the time, when we get back home, I'll probably want to fuck you every day -- if we could get away with it I mean -- that's how horny I am for you." 
+ 
+
+===
+
+"Good," panted her father, "because your pussy is so tight, Kat, I won't be able to stop fucking it!" He pumped his dick in her several more times in silence, then asked what was on his mind. "Seriously, Kat, I'm horny all the time, when we get back home, I'll probably want to fuck you every day -- if we could get away with it I mean -- that's how horny I am for you." 
 
  "Really?" Kat smiled, knowing she wasn't weird for masturbating two or three times a day, even on school days. "Me too, you won't have to ask, just fuck me anytime Mom's not around!" 
 
@@ -616,7 +642,11 @@
 
  
 
- ****** Kat Finally Gets It From Daddy ****** byNonStopFunGuy© "Promise what?" 
+ 
+
+===
+
+"Promise what?" 
 
  "Duh!" She gave him an intentionally confused, mocking look. "If you lick it then!" 
 

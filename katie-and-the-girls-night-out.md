@@ -1,8 +1,14 @@
+Katie and the Girls Night Out
+=============================
 #1 
 
  
 
- ****** Katie and the Girls Night Out ****** byJust_Plain_Bob© I had gone through ten years of marriage believing that a "Girls Night Out" was just that - a bunch of girls getting together to get out of the house to blow off some steam. My loving wife led me to believe that on Wednesday she got together with her sister Sarah, her cousin Tina and some girls she went to school with to play cards at her sister's apartment. It turned out that "Girls Night Out" really meant "Boys Night In." 
+ 
+
+===
+
+I had gone through ten years of marriage believing that a "Girls Night Out" was just that - a bunch of girls getting together to get out of the house to blow off some steam. My loving wife led me to believe that on Wednesday she got together with her sister Sarah, her cousin Tina and some girls she went to school with to play cards at her sister's apartment. It turned out that "Girls Night Out" really meant "Boys Night In." 
 
  +++++++++++++ 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Katie and the Girls Night Out ****** byJust_Plain_Bob© "Sure you do Katie. I was watching through the curtains when you got the mail and I saw you shove a brown envelope back into the box. What is it? You don't want me to have my Ford Coupe? You going to keep the information from me until someone else has already bought it? Why don't you go out and get it Katie, and let's see what it is." 
+ 
+
+===
+
+"Sure you do Katie. I was watching through the curtains when you got the mail and I saw you shove a brown envelope back into the box. What is it? You don't want me to have my Ford Coupe? You going to keep the information from me until someone else has already bought it? Why don't you go out and get it Katie, and let's see what it is." 
 
  She gave me a dirty look, slammed the door to the dishwasher and stormed out of the room. Two minutes later she was back and the brown envelope had been ripped to pieces. She waved them at me and then tossed them into the garbage. 
 

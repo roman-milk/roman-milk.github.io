@@ -1,8 +1,14 @@
+Our First Swing: Sheri's POV
+============================
 #1 
 
  
 
- ****** Our First Swing: Sheri's POV ****** byTx_Tall_Tales© When I first read Steve's account of our first time swinging with another couple, his writing fascinated me. I wasn't aware of much of what had been going on, and had a different view of much of the action. We talked about it and he encouraged me to document the events as I saw it. This is my story. 
+ 
+
+===
+
+When I first read Steve's account of our first time swinging with another couple, his writing fascinated me. I wasn't aware of much of what had been going on, and had a different view of much of the action. We talked about it and he encouraged me to document the events as I saw it. This is my story. 
 
  * * * * 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Our First Swing: Sheri's POV ****** byTx_Tall_Tales© It really got funny when we were all down to two items. I was in my underwear, and hoping no one noticed how sopping wet I was. Lisa had on her sweatshirt and underwear, and still wasn't showing jack. Steve was down to his shirt and underwear, and Bill still had his jeans and underwear. 
+ 
+
+===
+
+It really got funny when we were all down to two items. I was in my underwear, and hoping no one noticed how sopping wet I was. Lisa had on her sweatshirt and underwear, and still wasn't showing jack. Steve was down to his shirt and underwear, and Bill still had his jeans and underwear. 
 
  Lisa won and went for the jugular. 
 
@@ -352,7 +362,11 @@
 
  
 
- ****** Our First Swing: Sheri's POV ****** byTx_Tall_Tales© I leaned back and Steve took advantage of my position, to stick his fat cock back in my mouth. I felt like a porn queen. Fucked in the ass and mouth, while my starlet friend encouraged the men who were using me. I could almost feel the cameras on me and imagined a room full of men watching me pleasure these two cocks. 
+ 
+
+===
+
+I leaned back and Steve took advantage of my position, to stick his fat cock back in my mouth. I felt like a porn queen. Fucked in the ass and mouth, while my starlet friend encouraged the men who were using me. I could almost feel the cameras on me and imagined a room full of men watching me pleasure these two cocks. 
 
  Lisa had her head next to mine, and was whispering to me, encouraging me to take Steve's cock deeper. She tilted my head back with her hands, straightening out the path down my throat. 
 
@@ -548,7 +562,11 @@
 
  
 
- ****** Our First Swing: Sheri's POV ****** byTx_Tall_Tales© I licked her once, the full length of her pussy, driving my tongue deep inside her. Her taste was so erotic, I could feel my own pussy twitching around Bill's cock as it continued to slip in and out of me. The taste was indescribable, leaving a sense of licking sweat and electricity at the same time. I was teasing her, with darting licks of my tongue, when I heard Steve announce his impending finish. I pressed my mouth down on her clit, sucking it strongly into my mouth, and slipped a finger inside her. My tongue teased her little man-in- the-boat, while I looked up to see Steve thrusting deeply into Lisa's mouth. 
+ 
+
+===
+
+I licked her once, the full length of her pussy, driving my tongue deep inside her. Her taste was so erotic, I could feel my own pussy twitching around Bill's cock as it continued to slip in and out of me. The taste was indescribable, leaving a sense of licking sweat and electricity at the same time. I was teasing her, with darting licks of my tongue, when I heard Steve announce his impending finish. I pressed my mouth down on her clit, sucking it strongly into my mouth, and slipped a finger inside her. My tongue teased her little man-in- the-boat, while I looked up to see Steve thrusting deeply into Lisa's mouth. 
 
  Bill was obviously moved by this, choosing this time to fuck me so hard, he almost made me lose my oral grip on Lisa's little treasure. Within moments he was coming as hard as Steve had and Lisa was thrashing mindlessly under me. She came hard, and a new creamy excretion filled my mouth and tingled my tongue. A little sweeter, and certainly with a lot more texture. I licked her dry. 
 

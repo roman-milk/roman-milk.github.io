@@ -1,8 +1,14 @@
+Irresistible Desires
+====================
 #1 
 
  
 
- ****** Irresistible Desires ****** bygeronimo_appleby© A second submission to the Winter Holidays contest. Thought I'd have another dabble in Gay Male, although it does slip from that category a little at the end of the piece. However, Lit being what it is, I think GM is the right place for it to find a home. 
+ 
+
+===
+
+A second submission to the Winter Holidays contest. Thought I'd have another dabble in Gay Male, although it does slip from that category a little at the end of the piece. However, Lit being what it is, I think GM is the right place for it to find a home. 
 
  Competition entries are required to be stand-alone submissions, which this one is, but I do leave it at a point where you can ponder on what the new year has in store for James. There's scope for me to add scenes to this one -- although they won't be in the GM category, and as it stands at the moment I don't have any plans to do so. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** Irresistible Desires ****** bygeronimo_appleby© However, as it always is, the trade-off is devastating. It's always the same. As the need spurts out of me the void is immediately filled with self-loathing for what I've done. I'm ashamed of and appalled at my actions and the betrayal I've visited upon my family. I'm cheating on my wife and my daughter. I'm engaged in something dirty and sordid, a dark and necessarily secret debauchery I'm powerless to resist. 
+ 
+
+===
+
+However, as it always is, the trade-off is devastating. It's always the same. As the need spurts out of me the void is immediately filled with self-loathing for what I've done. I'm ashamed of and appalled at my actions and the betrayal I've visited upon my family. I'm cheating on my wife and my daughter. I'm engaged in something dirty and sordid, a dark and necessarily secret debauchery I'm powerless to resist. 
 
  And I have tried to resist it. I've begged Simon to stop; I've even considered confessing all to Clara, but always balk in the face of her potential reaction and the devastation it would mean. 
 

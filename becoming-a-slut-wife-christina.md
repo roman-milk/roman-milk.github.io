@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Christina
+===============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Christina ****** byJust_Plain_Bob© Note from Just Plain Bob - I did not write this story, I merely copied it. Some time ago I received an email from Christina telling me how much she liked one of my stories. A week later she sent me an email commenting on another story of mine. Then she said that she wished she could write: 
+ 
+
+===
+
+Note from Just Plain Bob - I did not write this story, I merely copied it. Some time ago I received an email from Christina telling me how much she liked one of my stories. A week later she sent me an email commenting on another story of mine. Then she said that she wished she could write: 
 
  "I've turned into one of your slut wives. If I could write I could probably make a story out of how I became what my hubby calls a 'hot wife." 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina ****** byJust_Plain_Bob© We sat down on one of the couches, ordered drinks and it wasn't long before we were joined by a pair of nice guys. We sat and talked for a while and then Karen and her guy got real quiet and it was easy to see why. She and her guy were all over each other. Soon my guy and I were doing the same. Lots of passionate kisses and hands traveling all over each other and he got two fingers in my pussy and finger fucked me to an orgasm and then I took out his cock and jacked him off. I caught his cum in a cocktail napkin and put it in my purse to take home and leave somewhere where Gary would find it. Karen told me that she was going back to her guy's place for a while, and I caught a cab back to my car. 
+ 
+
+===
+
+We sat down on one of the couches, ordered drinks and it wasn't long before we were joined by a pair of nice guys. We sat and talked for a while and then Karen and her guy got real quiet and it was easy to see why. She and her guy were all over each other. Soon my guy and I were doing the same. Lots of passionate kisses and hands traveling all over each other and he got two fingers in my pussy and finger fucked me to an orgasm and then I took out his cock and jacked him off. I caught his cum in a cocktail napkin and put it in my purse to take home and leave somewhere where Gary would find it. Karen told me that she was going back to her guy's place for a while, and I caught a cab back to my car. 
 
  In two days I had done enough to keep my husband happy for an entire month. It never even occurred to me that I was getting closer and closer to the wife that Jerry really wanted. 
 
@@ -262,7 +272,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina ****** byJust_Plain_Bob© I went to push the mouths away from my breasts so I could sit up, but before I could do it another guy crawled on top of me and another cock slid into my pussy. I looked up to see Steve, a guy I worked with looking down at me. He smiled and said, "You can't possibly know how bad I've wanted to do this for the last couple of years." 
+ 
+
+===
+
+I went to push the mouths away from my breasts so I could sit up, but before I could do it another guy crawled on top of me and another cock slid into my pussy. I looked up to see Steve, a guy I worked with looking down at me. He smiled and said, "You can't possibly know how bad I've wanted to do this for the last couple of years." 
 
  Why fight it? Everyone in the room had watched me do the first guy and by now I was labeled a slut anyway. He pushed gently and entered my wet hole and then he started fucking me slowly with long, deep strokes. I lifted my ass slightly and felt him move even deeper into me. The mouths on my tits were making me moan and Steve began to pump faster and I loudly moaned as an orgasm washed over me. Steve grabbed my legs and lifted them up on his shoulders and he began to pound into me deep and hard. He slammed into me for what seemed like hours and I felt another orgasm building deep inside me and then I screamed, "OH MY GOD!" as I came harder than I could ever remember. I heard Steve gasp, "Here it comes baby" and I cried, "Give it to me, let it go, give it to me" and Steve pushed as deep in me as he could go and I felt him cum. 
 
@@ -284,7 +298,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (2) ****** byJust_Plain_Bob© Authors note: More from Christina. I've told her that she could just as well send in the story herself, but for some reason she wants me to do it. As with BASW Christina (1) all I've had to do was make some minor changes to save her from herself. She keeps putting in information that would give her away to some one who knows her and reads the story. It isn't necessary that you read BASW Christina (1) to follow along, but it might make it more interesting. 
+ 
+
+===
+
+Authors note: More from Christina. I've told her that she could just as well send in the story herself, but for some reason she wants me to do it. As with BASW Christina (1) all I've had to do was make some minor changes to save her from herself. She keeps putting in information that would give her away to some one who knows her and reads the story. It isn't necessary that you read BASW Christina (1) to follow along, but it might make it more interesting. 
 
  +++++++++++++++++++++++ 
 
@@ -486,7 +504,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (2) ****** byJust_Plain_Bob© I've never mentioned ANYTHING about him to Gary. The guys all get together to talk about grass (the green kind) and lawn tractors and snow blowers and sports and whatever, and sometimes play poker and I didn't want to mess that up for Gary by putting something like that between them. Of course if it ever got bad I would tell his wife and then I'd tell Gary and the entire neighborhood, but for now I can handle it. 
+ 
+
+===
+
+I've never mentioned ANYTHING about him to Gary. The guys all get together to talk about grass (the green kind) and lawn tractors and snow blowers and sports and whatever, and sometimes play poker and I didn't want to mess that up for Gary by putting something like that between them. Of course if it ever got bad I would tell his wife and then I'd tell Gary and the entire neighborhood, but for now I can handle it. 
 
  ++++++++++++++++++++++++++++++++ 
 
@@ -496,7 +518,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (3) ****** byJust_Plain_Bob© Author's Note: This story is a continuation of three other stories. Some time back I received an email from a fan telling me how much she liked my stories. A week later she sent me another email commenting on another story of mine. Then she said that she wished she could write: 
+ 
+
+===
+
+Author's Note: This story is a continuation of three other stories. Some time back I received an email from a fan telling me how much she liked my stories. A week later she sent me another email commenting on another story of mine. Then she said that she wished she could write: 
 
  * 
 
@@ -768,7 +794,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (3) ****** byJust_Plain_Bob© One nice thing was during one of our many breaks Matt said that I was very pretty, smart, nice and funny. "Not sexy?" I asked. He said that I was beyond sexy. He said that I was beyond sexy. He said that a guy could look at a sexy woman and enjoy the sight, but when a guy looked at me all he wanted to do was fuck me. He said Vince had said the same thing and that after we had finished in his office and left his office manager admitted that he wanted to fuck me. I told Matt he had learned well for his young age (21) and there would be many, many women in his future if he could continue to throw a line like that with a straight face. 
+ 
+
+===
+
+One nice thing was during one of our many breaks Matt said that I was very pretty, smart, nice and funny. "Not sexy?" I asked. He said that I was beyond sexy. He said that I was beyond sexy. He said that a guy could look at a sexy woman and enjoy the sight, but when a guy looked at me all he wanted to do was fuck me. He said Vince had said the same thing and that after we had finished in his office and left his office manager admitted that he wanted to fuck me. I told Matt he had learned well for his young age (21) and there would be many, many women in his future if he could continue to throw a line like that with a straight face. 
 
  The team (well, except for me) was all excited. They had such a good time that Charlie (the manager) asked them if they would like to go another eighteen the next day and the guys were all for it. As soon as the guys had left for the golf course I called Matt to ask if he was available for a repeat performance. He was and we did. Our second get together wasn't quite as frantic as the first. I started out by giving Matt a nice leisurely blow job (did I ever tell you I give great head?) and then he did his best to make me wake up anyone in a five block radius who might have been sleeping (did I tell you I was a screamer?) and then we did re-runs for the rest of the day and all night. For an old broad (well my 33 compared to his 21 did make me an "older woman") there is nothing -- absolutely nothing -- that can compare with having a young guy - an Energizer Bunny - doing his best to drive you down through the mattress over and over and over -- well, you get the picture. 
 
@@ -1020,7 +1050,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (3) ****** byJust_Plain_Bob© "Do you believe everything you hear?" 
+ 
+
+===
+
+"Do you believe everything you hear?" 
 
  "When I hear it from friends who have no axe to grind." 
 
@@ -1072,7 +1106,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (4) ****** byJust_Plain_Bob© Authors note: If you are not familiar with Christina's story I would suggest that you read chapters one through three of Becoming a Slut Wife: Christina before you read this story. As in chapter three I am simply going to take our e-mail exchange and present it. Again, as I admitted at the beginning of chapter three, the woman "owns" me and it will come through loud and clear in my e-mails to her. I do hope that my lust for the lady will not detract from her story. 
+ 
+
+===
+
+Authors note: If you are not familiar with Christina's story I would suggest that you read chapters one through three of Becoming a Slut Wife: Christina before you read this story. As in chapter three I am simply going to take our e-mail exchange and present it. Again, as I admitted at the beginning of chapter three, the woman "owns" me and it will come through loud and clear in my e-mails to her. I do hope that my lust for the lady will not detract from her story. 
 
  A brief introduction is in order before beginning this chapter. I made mention in one of my e-mails that I might be out of touch for several weeks because of my hobby. I am a Civil War history buff and a Civil War reenactor. I favor the Southern side, mostly because my ancestors on my mother's side of the family fought for the South. A professor at a local college looking for a way to spice up his lectures on the Civil War asked the local reenactment community for volunteers to give presentations to his classes and in a moment of weakness I raised my hand. This led to an ongoing stint as a guest speaker whenever the history department offered classes on the Civil War era. We pick up Christina's story at that point. 
 
@@ -1368,7 +1406,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (4) ****** byJust_Plain_Bob© "I don't have a car here. I live in those apartments across the highway. I walk to and from work." 
+ 
+
+===
+
+"I don't have a car here. I live in those apartments across the highway. I walk to and from work." 
 
  He walked me to my car and I told him to hop in and I'd run him home. When we pulled up he said: 
 
@@ -1482,7 +1524,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (5) ****** byJust_Plain_Bob© From: Christina 
+ 
+
+===
+
+From: Christina 
 
  To: Just Plain Bob 
 
@@ -1800,7 +1846,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (5) ****** byJust_Plain_Bob© I wasn't worried so much about being chased into the supply closets and stairwells, I was worried because Matt is a guy and guys talk (and don't tell me they don't). At least Karen is discrete (so far) -- probably she has more sins to hide than anyone else. 
+ 
+
+===
+
+I wasn't worried so much about being chased into the supply closets and stairwells, I was worried because Matt is a guy and guys talk (and don't tell me they don't). At least Karen is discrete (so far) -- probably she has more sins to hide than anyone else. 
 
  Whew! I feel better. 
 
@@ -1940,7 +1990,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (6) ****** byJust_Plain_Bob© Authors note: I have received many comments about the form in which Christina's story is being told. A lot do not care for my using her emails to me as the format, but they are in the minority. The comments are running four to one in favor and so I will continue to let Christina tell her own story in her own words. As a sop to those who don't like the email format I will cut down some on the use of headings and limit them to enough to identify the recipient and the date. I will also add the time if there were more than one e-mail sent on that date. I will eliminate the sign off signature since only Christina and I are involved and if the e-mail is addressed to me Christina obviously sent it. 
+ 
+
+===
+
+Authors note: I have received many comments about the form in which Christina's story is being told. A lot do not care for my using her emails to me as the format, but they are in the minority. The comments are running four to one in favor and so I will continue to let Christina tell her own story in her own words. As a sop to those who don't like the email format I will cut down some on the use of headings and limit them to enough to identify the recipient and the date. I will also add the time if there were more than one e-mail sent on that date. I will eliminate the sign off signature since only Christina and I are involved and if the e-mail is addressed to me Christina obviously sent it. 
 
  The story picks up where chapter five ended on December 10, 2006 
 
@@ -2144,7 +2198,11 @@
 
  
 
- ****** Becoming A Slut Wife: Christina (6) ****** byJust_Plain_Bob© Write when you can. I know its Christmas and things can get crazy, but I do like hearing from you. 
+ 
+
+===
+
+Write when you can. I know its Christmas and things can get crazy, but I do like hearing from you. 
 
  P.S. 
 

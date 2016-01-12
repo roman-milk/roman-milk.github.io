@@ -1,8 +1,14 @@
+A Tale of Ants and Termites
+===========================
 #1 
 
  
 
- ****** A Tale of Ants and Termites ****** byJust_Plain_Bob© God alone knows how long it might have gone on if it hadn't been for the ants. I didn't know it was ants -- I thought it was termites. 
+ 
+
+===
+
+God alone knows how long it might have gone on if it hadn't been for the ants. I didn't know it was ants -- I thought it was termites. 
 
  There was a row of bushes across the front of the house and right up against it and for ten years I had done nothing to them but trim them. One day I noticed that the head patterns of the sprinkler heads in the front yard seemed to be weak and figuring that I had a leak in the system I went looking for it. There was one head under the bushes and I got down and pushed the bushes out of the way to look at it. I noticed that the wood trim around the base of the house looked rotten and I ran a fingernail across it and a large chunk just fell away exposing what looked like burrows or little tunnels. Shit! Termites! 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** A Tale of Ants and Termites ****** byJust_Plain_Bob© I think I managed to get through the weekend without tipping Mandy off that all was not well. She didn't get a morning phone call because for the next four months I would be home in the mornings. She would either need to talk to the man on the phone in her office, on her cell or after I had gone to work. I made a mental note to ask Hal if we could put a voice activated tape recorder in her car like the one she had put into mine. 
+ 
+
+===
+
+I think I managed to get through the weekend without tipping Mandy off that all was not well. She didn't get a morning phone call because for the next four months I would be home in the mornings. She would either need to talk to the man on the phone in her office, on her cell or after I had gone to work. I made a mental note to ask Hal if we could put a voice activated tape recorder in her car like the one she had put into mine. 
 
  ++++++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -442,7 +452,11 @@
 
  
 
- ****** A Tale of Ants and Termites ****** byJust_Plain_Bob© "Yes you did. You held me and snuggled with me and I needed that." 
+ 
+
+===
+
+"Yes you did. You held me and snuggled with me and I needed that." 
 
  "Still, you got me off and I didn't reciprocate." 
 
@@ -618,7 +632,11 @@
 
  
 
- ****** A Tale of Ants and Termites ****** byJust_Plain_Bob© The deal was simple. Gaynor needed a favor and if Mandy would do it he would give her the photos and the video. The favor was an afternoon with one of his customers. She had, just had, to get those pictures and the video that went with them and given what she had already been through what was one more? One more and she would be out from under the hammer. She would still tell me what happened, but she would tone it down some - like maybe confine it to Baxter - but the big thing was that I would never see the pictures and the video. 
+ 
+
+===
+
+The deal was simple. Gaynor needed a favor and if Mandy would do it he would give her the photos and the video. The favor was an afternoon with one of his customers. She had, just had, to get those pictures and the video that went with them and given what she had already been through what was one more? One more and she would be out from under the hammer. She would still tell me what happened, but she would tone it down some - like maybe confine it to Baxter - but the big thing was that I would never see the pictures and the video. 
 
  She agreed to do the one time favor, spent the afternoon in a hotel room with his customer and Gaynor gave her the photos and the video from the cocktail party. She destroyed them and then started to work up the courage to face me and tell me about the cocktail party and what had happened. I had worked overtime that night so her confession was going to have to wait until the next day. The next day Gaynor called her and told her that he needed another favor. He had another customer who needed to be taken care of. She had laughed at him and told him no way and to forget it. He had no hold over her now that she had the photos and video. Then Gaynor told her that yes, she did have the originals, but he had copies and he also had the tape that he had made of her when she took care of his customer the previous afternoon. 
 

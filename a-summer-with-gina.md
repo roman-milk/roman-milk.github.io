@@ -1,8 +1,14 @@
+A Summer with Gina
+==================
 #1 
 
  
 
- ****** A Summer with Gina ****** bygeronimo_appleby© Here's my entry for the Summer Lovin' contest. I hope it gives some enjoyment. 
+ 
+
+===
+
+Here's my entry for the Summer Lovin' contest. I hope it gives some enjoyment. 
 
  An aging bachelor is smitten by a much younger woman after a chance encounter in the local park. Gina is a language student from Russia: gorgeous, nineteen years old and already has a local boyfriend. 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** A Summer with Gina ****** bygeronimo_appleby© I sat on the end of the bed and listened, expecting to hear the couple come upstairs. Gina had taken a look around the house the previous afternoon, and much to my delight had lingered for a cup of tea afterwards. She knew where the room allocated for her tryst was located, just along the hall from my bedroom. She also knew my room was out of bounds, so I had little concern about discovery, unless her boyfriend had ideas of snooping about the place of course. 
+ 
+
+===
+
+I sat on the end of the bed and listened, expecting to hear the couple come upstairs. Gina had taken a look around the house the previous afternoon, and much to my delight had lingered for a cup of tea afterwards. She knew where the room allocated for her tryst was located, just along the hall from my bedroom. She also knew my room was out of bounds, so I had little concern about discovery, unless her boyfriend had ideas of snooping about the place of course. 
 
  So I sat and waited, lurking in my own home, an interloper. But as the minutes passed and there were no sounds of anyone coming up the stairs I decided to risk a peep past the door. 
 
@@ -420,7 +430,11 @@
 
  
 
- ****** A Summer with Gina ****** bygeronimo_appleby© He held Gina up, supporting her completely while her feet came off the bed. In that position her decent onto the man's cock was controlled wholly by him, the girl's entire weight supported by his arms, his erection acting as a plinth upon which she was impaled. 
+ 
+
+===
+
+He held Gina up, supporting her completely while her feet came off the bed. In that position her decent onto the man's cock was controlled wholly by him, the girl's entire weight supported by his arms, his erection acting as a plinth upon which she was impaled. 
 
  From where I was I could only gape at the sight: the mollusc of Gina's fat- lipped pussy taking that rigid length. 
 
@@ -710,7 +724,11 @@
 
  
 
- ****** A Summer with Gina ****** bygeronimo_appleby© The sight and sounds got me there: a supremely healthy young woman in the unselfconscious throes of her climax. It was a physical storm, a maelstrom of sight and sound. To me, bearing witness to it was the single most erotic experience of my life -- although events in the coming weeks would be equally stimulating. 
+ 
+
+===
+
+The sight and sounds got me there: a supremely healthy young woman in the unselfconscious throes of her climax. It was a physical storm, a maelstrom of sight and sound. To me, bearing witness to it was the single most erotic experience of my life -- although events in the coming weeks would be equally stimulating. 
 
  As I watched the girl come I jacked at my cock, the surge coming from my toes. 
 
@@ -996,7 +1014,11 @@
 
  
 
- ****** A Summer with Gina ****** bygeronimo_appleby© Impressions struck me, fleeting snapshots of clarity that will stay with me forever. I took in the look on Gina's face; the sounds coming out of her; the reality of actually being inside her body. I felt the sun on my shoulders while sweat began to run down my back. 
+ 
+
+===
+
+Impressions struck me, fleeting snapshots of clarity that will stay with me forever. I took in the look on Gina's face; the sounds coming out of her; the reality of actually being inside her body. I felt the sun on my shoulders while sweat began to run down my back. 
 
  With Gina's skin getting more and more slippery against my hands I had to constantly refresh my grip on her backside, her squirming around not helping the cause while Gina leaked my earlier deposit, her own desire mixing with that goo making our conjunction a greasy slide. 
 
@@ -1240,7 +1262,11 @@
 
  
 
- ****** A Summer with Gina ****** bygeronimo_appleby© "How much spunk came out?" gasped Claire as she examined her smeared fingers. "Bloody hell," she added, jaw slack, "he's filled you to the brim with this muck." 
+ 
+
+===
+
+"How much spunk came out?" gasped Claire as she examined her smeared fingers. "Bloody hell," she added, jaw slack, "he's filled you to the brim with this muck." 
 
  Gina laughed and gurgled at Claire to lick her clitoris. She sat up, arms behind her, hands against the bed while she kept her thighs casually splayed. "Suck my pussy," she crooned. "It's my turn to come." Gina's pelvis moved back and forth, her need obvious in the tone of her voice and the yearning in her expression. "Please, Claire, do it to me. I want to come." 
 

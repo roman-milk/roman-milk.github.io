@@ -1,8 +1,14 @@
+Come and Sleep in Mummy's Bed
+=============================
 #1 
 
  
 
- ****** Come and Sleep in Mummy's Bed ****** bygeronimo_appleby© I hope this story works for you. I've looked at it and looked at it until my eyes have crossed, yet there, still, may be errors. If there are, forgive me, please. 
+ 
+
+===
+
+I hope this story works for you. I've looked at it and looked at it until my eyes have crossed, yet there, still, may be errors. If there are, forgive me, please. 
 
  Feedback is appreciated. Feedback of the constructive kind, please. What did you like? What didn't you like? What can I do in future to improve the experience for you? 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** Come and Sleep in Mummy's Bed ****** bygeronimo_appleby© Staring at the delectation between her legs, Aaron was sure he could see the cleft of her sex outlined by the near gossamer of the faded denim. 
+ 
+
+===
+
+Staring at the delectation between her legs, Aaron was sure he could see the cleft of her sex outlined by the near gossamer of the faded denim. 
 
  And so it went on. For a full two hours, while his mother, apparently innocently, went about her business attacking the flora, Aaron was tormented by frustration. It seemed that every time he looked up or returned from some errand, his mother, a single, mud-ingrained gardening glove covering one hand, secateurs at the ready in the other, and with, in an eccentric twist to her ensemble, a round-crowned, wide-brimmed straw hat on her head, was thrusting her perspiration-beaded breasts into his face. Or she’d be bent over, the cleft of her cunt chewing cloth. Aaron swore she wore no underwear beneath the shorts, while he stared, mesmerised at the long, lean muscles flexing in Ingrid’s legs as she squatted and raised, squatted and raised, intent upon her garden. 
 

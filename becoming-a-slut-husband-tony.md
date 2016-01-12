@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Tony
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Tony ****** byJust_Plain_Bob© I should have been pissed but I wasn't. I should have wanted to kill the bastard, but I didn't. I should have wanted to do a lot of things, but I found out that I just didn't care enough so I let things be. Well, that wasn't completely true. There was still a small kernel of need to get some sort of revenge and I knew I would eventually. 
+ 
+
+===
+
+I should have been pissed but I wasn't. I should have wanted to kill the bastard, but I didn't. I should have wanted to do a lot of things, but I found out that I just didn't care enough so I let things be. Well, that wasn't completely true. There was still a small kernel of need to get some sort of revenge and I knew I would eventually. 
 
  +++++++ 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Becoming A Slut Husband: Tony (2) ****** byJust_Plain_Bob© She met me at the door with an intense kiss and then she pulled me along to the bedroom. She pushed me back on the bed and fumbled with my zipper and my belt and then she pulled my pants all the way off me. Her hand took hold of my erection and she bent her head and kissed and licked the head of it before taking it into her mouth. She wrapped her lips tightly around my dick and then she gave me the blow job of dreams. She worked on my cock with her mouth and her hands played with my balls until I couldn't hold back any longer and I let it go. She swallowed every last drop and then lifted her head, smiled at me and said: 
+ 
+
+===
+
+She met me at the door with an intense kiss and then she pulled me along to the bedroom. She pushed me back on the bed and fumbled with my zipper and my belt and then she pulled my pants all the way off me. Her hand took hold of my erection and she bent her head and kissed and licked the head of it before taking it into her mouth. She wrapped her lips tightly around my dick and then she gave me the blow job of dreams. She worked on my cock with her mouth and her hands played with my balls until I couldn't hold back any longer and I let it go. She swallowed every last drop and then lifted her head, smiled at me and said: 
 
  "Did you like that?" 
 
@@ -404,7 +414,11 @@
 
  
 
- ****** Becoming A Slut Husband: Tony (3) ****** byJust_Plain_Bob© The choices I had when it came to getting back at Marie were limited. She had two good looking female cousins, but Angelina was a lesbian and so I scratched her off the list. Fiona was just recently married and she was still a starry eyed, blushing bride so apart from using a date rape drug or getting her totally drunk and taking advantage of her she was a dead end. Besides, either of those two methods might bring things to light and that was the last thing I wanted. My revenge against Marie needed to be the same as my revenge against Tom. I needed to do it and be able to smile at her knowing that I had done it and that she didn't know. After all, isn't that what she was doing to me? 
+ 
+
+===
+
+The choices I had when it came to getting back at Marie were limited. She had two good looking female cousins, but Angelina was a lesbian and so I scratched her off the list. Fiona was just recently married and she was still a starry eyed, blushing bride so apart from using a date rape drug or getting her totally drunk and taking advantage of her she was a dead end. Besides, either of those two methods might bring things to light and that was the last thing I wanted. My revenge against Marie needed to be the same as my revenge against Tom. I needed to do it and be able to smile at her knowing that I had done it and that she didn't know. After all, isn't that what she was doing to me? 
 
  Her mother was out. While Mrs. DeLuca had been a raving beauty in her younger days she had become your typical Italian-American grandmother, stout, bosomy and gray hair up in an unbecoming bun. That left only two possibilities - her sister Veronica and her sister Rosario. Rosario was married to a nice guy and I liked him well enough not to make him a cuckold. On the other hand, if I were to find out that Rosario was out slutting around all bets would be off. That left Ronnie. 
 
@@ -626,7 +640,11 @@
 
  
 
- ****** Becoming A Slut Husband: Tony (4) ****** byJust_Plain_Bob© Ronnie gave me a key and for the next two months I stopped by to see her two or three times a week on my way home from work. One evening I got there and found a note telling me that she had to do something, but I could wait she would be back in an hour. I had nothing better to do than go home to Marie and pretend to be a loving husband so I decided to wait. 
+ 
+
+===
+
+Ronnie gave me a key and for the next two months I stopped by to see her two or three times a week on my way home from work. One evening I got there and found a note telling me that she had to do something, but I could wait she would be back in an hour. I had nothing better to do than go home to Marie and pretend to be a loving husband so I decided to wait. 
 
  I was sitting at the kitchen table sipping a beer when I heard the front door open. After about five minutes when Ronnie hadn't come into the kitchen I got up to go and see where she was. I walked out of the kitchen and into the dining room and stopped in my tracks. I was looking into the living room and I saw that I wasn't the only one that Veronica had given a key. 
 

@@ -1,8 +1,14 @@
+Maude, Claude and My Wife
+=========================
 #1 
 
  
 
- ****** Maude, Claude and My Wife ****** byJust_Plain_Bob© It was my wife's birthday and for a surprise I had sent airline tickets to her best friend Maude and Maude's husband Claude. They flew in from Kansas City and I had a rental car reserved for them and they were sitting at the kitchen table when Amber got home from work. The surprise was total and Amber's grin got even bigger when I told her that I had dinner reservations made for the next evening and tickets for a play that she had been wanting to see. Then, to give Amber and Maude time to catch up on gossip, I drug Claude out to the garage to show him the 1965 Mustang I was restoring. 
+ 
+
+===
+
+It was my wife's birthday and for a surprise I had sent airline tickets to her best friend Maude and Maude's husband Claude. They flew in from Kansas City and I had a rental car reserved for them and they were sitting at the kitchen table when Amber got home from work. The surprise was total and Amber's grin got even bigger when I told her that I had dinner reservations made for the next evening and tickets for a play that she had been wanting to see. Then, to give Amber and Maude time to catch up on gossip, I drug Claude out to the garage to show him the 1965 Mustang I was restoring. 
 
  The next evening went great. The show was excellent, the dinner was marvelous, and then we headed for a local nightspot to finish off the evening with drinking and dancing. To make the night more fun for Amber I appointed myself designated driver and told the other three to cut loose and have a good time. We closed the place and then I helped all three of the happy drunks out to the car and pointed us home. 
 
@@ -68,7 +74,11 @@
 
  
 
- ****** Maude, Claude and My Wife ****** byJust_Plain_Bob© "Well since she apparently didn't tell you some things I will. Claude and Amber went steady for three years and then became engaged. Six weeks before the wedding Claude and Amber were at a party. There was a lot of drinking going on and Claude had just a little too much for his own good. He got stupid, made a pass at a girl, she took him up on it and Amber found the two of them in a room having sex. She threw her engagement ring at him and told him that she never wanted to see him again. A year went by and Claude kept trying to get her back but she wasn't having any. She said she would never be able to trust him again and that was the end of it. They did manage to become friends again, of sorts, but so far as I know Amber and Claude never had sex again until last night. I was not at all surprised when I got up last night to use the bathroom to see that he was in your bedroom fucking Amber. That has always been Claude's major problem - he lets his dick do his thinking for him. It must be something to do with the size of his cock; it drains so much blood from his brain that he can't think straight. Anyway, if I know Claude, and believe me, I do, he took advantage of her being asleep to climb into bed with her. Maybe it was his way of getting back at her for dumping him. That she responded to Claude when she woke up is not surprising since Claude is exceptionally well endowed. What you heard her say was probably true, she probably did miss the feeling of having his cock in her. Christ, I miss it when I go more than two days without it. All I'm saying here is don't do anything drastic. I'm sure that once it happened she did enjoy it, but I'm still betting she had nothing to do with starting it." 
+ 
+
+===
+
+"Well since she apparently didn't tell you some things I will. Claude and Amber went steady for three years and then became engaged. Six weeks before the wedding Claude and Amber were at a party. There was a lot of drinking going on and Claude had just a little too much for his own good. He got stupid, made a pass at a girl, she took him up on it and Amber found the two of them in a room having sex. She threw her engagement ring at him and told him that she never wanted to see him again. A year went by and Claude kept trying to get her back but she wasn't having any. She said she would never be able to trust him again and that was the end of it. They did manage to become friends again, of sorts, but so far as I know Amber and Claude never had sex again until last night. I was not at all surprised when I got up last night to use the bathroom to see that he was in your bedroom fucking Amber. That has always been Claude's major problem - he lets his dick do his thinking for him. It must be something to do with the size of his cock; it drains so much blood from his brain that he can't think straight. Anyway, if I know Claude, and believe me, I do, he took advantage of her being asleep to climb into bed with her. Maybe it was his way of getting back at her for dumping him. That she responded to Claude when she woke up is not surprising since Claude is exceptionally well endowed. What you heard her say was probably true, she probably did miss the feeling of having his cock in her. Christ, I miss it when I go more than two days without it. All I'm saying here is don't do anything drastic. I'm sure that once it happened she did enjoy it, but I'm still betting she had nothing to do with starting it." 
 
  "You seem to be taking this rather calmly. Does Claude do things like this often?" 
 

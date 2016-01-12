@@ -1,8 +1,14 @@
+Swimming with Carrie
+====================
 #1 
 
  
 
- ****** Swimming with Carrie ****** bygeronimo_appleby© ONE 
+ 
+
+===
+
+ONE 
 
  AN ILL-DEFINED QUALITY, something in her expression unsettled him. Despite the differences in their ages the girl was disturbing, made him feel distinctly uneasy. A hint of a smirk lifted the corner of her mouth while her pale-green, penetrating eyes bored into his and gave the impression of being able to recognise every dirty, sordid thought that had ever crossed his mind. He didn't know her well; they'd never been close while she was growing up. She was his brother's daughter. 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Swimming with Carrie ****** bygeronimo_appleby© Reeling with the effects of beer, the sight of Carrie's surprisingly substantial labia, and the mention of a mysterious gift, Patrick mindlessly picked up the cans and dropped them into the recycling bin before weaving his way up the stairs to his room. 
+ 
+
+===
+
+Reeling with the effects of beer, the sight of Carrie's surprisingly substantial labia, and the mention of a mysterious gift, Patrick mindlessly picked up the cans and dropped them into the recycling bin before weaving his way up the stairs to his room. 
 
  There, like an accusation, sitting on his pillow after he turned on the light, was the dirty magazine he'd spoiled earlier in the day. 
 
@@ -278,7 +288,11 @@
 
  
 
- ****** Swimming with Carrie ****** bygeronimo_appleby© "That sounds lovely," Carrie murmured. 
+ 
+
+===
+
+"That sounds lovely," Carrie murmured. 
 
  "Want to come with me?" He was only half joking. 
 

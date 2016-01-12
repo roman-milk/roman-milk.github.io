@@ -1,8 +1,14 @@
+Mrs Stone Teases
+================
 #1 
 
  
 
- ****** Mrs Stone Teases ****** bygeronimo_appleby© Okey-dokey, here's my Nude Day contest entry. 
+ 
+
+===
+
+Okey-dokey, here's my Nude Day contest entry. 
 
  It's a theme I've been messing with for a few weeks after finding a thread on Lit dealing with the attraction of married ladies displaying their wedding rings in a variety of inappropriate scenarios. 
 
@@ -272,7 +278,11 @@
 
  
 
- ****** Mrs Stone Teases ****** bygeronimo_appleby© Okay, so why is there a cold patch of pre-cum in your boxers? 
+ 
+
+===
+
+Okay, so why is there a cold patch of pre-cum in your boxers? 
 
  David shoved that thought aside. "Whatever," he said out loud, waving an impatient hand. "It didn't happen ... And there's no way I'm Skyping you either, Mrs-fucking-Stone." 
 

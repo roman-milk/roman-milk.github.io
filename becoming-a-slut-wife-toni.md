@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Toni
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Toni ****** byJust_Plain_Bob© Rob 
+ 
+
+===
+
+Rob 
 
  When it was my turn I stepped up to the teller's window and slid the deposit slip and the check to the girl behind the counter. As she was doing what tellers do I asked her to give me the balance on the account. She pushed some buttons on the computer, looked at the screen, wrote some numbers down on a slip of paper and pushed it across the counter to me. I looked at it and pushed it back at her. 
 
@@ -214,4 +220,8 @@
 
  
 
- ****** Becoming A Slut Wife: Toni ****** byJust_Plain_Bob© However, what she did do for me did make a relationship possible. She didn't move back to her hometown. She bought a two-bedroom condo on the other side of town and we date from time to time, mostly when she needs to get laid and calls me. She says there will never be another man in her life and she will wait for me to get over my hurt and realize that we are meant to be together. It is never going to happen. I do love her and I would love to be with her, but I could not and will not spend the rest of my life wondering if she was being true to me or not. Regardless of what she said and did to prove that she was mine alone, the doubt would always be there and I just could not live like that. Report_Story 
+ 
+
+===
+
+However, what she did do for me did make a relationship possible. She didn't move back to her hometown. She bought a two-bedroom condo on the other side of town and we date from time to time, mostly when she needs to get laid and calls me. She says there will never be another man in her life and she will wait for me to get over my hurt and realize that we are meant to be together. It is never going to happen. I do love her and I would love to be with her, but I could not and will not spend the rest of my life wondering if she was being true to me or not. Regardless of what she said and did to prove that she was mine alone, the doubt would always be there and I just could not live like that. Report_Story 

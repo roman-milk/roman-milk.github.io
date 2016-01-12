@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Rob
+============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Rob ****** byJust_Plain_Bob© It had been a long, hard, but very satisfying evening. It had started out with one hell of a good blow job, followed by my eating a baby smooth bald pussy and then a hot fuck session. We then eased into a sixty-nine until I was hard again and then she mounted me and rode me reverse cowgirl until we both came. A short break to catch our breath was followed some more sixty-nine and then one more hot, hard fuck before it was time for me to go. 
+ 
+
+===
+
+It had been a long, hard, but very satisfying evening. It had started out with one hell of a good blow job, followed by my eating a baby smooth bald pussy and then a hot fuck session. We then eased into a sixty-nine until I was hard again and then she mounted me and rode me reverse cowgirl until we both came. A short break to catch our breath was followed some more sixty-nine and then one more hot, hard fuck before it was time for me to go. 
 
  In the afterglow of sexual exhaustion Stella said, "Jesus, a body would think that you never got any at home the way you go after me when we are alone." 
 
@@ -184,7 +190,11 @@
 
  
 
- ****** Becoming A Slut Husband: Rob ****** byJust_Plain_Bob© "Isn't that what you wanted?" 
+ 
+
+===
+
+"Isn't that what you wanted?" 
 
  "Oh God no Hillary, that is the last thing I want. I don't ever want to see him hurt Hill, I love him." 
 

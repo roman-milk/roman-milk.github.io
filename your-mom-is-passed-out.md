@@ -1,18 +1,7 @@
-#1 
+Your Mom is Passed Out?
+=======================
 
- 
-
- ****** &quot;Your Mom is Passed Out?&quot; ****** byTx_Tall_Tales© ============== 
-
- This story is part of the 2011 Summer Lovin' Contest. 
-
- It's a little out there, and might not be for everyone, or anyone. There's some Non-Consent (or worse), incest, non-PC dialog, and over the top performances. But it's all in fun, really. It's just a story. 
-
- Right? 
-
- ============== 
-
- It was funny how over the summer my friends changed. With school out, the neighborhood became more important than the sports and popularity cliques, and this year it meant hanging out with Jerry Mallory more. Something I would NEVER do in school. He was a nerd and outcast, but he had his own group of weirdo gamers to hang out with, birds-of-a-feather and all that. 
+It was funny how over the summer my friends changed. With school out, the neighborhood became more important than the sports and popularity cliques, and this year it meant hanging out with Jerry Mallory more. Something I would NEVER do in school. He was a nerd and outcast, but he had his own group of weirdo gamers to hang out with, birds-of-a-feather and all that. 
 
  During the summer break, Jerry had 5 things going for him which hadn't really mattered much before, and were now changing my opinion of him as a friend. 
 
@@ -218,7 +207,11 @@
 
  
 
- ****** &quot;Your Mom is Passed Out?&quot; ****** byTx_Tall_Tales© "Danielle?" he asked, his hand tugging on her nipple. 
+ 
+
+===
+
+"Danielle?" he asked, his hand tugging on her nipple. 
 
  "Fuck yeah, it's definitely Danielle. Haughty, snooty, bitchy Danielle, unconscious and daring you to do something about it. Are you man enough to give Danielle what she so badly needs? Are you, Jer?" 
 
@@ -440,7 +433,11 @@
 
  
 
- ****** &quot;Your Mom is Passed Out?&quot; ****** byTx_Tall_Tales© "Watch out, Jerry. I'm going to turn her over." 
+ 
+
+===
+
+"Watch out, Jerry. I'm going to turn her over." 
 
  "Maybe we should give it a break." 
 
@@ -678,7 +675,11 @@
 
  
 
- ****** &quot;Your Mom is Passed Out?&quot; ****** byTx_Tall_Tales© She shook her head. "I guess that part is almost reasonable. She's a walking wet-dream." 
+ 
+
+===
+
+She shook her head. "I guess that part is almost reasonable. She's a walking wet-dream." 
 
  "A weak imitiation. A shadow. A dim one at that, compared to you." My hand had wandered down to her hips, caressing her, my fingers sliding across her alabaster ass. 
 
@@ -1022,7 +1023,11 @@
 
  
 
- ****** &quot;Your Mom is Passed Out?&quot; ****** byTx_Tall_Tales© "Yes ma'am," we answered in chorus. 
+ 
+
+===
+
+"Yes ma'am," we answered in chorus. 
 
  "I'm gonna take a long hot bath, and I imagine your family's probably wondering about you, Alex." 
 

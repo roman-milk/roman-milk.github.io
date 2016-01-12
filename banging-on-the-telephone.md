@@ -1,8 +1,14 @@
+Banging on the Telephone
+========================
 #1 
 
  
 
- ****** Banging on the Telephone ****** bygeronimo_appleby© Helen picked up the phone with a tut of annoyance. How was she meant to work with these distractions? 'Yes?' she said abruptly, and then the mask of her irritation slipped away when she heard her boyfriend's voice. 'Baby!' she purred, 'how are you, how was the flight? 
+ 
+
+===
+
+Helen picked up the phone with a tut of annoyance. How was she meant to work with these distractions? 'Yes?' she said abruptly, and then the mask of her irritation slipped away when she heard her boyfriend's voice. 'Baby!' she purred, 'how are you, how was the flight? 
 
  'Yeah, I'm fine, it was fine, everything's fine.' Jamie's amusement was evident in his tone. 'I'm all alone, here in the hotel, and I was just... you know, thinking of you.' His voice dropped lower as he continued, 'And I was feeling a bit sexual, you know how I am, and I was just looking at our special photos.' His voice changed to a whisper, 'You know the ones.' 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Banging on the Telephone ****** bygeronimo_appleby© 'He he,' Jamie chuckled. 'Sounds like we're going to have fun when I get back,' then, just as Richard was pushing the head of his cock into the centre of Helen's opening Jamie finished off the conversation. 'I'd better let you get back to work, thanks for the dirty talk babe, and set up a night with Richard, Ok?' 
+ 
+
+===
+
+'He he,' Jamie chuckled. 'Sounds like we're going to have fun when I get back,' then, just as Richard was pushing the head of his cock into the centre of Helen's opening Jamie finished off the conversation. 'I'd better let you get back to work, thanks for the dirty talk babe, and set up a night with Richard, Ok?' 
 
  'Ok honey,' Helen tried to speak normally but finding it difficult as Richard was just then stretching her pussy open with his cock. 'Glad you had fun, Ciao.' 
 

@@ -1,8 +1,14 @@
+Something... Talk About in Tx Ch. 01
+====================================
 #1 
 
  
 
- ****** Something... Talk About in Tx Ch. 01 ****** byTx_Tall_Tales© Follow up to Nici's cheating wife story. 
+ 
+
+===
+
+Follow up to Nici's cheating wife story. 
 
  This is part one of a two part finish. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 01 ****** byTx_Tall_Tales© "Got it. Now you're 'in love' with him. I understand. Thank you for that. Anything else you want to say, maybe you'd like to open my chest, tear my heart out and dance on it? Please, tell me how I'm inadequate, how I can't fulfill your needs, how I deserve to be treated like scum. I'm sure you've practiced lots of pointed little barbs to hurt me as much as you can. Have the whole damn conversation planned like the one you ambushed me with last night." 
+ 
+
+===
+
+"Got it. Now you're 'in love' with him. I understand. Thank you for that. Anything else you want to say, maybe you'd like to open my chest, tear my heart out and dance on it? Please, tell me how I'm inadequate, how I can't fulfill your needs, how I deserve to be treated like scum. I'm sure you've practiced lots of pointed little barbs to hurt me as much as you can. Have the whole damn conversation planned like the one you ambushed me with last night." 
 
  "No, Jonathan. I don't want to hurt you. I love you. You're my husband, the father of my children. My soul-mate. I'll always love you. I just need to be there for him. Can't you understand? This is important to me. To us." 
 
@@ -410,7 +420,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 01 ****** byTx_Tall_Tales© He slept in the following morning, stood in front of the mirror, and cleaned up. He shaved his head, carefully checking for any rough spots, then applied the aftershave lotion. He trimmed his beard where it was coming in, neatening it. He almost didn't recognize the man in the mirror. 
+ 
+
+===
+
+He slept in the following morning, stood in front of the mirror, and cleaned up. He shaved his head, carefully checking for any rough spots, then applied the aftershave lotion. He trimmed his beard where it was coming in, neatening it. He almost didn't recognize the man in the mirror. 
 
  Jonathan pulled into his driveway a little after noon. His wife's car was there, so he girded himself for battle. Walking into the house, the kids saw him first and swarmed him. 
 
@@ -696,7 +710,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 01 ****** byTx_Tall_Tales© "I can see how that could happen. Everyone needs to feel good about themselves. I had hoped that being a wonderful mother and terrific wife would have filled that need. I understand you weren't getting the feedback from us, that you were from him." Jonathan was finding it harder to keep up the act. Doing nothing wrong! Then why did she hide it for a year? 
+ 
+
+===
+
+"I can see how that could happen. Everyone needs to feel good about themselves. I had hoped that being a wonderful mother and terrific wife would have filled that need. I understand you weren't getting the feedback from us, that you were from him." Jonathan was finding it harder to keep up the act. Doing nothing wrong! Then why did she hide it for a year? 
 
  She had finished her wine, and Jonathan refilled her glass. She took a long sip gratefully. "It happened so fast, I wasn't ready for it. Things went slowly at first. Some phone calls, a few lunch meetings or having a coffee together. We talked. Talked like you and I didn't anymore. He was easy to talk to. He wanted to go to dinner, but I couldn't. I was a married woman. There's a difference between a lunch and a dinner. I offered to cook him a meal. It was a little weird at first, in a strange kitchen, not knowing where anything was. A little exciting if I'm honest. I still had no romantic feelings, he was just a friend." 
 
@@ -768,7 +786,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 02 ****** byTx_Tall_Tales© ================================== 
+ 
+
+===
+
+================================== 
 
  There's a Price to Pay for blatant infidelity. 
 
@@ -1062,7 +1084,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 02 ****** byTx_Tall_Tales© She sobbed, "Do you? Do you love me, Jonathan?" 
+ 
+
+===
+
+She sobbed, "Do you? Do you love me, Jonathan?" 
 
  His leg moved between hers, spreading her open, and he was rubbing her pussy softly. His finger glided up and down her moist channel, before sliding inward. "I've always loved you, baby." His lips moved across her neck, nipping gently. 
 
@@ -1394,7 +1420,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 02 ****** byTx_Tall_Tales© It took a good bit to get her where he needed. Two ropes around her neck, and an hour of battle had her wearied to the point where it seemed he might safely approach her. A job better handled by two, but they were short that day. He could handle it. 
+ 
+
+===
+
+It took a good bit to get her where he needed. Two ropes around her neck, and an hour of battle had her wearied to the point where it seemed he might safely approach her. A job better handled by two, but they were short that day. He could handle it. 
 
  Miguel found him there, treating the cut on her leg, moving closer slowly. Didn't want to spook her. 
 
@@ -1656,7 +1686,11 @@
 
  
 
- ****** Something... Talk About in Tx Ch. 02 ****** byTx_Tall_Tales© "You don't know?" Jonathan asked, concern on his face. 
+ 
+
+===
+
+"You don't know?" Jonathan asked, concern on his face. 
 
  "Know what?" 
 

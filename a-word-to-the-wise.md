@@ -1,8 +1,14 @@
+A Word to the Wise
+==================
 #1 
 
  
 
- ****** A Word to the Wise ****** byJust_Plain_Bob© I am writing this to warn all of you husbands out there that fantasy is one thing, but reality is something else altogether. Stop and think before you destroy your marriage trying to make a fantasy a reality. You may think that you want your wife to be what some call a 'hot wife' but take it from some one who learned a very hard lesson. 
+ 
+
+===
+
+I am writing this to warn all of you husbands out there that fantasy is one thing, but reality is something else altogether. Stop and think before you destroy your marriage trying to make a fantasy a reality. You may think that you want your wife to be what some call a 'hot wife' but take it from some one who learned a very hard lesson. 
 
  No; I am not one of you. I am not the husband of a hot wife. 
 

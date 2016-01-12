@@ -1,8 +1,14 @@
+Angela
+======
 #1 
 
  
 
- ****** Angela ****** bygeronimo_appleby© It was because of Angela that my predilection for mature women was formed. Perhaps it was also due in part to the significance of the date, 18th of February 1982, my eighteenth birthday. After all losing your virginity to a woman twenty three years your senior is bound to have a profound and ever lasting affect. 
+ 
+
+===
+
+It was because of Angela that my predilection for mature women was formed. Perhaps it was also due in part to the significance of the date, 18th of February 1982, my eighteenth birthday. After all losing your virginity to a woman twenty three years your senior is bound to have a profound and ever lasting affect. 
 
  I was living in a fairly remote coastal town in Western Australia at that time; a builder's labourer having just left high school with not much of an idea of what I wanted to do with the future. It was a time of no responsibilities and of not having much of a care in the world. 
 

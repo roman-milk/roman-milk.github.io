@@ -1,8 +1,14 @@
+Dickie Gets Even Ch. 01
+=======================
 #1 
 
  
 
- ****** Dickie Gets Even Ch. 01 ****** byJust_Plain_Bob© It started in third grade during a dodge ball game. I managed to hit Dickie Moore a pretty good lick and after that he became my very own personal nemesis. In that grade and at that age I had no idea what a class bully was, but Dickie was one. That afternoon on the way home from school I found him waiting for me. I had no idea what was coming; after all, Dickie was not only my classmate, he was my neighbor so when he walked up to me and without a word punched me in the face it came as a total surprise. Then he pushed me down to the ground, kicked me once and said, "That's for hitting me with the ball." He walked away and I got up and ran home crying. 
+ 
+
+===
+
+It started in third grade during a dodge ball game. I managed to hit Dickie Moore a pretty good lick and after that he became my very own personal nemesis. In that grade and at that age I had no idea what a class bully was, but Dickie was one. That afternoon on the way home from school I found him waiting for me. I had no idea what was coming; after all, Dickie was not only my classmate, he was my neighbor so when he walked up to me and without a word punched me in the face it came as a total surprise. Then he pushed me down to the ground, kicked me once and said, "That's for hitting me with the ball." He walked away and I got up and ran home crying. 
 
  My nose had bled all over my shirt and I was still crying when I got home and my mother wanted to know what has happened and I told her. That night I heard her and dad talking about it in the kitchen. Mom wanted dad to go over to the Moore's and have words with Mr. Moore "about that little brat of his." Dad listened to what mom had to say and then he said, "Maude, you know that ain't my way." 
 
@@ -126,7 +132,11 @@
 
  
 
- ****** Dickie Gets Even Ch. 02 ****** byJust_Plain_Bob© Authors note: This story is not stand alone. To understand where it is coming from you need to read Dickie Gets Even. There is some sex, but it is not really a stroke story, but a tale of revenge. 
+ 
+
+===
+
+Authors note: This story is not stand alone. To understand where it is coming from you need to read Dickie Gets Even. There is some sex, but it is not really a stroke story, but a tale of revenge. 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

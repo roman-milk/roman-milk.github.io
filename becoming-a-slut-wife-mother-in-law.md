@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mother In Law
+===================================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mother In Law ****** byJust_Plain_Bob© It is one of the facts of my life that for every good thing I do I also do something bad. I don't know why this is, but it seems to be a part of my karma - something to keep everything in balance. A case in point is what I did for Jimmy Olsen and what I did to my mother-in-law. 
+ 
+
+===
+
+It is one of the facts of my life that for every good thing I do I also do something bad. I don't know why this is, but it seems to be a part of my karma - something to keep everything in balance. A case in point is what I did for Jimmy Olsen and what I did to my mother-in-law. 
 
  Jimmy was one of my prize students. He was All State as a quarterback and a short stop. He was National Honor Society academically and he was one of the most popular boys in school. He had the rugged good looks that had all the girls wanting to go steady with him and he was smart enough, at least in my estimation, to give all of them a chance. The last thing that Jimmy needed was to get emotionally involved at this early stage in his life. I'd seen more than one lad with a brilliant future ahead of him end up pumping gas after hooking up with some empty headed bimbo with big boobs. 
 

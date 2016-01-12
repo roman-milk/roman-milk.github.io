@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Ericka
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Ericka ****** byJust_Plain_Bob© Like so many people in the National Guard I had joined for the educational opportunities and that little extra bit of cash you got each month. Wanting to be a computer technician and being from a perpetually cash strapped family with no chance at college I jumped at the chance to get the computer training that the Guard offered. 
+ 
+
+===
+
+Like so many people in the National Guard I had joined for the educational opportunities and that little extra bit of cash you got each month. Wanting to be a computer technician and being from a perpetually cash strapped family with no chance at college I jumped at the chance to get the computer training that the Guard offered. 
 
  Going to war was the last thing on my mind. 
 

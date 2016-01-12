@@ -1,8 +1,14 @@
+Vonda's Scoreboard
+==================
 #1 
 
  
 
- ****** Vonda's Scoreboard ****** byJust_Plain_Bob© She was a slut when I married her. All the signs were there; I was just too lost in love (or lust) to have paid any attention. Well, I know now, oh boy do I know now! 
+ 
+
+===
+
+She was a slut when I married her. All the signs were there; I was just too lost in love (or lust) to have paid any attention. Well, I know now, oh boy do I know now! 
 
  I met Vonda at the public library. She was a volunteer worker and donated her time two or three days a week. Sometimes she worked the checkout counter, sometimes she worked in the back cataloging, but usually I saw her stocking the shelves with new or returned books. I was in the library on the average of twice a week and I had noticed her; hell, what wasn't to notice - long hair down to her waist, beautiful face and tits to die for. She was very easy on the eyes and I began to look for her on my visits. I doubt very much that I would have ever spoken to her, but for some disarranged clothing. I was browsing the shelves one-day while she was restocking books. She was bending over putting books on the lower shelf and her top had pulled up exposing part of a tattoo that was on her lower back. "That's not fair," I said to her and she looked around, "Are you speaking to me?" 
 

@@ -1,8 +1,14 @@
+The Helen Chronicles Ch. 01
+===========================
 #1 
 
  
 
- ****** The Helen Chronicles Ch. 01 ****** byJust_Plain_Bob© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  A while back I wrote The Dark Trilogy, three stories that reflected my feelings toward my first wife even though she has been out of my life for over thirty years. I received a lot of feedback asking me what in the world she could have done to me to cause that much rage and for me to still feel that strongly thirty years later. 
 
@@ -178,11 +184,19 @@
 
  
 
- ****** The Helen Chronicles Ch. 01 ****** byJust_Plain_Bob© To be continued...  
+ 
+
+===
+
+To be continued...  
 
  
 
- ****** The Helen Chronicles Ch. 02 ****** byJust_Plain_Bob© The Cop. 
+ 
+
+===
+
+The Cop. 
 
  About a year after my divorce from Helen was final I was sitting in a crowded restaurant in Ann Arbor having dinner when a voice said, "Hello stranger" and I looked up to see Linda Fenlander. 
 
@@ -378,7 +392,11 @@
 
  
 
- ****** The Helen Chronicles Ch. 03 ****** byJust_Plain_Bob© I found out about the Hamburger Man from the Hamburger Man himself. 
+ 
+
+===
+
+I found out about the Hamburger Man from the Hamburger Man himself. 
 
  +++++ 
 
@@ -466,7 +484,11 @@
 
  
 
- ****** The Helen Chronicles Ch. 04 ****** byJust_Plain_Bob© The Cousin/Best Friend 
+ 
+
+===
+
+The Cousin/Best Friend 
 
  I know it is the clich‚ of all cliches, but it became a clich‚ because it happens so often. I came home from work early one night and found out the truth about the woman I had married. I normally didn't get home from work until one in the morning, but on that particular night I had cut my arm pretty bad while trying to solve a problem with one of the stamping machines. I had gone to the clinic and they put four stitches in my arm, gave me some pain pills and told me to go home. 
 
@@ -550,7 +572,11 @@
 
  
 
- ****** The Helen Chronicles Ch. 05 ****** byJust_Plain_Bob© The Bartender 
+ 
+
+===
+
+The Bartender 
 
  The last of Helen's lovers that I know about for sure was Richard Barton. Rich was the first of the three men I saw on film to shove his shit covered cock into Helen's mouth and make her clean it off. That act alone kept me from hurting him too bad when I went to pay him a call. 
 

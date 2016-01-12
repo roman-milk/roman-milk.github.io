@@ -1,8 +1,14 @@
+Apartment 3B Ch. 01
+===================
 #1 
 
  
 
- ****** Apartment 3B Ch. 01 ****** byJust_Plain_Bob© I looked at her on the other side of the table and realized that she had not changed a bit in the year since I had last seen her. I saw her looking me over and wondered what she was thinking. I had honestly never expected to see her again. 
+ 
+
+===
+
+I looked at her on the other side of the table and realized that she had not changed a bit in the year since I had last seen her. I saw her looking me over and wondered what she was thinking. I had honestly never expected to see her again. 
 
  I had checked into the motel three hours before and then had gone to the attached restaurant to get a bite to eat. I was sitting in a booth going over my schedule for the coming week when someone slid onto the seat across from me and said: 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Apartment 3B Ch. 01 ****** byJust_Plain_Bob© "None of that matters now. What dad didn't tell me was that he was going to use his contacts to find out if Nick was cheating on me and he found out that Nick was." 
+ 
+
+===
+
+"None of that matters now. What dad didn't tell me was that he was going to use his contacts to find out if Nick was cheating on me and he found out that Nick was." 
 
  "So what does that have to do with me?" 
 
@@ -348,7 +358,11 @@
 
  
 
- ****** Apartment 3B Ch. 02 ****** byJust_Plain_Bob© For the next two years Kirby and I kept up our off again on again relationship. Sometimes Nick would be home the entire time I was there and Kirby and I wouldn't connect. 
+ 
+
+===
+
+For the next two years Kirby and I kept up our off again on again relationship. Sometimes Nick would be home the entire time I was there and Kirby and I wouldn't connect. 
 
  Somewhere along the way it occurred to me that Kirby and Carol were carbon copies of each other and I began to wonder if Carol was doing it for the same reason Kirby was. I don't mean cheating on me because I was cheating on her because until Kirby I never had. But was she with Monroe because she was just too horny when I was on the road? Was she telling Jason what Kirby was telling me? That she loved her husband, but had to have a sexual outlet when I wasn't there? 
 
@@ -612,7 +626,11 @@
 
  
 
- ****** Apartment 3B Ch. 02 ****** byJust_Plain_Bob© "I don't understand that." 
+ 
+
+===
+
+"I don't understand that." 
 
  "Someone had to tell him about Kirby and me and then he went after her and came after me. If I give Kirby a shoulder to lean on that same someone will tell him that Kirby and I are back to seeing each other and Nick has already shown what he is capable of. If she gets rid of the asshole I'm here for her, but as long as she is with him I'm not even going to talk to her." 
 
@@ -816,7 +834,11 @@
 
  
 
- ****** Apartment 3B Ch. 02 ****** byJust_Plain_Bob© She looked at me in silence for several long moments and then said, "You said that if I played you would and a minute ago you said that if you played it could be dangerous. What did you mean by that?" 
+ 
+
+===
+
+She looked at me in silence for several long moments and then said, "You said that if I played you would and a minute ago you said that if you played it could be dangerous. What did you mean by that?" 
 
  "I meant what I said when I told you that I had never been unfaithful until I found out that you were. Once I decided that you didn't love me any more and that our marriage was over I started looking and I met a lady that I thought was kind of special. I was seeing her on almost every trip I took to California." 
 

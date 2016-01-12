@@ -1,8 +1,14 @@
+Hanna's Depravity
+=================
 #1 
 
  
 
- ****** Hanna's Depravity ****** byGotBacon© Hanna is a devout Christian. She attends church three nights a week and Sunday school. She is active in all the church charity functions. She is 25 years old. 5 ft tall. She has D cups and an ass to die for. She sees men look at her with lust in their eyes and feels disgusted. Her pastor preaches a lot about the original sin and she takes it to heart. She thinks sex is dirty because of this. Her mother has indoctrinated that it's her duty to have sex with her husband, but only to have children. She dreads the day that she may have to get married and have sex. 
+ 
+
+===
+
+Hanna is a devout Christian. She attends church three nights a week and Sunday school. She is active in all the church charity functions. She is 25 years old. 5 ft tall. She has D cups and an ass to die for. She sees men look at her with lust in their eyes and feels disgusted. Her pastor preaches a lot about the original sin and she takes it to heart. She thinks sex is dirty because of this. Her mother has indoctrinated that it's her duty to have sex with her husband, but only to have children. She dreads the day that she may have to get married and have sex. 
 
  One of the charity groups she is involved in requires her to go to different business and ask for clothing donations. Because she is so pretty, she gets lots of stuff the others wouldn't. On one occasion she meets with the manager of the store. Bill is a handsome 28 year old. He looks her over and is impressed. He inquires what church she is with. He tells her about the one he attends. He is not as hard core about religion as she is. He has no idea. He decides he will go to her church and see what develops with her. He sees her as marriage material. He thinks about getting his hands on her big tits and getting her beautiful legs open. 
 
@@ -264,7 +270,11 @@
 
  
 
- ****** Hanna's Depravity ****** byGotBacon© She breaks down and starts crying. 
+ 
+
+===
+
+She breaks down and starts crying. 
 
  "I don't know if I know how to tell you. It's so terrible, what I did. I know Satan took over my mind and made me do it. I'm just a possessed sinful slut." 
 

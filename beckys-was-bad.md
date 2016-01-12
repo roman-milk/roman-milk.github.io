@@ -1,8 +1,14 @@
+Becky's Needs
+=============
 #1 
 
  
 
- ****** Becky's Needs ****** byJust_Plain_Bob© The damnedest thing happened to me a couple of months ago and even after sixty days to think about it I'm still not sure that I understand it. I knowingly ate my wife's pussy after three other guys had come in her several times. I've done it several times since then and believe it or not I like it. 
+ 
+
+===
+
+The damnedest thing happened to me a couple of months ago and even after sixty days to think about it I'm still not sure that I understand it. I knowingly ate my wife's pussy after three other guys had come in her several times. I've done it several times since then and believe it or not I like it. 
 
  Becky and I have been together now for a little over fourteen years. She was a great cook and housekeeper and a fantastic mother to our kids, but she wasn't all that great a wife to me. It hadn't always been that way; when we were first married and for the next eight years she was all that any man could ask for, hope for and wish for and then something happened and Becky changed. The day we married she was five feet tall, one hundred pounds, long brown wavy hair that hung down to the middle of her back and a chest that measured 38D. We had no problems for the first two years of our marriage, other than my having to beat guys off with a stick anytime we went somewhere. About six years ago she seemed to go into to a period of mood swings and things got a bit rocky for us for a while. I was pretty sure, but not positive, that she had a couple of affairs during that time, but after a couple of year's things got back to normal. 
 
@@ -94,7 +100,11 @@
 
  
 
- ****** Becky's Needs ****** byJust_Plain_Bob© She cocked her head to one side and said, "Am I really that repulsive to you?" 
+ 
+
+===
+
+She cocked her head to one side and said, "Am I really that repulsive to you?" 
 
  "Not to me sweetheart, but I want you to get back to where guys start chasing you again so you can let them catch you. And then I want you to bring them home so I can watch and participate. I might not be able to satisfy you myself, but I at least want to be part of the group that does. The guys I bowl with want to start a weekly poker game and if we have it here that would be four more for you to fuck. What nights are you going to be going to Emily's?" 
 

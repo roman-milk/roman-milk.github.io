@@ -1,8 +1,14 @@
+The Job Saver
+=============
 #1 
 
  
 
- ****** The Job Saver ****** byJust_Plain_Bob© I sat on my couch and watched what was showing on thee TV screen in absolute disbelief. The videotape had shown up at my office in a package with no return address on it, but with a local postmark. There was a note taped to the cassette that said, "You are always bragging about her; what do you think of the slut now?" I wondered if the timing of the delivery of the tape had been deliberate. Pam was out of town on business and wouldn't be home until the next day. 
+ 
+
+===
+
+I sat on my couch and watched what was showing on thee TV screen in absolute disbelief. The videotape had shown up at my office in a package with no return address on it, but with a local postmark. There was a note taped to the cassette that said, "You are always bragging about her; what do you think of the slut now?" I wondered if the timing of the delivery of the tape had been deliberate. Pam was out of town on business and wouldn't be home until the next day. 
 
  ++++++ 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** The Job Saver ****** byJust_Plain_Bob© "I don't know. For now I'm going back to the office and think." 
+ 
+
+===
+
+"I don't know. For now I'm going back to the office and think." 
 
  ++++++ 
 

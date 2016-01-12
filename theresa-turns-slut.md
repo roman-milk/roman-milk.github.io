@@ -1,8 +1,14 @@
+Theresa Turns Slut
+==================
 #1 
 
  
 
- ****** Theresa Turns Slut ****** bydirty_geezer© A first person perspective story written especially for Theresa... 
+ 
+
+===
+
+A first person perspective story written especially for Theresa... 
 
  * 
 
@@ -88,7 +94,11 @@
 
  
 
- ****** Theresa Turns Slut ****** bydirty_geezer© My breasts were jiggling manically underneath me, as my assailants pounded into me harder and harder, using me like a piece of meat. This drew the attention of my lead aggressor, who knelt beside me so he could cup my soft and firm breasts in his hands. I thought I must have died and gone to heaven as his again changed from gentle to firm, through to rough. His fingers pulled my nipples hard, extending my breasts under his unrelenting pressure, the needles of pain driving me into a frenzy. He pinched harder and harder, twisting, pulling, forcing me to squeal around the cock I was sucking. 
+ 
+
+===
+
+My breasts were jiggling manically underneath me, as my assailants pounded into me harder and harder, using me like a piece of meat. This drew the attention of my lead aggressor, who knelt beside me so he could cup my soft and firm breasts in his hands. I thought I must have died and gone to heaven as his again changed from gentle to firm, through to rough. His fingers pulled my nipples hard, extending my breasts under his unrelenting pressure, the needles of pain driving me into a frenzy. He pinched harder and harder, twisting, pulling, forcing me to squeal around the cock I was sucking. 
 
  My body rocked back and forth, now every never on fire, the cold forgotten as heat rippled through me. I felt the cock in my pussy being ripped rudely from me, and I wiggled my arse begging to be filled again. The next moment I realised why he had withdrawn, as I felt the warm wet sensation of cum splattering against the small of my back. I could feel cum pooling on my skin, then sliding down between my arse cheeks, oozing over my cunt. 
 

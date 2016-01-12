@@ -1,8 +1,14 @@
+Sally's Anal Buddy
+==================
 #1 
 
  
 
- ****** Sally's Anal Buddy ****** byJust_Plain_Bob© It can be quite a blow to your ego when you find out just how dumb you really are. Then again maybe I'm not being fair with myself in using dumb as a description instead of words like unobservant or gullible. I just found out that my wife is fucking around on me and has been for quite some time and I'd not had an inkling of it. 
+ 
+
+===
+
+It can be quite a blow to your ego when you find out just how dumb you really are. Then again maybe I'm not being fair with myself in using dumb as a description instead of words like unobservant or gullible. I just found out that my wife is fucking around on me and has been for quite some time and I'd not had an inkling of it. 
 
  It was only by accident that I found out that Sally has been fucking around on me and I do mean by accident - literally. Sally is an executive in a small electronics firm and one of her perks is a company car. I drive a pick up as my personal vehicle and one day Sally asked me if I would let her use the truck. One of the corporations branch office was in a building that had just been sold and the new owners were not going to renew her corporations lease. Sally needed the pick up to move things and she had gotten permission to let me drive her company car. As a sweetener they also let me use her company credit card for gas for as long as they needed the truck. 
 

@@ -1,8 +1,14 @@
+Aunt Maggie's Mistake
+=====================
 #1 
 
  
 
- ****** Aunt Maggie's Mistake ****** byJust_Plain_Bob© I doubt that most men start out their marriage wondering what it would be like to see their wives making love with other men. Most come to the realization that it would be great to observe her only after events and circumstances bring them to that point. I am an exception. I knew that I wanted to watch my wife with others even before I met her. The story I'm going to relate will be considered somewhat sick buy some, but real life has never been accused of being pretty and I learned a long time ago that it's stupid to try to apologize for things over which you have no control. 
+ 
+
+===
+
+I doubt that most men start out their marriage wondering what it would be like to see their wives making love with other men. Most come to the realization that it would be great to observe her only after events and circumstances bring them to that point. I am an exception. I knew that I wanted to watch my wife with others even before I met her. The story I'm going to relate will be considered somewhat sick buy some, but real life has never been accused of being pretty and I learned a long time ago that it's stupid to try to apologize for things over which you have no control. 
 
  In the fall of my eighteenth year the even that would shape the rest of my sexual life occurred. Some explanation will be necessary to set the stage so bear with me for a bit. My father and mother had an off again on again relationship that probably could never be understood by anyone other than themselves. They fought like cats and dogs most of the time and the usual outcome of those fights would be my father packing his bags and moving out. A month or two later he would move back in. During the periods of his absence my mother did not stay home and sulk. She spent a good deal of her evenings when he was gone bar hopping and going to parties and she usually had company in the person of her sister, my Aunt Margaret. 
 

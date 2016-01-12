@@ -1,8 +1,14 @@
+Jasmine Fantasies: Pet Teacher
+==============================
 #1 
 
  
 
- ****** Jasmine Fantasies: Pet Teacher ****** bysilkstockingslover© Summary: Teacher is seduced by a cute nylon wearing student. 
+ 
+
+===
+
+Summary: Teacher is seduced by a cute nylon wearing student. 
 
  Note 1: The story idea, and even a few lines of dialogue, was from a friend of mine Jeremy. 
 
@@ -258,7 +264,11 @@
 
  
 
- ****** Jasmine Fantasies: Pet Teacher ****** bysilkstockingslover© Becoming like a character from one of my stories, I obeyed, dropping to my knees, in my own classroom, beside my desk and in front of one of my students. 
+ 
+
+===
+
+Becoming like a character from one of my stories, I obeyed, dropping to my knees, in my own classroom, beside my desk and in front of one of my students. 
 
  She moved her foot to my mouth and I replicated the eager thorough attention I had already given her other foot. 
 

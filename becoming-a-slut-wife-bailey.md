@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Bailey
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Bailey ****** byJust_Plain_Bob© My brother's wife Bailey is a fox. She is the sexiest woman I've ever met and for years I have lusted for her. Not that anything would ever come of my lust. My wife would kill me if I ever acted on my lust for Bailey and if she didn't my brother most certainly would. I couldn't touch, but I could look and I did. I could also flirt and I did that too. 
+ 
+
+===
+
+My brother's wife Bailey is a fox. She is the sexiest woman I've ever met and for years I have lusted for her. Not that anything would ever come of my lust. My wife would kill me if I ever acted on my lust for Bailey and if she didn't my brother most certainly would. I couldn't touch, but I could look and I did. I could also flirt and I did that too. 
 
  Bailey was aware of the effect that she had on me and it pleased her to tease me every chance she got. I've never seen her in the nude, but never the less I still think that I've seen everything she's got. Bra less and in a low cut top she would bend over in front of me to do something and I would be able to see all the way down to her navel. If she was wearing a short skirt somehow, when she was around me, it would ride up and I'd see the thong she was wearing. Once at a party she came out of the bathroom and caught me in the kitchen: 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** Becoming A Slut Wife: Bailey ****** byJust_Plain_Bob© "Go get it. If I'm right you will get a call on it in a couple of minutes." 
+ 
+
+===
+
+"Go get it. If I'm right you will get a call on it in a couple of minutes." 
 
  I went and got my cell phone and put it on the bedside stand and then laid back to enjoy Baileys attempt to recharge my batteries with her hands and mouth. 
 

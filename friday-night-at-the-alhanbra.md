@@ -1,8 +1,14 @@
+Friday Night At The Alhanbra
+============================
 #1 
 
  
 
- ****** Friday Night At The Alhanbra ****** byJust_Plain_Bob© It was Friday night at the Alhambra Lounge. There was a large crowd and everyone was having a good time. The joint was jumping as some might say. Even though I was sitting at the bar with a vodka tonic in my hand I wasn't there to drink and dance. I was there to do something ill-advised and I fully expected to get in trouble because of it. Trouble that could possibly see me in a jail cell. 
+ 
+
+===
+
+It was Friday night at the Alhambra Lounge. There was a large crowd and everyone was having a good time. The joint was jumping as some might say. Even though I was sitting at the bar with a vodka tonic in my hand I wasn't there to drink and dance. I was there to do something ill-advised and I fully expected to get in trouble because of it. Trouble that could possibly see me in a jail cell. 
 
  As I nursed my drink my eyes were on a couple sitting on the other side of the room. I'd had my eye on them for almost an hour. They, or more to the point he, was the reason I was there. I knew he would be there because he was a creature of habit. He was there every Friday night; probably to show support for his wife's brother whose band played at the Alhambra every weekend. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Friday Night At The Alhanbra ****** byJust_Plain_Bob© "That was my plan also. Of course I was hoping that it would be a huge surprise for her, but surprise isn't likely now." 
+ 
+
+===
+
+"That was my plan also. Of course I was hoping that it would be a huge surprise for her, but surprise isn't likely now." 
 
  "Sorry. I didn't mean to ruin it for you." 
 
@@ -462,7 +472,11 @@
 
  
 
- ****** Friday Night At The Alhanbra ****** byJust_Plain_Bob© Norma's trial was a bit anti-climactic. The DA presented his case and his star witness was Norma's husband. He of course denied that the bat was for Norma and then he fucked up and said it was for me. I saw the DA's face turn sour when he heard Jim say that. I guess he didn't do a very good job of coaching his witness. Norma told the story that we had agreed on and then I spoke my piece. Yes, I know it was perjury, but I didn't give a shit. The asshole broke up my marriage and I owed him some payback. They jury was out less than fifteen minutes and came back with a verdict of not guilty. 
+ 
+
+===
+
+Norma's trial was a bit anti-climactic. The DA presented his case and his star witness was Norma's husband. He of course denied that the bat was for Norma and then he fucked up and said it was for me. I saw the DA's face turn sour when he heard Jim say that. I guess he didn't do a very good job of coaching his witness. Norma told the story that we had agreed on and then I spoke my piece. Yes, I know it was perjury, but I didn't give a shit. The asshole broke up my marriage and I owed him some payback. They jury was out less than fifteen minutes and came back with a verdict of not guilty. 
 
  Hubby's trial was three weeks later and the jury was only out for twenty minutes before coming back with a guilty verdict. He got a year and a day and then he proved that he was a bonehead when in front of the judge, jury, prosecutor and all the spectators he hollered at me: 
 

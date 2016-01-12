@@ -1,8 +1,14 @@
+Tastes Like Candy Ch. 01
+========================
 #1 
 
  
 
- ****** Tastes Like Candy Ch. 01 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Marcus) 
 
@@ -164,7 +170,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 01 ****** byTheTalkMan© But I didn't want to really think about it anymore unless I knew the truth. Until I knew the truth, I wouldn't make any judgments. I kinda hoped she was lying. That she wasn't my husband's daughter. 
+ 
+
+===
+
+But I didn't want to really think about it anymore unless I knew the truth. Until I knew the truth, I wouldn't make any judgments. I kinda hoped she was lying. That she wasn't my husband's daughter. 
 
  Cause, I didn't want to think of my husband having a child without me. 
 
@@ -412,7 +422,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 01 ****** byTheTalkMan© Again, it would be easy to psychoanalyze and say why that was. I never had a dad. I always wanted one. I always wanted a strong, father-like man in my life. Therefore, I was into older men. I got that. I understand. It doesn't change matters. And when Mom saw me flirting with older men, saw me flirting with her pig boyfriends, just for sport, really, she knew I had to go so her men would keep paying attention to her and not me. So I went. And in exchange, Mom told me who my Dad was. 
+ 
+
+===
+
+Again, it would be easy to psychoanalyze and say why that was. I never had a dad. I always wanted one. I always wanted a strong, father-like man in my life. Therefore, I was into older men. I got that. I understand. It doesn't change matters. And when Mom saw me flirting with older men, saw me flirting with her pig boyfriends, just for sport, really, she knew I had to go so her men would keep paying attention to her and not me. So I went. And in exchange, Mom told me who my Dad was. 
 
  I came here with the best intentions. Really. All the emotions I felt were totally genuine. I cried when I saw my Dad for the first time. I felt that instant bond between him and me. I knew he was my father before any test proved it. I wanted to be a good daughter. I wanted to be a good girl. I wanted my dad and his wife to think the best of me. I did. But some things are out of your control. Some things are the fault of your genetics. Your nature. Some things happen just because your mother is a huge slut, and the slut gene was clearly a dominant one. 
 
@@ -572,7 +586,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 01 ****** byTheTalkMan© "Hey Daddy, this is Russ." I said. 
+ 
+
+===
+
+"Hey Daddy, this is Russ." I said. 
 
  "Uh, hi." I said, nodding at him. 
 
@@ -786,7 +804,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 01 ****** byTheTalkMan© So there I would be, on my knees in front of Daddy. My mouth would open on reflex, knowing a cock like that would deserve the very best: the tight, wet, eager mouth of a teenage girl. I would look down at Daddy's massive meat, appreciating its perfection. The way his dick was curved, like most big dicks are. The way his cock would drip pre-cum. The way that dick would cause you to choke in just the right way when it was buried down your throat. I would look up at Daddy, noting the lust on his face, noting how badly he wanted to squeeze my big, bare teenage tits, but not being able to go through with it. He was begging me with his eyes to make the first move. To begin our incestuous coupling. And I would smile at him, stretch my mouth open till my jaw cracked, and begin to lower my mouth around his cock-head, my warm breath hitting his dick. And just as I was about to close my lips around his fat daddy dick... 
+ 
+
+===
+
+So there I would be, on my knees in front of Daddy. My mouth would open on reflex, knowing a cock like that would deserve the very best: the tight, wet, eager mouth of a teenage girl. I would look down at Daddy's massive meat, appreciating its perfection. The way his dick was curved, like most big dicks are. The way his cock would drip pre-cum. The way that dick would cause you to choke in just the right way when it was buried down your throat. I would look up at Daddy, noting the lust on his face, noting how badly he wanted to squeeze my big, bare teenage tits, but not being able to go through with it. He was begging me with his eyes to make the first move. To begin our incestuous coupling. And I would smile at him, stretch my mouth open till my jaw cracked, and begin to lower my mouth around his cock-head, my warm breath hitting his dick. And just as I was about to close my lips around his fat daddy dick... 
 
  THUMP! 
 
@@ -864,7 +886,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Marcus) 
 
@@ -1070,7 +1096,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© "Thanks for the ride!" I said loudly over the tunes, looking over at her. She was dressed in jeans and a low-cut pink top. I had to stop myself from noticing her exposed cleavage. 
+ 
+
+===
+
+"Thanks for the ride!" I said loudly over the tunes, looking over at her. She was dressed in jeans and a low-cut pink top. I had to stop myself from noticing her exposed cleavage. 
 
  "No problem, Daddio!" she replied. 
 
@@ -1276,7 +1306,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© What the fuck just happened? Why was I hard? It must have been the argument. The passion of it caused me to get hard. Yeah, that must be it. It wasn't my daughter parading around in her exercise clothes. It wasn't the way her top clung to her massive boobs. It wasn't the way her shorts clung to her butt. It was just the passion of the argument. 
+ 
+
+===
+
+What the fuck just happened? Why was I hard? It must have been the argument. The passion of it caused me to get hard. Yeah, that must be it. It wasn't my daughter parading around in her exercise clothes. It wasn't the way her top clung to her massive boobs. It wasn't the way her shorts clung to her butt. It was just the passion of the argument. 
 
  Right? 
 
@@ -1466,7 +1500,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© "Is it too much?" I asked. She gulped. 
+ 
+
+===
+
+"Is it too much?" I asked. She gulped. 
 
  "Is it too slutty?" I asked with a nod. Her eyes narrowed. 
 
@@ -1740,7 +1778,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© "FUCK!" Brandy moaned out as I spanked her ass even harder. 
+ 
+
+===
+
+"FUCK!" Brandy moaned out as I spanked her ass even harder. 
 
  "For all the bad things..." I continued. 
 
@@ -2090,7 +2132,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© "Yes." 
+ 
+
+===
+
+"Yes." 
 
  "Even though I'm your daughter, you would love to see me naked, wouldn't you?" 
 
@@ -2224,7 +2270,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 02 ****** byTheTalkMan© "You can suck on them if you want, Daddy. Please!" Brandy begged. Before she could finish, I leapt upward and attached my mouth to her hard nipple. "FUCK!" Brandy moaned out in response. My mouth was open wide, trying to take as much of my daughter's nipple into my mouth as I could. I had the entire areola, nipple and some of the surrounding flesh into my mouth, sucking hard. I circled my tongue around the nipple, flicking it lightly. 
+ 
+
+===
+
+"You can suck on them if you want, Daddy. Please!" Brandy begged. Before she could finish, I leapt upward and attached my mouth to her hard nipple. "FUCK!" Brandy moaned out in response. My mouth was open wide, trying to take as much of my daughter's nipple into my mouth as I could. I had the entire areola, nipple and some of the surrounding flesh into my mouth, sucking hard. I circled my tongue around the nipple, flicking it lightly. 
 
  "You look so good with my nipple in your mouth, Daddy." Brandy complimented, trying to force more breast into my mouth. This went on for a few minutes, me bathing her nipple in my saliva. I switched nipples, giving the other one the same treatment. She eventually pulled the nipple from my mouth with a pop, grabbed my head with both hands, and scrubbed her breasts across my face, drowning me in softness. I just lied there as I felt my daughter's nipples scrape across my face while feeling the fleshy breasts mold to my face. 
 
@@ -2374,7 +2424,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Marcus) 
 
@@ -2570,7 +2624,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© It went on and on, the pleasure indescribable. I felt my cum splashing around inside her. Finally, mercifully, after what seemed like five minutes, my balls were empty. I began to remove my cock slowly. I looked down just in time to see the tip emerge from its tight confines, a single band of cum stretching between the tip of my dick and her cunt. I fell to the side, exhausted. 
+ 
+
+===
+
+It went on and on, the pleasure indescribable. I felt my cum splashing around inside her. Finally, mercifully, after what seemed like five minutes, my balls were empty. I began to remove my cock slowly. I looked down just in time to see the tip emerge from its tight confines, a single band of cum stretching between the tip of my dick and her cunt. I fell to the side, exhausted. 
 
  Both Brandy and I lied on our backs, catching our breaths. 
 
@@ -2708,7 +2766,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© And she was a brat. A spoiled little bitch that thought sunshine came from her ass and that she deserved the best in life. She felt entitled to it. And the way that little slut dressed, like a fucking skank, her mother should be ashamed, and her mother was no better. Brandy knew that those slutty clothes, that little girl act could work on a lot of people, but not us. Not me. Not Marcus. 
+ 
+
+===
+
+And she was a brat. A spoiled little bitch that thought sunshine came from her ass and that she deserved the best in life. She felt entitled to it. And the way that little slut dressed, like a fucking skank, her mother should be ashamed, and her mother was no better. Brandy knew that those slutty clothes, that little girl act could work on a lot of people, but not us. Not me. Not Marcus. 
 
  I was making good time home. I was about 90 minutes away when disaster struck. 
 
@@ -2936,7 +2998,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© I was extra pissed when the hick tow truck driver started putting the moves on me as he drove me back into town after waiting for three fucking hours on the highway while this dipshit tried to find me. And the 90 minute drive back into town was a fucking treat. Listening to his idiotic ramblings and stories, listening to his horrible country music, and smelling the wonderful smells he gave off. 
+ 
+
+===
+
+I was extra pissed when the hick tow truck driver started putting the moves on me as he drove me back into town after waiting for three fucking hours on the highway while this dipshit tried to find me. And the 90 minute drive back into town was a fucking treat. Listening to his idiotic ramblings and stories, listening to his horrible country music, and smelling the wonderful smells he gave off. 
 
  It took two hours for the ninety minute drive, and the sun was beginning to rise as I finally got a taxi home. I needed to wash up, change my clothes, change my underwear, and verify that that little bitch that caused all this was out of my house. 
 
@@ -3094,7 +3160,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© Me and Brandy were a dangerous team. She would hang off my arm in public. She had a way of finding girls like her, nasty sluts, sluts that needed my brand of punishment. Girls like her, with daddy issues, who needed to experience the consequences of their actions. Brandy opened my eyes to so much. How girls like her loved men who were powerful. Like strong Daddy's. Or tough teachers. Or powerful coaches. And she was proven right. And thanks to Brandy, half of the cheerleaders for the football team would agree. That guy Raymond I had mentored before had good taste. His girlfriend Becky was an insatiable fuck. She told me she never put out for him. I smiled as I realized it only took a little bit of sweet talk from an older man like me to get that bitch to spread her legs. Sure, I had broken up a happy couple, but hey, how often do you get the chance to fuck the prom queen... on prom night? How often do you get a chance with the cheerleading captain? How often do you have a girl like her whispering tips in your ear about how to get balls deep in each of her slut cheerleader friends? How often could a guy like me leer at the cheerleaders and know that half of them had had my cum in them at some point in their lives? How often does the football coach get invited to the cheerleaders' parties? 
+ 
+
+===
+
+Me and Brandy were a dangerous team. She would hang off my arm in public. She had a way of finding girls like her, nasty sluts, sluts that needed my brand of punishment. Girls like her, with daddy issues, who needed to experience the consequences of their actions. Brandy opened my eyes to so much. How girls like her loved men who were powerful. Like strong Daddy's. Or tough teachers. Or powerful coaches. And she was proven right. And thanks to Brandy, half of the cheerleaders for the football team would agree. That guy Raymond I had mentored before had good taste. His girlfriend Becky was an insatiable fuck. She told me she never put out for him. I smiled as I realized it only took a little bit of sweet talk from an older man like me to get that bitch to spread her legs. Sure, I had broken up a happy couple, but hey, how often do you get the chance to fuck the prom queen... on prom night? How often do you get a chance with the cheerleading captain? How often do you have a girl like her whispering tips in your ear about how to get balls deep in each of her slut cheerleader friends? How often could a guy like me leer at the cheerleaders and know that half of them had had my cum in them at some point in their lives? How often does the football coach get invited to the cheerleaders' parties? 
 
  We also traveled, quite a bit, using some of the money me and Linda had saved for our retirement. Traveled the world, seeing things I never had seen before, and that was just the things Brandy did in bed! My daughter was by my side as we traveled, seeing the sights, enjoying the many tropical settings along the way, occasionally picking up a local hottie and showing her the trouble we could get up to together. Like those two Brazilian beach babes, in their tiny little thongs. They were both up for a little Daddy-Daughter action, and holy fuck, those girls held up their end of the bargain. Hmmmmmm, that thing they did with their tongues... Like I said, Brandy and I were a dangerous team. 
 
@@ -3308,7 +3378,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© My eyes bugged out as I stared at them for the first time, for a couple reasons. The first thing that caught my eye was Brandy's bulging belly. I gulped at this sight. Those old feelings of inadequacy boiled inside me again. The fact that that little bitch got to carry life in her belly, that she was living my dream, that she could so causally be pregnant, as if being pregnant was the cool, hip, trendy thing for girls her age to be doing. She was flouncing around, showing off her pregnant belly proudly in her tight tank top as if her pregnancy was a fashion statement. She didn't even care! She didn't earn the right to bear children! She was just a little slut who got knocked up by some idiot she'll never see again. 
+ 
+
+===
+
+My eyes bugged out as I stared at them for the first time, for a couple reasons. The first thing that caught my eye was Brandy's bulging belly. I gulped at this sight. Those old feelings of inadequacy boiled inside me again. The fact that that little bitch got to carry life in her belly, that she was living my dream, that she could so causally be pregnant, as if being pregnant was the cool, hip, trendy thing for girls her age to be doing. She was flouncing around, showing off her pregnant belly proudly in her tight tank top as if her pregnancy was a fashion statement. She didn't even care! She didn't earn the right to bear children! She was just a little slut who got knocked up by some idiot she'll never see again. 
 
  And the worst thing was that Brandy looked fucking spectacular. She looked radiant. She was glowing in her pregnancy, and it made her look even more beautiful than she did before. She still looked great in her fashionable clothing. Everything still fit her and flattered her body. She didn't get all fat and bloated like some women do. No, she just had a cute, bulging tummy. But other than that, she looked the same. What a fucking bitch. 
 
@@ -3418,7 +3492,11 @@
 
  
 
- ****** Tastes Like Candy Ch. 03 ****** byTheTalkMan© Needless to say, a couple hours later, we would be walking out of the mall, bags full of new things for me, shaking my butt as I walked next to Daddy, making all the old wives look at me with disgust while their men looked for a peek of my thong under my tiny dress. And, needless to say, me and Daddy would be so hot for each other that he would spend the rest of the day pounding the ever-loving shit out of me. 
+ 
+
+===
+
+Needless to say, a couple hours later, we would be walking out of the mall, bags full of new things for me, shaking my butt as I walked next to Daddy, making all the old wives look at me with disgust while their men looked for a peek of my thong under my tiny dress. And, needless to say, me and Daddy would be so hot for each other that he would spend the rest of the day pounding the ever-loving shit out of me. 
 
  At this point, we were more than just a daddy and a daughter. We were basically boyfriend and girlfriend. Naughty lovers. Practically husband and wife. Definitely soul-mates. 
 

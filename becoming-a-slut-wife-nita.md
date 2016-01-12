@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Nita
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Nita ****** byJust_Plain_Bob© My best friend Dale met the girl he married while he was in college and I didn't meet her until the day of the wedding. I watched Anita walk down the aisle toward us (I was Dale's best man) and I wished to God I could fuck her - she was that nice! Well, it is one year later and I have been fucking Nita for a couple of months now and it doesn't look as if she plans on stopping, at least not anytime soon. 
+ 
+
+===
+
+My best friend Dale met the girl he married while he was in college and I didn't meet her until the day of the wedding. I watched Anita walk down the aisle toward us (I was Dale's best man) and I wished to God I could fuck her - she was that nice! Well, it is one year later and I have been fucking Nita for a couple of months now and it doesn't look as if she plans on stopping, at least not anytime soon. 
 
  It happened because about six months ago I got an invitation from Nita to suck her pussy, fuck her, and do anything else to her that my little heart desired. It was by mistake of course, but I eventually found myself in a position to take advantage of that mistake. 
 

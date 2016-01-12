@@ -1,8 +1,14 @@
+Mary, Fred and the Gangster Ch. 01
+==================================
 #1 
 
  
 
- ****** Mary, Fred and the Gangster Ch. 01 ****** byJust_Plain_Bob© It was, Fred Sawyer thought, an almost perfect day. George Goode, the District Attorney, had announced his retirement for health reasons and Fred, as senior assistant DA had been appointed interim DA to fill out the last six months of Goode's term of office. Several hours on the phone with some very influential people had secured his party's endorsement for the upcoming election and all Fred needed now was to get his name out in front of the public to establish name recognition and a reputation as a crime fighter. And, by the grace of God, he'd had that too. A key witness had come forward and his testimony put the final touch on Fred's six month long investigation on Carlo "Boom Boom" Mantelli. Mantelli, reputed to be the local crime boss, had his fingers in every illegal activity on the books, from the numbers racket to drugs, but that was all small stuff and even though Fred had all the evidence he needed to convict Mantelli of complicity in those crimes, Fred was going for the biggie - murder one. His witness could positively tie the noose around Mantelli's neck for the murder of Samuel Atkins, one of his associates who had turned on him and was going to go before the grand jury. Mantelli's nick name, "Boom Boom", was earned when he was a hit man for the mob and his signature was two shots to the back of the victims head - the same way Atkins had died - and Fred now had a witness who had seen the shooting. When he went in front of the grand jury with what he had Fred was assured of a month of headlines, and with a conviction on Mantelli Fred would be a shoe in for being the next DA. And after that? Who knows, maybe even governor. 
+ 
+
+===
+
+It was, Fred Sawyer thought, an almost perfect day. George Goode, the District Attorney, had announced his retirement for health reasons and Fred, as senior assistant DA had been appointed interim DA to fill out the last six months of Goode's term of office. Several hours on the phone with some very influential people had secured his party's endorsement for the upcoming election and all Fred needed now was to get his name out in front of the public to establish name recognition and a reputation as a crime fighter. And, by the grace of God, he'd had that too. A key witness had come forward and his testimony put the final touch on Fred's six month long investigation on Carlo "Boom Boom" Mantelli. Mantelli, reputed to be the local crime boss, had his fingers in every illegal activity on the books, from the numbers racket to drugs, but that was all small stuff and even though Fred had all the evidence he needed to convict Mantelli of complicity in those crimes, Fred was going for the biggie - murder one. His witness could positively tie the noose around Mantelli's neck for the murder of Samuel Atkins, one of his associates who had turned on him and was going to go before the grand jury. Mantelli's nick name, "Boom Boom", was earned when he was a hit man for the mob and his signature was two shots to the back of the victims head - the same way Atkins had died - and Fred now had a witness who had seen the shooting. When he went in front of the grand jury with what he had Fred was assured of a month of headlines, and with a conviction on Mantelli Fred would be a shoe in for being the next DA. And after that? Who knows, maybe even governor. 
 
  The house was strangely silent when Fed arrived at home, but then he remembered that this was the night his sixteen-year-old daughter Sally was spending the night with one of her friends. His wife Mary probably still wasn't home from dropping Sally off. He grabbed a beer from the refrigerator and was headed for the family room when he heard the automatic garage door opener start to operate. Fred headed for the door to the attached garage to see if Mary needed any help bringing things in. He opened the door and looked out into the garage to see Mary sitting in her car. When she made no move to get out he became concerned and went out to her and opened the car door. Mary sat there, staring straight ahead at nothing, and crying. She looked a mess; hair matted with something and white blotches all over her face and neck. Fred helped her from the car and asked her what was wrong, but she pulled away from him and ran into the house. He followed her as she ran up the steps toward the upstairs bedroom and he walked into the room to find her ripping off her clothes. As she uncovered her body Fred saw more of the white blotches and when she was naked he saw that her normally dark blonde pubic hairs were a matted white mess. With a sinking feeling in his stomach he knew he was looking at a woman who had just been fucked, and from the visual evidence, more than once - a lot more. 
 
@@ -46,7 +52,11 @@
 
  
 
- ****** Mary, Fred and the Gangster Ch. 02 ****** byJust_Plain_Bob© "I hate to add to your burden honey, but there is something else." Fred looked at her as she continued, "What happened today wasn't my fault and I fought it as best I could, but in the end I loved it and I want to do it again and again as often as I can." 
+ 
+
+===
+
+"I hate to add to your burden honey, but there is something else." Fred looked at her as she continued, "What happened today wasn't my fault and I fought it as best I could, but in the end I loved it and I want to do it again and again as often as I can." 
 
  "What?" Fred asked, "Fuck black men?" 
 

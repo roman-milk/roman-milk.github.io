@@ -1,8 +1,14 @@
+Carmen &amp; Little Nina
+========================
 #1 
 
  
 
- ****** Carmen &amp; Little Nina ****** byJust_Plain_Bob© She was a little sexpot and my dick got hard every time I laid eyes on her. She was also trouble - a disaster waiting to happen to a guy like me. She looked every bit of twenty-one, but she was only sixteen. Her name was Nina (pronounced Neenya) and for some reason or another she had taken a liking to me. She came over to our house (I stayed with my parents when I was home from school) every time I worked in the yard or worked on my car in the garage and I could tell what she wanted from the look in her eye. And as much as I ached to give it to her I couldn't. I was twenty and had no interest in going to jail as a sex offender. 
+ 
+
+===
+
+She was a little sexpot and my dick got hard every time I laid eyes on her. She was also trouble - a disaster waiting to happen to a guy like me. She looked every bit of twenty-one, but she was only sixteen. Her name was Nina (pronounced Neenya) and for some reason or another she had taken a liking to me. She came over to our house (I stayed with my parents when I was home from school) every time I worked in the yard or worked on my car in the garage and I could tell what she wanted from the look in her eye. And as much as I ached to give it to her I couldn't. I was twenty and had no interest in going to jail as a sex offender. 
 
  It was a very bad summer for me. First, I had to have my appendix out and it cost me the winter and spring semesters at school and second, since I had to be around the house all day Nina was around to do her very best to break me down. She went from tight sweaters and tight jeans in April and May to shorts and tank tops in June and July, but it really got bad when August came around and she started coming over in bikini bathing suits. I do have to admit that I almost lost it once and was ready to take her in the house and do the dirty deed, but my dad coming home from work early saved me. 
 

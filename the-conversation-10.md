@@ -1,8 +1,14 @@
+The Conversation
+================
 #1 
 
  
 
- ****** The Conversation ****** byJust_Plain_Bob© It was a conversation that I was not meant to hear. It was a Saturday morning in July and normally I would have been on the golf course, but two of my regular foursome had cancelled so the other guy and I had decided not to play. I was working in the basement on some home projects when I heard the back door open and a voice call out, "Maxine? Are you here?" and I heard my wife holler back, "Pour yourself some coffee Sandi, I'll be right there." 
+ 
+
+===
+
+It was a conversation that I was not meant to hear. It was a Saturday morning in July and normally I would have been on the golf course, but two of my regular foursome had cancelled so the other guy and I had decided not to play. I was working in the basement on some home projects when I heard the back door open and a voice call out, "Maxine? Are you here?" and I heard my wife holler back, "Pour yourself some coffee Sandi, I'll be right there." 
 
  The visitor was the next door neighbor, Sandi Grossmann, who also happened to be my wife's best friend from all the back to the second grade. Before I get to the conversation I need to say a little bit about Sandi. Even though she is Maxi's best friend I was not too fond of her. She just wasn't the sort of person I was comfortable around and I was not happy to have Maxi associating with her, but there wasn't any way that I was going to be breaking up a twenty- five year friendship. Sandi was on her fourth husband and all three of her previous marriages had ended when the husband of the moment caught her having sex with another man. In short, Sandi was a round-heeled slut and I would just as soon Maxi have nothing to do with her. Anyway, the conversation went something like this: 
 

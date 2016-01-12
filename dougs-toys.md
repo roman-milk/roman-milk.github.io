@@ -1,8 +1,14 @@
+Doug's Toys
+===========
 #1 
 
  
 
- ****** Doug's Toys ****** byJust_Plain_Bob© She looked at herself in the mirror and shook her head. What a waste she thought. This much to offer a man and it is going to waste. But not for much longer. 
+ 
+
+===
+
+She looked at herself in the mirror and shook her head. What a waste she thought. This much to offer a man and it is going to waste. But not for much longer. 
 
  Doug and Martha had gone steady during the last two years of high school, had become engaged the day after graduation and had married one year after that. The first five years had been very good and then, slowly, things had gotten ho- hum and common place, at least as far as Martha was concerned. He had a good job and made good money and Martha, since finding out that the two of them couldn't have kids, had gotten a job also. Between the two of them they made enough money to have the things they wanted. For Martha it was the house, good furniture, and a new car every three years. For Doug it was toys - lots of toys - and that was the problem. 
 

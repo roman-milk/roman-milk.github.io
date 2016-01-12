@@ -1,8 +1,14 @@
+Olivia Got Caught
+=================
 #1 
 
  
 
- ****** Olivia Got Caught ****** byJust_Plain_Bob© The only thing nicer than her warm, wet pussy is the feeling I get when she hands me the money. The look on her face is worth a lot to me too. The disgust that plays over her face, the absolute loathing in her eyes as she kneels in front of me to suck my cock. The hatred displayed for me when she opens her legs for me makes me feel all warm and fuzzy inside. The contempt in her voice when she says, "Okay damn you, go ahead and fuck me" sends a tingle through my loins. But the absolute, all time greatest feeling comes when I'm stroking into her asshole and she screams, "Oh God, don't stop, don't stop, fuck me, please fuck me." 
+ 
+
+===
+
+The only thing nicer than her warm, wet pussy is the feeling I get when she hands me the money. The look on her face is worth a lot to me too. The disgust that plays over her face, the absolute loathing in her eyes as she kneels in front of me to suck my cock. The hatred displayed for me when she opens her legs for me makes me feel all warm and fuzzy inside. The contempt in her voice when she says, "Okay damn you, go ahead and fuck me" sends a tingle through my loins. But the absolute, all time greatest feeling comes when I'm stroking into her asshole and she screams, "Oh God, don't stop, don't stop, fuck me, please fuck me." 
 
  I laugh and say, "Oh but I am mother in law dear, and in more ways than one." 
 

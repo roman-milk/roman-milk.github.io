@@ -1,8 +1,14 @@
+The Pregnant Slut
+=================
 #1 
 
  
 
- ****** The Pregnant Slut ****** byJust_Plain_Bob© I have been after Janet for years to fuck someone else while I watched and without much luck - until one Friday last year. She came to me and said she would do it, but by then I was having doubts. 
+ 
+
+===
+
+I have been after Janet for years to fuck someone else while I watched and without much luck - until one Friday last year. She came to me and said she would do it, but by then I was having doubts. 
 
  It started three years ago. We had just gotten home from a party that had been held by Janet's best friend Meg. Meg is a sweetheart, but she is also pure slut. Janet and I had been drinking and as we fell into bed Janet said, "I want to do something perverted tonight." 
 

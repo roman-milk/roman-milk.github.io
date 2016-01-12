@@ -1,8 +1,14 @@
+Coatrooms
+=========
 #1 
 
  
 
- ****** Coatrooms ****** byJust_Plain_Bob© The wife and I hadn't been getting along for some time. I'll have to accept half the blame, but only half and in truth I guess ten percent would be the more accurate number. My contribution to the problem consisted of my inability to believe that Nan hadn't cheated on me. She swore she hadn't and I just didn't believe her. 
+ 
+
+===
+
+The wife and I hadn't been getting along for some time. I'll have to accept half the blame, but only half and in truth I guess ten percent would be the more accurate number. My contribution to the problem consisted of my inability to believe that Nan hadn't cheated on me. She swore she hadn't and I just didn't believe her. 
 
  +++++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Coatrooms ****** byJust_Plain_Bob© Michelle was sitting in a booth when I got to Denny's and I joined her. We sat, drank coffee and made small talk for a while and then she said: 
+ 
+
+===
+
+Michelle was sitting in a booth when I got to Denny's and I joined her. We sat, drank coffee and made small talk for a while and then she said: 
 
  "I've never forgotten you. I've never forgiven you either for the way you talked to me when I tried to crawl back to you. Not that I didn't deserve it, but you could have been a little gentler." 
 

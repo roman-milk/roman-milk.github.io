@@ -1,8 +1,14 @@
+Becoming a Slut Wife Rachel
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife Rachel ****** byJust_Plain_Bob© It was intense! It was by far the strongest orgasm I'd had in quite a while and I wasn't even on a bed. I was bent over the back of the couch in my living room and the hard cock was driving into me from behind. My feet weren't even touching the floor and I had my wadded up panties in my mouth and I was biting down hard on them to keep from screaming out and waking the baby. 
+ 
+
+===
+
+It was intense! It was by far the strongest orgasm I'd had in quite a while and I wasn't even on a bed. I was bent over the back of the couch in my living room and the hard cock was driving into me from behind. My feet weren't even touching the floor and I had my wadded up panties in my mouth and I was biting down hard on them to keep from screaming out and waking the baby. 
 
  He gave one last push, muttered "Oh fuck!" and I felt the hot wetness of his discharge. He stood behind me not moving as his cock lost its hardness and when he was limp he stepped back and his cock flopped out of me. I scooted back until my feet were touching the floor and then I stood and turned to face him and asked: 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** Becoming a Slut Wife Rachel ****** byJust_Plain_Bob© "You can always do what I'm doing to get back at Frank." 
+ 
+
+===
+
+"You can always do what I'm doing to get back at Frank." 
 
  "That's the problem Julie; I don't think I can do something like that." 
 
@@ -490,7 +500,11 @@
 
  
 
- ****** Becoming a Slut Wife Rachel ****** byJust_Plain_Bob© At that exact instant I couldn't have denied it. 
+ 
+
+===
+
+At that exact instant I couldn't have denied it. 
 
  x-x-x-x-x-x-x-x-x-x 
 
@@ -624,7 +638,11 @@
 
  
 
- ****** Becoming a Slut Wife: Rachel ****** byJust_Plain_Bob© It was intense! It was by far the strongest orgasm I'd had in quite a while and I wasn't even on a bed. I was bent over the back of the couch in my living room and the hard cock was driving into me from behind. My feet weren't even touching the floor and I had my wadded up panties in my mouth and I was biting down hard on them to keep from screaming out and waking the baby. 
+ 
+
+===
+
+It was intense! It was by far the strongest orgasm I'd had in quite a while and I wasn't even on a bed. I was bent over the back of the couch in my living room and the hard cock was driving into me from behind. My feet weren't even touching the floor and I had my wadded up panties in my mouth and I was biting down hard on them to keep from screaming out and waking the baby. 
 
  He gave one last push, muttered "Oh fuck!" and I felt the hot wetness of his discharge. He stood behind me not moving as his cock lost its hardness and when he was limp he stepped back and his cock flopped out of me. I scooted back until my feet were touching the floor and then I stood and turned to face him and asked: 
 
@@ -878,7 +896,11 @@
 
  
 
- ****** Becoming a Slut Wife: Rachel ****** byJust_Plain_Bob© "You can always do what I'm doing to get back at Frank." 
+ 
+
+===
+
+"You can always do what I'm doing to get back at Frank." 
 
  "That's the problem Julie; I don't think I can do something like that." 
 
@@ -1112,7 +1134,11 @@
 
  
 
- ****** Becoming a Slut Wife: Rachel ****** byJust_Plain_Bob© At that exact instant I couldn't have denied it. 
+ 
+
+===
+
+At that exact instant I couldn't have denied it. 
 
  +++++++++++++++++++++++++ 
 

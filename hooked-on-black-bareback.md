@@ -1,8 +1,14 @@
+Hooked on Black Bareback
+========================
 #1 
 
  
 
- ****** Hooked on Black Bareback ****** byGotBacon© Amy is a small cute blonde. She is 26 years old. She works as a paralegal at a very successful law firm. She is just five feet tall. She had nice pert B cup breasts, a narrow waist and just the right width to her ass. She is just petite. She doesn't have any children. The decided to wait and they just never got around to it. She can't take the pill so she and her husband use condoms. 
+ 
+
+===
+
+Amy is a small cute blonde. She is 26 years old. She works as a paralegal at a very successful law firm. She is just five feet tall. She had nice pert B cup breasts, a narrow waist and just the right width to her ass. She is just petite. She doesn't have any children. The decided to wait and they just never got around to it. She can't take the pill so she and her husband use condoms. 
 
  She is happily married to John. He is the General Manager of a large department store. He is 30 years old. He works long hours and often comes home late in the evening. He is usually mentally exhausted when he gets home. He just wants to eat, sit in front of the TV and enjoy a couple of beers. As a result of this their sex life has dropped off considerably. They try to have sex once a week, but lately it's down to once or twice a month. She never thinks of cheating on him. She loves him very much. He is the only man she ever slept with. 
 
@@ -322,7 +328,11 @@
 
  
 
- ****** Hooked on Black Bareback ****** byGotBacon© He strokes up in her. She hangs on and meets his strokes. She feels it swelling again and lines it up with her cervix. He holds him in her and squeezes him. His cock flares and he squirts more cum in her. She screams and cums again. 
+ 
+
+===
+
+He strokes up in her. She hangs on and meets his strokes. She feels it swelling again and lines it up with her cervix. He holds him in her and squeezes him. His cock flares and he squirts more cum in her. She screams and cums again. 
 
  "Take it baby. Take my hot black seed. Take it in your hot pussy." 
 
@@ -380,7 +390,11 @@
 
  
 
- ****** Hooked on Black Bareback Ch. 02 ****** byGotBacon© Over the next few days, Amy can't get Donald out of her mind. She thinks of the wonderful orgasms she had with him. She thinks of his big black cock in her pussy. She thinks of his hot black cum squirting in her cervix. 
+ 
+
+===
+
+Over the next few days, Amy can't get Donald out of her mind. She thinks of the wonderful orgasms she had with him. She thinks of his big black cock in her pussy. She thinks of his hot black cum squirting in her cervix. 
 
  She picks up her cell phone. She selects contacts. She selects 'Donna'. She hesitates and taps call. 
 
@@ -740,7 +754,11 @@
 
  
 
- ****** Hooked on Black Bareback Ch. 02 ****** byGotBacon© "I'm gonna fuck my Mom." 
+ 
+
+===
+
+"I'm gonna fuck my Mom." 
 
  That evening after dinner he decides to go for a swim. 
 

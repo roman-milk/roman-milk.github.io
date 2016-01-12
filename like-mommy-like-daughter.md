@@ -1,8 +1,14 @@
+Like Mommy, Like Daughter
+=========================
 #1 
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© SUMMARY: MILF's ex-Mistress comes to claim her submissive &amp; daughter 
+ 
+
+===
+
+SUMMARY: MILF's ex-Mistress comes to claim her submissive &amp; daughter 
 
  NOTE 1: Thanks to Kelly Winters for suggesting the original idea. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© "Good question, my pet," she purred, her tone again condescending. "Well, for now we will keep it on the down-low." She paused, her hand slyly cupping the overwhelmed woman's small breasts, before warning, "As long as you are good." 
+ 
+
+===
+
+"Good question, my pet," she purred, her tone again condescending. "Well, for now we will keep it on the down-low." She paused, her hand slyly cupping the overwhelmed woman's small breasts, before warning, "As long as you are good." 
 
  The teenage girl's hands on her long neglected breasts set off fireworks inside Sandra and her dire situation became worse as she already felt the urge to submit building inside her. She heard her words before she thought them. "I'll be good." 
 
@@ -482,7 +492,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© It was after midnight on a Tuesday and Sandra was fast asleep when she was suddenly awakened by Mariah, naked from the waist down. Mariah ordered, "Wake up Sandra I need your help." 
+ 
+
+===
+
+It was after midnight on a Tuesday and Sandra was fast asleep when she was suddenly awakened by Mariah, naked from the waist down. Mariah ordered, "Wake up Sandra I need your help." 
 
  Sandra groggily woke up and asked concerned, "What's wrong, Mariah? Are you OK?" 
 
@@ -756,7 +770,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© "Will baby ever leave Mommy again?" Mariah asked, the first couple of inches of her plastic pleasure wand disappearing inside her desperate to come pet. 
+ 
+
+===
+
+"Will baby ever leave Mommy again?" Mariah asked, the first couple of inches of her plastic pleasure wand disappearing inside her desperate to come pet. 
 
  "No, Mommy, I was a bad girl, I will be a good girl," Sandra whimpered. The cock inside her but not moving was driving her crazy. 
 
@@ -1038,7 +1056,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© Mariah was thrilled with how the day had gone. She was confident that Sandra would fall right back into the role she was born to play, but really had no idea until now what kind of personality Kelly would have...luckily, as expected, it really was like mother, like daughter. 
+ 
+
+===
+
+Mariah was thrilled with how the day had gone. She was confident that Sandra would fall right back into the role she was born to play, but really had no idea until now what kind of personality Kelly would have...luckily, as expected, it really was like mother, like daughter. 
 
  5. MAN, KELLY FEELS LIKE A WOMAN 
 
@@ -1356,7 +1378,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© Sandra worked her ass off all day and it wasn't till after one when she realized she had worked through lunch and missed her opportunity to meet with her daughter. She knew Kelly had track practice after school so the much-needed conversation would have to wait. 
+ 
+
+===
+
+Sandra worked her ass off all day and it wasn't till after one when she realized she had worked through lunch and missed her opportunity to meet with her daughter. She knew Kelly had track practice after school so the much-needed conversation would have to wait. 
 
  The rest of the day flew by; only on occasion was Sandra distracted by the balls in her cunt. Glancing at the clock, she saved her work on her computer and drove over to meet Mariah, knowing one of Mariah's biggest pet peeves was tardiness. 
 
@@ -1604,7 +1630,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© Mariah, seeing her sub stop, snapped, "Get over here, slut! We had to start without you." 
+ 
+
+===
+
+Mariah, seeing her sub stop, snapped, "Get over here, slut! We had to start without you." 
 
  'We?' Sandra pondered, as she continued the slow crawl to her Mistress, praying the unknown girl between Mariah's legs wasn't someone she knew or knew her. 
 
@@ -1878,7 +1908,11 @@
 
  
 
- ****** Like Mommy, Like Daughter ****** bysilkstockingslover© Mariah smiled, loving showing off her power, "Do you want her to eat your cunt?" 
+ 
+
+===
+
+Mariah smiled, loving showing off her power, "Do you want her to eat your cunt?" 
 
  "Really?" Alexandra asked. 
 
@@ -2096,7 +2130,11 @@
 
  
 
- ****** Like Mommy, Like Daughter Pt. 02 ****** bysilkstockingslover© SUMMARY: Sub mom falls deeper; shy daughter finds her own sexuality. 
+ 
+
+===
+
+SUMMARY: Sub mom falls deeper; shy daughter finds her own sexuality. 
 
  NOTE 1: Thanks to Kelly Winters for suggesting the original idea. 
 
@@ -2308,7 +2346,11 @@
 
  
 
- ****** Like Mommy, Like Daughter Pt. 02 ****** bysilkstockingslover© "Fuuuuuck," grunted the nameless cock. 
+ 
+
+===
+
+"Fuuuuuck," grunted the nameless cock. 
 
  Sandra would have loved to feel this big cock in her cunt, but settled on the task at hand, feeling his sticky goo slide down her throat. Like most men, a couple of minutes of concentrated fast-paced sucking and he was shooting his wad down her throat. 
 
@@ -2564,7 +2606,11 @@
 
  
 
- ****** Like Mommy, Like Daughter Pt. 02 ****** bysilkstockingslover© Sandra watched stunned and in awe. 'Queen?' she thought to herself. 
+ 
+
+===
+
+Sandra watched stunned and in awe. 'Queen?' she thought to herself. 
 
  Mariah changed feet and the obedient mother replicated the expected service taking the other stocking-clad foot between her lips. 
 
@@ -2854,7 +2900,11 @@
 
  
 
- ****** Like Mommy, Like Daughter Pt. 02 ****** bysilkstockingslover© "Bullshit," Carissa called, explaining, "I knew you were a submissive dyke the first time we met." 
+ 
+
+===
+
+"Bullshit," Carissa called, explaining, "I knew you were a submissive dyke the first time we met." 
 
  "How?" Sandra asked, curious to know how this woman had a clue of her hidden desires. 
 
@@ -3158,7 +3208,11 @@
 
  
 
- ****** Like Mommy, Like Daughter Pt. 02 ****** bysilkstockingslover© Becka sighed before saying over dramatically, "Oh you spoilsport. Kelly was just about to fuck herself in front of us." 
+ 
+
+===
+
+Becka sighed before saying over dramatically, "Oh you spoilsport. Kelly was just about to fuck herself in front of us." 
 
  "I was not!" Kelly protested, although she wasn't sure what she would have done if pressured. She was not one for confrontation. 
 
@@ -3452,7 +3506,11 @@
 
  
 
- ****** Like Mommy, Like Daughter Pt. 02 ****** bysilkstockingslover© Sandra was overwhelmed with the sudden realization that it hadn't been a one way street all these years, indeed clarity hit her with such clearness she wondered how she never understood it before. She needed Mariah to fill the role of mistress, to guide her in her journey of sexual awakening and liberation; conversely, Sandra now saw through the facade of firmness into the deep insecurities that Mariah hid so well. Mariah needed her. The realization sent a rush of adrenaline through her. Finally, she spoke, "I didn't know that was what has been missing all these years, but obviously it was." 
+ 
+
+===
+
+Sandra was overwhelmed with the sudden realization that it hadn't been a one way street all these years, indeed clarity hit her with such clearness she wondered how she never understood it before. She needed Mariah to fill the role of mistress, to guide her in her journey of sexual awakening and liberation; conversely, Sandra now saw through the facade of firmness into the deep insecurities that Mariah hid so well. Mariah needed her. The realization sent a rush of adrenaline through her. Finally, she spoke, "I didn't know that was what has been missing all these years, but obviously it was." 
 
  "What was?" Mariah questioned, her one vulnerability allowed out which made her uncomfortable. 
 

@@ -1,8 +1,14 @@
+The Birthday Party
+==================
 #1 
 
  
 
- ****** The Birthday Party ****** byJust_Plain_Bob© My husband's birthday was almost upon us and I hadn't yet found an appropriate gift for him. What do you give a man who has everything? What can you give a man who treats you like he owns you and that you are simply one more of his many possessions? What can you give a cheating bastard who fucks his secretary at lunchtime and your sister every Tuesday and Thursday night? Something special is what you give him - something very special. 
+ 
+
+===
+
+My husband's birthday was almost upon us and I hadn't yet found an appropriate gift for him. What do you give a man who has everything? What can you give a man who treats you like he owns you and that you are simply one more of his many possessions? What can you give a cheating bastard who fucks his secretary at lunchtime and your sister every Tuesday and Thursday night? Something special is what you give him - something very special. 
 
  ++++++++++++++++++++++++++++++++++++++++ 
 

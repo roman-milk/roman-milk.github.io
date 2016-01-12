@@ -1,8 +1,14 @@
+Jenny's Tape
+============
 #1 
 
  
 
- ****** Jenny's Tape ****** byJust_Plain_Bob© I hadn't always wanted to see my wife with another man. In fact it was only after ten years of marriage that I started to think about it. As I suspect the case may be with other wife watchers the idea came about as the result of the chance reading of a magazine. 
+ 
+
+===
+
+I hadn't always wanted to see my wife with another man. In fact it was only after ten years of marriage that I started to think about it. As I suspect the case may be with other wife watchers the idea came about as the result of the chance reading of a magazine. 
 
  My wife and I were at a New Years party at the home of a friend and during the course of the evening I had occasion to use the bathroom. Next to the commode was a basket with some magazines so I pick up one to glance through while I took care of my business. I was idly thumbing through it when some bold faced type caught my eye - "Husband Watches Wife Take On All Cummers." I read the story and it was about a man who got off on watching his wife fuck other men. My first thought was, "What kind of man would watch his wife do something like that?" Not only that, but what kind of woman would go along with it? I put the magazine down, finished my business and got back to the party. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Jenny's Tape ****** byJust_Plain_Bob© The next morning Jenny called me at six and said, "You are going to love this one. Your wife is now a bona fide slut and a whore." 
+ 
+
+===
+
+The next morning Jenny called me at six and said, "You are going to love this one. Your wife is now a bona fide slut and a whore." 
 
  "What are you talking about?" 
 

@@ -1,8 +1,14 @@
+Setting Up Jackie
+=================
 #1 
 
  
 
- ****** Setting Up Jackie ****** byJust_Plain_Bob© Jackie was a stuck up bitch with an "I'm much better than you" demeanor. She looked down her nose at every one else in the family and I can honestly say that there wasn't anyone in the family that liked her with the possible exception of her husband Matt. I say possible because I'm not even sure he liked her after being married to her a while. 
+ 
+
+===
+
+Jackie was a stuck up bitch with an "I'm much better than you" demeanor. She looked down her nose at every one else in the family and I can honestly say that there wasn't anyone in the family that liked her with the possible exception of her husband Matt. I say possible because I'm not even sure he liked her after being married to her a while. 
 
  Matt, or Matthew as he preferred to be called, was my wife's brother. In a way he and Jackie deserved each other. Matt (I call him that because it pisses him off) is a smug, pompous asshole who thinks he is better that the rest of his family because he is the only one who went to college. He conveniently forgets that it was his parents whose scrimping and saving made it possible. Anyway, I disliked them both and avoided them as much as possible. 
 

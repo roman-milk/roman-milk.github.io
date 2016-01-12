@@ -1,8 +1,14 @@
+Mrs. Johnson Gets a Job
+=======================
 #1 
 
  
 
- ****** Mrs. Johnson Gets a Job ****** byJust_Plain_Bob© Goddamn George Bush anyway Janice thought as she pulled up in front of the address that her friend Joan had given her. Just when she and Tom were finally getting their financial act together Bush had to activate Tom's reserve unit and ship him to some god-awful place in case we have to fight Saddam Hussein. All well and good for making Bush look tough, but not good for the Johnson's who now didn't have enough money coming in. She hoped that she could land the job that Joan had told her about. If she could get it the pay would definitely be more than she could make as a secretary. She would have to keep Tom from finding out though. If he knew she was bartending at a men's club he would have a fit. She checked the address one last time, checked her makeup in the mirror, took a deep breath and got out of the car. 
+ 
+
+===
+
+Goddamn George Bush anyway Janice thought as she pulled up in front of the address that her friend Joan had given her. Just when she and Tom were finally getting their financial act together Bush had to activate Tom's reserve unit and ship him to some god-awful place in case we have to fight Saddam Hussein. All well and good for making Bush look tough, but not good for the Johnson's who now didn't have enough money coming in. She hoped that she could land the job that Joan had told her about. If she could get it the pay would definitely be more than she could make as a secretary. She would have to keep Tom from finding out though. If he knew she was bartending at a men's club he would have a fit. She checked the address one last time, checked her makeup in the mirror, took a deep breath and got out of the car. 
 
  From a window on the third floor two men watched as Janice got out of her car. "What do you think?" asked the shorter of the two. 
 

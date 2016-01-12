@@ -1,8 +1,14 @@
+Chloe's Shame
+=============
 #1 
 
  
 
- ****** Chloe's Shame ****** bygeronimo_appleby© He arrived at three o'clock, punctual, as she knew he would be. Chloe had been in a high state of agitation well before the buzz that signalled his arrival. He had forbidden her to touch herself from the morning and her frantic pre-dawn fingering and dildo play had only heightened the excitement she felt. 
+ 
+
+===
+
+He arrived at three o'clock, punctual, as she knew he would be. Chloe had been in a high state of agitation well before the buzz that signalled his arrival. He had forbidden her to touch herself from the morning and her frantic pre-dawn fingering and dildo play had only heightened the excitement she felt. 
 
  "Please," she had begged as he entered the flat. "Please, just let me have one little come." 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Chloe's Shame ****** bygeronimo_appleby© Chloe's eyes closed as she surrendered to the sensations of the hands that roved over her body. She felt them caressing the nylon of her stockings before the hands moved to the soft skin of her thighs above their tops. Mouths clamped over her nipples, while fingers probed into her opening. Chloe gasped when one of the men slid two fingers into her body. She immediately widened her stance to allow him easier access. 
+ 
+
+===
+
+Chloe's eyes closed as she surrendered to the sensations of the hands that roved over her body. She felt them caressing the nylon of her stockings before the hands moved to the soft skin of her thighs above their tops. Mouths clamped over her nipples, while fingers probed into her opening. Chloe gasped when one of the men slid two fingers into her body. She immediately widened her stance to allow him easier access. 
 
  "Yes, that's right, slut." Adam spoke when Chloe shifted position. "Let him get at your cunt." 
 

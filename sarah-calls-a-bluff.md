@@ -1,8 +1,14 @@
+Sarah Calls A Bluff
+===================
 #1 
 
  
 
- ****** Sarah Calls A Bluff ****** byJust_Plain_Bob© The Internet has caused major changes in the lives of many people, making it easier to find things, making it easier to communicate with others, and making it easier to gather information. It can do a host of other things that I haven't found out how to use yet, chat rooms and bulletin boards on almost every subject under the sun, and sex - oh yes, the sex! I admit it. The only reason I have an Internet provider is so I can cruise the porno sites, and God knows there are plenty of them. Someone once estimated that there are over ten thousand sites out there on the net dedicated to sexual topics. I have thirty- one book marked that I visit regularly and a whole bunch more that I hit every once in a while. 
+ 
+
+===
+
+The Internet has caused major changes in the lives of many people, making it easier to find things, making it easier to communicate with others, and making it easier to gather information. It can do a host of other things that I haven't found out how to use yet, chat rooms and bulletin boards on almost every subject under the sun, and sex - oh yes, the sex! I admit it. The only reason I have an Internet provider is so I can cruise the porno sites, and God knows there are plenty of them. Someone once estimated that there are over ten thousand sites out there on the net dedicated to sexual topics. I have thirty- one book marked that I visit regularly and a whole bunch more that I hit every once in a while. 
 
  What can I say? I like looking at the naked ladies. And I especially love the sites dedicated to amateurs. To me, there is nothing sweeter than looking at real women and by that I mean the truly amateurs; the sweethearts and wives of guys just like me. I've tried to get my wife to let me send her photo in to one of the sites, but I have a better chance of winning the lottery. My wife just shakes her head in disgust when I park myself in front of the monitor and start drooling, but I have noticed that she never chases me away when I go looking for her with my brand new 'woody' courtesy of some sexy housewife or girl friend of a contributor to one of the sites. Like I said, the net sure has changed a lot of lives, but I never expected it to change mine, at least not in the way it did. 
 

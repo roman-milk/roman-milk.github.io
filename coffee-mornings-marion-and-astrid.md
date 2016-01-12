@@ -1,8 +1,14 @@
+Coffee Mornings (Marion &amp; Astrid)
+=====================================
 #1 
 
  
 
- ****** Coffee Mornings (Marion &amp; Astrid) ****** bygeronimo_appleby© Marion heard the doorbell chime inside Astrid's house and her tummy fluttered with butterfly wings of anticipation. She had anticipated this morning's arrival with growing expectation, ever since Astrid had called her days before to arrange the time for their meeting. Marion was nearly climbing the walls with the frustration she felt as her husband dithered and dawdled prior to eventually leaving the house at eight thirty. To be fair, he carried out his morning routine just as deliberately that morning, and left no later than usual, it just seemed that he took an age with his preparations that particular day. 
+ 
+
+===
+
+Marion heard the doorbell chime inside Astrid's house and her tummy fluttered with butterfly wings of anticipation. She had anticipated this morning's arrival with growing expectation, ever since Astrid had called her days before to arrange the time for their meeting. Marion was nearly climbing the walls with the frustration she felt as her husband dithered and dawdled prior to eventually leaving the house at eight thirty. To be fair, he carried out his morning routine just as deliberately that morning, and left no later than usual, it just seemed that he took an age with his preparations that particular day. 
 
  No sooner had Marion heard the sound of her husband's car crunching down the gravelled driveway than she was in the shower and beginning her own meticulous preparations. She wanted to be smooth limbed and sweetly scented for her pending date with her new girlfriend. 
 

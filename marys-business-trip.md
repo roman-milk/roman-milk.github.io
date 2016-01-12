@@ -1,8 +1,14 @@
+Mary's Business Trip
+====================
 #1 
 
  
 
- ****** Mary's Business Trip ****** byJust_Plain_Bob© My wife Mary was always complaining that she didn't get out of the house enough so when I offered to take her with me on my business trips she jumped at the chance. She would take her bathing suit and lay around the hotel pool or go shopping while I was taking care of business and in the evening we would go out to dinner and look for a dance spot. On some nights there were cocktail parties to attend and since these parties always had business overtones we almost always went to them. Mary has one major flaw - she has a very low tolerance for alcohol, three drinks can have her semi-comatose, and so I have to keep a very close eye on her at parties. 
+ 
+
+===
+
+My wife Mary was always complaining that she didn't get out of the house enough so when I offered to take her with me on my business trips she jumped at the chance. She would take her bathing suit and lay around the hotel pool or go shopping while I was taking care of business and in the evening we would go out to dinner and look for a dance spot. On some nights there were cocktail parties to attend and since these parties always had business overtones we almost always went to them. Mary has one major flaw - she has a very low tolerance for alcohol, three drinks can have her semi-comatose, and so I have to keep a very close eye on her at parties. 
 
  My last trip included one of these parties and as usual Mary had too much to drink, but she is fun when she is 'giddy' so I switched her to ginger ale and kept an eye on her. At the end of the party we returned to our hotel and Mary talked me into stopping at the hotel bar. We took a table near the back and placed our order. We were on our second drink when I was paged for a phone call. I got up and went to the wall phone to take the call and fortunately from where the phone was I could see our table. The call was from one of my most important customers and getting him to sign an agreement was the sole purpose for this trip so there was no way I could just tell him I would call him later. From the phone I watched a guy approach our table and talk to Mary. She got up and moved to the dance floor with him and following the dance he escorted her back to the table and sat down with her. He ordered more drinks and they danced some more while my phone call drug on and on. I saw the man's hands disappear under the table and Mary give a start, and then she laughed at him. His hands stayed under the table and I saw him move a closer to her. They sat that way for several minutes and then Mary got up and headed for the ladies room. The man went to the bar and got another drink and I lost sight of him. 
 

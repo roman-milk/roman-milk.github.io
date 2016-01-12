@@ -1,8 +1,14 @@
+Plantation Overthrow Gangbang
+=============================
 #1 
 
  
 
- ****** Plantation Overthrow Gangbang ****** bysilkstockingslover© Summary: Black slaves overthrow white Master and use his daughter. 
+ 
+
+===
+
+Summary: Black slaves overthrow white Master and use his daughter. 
 
  Note 1: This story uses the 'N' word very excessively to keep up with the racist times in which this story is taking place. I apologize in advance if the word offends you. 
 

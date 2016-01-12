@@ -1,8 +1,14 @@
+The Black Wedding
+=================
 #1 
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
 
  ************ 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "I'm sorry... it's just, this is all happening at once, and it's all so fast, and I've got no one to help out..." Mandy said, everything hitting her at once as she felt the tears welling in her eyes once more. Vanessa studied her young secretary for a moment before coming to a decision. 
+ 
+
+===
+
+"I'm sorry... it's just, this is all happening at once, and it's all so fast, and I've got no one to help out..." Mandy said, everything hitting her at once as she felt the tears welling in her eyes once more. Vanessa studied her young secretary for a moment before coming to a decision. 
 
  "I tell you what, come into my office. Let me make some calls." Mandy followed her boss into her large office. Vanessa dropped her bag unceremoniously onto the floor and tossed her sunglasses onto the side couch. As Vanessa sat behind her large oak desk and skimmed through her leather notebook full of phone numbers, Mandy sat in front of the desk, not sure what to expect. Vanessa rolled up her sleeves, cracked her neck, and picked up the phone. 
 
@@ -212,7 +222,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© So when Mandy saw him again, as a bartender in the big city, those old nerves reappeared. Part of her just wanted to get away, not wanting to be recognized by this guy she used to idolize. She kept herself turned away, trying to avoid being seen. But when a drink appeared in front of her, on the house, courtesy of the bartender, she found herself turning to face him. When he gave her that same, cute smile and nod, Mandy melted. 
+ 
+
+===
+
+So when Mandy saw him again, as a bartender in the big city, those old nerves reappeared. Part of her just wanted to get away, not wanting to be recognized by this guy she used to idolize. She kept herself turned away, trying to avoid being seen. But when a drink appeared in front of her, on the house, courtesy of the bartender, she found herself turning to face him. When he gave her that same, cute smile and nod, Mandy melted. 
 
  Mandy made her way to the bar and struck up a conversation with Zack, catching up. Mandy was shocked at how interested he seemed to be in talking to her. A guy as popular as him didn't need to spend any time with a girl like her, but he genuinely seemed interested. She found herself at the bar talking to him for hours, well after her friends had left. She and Zack had an easy chemistry, their conversation flowing easily without a single lull. Mandy was shocked to find herself exchanging numbers with Zack, but with her history with men, she thought this was simply a token gesture, not expecting anything to come from it. She was just a friendly face in the big city, and maybe they would hang out once or twice. He was handsome and popular... why would he want to hang out with a boring girl like her? 
 
@@ -302,7 +316,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© She tried keeping her preference for white men under wraps for a while, but she was eventually caught in action, and from that point on, she felt like her black friends were looking down at her for getting involved with white men. They looked at her as if she was betraying some unspoken vow. But deep down, Vanessa fucking knew that all her girlfriends were doing it to, but they would never admit it. So unfortunately, she had to move on from white guys or risk becoming an outcast from her black friends. She had to write it off to her friends as a passing phase and nothing more. She knew it shouldn't be that way, but that's how it was. 
+ 
+
+===
+
+She tried keeping her preference for white men under wraps for a while, but she was eventually caught in action, and from that point on, she felt like her black friends were looking down at her for getting involved with white men. They looked at her as if she was betraying some unspoken vow. But deep down, Vanessa fucking knew that all her girlfriends were doing it to, but they would never admit it. So unfortunately, she had to move on from white guys or risk becoming an outcast from her black friends. She had to write it off to her friends as a passing phase and nothing more. She knew it shouldn't be that way, but that's how it was. 
 
  It had been a long time since she had sampled some tasty white meat. Being a successful, African-American woman made her a symbol for her black sisters and she knew she would risk their support if she indulged her love of white men publically. She kept her dating life well within her own race for years, and the few times she found herself alongside one of the black women she knew from college, who knew about her past, she maintained this façade. When confronted with her history, or if they were in the presence of a piece of hot white man, Vanessa would insist that, 'she didn't do that shit no more.' 
 
@@ -410,7 +428,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© For now. 
+ 
+
+===
+
+For now. 
 
  Zack had heard someone enter the room, but he was so absorbed in his own thoughts that he didn't notice the intruder at first. It was only out of the corner of his eye that he noticed some movement reflected in the mirror, causing him to look up, laying eyes on the older woman standing behind him. 
 
@@ -518,7 +540,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© The worst part was, every time he would glance over at Vanessa, stolen glances in moments where he would be looking away from his wife-to-be, Vanessa would be looking right back at him. Either looking him in the eyes, matching his gaze, or checking him out in the same way he had been doing to her. It was clear to him, if it wasn't before, that this tension between them went both ways. And even when he wasn't looking at her, he could feel her eyes on him, and that sensation made him shiver with discomfort. 
+ 
+
+===
+
+The worst part was, every time he would glance over at Vanessa, stolen glances in moments where he would be looking away from his wife-to-be, Vanessa would be looking right back at him. Either looking him in the eyes, matching his gaze, or checking him out in the same way he had been doing to her. It was clear to him, if it wasn't before, that this tension between them went both ways. And even when he wasn't looking at her, he could feel her eyes on him, and that sensation made him shiver with discomfort. 
 
  This was supposed to be the happiest day of his life. He WAS happy with Mandy and everything related to the wedding, but this strange tension between him and Vanessa was weighing on his brain on this important day. He should be thinking about his new wife, and the amazing life they were about to have together, not his wife's boss's huge black tits. 
 
@@ -624,7 +650,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "You're making your play for the groom?" Trina asked, and the older woman's narrowed eyes were all the confirmation she needed. "I should warn you... he's a tough nut to crack. I made a move on him, and he didn't bite." 
+ 
+
+===
+
+"You're making your play for the groom?" Trina asked, and the older woman's narrowed eyes were all the confirmation she needed. "I should warn you... he's a tough nut to crack. I made a move on him, and he didn't bite." 
 
  "Well, I have gifts you don't..." Vanessa replied firmly, causing Trina to roll her eyes. "So, are you getting that plain little thing drunk out of her mind, or will I have to find someone else?" 
 
@@ -760,7 +790,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© Finally, the song ended, and she stepped back, smiling that bright teasing smile of hers. Zack was both eager to get away, but frozen in place by this imposing black woman. She reached up to straighten the knot on his tie. 
+ 
+
+===
+
+Finally, the song ended, and she stepped back, smiling that bright teasing smile of hers. Zack was both eager to get away, but frozen in place by this imposing black woman. She reached up to straighten the knot on his tie. 
 
  "Like I said, you need to be careful," she warned him. "There are women everywhere, eager to swoop in and scoop you up. If you want to be a good husband, you need to keep it in your pants. Don't give any of those girls even an inch. Keep your eyes on your wife and don't even think about any other woman. Don't play the game with any of those scheming bitches unless you're willing to sink balls deep inside them. And, finally, and most importantly, don't stare at my ass when I walk away, or else you're really gonna regret what you missed out on." 
 
@@ -858,7 +892,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© Mandy gulped, looking down at the ground. Was she serious? Did Zack expect these kind of things from her? Looking away from Vanessa, she didn't see the older woman snap her fingers to get Trina's attention, and soon enough a hard drink was placed in front of the nervous wife, which she eagerly gulped down. 
+ 
+
+===
+
+Mandy gulped, looking down at the ground. Was she serious? Did Zack expect these kind of things from her? Looking away from Vanessa, she didn't see the older woman snap her fingers to get Trina's attention, and soon enough a hard drink was placed in front of the nervous wife, which she eagerly gulped down. 
 
  "Hon, don't worry, it's a bit uncomfortable at first, but you will learn to love it. Trust me," Vanessa assured knowingly, conveying the pleasures of anal sex to the young bride. "And beyond that, you need to keep your body in tip-top shape. Keep your butt nice and pert. And make your wardrobe revealing. He's your husband. He wants to see your body, and he likes knowing you will give it to him. Show off what you have." 
 
@@ -956,7 +994,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "I must admit, hon... you've made an old lady like me jealous," Vanessa said. "You have no idea what I would do to get a man like him..." she said, trailing off, holding his eyes with her own. Mandy bent over slightly, rubbing her hand across her forehead as she tried to ease her dizziness. "It's a shame you've embarrassed yourself in front of your husband and taken yourself out of commission, honey," the older black woman stated to her young secretary. "You gotta be careful, dear... a lot of the women back there were eyeing up your husband... if it wasn't for me, one of them would be angling to take your place in your bed tonight. I know that sounds bad, but it's the truth. Hell, if you weren't in the picture, I would do some very dirty things with your hunk of a husband." She raised her eyebrows at the young white husband, and he responded by giving her a warning glare, trying to stop her in her tracks. But she was undeterred. As he clutched his wife close to him, he steeled himself for her next onslaught. 
+ 
+
+===
+
+"I must admit, hon... you've made an old lady like me jealous," Vanessa said. "You have no idea what I would do to get a man like him..." she said, trailing off, holding his eyes with her own. Mandy bent over slightly, rubbing her hand across her forehead as she tried to ease her dizziness. "It's a shame you've embarrassed yourself in front of your husband and taken yourself out of commission, honey," the older black woman stated to her young secretary. "You gotta be careful, dear... a lot of the women back there were eyeing up your husband... if it wasn't for me, one of them would be angling to take your place in your bed tonight. I know that sounds bad, but it's the truth. Hell, if you weren't in the picture, I would do some very dirty things with your hunk of a husband." She raised her eyebrows at the young white husband, and he responded by giving her a warning glare, trying to stop her in her tracks. But she was undeterred. As he clutched his wife close to him, he steeled himself for her next onslaught. 
 
  "I find your husband very, VERY attractive," Vanessa said, sipping a flute of champagne as she spoke. Knowing that Mandy would remember none of this due to her drunken stake, Vanessa didn't hold back. "Mmm, that's right, dear. Your husband is a fine-as-hell white man, and I can't stop thinking about having sex with him. Hot, sweaty, naked sex," she said, savoring the delicious words as they left her lips, her eyes holding Zack's. She raised her eyebrows at him, eyes twinkling with amusement, as if this was some sort of hilarious bit to her. Some sort of gag on his wife, taking advantage of her current state by having a bit of fun at her expense. 
 
@@ -1066,7 +1108,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "Vanessa... this isn't a game. I really don't want any of this. I just want to be with Mandy. So, please... you need to leave now," he insisted, freaking out. Was this really happening? 
+ 
+
+===
+
+"Vanessa... this isn't a game. I really don't want any of this. I just want to be with Mandy. So, please... you need to leave now," he insisted, freaking out. Was this really happening? 
 
  "Why?" she replied. "Afraid you can't control yourself around my hot body? I don't blame you. My body is fucking perfect. I know you want to run your hands all over me..." she said boastfully, sliding her hands along her curvy hips. 
 
@@ -1166,7 +1212,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "Baby... I've been dreaming of getting that mouth on my tits all fucking day!" she moaned out, scratching his neck lovingly. "Mmm, yeah. Suck Mama's tits, baby!" Zack's eyes were closed, his entire focus on pleasuring Vanessa's massive black breasts with his married mouth. He switched between spit-soaked nipples at the perfect moments, giving both equal attention. Vanessa marveled at his efforts. "You are SO good at sucking my big tits, honey! I don't know how you could get by sucking Mandy's itty bitty titties." Zack didn't acknowledge the slight against his wife. He was too far gone, so immersed was he in her massive rack. Noting this, she again pressed her advantage. "You got married to that little bitch, but it's my big boobs you've got your hands on. It's my big knockers you're sucking. Not hers. That dumb bitch is passed out in her fucking wedding dress, and you're too busy sucking her boss's big, black breasts to care..." Vanessa said, savoring each syllable. Zack only attacked her tits with more vigor, chewing on her rubbery nipples as he squeezed harder. 
+ 
+
+===
+
+"Baby... I've been dreaming of getting that mouth on my tits all fucking day!" she moaned out, scratching his neck lovingly. "Mmm, yeah. Suck Mama's tits, baby!" Zack's eyes were closed, his entire focus on pleasuring Vanessa's massive black breasts with his married mouth. He switched between spit-soaked nipples at the perfect moments, giving both equal attention. Vanessa marveled at his efforts. "You are SO good at sucking my big tits, honey! I don't know how you could get by sucking Mandy's itty bitty titties." Zack didn't acknowledge the slight against his wife. He was too far gone, so immersed was he in her massive rack. Noting this, she again pressed her advantage. "You got married to that little bitch, but it's my big boobs you've got your hands on. It's my big knockers you're sucking. Not hers. That dumb bitch is passed out in her fucking wedding dress, and you're too busy sucking her boss's big, black breasts to care..." Vanessa said, savoring each syllable. Zack only attacked her tits with more vigor, chewing on her rubbery nipples as he squeezed harder. 
 
  Unable to contain her own urges any longer, she let her hands get to work. She deftly undid his tie and tossed it away. She roughly yanked his shirt from his pants and ripped the buttons apart before pulling it off his shoulders. She yanked off his undershirt, only losing the sensation of his mouth on her nipple for a split second before he was back at it, sucking once more. Looking down at his fit, hard chest, she couldn't stop her hands from exploring, her slim, black fingers sliding against his hard muscles. She kept feeling him up for a few moments before she attacked his belt with her hands, eager to get his pants down. She pulled his belt apart, roughly yanked open the button and zipper, and tugged his pants down, revealing his tight, navy blue boxer briefs, which clung to his throbbing manhood. Unable to stop herself, she pressed her hand against his throbbing dick, feeling its length through his briefs. 
 
@@ -1232,7 +1282,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "Fuck!" Zack grunted, his balls beginning to boil as he fucked into her, feeling his long awaited orgasm just within reach. "I love fucking your tight throat!" he growled, the beast inside him rising to the surface for just a moment. As he began to lose control, Vanessa reached up and gripped his wrists, digging her nails into his tensed muscles, forcing him to release his grip on her scalp. So tensed with pleasure, he allowed her to guide him as she used her nails against his tensed belly, pushing him onto his back on the bed. She leaned up and moved above him as she attacked his cock fully, stroking his swollen, spit-soaked cock as she sucked it aggressively, her saliva pooling around his crotch. Zack looked down and met the older black woman's aggressive glare. 
+ 
+
+===
+
+"Fuck!" Zack grunted, his balls beginning to boil as he fucked into her, feeling his long awaited orgasm just within reach. "I love fucking your tight throat!" he growled, the beast inside him rising to the surface for just a moment. As he began to lose control, Vanessa reached up and gripped his wrists, digging her nails into his tensed muscles, forcing him to release his grip on her scalp. So tensed with pleasure, he allowed her to guide him as she used her nails against his tensed belly, pushing him onto his back on the bed. She leaned up and moved above him as she attacked his cock fully, stroking his swollen, spit-soaked cock as she sucked it aggressively, her saliva pooling around his crotch. Zack looked down and met the older black woman's aggressive glare. 
 
  Vanessa wasn't sucking him with such fervor merely to suck him into compliance and submission, even though that was a happy outcome to her work. No, she was sucking with such fervor because she loved it. She loved sucking dick, and having a white cock in her mouth, satiating her hunger after so many years. She couldn't stop herself. She was ravenous, inhaling his cock hungrily. White dick was so fucking good! The flavor was so incredible to her advanced palate, she had already decided she would never let another cock into her mouth that wasn't white. It tasted too good and too perfect to deny herself this meal any longer. White cock was too amazing not to suck on. 
 
@@ -1314,7 +1368,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "Oh, no you don't!" Vanessa said, moving smoothly to grab his wrists and slam them into the bed, stopping the hypnotized young husband in his tracks. She paused in her bouncing, grinding her hungry cunt around the stiff, white pole, squeezing the massive organ, driving the young man crazy. 
+ 
+
+===
+
+"Oh, no you don't!" Vanessa said, moving smoothly to grab his wrists and slam them into the bed, stopping the hypnotized young husband in his tracks. She paused in her bouncing, grinding her hungry cunt around the stiff, white pole, squeezing the massive organ, driving the young man crazy. 
 
  "Please!" he grunted out, squirming beneath her as she pinned him down. Her massive udders were hanging down, her smooth black breast-flesh sliding against his sweaty chest. He could feel her hard, thick nipples scraping his chest, making him shiver. He looked up into her cocky eyes as he tried to escape her tight grip and get his hands on those titties. 
 
@@ -1414,7 +1472,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "Oh my God! I'm gonna do it!" Zack moaned out. "I'm gonna cum inside you while my fucking boring, dumbass wife sleeps... through... it! YES! YES! AHHHH!" As he turned the corner, his jaw clenched and his teeth bit down firmly on the black woman's rubbery nipple. This jolt of pleasure, combined with hearing the young married man trash talk his own wife, set the black woman off. 
+ 
+
+===
+
+"Oh my God! I'm gonna do it!" Zack moaned out. "I'm gonna cum inside you while my fucking boring, dumbass wife sleeps... through... it! YES! YES! AHHHH!" As he turned the corner, his jaw clenched and his teeth bit down firmly on the black woman's rubbery nipple. This jolt of pleasure, combined with hearing the young married man trash talk his own wife, set the black woman off. 
 
  "UGHHHHHHHHHHHHH! YYYYYYYYYYYYYYYEEEEEAAAAAAAAHHHHH!" Vanessa grunted, her body tensed as her black pussy locked around the base of his white married shaft, its full length buried inside her. "YES! YES! FUCK! YES! FFFUUUUUUUUUUUUCCCCCCKKKKK YYYYEEAAAAHHHH!" Vanessa squealed, a huge wave of pleasure rocking her luscious body. Her body shivered as she came, every nerve- ending being driven wild by the intense white dicking she was receiving. Her orgasm was enough to take the married man over the edge. 
 
@@ -1526,7 +1588,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© "You're the best!" Zack moaned out, driving his cock in an out of her, the pleasure driving him crazy. "You're the best I've ever had! You're a better woman than Mandy in every fucking way! You're hotter! You're older! You're such a better fuck! God damn, you're incredible! My wife is nothing compared you to you!" 
+ 
+
+===
+
+"You're the best!" Zack moaned out, driving his cock in an out of her, the pleasure driving him crazy. "You're the best I've ever had! You're a better woman than Mandy in every fucking way! You're hotter! You're older! You're such a better fuck! God damn, you're incredible! My wife is nothing compared you to you!" 
 
  "YESSS!" Vanessa grunted out, her ass spasming around his throbbing meat. "That girl ain't nothing! I'm fucking destroying her life! YES! Thanks to you, I'm fucking ruining her! YES! And what do you do? You fuck my ass harder! You make my ass cum! YES!" 
 
@@ -1642,7 +1708,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© Mandy looked at her boss, a women she used to like and respect. But now, she didn't recognize her. She didn't know people could be this cruel. 
+ 
+
+===
+
+Mandy looked at her boss, a women she used to like and respect. But now, she didn't recognize her. She didn't know people could be this cruel. 
 
  This was Vanessa raw. This was Vanessa unleashed. Her at her most callous and cold. This was what so many romantic and business rivals experienced firsthand, seeing the aggressive side of her that took what she wanted, damn the consequences. 
 
@@ -1724,7 +1794,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© Zack was starting to really realize there was a whole new world of women out there that he had never been aware of. Powerful black women, who craved hard white cock above anything else, and would do anything to spread the wealth. Zack had fucked SO many black women by this point, and each one of those encounters had been more thrilling and hot than any of the sexual encounters in his old life. To put it frankly, in his experience it became clear to him that black women were far better at sex than white girls. He associated them with good sex, and he would get hard whenever he saw an attractive black woman. 
+ 
+
+===
+
+Zack was starting to really realize there was a whole new world of women out there that he had never been aware of. Powerful black women, who craved hard white cock above anything else, and would do anything to spread the wealth. Zack had fucked SO many black women by this point, and each one of those encounters had been more thrilling and hot than any of the sexual encounters in his old life. To put it frankly, in his experience it became clear to him that black women were far better at sex than white girls. He associated them with good sex, and he would get hard whenever he saw an attractive black woman. 
 
  But he wasn't completely done with white women just yet. 
 
@@ -1842,7 +1916,11 @@
 
  
 
- ****** The Black Wedding ****** byTheTalkMan© He rarely ever thought about Mandy anymore. 
+ 
+
+===
+
+He rarely ever thought about Mandy anymore. 
 
  **************** 
 

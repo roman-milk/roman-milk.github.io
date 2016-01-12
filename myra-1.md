@@ -1,8 +1,14 @@
+Myra
+====
 #1 
 
  
 
- ****** Myra ****** byJust_Plain_Bob© It didn't come as a surprise to me because I had been expecting it or at least something like it. 
+ 
+
+===
+
+It didn't come as a surprise to me because I had been expecting it or at least something like it. 
 
  It was a Wednesday and Myra and I were eating dinner when she said, "Don't make any plans for us this weekend. The girls from work and I are going to a spa for the weekend. One of the girls arranged for a group package. It will be a weekend of mud baths, mudpacks manicures, pedicures and the like." 
 
@@ -188,7 +194,11 @@
 
  
 
- ****** Myra ****** byJust_Plain_Bob© "So you girls need to get on the road if you want to get there in time to get enough sleep before tomorrow." 
+ 
+
+===
+
+"So you girls need to get on the road if you want to get there in time to get enough sleep before tomorrow." 
 
  "I still think I need to stay home and mend some fences" Myra said. 
 

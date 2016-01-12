@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 03
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 03 ****** byNonStopFunGuy© I wanted my fabulous, sexy, amazing Daddy to fuck my tight, 18 year old, half- Asian pussy. I loved him, I wanted to make him so happy because my cheating Mom was such a fucking bitch to him. Let her go fuck her fat ugly boyfriend. He could take care of her fake big tits and smack around her little Thai body, for all I cared. Daddy was going to be mine! 
+ 
+
+===
+
+I wanted my fabulous, sexy, amazing Daddy to fuck my tight, 18 year old, half- Asian pussy. I loved him, I wanted to make him so happy because my cheating Mom was such a fucking bitch to him. Let her go fuck her fat ugly boyfriend. He could take care of her fake big tits and smack around her little Thai body, for all I cared. Daddy was going to be mine! 
 
  Only problem was -- how would I make it happen? 
 
@@ -138,7 +144,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 03 ****** byNonStopFunGuy© If this was his way of rejecting me, I was too horny to stop. "Okay," I mused playfully, out of control. 
+ 
+
+===
+
+If this was his way of rejecting me, I was too horny to stop. "Okay," I mused playfully, out of control. 
 
  I leaned backwards and stood up from his lap, and just took two steps backwards to the front edge of his desk. With a little jump I lifted my ass up onto it, and I leaned back one hand behind me arching my small frame to push my little breasts forward. Then lifting both feet, I placed my heels against the handles of drawers on either side of the desk, spreading my slender soft-gold thighs open. The white lacy thong clung to my wet pussy, probably showing the shape of my cuntlips. Daddy was staring at my crotch, his eyes focused like laser beams on the sight of my cunny in my see-through white lacy thong. A sudden chill ran up my spine. 
 

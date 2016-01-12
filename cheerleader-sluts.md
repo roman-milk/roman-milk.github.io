@@ -1,8 +1,14 @@
+Cheerleader Sluts: Big Sister Bitch
+===================================
 #1 
 
  
 
- ****** Cheerleader Sluts: Big Sister Bitch ****** bysilkstockingslover© Summary: Brother finds nude cheerleader pictures including his sister 
+ 
+
+===
+
+Summary: Brother finds nude cheerleader pictures including his sister 
 
  Brother blackmails sister with nude photos found on phone 
 
@@ -334,7 +340,11 @@
 
  
 
- ****** Cheerleader Sluts: Big Sister Bitch ****** bysilkstockingslover© The next one was a close up of Sophia sucking on her tits, taken by Samantha. 
+ 
+
+===
+
+The next one was a close up of Sophia sucking on her tits, taken by Samantha. 
 
  A few more close-ups were taken including an amazing one of Kara's black face, her pink tongue lapping between Samantha's white legs and pink pussy. 
 
@@ -792,7 +802,11 @@
 
  
 
- ****** Cheerleader Sluts: Big Sister Bitch ****** bysilkstockingslover© I had imagined what getting a blow job would feel like, but nothing could have prepared me for the feeling of warmth that enveloped my cock and subsequently my entire body. 
+ 
+
+===
+
+I had imagined what getting a blow job would feel like, but nothing could have prepared me for the feeling of warmth that enveloped my cock and subsequently my entire body. 
 
  I was literally speechless, like I usually was when talking to pretty girls, reverting to the nerd I was in complete awe of a girl... but this time the girl was my sister. 
 
@@ -1004,7 +1018,11 @@
 
  
 
- ****** Cheerleader Sluts: Bitch Barbie's Ass ****** bysilkstockingslover© Summary: Bitch cheerleader is blackmailed, ass fucked and gangbanged. 
+ 
+
+===
+
+Summary: Bitch cheerleader is blackmailed, ass fucked and gangbanged. 
 
  Note 1: This is the second part of this series. 
 
@@ -1404,7 +1422,11 @@
 
  
 
- ****** Cheerleader Sluts: Bitch Barbie's Ass ****** bysilkstockingslover© "I bet she will come grovelling if I call her," Samantha said. 
+ 
+
+===
+
+"I bet she will come grovelling if I call her," Samantha said. 
 
  "Get her here for three," I said, "I have a delicious plan." 
 
@@ -1890,7 +1912,11 @@
 
  
 
- ****** Cheerleader Sluts: Bitch Barbie's Ass ****** bysilkstockingslover© "It's just so you will be a good nerd cum slut for now on," I replied. 
+ 
+
+===
+
+"It's just so you will be a good nerd cum slut for now on," I replied. 
 
  "You lied," she said. 
 

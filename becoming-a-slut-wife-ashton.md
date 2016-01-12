@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Ashton
+============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Ashton ****** byJust_Plain_Bob© It started with my wife coming home from the doctor's and telling me that she had to have a hysterectomy. No biggie, happens to women all the time, right? Emotionally, it was of no concern for either of us because she was long past the age for having children and beside, I'd already had a vasectomy. My major concern was what the operation was going to do to our sex life. Ashton and I, even in our mid-forties, had a very active sex life and she told me that the doctor had assured her that the operation wouldn't change a thing. 
+ 
+
+===
+
+It started with my wife coming home from the doctor's and telling me that she had to have a hysterectomy. No biggie, happens to women all the time, right? Emotionally, it was of no concern for either of us because she was long past the age for having children and beside, I'd already had a vasectomy. My major concern was what the operation was going to do to our sex life. Ashton and I, even in our mid-forties, had a very active sex life and she told me that the doctor had assured her that the operation wouldn't change a thing. 
 
  He lied! 
 

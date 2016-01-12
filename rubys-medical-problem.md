@@ -1,8 +1,14 @@
+Ruby's Medical Problem
+======================
 #1 
 
  
 
- ****** Ruby's Medical Problem ****** byJust_Plain_Bob© My story was like a thousand others - a hundred thousand others - and it took place every day of the week. Get up in the morning and my lovely wife of twelve years would fix my breakfast, wish me a good day at work kiss me goodbye and send me on my way. Go to work, put in my eight to ten hours and then head home to the loving wife who had dinner ready and on the table. After dinner we sat on the couch and watched TV while holding hands or read until bedtime and then we went upstairs and made mad, passionate love. I would fall asleep thinking how lucky I was to have a job I liked a woman I loved, and a woman who loved me. 
+ 
+
+===
+
+My story was like a thousand others - a hundred thousand others - and it took place every day of the week. Get up in the morning and my lovely wife of twelve years would fix my breakfast, wish me a good day at work kiss me goodbye and send me on my way. Go to work, put in my eight to ten hours and then head home to the loving wife who had dinner ready and on the table. After dinner we sat on the couch and watched TV while holding hands or read until bedtime and then we went upstairs and made mad, passionate love. I would fall asleep thinking how lucky I was to have a job I liked a woman I loved, and a woman who loved me. 
 
  Ruby and I met in college, fell in love and went steady for three years before getting married right after graduation. I wasn't Ruby's first nor she mine so our first lovemaking wasn't a series of mistakes. We both knew what we wanted from each other and we were not at all hesitant in letting each other know where to push, where to touch, where to stroke and the result was a sexual nirvana the like of which I had never experienced before. I looked forward to spending the rest of my life with this beautiful, sexually exciting woman. 
 

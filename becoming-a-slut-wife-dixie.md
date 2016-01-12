@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Dixie
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Dixie ****** byJust_Plain_Bob© The worst night of my life was the night I gave myself to a man other than my husband. The best night of my life was when I confessed and my husband forgave me. 
+ 
+
+===
+
+The worst night of my life was the night I gave myself to a man other than my husband. The best night of my life was when I confessed and my husband forgave me. 
 
  I've always been somewhat of a prude. When I was a teen I never kissed a boy until the fifth date, I never allowed a boy to touch my breasts and if a boy put a hand on my leg he got slapped. I had several boyfriends in college, but I made sure that every one of them knew that I was saving myself for marriage. I didn't smoke, I didn't drink and the fastest way to insure that I would never see you again was to swear in my presence. 
 

@@ -1,8 +1,14 @@
+Bukkake Box of Infinite Glory
+=============================
 #1 
 
  
 
- ****** Bukkake Box of Infinite Glory ****** byfastandsloppy© It was weird. I used to hate those women who were always checking themselves in the mirror; inspecting their hair; reviewing their make-up; examining their curves and cleavage. Get the fuck over yourself, I'd think. But on the day after we got back from vacation I found myself doing the exactly same thing. Well, not exactly the same thing. I was worse. I had opened the closet door where Rick had mounted a full length mirror so that it faced the big mirror by the sink. Then I'd stripped down to my birthday suit and stood between them, studying my bod from front and back. Holy shit I looked good; my skin radiated the rich, deep, copper splendor of the best tan I'd ever had, my usually blandly brown hair was alive with natural sunny highlights and my body was firm and tight from a week of dancing, swimming and fucking. 
+ 
+
+===
+
+It was weird. I used to hate those women who were always checking themselves in the mirror; inspecting their hair; reviewing their make-up; examining their curves and cleavage. Get the fuck over yourself, I'd think. But on the day after we got back from vacation I found myself doing the exactly same thing. Well, not exactly the same thing. I was worse. I had opened the closet door where Rick had mounted a full length mirror so that it faced the big mirror by the sink. Then I'd stripped down to my birthday suit and stood between them, studying my bod from front and back. Holy shit I looked good; my skin radiated the rich, deep, copper splendor of the best tan I'd ever had, my usually blandly brown hair was alive with natural sunny highlights and my body was firm and tight from a week of dancing, swimming and fucking. 
 
  It was a weird sensation, feeling good about my appearance. I'd been such a frumpy dork as a teenager. All through school I had awful braces, ugly glasses, bad skin, lank hair and a wardrobe of oversized hand-me-down sweaters and thrift store skirts my obsessively thrifty mother foisted on me. I had gotten my act together since then, but that kind of self doubt puts down deep roots. Rick was always pushing me to wear skimpier, slinkier outfits when we went out, but I just didn't feel comfortable in that slutty shit. So you can imagine the fit I threw when I found out he had booked us in a "clothing optional" resort in Mexico for our vacation. 
 

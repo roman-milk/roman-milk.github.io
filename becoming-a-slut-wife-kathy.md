@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Kathy
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Kathy ****** byJust_Plain_Bob© Sometimes a 'boys night out' can be a pretty life-changing event. I know one of them changed my life - big time! 
+ 
+
+===
+
+Sometimes a 'boys night out' can be a pretty life-changing event. I know one of them changed my life - big time! 
 
  My 'boys night out' has always been a bone of contention between me and my wife Madge. But then it seemed like everything was a bone of contention between us. Truth be told Madge and I never should have gotten married at all. We mistakenly thought that sexual passion was love and when the fire went out about three years after the wedding we suddenly found out that we didn't have anything else going for us. The fact that the marriage stumbled along for the next seven years was more of a tribute to our indifference that anything else. 
 

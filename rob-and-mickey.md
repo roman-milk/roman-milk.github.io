@@ -1,8 +1,14 @@
+Rob and Mickey
+==============
 #1 
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© I saw her when she walked in from the parking lot and nothing had changed. My heart still did flip flops and my blood started racing. I was surprised to see her alone and then I thought he had probably dropped her off close to the group and then went to park the car. I knew she would be there and I knew how I would react to seeing her and that is the main reason that it took my twin brother Rich so long to talk me into coming. For some reason that I didn't understand he attached great importance to me being in attendance. 
+ 
+
+===
+
+I saw her when she walked in from the parking lot and nothing had changed. My heart still did flip flops and my blood started racing. I was surprised to see her alone and then I thought he had probably dropped her off close to the group and then went to park the car. I knew she would be there and I knew how I would react to seeing her and that is the main reason that it took my twin brother Rich so long to talk me into coming. For some reason that I didn't understand he attached great importance to me being in attendance. 
 
  I watched as she walked over and joined us at our table. She looked at me and gave me a 1000 watt smile and I just nodded to acknowledge her. She immediately started talking with Bev and Nancy. Beverly Abbeg, now Rich's wife, Nancy Wilde and Michelle had been thick as thieves all the way from the third grade through high school graduation. College split them apart because Bev was going to attend the local community college and Nancy had a scholarship to EU. Michelle had opted to attend State and I found out later that she chose State because that is where Stan North was going. Stan North! A bigger asshole never lived and I spent years killing him in my imagination. I honestly believe that I would have done it in real life if I could have been sure of getting away with it. Stan had been the quarterback on our team and was going to State on an athletic scholarship and every one expected that he would end up in the pros. He was that good. 
 
@@ -278,7 +284,11 @@
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© "The same in everything?" 
+ 
+
+===
+
+"The same in everything?" 
 
  "Yeah, you know; do you kiss the same and make out the same way." 
 
@@ -604,7 +614,11 @@
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© A week later she was off to State. 
+ 
+
+===
+
+A week later she was off to State. 
 
  +++++++++++++++++++ 
 
@@ -884,7 +898,11 @@
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© "Are you trying to cause a war woman? You know Mickey will be there." 
+ 
+
+===
+
+"Are you trying to cause a war woman? You know Mickey will be there." 
 
  "I know. Believe me I know." 
 
@@ -1154,7 +1172,11 @@
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© "Why is it important for you to know?" 
+ 
+
+===
+
+"Why is it important for you to know?" 
 
  "Oh come on Rob. It is Rob, right? You aren't wearing some other guys shirt?" 
 
@@ -1452,7 +1474,11 @@
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© "Give it up Bev. I've told you several times that I want nothing to do with the money grubbing bitch that Mick has shown herself to be and I have no interest in Nancy. She is a nice girl and I like her as a friend, but other than that there is nothing there. No attraction at all." 
+ 
+
+===
+
+"Give it up Bev. I've told you several times that I want nothing to do with the money grubbing bitch that Mick has shown herself to be and I have no interest in Nancy. She is a nice girl and I like her as a friend, but other than that there is nothing there. No attraction at all." 
 
  "That's because you haven't given her a decent chance." 
 
@@ -1742,7 +1768,11 @@
 
  
 
- ****** Rob and Mickey ****** byJust_Plain_Bob© The closest I came to anything long term was a friends with benefits relationship with the barmaid at the Hitching Post which was a country/western bar a few blocks down the street from the dealership. It started when I stopped in there one night for a beer before going home to watch Thursday night football on the TV. I'd been in there a dozen or so times and Becky knew me and knew where I worked. 
+ 
+
+===
+
+The closest I came to anything long term was a friends with benefits relationship with the barmaid at the Hitching Post which was a country/western bar a few blocks down the street from the dealership. It started when I stopped in there one night for a beer before going home to watch Thursday night football on the TV. I'd been in there a dozen or so times and Becky knew me and knew where I worked. 
 
  On that particular night she asked me what I did at the dealership and I told her then she told me that her car made a terrible screeching sound when she hit her brakes. 
 

@@ -1,8 +1,14 @@
+Merry Christmas Bobby
+=====================
 #1 
 
  
 
- ****** Merry Christmas Bobby ****** byJust_Plain_Bob© The holidays suck man; they suck big time. Everything bad that has ever happened to me has happened during the period that stretches from Thanksgiving to New Years. 
+ 
+
+===
+
+The holidays suck man; they suck big time. Everything bad that has ever happened to me has happened during the period that stretches from Thanksgiving to New Years. 
 
  It started when I was fourteen. The family was going to Hawaii the week after Thanksgiving for a two-week stay. God, but was I ever up for it. Two weeks on sunny beaches that would be wall to wall with gorgeous babes in bikinis. A true masturbator's paradise, except that I didn't go. Two days before we were scheduled to leave I slipped on a patch of ice, fell down two flights of stairs and ended up with my right leg broken in two places. The hotel and the airline tickets were prepaid and non-refundable so I was parked with my Aunt Louise and Uncle George while the rest of the family went off to have fun. 
 

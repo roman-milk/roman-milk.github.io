@@ -1,8 +1,14 @@
+Me, My Slutwife &amp; Brian
+===========================
 #1 
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© "I have no idea where Brian is," I lied to the man's wife, while my ears strained to detect any muffled grunts or moans from behind the closed door slightly down the hall from us. The stud had been pretty quiet, but my wife Kitty is a fucking screamer, and I think the guy was keeping her noises down while fucking her with his massive cock by shoving his tongue -- or a couple of fingers, possibly -- in her mouth. It's the only way to shut Kitty up when she's taking eight or more inches of meat in her bald Asian cunt. 
+ 
+
+===
+
+"I have no idea where Brian is," I lied to the man's wife, while my ears strained to detect any muffled grunts or moans from behind the closed door slightly down the hall from us. The stud had been pretty quiet, but my wife Kitty is a fucking screamer, and I think the guy was keeping her noises down while fucking her with his massive cock by shoving his tongue -- or a couple of fingers, possibly -- in her mouth. It's the only way to shut Kitty up when she's taking eight or more inches of meat in her bald Asian cunt. 
 
  The rounded, 30-something mother of four scowled, her gelatinous face confused by the misdirection I was providing her. "Hmm, Mary said she saw him coming into the house," the rotund blonde muttered to me, scratching her double chin. She clearly believed my bullshit, that I had been down here in the home's "man- cave" for a while, and her husband Brian had been nowhere around. Cross the basement of Mary's house off of the woman's list of places to look for her cheating husband. 
 
@@ -76,7 +82,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© The bad news came immediately: Brian wasn't from the area. He drove up from the Shore, about four or five hours away -- more, with traffic -- to bring his family up for the week. They were staying here, at Mary and Mitchell's house, I guess Brian and Mitchell had been college buddies or something. The important point was that their trip was at its end. They were leaving the very next afternoon, because Brian's oldest son, a soon-to-be seventh grader, was starting football camp on Monday. 
+ 
+
+===
+
+The bad news came immediately: Brian wasn't from the area. He drove up from the Shore, about four or five hours away -- more, with traffic -- to bring his family up for the week. They were staying here, at Mary and Mitchell's house, I guess Brian and Mitchell had been college buddies or something. The important point was that their trip was at its end. They were leaving the very next afternoon, because Brian's oldest son, a soon-to-be seventh grader, was starting football camp on Monday. 
 
  I sensed my wife's instant reaction. She had been leaning against me, her little hand on the small of my back, creating the false impression that she was a doting little wife who never left her husband's side and thus wasn't a threat to any woman's man at the party. As she heard Brian describe himself, Kitty leaned againt me more, holding me more closely, as if I was holding her up from falling over. She was disappointed at the truth. 
 
@@ -192,7 +202,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© "Mmm, that's true," Kitty mused. Her eyes had found the bulge of his shaft in his jogging shorts, then she looked up quickly to the man's handsome face - - making sure that he, too, saw her examining his meat. And she grinned, demonstrating her approval of what she saw. "You know how they say, it's easier to talk to a stranger? Like on a plane, or in an on-line chat room?" 
+ 
+
+===
+
+"Mmm, that's true," Kitty mused. Her eyes had found the bulge of his shaft in his jogging shorts, then she looked up quickly to the man's handsome face - - making sure that he, too, saw her examining his meat. And she grinned, demonstrating her approval of what she saw. "You know how they say, it's easier to talk to a stranger? Like on a plane, or in an on-line chat room?" 
 
  The tall stud nodded down to her, hardly breathing, hoping she would give him a green light. 
 
@@ -300,7 +314,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© Kitty couldn't get her panties to fall to her feet with just wiggling her legs, the panties were sopping wet and had bunched into the crevice behind her knees. Giggling, she tried to lean her arms down to push her panties off, but she couldn't reach far enough without breaking the kiss. Brian laughed with her, and the two giggled while keeping lips pressed together, and he lowered himself too. His hands found the panties and flung them to the carpet, allowing Kitty to stand up, totally naked in front of this man she met only two hours ago. This very sexy, hunky, adorable man. 
+ 
+
+===
+
+Kitty couldn't get her panties to fall to her feet with just wiggling her legs, the panties were sopping wet and had bunched into the crevice behind her knees. Giggling, she tried to lean her arms down to push her panties off, but she couldn't reach far enough without breaking the kiss. Brian laughed with her, and the two giggled while keeping lips pressed together, and he lowered himself too. His hands found the panties and flung them to the carpet, allowing Kitty to stand up, totally naked in front of this man she met only two hours ago. This very sexy, hunky, adorable man. 
 
  Already crouching in front of her sexy nude body, Brian's lips didn't have far to go, he opened his mouth and began suckling my wife' s nipples. "Mmm, easy on 'em baby," Kitty purred, stroking his dark hair while staring down at his handsome face against her breasts, "they're sooo hard, they hurt." She giggled at what she just realized. "My nipples are super rock hard -- thicker than ever!" Still, she arched her back and pushed her boobs into Brian's warm mouth, feeling his hot breaths and slick saliva coating her aching nipples, as his tongue flicked over them continuously. "Ohhh yesss . . . baby, you're such a good lover!" 
 
@@ -416,7 +434,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© ***[Now, we're in a motel room, so my choices were to leave to go to the car, or, just not watch. I opted for the latter. Without emotion I agreed, "Sure," and grabbed my jacket that was lying on the floor next to me. I laid it over my head and torso, as I sat in the chair, and then when I was completely blinded - - and comfortably warm, I might add -- I relaxed her worries about me. "Don't mind me -- you two have some fun!"]*** 
+ 
+
+===
+
+***[Now, we're in a motel room, so my choices were to leave to go to the car, or, just not watch. I opted for the latter. Without emotion I agreed, "Sure," and grabbed my jacket that was lying on the floor next to me. I laid it over my head and torso, as I sat in the chair, and then when I was completely blinded - - and comfortably warm, I might add -- I relaxed her worries about me. "Don't mind me -- you two have some fun!"]*** 
 
  ***[I heard Kent snicker at me, as if my solution wasn't what he had in mind, but Kitty took his mind off of the husband in the room. After some mutual moaning which could only be from tongue-filled kissing, I heard my wife erupt with the hollar, "Ohhhh fucckkk, Kent, YES!" Suddenly the bed started to thump and creek rhythmically, I heard bodies clashing togther, and my wife began chanting along with the deep fucking. "Ohhh yesss, Kent . . . yesss . . . ohhh my gawwwd . . . oh god fuckkk . . . ohhh fuccckkk . . . yesss . . . oooh fuck meee . . . ohhh baby yesss . . . ohhh I love your cock yesss . . . ohhh fuck your little slut baby . . . give your slut the big cock she wants . . . ohhh baby . . . ohhh Kent, fuck meee!"]*** 
 
@@ -522,7 +544,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© As he pulled his saliva-covered hand out of her sore mouth, Kitty cackled that scolded him. "Baby -- just don't fuck me so good, it's too good!" 
+ 
+
+===
+
+As he pulled his saliva-covered hand out of her sore mouth, Kitty cackled that scolded him. "Baby -- just don't fuck me so good, it's too good!" 
 
  The pair kissed again, hard, her pussy still riding his erection. "Ohhh SHIT," she laughed again, sucking in air after the hard kiss that followed the huge orgasm, "you're incredible, you know?" 
 
@@ -642,7 +668,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Brian ****** byNonStopFunGuy© ***[Smiling that my sexy wife was enjoying herself with another man's larger penis, I took some food into the basement and passed the time watching cable. I went to check a couple of times to see if he'd left, but even after two hours, that door was still shut.]*** 
+ 
+
+===
+
+***[Smiling that my sexy wife was enjoying herself with another man's larger penis, I took some food into the basement and passed the time watching cable. I went to check a couple of times to see if he'd left, but even after two hours, that door was still shut.]*** 
 
  ***[Maybe three or three and a half hours had passed and I went up, and the door was open but the room empty. I found my hot wife naked on our marital bed, napping, she was a mess -- cum on her matted hair, juices all over her tummy, thighs and pussy, her eyeliner washed in streams past the corners of her slanted brown eyes. But I was taken aback by her cunt -- shaved, glistening wet, drenched. And smelly. I crawled over her slumbering frame, sticking my nose to her twat, just smelling it. Fuck, I could smell her but also the presence of Patrick's awesome penis. Wads of gooey cum dripped out. It was filling her hole.]*** 
 
@@ -696,7 +726,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Dillon ****** byNonStopFunGuy© 
+ 
+
+===
+
+
 
  line. For those squeamish readers who are comfortable in their own little worlds, you can bash all you want but it's falling on deaf ears. I would merely make this point to some of the will-be critics of this story. Perhaps the most masculine hero of horny males of all time, Hugh Hefner, has admitted to acts during some of his many orgies that might be deemed totally incompatible with the lifestyle of a virile woman's man. Bet most of you didn't know that? Sexuality takes a lot of turns when the hormones are flowing. It doesn't mean that's who you are; it just means, that's what you did at that time. So, let's cross some lines and see how it goes, shall we?] 
 
@@ -792,7 +826,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Dillon ****** byNonStopFunGuy© I wasn't offended by that statement of the obvious. "Damn, man, you know it," I slurred under my breath, gazing at how enamored my wife was with the guy's penis. 
+ 
+
+===
+
+I wasn't offended by that statement of the obvious. "Damn, man, you know it," I slurred under my breath, gazing at how enamored my wife was with the guy's penis. 
 
  Leaning all the way forward on her folded legs, her breasts brushing her knees, Kitty had her face right over Dillon's dick. With one hand softly stroking the fat base of his prick and her other hand cupping his meaty balls, she was smiling as she opened her mouth and began licking the helmet of his cock. I was so hard, seeing her small, gorgeous Asian face contrast to Dillon's huge, throbbing, reddened, big white man's dick, the sparkle in her eye was exactly the "present" she was getting me. Vicariously enjoying it myself, I watched Kitty's tiny pink tongue slip out of her thin lips and she began licking the precum off of Dillon's bulbous cockhead. The married 40-something stud shuddered, leaning back even more on our sofa, letting my wife taste his cock. With her small, dainty hands barely covering his enormous shaft and fat balls, her mouth opened wide and she swallowed just the rounded soft helmet inside, suckling it, cleaning off the precum that was dripping all over it. 
 
@@ -892,7 +930,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Dillon ****** byNonStopFunGuy© "Here's your little bitch," she told Dillon, stepping back into his arms, crawling on the sofa to straddle him, "all naked for you, baby." 
+ 
+
+===
+
+"Here's your little bitch," she told Dillon, stepping back into his arms, crawling on the sofa to straddle him, "all naked for you, baby." 
 
  Dillon's large hands reached out to her small frame, and he took control of her, moving her off of his lap to his side. Having her kneel on our sofa, somewhat facing him but also angling so I could see her naked chest and clean, shaved pussy, she leaned backwards with the small of her back against the top edge of the sofa, resting on one bent knee on the cushion below while her other leg was raised and bent in the air, that foot flat on the sofa to spread open her crotch. Dillon took a last look at me, making sure I was paying attention, then he rolled to face my wife and lowered his hungry mouth to her breasts. Kitty watched with broad eyes, arching her back, offering her naked titties to him. With my eyes glued to the sight, Dillon's lips wrapped around one of her stiff little nipples, sucking it hard, then swallowing her entire boob into his warm, wet mouth, drawing a gasp from my wife. 
 
@@ -984,7 +1026,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Dillon ****** byNonStopFunGuy© "Feel it," he barked, using his other hand to push my wife's hip down hard while he worked to jam his cock farther up inside her cunt, "feel how deep I am in there!" 
+ 
+
+===
+
+"Feel it," he barked, using his other hand to push my wife's hip down hard while he worked to jam his cock farther up inside her cunt, "feel how deep I am in there!" 
 
  My wife's flat soft belly was slick and wet, juicy from her cunt as well as sweat. She was warm, too, overheating. My palm and fingers stayed firmly against her abdomen, below her belly-button and right above her cunt, pressing gently to feel any motion inside her body. Dillon wanted to get his cock deeper in her, so he had Kitty sit more upright, her small frame directly above his erection, and gravity pulled her little body down farther, while he used his legs to swing his hips and shove more meat into her pussy. "Ahhh, FUCKKK!" screamed my wife, her eyes clenching shut, feeling more of his dick entering her cunt. He had a good seven inches inside her, and he was trying to work more. She was pumping up and down, sliding her cunt on his pole, taking as much of his shaft as her little vagina could take. 
 
@@ -1084,7 +1130,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Dillon ****** byNonStopFunGuy© The stud looked down at me behind him, smiling when he saw me staring at the fucking. "Like your little bitch getting fucked, don't you?" He cackled, smacking her asscheek again, drawing a momentary cry of pain from Kitty. "Baby, your husband likes you whoring yourself for a big cock -- this is what he wants you to have!" 
+ 
+
+===
+
+The stud looked down at me behind him, smiling when he saw me staring at the fucking. "Like your little bitch getting fucked, don't you?" He cackled, smacking her asscheek again, drawing a momentary cry of pain from Kitty. "Baby, your husband likes you whoring yourself for a big cock -- this is what he wants you to have!" 
 
  "Uh huh -- yeah!" Kitty was whining, her face against the sofa, eyes closed, pressing her small asscheeks backwards with Dillon's powerful body smacking into her repeatedly. "Yeah -- fuckkk -- fuck me, Dillon, baby -- fuck your hot little slut!" 
 
@@ -1172,7 +1222,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Dillon ****** byNonStopFunGuy© The pervert fucking her was sneering at the look on her face, seeing how intense were her orgasms that his mighty dick was bringing. I found myself watching the stud's face, seeing him study my orgasming wife, watching her sexy face and her undulating little Asian body as it writhed underneath his masculine physique. 
+ 
+
+===
+
+The pervert fucking her was sneering at the look on her face, seeing how intense were her orgasms that his mighty dick was bringing. I found myself watching the stud's face, seeing him study my orgasming wife, watching her sexy face and her undulating little Asian body as it writhed underneath his masculine physique. 
 
  He pulled out of her cunt -- making Kitty whine in shock and dismay -- but instantly he reached to her small body, flipping her onto her stomach on our carpet. She lay flat, tits and one side of her face against our rug, gasping and sweating, moaning like an injured animal. The naked stud remained on top of her, his knees spread apart to bring his cock down again, level with her ass, and he poked his huge fat penis against my wife's tight little asshole. She hardly had the energy to lift her small hips to him, but she reacted swiftly, with a sore smile. "Ohhh yeah -- baby -- fuck my ass!" 
 
@@ -1290,7 +1344,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© Every story is preceded by another story, usually an untold one. Let me go back to where I think all the relevant events started. 
+ 
+
+===
+
+Every story is preceded by another story, usually an untold one. Let me go back to where I think all the relevant events started. 
 
  * * * * 
 
@@ -1400,7 +1458,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© Still . . . Olya was really creamy and pretty. Before Brendan introduced her to Olya, it had been quite some time since Kitty had fucked another girl, and she'd forgotten how fun it was. She would have loved having a girl/girl date with Olya herself, although she'd never attempted to find out if it was possible. 
+ 
+
+===
+
+Still . . . Olya was really creamy and pretty. Before Brendan introduced her to Olya, it had been quite some time since Kitty had fucked another girl, and she'd forgotten how fun it was. She would have loved having a girl/girl date with Olya herself, although she'd never attempted to find out if it was possible. 
 
  So that made my wife think of what she really wanted to do that night with me, her adoring husband, to make the night special. Oh, it would be special if Kitty could bring a horny female home -- like Olya -- for me to fuck along with herself, but they don't exactly grow on trees. Kitty knew that was not an option, at least not for tonight. Instead, she'd do something else fun - - something she knew I enjoyed. 
 
@@ -1502,7 +1564,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© "Fuck," my horny wife groaned, stating the obvious, "I'm not gonna be able to wait all day!" 
+ 
+
+===
+
+"Fuck," my horny wife groaned, stating the obvious, "I'm not gonna be able to wait all day!" 
 
  The younger slut agreed, letting out an exhilarated gasp of dismay. "Huh, yeah -- I know -- here, wait!" She reached into her pocket and took out a single brass-colored key, then she quickly stepped to the back corner of the little side room they were in. There was a single door there, locked, adorned with a sticker, "EMPLOYEES ONLY." Emily fit the key into the lock and unfastened the door, pushing it open, revealing a small, darkened room. With a fit of responsibility, she quickly strode back to look at the front desk of the store, seeing that a male employee had it covered. 
 
@@ -1604,7 +1670,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© I loved the sex talk, the banter, even if they were teasing me. "So Emily, what's your favorite position, when your boyfriend with the big cock fucks you -- you like riding it? Or bent over?" 
+ 
+
+===
+
+I loved the sex talk, the banter, even if they were teasing me. "So Emily, what's your favorite position, when your boyfriend with the big cock fucks you -- you like riding it? Or bent over?" 
 
  "Mmmm," she mused, thinking it over, while she slipped her sandles off and bent her leg, scooting a foot under her small butt as she sat on the sofa next to my wife. "I dunno -- all of them -- but, if the guy is really hung and built? I like, just, like, being on my back -- getting, you know, like bent over backwards, with my legs over big strong shoulders, just getting plowed deep - - feels sooo fucking good!" Glancing at my wife, the two of them nodded in unison at the image. Emily saw that I, too, moaned in lust at the mental picture of Kitty getting fucked that way by a huge cock, and the look on my face made Emily more curious about my relationship with Kitty. "Like, David, do you ever watch that -- Kitty on her back, getting rammed deep with a huuuge big cock? Does that turn you on?" 
 
@@ -1708,7 +1778,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© "Ohhh fuckkk!" grunted Kitty, legs so wide open. "Ohhhh fuckk -- yessss!" 
+ 
+
+===
+
+"Ohhh fuckkk!" grunted Kitty, legs so wide open. "Ohhhh fuckk -- yessss!" 
 
  The blonde grinned, watching her writhe under the egg, moving the egg now against Kitty's pussy mound through the thong. She had it pressed against the clitoris first, then she moved it down over the puffy pussylips, against my wife's cunthole, letting her feel it vibrate pleasure into her. Kitty's body was wiggling in circles, humping it, masturbating against it, and she suddenly screamed, "YESSSS!" Her first orgasm hit, shaking her, drenching her thong in her own juices. 
 
@@ -1806,7 +1880,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© I loved seeing Kitty like this, so aroused and horny and loving. Kissing men so deeply, sucking air from their lungs, letting them fill her mouth with their tongues, while they fucked her with incredibly large cocks. She so loved the men she fucked, she showed them with her kisses and adoration and give them her slutty body for their pleasure. Well, this looked just like that. She was making out with Emily just as emotionally and frenetically as she had with so many other boyfriends and fuck buddies -- Patrick, Tim, Kent, Joey, Dino, Joe . . . and other guys I'd seen her with in person or on videotape. It was total love and lust, she had given herself to Emily just like she had done to each of the men previously, not to mention me too. 
+ 
+
+===
+
+I loved seeing Kitty like this, so aroused and horny and loving. Kissing men so deeply, sucking air from their lungs, letting them fill her mouth with their tongues, while they fucked her with incredibly large cocks. She so loved the men she fucked, she showed them with her kisses and adoration and give them her slutty body for their pleasure. Well, this looked just like that. She was making out with Emily just as emotionally and frenetically as she had with so many other boyfriends and fuck buddies -- Patrick, Tim, Kent, Joey, Dino, Joe . . . and other guys I'd seen her with in person or on videotape. It was total love and lust, she had given herself to Emily just like she had done to each of the men previously, not to mention me too. 
 
  Emily broke the kiss, leaning up again above Kitty, staring down at her. She was wiggling her ass furiously to pump the dildo in and out of my wife's cunt. "Your hubby like that?" she snarled, not looking at me but at my wife. "He gets off seeing you fucked by a big cock, huh?" 
 
@@ -1918,7 +1996,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Emily ****** byNonStopFunGuy© With my body building energy, I started to pound the little cunt I was fucking. My meaty ass pumped up and down, driving my shaft in and out of her cunt. She started screaming, arching her back, clutching at my ass then at my shoulders. I felt her long fingernails gripping me, even scratching me, the pain encouraging me to fuck her even harder. Kitty remained at our side, watching every motion, every writhe of her body and each thrust of her husband into the girl. I could hear the sloppy sounds of my penis fucking her, combined with her high-pitched wails and my heavy panting. Using all my strength in my legs I pounded my dick into her body, plunging deeply over and over, pulling out then thrusting back inside, furiously fucking the slut. 
+ 
+
+===
+
+With my body building energy, I started to pound the little cunt I was fucking. My meaty ass pumped up and down, driving my shaft in and out of her cunt. She started screaming, arching her back, clutching at my ass then at my shoulders. I felt her long fingernails gripping me, even scratching me, the pain encouraging me to fuck her even harder. Kitty remained at our side, watching every motion, every writhe of her body and each thrust of her husband into the girl. I could hear the sloppy sounds of my penis fucking her, combined with her high-pitched wails and my heavy panting. Using all my strength in my legs I pounded my dick into her body, plunging deeply over and over, pulling out then thrusting back inside, furiously fucking the slut. 
 
  Used to talking to Kitty in bed, I let the flurry of words out. "Fuckin' slut," I moaned at Emily, "soo hot, your body is so fucking hot you bitch, you got me so hard -- fucking you in front of my hot wife, is this what you want, you dirty little cunt?" 
 
@@ -2000,7 +2082,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 01 ****** byNonStopFunGuy© The burly, naked married man resting on my usual spot on my bed had a slight snarl to his tone, as he wiped sweat and juices off of his mouth and chin. "Man, I don't get it," he caustically chastised me, not really looking in my direction where I sat in a chair beside my bed, "if I had a wife as fucking hot as yours, I wouldn't let her get fucked by other men -- I mean, if she says she loves you . . . . ." His husky, tired voice dropped off, as if the point was self-evident. 
+ 
+
+===
+
+The burly, naked married man resting on my usual spot on my bed had a slight snarl to his tone, as he wiped sweat and juices off of his mouth and chin. "Man, I don't get it," he caustically chastised me, not really looking in my direction where I sat in a chair beside my bed, "if I had a wife as fucking hot as yours, I wouldn't let her get fucked by other men -- I mean, if she says she loves you . . . . ." His husky, tired voice dropped off, as if the point was self-evident. 
 
  I'd been accused of a lot worse by the hung men whom I watched fuck my 29-year old Asian slutwife, so Pete's words didn't faze me. Instead, with the sex at a brief interlude, I was just breathing softly, shifting in the chair so my legs didn't fall asleep. My erection still ached inside my slacks and underwear; I could feel my briefs were soiled from the precum I'd been leaking for over an hour -- almost 90 minutes, maybe -- while watching Kitty and Pete getting friendly on the bed, making out, stripping, then going through the entire list of oral sex and penetration in multiple positions. 
 
@@ -2076,7 +2162,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 01 ****** byNonStopFunGuy© "Ahhhh!" She was shrieking, her eyes half-closed while she stared up at the stud. "Pete, oooh fuckkk! Ohhh yesss! Ohhh fuckkk me, fuckkk meee! Ohhh baby, I love your huge cock, fuckkk meee, fuckkk your slut!" 
+ 
+
+===
+
+"Ahhhh!" She was shrieking, her eyes half-closed while she stared up at the stud. "Pete, oooh fuckkk! Ohhh yesss! Ohhh fuckkk me, fuckkk meee! Ohhh baby, I love your huge cock, fuckkk meee, fuckkk your slut!" 
 
  Then, as if remembering something, her beautiful Asian face rolled towards me, and I saw the look of pain in her eyes again. The guy's prick is so huge, it was obviously stretching her little 29-year old cunt way out of shape. Her small rounded jaw was trembling, her eyes unfocused. But she looked in my direction, maybe half-aware I was still there. 
 
@@ -2200,7 +2290,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 01 ****** byNonStopFunGuy© The images of the man's huge boner driving into my wife's tight, pink cunt . . . oh, man, I was so hard in the shower. I was picturing my wife screaming - - she's so vocal -- and cumming so hard, throughout the day, making love and fucking the hot stud repeatedly, over and over, throughout our house. What a fucking slut. Fucking a guy she only met in person that very day. Fucking whore! She's so fucking sexy; I so fucking loved her. I was picturing her wincing, squealing, spreading her slender legs to take his massive married prick into her cunt all day, begging him to cum hard inside her twat. 
+ 
+
+===
+
+The images of the man's huge boner driving into my wife's tight, pink cunt . . . oh, man, I was so hard in the shower. I was picturing my wife screaming - - she's so vocal -- and cumming so hard, throughout the day, making love and fucking the hot stud repeatedly, over and over, throughout our house. What a fucking slut. Fucking a guy she only met in person that very day. Fucking whore! She's so fucking sexy; I so fucking loved her. I was picturing her wincing, squealing, spreading her slender legs to take his massive married prick into her cunt all day, begging him to cum hard inside her twat. 
 
  There was a specific vision . . . extremely intense. Back there, through the door behind me, in our marital bedroom, on the bed where Kitty and I slept last night -- right there, yesterday, not even 24 hours earlier, she was sleeping naked with another married man. Then he fucked her, they were kissing and groping, and his cock -- much bigger than mine -- found its way into her vagina, she screamed for him, she had orgasms and sucked his tongue and pulled his throbbing erection into her cunt until he squirted semen into her. Right on the same bed where I fucked her later that evening, and where I kissed my wife. She got brutally screwed by a very sexy, very handsome man. 
 
@@ -2346,7 +2440,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 01 ****** byNonStopFunGuy© "Mmmmm," purred my wife, wanting to keep fucking and not stop for things like towels. 
+ 
+
+===
+
+"Mmmmm," purred my wife, wanting to keep fucking and not stop for things like towels. 
 
  I had her lie, totally wet, on the bed's big blanket, on her back. The warmth of the blanket soothed her drenched and sore body, absorbing the water, and her little figure sank into the sopping-wet blanket on the soft, large bed. My wife's sexy, slanted brown eyes watched me as I pushed her thighs open -- way, way open -- and I found myself staring at her hot bald cunt. 
 
@@ -2408,7 +2506,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 02 ****** byNonStopFunGuy© 
+ 
+
+===
+
+
 
  alone chapter. I recommend reading the parts continuously, and not jumping into it cold.] 
 
@@ -2542,7 +2644,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 02 ****** byNonStopFunGuy© My horny wife sauntered up to the front of his desk, letting her boyfriend admire her petite body. She was wearing a wrap-around dress that, when buttoned at her side, effectively looked like a tight sundress. It had a single strap over one shoulder, but a conservative cut that covered her breasts entirely. It hung knee-length, not giving away what she might have underneath it. Assuring that his full attention was turned to her, Kitty slipped around his desk, leaning against the edge of it opposite his computer, resting her little fanny on the wooden corner. "So are you really too busy for a few minutes with me, Rick baby?" 
+ 
+
+===
+
+My horny wife sauntered up to the front of his desk, letting her boyfriend admire her petite body. She was wearing a wrap-around dress that, when buttoned at her side, effectively looked like a tight sundress. It had a single strap over one shoulder, but a conservative cut that covered her breasts entirely. It hung knee-length, not giving away what she might have underneath it. Assuring that his full attention was turned to her, Kitty slipped around his desk, leaning against the edge of it opposite his computer, resting her little fanny on the wooden corner. "So are you really too busy for a few minutes with me, Rick baby?" 
 
  He'd received her first email of the morning, asking for a rendezvous. He wanted to, but probably was too busy with work, he told her -- maybe later in the week, he was hoping to "arrange" something. When her other well-hung boyfriends were equally unavailable, Kitty decided to test whether he really meant "no" to her. She'd made surprise appearance as my office in the past - - she had a fetish for risky sex, such as in public or in an office -- but this was her first visit to a boyfriend's office for that purpose. 
 
@@ -2656,7 +2762,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 02 ****** byNonStopFunGuy© "Uh huh!" I heard her moaning at me louder, gasping. "Baby, I'm finger-fucking myself, it's a fucking mess -- all over me -- fucking soaking the thong, it's got Rick's smell all over it now, it's fucking covering my ass and legs, I'm so fucking wet!" She panted into the cellphone, then made me an incredible offer. "Wanna hear it?" 
+ 
+
+===
+
+"Uh huh!" I heard her moaning at me louder, gasping. "Baby, I'm finger-fucking myself, it's a fucking mess -- all over me -- fucking soaking the thong, it's got Rick's smell all over it now, it's fucking covering my ass and legs, I'm so fucking wet!" She panted into the cellphone, then made me an incredible offer. "Wanna hear it?" 
 
  "Yesss," I muttered, eyes closing as I listened intently. I knew what she was going to do. 
 
@@ -2776,7 +2886,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 02 ****** byNonStopFunGuy© "Mmm, do I!" Now he was speaking her language, and she painfully crawled her body over his, leaning her sweaty little torso onto his manly chest, one arm over him, her hips and legs still flat on the bed at his side, angling away from him. "I love it -- you gonna be my computer lover now, baby?" 
+ 
+
+===
+
+"Mmm, do I!" Now he was speaking her language, and she painfully crawled her body over his, leaning her sweaty little torso onto his manly chest, one arm over him, her hips and legs still flat on the bed at his side, angling away from him. "I love it -- you gonna be my computer lover now, baby?" 
 
  They consummated their relationship with another kiss, and wound up smiling into each other's eyes. 
 
@@ -2898,7 +3012,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 02 ****** byNonStopFunGuy© My wife now tried to disarm the problem she'd created for no good reason. She reached across the table, her hand on his elbow, resting it there while her eyes locked onto his. "No, baby -- not at all -- forget it, I'm here with you, tonight -- you and me, okay, honey?" He relaxed and his head bobbed in an affirmative nod, so she took her hand back. "So how's your sex life going, honey. Did you have another date with your little Latina slut, Selena?" She was referring to the wife in a swinger couple whom Kitty and Kent had fucked a few weeks earlier (the Latina didn't want anything to do with me, so Kitty "had" to take Kent as my sexier, more handsome, more well-hung stand-in). Since then, the wife Selena had hooked up on her own at least once with Kent, the cheating little whore. 
+ 
+
+===
+
+My wife now tried to disarm the problem she'd created for no good reason. She reached across the table, her hand on his elbow, resting it there while her eyes locked onto his. "No, baby -- not at all -- forget it, I'm here with you, tonight -- you and me, okay, honey?" He relaxed and his head bobbed in an affirmative nod, so she took her hand back. "So how's your sex life going, honey. Did you have another date with your little Latina slut, Selena?" She was referring to the wife in a swinger couple whom Kitty and Kent had fucked a few weeks earlier (the Latina didn't want anything to do with me, so Kitty "had" to take Kent as my sexier, more handsome, more well-hung stand-in). Since then, the wife Selena had hooked up on her own at least once with Kent, the cheating little whore. 
 
  Kent's eyes rolled, and he laughed to himself before letting Kitty in on the secret. "Oh, wow, Selena -- yeah, she's a trip all right." He took a sip of his coffee before telling the story. "So, yeah, we made another date, she came over to my place when my girlfriend was with her kids again. At first, she was like, just a total bitch to me, like, crabbing, bitching, whining, couldn't get happy, I was going to throw her out and all. Then I'm, like, making her a mixed drink, and she just fuckin' jumped me -- turned me around, literally jumped on me, clutching, holding me -- and, just like that, she was all over me for the night." He snickered again. "And then, she barely said good-bye, she left, and called me the next day to say she wants another date when she can get one." 
 
@@ -2994,7 +3112,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 02 ****** byNonStopFunGuy© From the way Hana was leaning and the moaning Kitty heard, she figured Rick and Hana were kissing. And, Kitty felt that fucking pang of jealousy again. She was getting pissed at herself for having this reaction about Rick and the other slut. Kitty told herself, don't pay it any mind -- which worked for about one second, when Kitty suddenly found herself wanted to change positions. Hana was really smashing her small ass into Kitty's face, and she couldn't breath much, while tongue-fucking the blonde's cunt. Plus, while Rick's big dick was deep in her twat, he wasn't pounding her as fast as she would have liked. 
+ 
+
+===
+
+From the way Hana was leaning and the moaning Kitty heard, she figured Rick and Hana were kissing. And, Kitty felt that fucking pang of jealousy again. She was getting pissed at herself for having this reaction about Rick and the other slut. Kitty told herself, don't pay it any mind -- which worked for about one second, when Kitty suddenly found herself wanted to change positions. Hana was really smashing her small ass into Kitty's face, and she couldn't breath much, while tongue-fucking the blonde's cunt. Plus, while Rick's big dick was deep in her twat, he wasn't pounding her as fast as she would have liked. 
 
  Kitty forcably pushed Hana off of her face, then with both Rick and Hana shooting back puzzled looks, Kitty immediately pulled away from Rick and flipped onto her knees. "Fuck me," she yelped at her married older boyfriend, spreading her legs and showing off her little Asian butt to the hung stud. Simultaneously Kitty grabbed Hana's hand and yanked the youngster onto her butt and back, getting the girl to slide her pelvis under Kitty's face now. 
 
@@ -3046,7 +3168,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 03 ****** byNonStopFunGuy© 
+ 
+
+===
+
+
 
  alone chapter. I recommend reading the parts continuously, and not jumping into it cold.] 
 
@@ -3168,7 +3294,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 03 ****** byNonStopFunGuy© She did, however, know what made Patrick's cock hard, and as long as it wasn't a lie, she said it. "Ohhh, shit, ohhh baby," panted my horny wife, moving her arms to clutch his head against her bosom, feeding her breast into his mouth, "I love your cock, it's sooo much better than my husband's, you fuck me sooo much better -- I can't get enough of you, Patrick, fuck me, fuck your hot cheating married slut baby!" 
+ 
+
+===
+
+She did, however, know what made Patrick's cock hard, and as long as it wasn't a lie, she said it. "Ohhh, shit, ohhh baby," panted my horny wife, moving her arms to clutch his head against her bosom, feeding her breast into his mouth, "I love your cock, it's sooo much better than my husband's, you fuck me sooo much better -- I can't get enough of you, Patrick, fuck me, fuck your hot cheating married slut baby!" 
 
  Kitty began to orgasm, feeling her vagina spasming around his invading erection, contracting around it while her head grew dizzy, her stomach churned and her muscles sizzled. "YESSSSS, FUCKKK!" she exhaled noisily, pulling his short hair to take his mouth off of her breasts, and instead she inserted her tongue inside his mouth. "Ohhh, fuckkk, Patrick, yessss!" 
 
@@ -3292,7 +3422,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 03 ****** byNonStopFunGuy© My hands slid under her body, groping her sexy little boobies, fondling and squeezing, appreciating those soft orbs and her hard nipples. "Oh fuck yess," she muttered, pushing that ass at me harder, rocking her body. My fingers pinched her hard nipples, tugging her titties, while I was stuffing my tongue in her tight little butthole. The thought crossed my mind, was Patrick's cock in here earlier today; that was a sexy idea. 
+ 
+
+===
+
+My hands slid under her body, groping her sexy little boobies, fondling and squeezing, appreciating those soft orbs and her hard nipples. "Oh fuck yess," she muttered, pushing that ass at me harder, rocking her body. My fingers pinched her hard nipples, tugging her titties, while I was stuffing my tongue in her tight little butthole. The thought crossed my mind, was Patrick's cock in here earlier today; that was a sexy idea. 
 
  "Mmmm -- baby," she mumbled, face down to the bed, pushing her asshole at me. 
 
@@ -3434,7 +3568,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 03 ****** byNonStopFunGuy© "Ohhh, fuckkk!" she gasped, tongue out, panting, humping my shaft. I felt her juicy-wet buttocks brushing over my hairy thighs with each thrust, squirming over my lap, making my dick poke in and out of her vagina. Juices were dripping down my shaft, slickening my balls. She let her head fall back, as she concentrated on the feeling inside her pussy. "Baby!" 
+ 
+
+===
+
+"Ohhh, fuckkk!" she gasped, tongue out, panting, humping my shaft. I felt her juicy-wet buttocks brushing over my hairy thighs with each thrust, squirming over my lap, making my dick poke in and out of her vagina. Juices were dripping down my shaft, slickening my balls. She let her head fall back, as she concentrated on the feeling inside her pussy. "Baby!" 
 
  I stared at her tits bouncing in front of me, then down at her mound as it rode my stiff pole. "That it you fucking cunt, ride my cock . . . ohhh shit feels so good, honey!" I had a sexy thought about her day. "Did you ride both of those bigger dicks earlier today . . . did they fuck you cowgirl-style like this, baby?" 
 
@@ -3528,7 +3666,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 04 ****** byNonStopFunGuy© 
+ 
+
+===
+
+
 
  alone chapter. I recommend reading the parts continuously, and not jumping into it cold.] 
 
@@ -3626,7 +3768,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 04 ****** byNonStopFunGuy© But it wasn't his thumb entering her ass; it was his tongue, he licked down to it, lapping at it, then pushing his tongue inside her cunt. Kitty grunted at the pressure, and she reached a hand to her crotch to finger-fuck her cunthole while her boyfriend was rimming out her butt. His strong hands were both underneath her asscheeks, fondling and groping them, while he held her ass in the air and stuffed his tongue inside her anus, as deep as it could go. 
+ 
+
+===
+
+But it wasn't his thumb entering her ass; it was his tongue, he licked down to it, lapping at it, then pushing his tongue inside her cunt. Kitty grunted at the pressure, and she reached a hand to her crotch to finger-fuck her cunthole while her boyfriend was rimming out her butt. His strong hands were both underneath her asscheeks, fondling and groping them, while he held her ass in the air and stuffed his tongue inside her anus, as deep as it could go. 
 
  "Ahhh, FUUUUCK!" my wife choked, having an orgasm, while saliva was pooling in the back of her mouth, forcing her to swallow even while trying to breath, her body on fire. 
 
@@ -3742,7 +3888,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 04 ****** byNonStopFunGuy© Rick's dark eyebrows scowled, and his deep-set brown eyes read her emotions, not to his liking. "No, baby, there's--" He caught himself, then lowered his voice to a more friendly tone. "Look, yeah, I've played around in the past - - but, I want you with me, every day, every night -- and," he added with a smug wink, "I know it's what you want -- it's what your body and heart want, I can tell, don't deny it!" 
+ 
+
+===
+
+Rick's dark eyebrows scowled, and his deep-set brown eyes read her emotions, not to his liking. "No, baby, there's--" He caught himself, then lowered his voice to a more friendly tone. "Look, yeah, I've played around in the past - - but, I want you with me, every day, every night -- and," he added with a smug wink, "I know it's what you want -- it's what your body and heart want, I can tell, don't deny it!" 
 
  Images were filling Kitty's pretty, intelligent head. He offered the obvious amenities of a good life. He had lots of money, more than she had in her current marriage. Going on all of his business trips with him -- flying first class, eating at top restaurants, sleeping in five-star hotels. She also knew she reacted to him like no one else. The thought made her heart throb. Waking up everyday next to Rick's fabulous body; fucking his incredible dick; seeing his eyes and knowing he was looking only at her, no one else, was she really that beautiful and sexy to get a man like him? 
 
@@ -3868,7 +4018,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 04 ****** byNonStopFunGuy© My Kitty was now playful. "The usual," she told him lustfully, her pussy already creaming at the thought of fucking his big cock and her lips kissing the wonderful man. 
+ 
+
+===
+
+My Kitty was now playful. "The usual," she told him lustfully, her pussy already creaming at the thought of fucking his big cock and her lips kissing the wonderful man. 
 
  A decision was made, one she knew all along but seemed incapable of stating clearly. To confirm it, she immediately called me on my cellphone, hoping anxiously I would answer. I did. "Hiya baby," I told her, clueless, "how are you feeling this morning?" 
 
@@ -4004,7 +4158,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Rick Ch. 04 ****** byNonStopFunGuy© She had a second, then shortly later a third, orgasm while her boyfriend lay on top of her, pounding all fat 8 inches of his dick into her pussy. Then, unprompted, probably soon that he typically would, Patrick's lust and love for my wife boiled over. Without warning, he suddenly stiffened his whole body, limps going tight, his mouth sucking the air out of her lungs and his tongue impaled deep into her mouth. His long cock stuffed at the back of her vagina started to explode, shooting his sperm inside Kitty, making love to her as deep as he could push his awesome cock inside her body. 
+ 
+
+===
+
+She had a second, then shortly later a third, orgasm while her boyfriend lay on top of her, pounding all fat 8 inches of his dick into her pussy. Then, unprompted, probably soon that he typically would, Patrick's lust and love for my wife boiled over. Without warning, he suddenly stiffened his whole body, limps going tight, his mouth sucking the air out of her lungs and his tongue impaled deep into her mouth. His long cock stuffed at the back of her vagina started to explode, shooting his sperm inside Kitty, making love to her as deep as he could push his awesome cock inside her body. 
 
  Feeling that orgasm, Kitty gasped into his mouth, her arms stretched down, her hands clutching his muscled, tight asscheeks, pulling him even more deeply. "Uhhh, yesss, oooh -- cum in me, Daddy, cummm hard!" She milked his cock, wiggling her body, letting him shove that pole far inside her tube, her small hands gripping the sexy, smooth buttocks of the hot older man. "Mmmm, yesss, Patrick!" Her words were muffled by his tongue still buried inside her mouth. 
 
@@ -4110,7 +4268,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Tim ****** byNonStopFunGuy© 
+ 
+
+===
+
+
 
  too insecure with themselves to allow their wife or girlfriend to realize her true self, and really enjoy life. So many guys think women are possessions, so when you have a hot one, other men can't and shouldn't touch her. If she's really, really a sexual creature -- and some women are, not all, but some - - then you're depriving her of fulfilling her true happiness. That doesn't make you a man, does it? So for all of you who think guys like me are pathetic wimps who should be put out of our misery -- check out the comments to the "Brian" story previously posted -- I would just say, who's the real man who's secure with himself and his lover? Huh? Is it more macho to be disgusted that your wife wants to fuck other men -- or to recognize that we're all human, we have positives and negatives, and your wife might actually have good reactions with other men but that doesn't mean she doesn't love you. Be a man, face reality, you're not perfect. No one is. That's the point of this story here.] 
 
@@ -4218,7 +4380,11 @@
 
  
 
- ****** Me, My Slutwife &amp; Tim ****** byNonStopFunGuy© "Hah!" At first she thought it was a joke, but on second thought, she had promised she might call me. So, with her boyfriend still straddling her, sticking his big erection over her face, she dialed our home number and waited. Her eyes stared past the eight inches of manhood, instead looking higher up to Tim's pretty face. 
+ 
+
+===
+
+"Hah!" At first she thought it was a joke, but on second thought, she had promised she might call me. So, with her boyfriend still straddling her, sticking his big erection over her face, she dialed our home number and waited. Her eyes stared past the eight inches of manhood, instead looking higher up to Tim's pretty face. 
 
  "Hello?" I didn't recognize the number, but something in me told me it might be Kitty. I held up the remote and put the TV on mute, but keeping the soccer game playing. 
 

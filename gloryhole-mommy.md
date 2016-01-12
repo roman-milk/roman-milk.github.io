@@ -1,8 +1,14 @@
+Gloryhole Mommy
+===============
 #1 
 
  
 
- ****** Gloryhole Mommy ****** bysilkstockingslover© Summary: A mom accidentally sucks and fucks her well-endowed son. 
+ 
+
+===
+
+Summary: A mom accidentally sucks and fucks her well-endowed son. 
 
  Note 1: This is an April Fool's 2015 Day Contest Story. The theme for this NEW contest is: humorous, surprise meetings, trick endings or themes of deception, chance or misunderstanding (happy or otherwise). This story will fit at least one of those...enjoy. 
 
@@ -386,7 +392,11 @@
 
  
 
- ****** Gloryhole Mommy ****** bysilkstockingslover© I 
+ 
+
+===
+
+I 
 
  had 
 

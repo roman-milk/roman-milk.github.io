@@ -1,8 +1,14 @@
+MILF Model Melody
+=================
 #1 
 
  
 
- ****** MILF Model Melody ****** bygeronimo_appleby© A fun picture one from me this time. I have the model's consent to use her pictures in this scene. She's a genuine, part-time model from Bedfordshire, England, similar to Melody to as I depicted in the piece -- although she doesn't take it as far as Melody does, this is a work of fiction after all. 
+ 
+
+===
+
+A fun picture one from me this time. I have the model's consent to use her pictures in this scene. She's a genuine, part-time model from Bedfordshire, England, similar to Melody to as I depicted in the piece -- although she doesn't take it as far as Melody does, this is a work of fiction after all. 
 
  OK, in this scene a young man sees a woman he's sure is an internet model. He approaches her obliquely and, when challenged, admits to perusing her nude pictures on her website. Remarkably the model invites him to visit her at home and take a few pictures for himself. 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** MILF Model Melody ****** bygeronimo_appleby© "Melody ..." I groaned as I stroked the shaft. "Oh fuck ... Melody." 
+ 
+
+===
+
+"Melody ..." I groaned as I stroked the shaft. "Oh fuck ... Melody." 
 
  "Jesus," the model gasped, her fingers at her mouth. "That's bloody enormous!" 
 

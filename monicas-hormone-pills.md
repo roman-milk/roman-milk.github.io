@@ -1,8 +1,14 @@
+MoNica's Hormone Pills
+======================
 #1 
 
  
 
- ****** MoNica's Hormone Pills ****** byJust_Plain_Bob© There is only one thing I love more that having a man stuff my pussy full of hard fat cock and that is taking my thoroughly fucked pussy home and having my simple minded stupe of a husband eat me out. He never wonders where all to goo comes from, just takes my word that it is my normal discharge - my cum- that flows whenever I'm horny. I'm probably not being fair calling Harold a simple- minded stupe. With any other woman he would probably catch on pretty quick, but Harold loves me, worships the ground I walk on, and he'll believe anything that I tell him. 
+ 
+
+===
+
+There is only one thing I love more that having a man stuff my pussy full of hard fat cock and that is taking my thoroughly fucked pussy home and having my simple minded stupe of a husband eat me out. He never wonders where all to goo comes from, just takes my word that it is my normal discharge - my cum- that flows whenever I'm horny. I'm probably not being fair calling Harold a simple- minded stupe. With any other woman he would probably catch on pretty quick, but Harold loves me, worships the ground I walk on, and he'll believe anything that I tell him. 
 
  It all started because I got to feeling sorry for myself. Harold is a good man, a loving husband and a great provider, but he is an absolute zero in bed. When I'm older maybe what Harold is will be good enough for me, but not now while I'm young and in my prime. I want and need sex and I just don't get it from Harold. A two-minute quickie and he rolls off and is snoring before I even know he's out of me. After five years of that I was so sexually frustrated that I was ready to take a meat axe to Harold while he was sleeping and hope that a jury wouldn't convict after they heard the story. 
 

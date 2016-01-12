@@ -1,8 +1,14 @@
+Dan
+===
 #1 
 
  
 
- ****** Dan ****** byJust_Plain_Bob© I was sitting at the kitchen table sipping my third cup of coffee and looking out the window at the backyard. The grass was ankle high, weeds were taking over the flowerbeds and the roses were in bad need of pruning. That was all stuff that Dan was supposed to take care of. 
+ 
+
+===
+
+I was sitting at the kitchen table sipping my third cup of coffee and looking out the window at the backyard. The grass was ankle high, weeds were taking over the flowerbeds and the roses were in bad need of pruning. That was all stuff that Dan was supposed to take care of. 
 
  The front door squeaked when you opened it, the showerhead in the upstairs bedroom leaked, my car needed the brakes relined and it was due for an oil change; more stuff that Dan usually took care of. There were a hundred other things that Dan usually took care of, like holding me in his arms until I fell asleep and snuggling up close to me in the mornings. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Dan ****** byJust_Plain_Bob© I got up off my knees and moved to the bed and lay down. I spread my legs wide and Mark moved between my legs and buried his face in my pussy. He ran his tongue along my slit and then pushed it into me. I moaned and put my legs up on his shoulders and opened myself up even more for him. He found my clit and latched onto it and I pushed my hips up at his face as the pleasure Mark was giving me made me moan. He worked my clit and I moaned and thrashed on the bed and then I cried out as I had an orgasm. 
+ 
+
+===
+
+I got up off my knees and moved to the bed and lay down. I spread my legs wide and Mark moved between my legs and buried his face in my pussy. He ran his tongue along my slit and then pushed it into me. I moaned and put my legs up on his shoulders and opened myself up even more for him. He found my clit and latched onto it and I pushed my hips up at his face as the pleasure Mark was giving me made me moan. He worked my clit and I moaned and thrashed on the bed and then I cried out as I had an orgasm. 
 
  Mark pulled his face away from my pussy and moved up. I felt the head of his cock at the entrance to my hole and then he pushed and I gasped as his huge cock split my pussy lips and lanced into me. I cast a quick glance at Dan to see how he was taking it and found him staring at us. Well, it wasn't going to happen again, at least not with Mark, so I was determined to give Dan a good show. 
 

@@ -1,8 +1,14 @@
+Merrily, Laci and Me
+====================
 #1 
 
  
 
- ****** Merrily, Laci and Me ****** byJust_Plain_Bob© "She what?" 
+ 
+
+===
+
+"She what?" 
 
  "She wants me to set up a gangbang for her. She wants me to round up ten or twelve guys and then she wants them to fuck her until she can't get them up anymore." 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Merrily, Laci and Me ****** byJust_Plain_Bob© "I'll call a lawyer first thing in the morning. Make a list of what you want to take with you and start packing. I'm moving you out when I get home from work. Sleep on the couch. I don't want you bringing your lover's stink into my bedroom." 
+ 
+
+===
+
+"I'll call a lawyer first thing in the morning. Make a list of what you want to take with you and start packing. I'm moving you out when I get home from work. Sleep on the couch. I don't want you bringing your lover's stink into my bedroom." 
 
  That night when I got home from work I found dinner ready and waiting for me complete with two bottles of wine opened and on the sideboard 'breathing' (Lacy was really into the wine thing). Lacy was waiting in a sexy black lacy thing and high heels. I took one look at her and said, "I thought I told you to pack." 
 

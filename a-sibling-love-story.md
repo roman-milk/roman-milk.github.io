@@ -1,8 +1,14 @@
+A Sibling Love Story
+====================
 #1 
 
  
 
- ****** A Sibling Love Story ****** bysilkstockingslover© Summary: A brother and sister become intimate in New York City during the holidays. 
+ 
+
+===
+
+Summary: A brother and sister become intimate in New York City during the holidays. 
 
  Note 1: Be warned if you are a fan of my mostly sub-domme writing please stop right now. This story although has subtle hints of submissiveness, the heart of the story is two siblings falling for each other during the backdrop of a winter evening in New York City. 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** A Sibling Love Story ****** bysilkstockingslover© She seemed to feel the same way as for a moment there was silence. Finally, I said, "We have a few minutes, Barbie Girl." 
+ 
+
+===
+
+She seemed to feel the same way as for a moment there was silence. Finally, I said, "We have a few minutes, Barbie Girl." 
 
  "We do?" she asked, her eyes big as a little girl on Christmas morning. 
 
@@ -428,7 +438,11 @@
 
  
 
- ****** A Sibling Love Story ****** bysilkstockingslover© I focused on the mushroom head at first, just slowly moving back and forth, getting used to my brother's girth in my mouth. 
+ 
+
+===
+
+I focused on the mushroom head at first, just slowly moving back and forth, getting used to my brother's girth in my mouth. 
 
  "That's it sis," Andy instructed, his hand gently going through my hair, "take your time." 
 
@@ -692,7 +706,11 @@
 
  
 
- ****** A Sibling Love Story ****** bysilkstockingslover© "Yes, Mom, Andy has been very, very accommodating," I agreed, the irony of the question and the reality of the situation utterly hilarious. 
+ 
+
+===
+
+"Yes, Mom, Andy has been very, very accommodating," I agreed, the irony of the question and the reality of the situation utterly hilarious. 
 
  A moment later, Andy's tongue distracting me I said, "But I need to go, Mom, it has been a long, day full of wonderful surprises and I am exhausted." 
 

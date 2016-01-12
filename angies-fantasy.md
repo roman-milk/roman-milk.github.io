@@ -1,8 +1,14 @@
+Angie's Fantasy
+===============
 #1 
 
  
 
- ****** Angie's Fantasy ****** byJust_Plain_Bob© The things you do in your youth have a way of coming back to haunt you. Sometimes that can be a good thing, but sometime it can fuck you up big time. 
+ 
+
+===
+
+The things you do in your youth have a way of coming back to haunt you. Sometimes that can be a good thing, but sometime it can fuck you up big time. 
 
  Remember when you were a teenager and desperate to get rid of your hated virginity? Remember what lengths you went to to try and get your cherry popped? Well, that was me times ten. I couldn't even get a date, let alone get laid. It didn't help that I was overweight and had pimples all over my face and that I was inordinately shy. And naive, can't forget to mention naive. I was so eager to please and be accepted that I was taken advantage of all the time. The one thing I had going for me was that I had a driver's license and a car. The car had been a bittersweet gift from my brother. When I was thirteen he was drafted and sent to Viet Nam and he never came back. The day I got my learner's permit my dad called me into his den and handed me a set of keys. 
 
@@ -162,7 +168,11 @@
 
  
 
- ****** Angie's Fantasy ****** byJust_Plain_Bob© "You have to Angie. Something has been bothering you for weeks now and it is affecting our relationship and I want to know what it is. We can't fix it if I don't know what is wrong." 
+ 
+
+===
+
+"You have to Angie. Something has been bothering you for weeks now and it is affecting our relationship and I want to know what it is. We can't fix it if I don't know what is wrong." 
 
  "It can't be fixed. It is too late for that." 
 

@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Hillary
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Hillary ****** byJust_Plain_Bob© My wife and I have always had a problem when it comes to sex. Not a problem with our sex life, just a problem with attitudes. Hillary had a typical middle class upbringing where she attended church off and on and where she was encouraged to save herself for marriage. Her mother did her level best to convince Hillary that the only reason for having sexual relations with a man was to have babies. In short, if you aren't going to have kids, don't fuck! 
+ 
+
+===
+
+My wife and I have always had a problem when it comes to sex. Not a problem with our sex life, just a problem with attitudes. Hillary had a typical middle class upbringing where she attended church off and on and where she was encouraged to save herself for marriage. Her mother did her level best to convince Hillary that the only reason for having sexual relations with a man was to have babies. In short, if you aren't going to have kids, don't fuck! 
 
  Fortunately, Hill fell in with the wrong crowd when she went to college. The ironic part is that was her mother that put her in touch with them. Hillary was a legacy at her mother's sorority. Hill didn't want to join, but her mother insisted on it. Apparently mom wasn't aware that things had changed since her day and the girls that belonged to the sorority when Hill attended were among the biggest sluts on the campus. They were never able to turn Hill into a slut, but they did go a long way toward moderating Hill's mother's influence. At heart though, Hill was still a product of the very moral middle class. 
 

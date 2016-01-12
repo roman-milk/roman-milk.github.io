@@ -1,8 +1,14 @@
+Monica Ch. 01 of 02
+===================
 #1 
 
  
 
- ****** Monica Ch. 01 of 02 ****** byJust_Plain_Bob© I'd just finished installing a state of the art computer system in one of the local nightclubs and Toby, the owner, had invited my wife and I to be his guests for dinner and drinks on Saturday night. He had a new band that would be starting that night and they were heavily into the "Golden Oldies" and Toby thought that my wife and I would enjoy dancing to their music. Dinner was great and following dessert I switched from wine to vodka and my wife Monica started on margaritas and both of us were feeling pretty good when the band started. About ten minutes before the band started I saw my cousin George enter the club and I waved him over to join us. I was glad to see him because Monica loved to dance with him and that would take some of the heat off me. I'm okay on most slow dances, but I looked like a drunken sailor when the pace picked up. George, on the other hand, was a dancing fool and he would be out on the floor from the time the band started until they stopped. During the middle of the band's second set Toby asked me to join him in his office for a few minutes. I asked George to keep Monica company and I followed Toby upstairs to his office. 
+ 
+
+===
+
+I'd just finished installing a state of the art computer system in one of the local nightclubs and Toby, the owner, had invited my wife and I to be his guests for dinner and drinks on Saturday night. He had a new band that would be starting that night and they were heavily into the "Golden Oldies" and Toby thought that my wife and I would enjoy dancing to their music. Dinner was great and following dessert I switched from wine to vodka and my wife Monica started on margaritas and both of us were feeling pretty good when the band started. About ten minutes before the band started I saw my cousin George enter the club and I waved him over to join us. I was glad to see him because Monica loved to dance with him and that would take some of the heat off me. I'm okay on most slow dances, but I looked like a drunken sailor when the pace picked up. George, on the other hand, was a dancing fool and he would be out on the floor from the time the band started until they stopped. During the middle of the band's second set Toby asked me to join him in his office for a few minutes. I asked George to keep Monica company and I followed Toby upstairs to his office. 
 
  
 
@@ -42,7 +48,11 @@
 
  
 
- ****** Monica Ch. 02 of 02 ****** byJust_Plain_Bob© We looked at each other across the breakfast table and sipped our coffee. Neither of us wanted to be the first to speak, but both of us had a lot to say and I guess neither of us knew where to begin. Monica had somehow unwittingly become the center piece in a gangbang the previous evening and even though it should have been obvious to her from the way I had fucked her when everyone else had done with her that our marriage was not in danger, she still had cried and begged for forgiveness all the way home. She was still a little red-eyed, but I think that the fact that I couldn't keep my hands off of her when we got home (I fucked her more the previous evening that I had in the previous month - five times) helped convince her that things were going to be fine between us. Finally I broke the silence: 
+ 
+
+===
+
+We looked at each other across the breakfast table and sipped our coffee. Neither of us wanted to be the first to speak, but both of us had a lot to say and I guess neither of us knew where to begin. Monica had somehow unwittingly become the center piece in a gangbang the previous evening and even though it should have been obvious to her from the way I had fucked her when everyone else had done with her that our marriage was not in danger, she still had cried and begged for forgiveness all the way home. She was still a little red-eyed, but I think that the fact that I couldn't keep my hands off of her when we got home (I fucked her more the previous evening that I had in the previous month - five times) helped convince her that things were going to be fine between us. Finally I broke the silence: 
 
  "You never looked sexier than you did last night." 
 

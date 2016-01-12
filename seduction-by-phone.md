@@ -1,8 +1,14 @@
+Seduction By Phone
+==================
 #1 
 
  
 
- ****** Seduction By Phone ****** byBoratus© Her boyfriend had wanted this. They had been trying different kinky things to spice up their sex life and he told her that he'd like to see her get fucked by a black man. She had never thought of fucking anyone except her boyfriend and wasn't sure if she could do it but Frank pushed and pushed and soon they were looking on the internet for potential partners. Most seemed very full of themselves. Some weren't good-looking enough. Some just scared her. Finally they seemed to click with one named Shaun. After many emails and a few phone calls Frank decided he liked Shaun. Jane wasn't so sure. So Frank asked her to just sit and chat one on one with Shaun. Jane reluctantly agreed. 
+ 
+
+===
+
+Her boyfriend had wanted this. They had been trying different kinky things to spice up their sex life and he told her that he'd like to see her get fucked by a black man. She had never thought of fucking anyone except her boyfriend and wasn't sure if she could do it but Frank pushed and pushed and soon they were looking on the internet for potential partners. Most seemed very full of themselves. Some weren't good-looking enough. Some just scared her. Finally they seemed to click with one named Shaun. After many emails and a few phone calls Frank decided he liked Shaun. Jane wasn't so sure. So Frank asked her to just sit and chat one on one with Shaun. Jane reluctantly agreed. 
 
  So one night, sitting in her nightie before bed, while Frank watched tv downstairs, she called his number and a deep sexy voice answered the phone. Jane felt a wave of anxiety go through her. She'd never actually heard his voice before. Frank had been captaining this adventure. She had until now just been a passenger waiting to get to whatever destination he decided on. She admitted to herself she was only doing this to get it over with, hoping Frank would get it out of his system. Their sex life sucked but she would never think of cheating on him for her own pleasure. This was an opportunity to have sex with someone else. Yes, it was different and, yes, it was somewhat exciting but did she really want it? No. Could she live happily missing out on it? Yes. And then Shaun said "Hello?" and she felt a thin sheet of perspiration cover her forehead. 
 

@@ -1,8 +1,14 @@
+Holloween and Drugs
+===================
 #1 
 
  
 
- ****** Holloween and Drugs ****** byJust_Plain_Bob© I really didn't know why I was there. I didn't feel like drinking, but I needed to get out and do something. Sitting around the house and whining about how life had treated me wasn't getting me anywhere. I used to enjoy open microphone night at the Landing Strip and maybe a few laughs would help. 
+ 
+
+===
+
+I really didn't know why I was there. I didn't feel like drinking, but I needed to get out and do something. Sitting around the house and whining about how life had treated me wasn't getting me anywhere. I used to enjoy open microphone night at the Landing Strip and maybe a few laughs would help. 
 
  I looked around as I came in and I saw that there were some people there that I knew. I saw Angie Springer sitting at a table with three other girls. Wally Taylor and his wife Julie were there which was a surprise. The last time I had been in the Strip on open mike night he had publicly accused Julie of being a cheating whore. Seeing them together caused me to frown. The last thing I wanted to think about on that night was cheating whores. 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** Holloween and Drugs ****** byJust_Plain_Bob© When we finished she kissed me and said, "Time to get up and get going. Got to get out and earn our daily bread." 
+ 
+
+===
+
+When we finished she kissed me and said, "Time to get up and get going. Got to get out and earn our daily bread." 
 
  "I'm going into work late this morning. I have a dentist appointment at nine." 
 
@@ -450,7 +460,11 @@
 
  
 
- ****** Holloween and Drugs ****** byJust_Plain_Bob© ++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++ 
 
  Now here I was six months later with Angie bringing it all back to me. 
 
@@ -730,7 +744,11 @@
 
  
 
- ****** Holloween and Drugs ****** byJust_Plain_Bob© I found the title to Jim's car in his desk and I signed Jim's name to it and gave Carol a bill of sale for the car also with Jim's name signed to it. Carol of course moved in with me and she left no forwarding address when she left Jim's house so Jim's brother had no way of finding her. Not that it would have done him any good if he had. 
+ 
+
+===
+
+I found the title to Jim's car in his desk and I signed Jim's name to it and gave Carol a bill of sale for the car also with Jim's name signed to it. Carol of course moved in with me and she left no forwarding address when she left Jim's house so Jim's brother had no way of finding her. Not that it would have done him any good if he had. 
 
  I wondered what he thought when he went into the house and found it pretty much empty. I also wondered how Jim took it when he was told about the almost empty house and what his brother had found in the den. I would have loved to have seen his face when he found out that all of his blackmail material, his money and Carol were gone. 
 

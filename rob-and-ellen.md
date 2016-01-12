@@ -1,8 +1,14 @@
+Rob and Ellen Ch. 01
+====================
 #1 
 
  
 
- ****** Rob and Ellen Ch. 01 ****** byJust_Plain_Bob© I was sitting in my favorite restaurant, one where I ate breakfast four or five times a week, and working on the New York Times crossword puzzle when the waitress slid onto the seat across from me. 
+ 
+
+===
+
+I was sitting in my favorite restaurant, one where I ate breakfast four or five times a week, and working on the New York Times crossword puzzle when the waitress slid onto the seat across from me. 
 
  "Well Rob, are you ready yet?" Dixie asked. 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Rob and Ellen Ch. 01 ****** byJust_Plain_Bob© "Don't get me wrong here Rob. He was not a better lover than you – he wasn't even close to being as good as you are – it was the cheating, the nastiness of the illicit sex that drove my orgasms. I got back to my hotel room and looked at myself in the mirror and I didn't see any sign that I'd just been a slut for a man not my husband, but as I looked at myself the enormity of what I'd just done hit me. I had just deliberately cheated on the man I loved. My stomach lurched and I had to rush to the bathroom. I spent the rest of the night between lying on the bed and crying and rushing to the toilet and retching. 
+ 
+
+===
+
+"Don't get me wrong here Rob. He was not a better lover than you – he wasn't even close to being as good as you are – it was the cheating, the nastiness of the illicit sex that drove my orgasms. I got back to my hotel room and looked at myself in the mirror and I didn't see any sign that I'd just been a slut for a man not my husband, but as I looked at myself the enormity of what I'd just done hit me. I had just deliberately cheated on the man I loved. My stomach lurched and I had to rush to the bathroom. I spent the rest of the night between lying on the bed and crying and rushing to the toilet and retching. 
 
  "It wasn't until I was on the plane home that it hit me. I'd gone of birth control and put away my diaphragm because we were going to start our family and I'd just had unprotected sex with a stranger. I spent the rest of the flight running between my seat and the toilet. The one thing I had not expected was the guilt that hit me when it was all over with. Guilt had me rushing to the bathroom two and three times a day. I knew that what I'd done would never happen again because of the guilt I was feeling. It was crushing. Between all of the throwing up and crying I did I'm surprised that you didn't notice and press me to find out what was wrong. 
 
@@ -328,7 +338,11 @@
 
  
 
- ****** Rob and Ellen Ch. 02 ****** byJust_Plain_Bob© I watched him walk out to the garage and was glad that he would never know the truth of my night with Stu. The truth would just kill him. The truth was that Stu had given me the best sex of my life. It had been so good that I wasn't sure that I wouldn't have run away with him if he had asked. I really do love Rob and I'm sorry now that Stu and I played. I told the truth about the guilt I was carrying, but deep in my heart I know that I had kind of lied when I said 'never again.' It would never happen again unless I ran into Stu again and if that happened all bets were off. 
+ 
+
+===
+
+I watched him walk out to the garage and was glad that he would never know the truth of my night with Stu. The truth would just kill him. The truth was that Stu had given me the best sex of my life. It had been so good that I wasn't sure that I wouldn't have run away with him if he had asked. I really do love Rob and I'm sorry now that Stu and I played. I told the truth about the guilt I was carrying, but deep in my heart I know that I had kind of lied when I said 'never again.' It would never happen again unless I ran into Stu again and if that happened all bets were off. 
 
  I remembered that night and felt my pussy dampen with the memory. It had happened the way I'd told Rob, but I'd left out a whole lot of detail. Like the part where Stu told me that he wanted to make love to me and I'd said. "Sorry, but I'm married." He had smiled and said: 
 
@@ -512,7 +526,11 @@
 
  
 
- ****** Rob and Ellen Ch. 02 ****** byJust_Plain_Bob© "Afraid not. A very bad man." 
+ 
+
+===
+
+"Afraid not. A very bad man." 
 
  "A very bad man? Who?" 
 
@@ -560,7 +578,11 @@
 
  
 
- ****** Rob and Ellen Ch. 03 ****** byJust_Plain_Bob© I was sitting in a booth eating breakfast when Dixie sat down opposite me. 
+ 
+
+===
+
+I was sitting in a booth eating breakfast when Dixie sat down opposite me. 
 
  "How we doing Rob?" 
 
@@ -866,7 +888,11 @@
 
  
 
- ****** Rob and Ellen Ch. 03 ****** byJust_Plain_Bob© "You sure know how to take the romance out of things." 
+ 
+
+===
+
+"You sure know how to take the romance out of things." 
 
  "There is no romance here Stu' just hot sex. Don't ever think that there is any more going than that." 
 

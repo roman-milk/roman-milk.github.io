@@ -1,8 +1,14 @@
+Learning I'm Submissive
+=======================
 #1 
 
  
 
- ****** Learning I'm Submissive ****** bysilkstockingslover© Summary: Straight girl slowly submits sexually to her best friend. 
+ 
+
+===
+
+Summary: Straight girl slowly submits sexually to her best friend. 
 
  Note: This story is dedicated to Liz. 
 
@@ -294,7 +300,11 @@
 
  
 
- ****** Learning I'm Submissive ****** bysilkstockingslover© I met up with Kevin for a movie, we went back to my house and snuck in trying not to wake my parents so we could have a quickie. Once in my room, we quickly got into a heated embrace. We started fucking doggy style and Kevin, being Kevin, decided to start fucking my ass without warning. I moaned, not even realizing I had said the wrong name, "Yes, Kelly, pound my ass, go deeper." 
+ 
+
+===
+
+I met up with Kevin for a movie, we went back to my house and snuck in trying not to wake my parents so we could have a quickie. Once in my room, we quickly got into a heated embrace. We started fucking doggy style and Kevin, being Kevin, decided to start fucking my ass without warning. I moaned, not even realizing I had said the wrong name, "Yes, Kelly, pound my ass, go deeper." 
 
  Kevin immediately stopped and was pissed. "What the fuck are you talking about, why did you say Kelly?" 
 

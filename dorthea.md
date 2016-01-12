@@ -1,8 +1,14 @@
+Dorthea
+=======
 #1 
 
  
 
- ****** Dorthea ****** byJust_Plain_Bob© I stared at him, stunned to the core of my being as what he said slowly registered. 
+ 
+
+===
+
+I stared at him, stunned to the core of my being as what he said slowly registered. 
 
  "Are you sure? I mean is there any chance a mistake has been made? 
 

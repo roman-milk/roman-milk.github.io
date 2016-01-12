@@ -1,8 +1,14 @@
+Saving My Job
+=============
 #1 
 
  
 
- ****** Saving My Job ****** byJust_Plain_Bob© When I was younger, fifteen or so, I was present when my mom and dad had one hell of an argument which ended with my mom throwing an ashtray at dad and then stomping out of the room. That wasn't the first time that mom had gotten violent with dad and when she was out of the room I asked him why he put up with it. He thought for a minute and then he said: 
+ 
+
+===
+
+When I was younger, fifteen or so, I was present when my mom and dad had one hell of an argument which ended with my mom throwing an ashtray at dad and then stomping out of the room. That wasn't the first time that mom had gotten violent with dad and when she was out of the room I asked him why he put up with it. He thought for a minute and then he said: 
 
  "Life is full of ups and downs Rob. You have to learn to take the bad with the good and then hope that in the end the good outweighs the bad. Your momma can be a trial at times, but her good qualities outweigh her bad ones and that's the best I can hope for." 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Saving My Job ****** byJust_Plain_Bob© She knew what she was talking about - it was an exhausting night. Harriet was insatiable. I couldn't have stayed with her had there been two of me. She had her hand inside my fly as soon as we were on the elevator to go up to our rooms. Once in the door to my room she had my cock out and holding it she led me to the bed, sat down and then pulled me to her mouth. One hand cupped and caressed my balls as I stood there looking down on the head sliding back and forth on my rod I wondered if I could stand doing it until retirement. 
+ 
+
+===
+
+She knew what she was talking about - it was an exhausting night. Harriet was insatiable. I couldn't have stayed with her had there been two of me. She had her hand inside my fly as soon as we were on the elevator to go up to our rooms. Once in the door to my room she had my cock out and holding it she led me to the bed, sat down and then pulled me to her mouth. One hand cupped and caressed my balls as I stood there looking down on the head sliding back and forth on my rod I wondered if I could stand doing it until retirement. 
 
  Suddenly I realized two things: yes I could, but I wouldn't last until retirement. She had made her position clear up front - no man was going to tie her down as she tried to climb as high up the corporate ladder as she could. Not that I could tie her down what with already being married, but I would be baggage none the less. I was her current fuck toy and nothing more. The operative word there was 'current.' At that moment I knew that I was on my way out the door anyway and the only question was, "How long did I have?" 
 
@@ -396,7 +406,11 @@
 
  
 
- ****** Saving My Job ****** byJust_Plain_Bob© My lawyer got right to the point. 
+ 
+
+===
+
+My lawyer got right to the point. 
 
  "I asked for this meeting to see if we could possibly avoid a publicity nightmare for Titan and a half dozen very expensive law suits. My client intends to sue for wrongful termination, sexual harassment, age discrimination and alienation of affections leading to the end of his marriage of over twenty years. I'll let Mr. Walker describe the events leading up to this meeting." 
 

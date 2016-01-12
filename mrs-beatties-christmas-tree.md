@@ -1,8 +1,14 @@
+Mrs Beattie's Christmas Tree
+============================
 #1 
 
  
 
- ****** Mrs Beattie's Christmas Tree ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  My entry into the Winter Holidays Contest. It's a short First Time scene set in an English market town back in the late 70s. Some of the terms and expressions might seem odd to some readers, but I hope the context in which I've used them gives an indication of meaning and doesn't interrupt any flow. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Mrs Beattie's Christmas Tree ****** bygeronimo_appleby© "God, can I?" I mewled, swallowing heavily again. 
+ 
+
+===
+
+"God, can I?" I mewled, swallowing heavily again. 
 
  "I'm not too old for you, am I?" asked Mrs Beattie, her eyes fixed on my face. 
 

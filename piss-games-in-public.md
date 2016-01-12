@@ -1,8 +1,14 @@
+Piss Games In Public
+====================
 #1 
 
  
 
- ****** Piss Games In Public ****** bygeronimo_appleby© During the summer of 1987 I was 23 years old, serving with the British army in Germany, and I was going through a crisis. Looking back the crisis wasn't so severe. I was in the twilight zone of having a normal life one day, and a totally changed existence the next. 
+ 
+
+===
+
+During the summer of 1987 I was 23 years old, serving with the British army in Germany, and I was going through a crisis. Looking back the crisis wasn't so severe. I was in the twilight zone of having a normal life one day, and a totally changed existence the next. 
 
  I'd inherited a large sum of money. It was a sum large enough to mean that I didn't need to work ever again. I could just take off and pay no heed to my job or anything whatsoever. I was free to do whatever I wanted, but by the same token that freedom also took away my anchor, the compass I steered by, and it would take a bit of adjustment. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Piss Games In Public ****** bygeronimo_appleby© The second man added his load to the first, and both women were now smeared liberally with trickling streams of semen. The third man pumped his jizm onto both of the women's upturned faces and heaving breasts, and now Katja slurped the thick, creamy goo from Anja's swinging tits eagerly. 
+ 
+
+===
+
+The second man added his load to the first, and both women were now smeared liberally with trickling streams of semen. The third man pumped his jizm onto both of the women's upturned faces and heaving breasts, and now Katja slurped the thick, creamy goo from Anja's swinging tits eagerly. 
 
  I could take no more of this and added my own, final deposit onto the smeared sluts that knelt in front of me. The women moaned and sighed, grinning up at me, their faces covered, long sticky strands hanging from their hair, and their hands rubbing cum over their breasts and bellies as they tried to smear the stuff into their skin. 
 

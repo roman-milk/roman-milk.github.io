@@ -1,8 +1,14 @@
+Sally's Birthday
+================
 #1 
 
  
 
- ****** Sally's Birthday ****** byJust_Plain_Bob© I sat there stunned as my wife moved out onto the dance floor with the man. Had I really heard her right or had I had too much to drink and it was confusing what the words coming from her actually were? 
+ 
+
+===
+
+I sat there stunned as my wife moved out onto the dance floor with the man. Had I really heard her right or had I had too much to drink and it was confusing what the words coming from her actually were? 
 
  It was Friday night and Sally's birthday and we were out celebrating. We went to the Landing Strip and settled down for an evening of drinking and dancing. Well, drinking for me, drinking and dancing for Sally. A land mine during the First Gulf War had put and end to my tripping the light fantastic, but Sally loved to dance so I sucked it up, put a lid on my jealous nature and let her dance with whomever asked. 
 
@@ -272,7 +278,11 @@
 
  
 
- ****** Sally's Birthday ****** byJust_Plain_Bob© "Please come home." 
+ 
+
+===
+
+"Please come home." 
 
  "Give me a day or two to think on it." 
 

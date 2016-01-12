@@ -1,8 +1,14 @@
+Mae's Choice
+============
 #1 
 
  
 
- ****** Mae's Choice ****** byJust_Plain_Bob© You have to wonder sometimes if it is worth it. You go to work and you bust ass to provide for your family, you see to it that they want for nothing and do they appreciate it? Not a fucking bit. They look on it as their just due. 
+ 
+
+===
+
+You have to wonder sometimes if it is worth it. You go to work and you bust ass to provide for your family, you see to it that they want for nothing and do they appreciate it? Not a fucking bit. They look on it as their just due. 
 
  I had gone out of town to work with a customer on a bid for work he wanted my company to do. I finished the bid and called my boss to let him know I was done and would be heading home a day early. He asked me to stop by the office and see him before going home. I called home to let my wife know that I was coming home early, but no one was home. I flew home, got my car out of satellite parking and headed for the office. I tried the house one more time on my cell, but still no answer. When I got to the office the boss said we could talk over dinner and that he was buying. I followed Dale to Carl's Chop House and we spent the next half-hour talking about my project and sipping martinis. Just as the meal was being served I saw a couple come in, arm in arm, and head for a table. Even with her back to me she looked familiar and I saw why when she turned and sat down. It was my wife. I saw the man she was with turn and kiss her as he sat down in the booth beside her and I saw her turn her face so that their lips met. Suddenly it was clear to me why no one was answering the phone at the house. Mae couldn't because she wasn't there and because she was here that meant one of the kids couldn't because Mae had parked them someplace. I wondered if this was what happened every time I had a business trip. 
 

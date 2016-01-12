@@ -1,8 +1,14 @@
+First Taste
+===========
 #1 
 
  
 
- ****** First Taste ****** bygeronimo_appleby© This is my first attempt at a gay male story. I've kept it short, but hopefully sweet. Please send feedback if you'd like to see more of the same, perhaps a little longer and with more detail next time. Obviously the more I get the more I'm inclined to write! Also if there are any suggestions for further scenes or stories I'd be pleased to receive them. 
+ 
+
+===
+
+This is my first attempt at a gay male story. I've kept it short, but hopefully sweet. Please send feedback if you'd like to see more of the same, perhaps a little longer and with more detail next time. Obviously the more I get the more I'm inclined to write! Also if there are any suggestions for further scenes or stories I'd be pleased to receive them. 
 
  First Taste 
 

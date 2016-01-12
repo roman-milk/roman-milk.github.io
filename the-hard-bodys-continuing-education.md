@@ -1,8 +1,14 @@
+The Hard Body's Continuing Education Ch. 01
+===========================================
 #1 
 
  
 
- ****** The Hard Body's Continuing Education Ch. 01 ****** bydlsloan© CHAPTER 1: PARADISE HAS ITS PRICE 
+ 
+
+===
+
+CHAPTER 1: PARADISE HAS ITS PRICE 
 
  Cori Banks thought she'd fall asleep right away on the flight from San Diego to St. Thomas in the U.S. Virgin Islands. Why shouldn't she? She had just survived a busy opening night at her step-father's restaurant, a vicious rape attempt and subsequent fight, followed by a hasty retreat. She had escaped sore but relatively unharmed thanks to Tony, her hero, who had not only saved her, but also paid for this 10-day vacation. 
 
@@ -182,7 +188,11 @@
 
  
 
- 01Page 2 ****** The Hard Body's Continuing Education Ch. 01 ****** bydlsloan© Miles was righting his large, stocky frame after apparently stumbling against a bar stool. Cori hadn't seen the collision, but there was no doubt in her mind that Miles, either drunk or acting stupid or both, had crashed into Gerald - - either intentionally or not -- and knocked her new friend over. Now, Gerald was being berated by the angry trio, who had been looking for trouble -- either in the form of a fight or pussy -- all day. 
+ 01Page 2 
+
+===
+
+Miles was righting his large, stocky frame after apparently stumbling against a bar stool. Cori hadn't seen the collision, but there was no doubt in her mind that Miles, either drunk or acting stupid or both, had crashed into Gerald - - either intentionally or not -- and knocked her new friend over. Now, Gerald was being berated by the angry trio, who had been looking for trouble -- either in the form of a fight or pussy -- all day. 
 
  "Watch where you're going, asshole!" Miles shouted, pointing his finger at Gerald, who was already apologizing profusely and reaching out to help Miles up. Miles slapped his hand away and raised his fist as if to hit Gerald, who quickly backpedaled, palms up. 
 
@@ -408,7 +418,11 @@
 
  
 
- 01Page 3 ****** The Hard Body's Continuing Education Ch. 01 ****** bydlsloan© The three men exchanged glances, then Sam nodded. "You got it. $5,000 now and the other $5,000 after you deliver. So you better be good." 
+ 01Page 3 
+
+===
+
+The three men exchanged glances, then Sam nodded. "You got it. $5,000 now and the other $5,000 after you deliver. So you better be good." 
 
  "All you have to do is sign this," Cori said. 
 
@@ -468,7 +482,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 02 ****** bydlsloan© CHAPTER 2: FISHING FOR TAIL 
+ 
+
+===
+
+CHAPTER 2: FISHING FOR TAIL 
 
  Cori got up at 7 the next morning, showered and dressed in a red bikini that her old friend John back at the Body Shop in Georgia would have called a "nub rub". She had never heard anyone but John use the term, but it was just one of his many good-old-boy sayings. When she asked him what it meant, he had explained, "Well, sweet thing, about the only thing that scrap of fabric is covering are your nipples and your clit -- your three nubs. And it's so damn tight, it's gotta be rubbing something." 
 
@@ -596,7 +614,11 @@
 
  
 
- 02Page 2 ****** The Hard Body's Continuing Education Ch. 02 ****** bydlsloan© "Ladies, this is Cori," Sam said, his hard cock bobbing as he walked over to the table to join them. Cori still had both hands on her pussy, holding herself up and playing with her increasingly wet snatch, just as she had been ordered to do. "Cori, this is Lola and Juanita. They work for the resort, but were hand-picked -- and fucked -- by me to be my personal maids. They also clean for Miles and Victor. They understand and appreciate our, um, unique activities and are remarkably loyal and discreet. As you can see, they both are quite beautiful as well." 
+ 02Page 2 
+
+===
+
+"Ladies, this is Cori," Sam said, his hard cock bobbing as he walked over to the table to join them. Cori still had both hands on her pussy, holding herself up and playing with her increasingly wet snatch, just as she had been ordered to do. "Cori, this is Lola and Juanita. They work for the resort, but were hand-picked -- and fucked -- by me to be my personal maids. They also clean for Miles and Victor. They understand and appreciate our, um, unique activities and are remarkably loyal and discreet. As you can see, they both are quite beautiful as well." 
 
  "Yes, they are," Cori's breath was short, the strain of her position taking its toll, despite her fantastic conditioning. The fan blades moved back and forth as Cori struggled to hold her pose. 
 
@@ -766,7 +788,11 @@
 
  
 
- 02Page 3 ****** The Hard Body's Continuing Education Ch. 02 ****** bydlsloan© The two columns from the front looped around her neck to connect to the back string. Each front string had a metallic gold hoop at the end, about the size of a 50-cent piece. The string coming up her back had a metal clasp on the end that opened and closed much like the clasp of a necklace. Both rings from the front attached to the clasp on the back, completing the sling loop. 
+ 02Page 3 
+
+===
+
+The two columns from the front looped around her neck to connect to the back string. Each front string had a metallic gold hoop at the end, about the size of a 50-cent piece. The string coming up her back had a metal clasp on the end that opened and closed much like the clasp of a necklace. Both rings from the front attached to the clasp on the back, completing the sling loop. 
 
  Because the material was so stretchy and because Sam had ordered two sizes too small, the suit clung to her, pressing tightly against her flesh in the few areas where it actually made contact -- her tits, her pussy and her shoulders. Her nipples poked out through the holes in the netting and her ass was completely visible. Only her pussy was covered with any degree of effectiveness. 
 
@@ -932,7 +958,11 @@
 
  
 
- 02Page 4 ****** The Hard Body's Continuing Education Ch. 02 ****** bydlsloan© "Silly slut," Sam chided. "Try as hard as you want, but we control the time. We control your cunt. You'll cum when we want you to, and not a second before. Five minutes." 
+ 02Page 4 
+
+===
+
+"Silly slut," Sam chided. "Try as hard as you want, but we control the time. We control your cunt. You'll cum when we want you to, and not a second before. Five minutes." 
 
  Five minutes later, Cori was in the hands of Captain Jack. They had run out of bottled water, so he wet her down with a bucket of sea water, the sweet, salty scent strong as it washed over her. Jack's working-man hands were thick, coarse and strong. While he wasn't intentionally rough with her, his hands weren't used to gentle touch. His calloused fingers rubbed over her sensitive flesh, arousing her all the more. She wanted him to grab, squeeze and rub her forever. Instead, it was over almost as soon as it started. 
 
@@ -982,7 +1012,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 03 ****** bydlsloan© CHAPTER 3: LAY IT AGAIN, SAM 
+ 
+
+===
+
+CHAPTER 3: LAY IT AGAIN, SAM 
 
  "Stop for a minute," Sam said to Captain Jack. "Let's let the cruise ship go ahead and give Cori a chance to get freshened up. Jack slowed the engine to a halt and the boat gradually slowed, rocking in the gentle waves. 
 
@@ -1090,7 +1124,11 @@
 
  
 
- 03Page 2 ****** The Hard Body's Continuing Education Ch. 03 ****** bydlsloan© The twin who had been on top before scrambled over to her and again started kissing on her. As she did so, the other twin slid beneath Cori again, this time with her head between Cori's legs. The bottom twin started eating Cori's pussy immediately while Cori and the other girl continued to tongue wrestle, their tits once again pushing against each other, nipple to nipple. The girl on top was straddling Cori's thigh, humping her pussy against her, and had her hand between her pussy-eating sister's legs, finger fucking her, making sure she wasn't forgotten on the bottom. 
+ 03Page 2 
+
+===
+
+The twin who had been on top before scrambled over to her and again started kissing on her. As she did so, the other twin slid beneath Cori again, this time with her head between Cori's legs. The bottom twin started eating Cori's pussy immediately while Cori and the other girl continued to tongue wrestle, their tits once again pushing against each other, nipple to nipple. The girl on top was straddling Cori's thigh, humping her pussy against her, and had her hand between her pussy-eating sister's legs, finger fucking her, making sure she wasn't forgotten on the bottom. 
 
  Lola and Juanita joined the party now, sliding in on both sides of the pussy pileup, pressing their large breasts against the girls while their hands roamed all over the layers of flesh, caressing and squeezing and rubbing tits, asses, bellies, pussies -- whatever soft, sensitive skin they could find. They both leaned forward, kissing on the ass of the twin on top, their lips meeting briefly in a soft, sensual, tongue-filled kiss. 
 
@@ -1156,7 +1194,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© CHAPTER 4: GIVE HIM AN INCH... 
+ 
+
+===
+
+CHAPTER 4: GIVE HIM AN INCH... 
 
  Cori prepared for her day with Miles with a smile on her face. She was doing all this for Gerald, but she found she had truly enjoyed herself yesterday. It had been a little embarrassing at times and they had really messed with her head, sort of tricking her into things she didn't think she wanted to do. But it had been fun and creative and a great experience sexually. She hoped Miles would be every bit as fun and creative as Sam. She had resigned herself to the fact that public sex, group sex and anal sex were no longer things she could say were off limits. The only thing she could cling to was no rough stuff - - though she had been tied up and fucked twice yesterday, but neither time had been what she would consider rough. It was light, creative bondage, but not rough. 
 
@@ -1310,7 +1352,11 @@
 
  
 
- 04Page 2 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© Show time, part 2, Cori thought. Miles hit a shot deep into the corner of the court, right near where the guys were crowded around. Perfect. Cori lunged for it, planting her foot, then let out a squeal and fell to the ground, instantly grabbing for her right thigh. Miles was by her side in an instant and Cori rolled around on the ground, whimpering in pain, her soft sobs eliciting both sympathy and groans of lust from her onlookers who wished they were eliciting those sexy, vulnerable noises by pounding her pussy or ass so hard that it "hurt so good." Indeed, if you couldn't see her writhing on the ground, it would have been hard to tell if her little yelps were caused by pain or pleasure or some mixture of both. She was playing it just like Miles had instructed. 
+ 04Page 2 
+
+===
+
+Show time, part 2, Cori thought. Miles hit a shot deep into the corner of the court, right near where the guys were crowded around. Perfect. Cori lunged for it, planting her foot, then let out a squeal and fell to the ground, instantly grabbing for her right thigh. Miles was by her side in an instant and Cori rolled around on the ground, whimpering in pain, her soft sobs eliciting both sympathy and groans of lust from her onlookers who wished they were eliciting those sexy, vulnerable noises by pounding her pussy or ass so hard that it "hurt so good." Indeed, if you couldn't see her writhing on the ground, it would have been hard to tell if her little yelps were caused by pain or pleasure or some mixture of both. She was playing it just like Miles had instructed. 
 
  He told her to lie back and asked her where it hurt. "My thigh," she said. 
 
@@ -1470,7 +1516,11 @@
 
  
 
- 04Page 3 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© "Good," Miles said. "Now, pull them up toward her head. That's it. Stop there." Her legs were now spread wide and pulled up so her feet were even with her breasts. She was totally exposed and Miles promptly spread her pussy, using both hands to pull her open. He held her that way, kneeling down to put his eye right up to her pussy, pretending to be examining her. "Hmm, I don't know. Sure looks pink and it feels very hot and moist. We might need a second opinion. Care to take a look?" 
+ 04Page 3 
+
+===
+
+"Good," Miles said. "Now, pull them up toward her head. That's it. Stop there." Her legs were now spread wide and pulled up so her feet were even with her breasts. She was totally exposed and Miles promptly spread her pussy, using both hands to pull her open. He held her that way, kneeling down to put his eye right up to her pussy, pretending to be examining her. "Hmm, I don't know. Sure looks pink and it feels very hot and moist. We might need a second opinion. Care to take a look?" 
 
  Miles had nodded to a man in his mid 30s with dark, slick-backed hair and the look of a young businessman. The guy stepped forward, unable to hide the bulge in his pants as he knelt down and peered inside Cori's pussy, which Miles was still holding open. "Sure looks nice and pink in there to me," the guy said. "Looks like a healthy pussy." 
 
@@ -1590,7 +1640,11 @@
 
  
 
- 04Page 4 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© She snapped back to the attention when she realized that the man across from her was now using a small hand-held video camera to record her. He also used his cell phone to take a couple pictures. Somehow, she knew this would end up on the Internet. Miles did nothing to stop it, so neither did she. 
+ 04Page 4 
+
+===
+
+She snapped back to the attention when she realized that the man across from her was now using a small hand-held video camera to record her. He also used his cell phone to take a couple pictures. Somehow, she knew this would end up on the Internet. Miles did nothing to stop it, so neither did she. 
 
  "Moist heat is better for these types of injuries," Miles said. "Anyone have a heat wrap or anything?" He knew the answer would be no, so he put his index finger in her mouth. She sucked it the way she knew he wanted -- as if it was a cock, bobbing her head, hollowing her cheeks and pursing her lips. He did the same with his ring and index fingers and when they were all "wet enough" he applied his wet hand to her thigh, rubbing it again. 
 
@@ -1724,7 +1778,11 @@
 
  
 
- 04Page 5 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© On the next hole, Cori found herself distracted by the fact that her tits were sticking out -- they seemed to interfere with her swing and she sliced the ball far off into the woods. Miles had a nice drive down the middle of the fairway, but three-putted and their lead was cut to one stroke. 
+ 04Page 5 
+
+===
+
+On the next hole, Cori found herself distracted by the fact that her tits were sticking out -- they seemed to interfere with her swing and she sliced the ball far off into the woods. Miles had a nice drive down the middle of the fairway, but three-putted and their lead was cut to one stroke. 
 
  Miles instructed Cori to "distract them" and she proceeded to do her best, stretching, bending over, sighing or giggling, adjusting her leg warmers, taking long, slow drinks of her beer, sucking on the bottle neck as she tilted her head back so they could watch her swallow. All her tricks helped a little, as both Victor and Sam duffed shots, their concentration clearly broken by a flash of skin or particularly sexy pose. At one point, Cori sat down by the tee box, pretending to be tired and resting while they all teed off. But, as Sam prepared to strike the ball, she began a slow, sensuous crawl over to the golf court, giving him a perfect view of her ass and pussy. He shanked the shot and didn't even cart. 
 
@@ -1884,7 +1942,11 @@
 
  
 
- 04Page 6 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© "All right, since we have such a big lead, we're going to give them a chance, Cori," Miles said. "I'm going hit left-handed on this hole and you're going to, well, it would be easier to show you than tell you. Take off your jacket." 
+ 04Page 6 
+
+===
+
+"All right, since we have such a big lead, we're going to give them a chance, Cori," Miles said. "I'm going hit left-handed on this hole and you're going to, well, it would be easier to show you than tell you. Take off your jacket." 
 
  Cori took off her jacket and handed it Victor, who threw it in one of the golf carts. Miles took the butt plug out of her ass and they threw that back in the gym bag. She was standing at the tee on the eighth hole, topless, a pair of nipple rings and a small chain hanging between them. She had on her tiny black- and-white plaid pleated skirt, white leg warmers and heels. The red bow was still in her hair and her candy-red lipstick looked unblemished despite the blowjob a few minutes ago. 
 
@@ -2030,7 +2092,11 @@
 
  
 
- 04Page 7 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© Cori couldn't help but respond to the feel of the soft cloth rubbing over her breasts, her nipples responding to the gentle strokes and occasional tugs and tweaks. Cori had always had sensitive breasts, and the attention the guys had paid them throughout the course of the outing was getting to her. She wouldn't have complained if they had cut the outing short and one of them took her back to his room for a long, slow fuck. Yes, she thought that would feel really good right about now. But, of course, they had all recently gotten off. They were in play mode, gearing up for their next go-round. She had to remind herself that it might be a while before she got a chance to cum -- if she got one at all. If all they wanted was blowjobs the rest of the night -- always a distinct possibility -- she'd be out of luck most likely. 
+ 04Page 7 
+
+===
+
+Cori couldn't help but respond to the feel of the soft cloth rubbing over her breasts, her nipples responding to the gentle strokes and occasional tugs and tweaks. Cori had always had sensitive breasts, and the attention the guys had paid them throughout the course of the outing was getting to her. She wouldn't have complained if they had cut the outing short and one of them took her back to his room for a long, slow fuck. Yes, she thought that would feel really good right about now. But, of course, they had all recently gotten off. They were in play mode, gearing up for their next go-round. She had to remind herself that it might be a while before she got a chance to cum -- if she got one at all. If all they wanted was blowjobs the rest of the night -- always a distinct possibility -- she'd be out of luck most likely. 
 
  The stimulation continued when Miles dried her off using a soft terry-cloth golf towel and then put the nipple rings and connecting chain back in. Victor held her nipples steady while Miles put the rings in, then gave both nipples a lick and suck. Her nipples were achingly hard now and the guys were taking notice. 
 
@@ -2172,7 +2238,11 @@
 
  
 
- 04Page 8 ****** The Hard Body's Continuing Education Ch. 04 ****** bydlsloan© Miles interrupted her brief fantasy by reminding her to use both breasts to eat her ice cream. She continued on, looking each of the men in the eye as she did so, knowing they liked that eye contact as they imagined her sucking them off the way she was slurping the ice cream off her tits. 
+ 04Page 8 
+
+===
+
+Miles interrupted her brief fantasy by reminding her to use both breasts to eat her ice cream. She continued on, looking each of the men in the eye as she did so, knowing they liked that eye contact as they imagined her sucking them off the way she was slurping the ice cream off her tits. 
 
  When she got to the bottom and only a little of the melted ice cream lay pooled in the bottom of the cup, Miles dumped it on her tits. "Don't forget your milk, little kitten," Miles said, and she lapped up the last drops, letting out a playful "purr" at the end. 
 
@@ -2312,7 +2382,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© Chapter 5: To The Victor Goes The Spoils 
+ 
+
+===
+
+Chapter 5: To The Victor Goes The Spoils 
 
  "Look in your upper right dresser drawer," Victor said on the message. "You will find a white sling bathing suit I would like you to wear. You will also find a white t-shirt, which you may wear over the top. You may not wear any shorts or other covering over the bottom. You will also find white heels you must wear. They strap around your ankles. I'm sure you've worn some like them before. There is also a black collar you should put around your neck. Before you get dressed, rub baby oil all over your body and put your nipple rings in. I would like your hair down and you're the same candy red lipstick you wore yesterday. I expect you to follow these directions explicitly and to be at my suite no later than 8 a.m. The door will be open. Knock twice, then come in." 
 
@@ -2466,7 +2540,11 @@
 
  
 
- 05Page 2 ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© "Hold these," Victor grunted at him, pushing her feet into Coffman's hands. Coffman climbed on the bed above Cori's head and pulled her feet back over her head, spreading her legs as wide as he could at the same time. He now had a great view of not only her tits, but also her tight little cunt being split open by Victor's cock. Pre-cum was seeping out of Coffman's cock, staining the front of his shorts. He let his crotch rub across Cori's head a couple of times, welcoming any sort of contact he could get at this point. 
+ 05Page 2 
+
+===
+
+"Hold these," Victor grunted at him, pushing her feet into Coffman's hands. Coffman climbed on the bed above Cori's head and pulled her feet back over her head, spreading her legs as wide as he could at the same time. He now had a great view of not only her tits, but also her tight little cunt being split open by Victor's cock. Pre-cum was seeping out of Coffman's cock, staining the front of his shorts. He let his crotch rub across Cori's head a couple of times, welcoming any sort of contact he could get at this point. 
 
  Victor was absolutely nailing Cori, calling her a slut and a whore and telling her that her little cunt needed to be available to him at a moment's notice at all times from now on. She was panting, yes, yes, in response to either his commands or his fucking or both. Damn, what a fucking show, Coffman thought. 
 
@@ -2634,7 +2712,11 @@
 
  
 
- 05Page 3 ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© "Hey, that's that girl on this flyer," one of the men said. Cori thought it was the one with the darker features. He was the larger of the two as well, with reddish skin, made so by the sun and what Cori guessed was some sort of Native American or Polynesian heritage. The other man, as best she could make out through squinted eyes, had light gray hair that he had grown out and put in a long pony tail down his back. He was medium build with leathery tan skin. 
+ 05Page 3 
+
+===
+
+"Hey, that's that girl on this flyer," one of the men said. Cori thought it was the one with the darker features. He was the larger of the two as well, with reddish skin, made so by the sun and what Cori guessed was some sort of Native American or Polynesian heritage. The other man, as best she could make out through squinted eyes, had light gray hair that he had grown out and put in a long pony tail down his back. He was medium build with leathery tan skin. 
 
  "Shit, it sure is. Fuck, look at that," the other man replied. Cori ruled out the religious men theory right away. Dirty old men and Boy Scouts were still on the list, among countless other possibilities. 
 
@@ -2808,7 +2890,11 @@
 
  
 
- 05Page 4 ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© "Damn, she's sucking so hard," AJ said. "I'm afraid I'll drown her." But he didn't let that stop him as he fired his own weeks-old load into her, the salty, gooey load coating her tongue and gums as she slowly swallowed it all. 
+ 05Page 4 
+
+===
+
+"Damn, she's sucking so hard," AJ said. "I'm afraid I'll drown her." But he didn't let that stop him as he fired his own weeks-old load into her, the salty, gooey load coating her tongue and gums as she slowly swallowed it all. 
 
  Given more time to react differently, Cori might have stopped them before things went this far, but Ponytail had cum before she could think. Then, the only choice seemed to be to do the job right. Swallow so as to leave no mess and let the guys get away scott free if that's the way Victor chose to handle it. 
 
@@ -2972,7 +3058,11 @@
 
  
 
- 05Page 5 ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© "As you can see, these are the real things," Victor said. "They are big and round and firm with amazing rubbery nipples. Nothing fake here. Ever seen a better pair than these? Me either." He reached out and rubbed and tweaked her nipples, tugged on the nipple rings, then bounced her breasts and gently slapped them together so Harris would be able to see them in action. "You should see these things when she's running," Victor said. Cori took the cue and turned up the speed on the treadmill, careful not to go to fast. She had long ago mastered the art of running in heels, but it was still tricky to go very fast. Besides, a light jog created a nice up and down bounce that guys really seemed to enjoy, so she settled into a rhythm, letting her tits playfully bounce along to her long, graceful strides. Victor let the camera and her tits do all the talking for a few minutes before slowly panning out and signaling for Cori to move on to the next part of the workout. 
+ 05Page 5 
+
+===
+
+"As you can see, these are the real things," Victor said. "They are big and round and firm with amazing rubbery nipples. Nothing fake here. Ever seen a better pair than these? Me either." He reached out and rubbed and tweaked her nipples, tugged on the nipple rings, then bounced her breasts and gently slapped them together so Harris would be able to see them in action. "You should see these things when she's running," Victor said. Cori took the cue and turned up the speed on the treadmill, careful not to go to fast. She had long ago mastered the art of running in heels, but it was still tricky to go very fast. Besides, a light jog created a nice up and down bounce that guys really seemed to enjoy, so she settled into a rhythm, letting her tits playfully bounce along to her long, graceful strides. Victor let the camera and her tits do all the talking for a few minutes before slowly panning out and signaling for Cori to move on to the next part of the workout. 
 
  She stopped the treadmill and came around to the workout bench with weights and pulleys. Her breasts were still bare with the straps from the sling pushing against them from the outside, squeezing them together. She sat straight up, straddling the bench and reached up for a metal bar attached to a pulley. She kept the weight light and did several reps, pulling the weight straight down behind her head. Naturally, the exercise caused her to arch her back and her tits stuck out even more, a highlight not missed by Victor and his all-seeing camera. 
 
@@ -3048,7 +3138,11 @@
 
  
 
- 05Page 6 ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© "Gonna have to suck harder than that, babe," Sam said. "I figured you to be the kind of girl who could suck the proverbial chrome off a trailer hitch or a golf ball through a hose. You better be if you're going to win that reward." 
+ 05Page 6 
+
+===
+
+"Gonna have to suck harder than that, babe," Sam said. "I figured you to be the kind of girl who could suck the proverbial chrome off a trailer hitch or a golf ball through a hose. You better be if you're going to win that reward." 
 
  Cori chastised herself for not doing better and hollowed her cheeks around Miles' cock, sucking loudly like a child who has reached the bottom of a glass of milk. She traced her tongue around the head of his cock, finding large deposits of chocolate caked there and along the thick veins of his shaft. 
 
@@ -3178,7 +3272,11 @@
 
  
 
- 05Page 7 ****** The Hard Body's Continuing Education Ch. 05 ****** bydlsloan© Both men entered and Cori and Rudin waved it off as Cori offered them a seat. "No, we can't stay," Rudin said. "I just wanted to stop by and tell you that you are the lucky recipient of a free room and service upgrade." Cori remembered that Gerald had no idea what had been going on the last three days and nodded to Rudin a subtle appreciation for his discretion. 
+ 05Page 7 
+
+===
+
+Both men entered and Cori and Rudin waved it off as Cori offered them a seat. "No, we can't stay," Rudin said. "I just wanted to stop by and tell you that you are the lucky recipient of a free room and service upgrade." Cori remembered that Gerald had no idea what had been going on the last three days and nodded to Rudin a subtle appreciation for his discretion. 
 
  "That's great!" Cori said. "What does it mean?" 
 
@@ -3242,7 +3340,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 06 ****** bydlsloan© Chapter 6: Cumming Home And Moving On 
+ 
+
+===
+
+Chapter 6: Cumming Home And Moving On 
 
  Cori left St. Thomas reluctantly, but the closer she got to North Carolina, the more excited she was about meeting with Mr. Harris. Victor, his friend, had said the dean of the business school was a decent man who just liked to have a little fun with the coeds sometimes. A formalized deal with someone like her would allow him to take less risks by messing around with the other girls and could offer her a substantial amount in return. 
 
@@ -3354,7 +3456,11 @@
 
  
 
- 06Page 2 ****** The Hard Body's Continuing Education Ch. 06 ****** bydlsloan© She had tensed up that last day with Sam and Miles and the sundae race, she supposed, because it was the last day and she was already thinking ahead to a possible college opportunity and had just listened to Victor tell her how she deserved better in her life. She had carried that bitterness here, determined to show how tough and classy and smart she was when all anyone was asking for from her right now was fun and sexiness. She had provided that at the shop and loved it. If she did that again here with Harris and whoever else, could she accept the fact that she was enjoying it, no matter how slutty her attire or actions might be? She was doing this for no one else this time -- not a sick step-dad or an underprivileged resort worker or even friends whose business was failing. This was all for her. She would have to take responsibility for that. Could she do that and accept -- no embrace -- being a part-time slut and find joy in that? She looked around the beautiful campus again. She thought about owning her own company, about the internship Harris had mentioned, which sounded fantastic. This, she decided, was an opportunity she couldn't pass up. Her hard body had carried her this far, there was no reason to act high and mighty and try to pretend otherwise. She got up, knowing her decision and walked back into the building, already knowing in her gut that she had made the right choice. 
+ 06Page 2 
+
+===
+
+She had tensed up that last day with Sam and Miles and the sundae race, she supposed, because it was the last day and she was already thinking ahead to a possible college opportunity and had just listened to Victor tell her how she deserved better in her life. She had carried that bitterness here, determined to show how tough and classy and smart she was when all anyone was asking for from her right now was fun and sexiness. She had provided that at the shop and loved it. If she did that again here with Harris and whoever else, could she accept the fact that she was enjoying it, no matter how slutty her attire or actions might be? She was doing this for no one else this time -- not a sick step-dad or an underprivileged resort worker or even friends whose business was failing. This was all for her. She would have to take responsibility for that. Could she do that and accept -- no embrace -- being a part-time slut and find joy in that? She looked around the beautiful campus again. She thought about owning her own company, about the internship Harris had mentioned, which sounded fantastic. This, she decided, was an opportunity she couldn't pass up. Her hard body had carried her this far, there was no reason to act high and mighty and try to pretend otherwise. She got up, knowing her decision and walked back into the building, already knowing in her gut that she had made the right choice. 
 
  "You're right," Cori said. "I enjoy sex very much. I like to show off and tease and have fun with guys. I don't think there's anything wrong with that and I will gladly earn my scholarship every day in any way you deem necessary, outside of blatant prostitution, rough stuff or gang bangs I don't consent to." She was surprised as she spoke the words. All the bylaws and clauses and everything she had planned to throw in went out the window. And she didn't mind a bit. "In fact," she continued, "we don't have to follow that five times a week rule you mentioned. There are no limits for you. I know the value of my body and I know the value of what you offer. It's a fair trade. It's up to me to get the most of the opportunity you're providing and, in return, you and the university should get the most you can out of me." 
 
@@ -3458,7 +3564,11 @@
 
  
 
- 06Page 3 ****** The Hard Body's Continuing Education Ch. 06 ****** bydlsloan© Cori wanted to moan and scream and ream herself on their cocks, but she was virtually powerless. Strong men with big cocks had possession of her body and they were controlling everything. She let her mind go blank, closed her eyes and just reveled in the joy of cocks and fucking. She felt her pussy go from hot to molten and knew that wonderful, electrifying surge of orgasm was only moments away. John must have been able to feel it, because he said, "She's going to cum guys, keep it up." 
+ 06Page 3 
+
+===
+
+Cori wanted to moan and scream and ream herself on their cocks, but she was virtually powerless. Strong men with big cocks had possession of her body and they were controlling everything. She let her mind go blank, closed her eyes and just reveled in the joy of cocks and fucking. She felt her pussy go from hot to molten and knew that wonderful, electrifying surge of orgasm was only moments away. John must have been able to feel it, because he said, "She's going to cum guys, keep it up." 
 
  That seemed to add extra intensity to Ty's thrusts and the added friction and movement in all three holes sent Cori over the edge. As she came, Ben pulled his cock out of her mouth and let her scream and moan and whimper as she gasped for breath. Her arms wobbled as she struggled to hold herself up. All of her body's resources seemed to have been diverted to her pussy and her nipples and she felt weak all over. She wanted to collapse and bask in the after glow. John and Ty pulled out of her and she thought that was what they were going to let her do. She fell to the floor, her chest heaving as she inhaled deeply and sighed in complete contentment. 
 
@@ -3600,7 +3710,11 @@
 
  
 
- 06Page 4 ****** The Hard Body's Continuing Education Ch. 06 ****** bydlsloan© She saw the lust in the eyes of Ben and Ty as they helped load up her bags. She wondered if they would try to bang her one more time before they left. As horny as she was right now, she hoped not. She was tired from the nearly all-night session and the travel and she wanted to look clean and fresh for Harris tonight, too. 
+ 06Page 4 
+
+===
+
+She saw the lust in the eyes of Ben and Ty as they helped load up her bags. She wondered if they would try to bang her one more time before they left. As horny as she was right now, she hoped not. She was tired from the nearly all-night session and the travel and she wanted to look clean and fresh for Harris tonight, too. 
 
  Ben seemed tired and a little sad and Ty was tired, but clearly excited. Neither of them tried anything, so Cori slept during the ride to the airport, gave Ben a long hug and kiss, then boarded the private jet with Ty. The captain eyed Cori hungrily, but figured she was with Ty and made no advances or comments. Ty and Cori both slept during the entire flight, waking up when they touched down. Once again, Anthony was there to pick them up. If he was shocked by Cori's appearance, he didn't show it. Even though Harris had assured discretion, she suspected that Anthony and maybe Darren and Sandy had at least some idea of the nature of her situation. Either that or they had been exceptionally well trained not to ask questions. Anthony loaded all their bags and invited them to relax in the back seat. Ty was awake now, anticipating his new life with Cori, who slept with her head in his lap. His cock ached for her and soon she had to shift positions or risk having his cock puncture her ear drum as it rose to its full length. 
 
@@ -3774,7 +3888,11 @@
 
  
 
- 06Page 5 ****** The Hard Body's Continuing Education Ch. 06 ****** bydlsloan© Well, that answer would have to wait until tomorrow because at the moment, it was clear Harris was indifferent to everything but her body. He led her around the pool, constantly looking back to check out her bare tits hanging down. He stopped her and removed her skirt and adjusted her g-string so it fit snugly over the end of the dildo in her ass, helping hold it in place. Of course, her tight ass muscles were also doing a good job of that and there was no danger of the dildo slipping out of her before Harris said it was OK. 
+ 06Page 5 
+
+===
+
+Well, that answer would have to wait until tomorrow because at the moment, it was clear Harris was indifferent to everything but her body. He led her around the pool, constantly looking back to check out her bare tits hanging down. He stopped her and removed her skirt and adjusted her g-string so it fit snugly over the end of the dildo in her ass, helping hold it in place. Of course, her tight ass muscles were also doing a good job of that and there was no danger of the dildo slipping out of her before Harris said it was OK. 
 
  He led her toward the patio and had her sit up and beg for him, rubbing her cheek against the crotch of his shorts. He sat in a lounge chair and said, "Time to test your obedience," he said. "Crawl to the grass." 
 
@@ -3824,7 +3942,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 06b ****** bydlsloan© The next morning, Cori woke up with the taste of semen still fresh on her tongue. She rolled over and felt Harris next to her. They were both naked under the sheets. She looked at the clock -- it was only 6 a.m., but she was too excited about her new job to sleep any longer. She wondered if Harris would want a blowjob to start his day or if he would be mad if she woke him up. Silly, she thought, what man had ever been upset about a morning blowjob? 
+ 
+
+===
+
+The next morning, Cori woke up with the taste of semen still fresh on her tongue. She rolled over and felt Harris next to her. They were both naked under the sheets. She looked at the clock -- it was only 6 a.m., but she was too excited about her new job to sleep any longer. She wondered if Harris would want a blowjob to start his day or if he would be mad if she woke him up. Silly, she thought, what man had ever been upset about a morning blowjob? 
 
  She lifted the covers back and slid between his legs, which were splayed across the bed. Watching his eyes, she knelt down and grazed his balls with her nose. No reaction. She dipped her head and let her hair fall onto his cock. He stirred, smiling in his sleep, then slowly opened his eyes. 
 
@@ -3968,7 +4090,11 @@
 
  
 
- 06bPage 2 ****** The Hard Body's Continuing Education Ch. 06b ****** bydlsloan© Douglas showed Cori how to log into her computer and gave her several brochures and reports to look over to learn more about the company. 
+ 06bPage 2 
+
+===
+
+Douglas showed Cori how to log into her computer and gave her several brochures and reports to look over to learn more about the company. 
 
  "We also need to get a picture of you to put on the web site and to make your ID badge," Douglas said. 
 
@@ -4164,7 +4290,11 @@
 
  
 
- 06bPage 3 ****** The Hard Body's Continuing Education Ch. 06b ****** bydlsloan© "Add it on," Harris said. 
+ 06bPage 3 
+
+===
+
+"Add it on," Harris said. 
 
  "I'll throw it in for free," Ms. Chloe said. "You've earned a little reward. And I like your niece very much. She's going places, I can tell. A very impressive young lady. You should be very proud." 
 
@@ -4300,7 +4430,11 @@
 
  
 
- 06bPage 4 ****** The Hard Body's Continuing Education Ch. 06b ****** bydlsloan© She was sweaty and wet and totally spent, held up now by her bonds. "Ready to go home and fuck all night?" Ty asked, easing the truck back onto the road. 
+ 06bPage 4 
+
+===
+
+She was sweaty and wet and totally spent, held up now by her bonds. "Ready to go home and fuck all night?" Ty asked, easing the truck back onto the road. 
 
  "Anything you say," Cori grinned. Her nipples ached, her arms and legs were fatigued by the strain, her pussy felt red and swollen and raw, yet she couldn't remember feeling this good in a long time. "Wow, I love this truck!" 
 
@@ -4366,7 +4500,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 07 ****** bydlsloan© Chapter 7: All In A Day's Work 
+ 
+
+===
+
+Chapter 7: All In A Day's Work 
 
  Despite the lack of sleep, Cori awoke feeling rested and excited about her second day of work. She was anxious to wear her new business suit and hopefully start fresh with her new co-workers. She wore one of her new bras and some regular cotton panties. She had a cream-colored button-down blouse that was actually the right size and had all the buttons. Her black skirt came almost to her knees and her black blazer was sharp and fit just right. She wore dark nylons and simple 2-inch black heels. Everything was the right size, nothing was skimpy or revealing. She even wore light pink lipstick instead of her frequent candy red look and let her hair down instead of the usual perky pony tail. She looked in the mirror, feeling grown up, mature -- like the real woman she knew she was. 
 
@@ -4520,7 +4658,11 @@
 
  
 
- 07Page 2 ****** The Hard Body's Continuing Education Ch. 07 ****** bydlsloan© "Well?" Barry asked. 
+ 07Page 2 
+
+===
+
+"Well?" Barry asked. 
 
  "This is nice," Cori said. "It's classic and sexy and very feminine. The downsides are that the bustier isn't all that comfortable nor does it come off easily. Plus, if she has a flat tummy, this kind of hides it." 
 
@@ -4686,7 +4828,11 @@
 
  
 
- 07Page 3 ****** The Hard Body's Continuing Education Ch. 07 ****** bydlsloan© "Oh no," she said in mock dismay, clutching her arms over her chest as she slid off the counter and stooped over to pick up the button. "Does anyone know how to sew?" 
+ 07Page 3 
+
+===
+
+"Oh no," she said in mock dismay, clutching her arms over her chest as she slid off the counter and stooped over to pick up the button. "Does anyone know how to sew?" 
 
  "'Fraid not," Barry said. "It's gonna be hard for you to type like that, you know. Might as well drop those arms and face facts. It's a topless Tuesday at Benson Sports Marketing!" 
 
@@ -4800,7 +4946,11 @@
 
  
 
- 07Page 4 ****** The Hard Body's Continuing Education Ch. 07 ****** bydlsloan© Jason signed the paper in broad strokes that made Cori's tit bounce, then shook the pen hard like it was running out of ink. "Might need to get another pen," Jason said. "Might want to start carrying a backup -- one on each side." He grabbed the rubber band that was only part way on her breast and slowly pulled it off, letting the rubber scrape across her nipple, hoping she liked the way it felt. 
+ 07Page 4 
+
+===
+
+Jason signed the paper in broad strokes that made Cori's tit bounce, then shook the pen hard like it was running out of ink. "Might need to get another pen," Jason said. "Might want to start carrying a backup -- one on each side." He grabbed the rubber band that was only part way on her breast and slowly pulled it off, letting the rubber scrape across her nipple, hoping she liked the way it felt. 
 
  "Oh wait," Jason said. "I forgot that I did lose a ring the other day. I better make sure that's not mine." He pulled Cori to him and yanked down her panties, pulling her into his lap while she kicked the black thong the rest of the way off. He lifted her off his lap and sat her on his desk, spreading her thighs, getting a good look at the ring in question. He fingered it, then pulled it toward him, watching her clit follow obediently like a dog on a leash. It looked swollen and pink and he could smell the sweetness of her pussy, taste the moist heat in the air. He acted like he was trying to put it on his finger, even though it was obviously too small. "Nope, that's not mine," he proclaimed. "And to paraphrase the late great Johnny Cochran, if it don't fit, you must give it a lick." 
 
@@ -4886,7 +5036,11 @@
 
  
 
- 07Page 5 ****** The Hard Body's Continuing Education Ch. 07 ****** bydlsloan© Cori nodded and opened her mouth, sticking her tongue out, showing the now watery cum clinging to it. 
+ 07Page 5 
+
+===
+
+Cori nodded and opened her mouth, sticking her tongue out, showing the now watery cum clinging to it. 
 
  "Very good," Barry said. "You may now swallow it. Then, I think the guys would like to offer their congratulations in the break room. There's only an hour left in the day, so everyone just relax and have fun until 5." 
 
@@ -5074,7 +5228,11 @@
 
  
 
- 07Page 6 ****** The Hard Body's Continuing Education Ch. 07 ****** bydlsloan© "It's a good idea," Ty said. "I think you should go for it. If you can bring a new product and a new star to Benson Sports Marketing, my guess is Mrs. Benson would sign off on just about anything else and you'd be writing your ticket for a nice career. But if it doesn't work, do you have a backup plan?" 
+ 07Page 6 
+
+===
+
+"It's a good idea," Ty said. "I think you should go for it. If you can bring a new product and a new star to Benson Sports Marketing, my guess is Mrs. Benson would sign off on just about anything else and you'd be writing your ticket for a nice career. But if it doesn't work, do you have a backup plan?" 
 
  "Sure," Cori grinned. "It's the same backup plan I've had for a long time now - - fuck whoever I have to fuck -- the star player, his brother, his agent, his coach -- to get the deal done. It's not how I want to do it and, like I said, these guys aren't hurting for pussy, so it might not work on the first try, but it would sooner or later. It always does." 
 
@@ -5130,7 +5288,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 08 ****** bydlsloan© CHAPTER 8: OFFICE SLUT IN TRAINING 
+ 
+
+===
+
+CHAPTER 8: OFFICE SLUT IN TRAINING 
 
  The next morning, Cori woke up and showered early. Ty was already gone, she knew, but Harris was still in bed, naked. She had woken up in the middle of the night with his erect cock poking her in the eye. She remembered that he had face-fucked her and then rolled off to the side, and they had both fallen asleep almost instantly. When she awoke with the hard cock in her eye, she prepared to suck him again, but realized he was asleep and just having a normal middle of the night random erection that she knew men often had. She had given it a playful kiss on the head, just to make sure he was sound asleep, then fallen back asleep. 
 
@@ -5258,7 +5420,11 @@
 
  
 
- 08Page 2 ****** The Hard Body's Continuing Education Ch. 08 ****** bydlsloan© "Well, I must say it's pretty unusual, but as long as you're OK with it, I guess it's none of my business." 
+ 08Page 2 
+
+===
+
+"Well, I must say it's pretty unusual, but as long as you're OK with it, I guess it's none of my business." 
 
  "We should start that at our work," Nate said enthusiastically. "I mean, Marcia's the only woman we have and she's retiring next summer. 
 
@@ -5388,7 +5554,11 @@
 
  
 
- 08Page 3 ****** The Hard Body's Continuing Education Ch. 08 ****** bydlsloan© "Mm-hmm," Harold said, obviously skeptical. "Well, how do I know this is yours?" 
+ 08Page 3 
+
+===
+
+"Mm-hmm," Harold said, obviously skeptical. "Well, how do I know this is yours?" 
 
  "It's black right?" Cori asked. "Pretty small." 
 
@@ -5540,7 +5710,11 @@
 
  
 
- 08Page 4 ****** The Hard Body's Continuing Education Ch. 08 ****** bydlsloan© "Thanks for the coffee and cream," she smiled, sipping it slowly, watching him watch her drink his cum. "I could get addicted to this stuff." 
+ 08Page 4 
+
+===
+
+"Thanks for the coffee and cream," she smiled, sipping it slowly, watching him watch her drink his cum. "I could get addicted to this stuff." 
 
  "Coffee or cum?" he asked. 
 
@@ -5674,7 +5848,11 @@
 
  
 
- 08Page 5 ****** The Hard Body's Continuing Education Ch. 08 ****** bydlsloan© She had nearly finished her plate of pasta and fruit when the long-legged dancer who had been on stage when they first arrived came over to their table. The guys had all detoured from the buffet table long enough to tip her and she was coming over no doubt to thank them and see if they might be interested in spending any more money on her. 
+ 08Page 5 
+
+===
+
+She had nearly finished her plate of pasta and fruit when the long-legged dancer who had been on stage when they first arrived came over to their table. The guys had all detoured from the buffet table long enough to tip her and she was coming over no doubt to thank them and see if they might be interested in spending any more money on her. 
 
  "Hey guys," she said. "How's the lunch today?" 
 
@@ -5790,7 +5968,11 @@
 
  
 
- 08Page 6 ****** The Hard Body's Continuing Education Ch. 08 ****** bydlsloan© "How about we drop you off?" Barry said. "No need for you to go back to the office today. You've drained us all dry." 
+ 08Page 6 
+
+===
+
+"How about we drop you off?" Barry said. "No need for you to go back to the office today. You've drained us all dry." 
 
  "Well, I can still work," Cori protested. "Plus, I need to get my purse and my skirt and my car." 
 
@@ -5800,7 +5982,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 09 ****** bydlsloan© Chapter 9: Tricks And Treats (Part 1) 
+ 
+
+===
+
+Chapter 9: Tricks And Treats (Part 1) 
 
  Cori entered the house and realized she had probably three hours before Ty and Harris would be home. Time to herself was rare and precious and she quickly plotted out a plan. Even though she was exhausted, she would go for a jog. Sex was great exercise, but a good 3-mile run was one of the tenants of her regimen that helped with her stamina and overall lean, hard-bodied tone. Then, she'd come back and take a nice hot bath. That should leave about an hour and a half for a much-needed nap. 
 
@@ -5934,7 +6120,11 @@
 
  
 
- 09Page 2 ****** The Hard Body's Continuing Education Ch. 09 ****** bydlsloan© When the song ended, Cori and Jordan kissed passionately, their tongues intertwining, their nipples touching. Ty nearly jumped off the couch and took them right there. But he forced himself to wait. The girls looked at him, nodded to each other, conspiracy in their eyes as the gingerly stepped off the stage and walked hand in hand toward him. The knelt in front of him and Ty realized that a double blowjob was going to kick off the evening. He couldn't think of a better way to get it started. He didn't know that the girls had already practiced their teamwork on Wes earlier in the day, but their precision, timing and technique were in perfect unison. As good as Cori's solo blowjobs were, the addition of Jordan's talented mouth made for the absolute perfect experience. 
+ 09Page 2 
+
+===
+
+When the song ended, Cori and Jordan kissed passionately, their tongues intertwining, their nipples touching. Ty nearly jumped off the couch and took them right there. But he forced himself to wait. The girls looked at him, nodded to each other, conspiracy in their eyes as the gingerly stepped off the stage and walked hand in hand toward him. The knelt in front of him and Ty realized that a double blowjob was going to kick off the evening. He couldn't think of a better way to get it started. He didn't know that the girls had already practiced their teamwork on Wes earlier in the day, but their precision, timing and technique were in perfect unison. As good as Cori's solo blowjobs were, the addition of Jordan's talented mouth made for the absolute perfect experience. 
 
  The girls started by tracing his cock and balls with their tongues. Jordan put her tongue on his right testicle, sucking it briefly into her mouth, then moving to his right testicle. Meanwhile, Cori started by licking the tip of his cock, sucking gently on the head, then licking down the side of his shaft to the base. As she reached his balls, Jordan moved to the tip of his cock, following Cori's route over his mushroom head and down his shaft while Cori worked on his balls. They maintained this continuous path for several minutes, their timing perfect as they worked in perfect harmony. He was as impressed as he was turned on, watching the girls perform as a team, in synch like a precision army drill team, reading not only each other's signals, but his as well. No amount of money could pay for this type of experience. It topped anything he'd ever done with Cori before, a thought he found both unimaginable and incredibly exciting. Just when life couldn't get better, Cori had brought him Jordan. Oh, what a night this was going to be. 
 
@@ -6004,7 +6194,11 @@
 
  
 
- 09Page 3 ****** The Hard Body's Continuing Education Ch. 09 ****** bydlsloan© Ty blasted Jordan's mouth with a big wad of cum, choking her with his cock and thick load. Jordan gagged and sputtered but made no effort to try to get out from under him or spit out his cock. 
+ 09Page 3 
+
+===
+
+Ty blasted Jordan's mouth with a big wad of cum, choking her with his cock and thick load. Jordan gagged and sputtered but made no effort to try to get out from under him or spit out his cock. 
 
  "Trouble swallowing?" Ty taunted. "This will help." He plugged her nose with his fingers and watched as she stopped gagging and started swallowing, coaxing more and more cum from his long rod as she struggled to finish the job and hopefully breath again. When he was convinced Jordan could handle it, Ty let go and her nostrils filled with air while her mouth and throat remained stuffed with cock and flooded with cum. 
 
@@ -6048,7 +6242,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© CHAPTER 9 (PART 2): TRICKS AND TREATS 
+ 
+
+===
+
+CHAPTER 9 (PART 2): TRICKS AND TREATS 
 
  The next morning, Cori awoke first and squirmed out from underneath Ty to get in the shower. When she came out, she wasn't surprised to see Jordan on all fours, Ty kneeling behind her, slamming her ass with vicious thrusts of his cock. 
 
@@ -6162,7 +6360,11 @@
 
  
 
- 09.2Page 2 ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© Wes ordered her softly but firmly to "Babe, raise your leg" or "Slut, raise your ass" as he worked the catsuit up her body. When he got to her pussy, he rubbed her pussy lips through the catsuit until the fabric grew damp and began to seep into the crevice between her lips, obscenely outlining her juicy cameltoe. 
+ 09.2Page 2 
+
+===
+
+Wes ordered her softly but firmly to "Babe, raise your leg" or "Slut, raise your ass" as he worked the catsuit up her body. When he got to her pussy, he rubbed her pussy lips through the catsuit until the fabric grew damp and began to seep into the crevice between her lips, obscenely outlining her juicy cameltoe. 
 
  Cori forgot that it had an opening over the belly button until he pulled it up over her smooth torso. Then she remembered that it had a slit about an inch wide and three inches high right over the belly button. She remembered that Ty, who had ordered an outfit like this for her back when they worked together at the shop, described it as a "starter hole". When Cori had asked what he meant, he had said, "you know, to grab it and rip that thing off you – rip it down to get to your pussy or up to get to your tits or both ways to get to everything." She vividly remembered now how he had attacked a red version of the same outfit like piranha after a fresh piece of meat. She wondered if Wes would be as aggressive. She imagined him taking his time a little more, unless he was so excited he just couldn't wait. From the corner of her eye she could see his cock bobbing around, rigid and wet at the tip, and guessed the outfit would be short-lived once the office door closed. 
 
@@ -6288,7 +6490,11 @@
 
  
 
- 09.2Page 3 ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© "Well, that thing's history," Greg said, slinging the shredded top across the room, "might as well finish the job." He bent down and ripped apart the makeshift waistband of paper clips and safety pins, pulling her skirt away and tossing it aside too. Now, she wore only her red and white saddle shoes and the red ribbon in her hair. 
+ 09.2Page 3 
+
+===
+
+"Well, that thing's history," Greg said, slinging the shredded top across the room, "might as well finish the job." He bent down and ripped apart the makeshift waistband of paper clips and safety pins, pulling her skirt away and tossing it aside too. Now, she wore only her red and white saddle shoes and the red ribbon in her hair. 
 
  Greg pushed the chair that Cori had banged into aside and sat down in front of her on the floor, his own legs spread wide, his cock flaccid in front of her. "Team spirit's a little low," Greg said. "Time for the HEAD cheerleader to do what she does best." 
 
@@ -6388,7 +6594,11 @@
 
  
 
- 09.2Page 4 ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© "Wake up, my pet," Douglas said, still in Dracula character. Cori opened her eyes, smiling at him. But she wiped the smile clean when she saw his dark expression. He had the seductive but evil vampire look down pat. Clearly, he was taking this seriously and she fell back into character, acting as if she just woke up and was started to see him. 
+ 09.2Page 4 
+
+===
+
+"Wake up, my pet," Douglas said, still in Dracula character. Cori opened her eyes, smiling at him. But she wiped the smile clean when she saw his dark expression. He had the seductive but evil vampire look down pat. Clearly, he was taking this seriously and she fell back into character, acting as if she just woke up and was started to see him. 
 
  "Oh my, I must have dozed off," she said. She started to rub her eyes, but was jerked off the couch and roughly thrown on the floor in the middle of the room. There lay a coil of white nylon rope attached to a leather strap. He pushed her feet together and wrapped them in the leather strap, buckling it around her ankles. Then he buckled her hands behind her back with another strap of leather. Before she knew what was happening, she was being lifted in the air, hanging upside down. She looked up and saw that the rope was looped over a support beam in the middle of the office and Douglas was hauling her up in the air with surprising strength. When he had her to the desired height, he tied the end of the rope around the leg of the solid oak desk and eyed his hanging prize. 
 
@@ -6542,7 +6752,11 @@
 
  
 
- 09.2Page 5 ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© When they walked out a few minutes later, Cori was oddly disappointed that she had fucked Hugh for the first and last time. He was a nice man and a surprisingly good lover. That's why she didn't protest when he whispered in her ear, "Remember, call me next week for another delivery." 
+ 09.2Page 5 
+
+===
+
+When they walked out a few minutes later, Cori was oddly disappointed that she had fucked Hugh for the first and last time. He was a nice man and a surprisingly good lover. That's why she didn't protest when he whispered in her ear, "Remember, call me next week for another delivery." 
 
  Hugh hadn't been pretending. He thought they had struck a deal for a weekly rendezvous. Cori had just been playing around. She started to say something to that effect, but thought about her orgasm and how much fun the last 30 minutes had been. "Of course," Cori said. "I'll call you." 
 
@@ -6656,7 +6870,11 @@
 
  
 
- 09.2Page 6 ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© "Oh, you're amazing. Absolutely amazing," Wes said. "Um, look, I know you've had a really long day, so if you don't want to do anything, you know, I'll understand. I can take a rain check." 
+ 09.2Page 6 
+
+===
+
+"Oh, you're amazing. Absolutely amazing," Wes said. "Um, look, I know you've had a really long day, so if you don't want to do anything, you know, I'll understand. I can take a rain check." 
 
  "That's sweet," Cori said. "But there's this cute little park on the way to my house with a parking lot hidden by a lot of trees. I always wanted to park there and fuck in the back of a car. I was sorta hoping you'd be the one I could do that with today." 
 
@@ -6832,7 +7050,11 @@
 
  
 
- 09.2Page 7 ****** The Hard Body's Continuing Education Ch. 09.2 ****** bydlsloan© Cori picked up the pace with her hand and sucked on his heavy round balls, the picture of hot cum slowly reaching a boiling point inside those soft sacks returning to her sex-addled brain. 
+ 09.2Page 7 
+
+===
+
+Cori picked up the pace with her hand and sucked on his heavy round balls, the picture of hot cum slowly reaching a boiling point inside those soft sacks returning to her sex-addled brain. 
 
  "May I cum on your tits?" Waters asked politely, even as his breath grew shorter and his cock started to twitch. 
 
@@ -6864,7 +7086,11 @@
 
  
 
- ****** The Hard Body's Continuing Education Ch. 10 ****** bydlsloan© CHAPTER 10: WELCOME BANGIN' 
+ 
+
+===
+
+CHAPTER 10: WELCOME BANGIN' 
 
  The day after Halloween, Cori woke up sore from a day full of both tricks and treats, but in a good mood. As hectic as Friday had been, Saturday was shaping up to be an abnormally quiet day. Harris was going on a trip with the university president and the chair of the board of directors to visit the other universities in the system and the region. It was an annual fact-sharing trip and "chance to play golf," as Harris put it. He would be gone for a week. Ty had spent the night at Jordan's, calling to report that he would be spending most of the day collecting on all the handy work he had done Friday at her house. Cori wondered if maybe Ty and Jordan were starting to build a relationship. Cori loved him like a brother and fucked him like an animal. She had mixed feelings about him with another woman -- she didn't hate it, but she didn't love it either. She loved being with Ty, but if she was going to be getting fucked by several different men, was it fair to expect him to wait around for his turn with her? Hardly. Plus, Jordan was awesome. Cori liked her a lot and she could tell Ty did too. She hoped they were having fun. 
 
@@ -6994,7 +7220,11 @@
 
  
 
- 10Page 2 ****** The Hard Body's Continuing Education Ch. 10 ****** bydlsloan© "Now that's nice," Waters nodded. He grabbed the camera and took a half dozen more pictures, straight on and profile. "All right, test it out." 
+ 10Page 2 
+
+===
+
+"Now that's nice," Waters nodded. He grabbed the camera and took a half dozen more pictures, straight on and profile. "All right, test it out." 
 
  Cori jumped up and down again, expecting the clay to break loose and her nipples to poke through a hole, spilling clay down the front of her shirt. It didn't happen. Everything held. "Looks like you were right," Cori said. "I guess I'm good to go. Thanks! I'll see you in about 45 minutes." 
 
@@ -7156,7 +7386,11 @@
 
  
 
- 10Page 3 ****** The Hard Body's Continuing Education Ch. 10 ****** bydlsloan© Waters turned the coffee table so it was perpendicular to both the couch and the TV and parallel to the chair. "Lay down on there," Waters said. "That's it, scoot your butt to the edge. Right." 
+ 10Page 3 
+
+===
+
+Waters turned the coffee table so it was perpendicular to both the couch and the TV and parallel to the chair. "Lay down on there," Waters said. "That's it, scoot your butt to the edge. Right." 
 
  Cori was laying on her back on the hard, black coffee table. Her ass was right at the edge of the table and her legs were bent at 90 degree angles at the knees. 
 
@@ -7246,7 +7480,11 @@
 
  
 
- 10Page 4 ****** The Hard Body's Continuing Education Ch. 10 ****** bydlsloan© Ty still hadn't asked about who did this. Cori wondered if he already knew somehow. She wondered, too, what all had been in the basket and if Waters had left some sort of note. Maybe that's why Ty wasn't asking questions. Whatever the case, he sure wasn't angry. He was having the night of his life and it wasn't too bad from Cori's view so far either. She really was getting tired of being bound this way, though, and her nipples were aching now after the extreme tugging they had just taken. Her pussy ached, too. That damned expanding dildo was putting even her cunt to the test and her pussy muscles were starting to fatigue. 
+ 10Page 4 
+
+===
+
+Ty still hadn't asked about who did this. Cori wondered if he already knew somehow. She wondered, too, what all had been in the basket and if Waters had left some sort of note. Maybe that's why Ty wasn't asking questions. Whatever the case, he sure wasn't angry. He was having the night of his life and it wasn't too bad from Cori's view so far either. She really was getting tired of being bound this way, though, and her nipples were aching now after the extreme tugging they had just taken. Her pussy ached, too. That damned expanding dildo was putting even her cunt to the test and her pussy muscles were starting to fatigue. 
 
  Whether Ty sensed this or was just ready for a change himself, Cori didn't know, but Ty removed the dildo and undid the belly chain as well as the bonds between her arms and legs, her tits and neck and her neck and the table. Cori felt relief as he helped her up, the ball gag the only piece of bondage still in place. She stretched sensually, her eyes looking at Ty for approval or direction. He said nothing, but watched her intently, his eyes drinking in her amazing body with a hunger like he had never seen her naked before. 
 

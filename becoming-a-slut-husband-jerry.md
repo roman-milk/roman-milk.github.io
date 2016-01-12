@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Jerry
+==============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Jerry ****** byJust_Plain_Bob© I hit the post office on my way home from work and, as usual, my box was full of junk mail and bills. I leafed through them and dropped most of them in the trash can next to the table. Between the Visa statement and the Conoco bill was an enveloped addressed to me in the flowing handwriting I knew only too well. I'd been getting one a month for over a year. She had figured out that I was having my mail forwarded from the old address so she wrote and sent it there so it would be forwarded to me. 
+ 
+
+===
+
+I hit the post office on my way home from work and, as usual, my box was full of junk mail and bills. I leafed through them and dropped most of them in the trash can next to the table. Between the Visa statement and the Conoco bill was an enveloped addressed to me in the flowing handwriting I knew only too well. I'd been getting one a month for over a year. She had figured out that I was having my mail forwarded from the old address so she wrote and sent it there so it would be forwarded to me. 
 
  I met Pat at a wedding reception. A fellow I worked with got hitched and the entire office had been invited to the wedding. After the wedding everyone headed over to the VFW for the reception. I'd been there maybe an hour when this tall blonde walked in. She was an attention getter and she definitely got mine, but she was with someone so I put her out of my mind. Well, not completely out of my mind. The VFW hall wasn't all that big a place so she was almost always in view. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Becoming A Slut Husband: Jerry ****** byJust_Plain_Bob© "Since you are doing it I am going to do it too." 
+ 
+
+===
+
+"Since you are doing it I am going to do it too." 
 
  Patty didn't know what I'd done and what I obviously wasn't going to do anymore. What I would do was do everything in my power to make it up to her even though she would never know what I had done. 
 

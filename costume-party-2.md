@@ -1,10 +1,16 @@
+Costume Party
+=============
 #1  
 
  
 
  
 
-  ****** Costume Party ****** byBoratus© Dawn was understandably nervous. She had taken chances with her husband before, meeting Shaun at lunch for their sessions, calling him on her cell phone before her husband came in the bedroom, then hiding it, letting Shaun hear her fuck him, but this time she would have so little control. The costume party provided a perfect way for Shaun to get close to her with her husband right there but to switch places with another woman! She couldn't believe she agreed to it. But her Master had ordered it and she submitted. He was taking more and more control of her life and she loved it. It was dangerous but erotic and letting him control her always made her so wet. She was wet now as she put on the clown costume. Her husband couldn't figure out why she rented it. It was big and bulky with an oversized plastic head. It sported the old style flap in the back for going to the toilet, probably because it would take so much time to get it off one would probably pee themselves. She had insisted and he gave in. At least he wouldn't be fighting off men like he would have if she wore a cat costume.  
+  
+
+===
+
+Dawn was understandably nervous. She had taken chances with her husband before, meeting Shaun at lunch for their sessions, calling him on her cell phone before her husband came in the bedroom, then hiding it, letting Shaun hear her fuck him, but this time she would have so little control. The costume party provided a perfect way for Shaun to get close to her with her husband right there but to switch places with another woman! She couldn't believe she agreed to it. But her Master had ordered it and she submitted. He was taking more and more control of her life and she loved it. It was dangerous but erotic and letting him control her always made her so wet. She was wet now as she put on the clown costume. Her husband couldn't figure out why she rented it. It was big and bulky with an oversized plastic head. It sported the old style flap in the back for going to the toilet, probably because it would take so much time to get it off one would probably pee themselves. She had insisted and he gave in. At least he wouldn't be fighting off men like he would have if she wore a cat costume.  
 
   On the drive there Dawn went over the hand signals with John. One for drink, one for pee, one for let's go. She said with all the noise and the big hollow head she probably wouldn't be able to hear him or he her. So she'd just be quiet all evening. He thought it was pretty stupid and then she reminded him she wouldn't be able to talk to anyone else and he thought of the men she'd avoid and just went with it.  
 
@@ -56,7 +62,11 @@
 
  
 
- ****** Costume Party ****** byBoratus© Dawn was understandably nervous. She had taken chances with her husband before, meeting Shaun at lunch for their sessions, calling him on her cell phone before her husband came in the bedroom, then hiding it, letting Shaun hear her fuck him, but this time she would have so little control. The costume party provided a perfect way for Shaun to get close to her with her husband right there but to switch places with another woman! She couldn't believe she agreed to it. But her Master had ordered it and she submitted. He was taking more and more control of her life and she loved it. It was dangerous but erotic and letting him control her always made her so wet. She was wet now as she put on the clown costume. Her husband couldn't figure out why she rented it. It was big and bulky with an oversized plastic head. It sported the old style flap in the back for going to the toilet, probably because it would take so much time to get it off one would probably pee themselves. She had insisted and he gave in. At least he wouldn't be fighting off men like he would have if she wore a cat costume. 
+ 
+
+===
+
+Dawn was understandably nervous. She had taken chances with her husband before, meeting Shaun at lunch for their sessions, calling him on her cell phone before her husband came in the bedroom, then hiding it, letting Shaun hear her fuck him, but this time she would have so little control. The costume party provided a perfect way for Shaun to get close to her with her husband right there but to switch places with another woman! She couldn't believe she agreed to it. But her Master had ordered it and she submitted. He was taking more and more control of her life and she loved it. It was dangerous but erotic and letting him control her always made her so wet. She was wet now as she put on the clown costume. Her husband couldn't figure out why she rented it. It was big and bulky with an oversized plastic head. It sported the old style flap in the back for going to the toilet, probably because it would take so much time to get it off one would probably pee themselves. She had insisted and he gave in. At least he wouldn't be fighting off men like he would have if she wore a cat costume. 
 
  On the drive there Dawn went over the hand signals with John. One for drink, one for pee, one for let's go. She said with all the noise and the big hollow head she probably wouldn't be able to hear him or he her. So she'd just be quiet all evening. He thought it was pretty stupid and then she reminded him she wouldn't be able to talk to anyone else and he thought of the men she'd avoid and just went with it. 
 

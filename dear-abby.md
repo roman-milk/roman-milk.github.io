@@ -1,8 +1,14 @@
+Dear Abby
+=========
 #1 
 
  
 
- ****** Dear Abby ****** byJust_Plain_Bob© Dear Abby, 
+ 
+
+===
+
+Dear Abby, 
 
  When I was younger, a lot younger, I was really stupid. I used drugs and eventually became a prostitute to feed my drug habit. During that period of my life I had so little self esteem that I allowed men (and women) to do what they wanted with me as long as they gave me the money I needed for my next fix. I ran around on my husband, got pregnant twice and had two abortions, the last of which ended in my getting a hysterectomy. 
 

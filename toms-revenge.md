@@ -1,8 +1,14 @@
+Tom's Revenge
+=============
 #1 
 
  
 
- ****** Tom's Revenge ****** byJust_Plain_Bob© A story by Just Plain Bob 
+ 
+
+===
+
+A story by Just Plain Bob 
 
  It took me some time before I could make it happen, but I had promised myself that one day I would get back at the bitch and that night the stars aligned themselves just right. Laurie looked good, but then she always did. Five foot four, blond hair and 145 pounds distributed to make her 36C/25/37 body truly mouth watering. At thirty-seven she looked more like she was in her late twenties and I could see all of the male eyes in the place linger on her. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Tom's Revenge ****** byJust_Plain_Bob© I had gotten my revenge and it was depressing as hell. 
+ 
+
+===
+
+I had gotten my revenge and it was depressing as hell. 
 
  I should have been pleased. I should have been bouncing up and down on the couch and cheering and hollering, "Yes! Give it to the bitch!" But it didn't turn out that way. Seeing Laurie doing things I could never get her to do with me was a real bummer. Granted, she didn't willingly put herself in that situation, but by the middle of the video she was an active participant and by the end she was obviously enjoying the hell out of it. And it wasn't me she was doing it with. 
 

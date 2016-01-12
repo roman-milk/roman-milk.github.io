@@ -1,8 +1,14 @@
+Black Me Once, Please
+=====================
 #1 
 
  
 
- ****** Black Me Once, Please ****** byGotBacon© Sarah is a 23 year old blonde babe. She has D cup breasts, a slim waist and a dynamite ass. He dancer legs are world class. She has been married for two years. She married Joey for his money. 
+ 
+
+===
+
+Sarah is a 23 year old blonde babe. She has D cup breasts, a slim waist and a dynamite ass. He dancer legs are world class. She has been married for two years. She married Joey for his money. 
 
  Her husband, Joey, is a college graduate and makes good money. He is 5ft 8 in tall, 165 lbs and has a 5 inch cock. He loves Sarah with all his heart. She is his first and only woman. He was a virgin when they met. He is all but useless in bed, but she puts up with him He provides with all the money she can spend and she lets him fuck her about once every two or three weeks just to keep him around. She has her power tools to make up for him. Her favorite is a 10 in long, 2 in thick, black vibrating dildo. It looks exactly like a real one. She makes him use it on her once in a while. Due to his undying love for her, she has him completely under her control. 
 

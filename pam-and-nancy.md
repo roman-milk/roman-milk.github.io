@@ -1,8 +1,14 @@
+Pam and Nancy
+=============
 #1 
 
  
 
- ****** Pam and Nancy ****** byJust_Plain_Bob© I met Pam in my junior year at college. She had taken the seat next to me on the first day of Managerial Economics. As far as meetings go it was not an auspicious one. 
+ 
+
+===
+
+I met Pam in my junior year at college. She had taken the seat next to me on the first day of Managerial Economics. As far as meetings go it was not an auspicious one. 
 
  I glanced over at her when she sat down and that glance turned into a long appreciative look. She was a sexy looking ash blond, but what caught my attention were the long legs sticking out from under the short skirt and the pair of four inch 'come fuck me' heels on her feet. I have always been a leg man and high heels have always been a turn on for me. What my attention got me was a: 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Pam and Nancy ****** byJust_Plain_Bob© I was the one surprised when I got to her place just in time to see her get in a car with some guy. She slid over next to him and they exchanged what looked like one hell of a passionate kiss. I pulled up along side them, stopped and waited to be noticed. When after a minute they still hadn't come up for air I honked my horn twice. That got their attention and they split apart and looked over at me. The look on the guy's face was one of irritation, but he blocked my view of Pam so I've no idea of what her facial expression was. She looked around the guy to see who was honking the horn and when she saw me I waved 'bye-bye' and drove off. 
+ 
+
+===
+
+I was the one surprised when I got to her place just in time to see her get in a car with some guy. She slid over next to him and they exchanged what looked like one hell of a passionate kiss. I pulled up along side them, stopped and waited to be noticed. When after a minute they still hadn't come up for air I honked my horn twice. That got their attention and they split apart and looked over at me. The look on the guy's face was one of irritation, but he blocked my view of Pam so I've no idea of what her facial expression was. She looked around the guy to see who was honking the horn and when she saw me I waved 'bye-bye' and drove off. 
 
  As I was driving away I was remembering the 'bad vibes' I'd sensed way back when and I chastised myself for not paying attention to the feelings I'd had at the time. 
 
@@ -370,7 +380,11 @@
 
  
 
- ****** Pam and Nancy ****** byJust_Plain_Bob© "You can be sure that I'm going to find out. Maybe not tonight, but I will find out." 
+ 
+
+===
+
+"You can be sure that I'm going to find out. Maybe not tonight, but I will find out." 
 
  "Keep me in mind." 
 
@@ -518,7 +532,11 @@
 
  
 
- ****** Pam and Nancy ****** byJust_Plain_Bob© "I didn't know when or even if you would be home so I didn't start dinner. If you are hungry we have leftovers I can heat up in the microwave." 
+ 
+
+===
+
+"I didn't know when or even if you would be home so I didn't start dinner. If you are hungry we have leftovers I can heat up in the microwave." 
 
  "What do we have?" 
 

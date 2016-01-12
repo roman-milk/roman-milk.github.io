@@ -1,8 +1,14 @@
+The Emerald Green High Heels
+============================
 #1 
 
  
 
- ****** The Emerald Green High Heels ****** byJust_Plain_Bob© The wife and I hadn't been getting along too well lately, for a number of different reasons, most of them financial. We were both working long hours, taking on overtime whenever it was offered, trying to work our way out of debt. Our love life sucked, in fact, it was virtually non-existent. We hadn't mentioned it to each other yet, but I think we both knew we were on the brink of breaking up. I couldn't speak for Alice, but divorce was the last thing I wanted. I had been in love with Alice since sixth grade and we had gone steady off and on all the way through high school. Oh sure, there were others along the way, for both of us, but we always seemed to come back together and it was no surprise to anyone we knew when we got married. I did not want to lose her, and I hoped that she felt the same way about me. 
+ 
+
+===
+
+The wife and I hadn't been getting along too well lately, for a number of different reasons, most of them financial. We were both working long hours, taking on overtime whenever it was offered, trying to work our way out of debt. Our love life sucked, in fact, it was virtually non-existent. We hadn't mentioned it to each other yet, but I think we both knew we were on the brink of breaking up. I couldn't speak for Alice, but divorce was the last thing I wanted. I had been in love with Alice since sixth grade and we had gone steady off and on all the way through high school. Oh sure, there were others along the way, for both of us, but we always seemed to come back together and it was no surprise to anyone we knew when we got married. I did not want to lose her, and I hoped that she felt the same way about me. 
 
  Just when things were looking their blackest an opportunity came up that offered us a chance to relax and enjoy a rare evening out together. Maybe a nice dinner, some drinks and some dancing would heal a few of the wounds we had been inflicting on each other. My parents were celebrating their fiftieth wedding anniversary and my older brother Al had rented the local Elks lodge hall for the evening. Anybody and everybody who knew my folks had been invited and there would probably be over two hundred people there and a five-piece band had been hired for the evening. The night of the party I watched Alice dress and I wondered, for perhaps the ten-thousandth time, how I had been lucky enough to get her. Shoulder length auburn hair, sparkling hazel eyes, a nice tight body, and a smile that could light up the inside of an arena. In her green cocktail dress and matching emerald green high heels she was going to turn a lot of heads that night and probably cause more than a few hard ons like the one she was giving me. I wanted her bad as I watched her dress, but past experience had taught me that she did not like to get "mussed up" after she'd started to get ready to go somewhere and so I kept my hands to myself and contemplated the enjoyment I'd have when we got home. 
 

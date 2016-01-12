@@ -1,8 +1,14 @@
+Daddy's Hard Day
+================
 #1 
 
  
 
- ****** Daddy's Hard Day ****** bygeronimo_appleby© Another one that I had problems defining the category for. Anyway, I hope you enjoy this little role-play where the hot wife waits for her Daddy to come home from work. When he does, she looks after him in style. 
+ 
+
+===
+
+Another one that I had problems defining the category for. Anyway, I hope you enjoy this little role-play where the hot wife waits for her Daddy to come home from work. When he does, she looks after him in style. 
 
  As ever, feedback is appreciated. You can send feedback either in public comments below, PM on Lit forums, or email - email is best if you wants a response or have any questions, or just want to get involved. 
 

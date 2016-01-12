@@ -1,8 +1,14 @@
+New Family Tradition: Lezmas Eve
+================================
 #1 
 
  
 
- ****** New Family Tradition: Lezmas Eve ****** bysilkstockingslover© Summary: Cousins learn of their moms' incestuous past... and present. 
+ 
+
+===
+
+Summary: Cousins learn of their moms' incestuous past... and present. 
 
  Thanks to Rebecca the famous artist whose artwork inspired and was used for this new series. Especially her series 'Housewives at Play', 'Teens at Play' and 'Hot Moms'. Thank you for access to your entire book catalogue as well as your website for this massive series. Also, thanks for the dialogue from an older comic of Rebecca's that is used as the basis of the plot for the final encounter. 
 
@@ -390,7 +396,11 @@
 
  
 
- ****** New Family Tradition: Lezmas Eve ****** bysilkstockingslover© "That I would love to see," Tara laughed as we both moved to the bag Mom had left on the bed for us. 
+ 
+
+===
+
+"That I would love to see," Tara laughed as we both moved to the bag Mom had left on the bed for us. 
 
  "Uh, Kylie? What's going on?" a surprised Tara asked, as she looked in the bag. 
 
@@ -876,7 +886,11 @@
 
  
 
- ****** New Family Tradition: Lezmas Eve ****** bysilkstockingslover© We kissed for a couple of minutes, while Tara took off the strap-on Mom asked, "So are you going to call social services on me?" 
+ 
+
+===
+
+We kissed for a couple of minutes, while Tara took off the strap-on Mom asked, "So are you going to call social services on me?" 
 
  Tara broke the kiss and pulled me up off the floor. 
 

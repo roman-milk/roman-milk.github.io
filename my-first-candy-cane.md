@@ -1,8 +1,14 @@
+My First Candy Cane
+===================
 #1 
 
  
 
- ****** My First Candy Cane ****** bysilkstockingslover© Summary: A straight drunk guy submits to his roommate...twice. 
+ 
+
+===
+
+Summary: A straight drunk guy submits to his roommate...twice. 
 
  Note 1: This is a Christmas 2012 Contest Story. 
 

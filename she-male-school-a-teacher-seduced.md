@@ -1,8 +1,14 @@
+She-Male School: A Teacher Seduced
+==================================
 #1 
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© Summary:A new teacher is oblivious to the sex secrets of the school. 
+ 
+
+===
+
+Summary:A new teacher is oblivious to the sex secrets of the school. 
 
  
 
@@ -322,7 +328,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© A knock on my door, at exactly ten to seven startled me as did Amanda's outfit. She was dressed in a skin tight red dress, five-inch heels and black pantyhose that seemed to shimmer and shine. She was easily one of the prettiest young women I had ever seen in person and I knew the temptation to misbehave was going to be very difficult. The apple was right in front of me and seemingly offering for me to take a bite. 
+ 
+
+===
+
+A knock on my door, at exactly ten to seven startled me as did Amanda's outfit. She was dressed in a skin tight red dress, five-inch heels and black pantyhose that seemed to shimmer and shine. She was easily one of the prettiest young women I had ever seen in person and I knew the temptation to misbehave was going to be very difficult. The apple was right in front of me and seemingly offering for me to take a bite. 
 
  
 
@@ -616,7 +626,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© It was like she knew my real intentions, her smile so knowing, her eyes so smug (can eyes be smug?). "Well," she began before being interrupted by the intercom. 
+ 
+
+===
+
+It was like she knew my real intentions, her smile so knowing, her eyes so smug (can eyes be smug?). "Well," she began before being interrupted by the intercom. 
 
  "Headmistress, your car is here," Amanda announced. 
 
@@ -886,7 +900,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© I finished the last three e-mails, including a couple replies from my earlier replies before deciding it was time for bed. I brushed my teeth, washed my face and redid my nails, ruby red like Alexis (a color I usually refrained from using during the school year). 
+ 
+
+===
+
+I finished the last three e-mails, including a couple replies from my earlier replies before deciding it was time for bed. I brushed my teeth, washed my face and redid my nails, ruby red like Alexis (a color I usually refrained from using during the school year). 
 
  
 
@@ -1176,7 +1194,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© "Well, good night," I said, deciding to get out of her room before Sarah's prediction from earlier became true. 
+ 
+
+===
+
+"Well, good night," I said, deciding to get out of her room before Sarah's prediction from earlier became true. 
 
  "You can COME by to visit anytime you want," Nicole purred, not even remotely hiding her flirtatious innuendo. 
 
@@ -1422,7 +1444,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© I checked my e-mail every hour or so, but there were no new ones which surprisingly sent a wave of disappointment through me. I suddenly craved the tasks, the simple submission. My pussy tingling for attention, I decided to take a long bath to squelch the flame below. 
+ 
+
+===
+
+I checked my e-mail every hour or so, but there were no new ones which surprisingly sent a wave of disappointment through me. I suddenly craved the tasks, the simple submission. My pussy tingling for attention, I decided to take a long bath to squelch the flame below. 
 
  By the time I got out, I had three e-mails, one from TransNikki. After skimming and replying to two readers flattering comments from previous stories, I clicked on the e-mail from TransNikki. 
 
@@ -1762,7 +1788,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© I noticed the fact she said 'Mistress' and not 'Headmistress'. I stammered, my mind reeling from the domino of oddities, "Y-y-yes." 
+ 
+
+===
+
+I noticed the fact she said 'Mistress' and not 'Headmistress'. I stammered, my mind reeling from the domino of oddities, "Y-y-yes." 
 
  "I will check if she is ready to meet with you," Amanda said, standing up, leaving my story up on the screen as she disappeared. 
 
@@ -2084,7 +2114,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© "You will always obey?" she asked, her cock so close to being in me. 
+ 
+
+===
+
+"You will always obey?" she asked, her cock so close to being in me. 
 
  "Yes, Mistress, like in my stories I will be a very good submissive," I replied. 
 
@@ -2394,7 +2428,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© "You are not a good actress, Jasmine. I can tell you are turned on by the news," she correctly assessed. "You couldn't be touched or initiated until after Headmistress Alexis had officially turned you, but now you are officially bottom slut." 
+ 
+
+===
+
+"You are not a good actress, Jasmine. I can tell you are turned on by the news," she correctly assessed. "You couldn't be touched or initiated until after Headmistress Alexis had officially turned you, but now you are officially bottom slut." 
 
  "What does that entail?" I asked, turned on, but wary. 
 
@@ -2678,7 +2716,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© Running out if time, I quickly read the next task: 
+ 
+
+===
+
+Running out if time, I quickly read the next task: 
 
  11. Pour us both a glass of red wine and make us an appetizer plate. 
 
@@ -2914,7 +2956,11 @@
 
  
 
- ****** She-Male School: A Teacher Seduced ****** bysilkstockingslover© Every time she used my name, I chill of cold reality hit me as I remembered instantly that I was the adult, the role model, the one who was suppose to be in charge; yet my body didn't care what my mind thought. "Yes, Mistress Nicole, take your teacher's tight ass." 
+ 
+
+===
+
+Every time she used my name, I chill of cold reality hit me as I remembered instantly that I was the adult, the role model, the one who was suppose to be in charge; yet my body didn't care what my mind thought. "Yes, Mistress Nicole, take your teacher's tight ass." 
 
  "Again with the alliteration, slut, you really can't stop can you?" she teased, her cockhead rubbing up and down between my ass cheeks, spreading excess lubrication. 
 

@@ -1,8 +1,14 @@
+One Man's Fantasy
+=================
 #1 
 
  
 
- ****** One Man's Fantasy ****** byJust_Plain_Bob© On the way to my condo Kristal said, "I don't know how you did it, but you really put Jerry's panties in a twist. He's all upset over you not going along with the program." 
+ 
+
+===
+
+On the way to my condo Kristal said, "I don't know how you did it, but you really put Jerry's panties in a twist. He's all upset over you not going along with the program." 
 
  "I owe it all to you. Your phone call is what got me going." 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** One Man's Fantasy ****** byJust_Plain_Bob© We sipped martinis and talked for a while and then Nancy got up to see about dinner and Kristal got up and said she would give Nancy a hand. Rachel looked from me to Kristal and then back to me again and then she got up to join Nancy and Kristal in the kitchen. Kevin was just bursting to say something, but he couldn't because John was there and he didn't know that John already knew about Kristal. John could read people and he knew what was roaring around in Kevin's head, but he wasn't going to say anything. He just smiled and said: 
+ 
+
+===
+
+We sipped martinis and talked for a while and then Nancy got up to see about dinner and Kristal got up and said she would give Nancy a hand. Rachel looked from me to Kristal and then back to me again and then she got up to join Nancy and Kristal in the kitchen. Kevin was just bursting to say something, but he couldn't because John was there and he didn't know that John already knew about Kristal. John could read people and he knew what was roaring around in Kevin's head, but he wasn't going to say anything. He just smiled and said: 
 
  "When you told me about her and described her I thought you were probably on drugs, but now that I've seen her I can honestly say that your description did not do her justice. Where in the world did you meet her?" 
 
@@ -502,7 +512,11 @@
 
  
 
- ****** One Man's Fantasy ****** byJust_Plain_Bob© "I know that this isn't supposed to be part of the deal, but I want to do it. I want your fantasy to be perfect." 
+ 
+
+===
+
+"I know that this isn't supposed to be part of the deal, but I want to do it. I want your fantasy to be perfect." 
 
  She took her finger from my lips, lowered her face and kissed me. 
 

@@ -1,8 +1,14 @@
+MILF Hunter: How It All Began
+=============================
 #1 
 
  
 
- ****** MILF Hunter: How It All Began ****** bysilkstockingslover© I am a MILF Hunter. Now although I do occasionally fuck some young college girls my age, I focus on women of experience. 
+ 
+
+===
+
+I am a MILF Hunter. Now although I do occasionally fuck some young college girls my age, I focus on women of experience. 
 
  Now I should note, not to brag or anything, I am very blessed. I am 6 foot 2, 220 pounds of pure muscle, black hair, brown eyes and a very respectable 8 and a half inch cock. I was an all star receiver in my high school career and was very popular. Now in my fourth year of college, I am a starter for my college football team and have dated many very hot women in my past, but they always seemed so artificial. 
 

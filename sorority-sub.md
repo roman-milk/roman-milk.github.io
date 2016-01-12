@@ -1,8 +1,14 @@
+Sorority Submission
+===================
 #1 
 
  
 
- ****** Sorority Submission ****** bysilkstockingslover© Summary: It is the 1st humiliating day of Rush Week for a shy pledge. 
+ 
+
+===
+
+Summary: It is the 1st humiliating day of Rush Week for a shy pledge. 
 
  Note 1: This story is dedicated to the real Anne who is exactly as the story describes: a powerful domme to her man and a submissive slut to other woman. 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** Sorority Submission ****** bysilkstockingslover© I sat frozen as the orgasm simmered and waited for the other girl to leave. A couple of minutes went by before I was alone again. I quickly stood up, left the stall and freshened up. Looking in the mirror, my red cheeks were the scarlet letter of my sin. I shook my head and headed for lunch feeling a strange liberation I couldn't explain. 
+ 
+
+===
+
+I sat frozen as the orgasm simmered and waited for the other girl to leave. A couple of minutes went by before I was alone again. I quickly stood up, left the stall and freshened up. Looking in the mirror, my red cheeks were the scarlet letter of my sin. I shook my head and headed for lunch feeling a strange liberation I couldn't explain. 
 
  I walked to the cafeteria where a nerdy guy wearing a bow-tie didn't even attempt to pretend he wasn't staring at me. Walking into the cafeteria I could feel eyes on me from every direction, yet instead of embarrassment, I heeded Beth's words and walked with an air of confidence. 
 
@@ -554,7 +564,11 @@
 
  
 
- ****** Sorority Submission: Animal Kingdom ****** bysilkstockingslover© Summary: Pledges must complete 3 humiliating sexual tasks as animals. 
+ 
+
+===
+
+Summary: Pledges must complete 3 humiliating sexual tasks as animals. 
 
  Note 1: Sorority Submission Chapter 1was released in December 2012 as an illustrated story, as was part 2 released in August of 2013, but unfortunately the artist was too busy to do the extensive art work needed for this story. 
 
@@ -798,7 +812,11 @@
 
  
 
- ****** Sorority Submission: A Spanking ****** bysilkstockingslover© Summary: Pledge gets disciplined for not completing her task in time. 
+ 
+
+===
+
+Summary: Pledge gets disciplined for not completing her task in time. 
 
  In Part 1 Sorority Submission...Anne sorority pledge fulfills her first task to not wear panties or a bra for the day and where a provocative outfit chosen for her. She is then chosen to be the inspection girl to see if all the other pledges have fulfilled the task as well. Since Anne has very small breasts the task is made extra humiliating. She also meets a very nice boy, Harvey. 
 
@@ -1092,7 +1110,11 @@
 
  
 
- ****** Sorority Submission: A Spanking ****** bysilkstockingslover© SMACK! A third straight hand made contact with my right ass cheek as I let out another loud scream. Tears began to form as I struggled to speak. "Thank you, Amber, for-for-for spanking me." 
+ 
+
+===
+
+SMACK! A third straight hand made contact with my right ass cheek as I let out another loud scream. Tears began to form as I struggled to speak. "Thank you, Amber, for-for-for spanking me." 
 
  A sudden SMACK hit my right ass cheek again startling me as Jamie said, "Didn't Sister Beth say each thank you must be different?" 
 
@@ -1180,7 +1202,11 @@
 
  
 
- ****** Sorority Submission: Hook-Up Day ****** bysilkstockingslover© A plot summary so far: 
+ 
+
+===
+
+A plot summary so far: 
 
  In Part 1Sorority Submission...Anne sorority pledge fulfills her first task to not wear panties or a bra for the day and where a provocative outfit chosen for her. She is then chosen to be the inspection girl to see if all the other pledges have fulfilled the task as well. Since Anne has very small breasts the task is made extra humiliating. She also meets a very nice boy, Harvey. (This part is illustrated). 
 
@@ -1474,7 +1500,11 @@
 
  
 
- ****** Sorority Submission: Hook-Up Day ****** bysilkstockingslover© At the till, a cute girl about the same age as me, took my items even as I felt my face again blush. 
+ 
+
+===
+
+At the till, a cute girl about the same age as me, took my items even as I felt my face again blush. 
 
  "I assume you are a Pi Delta pledge," she accurately assessed. 
 
@@ -1698,7 +1728,11 @@
 
  
 
- ****** Sorority Submission: Hook-Up Day ****** bysilkstockingslover© My head was spinning. I felt an instant tingle the moment the collar was fastened around my neck. The derogatory name, pet, enhanced my need to submit and I asked, "Your pet?" 
+ 
+
+===
+
+My head was spinning. I felt an instant tingle the moment the collar was fastened around my neck. The derogatory name, pet, enhanced my need to submit and I asked, "Your pet?" 
 
  "Yes, you are my slave for a day tomorrow," Jamie explained. 
 

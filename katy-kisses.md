@@ -1,8 +1,14 @@
+Katy Kisses
+===========
 #1 
 
  
 
- ****** Katy Kisses ****** bygeronimo_appleby© I love travel, but hate airports, something to do with the crowds I think. Nevertheless, I decided to be patient despite the interminable comings and goings of gape-mouthed, gormless passengers and their loved ones. That's another minus point for airports; no one seems to know where they're going, I hate indecision. The bovine mass irked me, and my present domestic situation only exacerbated my discomfort. 
+ 
+
+===
+
+I love travel, but hate airports, something to do with the crowds I think. Nevertheless, I decided to be patient despite the interminable comings and goings of gape-mouthed, gormless passengers and their loved ones. That's another minus point for airports; no one seems to know where they're going, I hate indecision. The bovine mass irked me, and my present domestic situation only exacerbated my discomfort. 
 
  Ivana's plane had landed and she would be here at any moment. I'd calculated about forty minutes from landing through baggage reclaim and out into the chaos of the arrivals hall, she was due at any time. 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** Katy Kisses ****** bygeronimo_appleby© Eventually I lay spent. I sagged, limp and panting while Ivana gazed at me with such tenderness in her eyes. 
+ 
+
+===
+
+Eventually I lay spent. I sagged, limp and panting while Ivana gazed at me with such tenderness in her eyes. 
 
  "I loved you from the start," she murmured. She lowered her eyes shyly at this new revelation. "You were so kind to me." 
 

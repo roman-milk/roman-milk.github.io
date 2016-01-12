@@ -1,8 +1,14 @@
+A Bad Day For All
+=================
 #1 
 
  
 
- ****** A Bad Day For All ****** byJust_Plain_Bob© Author's disclaimer - all participants in this story are over eighteen years of age. 
+ 
+
+===
+
+Author's disclaimer - all participants in this story are over eighteen years of age. 
 
  * 
 

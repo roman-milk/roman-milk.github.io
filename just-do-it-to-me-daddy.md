@@ -1,8 +1,14 @@
+Just Do It To Me, Daddy
+=======================
 #1 
 
  
 
- ****** Just Do It To Me, Daddy ****** bygeronimo_appleby© Valentina seduces her father in this one. I hope you enjoy it. If you do, send feedback; if you don't, send feedback telling me why. 
+ 
+
+===
+
+Valentina seduces her father in this one. I hope you enjoy it. If you do, send feedback; if you don't, send feedback telling me why. 
 
  If there are errors, please forgive them; I hope any mistakes that remain don't spoil the enjoyment of my efforts to entertain. 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Just Do It To Me, Daddy ****** bygeronimo_appleby© Again Baxter considered how he had come to this point. Even in the midst of the confusion in his whirling mind he realised that Valentina had seduced him, that she must have planned the whole thing. 
+ 
+
+===
+
+Again Baxter considered how he had come to this point. Even in the midst of the confusion in his whirling mind he realised that Valentina had seduced him, that she must have planned the whole thing. 
 
  'Valentina,' he murmured. 'My beautiful girl, what have you done to us?' 
 

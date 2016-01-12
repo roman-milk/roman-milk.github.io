@@ -1,8 +1,14 @@
+Backseat Mommy: A Long Hard Ride
+================================
 #1 
 
  
 
- ****** Backseat Mommy: A Long Hard Ride ****** bysilkstockingslover© Summary: Son slyly fucks Mom multiple times with Dad in the car. 
+ 
+
+===
+
+Summary: Son slyly fucks Mom multiple times with Dad in the car. 
 
  Note 1: This is a Summer 2015 Contest story so please vote. 
 
@@ -368,7 +374,11 @@
 
  
 
- ****** Backseat Mommy: A Long Hard Ride ****** bysilkstockingslover© Thankfully, such a thought never occurred to him. Why would it? I was in the backseat with my son, as he said, clearly worried about my bladder, "Thirty seconds, honey." 
+ 
+
+===
+
+Thankfully, such a thought never occurred to him. Why would it? I was in the backseat with my son, as he said, clearly worried about my bladder, "Thirty seconds, honey." 
 
  "Okay," I weakly replied, as my orgasm ripped through me like a tornado. 
 
@@ -808,7 +818,11 @@
 
  
 
- ****** Backseat Mommy: A Long Hard Ride ****** bysilkstockingslover© "For T-bone?" Alex asked. 
+ 
+
+===
+
+"For T-bone?" Alex asked. 
 
  "Yes," I nodded, "a big thick T-bone." Again my husband was oblivious to the naughty sexual innuendo. Cory wasn't, though, as he bucked his hips up and his cock went deeper up me. 
 
@@ -1274,7 +1288,11 @@
 
  
 
- ****** Backseat Mommy: Ass Fucked ****** bysilkstockingslover© Summary: Son slyly fucks submissive Mom in the ass with Dad in the car. 
+ 
+
+===
+
+Summary: Son slyly fucks submissive Mom in the ass with Dad in the car. 
 
  Review: 
 
@@ -1772,7 +1790,11 @@
 
  
 
- ****** Backseat Mommy: Ass Fucked ****** bysilkstockingslover© "So big," I groaned back, loving the way his cock widened my asshole. 
+ 
+
+===
+
+"So big," I groaned back, loving the way his cock widened my asshole. 
 
  "Shit, I can't believe my wholesome Mom loves it in the ass," he said, clearly in as much awe at the moment as I was. 
 

@@ -1,8 +1,14 @@
+A Dash of Rum and Mum's Tits
+============================
 #1 
 
  
 
- ****** A Dash of Rum and Mum's Tits ****** bygeronimo_appleby© Cuban rum and his mum's boob job are the catalyst for this encounter. I hope you enjoy it. 
+ 
+
+===
+
+Cuban rum and his mum's boob job are the catalyst for this encounter. I hope you enjoy it. 
 
  As usual, please send feedback. If there's a point you didn't like, let me know, but be constructive please. The 'you suck' comments don't help with future improvement. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** A Dash of Rum and Mum's Tits ****** bygeronimo_appleby© They were perfect, full and round and so natural under my trembling fingers. I cupped my mother's breasts in my palms, weighing them as though I were buying fruit. The usual erection rose aggressively inside my shorts; I had to bite down on the desire to suck the coral teats sitting on the light coins of their areola. 
+ 
+
+===
+
+They were perfect, full and round and so natural under my trembling fingers. I cupped my mother's breasts in my palms, weighing them as though I were buying fruit. The usual erection rose aggressively inside my shorts; I had to bite down on the desire to suck the coral teats sitting on the light coins of their areola. 
 
  'You're beautiful, Mum,' I murmured, eyes wide as I examined her body. Without realising what I was doing, one hand left its breast and moved down the front of her body. My fingers touched that place between her legs, finding her hot and wet. Cupping the plump vulva in my palm, I slid a finger through my mother's gooey labia. 
 

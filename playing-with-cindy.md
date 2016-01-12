@@ -1,8 +1,14 @@
+Playing with Cindy
+==================
 #1 
 
  
 
- ****** Playing with Cindy ****** bygeronimo_appleby© a shorty from me. it has the potential for more if anyone shows interest in the back story, or indeed, if you want to know more about David and Cindy. lemme know via PM, email, or PC. 
+ 
+
+===
+
+a shorty from me. it has the potential for more if anyone shows interest in the back story, or indeed, if you want to know more about David and Cindy. lemme know via PM, email, or PC. 
 
  * 
 

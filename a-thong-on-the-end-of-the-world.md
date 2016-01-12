@@ -1,8 +1,14 @@
+A Thong on the End of the World
+===============================
 #1 
 
  
 
- ****** A Thong on the End of the World ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. I would like to thank my biggest fan for this story idea. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. I would like to thank my biggest fan for this story idea. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  
 
@@ -214,7 +220,11 @@
 
  
 
- ****** A Thong on the End of the World ****** byTheTalkMan© "Hon, your makeup is running." Bridget said, pulling back before her shirt got stained. 
+ 
+
+===
+
+"Hon, your makeup is running." Bridget said, pulling back before her shirt got stained. 
 
  "Ha, oh I'm sorry, I'm just, you know... this has been going on so long. It' like a weight's been lifted." Tina said, trying to stop crying. 
 
@@ -510,7 +520,11 @@
 
  
 
- ****** A Thong on the End of the World ****** byTheTalkMan© Bridget sighed as her body relaxed, coming down from her orgasm. 
+ 
+
+===
+
+Bridget sighed as her body relaxed, coming down from her orgasm. 
 
  "Mmmm, a man with stamina." she purred. "A man built just for me." 
 

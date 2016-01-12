@@ -1,8 +1,14 @@
+Goddess of the Freaks
+=====================
 #1 
 
  
 
- ****** Goddess of the Freaks ****** byfastandsloppy© Someone handed the naked woman a herringbone jacket as she stepped off the stage on legs wobbly from adrenaline and vodka. She blushed again as she clutched it to her bare, floppy breasts and the thunderous applause briefly rose in volume. 
+ 
+
+===
+
+Someone handed the naked woman a herringbone jacket as she stepped off the stage on legs wobbly from adrenaline and vodka. She blushed again as she clutched it to her bare, floppy breasts and the thunderous applause briefly rose in volume. 
 
  "See?" I said to George, "Things are getting interesting." 
 
@@ -254,7 +260,11 @@
 
  
 
- ****** Goddess of the Freaks ****** byfastandsloppy© I reached down and tested Malcolm's cock. It was hard enough to fuck, but it had lost a little umph when we changed positions. Standing before him with my feet at the edge of the stage I bent at the waist with my legs straight to lower my face to his lap and suck him back to 100%. As I lapped my musky dew from his eager shaft I kept my stance wide so my soaked pussy and florid labia were on vivid display. I heard gasps, I heard murmurs, I heard someone exclaim. "holy fucking shit, wouldya look at that!" 
+ 
+
+===
+
+I reached down and tested Malcolm's cock. It was hard enough to fuck, but it had lost a little umph when we changed positions. Standing before him with my feet at the edge of the stage I bent at the waist with my legs straight to lower my face to his lap and suck him back to 100%. As I lapped my musky dew from his eager shaft I kept my stance wide so my soaked pussy and florid labia were on vivid display. I heard gasps, I heard murmurs, I heard someone exclaim. "holy fucking shit, wouldya look at that!" 
 
  I stood and turned to face the crowd again. Throwing a leg over Malcolm's lap I took his cock in hand and began rubbing it against my lust-enflamed pussy; slapping it against my engorged clit; sliding it along my damp slit; lining it up with the gates of my sex. Finally I sank down onto him with an enraptured sigh as I once again filled myself with his hefty, punishing meat. 
 

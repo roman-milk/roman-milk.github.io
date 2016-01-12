@@ -1,8 +1,14 @@
+Daddy, He Fucked Me SOOOO Good!
+===============================
 #1 
 
  
 
- ****** Daddy, He Fucked Me SOOOO Good! ****** byNonStopFunGuy© I was aroused awake by the soft, effeminate voice of me late-teen daughter Lacey calling "Daddy, I'm home, wake up, sleepy-head," while her soft little hands were groping to massage my dick through my boxers. I was in one of those deep slumbers that it took a few moments just to realize who the fuck I was, but peeling open an eyelid I saw my clock reporting the time a little past 10 am, and Lacey's grinning sexy face was leaning over me. The urgent fondling of my cock and balls through my thin cotton boxers made me roll onto my back, my disheveled sheets strewn away from me, so Lacey had complete access to my crotch. 
+ 
+
+===
+
+I was aroused awake by the soft, effeminate voice of me late-teen daughter Lacey calling "Daddy, I'm home, wake up, sleepy-head," while her soft little hands were groping to massage my dick through my boxers. I was in one of those deep slumbers that it took a few moments just to realize who the fuck I was, but peeling open an eyelid I saw my clock reporting the time a little past 10 am, and Lacey's grinning sexy face was leaning over me. The urgent fondling of my cock and balls through my thin cotton boxers made me roll onto my back, my disheveled sheets strewn away from me, so Lacey had complete access to my crotch. 
 
  She was in the same outfit I put on her last night when she left for her date - - pink front-button blouse, super-tight to show off her b-cups and cut short to reveal her flat tanned tummy, with white Capri pants so tight they looked painted onto her thin thighs. Lacey's long blonde hair, which was full of curls last night, was now droopy and dirty, even matted in places -- definitely unclean, frizzy, mangled. But even with messy hair she looked so deliciously sexy me, although I suppose you'd expect her own father to say that. 
 
@@ -100,7 +106,11 @@
 
  
 
- ****** Daddy, He Fucked Me SOOOO Good! ****** byNonStopFunGuy© I was getting so worked up for her now. Staring at her naked big tits and shaved dripping pink cuntlips wasn't helping. I wanted to feel my dick inside that vagina again, and watch her eyes close while daddy pounded her little body hard on my bed, like I have done so many times before. Jesus, the thought of fucking that cunt was making me close to orgasm, with her expert blowjob giving me all the incentive to blow. I knew I shouldn't try to fuck her sore pussy, she'd had plenty of cock in there already today. 
+ 
+
+===
+
+I was getting so worked up for her now. Staring at her naked big tits and shaved dripping pink cuntlips wasn't helping. I wanted to feel my dick inside that vagina again, and watch her eyes close while daddy pounded her little body hard on my bed, like I have done so many times before. Jesus, the thought of fucking that cunt was making me close to orgasm, with her expert blowjob giving me all the incentive to blow. I knew I shouldn't try to fuck her sore pussy, she'd had plenty of cock in there already today. 
 
  Lacey kept one hand in front of her torso flat on the bed, for leverage as she leaned up to suck daddy's penis, and she reached up with her other hand. Those thin soft fingers wrapped around the sloppy-wet base of my dick, with her thumb reaching around the other way. Her fingertips and thumb formed a circle around the cockshaft, and with her palm and four fingers touching my dick she had it in a little flesh sheath. As I pumped in and out of her mouth, Lacey moved her hand up and down my sticky-wet dick for additional stimulation, especially keeping her soft palms flat up against my sensitive underside. As I plunged my erection into her mouth Lacey's hand pressed against her lips, so my dick was like completely enveloped by her hand and mouth. It was all so wet, her hand and mouth, making sticky, squishy noises as I fucked her a bit faster. Her soft brown eyes rolled up at me, her long curly blonde hair completely mangled by cum and sweat. 
 

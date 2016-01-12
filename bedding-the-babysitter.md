@@ -1,8 +1,14 @@
+Bedding the Babysitter
+======================
 #1 
 
  
 
- ****** Bedding the Babysitter ****** bysilkstockingslover© Summary: A lesbian neighbor uses the internet to seduce her innocent babysitter. 
+ 
+
+===
+
+Summary: A lesbian neighbor uses the internet to seduce her innocent babysitter. 
 
  Note: Although released in September of 2010, this story was completely re- written in October of 2012. 
 
@@ -372,7 +378,11 @@
 
  
 
- ****** Bedding the Babysitter ****** bysilkstockingslover© "That's it my pet, lick my cunt good," she ordered. 
+ 
+
+===
+
+"That's it my pet, lick my cunt good," she ordered. 
 
  Being called pet had my own vagina getting wet and I eagerly continued pleasing the most beautiful girl I knew in school. I swirled my tongue around her clit, I sucked it in my mouth. I was addicted to her unique taste and never wanted to have this moment end. 
 
@@ -712,7 +722,11 @@
 
  
 
- ****** Bedding the Babysitter ****** bysilkstockingslover© Going for broke, confident I had read her right, I said, backing up a few feet to admire her, "My sweet dear Jenny, it is time. If you are want me to become your mistress you simply need to undress for me." 
+ 
+
+===
+
+Going for broke, confident I had read her right, I said, backing up a few feet to admire her, "My sweet dear Jenny, it is time. If you are want me to become your mistress you simply need to undress for me." 
 
  Jenny's eyes never left mine as she obeyed my order instantly and started to unbutton her blouse. Her hands trembled slightly, but slowly she tossed her blouse on the floor. Her small, perky breasts peaked out from her white lace bra. 
 
@@ -884,7 +898,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 02 ****** bysilkstockingslover© Disclaimer 1: Of course everyone in this story is at least 18. 
+ 
+
+===
+
+Disclaimer 1: Of course everyone in this story is at least 18. 
 
  Disclaimer 2: If you want to know how 18-year old babysitter Jenny became the submissive slave of neighbor Megan, please read part one. Without further adieu part two: 
 
@@ -1146,7 +1164,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 02 ****** bysilkstockingslover© Karen shrugged, "Yeah I guess." 
+ 
+
+===
+
+Karen shrugged, "Yeah I guess." 
 
  Jenny, surprisingly even me, responded, "Well my mistress decided I needed a makeover." 
 
@@ -1522,7 +1544,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 02 ****** bysilkstockingslover© Jenny and the Asian girl. I smiled, that Rosie had it made. The stall door opened and the blonde walked out. She walked up to Jenny and kissed her hard. Jenny was shocked, but did not move away. The blonde then broke the kiss, winked at me and walked out of the bathroom. 
+ 
+
+===
+
+Jenny and the Asian girl. I smiled, that Rosie had it made. The stall door opened and the blonde walked out. She walked up to Jenny and kissed her hard. Jenny was shocked, but did not move away. The blonde then broke the kiss, winked at me and walked out of the bathroom. 
 
  Jenny looked at me tentatively and after I gave a slight nod, she went into the stall. As instructed she knocked on the stall door twice and said, "I am a white whore who needs black pussy." 
 
@@ -1622,7 +1648,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© Note 2: All characters are at least 18 years old. 
+ 
+
+===
+
+Note 2: All characters are at least 18 years old. 
 
  Note 3: Although I recommend you read parts 1 and 2 first, here is a summary of this series so far... 
 
@@ -1902,7 +1932,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© I did not look up the stories Mistress mentioned for fear of them getting me horny. Instead I did my homework, struggling to start that stupid English essay. I didn't get too far before deciding to just go to bed. It took forever as I often masturbate myself to sleep and I kept wondering what Karen had in store for me tomorrow. I considered so many options, I fantasized about so many more. Yet what happened the next few days was so much sexier, so much dirtier and so much crazier than I could even begin to imagine. 
+ 
+
+===
+
+I did not look up the stories Mistress mentioned for fear of them getting me horny. Instead I did my homework, struggling to start that stupid English essay. I didn't get too far before deciding to just go to bed. It took forever as I often masturbate myself to sleep and I kept wondering what Karen had in store for me tomorrow. I considered so many options, I fantasized about so many more. Yet what happened the next few days was so much sexier, so much dirtier and so much crazier than I could even begin to imagine. 
 
  ********** 
 
@@ -2146,7 +2180,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© "Um thanks," I responded, but she had already begun walking away. I showered and changed and was then asked by Sabrina to give her a neck massage, which she criticized the whole time. I was not massaging hard enough and then I was massaging too hard. I could never get it just right for her. She finally got up and said to me in a condescending tone, "You will never be a real cheerleader." She then walked away. 
+ 
+
+===
+
+"Um thanks," I responded, but she had already begun walking away. I showered and changed and was then asked by Sabrina to give her a neck massage, which she criticized the whole time. I was not massaging hard enough and then I was massaging too hard. I could never get it just right for her. She finally got up and said to me in a condescending tone, "You will never be a real cheerleader." She then walked away. 
 
  On the drive home Karen said, "Sabrina will come around. She is not one to accept change or any threat to her perceived power. And she sees you as a threat." 
 
@@ -2582,7 +2620,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© "Well, I have become more popular, that is for sure," I explained and then added, "And I am beginning to get more comfortable with my new look." 
+ 
+
+===
+
+"Well, I have become more popular, that is for sure," I explained and then added, "And I am beginning to get more comfortable with my new look." 
 
  "I see," Megan said before asking, "And Karen, she has been a good girl?" 
 
@@ -2834,7 +2876,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© My Mom blushed and said, "Thank you Karen." 
+ 
+
+===
+
+My Mom blushed and said, "Thank you Karen." 
 
  Karen and I practiced cheers for an hour, with Mom coming in and out the whole time. After supper, Karen and I went upstairs so I could help her with her math. As soon as I closed the door, Karen said, "You had to notice that your mother was checking me out during our workout, right?" 
 
@@ -3146,7 +3192,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© Subinstockings: Yes, Mistress Wanda. 
+ 
+
+===
+
+Subinstockings: Yes, Mistress Wanda. 
 
  Subinstockings: I would crawl to you on request. I would then go between your legs and lick your pussy until you sprayed your love juices all over me. You would then put a strap-on on your sexy waist and fuck me like the lez slut I am. First you would pound me in my shaved ripe pussy and then later you would hammer my tight firm ass. I would only orgasm when given permission. When you were done dominating me, I would then continue to please you as you saw fit. 
 
@@ -3492,7 +3542,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 03 ****** bysilkstockingslover© I looked at Ashley, who had been quiet this whole time, and was rubbing herself frantically. I slapped Sabrina's ass once more, leaving the plug in her ass and said to Ashley, "Dare me to eat your pussy." 
+ 
+
+===
+
+I looked at Ashley, who had been quiet this whole time, and was rubbing herself frantically. I slapped Sabrina's ass once more, leaving the plug in her ass and said to Ashley, "Dare me to eat your pussy." 
 
  Ashley clearly desperate to have an orgasm after watching the sexual depravity begged, through a moan, "Please." 
 
@@ -3696,7 +3750,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 04 ****** bysilkstockingslover© Brief Summary: Jenny attempts to fulfill an order from one of her two Mistresses, when she meets with her unknowing teacher to finish a seduction she had slowly been doing all week (a brief sub-plot in Bedding the Babysitter 3). 
+ 
+
+===
+
+Brief Summary: Jenny attempts to fulfill an order from one of her two Mistresses, when she meets with her unknowing teacher to finish a seduction she had slowly been doing all week (a brief sub-plot in Bedding the Babysitter 3). 
 
  Note 1: I recommend you read parts 1-3 to know the complete story of Jenny from shy, nervous in the closet lesbian to submissive, sexy cheerleader and seductress. That said, you only need to read part 3 to learn the set-up of her seduction of her teacher that she completes in this chapter. 
 
@@ -3886,7 +3944,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 04 ****** bysilkstockingslover© "Yes, Jenny, stop teasing me, I need to come so badly," she pleaded. 
+ 
+
+===
+
+"Yes, Jenny, stop teasing me, I need to come so badly," she pleaded. 
 
  I obliged and began licking her pussy. Her scent was uniquely sweet and her pussy was already excessively wet. Her smell seemed to be caught in her pubic hair and held in like a pussy bouquet. I licked slowly and cautiously, her hair occasionally tickling my nose. I purposely avoided her clit as I wanted to linger between my teacher's perfect legs for as long as possible. I moved my tongue slowly up and down, occasionally between her lips. Her moans were constant from my teasing, and slowly began to increase. Suddenly, and much to my surprise, my sweet adorable teacher had a personality shift. She ordered, "Fuck Jenny, stop teasing me. Lick me like the little slut you are. Please your Mistress." 
 
@@ -4018,7 +4080,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 05 ****** bysilkstockingslover© BEDDING THE BABYSITTER CH. 05: MOM'S STORY 
+ 
+
+===
+
+BEDDING THE BABYSITTER CH. 05: MOM'S STORY 
 
  Summary: Jenny's Mom tells her how she ended up submitting to an 18-year-old cheerleader. 
 
@@ -4256,7 +4322,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 05 ****** bysilkstockingslover© Her words brought me back to reality and I stammered, pretending her firm naked breasts had no effect on me, "N-n-n-n-no, nothing. I'll go and throw this in the wash." 
+ 
+
+===
+
+Her words brought me back to reality and I stammered, pretending her firm naked breasts had no effect on me, "N-n-n-n-no, nothing. I'll go and throw this in the wash." 
 
  I began to leave, but Karen said, "Stop. I got some on my skirt too." She quickly slipped out of her skirt and was now in only beige thigh high stockings and what appeared to be a pink thong. I wordlessly took the skirt and shirt and quickly rushed downstairs, my head a mess. While I tossed the clothes in my washing machine, I tried to get my head straight. I couldn't erase Karen's breasts from my mind. I took a deep breath and chanted to myself, 'I am not a lesbian'. Finally confident in my self-control, I went back upstairs. Karen was still sitting at the kitchen table, still half-naked. 
 
@@ -4464,7 +4534,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 06 ****** bysilkstockingslover© Summary: Cheerleader Jenny goes on her first lesbian date. 
+ 
+
+===
+
+Summary: Cheerleader Jenny goes on her first lesbian date. 
 
  A summary of the first five parts (although_if_you_have_not_read_them,_I_highly suggest_you_do...especially_part_3_for_this_one) 
 
@@ -4780,7 +4854,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 06 ****** bysilkstockingslover© Eventually, we were the only two left in the theatre when Ashley finally spoke, breaking the lengthy awkward silence, "So I guess we didn't eat much of the popcorn." 
+ 
+
+===
+
+Eventually, we were the only two left in the theatre when Ashley finally spoke, breaking the lengthy awkward silence, "So I guess we didn't eat much of the popcorn." 
 
  The words came out of my mouth without thinking, "That wasn't what I was hungry for." 
 
@@ -4932,7 +5010,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 07 ****** bysilkstockingslover© Summary: Cheerleader confrontation; Governor Daphne flashback. 
+ 
+
+===
+
+Summary: Cheerleader confrontation; Governor Daphne flashback. 
 
  A summary of the first six parts: 
 
@@ -5256,7 +5338,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 07 ****** bysilkstockingslover© Layla picked up the dress and put it on a hanger nearby. "Anything else, ma'am?" 
+ 
+
+===
+
+Layla picked up the dress and put it on a hanger nearby. "Anything else, ma'am?" 
 
  "Not right now," the Governor said, waving her away, her eyes never leaving mine. "So do you like what you see?" 
 
@@ -5596,7 +5682,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 07 ****** bysilkstockingslover© "Look, bitch," Ashley snapped. "You can act all high and mighty and pretentious, but we all know you are a submissive slut, a complete puppy dog to Karen." 
+ 
+
+===
+
+"Look, bitch," Ashley snapped. "You can act all high and mighty and pretentious, but we all know you are a submissive slut, a complete puppy dog to Karen." 
 
  "I am not," Sabrina snapped back, always hating when people saw her as second fiddle to Karen. 
 
@@ -6038,7 +6128,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 07 ****** bysilkstockingslover© "Fuck you," she smiled, reaching into the back seat and putting a duffle bag on my lap. 
+ 
+
+===
+
+"Fuck you," she smiled, reaching into the back seat and putting a duffle bag on my lap. 
 
  As she began driving, I opened the bag and saw a big black strap-on cock. "Oh my," I said, the thought of her wearing a strap-on making my cunt dampen. "You really do plan to fuck me." 
 
@@ -6064,7 +6158,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 08 ****** bysilkstockingslover© Summary: Jenny is a maid at lesbian fundraising orgy for Gov. Greene. 
+ 
+
+===
+
+Summary: Jenny is a maid at lesbian fundraising orgy for Gov. Greene. 
 
  A summary of the first seven parts: 
 
@@ -6448,7 +6546,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 08 ****** bysilkstockingslover© "Yes, Mistress," both Ashley and I said in unison. 
+ 
+
+===
+
+"Yes, Mistress," both Ashley and I said in unison. 
 
  Once back outside, Ashley summed up everything in one word. "Wow!" 
 
@@ -6908,7 +7010,11 @@
 
  
 
- ****** Bedding the Babysitter Ch. 08 ****** bysilkstockingslover© Clapping erupted and Ashley and I, still in our maid outfits, went and stood beside her. 
+ 
+
+===
+
+Clapping erupted and Ashley and I, still in our maid outfits, went and stood beside her. 
 
  "And trust me, they were born to serve," Governor Green said. 
 

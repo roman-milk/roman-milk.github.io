@@ -1,8 +1,14 @@
+After Hours Ch. 01
+==================
 #1 
 
  
 
- ****** After Hours Ch. 01 ****** bydirty_geezer© 'Damn another late night ahead - fucking project' I commiserate with myself, knowing that I'll be staying late after hours to try and get things done within the usual unrealistic timescales. To make things worse, my wife will be off out tonight enjoying herself with our friends, while I'm slaving away. While it was still only 5:30, the office already seemed to be mostly deserted, all the sensible people already left for home or their non work lives. 
+ 
+
+===
+
+'Damn another late night ahead - fucking project' I commiserate with myself, knowing that I'll be staying late after hours to try and get things done within the usual unrealistic timescales. To make things worse, my wife will be off out tonight enjoying herself with our friends, while I'm slaving away. While it was still only 5:30, the office already seemed to be mostly deserted, all the sensible people already left for home or their non work lives. 
 
  Tutting at my own bad luck I put my head down to try regain some concentration on the document in front of me, before noticing my e-mail is showing I have something new. 'Oh god don't let it be more work' I silently plead, before I realise that there's nothing appearing in my inbox. Grinning I look in my 'special' folder, and am surprised to see it is an e-mail with your name on, 'still here?' I wonder - as I can't see you without standing up. Oh yes she is I grin, reading your reply to another of my cheeky innuendo's from earlier in the day. 
 

@@ -1,8 +1,14 @@
+Interview Techniques
+====================
 #1 
 
  
 
- ****** Interview Techniques ****** bygeronimo_appleby© One that I didn't think would end up on Lit, but here it is anyway, never mind the reasons for my opening statement. 
+ 
+
+===
+
+One that I didn't think would end up on Lit, but here it is anyway, never mind the reasons for my opening statement. 
 
  In this one Pete attends an interview but is stunned by the ripe and delicious Beth, a hot older woman on the interview panel. The interview goes Pete Tong (wrong), but Pete gets a one-to-one chat with Beth. 
 
@@ -148,7 +154,11 @@
 
  
 
- ****** Interview Techniques ****** bygeronimo_appleby© This doesn't happen in real life, a young man had hissed when Beth, had sucked his dick in the rather cramped and grubby toilet cubicle on a commuter train out of Waterloo station. The tawdriness of their surroundings and the fact that Beth had let the guy, a complete stranger, pick her up in the carriage only heightened the illicit thrill for the woman. It does to you, today, she'd sighed and sucked the rather large knob-end between her lips before turning around and standing, offering him her pussy from behind. Beth had cum loudly as the guy dumped his seed into the condom Beth carried for those impromptu encounters. When it was over she'd packed her tits away, smoothed down her skirt and, leaving her knickers behind as a souvenir, casually sauntered out of the cubicle to looks of disapproval and embarrassment from the commuters who shared the train. 
+ 
+
+===
+
+This doesn't happen in real life, a young man had hissed when Beth, had sucked his dick in the rather cramped and grubby toilet cubicle on a commuter train out of Waterloo station. The tawdriness of their surroundings and the fact that Beth had let the guy, a complete stranger, pick her up in the carriage only heightened the illicit thrill for the woman. It does to you, today, she'd sighed and sucked the rather large knob-end between her lips before turning around and standing, offering him her pussy from behind. Beth had cum loudly as the guy dumped his seed into the condom Beth carried for those impromptu encounters. When it was over she'd packed her tits away, smoothed down her skirt and, leaving her knickers behind as a souvenir, casually sauntered out of the cubicle to looks of disapproval and embarrassment from the commuters who shared the train. 
 
  "One day," Beth continues, still talking about Pete's habit of referring to Beth as Mrs Philips, "we could role-play that I'm a teacher and you're a naughty boy in detention." 
 

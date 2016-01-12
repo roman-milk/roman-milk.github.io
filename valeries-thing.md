@@ -1,8 +1,14 @@
+Valerie's Thing
+===============
 #1 
 
  
 
- ****** Valerie's Thing ****** byJust_Plain_Bob© Things had not been going well between me and my wife Valerie. It had been a little over a month since we had made love or even snuggled up together in our bed. Our daily interaction toward each other was cool and I didn't see an end to the situation in sight. 
+ 
+
+===
+
+Things had not been going well between me and my wife Valerie. It had been a little over a month since we had made love or even snuggled up together in our bed. Our daily interaction toward each other was cool and I didn't see an end to the situation in sight. 
 
  The problem was that we were both hard headed and neither of us was going to be the one to give in. I wasn't going to give in because I wasn't in the wrong. What had happened wasn't my fault and Valerie knew it, but she'd had one too many Screwdrivers and it had made her stupid and she had done something stupid. I caught her at it and then she said she was just getting even with me so in effect it was my fault. I wasn't buying it and I called her a fucking slut and now we weren't talking. 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** Valerie's Thing ****** byJust_Plain_Bob© "About an hour out of town I suddenly realized that it wasn't. I had Bennie let me out and I hitch hiked back home to try and stop you from doing what you were going to do. Got here too late it seems. Sorry for the interruption buddy" and I turned and left. 
+ 
+
+===
+
+"About an hour out of town I suddenly realized that it wasn't. I had Bennie let me out and I hitch hiked back home to try and stop you from doing what you were going to do. Got here too late it seems. Sorry for the interruption buddy" and I turned and left. 
 
  +++++++++++++++ 
 

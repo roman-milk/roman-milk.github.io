@@ -1,8 +1,14 @@
+Brenda and David
+================
 #1 
 
  
 
- ****** Brenda and David ****** byJust_Plain_Bob© It is always a blow to your ego when you find out that your wife is fucking another man. Once you get past the, "Unfaithful fucking whore" and the I'll kill the mother fucker" stage you are left with all the questions of why. What did I do or not do that made her do what she did? What was I lacking? What did he have that I didn't? More energy and staying power? A bigger dick? A longer and more talented tongue? Maybe she just didn't like me any more or maybe I had a bad case of body odor. I didn't know and I wasn't going to ask. I did not intend to let Brenda know that I knew, at least not until I was ready and had all my ducks lined up in a row. 
+ 
+
+===
+
+It is always a blow to your ego when you find out that your wife is fucking another man. Once you get past the, "Unfaithful fucking whore" and the I'll kill the mother fucker" stage you are left with all the questions of why. What did I do or not do that made her do what she did? What was I lacking? What did he have that I didn't? More energy and staying power? A bigger dick? A longer and more talented tongue? Maybe she just didn't like me any more or maybe I had a bad case of body odor. I didn't know and I wasn't going to ask. I did not intend to let Brenda know that I knew, at least not until I was ready and had all my ducks lined up in a row. 
 
  +++++++++++++++++++ 
 

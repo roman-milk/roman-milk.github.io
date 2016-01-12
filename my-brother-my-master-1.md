@@ -1,8 +1,14 @@
+My Brother, My Master
+=====================
 #1 
 
  
 
- ****** My Brother, My Master ****** bysilkstockingslover© MY BROTHER, MY MASTER 
+ 
+
+===
+
+MY BROTHER, MY MASTER 
 
  Summary: A trip to the Amazon has sister submit to her nerdy brother. 
 
@@ -320,7 +326,11 @@
 
  
 
- ****** My Brother, My Master ****** bysilkstockingslover© "Hmmmm, you are quite the tease," he moaned as I bobbed slowly back and forth taking just over half his cock in. 
+ 
+
+===
+
+"Hmmmm, you are quite the tease," he moaned as I bobbed slowly back and forth taking just over half his cock in. 
 
  I moaned on his cock as I began slowly taking his cock in my mouth. After I had half his cock in my mouth, I began slowly bobbing back and forth, each forward movement taking more of my brother's stiff rod in my mouth. 
 
@@ -594,7 +604,11 @@
 
  
 
- ****** My Brother, My Master ****** bysilkstockingslover© "Fuuuuuck," I moaned, biting my lips to not scream and alert my parent's to their children's sexual debauchery. The orgasm riddled through me unlike any that I had ever experienced, realizing my previous sexual past was just a charade of real pleasure. 
+ 
+
+===
+
+"Fuuuuuck," I moaned, biting my lips to not scream and alert my parent's to their children's sexual debauchery. The orgasm riddled through me unlike any that I had ever experienced, realizing my previous sexual past was just a charade of real pleasure. 
 
  Collapsing forward, weak from the never ending earthquake of pleasure, Kevin began pumping his cock hard into my ass somehow enhancing even more my orgasm. 
 

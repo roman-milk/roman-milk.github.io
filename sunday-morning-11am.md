@@ -1,8 +1,14 @@
+Sunday Morning: 11am
+====================
 #1 
 
  
 
- ****** Sunday Morning: 11am ****** bygeronimo_appleby© HE LAY WITH his eyes closed and took inventory. He didn't feel too bad considering; a mild headache which could go either way when he grew brave enough to open his eyes. Thank God it was Sunday and he could enjoy the hangover if it kicked in. 
+ 
+
+===
+
+HE LAY WITH his eyes closed and took inventory. He didn't feel too bad considering; a mild headache which could go either way when he grew brave enough to open his eyes. Thank God it was Sunday and he could enjoy the hangover if it kicked in. 
 
  He lay on his side facing away from her, facing the window. He opened his eyes and blinked at the corona around the blind. He had no idea of the hour since daylight broke early at this time of year. He blinked again several times but the bleary haze persisted. He was pleased to note that the headache kept its voice down though. 
 

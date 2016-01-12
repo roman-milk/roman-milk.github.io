@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Dani
+==========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Dani ****** byJust_Plain_Bob© My wife and I have been married for twenty-one years now and during that time we have had our share of sexual problems, but lack of desire was never one of them until a year ago. For some reason my wife Dani suddenly lost all interest in sex. I did every thing I could think of to light her fire, but to no avail. 
+ 
+
+===
+
+My wife and I have been married for twenty-one years now and during that time we have had our share of sexual problems, but lack of desire was never one of them until a year ago. For some reason my wife Dani suddenly lost all interest in sex. I did every thing I could think of to light her fire, but to no avail. 
 
  Until her loss of interest Dani and I led a very active sex life - none of that twice a week on Tuesday and Saturday stuff - we engaged in sex on the average of five times a week. When the mood struck us we made love on the kitchen table, the living room floor, in the back yard under a full moon. No place was of limits to us and then it stopped - just stopped dead. 
 

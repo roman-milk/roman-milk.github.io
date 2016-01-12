@@ -1,8 +1,14 @@
+The Honeymooners
+================
 #1 
 
  
 
- ****** The Honeymooners ****** bygeronimo_appleby© A stereotypical black on blonde gang-bang. 
+ 
+
+===
+
+A stereotypical black on blonde gang-bang. 
 
  I hope you enjoy the story. I might be in for some flak for this from the usual suspects, but ... 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** The Honeymooners ****** bygeronimo_appleby© He moved between the girl's legs, hauling her bodily, hands around her hips, into position. 'Hold the chair steady, mon,' he growled at his long-haired friend. 'Hold it steady or she gunna fall.' He shunted the blonde's legs over his arms, the crook of her knees draped over his forearms. Crouching, he held the tip of his cock at her opening. 'I'm gunna split you in two,' he said, then thrust. 
+ 
+
+===
+
+He moved between the girl's legs, hauling her bodily, hands around her hips, into position. 'Hold the chair steady, mon,' he growled at his long-haired friend. 'Hold it steady or she gunna fall.' He shunted the blonde's legs over his arms, the crook of her knees draped over his forearms. Crouching, he held the tip of his cock at her opening. 'I'm gunna split you in two,' he said, then thrust. 
 
  'Ooh,' the woman gurgled. 'That's good. Nice and thick and long.' She looked up, raising her chin from her chest, awkwardly wall-eyed in that position, to goad the man further. 'Now use it, you bastard,' she sneered. 'Use that thing and fuck me.' 
 

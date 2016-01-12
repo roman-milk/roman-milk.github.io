@@ -1,8 +1,14 @@
+Bimbo-fying Superchick
+======================
 #1 
 
  
 
- ****** Bimbo-fying Superchick ****** bysilkstockingslover© Note 1: This story is dedicated to college coed Jenny who requested the kinky Superhero tale of submission. 
+ 
+
+===
+
+Note 1: This story is dedicated to college coed Jenny who requested the kinky Superhero tale of submission. 
 
  Note 2: Thanks to MAB7991 for his usual editing expertise and Wayne and goamz86 for a second look. 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Bimbo-fying Superchick ****** bysilkstockingslover© Sara noticed his ominous tone and asked tentatively already sensing something was wrong, "What do you mean?" 
+ 
+
+===
+
+Sara noticed his ominous tone and asked tentatively already sensing something was wrong, "What do you mean?" 
 
  "It is better if you just see for yourself," The Producer answered. 
 
@@ -544,7 +554,11 @@
 
  
 
- ****** Bimbo-fying Superchick ****** bysilkstockingslover© "No, don't you dare Josie," Sara demanded. 
+ 
+
+===
+
+"No, don't you dare Josie," Sara demanded. 
 
  "Me not Josie, me Jojo," the now blonde haired beauty said while continuing to fulfill her Master's task. 
 

@@ -1,8 +1,14 @@
+Love Your Readers: Categories
+=============================
 #1 
 
  
 
- ****** Love Your Readers: Categories ****** byTx_Tall_Tales© ============================ 
+ 
+
+===
+
+============================ 
 
  Help Your Readers. Categorized Your Story Correctly. 
 
@@ -184,7 +190,11 @@
 
  
 
- ****** Love Your Readers: Categories ****** byTx_Tall_Tales© Final 'trump' category: Fetish 
+ 
+
+===
+
+Final 'trump' category: Fetish 
 
  Feet, panties, food and other kinky things. The catch-all category of kinkiness. Beyond what the category description says, golden showers, scat, CFNM (clothed female, nude male), cuckolding, pegging, pregnancy, spanking, cum-play, lactation, and forced chastity, are some of the more popular kinks explored here. It's worth noting a lot of crossdressing ends up here, when it's part of marital high jinks, instead of in Transsexuals & Crossdressers, which leans strongly toward TS. Because fetish stories often have a very high 'squick' factor, offending many readers, you may want to consider placing your story here if it contains less 'mainstream' elements. This category would be the highest 'Trump' category, if it didn't cover such a broad spectrum of Kink. Let's just say that many of the 'kinks' are Trump kinks, and if you have them, you'll want to categorize your story as fetish. 
 

@@ -1,8 +1,14 @@
+Stacy Pays The Rent
+===================
 #1 
 
  
 
- ****** Stacy Pays The Rent ****** byJust_Plain_Bob© Life sucked! Staci could not believe how bad things had gotten. When she and Don had married life had seemed so full of promise. They were crazy in love, Don had a good job, they lived in a nice part of town and everything was coming up roses. Then, in the blink of an eye everything went totally to hell. 
+ 
+
+===
+
+Life sucked! Staci could not believe how bad things had gotten. When she and Don had married life had seemed so full of promise. They were crazy in love, Don had a good job, they lived in a nice part of town and everything was coming up roses. Then, in the blink of an eye everything went totally to hell. 
 
  Don had helped pay his way through college by joining ROTC and after graduation he had served three years on active duty and then come home and gone into the reserves. He and Staci had met, fallen in love and married and while she had hated giving Don up one weekend a month and for two weeks every summer she had understood that he had an obligation. And then that clown in the White House had decided that he needed to be macho and now Don was sitting on top of a sand dune somewhere on the other side of the world. Don had made good money when he was home, but he made it as a salesman on commission and when he was called up the money stopped coming in. Staci had gotten a job and that, with Don's allotment check had been enough to keep the wolf away from the door. Then, as if taking her husband away hadn't been enough, Bush had to so mismanage the economy that she lost her job when her company went belly up. She hadn't been there long enough to qualify for unemployment and Don's government check wasn't enough to pay the rent, pay utilities and buy food. 
 

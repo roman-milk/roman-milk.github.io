@@ -1,8 +1,14 @@
+We Love Mother
+==============
 #1 
 
  
 
- ****** We Love Mother ****** bygeronimo_appleby© A short incest piece for the Summer Loving contest. There's no build-up to this one; they're into it (no pun) from the start. 
+ 
+
+===
+
+A short incest piece for the Summer Loving contest. There's no build-up to this one; they're into it (no pun) from the start. 
 
  I hope you enjoy the piece regardless of its brevity. 
 

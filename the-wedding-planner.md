@@ -1,8 +1,14 @@
+The Wedding Planner Ch. 01
+==========================
 #1 
 
  
 
- ****** The Wedding Planner Ch. 01 ****** byJust_Plain_Bob© She sat at her desk and read the memo that she found lying in the middle of her desk when she came in that morning. The information it contained was disturbing and she frowned. She had promised her husband that she would free her schedule so the two of them could take a four day weekend and sneak off and be alone. The arrangements were made. Jake had made the reservations at the resort hotel and all was ready. 
+ 
+
+===
+
+She sat at her desk and read the memo that she found lying in the middle of her desk when she came in that morning. The information it contained was disturbing and she frowned. She had promised her husband that she would free her schedule so the two of them could take a four day weekend and sneak off and be alone. The arrangements were made. Jake had made the reservations at the resort hotel and all was ready. 
 
  The memo in her hand said she was scheduled for a 4 PM meeting on Friday, the day she was supposed to be leaving. She and Jake had planned to be on the road by 8 AM Friday morning, but someone had committed her to a meeting on a day she was supposed to be off. She picked up the phone and buzzed Marci. Marci was Dan's secretary and Dan was the general manager of the hotel that employed her. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** The Wedding Planner Ch. 01 ****** byJust_Plain_Bob© "Slinky and sexy huh?" 
+ 
+
+===
+
+"Slinky and sexy huh?" 
 
  "Naked will work; I'm easy to get along with." 
 
@@ -178,7 +188,11 @@
 
  
 
- ****** The Wedding Planner Ch. 02 ****** byJust_Plain_Bob© The first thing next morning she turned on her computer and accessed the file on the wedding she had coming up that weekend. She had made a check list based on what the bride and the bride's mother had specified. The flowers had been ordered, the kitchen had been given the menu and housekeeping had the floor plan for the table set-up. The bride's mother had specified a u-shaped arrangement and had furnished a chart showing the seating arrangement and place cards had been ordered. 
+ 
+
+===
+
+The first thing next morning she turned on her computer and accessed the file on the wedding she had coming up that weekend. She had made a check list based on what the bride and the bride's mother had specified. The flowers had been ordered, the kitchen had been given the menu and housekeeping had the floor plan for the table set-up. The bride's mother had specified a u-shaped arrangement and had furnished a chart showing the seating arrangement and place cards had been ordered. 
 
  The groom had said he wanted a live music and not a DJ so she had arranged for a band and had given them a list of the songs that the bride and groom wanted played at some point during the reception. The groom's father had stopped by her office and asked that she make sure that the bar have Famous Grouse scotch on hand and a call to catering found that Famous Grouse was not a brand kept in stock so she had ordered a case of it. 
 
@@ -400,7 +414,11 @@
 
  
 
- ****** The Wedding Planner Ch. 02 ****** byJust_Plain_Bob© When the rehearsal was over she led the group to the banquet hall where the rehearsal dinner was being held. Once every one was seated she invited them to stick around after the dinner and enjoy dancing to the live band in the lounge. 
+ 
+
+===
+
+When the rehearsal was over she led the group to the banquet hall where the rehearsal dinner was being held. Once every one was seated she invited them to stick around after the dinner and enjoy dancing to the live band in the lounge. 
 
  "As an incentive to stay we are giving you your first drink on the house" and then she circulated and handed them all a complimentary ticket to give to the bartender or their waitress. She deliberately timed it so the last person she gave a ticket to was the usher she had been flirting with. As he took it he said: 
 
@@ -474,7 +492,11 @@
 
  
 
- ****** The Wedding Planner Ch. 03 ****** byJust_Plain_Bob© While she sat at her desk and waited for the computer to come up she took the small spiral note pad she had purchased Saturday out of her purse. She still hadn't made up her mind how she wanted to record her illicit meetings. The date and number of times? Just the date and a check mark? Just a check mark on each line to represent a lover? There would be no names or descriptions; no number of stars to denote how great the time had been. She smiled as she remembered Friday night with Scott. He would have gotten three and a half stars after his check mark. 
+ 
+
+===
+
+While she sat at her desk and waited for the computer to come up she took the small spiral note pad she had purchased Saturday out of her purse. She still hadn't made up her mind how she wanted to record her illicit meetings. The date and number of times? Just the date and a check mark? Just a check mark on each line to represent a lover? There would be no names or descriptions; no number of stars to denote how great the time had been. She smiled as she remembered Friday night with Scott. He would have gotten three and a half stars after his check mark. 
 
  She finally decided on just the date and a check mark and got out a pen and brought the notebook up to date. There were the three guys from the first weekend, Dan, and then Scott from Friday night. That made five in one week after years and years of only Jake. She wondered how many of those years Jake had been cheating on her. No matter; the one she knew about was enough. She dropped the notebook back in her purse and started in on her days work. 
 
@@ -704,7 +726,11 @@
 
  
 
- ****** The Wedding Planner Ch. 04 ****** byJust_Plain_Bob© Monday was a busy day for her. She had a trade show that was running from Tuesday to Thursday, a motivational seminar to set up for Wednesday and two weddings coming up on the weekend. For the first time since she had started her affair with Dan when he called her and asked her to meet him in room 617 she was reluctant to go. She just had too much on her desk. But she hadn't had sex with Jake since Friday night so they would almost certainly have sex that night and she couldn't pass up a chance to give him his 'seconds.' 
+ 
+
+===
+
+Monday was a busy day for her. She had a trade show that was running from Tuesday to Thursday, a motivational seminar to set up for Wednesday and two weddings coming up on the weekend. For the first time since she had started her affair with Dan when he called her and asked her to meet him in room 617 she was reluctant to go. She just had too much on her desk. But she hadn't had sex with Jake since Friday night so they would almost certainly have sex that night and she couldn't pass up a chance to give him his 'seconds.' 
 
  It was enjoyable as always - and when she was getting dressed Dan asked: 
 
@@ -876,7 +902,11 @@
 
  
 
- ****** The Wedding Planner Ch. 05 ****** byJust_Plain_Bob© She had been at work an hour when she got a call from Jake. 
+ 
+
+===
+
+She had been at work an hour when she got a call from Jake. 
 
  "They have a situation in the Atlanta office and I have to fly down there. I'll probably be gone until Friday. I'll call you when I know more." 
 
@@ -1142,7 +1172,11 @@
 
  
 
- ****** The Wedding Planner Ch. 05 ****** byJust_Plain_Bob© "Can you spend the rest of the weekend with a fried of mine?" 
+ 
+
+===
+
+"Can you spend the rest of the weekend with a fried of mine?" 
 
  "You know my goal Dan; to get laid every day that Jake is gone. Where and when?" 
 
@@ -1156,7 +1190,11 @@
 
  
 
- ****** The Wedding Planner Ch. 06 ****** byJust_Plain_Bob© As Jake's tongue slid into her pussy she lay there looking up at the ceiling and thinking of the last forty-eight hours. Saturday she had been wined and dined and then taken to a luxury condo on Steven's Lake and thoroughly fucked by Harvey (Dan's friend) and then on Sunday she had hung on Harvey's arm as he visited the Museum of Modern Art and then the Museum of Natural History. 
+ 
+
+===
+
+As Jake's tongue slid into her pussy she lay there looking up at the ceiling and thinking of the last forty-eight hours. Saturday she had been wined and dined and then taken to a luxury condo on Steven's Lake and thoroughly fucked by Harvey (Dan's friend) and then on Sunday she had hung on Harvey's arm as he visited the Museum of Modern Art and then the Museum of Natural History. 
 
  On the way back to his condo Harv had had the limo driver put up the partition and then he had taken her on the back seat of the limo. When he was spent and she lay there looking up at him with heavy-lidded and lust filled eyes he had said: 
 
@@ -1464,7 +1502,11 @@
 
  
 
- ****** The Wedding Planner Ch. 06 ****** byJust_Plain_Bob© "Since your husband is out of town you can stay right?" Harvey asked her. 
+ 
+
+===
+
+"Since your husband is out of town you can stay right?" Harvey asked her. 
 
  "I can as long as you realize that I do have to go to work in the morning." 
 
@@ -1562,7 +1604,11 @@
 
  
 
- ****** The Wedding Planner Ch. 07 ****** byJust_Plain_Bob© The bachelor party was being held at Harvey's condo on the lake and he had sent his limo to pick her and Marci up when they got off work. They got to the condo almost an hour before the guests would start arriving. Marci and Bobby were off somewhere, probably fucking, and she and Harvey were sitting on the leather sofa in the den. She was looking out the window at the lake when Harvey said: 
+ 
+
+===
+
+The bachelor party was being held at Harvey's condo on the lake and he had sent his limo to pick her and Marci up when they got off work. They got to the condo almost an hour before the guests would start arriving. Marci and Bobby were off somewhere, probably fucking, and she and Harvey were sitting on the leather sofa in the den. She was looking out the window at the lake when Harvey said: 
 
  "A penny for your thoughts." 
 
@@ -1830,7 +1876,11 @@
 
  
 
- ****** The Wedding Planner Ch. 07 ****** byJust_Plain_Bob© "Go away" Pam grunted as Tony slammed into. "You've been pushing me away for years so you can just wait for tomorrow." 
+ 
+
+===
+
+"Go away" Pam grunted as Tony slammed into. "You've been pushing me away for years so you can just wait for tomorrow." 
 
  Bobby grabbed a handful of her hair and snarled "whore" as he pushed his cock against her lips and Pam opened her mouth. After that things got very active as the five of them switched partners back and forth. The high point of the night for her was watching father, son and chauffer three holing the bride to be. Pam was a cum covered mess and needed to take a shower but Bobby said no. 
 
@@ -1872,7 +1922,11 @@
 
  
 
- ****** The Wedding Planner Ch. 08 ****** byJust_Plain_Bob© "I suppose you are pleased with yourself" Harvey said to her as they left the wedding reception. It was the first time they had been alone since the doings at her house the night before. 
+ 
+
+===
+
+"I suppose you are pleased with yourself" Harvey said to her as they left the wedding reception. It was the first time they had been alone since the doings at her house the night before. 
 
  "I guess I would have to say that I am." 
 
@@ -2186,7 +2240,11 @@
 
  
 
- ****** The Wedding Planner Ch. 08 ****** byJust_Plain_Bob© Meanwhile her hand had been working on Steve's cock and it too began to stiffen. Steve pushed her hand away and then he moved between her legs. She automatically spread them and waited for his cock to enter her, but instead she felt his hot breath on her pussy. His hands went under her ass and he pulled her pussy to his mouth and treated it to a sensuous kiss. She was stunned! She had two loads of Roy's cum in her and the load that he had just given her and he was eating her pussy! The juices were flowing out of her as he licked and kissed her slit. His lips captured her clit and went to work on it and she screamed in delight as her body shook with an orgasm. 
+ 
+
+===
+
+Meanwhile her hand had been working on Steve's cock and it too began to stiffen. Steve pushed her hand away and then he moved between her legs. She automatically spread them and waited for his cock to enter her, but instead she felt his hot breath on her pussy. His hands went under her ass and he pulled her pussy to his mouth and treated it to a sensuous kiss. She was stunned! She had two loads of Roy's cum in her and the load that he had just given her and he was eating her pussy! The juices were flowing out of her as he licked and kissed her slit. His lips captured her clit and went to work on it and she screamed in delight as her body shook with an orgasm. 
 
  At that point Steve rolled her over and as her body still trembled from the force of her climax he pulled her up to her knees and as Roy positioned himself so her head was over his cock Steve pushed into her from behind. She was pushing her ass back at Steve and her head was bobbing up and down on Roy and he body was shaking with orgasms. 
 
@@ -2206,7 +2264,11 @@
 
  
 
- ****** The Wedding Planner Ch. 09 ****** byJust_Plain_Bob© She managed to get four hours sleep before the clock went off. As she showered she ran through a mental checklist. She had cleaned the house thoroughly so that there would be no sign that she had "entertained" while Jake was gone. She had washed and put away the clothes of Jake's that Harv and Tony had worn while they had fucked her. She had even remembered to clean the cum stains off the seat of the riding lawn mower. The place would be ready for Jake when he got home. 
+ 
+
+===
+
+She managed to get four hours sleep before the clock went off. As she showered she ran through a mental checklist. She had cleaned the house thoroughly so that there would be no sign that she had "entertained" while Jake was gone. She had washed and put away the clothes of Jake's that Harv and Tony had worn while they had fucked her. She had even remembered to clean the cum stains off the seat of the riding lawn mower. The place would be ready for Jake when he got home. 
 
  Jake was sure to want to make love when he got home so she would have to make sure that Dan fucked her if he couldn't set her up with someone. She could not - just could not - give Jake pussy unless it had been freshly used by someone else. 
 
@@ -2384,7 +2446,11 @@
 
  
 
- ****** The Wedding Planner Ch. 10 ****** byJust_Plain_Bob© She was all set to play the role of pissed off wife when Jake got home. On her flight home from Chicago she had given some thought as to how someone who really loved her husband would take what was going on as far as Jake's job was concerned. She figured that a loving wife would be more and more upset as things went on and then she would finally get pissed. So, although she was tickled to death to have him gone she needed to appear to be pissed at him for all of his absences. 
+ 
+
+===
+
+She was all set to play the role of pissed off wife when Jake got home. On her flight home from Chicago she had given some thought as to how someone who really loved her husband would take what was going on as far as Jake's job was concerned. She figured that a loving wife would be more and more upset as things went on and then she would finally get pissed. So, although she was tickled to death to have him gone she needed to appear to be pissed at him for all of his absences. 
 
  "Honey, I'm home" he called out as he came in the front door and dropped his suitcase on the floor. She glanced at her watch and saw that it was twenty after nine. She was in the family room reading (on the same couch where Harvey and Tony had double-teamed her) and she didn't answer. She had a fine line that she had to walk. She had to play the upset and extremely pissed off wife while at the same time not letting things get so out of hand that there would be no fucking that night. She had fucked Jared three times between the time she got up and left his place to catch her flight and, as always, it was important to her that she give Jake pussy that someone else had recently used. Jake came into the room and said: 
 
@@ -2498,7 +2564,11 @@
 
  
 
- ****** The Wedding Planner Ch. 11 ****** byJust_Plain_Bob© She was having lunch with Marci on Monday and they were talking shop when Marci asked: 
+ 
+
+===
+
+She was having lunch with Marci on Monday and they were talking shop when Marci asked: 
 
  "Isn't your boy supposed to be here today?" 
 
@@ -2766,7 +2836,11 @@
 
  
 
- ****** The Wedding Planner Ch. 12 ****** byJust_Plain_Bob© She had been at her desk for maybe twenty minutes when Marci called. 
+ 
+
+===
+
+She had been at her desk for maybe twenty minutes when Marci called. 
 
  "We still on for tonight?" 
 
@@ -2966,7 +3040,11 @@
 
  
 
- ****** The Wedding Planner Ch. 13 ****** byJust_Plain_Bob© As she settled in behind her desk on Monday morning she thought about her weekend. Jake had come home from his trip to Atlanta Friday evening and he had wanted to play. For the first time in months he was actually the first one to use her pussy. Dan had been out of town and there had been no other way for her to get herself laid before going home to Jake. As Jake did her she realized how much she hated giving Jake her body unless someone else had used it first. She knew she had to do it in order to keep him happy while she stabbed him in the back time after time after time, but she still didn't like it. 
+ 
+
+===
+
+As she settled in behind her desk on Monday morning she thought about her weekend. Jake had come home from his trip to Atlanta Friday evening and he had wanted to play. For the first time in months he was actually the first one to use her pussy. Dan had been out of town and there had been no other way for her to get herself laid before going home to Jake. As Jake did her she realized how much she hated giving Jake her body unless someone else had used it first. She knew she had to do it in order to keep him happy while she stabbed him in the back time after time after time, but she still didn't like it. 
 
  She was glad that it would soon be over. He would get his promotion and that would trigger the divorce and she would be rid of him. Her plan was simple. Harvey would tell her when they were giving Jake the promotion. The night before he received it she would feed him her pussy with another man's cum still inside of it and the next day when he came home beaming over his promotion she would hit him with the divorce papers. When the divorce was final she would hand Jake her little black book and explain to him what it was. Then it would be time to start a new life. Knowing that it would soon be over helped make sex with Jake bearable over the rest of the weekend. 
 
@@ -3194,7 +3272,11 @@
 
  
 
- ****** The Wedding Planner Ch. 14 ****** byJust_Plain_Bob© She was late getting to work on Tuesday. She'd lost track of time playing with Pete and Darin, the two boys she and Marci had hooked up with the night before and she had rushed home, showered and changed before hurrying to work. There was a note on her desk telling her to call Marci ASAP. 
+ 
+
+===
+
+She was late getting to work on Tuesday. She'd lost track of time playing with Pete and Darin, the two boys she and Marci had hooked up with the night before and she had rushed home, showered and changed before hurrying to work. There was a note on her desk telling her to call Marci ASAP. 
 
  "Hey girlfriend, whatcha need?" 
 
@@ -3486,11 +3568,19 @@
 
  
 
- ****** The Wedding Planner Ch. 14 ****** byJust_Plain_Bob© To be continued…  
+ 
+
+===
+
+To be continued…  
 
  
 
- ****** The Wedding Planner Ch. 15 ****** byJust_Plain_Bob© Monday was a slow day and it was going to be a slow week. There were no weddings scheduled for the weekend and only three events were going to be held in the ballrooms or conference rooms. At ten Pam called her and invited her to lunch and at eleven-thirty she slid onto the seat across from Pam in the booth. After they had ordered Pam said: 
+ 
+
+===
+
+Monday was a slow day and it was going to be a slow week. There were no weddings scheduled for the weekend and only three events were going to be held in the ballrooms or conference rooms. At ten Pam called her and invited her to lunch and at eleven-thirty she slid onto the seat across from Pam in the booth. After they had ordered Pam said: 
 
  "Well, we had our talk for all the good it did." 
 
@@ -3728,7 +3818,11 @@
 
  
 
- ****** The Wedding Planner Ch. 15 ****** byJust_Plain_Bob© "You fucking bitch!" 
+ 
+
+===
+
+"You fucking bitch!" 
 
  "I know, but you are the one who made me that way. And as for being a bitch? How does this grab you. Ten minutes ago a special messenger handed a package to Miss Abigail Hodges. It contained a copy of everything that I have on your cheating ass. The reports, the video tapes, the audio tapes---all of it! Along with it there was a note that said: 
 

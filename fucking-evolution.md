@@ -1,8 +1,14 @@
+Fucking Evolution Ch. 01
+========================
 #1 
 
  
 
- ****** Fucking Evolution Ch. 01 ****** byGotBacon© Before you read this story, Please read "Fucking Evolution" in the sci-fi section. 
+ 
+
+===
+
+Before you read this story, Please read "Fucking Evolution" in the sci-fi section. 
 
  ***** 
 
@@ -612,7 +618,11 @@
 
  
 
- ****** Fucking Evolution Ch. 01 ****** byGotBacon© As she walks ahead of him toward the door, he sees a wet spot on the back of her skirt. He licks his lips. 
+ 
+
+===
+
+As she walks ahead of him toward the door, he sees a wet spot on the back of her skirt. He licks his lips. 
 
  She closes the door and immediately jumps into his arms, pressing her hot body against him. 
 
@@ -762,7 +772,11 @@
 
  
 
- ****** Fucking Evolution Ch. 02 ****** byGotBacon© Eric decides to try UCLA. 
+ 
+
+===
+
+Eric decides to try UCLA. 
 
  He finds a furnished apartment in Westwood. 
 
@@ -1398,7 +1412,11 @@
 
  
 
- ****** Fucking Evolution Ch. 02 ****** byGotBacon© He decides to go back home and get some lunch. 
+ 
+
+===
+
+He decides to go back home and get some lunch. 
 
  The next evening he knocks on J's door. 
 
@@ -1650,7 +1668,11 @@
 
  
 
- ****** Fucking Evolution Ch. 03 ****** byGotBacon© Eric is on his way to Las Vegas. 
+ 
+
+===
+
+Eric is on his way to Las Vegas. 
 
  He breaks over the hill and sees the city spread out before him. 
 
@@ -2330,7 +2352,11 @@
 
  
 
- ****** Fucking Evolution Ch. 03 ****** byGotBacon© She cums about every five minutes. 
+ 
+
+===
+
+She cums about every five minutes. 
 
  Soon she is laying like a rag doll as he keeps pounding her. 
 
@@ -2660,7 +2686,11 @@
 
  
 
- ****** Fucking Evolution Ch. 04 ****** byGotBacon© Eric is leaving Las Vegas, on his way to San Diego County. 
+ 
+
+===
+
+Eric is leaving Las Vegas, on his way to San Diego County. 
 
  South bound on I 15, he stops in Escondido for lunch. 
 
@@ -3344,7 +3374,11 @@
 
  
 
- ****** Fucking Evolution Ch. 04 ****** byGotBacon© She rolls over into his arms. 
+ 
+
+===
+
+She rolls over into his arms. 
 
  "Tell me about your idea." 
 
@@ -3842,7 +3876,11 @@
 
  
 
- ****** Fucking Evolution Ch. 05 ****** byGotBacon© Eric decides to leave San Diego and go back to Las Vegas. He checks into a different casino this time. 
+ 
+
+===
+
+Eric decides to leave San Diego and go back to Las Vegas. He checks into a different casino this time. 
 
  Last time he had good luck at the Black Jack tables so he tries them again. 
 
@@ -4336,7 +4374,11 @@
 
  
 
- ****** Fucking Evolution Ch. 05 ****** byGotBacon© "Take my cum, baby. I want it deep in you. Take it." 
+ 
+
+===
+
+"Take my cum, baby. I want it deep in you. Take it." 
 
  "I'm ready for it Daddy. I want your cum in me." 
 
@@ -4810,7 +4852,11 @@
 
  
 
- ****** Fucking Evolution Ch. 05 ****** byGotBacon© They fall, limp on the bed. He spoons her to him and she wiggles back into his embrace. 
+ 
+
+===
+
+They fall, limp on the bed. He spoons her to him and she wiggles back into his embrace. 
 
  They recover enough to walk to the bathroom They shower and come out. She goes and sits on Art's lap and hugs him. 
 
@@ -4850,7 +4896,11 @@
 
  
 
- ****** Fucking Evolution Ch. 06 ****** byGotBacon© Two weeks later he is relaxing in his room and his phone rings. 
+ 
+
+===
+
+Two weeks later he is relaxing in his room and his phone rings. 
 
  "Hello." 
 
@@ -5444,7 +5494,11 @@
 
  
 
- ****** Fucking Evolution Ch. 06 ****** byGotBacon© 'Oh. My nipples are so sensitive. It's my weak spot." 
+ 
+
+===
+
+'Oh. My nipples are so sensitive. It's my weak spot." 
 
  "Slide up here and let me suck them. I want to see how sensitive they are." 
 
@@ -5574,7 +5628,11 @@
 
  
 
- ****** Fucking Evolution Ch. 07 ****** byGotBacon© The guests begin arriving. This is high society. The men are wearing their finest tuxedos and the women are dripping diamonds. It's obvious to Eric that these women spend a lot of money keeping their bodies in good shape. He plans on sampling their wares. They look like really good breeding stock. 
+ 
+
+===
+
+The guests begin arriving. This is high society. The men are wearing their finest tuxedos and the women are dripping diamonds. It's obvious to Eric that these women spend a lot of money keeping their bodies in good shape. He plans on sampling their wares. They look like really good breeding stock. 
 
  A few catch his eye and flash him their million dollar smiles. He feels his cock tingle at the thought of breeding them. 
 
@@ -6016,7 +6074,11 @@
 
  
 
- ****** Fucking Evolution Ch. 07 ****** byGotBacon© Eric is packing his clothes and Mary and Monica come in his room. 
+ 
+
+===
+
+Eric is packing his clothes and Mary and Monica come in his room. 
 
  "Hi pretty girls. It's time to say goodbye. I have to go back to Vegas." 
 
@@ -6032,7 +6094,11 @@
 
  
 
- ****** Fucking Evolution Ch. 08 ****** byGotBacon© Eric decides head south and look for ladies at USC in Los Angeles. 
+ 
+
+===
+
+Eric decides head south and look for ladies at USC in Los Angeles. 
 
  He only wants to fuck ladies with no emotional attachment. 
 
@@ -6634,7 +6700,11 @@
 
  
 
- ****** Fucking Evolution Ch. 08 ****** byGotBacon© She grabs him around the neck and attacks his mouth. 
+ 
+
+===
+
+She grabs him around the neck and attacks his mouth. 
 
  "Let's get out of here. I have something for you to take care of." 
 
@@ -7288,7 +7358,11 @@
 
  
 
- ****** Fucking Evolution Ch. 08 ****** byGotBacon© "No no, don't leave. I'll do anything you say." 
+ 
+
+===
+
+"No no, don't leave. I'll do anything you say." 
 
  He pulls her to the middle of the bed, kneels between her legs and watches her. 
 
@@ -7890,7 +7964,11 @@
 
  
 
- ****** Fucking Evolution Ch. 08 ****** byGotBacon© "Just with you baby. Just with you." 
+ 
+
+===
+
+"Just with you baby. Just with you." 
 
  She keeps sucking till he cums for her. She swallow every drop. 
 
@@ -8558,7 +8636,11 @@
 
  
 
- ****** Fucking Evolution Ch. 08 ****** byGotBacon© "Mommy liked you cumming in her mouth." 
+ 
+
+===
+
+"Mommy liked you cumming in her mouth." 
 
  She scoots up on his chest and the kiss. 
 
@@ -8636,7 +8718,11 @@
 
  
 
- ****** Fucking Evolution ****** byGotBacon© About Adam. 
+ 
+
+===
+
+About Adam. 
 
  He is 30 years old. 
 
@@ -9134,7 +9220,11 @@
 
  
 
- ****** Fucking Evolution ****** byGotBacon© He flexes his cock again and some fluid squirt out and it covers her cervix. She screams through another orgasm, her cervix opens and he rams the final 3 inches into her womb. 
+ 
+
+===
+
+He flexes his cock again and some fluid squirt out and it covers her cervix. She screams through another orgasm, her cervix opens and he rams the final 3 inches into her womb. 
 
  He flexes again and squirts more fluid into her womb, She screams again, as another orgasm spreads through her body. 
 
@@ -9648,7 +9738,11 @@
 
  
 
- ****** Fucking Evolution ****** byGotBacon© "Let's get you dressed." 
+ 
+
+===
+
+"Let's get you dressed." 
 
  She pick up a sheer white gown and pulls it down over Sarah's beautiful body. 
 
@@ -10120,7 +10214,11 @@
 
  
 
- ****** Fucking Evolution ****** byGotBacon© "This has to go. It's blocking my view of your beautiful pussy. I want to see all of you." 
+ 
+
+===
+
+"This has to go. It's blocking my view of your beautiful pussy. I want to see all of you." 
 
  "I'll do that for you, Adam, I love the way you look at me. I can see the love in your eyes." 
 

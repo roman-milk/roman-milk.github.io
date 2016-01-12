@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Liz
+=========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Liz ****** byJust_Plain_Bob© Why do women fuck around in their own homes? I know that it is where they feel most comfortable, being in their own surroundings, but they have to know that sooner or later their significant other is going to come home or swing by the house to pick something up. 
+ 
+
+===
+
+Why do women fuck around in their own homes? I know that it is where they feel most comfortable, being in their own surroundings, but they have to know that sooner or later their significant other is going to come home or swing by the house to pick something up. 
 
  I had a night job, eleven-thirty to eight in the morning and one Friday I cut my hand on the job and I got off work early. When I pulled up at the house all the lights were on and there were several cars parked outside. I heard music and laughter and I heard a loud voice say, " God, would you look at those nipples." My wife Liz has great tits and her nipples stick out like little tiny erect cocks. Was she showing them to somebody? I decided to do a little snooping before I barged in. 
 

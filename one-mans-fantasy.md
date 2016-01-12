@@ -1,8 +1,14 @@
+One Man's Fantasy Ch. 01
+========================
 #1 
 
  
 
- ****** One Man's Fantasy Ch. 01 ****** byJust_Plain_Bob© Everyone has fantasies. Some are sexual, some are financial and some are about fame. One guy's fantasy might be to be the quarterback that leads his team into the Super Bowl and another guy's might be to be to pitch the only really perfect game -- 27 batters and 27 strike outs -- in the World Series. I used to work with a guy whose fantasy was to find a lamp at an antique store, rub it and have a genie appear so he could wish for a ten inch dick. And of course everyone fantasizes about what they would do if they hit the 217 million dollar Power Ball lottery. 
+ 
+
+===
+
+Everyone has fantasies. Some are sexual, some are financial and some are about fame. One guy's fantasy might be to be the quarterback that leads his team into the Super Bowl and another guy's might be to be to pitch the only really perfect game -- 27 batters and 27 strike outs -- in the World Series. I used to work with a guy whose fantasy was to find a lamp at an antique store, rub it and have a genie appear so he could wish for a ten inch dick. And of course everyone fantasizes about what they would do if they hit the 217 million dollar Power Ball lottery. 
 
  My fantasy was to be stranded on a deserted island with porn star Kristal Summers or be walking down a street and have a car pull over and a voice call out "Hey you!" I turn and see Kristal looking out the window smiling as she says "I want you to be in my next video." Or a knock on my door some night and when I answer it I find Kristal standing there. "My car broke down in front of your place. Can you help me?" Or....oh well, you get the idea. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** One Man's Fantasy Ch. 01 ****** byJust_Plain_Bob© Why wouldn't that work for me? I wondered how much it would take to get Kristal to be my escort for a week or two if I could even get her to consider it. It might work if I played it right, but to make sure I played it right I would need information -- lots of information. I decided on a plan of action and then I stopped and stepped back to re-evaluate. It would be costly. I knew that it would not be cheap so the question became did I really want my fantasy bad enough to spend whatever it took to make it happen? Then I asked myself how often was someone able to make their fantasy come true. In the end the decision was simple. 
+ 
+
+===
+
+Why wouldn't that work for me? I wondered how much it would take to get Kristal to be my escort for a week or two if I could even get her to consider it. It might work if I played it right, but to make sure I played it right I would need information -- lots of information. I decided on a plan of action and then I stopped and stepped back to re-evaluate. It would be costly. I knew that it would not be cheap so the question became did I really want my fantasy bad enough to spend whatever it took to make it happen? Then I asked myself how often was someone able to make their fantasy come true. In the end the decision was simple. 
 
  "Fuck it; its only money." 
 
@@ -350,7 +360,11 @@
 
  
 
- ****** One Man's Fantasy Ch. 01 ****** byJust_Plain_Bob© I faxed the outline off to Jerry and then waited to see what would happen next. 
+ 
+
+===
+
+I faxed the outline off to Jerry and then waited to see what would happen next. 
 
  x-x-x-x-x-x-x-x 
 

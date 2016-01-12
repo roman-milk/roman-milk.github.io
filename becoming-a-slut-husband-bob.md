@@ -1,8 +1,14 @@
+Becoming a Slut Husband: Bob
+============================
 #1 
 
  
 
- ****** Becoming a Slut Husband: Bob ****** byJust_Plain_Bob© I suppose that I have my wife to thank although I never will. In fact, I hope to God she never finds out because that would change things and the Good Lord knows that I don't want that to happen. 
+ 
+
+===
+
+I suppose that I have my wife to thank although I never will. In fact, I hope to God she never finds out because that would change things and the Good Lord knows that I don't want that to happen. 
 
  It started the day that I found out that my wife was an unfaithful whore. It was a story as old as time. We had planned to go someplace, something came up and I had to cancel and my wife went alone. I got loose from what I had to do and showed up just in time to see my wife go off with another man. I followed and watched as she sucked his cock, fucked him, sucked him hard and fucked him a second time. 
 

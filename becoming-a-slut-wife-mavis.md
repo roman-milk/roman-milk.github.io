@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mavis
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mavis ****** byJust_Plain_Bob© Mavis and I had been married over ten years and while we loved each other our marriage had become stale, at least in the sex department. We still made love, but it was routine - twice a week, usually on Tuesday and Friday, and only rarely more than one time. I did always manage to get her to cum, but somehow or other the spark had gone out. One day Mavis said to me: 
+ 
+
+===
+
+Mavis and I had been married over ten years and while we loved each other our marriage had become stale, at least in the sex department. We still made love, but it was routine - twice a week, usually on Tuesday and Friday, and only rarely more than one time. I did always manage to get her to cum, but somehow or other the spark had gone out. One day Mavis said to me: 
 
  "What's the matter baby, don't you find me attractive anymore?" and I assured her that I did. 
 

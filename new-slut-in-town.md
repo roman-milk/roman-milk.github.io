@@ -1,8 +1,14 @@
+New Slut In Town
+================
 #1 
 
  
 
- ****** New Slut In Town ****** byJust_Plain_Bob© My wife is the sweetest, most likeable woman in the world. She teaches Sunday school, teaches bible classes two nights a week, volunteers to work for every worthwhile charity in town and the strongest cuss word I've ever heard her utter is 'darn'. She is a great mother to our kids and has been a fabulous wife for me and I'm not kidding when I say that Marlene has absolutely no faults as a person. But not every one sees her the same way I do. You see, Marlene has a problem - she looks like a slut. 
+ 
+
+===
+
+My wife is the sweetest, most likeable woman in the world. She teaches Sunday school, teaches bible classes two nights a week, volunteers to work for every worthwhile charity in town and the strongest cuss word I've ever heard her utter is 'darn'. She is a great mother to our kids and has been a fabulous wife for me and I'm not kidding when I say that Marlene has absolutely no faults as a person. But not every one sees her the same way I do. You see, Marlene has a problem - she looks like a slut. 
 
  It's really not her fault and outside of never leaving the inside of our house there doesn't seem to be anything she can do about it. It doesn't matter how she wears her hair, what style of clothes or make up she wears she still looks like and gives off the aura of a slut. She looked like a slut in her wedding dress, she looked like a slut in her maternity clothes, and when her father died and she went to his funeral in basic black and wearing a veil she still looked like a slut. 
 

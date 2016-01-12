@@ -1,8 +1,14 @@
+Your Legs or Your Wife
+======================
 #1 
 
  
 
- ****** Your Legs or Your Wife ****** byJust_Plain_Bob© It happened so damn fast that I didn't even have time to do a thing. One minute I was watching TV and the next I was pushed against the wall and had five guys threatening to break both my legs. 
+ 
+
+===
+
+It happened so damn fast that I didn't even have time to do a thing. One minute I was watching TV and the next I was pushed against the wall and had five guys threatening to break both my legs. 
 
  I was watching Monday Night Football when the doorbell rang. I hollered for Maggie to get it, but she must not have heard me. It rang twice more and then I got up to answer it, and then - boom - I was against the wall. I was surprised, sure, but I knew what it was all about as soon as I saw Mike walk in. Attracted by all the commotion Maggie came into the room and I damn near died of embarrassment; no makeup, her hair in curlers, wearing a ragged flannel nightgown and fuzzy pink slippers. To top things off you could tell she was at least four months pregnant. 
 

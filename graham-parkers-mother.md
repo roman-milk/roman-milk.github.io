@@ -1,8 +1,14 @@
+Graham Parker's Mother
+======================
 #1 
 
  
 
- ****** Graham Parker's Mother ****** bygeronimo_appleby© OK, a quick disclaimer before you get to the scene proper. In a previous story I submitted to Illustrated -MILF Model Melody I was accused of filching photos off the internet; that is not true, I know the model depicted in the piece, as difficult as that may be to believe, and I have her permission to use the images here. 
+ 
+
+===
+
+OK, a quick disclaimer before you get to the scene proper. In a previous story I submitted to Illustrated -MILF Model Melody I was accused of filching photos off the internet; that is not true, I know the model depicted in the piece, as difficult as that may be to believe, and I have her permission to use the images here. 
 
  Seriously, believe it, I know her. If you're interested she has a website, etc. 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** Graham Parker's Mother ****** bygeronimo_appleby© "You're so fucking sexy, Mrs Parker," I gasped. 
+ 
+
+===
+
+"You're so fucking sexy, Mrs Parker," I gasped. 
 
  Melody removed the bra and carelessly flung it away across the room. "Thank you, Patrick," she said in a bright voice. "I feel sexy when you say that. I like it. But how about if I just slide my skirt off and squeeze my boobs together like this? Is that sexy too? Does that get you all excited and hot?" 
 

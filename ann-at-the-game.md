@@ -1,8 +1,14 @@
+Ann at the Game
+===============
 #1 
 
  
 
- ****** Ann at the Game ****** byJust_Plain_Bob© I pulled into the driveway, but before I could get out of the car and go to the door she came out. As I watched her walk toward the car I thought, and not for the first time, about how young, fresh, beautiful and innocent she looked. She opened the car door and slid in beside me, giving me a big beautiful smile, "Let's go. You don't want to be late," she said as I put the car in reverse and backed out of her driveway. 
+ 
+
+===
+
+I pulled into the driveway, but before I could get out of the car and go to the door she came out. As I watched her walk toward the car I thought, and not for the first time, about how young, fresh, beautiful and innocent she looked. She opened the car door and slid in beside me, giving me a big beautiful smile, "Let's go. You don't want to be late," she said as I put the car in reverse and backed out of her driveway. 
 
  Heading back to my house I considered the chain of events that ended up putting Ann on the seat next to me. My wife Brenda had been called away due to an illness in the family. She had only planned to be gone for three or four days, but two weeks had passed and she wasn't back yet. This had posed a small problem for me. The monthly poker game that was held at my place was going to take place before Brenda was going to get back. This meant that I would have no one to play the part of hostess, which meant, in turn, that I would not be able to play much because I would have to see to the refreshments, and in general, be a good host. I was moaning the blues about this to Herb when he said he might just have a solution to my problem. He was going back to Michigan to take care of some legal matters pertaining to his father's estate, but Ann was going to stay home. He said she would probably be glad to act as hostess for me just to give her something to do. He had mentioned it to her and she had called me and told me that she would love to do it. 
 

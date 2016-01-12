@@ -1,8 +1,14 @@
+The Birthday Gift Ch. 01
+========================
 #1 
 
  
 
- ****** The Birthday Gift Ch. 01 ****** byJust_Plain_Bob© It might never have happened if my wife hadn't come into my home office one day and made the comment that started it all. 
+ 
+
+===
+
+It might never have happened if my wife hadn't come into my home office one day and made the comment that started it all. 
 
  Cookie and I had been married just over twenty-one years and had one child; an eighteen-year-old daughter named Bethany. Cookie and I both worked and had done pretty well in our chosen fields and had both risen to management positions. Our combined incomes gave us enough that we were able to live a pretty comfortable life. We bought a large house on two acres and one of the first things we did was put in an in-ground swimming pool. My home office was in the back of the house and the office window over looked the pool. 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** The Birthday Gift Ch. 02 ****** byJust_Plain_Bob© I was rooted to the spot. My forty-four year old wife was on her knees with her face buried in our eighteen-year-old daughter's pussy. My daughter was sucking the cock of Tim, her nineteen-year-old boyfriend, while another young guy I didn't recognize, fucked her mother from behind. The four of them were so wrapped up in what they were doing that they weren't even aware when I opened the door and came into the room. I don't know how long I stood there staring at the tableau in front of me before I was finally noticed. 
+ 
+
+===
+
+I was rooted to the spot. My forty-four year old wife was on her knees with her face buried in our eighteen-year-old daughter's pussy. My daughter was sucking the cock of Tim, her nineteen-year-old boyfriend, while another young guy I didn't recognize, fucked her mother from behind. The four of them were so wrapped up in what they were doing that they weren't even aware when I opened the door and came into the room. I don't know how long I stood there staring at the tableau in front of me before I was finally noticed. 
 
  "Oh fuck me!" Tim moaned looking over at the door. Beth saw where he was looking and she looked over and her eyes got big and Tim's cock fell out of her mouth as she cried out, "Daddy!" That cry put the whole bunch of them in motion. Cookie's head jerked up, snapped around and I saw fear on her face. The kid fucking Cookie pulled out of her and backed away from the bed like he was trying to put as much distance between him and Cookie as possible. Tim was scrambling looking for his clothes and I just stood there and watched the pandemonium. Then I just shook my head and said, "Well happy fucking birthday to me" and I turned and left the room. 
 

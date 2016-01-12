@@ -1,8 +1,14 @@
+A Christmas Tart ... with a Heart
+=================================
 #1 
 
  
 
- ****** A Christmas Tart ... with a Heart ****** bygeronimo_appleby© A third entry from me for the Winter Holiday competition. It turned out a tad longer than anticipated, so rather than opt for the First Time category, I might plump for Novels and Novellas (6 points in the Survivor contest if I put it in N&N). We'll see where it ends up. 
+ 
+
+===
+
+A third entry from me for the Winter Holiday competition. It turned out a tad longer than anticipated, so rather than opt for the First Time category, I might plump for Novels and Novellas (6 points in the Survivor contest if I put it in N&N). We'll see where it ends up. 
 
  OK, in this one, John -- a twenty-two year old virgin -- stumps up cash for a visit to a brothel. When he gets there he gets a surprise, a very pleasant Christmas present. 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** A Christmas Tart ... with a Heart ****** bygeronimo_appleby© Jenny smiled, and to her surprise the smile came naturally, not one of her professional masks. She felt sorry for the young man who seemed so obviously agitated as he stole glances at her, thinking she didn't notice his appraisal. Her voice came out soft and soothing. "There really is nothing to worry about," she said. Jenny shifted in her seat and uncrossed her legs, drawing John's eyes to the fact of her stockings. "I'll take good care of you." He wasn't a bad looking bloke. And there was a vulnerability about him that Jenny, while not quite able to put her finger on it, not just then, found endearing. Maybe she was getting soft as middle age approached? 
+ 
+
+===
+
+Jenny smiled, and to her surprise the smile came naturally, not one of her professional masks. She felt sorry for the young man who seemed so obviously agitated as he stole glances at her, thinking she didn't notice his appraisal. Her voice came out soft and soothing. "There really is nothing to worry about," she said. Jenny shifted in her seat and uncrossed her legs, drawing John's eyes to the fact of her stockings. "I'll take good care of you." He wasn't a bad looking bloke. And there was a vulnerability about him that Jenny, while not quite able to put her finger on it, not just then, found endearing. Maybe she was getting soft as middle age approached? 
 
  Or perhaps it was just the wine. 
 
@@ -314,7 +324,11 @@
 
  
 
- ****** A Christmas Tart ... with a Heart ****** bygeronimo_appleby© "Who first, John?" Avril asked in a teasing voice. "Which one of us do you want to suck your cock first?" When John didn't respond immediately, and how could he faced with a decision like that, Avril knelt and reached for him. "I think I'll take first suck, since I'm the boss and all." She poked a pink tongue out at Jenny before, with no further preamble, she leaned in and popped the cock- head between her lips. 
+ 
+
+===
+
+"Who first, John?" Avril asked in a teasing voice. "Which one of us do you want to suck your cock first?" When John didn't respond immediately, and how could he faced with a decision like that, Avril knelt and reached for him. "I think I'll take first suck, since I'm the boss and all." She poked a pink tongue out at Jenny before, with no further preamble, she leaned in and popped the cock- head between her lips. 
 
  "Shit," grunted John, the air hissing out of him as he tore his eyes from Avril's bobbing head and stared into Jenny's face. "She's sucking me," he said, stupidly since it was plainly apparent to Jenny exactly what Avril was up to. "Can I kiss you too?" John groaned. 
 
@@ -494,7 +508,11 @@
 
  
 
- ****** A Christmas Tart ... with a Heart ****** bygeronimo_appleby© John held himself up on straight arms. He looked down to where Avril's body accommodated him, the tacky labia clinging to his greasy shaft on his outstroke as though she never wanted him to leave her. Suddenly he felt the surge of his climax. "Avril," he grunted. "I'm ..." 
+ 
+
+===
+
+John held himself up on straight arms. He looked down to where Avril's body accommodated him, the tacky labia clinging to his greasy shaft on his outstroke as though she never wanted him to leave her. Suddenly he felt the surge of his climax. "Avril," he grunted. "I'm ..." 
 
  "Pour it into me. Fill me with your seed," Avril groaned. Her hips jerked and her fingernails raked the skin of John's back as the urgency overwhelmed her. 
 

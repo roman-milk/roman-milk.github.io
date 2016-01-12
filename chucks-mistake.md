@@ -1,8 +1,14 @@
+Chuck's Mistake
+===============
 #1 
 
  
 
- ****** Chuck's Mistake ****** byJust_Plain_Bob© My marriage is over. I knew what I did was wrong and I did it anyway. I could have said no, but I didn't. I learned later that there were external forces at play, but that doesn't change the fact that I could have avoided it all if I had but chosen to do so. My big crime? I let my dick make a decision for me. 
+ 
+
+===
+
+My marriage is over. I knew what I did was wrong and I did it anyway. I could have said no, but I didn't. I learned later that there were external forces at play, but that doesn't change the fact that I could have avoided it all if I had but chosen to do so. My big crime? I let my dick make a decision for me. 
 
  +++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Chuck's Mistake ****** byJust_Plain_Bob© "Sonia told you that? She said that they had gone to that lounge looking for guys to pick up?" 
+ 
+
+===
+
+"Sonia told you that? She said that they had gone to that lounge looking for guys to pick up?" 
 
  Monroe nodded his head yes. I sat there and stared at them for maybe thirty seconds and then Stoner said that the doctor had sedated Ellie after their interview and that I probably wouldn't be able to talk to her until in the morning. After they left I sat there staring down into my coffee cup. It was maybe twenty minutes before I got up and went back to the waiting room. Sonia was still sitting there and I went over to her, took her by the arm, and then I pulled her up off her seat. 
 

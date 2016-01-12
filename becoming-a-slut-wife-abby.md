@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Abby
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Abby ****** byJust_Plain_Bob© You never know who your friends really are until you give them a chance to take advantage of you. 
+ 
+
+===
+
+You never know who your friends really are until you give them a chance to take advantage of you. 
 
  Abby and I had been married a little over ten years and it had been a great ten. The two of us always seemed to be on the same page no matter what we did. It was almost as if we could read each other's minds over a distance. An example: One morning I was getting ready to go to work and I noticed that I need new underwear. I made a mental note to pick up some the next time I went to the store. When I got home that night I found out that Abby had gone shopping and had purchased me some new briefs. She had stopped at Target to get some sheets that were on sale and for some reason that she hadn't understood she had grabbed me some underwear. Another time I was on the way home from work and instead of turning right onto our street I kept going straight. I don't know why I did it because I had no real reason not to make my turn. Whatever the reason I was almost at Safeway when I decided to turn back, but at the last minute I turned into the Safeway parking lot and went into the store. I had a sudden desire for spaghetti and meat sauce and I went inside and got the stuff I needed to make it. When I got home Abby called me on the phone just as I came in the door, "Do you mind if we go out for dinner tonight. I've had a craving for spaghetti all day and I don't have what we need to make at the house." Those are only two of the examples of how in tune with each other we are and there are many, many more. 
 

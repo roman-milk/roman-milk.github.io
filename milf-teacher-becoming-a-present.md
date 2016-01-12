@@ -1,8 +1,14 @@
+MILF Teacher: Becoming a Present
+================================
 #1 
 
  
 
- ****** MILF Teacher: Becoming a Present ****** bysilkstockingslover© SUMMARY: A widowed white straight teacher is dommed by a black teenager. 
+ 
+
+===
+
+SUMMARY: A widowed white straight teacher is dommed by a black teenager. 
 
  Note 1: This is a Christmas lesbian sub/dome story...if that offends you please quit reading. 
 
@@ -280,7 +286,11 @@
 
  
 
- ****** MILF Teacher: Becoming a Present ****** bysilkstockingslover© She pulled my panties to the side and put her big plastic cock at the entrance of my vagina. A sudden thrill weakened my knees and my resistance. My long ignored pussy was beginning to speak for me and it was quite demanding...it wanted to be fucked...hard. I didn't even know I was doing it, but I felt my body against my control, leaning back and taking the cock inside me. 
+ 
+
+===
+
+She pulled my panties to the side and put her big plastic cock at the entrance of my vagina. A sudden thrill weakened my knees and my resistance. My long ignored pussy was beginning to speak for me and it was quite demanding...it wanted to be fucked...hard. I didn't even know I was doing it, but I felt my body against my control, leaning back and taking the cock inside me. 
 
  A smug chuckle echoed behind me, reminding me instantly of my predicament. I instantly stopped the backwards motion. "What? Don't stop now, slut. You need to be fucked. You need to become my whore, a white slut for black women. Don't deny it, slut. You need me. You want me. Just bend backwards, take my cock deep inside your white slut cunt and succumb to me." 
 
@@ -538,7 +548,11 @@
 
  
 
- ****** MILF Teacher: Becoming a Present ****** bysilkstockingslover© ***** 
+ 
+
+===
+
+***** 
 
  I dressed the next day and wore the thigh highs she had requested. I was petrified at the thought of what Latoya had planned for me, yet a small part of me was intrigued and had me distracted and horny all day. Latoya gave no hints during class and once class was done she handed me a folded piece of paper and left without a word. 
 

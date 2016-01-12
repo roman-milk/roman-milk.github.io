@@ -1,8 +1,14 @@
+Clueless Henry
+==============
 #1 
 
  
 
- ****** Clueless Henry ****** byJust_Plain_Bob© Two over heard conversations led to both the best and worst times of my life. I know it sounds confusing, but then ain't that life? 
+ 
+
+===
+
+Two over heard conversations led to both the best and worst times of my life. I know it sounds confusing, but then ain't that life? 
 
  ++++++++++++++++++ 
 
@@ -262,7 +268,11 @@
 
  
 
- ****** Clueless Henry ****** byJust_Plain_Bob© It was all worked out before I left the attorney's office. Mike, Claudine and the company would all be served Friday morning. The company, in the person of Marge Bishop, the manager of Human Resources, would be served first and then Mike and then Claudine. It was set up that way in the hopes that Marge would get right on the phone to Mike and would be talking to him when the process server walked up to his desk. Mike would know who the guy was and what was going to happen to him as soon as he hung up the phone. The timing was set for eleven am since I had a standing lunch date with Claudine every Friday at noon. That way I could save a few bucks not having to buy the cunt a meal. 
+ 
+
+===
+
+It was all worked out before I left the attorney's office. Mike, Claudine and the company would all be served Friday morning. The company, in the person of Marge Bishop, the manager of Human Resources, would be served first and then Mike and then Claudine. It was set up that way in the hopes that Marge would get right on the phone to Mike and would be talking to him when the process server walked up to his desk. Mike would know who the guy was and what was going to happen to him as soon as he hung up the phone. The timing was set for eleven am since I had a standing lunch date with Claudine every Friday at noon. That way I could save a few bucks not having to buy the cunt a meal. 
 
  When I walked out of the office I saw a woman sitting in the reception area. Our eyes met and she gave me a nervous smile and looked away from me. She looked familiar to me. I'd seen her some place, but it wouldn't come to me. Oh well, stuff like that happens and I knew it would sit in the back of my mind and bug me until I could place her. 
 
@@ -424,7 +434,11 @@
 
  
 
- ****** Clueless Henry ****** byJust_Plain_Bob© "I chuckled and said, "That's the feeling I had when I saw you in my attorney's office." 
+ 
+
+===
+
+"I chuckled and said, "That's the feeling I had when I saw you in my attorney's office." 
 
  "That's right! That is where I saw you." 
 
@@ -630,7 +644,11 @@
 
  
 
- ****** Clueless Henry ****** byJust_Plain_Bob© "Just go and sit down. It will all be clear in just a minute." 
+ 
+
+===
+
+"Just go and sit down. It will all be clear in just a minute." 
 
  I went out and sat down on the couch and a couple of minutes later Tammi came into the room with a travel case. 
 

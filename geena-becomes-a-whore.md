@@ -1,8 +1,14 @@
+Geena Becomes a Whore
+=====================
 #1 
 
  
 
- ****** Geena Becomes a Whore ****** byJust_Plain_Bob© Geena had been out of sorts for almost a month and I knew that something was wrong, but every time I tried to talk to her she would tell me that nothing was wrong, she was just tired. Well I could understand that. Taking care of a full time job and two kids can do that to you. I'm sorry to say that I wasn't feeling all that sympathetic toward her problem. She didn't have to work and I hadn't wanted her to go to work, but she said that she needed to get out of the house during the day when the kids were in school. She got a job as a secretary at a firm not too far from the house and it seemed to keep her happy and when she was happy she kept me happy so I stopped arguing with her about it. 
+ 
+
+===
+
+Geena had been out of sorts for almost a month and I knew that something was wrong, but every time I tried to talk to her she would tell me that nothing was wrong, she was just tired. Well I could understand that. Taking care of a full time job and two kids can do that to you. I'm sorry to say that I wasn't feeling all that sympathetic toward her problem. She didn't have to work and I hadn't wanted her to go to work, but she said that she needed to get out of the house during the day when the kids were in school. She got a job as a secretary at a firm not too far from the house and it seemed to keep her happy and when she was happy she kept me happy so I stopped arguing with her about it. 
 
  The one thing that I didn't really like about Geena working was that one night a week she would stop after work for a drink with her coworkers. I'm not against a little social drinking, but several times Geena had come home in a condition that bordered on being drunk and I didn't like the idea of her being out there driving like that. She insisted that she was all right and promised me that she would call a cab or call me anytime she had what she considered too much. I didn't press things, which was a mistake, one of several in fact, and it was a mistake that probably ended our marriage. 
 

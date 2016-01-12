@@ -1,8 +1,14 @@
+Falling in Love with my Best Friend
+===================================
 #1 
 
  
 
- ****** Falling in Love with my Best Friend ****** bysilkstockingslover© Summary: Straight girl begins to question her sexuality. 
+ 
+
+===
+
+Summary: Straight girl begins to question her sexuality. 
 
  Note 1: This is dedicated to HOLLY who requested the true love story be told. 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** Falling in Love with my Best Friend ****** bysilkstockingslover© Once my orgasm was completed, I pulled my jeans off, took off my excessively wet panties, put on her equally wet panties, and returned to the movie. 
+ 
+
+===
+
+Once my orgasm was completed, I pulled my jeans off, took off my excessively wet panties, put on her equally wet panties, and returned to the movie. 
 
  Sitting back down beside her, I whispered in her ear, "God, you drive me wild." 
 

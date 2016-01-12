@@ -1,8 +1,14 @@
+The Patio With a View
+=====================
 #1 
 
  
 
- ****** The Patio With a View ****** byJust_Plain_Bob© I was sitting on the patio drinking a beer and looking at the snow capped mountains in the distance. It was my favorite place to sit and I was wondering how I was going to be able to keep the house in the divorce that was coming. It was going to take some creative thinking on my part, but fortunately I had time to work on the problem. 
+ 
+
+===
+
+I was sitting on the patio drinking a beer and looking at the snow capped mountains in the distance. It was my favorite place to sit and I was wondering how I was going to be able to keep the house in the divorce that was coming. It was going to take some creative thinking on my part, but fortunately I had time to work on the problem. 
 
  Kathy didn't yet know that she was going to be divorced. When I did drop the hammer on her I wanted to have all my ducks in a row. Fortunately, at least for me, we didn't live in one of those states that had those stupid no fault divorces. I could file using adultery as grounds and come out of the divorce on the plus side as far as division of assets was concerned. 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** The Patio With a View ****** byJust_Plain_Bob© It came as no surprise when Kathy called me at three and told me that she had to work late again. 
+ 
+
+===
+
+It came as no surprise when Kathy called me at three and told me that she had to work late again. 
 
  "I know it will mean leftovers again, but I will make it up to you. Keep the KY handy." 
 
@@ -382,7 +392,11 @@
 
  
 
- ****** The Patio With a View ****** byJust_Plain_Bob© "So can you give me the names?" 
+ 
+
+===
+
+"So can you give me the names?" 
 
  I was hoping that she was so hell bent on getting Kathy away from Carl that she wouldn't stop to think about it. If she was thinking straight she would ask me to tell her when and then she would make the calls and set it up for me and I didn't want that. I wanted names and numbers so I could find out who they were. She didn't disappoint me. 
 
@@ -612,7 +626,11 @@
 
  
 
- ****** The Patio With a View ****** byJust_Plain_Bob© She was silent for a bit and then she softly asked, "You aren't really going to send off those copies are you?" 
+ 
+
+===
+
+She was silent for a bit and then she softly asked, "You aren't really going to send off those copies are you?" 
 
  I got up and said, "Follow me" and I led her into the downstairs bedroom that I had turned into a home office. I showed her the box full of mailers that was on the floor next to the desk and then I pulled one out and handed it to her. She read the name and then said: 
 

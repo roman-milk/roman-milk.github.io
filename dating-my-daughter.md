@@ -1,8 +1,14 @@
+Dating My Daughter
+==================
 #1 
 
  
 
- ****** Dating My Daughter ****** byJust_Plain_Bob© Jenny found out that she liked being fucked by other men as I watched. I found out that I liked seeing Jenny fuck other men. You would think that we were a perfect match and in that you would be right, but we had a bad experience back in Detroit and it had made us very cautious. 
+ 
+
+===
+
+Jenny found out that she liked being fucked by other men as I watched. I found out that I liked seeing Jenny fuck other men. You would think that we were a perfect match and in that you would be right, but we had a bad experience back in Detroit and it had made us very cautious. 
 
  Hopefully you've already read the story "Jenny's Tape" so you are aware of what I'm talking about. To recap, Jenny allowed herself to be fucked by her sister's husband who had been video taping us making love. He kept the tape to blackmail Jenny into fucking him again, which she ended doing willingly as long as he returned the tape to her. He returned the tape but kept a copy which he showed to several friends who in turn wanted to fuck Jenny. After Ralph, her brother- in-law, arranged a surprise gang-bang we had to put a stop to our activities. Because of Ralph's being an ass-hole Jenny started getting phone calls from men wanting 'dates' and getting passes from guys every time she went somewhere. Our solution to the problem was to get out of town. I took on a job in Denver and that's where we pick up the story. 
 

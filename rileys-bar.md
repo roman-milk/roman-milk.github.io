@@ -1,8 +1,14 @@
+Riley's Bar Ch. 01
+==================
 #1 
 
  
 
- ****** Riley's Bar Ch. 01 ****** byJust_Plain_Bob© I was introduced to Riley's Tavern on my first day at Woodbine Industries. As I was dropping my time card into the slot to punch out one of the guys asked me if I was going to stop for a beer with the guys. I felt no crying need to hurry home so I said okay. He told me that the group usually stopped at Riley's and if I didn't know where it was I could follow him. I wasn't that familiar with that part of town so I followed him and it turned out that Riley's was only three blocks from the plant. 
+ 
+
+===
+
+I was introduced to Riley's Tavern on my first day at Woodbine Industries. As I was dropping my time card into the slot to punch out one of the guys asked me if I was going to stop for a beer with the guys. I felt no crying need to hurry home so I said okay. He told me that the group usually stopped at Riley's and if I didn't know where it was I could follow him. I wasn't that familiar with that part of town so I followed him and it turned out that Riley's was only three blocks from the plant. 
 
  From the outside it looked like any neighborhood bar, but looks were deceiving. Inside there was an "L" shaped bar the ran the length of the west wall and part of the south wall. The rest of the south wall was taken up by a small bandstand and a jukebox. Booths lined the north wall and part of the east wall. Part of the east wall was a recessed alcove where there were four pool tables and a hallway that led back to the restrooms. In the center of the room there was a fairly large dance floor surrounded by tables. 
 
@@ -188,7 +194,11 @@
 
  
 
- ****** Riley's Bar Ch. 01 ****** byJust_Plain_Bob© "Are you sure about this" I asked. 
+ 
+
+===
+
+"Are you sure about this" I asked. 
 
  "Yes." 
 
@@ -420,7 +430,11 @@
 
  
 
- ****** Riley's Bar Ch. 01 ****** byJust_Plain_Bob© I had given Leslie the key to my apartment and when I got the first fifteen days I called her and let her know. I knew once I got to court I was going to be there for a while and I had already set things up with Leslie. As soon as she got my call she cleaned out my apartment and put all my things in storage and then she went over to Woodbine and picked up my truck and parked it at her place. 
+ 
+
+===
+
+I had given Leslie the key to my apartment and when I got the first fifteen days I called her and let her know. I knew once I got to court I was going to be there for a while and I had already set things up with Leslie. As soon as she got my call she cleaned out my apartment and put all my things in storage and then she went over to Woodbine and picked up my truck and parked it at her place. 
 
  When I was released I called her and she came and got me. As I waited for her I read the divorce decree. I was ordered to pay court costs, twelve hundred a month in alimony and Elaine's attorney's fees. I promptly paid the court costs, but that was all I was going to pay. 
 
@@ -456,7 +470,11 @@
 
  
 
- ****** Riley's Bar Ch. 02 ****** byJust_Plain_Bob© I went over to Woodbine and talked to my old boss and he gave me a job. I had to go through the hiring process again and that meant filling out all the applications and other assorted paperwork. I didn't know if it would be caught in the office, but I thought it might be worth a try so when I got to the block where it asked for the social security number I put in the number of my Grandfather on my father's side of the family. He had been dead for three years and since I had been named after him and had the same name and he had been single when he died and no one had put in for survivor's benefits I was hoping that the Social Security Administration wouldn't notice. 
+ 
+
+===
+
+I went over to Woodbine and talked to my old boss and he gave me a job. I had to go through the hiring process again and that meant filling out all the applications and other assorted paperwork. I didn't know if it would be caught in the office, but I thought it might be worth a try so when I got to the block where it asked for the social security number I put in the number of my Grandfather on my father's side of the family. He had been dead for three years and since I had been named after him and had the same name and he had been single when he died and no one had put in for survivor's benefits I was hoping that the Social Security Administration wouldn't notice. 
 
  As long as Elaine and her lawyer didn't know where I worked (and I would do my level best to see that they never found out) he only way they could find me to garnish my wages would be through my social security number which would show that I wasn't working or if I was it was under the table somewhere for cash. If they couldn't find me, they couldn't get anything out of me. 
 
@@ -682,7 +700,11 @@
 
  
 
- ****** Riley's Bar Ch. 02 ****** byJust_Plain_Bob© "You don't ask me to have coffee with you anymore." 
+ 
+
+===
+
+"You don't ask me to have coffee with you anymore." 
 
  I didn't have an answer for that and so all I could do was shrug. Karen gave me a look that fairly screamed "Asshole" and then said: 
 
@@ -792,7 +814,11 @@
 
  
 
- ****** Riley's Bar Ch. 03 ****** byJust_Plain_Bob© For the next couple of days I was bummed at myself for not saying "Just minutes from here" that night at Denny's. When I finally became convinced that Karen wasn't going to return my calls I shook it off and looked around. Leslie had pointed me at Betsy and I thought 'why not give it a shot' to myself. I really wasn't in any mood to work hard at getting something going and Leslie had indicated that Betsy would jump at a chance to go out with me. 
+ 
+
+===
+
+For the next couple of days I was bummed at myself for not saying "Just minutes from here" that night at Denny's. When I finally became convinced that Karen wasn't going to return my calls I shook it off and looked around. Leslie had pointed me at Betsy and I thought 'why not give it a shot' to myself. I really wasn't in any mood to work hard at getting something going and Leslie had indicated that Betsy would jump at a chance to go out with me. 
 
  Tuesday Betsy and two of the other girls were already sitting at the tables with the guys from Woodbine when I got there. The seat next to Betsy was empty so I took it and joined in on the conversation. Phil got up and put some money in the jukebox and when the music started I asked Betsy if she would like to dance and she said yes. 
 
@@ -900,7 +926,11 @@
 
  
 
- ****** Riley's Bar Ch. 04 ****** byJust_Plain_Bob© Some changes took place while Betsy and I were dating. Riley's was still Riley's, but Joe no longer owned it. The divorce that happened following Joe's wife catching him buried in Karen had caused it to be sold. The new owner left things pretty much as they were, but he enlarged a storage area and made a kitchen out of it. The new name was Riley's Bar and Grill and the grill had a limited menu. Half pound ground rounds, steak sandwiches, Philly Cheese Steak sandwiches, onion rings and French fries were all that were offered. 
+ 
+
+===
+
+Some changes took place while Betsy and I were dating. Riley's was still Riley's, but Joe no longer owned it. The divorce that happened following Joe's wife catching him buried in Karen had caused it to be sold. The new owner left things pretty much as they were, but he enlarged a storage area and made a kitchen out of it. The new name was Riley's Bar and Grill and the grill had a limited menu. Half pound ground rounds, steak sandwiches, Philly Cheese Steak sandwiches, onion rings and French fries were all that were offered. 
 
  Murray, the new owner, hired a German girl to work in the kitchen and she became an instant object of lust for most of the guys who came into the bar. Tall, about five ten, built like a brick shit-house and long blond hair. She was the living image of what the Nordic Valkyries were thought to be. She was hit on constantly, but no one seemed to get anywhere with her. Probably because her English wasn't that all that good. Freda had trouble not only understanding what was being said to her, but she couldn't make herself understood either. 
 
@@ -1190,7 +1220,11 @@
 
  
 
- ****** Riley's Bar Ch. 04 ****** byJust_Plain_Bob© "I expected Leslie to be my female counterpart and keep quiet about what we did." 
+ 
+
+===
+
+"I expected Leslie to be my female counterpart and keep quiet about what we did." 
 
  "Leslie and Susan are cousins -- very close cousins. Closer than some sisters. I don't think they have any secrets from each other." 
 
@@ -1290,7 +1324,11 @@
 
  
 
- ****** Riley's Bar Ch. 05 ****** byJust_Plain_Bob© It was three days before I saw Marge again. It was a Friday night and I was out on the dance floor with Betsy when Marge and Susan came in. They sat down in a booth and as soon as the song ended I walked Betsy back to the table and then headed for the booth where Marge and Susan were sitting. 
+ 
+
+===
+
+It was three days before I saw Marge again. It was a Friday night and I was out on the dance floor with Betsy when Marge and Susan came in. They sat down in a booth and as soon as the song ended I walked Betsy back to the table and then headed for the booth where Marge and Susan were sitting. 
 
  As I walked up Marge slid over and patted the spot next to her. I slid in next to her and looked over at Susan. I already knew from what Marge had told me that as far as Susan was concerned our threesome wasn't likely to happen, but I wanted to get a dig in. I was just a little pissed that Susan had hidden from me the fact that she was married. If she and Leslie were as tight as Marge had led me to believe then Susan would have known how I felt about that. So I said: 
 
@@ -1616,7 +1654,11 @@
 
  
 
- ****** Riley's Bar Ch. 05 ****** byJust_Plain_Bob© "Gary is out of town right now, but he is supposed to be back on Thursday. He really, really wants to do the two guy one girl thing. It is set for Friday. Make sure that you load up with vitamins lover; I plan on reducing both of you to quivering wrecks." 
+ 
+
+===
+
+"Gary is out of town right now, but he is supposed to be back on Thursday. He really, really wants to do the two guy one girl thing. It is set for Friday. Make sure that you load up with vitamins lover; I plan on reducing both of you to quivering wrecks." 
 
  "This Friday? The 23rd?" 
 
@@ -1656,7 +1698,11 @@
 
  
 
- ****** Riley's Bar Ch. 06 ****** byJust_Plain_Bob© I almost smiled as the cell door clanged shut behind me. The decision on how to handle my Friday the 23rd problem had been taken out of my hands by some judge. I would be a guest of the county on Friday. In fact, being me it was almost certain that I would be a guest of the county for a while. 
+ 
+
+===
+
+I almost smiled as the cell door clanged shut behind me. The decision on how to handle my Friday the 23rd problem had been taken out of my hands by some judge. I would be a guest of the county on Friday. In fact, being me it was almost certain that I would be a guest of the county for a while. 
 
  The "failure to appear" had to be over the divorce and the papers I had thrown in the trash and I already knew that I was going to do the same thing that I had done the last time. I would keep getting hit with contempt of court until they finally got tired of me freeloading off of them. Since it was a Thursday the soonest all parties could be notified and then gathered together was Monday so I made myself comfortable and waited. 
 
@@ -1918,7 +1964,11 @@
 
  
 
- ****** Riley's Bar Ch. 06 ****** byJust_Plain_Bob© Susan mouthed "pussy" at me and so I said I'd take the pussy. "This is another first for me" Susan said, "Do you know how to do it?" 
+ 
+
+===
+
+Susan mouthed "pussy" at me and so I said I'd take the pussy. "This is another first for me" Susan said, "Do you know how to do it?" 
 
  "I've never done it before either" I said, "But I have seen it done on porn videos and I've only seen it done two ways. Cowgirl and reverse cowgirl." 
 
@@ -1954,7 +2004,11 @@
 
  
 
- ****** Riley's Bar Ch. 07 ****** byJust_Plain_Bob© When I got back to my apartment there was a message on my answering machine to call my brother. I called him and he told me that what we had talked about at the courthouse was doable and I told him to go ahead and do it. Then I went to bed and slept like a log. 
+ 
+
+===
+
+When I got back to my apartment there was a message on my answering machine to call my brother. I called him and he told me that what we had talked about at the courthouse was doable and I told him to go ahead and do it. Then I went to bed and slept like a log. 
 
  Friday was a busy day at work and even though I had my hands full trying to finish the job I was on by the end of the day I was still able to think about my evening with Susan and Gary and wonder if I would ever do something like that again. 
 
@@ -2232,7 +2286,11 @@
 
  
 
- ****** Riley's Bar Ch. 08 ****** byJust_Plain_Bob© Naturally the first thing I did when I got to Riley's the next day was corner Candy and ask her about the "shame shame" sign she'd made the night before. 
+ 
+
+===
+
+Naturally the first thing I did when I got to Riley's the next day was corner Candy and ask her about the "shame shame" sign she'd made the night before. 
 
  "What do you expect when you are messing around with a married woman? Shame shame on you." 
 
@@ -2488,7 +2546,11 @@
 
  
 
- ****** Riley's Bar Ch. 08 ****** byJust_Plain_Bob© "I get first dance Rob." 
+ 
+
+===
+
+"I get first dance Rob." 
 
  As the band started on their first tune I got up and I saw Marge shift position to make getting up easier when I came to ask her to dance, but I didn't go over to her and I wasn't looking her way to see how she took my taking Nancy out onto the floor. I danced with Nancy, Sally, Debbie and Marsha and didn't even look over at Marge and Susan. 
 
@@ -2570,7 +2632,11 @@
 
  
 
- ****** Riley's Bar Ch. 09 ****** byJust_Plain_Bob© I was curious as to what Elaine had to say that I might consider important and that curiosity got the best of me and I was reaching for the phone when it rang. It was Leslie. 
+ 
+
+===
+
+I was curious as to what Elaine had to say that I might consider important and that curiosity got the best of me and I was reaching for the phone when it rang. It was Leslie. 
 
  "I took a chance that you might be home. You doing anything tonight?" 
 
@@ -2834,7 +2900,11 @@
 
  
 
- ****** Riley's Bar Ch. 09 ****** byJust_Plain_Bob© "Three weeks ago? What happened three weeks ago?" 
+ 
+
+===
+
+"Three weeks ago? What happened three weeks ago?" 
 
  "That is when I found out about all of your visits to the motel with Montrose. Up until then we were divorced because of your affiliation with your cult. But three weeks ago I found out that you had been cheating on me even before asking for the divorce and that changed everything. You had it right when you said that you knew where I stood on cheating." 
 

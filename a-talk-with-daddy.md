@@ -1,8 +1,14 @@
+A Talk with Daddy
+=================
 #1 
 
  
 
- ****** A Talk with Daddy ****** bygeronimo_appleby© An idea came to me after reading a particular thread, so I sat down and pushed this piece out. It's a new area for me, so any purists, please, if there's any areas you see for improvement do let me know ... in a constructive way! 
+ 
+
+===
+
+An idea came to me after reading a particular thread, so I sat down and pushed this piece out. It's a new area for me, so any purists, please, if there's any areas you see for improvement do let me know ... in a constructive way! 
 
  I was also unsure in which category to place it - is BDSM a better place for this type of scene? 
 

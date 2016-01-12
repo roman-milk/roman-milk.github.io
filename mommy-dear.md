@@ -1,8 +1,14 @@
+Mommy Dear
+==========
 #1 
 
  
 
- ****** Mommy Dear ****** byJust_Plain_Bob© I hadn't seen him come in the room. Not surprising since I had a cock in my mouth and one in my pussy and I was doing my best to get the three of us off. Also there was a crowd in the room that tended to block him from my view. Besides the two I was taking care of there were five more waiting for a turn at the slut on the king-sized bed. 
+ 
+
+===
+
+I hadn't seen him come in the room. Not surprising since I had a cock in my mouth and one in my pussy and I was doing my best to get the three of us off. Also there was a crowd in the room that tended to block him from my view. Besides the two I was taking care of there were five more waiting for a turn at the slut on the king-sized bed. 
 
  Dave was sitting on the bed and I had my head in his lap while sliding up and down on Jake who was underneath me. I felt the bed shift as someone else got on it and I heard one of the guys say, "Oh man, that's sick" as one finger and then two started to probe my ass. I smiled inwardly as I said to myself, "Speak for yourself young man, I love anal sex" and I waited for the owner of those fingers to slide something bigger (I hoped) into my butt. 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** Mommy Dear ****** byJust_Plain_Bob© By the time eight o'clock rolled around I was still wanting to go again, but both boys were whipped. As I tried to coax one more hard on out of one of them I finally admitted to myself that I was going to need more that just a couple of lovers. I knew that I was going to wind up as the centerpiece in a gangbang, and I knew if I did one I would do more - lots more. All thoughts of divorcing Mike went away. I decided that the best way to get back at him was to let him support me while I gave away what he didn't want. 
+ 
+
+===
+
+By the time eight o'clock rolled around I was still wanting to go again, but both boys were whipped. As I tried to coax one more hard on out of one of them I finally admitted to myself that I was going to need more that just a couple of lovers. I knew that I was going to wind up as the centerpiece in a gangbang, and I knew if I did one I would do more - lots more. All thoughts of divorcing Mike went away. I decided that the best way to get back at him was to let him support me while I gave away what he didn't want. 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

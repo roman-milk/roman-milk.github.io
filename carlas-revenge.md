@@ -1,8 +1,14 @@
+Carla's Revenge
+===============
 #1 
 
  
 
- ****** Carla's Revenge ****** byJust_Plain_Bob© I've found out that my wife is cheating on me and so far she and Josh don't know that I know. Josh by the way is – or was – my best friend. I know, I know, it is a cliché, but clichés get to be clichés because they happen so often. 
+ 
+
+===
+
+I've found out that my wife is cheating on me and so far she and Josh don't know that I know. Josh by the way is – or was – my best friend. I know, I know, it is a cliché, but clichés get to be clichés because they happen so often. 
 
  I had no idea of how I was going to handle it. The thing was that I couldn't understand why he was fucking my wife. Don't get me wrong here; my wife is definitely a hottie. She is in her mid-thirties and even after three kids she looks hot as hell in a bikini, but his wife Carla is just as hot if not hotter. She was fairly tall at five foot seven, has red hair that hangs down to the middle of her back and has green eyes that seem to be able to look deep into your soul. I found out that she comes in at 36-23-34 and I won't deny that she turned me on. 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** Carla's Revenge ****** byJust_Plain_Bob© When the door closed Carla got up to lock the door and when she turned back to me I already had my pants and briefs off and was clearing the desk. Carla laughed and said: 
+ 
+
+===
+
+When the door closed Carla got up to lock the door and when she turned back to me I already had my pants and briefs off and was clearing the desk. Carla laughed and said: 
 
  "Eager? I like that in a man" she said as she lifted her skirt and took off her panties. 
 
@@ -466,7 +476,11 @@
 
  
 
- ****** Carla's Revenge ****** byJust_Plain_Bob© "I'd like that." 
+ 
+
+===
+
+"I'd like that." 
 
  +++++++++++++++++++++++++++ 
 

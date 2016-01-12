@@ -1,8 +1,14 @@
+Anna's Overnight
+================
 #1 
 
  
 
- ****** Anna's Overnight ****** byJust_Plain_Bob© I knew better. I'd watched friends and co-workers make the same mistake for years and I still went ahead and did it. And even though what had happened to them also happened to me, I didn't care. In fact, what had ended in divorce for most of them ended up making my marriage stronger. 
+ 
+
+===
+
+I knew better. I'd watched friends and co-workers make the same mistake for years and I still went ahead and did it. And even though what had happened to them also happened to me, I didn't care. In fact, what had ended in divorce for most of them ended up making my marriage stronger. 
 
  I am an airline employee and have been one for over thirty years. And among the lower orders (that is everyone except pilots) it is a basic article of faith that you never, and I do mean never, take up with a stew. A stew (they prefer to be called flight attendants, but no one in the industry calls them anything but stews) will break your heart - it's a given. Marry a stew and your life becomes one of misery and frustration. Let me hastily add here that it is not always the stews fault, a lot of the time it is the nature of a stews job and what that job will cause when it comes up against human nature. The nature of a stews job is travel, and in traveling she will sometimes be required to stay over night at far away cities and some times, depending on her seniority, her trips can keep her away from home for days. These things don't matter in the first year or two of marriage, while the full bloom of love clouds your mind, but eventually the green eyed monster will rear it's ugly head. She will become suspicious of what he is doing while she is gone, some times justified and some times not, or he will be the one to become suspicious of what she is doing, again some times justified and some times not. Anyway, I'd have to say that 85 to 90 percent of all the marriages that involve stews that I know of have ended in separation or divorce. 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** Anna's Overnight ****** byJust_Plain_Bob© I was quiet as I looked up at the woman I loved more than life itself - the woman who had, by her own admission, been fucking around on me all these years. What could I say that would mean anything? Lamely I said, "When did it start? When did you start fucking around on me?" 
+ 
+
+===
+
+I was quiet as I looked up at the woman I loved more than life itself - the woman who had, by her own admission, been fucking around on me all these years. What could I say that would mean anything? Lamely I said, "When did it start? When did you start fucking around on me?" 
 
  "The day we met lover. My step dad popped my cherry when I was thirteen and then he fucked me four times a day until my mother threw him out. I had my first gangbang at fourteen and when I was seventeen I fucked the whole basketball team, coaches and all, when they won the state championship. In college I was the sweetheart of half the fraternities on campus - you needed to get laid? Go see Anna, she'll help you out. Take some friends with you because she loves to fuck. When I graduated I knew I had to change my life style or I'd end up a diseased old hag so I applied for a job as a flight attendant. I figured the pilots would be married so there would be no romantic entanglements and they have yearly physicals so they would likely be disease free. If a pilot had a disease and got found out the airline would get rid of him. Hell, all of management flew before becoming management, they know what goes on out there and the last thing they would want is for disease to be passed among the crews. My very first trip the captain fucked me and I've been fucked on every trip since then. Captains, first officers, flight engineers and even some of the male flight attendants. On some occasions it was more than one of them at the same time. I love cock baby. I can't get enough!" 
 

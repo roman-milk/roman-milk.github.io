@@ -1,8 +1,14 @@
+Two For Tizzy
+=============
 #1 
 
  
 
- ****** Two For Tizzy ****** byJust_Plain_Bob© Tizzy stared at the cock that bobbed back and forth in front of her face and asked herself how she had managed to get herself in such a predicament. "Just lucky" she thought as she opened her mouth and went for the cock in front of her. Her lips closed on it just as she felt the other cock part her other set of lips and drive deep inside her. She moaned with pleasure as the two men gave her their undivided attention. She marveled at the circumstances that had brought the three of them together and she hoped to God that nothing would happen to separate them. 
+ 
+
+===
+
+Tizzy stared at the cock that bobbed back and forth in front of her face and asked herself how she had managed to get herself in such a predicament. "Just lucky" she thought as she opened her mouth and went for the cock in front of her. Her lips closed on it just as she felt the other cock part her other set of lips and drive deep inside her. She moaned with pleasure as the two men gave her their undivided attention. She marveled at the circumstances that had brought the three of them together and she hoped to God that nothing would happen to separate them. 
 
  It had started with her husband's announcement that his brother was coming to visit. Tizzy had never met any of Danny's family; they lived almost a thousand miles away and neither she nor Danny had ever been able to take time off work to go and visit. She and Danny had meet when he had come to work at the same company that she worked for. It had been love at first sight, on her part anyway, and after a whirlwind courtship they had been married at city hall by a magistrate. At first she had been overjoyed at the prospect of meeting part of Danny's family, but the joy slowly faded as she began to worry. What if he didn't like her? What if she didn't like him? Tizzy wasn't very good at family relationships; not that she'd had any to speak of. Her parents had died when she was very young and she had been raised by a series of foster parents, most of who were only interested in the payment they received for taking her in. Either that or in fucking her. One of her foster fathers had taken her virginity and he had fucked her three or four times a week for over a year until his wife caught him and threw Tizzy out of the house. She hadn't been in the house of the next set of foster parents a week before the husband pulled her into a bedroom and fucked her. She lasted six months there before they were caught and she was thrown out. 
 

@@ -1,8 +1,14 @@
+Melody Malone
+=============
 #1 
 
  
 
- ****** Melody Malone ****** byJust_Plain_Bob© I was in Los Angeles on business and one day I was in Century City for a business conference and when we broke for lunch I headed for a restaurant I'd heard about. I was walking down the street when something slammed into my shoulder and I heard a voice say: 
+ 
+
+===
+
+I was in Los Angeles on business and one day I was in Century City for a business conference and when we broke for lunch I headed for a restaurant I'd heard about. I was walking down the street when something slammed into my shoulder and I heard a voice say: 
 
  "Watch where you're going asshole." 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** Melody Malone ****** byJust_Plain_Bob© "Okay Mary, you win. My eyes are still in my head, but I seriously doubt that if I got out of bed I could walk." 
+ 
+
+===
+
+"Okay Mary, you win. My eyes are still in my head, but I seriously doubt that if I got out of bed I could walk." 
 
  "I keep telling you it is Melody now, or Mel, but not Mary." 
 

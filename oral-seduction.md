@@ -1,8 +1,14 @@
+Oral Seduction
+==============
 #1 
 
  
 
- ****** Oral Seduction ****** byBoratus© She sat impatiently in the chair. He would be here soon, entering from the door behind her. She was not to turn around. She had already unbuttoned her blouse and now played with her skirt a little. 
+ 
+
+===
+
+She sat impatiently in the chair. He would be here soon, entering from the door behind her. She was not to turn around. She had already unbuttoned her blouse and now played with her skirt a little. 
 
  How would he look? How hard would his body be? How big would his cock be? She had envisioned quite a few different men while she waited. She had imagined what he might do. Now, as she thought about it again, her hand slipped inside her skirt and began to stroke her clit lightly. She remembered her last encounter. He had been young, several years younger than her, but with youth comes stamina. They had gone at it for hours. The strokes became more aggressive. And before that one, the cock that she could barely fit into her mouth. Hmmm, she knew someday, perhaps soon, she'd have to taste him again. Her circling now, her hips began to move as well. And, of course, the one with the ripped body. Not much in the way of technique but, oh, to feel those muscles while her worked! To run her hands and mouth over that body. Yum. She shouldn't be doing this, she knew, but she had gotten so horny in waiting. 
 

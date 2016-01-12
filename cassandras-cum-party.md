@@ -1,8 +1,14 @@
+Cassandra's Cum Party
+=====================
 #1 
 
  
 
- ****** Cassandra's Cum Party ****** bygeronimo_appleby© 'Happy birthday, baby,' Martin smiled when his wife finally made her entrance. 
+ 
+
+===
+
+'Happy birthday, baby,' Martin smiled when his wife finally made her entrance. 
 
  'So,' replied Cassandra after she'd kissed her husband lightly on his cheek, 'here I am, where's the "surprise" you've been teasing me with all week?' 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** Cassandra's Cum Party ****** bygeronimo_appleby© Spurts of hot semen spattered onto Cassandra's tongue, and drops of the stuff sprayed wildly as Gary jerked his cock violently in the throes of his pleasure. Spatters of goo hit Cassandra's chest and throat as Gary's cock flicked the hot stuff here and there, leaving the woman liberally smeared with spunk after only two loads. 
+ 
+
+===
+
+Spurts of hot semen spattered onto Cassandra's tongue, and drops of the stuff sprayed wildly as Gary jerked his cock violently in the throes of his pleasure. Spatters of goo hit Cassandra's chest and throat as Gary's cock flicked the hot stuff here and there, leaving the woman liberally smeared with spunk after only two loads. 
 
  'I want to fuck,' Cassandra called out. 'I want a big cock inside me...Now!' 
 

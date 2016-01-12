@@ -1,8 +1,14 @@
+The Bad Doctor Ch. 01
+=====================
 #1 
 
  
 
- ****** The Bad Doctor Ch. 01 ****** bydlsloan© My name is Dr. Frederick Pound and I am a prick. I admit it. I'm arrogant, rich, handsome and yes, I think I'm superior to most people. I am selfish and I get what I want. And what I want more than anything else is pussy. I'm not talking about just any pussy, either. I'm talking about prime, top-of-the-line, world-class pussy. What man doesn't want that, right? So what sets me apart? I get that world-class pussy. I get an endless supply. I fuck world-class pussy an average of 10 times per day and I fuck an average of 15 different women per week. I've got it better than any rock star, movie star or athlete. Hugh Hefner's got nothing on me. 
+ 
+
+===
+
+My name is Dr. Frederick Pound and I am a prick. I admit it. I'm arrogant, rich, handsome and yes, I think I'm superior to most people. I am selfish and I get what I want. And what I want more than anything else is pussy. I'm not talking about just any pussy, either. I'm talking about prime, top-of-the-line, world-class pussy. What man doesn't want that, right? So what sets me apart? I get that world-class pussy. I get an endless supply. I fuck world-class pussy an average of 10 times per day and I fuck an average of 15 different women per week. I've got it better than any rock star, movie star or athlete. Hugh Hefner's got nothing on me. 
 
  So what's my secret? Well, I'll tell you. Not because you can do it. You can't. You're not smart enough, rich enough or virile enough to do what I do. And you're probably not devious enough, either. No, I'll tell you because, frankly, I like to brag. Told you I was a prick. 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** The Bad Doctor Ch. 01 ****** bydlsloan© "I didn't want to take the time for a wardrobe change, so I just gave you a make-shift thong. I'm sure you'll be wearing those a lot on stage, too," I said. She just nodded, as if this made perfect sense. 
+ 
+
+===
+
+"I didn't want to take the time for a wardrobe change, so I just gave you a make-shift thong. I'm sure you'll be wearing those a lot on stage, too," I said. She just nodded, as if this made perfect sense. 
 
  I kept her running like that for another five minutes. By the time I turned the machine off and let her step down, her tube top and shorts were soaked with sweat. The thin material had become semi-transparent as I knew it would, and I was getting a nice preview of her dark nipples and puffy pussy lips. Most men would have taken her right then and there, but I am a superman, remember? When you've had as much pussy as I have, you learn to wait, whet your appetite and not rush it. 
 
@@ -284,7 +294,11 @@
 
  
 
- ****** The Bad Doctor Ch. 01 ****** bydlsloan© I grabbed a spoon and began scooping spoonfuls of cum off her face. I purposely avoided her eyes, concentrating first on the areas that were probably least irritating to her -- her cheeks and forehead. This filled two spoonfuls. For each one, I instructed her to stick out her tongue and I poured the cum onto her tongue, letting her taste it before she swallowed it. I love watching women swallow my cum! 
+ 
+
+===
+
+I grabbed a spoon and began scooping spoonfuls of cum off her face. I purposely avoided her eyes, concentrating first on the areas that were probably least irritating to her -- her cheeks and forehead. This filled two spoonfuls. For each one, I instructed her to stick out her tongue and I poured the cum onto her tongue, letting her taste it before she swallowed it. I love watching women swallow my cum! 
 
  Next, I scooped the cum from her nostrils and ears, following the same tongue- out, cum-on procedure. Finally, I cleaned her eyes, which were covered by one spoonful's worth each. 
 
@@ -298,7 +312,11 @@
 
  
 
- ****** The Bad Doctor Ch. 02 ****** bydlsloan© "How are you feeling, Bunny?" I asked. "I know it's an exhausting procedure. First the various physical tests, then the fluid test and then the first injection. It's a lot to take." 
+ 
+
+===
+
+"How are you feeling, Bunny?" I asked. "I know it's an exhausting procedure. First the various physical tests, then the fluid test and then the first injection. It's a lot to take." 
 
  "Yeah," she nodded. "I'm pretty tired. I'm glad I keep in shape! So, we have seven more injections to go tonight still? I'm not sure I can handle that." 
 
@@ -444,7 +462,11 @@
 
  
 
- ****** The Bad Doctor Ch. 03 ****** bydlsloan© When we were done with dinner, I was rock hard and in serious need of a blowjob. "Get under the table and blow me," I said. She didn't question me, but simply dropped to her knees, crawled under the table and started sucking. I had both hands on the back of her head when we heard a phone ringing. I knew it wasn't mine and let her up to speak. 
+ 
+
+===
+
+When we were done with dinner, I was rock hard and in serious need of a blowjob. "Get under the table and blow me," I said. She didn't question me, but simply dropped to her knees, crawled under the table and started sucking. I had both hands on the back of her head when we heard a phone ringing. I knew it wasn't mine and let her up to speak. 
 
  "That's my cell phone," she said. "It's my mom. She always calls this time of night." 
 
@@ -552,7 +574,11 @@
 
  
 
- ****** The Bad Doctor Ch. 04 ****** bydlsloan© "How about a dip in the hot tub?" I asked, not really wanting an answer. She didn't give one as I led her out onto my deck. I had a secluded back yard - - sometimes I wished it was wide open so that the neighbors could see my conquests, but it was dark now anyway, and even with the back lights on, they wouldn't have been able to see much. 
+ 
+
+===
+
+"How about a dip in the hot tub?" I asked, not really wanting an answer. She didn't give one as I led her out onto my deck. I had a secluded back yard - - sometimes I wished it was wide open so that the neighbors could see my conquests, but it was dark now anyway, and even with the back lights on, they wouldn't have been able to see much. 
 
  We got into the tub and just relaxed for a few minutes as I pulled her close to me and let me hands play gently all over her body. She made no effort to deny me access to any part of her. Soon, I had four fingers in her cunt and my thumb in her ass as we sat and talked casually about our lives -- mine as a doctor and hers as a cheerleader-turned-stripper. She squirmed uneasily on my hand, but made no mention of what I was doing, not even when I begin twisting her nipples with my other hand. They were hard, as was her clit and I knew my little slut was warming up for a good cream. Bunny finally started humping up and down on my hand and biting my neck as she came five times. 
 
@@ -640,7 +666,11 @@
 
  
 
- ****** The Bad Doctor Ch. 05 ****** bydlsloan© I followed her up the stairs, enjoying the view of her ass and cunt right in front of my face. When we got to the bedroom, I said, "I wish I could trust you to just stay in bed with me, but I can't. So, I'm going to have to make sure you don't get any crazy ideas in the middle of the night. You're still a patient under my care, and I can't let you leave until 9 a.m. tomorrow." (I had another appointment at 9:30, but Bunny didn't know that). 
+ 
+
+===
+
+I followed her up the stairs, enjoying the view of her ass and cunt right in front of my face. When we got to the bedroom, I said, "I wish I could trust you to just stay in bed with me, but I can't. So, I'm going to have to make sure you don't get any crazy ideas in the middle of the night. You're still a patient under my care, and I can't let you leave until 9 a.m. tomorrow." (I had another appointment at 9:30, but Bunny didn't know that). 
 
  "Lay down flat on your stomach," I instructed. I took her hands and tied them behind her back with a black scarf. 
 
@@ -794,7 +824,11 @@
 
  
 
- ****** The Bad Doctor's Sweet Tooth Pt. 01 ****** bydlsloan© CHAPTER 1: CANDI COATED 
+ 
+
+===
+
+CHAPTER 1: CANDI COATED 
 
  When you are a rich doctor who also happens to have a 12-inch cock, you don't have to look that hard for hot pussy. It just has a way of finding you most of the time. 
 
@@ -986,7 +1020,11 @@
 
  
 
- ****** The Bad Doctor's Sweet Tooth Pt. 01 ****** bydlsloan© Now, as I mentioned, I cum in buckets, so her face was unrecognizable by the time I was done with it. All you could see was white globs of gooey spunk that coated her lips and eyelids, sealed her nostrils and matted her hair. When I was done, I told her to taste and swallow as much as she could. When I asked if she'd ever swallowed before, she shook her head no. 
+ 
+
+===
+
+Now, as I mentioned, I cum in buckets, so her face was unrecognizable by the time I was done with it. All you could see was white globs of gooey spunk that coated her lips and eyelids, sealed her nostrils and matted her hair. When I was done, I told her to taste and swallow as much as she could. When I asked if she'd ever swallowed before, she shook her head no. 
 
  She began by simply opening her mouth and tilting her head to let the cum run into her mouth, dropping onto her tongue in serving size portions. She collected more with her fingers, scooping it into her mouth, continuing the process until she was finally licking the last drops from her fingers. 
 
@@ -1136,7 +1174,11 @@
 
  
 
- ****** The Bad Doctor's Sweet Tooth Pt. 01 ****** bydlsloan© "Well, I wish we could help her more." 
+ 
+
+===
+
+"Well, I wish we could help her more." 
 
  "I think we can," I said. "What would you think of having a receptionist at the office?" 
 
@@ -1268,7 +1310,11 @@
 
  
 
- ****** The Bad Doctor's Sweet Tooth Pt. 02 ****** bydlsloan© CHAPTER 3: EVERYBODY NEEDS A PIECE OF CANDI 
+ 
+
+===
+
+CHAPTER 3: EVERYBODY NEEDS A PIECE OF CANDI 
 
  Dr. Virgil had made all the arrangements and Candi's father was quickly wheeled into a private room. After examining him and running some tests, they determined that he was too weak for any surgery and would need plenty of rest and treatment to build his strength. It was going to be a long road. 
 
@@ -1452,7 +1498,11 @@
 
  
 
- ****** The Bad Doctor's Sweet Tooth Pt. 02 ****** bydlsloan© That afternoon I only had follow-up appointments with existing employees of my brothers. I scheduled these to make sure I had a steady supply of pussy. After all, there wasn't a new girl every day looking for a job. So, I recycled some of my previous conquests. While these were always enjoyable – we're talking world-class babes here, so it's not like you get tired of fucking them – I decided to have some more fun with my newest employee. Her stamina at sucking cock had me intrigued. I decided to see just how long she could go. 
+ 
+
+===
+
+That afternoon I only had follow-up appointments with existing employees of my brothers. I scheduled these to make sure I had a steady supply of pussy. After all, there wasn't a new girl every day looking for a job. So, I recycled some of my previous conquests. While these were always enjoyable – we're talking world-class babes here, so it's not like you get tired of fucking them – I decided to have some more fun with my newest employee. Her stamina at sucking cock had me intrigued. I decided to see just how long she could go. 
 
  I let her go to the hospital to visit her father and then instructed her to come straight back to me. 
 

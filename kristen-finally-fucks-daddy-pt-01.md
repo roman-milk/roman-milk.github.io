@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 01
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 01 ****** byNonStopFunGuy© "Daddy!" I screamed, pulling my knees back more and feeling his incredible, throbbing erection stretching my cunt more, pushing in deeper, "fuck me, yeah Daddy, fuck me!" 
+ 
+
+===
+
+"Daddy!" I screamed, pulling my knees back more and feeling his incredible, throbbing erection stretching my cunt more, pushing in deeper, "fuck me, yeah Daddy, fuck me!" 
 
  Actually it was my two fingers -- not my father's actual penis -- doing the deed, pushing into my aching 18 year old vagina, trying to bring my aching cunt closer to a hard orgasm. My hand, arm and legs hurt from masturbating so hard, savagely pushing my fingers into myself while I had my slender legs pulled back to my small breasts. Writhing on my bed in the darkest hours of the night, my teenage lust on overdrive, I pictured what it would feel like if my sexy, handsome, adoring father was actually there -- in my bed, above me, staring down at my soft petite body, burying his massive penis into my tight, half- Asian kitty. It was a fucking awesome dream, so real and so perfect, I couldn't stop screwing myself with my two fingers until I had yet another self-induced orgasm, what would be my fourth in a row. 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 01 ****** byNonStopFunGuy© And Daddy loved it. She's young, pretty, with big tits and very tanned skin. He hadn't fucked a girl that age in -- well, I assume, a long time. Her tight velvet cunt felt wonderful; the fact a girl wanted him to fuck her, was such a satisfying feeling, given how my Mom treats him. He came so hard in Melanie's pussy. 
+ 
+
+===
+
+And Daddy loved it. She's young, pretty, with big tits and very tanned skin. He hadn't fucked a girl that age in -- well, I assume, a long time. Her tight velvet cunt felt wonderful; the fact a girl wanted him to fuck her, was such a satisfying feeling, given how my Mom treats him. He came so hard in Melanie's pussy. 
 
  I have no idea if this is how Daddy actually fucked Melanie, when those pictures were taken. But, it made total sense that it could have happened like that, just as I described. 
 

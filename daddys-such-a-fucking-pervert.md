@@ -1,8 +1,14 @@
+Daddy's Such A Fucking Pervert
+==============================
 #1 
 
  
 
- ****** Daddy's Such A Fucking Pervert ****** byNonStopFunGuy© What kind of Daddy fucks a horny and hot 18 year old, high school senior right in front of his own daughter -- and then doesn't stop, and gets his daughter to take her daddy's cock in her cunt and licking his semen out of her friend's pussy? 
+ 
+
+===
+
+What kind of Daddy fucks a horny and hot 18 year old, high school senior right in front of his own daughter -- and then doesn't stop, and gets his daughter to take her daddy's cock in her cunt and licking his semen out of her friend's pussy? 
 
  I guess I'm that kind of Daddy. My name's Danny, I'm 55, and I'm a fucking pervert. I don't mind admitting it, it's true. I ruined my first marriage -- to Chastity's mom -- because I was cheating on her constantly. Even Tiger Woods would have been proud of me, in fact. At the time, I ran a training center for under-privileged kids, and I have to say, some of their moms -- mostly Latinas and poor white women -- were usually attracted to supportive, authority-type figures (you know, who actually had jobs), as were a couple of appreciative girls when they turned 18 and got into college or got good jobs because of my center. Eventually, I even had a back room set up for sex, and I regularly used it. There'd be some days I had two or three women in it at different times, and more than a couple times where I'd have two females in it with me at the same time. One mom, a very pretty and skinny illegal immigrant who barely spoke English, even let me fuck her AND her just-turned-18 daughter back there - - that was some hot, nasty fun. 
 
@@ -84,7 +90,11 @@
 
  
 
- ****** Daddy's Such A Fucking Pervert ****** byNonStopFunGuy© The "kids" (sheesh, they were 16 to 18 year olds) had to get to bed "early," for the meet and all. By 9:30, I was alone in my hotel room, bored. Thought about driving home. Instead, got on the computer, and actually had webcam sex with my wife, Rebecca. Yeah, it happens; we'd done it before. She fucked herself with a vibrator while I jerked off, we spent about an hour masturbating for each other. I mean, I would have preferred some smoking-hot, younger bitch lying nude in bed with me, but not having any such option, my pretty wife over the Internet was a decent alternative. 
+ 
+
+===
+
+The "kids" (sheesh, they were 16 to 18 year olds) had to get to bed "early," for the meet and all. By 9:30, I was alone in my hotel room, bored. Thought about driving home. Instead, got on the computer, and actually had webcam sex with my wife, Rebecca. Yeah, it happens; we'd done it before. She fucked herself with a vibrator while I jerked off, we spent about an hour masturbating for each other. I mean, I would have preferred some smoking-hot, younger bitch lying nude in bed with me, but not having any such option, my pretty wife over the Internet was a decent alternative. 
 
  Next day, saw the team at breakfast, went to the swim meet, blah blah blah. Boring day, a very long meet. Then the team went out to dinner again, and that finished up around 8 pm. 
 
@@ -174,7 +184,11 @@
 
  
 
- ****** Daddy's Such A Fucking Pervert ****** byNonStopFunGuy© Lauren grunted, squatting down all the way, gyrating her pelvis until the hole of her cunt felt my cockhead. With a yelp she sat backwards, my fat cockhead popping into her tight, teen vagina. I thrust my pelvis up at that moment, and smelling her sexy feminine aromas while I continued kissing her neck and her slim shoulder, Lauren rocked backward to push a solid inch of my concrete penis into her sloppy twat. I couldn't see her, but past our bodies at the side of the bed, Chastity must have had a perfect view of the sex -- with my thighs parted, she was unquestionably staring at Lauren's naked ass and my erection and balls underneath it, with the top of my cock now inside Lauren's body. 
+ 
+
+===
+
+Lauren grunted, squatting down all the way, gyrating her pelvis until the hole of her cunt felt my cockhead. With a yelp she sat backwards, my fat cockhead popping into her tight, teen vagina. I thrust my pelvis up at that moment, and smelling her sexy feminine aromas while I continued kissing her neck and her slim shoulder, Lauren rocked backward to push a solid inch of my concrete penis into her sloppy twat. I couldn't see her, but past our bodies at the side of the bed, Chastity must have had a perfect view of the sex -- with my thighs parted, she was unquestionably staring at Lauren's naked ass and my erection and balls underneath it, with the top of my cock now inside Lauren's body. 
 
  "Uhhh, FUCK" I couldn't help but scream, the slut's cunt was so fucking tight! I wrapped my hands around her hips, digging my thumbs into the crack between her torso and legs, to get a good hold of her and slam her down more. I laid back, flat on the bed, staring up at her big naked boobs and gorgeous face as we began to fuck. She smiled -- she had such a friendly look, I mean, not so much horny as it was amicable. Then, in a most not-just-friends way, her face sunk down on top of mine, and her young lips were on my married mouth again, and we began licking each other's tongues and French kissing once more. Girl couldn't suck cock good, but she could kiss great. Moaning into our kiss, our lips slurped on each other while she began humping me, her ass rising and lowering, pushing more and more of my dick into her cunt. Her firm ass was thrusting powerfully, her legs were really strong from being a swimmer, and even though her cunt was tight as a vice, she soon had most of my seven inches of adult meet inside her high school cunt. 
 
@@ -256,7 +270,11 @@
 
  
 
- ****** Daddy's Such A Fucking Pervert ****** byNonStopFunGuy© Laughter is what came out of me; it was amazing, fucking my princess. I'd raised her when she was little, until she was a pre-teenager; now, she was with me as an 18 year old, but not a daughter so much as a slut who wanted my dick. This was fucking awesome! Yeah, what a pervert I am -- and I proudly admit I loved fucking my daughter! 
+ 
+
+===
+
+Laughter is what came out of me; it was amazing, fucking my princess. I'd raised her when she was little, until she was a pre-teenager; now, she was with me as an 18 year old, but not a daughter so much as a slut who wanted my dick. This was fucking awesome! Yeah, what a pervert I am -- and I proudly admit I loved fucking my daughter! 
 
  So did Lauren. I looked at the naked blonde, she and I smiling in unison, and I put the question to her. "You like seeing me fucking my own daughter?" 
 

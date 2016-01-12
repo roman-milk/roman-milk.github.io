@@ -1,8 +1,14 @@
+Aggie's Condition
+=================
 #1 
 
  
 
- ****** Aggie's Condition ****** byJust_Plain_Bob© There is wife watching and then there is wife watching. They sound the same, but they are way different. The first one for example, is watching your wife spread herself for some one else while you either participate or hide in the closet. The second one is watching some one else's wife do the same thing while hiding in the closet. I've done both and I loved doing both; I just hope that I'll be able to do it again. 
+ 
+
+===
+
+There is wife watching and then there is wife watching. They sound the same, but they are way different. The first one for example, is watching your wife spread herself for some one else while you either participate or hide in the closet. The second one is watching some one else's wife do the same thing while hiding in the closet. I've done both and I loved doing both; I just hope that I'll be able to do it again. 
 
  I've been watching my wife Aggie (don't dare call her Agnes) for years now, sometimes from the closet, sometimes from a chair next to the bed, and sometimes I'm in one hole while someone else is in another. I found out early on in our marriage that no one man was ever going to be enough for Aggie. Remember the ugly duckling story? One day an ugly little thing and the next day a beautiful swan? That is similar to Aggie in that one day she was a virgin and the day after we consummated our marriage vows she was a nymphomaniac. 
 

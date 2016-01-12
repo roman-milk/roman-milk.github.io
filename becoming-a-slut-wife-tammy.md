@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Tammy
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Tammy ****** byJust_Plain_Bob© This is just what the world needs - another slut wife story. This one is different though; the others all happened to someone else, this one is mine. 
+ 
+
+===
+
+This is just what the world needs - another slut wife story. This one is different though; the others all happened to someone else, this one is mine. 
 
  * 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Becoming A Slut Wife: Tammy ****** byJust_Plain_Bob© "Was making me a shared wife his idea or yours?" 
+ 
+
+===
+
+"Was making me a shared wife his idea or yours?" 
 
  "His. He told me about his fantasies and I took one look at you and agreed to help him if I could." 
 
@@ -416,7 +426,11 @@
 
  
 
- ****** Becoming A Slut Wife: Tammy ****** byJust_Plain_Bob© The third day when we went to bed Barney snuggled up to me spoon fashion and I felt his hard cock poking me in the butt. His hands came around me and he cupped my breasts. It was his usual way of telling me he wanted to make love. As hot and horny as I had been with my thoughts over the last two days there was no way I was going to say no, but I could not resist taking a shot at him. 
+ 
+
+===
+
+The third day when we went to bed Barney snuggled up to me spoon fashion and I felt his hard cock poking me in the butt. His hands came around me and he cupped my breasts. It was his usual way of telling me he wanted to make love. As hot and horny as I had been with my thoughts over the last two days there was no way I was going to say no, but I could not resist taking a shot at him. 
 
  "Are you sure you want to fuck this slutty whore of yours? How about I go over to Stan's and fuck him and bring you back some sloppy seconds?" 
 

@@ -1,8 +1,14 @@
+A Driving Lesson
+================
 #1 
 
  
 
- ****** A Driving Lesson ****** bygeronimo_appleby© Again this one is a short stroker. The brevity is due to the story being written to a word count; so if you're expecting to one of my longer ones (no pun) I apologise for this being so brief in comparison. 
+ 
+
+===
+
+Again this one is a short stroker. The brevity is due to the story being written to a word count; so if you're expecting to one of my longer ones (no pun) I apologise for this being so brief in comparison. 
 
  Anyway, it's a Daddy/Daughter deal this time that I hope you enjoy. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** A Driving Lesson ****** bygeronimo_appleby© Natasha's hips bucked and she gasped and her head lolled back, the blonde ponytail brushing the grass. 
+ 
+
+===
+
+Natasha's hips bucked and she gasped and her head lolled back, the blonde ponytail brushing the grass. 
 
  By then Barry Laker was sucking his daughter's clitoris. He was mindless to the morality, careless to the future, his daughter was beautiful and young and vibrant and so incredibly hot that desire for her superseded any other emotion. He was so aroused by her that logical thought would only return when that white ball of flaming lust had burned itself out. Barry would only truly realise what he had done when the monster had gorged on incest. 
 

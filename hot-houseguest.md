@@ -1,8 +1,14 @@
+Hot Houseguest
+==============
 #1 
 
  
 
- ****** Hot Houseguest ****** bygeronimo_appleby© 01 
+ 
+
+===
+
+01 
 
  My wife Elaine is one of those people that other people are naturally drawn to. Everyone she meets comments on how nice she is, how caring; she's even been described as 'a breath of fresh air' by one of her friend's mothers'. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** Hot Houseguest ****** bygeronimo_appleby© 'I love you,' I whispered to Elaine, the power of my emotion spilling over for a moment. 
+ 
+
+===
+
+'I love you,' I whispered to Elaine, the power of my emotion spilling over for a moment. 
 
  'I love you too,' Elaine replied. 'I have something for you,' she continued, an impish smile on her lips as she rose from the sofa. 'Wait here, I'll be right back.' 
 

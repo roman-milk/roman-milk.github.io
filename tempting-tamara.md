@@ -1,8 +1,14 @@
+Tempting Tamara
+===============
 #1 
 
  
 
- ****** Tempting Tamara ****** bygeronimo_appleby© "Where the bloody hell are we?" Tamara looked across the divide between the front seats. 
+ 
+
+===
+
+"Where the bloody hell are we?" Tamara looked across the divide between the front seats. 
 
  Her husband turned to face her, "Nearly there." He focussed on driving again. 
 

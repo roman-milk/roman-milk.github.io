@@ -1,8 +1,14 @@
+What I Did On My Christmas Vacation
+===================================
 #1 
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© What I Did On My Christmas Vacation 
+ 
+
+===
+
+What I Did On My Christmas Vacation 
 
  by Tx Tall Tales © 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© So I explained. I told her what I'd accidentally overheard. How I had found out the ugly truth. 
+ 
+
+===
+
+So I explained. I told her what I'd accidentally overheard. How I had found out the ugly truth. 
 
  She was quiet. "You're in Dallas, aren't you?" 
 
@@ -480,7 +490,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© I'm not warped or anything. My sister deserved better, that's all. She never let it get her down, she trudged along, putting on her happy face, dealing with life as it hammered her. Dad's death, her leg injuries, the therapy, the bullying. As she got older, she had her friends, but not much luck with guys. Acne kicked in when she was 16, if life wasn't already tough enough for her. By the time it cleared up, I was gone, so I didn't have that good of an idea what the last couple of years were like for her. 
+ 
+
+===
+
+I'm not warped or anything. My sister deserved better, that's all. She never let it get her down, she trudged along, putting on her happy face, dealing with life as it hammered her. Dad's death, her leg injuries, the therapy, the bullying. As she got older, she had her friends, but not much luck with guys. Acne kicked in when she was 16, if life wasn't already tough enough for her. By the time it cleared up, I was gone, so I didn't have that good of an idea what the last couple of years were like for her. 
 
  When she got home that night, she was broken, in tears, sobbing her eyes out. I felt too awkward to get involved, and let Mom take her in the back and commiserate with her. 
 
@@ -690,7 +704,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© She sighed. "It's not like I've got a lot of choices, Travis. They're not beating the door down coming for me." I felt her tighten up. "Even Kyle, that asshole, he didn't want me. It was a bet. A stupid bet." 
+ 
+
+===
+
+She sighed. "It's not like I've got a lot of choices, Travis. They're not beating the door down coming for me." I felt her tighten up. "Even Kyle, that asshole, he didn't want me. It was a bet. A stupid bet." 
 
  "A bet?" 
 
@@ -1018,7 +1036,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© I don't think Mom noticed that she was a lot more intimate than usual while taking care of me. Probably considered it part of the appreciation. 
+ 
+
+===
+
+I don't think Mom noticed that she was a lot more intimate than usual while taking care of me. Probably considered it part of the appreciation. 
 
  The next day I was sore, and stayed in bed with an icepack on my cheek and lip. Once Mom was gone, Teri showed up in my room dressed in a t-shirt and panties. She checked on my bruises, kissing my injuries. The kisses moved to my lips. "Thank you. You didn't have to, you know." 
 
@@ -1296,7 +1318,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© "I couldn't let him get off scot-free, Mom. I couldn't let him hurt Teri like that. I couldn't. I'm sorry." 
+ 
+
+===
+
+"I couldn't let him get off scot-free, Mom. I couldn't let him hurt Teri like that. I couldn't. I'm sorry." 
 
  "No, I understand. You're the man of the house, and it's up to you to watch over us. Your dad would be proud." She gave me a kiss on the cheek, and stood up. "Time to get dressed. Church in less than an hour." 
 
@@ -1564,7 +1590,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© Mom looked unconvinced. "He was touching you," Mom mumbled. 
+ 
+
+===
+
+Mom looked unconvinced. "He was touching you," Mom mumbled. 
 
  "His touch is amazing, Mom. You have no idea. He can make me come and come. His mouth is incredible. Sex is awesome!" Teri laughed. 
 
@@ -1856,7 +1886,11 @@
 
  
 
- ****** What I Did On My Christmas Vacation ****** byTx_Tall_Tales© I checked the clock and we'd been at it over half an hour already. That was fine. It's not like we didn't have time. 
+ 
+
+===
+
+I checked the clock and we'd been at it over half an hour already. That was fine. It's not like we didn't have time. 
 
  I pressed my lips to Mom's ear, while I did the circles. "You know I have to fuck you, don't you? Not tonight. Not until I have you coming like Teri. But I'm going to fuck you. I'm going to fuck you hard, and make that hot little pussy come all over my cock." 
 

@@ -1,8 +1,14 @@
+Just Another Day at the Office
+==============================
 #1 
 
  
 
- ****** Just Another Day at the Office ****** byJust_Plain_Bob© She turned off the street into her driveway and pressed the button on her garage door opener. The door slid up to reveal that her husband's car was already in the garage. She wondered how long he had been home. Must be nice to have a decent nine to five job; no late hours, no travel, just in at nine and out by five. She realized that it was unfair of her to feel so bitter that Howard had it so easy. He had what he wanted, was happy with it and it wasn't his fault that she had a strong desire to climb the corporate ladder. Her goal was to become XYZ's first female vice president and if it took long hours, late nights and out of town business trips so be it. She would do whatever she had to do to reach her goal. 
+ 
+
+===
+
+She turned off the street into her driveway and pressed the button on her garage door opener. The door slid up to reveal that her husband's car was already in the garage. She wondered how long he had been home. Must be nice to have a decent nine to five job; no late hours, no travel, just in at nine and out by five. She realized that it was unfair of her to feel so bitter that Howard had it so easy. He had what he wanted, was happy with it and it wasn't his fault that she had a strong desire to climb the corporate ladder. Her goal was to become XYZ's first female vice president and if it took long hours, late nights and out of town business trips so be it. She would do whatever she had to do to reach her goal. 
 
  She hadn't ever intended that her drive to succeed would poison her marriage, but it had and she didn't understand why. It was never any secret to Howard that she intended to succeed in business. When he had proposed she had said yes, but she had also said that they would have to wait until she finished her MBA program. She had made no bones about it to him - she was not going to be a stay at home housewife and she had made doubly sure that he understood that children were not an option. She had no intension of being held back by the clutching hands of babies. He knew what her goals were before either one of them said "I do." 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Just Another Day at the Office ****** byJust_Plain_Bob© "Hurry, please hurry. I need it, I need it bad." 
+ 
+
+===
+
+"Hurry, please hurry. I need it, I need it bad." 
 
  They were gasping for breath when she heard the door open and then close. She looked over and saw Matt unzipping himself. 
 

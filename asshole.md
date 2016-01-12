@@ -1,8 +1,14 @@
+Asshole Ch. 01
+==============
 #1 
 
  
 
- ****** Asshole Ch. 01 ****** byJust_Plain_Bob© It has taken me years to learn to accept my lot in life. I've been called an asshole ever since junior high and I used to take great exception to it. More than a few fights came of it, but as I grew older I learned that it was stupid to get into a fight with someone just because he made a true statement. I am an asshole. How big an asshole you ask? Well, how big of an asshole is someone who seduces his brother's wife less than a month after the wedding ceremony? How big of an asshole are you if you start fucking the woman your dad is going to marry a good two months before they take their vows? That's how big of an asshole I am. 
+ 
+
+===
+
+It has taken me years to learn to accept my lot in life. I've been called an asshole ever since junior high and I used to take great exception to it. More than a few fights came of it, but as I grew older I learned that it was stupid to get into a fight with someone just because he made a true statement. I am an asshole. How big an asshole you ask? Well, how big of an asshole is someone who seduces his brother's wife less than a month after the wedding ceremony? How big of an asshole are you if you start fucking the woman your dad is going to marry a good two months before they take their vows? That's how big of an asshole I am. 
 
  Fucking Mary and Elise wasn't something that just happened, I wanted both of them and I set out to get them. I figured Mary would be the hardest, her being an older woman embarking on her second marriage, wise in the ways of the world. Boy, was I ever wrong! I am still not sure whether I got her or she got me. Not that it matters. The bottom line is that we both are getting what we want, and on a regular basis. Getting Elise wasn't much harder and I'm happy to be able to say that both were worth whatever effort that it took. 
 
@@ -90,7 +96,11 @@
 
  
 
- ****** Asshole Ch. 02 ****** byJust_Plain_Bob© Compared to Mary (who really wasn't all that hard) getting to Elise was a piece of cake. About three weeks after my brother George married Elise, he had to go out of town on business. He asked me to look in on her from time to time to make sure she was all right and to do whatever I could for her if she needed help. 
+ 
+
+===
+
+Compared to Mary (who really wasn't all that hard) getting to Elise was a piece of cake. About three weeks after my brother George married Elise, he had to go out of town on business. He asked me to look in on her from time to time to make sure she was all right and to do whatever I could for her if she needed help. 
 
  The first day he was gone I called Elise and asked her to have dinner with me ("I know how lonely you must be this being your first separation, yadda, yadda, yadda) and she agreed. I took her to a place where they had good food and a dance band. I kept her wineglass full all through dinner and by the time we had finished eating she had quite a buzz on. She readily agreed when I asked her if she would like to stay awhile for some dancing and I ushered her to a table in a fairly dark corner of the club. Elise started drinking vodka tonics and every time she would get up to go to the ladies room I'd get her another double. 
 

@@ -1,8 +1,14 @@
+Amanda Guesses Wrong
+====================
 #1 
 
  
 
- ****** Amanda Guesses Wrong ****** byJust_Plain_Bob© I looked at her like she was some alien life form as my mind digested what she'd said to me over dinner. She had waited until the fresh baked apple pie was cut and then she had hit me with it. 
+ 
+
+===
+
+I looked at her like she was some alien life form as my mind digested what she'd said to me over dinner. She had waited until the fresh baked apple pie was cut and then she had hit me with it. 
 
  "There is no easy way for me to do this so I'll go right at it. The kids are gone. I've been a damned good wife, mother and homemaker for the last twenty- four years. I've put you, the kids and the home ahead of everything and I've decided that it is time to do some things for myself. I'm forty-five and still reasonably attractive and I need to do it while I still have the goods. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** Amanda Guesses Wrong ****** byJust_Plain_Bob© As I climbed into bed I did wonder if Amanda was telling the truth. It was possible, but I couldn't be sure and that was the killer - the fact that I couldn't be sure. Then I had a thought. It was a little out there, but it could work. It was a long shot, but it wouldn't cost me a thing to try it. I got up and got my cell phone. Since Amanda spent so much time with Sally I had Sally on speed dial in case I needed to get in touch with Amanda. 
+ 
+
+===
+
+As I climbed into bed I did wonder if Amanda was telling the truth. It was possible, but I couldn't be sure and that was the killer - the fact that I couldn't be sure. Then I had a thought. It was a little out there, but it could work. It was a long shot, but it wouldn't cost me a thing to try it. I got up and got my cell phone. Since Amanda spent so much time with Sally I had Sally on speed dial in case I needed to get in touch with Amanda. 
 
  I called Sally and when she answered I told her I needed a big favor. 
 

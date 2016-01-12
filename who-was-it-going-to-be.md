@@ -1,8 +1,14 @@
+Who Was It Going To Be?
+=======================
 #1 
 
  
 
- ****** Who Was It Going To Be? ****** byJust_Plain_Bob© I was in the supply room down behind the copier trying to clear a paper jam when Bill and Henry came into the room for something. Since I really don't like Henry I didn't stand up and say, "Hi guys" so they didn't know I was there. They had been talking when they walked into the room so I didn't know who they were talking about, but the gist of the conversation was clear enough -they were planning on fucking some one's wife. Curiosity grabbed me and I kept very quiet so they wouldn't know I was there. Hopefully I could find out more. 
+ 
+
+===
+
+I was in the supply room down behind the copier trying to clear a paper jam when Bill and Henry came into the room for something. Since I really don't like Henry I didn't stand up and say, "Hi guys" so they didn't know I was there. They had been talking when they walked into the room so I didn't know who they were talking about, but the gist of the conversation was clear enough -they were planning on fucking some one's wife. Curiosity grabbed me and I kept very quiet so they wouldn't know I was there. Hopefully I could find out more. 
 
  "So you don't think she'll be a problem?" asked Bill. 
 

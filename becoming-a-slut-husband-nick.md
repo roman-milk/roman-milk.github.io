@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Nick
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Nick ****** byJust_Plain_Bob© Don't get me wrong here, I love my wife, I do, I really do, but sometimes circumstances lead you into things you never expect. I mean I never expected to lose my job. I never expected that I would end up a "Mr. Mom" and I sure as hell never expected that I would come to be considered the neighborhood stud. 
+ 
+
+===
+
+Don't get me wrong here, I love my wife, I do, I really do, but sometimes circumstances lead you into things you never expect. I mean I never expected to lose my job. I never expected that I would end up a "Mr. Mom" and I sure as hell never expected that I would come to be considered the neighborhood stud. 
 
  +++++++++++++++++++++++++++++++++++++++++ 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** Becoming A Slut Husband: Nick ****** byJust_Plain_Bob© I was not used to it. Dani was not a quiet fuck, but with her it was moans, groans, grunts, yells and screams, but never words. Maxine moaned, yelled and screamed, but as far as words went it was never more than, "Oh yes lover, oh yes" or "Oh God, Oh God" and then just before she came she would yell, "I'm cumming, I'm cumming." With Tabitha it was all over the spectrum. "Fuck me hard, shove your cock deep in me, make me cum. Slam your cock in me baby and get me off. Get me off baby, get me off." 
+ 
+
+===
+
+I was not used to it. Dani was not a quiet fuck, but with her it was moans, groans, grunts, yells and screams, but never words. Maxine moaned, yelled and screamed, but as far as words went it was never more than, "Oh yes lover, oh yes" or "Oh God, Oh God" and then just before she came she would yell, "I'm cumming, I'm cumming." With Tabitha it was all over the spectrum. "Fuck me hard, shove your cock deep in me, make me cum. Slam your cock in me baby and get me off. Get me off baby, get me off." 
 
  I did what she asked and I pounded her as hard as I could until she started screaming, "Oh yes, oh yes, oh fuck yes." Her body shook like a dog shitting peach pits and then she fell limp onto the bed and just lay there with her eyes closed as I took three or four more strokes and then emptied myself. I pulled out and then she opened her eyes and looked up at me and said: 
 

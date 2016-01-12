@@ -1,8 +1,14 @@
+The Racist
+==========
 #1 
 
  
 
- ****** The Racist ****** byJust_Plain_Bob© I looked down on her and listened to her deep breathing as she slept. Lord Almighty how in the world had I let this happen? I was a married man and I loved my wife, I truly did, and yet here I was with another woman and a married one at that. I know that I started what led us to this point, but this had never been my intention. But I wasn't sorry. As my eyes followed the line of her breast, the curve leading to her hip and then feasted on that tight little ass I was not sorry at all. 
+ 
+
+===
+
+I looked down on her and listened to her deep breathing as she slept. Lord Almighty how in the world had I let this happen? I was a married man and I loved my wife, I truly did, and yet here I was with another woman and a married one at that. I know that I started what led us to this point, but this had never been my intention. But I wasn't sorry. As my eyes followed the line of her breast, the curve leading to her hip and then feasted on that tight little ass I was not sorry at all. 
 
  Lativa was a roaring pain in the ass. Nobody, and I do mean nobody, liked working with her. There were a lot of hard workers in our division and what they all worked hardest at was seeing that they didn't get paired with her on assignments and projects. Not that Lativa was ugly or stupid because she wasn't. She was good looking, hard working and very smart and projects that had Lativa's involvement were invariably successful. Nobody wanted to work with Lativa because she was black and had an attitude. Don't get me wrong, it wasn't the black part that made people avoid her, it was the Black With Attitude. You couldn't be in Lativa's presence for more than five minutes without hearing about the white oppression of the black man. How the white man had his foot on the neck of the black man and was holding him down. How those few who had pulled themselves up had done so in the face of fierce white resistance. Point to Colin Powell or Condolesa Rice and she would sneer and say that they were tokens; they were allowed to be there to make blacks think that progress was being made. 
 

@@ -1,8 +1,14 @@
+TxQ - The Temp
+==============
 #1 
 
  
 
- ****** TxQ - The Temp ****** byTx_Tall_Tales© ====================== 
+ 
+
+===
+
+====================== 
 
  My office Angel shows me her devilish side. 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** TxQ - The Temp ****** byTx_Tall_Tales© What if? What if? 
+ 
+
+===
+
+What if? What if? 
 
  What if I let her live the life she deserved, with someone who would treat her like the Angel she was, and enjoy the Devil she could become? What if I lived with the memory of a unique, incredible and memorable experienced, knowing I'd done the right thing, for once? The hardest thing I've ever done. 
 

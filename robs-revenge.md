@@ -1,8 +1,14 @@
+Rob's Revenge Ch. 01
+====================
 #1 
 
  
 
- ****** Rob's Revenge Ch. 01 ****** byJust_Plain_Bob© I picked her up at the apartment that she shared with two other girls and we went out for dinner, drinks and dancing. She seemed a little nervous when she got into the car and I put it down to the fact that this was the first time I had picked her up instead of meeting her some place. I got the feeling that from the way she was acting that she was afraid of being seen with me and I asked her about it as I pulled away from the curb. 
+ 
+
+===
+
+I picked her up at the apartment that she shared with two other girls and we went out for dinner, drinks and dancing. She seemed a little nervous when she got into the car and I put it down to the fact that this was the first time I had picked her up instead of meeting her some place. I got the feeling that from the way she was acting that she was afraid of being seen with me and I asked her about it as I pulled away from the curb. 
 
  "It's my dad. He has been asking Gwen and Harriet (her roommates) about what I've been doing and who I've been seeing. Gwen even told me that he is paying part of her rent to keep an eye on me. If he's paying Gwen he is probably paying Harriet also." 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** Rob's Revenge Ch. 01 ****** byJust_Plain_Bob© +++++++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++++++ 
 
  Everything changed. Sammi dropped out of school and just laid around the apartment and didn't do anything and by that I mean she didn't do anything at all. She didn't clean the apartment. She didn't cook any meals. She didn't take care of herself and she didn't have anything to do with me. She wouldn't talk to me and she kept herself as far away from me as she could which is no easy feat in a two bedroom apartment. I kept asking her what was wrong and she kept saying: 
 
@@ -414,7 +424,11 @@
 
  
 
- ****** Rob's Revenge Ch. 01 ****** byJust_Plain_Bob© "Mr. Walton?" 
+ 
+
+===
+
+"Mr. Walton?" 
 
  "Yes." 
 
@@ -476,7 +490,11 @@
 
  
 
- ****** Rob's Revenge Ch. 02 ****** byJust_Plain_Bob© The next two years flew by. I was doing well in my classes and I made a lot of friends. I didn't join a fraternity, but I knew lots of guys who did belong and occasionally I would get invited to a party at a frat house. I was at one of those parties at the Phi Delta house when fate smiled upon me. 
+ 
+
+===
+
+The next two years flew by. I was doing well in my classes and I made a lot of friends. I didn't join a fraternity, but I knew lots of guys who did belong and occasionally I would get invited to a party at a frat house. I was at one of those parties at the Phi Delta house when fate smiled upon me. 
 
  I was at the beer keg getting my cup refilled when Sammy Bealer said: 
 
@@ -732,7 +750,11 @@
 
  
 
- ****** Rob's Revenge Ch. 02 ****** byJust_Plain_Bob© It was all a shock to me, but the biggest shock to me was finding out something that never in my wildest imagination would I have thought. The baby that Samantha had been carrying was not mine. The baby had been black. Suddenly I remembered the looks of pity that I had gotten from the workers at the hospital. It wasn't because Samantha couldn't have any more children. It was because they pitied the poor clueless husband. 
+ 
+
+===
+
+It was all a shock to me, but the biggest shock to me was finding out something that never in my wildest imagination would I have thought. The baby that Samantha had been carrying was not mine. The baby had been black. Suddenly I remembered the looks of pity that I had gotten from the workers at the hospital. It wasn't because Samantha couldn't have any more children. It was because they pitied the poor clueless husband. 
 
  I was sitting there staring at the report when Barrington came back into the room. He sat down opposite me and then sat there watching me. After a bit he said: 
 
@@ -934,7 +956,11 @@
 
  
 
- ****** Rob's Revenge Ch. 02 ****** byJust_Plain_Bob© At the end of the third week came the expected invitation. We were having dinner at my place when Connie said: 
+ 
+
+===
+
+At the end of the third week came the expected invitation. We were having dinner at my place when Connie said: 
 
  "Mom and dad would like you to come to dinner Friday." 
 
@@ -1018,7 +1044,11 @@
 
  
 
- ****** Rob's Revenge Ch. 03 ****** byJust_Plain_Bob© Over the next two days I revisited the houses I was interested in and finally decided on a three bedroom ranch with an attached three car garage, an in- ground swimming pool and a hot tub. I put a hundred-fifty thousand down on it which just about knocked the socks off of the real estate agent. I had already arranged for the bank where I had my accounts to finance the house I picked and I figured that we would close in thirty days or so. 
+ 
+
+===
+
+Over the next two days I revisited the houses I was interested in and finally decided on a three bedroom ranch with an attached three car garage, an in- ground swimming pool and a hot tub. I put a hundred-fifty thousand down on it which just about knocked the socks off of the real estate agent. I had already arranged for the bank where I had my accounts to finance the house I picked and I figured that we would close in thirty days or so. 
 
  Samantha's mother told me that she didn't want any of Samantha's stuff so I went to the storage unit and dug through everything there to sort it out for Goodwill and a couple of other charitable organizations and in the course of digging I found out another lie that Samantha had told me. She said Barrington was going to give her twenty-five thousand for what she had been doing. I found two bank books with over eighty grand between them. Samantha told me she was trying to get the twenty five thousand so we could put a down payment on a house. If she was looking down or up from wherever she was she couldn't miss the smile on my face. She had just paid off my new house. I'd move into it free and clear. 
 
@@ -1282,7 +1312,11 @@
 
  
 
- ****** Rob's Revenge Ch. 03 ****** byJust_Plain_Bob© "I thought you were gone." 
+ 
+
+===
+
+"I thought you were gone." 
 
  "Changed my mind. I saw a doctor this morning and for a thousand dollars he promised me an expedited test. He said I should hear late Wednesday or early Thursday." 
 
@@ -1602,7 +1636,11 @@
 
  
 
- ****** Rob's Revenge Ch. 03 ****** byJust_Plain_Bob© "You do of course realize that all this talk about sex has gotten me horny and you have your work cut out for you as soon as we get home." 
+ 
+
+===
+
+"You do of course realize that all this talk about sex has gotten me horny and you have your work cut out for you as soon as we get home." 
 
  "I can live with that." 
 

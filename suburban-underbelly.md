@@ -1,8 +1,14 @@
+Suburban Underbelly Ch. 01
+==========================
 #1 
 
  
 
- ****** Suburban Underbelly Ch. 01 ****** byfastandsloppy© Dear prospective reader; this is a four part group sex tale that also contains other flavors of sexual perversion. It is a work of fiction and is meant to be entertaining rather than enlightening or socially responsible. I will post the chapters 2 -- 3 days apart. 
+ 
+
+===
+
+Dear prospective reader; this is a four part group sex tale that also contains other flavors of sexual perversion. It is a work of fiction and is meant to be entertaining rather than enlightening or socially responsible. I will post the chapters 2 -- 3 days apart. 
 
  All characters are at least eighteen. 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 01 ****** byfastandsloppy© "Oh, Mr. Yost... I want you inside me," she said with desperate intensity after a few heavenly minutes. 
+ 
+
+===
+
+"Oh, Mr. Yost... I want you inside me," she said with desperate intensity after a few heavenly minutes. 
 
  That was definitely something I was interested in. However as soon as she said it I realized a problem. "Shit, I don't have a condom." 
 
@@ -442,7 +452,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 01 ****** byfastandsloppy© "Where the fuck did you go?" she demanded in a shallow breathed bark. 
+ 
+
+===
+
+"Where the fuck did you go?" she demanded in a shallow breathed bark. 
 
  "You knocked me off the couch," I answered, also out of breath. 
 
@@ -470,7 +484,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 02 ****** byfastandsloppy© Dear reader; this is the second part of a four part group sex tale that also contains other flavors of sexual perversion. It is a work of fiction and is meant to be entertaining rather than enlightening or socially responsible. I will post the chapters 2 – 3 days apart. 
+ 
+
+===
+
+Dear reader; this is the second part of a four part group sex tale that also contains other flavors of sexual perversion. It is a work of fiction and is meant to be entertaining rather than enlightening or socially responsible. I will post the chapters 2 – 3 days apart. 
 
  All characters are at least eighteen. 
 
@@ -706,7 +724,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 02 ****** byfastandsloppy© I don't know what I was expecting to happen. In a way I guess I sort-of thought the sight of my stiff, fat unit would shock the girls out of their scheme and they'd go running home, un-deflowered. But no, they were sitting on my couch, obviously nervous, but determined to proceed. Sally was naked; her pink, freckled skin young and flawless under its glaze of beading sweat; her breasts small but pert and well shaped; her narrow hips making her look even younger; her pubic hair golden and wispy. Beside her was Hafsa, not naked, but rather wearing a matching set of tiny, lacey black bra and panties. The elaborate designs she had painted on her hands in henna extended up her arm. Her body was small but perfectly proportioned, with medium sized tits that looked huge on her narrow chest and curvy hips that made her look more of a woman than Sally's straight frame. They both looked up at me from under their crinkled brows with wide, uneasy eyes as they scooted apart so I could sit between them. 
+ 
+
+===
+
+I don't know what I was expecting to happen. In a way I guess I sort-of thought the sight of my stiff, fat unit would shock the girls out of their scheme and they'd go running home, un-deflowered. But no, they were sitting on my couch, obviously nervous, but determined to proceed. Sally was naked; her pink, freckled skin young and flawless under its glaze of beading sweat; her breasts small but pert and well shaped; her narrow hips making her look even younger; her pubic hair golden and wispy. Beside her was Hafsa, not naked, but rather wearing a matching set of tiny, lacey black bra and panties. The elaborate designs she had painted on her hands in henna extended up her arm. Her body was small but perfectly proportioned, with medium sized tits that looked huge on her narrow chest and curvy hips that made her look more of a woman than Sally's straight frame. They both looked up at me from under their crinkled brows with wide, uneasy eyes as they scooted apart so I could sit between them. 
 
  As I lowered myself onto the couch I looked up and noticed that they'd a video camera into the input jack in the back of my TV. On the screen, I stood behind Mimi, plugging my dick in and out of her cunt as she ate out Madison's pussy. 
 
@@ -894,7 +916,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 03 ****** byfastandsloppy© Dear reader; WARNING: In this chapter I ratchet up the danger and intensity of the story. No one gets killed, but the faint of heart among you may find some of what transpires to be unpleasant. If you are skittish, you may wish to look away. 
+ 
+
+===
+
+Dear reader; WARNING: In this chapter I ratchet up the danger and intensity of the story. No one gets killed, but the faint of heart among you may find some of what transpires to be unpleasant. If you are skittish, you may wish to look away. 
 
  I will post the last chapter in 2 or 3 days. 
 
@@ -1132,7 +1158,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 03 ****** byfastandsloppy© "Yes he's going to do just fine," said Mimi's voice followed by Lila's laugh. I heard Mimi turn and walk away. 
+ 
+
+===
+
+"Yes he's going to do just fine," said Mimi's voice followed by Lila's laugh. I heard Mimi turn and walk away. 
 
  The girls finished oiling me and left me alone. I don't know how long I lay there, but I was given plenty of time to check my surroundings from where I lay spread eagled on the floor. The room was fairly large, about twenty feet a side and seemed to be made of brick painted in glossy black. Dripping red candles in a profusion of candelabras lit the room in a wavering yellow light and smoking incense filled the air with an earthy patchouli odor. I raised my head and by craning my neck was able to see that I was stretched out in a pentagram on the floor; my wrists and ankles pulled to four of the five points, my head oriented towards the fifth. I also noticed that they hadn't bathed me. The patchouli and the olive oil added to the stink of my sex and sweat infused body odor rather than covered it. 
 
@@ -1216,7 +1246,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 04 ****** byfastandsloppy© Dear reader; this is the last part of a four part group sex tale. If you've read this far you know that I am willing to let the narrative slip into the realm of bat-shit crazy from time to time. That said, let me reiterate that this is a work of fiction and is meant to be entertaining rather than enlightening or socially responsible. 
+ 
+
+===
+
+Dear reader; this is the last part of a four part group sex tale. If you've read this far you know that I am willing to let the narrative slip into the realm of bat-shit crazy from time to time. That said, let me reiterate that this is a work of fiction and is meant to be entertaining rather than enlightening or socially responsible. 
 
  All characters are at least eighteen. 
 
@@ -1424,7 +1458,11 @@
 
  
 
- ****** Suburban Underbelly Ch. 04 ****** byfastandsloppy© I told Madison to forget about losing the jocks and just try to make it to my trailer. My neighbor Ty and his softball team usually congregated at his place on Sunday mornings. All but a couple of them were ex-cons and they were a scary looking bunch. I figured Ty owed me a favor for the other night with Hafsa and Sally so we might be able to plead for sanctuary. Even Tom and his squad of trust-fund Neanderthals might think twice before picking a fight with that crew. 
+ 
+
+===
+
+I told Madison to forget about losing the jocks and just try to make it to my trailer. My neighbor Ty and his softball team usually congregated at his place on Sunday mornings. All but a couple of them were ex-cons and they were a scary looking bunch. I figured Ty owed me a favor for the other night with Hafsa and Sally so we might be able to plead for sanctuary. Even Tom and his squad of trust-fund Neanderthals might think twice before picking a fight with that crew. 
 
  So Madison headed towards my place outside of town. She was zipping down Jefferson when an F-150 pickup with a couple more of Tom's teammates pulled in front of her and slammed on its brakes. She veered off the pavement and we found ourselves on an unpaved road that led though a construction site to the canal that marked the edge of town. When she turned too fast onto the road running alongside the canal, she lost control of the Porsche on the loose gravel. We spun right off into the water, skipping once like a flat stone. 
 
@@ -1594,4 +1632,8 @@
 
  
 
- ****** Suburban Underbelly Ch. 04 ****** byfastandsloppy© -fastandsloppy Report_Story 
+ 
+
+===
+
+-fastandsloppy Report_Story 

@@ -1,8 +1,14 @@
+Me and Patti Anne
+=================
 #1 
 
  
 
- ****** Me and Patti Anne ****** byJust_Plain_Bob© Once upon a time in the land of OOH Blah Dee there lived an aircraft mechanic who worked for an airline. One day the mechanic met and fell in love with a beautiful stewardess and he pursued her. Eventually the beautiful stewardess succumbed to the aircraft mechanic's charm and they were married and lived happily ever after. The story of my life? Not!! 
+ 
+
+===
+
+Once upon a time in the land of OOH Blah Dee there lived an aircraft mechanic who worked for an airline. One day the mechanic met and fell in love with a beautiful stewardess and he pursued her. Eventually the beautiful stewardess succumbed to the aircraft mechanic's charm and they were married and lived happily ever after. The story of my life? Not!! 
 
  ++++++++++++++++++++ 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** Me and Patti Anne ****** byJust_Plain_Bob© I know it will sound stupid after the way I left you, but I wanted to have something of yours with me and your name was all I could come up with." 
+ 
+
+===
+
+I know it will sound stupid after the way I left you, but I wanted to have something of yours with me and your name was all I could come up with." 
 
  "You have never said, but how did this captain you didn't love but really liked become an ass wipe?" 
 

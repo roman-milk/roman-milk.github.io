@@ -1,8 +1,14 @@
+Invasion of the Ghetto Sluts
+============================
 #1 
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for the idea for this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© "What, you don't think us dumb black girls can handle their money?" Sydni said. 
+ 
+
+===
+
+"What, you don't think us dumb black girls can handle their money?" Sydni said. 
 
  "No, it's just that people who get large sums of money sometimes have trouble handling it." Emma said amicably. 
 
@@ -382,7 +392,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© "Seriously?" I asked, "A stripper pole? I thought you gave that stuff up." 
+ 
+
+===
+
+"Seriously?" I asked, "A stripper pole? I thought you gave that stuff up." 
 
  "We ain't working in that club anymore. But that doesn't mean we ain't stripping anymore. We need to practice. Keep up our skills." Monique said with a laugh, her flashy jewelry and long nails clicking as she moved her arms around. 
 
@@ -572,7 +586,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© Work had been getting busy, so I was working extra hours. Things were going well until I received a call. 
+ 
+
+===
+
+Work had been getting busy, so I was working extra hours. Things were going well until I received a call. 
 
  "Sean, we've been robbed." 
 
@@ -824,7 +842,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© "Wow, this is hot!" Sydni said. 
+ 
+
+===
+
+"Wow, this is hot!" Sydni said. 
 
  "I can't believe they have this car here." I said. 
 
@@ -1132,7 +1154,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© "Much bigger." Monique chimed in. 
+ 
+
+===
+
+"Much bigger." Monique chimed in. 
 
  "Most black women have hotter, rounder asses than white women." Sydni said. 
 
@@ -1302,7 +1328,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© I remembered the iPod hidden in my dresser, and the black female rap on it, which conjured up such insane images of black women in my head. Hot black women, rapping about sex. I remembered their sexy voices and naughty words. I knew I shouldn't, but I figured I should give the music a quick listen, maybe get these nasty thoughts out of my head. 
+ 
+
+===
+
+I remembered the iPod hidden in my dresser, and the black female rap on it, which conjured up such insane images of black women in my head. Hot black women, rapping about sex. I remembered their sexy voices and naughty words. I knew I shouldn't, but I figured I should give the music a quick listen, maybe get these nasty thoughts out of my head. 
 
  ********** 
 
@@ -1512,7 +1542,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© "Dance, bitch." Sydni commanded to her friend. 
+ 
+
+===
+
+"Dance, bitch." Sydni commanded to her friend. 
 
  I looked back at Monique and she had turned around, putting her hands on the stripper pole I helped set up. She was bent forward as she did this, providing me a primo view of her imposing ass. Her legs were strong and firm, and that firmness translated to her ass, and although it was fairly big, it was still firm and muscular. The cheeks were large and round and they jutted out from her firm back. Her tiny blue thong disappeared between the cheeks, but the color really stood out against her dark skin. It's a good thing I'm not into black women, because her body was insane. It would be hard for a guy that was into black women to resist. 
 
@@ -1638,7 +1672,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© "This ain't a tiny white boobie, baby." Monique cooed. "This is a big, fat, black titty! Savor it, cause it's all you're getting from now on." Her words wormed their way into my mind, but I was in too much of a daze to fight her off or object. "Do you hear me baby? You're a black woman's man. Your hot body. All those sexy muscles. That big, fat giant white cock of yours. All of that is the property of black women now. You hear me? You're gonna be fucking black women from now on. Because you won't be satisfied with anything less." 
+ 
+
+===
+
+"This ain't a tiny white boobie, baby." Monique cooed. "This is a big, fat, black titty! Savor it, cause it's all you're getting from now on." Her words wormed their way into my mind, but I was in too much of a daze to fight her off or object. "Do you hear me baby? You're a black woman's man. Your hot body. All those sexy muscles. That big, fat giant white cock of yours. All of that is the property of black women now. You hear me? You're gonna be fucking black women from now on. Because you won't be satisfied with anything less." 
 
  I sucker at her breast for what felt like an eternity, and I was shocked out of my daze when I felt Sydni remove her sucking mouth from my cock. With a smooth grace, she moved from all fours to hovering above me, her pussy hovering inches over my erect cock, her intent clear. I put up one last line of defense. 
 
@@ -1810,7 +1848,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© I know that this judgment didn't apply to all black and white women. There were definitely exceptions on both ends. White girls could be trashy and raw, and black women could be more professional and well-put together and more reserved. I was just going by the women I knew. Most of the white girls I knew were classy and well put together. And most of the black women I knew had that raw, dark sexual appeal emanating from them. The white girls were wife and girlfriend material. And all the black women I knew were ghetto sluts. 
+ 
+
+===
+
+I know that this judgment didn't apply to all black and white women. There were definitely exceptions on both ends. White girls could be trashy and raw, and black women could be more professional and well-put together and more reserved. I was just going by the women I knew. Most of the white girls I knew were classy and well put together. And most of the black women I knew had that raw, dark sexual appeal emanating from them. The white girls were wife and girlfriend material. And all the black women I knew were ghetto sluts. 
 
  These ghetto sluts were trashy. They were loud and irritating. They blared loud music and had a bad attitude. But they were upfront. They were honest. They told it how it was. They dressed to highlight their bodies. They exuded sex appeal, in a way white women couldn't match. A white woman could never keep up with a black woman sexually. In that sense, black women were sexually superior. 
 
@@ -1976,7 +2018,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© I limped across to my house, feeling the effects of our rough fuck session. I felt like I just ran a marathon. I just wanted to pass out, but I couldn't do that. I had to shower, and erase the scent of black women off of me. 
+ 
+
+===
+
+I limped across to my house, feeling the effects of our rough fuck session. I felt like I just ran a marathon. I just wanted to pass out, but I couldn't do that. I had to shower, and erase the scent of black women off of me. 
 
  As I cleaned myself up, the guilt hit me. I had cheated on my wife. She didn't do anything to deserve this. She deserved better. I had fucked a pair of black women that she fucking hated. I had done unspeakable things, said unspeakable things. I loved her, but those two ghetto sluts gave me sex I couldn't believe. Sex I had never gotten before, and sex I would never get with Emma. 
 
@@ -2068,7 +2114,11 @@
 
  
 
- ****** Invasion of the Ghetto Sluts ****** byTheTalkMan© My neighborhood was being invaded by more and more black women, black women who loved to fuck. It seems like the neighbors saw this coming and went back down south to avoid it. Downtown was being invaded with the black strip club that Sydni and Monique owned. It seems like the invasion of the ghetto sluts had begun. And looking at the life I had now, living with and fucking multiple black women, I couldn't be happier. 
+ 
+
+===
+
+My neighborhood was being invaded by more and more black women, black women who loved to fuck. It seems like the neighbors saw this coming and went back down south to avoid it. Downtown was being invaded with the black strip club that Sydni and Monique owned. It seems like the invasion of the ghetto sluts had begun. And looking at the life I had now, living with and fucking multiple black women, I couldn't be happier. 
 
  I wouldn't change a thing. 
 

@@ -1,8 +1,14 @@
+Proper Housewife to Slut in One Day
+===================================
 #1 
 
  
 
- ****** Proper Housewife to Slut in One Day ****** bywhiteslutwife© The orange glow of sunset was straining to hold back the night. It was the end of what should have been a beautiful day. A day I would have normally enjoyed the memory of. Instead I was nervously looking around my house, my fabulous house, wondering what would become of me. 
+ 
+
+===
+
+The orange glow of sunset was straining to hold back the night. It was the end of what should have been a beautiful day. A day I would have normally enjoyed the memory of. Instead I was nervously looking around my house, my fabulous house, wondering what would become of me. 
 
  I am Cindi, a married 38 year old, affluent white mother. I am a member of several community organizations, including the PTA. My husband and I were married fairly young. We had to struggle for everything early on. He was still going to school, while working two jobs and I was a waitress at a run down highway diner. The kind of place young women had to endure off color remarks from it's patrons. I was young and naïve, but determined to support him. Our sex life was dismal at best but we were still able to, miraculously, get me pregnant. I can still remember Mike, my husband, assuring me that everything would be better when he got out of school and started his career. Durin this time we were surprised with the arrival of not one but two additional children. Our first born son was joined by a brother and finally a sister. They all were heading off on their own, our youngest just graduating high school and heading off for college. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Proper Housewife to Slut in One Day ****** bywhiteslutwife© I quickly glanced at Mike, he was smiling watching the screen. I heard a chuckle from Dale at my reaction. He moved his hand a little farther up my thigh. 
+ 
+
+===
+
+I quickly glanced at Mike, he was smiling watching the screen. I heard a chuckle from Dale at my reaction. He moved his hand a little farther up my thigh. 
 
  "You know that kid?" he asked me with a sly grin. 
 
@@ -204,7 +214,11 @@
 
  
 
- ****** Proper Housewife to Slut in One Day Ch. 02 ****** bywhiteslutwife© I hope you all enjoyed my last posting. It has been a pleasure sharing it with all of you. I would truly appreciate your constructive feed back. Please remember that my stories are mostly fiction and are meant for your erotic pleasure and imagination, not to chronicle my life. Please read "Proper housewife to slut in one day" for the back story. If you can take an extra minute please remember to vote as well. 
+ 
+
+===
+
+I hope you all enjoyed my last posting. It has been a pleasure sharing it with all of you. I would truly appreciate your constructive feed back. Please remember that my stories are mostly fiction and are meant for your erotic pleasure and imagination, not to chronicle my life. Please read "Proper housewife to slut in one day" for the back story. If you can take an extra minute please remember to vote as well. 
 
  XOXO, 
 
@@ -410,7 +424,11 @@
 
  
 
- ****** Proper Housewife to Slut in One Day Ch. 03 ****** bywhiteslutwife© First of all, a great big thank you to all who offered constructive criticism and comments. I truly appreciate it. Those comments have tempted me to go further. I want to thank Don (you know who you are) for being an un-official editor for me, you were a greater help then you know. Please remember this is chapter three in a series and for the full story read the previous installments. To the others who were undoubtedly offended, please accept my apology. This is meant as fantasy and includes references to blackmail, female submission, forced and interracial sex. If these things offend you then it is apparent that this story is not for you. 
+ 
+
+===
+
+First of all, a great big thank you to all who offered constructive criticism and comments. I truly appreciate it. Those comments have tempted me to go further. I want to thank Don (you know who you are) for being an un-official editor for me, you were a greater help then you know. Please remember this is chapter three in a series and for the full story read the previous installments. To the others who were undoubtedly offended, please accept my apology. This is meant as fantasy and includes references to blackmail, female submission, forced and interracial sex. If these things offend you then it is apparent that this story is not for you. 
 
  K 
 
@@ -606,7 +624,11 @@
 
  
 
- ****** Proper Housewife to Slut in One Day Ch. 03 ****** bywhiteslutwife© Alex deflated at Mike's words. In our conversation I learned that at $20 Million Alex's company was just about breaking even, but he thought the exposure would vault his company into a player in his field. I was starting to not enjoy this, poor Alex. 
+ 
+
+===
+
+Alex deflated at Mike's words. In our conversation I learned that at $20 Million Alex's company was just about breaking even, but he thought the exposure would vault his company into a player in his field. I was starting to not enjoy this, poor Alex. 
 
  "Cindi dear, why don't you keep David company while I talk to Alex," Mike suggested. 
 

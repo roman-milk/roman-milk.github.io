@@ -1,8 +1,14 @@
+Curious Lorrie
+==============
 #1 
 
  
 
- ****** Curious Lorrie ****** byJust_Plain_Bob© Lorrie and I had been married for almost fifteen years and it was a good marriage. We loved each other and we were also each others best friend. We were a typical middle class couple. We both worked at fairly decent jobs and had typical outside activities. I bowled on Wednesday night, played poker a couple of times a month with friends, and played golf almost every weekend that Lorrie and I didn't take the boat and go to the lake. Lorrie played cards with her sorority sisters from college every Thursday night, volunteered for charity work one or two nights a week and, I'm almost ashamed to say, whipped my ass on the golf course on the non-lake weekends. We made ourselves a promise when we got married that we would not become stay at home couch potatoes. We moved in a circle that believed in having parties, barbecues and in entertaining. We belonged to the Benevolent and Protective Order of Elks, more for the weekly dances than for any other reason and, in short; we were a very happy and active couple. 
+ 
+
+===
+
+Lorrie and I had been married for almost fifteen years and it was a good marriage. We loved each other and we were also each others best friend. We were a typical middle class couple. We both worked at fairly decent jobs and had typical outside activities. I bowled on Wednesday night, played poker a couple of times a month with friends, and played golf almost every weekend that Lorrie and I didn't take the boat and go to the lake. Lorrie played cards with her sorority sisters from college every Thursday night, volunteered for charity work one or two nights a week and, I'm almost ashamed to say, whipped my ass on the golf course on the non-lake weekends. We made ourselves a promise when we got married that we would not become stay at home couch potatoes. We moved in a circle that believed in having parties, barbecues and in entertaining. We belonged to the Benevolent and Protective Order of Elks, more for the weekly dances than for any other reason and, in short; we were a very happy and active couple. 
 
  One day, out of the blue, Lorrie asked, "Do you ever think about other women?" 
 
@@ -122,7 +128,11 @@
 
  
 
- ****** Curious Lorrie ****** byJust_Plain_Bob© "I don't know how she can do this to you. You have treated her like a queen all these years and then she goes and betrays you like this." 
+ 
+
+===
+
+"I don't know how she can do this to you. You have treated her like a queen all these years and then she goes and betrays you like this." 
 
  And then she filled me in on what Lorrie had done the night before. From then on, not knowing that I already knew, Kelly would come to me with "The Latest Outrage" that Lorrie had perpetrated on me and I would hang my head and say something stupid like, "Oh woe is me, whatever shall I do?" Kelly would rush to me, throw herself in my arms and try to comfort me. Then she would tell me that I needed to find some backbone, "You need to throw her worthless ass out John. You are too nice a guy to let her screw over you like this." 
 

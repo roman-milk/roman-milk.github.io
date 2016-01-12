@@ -1,8 +1,14 @@
+&quot;Pet Mommy&quot;: Becoming a Mommy-Slut!
+=============================================
 #1 
 
  
 
- ****** &quot;Pet Mommy&quot;: Becoming a Mommy-Slut! ****** bysilkstockingslover© Summary: MILF Mom catches nerdy son masturbating and becomes obsessed. 
+ 
+
+===
+
+Summary: MILF Mom catches nerdy son masturbating and becomes obsessed. 
 
  NOTE 1: This is a Nude Day 2012 contest story so please enjoy and vote. Also, please be patient as the connection to Nude Day takes time to develop. 
 
@@ -164,7 +170,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Becoming a Mommy-Slut! ****** bysilkstockingslover© Instantly he was sheepish. "No." 
+ 
+
+===
+
+Instantly he was sheepish. "No." 
 
  "Why not?" I asked, "You are a great catch." 
 
@@ -434,7 +444,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Becoming a Mommy-Slut! ****** bysilkstockingslover© My orgasm finally done, no nook or cranny untouched by his assault, I begged my son, with his fingers still in me and his mouth still devouring my clit, "Please stop baby, I have to pee so badly." 
+ 
+
+===
+
+My orgasm finally done, no nook or cranny untouched by his assault, I begged my son, with his fingers still in me and his mouth still devouring my clit, "Please stop baby, I have to pee so badly." 
 
  As his fingers left my cunt, I suddenly felt empty. As I pushed myself off the kitchen table, which I would never, ever be able to look at again and not remember the moment my life officially drastically changed, I stumbled, my orgasm apparently doing a number on my now jell-o like legs. I literally fell on my son's lap face first, his cock almost poking me in the eye. I promised, grabbing his very ready for action cock, "I will be right back to take care of that for you, son." 
 
@@ -656,7 +670,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: DP Mommy-Slut! ****** bysilkstockingslover© "PET MOMMY": DP MOMMY-SLUT!!! 
+ 
+
+===
+
+"PET MOMMY": DP MOMMY-SLUT!!! 
 
  Summary: MILF mom is trained to be a good SLUT for her nerdy son. 
 
@@ -974,7 +992,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: DP Mommy-Slut! ****** bysilkstockingslover© Distracted by my own hunger to come, I moaned, "Famished." 
+ 
+
+===
+
+Distracted by my own hunger to come, I moaned, "Famished." 
 
  "Beg for my cock, Ms. Lodge," he ordered, holding his cock inches from my suddenly salivating mouth. 
 
@@ -1308,7 +1330,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: DP Mommy-Slut! ****** bysilkstockingslover© "M-M-Ms. Lodge," he stammered again, overwhelmed by my suggestion. 
+ 
+
+===
+
+"M-M-Ms. Lodge," he stammered again, overwhelmed by my suggestion. 
 
  "Yes," I smiled, fishing his fully erect cock out from his still buckled trousers. 
 
@@ -1684,7 +1710,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: DP Mommy-Slut! ****** bysilkstockingslover© "Years of solo practice," he shrugged. 
+ 
+
+===
+
+"Years of solo practice," he shrugged. 
 
  "Well, now you have joined the big leagues," I quipped. 
 
@@ -1754,7 +1784,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Fucking with Mommy-Slut ****** bysilkstockingslover© Recap: This is actually part three. Obviously, you should read parts 1 and 2 first, as they will help understand how the mother ended up where she is now; if you already have read the first two parts and can't remember the basic plot or just want to start here on part three...here is a very brief summary of the story so far. 
+ 
+
+===
+
+Recap: This is actually part three. Obviously, you should read parts 1 and 2 first, as they will help understand how the mother ended up where she is now; if you already have read the first two parts and can't remember the basic plot or just want to start here on part three...here is a very brief summary of the story so far. 
 
  "Pet Mommy": Creating a Mommy-Slut Summary: A mother learns her son fantasizes about fucking her and, realizing just how much he resembles her deceased dominant husband, decides to make his fantasy a reality...in the end seducing her son and becoming his submissive pet mommy. 
 
@@ -2040,7 +2074,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Fucking with Mommy-Slut ****** bysilkstockingslover© "There she is," Crystal smiled. 
+ 
+
+===
+
+"There she is," Crystal smiled. 
 
  "There who is?" I asked, although I knew exactly what she went. 
 
@@ -2430,7 +2468,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Fucking with Mommy-Slut ****** bysilkstockingslover© Michael ordered, "Get out from under there, Slut." 
+ 
+
+===
+
+Michael ordered, "Get out from under there, Slut." 
 
  I obeyed, thankful to be off my knees. Once I was standing up, he said, his stiff cock wet with my saliva, "Bend over the kitchen table, Mommy, I'm going to fuck your ass." 
 
@@ -2824,7 +2866,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Fucking with Mommy-Slut ****** bysilkstockingslover© My face burned red even as I remained speechless. Crystal continued, "This is my mother, she is a submissive in training." 
+ 
+
+===
+
+My face burned red even as I remained speechless. Crystal continued, "This is my mother, she is a submissive in training." 
 
  "Reeeeeeeally?" The woman asked, stressing the 'e' dramatically, both surprised and impressed. 
 
@@ -3026,7 +3072,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: My Daughter Submits ****** bysilkstockingslover© Summary:Slut Mommy assists in making her daughter submit to her son. 
+ 
+
+===
+
+Summary:Slut Mommy assists in making her daughter submit to her son. 
 
  Recap:This is actually part four. Obviously, you should read parts 1, 2 and 3 first, as they will help you understand how the mother ended up where she is now; if you have already read the first three parts and can't remember the basic plot, or just want to start here on part four...here is a very brief summary of the story so far. 
 
@@ -3466,7 +3516,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: My Daughter Submits ****** bysilkstockingslover© "What does it say?" I asked. 
+ 
+
+===
+
+"What does it say?" I asked. 
 
  "Be there in thirty minutes, slut. I expect you on all fours and ready," Crystal read out. 
 
@@ -3898,7 +3952,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: My Daughter Submits ****** bysilkstockingslover© After a minute, Frederick demanded, "Ride me slut." 
+ 
+
+===
+
+After a minute, Frederick demanded, "Ride me slut." 
 
  "I can't," Crystal weakly said. 
 
@@ -3974,7 +4032,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Nerd Orgy ****** bysilkstockingslover© Summary: Son sets up gangbang for submissive Mom at Comic-Con. 
+ 
+
+===
+
+Summary: Son sets up gangbang for submissive Mom at Comic-Con. 
 
  Recap: This is actually part five. Obviously, you should read parts 1, 2, 3 and 4 first, as they will help you understand how the mother ended up where she is now; if you have already read the first four parts and can't remember the basic plot, or just want to start here on part five...here is a very brief summary of the story so far. 
 
@@ -4326,7 +4388,11 @@
 
  
 
- ****** &quot;Pet Mommy&quot;: Nerd Orgy ****** bysilkstockingslover© I swallowed it all, like a good Mommy-slut always does, although I really wished he would have filled my cunt with that big load. 
+ 
+
+===
+
+I swallowed it all, like a good Mommy-slut always does, although I really wished he would have filled my cunt with that big load. 
 
  Pulling out, he asked, "Do you want the boys to come inside you?" 
 

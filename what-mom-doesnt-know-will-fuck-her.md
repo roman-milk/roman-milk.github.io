@@ -1,8 +1,14 @@
+What Mom Doesn't Know Will Fuck Her
+===================================
 #1 
 
  
 
- ****** What Mom Doesn't Know Will Fuck Her ****** bysilkstockingslover© NOTE 1: This is a Halloween 2011 Contest Entry so please vote! 
+ 
+
+===
+
+NOTE 1: This is a Halloween 2011 Contest Entry so please vote! 
 
  NOTE 2: A special thanks goes to Estragon for his copy editing work! 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** What Mom Doesn't Know Will Fuck Her ****** bysilkstockingslover© It took all my willpower to resist the temptation to bury my face in her pussy. Instead, I continued past her pussy and continued down her other leg. 
+ 
+
+===
+
+It took all my willpower to resist the temptation to bury my face in her pussy. Instead, I continued past her pussy and continued down her other leg. 
 
  "Damn you, Baby, you are fucking driving me nuts," she whined. 
 

@@ -1,8 +1,14 @@
+My Whores
+=========
 #1 
 
  
 
- ****** My Whores ****** byJust_Plain_Bob© The cash is rolling in and I'm banking it as fast as I can. When I was in high school I was voted "most likely to succeed" but I don't think anyone would have believed that it would be this way. All it took was a willing slut and for me to be an asshole. 
+ 
+
+===
+
+The cash is rolling in and I'm banking it as fast as I can. When I was in high school I was voted "most likely to succeed" but I don't think anyone would have believed that it would be this way. All it took was a willing slut and for me to be an asshole. 
 
  I was attending college and still living at home. I wanted the full college experience, the dorm, the job in the student cafeteria, the fraternity - all that jazz - but my dad traveled for a living and he wanted me to stay home and keep my mother company. After much arguing, a little begging and pleading and just a touch of bribery I agreed to stay home. Three months after classes started, and too late to make any changes, my sister Roxanna decided to move back home for a while. Her husband had taken a job that would take him out of the country for at least a year. The job was in Saudi Arabia and after hearing how women are treated over there Roxy refused to go with him. She moved all of their stuff into storage and moved herself back in with us and that's when the trouble started - at least I thought it was trouble at the time. 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** My Whores ****** byJust_Plain_Bob© We were almost home when Roxy said, "Pull over." 
+ 
+
+===
+
+We were almost home when Roxy said, "Pull over." 
 
  "What?" 
 
@@ -268,7 +278,11 @@
 
  
 
- ****** My Whores Ch. 02 ****** byJust_Plain_Bob© "Are you sure she's worth this much" he asked as he handed me the five twenties. 
+ 
+
+===
+
+"Are you sure she's worth this much" he asked as he handed me the five twenties. 
 
  "How should I know. I don't make a habit of fucking the help. She gets a lot of repeat business so some guys think she's worth it." 
 
@@ -496,7 +510,11 @@
 
  
 
- ****** My Whores Ch. 02 ****** byJust_Plain_Bob© I sat, watched and felt my dick throb as Roxy did her best to satisfy all of her lovers. Actually they were customers, but they may as well have been considered lovers since it was the same six or eight twice a week, very week. I also kept my eye on the time because I had to get Roxy home by eleven-thirty so she would be there when Dave got home. Twenty minutes for me to get mine, fifteen minutes for her to shower and douche meant that I had to break things up at ten thirty. I had learned this the hard way. I used to leave Roxy and she would call me when she was ready for me to pick her up, but twice she had gotten so carried away that I almost didn't get her home in time. At ten-thirty I called time and when everyone had gone Roxy asked, "Where do you want me little brother?" 
+ 
+
+===
+
+I sat, watched and felt my dick throb as Roxy did her best to satisfy all of her lovers. Actually they were customers, but they may as well have been considered lovers since it was the same six or eight twice a week, very week. I also kept my eye on the time because I had to get Roxy home by eleven-thirty so she would be there when Dave got home. Twenty minutes for me to get mine, fifteen minutes for her to shower and douche meant that I had to break things up at ten thirty. I had learned this the hard way. I used to leave Roxy and she would call me when she was ready for me to pick her up, but twice she had gotten so carried away that I almost didn't get her home in time. At ten-thirty I called time and when everyone had gone Roxy asked, "Where do you want me little brother?" 
 
  "Where do you think you are the tightest?" 
 
@@ -578,7 +596,11 @@
 
  
 
- ****** My Whores Ch. 03 ****** byJust_Plain_Bob© I sat there staring at my mother and not quite believing what she was telling me. My Aunt Cathy was a slut? The woman who had given me my first hard on was an easy piece of ass? I wished that I had known that a long time ago. I can honestly say that I had never once thought about Roxie or my mother in a sexual way until circumstances put them on my dick, but I had lusted after my big titted aunt since I was eleven years old. Still did for that matter and now mom tells me that she's a slut. I smiled and my mind started churning as I tried to figure out how I was going to get my hands on those tits. Mom saw the smile, "What's the matter baby, tired of me all ready?" 
+ 
+
+===
+
+I sat there staring at my mother and not quite believing what she was telling me. My Aunt Cathy was a slut? The woman who had given me my first hard on was an easy piece of ass? I wished that I had known that a long time ago. I can honestly say that I had never once thought about Roxie or my mother in a sexual way until circumstances put them on my dick, but I had lusted after my big titted aunt since I was eleven years old. Still did for that matter and now mom tells me that she's a slut. I smiled and my mind started churning as I tried to figure out how I was going to get my hands on those tits. Mom saw the smile, "What's the matter baby, tired of me all ready?" 
 
  "Not hardly mom; it's just that I've had the hots for Aunt Cathy for years." 
 
@@ -752,7 +774,11 @@
 
  
 
- ****** My Whores Ch. 03 ****** byJust_Plain_Bob© "How about it honey, do you think you might want to do it again?" 
+ 
+
+===
+
+"How about it honey, do you think you might want to do it again?" 
 
  "If they have the money sweetie, I can find the time." 
 
@@ -866,7 +892,11 @@
 
  
 
- ****** My Whores Ch. 04 ****** byJust_Plain_Bob© I sat on the bed looking at my Aunt Cathy, "You are serious, you really want to play at being a prostitute?" 
+ 
+
+===
+
+I sat on the bed looking at my Aunt Cathy, "You are serious, you really want to play at being a prostitute?" 
 
  "Yeah, I think it would be a kick. All my life I've been selective in the men that I've dated and had relationships with. They always had to be good looking, have good manners and a nice personality. It would be a wild experience for me to be in a motel room and have to take on whatever walked through the door." 
 

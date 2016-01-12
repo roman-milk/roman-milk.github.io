@@ -1,8 +1,14 @@
+Lisa Can Do It Better
+=====================
 #1 
 
  
 
- ****** Lisa Can Do It Better ****** byJust_Plain_Bob© I'm married to one of the most sexually exciting women in the world. We promised each other when we married that we would never let our sex life become as dull and boring as so many of our friends claimed that theirs had. For my part I bought her sexy lingerie, high heeled 'come fuck me' pumps, dildos and pressed her to have sex with me in places where the chance of being discovered was good. 
+ 
+
+===
+
+I'm married to one of the most sexually exciting women in the world. We promised each other when we married that we would never let our sex life become as dull and boring as so many of our friends claimed that theirs had. For my part I bought her sexy lingerie, high heeled 'come fuck me' pumps, dildos and pressed her to have sex with me in places where the chance of being discovered was good. 
 
  Lisa, on the other hand, went for the visual. She would behave outrageously in public to turn me on. Once at a party she pretended to be drunk and she let some guy work her into a dark corner and feel her up. She knew I was watching and so she unzipped him and took out his cock and began jacking him off. He turned her around so that his back was to the room thereby blocking what was taking place from being seen, but what he really accomplished was to put Lisa where she could look over his shoulder at me. She winked and blew me kisses and then she mouthed the words, "Come over here." I did as she asked and I saw her say something in the guy's ear and then there was some quick shifting around as he hurried to get his hard cock back in his pants. It was probably a mean thing to do to the guy, but fuck him - it's what he gets for fucking around with another man's wife, right? I rushed her out into the attached garage and fucked her on the hood of the host and hostesses car. 
 

@@ -1,8 +1,14 @@
+Martha's Revenge
+================
 #1 
 
  
 
- ****** Martha's Revenge ****** byJust_Plain_Bob© "You what?" I said to what my sister had just asked me. 
+ 
+
+===
+
+"You what?" I said to what my sister had just asked me. 
 
  "You heard me," she said. 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** Martha's Revenge Ch. 02 ****** byJust_Plain_Bob© Martha Fed-Exed Bill the tape on Thursday morning and Saturday at noon he was beating on my front door. When I opened the door he said, "Is she here?" I nodded a yes and he said, "I need to talk to her." I told him that I didn't think she wanted to see him, but I'd go ask and I closed the door on him. I walked back to the kitchen where Martha was making us lunch and said, "Guess who is here and wants to talk to you?" 
+ 
+
+===
+
+Martha Fed-Exed Bill the tape on Thursday morning and Saturday at noon he was beating on my front door. When I opened the door he said, "Is she here?" I nodded a yes and he said, "I need to talk to her." I told him that I didn't think she wanted to see him, but I'd go ask and I closed the door on him. I walked back to the kitchen where Martha was making us lunch and said, "Guess who is here and wants to talk to you?" 
 
  She looked up from the sink at me and I said, "Yes indeedy, it is your very own ex-true love." 
 
@@ -266,7 +276,11 @@
 
  
 
- ****** Martha's Revenge Ch. 02 ****** byJust_Plain_Bob© "Oh?" she asked, "Just what is this big problem then?" 
+ 
+
+===
+
+"Oh?" she asked, "Just what is this big problem then?" 
 
  I fished a folded piece of paper out of my shirt pocket and handed it to her. "We have to decide which side of the bed you are going to sleep on." 
 

@@ -1,8 +1,14 @@
+A Bolt of Love
+==============
 #1 
 
  
 
- ****** A Bolt of Love ****** byGotBacon© Jason Jenson is playing golf with three of his buddies. He is 6 ft 4 in tall, weighs 220 pounds. He is ruggedly handsome, with bright blue eyes. His cock measures 8 in. soft. 
+ 
+
+===
+
+Jason Jenson is playing golf with three of his buddies. He is 6 ft 4 in tall, weighs 220 pounds. He is ruggedly handsome, with bright blue eyes. His cock measures 8 in. soft. 
 
  He has short pitch to the green. In the middle of his back swing and lightning strikes his wedge. He wakes up four days later in the ICU of the hospital. He opens his eyes and sees a nurse looking at him. 
 
@@ -450,7 +456,11 @@
 
  
 
- ****** A Bolt of Love ****** byGotBacon© He slams into her and cums again. The howl and scream as his cum fills her again. He pussy is going wild milking him. She milks the last drop and falls on him again. 
+ 
+
+===
+
+He slams into her and cums again. The howl and scream as his cum fills her again. He pussy is going wild milking him. She milks the last drop and falls on him again. 
 
  "Oh Jason. You cum so hard in me. You make my pussy go crazy. I can't get enough of your hard cums." 
 
@@ -922,7 +932,11 @@
 
  
 
- ****** A Bolt of Love ****** byGotBacon© Oh fuck. Is he going to pop the question? Oh shit. Oh shit. 
+ 
+
+===
+
+Oh fuck. Is he going to pop the question? Oh shit. Oh shit. 
 
  She reaches down and grabs his cock. She starts jacking it slowly. It fills with blood. She pulls him in her. She guides his cock in her pussy. She squeezes it and he groans. He squirts in her and starts stroking. She moans and meets his strokes. He squirts on her cervix and shoves it all in. She cries out and cums. 
 

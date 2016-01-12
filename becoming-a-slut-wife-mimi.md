@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mimi
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mimi ****** byJust_Plain_Bob© My wife is one of those people who have managed to reach adulthood with no conception of the actual value of money or of the fact that it can sometimes be damned hard to come by. After several years of trying to get her educated and failing I was forced to take drastic steps if only to protect my credit and keep us out of bankruptcy. I cancelled all of her credit cards and closed our joint checking and savings accounts. When the inevitable outcry came, "What am I supposed to do for money?" I simply told her to get a job and learn to manage her own money. She whined, moaned and bitched, but in the end she did go out and get a job. 
+ 
+
+===
+
+My wife is one of those people who have managed to reach adulthood with no conception of the actual value of money or of the fact that it can sometimes be damned hard to come by. After several years of trying to get her educated and failing I was forced to take drastic steps if only to protect my credit and keep us out of bankruptcy. I cancelled all of her credit cards and closed our joint checking and savings accounts. When the inevitable outcry came, "What am I supposed to do for money?" I simply told her to get a job and learn to manage her own money. She whined, moaned and bitched, but in the end she did go out and get a job. 
 
  She got a job as a cocktail waitress at a down town lounge. I wasn't supposed to know that - she told me she had a job cleaning offices after hours - but the guy who hired her was a very good friend of mine. Dale and I had served in the same unit when we were in the Army and about five years after my discharge I ran into him in a down town restaurant, we renewed the friendship and we usually see each other a couple of times a week for lunch. Mimi had never met Dale, but Dale had seen every picture of Mimi that she had sent me when I was overseas and he recognized her as soon as she walked into his office. He had given her an application and while she was filling it out he left the room and called me, "What do you want me to do?" 
 
@@ -196,4 +202,8 @@
 
  
 
- ****** Becoming A Slut Wife: Mimi ****** byJust_Plain_Bob© "I told him that Thursday wouldn't be good for me because I usually spent the nights when my hubby was out of town with my boyfriend. He thinks it's kinky that I have a steady boyfriend in addition to all the other fucking I do. He told me to bring you, that he would like to meet you. Think you can make it?" Report_Story 
+ 
+
+===
+
+"I told him that Thursday wouldn't be good for me because I usually spent the nights when my hubby was out of town with my boyfriend. He thinks it's kinky that I have a steady boyfriend in addition to all the other fucking I do. He told me to bring you, that he would like to meet you. Think you can make it?" Report_Story 

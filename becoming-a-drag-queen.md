@@ -1,8 +1,14 @@
+Becoming a Drag Queen
+=====================
 #1 
 
  
 
- ****** Becoming a Drag Queen ****** bysilkstockingslover© Summary: A man on a trip to San Francisco descends into the drag queen world. 
+ 
+
+===
+
+Summary: A man on a trip to San Francisco descends into the drag queen world. 
 
  Warning: This story is a rather lengthy tale with a fair amount of plot at the beginning. That said, as the story unfolds the sex comes in pretty heavy doses. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Becoming a Drag Queen ****** bysilkstockingslover© "Ladies and gentleman and ladies, give it up again for Flame," the hostess demanded. Explosions of cheering and clapping echoed off the walls. It seemed louder than when I was at an Edmonton Oilers Stanley Cup final playoff game when we forced game seven back in 20006. 
+ 
+
+===
+
+"Ladies and gentleman and ladies, give it up again for Flame," the hostess demanded. Explosions of cheering and clapping echoed off the walls. It seemed louder than when I was at an Edmonton Oilers Stanley Cup final playoff game when we forced game seven back in 20006. 
 
  The hostess announced another performer as I made my way back to my seat. I had enjoyed being out there while Flame performed, but I was still way out of my comfort zone out there. I eventually made it back to my seat, dripping with sweat, it was damn hot in the bar, and chugged the last half of my beer. The bartender gave me another beer a couple of seconds later. I gave him a look and he smiled, "Flame said to make sure you always had a drink." 
 
@@ -406,7 +416,11 @@
 
  
 
- ****** Becoming a Drag Queen ****** bysilkstockingslover© "Oh Flame will have you looking so good I may want a piece of your pussy," she teased, her teeth biting my ear hard. 
+ 
+
+===
+
+"Oh Flame will have you looking so good I may want a piece of your pussy," she teased, her teeth biting my ear hard. 
 
  She stood up, me a horny mess, and said, "See you tonight, Princess." 
 
@@ -702,7 +716,11 @@
 
  
 
- ****** Becoming a Drag Queen ****** bysilkstockingslover© Now that I was a pretty diva again, I realized I was famished, I said, "Flame, I am starving." 
+ 
+
+===
+
+Now that I was a pretty diva again, I realized I was famished, I said, "Flame, I am starving." 
 
  "I imagine so." she teased, her voice dripping with sexual innuendo. 
 
@@ -962,7 +980,11 @@
 
  
 
- ****** Becoming a Drag Queen ****** bysilkstockingslover© Anxiety returned again and I panicked, "Oh my God. How am I going to do this?" 
+ 
+
+===
+
+Anxiety returned again and I panicked, "Oh my God. How am I going to do this?" 
 
  "You are such a silly goose," she said, slapping my ass. "You are going to be amazing, although I need to fix your face." She pulled out the make-up and touched me up. 
 

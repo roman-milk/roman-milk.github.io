@@ -1,8 +1,14 @@
+Wild Card Gone Wrong
+====================
 #1 
 
  
 
- ****** Wild Card Gone Wrong ****** byGotBacon© My name is Eric Jensen. I'm a journeyman carpenter. I'm 28 years old. I stand 6' 2" and weigh just over 200 pounds. I'm not bragging but I'm very good at my job. I know every aspect of building a house. I can pour cement, frame, roof, finish, pull wire and do the plumbing. Framing is what I do best. I have a couple of tricks I use. I can study a blueprint for a few minutes and remember all the dimensions. It gives me an edge because I don't have to go back and look all the time. I can also drive nails with either hand. 
+ 
+
+===
+
+My name is Eric Jensen. I'm a journeyman carpenter. I'm 28 years old. I stand 6' 2" and weigh just over 200 pounds. I'm not bragging but I'm very good at my job. I know every aspect of building a house. I can pour cement, frame, roof, finish, pull wire and do the plumbing. Framing is what I do best. I have a couple of tricks I use. I can study a blueprint for a few minutes and remember all the dimensions. It gives me an edge because I don't have to go back and look all the time. I can also drive nails with either hand. 
 
  My wife is Sarah. She is 5' 3" tall and weighs 115 pounds. She is half Irish with red hair and green eyes. She has perfect pale skin and is built like a lingerie model. We have been married for 5 years. I met her on a blind date. Yeah, go figure. She was a friend of one of my coworkers wives. We hit it off immediately. We were fucking our brains out on our third date. Nine months later we were married. She works as a real estate agent. We both made good money and wanted for nothing. 
 
@@ -286,7 +292,11 @@
 
  
 
- ****** Wild Card Gone Wrong ****** byGotBacon© I put my payback plan into action. I'm going to use the video. I load the video into my movie maker program. I edit out everything but her fucking the two guys. I dig around in her desk and find her back up disc. I copy all of her email addresses into my mail program. I plan on sending this to everyone she knows. 
+ 
+
+===
+
+I put my payback plan into action. I'm going to use the video. I load the video into my movie maker program. I edit out everything but her fucking the two guys. I dig around in her desk and find her back up disc. I copy all of her email addresses into my mail program. I plan on sending this to everyone she knows. 
 
  Two months later we finish the tract. I collect my last paycheck and bonus and go home. The house has sold and I have a week to vacate. The divorce is final and I never hear a word from Sarah. I's just as well. I decide not to wait any longer. I load all my tools and personal stuff up. With one look back I drive away. As I head north on Interstate 5 I sense a release. Each mile the weight on my shoulders lessens. Sarah is in the past and it's behind me. I've got a nice little stash under my seat. With my cash and the money from the sale of the house I have just a little over $250K and a bad taste in my mouth. I figure a little mouthwash will fix that. 
 
@@ -588,7 +598,11 @@
 
  
 
- ****** Wild Card Gone Wrong ****** byGotBacon© 'Want to tell me about it?" 
+ 
+
+===
+
+'Want to tell me about it?" 
 
  "Do you want to hear about it?" 
 

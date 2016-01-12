@@ -1,8 +1,14 @@
+Black Cock: 1 Day Changes Everything
+====================================
 #1 
 
  
 
- ****** Black Cock: 1 Day Changes Everything ****** bysilkstockingslover© Summary: Straight married man can't resist black teen's huge cock. 
+ 
+
+===
+
+Summary: Straight married man can't resist black teen's huge cock. 
 
  Note 1: This story is dedicated to goamz86 and to making one of his fantasies as real as possible. 
 
@@ -336,7 +342,11 @@
 
  
 
- ****** Black Cock: 1 Day Changes Everything ****** bysilkstockingslover© She is also very submissive in the bedroom, allowing me to take complete control. She has very few limits and is willing to do almost anything I suggest. 
+ 
+
+===
+
+She is also very submissive in the bedroom, allowing me to take complete control. She has very few limits and is willing to do almost anything I suggest. 
 
  I can only imagine the look on our neighbours' faces if they knew she routinely took it in the ass. Although I don't fuck her ass often, when I do she loves it and begs for me to pound the shit out of her. 
 
@@ -692,7 +702,11 @@
 
  
 
- ****** Black Cock: 1 Day Changes Everything ****** bysilkstockingslover© "You could be fired," I pointed out, suddenly concerned for my friend. 
+ 
+
+===
+
+"You could be fired," I pointed out, suddenly concerned for my friend. 
 
  "And lose my wife and kids," he added, "but I can't say no to him." 
 
@@ -1078,7 +1092,11 @@
 
  
 
- ****** Black Cock: 1 Day Changes Everything ****** bysilkstockingslover© "Yes, what?" He asked as he put his beautiful cock away. 
+ 
+
+===
+
+"Yes, what?" He asked as he put his beautiful cock away. 
 
  "Yes, I enjoyed sucking your big cock," I admitted, adding 'big' for some reason. 
 
@@ -1344,7 +1362,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© Summary: Straight married man becomes a cocksucker and willing bottom. 
+ 
+
+===
+
+Summary: Straight married man becomes a cocksucker and willing bottom. 
 
  Note 1: This story is dedicated to goamz86 and to making one of his fantasies as real as possible. 
 
@@ -1738,7 +1760,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© My next door neighbour, Edward, a nerdy kid who mowed our lawn, was riding a big cock in his ass. His eyes were closed, so he didn't see me, yet the Hispanic guy did. He smiled, and asked, "Enjoying the show?" 
+ 
+
+===
+
+My next door neighbour, Edward, a nerdy kid who mowed our lawn, was riding a big cock in his ass. His eyes were closed, so he didn't see me, yet the Hispanic guy did. He smiled, and asked, "Enjoying the show?" 
 
  I quickly left without answering and, thankfully, before Edward learned my secret or that he knew I now knew his. 
 
@@ -2160,7 +2186,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© "That was fucking hot," she said, rubbing her cunt. 
+ 
+
+===
+
+"That was fucking hot," she said, rubbing her cunt. 
 
  "Was it?" I asked. 
 
@@ -2608,7 +2638,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© "I'd like to say no," I replied, before admitting, feeling he would understand my internal struggle, "but every time I try to refuse him I seem to just get pulled in deeper." 
+ 
+
+===
+
+"I'd like to say no," I replied, before admitting, feeling he would understand my internal struggle, "but every time I try to refuse him I seem to just get pulled in deeper." 
 
  "I understand," James nodded. "Every time he is done with me, I am determined that was the last time I will submit. Yet, the moment he texts me or uses me at school, well, before I know it I'm on my knees with his cock in my mouth or ass." 
 
@@ -3008,7 +3042,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© "Isn't that my job?" I questioned. 
+ 
+
+===
+
+"Isn't that my job?" I questioned. 
 
  She shrugged and walked away, leaving me hard and curious. 
 
@@ -3488,7 +3526,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© "It was pretty obvious she was drooling over me," Malcolm continued. 
+ 
+
+===
+
+"It was pretty obvious she was drooling over me," Malcolm continued. 
 
  I replied sarcastically, "Yes, she practically fucked you right there." 
 
@@ -3940,7 +3982,11 @@
 
  
 
- ****** Black Cock: 10 Inch Cock Training ****** bysilkstockingslover© She pulled down her skirt and revealed she already was wearing her big black ass breaking strap-on cock. 
+ 
+
+===
+
+She pulled down her skirt and revealed she already was wearing her big black ass breaking strap-on cock. 
 
  My mouth watered and my ass tingled. 
 
@@ -3972,7 +4018,11 @@
 
  
 
- ****** Black Cock: A Wife Falls Too ****** bysilkstockingslover© Summary: Straight married man sacrifices wife to his black Master. 
+ 
+
+===
+
+Summary: Straight married man sacrifices wife to his black Master. 
 
  Note 1: This story is dedicated to goamz86 and in making one of his fantasies as real as possible. 
 
@@ -4378,7 +4428,11 @@
 
  
 
- ****** Black Cock: A Wife Falls Too ****** bysilkstockingslover© "Sorry, Mistress," I apologized again as I went to her and she tightened the harness. 
+ 
+
+===
+
+"Sorry, Mistress," I apologized again as I went to her and she tightened the harness. 
 
  "Now fuck me like a man," she demanded, as she got on all fours. 
 
@@ -4884,7 +4938,11 @@
 
  
 
- ****** Black Cock: A Wife Falls Too ****** bysilkstockingslover© And I did. 
+ 
+
+===
+
+And I did. 
 
  I watched, undeniably turned on, even as I was equally humiliated and furious, while he fucked my daughter right in front of me. 
 
@@ -5358,7 +5416,11 @@
 
  
 
- ****** Black Cock: A Wife Falls Too ****** bysilkstockingslover© ... 
+ 
+
+===
+
+... 
 
  The next day, I kept expecting a text... but none came. I couldn't believe how much I craved cock. I wasn't worried about my wife... I just wanted cock. 
 
@@ -5832,7 +5894,11 @@
 
  
 
- ****** Black Cock: A Wife Falls Too ****** bysilkstockingslover© "I'm sorry," I said, between licks. 
+ 
+
+===
+
+"I'm sorry," I said, between licks. 
 
  "Oh, don't be sorry, cocksucker," she moaned, "it has opened a whole new world for us." 
 

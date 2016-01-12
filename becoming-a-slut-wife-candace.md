@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Candace
+=============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Candace ****** byJust_Plain_Bob© Oh man, it was so cool. We didn't even plan it, but when it happened we all had the same thought at the same time, we did it, it worked, and now we are getting all the pussy we want, whenever we want. Well, almost whenever. We can't get any when her husband or kids are at home, but except for weekends that means we get all we want between eight in the morning and four in the afternoon. 
+ 
+
+===
+
+Oh man, it was so cool. We didn't even plan it, but when it happened we all had the same thought at the same time, we did it, it worked, and now we are getting all the pussy we want, whenever we want. Well, almost whenever. We can't get any when her husband or kids are at home, but except for weekends that means we get all we want between eight in the morning and four in the afternoon. 
 
  It was summer vacation and there were five of us in the van. We were sitting at a stoplight when someone ran into the back of us. They didn't hit us hard, it was just a little bump, but it was Harry's dad's van and he got all excited about it being damaged and his dad getting pissed at him and pulling his driving privileges. He jumped out of the van and ran to the back to look, but there wasn't any damage that we could see. 
 

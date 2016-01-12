@@ -1,8 +1,14 @@
+Pat's Hobby
+===========
 #1 
 
  
 
- ****** Pat's Hobby ****** byJust_Plain_Bob© I have one hell of a weird wife. I know, I know, most men will say the same thing, that their wives are weird to some degree, but how many have wives who like to give hand jobs? I don't mean that she likes to give them to me - I mean she likes to give them to just about anybody. She says when she has a guys cock in her hand she feels a sense of power and control that turns her on and I must admit that when we make love following one of her encounters she fucks like a woman possessed. 
+ 
+
+===
+
+I have one hell of a weird wife. I know, I know, most men will say the same thing, that their wives are weird to some degree, but how many have wives who like to give hand jobs? I don't mean that she likes to give them to me - I mean she likes to give them to just about anybody. She says when she has a guys cock in her hand she feels a sense of power and control that turns her on and I must admit that when we make love following one of her encounters she fucks like a woman possessed. 
 
  My wife, Pat, is very involved in civic affairs and one night I was sitting in the neighborhood bar having a beer when the six o'clock news came on. I wasn't paying any attention to it when I heard one of the guys sitting next to me say to the guy on his right: 
 

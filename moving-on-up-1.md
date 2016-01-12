@@ -1,8 +1,14 @@
+Moving On Up
+============
 #1 
 
  
 
- ****** Moving On Up ****** byJust_Plain_Bob© Take an asshole over-achiever for a husband, one who always tells you that you would be nowhere without him, add a large portion of desire to prove him wrong, mix well, simmer for a while and you end up with a mess. 
+ 
+
+===
+
+Take an asshole over-achiever for a husband, one who always tells you that you would be nowhere without him, add a large portion of desire to prove him wrong, mix well, simmer for a while and you end up with a mess. 
 
  I can't even remember why I married Don now. I suppose it had something to do with his good looks, his confidence in himself, the way he kissed and the way he made me feel at the time. But now my fondest wish is to drive a stake through his fucking heart. Well, that's not really true, but it is the way he makes me feel at times. Our plan was always to get married and he would go off and make our fortune while I stayed home and raised babies. 
 

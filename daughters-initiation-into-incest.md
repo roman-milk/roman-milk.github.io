@@ -1,8 +1,14 @@
+Daughter's Initiation into Incest
+=================================
 #1 
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© WARNING: This is a story that includes sex in church, biblical quotes and a Minister who uses his power to sleep with high school students, married women and eventually his daughter...if such things offend you please don't read. (Also, the scripture is used out of context as the story is about a Minister who manipulates the Bible and the gullibility of women of faith to make them his personal playthings). 
+ 
+
+===
+
+WARNING: This is a story that includes sex in church, biblical quotes and a Minister who uses his power to sleep with high school students, married women and eventually his daughter...if such things offend you please don't read. (Also, the scripture is used out of context as the story is about a Minister who manipulates the Bible and the gullibility of women of faith to make them his personal playthings). 
 
  WARNING 2: Did I mention this story may offend? 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© Dylan loved how submissive his wife was, how beautiful she was and how nasty she could get when in the bedroom. Her usual good wife and community member tongue became wicked. 
+ 
+
+===
+
+Dylan loved how submissive his wife was, how beautiful she was and how nasty she could get when in the bedroom. Her usual good wife and community member tongue became wicked. 
 
  "Oh fuuuuck," Lilly moaned loudly, as the slow ass-fucking sped up and her husband began to slam into her. "I love your cock, Dadddddddy, I want you to wash away my sin with your magical seed." 
 
@@ -502,7 +512,11 @@
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© Eve couldn't take her eyes off her mother. She couldn't see her daddy's penis from the angle she was standing, but she could definitely see her mother slowly bobbing back and forth. She finally spoke, "Yes, Daddy." Nervously, she slowly took off her robe. 
+ 
+
+===
+
+Eve couldn't take her eyes off her mother. She couldn't see her daddy's penis from the angle she was standing, but she could definitely see her mother slowly bobbing back and forth. She finally spoke, "Yes, Daddy." Nervously, she slowly took off her robe. 
 
  Once his daughter was naked and vulnerable in front of him, her eyes not making eye contact, either looking at the floor or her mother, Dylan couldn't tell, he complimented, "God created a perfect body for you to inhabit in this journey, my dear." 
 
@@ -762,7 +776,11 @@
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© "Um, I understand," she nodded, from her submissive position on her knees. "But I'm not sure I could say such words to my best friend. I don't think she will react favourably to such a demand." 
+ 
+
+===
+
+"Um, I understand," she nodded, from her submissive position on her knees. "But I'm not sure I could say such words to my best friend. I don't think she will react favourably to such a demand." 
 
  "How she reacts isn't the point. The point is we must tempt her to the very brink to prepare for tonight's Satan extraction," he explained. 
 
@@ -1036,7 +1054,11 @@
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© Katie, the head cheerleader, watched through the door window, her own plan spinning in her head as she put her phone away, having filmed the lesbian scene for the past few minutes. She walked away, not wanting them to know that she knew of their lesbianism as she formulated a full plan, the idea of having a couple nerd dykes to serve her appealing, even if one was the Minister's daughter. 
+ 
+
+===
+
+Katie, the head cheerleader, watched through the door window, her own plan spinning in her head as she put her phone away, having filmed the lesbian scene for the past few minutes. She walked away, not wanting them to know that she knew of their lesbianism as she formulated a full plan, the idea of having a couple nerd dykes to serve her appealing, even if one was the Minister's daughter. 
 
  A chill went up Eve's spine at the intimacy of the kiss. She didn't want it to end, although it seemed to trigger a gush in her vagina that had finally just begun to be squelched by the Lord's juice. 
 
@@ -1334,7 +1356,11 @@
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© "Okay, Daddy," she nodded, deflated, already feeling the devil's temptation beginning again. 
+ 
+
+===
+
+"Okay, Daddy," she nodded, deflated, already feeling the devil's temptation beginning again. 
 
  ..... 
 
@@ -1652,7 +1678,11 @@
 
  
 
- ****** Daughter's Initiation into Incest ****** bysilkstockingslover© "Okay," Eve said nervously, still standing. 
+ 
+
+===
+
+"Okay," Eve said nervously, still standing. 
 
  "Lay on your back honey, so Mommy can finally take out the Devil's egg," he instructed. 
 

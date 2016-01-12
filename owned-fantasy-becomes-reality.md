@@ -1,8 +1,14 @@
+Owned:Fantasy Becomes Reality
+=============================
 #1 
 
  
 
- ****** Owned:Fantasy Becomes Reality ****** bysilkstockingslover© Note 1: This story was written and is dedicated to a true wannabe faggot- cuckold Dave. Note 2: A special thanks goes to Estragon for his copy editing work. 
+ 
+
+===
+
+Note 1: This story was written and is dedicated to a true wannabe faggot- cuckold Dave. Note 2: A special thanks goes to Estragon for his copy editing work. 
 
  
 
@@ -402,7 +408,11 @@
 
  
 
- ****** Owned:Fantasy Becomes Reality ****** bysilkstockingslover© "Yes," I said in a humiliated whisper. 
+ 
+
+===
+
+"Yes," I said in a humiliated whisper. 
 
  "Show me," he commanded. 
 
@@ -768,7 +778,11 @@
 
  
 
- ****** Owned:Fantasy Becomes Reality ****** bysilkstockingslover© Maryanne gave an awkward laugh thinking he was kidding and responded, a little tipsy from the wine from supper, "Well he is good in bed." 
+ 
+
+===
+
+Maryanne gave an awkward laugh thinking he was kidding and responded, a little tipsy from the wine from supper, "Well he is good in bed." 
 
  "I heard that," Rod chuckled, looking directly at me. I shifted uncomfortably, catching the not-so-subtle innuendo. 
 

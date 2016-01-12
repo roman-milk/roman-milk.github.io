@@ -1,8 +1,14 @@
+Permission
+==========
 #1 
 
  
 
- ****** Permission ****** byJust_Plain_Bob© This is another "Be careful of what you wish for" story. It is a story of how a lot of love can be as damaging as a little hate. It is a story about two people and how they managed to screw up their marriage. 
+ 
+
+===
+
+This is another "Be careful of what you wish for" story. It is a story of how a lot of love can be as damaging as a little hate. It is a story about two people and how they managed to screw up their marriage. 
 
  +++++++++++++++++ 
 
@@ -272,7 +278,11 @@
 
  
 
- ****** Permission ****** byJust_Plain_Bob© "You hid out in the bathroom for almost half an hour?" 
+ 
+
+===
+
+"You hid out in the bathroom for almost half an hour?" 
 
  "The alternative would to have come out and go with Hal to his apartment. Would you rather I have done that?" 
 
@@ -482,7 +492,11 @@
 
  
 
- ****** Permission ****** byJust_Plain_Bob© She wisely shut up and stayed silent while I watched 'apartment guy' hurriedly dress and then head for the door. Once he was gone I told Kathy that she could sleep in the bedroom since she had fouled it with 'apartment guy's' presence and I would sleep in the spare bedroom. 
+ 
+
+===
+
+She wisely shut up and stayed silent while I watched 'apartment guy' hurriedly dress and then head for the door. Once he was gone I told Kathy that she could sleep in the bedroom since she had fouled it with 'apartment guy's' presence and I would sleep in the spare bedroom. 
 
  "Tomorrow when I'm calmer we can talk and decide where we go from here, but you might as well know now that things don't look to good and you might want to start making a list of what you want to take out of the wreckage of our marriage.' 
 

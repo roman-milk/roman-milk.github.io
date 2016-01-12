@@ -1,8 +1,14 @@
+The Mother-in-Law
+=================
 #1 
 
  
 
- ****** The Mother-in-Law ****** bygeronimo_appleby© I wasn't sure in which category this belonged, so ... 
+ 
+
+===
+
+I wasn't sure in which category this belonged, so ... 
 
  In this one recently estranged Jason meets his sexy mother-in-law for a drink - Elaine is attempting, in a very unconventional way, to reconcile Jason with her daughter. 
 
@@ -134,7 +140,11 @@
 
  
 
- ****** The Mother-in-Law ****** bygeronimo_appleby© Three times he took her to the edge, the juices sliding from her body, her stomach tensing, obscenities littering the air. Jason looked up along the woman's writhing body. He saw the mounds of her breasts shivering and trembling with her movements, noticed how thick and taut and long her nipples were. 
+ 
+
+===
+
+Three times he took her to the edge, the juices sliding from her body, her stomach tensing, obscenities littering the air. Jason looked up along the woman's writhing body. He saw the mounds of her breasts shivering and trembling with her movements, noticed how thick and taut and long her nipples were. 
 
  He ceased the oral attention at her sex, instead tracing a line with his tongue upwards. Over her stomach and the jewel at her navel, tasting her skin, pausing to suck at each elongated teat before continuing the journey north. He licked the concavity just below her throat, nibbling at the side of the woman's neck and eliciting a long, drawn out sigh as her fingers brushed the stubble of his crew-cut. Elaine gasped, eyes opening wide when, as he pushed his tongue into her mouth, Jason's fingers curled inside her again. 
 

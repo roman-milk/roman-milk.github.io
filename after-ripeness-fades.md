@@ -1,8 +1,14 @@
+After Ripeness Fades
+====================
 #1 
 
  
 
- ****** After Ripeness Fades ****** byfastandsloppy© Many, many thanks to friend and fan Eric_Shift for suggesting the idea for this story . 
+ 
+
+===
+
+Many, many thanks to friend and fan Eric_Shift for suggesting the idea for this story . 
 
  *** 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** After Ripeness Fades ****** byfastandsloppy© "This is the girl in the Evinrude poster, moron," said Angelo. 
+ 
+
+===
+
+"This is the girl in the Evinrude poster, moron," said Angelo. 
 
  "You sure?" said Wally. 
 
@@ -406,7 +416,11 @@
 
  
 
- ****** After Ripeness Fades ****** byfastandsloppy© "Gaw, whud a slub," said Angelo's voice from above her. 
+ 
+
+===
+
+"Gaw, whud a slub," said Angelo's voice from above her. 
 
  She raised her head up to look at him. He was standing behind her. His face was a bloody mush, but his dick was out and it was hard. He reached down and pulled her toward him, leaning her back so her head was under his long, dark cock. He crouched to strike her in the face with his erection before bending down to slap her tits with loud, open palmed swats. Jodi did not cower, but when he opened his left fist to show her the two alligator clips sitting expectantly in his hand, she swallowed heavily and looked at Wally and Billy with nervous eyes. But they merely watched with as much interest as their stupid but beautiful eyes could muster. They had no intention of curbing Angelo now that they'd had their turn with her. 
 

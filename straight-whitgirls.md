@@ -1,8 +1,14 @@
+Straight White Girls: An Inducing
+=================================
 #1 
 
  
 
- ****** Straight White Girls: An Inducing ****** bysilkstockingslover© Summary: Black seductress dominates pregnant white neighbour woman. 
+ 
+
+===
+
+Summary: Black seductress dominates pregnant white neighbour woman. 
 
  Each Straight White Girl story stands on its own, but here is a summary of the first two already released: 
 
@@ -336,7 +342,11 @@
 
  
 
- ****** Straight White Girls: An Inducing ****** bysilkstockingslover© "Challenge accepted," Janet declared, not the first time she had heard this and not the first time she had broken the myth. 
+ 
+
+===
+
+"Challenge accepted," Janet declared, not the first time she had heard this and not the first time she had broken the myth. 
 
  Candace watched as the black woman moved her hand to her still twitching pussy and slid a couple fingers in. Candace moaned knowing that she had tried many times to have multiple orgasms and had always ended up frustrated. 
 
@@ -580,7 +590,11 @@
 
  
 
- ****** Straight White Girls: A Pet Teacher ****** bysilkstockingslover© Summary: White teacher submissive is seduced by black dominant parent. 
+ 
+
+===
+
+Summary: White teacher submissive is seduced by black dominant parent. 
 
  Note 1: This is a Holiday 2014 Contest story. 
 
@@ -782,7 +796,11 @@
 
  
 
- ****** Straight White Girls: A Pet Teacher ****** bysilkstockingslover© "Why's that?" Janet asked, intrigued by the odd tone of the teacher. 
+ 
+
+===
+
+"Why's that?" Janet asked, intrigued by the odd tone of the teacher. 
 
  "I'm not wearing any," Jasmine revealed with a naughty smile. 
 
@@ -872,7 +890,11 @@
 
  
 
- ****** Straight White Girls: A Welcoming ****** bysilkstockingslover© Summary: Black seductress turns racist white woman community greeter. 
+ 
+
+===
+
+Summary: Black seductress turns racist white woman community greeter. 
 
  Note 1: This story is part of a series of white women submit to black women stories...although each story stands complete on their own. The first one was Straight White Girls: A Pet Teacher which introduced our black seductress Janet as she seduced her daughter's teacher...me. 
 
@@ -1188,7 +1210,11 @@
 
  
 
- ****** Straight White Girls: A Welcoming ****** bysilkstockingslover© Tamara hated being made to say the words; she understood this black woman was playing a psychological game, yet the black pussy, just inches from her face, an odd, intriguing aroma lingering had her mind a muddled mess. She answered, still rather quietly, "Yes, my mouth is watering." 
+ 
+
+===
+
+Tamara hated being made to say the words; she understood this black woman was playing a psychological game, yet the black pussy, just inches from her face, an odd, intriguing aroma lingering had her mind a muddled mess. She answered, still rather quietly, "Yes, my mouth is watering." 
 
  "What are you hungry for?" Janet asked, revelling in the final moments before another successful conversion transpired. 
 
@@ -1442,7 +1468,11 @@
 
  
 
- ****** Straight White Girls: A Welcoming ****** bysilkstockingslover© Tammi mumbled, "Yes, Mistress," as she continued licking Barbie's pussy, pondering how she was going to accomplish the task her beautiful black mistress just ordered. 
+ 
+
+===
+
+Tammi mumbled, "Yes, Mistress," as she continued licking Barbie's pussy, pondering how she was going to accomplish the task her beautiful black mistress just ordered. 
 
  Smiling, Janet left the two white pets to play as she headed out to meet up with her posse to share her most recent conquest with them. 
 

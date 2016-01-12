@@ -1,8 +1,14 @@
+A Most Unwanted Present
+=======================
 #1 
 
  
 
- ****** A Most Unwanted Present ****** bygeronimo_appleby© Here's my entry into the Winter Holidays Contest, albeit there's not too much mention of the holiday season in it. Not until the end anyway. I didn't intend it to be that way when I started, but the thing grew legs and wandered off and went where it wanted. 
+ 
+
+===
+
+Here's my entry into the Winter Holidays Contest, albeit there's not too much mention of the holiday season in it. Not until the end anyway. I didn't intend it to be that way when I started, but the thing grew legs and wandered off and went where it wanted. 
 
  In this one a middle-aged man is seduced by a twenty-something hottie. But the trouble is she's also a married woman. He tries to resist but is too weak and can't manage to find the strength to deny him, and her it seems, the pleasure. 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** A Most Unwanted Present ****** bygeronimo_appleby© When that happened I would get a lift in to work, her desire satisfied for the time being while I saved on the bus fare. 
+ 
+
+===
+
+When that happened I would get a lift in to work, her desire satisfied for the time being while I saved on the bus fare. 
 
  One weekend, one Sunday night early on in the relationship she left me with an empty bottle and, like Rod Stewart's Maggie May, a broken bed. As well as breaking that bed she'd also ruined my sheets, her squirting ardour blotting the cotton in a crazy pattern. 
 
@@ -338,7 +348,11 @@
 
  
 
- ****** A Most Unwanted Present ****** bygeronimo_appleby© "Fuck me, you dirty fuckin' bastard," she snorted, knickers taut as piano wire between her shins. The blonde groaned and gulped and thrust back at me knock- kneed, fingernails like talons clawing at the paintwork. "Come," she gasped. "Come in me. Fill me with that stuff." 
+ 
+
+===
+
+"Fuck me, you dirty fuckin' bastard," she snorted, knickers taut as piano wire between her shins. The blonde groaned and gulped and thrust back at me knock- kneed, fingernails like talons clawing at the paintwork. "Come," she gasped. "Come in me. Fill me with that stuff." 
 
  "But," I grunted in response, "your husband..." 
 

@@ -1,8 +1,14 @@
+Beth Glenda and Frank
+=====================
 #1 
 
  
 
- ****** Beth Glenda and Frank ****** byJust_Plain_Bob© I had been married to Beth Anne for eleven years when the event that started this tale took place. We had gotten together in the tenth grade, started going steady just before the start of summer vacation between eleventh and twelfth grades and were joined at the hip from then on. 
+ 
+
+===
+
+I had been married to Beth Anne for eleven years when the event that started this tale took place. We had gotten together in the tenth grade, started going steady just before the start of summer vacation between eleventh and twelfth grades and were joined at the hip from then on. 
 
  We made plans to be married when we graduated from college and one month after that momentous event we tied the knot. Altogether we had been a couple for just a little over eighteen years. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Beth Glenda and Frank ****** byJust_Plain_Bob© "Your choice of course, but this is the way I see it. You do the two things I've asked of you and I file under irreconcilable differences, the divorce goes through, and I live happily ever after. You don't do the two things I want and adultery is the way I will go and since this is one of the states that allow it I will have you served in your office for alienation of affections. Then I will send everything I have on you and Beth to your wife. Remember the fifty-fifty part? Half of everything you own, including your business will go to your wife if she decides to go for a divorce. Want to risk it? 
+ 
+
+===
+
+"Your choice of course, but this is the way I see it. You do the two things I've asked of you and I file under irreconcilable differences, the divorce goes through, and I live happily ever after. You don't do the two things I want and adultery is the way I will go and since this is one of the states that allow it I will have you served in your office for alienation of affections. Then I will send everything I have on you and Beth to your wife. Remember the fifty-fifty part? Half of everything you own, including your business will go to your wife if she decides to go for a divorce. Want to risk it? 
 
  "The papers will be served today, but you get to decide which papers will be served. You have just a little over an hour and a half to make that decision. I need your certified check in hand by two o'clock and if I don't have what I've asked for by two o'clock at one minute after two I'll call my attorney and tell him to go the adultery route and as soon as I'm done speaking with him I will call a messenger service and have a package on the way to your wife." 
 

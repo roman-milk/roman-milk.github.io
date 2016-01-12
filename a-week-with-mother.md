@@ -1,8 +1,14 @@
+A Week With Mother
+==================
 #1 
 
  
 
- ****** A Week With Mother ****** byJust_Plain_Bob© I was already in a foul mood when my dad called. I had just broken up with my fiance, a little matter of her being caught with another guy's cock in her mouth and a day after catching her I was laid off from my job. Then my dad calls and tells me that he and my mother have just split the blanket. The only surprise there was that it had taken so long for it to happen. 
+ 
+
+===
+
+I was already in a foul mood when my dad called. I had just broken up with my fiance, a little matter of her being caught with another guy's cock in her mouth and a day after catching her I was laid off from my job. Then my dad calls and tells me that he and my mother have just split the blanket. The only surprise there was that it had taken so long for it to happen. 
 
  Mom and dad hadn't been getting along for years and both my sister and I had expected them to separate years ago. In fact we had assumed that once the two of moved out that mom and dad would call it quits, but here we were seven years later and it was just happening. 
 

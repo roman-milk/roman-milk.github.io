@@ -1,8 +1,14 @@
+The Phillips Family Curse Ch. 01
+================================
 #1 
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
 
  ************** 
 
@@ -142,7 +148,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© "Why are you being so nice to me, all of a sudden?" I asked, still skeptical, sipping my juice. 
+ 
+
+===
+
+"Why are you being so nice to me, all of a sudden?" I asked, still skeptical, sipping my juice. 
 
  "Well, you should know I'm not a morning person," she said. "Besides, I, like, cannot function in the morning without caffeine," she added, sipping at a cup of coffee. Not wanting to be the one holding onto a grudge, I moved on from my annoyance, and allowed myself to chat with my sister amicably. 
 
@@ -318,7 +328,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© It wasn't just me either. Most of the family joked about it. Mine did, Kendra's did. Uncle Karl was a bit of an odd duck, anyway, so we rarely dealt with that side of the family. But they were here now, and we would have to think of ways to avoid being alone with them. 
+ 
+
+===
+
+It wasn't just me either. Most of the family joked about it. Mine did, Kendra's did. Uncle Karl was a bit of an odd duck, anyway, so we rarely dealt with that side of the family. But they were here now, and we would have to think of ways to avoid being alone with them. 
 
  I had just turned to look back at Kendra when Mom appeared behind her. 
 
@@ -484,7 +498,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© "Hi!" Two voices said in unison, causing me to instinctually jump backwards in shock. An area that was once empty was now occupied. Sitting on the edge of the pool were the twins, Bethany and Chastity, clad in bikinis, legs dangling in the pool. 
+ 
+
+===
+
+"Hi!" Two voices said in unison, causing me to instinctually jump backwards in shock. An area that was once empty was now occupied. Sitting on the edge of the pool were the twins, Bethany and Chastity, clad in bikinis, legs dangling in the pool. 
 
  "Uh, hi." I replied, glancing behind me, noting the mom and her two kids getting ready to leave. I was about to be alone with the creepy twins. 
 
@@ -714,7 +732,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© I lied back and tried to relax, but my mind was racing. I replayed the events of the day, trying to figure what the hell was happening. Why were the women of my family flirting with me? Why were they being so brazen? Why were all of them acting so much different, so out of character, than I had ever seen them act before? I could only hope that when I woke up I would escape this bad dream and things would go back to normal. 
+ 
+
+===
+
+I lied back and tried to relax, but my mind was racing. I replayed the events of the day, trying to figure what the hell was happening. Why were the women of my family flirting with me? Why were they being so brazen? Why were all of them acting so much different, so out of character, than I had ever seen them act before? I could only hope that when I woke up I would escape this bad dream and things would go back to normal. 
 
  Unable to relax, I reached over to grab my phone. Finding a text from Sandy waiting for me, I eagerly opened it up, eager for a taste of normalcy. 
 
@@ -908,7 +930,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© Part of me wanted to not have to deal with them, but at this point, I couldn't see how it could be avoided. As I got closer, I began to overhear their conversation. 
+ 
+
+===
+
+Part of me wanted to not have to deal with them, but at this point, I couldn't see how it could be avoided. As I got closer, I began to overhear their conversation. 
 
  "...it was the first time it ever happened. It was amazing!" Dana marveled. 
 
@@ -1108,7 +1134,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© "I would worship your teenage dick." 
+ 
+
+===
+
+"I would worship your teenage dick." 
 
  "Just send your Aunt a few dick pics, at least, something for me to remember you by." 
 
@@ -1342,7 +1372,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 01 ****** byTheTalkMan© "I don't care." I said, beginning to jog away from her. 
+ 
+
+===
+
+"I don't care." I said, beginning to jog away from her. 
 
  "Wait!" she called out after me. I knew her enough to know she wasn't gonna give chase. "We can hang out... tour the city... make babies." I gave her a look back, not sure if I heard her right. But at this point, it didn't matter. 
 
@@ -1358,7 +1392,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
 
  ************** 
 
@@ -1510,7 +1548,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© She pulled open the book and leafed through it, showing me the fancy, ink handwriting going through the many generations, my anger lessening, replaced by curiosity. 
+ 
+
+===
+
+She pulled open the book and leafed through it, showing me the fancy, ink handwriting going through the many generations, my anger lessening, replaced by curiosity. 
 
  "My grandmother gave this book to me. But she was odd about it. It was not a warm, loving passing of a great family heirloom. It was as if she was giving me a job... passing off responsibility so she could rest soundly. I asked her about this, and she told me to read the book, read the passages of our ancestors, and I would find out." 
 
@@ -1642,7 +1684,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© I looked up at her eyes as she looked down at me, a bit of a smirk crossing her plump, full lips. 
+ 
+
+===
+
+I looked up at her eyes as she looked down at me, a bit of a smirk crossing her plump, full lips. 
 
  "Are you kidding me?" I called out angrily, my shoulders slumping in near defeat. After all that had happened... now this? Grandma too? 
 
@@ -1744,7 +1790,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© "Grandma... I don't want this." I declared again, my hands floating in the air, not knowing where to put them, knowing I could just use my superior strength to push her away, but hoping I could just reason with her. 
+ 
+
+===
+
+"Grandma... I don't want this." I declared again, my hands floating in the air, not knowing where to put them, knowing I could just use my superior strength to push her away, but hoping I could just reason with her. 
 
  "That's not what your cock says," she said with a wicked smile. "I can feel how much you want this. I can feel how desperate you are to be inside me. You want to fuck me, your own grandmother. You want to feel her perfect body. Here, just... touch me, Jesse." she began, grabbing my wrists and pulling my hands around her, slapping my hands against her round, tanned ass. She put her hands over mine and made them squeeze. I felt her firm ass between my fingers, gripped in my palms. And despite my better judgment, I had to admit her butt felt amazing. I didn't take my hands off of her once she moved her hands away. I didn't know what else to do, so I just kept squeezing my grandmother's amazing, meaty ass. "Feel me, really get in there and get used to touching my body. Your big hands and my hot body are about to become very well-acquainted. You may not want to admit you want to have sex with me just yet, but you can at least put your hands on my body. That's not so bad, right?" 
 
@@ -1834,7 +1884,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© "I don't think so," she said, straddling me, reaching between her legs to grasp my cock, pointing it towards her bare, waiting cunt. "You are not leaving this bed until you make me cum all over this fat, meaty teenage cock!" She slapped the tip of my cock against the lips of her dripping cunt, and this contact made even her hesitate for a moment. A grandson's cock was slapping against a grandmother's cunt, and filthy sex was soon to follow. She had to steel herself. 
+ 
+
+===
+
+"I don't think so," she said, straddling me, reaching between her legs to grasp my cock, pointing it towards her bare, waiting cunt. "You are not leaving this bed until you make me cum all over this fat, meaty teenage cock!" She slapped the tip of my cock against the lips of her dripping cunt, and this contact made even her hesitate for a moment. A grandson's cock was slapping against a grandmother's cunt, and filthy sex was soon to follow. She had to steel herself. 
 
  Her expression changed as she looked down at me. It reminded me of that evil glare she had given me when she started sucking me off. 
 
@@ -1984,7 +2038,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© "You want to cum, you fucking stud? You think you're so hot you can fire that load wherever you want, even inside your hot grandma's pussy? You want to fill up your grandma's fucking cunt with thick, hot cum, don't you?" she asked, her words driving into me. 
+ 
+
+===
+
+"You want to cum, you fucking stud? You think you're so hot you can fire that load wherever you want, even inside your hot grandma's pussy? You want to fill up your grandma's fucking cunt with thick, hot cum, don't you?" she asked, her words driving into me. 
 
  "Yes." I answered. 
 
@@ -2116,7 +2174,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© I needed more. 
+ 
+
+===
+
+I needed more. 
 
  I reached forward with my other hand and dug my fingers into her shoulder. Rearing back, I drove my hips forward, her chest falling to the bed from the force of my lunge as I drove a good four inches of cock into her tight ass before meeting resistance. 
 
@@ -2322,7 +2384,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© "Grandma... please!" I cried out again, gripping her jugs roughly. 
+ 
+
+===
+
+"Grandma... please!" I cried out again, gripping her jugs roughly. 
 
  "My grandson needs it bad..." she sighed, running her finger over my chest before sucking the sweat off of it. "God, you must have cum dripping through your pores. You need to cum, so be honest... tell me the truth, and I'll make you cum. Tell me the truth, and I'll empty those fat balls." I squirmed under her as she squeezed her ass around my cock some more, in an agonizingly slow rhythm. I couldn't find words. I couldn't think straight. 
 
@@ -2502,7 +2568,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 02 ****** byTheTalkMan© Eventually, we wound up flipped around, so I was on my knees behind her as we both kneeled on the bed, me driving my cock into her. She had her hands gripping my scalp, as mine gripped her bulbous rack. 
+ 
+
+===
+
+Eventually, we wound up flipped around, so I was on my knees behind her as we both kneeled on the bed, me driving my cock into her. She had her hands gripping my scalp, as mine gripped her bulbous rack. 
 
  "Oh yeah, squeeze them! Squeeze them! Squeeze your cousin's tits, cause they're so big they make all your girls' tits look like mosquito bites!" Kendra said, smirking at the other women. 
 
@@ -2546,7 +2616,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 03 ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
 
  *************** 
 
@@ -2670,7 +2744,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 03 ****** byTheTalkMan© I knew it was wrong, I knew I shouldn't, but I couldn't stop myself. I just went along with the ride. 
+ 
+
+===
+
+I knew it was wrong, I knew I shouldn't, but I couldn't stop myself. I just went along with the ride. 
 
  I rested one hand on her hip as I reached around and cupped one of her mammoth, hanging breasts, squeezing it roughly in my palm, my fingers toying with her throbbing nipple. 
 
@@ -2802,7 +2880,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 03 ****** byTheTalkMan© "Aunt Karen... you can't be here. Sandy will be back any minute." I said, eager to shoo her away. 
+ 
+
+===
+
+"Aunt Karen... you can't be here. Sandy will be back any minute." I said, eager to shoo her away. 
 
  "Well then, you'd better be quick. Pull off your pants and show me the goods. Then think of me so you get hard, you know, that kind of rock hard that you only get with women you are crazy hot for. Then, I'll just snap a few pictures. Don't worry, I'll keep them tasteful, and then I'll be on my way," she said, her lips curled in a wicked smile, a smile that made me gulp. 
 
@@ -2976,7 +3058,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 03 ****** byTheTalkMan© Whose breasts were they? Whose breasts was I craving? Whose hot body was haunting my dreams? 
+ 
+
+===
+
+Whose breasts were they? Whose breasts was I craving? Whose hot body was haunting my dreams? 
 
  ************** 
 
@@ -3146,7 +3232,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 03 ****** byTheTalkMan© What had happened to me? How had I fallen so far? These last few months, since the reunion, I had just felt so... listless. All these choices were being made for me. I was being pulled along, from one slutty relative to another, being drawn into sex with beautiful women without even having to work for it. I mean, that probably sounded good to a lot of guys, but I liked where I was before with Sandy. I liked feeling like my own man, making up my own mind on things, taking control of my own life, my own decisions. Now, I was just being pushed around. I had no agency. I had been truly transformed into a walking dick for these women. They would happily continue with this arrangement, but I needed more than that. This wasn't gonna work for me long term. I needed to step up. I needed to find my place in life. I needed to find my place and accept it, to unleash all these pent up feelings these girls were trying to suppress in me. 
+ 
+
+===
+
+What had happened to me? How had I fallen so far? These last few months, since the reunion, I had just felt so... listless. All these choices were being made for me. I was being pulled along, from one slutty relative to another, being drawn into sex with beautiful women without even having to work for it. I mean, that probably sounded good to a lot of guys, but I liked where I was before with Sandy. I liked feeling like my own man, making up my own mind on things, taking control of my own life, my own decisions. Now, I was just being pushed around. I had no agency. I had been truly transformed into a walking dick for these women. They would happily continue with this arrangement, but I needed more than that. This wasn't gonna work for me long term. I needed to step up. I needed to find my place in life. I needed to find my place and accept it, to unleash all these pent up feelings these girls were trying to suppress in me. 
 
  I was home, but I felt like a stranger. I had been so fundamentally changed by the events I had gone through that this didn't feel like home anymore. It didn't feel right. And that was what I needed. I needed to find my place. I needed to find that one person who brought out the best in me, who made me feel things I could never experience with any other. I needed to be able to bring out the real me, and not feel so boxed in and pushed around. I needed to express myself. 
 
@@ -3314,7 +3404,11 @@
 
  
 
- ****** The Phillips Family Curse Ch. 03 ****** byTheTalkMan© "This is part of your job now, Jesse. To grease the wheels. To make my life easier. To give me what I want. And in exchange, you get sex every day with as many women as you can handle, as many women as I can bring you. I bring them in and you nail them into the bed until they can't see straight. Sound fair?" she said, giving me a teasing smile. My eyes flashed at the prospect of even more women that I could make moan at the end of my cock. A whole new world of women that Grandma could give to me. She saw my excitement and flashed me a smile. She found the strength to roll on top of me, straddling me, mounting my newly swollen dick once more. 
+ 
+
+===
+
+"This is part of your job now, Jesse. To grease the wheels. To make my life easier. To give me what I want. And in exchange, you get sex every day with as many women as you can handle, as many women as I can bring you. I bring them in and you nail them into the bed until they can't see straight. Sound fair?" she said, giving me a teasing smile. My eyes flashed at the prospect of even more women that I could make moan at the end of my cock. A whole new world of women that Grandma could give to me. She saw my excitement and flashed me a smile. She found the strength to roll on top of me, straddling me, mounting my newly swollen dick once more. 
 
  "It feels so good to have you inside me again. God, you're an amazing lover, Jesse. Better than I could have ever dreamed," she marveled, grinding on me slowly. We were both pretty tired after the aggressive threesome we had just taken part in, but we were both up for one more. As she ground on me, she looked down at me with that knowing smile of hers. "Well, hon, I suppose it's time I let you in on what happens next. Here..." she said, reaching down to grab my wrists, bringing them up to her udders. She wanted my hands on her jugs when she took full control of my life. My hands squeezed at them greedily. I couldn't get enough of my grandma's huge tits! 
 
@@ -3364,7 +3458,11 @@
 
  
 
- ****** The Phillips Family Curse - Epilogue ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
 
  ************** 
 

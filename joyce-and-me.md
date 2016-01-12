@@ -1,8 +1,14 @@
+Joyce &amp; Me
+==============
 #1 
 
  
 
- ****** Joyce &amp; Me ****** byJust_Plain_Bob© The other day as I was driving home from work I happened to tune in to a local radio talk station and they were carrying the Don and Mike Show from station WJFK somewhere back east. The show was in the middle of a feature they call "Things You Did That Your Mother Doesn't Know About." Listeners are encouraged to call in to the show and relate and episode from their past that their mother never found out about. Don and Mike then pick the story that they find most interesting and arrange an 'on the air' phone call between the listener and the listener's mother so the listener can confess. The listener then gets a $200 prize. Listening to the show reminded me of something that I did that my mother never knew about (thank God) even though she played a major part in it. 
+ 
+
+===
+
+The other day as I was driving home from work I happened to tune in to a local radio talk station and they were carrying the Don and Mike Show from station WJFK somewhere back east. The show was in the middle of a feature they call "Things You Did That Your Mother Doesn't Know About." Listeners are encouraged to call in to the show and relate and episode from their past that their mother never found out about. Don and Mike then pick the story that they find most interesting and arrange an 'on the air' phone call between the listener and the listener's mother so the listener can confess. The listener then gets a $200 prize. Listening to the show reminded me of something that I did that my mother never knew about (thank God) even though she played a major part in it. 
 
  I was still a virgin at the tender age of sixteen - a condition that I desperately wanted to change. Just before my eighteenth birthday my nineteen- year-old brother, Buddy, asked me what I would like for a birthday gift. I jokingly told him that I wanted to lose my virginity and he laughed and said, "Sorry. I'm not a pimp so I can't help you there." The weekend following my birthday Buddy asked me if I would help him move some furniture for a friend and having nothing better to do I said I would. Just before I was supposed to leave with Buddy my mother asked me if I would go over to her best friend Joyce's house and pick up her two kids. She was going to baby-sit them for Joyce. 
 

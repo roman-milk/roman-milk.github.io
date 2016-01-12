@@ -1,8 +1,14 @@
+Lotion and a Dozen Condoms
+==========================
 #1 
 
  
 
- ****** Lotion and a Dozen Condoms ****** byJust_Plain_Bob© I suppose it happens to all married couples at one time or another - you start taking each other for granted. You get so used to each other and your daily routine that you don't notice changes until they smack you in the face. I know that's what happened to Ashley and me. We are in our mid-forties and have been married for twenty-five years. We are 'comfortable' with each other, if you know what I mean. We have raised three kids and they are all out on their own which gives Ashley and me all the free time in the world to do all the things we said we would do when the kids were gone. But for some reason we still can't seem to find the time to do them. I'm putting in ten to twelve hours a day to run my business and Ashley decided a couple of years ago to go back to work, not because we need the money, but because she needed something to do. And then something happened that turned our world upside down and inside out. 
+ 
+
+===
+
+I suppose it happens to all married couples at one time or another - you start taking each other for granted. You get so used to each other and your daily routine that you don't notice changes until they smack you in the face. I know that's what happened to Ashley and me. We are in our mid-forties and have been married for twenty-five years. We are 'comfortable' with each other, if you know what I mean. We have raised three kids and they are all out on their own which gives Ashley and me all the free time in the world to do all the things we said we would do when the kids were gone. But for some reason we still can't seem to find the time to do them. I'm putting in ten to twelve hours a day to run my business and Ashley decided a couple of years ago to go back to work, not because we need the money, but because she needed something to do. And then something happened that turned our world upside down and inside out. 
 
  +++++++++++++++++++++ 
 

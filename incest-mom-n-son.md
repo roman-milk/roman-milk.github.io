@@ -1,8 +1,14 @@
+&quot;Incest Submission&quot;: Mom &amp; Son
+============================================
 #1 
 
  
 
- ****** &quot;Incest Submission&quot;: Mom &amp; Son ****** bysilkstockingslover© "Incest Submission": Mom &amp; Son 
+ 
+
+===
+
+"Incest Submission": Mom &amp; Son 
 
  Summary: Hot Mom and college son seduce each other on Earth Day. 
 
@@ -366,7 +372,11 @@
 
  
 
- ****** &quot;Incest Submission&quot;: Mom &amp; Son ****** bysilkstockingslover© Makingmommymine: Mommy-slut. 
+ 
+
+===
+
+Makingmommymine: Mommy-slut. 
 
  Makingmommymine: Mommy-slave. 
 
@@ -806,7 +816,11 @@
 
  
 
- ****** &quot;Incest Submission&quot;: Mom &amp; Son ****** bysilkstockingslover© Simon, trying to act casual and strong, now that the original shock was now gone, said, "If that is true it is your fault then." 
+ 
+
+===
+
+Simon, trying to act casual and strong, now that the original shock was now gone, said, "If that is true it is your fault then." 
 
  "How so?" Sara asked, with a raised eye brow, while considering just lifting up his sheets and taking his cock in her mouth. 
 
@@ -1166,7 +1180,11 @@
 
  
 
- ****** &quot;Incest Submission&quot;: Mom &amp; Son ****** bysilkstockingslover© "You really need to get out and find a man," Glenda scoffed. 
+ 
+
+===
+
+"You really need to get out and find a man," Glenda scoffed. 
 
  Sara sighed, as it was the same thing she heard from her mother every time they talked. "Mom, I found a man." 
 
@@ -1356,7 +1374,11 @@
 
  
 
- ****** &quot;Incest Submission&quot;: Mom, Nana &amp; Son ****** bysilkstockingslover© Summary: Hot Nana becomes slut to daughter and grandson. 
+ 
+
+===
+
+Summary: Hot Nana becomes slut to daughter and grandson. 
 
  Thanks: MAB7991, Robert and goamz86 for their editing expertise. 
 
@@ -1662,7 +1684,11 @@
 
  
 
- ****** &quot;Incest Submission&quot;: Mom, Nana &amp; Son ****** bysilkstockingslover© Sara quipped, deciding the door was wide open to push things further, walked over to her mother, and straddled her face, "Good to know." 
+ 
+
+===
+
+Sara quipped, deciding the door was wide open to push things further, walked over to her mother, and straddled her face, "Good to know." 
 
  It was Glenda's turn to gasp. "Sara!" 
 

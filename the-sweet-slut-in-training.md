@@ -1,8 +1,14 @@
+The Sweet Slut In Training Ch. 01
+=================================
 #1 
 
  
 
- ****** The Sweet Slut In Training Ch. 01 ****** bydlsloan© Chapter One: Between a rock and a hard place 
+ 
+
+===
+
+Chapter One: Between a rock and a hard place 
 
  Valarie Evans slammed the door shut and sprinted to the kitchen, grabbing a bottle of water and chugging it as quickly as she could. She could still taste the bitter, salty stuff in her mouth and she wanted it out. She stripped off her thin shirt on her way to the shower. She hoped the warm, soapy water would wash away her shame, but it was still there even as she toweled off and put on her warm cotton winter pajamas, even though it was still mid-morning. She felt cold and vulnerable and exposed, but mostly ashamed at what she had just done. She tried watching TV, reading a book and surfing on the Internet, but her mind kept flashing back to what happened. 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 01 ****** bydlsloan© Just then, her phone rang. It was Roy, thank heaven! "Roy!" she answered hopefully. 
+ 
+
+===
+
+Just then, her phone rang. It was Roy, thank heaven! "Roy!" she answered hopefully. 
 
  "Yeah, did you just call a little bit ago?" 
 
@@ -338,7 +348,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 01 ****** bydlsloan© She slipped on a silky pink see-through nighty that hung down to her hips. It came with a matching thong, and she put this on too. She lay in bed and rubbed and cupped her breasts through the silky material, She dipped her fingers inside her thong and stroked her pussy lips, then pulled the soft material between her lips and used it to rub her clit. She pictured her new men – Travers, Nelson and Roy. She thought first about Roy's boyish good looks and broad smile. He was tall and she pictured him with firm abs and a strong cock. She thought about Travers, the well-groomed, handsome gentleman who knew what he wanted and took it. She had no doubt he'd tell her what to do, how to do it and why should she be enjoying it. Then she thought about Nelson. The man was a god. So handsome, so strong. She just knew he had a rock-hard chest and solid biceps. She had to admit that having sex with any of these men seemed like it would be fun. 
+ 
+
+===
+
+She slipped on a silky pink see-through nighty that hung down to her hips. It came with a matching thong, and she put this on too. She lay in bed and rubbed and cupped her breasts through the silky material, She dipped her fingers inside her thong and stroked her pussy lips, then pulled the soft material between her lips and used it to rub her clit. She pictured her new men – Travers, Nelson and Roy. She thought first about Roy's boyish good looks and broad smile. He was tall and she pictured him with firm abs and a strong cock. She thought about Travers, the well-groomed, handsome gentleman who knew what he wanted and took it. She had no doubt he'd tell her what to do, how to do it and why should she be enjoying it. Then she thought about Nelson. The man was a god. So handsome, so strong. She just knew he had a rock-hard chest and solid biceps. She had to admit that having sex with any of these men seemed like it would be fun. 
 
  Then she thought about them using her, showing her off in public, dressing her in sexy dresses and taking her to dinners and shows. She thought about them sitting at their desks while she crouched below them and serviced them. She thought about them taking her two at a time. Maybe even three! They wouldn't dare, would they? Her pussy was so wet now, her nipples hard. She squeezed her breasts and rubbed her clit in little circles. She pressed the soft sheets against her body and rubbed them between her thighs. She curled her toes and stretched her legs, opening them wider and wider. She thought about them taking her like this, legs spread wide, pussy wet, nipples hard, and taking turns, fucking her all night long, one after the other. 
 
@@ -348,7 +362,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 02 ****** bydlsloan© Chapter Two: Learning the ropes 
+ 
+
+===
+
+Chapter Two: Learning the ropes 
 
  The next morning, Valarie awoke still excited and happy about her decision, though a little nervous now that it was about to become reality. She wondered how long they would wait before they had sex with her, then laughed at herself. They wouldn't wait. It was only a matter of hours before they would make her their slut for the first time. It was a little scary, but she was looking forward to it all the same. They had instilled so much trust in her, made her feel so good about herself, both in terms of her looks and her personality, she was confident and ready to prove to them she was every bit as good as they thought she was. She didn't want to let them down. How weird was that? 
 
@@ -514,7 +532,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 02 ****** bydlsloan© Disappointed, she sat down and checked her email. A note from Nelson: "My office, blowjob, now." She looked at his office. He was on the phone and busily writing something. She hurried over and peeked in the door. He looked at her and pushed his chair back, motioning to her to come over. She closed the door and went to him, dropping to her knees. He was still on the phone, involved in what seemed to be a very important conversation. Valarie knew that wasn't her concern right now. Neither was the needs of her own pussy. Her only responsibility, her only priority, was to suck his cock. Oddly, she discovered that she couldn't wait. She had masturbated last night envisioning Nelson's cock. Now, she could finally see it, touch it, taste it. She tugged at his trousers and pulled his cock out. It was semi-hard, but as soon as she touched her tongue to it, he grew fully erect. 
+ 
+
+===
+
+Disappointed, she sat down and checked her email. A note from Nelson: "My office, blowjob, now." She looked at his office. He was on the phone and busily writing something. She hurried over and peeked in the door. He looked at her and pushed his chair back, motioning to her to come over. She closed the door and went to him, dropping to her knees. He was still on the phone, involved in what seemed to be a very important conversation. Valarie knew that wasn't her concern right now. Neither was the needs of her own pussy. Her only responsibility, her only priority, was to suck his cock. Oddly, she discovered that she couldn't wait. She had masturbated last night envisioning Nelson's cock. Now, she could finally see it, touch it, taste it. She tugged at his trousers and pulled his cock out. It was semi-hard, but as soon as she touched her tongue to it, he grew fully erect. 
 
  Valarie stroked his shaft with her soft hands while she licked the head of his cock, then gently took it into her mouth. She looked up at him for signs of approval, but he was fully into his phone call, actually taking notes. Talk about multi-tasking, she thought. She went about half way down his shaft and started bobbing her head up and down slowly, using her tongue to coat the underside of his cock and tease the underside of his head, which she knew was extremely sensitive. 
 
@@ -656,7 +678,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 02 ****** bydlsloan© "So, welcome to my house," he laughed, tucking his cock back into his pants. "Want to come in?" 
+ 
+
+===
+
+"So, welcome to my house," he laughed, tucking his cock back into his pants. "Want to come in?" 
 
  "Gee, I don't know," Valarie laughed, panting on the concrete. "I'm not that kind of girl, you know." 
 
@@ -804,7 +830,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 02 ****** bydlsloan© "No expense is too great," he said. "Get some things for yourself, too, Coco. Call me when you're ready to be picked up. And, Valarie, be wearing something appropriate for a a charity fundraiser banquet." 
+ 
+
+===
+
+"No expense is too great," he said. "Get some things for yourself, too, Coco. Call me when you're ready to be picked up. And, Valarie, be wearing something appropriate for a a charity fundraiser banquet." 
 
  Coco led Valarie into store after store. She would grab clothes by the armload and take them to Valarie, who waited in the dressing room, trying on one item after another. Coco insisted that she see everything Valarie tried on. "Remember, it's not whether you like it or not or how it feels on you, it's how it looks to them," Coco said. "A little tighter, a little shorter than you might like is still a little looser or a little longer than they might like." 
 
@@ -970,7 +1000,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 02 ****** bydlsloan© She returned the lusty looks from men and critical frowns from women with the same glowing smile that had earned her compliments all her life. She looked right back into their eyes with her own shimmering jewels, trusting the pretty, confident, light-up-the-room face that had always been her best feature. Of course, a lot of the looks were going to what most of the guys considered her best features -- her ass and her legs. They were displayed brilliantly in this outfit and most of the men didn't even try to hide their obvious interest and appreciation. 
+ 
+
+===
+
+She returned the lusty looks from men and critical frowns from women with the same glowing smile that had earned her compliments all her life. She looked right back into their eyes with her own shimmering jewels, trusting the pretty, confident, light-up-the-room face that had always been her best feature. Of course, a lot of the looks were going to what most of the guys considered her best features -- her ass and her legs. They were displayed brilliantly in this outfit and most of the men didn't even try to hide their obvious interest and appreciation. 
 
  Nelson was smiling, nodding to familiar faces, leading Valarie to the bar. He got them both a drink and they continued mingling. They bumped into acquaintances and he introduced Valarie with pride in his voice, treating her with all the respect of a princess. A star, Valarie reminded herself, be a star. She greeted everyone with her sparkling eyes and warm smile, shaking hands and complimenting other women on their glamorous dresses. She was witty, charming and graceful. 
 
@@ -1144,7 +1178,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 02 ****** bydlsloan© "That's it," Nelson said. "I can't take it any more. Great job, Coco. Now leave. I've got something to do." 
+ 
+
+===
+
+"That's it," Nelson said. "I can't take it any more. Great job, Coco. Now leave. I've got something to do." 
 
  "You mean someone," Coco laughed. She gave him a kiss and Valarie a hug and let herself out while Nelson approached Valarie. 
 
@@ -1176,7 +1214,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 03 ****** bydlsloan© Chapter Three: Hot Wheels 
+ 
+
+===
+
+Chapter Three: Hot Wheels 
 
  Valarie and Nelson had sex three more times that night, napping in between. Valarie rode him once, took it doggy style another time and lay back and spread her legs wide the third time. She came once more, him three times. They both were wet and sticky and as happy as could be. Valarie didn't think she was falling in love with Nelson, but she sure loved the fun they had together and the fact that he turned her on as much as she did him. 
 
@@ -1346,7 +1388,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 03 ****** bydlsloan© "Relax," Travers smiled. "You remember when you were a child and you had to take medicine and your mom would mix it with ice cream or mashed potatoes or something to make it taste better?" 
+ 
+
+===
+
+"Relax," Travers smiled. "You remember when you were a child and you had to take medicine and your mom would mix it with ice cream or mashed potatoes or something to make it taste better?" 
 
  "Sure, I always mixed it in my cereal," Valarie said. 
 
@@ -1524,7 +1570,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 03 ****** bydlsloan© She stopped looking at herself and looked at the guys, expecting them to be frowning or laughing at her awkward attempts. Instead, they were still gawking at her, their eyes locked to her body, silly boyish grins on their faces. Instantly, she began to relax. She focused on them instead of herself, watching them as she moved, paying attention to how they reacted to certain movements. She remembered Coco telling her to watch them, that their eyes would tell her what to do. Sure enough, she found herself moving fluidly, confidently now, her body jerking and grinding and twisting to the thick beats. 
+ 
+
+===
+
+She stopped looking at herself and looked at the guys, expecting them to be frowning or laughing at her awkward attempts. Instead, they were still gawking at her, their eyes locked to her body, silly boyish grins on their faces. Instantly, she began to relax. She focused on them instead of herself, watching them as she moved, paying attention to how they reacted to certain movements. She remembered Coco telling her to watch them, that their eyes would tell her what to do. Sure enough, she found herself moving fluidly, confidently now, her body jerking and grinding and twisting to the thick beats. 
 
  "Your love is like bad medicine. Bad medicine is what I need," the song said. She thought it was especially appropriate. Her disease was a slight aversion to cum. And the medicine was a heavy dose of it. Bad medicine? Well, hopefully not. Think positive thoughts, associate it with good things, she reminded herself. She looked at the dorky grins on the faces of men who in other settings were successful, distinguished businessmen and community leaders. She realized she had them in the palm of her hand. She wiggled her ass and their eyes boggled back and forth. She ran her hands over her breasts and they licked their lips. 
 
@@ -1660,7 +1710,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 03 ****** bydlsloan© When everyone was sufficiently disrobed, Valarie began making the rounds. She would straddle each guy one at a time, grinding on him for about a minute, rubbing her tits in his face and letting her pussy lips barely graze across the tops of their cocks. In between chairs, she'd spread her legs, bend over, cup her breasts -- anything she could think of. Like her previous dance, she felt awkward and clunky at first. These were her first lap dances, her first striptease and these heels were ridiculous. But knowing that she had caused six grown men to have erections at the same time was a powerful, intoxicating feeling, and that feeling of accomplishment, purpose and sultry desire returned. 
+ 
+
+===
+
+When everyone was sufficiently disrobed, Valarie began making the rounds. She would straddle each guy one at a time, grinding on him for about a minute, rubbing her tits in his face and letting her pussy lips barely graze across the tops of their cocks. In between chairs, she'd spread her legs, bend over, cup her breasts -- anything she could think of. Like her previous dance, she felt awkward and clunky at first. These were her first lap dances, her first striptease and these heels were ridiculous. But knowing that she had caused six grown men to have erections at the same time was a powerful, intoxicating feeling, and that feeling of accomplishment, purpose and sultry desire returned. 
 
  Her movements became smooth, slinky. Her nipples hypnotized, her ass tantalized, her legs mesmerized. From eyes to thighs, she was a vision of pure beauty, grace and unrestrained sexuality. 
 
@@ -1800,7 +1854,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 04 ****** bydlsloan© Chapter Four: Sweet Heat 
+ 
+
+===
+
+Chapter Four: Sweet Heat 
 
  The next morning, Valarie awoke with a slight headache and a stale taste in her mouth. She rolled over, aware that she was nude. She tried to remember what happened after Travers had taken her upstairs at the end of the party. She had visions of him humping her furiously while she drifted in and out of consciousness. For an older man, he had a lot of energy. She rolled over slowly, realizing he wasn't in the bed with her. She saw a note on the night stand and read it. 
 
@@ -1928,7 +1986,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 04 ****** bydlsloan© "Amazing," Travers said, no longer needing to patronize the twisted doctor. This was truly incredible stuff. Travers was disgusted that the doctor didn't put his genius to greater use for the greater good, but the man was as egotistical and selfish as they came. His wealth, his intellect, virtually his every thought were poured into finding new ways to maximize his sexual pleasure. The man was an addict, no question. Travers was sickened by Dr. Pound, but also in awe of his creations, including this one. "How do you do the um, installation?" 
+ 
+
+===
+
+"Amazing," Travers said, no longer needing to patronize the twisted doctor. This was truly incredible stuff. Travers was disgusted that the doctor didn't put his genius to greater use for the greater good, but the man was as egotistical and selfish as they came. His wealth, his intellect, virtually his every thought were poured into finding new ways to maximize his sexual pleasure. The man was an addict, no question. Travers was sickened by Dr. Pound, but also in awe of his creations, including this one. "How do you do the um, installation?" 
 
  "Simple, just give it a gentle push -- unless you like an excuse to get a little rougher -- against the inside of her pussy," Pound said. "You don't have to mash it. It will stick just fine. Won't hurt her a bit. Now, the second piece will cause a little discomfort for about a day, but no real pain. After that, she won't even know it's there -- until you zap her with the remote." 
 
@@ -2078,7 +2140,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 04 ****** bydlsloan© "Well, I don't think this will be much of a workout," Roy said. "More a first meeting, maybe getting a baseline on your strength, flexibility, endurance, you know, stuff like that, then working on a plan." 
+ 
+
+===
+
+"Well, I don't think this will be much of a workout," Roy said. "More a first meeting, maybe getting a baseline on your strength, flexibility, endurance, you know, stuff like that, then working on a plan." 
 
  "All right," Valarie said. "When and where." 
 
@@ -2210,7 +2276,11 @@
 
  
 
- ****** The Sweet Slut In Training Ch. 04 ****** bydlsloan© "OK, before you put her legs down, let's test the remote," Pound said. "Hit 'Talk'. What do you feel, Valarie?" 
+ 
+
+===
+
+"OK, before you put her legs down, let's test the remote," Pound said. "Hit 'Talk'. What do you feel, Valarie?" 
 
  "Oh my," she gasped. "It's, it's like little lightning bolts inside my pussy. Oh, ahhh." 
 
@@ -2322,7 +2392,11 @@
 
  
 
- ****** The Sweet Slut in Training Ch. 05 ****** bydlsloan© Chapter Five: Waves of Pleasure 
+ 
+
+===
+
+Chapter Five: Waves of Pleasure 
 
  The rest of the week was a blur for Valarie. Dr. Pound had taken it upon himself to send three more remotes to the implants in her pussy and clit. So, now Nelson, Travers and Roy each had one and she had one for herself. Just keeping up with her sex log, answering the phones and doing the filing was a chore because the guys were constantly playing with their new toys, taking great joy in watching her react to the buzzing and spinning and jolting going on inside her. 
 
@@ -2416,7 +2490,11 @@
 
  
 
- ****** The Sweet Slut in Training Ch. 05 ****** bydlsloan© She sunk her index finger easily into her juicy slit, feeling the vibrations from within her pussy tingling through her fingers. With her right hand occupied, her left hand drifted to her breasts, pinching her nipples, pulling the suit away to introduce her hard buds to the warm sun and cool breeze. 
+ 
+
+===
+
+She sunk her index finger easily into her juicy slit, feeling the vibrations from within her pussy tingling through her fingers. With her right hand occupied, her left hand drifted to her breasts, pinching her nipples, pulling the suit away to introduce her hard buds to the warm sun and cool breeze. 
 
  Now she felt hands on her legs and realized that at least two of the men had come down and were now spreading her legs wide, holding them out. "Here, I'll get some chairs," she heard Travers say and realized they were all three there. She wondered who was guiding the boat, but assumed they were probably just drifting now in open water. 
 
@@ -2604,7 +2682,11 @@
 
  
 
- ****** The Sweet Slut in Training Ch. 06 ****** bydlsloan© Chapter Six: All Hands on Valarie 
+ 
+
+===
+
+Chapter Six: All Hands on Valarie 
 
  Heeding the Coast Guard's warning, Travers had the boat headed toward the nearest dock, which they found at a small seaside village. They radioed their position to Jay, who called Dr. Pound. 
 
@@ -2750,7 +2832,11 @@
 
  
 
- ****** The Sweet Slut in Training Ch. 06 ****** bydlsloan© She pulled down her leggings and poured some of the lube in her hand and rubbed it into her ass and pussy, driving her fingers inside herself, wanting to do more, but forcing herself to stop. She covered the dildo in lube as well and gently slid the oversized dick into her pussy. It filled her nicely. Then, she coated the short black butt plug and gently inserted that into her tight ass. It was the first time she had done so, but she was pretty sure the guys would get the message. They had been patient and waited long enough. If they wanted her ass, it was theirs to take. Prepping it with lube and a butt plug seemed both prudent and a good way of communicating. She wanted her display and her body to do the talking this morning. 
+ 
+
+===
+
+She pulled down her leggings and poured some of the lube in her hand and rubbed it into her ass and pussy, driving her fingers inside herself, wanting to do more, but forcing herself to stop. She covered the dildo in lube as well and gently slid the oversized dick into her pussy. It filled her nicely. Then, she coated the short black butt plug and gently inserted that into her tight ass. It was the first time she had done so, but she was pretty sure the guys would get the message. They had been patient and waited long enough. If they wanted her ass, it was theirs to take. Prepping it with lube and a butt plug seemed both prudent and a good way of communicating. She wanted her display and her body to do the talking this morning. 
 
  She pulled her leggings back up, noting how the wetness between her legs quickly soaked through. With two of her holes already filled, she filled the third with a bright red ball gag that matched the color of her heels. 
 
@@ -2880,7 +2966,11 @@
 
  
 
- ****** The Sweet Slut in Training Ch. 06 ****** bydlsloan© "We would." 
+ 
+
+===
+
+"We would." 
 
  "Well, even though she can't speak for herself at the moment, I'm quite confident that Valarie will be happy to extend you and your men the same courtesy. My only instruction will be the same as it was with your co-workers - - no rough stuff." 
 

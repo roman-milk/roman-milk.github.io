@@ -1,8 +1,14 @@
+Our First Swing:...
+===================
 #1 
 
  
 
- ****** Our First Swing:... ****** byTx_Tall_Tales© Our First Swing: Games & Discoveries 
+ 
+
+===
+
+Our First Swing: Games & Discoveries 
 
  ** Chapter 1 - A Weekend In the Country ** 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Our First Swing:... ****** byTx_Tall_Tales© "Ok everyone, I'm going to give Steve a big kiss in the next room, I don't want any funny business while I'm gone." Sheri giggled as we walked next door. 
+ 
+
+===
+
+"Ok everyone, I'm going to give Steve a big kiss in the next room, I don't want any funny business while I'm gone." Sheri giggled as we walked next door. 
 
  There was no door, just the dining area, and a wall we stood behind. She leaned against the antique dinner table that could seat 10 and filled the room completely. 
 
@@ -426,7 +436,11 @@
 
  
 
- ****** Our First Swing:... ****** byTx_Tall_Tales© "Don't feed her, FUCK HER." 
+ 
+
+===
+
+"Don't feed her, FUCK HER." 
 
  With that he slowly pushed into her ass about two-thirds of the way. He pulled out and slammed his entire weight down upon her upturned ass, burying his entire cock in her back entrance. 
 
@@ -654,7 +668,11 @@
 
  
 
- ****** Our First Swing:... ****** byTx_Tall_Tales© I reached for the Vaseline and dropped a scoop of it on her little brown hole. Just then I could hear and feel her cumming, and cumming hard, in anticipation. I kept a steady pace of fucking up as I loosened her ass. She was such a hot little bitch, and she came so easily. I'd never seen anything like it. 
+ 
+
+===
+
+I reached for the Vaseline and dropped a scoop of it on her little brown hole. Just then I could hear and feel her cumming, and cumming hard, in anticipation. I kept a steady pace of fucking up as I loosened her ass. She was such a hot little bitch, and she came so easily. I'd never seen anything like it. 
 
  "You've been so good, I'm going to open you up easy. Relax and enjoy. Or don't. I don't really care. I'm fucking your ass tonight, one way or the other." As she stopped cumming, she did relax her ass a bit, and I got my thumb in her. I pushed and pulled to the sides, then dipped my middle finger in the jar, and slipped it up her rear. 
 
@@ -906,7 +924,11 @@
 
  
 
- ****** Our First Swing:... ****** byTx_Tall_Tales© "Well, this has been a productive night," she pronounced, "but I'm afraid I'm done for the night. Any suggestions about sleeping arrangements?" 
+ 
+
+===
+
+"Well, this has been a productive night," she pronounced, "but I'm afraid I'm done for the night. Any suggestions about sleeping arrangements?" 
 
  When no one immediately spoke up, I filled the gap. "I, for one, have had an incredible time tonight. I'd like to avoid the morning awkwardness. Does anyone here regret what was done here tonight?" I asked. 
 

@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Darby
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Darby ****** byJust_Plain_Bob© I was there for the first part of the story and it was only later that I learned the rest, much later and much too late to do anything about it. 
+ 
+
+===
+
+I was there for the first part of the story and it was only later that I learned the rest, much later and much too late to do anything about it. 
 
  It started innocently enough. We were staying at a hotel on the beach in San Juan, Puerto Rico. We had just returned from an evening of dinner and dancing and we were sipping wine on the balcony of our sixth floor room. It was a full moon and the moon's reflection on the ocean was beautiful. My wife Darby said: 
 

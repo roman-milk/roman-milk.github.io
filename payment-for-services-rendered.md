@@ -1,8 +1,14 @@
+Payment for Services Rendered
+=============================
 #1 
 
  
 
- ****** Payment for Services Rendered ****** byJust_Plain_Bob© It was an absolutely marvelous blowjob, made all the more satisfying by it being so totally unexpected. Adding to the excitement was the behavior of the young lady doing the sucking - I had my tongue in her cunt and she was going nuts. All in all the experience was well worth the $101.62 that it was going to cost me. Don't get me wrong, the young lady, Marci was her name, was not a prostitute, someone in the business of selling sex for money, she was just settling a debt. 
+ 
+
+===
+
+It was an absolutely marvelous blowjob, made all the more satisfying by it being so totally unexpected. Adding to the excitement was the behavior of the young lady doing the sucking - I had my tongue in her cunt and she was going nuts. All in all the experience was well worth the $101.62 that it was going to cost me. Don't get me wrong, the young lady, Marci was her name, was not a prostitute, someone in the business of selling sex for money, she was just settling a debt. 
 
  The story started two days ago when a man came into the shop where I work and bought himself a receiver hitch and an electronic brake control. He was going to rent a trailer and haul a car to his parent's house. He told me he had all the tools necessary to install the items himself and so I gave him a few tips on how to do it and he left. The next day he was back and said he couldn't seem to get the hitch to fit or the brake control to work and he asked me how much I would charge to install both correctly. I gave him a price and set up an appointment for him to bring his truck in on the following day. He told me that he had to work, but that his wife worked just up the street and she would drop it off in the morning. Then he asked me if I could drive her to work and then possibly pick her up after the job was done. Since she worked within three blocks of my shop I told him that it wouldn't be a problem. 
 

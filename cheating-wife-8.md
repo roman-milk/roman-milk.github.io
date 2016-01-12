@@ -1,8 +1,14 @@
+Cheating Wife
+=============
 #1 
 
  
 
- ****** Cheating Wife ****** byGotBacon© This story is set in the early 1960's. Unfortunately, it's the real thing too many times. It's where the term WESTPAC Widows came from. 
+ 
+
+===
+
+This story is set in the early 1960's. Unfortunately, it's the real thing too many times. It's where the term WESTPAC Widows came from. 
 
  
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Cheating Wife ****** byGotBacon© "You won't regret that decision, baby. I'll be the best wife in the world. Oh, and I have a surprise for you. Come and see." 
+ 
+
+===
+
+"You won't regret that decision, baby. I'll be the best wife in the world. Oh, and I have a surprise for you. Come and see." 
 
  She drags me into the bedroom" 
 

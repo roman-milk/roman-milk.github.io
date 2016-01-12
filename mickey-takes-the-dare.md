@@ -1,8 +1,14 @@
+Mickey Takes The Dare
+=====================
 #1 
 
  
 
- ****** Mickey Takes The Dare ****** byJust_Plain_Bob© Mickey and I got married, but we had a problem. We both worked for the same company and the company policy was that a married couple could not work together in the same department. What made things worse is that I was her supervisor and that was a definite no no. As a result we kept our marriage a secret and neither Mickey nor I wore our wedding rings. We figured we could get away with it for however long it took Mickey to get her promotion and transfer to a different department. 
+ 
+
+===
+
+Mickey and I got married, but we had a problem. We both worked for the same company and the company policy was that a married couple could not work together in the same department. What made things worse is that I was her supervisor and that was a definite no no. As a result we kept our marriage a secret and neither Mickey nor I wore our wedding rings. We figured we could get away with it for however long it took Mickey to get her promotion and transfer to a different department. 
 
  Mickey and I have pretty decent senses of humor and our situation gave us a lot to laugh about. For one thing, Mickey is a fine looking woman working in a department with about twenty guys. There were two other women in the group, but one was a grandmotherly type and the other was a married woman who was a religious fanatic. The result was that Mickey got all the male attention. She was constantly asked out on dates and occasionally she would let someone take her to lunch just to tweak my nose. Every so often I would have to go out of town for a day or two and Mickey would always make sure that she went out on a date while I was gone. When I'd call her on the phone she would tell me about how she had to fight the guy off when he brought her home and then coyly ask me: 
 

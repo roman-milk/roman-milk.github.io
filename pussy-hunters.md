@@ -1,8 +1,14 @@
+Pussy Hunters
+=============
 #1 
 
  
 
- ****** Pussy Hunters ****** byGotBacon© This my first attempt at a first person story. There will be some typo's and some bad grammar for the OCD'ers. If that's a problem, click the back button. 
+ 
+
+===
+
+This my first attempt at a first person story. There will be some typo's and some bad grammar for the OCD'ers. If that's a problem, click the back button. 
 
  ***** 
 
@@ -300,7 +306,11 @@
 
  
 
- ****** Pussy Hunters ****** byGotBacon© "Don't worry. You won't grow antlers. Only males have them." 
+ 
+
+===
+
+"Don't worry. You won't grow antlers. Only males have them." 
 
  They all chuckle. 
 

@@ -1,8 +1,14 @@
+The Runaways
+============
 #1 
 
  
 
- ****** The Runaways ****** byJust_Plain_Bob© Authors note: This story has two endings. I wrote the story and then my proofreader said it needed a different ending. Actually what she said that she saw the possibility of multiple endings, but I'm too lazy for that. But, since I have the screaming hots for the lady and want nothing more than to have her sit on my face I thought I'd better give her something to keep her happy. I do hope you enjoy. 
+ 
+
+===
+
+Authors note: This story has two endings. I wrote the story and then my proofreader said it needed a different ending. Actually what she said that she saw the possibility of multiple endings, but I'm too lazy for that. But, since I have the screaming hots for the lady and want nothing more than to have her sit on my face I thought I'd better give her something to keep her happy. I do hope you enjoy. 
 
  +++++ 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** The Runaways ****** byJust_Plain_Bob© "You have another roommate?" 
+ 
+
+===
+
+"You have another roommate?" 
 
  "Yeah, but don't worry, we aren't going to share you with anyone else. Are you ready to see the bedroom?" 
 

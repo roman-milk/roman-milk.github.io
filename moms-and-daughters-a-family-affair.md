@@ -1,8 +1,14 @@
+&quot;Moms &amp; Daughters&quot;: A Family Affair
+=================================================
 #1 
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© CREDIT &amp; THANKS: A super special thanks to legendary artist Rebecca (of the Housewives at Play series and many more) for giving me permission to use a few of her plethora of illustrations for this story. We collaborated in 2014 on Straight Housewife Blackmailed. Also, this lengthy story is a HOMAGE to the many works of Rebecca, particularly her Housewives at Play series and her Hot Moms series. The concept is a little plot, a lot of naughty lesbian submission and very kinky pictures. 
+ 
+
+===
+
+CREDIT &amp; THANKS: A super special thanks to legendary artist Rebecca (of the Housewives at Play series and many more) for giving me permission to use a few of her plethora of illustrations for this story. We collaborated in 2014 on Straight Housewife Blackmailed. Also, this lengthy story is a HOMAGE to the many works of Rebecca, particularly her Housewives at Play series and her Hot Moms series. The concept is a little plot, a lot of naughty lesbian submission and very kinky pictures. 
 
  NOTE 1: Also, please note Rebecca generously gave me access to her entire gallery of photos and although not always perfect, I have tried to have the characters look identical as possible for the story. 
 
@@ -268,7 +274,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© Chloe came home a few minutes later and said, "Seriously, Amanda, you are the biggest prude." 
+ 
+
+===
+
+Chloe came home a few minutes later and said, "Seriously, Amanda, you are the biggest prude." 
 
  I stammered, "H-h-he tried to shove his penis in my mouth." 
 
@@ -560,7 +570,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© Mom moaned, after a couple of minutes of my exploring, "That's it, baby, do you like tasting Mommy's cunt?" 
+ 
+
+===
+
+Mom moaned, after a couple of minutes of my exploring, "That's it, baby, do you like tasting Mommy's cunt?" 
 
  "Yes," I whispered, as I didn't stop licking, wanting more of her wetness. 
 
@@ -904,7 +918,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© I want to not only own her body, I want to own her pleasure. 
+ 
+
+===
+
+I want to not only own her body, I want to own her pleasure. 
 
  "Oh fuck, Mistress, I'm going to explodddde," she moans, a few minutes later as a second orgasm quickly builds before the first as even faded. 
 
@@ -1302,7 +1320,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© Pulling her fingers out, Chloe winked at Beth, grabbed her sundress and said, "Now we are almost even." 
+ 
+
+===
+
+Pulling her fingers out, Chloe winked at Beth, grabbed her sundress and said, "Now we are almost even." 
 
  "Fuck you," Beth snapped, finally walking towards Chloe enraged. 
 
@@ -1648,7 +1670,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© "Should I?" Chloe questioned, a naughty idea suddenly forming in her head. 
+ 
+
+===
+
+"Should I?" Chloe questioned, a naughty idea suddenly forming in her head. 
 
  "Please, just keep fucking your slut's asshole," the submissive begged, partly because she didn't want to have Chloe speak to her daughter and partly because she had finally begun to enjoy having a cock in her ass. 
 
@@ -2028,7 +2054,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© 
+ 
+
+===
+
+
 
  a-family-affair44.jpg] 
 
@@ -2380,7 +2410,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© Deborah followed, already deciding she was going to take her now. 
+ 
+
+===
+
+Deborah followed, already deciding she was going to take her now. 
 
  Once in her apartment, Deborah moved in and kissed her newest prey. 
 
@@ -2720,7 +2754,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© I opened the door and Allison gasped, "You weren't shitting me!" 
+ 
+
+===
+
+I opened the door and Allison gasped, "You weren't shitting me!" 
 
  "Mom go to your room and wait," Deborah ordered. 
 
@@ -3046,7 +3084,11 @@
 
  
 
- ****** &quot;Moms &amp; Daughters&quot;: A Family Affair ****** bysilkstockingslover© "Ah, ah, ah, oh, ah, fuuuuuuck," Chloe screamed, as her orgasm coursed through her. 
+ 
+
+===
+
+"Ah, ah, ah, oh, ah, fuuuuuuck," Chloe screamed, as her orgasm coursed through her. 
 
  They continued for a couple more minutes until Deborah's second orgasm hit her. 
 

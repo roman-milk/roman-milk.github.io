@@ -1,8 +1,14 @@
+Serendipity
+===========
 #1 
 
  
 
- ****** Serendipity ****** bysilkstockingslover© Summary: After centuries Cupid finally finds the ONE for him. 
+ 
+
+===
+
+Summary: After centuries Cupid finally finds the ONE for him. 
 
  Note: This is a 2013 Valentine's Day Contest story so please vote. 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Serendipity ****** bysilkstockingslover© Beth moved her nose to the flowers and let the sweet scent of nature envelop her. She hadn't received flowers in years, high school actually, and her heart suddenly warmed after being so cold just hours ago when she learned of her boyfriend's cheating. 
+ 
+
+===
+
+Beth moved her nose to the flowers and let the sweet scent of nature envelop her. She hadn't received flowers in years, high school actually, and her heart suddenly warmed after being so cold just hours ago when she learned of her boyfriend's cheating. 
 
  Cupid knew he should have left then and continued on his way, continue with making love connections around the world, but he couldn't leave. Instead, he watched her all afternoon. He smiled as she continued to be distracted by the big bouquet of flowers and smiled even more at how such a small gesture had completely changed her day. 
 
@@ -380,7 +390,11 @@
 
  
 
- ****** Serendipity ****** bysilkstockingslover© Cupid got himself a tux for tomorrow and rented a limo as he prepared to woo her like she had never been wooed before. He also planned to tell her the truth of who he really was. 
+ 
+
+===
+
+Cupid got himself a tux for tomorrow and rented a limo as he prepared to woo her like she had never been wooed before. He also planned to tell her the truth of who he really was. 
 
  That night, both of them went to bed with anticipation and anxiety of the day that lay ahead. For Beth she worried that Cupid was hiding a dark secret, no man was as perfect as he seemed to be; Cupid, meanwhile, had made a decision, he would tell her the truth and let her decide his fate. 
 

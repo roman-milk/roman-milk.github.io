@@ -1,8 +1,14 @@
+Suzi's Shoes
+============
 #1 
 
  
 
- ****** Suzi's Shoes ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  I witnessed a scene exactly as described in the first two paragraphs. It was in Morrison's supermarket in Peterborough, UK – four years or so later I recalled what I'd seen and decided to expand on an outcome. 
 
@@ -232,7 +238,11 @@
 
  
 
- ****** Suzi's Shoes ****** bygeronimo_appleby© Suzi clawed air in her attempt to get to Alan, seconds going by until he eventually responded. Alan pawed at Suzi's breasts while she held onto his head and almost sucked his tongue out by the root. Alan felt Suzi's skin, his palms sliding over her ribcage and stomach, down past her hips so he could maul at one buttock, jacking his length with his spare hand. 
+ 
+
+===
+
+Suzi clawed air in her attempt to get to Alan, seconds going by until he eventually responded. Alan pawed at Suzi's breasts while she held onto his head and almost sucked his tongue out by the root. Alan felt Suzi's skin, his palms sliding over her ribcage and stomach, down past her hips so he could maul at one buttock, jacking his length with his spare hand. 
 
  "Oh Jesus, oh fuck!" Suzi wailed. "That was so bloody intense." She sucked in great draughts of air, the dildo still wedged in her body, half its length exposed, like an obscene tongue, her folds clinging to the shaft while she reached for Alan again, pulling him for another heated kiss. 
 

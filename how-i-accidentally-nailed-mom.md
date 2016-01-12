@@ -1,8 +1,14 @@
+How I Accidentally Nailed Mom
+=============================
 #1 
 
  
 
- ****** How I Accidentally Nailed Mom ****** byJust_Plain_Bob© I am and have always been a voyeur. Ever since the day I accidentally saw my Aunt Mildred sucking my Uncle Paul's cock I have looked for ways to watch other people having sex. 
+ 
+
+===
+
+I am and have always been a voyeur. Ever since the day I accidentally saw my Aunt Mildred sucking my Uncle Paul's cock I have looked for ways to watch other people having sex. 
 
  By sneaking around I was able to watch my sister suck and fuck several of her boyfriends; I saw my Aunt Maggie fuck my Uncle Bill (her husband), my Uncle Wendell and my Uncle Bob and apparently none of them knew about the others. I eventually fucked Aunt Maggie myself, but that is another story. 
 

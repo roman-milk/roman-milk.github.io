@@ -1,8 +1,14 @@
+XXX-Mas Carol
+=============
 #1 
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. This story features a character and continues a storyline from another one of my works, but saying which one would give away the surprise. If you really want to know who it is before reading the story, check the author's note at the end. Finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. This story features a character and continues a storyline from another one of my works, but saying which one would give away the surprise. If you really want to know who it is before reading the story, check the author's note at the end. Finally, I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  ************** 
 
@@ -126,7 +132,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Kate was a pretty woman with straight, shoulder length blonde hair. She had a good tan, and even though she was raised near a beach, she didn't complain during the cold Parkersboro winters. She kept herself fit and her lithe body displayed that. Plus, she was on her feet all day, always moving. She had a nice, cute, round butt and perky, B-cup breasts. Also, she was incredibly smart. Obviously, working as a nurse might indicate that, but she was very bright and well-read. Scott was attracted to her in all ways. And that's what kept him warm on nights like this one. 
+ 
+
+===
+
+Kate was a pretty woman with straight, shoulder length blonde hair. She had a good tan, and even though she was raised near a beach, she didn't complain during the cold Parkersboro winters. She kept herself fit and her lithe body displayed that. Plus, she was on her feet all day, always moving. She had a nice, cute, round butt and perky, B-cup breasts. Also, she was incredibly smart. Obviously, working as a nurse might indicate that, but she was very bright and well-read. Scott was attracted to her in all ways. And that's what kept him warm on nights like this one. 
 
  Scott was an optimist, a very positive person. It was never fun to come home to a dark house, but he understood. Kate worked crazy hard, so Scott understood her urge to pass out as soon as she got home. As Scott got to his dark room and saw her sleeping form on her side in the bed, he still smiled. It was always good to have someone to go home to, you know? As he disrobed and got cleaned up, his wife began moving around. 
 
@@ -316,7 +326,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© "That is Samantha Blake. She's a social climber... a slut. That is her role, and she is very good at it. That, Scott Baker... THAT is the woman you were supposed to end up with this dreary Christmas Eve." Emily said. 
+ 
+
+===
+
+"That is Samantha Blake. She's a social climber... a slut. That is her role, and she is very good at it. That, Scott Baker... THAT is the woman you were supposed to end up with this dreary Christmas Eve." Emily said. 
 
  "What??" he said with a laugh. "No way!" 
 
@@ -460,7 +474,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Posing cutely, she spun to face Scott and snapped her fingers. Suddenly, the soft moans of Christine masturbating were replaced with guttural moans of pleasure. Scott turned to face the bed and his jaw dropped. 
+ 
+
+===
+
+Posing cutely, she spun to face Scott and snapped her fingers. Suddenly, the soft moans of Christine masturbating were replaced with guttural moans of pleasure. Scott turned to face the bed and his jaw dropped. 
 
  On the bed was... himself. He was watching himself in bed, naked, driving his thick cock into the ready asshole of Christine, who was on all fours in front of him, her bare tits swinging below her, her thong and bra removed, but the rest of her lingerie remaining on her. Both her and Scott were coated with sweat as he fucked her ass roughly. 
 
@@ -626,7 +644,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© SNAP! 
+ 
+
+===
+
+SNAP! 
 
  They were now in a Christmas party in a house. This one seemed to have a bunch of families in attendance, as one of the fathers was passing out presents to the kids. His wife and her friends were admiring the good-looking husband at work, admiring the way he was so good with the kids. But on the other side of the room was another woman, a red-headed single mother. She had some extra weight on her, making her entire body consist of soft curves as opposed to firm edges. Other women resented her, called her fat, and judged her for so dressing so aggressively sexual, but she didn't mind. She took pride in not being one of those skinny little bitches. She knew men loved her round curves, her round ass, her massive, round breasts. And she knew how to prove it. 
 
@@ -812,7 +834,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© "That's not true..." Scott replied softly, backing up. 
+ 
+
+===
+
+"That's not true..." Scott replied softly, backing up. 
 
  "Admit it, Scott. You are not attracted to your wife anymore. Hehehe." Rowena said. 
 
@@ -952,7 +978,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Scott didn't know what to do. On one hand, he obviously shouldn't want to see this cloaked spirit's huge breasts, but part of him was curious what she looked beneath the veil. He couldn't find the words to fight back. 
+ 
+
+===
+
+Scott didn't know what to do. On one hand, he obviously shouldn't want to see this cloaked spirit's huge breasts, but part of him was curious what she looked beneath the veil. He couldn't find the words to fight back. 
 
  "Now!" she said firmly, and both Sophie and Emily began to pull. As if the cloak were made to be pulled apart, to be torn into shreds, the dress began to split along the seam Rowena had started. It split up and down, up towards her neck and down towards her crotch. More of her ghostly pale flesh began to emerge from within. Her chest. Her stomach. Her neck. Her cunt. With one last hard jerk, the dress split completely, from her neck to her ankles. The two women released their grip and allowed the cloak to fall to the floor. 
 
@@ -1078,7 +1108,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© "I said fuck me! Fuck me! FUCK ME! Fuck me hard!" Rowena snarled out, her sweaty flesh slapping against Scott. His hand's slid down from her back before taking each of her round ass-cheeks in his hands, squeezing and molding them in his hands as she rode his married cock. 
+ 
+
+===
+
+"I said fuck me! Fuck me! FUCK ME! Fuck me hard!" Rowena snarled out, her sweaty flesh slapping against Scott. His hand's slid down from her back before taking each of her round ass-cheeks in his hands, squeezing and molding them in his hands as she rode his married cock. 
 
  It was a good thing Scott could recognize himself by only seeing his torso and arms, cause he couldn't see his face. It was obscured by Sophie's ass, since she was sitting on the married man's face. Scott watched as his naked doppelganger's tongue was between her round ass-cheeks, working away at her asshole. 
 
@@ -1180,7 +1214,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Scott was completely overwhelmed. He was short of breath as his mouth was kept busy on Emily's tits. These mammoth breasts kept him disoriented, and the only thing that was constant was the hot mouth inhaling his cock. 
+ 
+
+===
+
+Scott was completely overwhelmed. He was short of breath as his mouth was kept busy on Emily's tits. These mammoth breasts kept him disoriented, and the only thing that was constant was the hot mouth inhaling his cock. 
 
  Sophie was incredible at sucking dick. Her tongue was going crazy, massaging his cock, pleasuring it, making his balls boil. The tanks were slowly getting filled, and every little thing she did was aiding that. Her tight wet throat, her slim fingers wrapped around the base of his shaft, her plump, sexy lips, and her hard-sucking mouth. She was relentless, seemingly never taking a break as she attacked his cock, taking nearly the entire length on every bob. It was the best thing his cock had ever felt. Better then Kate's mouth. Better than her pussy. Sophie's mouth felt better than his wife's pussy. That's how good Sophie was at sucking cock. She had him close but she would always pull back, leaving him on edge like a true master of pleasure would. 
 
@@ -1302,7 +1340,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© "C'mon. C'MON!" Rowena called out, not impressed by the increased tempo of rough sex. "Emily, this is truly pathetic!" 
+ 
+
+===
+
+"C'mon. C'MON!" Rowena called out, not impressed by the increased tempo of rough sex. "Emily, this is truly pathetic!" 
 
  "Better than you could do, you old bitch!" Emily spat out. 
 
@@ -1418,7 +1460,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© "I sucked his dick before Emily got to ride him." Sophie replied. 
+ 
+
+===
+
+"I sucked his dick before Emily got to ride him." Sophie replied. 
 
  "Well, dear..." Rowena began with a slight smile. 
 
@@ -1578,7 +1624,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Scott turned his attention to Sophie, driving into her hard with the full length of his meaty cock. 
+ 
+
+===
+
+Scott turned his attention to Sophie, driving into her hard with the full length of his meaty cock. 
 
  "Yesss! Fuck me, baby! Fuck me hard! Feel that tight cunt around your married dick and forget all about your boring old wife! Ha ha!" Sophie laughed out. Scott started to get into a good rhythm, but he couldn't help but keep one eye on Rowena. In front of him, she stepped around Sophie, spinning around so her ass was now inches in front of him. She stepped forward a bit and bent over, grabbing the headboard for support. She glanced down at Emily. 
 
@@ -1728,7 +1778,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Scott was still frozen under her, but the combination of her smooth voice, her icy gaze, and her round, smooth ass against him made his balls began to simmer. He looked to his sides. Sophie was still recovering from the sex they just had, and on his other side, he looked over just in time to see Emily curl up to him and grab his wrist. 
+ 
+
+===
+
+Scott was still frozen under her, but the combination of her smooth voice, her icy gaze, and her round, smooth ass against him made his balls began to simmer. He looked to his sides. Sophie was still recovering from the sex they just had, and on his other side, he looked over just in time to see Emily curl up to him and grab his wrist. 
 
  "Touch me." she whispered. She pulled his hand down to her crotch, forcing him to rub her. "Uh... that's it. Yes!" she sighed. But he couldn't really pay attention. His eyes were still on Rowena. And her tattoos. 
 
@@ -1882,7 +1936,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© But he didn't have much longer to think. After this long night, the energy in him was practically drained. He had nearly nothing left. He felt like a husk of a man now that his balls were completely drained. His body was collapsed onto the soaked sheet, his heartbeat echoing in his ears. As exhaustion almost took him over, he felt Rowena's lips at his ear. 
+ 
+
+===
+
+But he didn't have much longer to think. After this long night, the energy in him was practically drained. He had nearly nothing left. He felt like a husk of a man now that his balls were completely drained. His body was collapsed onto the soaked sheet, his heartbeat echoing in his ears. As exhaustion almost took him over, he felt Rowena's lips at his ear. 
 
  "Thank you, baby." she whispered. "You just changed the world... I'll see you again." 
 
@@ -2060,7 +2118,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© Music played and drinks were shared. People worked the room, but Scott and Lindsay only worked each other. Lindsay should have taken this as a good sign that she had a chance with her husband's sexy uncle, but she did not. Platonic familial dancing was had, but Lindsay used the chance to press herself indecently close. 
+ 
+
+===
+
+Music played and drinks were shared. People worked the room, but Scott and Lindsay only worked each other. Lindsay should have taken this as a good sign that she had a chance with her husband's sexy uncle, but she did not. Platonic familial dancing was had, but Lindsay used the chance to press herself indecently close. 
 
  She touched him and she felt his hands on her as they danced, making goose- bumps appear on her skin. She really wanted to take things to the next level, except he wasn't taking the bait. She was gagging for him, but she knew if she crossed a line he wasn't willing to cross, she could push him away forever. But eventually, her teenage impatience became too much to take. 
 
@@ -2248,7 +2310,11 @@
 
  
 
- ****** XXX-Mas Carol ****** byTheTalkMan© "Yes." she said, with passion in her voice. 
+ 
+
+===
+
+"Yes." she said, with passion in her voice. 
 
  "Very good." Madeline replied. "You won't regret it." Madeline turned her attention to Sophie. "Now, some women are too proud to change, but some take advantage. I LOVE your new look!" 
 

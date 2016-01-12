@@ -1,8 +1,14 @@
+The Long Weekend
+================
 #1 
 
  
 
- ****** The Long Weekend ****** byJust_Plain_Bob© Note: No sex, just a story. 
+ 
+
+===
+
+Note: No sex, just a story. 
 
  I think I caught her totally by surprise. I'm almost sure that she expected me to say "Yes dear" and then do what she wanted. After all, hadn't that always been the way of it? 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** The Long Weekend ****** byJust_Plain_Bob© "It is strictly a physical thing Harold and other than what his cock can do for me I have no feelings for Randy at all. I know it is brutal for him to sit there and hear me put it that way, but it is nothing new to him; I've been telling him that for six years now. He is nothing to me but a huge cock and while I don't understand it in the least that seems to be enough for him." 
+ 
+
+===
+
+"It is strictly a physical thing Harold and other than what his cock can do for me I have no feelings for Randy at all. I know it is brutal for him to sit there and hear me put it that way, but it is nothing new to him; I've been telling him that for six years now. He is nothing to me but a huge cock and while I don't understand it in the least that seems to be enough for him." 
 
  Then Randy spoke up: 
 

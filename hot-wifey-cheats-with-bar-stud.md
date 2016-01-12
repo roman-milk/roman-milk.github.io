@@ -1,8 +1,14 @@
+Hot Wifey Cheats with Bar Stud
+==============================
 #1 
 
  
 
- ****** Hot Wifey Cheats with Bar Stud ****** byNonStopFunGuy© "My husband is out of own," I boldly lied as I smiled at the stranger's exceedingly handsome face, batting my long eyelashes in my girlish way. "I'm just here tonight to have some fun, you know." 
+ 
+
+===
+
+"My husband is out of own," I boldly lied as I smiled at the stranger's exceedingly handsome face, batting my long eyelashes in my girlish way. "I'm just here tonight to have some fun, you know." 
 
  It wasn't difficult to keep looking at the man. He was built like I love men to be; over six foot, with broad shoulders and an obviously flat stomach, his hulk towered over my diminutive figure. My brown slanted eyes were trained on his face as we leaned into each other, standing along the wall of the crowded, thriving dance club. I had to make sure not to look up at the overhead balcony overlooking the bar and dance area, on which my husband was standing. For well over an hour Dave had been glued in the same spot, along the railing, staring at me as one after another man came up to hit on me. 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** Hot Wifey Cheats with Bar Stud ****** byNonStopFunGuy© "Ok, good." I winked at him, and realized I was winking way too much tonight. But he seemed to approve. With my hand on his knee still, I turned to look into his eyes when I spoke. "So, you know all about a married girl's needs, huh." 
+ 
+
+===
+
+"Ok, good." I winked at him, and realized I was winking way too much tonight. But he seemed to approve. With my hand on his knee still, I turned to look into his eyes when I spoke. "So, you know all about a married girl's needs, huh." 
 
  He winked back, and I felt his thighs part a little. I don't know if it was an invitation, but I took it. I slid my hand from his knee into the gap he'd created between his legs, my fingertips and long fingernails tracing light circles inside his knees, and just onto his thighs next to them. As he felt my fingers there, he leaned into my face, almost nose to nose. "Oh, I know all about the needs of a young, gorgeous married girl, stuck at home for many nights by herself. 
 
@@ -224,7 +234,11 @@
 
  
 
- ****** Hot Wifey Cheats with Bar Stud ****** byNonStopFunGuy© He laughed at my "needs." "And what do I want?" he inquired with a smirk. 
+ 
+
+===
+
+He laughed at my "needs." "And what do I want?" he inquired with a smirk. 
 
  I said it like it is. "You want my bald married pussy to quiver around your tongue and dick as I cum for you a thousand times tonight." 
 
@@ -344,7 +358,11 @@
 
  
 
- ****** Hot Wifey Cheats with Bar Stud ****** byNonStopFunGuy© Mike giggled. "And what do you think?" 
+ 
+
+===
+
+Mike giggled. "And what do you think?" 
 
  I giggled back, and played off an earlier joke. "I think -- I think it's one of my 'needs.'" 
 
@@ -472,7 +490,11 @@
 
  
 
- ****** Hot Wifey Cheats with Bar Stud ****** byNonStopFunGuy© "Mike!" I screamed, closing my eyes. 
+ 
+
+===
+
+"Mike!" I screamed, closing my eyes. 
 
  I felt it coming, I pushed my hand down and jammed two fingers into my cunt. Oh there it was! I pumped them into me, stretching myself, satisfying the aching in my pussy. Then I quickly withdrew my fingers and ground them onto my clitoris again, and that brought out my orgasm. "MIKE! YESSSS!" My fingers vibrated on my clit as it erupted with its energy, shooting through my body, I wanted to fall from the wall and sink into a fleshy pile in the tub. My hand kept sawing at my clit like it was made of violin strings, making sweet bodily sounds of my orgasm. I peeled an eye open to see Mike watching a couple feet away, grinning, seeing me bring myself over the top. 
 

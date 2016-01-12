@@ -1,8 +1,14 @@
+She Taught Me Well
+==================
 #1 
 
  
 
- ****** She Taught Me Well ****** bygeronimo_appleby© I've heard it said that if you can remember the sixties, then you weren't really there. Well, I was 18 years old in 1964 and my memory is as clear as a bell. I freely admit that I was a naïve 18 year old – I'd never had any dealing with any of the mind altering substances that were in vogue throughout those heady years – I was still a virgin at my 18th birthday, which fell in February, and as that snowy, February day dawned there seemed little chance of the situation changing. 
+ 
+
+===
+
+I've heard it said that if you can remember the sixties, then you weren't really there. Well, I was 18 years old in 1964 and my memory is as clear as a bell. I freely admit that I was a naïve 18 year old – I'd never had any dealing with any of the mind altering substances that were in vogue throughout those heady years – I was still a virgin at my 18th birthday, which fell in February, and as that snowy, February day dawned there seemed little chance of the situation changing. 
 
  'Morning Bernie.' I greeted my wrinkled colleague at the beginning of another work day some 3 months after my 18th celebration. 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** She Taught Me Well ****** bygeronimo_appleby© I groaned as I felt her fingers envelop my shaft, never before had another person handled my cock in a sexual way and it was a sublime moment for me. I had dreamt and fantasised about this day and here it was at last. I was going to lose my virginity, not only that but I was giving it to a voluptuous, mature, beautiful woman; a woman who would take her time with me, who would unwrap each act that we enjoyed together as though each one was a gift to be cherished. I would cleave to the memory of this night with Gillian, pulling the memory from it's box often over the coming years and savouring the images, the fondly remembered textures and tastes, the scents and the sounds of her before I packed the memory away once again into its velvet lined box. 
+ 
+
+===
+
+I groaned as I felt her fingers envelop my shaft, never before had another person handled my cock in a sexual way and it was a sublime moment for me. I had dreamt and fantasised about this day and here it was at last. I was going to lose my virginity, not only that but I was giving it to a voluptuous, mature, beautiful woman; a woman who would take her time with me, who would unwrap each act that we enjoyed together as though each one was a gift to be cherished. I would cleave to the memory of this night with Gillian, pulling the memory from it's box often over the coming years and savouring the images, the fondly remembered textures and tastes, the scents and the sounds of her before I packed the memory away once again into its velvet lined box. 
 
  Although I didn't know at that time, she was the perfect one to show me the secrets of a woman's body, how to kiss and lick parts of her that I would never have dreamt were erogenous, how to manipulate her tender, intimate places with fingers and tongue, how to bring her pleasure and perhaps the most important lesson of the night; putting that pleasure before my own. 
 
@@ -298,7 +308,11 @@
 
  
 
- ****** She Taught Me Well ****** bygeronimo_appleby© I broke the kiss; this time I was taking control. I led Gillian to the bedroom and slowly undressed her, kissing her skin, as each glorious part of her was unveiled. Once she was nude, Gillian stood completely at ease under my scrutiny, her hands on her broad hips as she thrust her mons forward, almost arrogantly, as though challenging me. 
+ 
+
+===
+
+I broke the kiss; this time I was taking control. I led Gillian to the bedroom and slowly undressed her, kissing her skin, as each glorious part of her was unveiled. Once she was nude, Gillian stood completely at ease under my scrutiny, her hands on her broad hips as she thrust her mons forward, almost arrogantly, as though challenging me. 
 
  I took up the challenge and stripped hurriedly, once again my thick penis jutted stiffly in front of me, as though sniffing the air expectantly. 
 

@@ -1,8 +1,14 @@
+Straight MILFs: Boyfriend's Mom
+===============================
 #1 
 
  
 
- ****** Straight MILFs: Boyfriend's Mom ****** bysilkstockingslover© Summary: A mom is disciplined by a teenage girl for not recycling. 
+ 
+
+===
+
+Summary: A mom is disciplined by a teenage girl for not recycling. 
 
  Note 1: This is an Earth Day 2014 Contest story. 
 
@@ -386,7 +392,11 @@
 
  
 
- ****** Straight MILFs: Boyfriend's Mom ****** bysilkstockingslover© "Yes, no," I responded confused, her pussy distracting me from any sort of rational thought. 
+ 
+
+===
+
+"Yes, no," I responded confused, her pussy distracting me from any sort of rational thought. 
 
  "Which is it?" Quinn asked, bending down and moving her finger that was just inside her to my lips. 
 
@@ -716,7 +726,11 @@
 
  
 
- ****** Straight MILFs: Flight Attendant ****** bysilkstockingslover© Summary: White woman submits to a dominant black woman at crash pad. 
+ 
+
+===
+
+Summary: White woman submits to a dominant black woman at crash pad. 
 
  Note: This is dedicated to the REAL David and the REAL Erin who this story is about...which is a "based on real events" type of story. 
 
@@ -1068,7 +1082,11 @@
 
  
 
- ****** Straight MILFs: Flight Attendant ****** bysilkstockingslover© "You like that, slut?" she questioned, as she flicked my swollen clit. 
+ 
+
+===
+
+"You like that, slut?" she questioned, as she flicked my swollen clit. 
 
  "Oh yessss," I moaned loudly, "I love being your sluuuut," at the moment being called a slut enhancing my euphoria. 
 

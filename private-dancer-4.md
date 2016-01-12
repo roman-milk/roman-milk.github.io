@@ -1,8 +1,14 @@
+Private Dancer
+==============
 #1 
 
  
 
- ****** Private Dancer ****** bygeronimo_appleby© It was her all right, definitely Kimberley Williams, the same cheeky confidence that she managed to exude even when standing perkily at a bus stop. I'd had the dubious pleasure of being responsible for Kimberley's education regarding twentieth century history. A subject that the pretty, but insolent sixteen year old couldn't have cared less about. She didn't really care for Archduke Ferdinand being assassinated in Sarajevo, or for the whys, wherefores or reasons for the rise of Adolf Hitler. Kimberley was stereotypical of her generation – dyed blonde hair, belly button piercing, cigarettes and alcopops – Kimberley's world. 
+ 
+
+===
+
+It was her all right, definitely Kimberley Williams, the same cheeky confidence that she managed to exude even when standing perkily at a bus stop. I'd had the dubious pleasure of being responsible for Kimberley's education regarding twentieth century history. A subject that the pretty, but insolent sixteen year old couldn't have cared less about. She didn't really care for Archduke Ferdinand being assassinated in Sarajevo, or for the whys, wherefores or reasons for the rise of Adolf Hitler. Kimberley was stereotypical of her generation – dyed blonde hair, belly button piercing, cigarettes and alcopops – Kimberley's world. 
 
  Now, two years since she'd put the school gates behind her, there she stood with the same confident, slightly arrogant manner, waiting for a bus just outside the town centre. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Private Dancer ****** bygeronimo_appleby© I couldn't understand the man's rationale. He was insanely jealous and possessive, that much was obvious, but where was the logic in forcing his beautiful girlfriend to show herself in such a degrading way? What kick was the man getting from this? 
+ 
+
+===
+
+I couldn't understand the man's rationale. He was insanely jealous and possessive, that much was obvious, but where was the logic in forcing his beautiful girlfriend to show herself in such a degrading way? What kick was the man getting from this? 
 
  Kimberley stood naked and trembling, her hands and arms held protectively across her breasts and groin. Her posture angered Matt and he reached out to grab both of the girl's arms. 'Show us yer tits,' he said coarsely and pulled roughly at her slender limbs. 
 
@@ -306,7 +316,11 @@
 
  
 
- ****** Private Dancer ****** bygeronimo_appleby© 'Mr Clarke... It's best if you just go... If he comes out again...' Kimberley left the rest unsaid, and I made my way out to my car, my head swimming with what had happened. 
+ 
+
+===
+
+'Mr Clarke... It's best if you just go... If he comes out again...' Kimberley left the rest unsaid, and I made my way out to my car, my head swimming with what had happened. 
 
  *** 
 

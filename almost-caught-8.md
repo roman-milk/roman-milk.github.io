@@ -1,8 +1,14 @@
+Almost Caught!
+==============
 #1 
 
  
 
- ****** Almost Caught! ****** byTx_Tall_Tales© ======================= 
+ 
+
+===
+
+======================= 
 
  To what lengths would YOU go to avoid getting caught? 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Almost Caught! ****** byTx_Tall_Tales© Looking down, I realized my stiff cock was only about an inch away from her pink little girl parts. Smooth and moist, not all that different from what I'd first seen all those years ago, hiding under her covers. All I had to do was grab her hips and pull her back. That was all. I might as well have tried to climb Everest barefoot, for all the likelihood of that happening. 
+ 
+
+===
+
+Looking down, I realized my stiff cock was only about an inch away from her pink little girl parts. Smooth and moist, not all that different from what I'd first seen all those years ago, hiding under her covers. All I had to do was grab her hips and pull her back. That was all. I might as well have tried to climb Everest barefoot, for all the likelihood of that happening. 
 
  "I don't suppose you could convince that thing to do down, could you? It's taking up half the space in here." Jan whispered. 
 
@@ -370,7 +380,11 @@
 
  
 
- ****** Almost Caught! ****** byTx_Tall_Tales© "I guess Rory made a clean getaway," I finally blurted. 
+ 
+
+===
+
+"I guess Rory made a clean getaway," I finally blurted. 
 
  How lame. 
 

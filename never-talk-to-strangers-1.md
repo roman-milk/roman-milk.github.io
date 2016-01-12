@@ -1,8 +1,14 @@
+Never Talk To Strangers
+=======================
 #1 
 
  
 
- ****** Never Talk To Strangers ****** bygeronimo_appleby© I wasn't sure if it'd be Loving Wives or Non- Con ... Non-Con kinda gives things away, but such is life at Lit. I hope you enjoy my effort. There may be fuck-ups. 
+ 
+
+===
+
+I wasn't sure if it'd be Loving Wives or Non- Con ... Non-Con kinda gives things away, but such is life at Lit. I hope you enjoy my effort. There may be fuck-ups. 
 
  
 
@@ -136,7 +142,11 @@
 
  
 
- ****** Never Talk To Strangers ****** bygeronimo_appleby© "Oh," she gulped as I split her ungainly, sticky labia with the keel of my erection. "That's nice," she added, sighing as she wriggled into a better position and used her hands behind her to support her weight. We kissed again while Jennifer held her legs high and wide for me and I eased my knob end into her body. 
+ 
+
+===
+
+"Oh," she gulped as I split her ungainly, sticky labia with the keel of my erection. "That's nice," she added, sighing as she wriggled into a better position and used her hands behind her to support her weight. We kissed again while Jennifer held her legs high and wide for me and I eased my knob end into her body. 
 
  "Our first fuck," I whispered, holding her eyes locked with mine. "I wanted you when I first saw you in the supermarket," I admitted truthfully for once. "I knew I'd get you. I wouldn't have rested until I'd fucked into you ... Until I'd squirted my spunk inside you ..." Jennifer gulped and groaned, her eyes closing as I slid a little deeper into her. 
 

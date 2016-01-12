@@ -1,8 +1,14 @@
+Rob and Lori Ch. 01
+===================
 #1 
 
  
 
- ****** Rob and Lori Ch. 01 ****** byJust_Plain_Bob© I snapped the phone closed and tossed it on the bed. I had known all along that the day would eventually come even though I'd hoped and even prayed that it never would. 
+ 
+
+===
+
+I snapped the phone closed and tossed it on the bed. I had known all along that the day would eventually come even though I'd hoped and even prayed that it never would. 
 
  The email had been sitting on my computer when I woke up and logged on. Email was the only way my family could get in touch with me. The message was from my sister Ellen and all it said was, "Call me Rob; it is urgent." My Tracfone only had four minutes on left on it so I had to go down to the 7-11 on the corner and buy some more time. I went across the street to the IHOP and had some breakfast and then walked back to my apartment to make the call. 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Rob and Lori Ch. 01 ****** byJust_Plain_Bob© x-x-x-x-x-x-x—x- 
+ 
+
+===
+
+x-x-x-x-x-x-x—x- 
 
  Tuesday I was busy stocking shelves at work when a voice behind me said: 
 
@@ -244,7 +254,11 @@
 
  
 
- ****** Rob and Lori Ch. 02 ****** byJust_Plain_Bob© September found us in college. Lori went for Information and Systems Technology and I went for Business Management. We managed to make it almost all the ay through our freshman year before Lori's strong will surfaced again. There was a concert that Lori wanted to go to, but it was on a Friday night and I had already committed us to attend my mother's birthday party. Lori knew this almost a month ahead of time and never gave any indication that she didn't plan on attending. Three days before the party Lori told me that she had tickets and we were going to the concert. I reminded her that we were already committed to mom's birthday party. 
+ 
+
+===
+
+September found us in college. Lori went for Information and Systems Technology and I went for Business Management. We managed to make it almost all the ay through our freshman year before Lori's strong will surfaced again. There was a concert that Lori wanted to go to, but it was on a Friday night and I had already committed us to attend my mother's birthday party. Lori knew this almost a month ahead of time and never gave any indication that she didn't plan on attending. Three days before the party Lori told me that she had tickets and we were going to the concert. I reminded her that we were already committed to mom's birthday party. 
 
  "There will be other birthday parties for your mother Rob, but how likely is it that Bob Seger will ever be in town again. I'm going to the concert Rob." 
 
@@ -454,7 +468,11 @@
 
  
 
- ****** Rob and Lori Ch. 03 ****** byJust_Plain_Bob© Working part-time at the store with my dad was one thing, but working full time was something totally different. To put it simply, dad was set in his ways. I had a fresh Business Management degree and a ton of new ideas to expand the business and increase profits, but every suggestion I made was met with: 
+ 
+
+===
+
+Working part-time at the store with my dad was one thing, but working full time was something totally different. To put it simply, dad was set in his ways. I had a fresh Business Management degree and a ton of new ideas to expand the business and increase profits, but every suggestion I made was met with: 
 
  "That's not the way we do things" or "I see no reason to change something that has worked well all these years." 
 
@@ -582,7 +600,11 @@
 
  
 
- ****** Rob and Lori Ch. 04 ****** byJust_Plain_Bob© I hit the city limits at six in the morning and slowly drove through town looking for the changes that must have occurred during my two year absence. I noticed that Charlie Farrow's gas station was gone and a McDonalds sat in its place. Alice's Diner was now Suzie Q's Café and Apex Appliances had boarded over windows and a For Lease sign. There was a touch of irony in that the Super 8 Motel was the only motel I could find that had a vacancy and the way things were going for me I almost bet myself as I walked up to the counter that I would end up in room 116. But fate didn't hate me that much and I got 142 around in the back. 
+ 
+
+===
+
+I hit the city limits at six in the morning and slowly drove through town looking for the changes that must have occurred during my two year absence. I noticed that Charlie Farrow's gas station was gone and a McDonalds sat in its place. Alice's Diner was now Suzie Q's Café and Apex Appliances had boarded over windows and a For Lease sign. There was a touch of irony in that the Super 8 Motel was the only motel I could find that had a vacancy and the way things were going for me I almost bet myself as I walked up to the counter that I would end up in room 116. But fate didn't hate me that much and I got 142 around in the back. 
 
  I unloaded what I would need for a couple of days and moved it into the room and then I drove over to Patty Ann's Café and had breakfast. The only person there that I knew was Sally Jeffers. Sally had been working the breakfast shift at Patty's when I first ate there fifteen years ago. I'd no sooner sat down and she was there with the coffee and creamers and as she set them down she asked: 
 
@@ -826,7 +848,11 @@
 
  
 
- ****** Rob and Lori Ch. 04 ****** byJust_Plain_Bob© "I realized I'd screwed up as soon as I saw the expression on your face when I told you what I intended to do. I didn't expect the reaction I got when you left the room and then packed. Then you accused me of cheating on you with Randy and left and I knew from your actions and tone of voice that you did not intend to come back and talk in the morning. I panicked and started to chase after you, but Randy grabbed me and said to let you go and that you would cool down and be back the next day. By the time I pulled away from him you were already driving down the street. I tried to call your phone but you wouldn't answer. Since then I have tried and tried to get someone to tell me where you were so I could talk to you. I'm sorry Rob; I'm sorry and I want you to come home. Things haven't been right for me since you left." 
+ 
+
+===
+
+"I realized I'd screwed up as soon as I saw the expression on your face when I told you what I intended to do. I didn't expect the reaction I got when you left the room and then packed. Then you accused me of cheating on you with Randy and left and I knew from your actions and tone of voice that you did not intend to come back and talk in the morning. I panicked and started to chase after you, but Randy grabbed me and said to let you go and that you would cool down and be back the next day. By the time I pulled away from him you were already driving down the street. I tried to call your phone but you wouldn't answer. Since then I have tried and tried to get someone to tell me where you were so I could talk to you. I'm sorry Rob; I'm sorry and I want you to come home. Things haven't been right for me since you left." 
 
  I sat there and looked at her for several seconds before saying, "There wouldn't be any sense for our getting back together Lori. The trust is gone and in any case there is no way that I would move back into this house after you fucked Randy in it." 
 

@@ -1,8 +1,14 @@
+Replacing Mommy
+===============
 #1 
 
  
 
- ****** Replacing Mommy ****** bysilkstockingslover© Summary: Daughter attempts to seduce and lose virginity to father. 
+ 
+
+===
+
+Summary: Daughter attempts to seduce and lose virginity to father. 
 
  Note 1: This is a Halloween 2015 Contest story so please vote. 
 
@@ -400,7 +406,11 @@
 
  
 
- ****** Replacing Mommy ****** bysilkstockingslover© "Thank God," he sighed. 
+ 
+
+===
+
+"Thank God," he sighed. 
 
  Deciding to push my secret agenda to lose my virginity to him, I decided to push the bar a bit. I said, "Mom explained the way to a man's heart is through his penis and the willingness to suck him often, use lots of saliva when giving head, and always close your eyes when getting a facial." 
 
@@ -774,7 +784,11 @@
 
  
 
- ****** Replacing Mommy ****** bysilkstockingslover© Daddy kept licking throughout my orgasm, an orgasm I wasn't sure was ever going to end. The orgasm kept spreading through me like a forest fire that was completely out of control. 
+ 
+
+===
+
+Daddy kept licking throughout my orgasm, an orgasm I wasn't sure was ever going to end. The orgasm kept spreading through me like a forest fire that was completely out of control. 
 
  Finally, the pleasure was too much, his licking too intense and I pushed his head away as I weakly said, "Please, no more." 
 

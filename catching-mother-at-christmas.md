@@ -1,8 +1,14 @@
+Catching Mother at Christmas
+============================
 #1 
 
  
 
- ****** Catching Mother at Christmas ****** bygeronimo_appleby© A little experimental piece from me for the Winter Holiday Contest. In this one Philip catches his mother masturbating. He's torn by what he sees, and fights against his feelings, but as Christmas approaches things develop in a nasty, dirty way. 
+ 
+
+===
+
+A little experimental piece from me for the Winter Holiday Contest. In this one Philip catches his mother masturbating. He's torn by what he sees, and fights against his feelings, but as Christmas approaches things develop in a nasty, dirty way. 
 
  I hope you enjoy the piece and, regardless of its final position in the contest, that you'll send feedback to let me know how it's received out there. I'm not bothered too much by the votes, I'm more interested in the impression the story leaves with you. Feedback can be by public comment, a PM, or an email. If you want a response to feedback then email is best -- but leave an address for me to write back to! 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Catching Mother at Christmas ****** bygeronimo_appleby© "Philip," she said seriously after lighting up. "We have to talk about what happened." Ignoring her son's wince, she continued. "If we don't get it out things will just fester. The awkwardness between us will grow and grow." Beverly drew heavily on the cigarette while Philip stared into the dancing flames. "I know it's embarrassing, Philip," she snapped, frustrated by her son's silence and refusal to acknowledge her. "But we have to clear the air." 
+ 
+
+===
+
+"Philip," she said seriously after lighting up. "We have to talk about what happened." Ignoring her son's wince, she continued. "If we don't get it out things will just fester. The awkwardness between us will grow and grow." Beverly drew heavily on the cigarette while Philip stared into the dancing flames. "I know it's embarrassing, Philip," she snapped, frustrated by her son's silence and refusal to acknowledge her. "But we have to clear the air." 
 
  Philip sipped at the tea before turning to face his mother. Like her son a few moments earlier, Beverly experienced a swelling of emotion in her chest. She loved him dearly, felt for him acutely, knowing his excruciating shyness would be making this situation doubly difficult to deal with. 
 
@@ -254,7 +264,11 @@
 
  
 
- ****** Catching Mother at Christmas ****** bygeronimo_appleby© Beverly cried out when she saw the viscous fluid squirt from her son's cock. "My darling boy!" she called. "Look at you." 
+ 
+
+===
+
+Beverly cried out when she saw the viscous fluid squirt from her son's cock. "My darling boy!" she called. "Look at you." 
 
  "Mum," Philip managed to grunt. "I ..." But he couldn't speak, the sensation of jetting spunk curtailed his ability to articulate anything other than a low, guttural moan. Semen pulsed from him, squirt after squirt of the stuff that rained down onto the worn carpet and dribbled over his hand and wrist. 
 

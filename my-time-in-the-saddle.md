@@ -1,8 +1,14 @@
+My Time in The Saddle
+=====================
 #1 
 
  
 
- ****** My Time in The Saddle ****** byJs_Keeper© Author's Note: If you enjoy the story, please take an extra few seconds leave a comment or a vote. As always, thanks for reading. 
+ 
+
+===
+
+Author's Note: If you enjoy the story, please take an extra few seconds leave a comment or a vote. As always, thanks for reading. 
 
  -------------------------------------------- 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** My Time in The Saddle ****** byJs_Keeper© I slowly ran my hands along the floor until they reached the carpeted base of The Saddle. I found the kneepad on the side nearest me, and moved past it, slowly tracing my fingers up the gentle arch, over the smooth leather, to the peak. I eagerly sought to feel the probes that would soon fill me – probes that I had never actually seen fitted into The Saddle. Both hands ambled over the surface of the seat until, almost simultaneously, they discovered the location of two protrusions, noting the stark contrast between their latex material and the leather seat. 
+ 
+
+===
+
+I slowly ran my hands along the floor until they reached the carpeted base of The Saddle. I found the kneepad on the side nearest me, and moved past it, slowly tracing my fingers up the gentle arch, over the smooth leather, to the peak. I eagerly sought to feel the probes that would soon fill me – probes that I had never actually seen fitted into The Saddle. Both hands ambled over the surface of the seat until, almost simultaneously, they discovered the location of two protrusions, noting the stark contrast between their latex material and the leather seat. 
 
  My pussy convulsed in spasms as I formed both hands around the base of the larger of the two shafts. Its size was actually a bit of a disappointment – I had taken much larger dildos than this, and I doubted that this could be the source of the pain Master spoke of. After stroking the shaft of the pussy probe several times, I moved both my hands to the smaller "rear" probe. Again, the size was less than intimidating – about the same as the medium plug in Master's anal accessory kit. No problem, I thought. 
 

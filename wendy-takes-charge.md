@@ -1,8 +1,14 @@
+Wendy Takes Charge
+==================
 #1 
 
  
 
- ****** Wendy Takes Charge ****** byJust_Plain_Bob© The cell door opened and I looked up to see a Hispanic looking men being ushered into the holding cell. The cell door clanked behind him and he took a seat on the bench along the opposite wall. We eyed each other for a bit and then he said: 
+ 
+
+===
+
+The cell door opened and I looked up to see a Hispanic looking men being ushered into the holding cell. The cell door clanked behind him and he took a seat on the bench along the opposite wall. We eyed each other for a bit and then he said: 
 
  "Hey man, what you in for?" 
 
@@ -182,7 +188,11 @@
 
  
 
- ****** Wendy Takes Charge ****** byJust_Plain_Bob© I might have been pissed and in a rage when I walked into that bedroom, but I'd worked the rage out of me on the asshole and I was clear headed enough to know what to do. Before the paramedics and the cops got to the house I called an attorney, told him what had happened and that I expected to be arrested. I made arrangements with him to get me out on bail and gave him information I thought he could use. 
+ 
+
+===
+
+I might have been pissed and in a rage when I walked into that bedroom, but I'd worked the rage out of me on the asshole and I was clear headed enough to know what to do. Before the paramedics and the cops got to the house I called an attorney, told him what had happened and that I expected to be arrested. I made arrangements with him to get me out on bail and gave him information I thought he could use. 
 
  Apparently asshole wasn't very well liked; at least not enough that his buddies wanted to work me over. The lawyer got me out of jail and then got all the charges dropped when the tapes from the nanny-cams I'd installed on the Tuesday I'd taken off work showed the asshole going for his gun. I was acting in self defense my attorney argued and he managed to sell it. Asshole was demoted from detective to patrolman and given a sixty day suspension without pay. 
 

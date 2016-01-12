@@ -1,8 +1,14 @@
+Red Riding Hood
+===============
 #1 
 
  
 
- ****** Red Riding Hood ****** bygeronimo_appleby© Sabrina cursed as the car rolled to a stop. Typical, she thought, miles from anywhere civilised, time was running out and she was dressed most inappropriately for late October. She'd had no warning that the car was dying other than the engine stuttering several times, recovering for a brief; hope filled moment and then cutting out completely. 
+ 
+
+===
+
+Sabrina cursed as the car rolled to a stop. Typical, she thought, miles from anywhere civilised, time was running out and she was dressed most inappropriately for late October. She'd had no warning that the car was dying other than the engine stuttering several times, recovering for a brief; hope filled moment and then cutting out completely. 
 
  Sabrina steered the car close to the grass verge as the vehicle lost momentum and eventually stopped. 
 

@@ -1,8 +1,14 @@
+Bad Case of Cabin Fever
+=======================
 #1 
 
  
 
- ****** Bad Case of Cabin Fever ****** byJust_Plain_Bob© I just found out that my wife of ten years is fucking another guy. On the one hand I'm angry and upset over that fact the she is an unfaithful whore. On the other watching her with her legs spread wide and taking another man's cock was the most sexually exciting thing I'd ever seen. It excited me so much that I jacked off twice while watching. So what do I do? The love is gone and I'll never trust the bitch again, but the lust is there and I want to see her spread herself again for another man. 
+ 
+
+===
+
+I just found out that my wife of ten years is fucking another guy. On the one hand I'm angry and upset over that fact the she is an unfaithful whore. On the other watching her with her legs spread wide and taking another man's cock was the most sexually exciting thing I'd ever seen. It excited me so much that I jacked off twice while watching. So what do I do? The love is gone and I'll never trust the bitch again, but the lust is there and I want to see her spread herself again for another man. 
 
  We own a cabin on five acres up in the mountains. It isn't much; no power, an outhouse, and we have to carry water in, but foe an occasional weekend getaway it is just fine. The cabin was left to Brenda and her sister in their father's will and since I get along fine with Debbie and her husband Frank we frequently spend weekends up there with them. At the beginning of the week we decided to spend the weekend in the mountains and Brenda called Debbie to see if she and Frank wanted to go with us. At the last minute something came up at work and I wasn't going to be able to go up on Friday night. I called Brenda and told her to ride up with Frank and Debbie and that I would see her in the morning. The big emergency at work turned out to have a fifteen-minute solution and by seven o'clock I was on the road making the hour and twenty minute drive to the cabin. 
 

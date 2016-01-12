@@ -1,8 +1,14 @@
+Rob's Saga Ch. 01
+=================
 #1 
 
  
 
- ****** Rob's Saga Ch. 01 ****** byJust_Plain_Bob© It is October and that means that it is time for the annual Just Plain Bob Invitational. I am constantly bombarded with comments saying things like "You call that a story? My ten year old can do better than that." Also heard a lot is "If that were my story xxxxx would have xxxxxxx and xxxxx would have xxxx." So here is everyone's chance to show me how it should really be done. Step up and put an ending to this story. There is only one rule. You must state in your opening that your story is a continuation of my story. 
+ 
+
+===
+
+It is October and that means that it is time for the annual Just Plain Bob Invitational. I am constantly bombarded with comments saying things like "You call that a story? My ten year old can do better than that." Also heard a lot is "If that were my story xxxxx would have xxxxxxx and xxxxx would have xxxx." So here is everyone's chance to show me how it should really be done. Step up and put an ending to this story. There is only one rule. You must state in your opening that your story is a continuation of my story. 
 
  Editor's Note: you must also put your story in the Chain Stories category and title it "Rob's Saga: YOURSUBTITLEHERE", where YOURSUBTITLEHERE is a short (1- 3 words) subtitle. 
 
@@ -228,7 +234,11 @@
 
  
 
- ****** Rob's Saga Ch. 01 ****** byJust_Plain_Bob© "I know that all three of you are a little worried about what you might be getting into so I got you these. I'm giving them to you in the package so that you can see that it has not been opened so copies could be made of the keys and I want each of you to be standing there watching as I open the packages, give you the keys and install the doorknobs. I want all three of you to know that you are safe in this house." 
+ 
+
+===
+
+"I know that all three of you are a little worried about what you might be getting into so I got you these. I'm giving them to you in the package so that you can see that it has not been opened so copies could be made of the keys and I want each of you to be standing there watching as I open the packages, give you the keys and install the doorknobs. I want all three of you to know that you are safe in this house." 
 
  I saw all three of them look at each other and maybe I just imagined it, but I thought I saw all three of them relax just a little. 
 
@@ -406,7 +416,11 @@
 
  
 
- ****** Rob's Saga Ch. 01 ****** byJust_Plain_Bob© The second session was more bullshit from Audrey as she listed the issues she had while I listened and shook my head. I dropped my dirty clothes on the floor. I left the toilet seat up. I never called when I was going to be a little late in coming home. I got up Saturday morning and cut the grass even though I knew she liked to sleep in on the weekends and the mower motor would wake her up. She was willing to watch football with me, but I would never watch Oprah with her and on and on and on. She made herself look like an absolute doofus. 
+ 
+
+===
+
+The second session was more bullshit from Audrey as she listed the issues she had while I listened and shook my head. I dropped my dirty clothes on the floor. I left the toilet seat up. I never called when I was going to be a little late in coming home. I got up Saturday morning and cut the grass even though I knew she liked to sleep in on the weekends and the mower motor would wake her up. She was willing to watch football with me, but I would never watch Oprah with her and on and on and on. She made herself look like an absolute doofus. 
 
  He asked for my list and I told him that I didn't have one. I told him I was perfectly happy with my marriage right up to the day that she and DJ ambushed me in our living room. Actually, I didn't say it quite that way. What I said was: 
 
@@ -442,7 +456,11 @@
 
  
 
- ****** Rob's Saga Ch. 02 ****** byJust_Plain_Bob© And then the one thing I never expected happened. I woke up in the middle of the night with my dick being sucked. My first thought was that Bev or Barb had snuck into my room and were just going to take what I would not give on my own. I tensed and was gathering myself to rise up and push whichever twin it was off of me when a voice said: 
+ 
+
+===
+
+And then the one thing I never expected happened. I woke up in the middle of the night with my dick being sucked. My first thought was that Bev or Barb had snuck into my room and were just going to take what I would not give on my own. I tensed and was gathering myself to rise up and push whichever twin it was off of me when a voice said: 
 
  "Relax baby; we both need this." 
 
@@ -674,7 +692,11 @@
 
  
 
- ****** Rob's Saga Ch. 02 ****** byJust_Plain_Bob© "I can't baby. If I do I know for sure that you will never take me back." 
+ 
+
+===
+
+"I can't baby. If I do I know for sure that you will never take me back." 
 
  "Why didn't you think of that way back when you decided to bail out on me?" 
 
@@ -892,7 +914,11 @@
 
  
 
- ****** Rob's Saga Ch. 02 ****** byJust_Plain_Bob© When I got home from work that night I found that Audrey had taken a day off from work and had used that day to move back into the house. She and the girls were in the kitchen making dinner and since they weren't scowling at each other I assumed that things were so far okay. Barb said: 
+ 
+
+===
+
+When I got home from work that night I found that Audrey had taken a day off from work and had used that day to move back into the house. She and the girls were in the kitchen making dinner and since they weren't scowling at each other I assumed that things were so far okay. Barb said: 
 
  "Dinner will be ready in about five minutes daddy" and I saw Audrey give a quick glance Barb's way. I would bet that that "daddy" was Barb's way of letting Audrey know that she was staking a claim to part of me and letting Audrey know that there was a strong relationship there that Audrey wasn't going to be allowed to mess with. 
 
@@ -1070,7 +1096,11 @@
 
  
 
- ****** Rob's Saga Ch. 02 ****** byJust_Plain_Bob© "Everyone knows that the brain needs oxygen to function properly, but I had my head so far up my ass where you were concerned that my brain wasn't getting any oxygen. When Barb tipped me to the fact that you weren't at school on Mondays and Thursdays I followed you and saw where you went. I remembered back to when you first came home how upset you seemed to get when the girls said no to a regular nursing school and insisted on going the community college route and I figured that it was because you were afraid they would find out that you didn't really take classes and they would tell me. Following you to Hathaway's told me that you had been fucking him all along. That made me believe that along with my not believing we could make it you weren't even intending to try. You were playing some kind of game. Setting me up so you could leave me in some nasty way to get even with me for tossing you out. Why else would you be wasting your time with me and spending your evenings with your boyfriend here?" 
+ 
+
+===
+
+"Everyone knows that the brain needs oxygen to function properly, but I had my head so far up my ass where you were concerned that my brain wasn't getting any oxygen. When Barb tipped me to the fact that you weren't at school on Mondays and Thursdays I followed you and saw where you went. I remembered back to when you first came home how upset you seemed to get when the girls said no to a regular nursing school and insisted on going the community college route and I figured that it was because you were afraid they would find out that you didn't really take classes and they would tell me. Following you to Hathaway's told me that you had been fucking him all along. That made me believe that along with my not believing we could make it you weren't even intending to try. You were playing some kind of game. Setting me up so you could leave me in some nasty way to get even with me for tossing you out. Why else would you be wasting your time with me and spending your evenings with your boyfriend here?" 
 
  Hathaway gave me a nasty look and Audrey started to say something, but I held up my hand to cut her off. 
 

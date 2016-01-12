@@ -1,8 +1,14 @@
+Rob and Cheri
+=============
 #1 
 
  
 
- ****** Rob and Cheri ****** byJust_Plain_Bob© This story is like many others I have read on this site. It is unique only in that it happened to me. Looking back on it now I suppose I should have seen it coming, but I didn't. I can only blame it on being blinded by my love for Cheri. Well, the blinders are off now and I can't believe that I have been so stupid. 
+ 
+
+===
+
+This story is like many others I have read on this site. It is unique only in that it happened to me. Looking back on it now I suppose I should have seen it coming, but I didn't. I can only blame it on being blinded by my love for Cheri. Well, the blinders are off now and I can't believe that I have been so stupid. 
 
  I had been married to Cheri a little over ten years. They were good years and as far as marriages go I would have put ours in the top ten percent, but as with a lot of marriages of that length the bloom had gone off the rose as far as sex was concerned. Cheri and I still had a sex life, but it was kind of ho- hum. Twice a week, usually Tuesday and Saturday, and almost always in the missionary position. I hadn't gotten a blow job in years and I guess sub- conscientiously I retaliated by stopping going down on Cheri. 
 
@@ -262,7 +268,11 @@
 
  
 
- ****** Rob and Cheri ****** byJust_Plain_Bob© "No Cheri, the question isn't how are you going to be able to face her, but how is she going to face you after lying to you." 
+ 
+
+===
+
+"No Cheri, the question isn't how are you going to be able to face her, but how is she going to face you after lying to you." 
 
  The rest of the trip home was made in silence and when we got to the house I took a quick shower and went to work. When I got home that night Cheri was in the kitchen fixing dinner and all she was wearing was an apron and a pair of high heels. I was still pissed so when she said, "Hi baby" I gave her a non- committal grunt and got a beer out of the fridge. 
 
@@ -432,7 +442,11 @@
 
  
 
- ****** Rob and Cheri ****** byJust_Plain_Bob© "Watching you with other men never did a thing for me Cheri; what turned me on was the way you behaved when it was over." 
+ 
+
+===
+
+"Watching you with other men never did a thing for me Cheri; what turned me on was the way you behaved when it was over." 
 
  "I didn't know that Rob and the way you acted when I did the first one came as a surprise and a shock to me." 
 

@@ -1,8 +1,14 @@
+Angela Ch. 02
+=============
 #1 
 
  
 
- ****** Angela Ch. 02 ****** bygeronimo_appleby© After my seduction by the gorgeous Angela on my birthday I was dying to see her again. I kept thinking about her superb figure with her full, ripe breasts, thick rubbery nipples, slim waist and broad hips. I constantly remembered the texture of her skin and the colour of her hair and the look on her face as I screwed her. 
+ 
+
+===
+
+After my seduction by the gorgeous Angela on my birthday I was dying to see her again. I kept thinking about her superb figure with her full, ripe breasts, thick rubbery nipples, slim waist and broad hips. I constantly remembered the texture of her skin and the colour of her hair and the look on her face as I screwed her. 
 
  I took every opportunity I could think of to repeat the experience and was constantly making up excuses to call round. My efforts were thwarted at every turn until one afternoon Angela whispered to me to come around that evening at 8 pm. Her husband was at home and so after she'd whispered her instructions to me she closed the door and I headed off home. 
 

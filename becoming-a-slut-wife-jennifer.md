@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Jennifer
+==============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Jennifer ****** byJust_Plain_Bob© It is pretty much of a shock when you find out that your loving wife of ten years is a slut. I don't know what else you can call a woman when you catch her with three guys and all three of them have their dicks in her - at the same time! 
+ 
+
+===
+
+It is pretty much of a shock when you find out that your loving wife of ten years is a slut. I don't know what else you can call a woman when you catch her with three guys and all three of them have their dicks in her - at the same time! 
 
  Jennifer and I were at a New Years Eve party at the home of some friends of ours. Midnight had come and gone, the booze had been flowing and no one was feeling any pain. Jennifer came up to me and said that Al had some killer weed and she asked me if I wanted some. I didn't really care for the stuff and I told her no and then she asked me if I would mind if she tried some. I could see that she really wanted to and so I told her to go ahead, but not to get too fucked up. I watched as she and several others headed for the back of the house and I wondered how in the hell I had been lucky enough to get her to be mine. Jennifer is five foot six, one hundred and fifteen pounds and her body is nice and tight from almost daily trips to the gym. She is very proud of her firm, pointed breasts and never wears a bra. For this party she was wearing a black cocktail dress and high heels and she looked hot! She drew male attention like magnet draws steel and even though every man who lays eyes on her wants to bed her it had never occurred to me not to trust her. I didn't even give a second thought to her leaving the room and going into a bedroom with a bunch of people to smoke pot. I wandered off to see if I could find some one to talk to. 
 

@@ -1,8 +1,10 @@
-#1 
-
+Charity begins Nextdoor
+=======================
  
 
- ****** Charity Begins Next Door ****** byTx_Tall_Tales© =================== 
+===
+
+=================== 
 
  Life isn't fair. So when you fight back, fight dirty. 
 
@@ -212,7 +214,11 @@
 
  
 
- ****** Charity Begins Next Door ****** byTx_Tall_Tales© "Just thought I'd fix your fence, before it falls down. I hope you don't mind." 
+ 
+
+===
+
+"Just thought I'd fix your fence, before it falls down. I hope you don't mind." 
 
  She just shook her head. 
 
@@ -482,7 +488,11 @@
 
  
 
- ****** Charity Begins Next Door ****** byTx_Tall_Tales© "I understand." She held my hand. "How are you doing?" 
+ 
+
+===
+
+"I understand." She held my hand. "How are you doing?" 
 
  "Better. Not good, but at least I can get out of bed." 
 
@@ -808,7 +818,11 @@
 
  
 
- ****** Charity Begins Next Door ****** byTx_Tall_Tales© "What?" 
+ 
+
+===
+
+"What?" 
 
  "It's too much." 
 
@@ -1036,7 +1050,11 @@
 
  
 
- ****** Charity Begins Next Door ****** byTx_Tall_Tales© I spread my legs and straightened them, raising my hips high before plunging down into her. She gasped and I smiled, pummeling her from above, fucking her fast and hard, her wide open pussy screaming out to be filled. 
+ 
+
+===
+
+I spread my legs and straightened them, raising my hips high before plunging down into her. She gasped and I smiled, pummeling her from above, fucking her fast and hard, her wide open pussy screaming out to be filled. 
 
  For the first time that night I felt her responding deeply, shivering. She released her feet and clutched her legs behind her knees, her shins bracketing her pretty face. 
 

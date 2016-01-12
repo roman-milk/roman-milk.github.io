@@ -1,8 +1,14 @@
+Sarah Cheats
+============
 #1 
 
  
 
- ****** Sarah Cheats ****** byGotBacon© It's Friday afternoon and I'm on my way home after winning a huge case against the County Sheriff. My client got an out of court settlement for pain and suffering and wrongful arrest. 
+ 
+
+===
+
+It's Friday afternoon and I'm on my way home after winning a huge case against the County Sheriff. My client got an out of court settlement for pain and suffering and wrongful arrest. 
 
  It seems that the county cops made a huge mistake. The guy's son was a pothead and daddy wanted him out of his house. He paid for an apartment for him and gave him $1000 a month. A confidential informant saw the kid buy something from a drug dealer. He took a snapshot with his cell phone. He wanted to make some points so he told the cops that the kid was a coke dealer. They got a no knock warrant but got the fathers address instead of the kid's. It seems that the kid was a junior. The broke down daddy's door, roughed him up and arrested him. They broke three of his ribs. Instead of taking him to a doctor they just wrapped his ribs with some ace bandages and put him in a cell. It happened on a Friday night and he had to spend the weekend in jail. They also trashed his house looking for the coke. They ruined a lot of very valuable antiques the old man owned. They grilled him for hours trying to get him to give up where the coke was hidden. He tried to explain but they wouldn't listen. He finally told them he wanted a lawyer. They stopped the questioning. His lawyer showed up and they released him on Monday due to lack of evidence. Daddy was very rich and he went after them. They kid was arrested later and all they found was a half ounce of weed and some rolling papers. He was fined and released. 
 
@@ -308,7 +314,11 @@
 
  
 
- ****** Sarah Cheats ****** byGotBacon© "See what's going in your pussy. My hot black cock is ready for you. Tell me you want it." 
+ 
+
+===
+
+"See what's going in your pussy. My hot black cock is ready for you. Tell me you want it." 
 
  "Oh god yes. I want it." 
 
@@ -614,7 +624,11 @@
 
  
 
- ****** Sarah Cheats ****** byGotBacon© ****************** 
+ 
+
+===
+
+****************** 
 
  We waited through the week for Sarah's attorney to contact us. Nothing happened. I had Jan call her Mother. Jan talked to Sarah. She agreed to sign the papers if I would meet with her for thirty minutes. She just wanted to talk to me. I agreed. We met in the park where we used to take Amy. 
 
@@ -994,7 +1008,11 @@
 
  
 
- ****** Sarah Cheats ****** byGotBacon© "OH my god, Eric. That was so good. I've never cum like that. I thought I died." 
+ 
+
+===
+
+"OH my god, Eric. That was so good. I've never cum like that. I thought I died." 
 
  "You're gonna die a lot this weekend. Get ready for it." 
 

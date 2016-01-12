@@ -1,8 +1,14 @@
+What Mom Knows Fucks Her Mom
+============================
 #1 
 
  
 
- ****** What Mom Knows Fucks Her Mom ****** bysilkstockingslover© Summary: Nana is seduced and dommed by daughter and grandson. 
+ 
+
+===
+
+Summary: Nana is seduced and dommed by daughter and grandson. 
 
  Note 1: Thanks to Robert, Wayne and goamz86. 
 
@@ -322,7 +328,11 @@
 
  
 
- ****** What Mom Knows Fucks Her Mom ****** bysilkstockingslover© Interestingly, as her face paled slightly, she didn't snap at me, or counter argue my words, instead she responded, "I don't do anal." 
+ 
+
+===
+
+Interestingly, as her face paled slightly, she didn't snap at me, or counter argue my words, instead she responded, "I don't do anal." 
 
  "I think it's time we change that response," I smugly countered, "plus I recall you agreeing to all three holes in Vegas." 
 
@@ -680,7 +690,11 @@
 
  
 
- ****** What Mom Knows Fucks Her Mom ****** bysilkstockingslover© "But it won't be the same," she sighed softly, as she rolled onto her back and into my arm looking dejected. 
+ 
+
+===
+
+"But it won't be the same," she sighed softly, as she rolled onto her back and into my arm looking dejected. 
 
  "I know," I said, feeling the same way. "But I have a wife now and you have Ellie." 
 
@@ -1108,7 +1122,11 @@
 
  
 
- ****** What Mom Knows Fucks Her Mom ****** bysilkstockingslover© After a moment, I pulled out of Nana's mouth and ordered, "I believe you each have some cum to retrieve." 
+ 
+
+===
+
+After a moment, I pulled out of Nana's mouth and ordered, "I believe you each have some cum to retrieve." 
 
  Nana looked at Mom with trepidation, but Mom leaned forward and began kissing Nana on the chin, cheek, nose, forehead and finally her lips. Nana was tentative at first, but soon she was kissing back. Nana then retrieved the cum on Mom's face as well. 
 

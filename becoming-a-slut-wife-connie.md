@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Connie
+============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Connie ****** byJust_Plain_Bob© All I was doing was giving my wife a gift. Giving her something that she would truly enjoy and remember for the rest of her life. But what I did was cause her to become a slut and in the process I most probably destroyed our twenty-five year marriage. 
+ 
+
+===
+
+All I was doing was giving my wife a gift. Giving her something that she would truly enjoy and remember for the rest of her life. But what I did was cause her to become a slut and in the process I most probably destroyed our twenty-five year marriage. 
 
  Connie and I married right out of college and she has kept me the happiest man in the world for almost twenty-five years. She has been loving, caring, supportive, a fantastic lover and my best friend and I wanted to do something for her to show her just how much I loved and appreciated her. The gift I gave her was no ordinary gift. I loved her enough to swallow my pride, bury my ego and give her something that I knew she had always wanted and something that I personally could not deliver. I gave her another man. More specifically, I gave her a man with a large cock. 
 

@@ -1,8 +1,14 @@
+Swapping Mistake?
+=================
 #1 
 
  
 
- ****** Swapping Mistake? ****** byGotBacon© This is just some of the things I thought of that can happen to first time swappers. 
+ 
+
+===
+
+This is just some of the things I thought of that can happen to first time swappers. 
 
  If you're a spelling or grammar Nazi this isn't for you. 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Swapping Mistake? ****** byGotBacon© "Oh fuck yes. Milk it baby. Milk my cock." 
+ 
+
+===
+
+"Oh fuck yes. Milk it baby. Milk my cock." 
 
  My pussy muscles hold him in the breeding position and I milk his cock with all my might. He flexes again and I cry out and cum. I squeeze and he flexes. I cum again. Finally I feel his cock swelling. My pussy muscles grip his cock and I feel it flare. His hot cum hitting my cervix pushes me over the edge. More hot cum pumps into me and I start screaming and cumming. He pumps and pumps. I hear his cries too. I milk every drop from him. I give it one last squeeze and feel the last drops of his cum go in. His cock starts to shrink and my cervix closes as he pulls out. All of this load of cum is in my womb too. He falls off to my side and his cock comes out with a slurp. He pulls me into his arms and kisses me on the neck. 
 
@@ -600,7 +610,11 @@
 
  
 
- ****** Swapping Mistake? ****** byGotBacon© I decide to make an appointment with my doctor. I need to have him confirm that I'm really pregnant. He has a cancellation and can see me tomorrow afternoon. 
+ 
+
+===
+
+I decide to make an appointment with my doctor. I need to have him confirm that I'm really pregnant. He has a cancellation and can see me tomorrow afternoon. 
 
  I show up on time and the nurse shows me into an examination room. The doctor walks in. 
 
@@ -898,7 +912,11 @@
 
  
 
- ****** Swapping Mistake? ****** byGotBacon© "Fun is right. As soon as I recover I gotta call Sandy." 
+ 
+
+===
+
+"Fun is right. As soon as I recover I gotta call Sandy." 
 
  "Who's Sandy. She's my best friend and my lover." 
 
@@ -1200,7 +1218,11 @@
 
  
 
- ****** Swapping Mistake? ****** byGotBacon© "Why don't you call her first. Just test the water and see where her mind is. If she had moved on just apologize and let it go." 
+ 
+
+===
+
+"Why don't you call her first. Just test the water and see where her mind is. If she had moved on just apologize and let it go." 
 
  "But there's something else too. I love you and Sandy. I came into you lives and now I'm thinking of bailing out." 
 

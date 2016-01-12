@@ -1,8 +1,14 @@
+What Mom Knows Fucks Her in White
+=================================
 #1 
 
  
 
- ****** What Mom Knows Fucks Her in White ****** bysilkstockingslover© Summary: Three weddings in Vegas and some very submissive brides. 
+ 
+
+===
+
+Summary: Three weddings in Vegas and some very submissive brides. 
 
  Note 1: Thanks to MAB7991 and goamz86 for editing this chapter. 
 
@@ -380,7 +386,11 @@
 
  
 
- ****** What Mom Knows Fucks Her in White ****** bysilkstockingslover© "God no, you had a huge head and hurt like hell coming out," she joked, as she grabbed my cock, rolling her finger's around my cock head before adding, "although now your head feels so good going in." 
+ 
+
+===
+
+"God no, you had a huge head and hurt like hell coming out," she joked, as she grabbed my cock, rolling her finger's around my cock head before adding, "although now your head feels so good going in." 
 
  "Aaaaaaah," I moaned, her fingers teasing me so gently. 
 
@@ -784,7 +794,11 @@
 
  
 
- ****** What Mom Knows Fucks Her in White ****** bysilkstockingslover© Ellie meanwhile screamed, "Yeeeees, I'm coming slut." 
+ 
+
+===
+
+Ellie meanwhile screamed, "Yeeeees, I'm coming slut." 
 
  I glanced at Kristina who had her phone out and was apparently recording the bride's nasty submissive act. 
 

@@ -1,8 +1,14 @@
+Penny Ch. 01
+============
 #1 
 
  
 
- ****** Penny Ch. 01 ****** byJust_Plain_Bob© It was my fault and I admit it. I accept the blame. I take responsibility for my actions. I own up to being the cause, the driving force behind it all. It was my idea, I pursued it, I encouraged it, and the blame is mine. None of that makes it any easier to wake up in the morning and find myself alone in bed. 
+ 
+
+===
+
+It was my fault and I admit it. I accept the blame. I take responsibility for my actions. I own up to being the cause, the driving force behind it all. It was my idea, I pursued it, I encouraged it, and the blame is mine. None of that makes it any easier to wake up in the morning and find myself alone in bed. 
 
  ++++++++++++++++++++++++++++++++++++++ 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** Penny Ch. 02 ****** byJust_Plain_Bob© Following that night our sex life went into overdrive. As Penny said to me the morning after I ate her cum filled pussy for the first time: 
+ 
+
+===
+
+Following that night our sex life went into overdrive. As Penny said to me the morning after I ate her cum filled pussy for the first time: 
 
  "I know your buttons now baby and I know just which ones to push and how to push them." 
 
@@ -296,7 +306,11 @@
 
  
 
- ****** Penny Ch. 03 ****** byJust_Plain_Bob© Penny was still sleeping when I left the house in the morning. I thought about her and our marriage all the way to work. I kept going back to the ease with which Penny let every thing happen and wondering if that was the real Penny. In all of our years of marriage I'd never had any reason to doubt Penny. I'd never seen one thing to make me believe that she wasn't faithful. She had always been loving and affectionate so why was I thinking the thoughts of her that I was thinking? 
+ 
+
+===
+
+Penny was still sleeping when I left the house in the morning. I thought about her and our marriage all the way to work. I kept going back to the ease with which Penny let every thing happen and wondering if that was the real Penny. In all of our years of marriage I'd never had any reason to doubt Penny. I'd never seen one thing to make me believe that she wasn't faithful. She had always been loving and affectionate so why was I thinking the thoughts of her that I was thinking? 
 
  The answer of course was the ease with which Penny gave it up. It was circular thinking at it's worst. No matter the question, no matter the doubts, no matter the "why am I" it always came back to how quickly Penny had spread her legs and given in to those two men. How could a faithful wife do that? 
 
@@ -416,7 +430,11 @@
 
  
 
- ****** Penny Ch. 04 ****** byJust_Plain_Bob© Getting through it would have been a piece of cake had it not been for one thing; I still could not get the ease with which Penny got it on with Mark and Dave out of my mind. Try as I might I could not accept that a faithful wife could have given in that quickly. Maybe if we had gotten into the watching thing a year or so after we were married when she wasn't so far removed from her slut past I could have bought into it. But after as many years as we had been married and as far behind her as her slut behavior was I would have expected just a touch of nervousness, a little hesitation, or one or two worried looks cast my way when she first started with Mark and Dave. I just could not shake those thoughts out of my head. 
+ 
+
+===
+
+Getting through it would have been a piece of cake had it not been for one thing; I still could not get the ease with which Penny got it on with Mark and Dave out of my mind. Try as I might I could not accept that a faithful wife could have given in that quickly. Maybe if we had gotten into the watching thing a year or so after we were married when she wasn't so far removed from her slut past I could have bought into it. But after as many years as we had been married and as far behind her as her slut behavior was I would have expected just a touch of nervousness, a little hesitation, or one or two worried looks cast my way when she first started with Mark and Dave. I just could not shake those thoughts out of my head. 
 
  The physical aspects of it didn't trouble me. The images of Don and Penny in my mind were replaced by images of Mark and Dave and I found that those images were giving me erections just as the thoughts of Penny and Don had. 
 
@@ -608,7 +626,11 @@
 
  
 
- ****** Penny Ch. 04 ****** byJust_Plain_Bob© I decided to take the afternoon off and go home and have it out with Penny. As I drove home I wondered why Penny had never mentioned her new schedule to me. Stupid question I immediately thought; if she told me she would lose her two days to play with Mark or whoever. Fucking bitch! It was amazing how quickly I went from "Separation is not an option" and "We will work it out" to outright hatred and disgust. She had been fucking around on me for at least six months and all the time pretending to be my loving and faithful wife. 
+ 
+
+===
+
+I decided to take the afternoon off and go home and have it out with Penny. As I drove home I wondered why Penny had never mentioned her new schedule to me. Stupid question I immediately thought; if she told me she would lose her two days to play with Mark or whoever. Fucking bitch! It was amazing how quickly I went from "Separation is not an option" and "We will work it out" to outright hatred and disgust. She had been fucking around on me for at least six months and all the time pretending to be my loving and faithful wife. 
 
  I turned onto my block and sure enough there was Mark's car in the drive. I pulled up and parked at the curb and headed on into the house. I heard the sounds from the bedroom as soon as I was inside the door. I headed for the bedroom and as I approached it I heard them laughing and talking so I stopped just short of the door to listen. 
 

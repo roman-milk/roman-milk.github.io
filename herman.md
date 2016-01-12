@@ -1,8 +1,14 @@
+Herman Ch. 01
+=============
 #1 
 
  
 
- ****** Herman Ch. 01 ****** byJust_Plain_Bob© I was sitting at a table in the student cafeteria eating lunch and reviewing the notes I'd taken during Mallory's Business Law III when someone pulled out a chair and sat down across from me. I looked up and into the most startling blue eyes I had ever seen. They belonged to a girl I'd never seen before. Actually she wasn't a girl, she was a woman. I'd guess maybe twenty-four or twenty-five. 
+ 
+
+===
+
+I was sitting at a table in the student cafeteria eating lunch and reviewing the notes I'd taken during Mallory's Business Law III when someone pulled out a chair and sat down across from me. I looked up and into the most startling blue eyes I had ever seen. They belonged to a girl I'd never seen before. Actually she wasn't a girl, she was a woman. I'd guess maybe twenty-four or twenty-five. 
 
  "Harold right? She asked. 
 
@@ -254,7 +260,11 @@
 
  
 
- ****** Herman Ch. 01 ****** byJust_Plain_Bob© "That got the first fast one out of the way. Now I'll show you how to return the favor when a girl does that for you." 
+ 
+
+===
+
+"That got the first fast one out of the way. Now I'll show you how to return the favor when a girl does that for you." 
 
  She led me through how she liked her pussy eaten and cautioned me that other women might like it done differently, but what she was giving me was the basics. 
 
@@ -558,7 +568,11 @@
 
  
 
- ****** Herman Ch. 01 ****** byJust_Plain_Bob© Without turning back around I gave him the finger as I walked away. He walked into the kitchen and a minute later Bonnie hollered out: 
+ 
+
+===
+
+Without turning back around I gave him the finger as I walked away. He walked into the kitchen and a minute later Bonnie hollered out: 
 
  "Get in here Bobby!" 
 
@@ -794,7 +808,11 @@
 
  
 
- ****** Herman Ch. 01 ****** byJust_Plain_Bob© "Those are good ideas and I think that we will use them to extend the series. How about you start an affair with a girl and after a while she, knowing what I do to you, decides she is going to take you away from me. She confronts me, we fight, I subdue her and then turn her against you and the both of us treat you like a servant. Another gangbang maybe with the two of lying next to each other on the bed as we take on the guys. Damn Herm; I'm so glad that Ivy steered me to you." 
+ 
+
+===
+
+"Those are good ideas and I think that we will use them to extend the series. How about you start an affair with a girl and after a while she, knowing what I do to you, decides she is going to take you away from me. She confronts me, we fight, I subdue her and then turn her against you and the both of us treat you like a servant. Another gangbang maybe with the two of lying next to each other on the bed as we take on the guys. Damn Herm; I'm so glad that Ivy steered me to you." 
 
  She wiped her mouth with a napkin and said that she needed to use the ladies room. As soon as she was out of sight I felt a tap on my shoulder and a familiar voice said: 
 
@@ -806,7 +824,11 @@
 
  
 
- ****** Herman Ch. 02 ****** byJust_Plain_Bob© Sam wiped her mouth with a napkin and said that she needed to us the ladies room Sam wiped her mouth with a napkin and said that she needed to use the ladies room. As soon as she was out of sight I felt a tap on my shoulder and a familiar voice said: 
+ 
+
+===
+
+Sam wiped her mouth with a napkin and said that she needed to us the ladies room Sam wiped her mouth with a napkin and said that she needed to use the ladies room. As soon as she was out of sight I felt a tap on my shoulder and a familiar voice said: 
 
  "How have you been stranger?" 
 
@@ -1042,7 +1064,11 @@
 
  
 
- ****** Herman Ch. 02 ****** byJust_Plain_Bob© "I don't have anything to talk to you about Herm. I just want to ask you for something." 
+ 
+
+===
+
+"I don't have anything to talk to you about Herm. I just want to ask you for something." 
 
  "What?" 
 
@@ -1346,7 +1372,11 @@
 
  
 
- ****** Herman Ch. 02 ****** byJust_Plain_Bob© "Sounds good. We can make it work. Speaking of making things work would you like your dessert here on the kitchen table or in the bedroom?" 
+ 
+
+===
+
+"Sounds good. We can make it work. Speaking of making things work would you like your dessert here on the kitchen table or in the bedroom?" 
 
  "Silly girl. The bedroom of course. If I had it on the kitchen table it would just be a fuck and you and I don't do that. Right?" 
 
@@ -1696,7 +1726,11 @@
 
  
 
- ****** Herman Ch. 02 ****** byJust_Plain_Bob© The talk switched to Linda's company and what she had in mind for me. Linda said she didn't yet know exactly where she was going to put me. 
+ 
+
+===
+
+The talk switched to Linda's company and what she had in mind for me. Linda said she didn't yet know exactly where she was going to put me. 
 
  "Herm has a year and a half of school yet and things could change between now and when he graduates. Where I'm going to put him will depend on where the economy is when he is ready to go to work." She turned to me and said, "You are going to intern with me over your summer break aren't you?" 
 
@@ -1750,7 +1784,11 @@
 
  
 
- ****** Herman Ch. 03 ****** byJust_Plain_Bob© I'd had a thought over the weekend concerning the money I'd found under mom's bed I'd had a thought over the weekend concerning the money I'd found under mom's bed. Figuring that some people are just naturally nosey and if the cleaning crew that came in on every Wednesday had someone like that I'd best move the money. 
+ 
+
+===
+
+I'd had a thought over the weekend concerning the money I'd found under mom's bed I'd had a thought over the weekend concerning the money I'd found under mom's bed. Figuring that some people are just naturally nosey and if the cleaning crew that came in on every Wednesday had someone like that I'd best move the money. 
 
  Just before leaving the house to take Linda to the airport I'd stuffed what was in the metal box into a backpack. After dropping Linda at the airport I headed for a different bank than the one where mom had her safe deposit box and opened new checking and savings accounts and rented a safe deposit box. I felt relieved as I left the bank and headed for my first class of the day. 
 
@@ -2010,7 +2048,11 @@
 
  
 
- ****** Herman Ch. 03 ****** byJust_Plain_Bob© "Sure" Sam said, "What do you need?" 
+ 
+
+===
+
+"Sure" Sam said, "What do you need?" 
 
  "Can Herm stay here with you tonight?" 
 
@@ -2272,7 +2314,11 @@
 
  
 
- ****** Herman Ch. 03 ****** byJust_Plain_Bob© "Two days after your gangbang I was in John's home office and I was working with him on the sale of my porn business. John was my partner and owned twenty- five percent of the business. I noticed a magazine on his desk. It was a two year old issue of Investment Digest and it had your picture on the cover. It could well be that he knew who you were when he joined in on the gangbang." 
+ 
+
+===
+
+"Two days after your gangbang I was in John's home office and I was working with him on the sale of my porn business. John was my partner and owned twenty- five percent of the business. I noticed a magazine on his desk. It was a two year old issue of Investment Digest and it had your picture on the cover. It could well be that he knew who you were when he joined in on the gangbang." 
 
  Linda's face was showing the shock she was feeling over the news. 
 

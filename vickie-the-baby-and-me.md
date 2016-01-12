@@ -1,8 +1,14 @@
+Vickie, The Baby &amp; Me
+=========================
 #1 
 
  
 
- ****** Vickie, The Baby &amp; Me ****** byJust_Plain_Bob© Vickie meet me at the front door in what she called her "slut suit" which was nothing more than a pair of "Come Fuck Me" pumps. 
+ 
+
+===
+
+Vickie meet me at the front door in what she called her "slut suit" which was nothing more than a pair of "Come Fuck Me" pumps. 
 
  "What's the occasion? 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Vickie, The Baby &amp; Me ****** byJust_Plain_Bob© They were so busy at cuckolding me that neither one of them even knew that I was in the room until I loomed over them. I saw the horror on Vickie's face as she looked up in time to see my right forearm close on Roger's throat in a chokehold and my left grab a handful of his hair. I jerked him up off of Vickie and with the chokehold and pulled hair keeping him off balance I frog marched him down the stairs and to the front door. I pushed his naked body out the door and then locked it behind him. I went to the phone and called the police and reported a naked peeping tom, gave my name and address and then called the local TV station with the same tale. Then I went upstairs to deal with Vickie. 
+ 
+
+===
+
+They were so busy at cuckolding me that neither one of them even knew that I was in the room until I loomed over them. I saw the horror on Vickie's face as she looked up in time to see my right forearm close on Roger's throat in a chokehold and my left grab a handful of his hair. I jerked him up off of Vickie and with the chokehold and pulled hair keeping him off balance I frog marched him down the stairs and to the front door. I pushed his naked body out the door and then locked it behind him. I went to the phone and called the police and reported a naked peeping tom, gave my name and address and then called the local TV station with the same tale. Then I went upstairs to deal with Vickie. 
 
  She was cowering on the bed with the covers pulled up to hide her nakedness and she was crying. 
 

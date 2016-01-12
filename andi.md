@@ -1,8 +1,10 @@
-#1 
+Andi
+====
 
- 
 
- ****** Andi ****** byJust_Plain_Bob© Author's note: This has absolutely no redeeming value. It has precious little in the way of a plot or character development. Most, if not all, of the characters are not even remotely likeable. In short, it is pretty much what you have come to expect from me. Also I should add "Don't bother reading this Harry; you will hate it as much as you have everything else I have done." 
+===
+
+Author's note: This has absolutely no redeeming value. It has precious little in the way of a plot or character development. Most, if not all, of the characters are not even remotely likeable. In short, it is pretty much what you have come to expect from me. Also I should add "Don't bother reading this Harry; you will hate it as much as you have everything else I have done." 
 
  ++++++++++++++++++++++++++++ 
 
@@ -226,7 +228,11 @@
 
  
 
- ****** Andi ****** byJust_Plain_Bob© From that night forward Glen and I made love five or six times a week. 
+ 
+
+===
+
+From that night forward Glen and I made love five or six times a week. 
 
  +++++++++++++++++++++++ 
 
@@ -436,7 +442,11 @@
 
  
 
- ****** Andi ****** byJust_Plain_Bob© "What's the price?" 
+ 
+
+===
+
+"What's the price?" 
 
  "I'll give you the nastiest blow job you have ever gotten and I'll even swallow your cum, but then I get to bite your cock off and spit it out onto the parking lot. If that works for you lets go; otherwise leave me the fuck alone." 
 
@@ -662,7 +672,11 @@
 
  
 
- ****** Andi ****** byJust_Plain_Bob© "Are we going to do this again tomorrow night?" 
+ 
+
+===
+
+"Are we going to do this again tomorrow night?" 
 
  "It is our poker night" Mike said. 
 
@@ -876,7 +890,11 @@
 
  
 
- ****** Andi ****** byJust_Plain_Bob© I was well broken in when Glen did get home and I spent the weekend trying to turn him into a worn out wreck. 
+ 
+
+===
+
+I was well broken in when Glen did get home and I spent the weekend trying to turn him into a worn out wreck. 
 
  ++++++++++++++++++++++++ 
 

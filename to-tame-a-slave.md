@@ -1,8 +1,14 @@
+To Tame a Slave
+===============
 #1 
 
  
 
- ****** To Tame a Slave ****** byianbabyyy© So this is my first story! Our heroine, Alanna, is whisked away from her modern world and spirited life and finds herself in a medieval world full of fantastical beings. And then? She becomes a slave. 
+ 
+
+===
+
+So this is my first story! Our heroine, Alanna, is whisked away from her modern world and spirited life and finds herself in a medieval world full of fantastical beings. And then? She becomes a slave. 
 
  Please enjoy! 
 
@@ -68,7 +74,11 @@
 
  
 
- ****** To Tame a Slave Ch. 02 ****** byianbabyyy© Forgot to mention the first time that this is a multiple part story. I'm sorry that it takes a while to build up, I promise really sexy things are coming. 
+ 
+
+===
+
+Forgot to mention the first time that this is a multiple part story. I'm sorry that it takes a while to build up, I promise really sexy things are coming. 
 
  Also, I've been struggling with which category to place it in, so I've decided each part will go into the category that's most predominant in it. If that makes sense. Anyways, enjoy! 
 
@@ -144,7 +154,11 @@
 
  
 
- ****** To Tame a Slave Ch. 03 ****** byianbabyyy© Hi guys, I'm sorry this took so long, but I've been sick and kinda down, and I kinda lost my muse for a bit. Per request, I tried to make this one longer. Also, I'm sorry we're still a little low on the sexy bits, but I don't want to force it, I want it to come naturally. Please enjoy! 
+ 
+
+===
+
+Hi guys, I'm sorry this took so long, but I've been sick and kinda down, and I kinda lost my muse for a bit. Per request, I tried to make this one longer. Also, I'm sorry we're still a little low on the sexy bits, but I don't want to force it, I want it to come naturally. Please enjoy! 
 
  ***** 
 
@@ -324,7 +338,11 @@
 
  
 
- ****** To Tame a Slave Ch. 03 ****** byianbabyyy© He started to say something, but before I could catch his words, I was waking up. 
+ 
+
+===
+
+He started to say something, but before I could catch his words, I was waking up. 
 
  My eyes blinked open slowly, squinting into the harsh sunlight. 
 
@@ -332,7 +350,11 @@
 
  
 
- ****** To Tame a Slave Ch. 04 ****** byianbabyyy© Hi guys. I'm so sorry this chapter took so long, but I kinda lost my muse for a bit. Anyways, sexy times in this chapter, which means I can get the ball rolling on more. ;) Almost done with the plot build up for a bit, so once everyone is settled, I'll be taking suggestions for possible scenarios. Hope you enjoy! 
+ 
+
+===
+
+Hi guys. I'm so sorry this chapter took so long, but I kinda lost my muse for a bit. Anyways, sexy times in this chapter, which means I can get the ball rolling on more. ;) Almost done with the plot build up for a bit, so once everyone is settled, I'll be taking suggestions for possible scenarios. Hope you enjoy! 
 
  ***** 
 
@@ -508,7 +530,11 @@
 
  
 
- ****** To Tame a Slave Ch. 04 ****** byianbabyyy© "And some food," he added, carrying me through the house as if I was no heavier than a kitten. When we stopped, it was in a lavish bedroom, decorated in various pastel colors that made me want to gag from the girliness of it. I was placed gently on the bed. 
+ 
+
+===
+
+"And some food," he added, carrying me through the house as if I was no heavier than a kitten. When we stopped, it was in a lavish bedroom, decorated in various pastel colors that made me want to gag from the girliness of it. I was placed gently on the bed. 
 
  "I'll return in a few minutes with some food, and then we can draw you a bath." He left then, and I flopped across the incredibly comfortable bed. 
 
@@ -516,7 +542,11 @@
 
  
 
- ****** To Tame a Slave Ch. 05 ****** byianbabyyy© Hey guys, I'm sorry this took so long. For some reason I've been having trouble with my muse, so I've kinda been bouncing between multiple projects trying to get it back. I wanted this chapter to be longer, but I got it to a good stopping point, so I decided to go ahead and post. I'm already working on the next chapter, and I promise it will be submitted in a week. 
+ 
+
+===
+
+Hey guys, I'm sorry this took so long. For some reason I've been having trouble with my muse, so I've kinda been bouncing between multiple projects trying to get it back. I wanted this chapter to be longer, but I got it to a good stopping point, so I decided to go ahead and post. I'm already working on the next chapter, and I promise it will be submitted in a week. 
 
  ***** 
 
@@ -710,7 +740,11 @@
 
  
 
- ****** To Tame a Slave Ch. 05 ****** byianbabyyy© His arm was offered and I took it reluctantly, glaring up at him. My ire was ignored as I was drawn from the dining room and down a hallway. His home was fairly straightforward as far as design, so I was pretty sure I'd be able to find my way around. We paused in front of a solid wood door, and he shot a wicked grin down at me. Before I could respond, the door was open, and I was in awe. 
+ 
+
+===
+
+His arm was offered and I took it reluctantly, glaring up at him. My ire was ignored as I was drawn from the dining room and down a hallway. His home was fairly straightforward as far as design, so I was pretty sure I'd be able to find my way around. We paused in front of a solid wood door, and he shot a wicked grin down at me. Before I could respond, the door was open, and I was in awe. 
 
  The room was all lovely dark wood furniture, with red and gold decorations. There was a stone fireplace against one wall, logs in it already to prepare for the coolness of nights here. The bed was, in one word, opulent. Four poster, with dark red sheets that even from a distance I could tell were silk, and would feel sinful against my skin. 
 
@@ -814,7 +848,11 @@
 
  
 
- ****** To Tame a Slave Ch. 06 ****** byianbabyyy© I'm so sorry for the wait. Apparently I'm awful at sex scenes. I'm going to stop setting deadlines, because I feel so awful when I don't meet them. Hope you enjoy! 
+ 
+
+===
+
+I'm so sorry for the wait. Apparently I'm awful at sex scenes. I'm going to stop setting deadlines, because I feel so awful when I don't meet them. Hope you enjoy! 
 
  ***** 
 
@@ -986,7 +1024,11 @@
 
  
 
- ****** To Tame a Slave Ch. 06 ****** byianbabyyy© --- 
+ 
+
+===
+
+--- 
 
  Dinner was just as peaceful as lunch, both of us sitting in mostly comfortable silence while occasionally chatting about his library. Towards the end though, I could feel tension starting to build, making me hunch and try to hurry through my food. 
 

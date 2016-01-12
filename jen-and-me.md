@@ -1,8 +1,14 @@
+Jen &amp; Me: Sis-In-Law Rewards
+================================
 #1 
 
  
 
- ****** Jen &amp; Me: Sis-In-Law Rewards ****** byTx_Tall_Tales© Why am I standing here in the rain, soggy paper bags in hand, and afraid to knock on the door? I wonder. 
+ 
+
+===
+
+Why am I standing here in the rain, soggy paper bags in hand, and afraid to knock on the door? I wonder. 
 
  My mind wanders back, reliving the events that led to my being here. It all started about 7 months ago... 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Jen &amp; Me: Sis-In-Law Rewards ****** byTx_Tall_Tales© "Nice," I said. "I can't even notice a scar." 
+ 
+
+===
+
+"Nice," I said. "I can't even notice a scar." 
 
  "Good." 
 
@@ -518,7 +528,11 @@
 
  
 
- ****** Jen &amp; Me: Sis-In-Law Rewards ****** byTx_Tall_Tales© "Oooohh," she moans, speeding up again. 
+ 
+
+===
+
+"Oooohh," she moans, speeding up again. 
 
  I'm getting close now. I push her forward, so she's on her hands and knees. I kneel behind her, and enter her again. I've got a hand full of tight, tanned ass, a hot young moaning college girl pushing back on each full stroke, and I'm slipping my thumb in her sexy little asshole. She's talking dirty again. 
 
@@ -626,7 +640,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 2: Descent into Narcissism ****** byTx_Tall_Tales© It's true. Jen has converted me into a total gym rat. 
+ 
+
+===
+
+It's true. Jen has converted me into a total gym rat. 
 
  It's been four months since my original conquest of my hot little sister-in- law. Through various bets and incentives, we've made love five more times. She is really playful in bed, and we have a great time. After ten years, I'm finally getting to know her. It's only since she lost the bike race that we've really talked a lot. 
 
@@ -822,7 +840,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 2: Descent into Narcissism ****** byTx_Tall_Tales© I lifted her easily off my cock, all 100 pounds of her, and place her to the side. I got up on my knees and moved her to her hands and knees. Jenny, seeing what I was up to, crawled underneath her, until the girls were positioned to eat each other, as I took up position behind Marisa. 
+ 
+
+===
+
+I lifted her easily off my cock, all 100 pounds of her, and place her to the side. I got up on my knees and moved her to her hands and knees. Jenny, seeing what I was up to, crawled underneath her, until the girls were positioned to eat each other, as I took up position behind Marisa. 
 
  "Oh, Marisa, you should see how huge his cock looks entering your tiny pussy. MMMmmmmmm, God I wish you could see this, you two look so hot, Mmmmmmmmm. Oh, shit, I can't believe that whole thing is going inside you. Steve, stop when you are all the way in." I was filling Marisa's pussy tantalizingly slow, and stopped when I had reached bottom. Jenny started licking my balls, then returned her attention to Marisa's clit. "Do her, Steve. I have to see it." 
 
@@ -948,7 +970,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 3: The Wife Gets Involved ****** byTx_Tall_Tales© After my initial conquest of Jen (documented in "Jen and Me: Sis-in-Law Rewards") things were a little awkward between us. That first weekend had been fantastic, and the sex was raw and uninhibited, but where did it go from there? We had said all along we were just doing this as friends, but there's something about screwing your sister-in-law five times in a period of less than 24 hours that changes the relationship a bit. 
+ 
+
+===
+
+After my initial conquest of Jen (documented in "Jen and Me: Sis-in-Law Rewards") things were a little awkward between us. That first weekend had been fantastic, and the sex was raw and uninhibited, but where did it go from there? We had said all along we were just doing this as friends, but there's something about screwing your sister-in-law five times in a period of less than 24 hours that changes the relationship a bit. 
 
  After the scene with Marisa ("Jen and Me: Descent into Narcissism") it was clear that we were crossing some kind of boundary, and were more than just friends. I must say however that Dr. Barton is a genius, and once the swelling and black eyes went away her nose was perfect. 
 
@@ -1120,7 +1146,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 3: The Wife Gets Involved ****** byTx_Tall_Tales© "Ohhhh, yesssss," I hissed as I loosed my first stream of cum on her chin. She was leaning her head back as I loosed several long sticky streams of cum all over her face. Her eyes were closed, good thing, because one stream stretched from her hairline, right down her left eye to her mouth. She finally took my sensitive cock head gently between her lips and cleaned me. Cum was dripping down her cheeks and she was giggling as she finished sucking me off. 
+ 
+
+===
+
+"Ohhhh, yesssss," I hissed as I loosed my first stream of cum on her chin. She was leaning her head back as I loosed several long sticky streams of cum all over her face. Her eyes were closed, good thing, because one stream stretched from her hairline, right down her left eye to her mouth. She finally took my sensitive cock head gently between her lips and cleaned me. Cum was dripping down her cheeks and she was giggling as she finished sucking me off. 
 
  "I hope no one catches me hopping into the shower," she laughed, and without another word, headed into the girl's shower. 
 
@@ -1348,7 +1378,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 3: The Wife Gets Involved ****** byTx_Tall_Tales© "Well, I'll help you in anyway I can. Hey, maybe we'll get lucky and find a decent, well-hung, funny, charming guy that wouldn't mind sharing, or forming a four-way with you, me and Marisa." The sensation was perfect and unconsciously I had picked up the pace quite a bit. It was getting harder to concentrate on the conversation. 
+ 
+
+===
+
+"Well, I'll help you in anyway I can. Hey, maybe we'll get lucky and find a decent, well-hung, funny, charming guy that wouldn't mind sharing, or forming a four-way with you, me and Marisa." The sensation was perfect and unconsciously I had picked up the pace quite a bit. It was getting harder to concentrate on the conversation. 
 
  "Right. Like that'll happen. Like I haven't tried to get a guy in the past." She certainly sounded pessimistic. 
 
@@ -1538,7 +1572,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 3: The Wife Gets Involved ****** byTx_Tall_Tales© "Mmmmmm", she replied. "Me too. Tell me about fucking her. You fucked her, fucked my little sister, tell me." She demanded. 
+ 
+
+===
+
+"Mmmmmm", she replied. "Me too. Tell me about fucking her. You fucked her, fucked my little sister, tell me." She demanded. 
 
  I pulled Cheryl down on top of me, and grasped her ass, as I started fucking up into her, fucking harder now, feeling the end approaching. 
 
@@ -1692,7 +1730,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 4: And Jack... ****** byTx_Tall_Tales© Chapter 4: And Jack Makes Three 
+ 
+
+===
+
+Chapter 4: And Jack Makes Three 
 
  Ok, when I last put pen to paper my wife had encouraged me to have sex with her sister, and wanted me to get Jenny a boyfriend. I had some ideas there I was looking to test. 
 
@@ -1920,7 +1962,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 4: And Jack... ****** byTx_Tall_Tales© She was bent over my body propped up on her hands, eyes closed, breathing like she'd just finished a marathon. I pulled myself out from under her, leaving her on her hands and knees. I grabbed her hair, tilted her head back and placed my cock against her mouth. It was soaked in both our cum. She obediently opened her mouth and cleaned me completely. 
+ 
+
+===
+
+She was bent over my body propped up on her hands, eyes closed, breathing like she'd just finished a marathon. I pulled myself out from under her, leaving her on her hands and knees. I grabbed her hair, tilted her head back and placed my cock against her mouth. It was soaked in both our cum. She obediently opened her mouth and cleaned me completely. 
 
  Once I was clean, I still did not pull away, but let her continue to pleasure me. It wasn't long before my hard-on was returning, and I was evaluating new ways to use my pleasure slave. 
 
@@ -2128,7 +2174,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 5: Jack, Jen &amp;... ****** byTx_Tall_Tales© Chapter 5: Jack, Jen & I Move Marisa 
+ 
+
+===
+
+Chapter 5: Jack, Jen & I Move Marisa 
 
  For those keeping track: In our last episode I had hooked Jenny up with Jack, the trainer from the gym, in exchange for which my wife was promising all kinds of delicious rewards. I had also agreed to help Marisa, that little firecracker, move in with Jenny, and had recruited Jack's help. 
 
@@ -2286,7 +2336,11 @@
 
  
 
- ****** Jen &amp; Me Ch. 5: Jack, Jen &amp;... ****** byTx_Tall_Tales© "Oooh, lover, whenever you want - whenever you want. I'll be your toy." She was breathing heavy, gasping. 
+ 
+
+===
+
+"Oooh, lover, whenever you want - whenever you want. I'll be your toy." She was breathing heavy, gasping. 
 
  I got quiet and worked her ass for several minutes while she wilted under my assault, dropping her head and shoulders to the bed, her ass held in place by my strong hands and implacable cock. She was moaning constantly, clasping the bed sheets. I'd have been a little concerned except for the shit-eating grin plastered across her face. 
 

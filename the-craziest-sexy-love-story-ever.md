@@ -1,8 +1,14 @@
+The Craziest Sexy Love Story Ever
+=================================
 #1 
 
  
 
- ****** The Craziest Sexy Love Story Ever ****** bysilkstockingslover© Summary: Straight white, black stud, cheerleader, nerd &amp; submission 
+ 
+
+===
+
+Summary: Straight white, black stud, cheerleader, nerd &amp; submission 
 
  Note 1: Although a rather unorthodox love story...this is a Valentine's Day 2014 Contest Entry because I wanted to try something different and because I believe love can occur in so many ways. 
 
@@ -272,7 +278,11 @@
 
  
 
- ****** The Craziest Sexy Love Story Ever ****** bysilkstockingslover© "Earth to Eric," Karen said, squeezing my hand. 
+ 
+
+===
+
+"Earth to Eric," Karen said, squeezing my hand. 
 
  "What? Oh, so sorry, I'm kind of out of it today," I said, which was definitely the truth. 
 
@@ -610,7 +620,11 @@
 
  
 
- ****** The Craziest Sexy Love Story Ever ****** bysilkstockingslover© I drove to school and headed straight to coach's office, mortified that I already had an erection. Why? What was turning me on? Reaching the office, I was surprised to see Beth there. 
+ 
+
+===
+
+I drove to school and headed straight to coach's office, mortified that I already had an erection. Why? What was turning me on? Reaching the office, I was surprised to see Beth there. 
 
  "Hi Beth, what are you doing here?" 
 
@@ -960,7 +974,11 @@
 
  
 
- ****** The Craziest Sexy Love Story Ever ****** bysilkstockingslover© "Make a decision Eric, if you're not willing to take my load, I need to text my cheerleading cocksucker to take my load," he explained. 
+ 
+
+===
+
+"Make a decision Eric, if you're not willing to take my load, I need to text my cheerleading cocksucker to take my load," he explained. 
 
  "Who?" I asked, still unable to take my eyes off his big, hard cock. 
 
@@ -1374,7 +1392,11 @@
 
  
 
- ****** The Craziest Sexy Love Story Ever ****** bysilkstockingslover© Opening her eyes, a minute later, Karen asked, "Ready, baby?" 
+ 
+
+===
+
+Opening her eyes, a minute later, Karen asked, "Ready, baby?" 
 
  "For what?" I asked, glancing down at Skye, implying I wasn't comfortable to do what we had agreed upon with a witness. 
 
@@ -1766,7 +1788,11 @@
 
  
 
- ****** The Craziest Sexy Love Story Ever ****** bysilkstockingslover© "And so I am," I shrugged. 
+ 
+
+===
+
+"And so I am," I shrugged. 
 
  "No, you are not," she said, "You're mine now." 
 

@@ -1,8 +1,14 @@
+Dominican Slut: Ass Fucked
+==========================
 #1 
 
  
 
- ****** Dominican Slut: Ass Fucked ****** bysilkstockingslover© Summary: Proud teen shy nerd turned into a submissive ass cum slut. 
+ 
+
+===
+
+Summary: Proud teen shy nerd turned into a submissive ass cum slut. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines themselves are real fantasies of the lovely couple. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Dominican Slut: Ass Fucked ****** bysilkstockingslover© Yet, every time he beeped me, I ended up going back, ending up taking it in the ass and ended up coming from nasty verbal racial degradation. 
+ 
+
+===
+
+Yet, every time he beeped me, I ended up going back, ending up taking it in the ass and ended up coming from nasty verbal racial degradation. 
 
  I was so in love with him, or what I thought was love, that I would do anything to please him, often skipping school to suck his cock in his Benz or meeting him for anal sex at a moment's notice. So I, with very little protesting, so desperate to keep my white boyfriend and please him, agreed to a threesome where he and his buddy took turns fucking my ass and mouth together. They called it a train as they both shot three loads in me over a couple hours of constant fucking. 
 
@@ -342,7 +352,11 @@
 
  
 
- ****** Dominican Slut: Blackmailed ****** bysilkstockingslover© Summary: Years later, proud MILF is blackmailed back into submission. 
+ 
+
+===
+
+Summary: Years later, proud MILF is blackmailed back into submission. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
@@ -650,7 +664,11 @@
 
  
 
- ****** Dominican Slut: Blackmailed ****** bysilkstockingslover© Seconds later, he pushed my head away, put his dick back in his pants, and rolled his chair back. He stood up and greeted, "Mr. Hamilton, it's a pleasure to see you." 
+ 
+
+===
+
+Seconds later, he pushed my head away, put his dick back in his pants, and rolled his chair back. He stood up and greeted, "Mr. Hamilton, it's a pleasure to see you." 
 
  I remained frozen under his desk as I realized he was having a meeting with someone who had been my client for the past three years. 
 
@@ -878,7 +896,11 @@
 
  
 
- ****** Dominican Slut: Cunt Muncher ****** bysilkstockingslover© Summary: MILF is blackmailed into licking pussy for the first time. 
+ 
+
+===
+
+Summary: MILF is blackmailed into licking pussy for the first time. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
@@ -1178,7 +1200,11 @@
 
  
 
- ****** Dominican Slut: Cunt Muncher ****** bysilkstockingslover© I almost spoke back, still not used to being spoken to in such a way by a secretary, Alannah having been rather kind as she ordered me to sexually service her. Yet, I just looked at her and waited further instructions. 
+ 
+
+===
+
+I almost spoke back, still not used to being spoken to in such a way by a secretary, Alannah having been rather kind as she ordered me to sexually service her. Yet, I just looked at her and waited further instructions. 
 
  "Stop staring at me, whore, and get munching cunt," she ordered, much more abrasive than Alannah, as she walked past me, moved to the couch, hiked up her skirt, revealing she too was wearing thigh highs (seriously, was there a memo I didn't get?), sat on the couch and snapped her fingers. 
 
@@ -1478,7 +1504,11 @@
 
  
 
- ****** Dominican Slut: Humiliated Pet ****** bysilkstockingslover© Summary: Submissive slut is literally trained to be a good loyal pet. 
+ 
+
+===
+
+Summary: Submissive slut is literally trained to be a good loyal pet. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
@@ -1862,7 +1892,11 @@
 
  
 
- ****** Dominican Slut: Humiliated Pet ****** bysilkstockingslover© I whined, another sound that is tough to describe. 
+ 
+
+===
+
+I whined, another sound that is tough to describe. 
 
  "Now purr like a kitty," she continued to amuse herself at my expense. 
 
@@ -2124,7 +2158,11 @@
 
  
 
- ****** Dominican Slut: Janitor Gangbang ****** bysilkstockingslover© Summary: Former professional is used by people below her social status. 
+ 
+
+===
+
+Summary: Former professional is used by people below her social status. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
@@ -2474,7 +2512,11 @@
 
  
 
- ****** Dominican Slut: Janitor Gangbang ****** bysilkstockingslover© Within fifteen minutes two more loads were spewed on my flag which I was again forced to clean up with my tongue before I was finally allowed to go home. 
+ 
+
+===
+
+Within fifteen minutes two more loads were spewed on my flag which I was again forced to clean up with my tongue before I was finally allowed to go home. 
 
  Exhausted, humiliated and defeated, I headed home... although I stopped at a Victoria's Secret to buy a few pairs of thigh highs, and a truck stop to have a quick shower and make myself look presentable to my husband. 
 
@@ -2492,7 +2534,11 @@
 
  
 
- ****** Dominican Slut: Office Cocksucker ****** bysilkstockingslover© Summary: Submissive slut gets facial after facial from co-workers. 
+ 
+
+===
+
+Summary: Submissive slut gets facial after facial from co-workers. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
@@ -2814,7 +2860,11 @@
 
  
 
- ****** Dominican Slut: Office Cocksucker ****** bysilkstockingslover© Trying to avoid the question, I hungrily opened and took his cock in my mouth, but he pulled it out. 
+ 
+
+===
+
+Trying to avoid the question, I hungrily opened and took his cock in my mouth, but he pulled it out. 
 
  "Answer the question, slut," he ordered, before adding, "or no cock for you." 
 
@@ -2996,7 +3046,11 @@
 
  
 
- ****** Dominican Slut: Office Sluts ****** bysilkstockingslover© Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
+ 
+
+===
+
+Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
  Note 2: This is part seven of a multi-chaptered story: 
 
@@ -3350,7 +3404,11 @@
 
  
 
- ****** Dominican Slut: Office Sluts ****** bysilkstockingslover© "I love you so much, baby," I moaned, loving his acceptance and his permission to just let go of my guilt and be myself... my real self. Not the one I had been parading as. 
+ 
+
+===
+
+"I love you so much, baby," I moaned, loving his acceptance and his permission to just let go of my guilt and be myself... my real self. Not the one I had been parading as. 
 
  "I love you even more now," he added, "you look so good eating white cunt and taking our white Mistress's cock." 
 
@@ -3432,7 +3490,11 @@
 
  
 
- ****** Dominican Slut: Orgy Finale ****** bysilkstockingslover© Summary: Slut and black husband submit to white men and women. 
+ 
+
+===
+
+Summary: Slut and black husband submit to white men and women. 
 
  Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines are real fantasies of the lovely couple. 
 
@@ -3760,7 +3822,11 @@
 
  
 
- ****** Dominican Slut: Orgy Finale ****** bysilkstockingslover© "Yes, Master Bryce," Johnathan agreed, "I know it sounds absurd, no, it is absurd, but the reality is we can both see sex and submission as what it is... sex. Yet, kissing is intimate and to be done between lovers." 
+ 
+
+===
+
+"Yes, Master Bryce," Johnathan agreed, "I know it sounds absurd, no, it is absurd, but the reality is we can both see sex and submission as what it is... sex. Yet, kissing is intimate and to be done between lovers." 
 
  "Fucking hilarious," Juliette roared. 
 
@@ -4096,7 +4162,11 @@
 
  
 
- ****** Dominican Slut: Orgy Finale ****** bysilkstockingslover© "You look so good with a cock in your mouth," Juliette said, as she grabbed his head with both hands and began forcing him to take all Bryce's cock. 
+ 
+
+===
+
+"You look so good with a cock in your mouth," Juliette said, as she grabbed his head with both hands and began forcing him to take all Bryce's cock. 
 
  Johnathan gagged, but she didn't care, as she roughly moved his head back and forth. 
 

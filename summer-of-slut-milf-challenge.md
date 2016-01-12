@@ -1,8 +1,14 @@
+Summer of Slut: MILF Challenge
+==============================
 #1 
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© "Summer of Slut": MILF Challenge 
+ 
+
+===
+
+"Summer of Slut": MILF Challenge 
 
  SUMMARY: 4 MILF's decide to see who is the biggest slut over July long weekend. 
 
@@ -390,7 +396,11 @@
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© "For starters, get undressed," I ordered. 
+ 
+
+===
+
+"For starters, get undressed," I ordered. 
 
  "Excuse me?" she questioned. 
 
@@ -792,7 +802,11 @@
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© He leaned up and tried sucking on my tits as I rode him. 
+ 
+
+===
+
+He leaned up and tried sucking on my tits as I rode him. 
 
  The pleasure of his cock in my cunt and his lips on my nipple accelerated my growing orgasm. 
 
@@ -1228,7 +1242,11 @@
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© "I desperately want it," I countered, wiggling my ass at him. 
+ 
+
+===
+
+"I desperately want it," I countered, wiggling my ass at him. 
 
  "Beg slut," he ordered, his cock teasing my pussy. 
 
@@ -1662,7 +1680,11 @@
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© "Have fuuuuun," I said, as the janitor began fucking me hard out of the blue. 
+ 
+
+===
+
+"Have fuuuuun," I said, as the janitor began fucking me hard out of the blue. 
 
  "You okay?" he asked. 
 
@@ -2118,7 +2140,11 @@
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© "Holy shit," one said, "he wasn't bullshitting us." 
+ 
+
+===
+
+"Holy shit," one said, "he wasn't bullshitting us." 
 
  "Awesome," another said. 
 
@@ -2598,7 +2624,11 @@
 
  
 
- ****** Summer of Slut: MILF Challenge ****** bysilkstockingslover© Once done, he pulled out and I could feel his cum oozing out of my ass. It felt so dirty, so slutty, which somehow made it feel so good. 
+ 
+
+===
+
+Once done, he pulled out and I could feel his cum oozing out of my ass. It felt so dirty, so slutty, which somehow made it feel so good. 
 
  Zelda ordered, "Get over here and thank your Mistress for your gangbang slut." 
 

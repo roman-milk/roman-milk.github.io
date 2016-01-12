@@ -1,8 +1,14 @@
+Younger, Tighter, Better
+========================
 #1 
 
  
 
- ****** Younger, Tighter, Better ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of the actions within this story in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of the actions within this story in real life. This is just a story. Enjoy.) 
 
  ************** 
 
@@ -164,7 +170,11 @@
 
  
 
- ****** Younger, Tighter, Better ****** byTheTalkMan© A lot of the scenes centered on the hot young slut next door, teasing their neighbor, or a friend's brother, or friend's father. These scenes were centered on seduction, the men being reluctant to being seduced but eventually giving in. The last scene centered on a young, blonde slut with huge, natural jugs and a full round ass, coming over to her married neighbor's house, teasing the husband when the wife wasn't around until they got down to business in his marital bed. And this was what started to make Diana nervous. 
+ 
+
+===
+
+A lot of the scenes centered on the hot young slut next door, teasing their neighbor, or a friend's brother, or friend's father. These scenes were centered on seduction, the men being reluctant to being seduced but eventually giving in. The last scene centered on a young, blonde slut with huge, natural jugs and a full round ass, coming over to her married neighbor's house, teasing the husband when the wife wasn't around until they got down to business in his marital bed. And this was what started to make Diana nervous. 
 
  Obviously, Diana was aware that 'cheating' scenarios were common in porn, so it wasn't like they were offending her 'delicate sensibilities'. No, what bothered her was how much it seemed to turn Evan on. 
 
@@ -384,7 +394,11 @@
 
  
 
- ****** Younger, Tighter, Better ****** byTheTalkMan© Watching such slutty, nasty girls taking it so rough, seeing them treat cocks with such loving worship, seeing them take it hard in every hole, hearing them spit such dirty talk... it was like discovering there was a whole new world out there. He couldn't get enough. 
+ 
+
+===
+
+Watching such slutty, nasty girls taking it so rough, seeing them treat cocks with such loving worship, seeing them take it hard in every hole, hearing them spit such dirty talk... it was like discovering there was a whole new world out there. He couldn't get enough. 
 
  As the filth ratcheted up, Evan got more and more into it. This came to a peak when watching the scenes featuring men cheating on their wives, cheating with hotter, sexier, bustier and by all visual standards, better women. There was just something so sizzlingly hot about that. Just ignoring all the things that makes an actual marriage function, the meshing of two hearts, two personalities. Sure, looks played a part, but what brought two people together was whether they were kindred spirits. But to ignore all that, to trade that all in for a woman who is simply cosmetically superior, a woman who is more gorgeous, has much bigger, much better breasts, a rounder juicier ass, longer, firmer legs... being that irresponsible, being that reckless... it was a huge turn-on for the sheltered married man. 
 
@@ -570,7 +584,11 @@
 
  
 
- ****** Younger, Tighter, Better ****** byTheTalkMan© "No... Jade... ugh..." Evan grunted, not pulling away. 
+ 
+
+===
+
+"No... Jade... ugh..." Evan grunted, not pulling away. 
 
  "C'mon, Evan, you've been checking out my tits since the first time you came in here!" Jade said brightly. 
 
@@ -678,7 +696,11 @@
 
  
 
- ****** Younger, Tighter, Better ****** byTheTalkMan© "Yes." he relented. 
+ 
+
+===
+
+"Yes." he relented. 
 
  "Say it like I did. Say you are choosing my tits over your boring, ugly, stupid wife." Jade ordered. 
 

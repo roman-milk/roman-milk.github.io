@@ -1,8 +1,14 @@
+Tough Shit Max.
+===============
 #1 
 
  
 
- ****** Tough Shit Max. ****** byJust_Plain_Bob© I got up to go to the bathroom and I noticed that the bedside clock read 3:15. The light from the full moon was coming in the window and it showed her long blond hair fanned out across the pillow. She had kicked the sheet off and the little dangly thing that was pierced in her skin at the navel reflected the light of the moon across her flat stomach as if from a prism. I gazed at her clean shaven pubes and then at the half inch nipples on her 34D cup breasts and wondered how in the hell we had we ended up in bed together. 
+ 
+
+===
+
+I got up to go to the bathroom and I noticed that the bedside clock read 3:15. The light from the full moon was coming in the window and it showed her long blond hair fanned out across the pillow. She had kicked the sheet off and the little dangly thing that was pierced in her skin at the navel reflected the light of the moon across her flat stomach as if from a prism. I gazed at her clean shaven pubes and then at the half inch nipples on her 34D cup breasts and wondered how in the hell we had we ended up in bed together. 
 
  ++++++++++++++++++++++ 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** Tough Shit Max. ****** byJust_Plain_Bob© Her dad started to get up off the couch saying, "You can't call my daughter names like that." 
+ 
+
+===
+
+Her dad started to get up off the couch saying, "You can't call my daughter names like that." 
 
  "I damned sure can. I told you back when you ran me through that shotgun wedding that she had accused half of the senior class of being the father of the baby she managed to lose last night while she was out cheating on me. She was a whore then and she is a whore now. All you have to do is check the EMT and police reports on her accident and a call to the school can verify that she quit the cheer squad a month ago. A month ago! A month of her telling us that she has been going to the games and cheering every Friday night when she isn't here. I'm not making any wild accusations here. You can check on everything I've said and see for yourself." 
 
@@ -480,7 +490,11 @@
 
  
 
- ****** Tough Shit Max. ****** byJust_Plain_Bob© "Your place." 
+ 
+
+===
+
+"Your place." 
 
  "I don't have enough in the fridge to make dinner." 
 
@@ -704,7 +718,11 @@
 
  
 
- ****** Tough Shit Max. ****** byJust_Plain_Bob© She stared at me in silence for several seconds and then asked, "So what happens now?" 
+ 
+
+===
+
+She stared at me in silence for several seconds and then asked, "So what happens now?" 
 
  "I don't know Max. I do doubt that you will ever hear the words "I love you" come from me again, but as long as you are willing to keep sleeping with me and fucking me we can probably hang on." 
 
@@ -930,7 +948,11 @@
 
  
 
- ****** Tough Shit Max. ****** byJust_Plain_Bob© "Right! That's why you kept calling to check on her." 
+ 
+
+===
+
+"Right! That's why you kept calling to check on her." 
 
  Friday night when I got home from work and as soon as I was in the door I heard Merrily call out: 
 

@@ -1,8 +1,14 @@
+Shemale Surprise
+================
 #1 
 
  
 
- ****** Shemale Surprise ****** bysilkstockingslover© SUMMARY: A married man is seduced and taken by a friend of his wife's. 
+ 
+
+===
+
+SUMMARY: A married man is seduced and taken by a friend of his wife's. 
 
  EDITING THANKS: Thanks to Robert, goamz86 and MAB7991. 
 
@@ -358,7 +364,11 @@
 
  
 
- ****** Shemale Surprise ****** bysilkstockingslover© "You think I have a cute ass?" I asked, teasing right back. 
+ 
+
+===
+
+"You think I have a cute ass?" I asked, teasing right back. 
 
  "Oh, it's very fuckable," she answered. 
 
@@ -806,7 +816,11 @@
 
  
 
- ****** Shemale Surprise ****** bysilkstockingslover© "Good boy, Robert," she purred, "Now become my cocksucker, just like your wife." 
+ 
+
+===
+
+"Good boy, Robert," she purred, "Now become my cocksucker, just like your wife." 
 
  I looked up again surprised, "My wife? You have been with my wife?" 
 
@@ -1232,7 +1246,11 @@
 
  
 
- ****** Shemale Surprise ****** bysilkstockingslover© "And your wife?" She asked, looking down at me. 
+ 
+
+===
+
+"And your wife?" She asked, looking down at me. 
 
  "Her mouth, cunt and ass are yours too," I eagerly offered, assuming based on this new knowledge she would be okay with it. 
 

@@ -1,8 +1,14 @@
+Lexy &amp; The Delivery Boy
+===========================
 #1 
 
  
 
- ****** Lexy &amp; The Delivery Boy ****** byJust_Plain_Bob© \My first wife left me for a drummer in an acid rock band and my second wife left me for an old college girlfriend. That being the way my luck usually seems to go I decided that I would never bother getting married again. So why did I marry a third time knowing that the marriage couldn't possibly last a year, two years at most? I have to blame my father for that. 
+ 
+
+===
+
+\My first wife left me for a drummer in an acid rock band and my second wife left me for an old college girlfriend. That being the way my luck usually seems to go I decided that I would never bother getting married again. So why did I marry a third time knowing that the marriage couldn't possibly last a year, two years at most? I have to blame my father for that. 
 
  From the time I was old enough to understand words my father preached responsibility. To him the mark of a man was being responsible for his actions. Break a window with a baseball? Own up to it and make restitution. Fail a math test? Admit to not studying or paying attention in class. Whatever it was, you were supposed to step to the plate and accept the responsibility of your actions. So when the Alexis said she was pregnant and that I was the father all I could do was marry her. Why didn't I expect the marriage to last? Well Lexy's first husband divorced her when he caught her sucking off one of his business partners. Her second husband kicked her out when he caught her fucking his brother. Her third husband divorced her when he caught her taking my cock up her tight asshole. As promiscuous as she was why did I accept that the baby was mine? Because between the time she spent with her husband and the time she spent with me she had no time for anyone else and her husband had gotten vasectomy years before. Ergo, I'm the daddy. 
 

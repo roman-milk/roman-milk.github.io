@@ -1,8 +1,14 @@
+Bobbie and Bobby Revisited
+==========================
 #1 
 
  
 
- ****** Bobbie and Bobby Revisited ****** byJust_Plain_Bob© With three ex-wives and a current one (all sluts) and with a long and full life to draw on there is always a little bit of me in every story I write. I've seen a lot, done a lot, have watched things happen and have had things happen to me and a lot of it makes it's way into the stories I write. In short, my stories are a combination of fact and fiction, but then I'm sure that most of you had figured that out long ago. 
+ 
+
+===
+
+With three ex-wives and a current one (all sluts) and with a long and full life to draw on there is always a little bit of me in every story I write. I've seen a lot, done a lot, have watched things happen and have had things happen to me and a lot of it makes it's way into the stories I write. In short, my stories are a combination of fact and fiction, but then I'm sure that most of you had figured that out long ago. 
 
  This story is true. 
 

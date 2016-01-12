@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Joanna
+============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Joanna ****** byJust_Plain_Bob© There once was a time in my life when I would have considered a man who liked watching other men fucking his wife a depraved degenerate asshole. How quickly things can change. 
+ 
+
+===
+
+There once was a time in my life when I would have considered a man who liked watching other men fucking his wife a depraved degenerate asshole. How quickly things can change. 
 
  +++++++++++++++++ 
 

@@ -1,8 +1,14 @@
+Cheerleader Submission: A Love Story
+====================================
 #1 
 
  
 
- ****** Cheerleader Submission: A Love Story ****** bysilkstockingslover© Summary: A female coach and a cheerleader fall for each other. 
+ 
+
+===
+
+Summary: A female coach and a cheerleader fall for each other. 
 
  NOTE 1: This story is dedicated to Kayla...you are a dream! 
 
@@ -302,7 +308,11 @@
 
  
 
- ****** Cheerleader Submission: A Love Story ****** bysilkstockingslover© "Yes, ma'am," she answered. 
+ 
+
+===
+
+"Yes, ma'am," she answered. 
 
  "Undress for me, my kitten," I requested. 
 

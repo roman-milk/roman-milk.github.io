@@ -1,8 +1,14 @@
+Marybeth Strikes
+================
 #1 
 
  
 
- ****** Marybeth Strikes ****** byJust_Plain_Bob© My sister Anne (she's the religious one in the family) tells me that I am a whore. I love her dearly, but what does she know? She's twenty-eight and still a virgin. It was my own fault though. I never should have taken Alan anyplace where someone who knows me could have seen us together, but see us together Anne did, kissing and hugging, and the next day she demanded to know what I was doing. When you have been caught there is no use in denying so I told her I was spending some quality time with my lover. 
+ 
+
+===
+
+My sister Anne (she's the religious one in the family) tells me that I am a whore. I love her dearly, but what does she know? She's twenty-eight and still a virgin. It was my own fault though. I never should have taken Alan anyplace where someone who knows me could have seen us together, but see us together Anne did, kissing and hugging, and the next day she demanded to know what I was doing. When you have been caught there is no use in denying so I told her I was spending some quality time with my lover. 
 
  "My God Marybeth! Have you forgotten you are a married woman?" 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** Marybeth Strikes ****** byJust_Plain_Bob© Alan was at the party, but he acted no different towards me than any of my co- workers who were at the party although a couple of times when he caught my eye he winked at me and my knees went weak at the thought of what I had planned. I gave John and Tammy just enough room that Tammy could get John all hot and bothered, but still stayed close enough to keep anything from happening. 
+ 
+
+===
+
+Alan was at the party, but he acted no different towards me than any of my co- workers who were at the party although a couple of times when he caught my eye he winked at me and my knees went weak at the thought of what I had planned. I gave John and Tammy just enough room that Tammy could get John all hot and bothered, but still stayed close enough to keep anything from happening. 
 
  The party started breaking up around eleven and a frustrated Tammy was among the first to leave. As soon as she was gone I nodded my head toward Alan and we left the room separately and met at the laundry room. I quickly pulled off my panties and bent over the washing machine and Alan moved behind me. I was so wet from anticipation (plus being used to him by then) that he slid his full length into me with the first push. It was a fast and furious no frills fuck, but that is all we had time for. He brought me to an orgasm and shortly after that he came in me. He pulled out, I quickly pulled on my panties, gave him a passionate kiss and then we hurried back to the dying party. 
 

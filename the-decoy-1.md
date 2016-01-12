@@ -1,8 +1,14 @@
+The Decoy
+=========
 #1 
 
  
 
- ****** The Decoy ****** byJust_Plain_Bob© Jenny and I had been married just a little over seven years and the bloom had gone off the rose. When we were married sex had been exciting, Jenny had been insatiable, and I couldn't keep my hands off of her. Over the years things had slowed down to where we had sex twice a week and on such a regular schedule that you could have set your watch by it. Why we had reached that plateau was a question that I couldn't answer. Jenny was still as beautiful as ever, I still loved her madly and we both seemed to look forward to out twice weekly romp, so what was wrong? 
+ 
+
+===
+
+Jenny and I had been married just a little over seven years and the bloom had gone off the rose. When we were married sex had been exciting, Jenny had been insatiable, and I couldn't keep my hands off of her. Over the years things had slowed down to where we had sex twice a week and on such a regular schedule that you could have set your watch by it. Why we had reached that plateau was a question that I couldn't answer. Jenny was still as beautiful as ever, I still loved her madly and we both seemed to look forward to out twice weekly romp, so what was wrong? 
 
  For the last year or so I had been casting glances at other women and telling myself that I could fuck this one or that one for days if I got the chance so why didn't I do the same for my own sexy wife? There wasn't a day went by that some honey didn't give me a hard on or that I saw one and wished I could nail her so why couldn't I be like that with Jenny? I looked at those other girls, lusted after them and told myself what I would do with them given the chance, never expecting to mind you, just a lot of wishful thinking. That was pretty much my mind set when Jenny and I attended a birthday party at the home of a friend. 
 
@@ -160,4 +166,8 @@
 
  
 
- ****** The Decoy ****** byJust_Plain_Bob© "George just left to meet Jenny baby. He fucked me a couple of times before he left and my pussy is full of cum. Could you bring your magic mouth over here and help little Myra out? Please baby, please?" Report_Story 
+ 
+
+===
+
+"George just left to meet Jenny baby. He fucked me a couple of times before he left and my pussy is full of cum. Could you bring your magic mouth over here and help little Myra out? Please baby, please?" Report_Story 

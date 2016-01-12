@@ -1,8 +1,14 @@
+Glory Hole Chaperone
+====================
 #1 
 
  
 
- ****** Glory Hole Chaperone ****** byfastandsloppy© (Author's Note: Although this is a sequel to my story 'Gangbang Chaperone', I've tried to write it so it can be enjoyed without having read the previous tale. Of course, I'm fully in favor of you reading Patty and Jane's first smutty adventure. The decision, however, is entirely your own. Enjoy! 
+ 
+
+===
+
+(Author's Note: Although this is a sequel to my story 'Gangbang Chaperone', I've tried to write it so it can be enjoyed without having read the previous tale. Of course, I'm fully in favor of you reading Patty and Jane's first smutty adventure. The decision, however, is entirely your own. Enjoy! 
 
  Update: November 30, 2013: This version corrects some embarrassing continuity errors in the originally posted story. Thanks to everyone who alerted me to the issue.) 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** Glory Hole Chaperone ****** byfastandsloppy© "I bet they left a real mess in there. Come on, I want you to see what I'm talking about. I want you to see what your tax money gets spent on." 
+ 
+
+===
+
+"I bet they left a real mess in there. Come on, I want you to see what I'm talking about. I want you to see what your tax money gets spent on." 
 
  "You're taking me to a jizz soaked public toilet to teach me lesson about taxes?" she asked sarcastically. 
 
@@ -460,7 +470,11 @@
 
  
 
- ****** Glory Hole Chaperone ****** byfastandsloppy© But still, that wasn't enough for my Janie. She leaned forward on the toilet and opened her mouth wide. A cop stepped forward, straddling my head as he stroked his dick to climax. His aim was good and the long streak of pale sperm shot right into Janie's mouth. Subsequent squirts however rained down on my chest, neck and face. 
+ 
+
+===
+
+But still, that wasn't enough for my Janie. She leaned forward on the toilet and opened her mouth wide. A cop stepped forward, straddling my head as he stroked his dick to climax. His aim was good and the long streak of pale sperm shot right into Janie's mouth. Subsequent squirts however rained down on my chest, neck and face. 
 
  And so it went. Cops craned their necks and hung on the stall walls for a view as one cop after another stepped up to relieve their lust in my daughter's mouth. Most of it ended up dripping on me but I didn't mind. On the contrary, the warm spatter of man-seed and the reek of pheromones drove me into a long string of nearly continuous orgasms that left my body trembling and my throat raw from screaming. 
 

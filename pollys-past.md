@@ -1,8 +1,14 @@
+Polly's Past
+============
 #1 
 
  
 
- ****** Polly's Past ****** byJust_Plain_Bob© I went to Vegas to party hardy and to try and forget the latest catastrophe in my life. My two-year marriage to 'the woman of my dreams' had just cratered and I was in sore need of some spiritual uplifting. It was my third trip to Vegas in the last ten years and it was also my third trip for the very same reason. I had no idea what was wrong with me, but either I had a black cloud hovering over me whenever I fell for a woman and married her, or something about being married to me turned woman into cock crazy sluts. 
+ 
+
+===
+
+I went to Vegas to party hardy and to try and forget the latest catastrophe in my life. My two-year marriage to 'the woman of my dreams' had just cratered and I was in sore need of some spiritual uplifting. It was my third trip to Vegas in the last ten years and it was also my third trip for the very same reason. I had no idea what was wrong with me, but either I had a black cloud hovering over me whenever I fell for a woman and married her, or something about being married to me turned woman into cock crazy sluts. 
 
  I'd only been married to my first wife nine months when I came home from work early one day and found her in bed with not one, but two of my so called friends. I found out later that she had been fucking damned near all my friends starting the day we came back from our honeymoon. That little afternoon surprise was followed by a few broken heads, several severed long-tern relationships, two relatives whom I no longer send Christmas cards, a divorce and my first trip to Vegas. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Polly's Past ****** byJust_Plain_Bob© She laughed again, "Me or the news?" 
+ 
+
+===
+
+She laughed again, "Me or the news?" 
 
  "I can guess how they took you, no, how did they take the news?" 
 

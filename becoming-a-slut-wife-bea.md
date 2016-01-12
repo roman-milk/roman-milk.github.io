@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Bea
+=========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Bea ****** byJust_Plain_Bob© It was a joke - I swear - just a joke. I didn't mean it and I sure as shit didn't figure that she would take it as anything other than a joke. 
+ 
+
+===
+
+It was a joke - I swear - just a joke. I didn't mean it and I sure as shit didn't figure that she would take it as anything other than a joke. 
 
  Bea and I had been together a little over ten years, eight of them as man and wife. Like most men I was just not sensitive to the mood swings that can take place in women so it was quite a while before I noticed the change that had come over Bea. As is normally the case it was a small trivial thing that brought things to a head. I was dressing for work and when I went to my sock drawer I saw that I didn't have any brown socks. 
 

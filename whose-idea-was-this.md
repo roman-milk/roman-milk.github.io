@@ -1,8 +1,14 @@
+Whose Idea Was This
+===================
 #1 
 
  
 
- ****** Whose Idea Was This ****** byJust_Plain_Bob© Fan-ta-sy 1. The realm of vivid imagination, reverie, depiction, illusion, and the like; the natural conjurings of mental invention; the visionary world; make-believe. 2. A mental image, especially a disordered and weird image; an illusion; phantasm. 3.A capricious or whimsical notion; conceit. 4.a. Literary or dramatic fiction characterized by highly fanciful or supernatural elements. b. An example of such fiction. 5. An imagined event or condition fulfilling a wish. 
+ 
+
+===
+
+Fan-ta-sy 1. The realm of vivid imagination, reverie, depiction, illusion, and the like; the natural conjurings of mental invention; the visionary world; make-believe. 2. A mental image, especially a disordered and weird image; an illusion; phantasm. 3.A capricious or whimsical notion; conceit. 4.a. Literary or dramatic fiction characterized by highly fanciful or supernatural elements. b. An example of such fiction. 5. An imagined event or condition fulfilling a wish. 
 
  It is funny how two people can look at the same word and get two totally different meanings from it and how that one word can change your life. Lorrie and I have been married for going on twenty years now, and by and large it has been a very good marriage. We married young, had children, raised them and saw them on their way before turning forty. We were at our sexual prime, no kids at home to get in the way, but our sex life was boring, boring, boring! Lorrie, who reads every woman's magazine that gets published, said that one of her magazines (McCall's or Woman's Day - she couldn't remember) had a series of articles on how to put spice back into a marriage and that two of the suggestions were role playing, and acting out your fantasies. We decided to give those ideas a try and, believe it or not, they worked. 
 

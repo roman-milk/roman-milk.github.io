@@ -1,8 +1,14 @@
+Dancing Shayna
+==============
 #1 
 
  
 
- ****** Dancing Shayna ****** byJust_Plain_Bob© I sat at the table nursing my Pabst, rubbing my ankle and watching Shayna dance. I swear that woman was conceived on a dance floor and was born to spend her life on one. I didn't look around to verify it, but I would have been willing to bet that most of the eyes in the place were on her and her partner. Not that he had anything to do with it. Shay made every man she danced with look like Fred Astaire or Gene Kelly even if they had two left feet. 
+ 
+
+===
+
+I sat at the table nursing my Pabst, rubbing my ankle and watching Shayna dance. I swear that woman was conceived on a dance floor and was born to spend her life on one. I didn't look around to verify it, but I would have been willing to bet that most of the eyes in the place were on her and her partner. Not that he had anything to do with it. Shay made every man she danced with look like Fred Astaire or Gene Kelly even if they had two left feet. 
 
  Normally I would have been the one out there dancing with her, but I had sprained my ankle at work and was in no shape to do much in the way of walking let alone dance, but I had promised her a night out. Even in the best of shape I couldn't keep up with her on the dance floor so I was used to her dancing with others. 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** Dancing Shayna ****** byJust_Plain_Bob© I sat another hour and watched and then the door to 2A opened and the asshole came out dressed in a set of leathers. He walked over to the side of the maintenance building and pulled a tarp off of a Harley soft tail. He fired it up and motored off into the night. I'd seen all that I needed to see at that time so I went on home to find Shayna waiting for me. 
+ 
+
+===
+
+I sat another hour and watched and then the door to 2A opened and the asshole came out dressed in a set of leathers. He walked over to the side of the maintenance building and pulled a tarp off of a Harley soft tail. He fired it up and motored off into the night. I'd seen all that I needed to see at that time so I went on home to find Shayna waiting for me. 
 
  "Where have you been? I've been waiting here for hours." 
 
@@ -460,4 +470,8 @@
 
  
 
- ****** Dancing Shayna ****** byJust_Plain_Bob© I did exact a bit of punishment on her and I guess most won't even consider it close to harsh enough, but it does hit her where it hurts. We still go dancing, but I no longer say yes when a guy comes over and asks her to dance. She either dances with me or she doesn't dance at all and since I'm only up to dancing about a third of the tunes played on a normal night out Shayna does a lot more sitting than she does dancing and it kills her. She has complained about it a time or two, but as soon as I remind her of what happened the last time I said yes she shuts right up. Report_Story 
+ 
+
+===
+
+I did exact a bit of punishment on her and I guess most won't even consider it close to harsh enough, but it does hit her where it hurts. We still go dancing, but I no longer say yes when a guy comes over and asks her to dance. She either dances with me or she doesn't dance at all and since I'm only up to dancing about a third of the tunes played on a normal night out Shayna does a lot more sitting than she does dancing and it kills her. She has complained about it a time or two, but as soon as I remind her of what happened the last time I said yes she shuts right up. Report_Story 

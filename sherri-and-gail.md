@@ -1,8 +1,14 @@
+Sherri and Gail
+===============
 #1 
 
  
 
- ****** Sherri and Gail ****** byJust_Plain_Bob© I nursed my beer and watched the group sitting on the other side of the room. They were bikers, but they weren't. By that I mean they were all wearing riding leathers and had brain buckets on the floor next to their chairs, but there were no colors on display, no pony tails and beards and what skin I saw was free of tattoos. Three guys and four girls who liked to ride. That meant that at least one of the girls had her own scooter and as I watched the group I tried to figure out which one it was. 
+ 
+
+===
+
+I nursed my beer and watched the group sitting on the other side of the room. They were bikers, but they weren't. By that I mean they were all wearing riding leathers and had brain buckets on the floor next to their chairs, but there were no colors on display, no pony tails and beards and what skin I saw was free of tattoos. Three guys and four girls who liked to ride. That meant that at least one of the girls had her own scooter and as I watched the group I tried to figure out which one it was. 
 
  The group was the reason I was there. I'd stopped in two weeks ago. It was the first time I had ever been in that particular bar and ten minutes after I sat down I heard the roar outside and when it stopped the group had filed in. They called the waitress and the barmaid by name and that told me that they were regulars in the place. As the helmets came off one of them drew my immediate attention and I thought "No way" as the group settled in at their table and I was able to take a closer look at the person who didn't turn out to be who I thought. Close -- damned close -- but no cigar. Since that first time I'd come in every day and once or twice a week the group would come in about six in the evening. Sometimes three or four and sometimes all seven, but the one who had caught my attention was always there. 
 
@@ -306,7 +312,11 @@
 
  
 
- ****** Sherri and Gail ****** byJust_Plain_Bob© "I flat told him that I wasn't going to live a sexless life because he was stupid. He laughed at me and told me that most cops were dumb and all they were bright enough to do was write traffic tickets. He wasn't laughing when an undercover cop slapped the cuffs on him when Brian sold him some cocaine. The "might or might not wait for him" changed to "fuck off and die" the day he was arrested. Just about the time he was being cuffed I was sitting in a doctor's office being told I had a social disease. Apparently Brian was getting a little more than money from some of his customers. He found out how I felt about that when he made his one phone call to me to tell me to arrange bail. I told him he could rot in jail for all I cared. I had to go without sex for eight months while I waited to make sure that the asshole hadn't given me HIV. So that's the deal on my husband. My family doesn't know that part by the way." 
+ 
+
+===
+
+"I flat told him that I wasn't going to live a sexless life because he was stupid. He laughed at me and told me that most cops were dumb and all they were bright enough to do was write traffic tickets. He wasn't laughing when an undercover cop slapped the cuffs on him when Brian sold him some cocaine. The "might or might not wait for him" changed to "fuck off and die" the day he was arrested. Just about the time he was being cuffed I was sitting in a doctor's office being told I had a social disease. Apparently Brian was getting a little more than money from some of his customers. He found out how I felt about that when he made his one phone call to me to tell me to arrange bail. I told him he could rot in jail for all I cared. I had to go without sex for eight months while I waited to make sure that the asshole hadn't given me HIV. So that's the deal on my husband. My family doesn't know that part by the way." 
 
  "I really call out her name?" 
 
@@ -528,7 +538,11 @@
 
  
 
- ****** Sherri and Gail ****** byJust_Plain_Bob© When I was disconnecting the alligator clips I noticed that the tape counter was high which seemed odd since I almost never used the home phone. I couldn't remember the last time I'd made a call or taken a call on the house phone. Even when Gail was constantly calling me and trying to get me to talk to her the calls were all to my cell or my phone at work and there had been few calls on the telephone answering machine. So why was the tape full? 
+ 
+
+===
+
+When I was disconnecting the alligator clips I noticed that the tape counter was high which seemed odd since I almost never used the home phone. I couldn't remember the last time I'd made a call or taken a call on the house phone. Even when Gail was constantly calling me and trying to get me to talk to her the calls were all to my cell or my phone at work and there had been few calls on the telephone answering machine. So why was the tape full? 
 
  I hit 'rewind' until the tape was fully rewound and then I hit 'play', The first two calls were from Gail to her aunt about what to get her nephew for his birthday. The third call was to Marge to say that yes, we would be to dinner with the family on Friday. The fourth call changed my life. Gail got home from work about an hour before I did and that must have been when she made the call. 
 

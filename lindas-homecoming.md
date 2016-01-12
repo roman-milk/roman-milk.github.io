@@ -1,8 +1,14 @@
+Linda's Homecoming
+==================
 #1 
 
  
 
- ****** Linda's Homecoming ****** byJust_Plain_Bob© The blame is mine, at least for the affairs beginning, although I had nothing to do with its continuance and I'm still not sure how I feel about that. I need to start by saying that I have never wanted to see my wife with another man nor have I ever wanted her to have affairs. But life sometimes gives you a whole lot of what you do not want. 
+ 
+
+===
+
+The blame is mine, at least for the affairs beginning, although I had nothing to do with its continuance and I'm still not sure how I feel about that. I need to start by saying that I have never wanted to see my wife with another man nor have I ever wanted her to have affairs. But life sometimes gives you a whole lot of what you do not want. 
 
  It started with the death of my wife's Aunt Mildred. Linda had to fly back to Ohio for the funeral, but because of several extremely important projects I was working on, I was unable to get the time off to go with her. Three days after she left my boss informed me that I needed to fly to LA to mollify one of our customers. Because of the extremely short notice the trip presented me with a few problems. I would not have time to arrange to get the dog and cat into a kennel and someone needed to watch the two aquariums. I called Sam, my best friend, and asked him if he could house sit for a day or so. He said he would, I gave him keys to the house and caught my flight to LA. Sam settled in at the house and began babysitting the dog, cat, and fish. 
 

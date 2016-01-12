@@ -1,8 +1,14 @@
+A Weird One Ch. 01
+==================
 #1 
 
  
 
- ****** A Weird One Ch. 01 ****** byJust_Plain_Bob© I met Tasha when my best buddy Tom called me and asked me for a favor. 
+ 
+
+===
+
+I met Tasha when my best buddy Tom called me and asked me for a favor. 
 
  "My cousin Natasha just moved to town and Gail (his girlfriend) and I want to show her around, but Gail thinks Nat will feel like a fifth wheel so she wants me to set her up with a date." 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** A Weird One Ch. 01 ****** byJust_Plain_Bob© "The object here baby is to fuck me so hard that it shakes the bed and causes it to move from where it now sets. Think you can do it?" 
+ 
+
+===
+
+"The object here baby is to fuck me so hard that it shakes the bed and causes it to move from where it now sets. Think you can do it?" 
 
  What was happening was all brand new to me. Outside of what my own hand had done for me my only sexual experience was the hand job that Tasha had given me the previous night. I had no idea how to answer the question Mrs. Bagley had just asked. Fortunately she must not have really been expecting an answer from me because she went on: 
 
@@ -544,7 +554,11 @@
 
  
 
- ****** A Weird One Ch. 01 ****** byJust_Plain_Bob© It turned into a long and very enjoyable day. Make love, lay by the pool. Make love, lay by the pool. Make love, and then lay by the pool until I couldn't get it up any more. When I left at four I barely had enough energy left to operate the clutch in my car. 
+ 
+
+===
+
+It turned into a long and very enjoyable day. Make love, lay by the pool. Make love, lay by the pool. Make love, and then lay by the pool until I couldn't get it up any more. When I left at four I barely had enough energy left to operate the clutch in my car. 
 
  +++++++++++++++++++++++++++ 
 
@@ -816,7 +830,11 @@
 
  
 
- ****** A Weird One Ch. 01 ****** byJust_Plain_Bob© I had to think about the fickle finger of fate. If I had known about Harry two weeks sooner Pauline could very well have been my girl when Tasha came to town, I wouldn't have had my blind date and Tasha and I would have never happened. 
+ 
+
+===
+
+I had to think about the fickle finger of fate. If I had known about Harry two weeks sooner Pauline could very well have been my girl when Tasha came to town, I wouldn't have had my blind date and Tasha and I would have never happened. 
 
  When I got Pauline home I walked her to her door and thanked her for a fun evening. She stepped forward, threw her arms around me and kissed me. I felt her tongue probe and then she broke the kiss. 
 
@@ -1098,7 +1116,11 @@
 
  
 
- ****** A Weird One Ch. 01 ****** byJust_Plain_Bob© +++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++ 
 
  Another week that started out like the previous two, but on Wednesday things took a turn. I had arranged to meet Tom and Gail at Harry's after my meeting with Coach Markham and when I walked into the malt shop I saw them sitting at a table with Natasha. I almost turned and left, but curiosity made me go over and sit with them. 
 
@@ -1184,7 +1206,11 @@
 
  
 
- ****** A Weird One Ch. 02 ****** byJust_Plain_Bob© "Trouble in paradise?" Pauline asked when we got outside. 
+ 
+
+===
+
+"Trouble in paradise?" Pauline asked when we got outside. 
 
  "You could say that." 
 
@@ -1468,7 +1494,11 @@
 
  
 
- ****** A Weird One Ch. 02 ****** byJust_Plain_Bob© Pauline sucked cock every bit as well as Mary and Gail and responded to being eaten pretty much the same as Mary and Gail, but she seemed more energetic in giving pussy than either Mary or Gail. With Pauline it was as if her life depended on seeing to it that I was satisfied with her. Probably a piss poor explanation, but what can you expect from a teenager not long from giving up his cherry. I guess the best way to put it is that Mary and Gail were takers and Pauline was a giver. 
+ 
+
+===
+
+Pauline sucked cock every bit as well as Mary and Gail and responded to being eaten pretty much the same as Mary and Gail, but she seemed more energetic in giving pussy than either Mary or Gail. With Pauline it was as if her life depended on seeing to it that I was satisfied with her. Probably a piss poor explanation, but what can you expect from a teenager not long from giving up his cherry. I guess the best way to put it is that Mary and Gail were takers and Pauline was a giver. 
 
  The only downside to the evening was that November nights can be pretty cold and making love outside on a blanket under the stars took a little something away from the experience. Not saying that the sex wasn't good; just saying it could have been better. 
 
@@ -1670,7 +1700,11 @@
 
  
 
- ****** A Weird One Ch. 02 ****** byJust_Plain_Bob© If I told her the truth and told her that Mary had shown them to me she would want to know what kind of relationship I had with Mary that Mary would have shared that kind of information with me. I did not think it would be wise of me to let her know just what kind of relationship I DID have with Mary. 
+ 
+
+===
+
+If I told her the truth and told her that Mary had shown them to me she would want to know what kind of relationship I had with Mary that Mary would have shared that kind of information with me. I did not think it would be wise of me to let her know just what kind of relationship I DID have with Mary. 
 
  I was in a 'fucked if you do, fucked if you don't' situation and all because of a couple of seconds of panic. I finally decided to keep my mouth shut as to where the information came from. Of course mom could just deny that it happened and I could just shrug and let the issue die, but if she did deny it and pushed to know why I had thrown the accusation at her I did have a pretty good memory. I remembered the dates from the PI report and I remembered the room numbers that mom had been photographed going into. If I had to spit those out she would know without a doubt that I knew what I was talking about. I'd just have to wait and see what happened. 
 
@@ -1766,7 +1800,11 @@
 
  
 
- ****** A Weird One Ch. 03 ****** byJust_Plain_Bob© Prom was a blast. My mom, God bless her, had made me take dance lessons when I was in the seventh and eighth grades and I spent the evening dancing with the three best looking and sexiest women there. If you had told me that a month earlier that Tasha and Pauline would someday sit at the same table and smile and talk to each other I would have laughed at you and suggested that you be committed. But it did happen. 
+ 
+
+===
+
+Prom was a blast. My mom, God bless her, had made me take dance lessons when I was in the seventh and eighth grades and I spent the evening dancing with the three best looking and sexiest women there. If you had told me that a month earlier that Tasha and Pauline would someday sit at the same table and smile and talk to each other I would have laughed at you and suggested that you be committed. But it did happen. 
 
  When Tasha and I arrived Gail and Tom were sitting with Pauline and her guy who had flown in from Tulsa so he could be her prom date. Even though I fully intended to sit there with them I was surprised when Tasha pulled me toward the table. 
 
@@ -1934,7 +1972,11 @@
 
  
 
- ****** A Weird One Ch. 03 ****** byJust_Plain_Bob© Tasha's father was already there sitting in a booth when I got to the Hilton's restaurant. He stood up when I got to the booth and offered me his hand. I took it and we shook hands and then I sat down. The waitress showed up and I just ordered coffee. 
+ 
+
+===
+
+Tasha's father was already there sitting in a booth when I got to the Hilton's restaurant. He stood up when I got to the booth and offered me his hand. I took it and we shook hands and then I sat down. The waitress showed up and I just ordered coffee. 
 
  "You are curious I would imagine" he said and I nodded a yes. 
 
@@ -2210,7 +2252,11 @@
 
  
 
- ****** A Weird One Ch. 03 ****** byJust_Plain_Bob© "No. I told her that I was going to stay true to Tom. She laughed and told me that I could no more give up sex until Tom came home that she could go a week without jumping your bones. I told her that might be, but if I did slip it couldn't be with you because you were too close to Tom." 
+ 
+
+===
+
+"No. I told her that I was going to stay true to Tom. She laughed and told me that I could no more give up sex until Tom came home that she could go a week without jumping your bones. I told her that might be, but if I did slip it couldn't be with you because you were too close to Tom." 
 
  "I can't believe that she could be so conniving." 
 
@@ -2360,7 +2406,11 @@
 
  
 
- ****** A Weird One Ch. 04 ****** byJust_Plain_Bob© The end came the following Thursday. I received a call at work from Nancy Wilde. 
+ 
+
+===
+
+The end came the following Thursday. I received a call at work from Nancy Wilde. 
 
  "I hate to be the one to tell you this Bobby, but you did ask some of us to watch Natasha. Your suspicions were right. She is running around on you." 
 
@@ -2664,7 +2714,11 @@
 
  
 
- ****** A Weird One Ch. 04 ****** byJust_Plain_Bob© "Once I knew that it was your idea. I figured out what you were up to and I called friends of mine who were at Western and asked them to keep an eye on you for me. I know all about you dating Eddie almost every night and I know about your motel trips with Eddie. There isn't a doubt in my mind that you and Eddie have been planning on doing it ever since you took up with him way back when. 
+ 
+
+===
+
+"Once I knew that it was your idea. I figured out what you were up to and I called friends of mine who were at Western and asked them to keep an eye on you for me. I know all about you dating Eddie almost every night and I know about your motel trips with Eddie. There isn't a doubt in my mind that you and Eddie have been planning on doing it ever since you took up with him way back when. 
 
  "Face it Natasha; you are busted. And even if there had been even the slightest change we could have got by your cheating the fact that it was Eddie you cheated with killed it. And showing up here with him today shows just how stupid you really are. You and Eddie have a nice life. Don't bother me any more Natasha. No calls and stay away from me." 
 
@@ -2904,7 +2958,11 @@
 
  
 
- ****** A Weird One Ch. 04 ****** byJust_Plain_Bob© It was the way my grandfather had run the place and it was expected of me that it would be the way I ran it when it passed to me. 
+ 
+
+===
+
+It was the way my grandfather had run the place and it was expected of me that it would be the way I ran it when it passed to me. 
 
  The company Christmas party was the coming Friday and I didn't have a date for it. I was expected to be there and sitting at the head table and I didn't want to go. I didn't want to sit there dateless and have everyone in the company looking at me like I was a clod girls weren't interested in. I was actually considering calling an escort service when I got an early Christmas present. 
 
@@ -3184,7 +3242,11 @@
 
  
 
- ****** A Weird One Ch. 04 ****** byJust_Plain_Bob© "You have to cum in mommy's mouth baby. Mommy can't let you cum in her pussy cause daddy might notice." 
+ 
+
+===
+
+"You have to cum in mommy's mouth baby. Mommy can't let you cum in her pussy cause daddy might notice." 
 
  She went back to working on me so I kept working on her. I got her off once more before I came and mom swallowed it all. She kept me in her mouth until I was back up again and then she swung over me and settled down on me cowgirl. 
 
@@ -3276,7 +3338,11 @@
 
  
 
- ****** A Weird One Ch. 05 ****** byJust_Plain_Bob© As I drove to the Village Inn I asked, "Would baby's cocksucker care to tell him just how things fell that enabled him to become a happy motherfucker?" 
+ 
+
+===
+
+As I drove to the Village Inn I asked, "Would baby's cocksucker care to tell him just how things fell that enabled him to become a happy motherfucker?" 
 
  "When I caught you jacking off with my panties while sniffing the crotch of another pair I was horrified that you had become some kind of a freak. When you tossed my affair with Albert at me I thought "Oh my God! He'll tell his dad" as I ran from the room. It wasn't until I calmed down that I realized you would say anything to your father if I didn't. 
 
@@ -3556,7 +3622,11 @@
 
  
 
- ****** A Weird One Ch. 05 ****** byJust_Plain_Bob© "On the table asshole." 
+ 
+
+===
+
+"On the table asshole." 
 
  I do believe I surprised her when I snatched the file back and said, "Was I belligerent and pissed off when I went down on you? I went after it willingly and did my absolute best to make you enjoy it and to get you off. If you can't at least try to give as good as you got forget it. I don't need a half-hearted attempt. I don't need or even want something that is being given grudgingly." 
 
@@ -3782,7 +3852,11 @@
 
  
 
- ****** A Weird One Ch. 05 ****** byJust_Plain_Bob© "Can I ask you something Bobby?" 
+ 
+
+===
+
+"Can I ask you something Bobby?" 
 
  "Sure. Go ahead." 
 
@@ -3838,7 +3912,11 @@
 
  
 
- ****** A Weird One Ch. 06 ****** byJust_Plain_Bob© Work was work. I was working by myself entering account information into the computer. Twenty minutes before quitting time Shelly walked by my desk, nodded toward the stairs to the basement and kept walking. I waited a couple of minutes and then I got up and followed her downstairs. She was already on the table with her skirt up and her panties off. 
+ 
+
+===
+
+Work was work. I was working by myself entering account information into the computer. Twenty minutes before quitting time Shelly walked by my desk, nodded toward the stairs to the basement and kept walking. I waited a couple of minutes and then I got up and followed her downstairs. She was already on the table with her skirt up and her panties off. 
 
  "Hurry up honey. Get it out." 
 
@@ -4126,7 +4204,11 @@
 
  
 
- ****** A Weird One Ch. 06 ****** byJust_Plain_Bob© "Understand this right now. I'm not putting up with any of your shit. You might be my mother, but you were not my mother Wednesday night. You were a date that turned into a two-bit slut and you were treated the same as I would have treated any other girl I was out with who pulled the same shit you did. Now I'm going to go up and take a shower, get dressed and get ready to go out for breakfast. If you are going to go with me you need to get ready." 
+ 
+
+===
+
+"Understand this right now. I'm not putting up with any of your shit. You might be my mother, but you were not my mother Wednesday night. You were a date that turned into a two-bit slut and you were treated the same as I would have treated any other girl I was out with who pulled the same shit you did. Now I'm going to go up and take a shower, get dressed and get ready to go out for breakfast. If you are going to go with me you need to get ready." 
 
  I got up and left her there toweling off. I was just starting to shampoo my hair when the shower curtain moved and mom got into the shower with me. Nary a word was said as she took the wash rag and soap and started washing my back. By the time I was rinsing the shampoo out of my hair she had moved around to the front paying particular attention to the erection that she had caused. 
 
@@ -4454,11 +4536,19 @@
 
  
 
- ****** A Weird One Ch. 06 ****** byJust_Plain_Bob© To be continued...  
+ 
+
+===
+
+To be continued...  
 
  
 
- ****** A Weird One Ch. 07 ****** byJust_Plain_Bob© I called Gail on my cell and she asked right out, "Can you afford the Starlight?" 
+ 
+
+===
+
+I called Gail on my cell and she asked right out, "Can you afford the Starlight?" 
 
  "Be there in ten." 
 
@@ -4754,7 +4844,11 @@
 
  
 
- ****** A Weird One Ch. 07 ****** byJust_Plain_Bob© "You mean it? You'll give me another chance?" 
+ 
+
+===
+
+"You mean it? You'll give me another chance?" 
 
  "I just may need to be protected again and you are the only one I know who will do it." 
 
@@ -5008,7 +5102,11 @@
 
  
 
- ****** A Weird One Ch. 07 ****** byJust_Plain_Bob© She was silent for several blocks and then said, "I wonder what else is there that I don't know about." 
+ 
+
+===
+
+She was silent for several blocks and then said, "I wonder what else is there that I don't know about." 
 
  "You ever done anal?" 
 
@@ -5242,7 +5340,11 @@
 
  
 
- ****** A Weird One Ch. 08 ****** byJust_Plain_Bob© I thought I was having a wet dream, but it was my mom waking me up with a blow job. I looked over at the clock and saw that it was only six. I tensed and started to push her away, but she took her mouth off me long enough to say: 
+ 
+
+===
+
+I thought I was having a wet dream, but it was my mom waking me up with a blow job. I looked over at the clock and saw that it was only six. I tensed and started to push her away, but she took her mouth off me long enough to say: 
 
  "Don't panic baby; he had to go in early. We are alone." 
 
@@ -5622,7 +5724,11 @@
 
  
 
- ****** A Weird One Ch. 08 ****** byJust_Plain_Bob© "Then I guess you had better eat me and then fuck me again because those are the things I like." 
+ 
+
+===
+
+"Then I guess you had better eat me and then fuck me again because those are the things I like." 
 
  So I did just that. 
 
@@ -5974,7 +6080,11 @@
 
  
 
- ****** A Weird One Ch. 08 ****** byJust_Plain_Bob© Out of curiosity I asked dad how his trip had gone. 
+ 
+
+===
+
+Out of curiosity I asked dad how his trip had gone. 
 
  "Pretty good. I wrapped up another contract." 
 
@@ -6262,7 +6372,11 @@
 
  
 
- ****** A Weird One Ch. 08 ****** byJust_Plain_Bob© The rest was lost as I drove away. Oh yeah. The second good thing? Because he never used her ass he never found my cum when he checked her out and because she hadn't sucked my cock before we ass fucked he didn't taste any trace of cock when he kissed her. 
+ 
+
+===
+
+The rest was lost as I drove away. Oh yeah. The second good thing? Because he never used her ass he never found my cum when he checked her out and because she hadn't sucked my cock before we ass fucked he didn't taste any trace of cock when he kissed her. 
 
  I drove home thankful that he hadn't found a way to get into the building and find us. 
 
@@ -6336,7 +6450,11 @@
 
  
 
- ****** A Weird One Ch. 09 ****** byJust_Plain_Bob© School was school -- never any change -- the instructors drone on and on, assign homework and reading assignments and wait for the next bunch of students when the hour is up. The students sit through boring lectures from people who don't seem to have any connection to the real world outside the school doors and then move on to the next classroom. 
+ 
+
+===
+
+School was school -- never any change -- the instructors drone on and on, assign homework and reading assignments and wait for the next bunch of students when the hour is up. The students sit through boring lectures from people who don't seem to have any connection to the real world outside the school doors and then move on to the next classroom. 
 
  No one joined me for lunch even though I saw both Angie and Nancy there, 
 
@@ -6564,7 +6682,11 @@
 
  
 
- ****** A Weird One Ch. 09 ****** byJust_Plain_Bob© +++++++++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++++++++ 
 
  School was school and Gail joined me at lunch. I noticed Nancy coming through the line and I saw the nasty look she threw my way and it made me smile. Gail wanted to know what I thought was so funny and so I told her. 
 
@@ -6850,7 +6972,11 @@
 
  
 
- ****** A Weird One Ch. 09 ****** byJust_Plain_Bob© "I don't see Eddie anymore. I haven't had anything to do with him since you broke up with me. I knew if I was ever going to get you back he had to go. When I told him that he laughed. He said the only reason that he had anything to do with me at all is because he wanted to stick it to you. I don't know what he had against you, but I never meant a thing to him. It was all to get at you. You have always said he was an asshole and he was. 
+ 
+
+===
+
+"I don't see Eddie anymore. I haven't had anything to do with him since you broke up with me. I knew if I was ever going to get you back he had to go. When I told him that he laughed. He said the only reason that he had anything to do with me at all is because he wanted to stick it to you. I don't know what he had against you, but I never meant a thing to him. It was all to get at you. You have always said he was an asshole and he was. 
 
  "I haven't been happy since you broke with me Bobby. I miss you terribly. I need you back in my life." 
 
@@ -7062,7 +7188,11 @@
 
  
 
- ****** A Weird One Ch. 10 ****** byJust_Plain_Bob© "I am welcome aren't I" mom said as she took off her clothes. 
+ 
+
+===
+
+"I am welcome aren't I" mom said as she took off her clothes. 
 
  Mary laughed and said, "Always room for one more slut." 
 
@@ -7326,7 +7456,11 @@
 
  
 
- ****** A Weird One Ch. 10 ****** byJust_Plain_Bob© "So now that we know that mystery woman isn't going to be joining the family when are you going to get us together?" 
+ 
+
+===
+
+"So now that we know that mystery woman isn't going to be joining the family when are you going to get us together?" 
 
  "I'm not. There is no way that you could handle knowing who she is and I do not want to mess up what I have going with the two of you." 
 
@@ -7578,7 +7712,11 @@
 
  
 
- ****** A Weird One Ch. 10 ****** byJust_Plain_Bob© "We have been so busy on this second shift thing that he hasn't had the time. I'm serious stud. I'm really hurting." 
+ 
+
+===
+
+"We have been so busy on this second shift thing that he hasn't had the time. I'm serious stud. I'm really hurting." 
 
  "I'm like the man from the government sweetie; I'm here to help you." 
 
@@ -7886,7 +8024,11 @@
 
  
 
- ****** A Weird One Ch. 10 ****** byJust_Plain_Bob© "May we join you" Gail asked knowing full well that I wouldn't say no to here. 
+ 
+
+===
+
+"May we join you" Gail asked knowing full well that I wouldn't say no to here. 
 
  "Of course you may." 
 
@@ -7926,7 +8068,11 @@
 
  
 
- ****** A Weird One Ch. 11 ****** byJust_Plain_Bob© When I arrived to pick up Tasha I got my usual smile from Pam and a half scowl from her father and then Tasha and I were on our way to dinner. After eating we went to the teen club and danced and socialized until around ten and then Tasha wanted to go play. 
+ 
+
+===
+
+When I arrived to pick up Tasha I got my usual smile from Pam and a half scowl from her father and then Tasha and I were on our way to dinner. After eating we went to the teen club and danced and socialized until around ten and then Tasha wanted to go play. 
 
  Given her horny nature I half expected that she would drag me into the motel room after going a week without, but she didn't. It occurred to me that she wasn't as needy as I expected because she had played some at school. For a brief second or so I was pissed, but then I remembered our agreement. And the of course there was Mom, Mary, Marge, Gail, Shelly and Andrea. I had to work hard at not being a hypocrite. 
 
@@ -8212,7 +8358,11 @@
 
  
 
- ****** A Weird One Ch. 11 ****** byJust_Plain_Bob© "I already told you that I want men to see me with you and wish that they were me. My attitude is "Eat your hearts out dudes. She is mine." And you are you know. At least for tonight." 
+ 
+
+===
+
+"I already told you that I want men to see me with you and wish that they were me. My attitude is "Eat your hearts out dudes. She is mine." And you are you know. At least for tonight." 
 
  "There you go again. My very own silver tongued white boy." 
 
@@ -8578,7 +8728,11 @@
 
  
 
- ****** A Weird One Ch. 11 ****** byJust_Plain_Bob© "Me? Dangerous?" 
+ 
+
+===
+
+"Me? Dangerous?" 
 
  "You are. I'm no spring chicken. I'm a very sexual woman and I've led a very active sexual life. I've been with over a hundred different men and a lot of them were very good lovers. A couple of them were exceptional, but not one of them had the effect on me that you had. Not one of them was ever in my ass. Marcus has never been in my ass. But you were. And even though I fought like hell to keep all of the others out you made me take it. I told you to stop; I told you that I didn't do that and I told you that I didn't want it, but I let you have it. I have no idea why, but I gave it up to you. 
 
@@ -8624,7 +8778,11 @@
 
  
 
- ****** A Weird One Ch. 12 ****** byJust_Plain_Bob© "Are you ready for me lover?" 
+ 
+
+===
+
+"Are you ready for me lover?" 
 
  "As always sexy lady." 
 
@@ -8982,7 +9140,11 @@
 
  
 
- ****** A Weird One Ch. 12 ****** byJust_Plain_Bob© "He is going out of town Tuesday and won't be back until early Friday and I'm missing you. Call me?" 
+ 
+
+===
+
+"He is going out of town Tuesday and won't be back until early Friday and I'm missing you. Call me?" 
 
  I said I would just as Tasha started down the stairs so Pam left the room and Tasha and I headed out. Dinner at Angelina's and then we went to a party at Charlie Smither's place. There were quite a few old schoolmates and friends there and we wandered around and socialized. At one point Tasha was talking to two girls and I was at the keg filling my glass when Carol Weiss came up to get a refill. 
 
@@ -9260,7 +9422,11 @@
 
  
 
- ****** A Weird One Ch. 12 ****** byJust_Plain_Bob© "We can worry about that when the time comes." 
+ 
+
+===
+
+"We can worry about that when the time comes." 
 
  ++++++++++++++++++ 
 
@@ -9410,7 +9576,11 @@
 
  
 
- ****** A Weird One Ch. 13 ****** byJust_Plain_Bob© At work I was given something different. I was sent to see Hal Lebowitz who was the production line manager. 
+ 
+
+===
+
+At work I was given something different. I was sent to see Hal Lebowitz who was the production line manager. 
 
  "We ere going to give you a taste of the regulatory part of the operation. We have to comply with the regulations put out by various state and federal regulatory agencies like OSHA, the EPA and local agencies like the fire department. Al Westin (assistant supervisor on day shift) and Jared Beals (assistant supervisor on the second shift) are the assigned safety inspectors and it is their responsibility to see that we stay in compliance with the appropriate regulations. 
 
@@ -9612,7 +9782,11 @@
 
  
 
- ****** A Weird One Ch. 13 ****** byJust_Plain_Bob© "If I am ever in the same room with him and don't call him on it I will be seen as a ball-less wimp and I WILL NOT let that happen. I might get my head handed to me, but I will be in his face the next time I am around him. You want me to do it here? Fine! I'll do it here on Wednesday, but don't blame me when it ruins everything for everybody." 
+ 
+
+===
+
+"If I am ever in the same room with him and don't call him on it I will be seen as a ball-less wimp and I WILL NOT let that happen. I might get my head handed to me, but I will be in his face the next time I am around him. You want me to do it here? Fine! I'll do it here on Wednesday, but don't blame me when it ruins everything for everybody." 
 
  "Put a cork in it lover. Right now I want a lover not a fighter in my bed." 
 
@@ -9890,7 +10064,11 @@
 
  
 
- ****** A Weird One Ch. 13 ****** byJust_Plain_Bob© "How about a week on and a week off?" 
+ 
+
+===
+
+"How about a week on and a week off?" 
 
  "I could do that." 
 
@@ -9984,7 +10162,11 @@
 
  
 
- ****** A Weird One Ch. 14 ****** byJust_Plain_Bob© I rang the doorbell right at six and Marcus opened the door. He saw me and his face expressed surprise. Apparently Vonda hadn't told him about her date. 
+ 
+
+===
+
+I rang the doorbell right at six and Marcus opened the door. He saw me and his face expressed surprise. Apparently Vonda hadn't told him about her date. 
 
  "Bobby? What are you doing here?" 
 
@@ -10334,7 +10516,11 @@
 
  
 
- ****** A Weird One Ch. 14 ****** byJust_Plain_Bob© "Yes." 
+ 
+
+===
+
+"Yes." 
 
  "You are a hell of a nice guy Bobby and you are killer in the sack. I like you. I really do. That said, there doesn't seem to be any spark between us. We could keep dating and trying, but I believe that it would be a waste of time. I rather call it now and keep being friends than keep trying and maybe screwing things up between us. Can we do that Bobby? Can we stay good friends?" 
 
@@ -10648,7 +10834,11 @@
 
  
 
- ****** A Weird One Ch. 14 ****** byJust_Plain_Bob© I stopped at Harry's and as we munched on our meal she made another attempt to get me to tell her why I had fucked her mother. I hesitated and then I told her what I told Marcus I would say. 
+ 
+
+===
+
+I stopped at Harry's and as we munched on our meal she made another attempt to get me to tell her why I had fucked her mother. I hesitated and then I told her what I told Marcus I would say. 
 
  "I didn't fuck your mother Princess. I am ashamed to admit that I tried like hell to fuck her, but she just wouldn't give it up. I think that if I would have had a couple of more hours I could have made it happen, but she had to get home." 
 
@@ -10740,7 +10930,11 @@
 
  
 
- ****** A Weird One Ch. 15 ****** byJust_Plain_Bob© I was just walking out to the school parking lot when my phone chirped. It was Tasha and she called to tell me that she was running late. 
+ 
+
+===
+
+I was just walking out to the school parking lot when my phone chirped. It was Tasha and she called to tell me that she was running late. 
 
  "It will probably be close to eight-thirty or nine before I get there." 
 
@@ -11038,7 +11232,11 @@
 
  
 
- ****** A Weird One Ch. 15 ****** byJust_Plain_Bob© "Pussy is pussy guy and if you got some one who wants to give it to you best you take against the day you can't get a broad to even look at you." 
+ 
+
+===
+
+"Pussy is pussy guy and if you got some one who wants to give it to you best you take against the day you can't get a broad to even look at you." 
 
  From then on I was going to fuck Gail whenever she wanted it at the gangbang. She wouldn't be getting her Thursdays and Sundays back, but I'd give her all she wanted at Mary's. 
 
@@ -11368,7 +11566,11 @@
 
  
 
- ****** A Weird One Ch. 15 ****** byJust_Plain_Bob© "I know I'm going to see you tonight, but your mom missed our lunch date and I'm horny. I need just a touch to get me to tonight." 
+ 
+
+===
+
+"I know I'm going to see you tonight, but your mom missed our lunch date and I'm horny. I need just a touch to get me to tonight." 
 
  I ate her to orgasm and she left. The door to the playroom might as well have been a revolving door because she was no sooner through it that Tina walked into the room. As she walked toward me she was taking off her sweater. 
 
@@ -11452,7 +11654,11 @@
 
  
 
- ****** A Weird One Ch. 16 ****** byJust_Plain_Bob© As I watched the flashing red lights in my mirror I wondered what I had to look forward to. It wasn't, at least to me, natural that Andrea's husband would tell me to get out of there. He was the wronged husband and he was supposed to want to do me bodily harm and God knows that was his intent before Andrea put him down with the table lamp. 
+ 
+
+===
+
+As I watched the flashing red lights in my mirror I wondered what I had to look forward to. It wasn't, at least to me, natural that Andrea's husband would tell me to get out of there. He was the wronged husband and he was supposed to want to do me bodily harm and God knows that was his intent before Andrea put him down with the table lamp. 
 
  Why did he tell me to get out instead of giving me up to the authorities when they showed up? Could it be that it was because he felt he could get at me easier if I wasn't in jail? It just didn't make sense to me, but then neither did Andrea's actions. Tie him up and take gay type pictures to use as blackmail? She told me that she loved him to pieces and the only reason she was playing with me was because she couldn't get oral and anal from him. She loved him and she was willing to let me stick my dick up his ass? That just did not compute. 
 
@@ -11672,7 +11878,11 @@
 
  
 
- ****** A Weird One Ch. 16 ****** byJust_Plain_Bob© I stood up and said to Gail, "Since you dumped Tom and I've just shed Natasha would you like to see if we might have a future together?" 
+ 
+
+===
+
+I stood up and said to Gail, "Since you dumped Tom and I've just shed Natasha would you like to see if we might have a future together?" 
 
  "You mean it? W can do something besides just go out on hand holding dates?" 
 
@@ -11966,7 +12176,11 @@
 
  
 
- ****** A Weird One Ch. 16 ****** byJust_Plain_Bob© "Slut!" said Becky. 
+ 
+
+===
+
+"Slut!" said Becky. 
 
  "Whore" said Carol. 
 
@@ -12150,7 +12364,11 @@
 
  
 
- ****** A Weird One Ch. 17 ****** byJust_Plain_Bob© I woke up at eleven in the morning on Saturday, showered and dressed and then headed for the Village Inn for breakfast. Over French toast and bacon I tried to think of things I could do with two dates on a Saturday night. I decided that the teen club would be the way to go. 
+ 
+
+===
+
+I woke up at eleven in the morning on Saturday, showered and dressed and then headed for the Village Inn for breakfast. Over French toast and bacon I tried to think of things I could do with two dates on a Saturday night. I decided that the teen club would be the way to go. 
 
  I called Carol and made arrangements to pick her up at four and then I had a thought and asked: 
 
@@ -12454,7 +12672,11 @@
 
  
 
- ****** A Weird One Ch. 17 ****** byJust_Plain_Bob© "I'm not going to stop trying Bobby. I'm going to haunt you until you give me another chance." 
+ 
+
+===
+
+"I'm not going to stop trying Bobby. I'm going to haunt you until you give me another chance." 
 
  Speaking of haunting I was still getting three or four calls a day from Natasha, but I didn't take any of them. 
 
@@ -12750,7 +12972,11 @@
 
  
 
- ****** A Weird One Ch. 17 ****** byJust_Plain_Bob© "It will be okay. As far as the parental unit is concerned I spent the weekend with Sandy Winkler. If daddy asks we ran into each other at the arcade around noon and I asked you for a ride home, but you are right about one thing" and then she said "Pull over." 
+ 
+
+===
+
+"It will be okay. As far as the parental unit is concerned I spent the weekend with Sandy Winkler. If daddy asks we ran into each other at the arcade around noon and I asked you for a ride home, but you are right about one thing" and then she said "Pull over." 
 
  I did and she slid across the seat to me and gave me a passionate kiss. 
 
@@ -12830,7 +13056,11 @@
 
  
 
- ****** A Weird One Ch. 18 ****** byJust_Plain_Bob© Expecting a kick I rolled to my right and my hand landed on a softball sized rock. I grabbed it and rolled to my right again and as I did I saw the guy that hit me moving to follow me. I got up on my knees and threw the rock at his head. It hit him right in the middle of his forehead and he dropped like a heart shot elk. 
+ 
+
+===
+
+Expecting a kick I rolled to my right and my hand landed on a softball sized rock. I grabbed it and rolled to my right again and as I did I saw the guy that hit me moving to follow me. I got up on my knees and threw the rock at his head. It hit him right in the middle of his forehead and he dropped like a heart shot elk. 
 
  I got up and moved to him and I saw it was the Wesley guy who had been fucking Natasha. I drew my leg back and kicked him square in the nuts as I said: 
 
@@ -13172,7 +13402,11 @@
 
  
 
- ****** A Weird One Ch. 18 ****** byJust_Plain_Bob© As usual mom left at ten and also as usual Marcus followed her out. When he came back I gave him a questioning look and got a negative headshake. I wondered if somehow I could set up a one on one with mom for him. I know it was silly, but I felt that I owed him for the unforgettable experience that I'd had with his wife. And his daughter. 
+ 
+
+===
+
+As usual mom left at ten and also as usual Marcus followed her out. When he came back I gave him a questioning look and got a negative headshake. I wondered if somehow I could set up a one on one with mom for him. I know it was silly, but I felt that I owed him for the unforgettable experience that I'd had with his wife. And his daughter. 
 
  +++++++++++++++++++++ 
 
@@ -13470,7 +13704,11 @@
 
  
 
- ****** A Weird One Ch. 18 ****** byJust_Plain_Bob© "I couldn't get the name of the client because he didn't know it. His agency assigned him and that is all he could tell me." 
+ 
+
+===
+
+"I couldn't get the name of the client because he didn't know it. His agency assigned him and that is all he could tell me." 
 
  "There is only one person I can think off who would have me followed and he doesn't know it yet, but his life just turned to shit." 
 

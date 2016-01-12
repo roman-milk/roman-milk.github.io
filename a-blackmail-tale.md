@@ -1,8 +1,14 @@
+A Blackmail Tale Ch. 01
+=======================
 #1 
 
  
 
- ****** A Blackmail Tale Ch. 01 ****** byTx_Tall_Tales© * * * 
+ 
+
+===
+
+* * * 
 
  "Please don't make me do this," Krista pleaded, her big blue eyes filling with tears. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 02 ****** byTx_Tall_Tales© Krista looked at me in horror. "I can't believe you did this!" 
+ 
+
+===
+
+Krista looked at me in horror. "I can't believe you did this!" 
 
  "I told you I wanted to fuck you. Now I will." I shrugged. I thought I'd feel a little guilty, but all I felt was lust. 
 
@@ -488,7 +498,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 02 ****** byTx_Tall_Tales© I wanted to come, and I was close, but the end seemed just out of reach. I used my free hand to slap her butt cheek hard, and she cried out at the contact. I slapped her again, leaving a big red hand print. 
+ 
+
+===
+
+I wanted to come, and I was close, but the end seemed just out of reach. I used my free hand to slap her butt cheek hard, and she cried out at the contact. I slapped her again, leaving a big red hand print. 
 
  "I could fuck you forever," I told her, spanking her again. 
 
@@ -512,7 +526,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 03 ****** byTx_Tall_Tales© Part III of the Blackmail tales. If you haven't already read them, you may want to start with parts I and II - A Bit of Blackmail, and A Bit More Blackmail. 
+ 
+
+===
+
+Part III of the Blackmail tales. If you haven't already read them, you may want to start with parts I and II - A Bit of Blackmail, and A Bit More Blackmail. 
 
  * * * 
 
@@ -742,7 +760,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 03 ****** byTx_Tall_Tales© "We're going to have to do that a little more often," she told me as I played with her well-used hole. 
+ 
+
+===
+
+"We're going to have to do that a little more often," she told me as I played with her well-used hole. 
 
  More than once in 30 or so years? I figure that shouldn't be too hard. Anyway, I was planning to get as much mileage as I could out of all her openings. 
 
@@ -762,7 +784,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 04 ****** byTx_Tall_Tales© * * * 
+ 
+
+===
+
+* * * 
 
  Part IV of the Blackmail tales. If you haven't already read them, you may want to start with parts I, II, and III - A Bit of Blackmail, A Bit More Blackmail, and A Blackmail Buddy. Just click on my name to find all my stories, and start from there. 
 
@@ -996,7 +1022,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 04 ****** byTx_Tall_Tales© She seemed to contemplate it. Then she laid down on her back, her legs spread. "I guess I am partially responsible for that hard piece of meat." 
+ 
+
+===
+
+She seemed to contemplate it. Then she laid down on her back, her legs spread. "I guess I am partially responsible for that hard piece of meat." 
 
  I smiled and pulled out of Krista. I then re-positioned the girls. I moved Donna to the edge of the bed, with her ass hanging off the edge, and her legs spread wide, feet on the floor. I put Krista on top, bent low, her ass pushed back, her legs alongside Donna's waist. It looked so fucking incredible. 
 
@@ -1044,7 +1074,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 05 ****** byTx_Tall_Tales© * * * 
+ 
+
+===
+
+* * * 
 
  Part V of the Blackmail tales. If you haven't already read them, you may want to start with parts I, II, III and IV - A Bit of Blackmail, A Bit More Blackmail, A Blackmail Buddy, and A Blackmail Tail 4: Donna. Just click on my name to find all my stories, and start from there. 
 
@@ -1230,7 +1264,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 05 ****** byTx_Tall_Tales© "Fuck, fuck, FUCK!" I cried out clutching Donna's leg tightly to my chest, her calf slippery from the sweat running down my chest. With a commanding series of powerful thrusts, I exploded in her, coming for a seeming eternity, wad after wad of my searing juices bathing her insides. 
+ 
+
+===
+
+"Fuck, fuck, FUCK!" I cried out clutching Donna's leg tightly to my chest, her calf slippery from the sweat running down my chest. With a commanding series of powerful thrusts, I exploded in her, coming for a seeming eternity, wad after wad of my searing juices bathing her insides. 
 
  I don't know if it was my coming, or some action of Donna's but Krista followed right behind me, coming loudly, her hands over her head, clutching her hair. 
 
@@ -1290,7 +1328,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 06 ****** byTx_Tall_Tales© Part VI of the Blackmail tales. If you haven't already read them, you may want to start with parts I through 5, A Bit of Blackmail, A Bit More Blackmail, A Blackmail Buddy, and the Blackmail Tales. Just click on my name to find all my stories, and start from there. 
+ 
+
+===
+
+Part VI of the Blackmail tales. If you haven't already read them, you may want to start with parts I through 5, A Bit of Blackmail, A Bit More Blackmail, A Blackmail Buddy, and the Blackmail Tales. Just click on my name to find all my stories, and start from there. 
 
  * * * 
 
@@ -1504,7 +1546,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 06 ****** byTx_Tall_Tales© I on the other hand had more pressing needs. I lifted upwards on Abby hips, raising her up in the water, and then put the head of my very stiff cock, at the entrance to her pussy, and in spite of the water, slowly worked my way into her. Within a minute she was fully skewered at both ends, my cock buried inside her tight twat, and her mouth engulfing the entirety of Rich's meat. I reached over and turned on the spa light, and I could enjoy the view of my staff sliding inside of her, while she tried to finish Rich. 
+ 
+
+===
+
+I on the other hand had more pressing needs. I lifted upwards on Abby hips, raising her up in the water, and then put the head of my very stiff cock, at the entrance to her pussy, and in spite of the water, slowly worked my way into her. Within a minute she was fully skewered at both ends, my cock buried inside her tight twat, and her mouth engulfing the entirety of Rich's meat. I reached over and turned on the spa light, and I could enjoy the view of my staff sliding inside of her, while she tried to finish Rich. 
 
  Krista slid into the water, beside Abby, and reached around and under her, filling her hands with Abby's sensitive tits. "How about these tits, Rich? Pretty incredible, huh? I bet you liked sucking on them. The real thing, too. Big and juicy. Did her nipples get hard? Real hard? Did you want to fuck these tits? I bet she'd do that too. I don't think there's anything the little slut wouldn't do." 
 
@@ -1598,7 +1644,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 07 ****** byTx_Tall_Tales© * * * * 
+ 
+
+===
+
+* * * * 
 
  Wherein Alex, a man of less than ideal morals, maneuvers to convince his wife that she should bring another woman into their marriage bed. One of his 'girls' is also further indoctrinated into what is expected of her behavior, in a public park. 
 
@@ -1844,7 +1894,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 07 ****** byTx_Tall_Tales© "That was incredible," she gushed, pulling her shirt down before taking off her helmet. 
+ 
+
+===
+
+"That was incredible," she gushed, pulling her shirt down before taking off her helmet. 
 
  She took public exposure very well, even if nobody was around. "You did well, but I'll drive from here." I told her. 
 
@@ -2078,7 +2132,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 08 ****** byTx_Tall_Tales© * * * * 
+ 
+
+===
+
+* * * * 
 
  Alex's wife brings a little role-playing into the bedroom, trying on the part of her best friend. An afternoon discussion at Donna's breaks down into a well- earned punishment session, long overdue. 
 
@@ -2394,7 +2452,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 08 ****** byTx_Tall_Tales© "Ten," She said firmly. 
+ 
+
+===
+
+"Ten," She said firmly. 
 
  I wiggled my finger around, stretching her, then gave her another double stroke, cock and finger. 
 
@@ -2532,7 +2594,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 09 ****** byTx_Tall_Tales© ============ 
+ 
+
+===
+
+============ 
 
  Abby takes the bull by the horns, and comes up with a method of paying back Alex, for her short bout of infidelity. Two-for-one, and a new girl is introduced into the mix. This chapter is pretty much just one big play session. Forgive me. 
 
@@ -2738,7 +2804,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 09 ****** byTx_Tall_Tales© "Oh, God, please Krista," she moaned in frustration. 
+ 
+
+===
+
+"Oh, God, please Krista," she moaned in frustration. 
 
  "Say it or I'll let Misty have him," Krista warned. 
 
@@ -2886,7 +2956,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 10 ****** byTx_Tall_Tales© ================= 
+ 
+
+===
+
+================= 
 
  The Hot-tub was fun, but it's time for Abby to help Alex break in Krista with some serious play time. That's all there is to this chapter. If you're looking for something other than hot, steamy sex between a married couple and a beautiful best friend they've invited into their bed, then you may want to skip ahead. :-) 
 
@@ -3130,7 +3204,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 10 ****** byTx_Tall_Tales© "You really think she does that behind Paul's back?" Abby asked, sucking my cock for a few wonderful seconds. 
+ 
+
+===
+
+"You really think she does that behind Paul's back?" Abby asked, sucking my cock for a few wonderful seconds. 
 
  "What do you think?" Krista asked, taking the passed rod, and matching the actions. 
 
@@ -3222,7 +3300,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 11 ****** byTx_Tall_Tales© Chapter 11 - Just Business 
+ 
+
+===
+
+Chapter 11 - Just Business 
 
  ============ 
 
@@ -3442,7 +3524,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 11 ****** byTx_Tall_Tales© This was a big test for Donna. She had always resisted any overt girl-on-girl activities. I saw that flash of willfulness burning in her eyes again. As my eyes locked with hers, she wavered. Too bad. There was something about her fighting back against me that got me off. 
+ 
+
+===
+
+This was a big test for Donna. She had always resisted any overt girl-on-girl activities. I saw that flash of willfulness burning in her eyes again. As my eyes locked with hers, she wavered. Too bad. There was something about her fighting back against me that got me off. 
 
  "You're not thinking about disobeying me are you?" I asked, running my hand across her butt cheeks, as a not so subtle reminder. 
 
@@ -3634,7 +3720,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 12 ****** byTx_Tall_Tales© Chapter 12 - The Good Neighbor 
+ 
+
+===
+
+Chapter 12 - The Good Neighbor 
 
  ============ 
 
@@ -3926,7 +4016,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 12 ****** byTx_Tall_Tales© "NO, please, come in my mouth." She gasped, before coming hard on my cock again. 
+ 
+
+===
+
+"NO, please, come in my mouth." She gasped, before coming hard on my cock again. 
 
  I took myself right to the edge, then pulled out and spun her around. Even so, it took another aggressive minute or so for her to finally wring out my cum. I came hard, looking at her cute face filled with my cock. 
 
@@ -4056,7 +4150,11 @@
 
  
 
- ****** A Blackmail Tale Ch. 13 ****** byTx_Tall_Tales© A Blackmail Tale 13 - Misty's Back 
+ 
+
+===
+
+A Blackmail Tale 13 - Misty's Back 
 
  ============ 
 

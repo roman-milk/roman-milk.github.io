@@ -1,8 +1,14 @@
+Tessa Ch. 01
+============
 #1 
 
  
 
- ****** Tessa Ch. 01 ****** byJust_Plain_Bob© Tessa and I met in a college bookstore and while I can't say that it was love at first sight on her part I did fall for her enough to immediately ask her for a date. The outcome of that date was several more and we progressed to the point of going steady and from there we moved to engaged. 
+ 
+
+===
+
+Tessa and I met in a college bookstore and while I can't say that it was love at first sight on her part I did fall for her enough to immediately ask her for a date. The outcome of that date was several more and we progressed to the point of going steady and from there we moved to engaged. 
 
  The wedding was planned for six months after graduation, but it never came off. Three months before graduation Tessa broke our engagement, called me a "pig", tossed her engagement ring at me and stormed off. My high crime? I went to a bachelor party for a friend and it turned raunchy. They had arranged for a stripper and after she did her little number she was offered money to give the groom to be a blow job and she did it. In fact, she did it so well that everyone there wanted one too, including me, but I abstained, not because I didn't have the hundred bucks, but because I was staying true to Tessa. Tessa heard about the party, wouldn't believe that I didn't take part, called me a disgusting pig and bailed out on me. 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** Tessa Ch. 01 ****** byJust_Plain_Bob© "Four." 
+ 
+
+===
+
+"Four." 
 
  "Four what?" 
 
@@ -298,7 +308,11 @@
 
  
 
- ****** Tessa Ch. 02 ****** byJust_Plain_Bob© She looked like a whore getting ready to go stand on her corner. The only thing that kept you from automatically thinking 'cheap slut' was her relatively innocent looking face. I took one look at Tessa in a short skirt and an almost see thru low cut blouse and I was instantly iron bar hard. I gave a low whistle and said: 
+ 
+
+===
+
+She looked like a whore getting ready to go stand on her corner. The only thing that kept you from automatically thinking 'cheap slut' was her relatively innocent looking face. I took one look at Tessa in a short skirt and an almost see thru low cut blouse and I was instantly iron bar hard. I gave a low whistle and said: 
 
  "You go out looking like that and you don't get fucked within a block of this place?" 
 
@@ -470,7 +484,11 @@
 
  
 
- ****** Tessa Ch. 03 ****** byJust_Plain_Bob© It was a Friday night, Tessa was doing something Marta had set up for her and I was at loose ends. Nothing good was on TV, I'd just finished the last book I had bought, and I didn't feel like staying home and staring at the walls. I decided to go out and have a few drinks and I was headed for the corner bar when I decided to go to the Top Hat instead. The place was packed, but the dark corner I favored was vacant and that's where I sat. The waitress came and took my drink order and I showed her my card. It had a number in the right hand corner and she wrote it down on her order pad and then left. 
+ 
+
+===
+
+It was a Friday night, Tessa was doing something Marta had set up for her and I was at loose ends. Nothing good was on TV, I'd just finished the last book I had bought, and I didn't feel like staying home and staring at the walls. I decided to go out and have a few drinks and I was headed for the corner bar when I decided to go to the Top Hat instead. The place was packed, but the dark corner I favored was vacant and that's where I sat. The waitress came and took my drink order and I showed her my card. It had a number in the right hand corner and she wrote it down on her order pad and then left. 
 
  I was watching a beautiful brunette make love to the pole when Marta sat down across from me. 
 

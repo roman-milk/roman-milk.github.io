@@ -1,8 +1,14 @@
+Bob's Bad Choices
+=================
 #1 
 
  
 
- ****** Bob's Bad Choices ****** byJust_Plain_Bob© How to fuck up your life in one easy lesson: 
+ 
+
+===
+
+How to fuck up your life in one easy lesson: 
 
  - Fall in love. - Get married. - Find out that your wife is a round-heeled slut. - Listen to (and believe) her when she promises that she is sorry, that she really loves you and that it will never happen again. - Forgive her. - Find out that she lied. - Divorce her. 
 

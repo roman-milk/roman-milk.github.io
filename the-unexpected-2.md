@@ -1,8 +1,14 @@
+The Unexpected
+==============
 #1 
 
  
 
- ****** The Unexpected ****** byJust_Plain_Bob© It is the one memory that is burned so deep into my brain that I don't believe Alzheimer's could erase it. I wasn't supposed to be there. In fact, I wasn't supposed to be back for three days, which is probably why they were there. They were both naked and her large breasts (I found out later they were a 38D cup) were bouncing as she rode his cock. 
+ 
+
+===
+
+It is the one memory that is burned so deep into my brain that I don't believe Alzheimer's could erase it. I wasn't supposed to be there. In fact, I wasn't supposed to be back for three days, which is probably why they were there. They were both naked and her large breasts (I found out later they were a 38D cup) were bouncing as she rode his cock. 
 
  He was lying on his back on the couch and she had her hands on his shoulders, feet planted on the couch on either side of his hips and she was moving herself up and down on his cock. I stood in the doorway for almost a minute watching her puffy pussy lips fold in on her way down and open out as she went up before he saw me. The expression on his face got her attention and she glanced over and saw me. I saw her about to say something to me and then I saw her expression change and I knew what had just gone through her mind. 
 

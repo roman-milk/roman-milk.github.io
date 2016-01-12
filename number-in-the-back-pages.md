@@ -1,8 +1,14 @@
+Number In The Back Pages
+========================
 #1 
 
  
 
- ****** Number In The Back Pages ****** bygeronimo_appleby© Just a quick story. Thanks to Private_Label for the proof and edits. Enjoy. 
+ 
+
+===
+
+Just a quick story. Thanks to Private_Label for the proof and edits. Enjoy. 
 
  I'd been considering making the call for days. I'd dithered unnecessarily, paused on the brink of calling innumerable times as my thumb hovered over the keypad of my mobile phone, but never actually finding the guts to press out the individual digits of the number. Now, however, steeled with resolve I pressed ahead and held the handset to my ear. 
 
@@ -130,7 +136,11 @@
 
  
 
- ****** Number In The Back Pages ****** bygeronimo_appleby© My life had been bland in comparison so far, positively vanilla, but now I had discovered a whole new world of exciting possibilities and I thanked my lucky stars that I had the financial wherewithal to be able to explore this corrupt new hobby of mine. 
+ 
+
+===
+
+My life had been bland in comparison so far, positively vanilla, but now I had discovered a whole new world of exciting possibilities and I thanked my lucky stars that I had the financial wherewithal to be able to explore this corrupt new hobby of mine. 
 
  'Oh Phillip,' she groaned. 'It feels so fucking good in there. I love it; I love this job. You men coming here and paying me to fuck.' Beth used a finger on her clit and her body jerked with the pleasure of it. 'Oh!' she cried out. 'Do you know how much I love sex, Phillip?' Beth sighed. 
 

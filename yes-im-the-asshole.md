@@ -1,8 +1,14 @@
+Yes, I'm the Asshole
+====================
 #1 
 
  
 
- ****** Yes, I'm the Asshole ****** byTx_Tall_Tales© Yes, I'm the Asshole 
+ 
+
+===
+
+Yes, I'm the Asshole 
 
  by Tx Tall Tales © 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** Yes, I'm the Asshole ****** byTx_Tall_Tales© We had lunch, and she sat next to me, always touching me, feeding me from her plate. It wasn't that different from the old days. She'd always been affectionate. Maybe not to this degree, but not surprising from her. 
+ 
+
+===
+
+We had lunch, and she sat next to me, always touching me, feeding me from her plate. It wasn't that different from the old days. She'd always been affectionate. Maybe not to this degree, but not surprising from her. 
 
  She excused herself to go to the bathroom, and I considered running before it got any weirder. Sadly, I wanted more of that pussy. Leaving me half done in the limo had me worked up. She still looked awesome. The rubbing she was giving me, between the legs, didn't help. 
 

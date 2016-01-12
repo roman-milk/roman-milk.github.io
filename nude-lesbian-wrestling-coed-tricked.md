@@ -1,8 +1,14 @@
+NUDE Lesbian Wrestling: Coed Tricked
+====================================
 #1 
 
  
 
- ****** NUDE Lesbian Wrestling: Coed Tricked ****** bysilkstockingslover© Summary: Shy nerd is blackmailed into the world of nude wrestling. 
+ 
+
+===
+
+Summary: Shy nerd is blackmailed into the world of nude wrestling. 
 
  Note 1: This is a NUDE 2013 CONTEST entry...although an unorthodox one at that. 
 
@@ -370,7 +376,11 @@
 
  
 
- ****** NUDE Lesbian Wrestling: Coed Tricked ****** bysilkstockingslover© At her feet, I suddenly realized what I was doing. Part of me wanted to stand up and walk out like I knew I should do. Conversely, another part of me wanted to be where Jenny was, absurd but true. I wasn't a lesbian? Yet, the thought of pleasing my professor somehow was all I could think about. In many ways it was like oral sex with my boyfriends. Did I like the taste of cum? Not really. Did I swallow it anyway? Yes, because it made them happy. The professor's accusation of my submissiveness brought back my sexual past and my hunger to please, which I was feeling at that moment. 
+ 
+
+===
+
+At her feet, I suddenly realized what I was doing. Part of me wanted to stand up and walk out like I knew I should do. Conversely, another part of me wanted to be where Jenny was, absurd but true. I wasn't a lesbian? Yet, the thought of pleasing my professor somehow was all I could think about. In many ways it was like oral sex with my boyfriends. Did I like the taste of cum? Not really. Did I swallow it anyway? Yes, because it made them happy. The professor's accusation of my submissiveness brought back my sexual past and my hunger to please, which I was feeling at that moment. 
 
  "Earth to Emma," I distantly heard and looked up to my professor. "Already thinking about replacing Jenny are you?" 
 
@@ -606,7 +616,11 @@
 
  
 
- ****** NUDE Lesbian Wrestling: Coed Tricked ****** bysilkstockingslover© I went to tag as well but the referee said, "Only one tag at a time." 
+ 
+
+===
+
+I went to tag as well but the referee said, "Only one tag at a time." 
 
  Jamie smirked at me as she joined Shay. Shay held Jenny in a sitting position, binding Jenny's arms behind her back, as Jamie fought to pry Jenny's legs open. Jenny valiantly struggled to resist the double-teaming, but eventually her legs were opened, and Jamie began frantically rubbing Jenny's vagina. 
 
@@ -958,7 +972,11 @@
 
  
 
- ****** NUDE Lesbian Wrestling: Coed Tricked ****** bysilkstockingslover© Shay was clearly pissed and ordered, "Jamie back up. Let this slut lick your asshole." 
+ 
+
+===
+
+Shay was clearly pissed and ordered, "Jamie back up. Let this slut lick your asshole." 
 
  "Hmmmm," Jamie purred, backing up until her ass was in my face. 
 

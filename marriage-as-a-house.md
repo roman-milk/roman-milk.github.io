@@ -1,8 +1,14 @@
+Marriage as a House
+===================
 #1 
 
  
 
- ****** Marriage as a House ****** byTx_Tall_Tales© ============================= 
+ 
+
+===
+
+============================= 
 
  The foundation is shaken. Can it be rebuilt? 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Marriage as a House ****** byTx_Tall_Tales© "What are you going to do?" she asked again. 
+ 
+
+===
+
+"What are you going to do?" she asked again. 
 
  "First, here, with you, rebuild the walls. Right now, I'm slamming the gate shut. Afterward, I will take care of the invaders, that's all you need to know." 
 
@@ -472,7 +482,11 @@
 
  
 
- ****** Marriage as a House ****** byTx_Tall_Tales© "It would be part time. Only while the kids are in school, I hope. I don't want anything to interfere with what we're doing." 
+ 
+
+===
+
+"It would be part time. Only while the kids are in school, I hope. I don't want anything to interfere with what we're doing." 
 
  "Good. If you need my help with anything, job search, referrals, resume, whatever, just let me know." 
 
@@ -784,7 +798,11 @@
 
  
 
- ****** Marriage as a House ****** byTx_Tall_Tales© As for Donna and I, our marriage 'house' is stronger than ever. She still is determined to make it up to me. I still have trust issues, but I try not to bring it up to her. I check her emails and GPS logs, less frequently I admit, but thoroughly. I don't jump to any conclusions, and all aberrations have been false concerns, so far. She has a job, working at Children's Hospital, and she seems to like it and is doing very well. The money doesn't hurt, and the time spent hasn't interfered with our lives so far. 
+ 
+
+===
+
+As for Donna and I, our marriage 'house' is stronger than ever. She still is determined to make it up to me. I still have trust issues, but I try not to bring it up to her. I check her emails and GPS logs, less frequently I admit, but thoroughly. I don't jump to any conclusions, and all aberrations have been false concerns, so far. She has a job, working at Children's Hospital, and she seems to like it and is doing very well. The money doesn't hurt, and the time spent hasn't interfered with our lives so far. 
 
  We have our dates, and I never forget how close we came to losing it all. I'll fight for our marriage, like a fucking cornered badger, and I'm still doing it. I make sure she knows how important she is, and we make sure to find 'us' time. It's working. Will I ever be able to stop checking on her, trust her completely? Perhaps in time. For now it's enough to know that she loves me, is in love with me, and is completely faithful. We're even talking about adding an extension to our 'house'. She's only 31 and working with children all the time has her talking about having another one. Frankly, I think it would do the opposite for me. 
 

@@ -1,8 +1,14 @@
+What To Do About Edie
+=====================
 #1 
 
  
 
- ****** What To Do About Edie ****** byJust_Plain_Bob© I am constantly receiving feedback from people wanting to know why I ended a story a certain way and then asking me if would mind if they wrote an ending for the story. This has happened so many times that I've decided to hold 
+ 
+
+===
+
+I am constantly receiving feedback from people wanting to know why I ended a story a certain way and then asking me if would mind if they wrote an ending for the story. This has happened so many times that I've decided to hold 
 
  The Just Plain Bob Annual Invitational 
 

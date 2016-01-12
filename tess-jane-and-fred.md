@@ -1,8 +1,14 @@
+Tess, Jane and Fred
+===================
 #1 
 
  
 
- ****** Tess, Jane and Fred ****** byJust_Plain_Bob© It had been a rough day at work and what I really wanted to do when I got home was kick back, sip a beer and watch Monday night football. I was no sooner in the door when my wife Tess came up to me, gave me a great big hug and a kiss and said, "I've got a surprise for you lover." She too me by the arm and led me into the kitchen where my night was promptly destroyed. Sitting at the kitchen table was my wife's best friend Jane and her husband Fred. 
+ 
+
+===
+
+It had been a rough day at work and what I really wanted to do when I got home was kick back, sip a beer and watch Monday night football. I was no sooner in the door when my wife Tess came up to me, gave me a great big hug and a kiss and said, "I've got a surprise for you lover." She too me by the arm and led me into the kitchen where my night was promptly destroyed. Sitting at the kitchen table was my wife's best friend Jane and her husband Fred. 
 
  "Jane and Fred are going to be in town for five days and I offered them the spare bedroom." 
 

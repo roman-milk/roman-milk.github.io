@@ -1,8 +1,14 @@
+The Crumpled Letter
+===================
 #1 
 
  
 
- ****** The Crumpled Letter ****** byJust_Plain_Bob© I wonder if anyone has ever done a survey on how husbands find out that their wives are cheating. A suspicion that causes him to look into her activities? Something overheard at a social gathering? A good friend who tells him something that the friend thinks he should know? What percentage would be because the wife or girlfriend of her lover found out and dropped a dime on the couple? I'm betting that a survey would show that the majority would find out the same way I did - by accident. 
+ 
+
+===
+
+I wonder if anyone has ever done a survey on how husbands find out that their wives are cheating. A suspicion that causes him to look into her activities? Something overheard at a social gathering? A good friend who tells him something that the friend thinks he should know? What percentage would be because the wife or girlfriend of her lover found out and dropped a dime on the couple? I'm betting that a survey would show that the majority would find out the same way I did - by accident. 
 
  +++++ 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** The Crumpled Letter ****** byJust_Plain_Bob© "Yes Mad, as a matter of fact there is someone else." 
+ 
+
+===
+
+"Yes Mad, as a matter of fact there is someone else." 
 
  She just sat there and stared at me and then she got a nasty look on her face and snarled, "You bastard!" 
 

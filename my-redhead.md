@@ -1,8 +1,14 @@
+My Redhead
+==========
 #1 
 
  
 
- ****** My Redhead ****** byJust_Plain_Bob© Maureen and I had hit that point in our fifteen-year marriage where everything was run of the mill and taken for granted. The excitement had gone out of our sex life and we were more or less going through the motions as a duty to each other more than anything else. I knew it, but I wasn't aware that Maureen knew it until the night she looked at me across the dinner table and asked me a question. 
+ 
+
+===
+
+Maureen and I had hit that point in our fifteen-year marriage where everything was run of the mill and taken for granted. The excitement had gone out of our sex life and we were more or less going through the motions as a duty to each other more than anything else. I knew it, but I wasn't aware that Maureen knew it until the night she looked at me across the dinner table and asked me a question. 
 
  "Have you ever thought of cheating on me?" 
 

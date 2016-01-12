@@ -1,8 +1,14 @@
+The Huge Member
+===============
 #1 
 
  
 
- ****** The Huge Member ****** byJust_Plain_Bob© I'd been a bit down in the dumps and Chuck, Dave and Ben decided that what I needed was to get out, have a few drinks and basically get over my funk and get on with my life. 
+ 
+
+===
+
+I'd been a bit down in the dumps and Chuck, Dave and Ben decided that what I needed was to get out, have a few drinks and basically get over my funk and get on with my life. 
 
  They had a point and I knew it. It was time for me to stop feeling sorry for myself. The three of them picked me up and we drove into town. I was a little surprised when we pulled into the parking lot of the Landing Strip Lounge. 
 
@@ -242,7 +248,11 @@
 
  
 
- ****** The Huge Member ****** byJust_Plain_Bob© And that's how the fight started." 
+ 
+
+===
+
+And that's how the fight started." 
 
  I got a lot of laughs, but the biggest thing for me was the kick I got from standing up in front of everyone and performing. I liked it so much that I started doing it almost every open mike night. It got to the point where Bobby would say something like: 
 
@@ -508,7 +518,11 @@
 
  
 
- ****** The Huge Member ****** byJust_Plain_Bob© "Please Wally; I'm begging you." 
+ 
+
+===
+
+"Please Wally; I'm begging you." 
 
  "No promises Julie, but I will think on it and give you a call some time next week." 
 

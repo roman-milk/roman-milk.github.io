@@ -1,8 +1,14 @@
+Beautiful Aunty Jean
+====================
 #1 
 
  
 
- ****** Beautiful Aunty Jean ****** bygeronimo_appleby© An incest stroker I hope you'll enjoy. 
+ 
+
+===
+
+An incest stroker I hope you'll enjoy. 
 
  In this one, Carl can't keep away from his sexy aunt. He visits her house on any excuse, turned on because he saw her in her bikini one afternoon. Carl lusts after his mother's sister, but does he get her? 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** Beautiful Aunty Jean ****** bygeronimo_appleby© I still had the beer in one hand, my other resting on Jean's leg. I could see the deep purple of the woman's underwear, with the gusset packed with her plump pudendum. 
+ 
+
+===
+
+I still had the beer in one hand, my other resting on Jean's leg. I could see the deep purple of the woman's underwear, with the gusset packed with her plump pudendum. 
 
  My aunt took the can from my hand, remaining in situ as she placed it blindly onto the table next to her. Then she used the same hand to reach up, fingers curling around the nape of my neck. 
 

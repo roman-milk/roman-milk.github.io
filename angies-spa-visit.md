@@ -1,8 +1,14 @@
+Angie's Spa Visit
+=================
 #1 
 
  
 
- ****** Angie's Spa Visit ****** byJust_Plain_Bob© Angie and I had not been getting along for a couple of months. She barely spoke to me and when she did she was always pissed off about something. Our sex life had come to a complete halt, we didn't snuggle or cuddle anymore, but the worst of it was that I couldn't get her to tell me what was wrong. Then one night I came home from work and found Angie sitting on the bathroom toilet crying her eyes out. I asked what was wrong, but she wouldn't talk to me and when I persisted she screamed at me, "Leave me alone god damn it, just leave me alone!" As I turned and walked away from the bathroom Angie slammed the door and locked it. 
+ 
+
+===
+
+Angie and I had not been getting along for a couple of months. She barely spoke to me and when she did she was always pissed off about something. Our sex life had come to a complete halt, we didn't snuggle or cuddle anymore, but the worst of it was that I couldn't get her to tell me what was wrong. Then one night I came home from work and found Angie sitting on the bathroom toilet crying her eyes out. I asked what was wrong, but she wouldn't talk to me and when I persisted she screamed at me, "Leave me alone god damn it, just leave me alone!" As I turned and walked away from the bathroom Angie slammed the door and locked it. 
 
  The next day at work my secretary said, "What's wrong boss? You seem pretty down in the dumps today." Bambi has been my strong right arm for the better part of five years and I honestly believe that she knows me better than my wife. Bambi and I are as close as a man and woman can get and not be having sex (not that we both hadn't considered it at one time). I explained what was bothering me and Bambi said, "What do you expect? You have three kids, all under six, and she is constantly on the go. Being on call 24/7 for three kids and a husband and having to take care of a home have left her worn to a frazzle and she's doing it alone because you are always working. The poor girl needs some time off. I know just what she's going through, it happened to me before my kids were old enough to go to school." 
 

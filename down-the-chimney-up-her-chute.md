@@ -1,8 +1,14 @@
+Down the Chimney, Up Her Chute
+==============================
 #1 
 
  
 
- ****** Down the Chimney, Up Her Chute ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. I want to thank my biggest fan for his help preparing this story. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. I want to thank my biggest fan for his help preparing this story. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Down the Chimney, Up Her Chute ****** byTheTalkMan© "You're not gonna just leave me, are you?" Beatrice asked, stretching out like a cat. 
+ 
+
+===
+
+"You're not gonna just leave me, are you?" Beatrice asked, stretching out like a cat. 
 
  "I have work to do. I have to a lot of houses to get to." Nick said quietly, starting to get dressed. 
 

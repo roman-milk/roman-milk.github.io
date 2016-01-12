@@ -1,8 +1,14 @@
+George and Shawna Ch. 01
+========================
 #1 
 
  
 
- ****** George and Shawna Ch. 01 ****** byJust_Plain_Bob© She stared up at the ceiling and wondered just how in the hell she had managed to get herself in such a mess. And how in the hell was she going to get out of it. She was sure that George would take one look at her and know instantly what she had done. Oh Jesus what a mess. She didn't mean for it to happen. She felt the bed shift and he moved over her and without thinking she spread her legs wide. She felt his hard cock slide into her for the third or fourth time that night - she wasn't sure, it might even be the fifth - and she didn't fight it. But then other than the first time she hadn't fought and in truth even that first time she hadn't fought all that hard. Of course it hadn't hurt that he had given her one or two orgasms every time. 
+ 
+
+===
+
+She stared up at the ceiling and wondered just how in the hell she had managed to get herself in such a mess. And how in the hell was she going to get out of it. She was sure that George would take one look at her and know instantly what she had done. Oh Jesus what a mess. She didn't mean for it to happen. She felt the bed shift and he moved over her and without thinking she spread her legs wide. She felt his hard cock slide into her for the third or fourth time that night - she wasn't sure, it might even be the fifth - and she didn't fight it. But then other than the first time she hadn't fought and in truth even that first time she hadn't fought all that hard. Of course it hadn't hurt that he had given her one or two orgasms every time. 
 
  She tried not to think of George, Sarah and Julie as she pushed her hips up at him. She felt the tingle of an approaching orgasm and her hands gripped his ass and she pulled him deep into her and all thoughts of her family faded and she cried out: 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** George and Shawna Ch. 02 ****** byJust_Plain_Bob© He leaned back against the headboard, propped up by pillows and tried to get into the book he was reading, but it just couldn't hold his attention. The question that Shawna had asked in the kitchen was still sitting on his mind. Was there a chance for them? Could he ever get by what she had done? He wanted to; he really did want to. He loved Shawna and he always had. He had loved her from the very first moment he had been introduced to her. She had been the light in his life for over sixteen years. For fifteen of those years she had been the perfect wife; all that any man could ask, wish and hope for. 
+ 
+
+===
+
+He leaned back against the headboard, propped up by pillows and tried to get into the book he was reading, but it just couldn't hold his attention. The question that Shawna had asked in the kitchen was still sitting on his mind. Was there a chance for them? Could he ever get by what she had done? He wanted to; he really did want to. He loved Shawna and he always had. He had loved her from the very first moment he had been introduced to her. She had been the light in his life for over sixteen years. For fifteen of those years she had been the perfect wife; all that any man could ask, wish and hope for. 
 
  He thought back to the day his sister had introduced him to Shawna. Shawna had offered her hand and as he had taken it he had felt a tingle, a little spark and he knew in that instant that she was the woman he was destined to spend his life with. He was stunned when Shawna had asked: 
 
@@ -374,7 +384,11 @@
 
  
 
- ****** George and Shawna Ch. 02 ****** byJust_Plain_Bob© "Can you taste her Shawna? I came in her three times. Do her juices taste good? She wanted me to stay longer and do it some more Shawna, but I wanted to hurry home and give you a taste of her while she was still wet on my cock." 
+ 
+
+===
+
+"Can you taste her Shawna? I came in her three times. Do her juices taste good? She wanted me to stay longer and do it some more Shawna, but I wanted to hurry home and give you a taste of her while she was still wet on my cock." 
 
  He pulled out of her mouth and got off the bed and as he was leaving the room he said, "Good night Shawna. Sleep tight." 
 
@@ -550,7 +564,11 @@
 
  
 
- ****** George and Shawna Ch. 03 ****** byJust_Plain_Bob© That night he had dinner at Carol's and then they rolled around on her bed until it was time for him to leave. Carol was an insatiable little slut and she kept getting him up to go one more time. She loved it all. She especially loved oral and she told him that she even liked anal but that would have to wait until another night because she was all out of Astroglide. 
+ 
+
+===
+
+That night he had dinner at Carol's and then they rolled around on her bed until it was time for him to leave. Carol was an insatiable little slut and she kept getting him up to go one more time. She loved it all. She especially loved oral and she told him that she even liked anal but that would have to wait until another night because she was all out of Astroglide. 
 
  Over dinner he had told her about his schedule and she asked if he planned on spending those days with her and he told her that they were hers if she wanted them. 
 
@@ -822,7 +840,11 @@
 
  
 
- ****** George and Shawna Ch. 03 ****** byJust_Plain_Bob© "I can't make it go away George. I wish I could, but I can't. All I can do is tell you why it happened - why I let it happen. After Glen fucked me that first time I was laying there on the bed crying and he said, "Shut up and stop your whining. You liked it and you know it. Now suck my dick and get me hard again." When I didn't to do it he grabbed my head and forced himself into my mouth. He held my head and fucked my face until he was hard and then he took me again. 
+ 
+
+===
+
+"I can't make it go away George. I wish I could, but I can't. All I can do is tell you why it happened - why I let it happen. After Glen fucked me that first time I was laying there on the bed crying and he said, "Shut up and stop your whining. You liked it and you know it. Now suck my dick and get me hard again." When I didn't to do it he grabbed my head and forced himself into my mouth. He held my head and fucked my face until he was hard and then he took me again. 
 
  "He didn't care about how much I protested, he just took what he wanted. I was there for his pleasure; he wasn't there for mine. All I was to him was a piece of meat - a hot hole he could shove his cock into. Halfway into it my body started to respond and I had an orgasm. The second time took him a while and by the time he was ready to cum I was right on the edge of an orgasm when he came and started to pull out and I cried for him not to stop, to keep going and get me off. He laughed and pulled out and told me that if I needed to get off I'd better hurry up and get him hard again and he shoved his cock in my mouth and face fucked me again. 
 
@@ -946,7 +968,11 @@
 
  
 
- ****** George and Shawna Ch. 04 ****** byJust_Plain_Bob© Share George with his girl friend? Good Lord why had she blurted that out. Could she share him like she told him she would? She didn't really have an answer for that one and the way George had acted after she had blurted it out led her to believe that she would never have to find out. Her begging to be a part of his life again hadn't seemed to faze him at all. Just "I want to go to bed, please leave." 
+ 
+
+===
+
+Share George with his girl friend? Good Lord why had she blurted that out. Could she share him like she told him she would? She didn't really have an answer for that one and the way George had acted after she had blurted it out led her to believe that she would never have to find out. Her begging to be a part of his life again hadn't seemed to faze him at all. Just "I want to go to bed, please leave." 
 
  She was at a loss as to what to do to get George back. She needed his love, his tenderness; she needed him to want her sexually even if it had to be the way he had just done it. She hadn't liked the way he had taken her and in fact, when she finally told him about the rest of her night with Glen at the party she had told him that if he had ever treated her like that she would be gone in a heartbeat. Well, he had treated her that way and she wasn't packing her suitcases. She had not liked it one bit, well that wasn't exactly true - she had gotten into it when he took her ass - and she hoped that he would never be that way with her again, but if he did she knew that she would somehow suffer through it in the hope that somehow it would help heal the marriage. She needed sex even if it was bad sex. 
 

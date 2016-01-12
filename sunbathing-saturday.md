@@ -1,8 +1,14 @@
+Sunbathing Saturday
+===================
 #1 
 
  
 
- ****** Sunbathing Saturday ****** bygeronimo_appleby© Sunbathing Saturday 
+ 
+
+===
+
+Sunbathing Saturday 
 
  In the summer of 1973 Aunt Patricia came to visit. She wasn't my real aunt, not a blood relation, but she was my mother's oldest friend and I had always known her as 'aunty'. I didn't know much about her really, just the bare bones of her life. I knew she'd met my mother in London during the dark years of the Second World War, when she was 16. She'd been orphaned by the Luftwaffe during the blitz and had managed quite competently on her own despite her tender age. No doubt her pretty face and voluptuous figure opened doors for her, and she was a very wealthy woman in 1973. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Sunbathing Saturday ****** bygeronimo_appleby© After a few minutes of energetic coupling, Patricia lifted herself from my glistening prick. It was coated with her juice, and I could see that my lover's thighs were slick with the wetness that had poured from her. Patricia lay back on the bed and offered herself to me again in a wide legged invitation. 
+ 
+
+===
+
+After a few minutes of energetic coupling, Patricia lifted herself from my glistening prick. It was coated with her juice, and I could see that my lover's thighs were slick with the wetness that had poured from her. Patricia lay back on the bed and offered herself to me again in a wide legged invitation. 
 
  I pushed myself into her and Patricia wrapped her arms around me and pulled me close. We kissed and made tender love gently for a while until her need grew urgent. I lifted myself up onto my palms, arms fully outstretched, and I began to fuck into Patricia with hard, savage strokes. Her back arched and her fingers clawed at the sheets as I powered into Patricia's soaking cunt, slamming myself viciously against her, my pubic bone clashing against her large, oversensitive clit. 
 

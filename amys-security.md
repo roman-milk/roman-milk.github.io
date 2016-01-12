@@ -1,8 +1,14 @@
+Amy's Security
+==============
 #1 
 
  
 
- ****** Amy's Security ****** byJust_Plain_Bob© I had slipped in unnoticed, gotten a drink from the bar and then I had moved to a dark corner where I could unobtrusively watch the goings on. The lateness of the hour and the cleared tables suggested that the dinner part of the festivities was over and more than likely so was all the speechifying and the dispensing of bonuses. Now it was more of a cocktail party. The tables had been moved back to create a dance floor and a five-piece band was setting up. My attention was centered on the reason I had come to the affair. I watched as she moved through the crowd talking to the people and looking for all the world like she was the hostess. 
+ 
+
+===
+
+I had slipped in unnoticed, gotten a drink from the bar and then I had moved to a dark corner where I could unobtrusively watch the goings on. The lateness of the hour and the cleared tables suggested that the dinner part of the festivities was over and more than likely so was all the speechifying and the dispensing of bonuses. Now it was more of a cocktail party. The tables had been moved back to create a dance floor and a five-piece band was setting up. My attention was centered on the reason I had come to the affair. I watched as she moved through the crowd talking to the people and looking for all the world like she was the hostess. 
 
  x-x-x-x-x- 
 
@@ -232,7 +238,11 @@
 
  
 
- ****** Amy's Security ****** byJust_Plain_Bob© "You won't fight me Amy. You know why? Because of your precious security, that's why. Right now you can go to Jason and say, "I'm free lover, we don't have to sneak around behind Sam's back any more. Who do you want me to fuck next?" But if you fight me I'll drag you and Jason through the mud. I'll see to it that his wife gets copies of all the photos and when she's done with Jason you'll be lucky to have a job at all, let alone a position as a vice president. It is your choice Amy and if I were you I would think long and hard on it. Now, as long as I'm here, I'm going to go upstairs and pack a few things." 
+ 
+
+===
+
+"You won't fight me Amy. You know why? Because of your precious security, that's why. Right now you can go to Jason and say, "I'm free lover, we don't have to sneak around behind Sam's back any more. Who do you want me to fuck next?" But if you fight me I'll drag you and Jason through the mud. I'll see to it that his wife gets copies of all the photos and when she's done with Jason you'll be lucky to have a job at all, let alone a position as a vice president. It is your choice Amy and if I were you I would think long and hard on it. Now, as long as I'm here, I'm going to go upstairs and pack a few things." 
 
  I grabbed a bag and tossed some shirts and underwear in it and then I got the video camera from where I'd hidden it and tossed it into the bag. Then I headed back downstairs. Amy was standing at the bottom of the stairs with tears running down her cheeks. 
 

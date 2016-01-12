@@ -1,8 +1,14 @@
+Sweetmeat
+=========
 #1 
 
  
 
- ****** Sweetmeat ****** byJust_Plain_Bob© Bad days for me have a way of getting worse long before they even think of getting better. The clock didn't go off when it was supposed to and I was already running late to start the day. I jumped in the car and backed over the kid's bike and the handle bar punctured a tire. I got the spare on and headed for work and a mile from the house I got pulled over for doing ten above the posted limit. Fifteen minutes and six blocks later I stopped for a light and got rear-ended. Naturally there was a car in front of me so I got sandwiched. When the dust settled and everything got sorted out the end result was that my car was not drivable. 
+ 
+
+===
+
+Bad days for me have a way of getting worse long before they even think of getting better. The clock didn't go off when it was supposed to and I was already running late to start the day. I jumped in the car and backed over the kid's bike and the handle bar punctured a tire. I got the spare on and headed for work and a mile from the house I got pulled over for doing ten above the posted limit. Fifteen minutes and six blocks later I stopped for a light and got rear-ended. Naturally there was a car in front of me so I got sandwiched. When the dust settled and everything got sorted out the end result was that my car was not drivable. 
 
  The police report done with (same cop who wrote me up for speeding), a tow truck disappearing down the street with my car attached and a phone call to work out of the way telling them the circumstances and that I wouldn't be in to work, I found myself in a donut shop drinking coffee and waiting for a cab. 
 

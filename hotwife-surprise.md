@@ -1,8 +1,14 @@
+Hotwife Surprise
+================
 #1 
 
  
 
- ****** Hotwife Surprise ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  A final submission for the V-Day contest. Malcolm meets Cleo and they fall in love. But Malcolm's been damaged by women before. He has two divorces behind him -- will Cleo prove to be the one? 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** Hotwife Surprise ****** bygeronimo_appleby© Cleo chuckled, eyes bright as she traced a long nail over the exposed inner flank of one round breast, the top three buttons of the jacket undone to reveal a hint of a dark blue patterned bra beneath. 
+ 
+
+===
+
+Cleo chuckled, eyes bright as she traced a long nail over the exposed inner flank of one round breast, the top three buttons of the jacket undone to reveal a hint of a dark blue patterned bra beneath. 
 
  "Yes, of course," she breathed, smirking. "But this is how I wear it tonight. It is also part of your surprise, so I wore it sexy for you now." 
 
@@ -422,7 +432,11 @@
 
  
 
- ****** Hotwife Surprise ****** bygeronimo_appleby© "You like me this way?" Cleo whined, her fist jacking Malcolm's dick. "It isn't me, Malcolm," she added before lapping his bell-end. "You know me; I'm not so bad..." 
+ 
+
+===
+
+"You like me this way?" Cleo whined, her fist jacking Malcolm's dick. "It isn't me, Malcolm," she added before lapping his bell-end. "You know me; I'm not so bad..." 
 
  The woman rose up and took Malcom deep into her mouth. She gommed the big dome and tickled the sensitive frenulum with the tip of her tongue, flicking the banjo string like a serpent tasting the air. 
 

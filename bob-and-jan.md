@@ -1,8 +1,14 @@
+Bob and Jan
+===========
 #1 
 
  
 
- ****** Bob and Jan ****** byJust_Plain_Bob© "Kids are great ain't they? You never know what the little buggers are going to say. A little boy was attending his first wedding and after the service his cousin asked him: 
+ 
+
+===
+
+"Kids are great ain't they? You never know what the little buggers are going to say. A little boy was attending his first wedding and after the service his cousin asked him: 
 
  "How many women can marry a man?" 
 
@@ -264,7 +270,11 @@
 
  
 
- ****** Bob and Jan ****** byJust_Plain_Bob© "The woman went to the doctor and after the examination he sighed and said "I've got some very bad news for you. You have cancer and you had best put your affairs in order." 
+ 
+
+===
+
+"The woman went to the doctor and after the examination he sighed and said "I've got some very bad news for you. You have cancer and you had best put your affairs in order." 
 
  The woman was shocked and asked how long she had and the doctor told her maybe six to eight months. The woman composed herself and went out to the waiting room where he daughter was waiting for her. 
 

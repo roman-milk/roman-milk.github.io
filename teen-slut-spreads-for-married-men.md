@@ -1,8 +1,14 @@
+Teen Slut Spreads For Married Men Ch. 02
+========================================
 #1 
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 02 ****** byNonStopFunGuy© With her shaved-bald pussy creaming in her panties, the thin, pretty 18 year old brunette quietly stared at the sight of her father's semi-engorged penis, making a distinctly noticeable bulge in his tight underwear while he slumbered in his bed midway through a summertime Saturday morning. Not only was her vagina tingling at the sight, but her mouth watered as well. Fallon had been sucking and fucking her father's cock so much the past week, she was having a Pavlov response -- even the mere thought of her daddy's penis, and certainly sight of it, made the long-haired, tanned brunette anxious to suck and fuck it again. 
+ 
+
+===
+
+With her shaved-bald pussy creaming in her panties, the thin, pretty 18 year old brunette quietly stared at the sight of her father's semi-engorged penis, making a distinctly noticeable bulge in his tight underwear while he slumbered in his bed midway through a summertime Saturday morning. Not only was her vagina tingling at the sight, but her mouth watered as well. Fallon had been sucking and fucking her father's cock so much the past week, she was having a Pavlov response -- even the mere thought of her daddy's penis, and certainly sight of it, made the long-haired, tanned brunette anxious to suck and fuck it again. 
 
  Sounds of her mother downstairs in the house, preparing to leave for some late- morning shopping, were welcomed by her lusty daughter. Fallon couldn't wait for her mom to leave, she'd have another opportunity to climb into bed with her father, and help him cheat on his wife, her mom. 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 02 ****** byNonStopFunGuy© When she looked him eye to eye through their iPhones, she could see him wanting to say something, or do something, but he was hesitating. So Fallon teased him, "Wanna see more?" He was about to say no, but bit his lip, not saying anything, just staring. She took that as a yes. She turned her phone down, showing off her naked breasts, then her flat tummy ... and, spreading her thighs, aimed her phone right at her crotch. The married man was now staring at her glistening- wet, shaved, pink vagina between her opened, tanned thighs, dripping wet for his attention. When she brought the phone back to her face, she moaned, "Erick, you make me soooo horny!" 
+ 
+
+===
+
+When she looked him eye to eye through their iPhones, she could see him wanting to say something, or do something, but he was hesitating. So Fallon teased him, "Wanna see more?" He was about to say no, but bit his lip, not saying anything, just staring. She took that as a yes. She turned her phone down, showing off her naked breasts, then her flat tummy ... and, spreading her thighs, aimed her phone right at her crotch. The married man was now staring at her glistening- wet, shaved, pink vagina between her opened, tanned thighs, dripping wet for his attention. When she brought the phone back to her face, she moaned, "Erick, you make me soooo horny!" 
 
  The married man answered by moving his phone -- down to his crotch -- showing off his naked, pulsating six and a half inch erection, dripping wet with precum, throbbing on his slightly-flabby belly. 
 
@@ -190,7 +200,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 01 ****** byNonStopFunGuy© "OHHHH, yesss, Daddy," panted the exhausted, skinny brunette 18 year old, staring at her father's naked body and feeling his massive erection inside her stretched, shaved vagina, "c'mon, deeper, give it to me, more!" 
+ 
+
+===
+
+"OHHHH, yesss, Daddy," panted the exhausted, skinny brunette 18 year old, staring at her father's naked body and feeling his massive erection inside her stretched, shaved vagina, "c'mon, deeper, give it to me, more!" 
 
  Fallon reached her hands down to grab her father's naked, sweaty buttocks, pulling his massive frame harder into her small, thin, tanned frame. Her head and shoulders were painfully bent upwards by the headboard on her bed, but she didn't care at the soreness in her shoulders and neck; this way, she got to stare at her Daddy's awesome body, his muscular, thick, manly shoulders and chest, covered in sweat and curly, salt-and-pepper hair, down to his firm abdomen. Jutting out of his flat pelvis was the most awesome cock ever invented in the world, an eight-inch, super-fat erection, crammed inside her teenage pussy, filling her aching hole as deep as anyone could reach. Her father was grunting with each thrust, leaning over his babygirl, plunging his penis repeatedly into his daughter's vagina. 
 
@@ -296,7 +310,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 01 ****** byNonStopFunGuy© She smiled up at him, admiring his awesome boner. It even smelled better than teen cock -- fat, hungry, nasty, animal. She cupped his balls, loving their warmth, and wrapped a small hand around the base of his shaft, feeling its heat and thickness. Then she licked her lips, looked up at him, and hungrily sucked his fat, wet cockhead into her young mouth. It tasted AMAZING, it smelled amazing. Moaning, she sucked his boner a few inches, back and forth, looking up at him. The man was a hot stud, she was so turned on that she had a married adult male hot to fuck her. 
+ 
+
+===
+
+She smiled up at him, admiring his awesome boner. It even smelled better than teen cock -- fat, hungry, nasty, animal. She cupped his balls, loving their warmth, and wrapped a small hand around the base of his shaft, feeling its heat and thickness. Then she licked her lips, looked up at him, and hungrily sucked his fat, wet cockhead into her young mouth. It tasted AMAZING, it smelled amazing. Moaning, she sucked his boner a few inches, back and forth, looking up at him. The man was a hot stud, she was so turned on that she had a married adult male hot to fuck her. 
 
  And that's what he wanted -- not a blowjob, but to fuck her. He let her inexpertly suck his dick a few minutes, but then he proclaimed, "You didn't come here just to suck a married dick, did you, baby -- how about you let me fuck that 18 year old pussy of yours?" Her age was definitely turning him on, she could hear it in his voice. So she leaned back on the sofa, nude, pulling her knees open. "Yeah, my pussy sooo needs a big married dick in it -- show me how a real man fucks!" 
 
@@ -326,7 +344,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 03 ****** byNonStopFunGuy© Slurping her father's gorgeous, oversized erection, the long-haired, 18-year- old brunette smiled at him as he woke up from his deep, overnight slumber late one summertime Saturday morning. "Hi, Daddy," giggled Fallon, her lips and tongue suckling the bulbous, soft helmet of her father's eight-and-a-half-inch long, supremely-fat penis, while her petite hands were wrapped around its thick base, holding it upright, pumping it softly. "Time to wake up, Daddy -- someone wants your cock really, really badly." And the thin-lipped, gorgeous brunette grinned at her father, making it abundantly clear she was referring to herself. 
+ 
+
+===
+
+Slurping her father's gorgeous, oversized erection, the long-haired, 18-year- old brunette smiled at him as he woke up from his deep, overnight slumber late one summertime Saturday morning. "Hi, Daddy," giggled Fallon, her lips and tongue suckling the bulbous, soft helmet of her father's eight-and-a-half-inch long, supremely-fat penis, while her petite hands were wrapped around its thick base, holding it upright, pumping it softly. "Time to wake up, Daddy -- someone wants your cock really, really badly." And the thin-lipped, gorgeous brunette grinned at her father, making it abundantly clear she was referring to herself. 
 
  Groggy, her fit, sturdy father rubbed his eyes, noting the time -- nearly 10:30 -- and looked down his naked body as he lay on his bed, seeing his sexy, slutty daughter kneeling next to his meaty thighs, bending over to pleasure his penis. Fallon had peeled down his clean, white underwear, bunching it around his balls, to expose his erection so she could begin milking and massaging it with her mouth and hands. 
 
@@ -432,7 +454,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 03 ****** byNonStopFunGuy© "You want that, huh?" asked the incredulous male, so turned on by the sexy young slut, "you want it harder than ever, huh?" 
+ 
+
+===
+
+"You want that, huh?" asked the incredulous male, so turned on by the sexy young slut, "you want it harder than ever, huh?" 
 
  He grabbed her knees from Fallon, bending them backwards, while he also rose up to his knees. She felt her legs bent all the way back, her knees at her armpits, her feet over her head, her cunt completely exposed. Trevor, way more than twice her weight, was leaning into her and slamming his burly body as hard into her as he could. The size and weight of his body, plus her on her back and spread so far open, had crushed his dick to completely fill Fallon's vagina. Every bit of the length of his shaft was inside her pussy; even his balls seemed to be trying to squeeze into her hole. She screamed at the feeling of that deep pressure all the way back inside her pussy, deeper than she'd ever felt a cock. Trevor, too, began crying out, just pounding his body against hers to keep his dick buried in the very back of her cunt and screwing her deeper and harder than anyone ever. 
 
@@ -462,7 +488,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 04 ****** byNonStopFunGuy© "Mmm, Daddy, I love your cock sooo much!" moaned the gorgeous, thin 18 year old, purring her words of adoration with her lips pressed against the throbbing, sloppy erection of her sexy father. Fallon brushed her long, dark hair off of her face, her brown eyes looking past her father's fit abdomen and hairy chest, so she could smile warmly at his familiar, handsome face. Seeing that her father was staring in satisfaction at the sight of his petite brunette daughter giving him another blowjob, Fallon dropped her eyes back down to the eight-and-a-half inch, super-thick erection in her small hands, throbbing heat against her tongue and cheeks. "Gawwwd, Daddy, it's sooo big -- sooo big!" 
+ 
+
+===
+
+"Mmm, Daddy, I love your cock sooo much!" moaned the gorgeous, thin 18 year old, purring her words of adoration with her lips pressed against the throbbing, sloppy erection of her sexy father. Fallon brushed her long, dark hair off of her face, her brown eyes looking past her father's fit abdomen and hairy chest, so she could smile warmly at his familiar, handsome face. Seeing that her father was staring in satisfaction at the sight of his petite brunette daughter giving him another blowjob, Fallon dropped her eyes back down to the eight-and-a-half inch, super-thick erection in her small hands, throbbing heat against her tongue and cheeks. "Gawwwd, Daddy, it's sooo big -- sooo big!" 
 
  Her perverted father only responded by pulling his meaty thighs back more, giving his teen slut more room to suck and lick his oversized penis and fat, cum-filled balls below. Resting comfortable on his bed on a summertime, weekend morning, his body gyrated softly, his muscular ass pushing his cock up and down in slow, steady motions, while his daughter to continue with her lavish cocksucking. 
 
@@ -552,7 +582,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 05 ****** byNonStopFunGuy© Seeing her father's eyes locked directly on her body in her nightie and panties, the slender 18 year old with small tits kneeled on his bed between his spread-open thighs, her own eyes glancing at his throbbing, fully-engorged, oversized penis. Fallon's petite hands were cupping her A-cup breasts through her nightie, showing the shape of those perky, teenage orbs to her sexy, middle-aged father, creating noticeable bumps where her stiffened nipples poked through the fabric. His daddy-cock twitched, glistening with her saliva from a very sloppy blowjob, wanting more of his daughter's loving attention. 
+ 
+
+===
+
+Seeing her father's eyes locked directly on her body in her nightie and panties, the slender 18 year old with small tits kneeled on his bed between his spread-open thighs, her own eyes glancing at his throbbing, fully-engorged, oversized penis. Fallon's petite hands were cupping her A-cup breasts through her nightie, showing the shape of those perky, teenage orbs to her sexy, middle-aged father, creating noticeable bumps where her stiffened nipples poked through the fabric. His daddy-cock twitched, glistening with her saliva from a very sloppy blowjob, wanting more of his daughter's loving attention. 
 
  "Daddy," purred the slutty teen, groping her boobs while her hips undulated slowly and suggestively, "I need you sooo badly this morning -- mom's gone all morning -- I've been so fucking horny, please, please, let me fuck you today!" 
 
@@ -664,7 +698,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 05 ****** byNonStopFunGuy© The male sat back, watching the girls making out naked, sharing his sperm. When he was rock-hard and ready to fuck again, he said he had an "insanely pervy" idea. He had both girls, naked, walk up to the second floor of his house, and go into his daughter's bedroom. The youngster's bed had stuffed animals and Barbie dolls all over it, plus posters from her favorite Nick and Disney channel stars. Disney princesses were lined up on a shelf. Dave had Fallon crawl onto her back in the middle of his child's bed, then he mounted her and began fucking her tight, teen cunt right where his daughter slept. Meanwhile, Dave had the busty blonde gymnast straddle Fallon's face, so the brunette could eat out the blonde's bald cunt more while Dave fucked the brunette; and this way, as he leaned over Fallon to screw her teen pussy, Dave's face was in Gracie's chest, so he could keep licking her round, teen boobs. 
+ 
+
+===
+
+The male sat back, watching the girls making out naked, sharing his sperm. When he was rock-hard and ready to fuck again, he said he had an "insanely pervy" idea. He had both girls, naked, walk up to the second floor of his house, and go into his daughter's bedroom. The youngster's bed had stuffed animals and Barbie dolls all over it, plus posters from her favorite Nick and Disney channel stars. Disney princesses were lined up on a shelf. Dave had Fallon crawl onto her back in the middle of his child's bed, then he mounted her and began fucking her tight, teen cunt right where his daughter slept. Meanwhile, Dave had the busty blonde gymnast straddle Fallon's face, so the brunette could eat out the blonde's bald cunt more while Dave fucked the brunette; and this way, as he leaned over Fallon to screw her teen pussy, Dave's face was in Gracie's chest, so he could keep licking her round, teen boobs. 
 
  Gracie was yelping uncontrollably, she was so turned on; Fallon felt streams of the girl's pussy juices pouring down her face, filling her mouth, even getting up her nostrils as the blonde vibrantly wiggled her cunt and ass over Fallon's face. Fallon felt her pussy getting stretched wide open by Dave's awesome, thick penis, and the muscular stud was bending her thin knees backwards, spreading her thighs wide-open as he rammed against her, sinking more and more of his six inches of meat into her twat until he had literally the entire length buried inside her teen cunt. Fallon could hear Dave and Gracie making out, and Dave slobbering on Gracie's larger teen breasts, while screwing Fallon's twat as deep as his erection could stretch. 
 
@@ -702,7 +740,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 06 ****** byNonStopFunGuy© "C'mere, Daddy," moaned the long-haired, brunette 18 year old as she leaned her shoulders downwards more, shoving her naked, petite ass upwards. Peeking back over her shoulder at her naked father, as he massaged his massive, engorged, erection, the slutty daughter excitedly shrieked for what she'd been needing all morning. "Put that big, awesome dick of yours into my tight, teen pussy!" 
+ 
+
+===
+
+"C'mere, Daddy," moaned the long-haired, brunette 18 year old as she leaned her shoulders downwards more, shoving her naked, petite ass upwards. Peeking back over her shoulder at her naked father, as he massaged his massive, engorged, erection, the slutty daughter excitedly shrieked for what she'd been needing all morning. "Put that big, awesome dick of yours into my tight, teen pussy!" 
 
  Teasingly, her hunky father remained on his back on his bed, having just woken up a few minutes earlier by his daughter sucking and licking his penis. From the way his handsome eyes stared at her hot ass and bald, drenched pink cuntlips while she spread herself open on her fours on his bed, Fallon knew she was going to fuck her like she wanted. He hadn't resisted all week, not since fucking her in an incestuous orgy a week earlier that summer. Daily he let his horny daughter suck his dick then slide her cuntlips around it, and with her mom gone shopping this late, summertime weekend morning, he had both the opportunity and the engorged erection to do it again. 
 
@@ -768,7 +810,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 07 ****** byNonStopFunGuy© "Uhhh gawwwd, Daddeee!" sang the 18 year old brunette, her eyes closed, her head dropped to her father's bed sheets as she stuck her small ass in the air more, spreading her knees wider, feeling that awesome erection probing her shaved cunt from the rear, "fuuuck meee, pleeease Daddeee, fuuuck meee!" 
+ 
+
+===
+
+"Uhhh gawwwd, Daddeee!" sang the 18 year old brunette, her eyes closed, her head dropped to her father's bed sheets as she stuck her small ass in the air more, spreading her knees wider, feeling that awesome erection probing her shaved cunt from the rear, "fuuuck meee, pleeease Daddeee, fuuuck meee!" 
 
  Fallon was slobbering into her Daddy's bed sheets, her mouth still flavored by the taste of his amazing, huge penis she had been sucking only a few minutes earlier, but now that was plunging with full fury into her tight, teenage cunt. The long-haired brunette was grunting hard, feeling her cunt being stretched open, while her father's powerful, middle-aged body was slamming into her petite, skinny, tanned frame harder and harder. The massive size of his dick - - eight and a half inches long, and fatter than her fist -- was already making her wail in delicious pain, feeling her cuntlips stretching open to accommodate it, and the pressure was mounting deeper and deeper in her pussy, as he shoved more and more of his dick into his daughter. 
 
@@ -872,7 +918,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 08 ****** byNonStopFunGuy© "Are you hard again, Daddy?" inquired the insatiably horny, 18 year old brunette, her eyes looking up her father's naked body while her tongue continued to lap at his massive, oversized penis, tasting her cunt juices and his sperm all over it, "do you want to fuck your babygirl's cunt again, Daddy?" 
+ 
+
+===
+
+"Are you hard again, Daddy?" inquired the insatiably horny, 18 year old brunette, her eyes looking up her father's naked body while her tongue continued to lap at his massive, oversized penis, tasting her cunt juices and his sperm all over it, "do you want to fuck your babygirl's cunt again, Daddy?" 
 
  Kneeling naked on her father's bed that summer weekend morning, Fallon felt her the sperm of her father's first orgasm drooling out of her shaved cuntlips, dripping down her tanned, creamy thighs. Her face was messy with the liquids from their incestuous sex that Saturday morning -- his sweat and cum, her cunt juices and saliva. As she cleaned off her Daddy's first orgasm from his awesome erection with her dainty tongue, she felt the rejuvenated shaft throbbing heat against her face, and the bulbous cockhead was leaking precum again. She could tell her father was ready for a second round of taboo daughter-fucking. 
 
@@ -986,7 +1036,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 08 ****** byNonStopFunGuy© Fallon said yeah, I saw it. Gracie and her had a laugh about it, until Gracie told Fallon that not only was her father's dick huge, but he was the best fuck she'd ever had -- better than Dave, even. "Bet you wish you weren't his daughter -- 'cause you'd sooo be fucking him all the time!" 
+ 
+
+===
+
+Fallon said yeah, I saw it. Gracie and her had a laugh about it, until Gracie told Fallon that not only was her father's dick huge, but he was the best fuck she'd ever had -- better than Dave, even. "Bet you wish you weren't his daughter -- 'cause you'd sooo be fucking him all the time!" 
 
  "Yeah," panted Fallon, nasty ideas already floating around her pretty little head, "too bad he's my daddy." 
 
@@ -994,7 +1048,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 09 ****** byNonStopFunGuy© "Mmm, don't you love my ass, Daddy?" giggled the slender, long-haired brunette as she looked back over her petite, bronzed shoulder, snickering at her perverted father. She saw his handsome face glued to the sight of her tanned, slim back and soft, tight 18 year old ass, as it was beginning to gyrate over his pelvis, sliding up and down his oversized, super-long boner. Fallon grunted and moaned, too, her hands down to grab her father's powerful legs, steadying herself as she began thrusting her pussy around his eight-and-a-half inch, super-fat erection, driving it farther up into her teen body. 
+ 
+
+===
+
+"Mmm, don't you love my ass, Daddy?" giggled the slender, long-haired brunette as she looked back over her petite, bronzed shoulder, snickering at her perverted father. She saw his handsome face glued to the sight of her tanned, slim back and soft, tight 18 year old ass, as it was beginning to gyrate over his pelvis, sliding up and down his oversized, super-long boner. Fallon grunted and moaned, too, her hands down to grab her father's powerful legs, steadying herself as she began thrusting her pussy around his eight-and-a-half inch, super-fat erection, driving it farther up into her teen body. 
 
  The snort from her father answered her question, but a moment later, licking his lips, he sneered at his daughter's naked ass. "You have the best butt ever, baby," he growled at Fallon. Reaching his powerful hands forward, he wrapped his fingers around her thin hips, feeling her young, slim body as she began humping his incredible dick, with Fallon doing most of the work now. Her vagina oozed semen and juices, from the huge load he squirted into her cunt a little while earlier. Now, his first orgasm was lubricating their sex, making her pink, shaved-bald cunt a squishy, messy hole, so easy for her to raise and lower herself "reverse-cowgirl" style as she fucked her handsome, fit father. 
 
@@ -1092,7 +1150,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 09 ****** byNonStopFunGuy© So Fallon just did what she was told, pushing Gracie down to the carpet, and smashing mouths together to make out while the men watched. Gracie was horny from the strip game, so she didn't stop Fallon when the brunette pushed her onto her back, and spread her open. Fallon looked over, seeing both men staring in delight when Fallon's tongue stuck out, and the brunette began licking the blonde's wet, pink vagina. She was getting used to eating out Gracie in front of adult men; she and Gracie had done threesomes with the hot pool dad Dave a few times that summer. Gracie squealed loudly, as Fallon began lapping expertly at that twat and bringing Gracie to a cummy spasm a few minutes later. 
+ 
+
+===
+
+So Fallon just did what she was told, pushing Gracie down to the carpet, and smashing mouths together to make out while the men watched. Gracie was horny from the strip game, so she didn't stop Fallon when the brunette pushed her onto her back, and spread her open. Fallon looked over, seeing both men staring in delight when Fallon's tongue stuck out, and the brunette began licking the blonde's wet, pink vagina. She was getting used to eating out Gracie in front of adult men; she and Gracie had done threesomes with the hot pool dad Dave a few times that summer. Gracie squealed loudly, as Fallon began lapping expertly at that twat and bringing Gracie to a cummy spasm a few minutes later. 
 
  Then it was Gracie's turn, putting Fallon on her back, spreading her naked body open in front of her own father and his married buddy. Gracie bent down and started licking Fallon's twat, pulling her golden-blonde hair out of the way so both men could get a clear view of every moment of it. Fallon grabbed her own petite titties, twisting her nipples for effect, while her head turned to watch the men watching her. She found her eye fixated on her Daddy's huge, naked penis, just pointing out of her father's fit lap, his bulbous cockhead dripping with semen. It was such a hot fucking dick, she didn't care it was her father's. 
 
@@ -1158,7 +1220,11 @@
 
  
 
- ****** Teen Slut Spreads For Married Men Ch. 10 ****** byNonStopFunGuy© "Ooh, Daddy!" yelped the slim, sore 18 year old slut, laughing as her horny, naked father flipped her onto her back on his bed, where the bed sheets were stained with their sweat from over an hour of intense, incestuous fucking. Pulling her boney knees open, her thighs and ass muscles sore from riding on top of her father for a while, the long-haired teenage brunette opened her pussy to her perverted father and his eight-and-a-half inch erection. "Oh, yeah, fuck me deeper, Daddy, cum in me again!" 
+ 
+
+===
+
+"Ooh, Daddy!" yelped the slim, sore 18 year old slut, laughing as her horny, naked father flipped her onto her back on his bed, where the bed sheets were stained with their sweat from over an hour of intense, incestuous fucking. Pulling her boney knees open, her thighs and ass muscles sore from riding on top of her father for a while, the long-haired teenage brunette opened her pussy to her perverted father and his eight-and-a-half inch erection. "Oh, yeah, fuck me deeper, Daddy, cum in me again!" 
 
  Having already squirted a load of semen in his daughter earlier that morning of a late-summer Saturday, her father growled at his slutty daughter's request. His manly, hairy chest was beaded with sweat, dripping around the salt-and- pepper curls of his hair, and his flat abdomen glistened from Fallon's cuntjuices, and his massive, engorged penis below dripped from the messy mix of semen and juice in her vagina. Crawling on top of his petite daughter, the father positioned his cock against her cunt while his strong arms hung straight below his broad shoulders, his powerful torso hovering over her body in the air above his bed. 
 

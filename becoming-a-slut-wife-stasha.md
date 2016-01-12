@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Stasha
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Stasha ****** byJust_Plain_Bob© I shuffled through the pile of bills on the table and shook my head in dismay. Two months behind on the mortgage, two months behind on the truck payment, shut-off notices from the phone and electric companies and no way for me to come up with the money any time soon. Things were not looking good. 
+ 
+
+===
+
+I shuffled through the pile of bills on the table and shook my head in dismay. Two months behind on the mortgage, two months behind on the truck payment, shut-off notices from the phone and electric companies and no way for me to come up with the money any time soon. Things were not looking good. 
 
  I'm a carpenter by trade and I've never had a problem finding work, but my problem was that I couldn't work. I had been siding houses for a developer and through my own stupidity I had fallen off of a scaffold and had broken my leg in two places. I'd been off work for two months and it would be at least another six weeks before I could go back. By then the truck would have been repossessed and the house foreclosed on. My wife Stasha works, but secretary's don't make all that much. What Stasha brings home keeps us in groceries and that's about it. Neither one of has a living relative that we could ask for help so we are pretty much screwed. 
 

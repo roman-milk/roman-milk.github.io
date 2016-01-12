@@ -1,8 +1,14 @@
+Midnight Anal
+=============
 #1 
 
  
 
- ****** Midnight Anal ****** bygeronimo_appleby© THE KNOCK CAUGHT me by surprise. The clock on the television showed the time at half-past midnight; it was late for someone to be at the door. I hadn't ordered room-service but perhaps it was just someone who'd mistaken my room for theirs? It would be an easy mistake to make given the hotel had seven floors. 
+ 
+
+===
+
+THE KNOCK CAUGHT me by surprise. The clock on the television showed the time at half-past midnight; it was late for someone to be at the door. I hadn't ordered room-service but perhaps it was just someone who'd mistaken my room for theirs? It would be an easy mistake to make given the hotel had seven floors. 
 
  "Mizuki?" It was the one who didn't speak English standing in the corridor. 
 

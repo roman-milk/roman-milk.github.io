@@ -1,8 +1,14 @@
+A Perfect Fall Pt. 01
+=====================
 #1 
 
  
 
- ****** A Perfect Fall Pt. 01 ****** bysilkstockingslover© Jessica had been fucked for three straight hours by over a dozen black men. Cum dripped out of her pussy and ass and her raven black hair was coated with love juice. As another cock penetrated her well fucked ass Jessica pondered her predicament. How she, a married women of 40, who was a virgin when she married, with two kids, and had never even considered cheating on her husband, could now be a dirty whore with a black mistress whose body was used daily for the pleasure of many. Here is her story: 
+ 
+
+===
+
+Jessica had been fucked for three straight hours by over a dozen black men. Cum dripped out of her pussy and ass and her raven black hair was coated with love juice. As another cock penetrated her well fucked ass Jessica pondered her predicament. How she, a married women of 40, who was a virgin when she married, with two kids, and had never even considered cheating on her husband, could now be a dirty whore with a black mistress whose body was used daily for the pleasure of many. Here is her story: 
 
  1. INTRODUCTION 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** A Perfect Fall Pt. 01 ****** bysilkstockingslover© 4. NEIGHBOURLY CONVERSATION & THE PHILOSOPHY OF BLACK SENSUALITY AND WHITE SUBMISSIVENESS 
+ 
+
+===
+
+4. NEIGHBOURLY CONVERSATION & THE PHILOSOPHY OF BLACK SENSUALITY AND WHITE SUBMISSIVENESS 
 
  A few days went by and I had avoided Amy as I sure did not know what to say to her after seeing what I saw. Although Amy and I had spent almost no time together since the makeover and the awkward last coffee date, her influence had been great I had bought a whole new wardrobe, much to my husband's delight. I had a garterbelt, I had stockings and stay ups in a variety of colours. I had a few new much shorter, although still classy, skirts; skirts that were long enough for school, but short enough to reveal I was wearing stockings if I sat a certain way. This new me was exciting. I was always horny and Martin and I were going at it almost every day he was home. As I was taking groceries out of my car, I saw Karen crossing the street, clearly leaving Amy's house, heading the other way was a young coed who couldn't be over 19. Karen was wearing a red one piece dress and stay up black stockings all clearly in view. I called her over. 
 
@@ -358,7 +368,11 @@
 
  
 
- ****** A Perfect Fall Pt. 01 ****** bysilkstockingslover© Becky moaned as Derek clearly re-entered her tight white ass, "Thank you mommy, thank you for allowing me to take this massive black cock in my ass. Will you suck the cum out of my ass after he comes mommy. Will you eat my pussy till I spray my pussy juice all over your face?" 
+ 
+
+===
+
+Becky moaned as Derek clearly re-entered her tight white ass, "Thank you mommy, thank you for allowing me to take this massive black cock in my ass. Will you suck the cum out of my ass after he comes mommy. Will you eat my pussy till I spray my pussy juice all over your face?" 
 
  "If mistress Amy allows me to, I will suck out every drop of black cum from your whore ass and I will eat your pussy anytime you want. " 
 
@@ -448,7 +462,11 @@
 
  
 
- ****** A Perfect Fall Pt. 02 ****** bysilkstockingslover© In Chapters 1-6, Jessica (a beautiful white wife) and her daughter Becky became submissive and willing slaves to their seductive black neighbor Amy. Although not necessary, reading Chapters 1-6 will make this story make a lot more sense and is highly recommended. 
+ 
+
+===
+
+In Chapters 1-6, Jessica (a beautiful white wife) and her daughter Becky became submissive and willing slaves to their seductive black neighbor Amy. Although not necessary, reading Chapters 1-6 will make this story make a lot more sense and is highly recommended. 
 
  Note: 
 
@@ -626,7 +644,11 @@
 
  
 
- ****** A Perfect Fall Pt. 02 ****** bysilkstockingslover© We all did. Then each of us was inserted with a thick vibrator turned on high. We then had a vibrating egg slid into our ass. Amy explained, "The first one to cum loses and so forth. Good luck whores." The double sensation was pretty intense, but I just tried to ignore the teasing tantalizations. It only took a couple minutes before Becky orgasmed screaming 'Fuck yes,' from the toy sensations. I instantly worried about her punishment, but stayed focused on winning. During the next couple minutes Ashley and Abby also climaxed and it was just Zelda and me. Just as I was close to cumming I heard Zelda scream and then seconds later I followed, winning my second straight round. 
+ 
+
+===
+
+We all did. Then each of us was inserted with a thick vibrator turned on high. We then had a vibrating egg slid into our ass. Amy explained, "The first one to cum loses and so forth. Good luck whores." The double sensation was pretty intense, but I just tried to ignore the teasing tantalizations. It only took a couple minutes before Becky orgasmed screaming 'Fuck yes,' from the toy sensations. I instantly worried about her punishment, but stayed focused on winning. During the next couple minutes Ashley and Abby also climaxed and it was just Zelda and me. Just as I was close to cumming I heard Zelda scream and then seconds later I followed, winning my second straight round. 
 
  Amy announced, Jessica with back to back wins is now in the lead, but her daughter now needs to be punished for her quick pussy trigger. But first lets watch the trailer for my brand new movie I just finished editing late last night. Please watch the video called "The Seduction of a Surburban Housewife." 
 

@@ -1,8 +1,14 @@
+Ryan Gets His Wish
+==================
 #1 
 
  
 
- ****** Ryan Gets His Wish ****** byJust_Plain_Bob© "No! God damn it no! For the absolute last time Ryan I will not do it!" 
+ 
+
+===
+
+"No! God damn it no! For the absolute last time Ryan I will not do it!" 
 
  "Aw come on Tiffany, how do you know you won't like it? 
 

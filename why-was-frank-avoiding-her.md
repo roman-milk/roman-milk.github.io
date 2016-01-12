@@ -1,8 +1,14 @@
+Why Was Frank Avoiding Her
+==========================
 #1 
 
  
 
- ****** Why Was Frank Avoiding Her ****** byJust_Plain_Bob© I sat at the table sipping a Coke from the machine just down the motel hall and watched as my best friend Joie (pronounced Joey) worked her magic on a young stud that she had picked up at the Golden Spur. Joie was married, but quite obviously not working at it. She had already taken her sweater and bra off and her breasts were out there for all to see. The 'all' was Joie's stud Al, me and Phil who was Al's wingman of the evening. 
+ 
+
+===
+
+I sat at the table sipping a Coke from the machine just down the motel hall and watched as my best friend Joie (pronounced Joey) worked her magic on a young stud that she had picked up at the Golden Spur. Joie was married, but quite obviously not working at it. She had already taken her sweater and bra off and her breasts were out there for all to see. The 'all' was Joie's stud Al, me and Phil who was Al's wingman of the evening. 
 
  Phil and I watched as Al moved up behind Joie and cupped her breasts and used fingers to tweak nipples that were already stiff. Al's hands dropped and pushed down Joie's skirt and panties and then he pushed her down on the motel bed. Joie moved into position for puppy fucking, which is what she called the doggie position, and wiggled her ass at Al. His cock was hard and he moved up behind Joie and probed with his cock. Joie reached under, took hold of the hard flesh and guided it into the proper place. 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Why Was Frank Avoiding Her ****** byJust_Plain_Bob© "Fuck me, fuck me hard" I moaned into his neck and he did. Did he ever! I came twice before he did and when he had spurted into me and pulled out I turned and cleaned him with my mouth -- something that my hubby had always wanted me to do, but that I never had. 
+ 
+
+===
+
+"Fuck me, fuck me hard" I moaned into his neck and he did. Did he ever! I came twice before he did and when he had spurted into me and pulled out I turned and cleaned him with my mouth -- something that my hubby had always wanted me to do, but that I never had. 
 
  When I had licked our combined juices off of him I asked, "What next?" 
 
@@ -446,7 +456,11 @@
 
  
 
- ****** Why Was Frank Avoiding Her ****** byJust_Plain_Bob© "No; don't." 
+ 
+
+===
+
+"No; don't." 
 
  "You know what's likely to happen?" 
 
@@ -662,7 +676,11 @@
 
  
 
- ****** Why Was Frank Avoiding Her ****** byJust_Plain_Bob© "Terry if he wants to join in." 
+ 
+
+===
+
+"Terry if he wants to join in." 
 
  "I'm a definite, but I'll need to talk to Terry." 
 

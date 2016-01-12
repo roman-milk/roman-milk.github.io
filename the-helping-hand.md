@@ -1,8 +1,14 @@
+The Helping Hand
+================
 #1 
 
  
 
- ****** The Helping Hand ****** byJust_Plain_Bob© "You miserable, rotten son of a bitch! You did that and then you had the nerve to come home and climb into bed with me? Did it even enter that fucking head of yours that she could have given you something and that you could have brought it home and given it to me? Jesus Ryan, you are so disgusting that you make me want to puke." 
+ 
+
+===
+
+"You miserable, rotten son of a bitch! You did that and then you had the nerve to come home and climb into bed with me? Did it even enter that fucking head of yours that she could have given you something and that you could have brought it home and given it to me? Jesus Ryan, you are so disgusting that you make me want to puke." 
 
  "Oh come on Joyce, it didn't mean nothing. So I got drunk and got a little carried away. It wasn't cool and I'm sorry." 
 

@@ -1,8 +1,14 @@
+Bob Gwen and Harlina
+====================
 #1 
 
  
 
- ****** Bob Gwen and Harlina ****** byJust_Plain_Bob© I met Gwen on my first day at work. She was the receptionist and the person who issued me my temporary ID badge and told me where to report in. To say that I was taken by the raven haired beauty with the deep blue eyes would be a massive understatement. Going gaa gaa over her would be closer to the truth. I did notice that there were no rings on her finger. As I walked away from her desk I'd already made up my mind that I was going to try and get something going with her. 
+ 
+
+===
+
+I met Gwen on my first day at work. She was the receptionist and the person who issued me my temporary ID badge and told me where to report in. To say that I was taken by the raven haired beauty with the deep blue eyes would be a massive understatement. Going gaa gaa over her would be closer to the truth. I did notice that there were no rings on her finger. As I walked away from her desk I'd already made up my mind that I was going to try and get something going with her. 
 
  Easier said than done. A beauty like Gwen had to be hit on all the time. She could take her pick from hundreds of guys. I would be one out of a herd of hundreds and I didn't have anything special going for me. I didn't think I was bad looking and I was in pretty good physical shape. Sports in high school and college had gotten me in damned good shape and after seeing the pudgy (and downright fat) ex-football players among the alumni who attended games I made a promise to myself that I would never be like that. I joined a gym when I graduated and I worked out regularly. But I was still only one of many and after being turned down seven times when I tried to get Gwen to date me I wrote her off as a lost cause. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Bob Gwen and Harlina ****** byJust_Plain_Bob© In the morning my head hurt, but then I knew it would while I was pounding down the drinks at Bud's. A handful of aspirin followed by several cups of black coffee got me into enough shape to make it to work. Luckily it was a busy day for me and by concentrating on the work at hand I was able to push Gwen to the back of my mind until quitting time. However she was back in the forefront when I got off work that afternoon. 
+ 
+
+===
+
+In the morning my head hurt, but then I knew it would while I was pounding down the drinks at Bud's. A handful of aspirin followed by several cups of black coffee got me into enough shape to make it to work. Luckily it was a busy day for me and by concentrating on the work at hand I was able to push Gwen to the back of my mind until quitting time. However she was back in the forefront when I got off work that afternoon. 
 
  She came back full force when I had to call a cab to take me to Bud's to pick up my car. Making the call reminded me of just why my car was at Bud's. I got my keys from Mike, had one beer and then left. I couldn't afford to try and drink away my sorrows. Cab home last night, cab to work that morning, cab to Bud's to get my car plus what I spent on booze the night before had put a severe dent in my available funds. 
 
@@ -354,7 +364,11 @@
 
  
 
- ****** Bob Gwen and Harlina ****** byJust_Plain_Bob© I spent a quiet evening at home. Quiet because I had my cell turned off and I hadn't plugged the phone back in. I watched a bit of TV and then turned it off and picked up a book that I had been reading. 
+ 
+
+===
+
+I spent a quiet evening at home. Quiet because I had my cell turned off and I hadn't plugged the phone back in. I watched a bit of TV and then turned it off and picked up a book that I had been reading. 
 
  +++++++++++++++++++++++++++++ 
 
@@ -536,7 +550,11 @@
 
  
 
- ****** Bob Gwen and Harlina ****** byJust_Plain_Bob© Mel and I looked good together and we had in fact placed in several dance contests at the Coach House Inn a few years back. When the song ended Mel kissed me on the cheek and said: 
+ 
+
+===
+
+Mel and I looked good together and we had in fact placed in several dance contests at the Coach House Inn a few years back. When the song ended Mel kissed me on the cheek and said: 
 
  "Call me; I've still got the same number." 
 

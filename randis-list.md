@@ -1,8 +1,14 @@
+Randi's List
+============
 #1 
 
  
 
- ****** Randi's List ****** byJust_Plain_Bob© Note: If you hate cream pie stories you had better give this one a pass. 
+ 
+
+===
+
+Note: If you hate cream pie stories you had better give this one a pass. 
 
  * 
 

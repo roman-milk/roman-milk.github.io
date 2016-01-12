@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Roberta
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Roberta ****** byJust_Plain_Bob© I am a slut wife! I didn't used to be one. For the first fifteen years of our marriage I was totally faithful to my husband. Not that I didn't have chances to be unfaithful because I did - lots of them - but I love my husband and couldn't bring myself to cheat on him. So how ironic is it that he turned me into a whore? 
+ 
+
+===
+
+I am a slut wife! I didn't used to be one. For the first fifteen years of our marriage I was totally faithful to my husband. Not that I didn't have chances to be unfaithful because I did - lots of them - but I love my husband and couldn't bring myself to cheat on him. So how ironic is it that he turned me into a whore? 
 
  My husband is a regional sales manager for a large electronics company here in Denver. One of his duties is to act as host of the cocktail parties that take place at conventions, sales seminars, etc. I usually attend these events with him and we always take a room at the hotel where the event is held. In this day and age of DUI's it just doesn't pay to take a chance on getting stopped driving home with the smell of alcohol on your breath. I like to attend these events because even though I didn't cheat on my husband I did enjoy the attention I got from the out of town businessmen and all the harmless flirting that went on. Just a little over two years ago I was at one of those parties when I began to feel a little woozy. I told my husband that I was going to go up to our room and lie down for a while. By the time I got up to the room I had made up my mind that I was not going to go back to the party so I undressed and went to bed. 
 

@@ -1,8 +1,14 @@
+Richard Miscalculates
+=====================
 #1 
 
  
 
- ****** Richard Miscalculates ****** byJust_Plain_Bob© "You do have a choice Richard. You don't have to do it, but life will be so much easier for you if you do. If you do it nothing changes except that you will never sleep in my bed again. Although I'm going to be taking on the role of CEO you will still be president of the company, you will still have your country club membership and you can even keep your bimbo. If you don't do it you are out of a job, homeless, probably not able to buy your little blond slut a cup of coffee and the only way you will be able to go to the country club is get a job there. So Richard, your choice; turn and head for the door or get down on your knees and crawl over here and suck on my freshly fucked, cum filled pussy." 
+ 
+
+===
+
+"You do have a choice Richard. You don't have to do it, but life will be so much easier for you if you do. If you do it nothing changes except that you will never sleep in my bed again. Although I'm going to be taking on the role of CEO you will still be president of the company, you will still have your country club membership and you can even keep your bimbo. If you don't do it you are out of a job, homeless, probably not able to buy your little blond slut a cup of coffee and the only way you will be able to go to the country club is get a job there. So Richard, your choice; turn and head for the door or get down on your knees and crawl over here and suck on my freshly fucked, cum filled pussy." 
 
  There was never any doubt in my mind what his choice would be. My Richard was nothing if not avaricious. He would crawl, he would grovel, and he would do whatever he had to do to stay close enough to me to be able to try and work his way back into my good graces. He would figure that since I had not thrown his ass out there would still be a chance. Not possible of course, but he did not know that. To him this was just another pothole on the road of life and he would use his charm and good looks to survive. He had done it before so he just knew he could do it again. 
 

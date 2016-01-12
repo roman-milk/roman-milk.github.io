@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Julie Hanson
+==================================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Julie Hanson ****** byJust_Plain_Bob© Charlie Hanson sat in his work cubicle and stared at his computer screen. His mind really wasn't at work. No, in fact his mind was 27.3 miles away at the little two-bedroom ranch at 1346 Morningside Drive. Specifically, his thoughts were in the master bedroom where eighty-seven minutes previous he had left his wife Julie crying on their bed. The argument they'd had was just one more born out of the frustrations of the past two months. 
+ 
+
+===
+
+Charlie Hanson sat in his work cubicle and stared at his computer screen. His mind really wasn't at work. No, in fact his mind was 27.3 miles away at the little two-bedroom ranch at 1346 Morningside Drive. Specifically, his thoughts were in the master bedroom where eighty-seven minutes previous he had left his wife Julie crying on their bed. The argument they'd had was just one more born out of the frustrations of the past two months. 
 
  ++++++++++++++++ 
 

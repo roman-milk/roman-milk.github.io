@@ -1,8 +1,14 @@
+Gangbang Chaperone
+==================
 #1 
 
  
 
- ****** Gangbang Chaperone ****** byfastandsloppy© It had been her first date without a curfew so I had no idea when Janie got home. It had to have been sometime between two AM, when I fell asleep on the couch watching old movies, and eight, when I woke up with the TV turned off and Jamie's window-rattling snore reverberating down the hall. I went to check on her and the sight of her bare leg poking out from under her comforter made me smile. She was eighteen years and one day old, safe at home and not pregnant. In our family, that last point was something to celebrate. 
+ 
+
+===
+
+It had been her first date without a curfew so I had no idea when Janie got home. It had to have been sometime between two AM, when I fell asleep on the couch watching old movies, and eight, when I woke up with the TV turned off and Jamie's window-rattling snore reverberating down the hall. I went to check on her and the sight of her bare leg poking out from under her comforter made me smile. She was eighteen years and one day old, safe at home and not pregnant. In our family, that last point was something to celebrate. 
 
  It was an unwanted family tradition. I had given birth to Jamie when I was sixteen, my mother had given birth to me when she was seventeen, my grandmother had given birth to my mom when she was fifteen and she wasn't even her first child. And so it went, a long string of very young mothers stretching back into the mists of time. Whether it was a blessing or a curse or just a simple function of genetics, the matriarchal side of our family tree has always had three things in common; big boobs, raging libidos and frightfully fertile loins. As a result, our fore-mothers had been subjected to strident religious indoctrination, social chastisement, arbitrary punishments, and even quarantine, but they always ended up with a baby in their belly and a disappointed family reluctantly committed to helping raise yet another unwanted bastard infant. 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Gangbang Chaperone ****** byfastandsloppy© This was all news to me. To hear a complete stranger tell me how my daughter was obsessing over cum was like a kick in the gut. Suddenly some of the oddly specific sexual questions she had been asking lately made a lot of sense. 
+ 
+
+===
+
+This was all news to me. To hear a complete stranger tell me how my daughter was obsessing over cum was like a kick in the gut. Suddenly some of the oddly specific sexual questions she had been asking lately made a lot of sense. 
 
  I looked over at her again. Her empty drink was on the bar and she sat holding a cock in each hand. The black man was pulling her panties off her ankles and the man behind her was unlatching the strap of her halter-top. Several of the other men had opened their robes and were stroking their cocks to attention. Her face was lit up with an enormous smile; at least, it was until her eyes fell on me again, at which point her face drooped into a disappointed scowl. 
 

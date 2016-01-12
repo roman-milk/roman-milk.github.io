@@ -1,8 +1,14 @@
+The Replacement
+===============
 #1 
 
  
 
- ****** The Replacement ****** byJust_Plain_Bob© I had my fingers dug into Glen's butt cheeks and my knees gripping him as best they could as he drove his cock hard into me. He was charged up that night and he had already made love to me three times and I knew the reason for it. 
+ 
+
+===
+
+I had my fingers dug into Glen's butt cheeks and my knees gripping him as best they could as he drove his cock hard into me. He was charged up that night and he had already made love to me three times and I knew the reason for it. 
 
  Glen had been after me for over a year to have sex with another man while he watched. He said it was because he wanted to see what I would look like in the throes of passion. He told me he could always feel it, but that he was too close to see. He wanted to be able to walk around the bed and look at me from all angles as I let a strange cock drive deep into me. He swore up and down that it wasn't his desire just to see me with a strange cock - he just wanted to see me as I responded. And then he would say: 
 

@@ -1,8 +1,14 @@
+Mom Submission
+==============
 #1 
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© SUMMARY: Catching my son nude fucking a MILF changes everything. 
+ 
+
+===
+
+SUMMARY: Catching my son nude fucking a MILF changes everything. 
 
  NOTE 1: This is a Nude Day 2013 Contest entry so please vote. Please note that nudity is not the main plot of the story and thus may not seem to fit the Nude Day theme...yet I disagree. The whole premise is based on a mother seeing her son nude which triggers a domino effect in her life that changes her from conservative mother to submissive plaything. 
 
@@ -300,7 +306,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© I slept in and was surprised at how refreshed I felt before I again recalled my wet dream. I got up, stretched, grabbed my robe, and had a long shower. 
+ 
+
+===
+
+I slept in and was surprised at how refreshed I felt before I again recalled my wet dream. I got up, stretched, grabbed my robe, and had a long shower. 
 
  At lunch, Joey was still asleep and I knew we were supposed to be over at the Wilkinson's soon for their annual block party barbecue, which they had every year. It was always an over the top affair with food, servants and music. I knocked on Joey's door and when he didn't answer I walked in to wake him up like I had all my life. Yet, when I walked in he was lying in his bed, completely uncovered, on his back, and his penis was fully erect in his boxers. Again, I had seen him in such attire before, but since having caught him yesterday in the act, at that moment I saw him no longer as just my son, but as a man. I froze, staring at his crotch, my head again clouded. Shaking my head, my sudden thoughts ridiculous, I moved to him and shook him awake. "Wake up sleepy-head; we have to be at the Wilkerson's in a couple of hours." 
 
@@ -600,7 +610,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© I could never refuse orders, flashing back again to college when my roommate Debra had me lick two of her friends to orgasm because she told me to. Obeying orders, making people happy, had always been my two greatest aphrodisiacs. My mind and body were already giving in, as my legs began to bend and my mind rationalized that I had done this many times before. 
+ 
+
+===
+
+I could never refuse orders, flashing back again to college when my roommate Debra had me lick two of her friends to orgasm because she told me to. Obeying orders, making people happy, had always been my two greatest aphrodisiacs. My mind and body were already giving in, as my legs began to bend and my mind rationalized that I had done this many times before. 
 
  "Good girl," she purred as I obeyed her command and once on my knees, fell onto all fours and crawled towards her. I didn't look up as I moved between her legs and to her surprisingly hairy cunt. 
 
@@ -944,7 +958,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© "There is?" I questioned, still shocked by my son's growing sexually prowess. I would have guessed he was still a virgin a day ago. 
+ 
+
+===
+
+"There is?" I questioned, still shocked by my son's growing sexually prowess. I would have guessed he was still a virgin a day ago. 
 
  "You already know about me and queen bitch," she said. "There is also Zelda, Eleanor and Bridget for sure and I think he finished his conquest of Pearl but I have not seen him since his attempt last week." 
 
@@ -1262,7 +1280,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© "No way," I said, still not able to comprehend just how sick and twisted my son was. 
+ 
+
+===
+
+"No way," I said, still not able to comprehend just how sick and twisted my son was. 
 
  "Ever peed your pantyhose?" Breanna asked. 
 
@@ -1624,7 +1646,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© "You won't regret it," she smiled, "anything else?" 
+ 
+
+===
+
+"You won't regret it," she smiled, "anything else?" 
 
  "I am going to sound like a nympho, but I would like to look at strap-ons." 
 
@@ -1992,7 +2018,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© I obliged as my body slammed into hers. 
+ 
+
+===
+
+I obliged as my body slammed into hers. 
 
  "Fuuuuck, yeeees," she screamed as I filled her completely. "Don't stop," she whimpered her breathing now erratic. 
 
@@ -2294,7 +2324,11 @@
 
  
 
- ****** Mom Submission ****** bysilkstockingslover© "Shiiiit," he groaned, as I took the majority of his cock in my mouth and began bobbing back and forth. 
+ 
+
+===
+
+"Shiiiit," he groaned, as I took the majority of his cock in my mouth and began bobbing back and forth. 
 
  Silence, other than my slobbering sounds, existed for a minute or two as I worshipped Joey's cock and Joey relished the reality of the moment. 
 

@@ -1,8 +1,14 @@
+Rob and Glenda
+==============
 #1 
 
  
 
- ****** Rob and Glenda ****** byJust_Plain_Bob© We had just gotten off work and Ben and I were sitting at the bar in Riley's Tavern sipping suds and shooting the shit while watching Monday Night Football on the TV. The game was just so-so, neither team seemingly able to get it together although the Broncos did manage to get a drive or two going even though they never capitalized on them. 
+ 
+
+===
+
+We had just gotten off work and Ben and I were sitting at the bar in Riley's Tavern sipping suds and shooting the shit while watching Monday Night Football on the TV. The game was just so-so, neither team seemingly able to get it together although the Broncos did manage to get a drive or two going even though they never capitalized on them. 
 
  A shot of the Broncos cheerleaders hit the screen and Ben nudged me and said: 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Rob and Glenda ****** byJust_Plain_Bob© "That's what we need to talk about. I don't understand what's going on here. I don't know why you are upset. You told me that it was okay." 
+ 
+
+===
+
+"That's what we need to talk about. I don't understand what's going on here. I don't know why you are upset. You told me that it was okay." 
 
  "I told you what?" 
 
@@ -440,7 +450,11 @@
 
  
 
- ****** Rob and Glenda ****** byJust_Plain_Bob© "And what would that be?" 
+ 
+
+===
+
+"And what would that be?" 
 
  "That we move in together and set up housekeeping. Assuming of course that you are through with Glenda." 
 

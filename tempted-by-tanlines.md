@@ -1,8 +1,14 @@
+Tempted by Tanlines
+===================
 #1 
 
  
 
- ****** Tempted by Tanlines ****** bygeronimo_appleby© Foreword: 
+ 
+
+===
+
+Foreword: 
 
  Something to boost the submissions in the Nude Day contest. A quick incest piece -- mother and son. He notices she's female and struggles to hold it in check. Sean's mother's penchant for nudity doesn't help his situation. Nor does her workout regime, with gym and yoga giving her a body he can't take his eyes off. 
 
@@ -298,7 +304,11 @@
 
  
 
- ****** Tempted by Tanlines ****** bygeronimo_appleby© My mother groans and judders, breath coming out as a sob. She lifts up her head and pulls me in for a kiss. Our lips touch and our tongues slide together, my cock buried deep as I pour the love into her body. 
+ 
+
+===
+
+My mother groans and judders, breath coming out as a sob. She lifts up her head and pulls me in for a kiss. Our lips touch and our tongues slide together, my cock buried deep as I pour the love into her body. 
 
  My eyes close and I wallow in the depravity of squirting my seed deep into my mother. It goes on and on and on. I groan and writhe and keep yanking away 'til I'm dry. I open my eyes when I'm sated. I'm on top of my bed, covered in cum and gasping for breath, heart pounding away. 
 
@@ -626,7 +636,11 @@
 
  
 
- ****** Tempted by Tanlines ****** bygeronimo_appleby© What comes out of my mouth is the entirely predictable, "Get out!" I wave her away while gasping, "What the hell are you doing?" 
+ 
+
+===
+
+What comes out of my mouth is the entirely predictable, "Get out!" I wave her away while gasping, "What the hell are you doing?" 
 
  "I just want to watch," she repeats. "Please." My mother stands at the side of the bed, squirming as she reaches down to yank at the sheet. 
 

@@ -1,8 +1,14 @@
+Serendipity: Blondie
+====================
 #1 
 
  
 
- ****** Serendipity: Blondie ****** byTx_Tall_Tales© -------------------------------- 
+ 
+
+===
+
+-------------------------------- 
 
  Most of my stories are largely based on real events that occurred in my misspent youth. Some of course are just fantasies, but even these usually have a seed of truth behind them, that sparked the fantasy. And of course I'm not a good enough writer to create people like these. Most are based on real people, or occasionally combinations of people. Of course the names have been change to protect the guilty. 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Serendipity: Blondie ****** byTx_Tall_Tales© My heart was pounding. My crotch was aching, and I could barely believe the audacity I had displayed in bringing this complete stranger into this semi- private space. 
+ 
+
+===
+
+My heart was pounding. My crotch was aching, and I could barely believe the audacity I had displayed in bringing this complete stranger into this semi- private space. 
 
  She stood there waiting just a couple of feet from the lone chair. 
 
@@ -258,7 +268,11 @@
 
  
 
- ****** Serendipity: Blondie ****** byTx_Tall_Tales© She went to bed over 5 hours ago. And I've spent the last 4 and a half hours trying to capture on paper this incredible experience. It's 4:00 am now. It'll be a bitch getting up in the morning, but I'm glad I've captured as much of this as possible while it's still fresh in my mind. 
+ 
+
+===
+
+She went to bed over 5 hours ago. And I've spent the last 4 and a half hours trying to capture on paper this incredible experience. It's 4:00 am now. It'll be a bitch getting up in the morning, but I'm glad I've captured as much of this as possible while it's still fresh in my mind. 
 
  ------------------------------------- 
 

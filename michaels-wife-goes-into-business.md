@@ -1,8 +1,14 @@
+Michael's Wife Goes Into Business
+=================================
 #1 
 
  
 
- ****** Michael's Wife Goes Into Business ****** byJust_Plain_Bob© My husband turned me into a prostitute, I'm loving it, and best of all - he doesn't know. 
+ 
+
+===
+
+My husband turned me into a prostitute, I'm loving it, and best of all - he doesn't know. 
 
  Michael changed jobs about six months ago and while the new job pays considerably more than his old one he has to spend about three weeks out of the month on the road traveling. I am a very highly sexed lady and going without a steady diet of my husband's cock had been very difficult for me. I had several opportunities to scratch my itch, but I loved my husband and so I kept my legs firmly closed. That is I did until I found out that Michael hadn't been as true to me as I had been to him. 
 

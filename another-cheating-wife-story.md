@@ -1,8 +1,14 @@
+Another Cheating Wife Story
+===========================
 #1 
 
  
 
- ****** Another Cheating Wife Story ****** byGotBacon© I'm Eric Jensen. I'm 39 years old. I stand 6' 2" and weigh around 210 pounds. I graduates from college with a bachelors degree in both computer science and business administration. 
+ 
+
+===
+
+I'm Eric Jensen. I'm 39 years old. I stand 6' 2" and weigh around 210 pounds. I graduates from college with a bachelors degree in both computer science and business administration. 
 
  I am the proud owner, CEO and Chairman of the Board of Computer Solutions. Simply, we write and sell software packages. We have packages for anyone from a Mom and Pop store to multinational corporations. My company is currently worth 3.8 million dollars and growing at a rate of about 5% per year. I hold 60% of the shares and each of our kids have 10%. I hire the best programmers, sales people and techs I can find. I pay the good ones well and have a very low turnover in personnel. 
 
@@ -406,7 +412,11 @@
 
  
 
- ****** Another Cheating Wife Story ****** byGotBacon© The front door opens and both kids walk in. They pass by the kitchen and go straight to their rooms. Ten minutes later Kevin walks into the kitchen. He opens the cabinet under the sink and pulls out a box of trash bags. He gives me a cold look and goes back to his room. I jump up and follow him. 
+ 
+
+===
+
+The front door opens and both kids walk in. They pass by the kitchen and go straight to their rooms. Ten minutes later Kevin walks into the kitchen. He opens the cabinet under the sink and pulls out a box of trash bags. He gives me a cold look and goes back to his room. I jump up and follow him. 
 
  "Kevin, what are you doing." 
 
@@ -700,7 +710,11 @@
 
  
 
- ****** Another Cheating Wife Story ****** byGotBacon© He divorce came final. She got $5000 per month alimony and $800 for each of her kids. She got the house and a new car. I guess Brian did quite well in business. She never indicated there were any problems. 
+ 
+
+===
+
+He divorce came final. She got $5000 per month alimony and $800 for each of her kids. She got the house and a new car. I guess Brian did quite well in business. She never indicated there were any problems. 
 
  Over the months, the kids mellowed toward their mother. The started out with lunch dates and slowly worked into a closer relationship. I heard tidbits of stuff about her. She started dating and went through quite a few men before she met a nice guy. The dated for about a year and finally moved in together. I never heard if they got married or not. I finally filed for divorce and the lawyers handled it. We didn't ask for anything from each other. 
 

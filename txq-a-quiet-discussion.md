@@ -1,8 +1,14 @@
+TxQ - A Quiet Discussion
+========================
 #1 
 
  
 
- ****** TxQ - A Quiet Discussion ****** byTx_Tall_Tales© =============================== 
+ 
+
+===
+
+=============================== 
 
  After the party discussion back home. 
 

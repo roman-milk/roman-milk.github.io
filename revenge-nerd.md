@@ -1,8 +1,14 @@
+Revenge of the Nerd: Bitch Sister
+=================================
 #1 
 
  
 
- ****** Revenge of the Nerd: Bitch Sister ****** bysilkstockingslover© Summary: Nerd uses formula to make his sister his submissive slut. 
+ 
+
+===
+
+Summary: Nerd uses formula to make his sister his submissive slut. 
 
  Thanks to: MAB7991, Robert, and goamz for editing this story. 
 
@@ -376,7 +382,11 @@
 
  
 
- ****** Revenge of the Nerd: Bitch Sister ****** bysilkstockingslover© "Who would I tell?" she questioned, part of her disgusted at how much she enjoyed being made into a slut by her brother, yet another part of her undeniably wanting to do it again. 
+ 
+
+===
+
+"Who would I tell?" she questioned, part of her disgusted at how much she enjoyed being made into a slut by her brother, yet another part of her undeniably wanting to do it again. 
 
  "Also, you will bring me Becky soon," he added. 
 
@@ -434,7 +444,11 @@
 
  
 
- ****** Revenge of the Nerd: Cheerleaders ****** bysilkstockingslover© Summary: Nerd uses formula to fuck sister and her best friend in the ass. 
+ 
+
+===
+
+Summary: Nerd uses formula to fuck sister and her best friend in the ass. 
 
  Brief Summary of Part 1: BITCH SISTER 
 
@@ -728,7 +742,11 @@
 
  
 
- ****** Revenge of the Nerd: Cheerleaders ****** bysilkstockingslover© "Seriously?" She asked, the offer instantly appealing. She greatly resented always being second string to Carrie. 
+ 
+
+===
+
+"Seriously?" She asked, the offer instantly appealing. She greatly resented always being second string to Carrie. 
 
  "I can make her unable to disobey you," he explained. 
 
@@ -1002,7 +1020,11 @@
 
  
 
- ****** Revenge of the Nerd: Ex-Bully's Mom ****** bysilkstockingslover© Summary: Nerd dominates bitchy MILF and takes her virgin asshole. 
+ 
+
+===
+
+Summary: Nerd dominates bitchy MILF and takes her virgin asshole. 
 
  This is part three of the Revenge of the Nerds Mind Control story. Here is a summary of the first two parts: 
 
@@ -1278,7 +1300,11 @@
 
  
 
- ****** Revenge of the Nerd: Ex-Bully's Mom ****** bysilkstockingslover© Parker threatened, "I'm going to kill you," even as he pondered, 'I wonder what his cock would feel like in my mouth'. 
+ 
+
+===
+
+Parker threatened, "I'm going to kill you," even as he pondered, 'I wonder what his cock would feel like in my mouth'. 
 
  "You now also crave cum," Brandon added. 
 
@@ -1594,7 +1620,11 @@
 
  
 
- ****** Revenge of the Nerd: Ex-Bully's Mom ****** bysilkstockingslover© "Then stop being a dumb bitch," I demanded. 
+ 
+
+===
+
+"Then stop being a dumb bitch," I demanded. 
 
  "Please, don't add more," the MILF pleaded. 
 
@@ -1616,7 +1646,11 @@
 
  
 
- ****** Revenge of the Nerd: Mom ****** bysilkstockingslover© Summary: Nerd ends up fucking his mom in an unorthodox way. 
+ 
+
+===
+
+Summary: Nerd ends up fucking his mom in an unorthodox way. 
 
  This is part four of the Revenge of the Nerds Mind Control story. Here is a summary of the first three parts: 
 
@@ -1946,7 +1980,11 @@
 
  
 
- ****** Revenge of the Nerd: Mom ****** bysilkstockingslover© Turning around, his dick still hard, "Oh, Mom." 
+ 
+
+===
+
+Turning around, his dick still hard, "Oh, Mom." 
 
  "Put your penis away," she ordered, even as she tried not to stare at her son's very impressive big cock, even bigger than her husband's. 
 
@@ -2314,7 +2352,11 @@
 
  
 
- ****** Revenge of the Nerd: Mom ****** bysilkstockingslover© "Go make supper, Carrie," Elizabeth ordered, thinking she now had a live in maid as well. "Your brother and I have some catching up to do." 
+ 
+
+===
+
+"Go make supper, Carrie," Elizabeth ordered, thinking she now had a live in maid as well. "Your brother and I have some catching up to do." 
 
  "Mom," Carrie whined, wanting her ass filled. 
 

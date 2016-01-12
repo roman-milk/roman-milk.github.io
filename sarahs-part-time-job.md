@@ -1,8 +1,14 @@
+Sarah's Part Time Job
+=====================
 #1 
 
  
 
- ****** Sarah's Part Time Job ****** byJust_Plain_Bob© Sarah was a raving beauty and I had lusted after her from the very first day she came to work for me. Jet black hair that hung down to the middle of her back; 36 C cup breasts on a five foot five frame that probably was carrying about a hundred and twenty-five pounds and with an ass to die for. I would call her in the office and give her some meaningless, trivial task just so I could watch her ass as she walked out of the room. 
+ 
+
+===
+
+Sarah was a raving beauty and I had lusted after her from the very first day she came to work for me. Jet black hair that hung down to the middle of her back; 36 C cup breasts on a five foot five frame that probably was carrying about a hundred and twenty-five pounds and with an ass to die for. I would call her in the office and give her some meaningless, trivial task just so I could watch her ass as she walked out of the room. 
 
  Sarah only had one major flaw; she was married (women that nice usually are) and she had two kids, but that didn't stop me from trying to hustle her into bed. This was in the days before sexual harassment became common place, but it was still frowned upon. In fact, our company's Policy and Procedures Manual made reference to relationships between supervisors and subordinates, but I ignored it because she was that nice. Besides, I owned the company and had written the CP&P and I would revise it if I had to. 
 
@@ -242,7 +248,11 @@
 
  
 
- ****** Sarah's Part Time Job ****** byJust_Plain_Bob© "What's the payment?" 
+ 
+
+===
+
+"What's the payment?" 
 
  "Eleven hundred a month." 
 
@@ -490,7 +500,11 @@
 
  
 
- ****** Sarah's Part Time Job ****** byJust_Plain_Bob© I walked over to the counter and got an envelope and handed it to her. She opened it and I saw her eyes go big as she saw all the hundred dollar bills. 
+ 
+
+===
+
+I walked over to the counter and got an envelope and handed it to her. She opened it and I saw her eyes go big as she saw all the hundred dollar bills. 
 
  "There is thirty-five hundred there. Eighteen for last night and an extra seventeen that will give you enough to bring your house payments up to date. Call it a signing bonus. What do you say?" 
 

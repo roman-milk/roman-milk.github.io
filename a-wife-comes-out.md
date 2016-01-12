@@ -1,8 +1,14 @@
+A Wife Comes Out
+================
 #1 
 
  
 
- ****** A Wife Comes Out ****** byJust_Plain_Bob© My husband has been after me for several months now to write this story, but I have reluctant because I've never been all that good with the written word. I hope it's not so bad that you chose not to publish it as Al is so looking forward to see the story in print. 
+ 
+
+===
+
+My husband has been after me for several months now to write this story, but I have reluctant because I've never been all that good with the written word. I hope it's not so bad that you chose not to publish it as Al is so looking forward to see the story in print. 
 
  My name is Melanie and I'm a forty-year-old working mother of three. I am what some would call 'pleasingly plump' being small waisted, but somewhat heavy in the breast and hip areas. My best feature is my legs and I have always been very aware of that fact so I dress to accentuate them. I must own over thirty pair of high heels, most in the style referred to as 'come-fuck-me' pumps, most of my skirts are short and as a result I seem to attract male attention wherever I go. 
 

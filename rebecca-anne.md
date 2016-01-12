@@ -1,8 +1,14 @@
+Rebecca Anne
+============
 #1 
 
  
 
- ****** Rebecca Anne ****** byJust_Plain_Bob© It came at me out of the blue. We had just finished dinner and Becky was washing the dishes and I was drying them and putting them away when Becky said: 
+ 
+
+===
+
+It came at me out of the blue. We had just finished dinner and Becky was washing the dishes and I was drying them and putting them away when Becky said: 
 
  "Have you ever had an affair or thought of having one?" 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Rebecca Anne ****** byJust_Plain_Bob© It was eleven-thirty when Becky came in the door. She looked terrible. Her left eye was black, her nose was bandaged and she had a large Band-Aid on her forehead. I took one look at her and said: 
+ 
+
+===
+
+It was eleven-thirty when Becky came in the door. She looked terrible. Her left eye was black, her nose was bandaged and she had a large Band-Aid on her forehead. I took one look at her and said: 
 
  "Damn! Stan's wife must have really been pissed." 
 

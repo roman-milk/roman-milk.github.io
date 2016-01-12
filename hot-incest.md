@@ -1,8 +1,14 @@
+Hot Incest
+==========
 #1 
 
  
 
- ****** Hot Incest ****** byGotBacon© Dan was a well-adjusted 18 yr. old. He is into video games and sports. He especially likes football and wrestling. He is very good at both. He hasn't decided if he is going to college or not. 
+ 
+
+===
+
+Dan was a well-adjusted 18 yr. old. He is into video games and sports. He especially likes football and wrestling. He is very good at both. He hasn't decided if he is going to college or not. 
 
  He is still a virgin in spite of all the offers he gets. He dated a few girls, but none of them fired his rocket. He dates them so no bad rumors get started about him. He is just good friends with them. He only has eyes for his mother. 
 
@@ -420,7 +426,11 @@
 
  
 
- ****** Hot Incest ****** byGotBacon© "Yeah, baby boy." 
+ 
+
+===
+
+"Yeah, baby boy." 
 
  He laughs and pulls her in his arms. His cock is half hard from looking at her nipples. 
 
@@ -854,7 +864,11 @@
 
  
 
- ****** Hot Incest ****** byGotBacon© "Carl. Watch this. Your mama is gonna fuck my son. Let's watch and then I'll fuck you. How does that sound." 
+ 
+
+===
+
+"Carl. Watch this. Your mama is gonna fuck my son. Let's watch and then I'll fuck you. How does that sound." 
 
  Carl gulps. 
 
@@ -1018,7 +1032,11 @@
 
  
 
- ****** Hot Incest Ch. 02 ****** byGotBacon© I've decided to let Bill vanish into the ether. Jan and Carl are on hold. As this started with Dan and Carol so let's move along with them. 
+ 
+
+===
+
+I've decided to let Bill vanish into the ether. Jan and Carl are on hold. As this started with Dan and Carol so let's move along with them. 
 
  Life for the four has settled into a nice routine. The babies are old enough to sleep all night and they are on solid food. Now, it's just dirty diapers and lots of love for them. They are so proud of their babies. They don't care who is the father of which one. Carol's baby is Daniel and Jan's is William. Carol is on the pill. 
 
@@ -1462,7 +1480,11 @@
 
  
 
- ****** Hot Incest Ch. 02 ****** byGotBacon© Dan is stretching out, getting ready to run. He notices a girl walk out from the shower room. He stops and checks her out. 
+ 
+
+===
+
+Dan is stretching out, getting ready to run. He notices a girl walk out from the shower room. He stops and checks her out. 
 
  'hmmm, nice long legs, pretty face, great ass and ok boobs. I need to meet her.' 
 
@@ -1928,7 +1950,11 @@
 
  
 
- ****** Hot Incest Ch. 02 ****** byGotBacon© He reaches down and rubs her pussy though her pants. He pushes up against his hand. He unfastens them and pulls them down. She lifts her hips to help him. 
+ 
+
+===
+
+He reaches down and rubs her pussy though her pants. He pushes up against his hand. He unfastens them and pulls them down. She lifts her hips to help him. 
 
  "Dan. You make me so hot. Your hands feel so good on me." 
 
@@ -2184,7 +2210,11 @@
 
  
 
- ****** Hot Incest Ch. 03 ****** byGotBacon© "Hi Jan. You need to sit down. You won't believe what I have to tell you." 
+ 
+
+===
+
+"Hi Jan. You need to sit down. You won't believe what I have to tell you." 
 
  "Dan made the wrestling team and I met his coach. His name is Glenn. Dan invited him to dinner and we hit it off right away. He is really a sweetheart. We went out to dinner and dancing. On our second date I fucked his brains out. He is the nicest guy you would ever want to meet. And he knows exactly what to do with his cock and his tongue. I have some really good feelings about him." 
 
@@ -2598,7 +2628,11 @@
 
  
 
- ****** Hot Incest Ch. 03 ****** byGotBacon© "Oh god, yes. Yes yes. My nipples and pussy. Yes. Yes. Cumming hard. Oh god, yes." 
+ 
+
+===
+
+"Oh god, yes. Yes yes. My nipples and pussy. Yes. Yes. Cumming hard. Oh god, yes." 
 
  "Cum in her Glenn. Fill her pussy. Shoot that hot cum in her. Make her scream some more." 
 
@@ -2988,7 +3022,11 @@
 
  
 
- ****** Hot Incest Ch. 03 ****** byGotBacon© "Good for her. Is she going to stay here. Dan's room is empty. She could use it." 
+ 
+
+===
+
+"Good for her. Is she going to stay here. Dan's room is empty. She could use it." 
 
  "That was my plan. Are you ok with it.?" 
 

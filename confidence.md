@@ -1,10 +1,16 @@
+Confidence Ch. 01
+=================
 #1  
 
  
 
  
 
-  ****** Confidence Ch. 01 ****** byBoratus© I looked down at the raven-haired vixen before me, dutifully sucking my cock as her fingers gently played with my balls. It was amazing how much my life had changed in such a short time. Only weeks ago I was a thirty-five year-old virgin and now this girl woman before me, this sexy, intelligent, seductive beauty would not only have sex with me, but she'd do practically anything I'd tell her to do. For a while anyway.  
+  
+
+===
+
+I looked down at the raven-haired vixen before me, dutifully sucking my cock as her fingers gently played with my balls. It was amazing how much my life had changed in such a short time. Only weeks ago I was a thirty-five year-old virgin and now this girl woman before me, this sexy, intelligent, seductive beauty would not only have sex with me, but she'd do practically anything I'd tell her to do. For a while anyway.  
 
   She glanced up at me to check if I was enjoying her services. I smiled with approval and she did something that sent a jolt of pleasure through my entire body. My head whipped back as I moaned. When I looked back down she smiled at me before doing it again. Playful minx. I decided to remind who was in charge by grabbing her head and shoving my cock as deeply into her mouth as I could. I don't have a big cock. I would have to say I'm average. In fact, average would be the best way to describe me; average height, average weight, average looks, average salary. I don't work out. I'll play sports when I'm invited, which is generally during summer months when a random game breaks out at the park. I'm pretty much a geek into sci-fi and video games, but I love watching football too. I hang out with my buds at the bar on Saturday nights, never scoring, and on Sundays at one of our houses, killing enemy soldiers, zombies, or each other in various games. I have a 9-5 blue collar job and a manageable credit card debt.  
 
@@ -264,7 +270,11 @@
 
  
 
-  ****** Confidence Ch. 01 ****** byBoratus© "So Tina gets the kiss?" asked Allison.  
+  
+
+===
+
+"So Tina gets the kiss?" asked Allison.  
 
   I smiled at her. "Tina got the first kiss." I moved my arm up around her neck and pulled her in for a kiss. At the same time, my other hand wasted no time sliding up Tina's thigh to rub against her clit. She gasped but didn't stop me. Allison and I continued to make out, getting more passionate. My fingers slipped under Tina's thong and went to work, getting wet from her immediately. Tina's hand grasped my leg tightly as she whimpered high pitched sounds of pleasure. Allison's hand, meanwhile, moved down to my crotch and rubbed it.  
 
@@ -378,7 +388,11 @@
 
  
 
- ****** Confidence Ch. 01 ****** byBoratus© I looked down at the raven-haired vixen before me, dutifully sucking my cock as her fingers gently played with my balls. It was amazing how much my life had changed in such a short time. Only weeks ago I was a thirty-five year-old virgin and now this girl woman before me, this sexy, intelligent, seductive beauty would not only have sex with me, but she'd do practically anything I'd tell her to do. For a while anyway. 
+ 
+
+===
+
+I looked down at the raven-haired vixen before me, dutifully sucking my cock as her fingers gently played with my balls. It was amazing how much my life had changed in such a short time. Only weeks ago I was a thirty-five year-old virgin and now this girl woman before me, this sexy, intelligent, seductive beauty would not only have sex with me, but she'd do practically anything I'd tell her to do. For a while anyway. 
 
  She glanced up at me to check if I was enjoying her services. I smiled with approval and she did something that sent a jolt of pleasure through my entire body. My head whipped back as I moaned. When I looked back down she smiled at me before doing it again. Playful minx. I decided to remind who was in charge by grabbing her head and shoving my cock as deeply into her mouth as I could. I don't have a big cock. I would have to say I'm average. In fact, average would be the best way to describe me; average height, average weight, average looks, average salary. I don't work out. I'll play sports when I'm invited, which is generally during summer months when a random game breaks out at the park. I'm pretty much a geek into sci-fi and video games, but I love watching football too. I hang out with my buds at the bar on Saturday nights, never scoring, and on Sundays at one of our houses, killing enemy soldiers, zombies, or each other in various games. I have a 9-5 blue collar job and a manageable credit card debt. 
 
@@ -636,7 +650,11 @@
 
  
 
- ****** Confidence Ch. 01 ****** byBoratus© "So Tina gets the kiss?" asked Allison. 
+ 
+
+===
+
+"So Tina gets the kiss?" asked Allison. 
 
  I smiled at her. "Tina got the first kiss." I moved my arm up around her neck and pulled her in for a kiss. At the same time, my other hand wasted no time sliding up Tina's thigh to rub against her clit. She gasped but didn't stop me. Allison and I continued to make out, getting more passionate. My fingers slipped under Tina's thong and went to work, getting wet from her immediately. Tina's hand grasped my leg tightly as she whimpered high pitched sounds of pleasure. Allison's hand, meanwhile, moved down to my crotch and rubbed it. 
 
@@ -752,7 +770,11 @@
 
  
 
-  ****** Confidence Ch. 02 ****** byBoratus© I woke with a start. I had crawled onto the bed with the girls and dozed off. I looked around me at the tangle of flesh. Both girls snuggled, contented, on either side of me. My eyes moved to the clock by my bed. It was 3:30. Shit! I had a half hour to get these girls out before I broke down into a quivering mass of insecurity.  
+  
+
+===
+
+I woke with a start. I had crawled onto the bed with the girls and dozed off. I looked around me at the tangle of flesh. Both girls snuggled, contented, on either side of me. My eyes moved to the clock by my bed. It was 3:30. Shit! I had a half hour to get these girls out before I broke down into a quivering mass of insecurity.  
 
   Tina stirred, saw me awake and moved up to kiss me.  
 
@@ -1116,7 +1138,11 @@
 
  
 
-  ****** Confidence Ch. 02 ****** byBoratus© I didn't cum in Allison's mouth, only Tina's, and the drug is consumed orally. So at nine o'clock the next morning she became Miss Confident, and at five o'clock she became Miss Insecure and that's showing, but there's something more going on here. She didn't hole up in her house or apartment or wherever she lives like I did. She came to me and she's been trying to please me like ... like ... like I'm her dealer!  
+  
+
+===
+
+I didn't cum in Allison's mouth, only Tina's, and the drug is consumed orally. So at nine o'clock the next morning she became Miss Confident, and at five o'clock she became Miss Insecure and that's showing, but there's something more going on here. She didn't hole up in her house or apartment or wherever she lives like I did. She came to me and she's been trying to please me like ... like ... like I'm her dealer!  
 
   I wanted to take the drug last night. The urge was so strong, but I knew what was going on and stopped myself. Tina doesn't. She came here for a fix ... and I already gave it to her! Oh fuck.  
 
@@ -1318,7 +1344,11 @@
 
  
 
- ****** Confidence Ch. 02 ****** byBoratus© I woke with a start. I had crawled onto the bed with the girls and dozed off. I looked around me at the tangle of flesh. Both girls snuggled, contented, on either side of me. My eyes moved to the clock by my bed. It was 3:30. Shit! I had a half hour to get these girls out before I broke down into a quivering mass of insecurity. 
+ 
+
+===
+
+I woke with a start. I had crawled onto the bed with the girls and dozed off. I looked around me at the tangle of flesh. Both girls snuggled, contented, on either side of me. My eyes moved to the clock by my bed. It was 3:30. Shit! I had a half hour to get these girls out before I broke down into a quivering mass of insecurity. 
 
  Tina stirred, saw me awake and moved up to kiss me. 
 
@@ -1680,7 +1710,11 @@
 
  
 
- ****** Confidence Ch. 02 ****** byBoratus© I didn't cum in Allison's mouth, only Tina's, and the drug is consumed orally. So at nine o'clock the next morning she became Miss Confident, and at five o'clock she became Miss Insecure and that's showing, but there's something more going on here. She didn't hole up in her house or apartment or wherever she lives like I did. She came to me and she's been trying to please me like ... like ... like I'm her dealer! 
+ 
+
+===
+
+I didn't cum in Allison's mouth, only Tina's, and the drug is consumed orally. So at nine o'clock the next morning she became Miss Confident, and at five o'clock she became Miss Insecure and that's showing, but there's something more going on here. She didn't hole up in her house or apartment or wherever she lives like I did. She came to me and she's been trying to please me like ... like ... like I'm her dealer! 
 
  I wanted to take the drug last night. The urge was so strong, but I knew what was going on and stopped myself. Tina doesn't. She came here for a fix ... and I already gave it to her! Oh fuck. 
 
@@ -1884,7 +1918,11 @@
 
  
 
-  ****** Confidence Ch. 03 ****** byBoratus© "Any fantasies you'd like to try, Allison?" I asked as I stroked her unconscious friend's head that currently rested on my lap.  
+  
+
+===
+
+"Any fantasies you'd like to try, Allison?" I asked as I stroked her unconscious friend's head that currently rested on my lap.  
 
   The big tittied blonde stared off into space for a moment as she went through a list. "There's one thing I've always wanted to try, but I've been too scared. Plus, we'd have to leave to do it."  
 
@@ -2266,7 +2304,11 @@
 
  
 
-  ****** Confidence Ch. 03 ****** byBoratus© It was 2am before we all fell asleep. At 4am I woke up to the sounds of moans. I'd fallen asleep between two of the girls, but now I'd been pushed to one side. Allison lay with her legs wrapped around Sunita's head. Sunita meanwhile was on her elbows and knees while Tina frigged her from behind. Tina looked over at me first with worry, then with anger, though not at me. She smacked Sunita's ass hard.  
+  
+
+===
+
+It was 2am before we all fell asleep. At 4am I woke up to the sounds of moans. I'd fallen asleep between two of the girls, but now I'd been pushed to one side. Allison lay with her legs wrapped around Sunita's head. Sunita meanwhile was on her elbows and knees while Tina frigged her from behind. Tina looked over at me first with worry, then with anger, though not at me. She smacked Sunita's ass hard.  
 
   "Stupid slut, you woke up Master," she said. "Sorry, Master. Ali wanted to try the slut's tongue." She smacked Sunita's ass a few more times. "I so wish I had a strap-on. I'll have to buy one later today."  
 
@@ -2474,7 +2516,11 @@
 
  
 
- ****** Confidence Ch. 03 ****** byBoratus© "Any fantasies you'd like to try, Allison?" I asked as I stroked her unconscious friend's head that currently rested on my lap. 
+ 
+
+===
+
+"Any fantasies you'd like to try, Allison?" I asked as I stroked her unconscious friend's head that currently rested on my lap. 
 
  The big tittied blonde stared off into space for a moment as she went through a list. "There's one thing I've always wanted to try, but I've been too scared. Plus, we'd have to leave to do it." 
 
@@ -2854,7 +2900,11 @@
 
  
 
- ****** Confidence Ch. 03 ****** byBoratus© It was 2am before we all fell asleep. At 4am I woke up to the sounds of moans. I'd fallen asleep between two of the girls, but now I'd been pushed to one side. Allison lay with her legs wrapped around Sunita's head. Sunita meanwhile was on her elbows and knees while Tina frigged her from behind. Tina looked over at me first with worry, then with anger, though not at me. She smacked Sunita's ass hard. 
+ 
+
+===
+
+It was 2am before we all fell asleep. At 4am I woke up to the sounds of moans. I'd fallen asleep between two of the girls, but now I'd been pushed to one side. Allison lay with her legs wrapped around Sunita's head. Sunita meanwhile was on her elbows and knees while Tina frigged her from behind. Tina looked over at me first with worry, then with anger, though not at me. She smacked Sunita's ass hard. 
 
  "Stupid slut, you woke up Master," she said. "Sorry, Master. Ali wanted to try the slut's tongue." She smacked Sunita's ass a few more times. "I so wish I had a strap-on. I'll have to buy one later today." 
 
@@ -3064,7 +3114,11 @@
 
  
 
-  ****** Confidence Ch. 04 ****** byBoratus© I woke to the most amazing feeling in the world: having my cock sucked. I lay there enjoying the bliss of the warm, wet, velvety mouth for almost a minute until I realized that I was supposed to be alone. My eyes shot open. Sunita's head bobbed up and down happily. She hadn't noticed I was awake yet.  
+  
+
+===
+
+I woke to the most amazing feeling in the world: having my cock sucked. I lay there enjoying the bliss of the warm, wet, velvety mouth for almost a minute until I realized that I was supposed to be alone. My eyes shot open. Sunita's head bobbed up and down happily. She hadn't noticed I was awake yet.  
 
   What the fuck? How did she get in here? How do I get her out? I can't make her stop. I don't want to upset her, but if she doesn't stop soon I'm going to blow in her mouth. What do I do? What do I say?  
 
@@ -3514,7 +3568,11 @@
 
  
 
-  ****** Confidence Ch. 04 ****** byBoratus© This is a fucking mess.  
+  
+
+===
+
+This is a fucking mess.  
 
   Sunita raised the frying pan again and I had to grab her to keep from beating the unconscious man.  
 
@@ -3576,7 +3634,11 @@
 
  
 
- ****** Confidence Ch. 04 ****** byBoratus© I woke to the most amazing feeling in the world: having my cock sucked. I lay there enjoying the bliss of the warm, wet, velvety mouth for almost a minute until I realized that I was supposed to be alone. My eyes shot open. Sunita's head bobbed up and down happily. She hadn't noticed I was awake yet. 
+ 
+
+===
+
+I woke to the most amazing feeling in the world: having my cock sucked. I lay there enjoying the bliss of the warm, wet, velvety mouth for almost a minute until I realized that I was supposed to be alone. My eyes shot open. Sunita's head bobbed up and down happily. She hadn't noticed I was awake yet. 
 
  What the fuck? How did she get in here? How do I get her out? I can't make her stop. I don't want to upset her, but if she doesn't stop soon I'm going to blow in her mouth. What do I do? What do I say? 
 
@@ -4024,7 +4086,11 @@
 
  
 
- ****** Confidence Ch. 04 ****** byBoratus© This is a fucking mess. 
+ 
+
+===
+
+This is a fucking mess. 
 
  Sunita raised the frying pan again and I had to grab her to keep from beating the unconscious man. 
 
@@ -4088,7 +4154,11 @@
 
  
 
-  ****** Confidence Ch. 05 ****** byBoratus© When I woke up I was feeling like my old self again. Better actually. That confidence suggestion I gave myself seemed to be holding. I lay there spooning Sunita who was still asleep. My morning hard-on pressed up against her ass. As I shifted she unconsciously wiggled back against me.  
+  
+
+===
+
+When I woke up I was feeling like my old self again. Better actually. That confidence suggestion I gave myself seemed to be holding. I lay there spooning Sunita who was still asleep. My morning hard-on pressed up against her ass. As I shifted she unconsciously wiggled back against me.  
 
   Damn that feels good.  
 
@@ -4486,7 +4556,11 @@
 
  
 
-  ****** Confidence Ch. 05 ****** byBoratus© I looked over to Sunita. "Is that true?"  
+  
+
+===
+
+I looked over to Sunita. "Is that true?"  
 
   She nodded. "Yes, Master. He's a good husband except when it comes to passion."  
 
@@ -4588,7 +4662,11 @@
 
  
 
- ****** Confidence Ch. 05 ****** byBoratus© When I woke up I was feeling like my old self again. Better actually. That confidence suggestion I gave myself seemed to be holding. I lay there spooning Sunita who was still asleep. My morning hard-on pressed up against her ass. As I shifted she unconsciously wiggled back against me. 
+ 
+
+===
+
+When I woke up I was feeling like my old self again. Better actually. That confidence suggestion I gave myself seemed to be holding. I lay there spooning Sunita who was still asleep. My morning hard-on pressed up against her ass. As I shifted she unconsciously wiggled back against me. 
 
  Damn that feels good. 
 
@@ -4984,7 +5062,11 @@
 
  
 
- ****** Confidence Ch. 05 ****** byBoratus© I looked over to Sunita. "Is that true?" 
+ 
+
+===
+
+I looked over to Sunita. "Is that true?" 
 
  She nodded. "Yes, Master. He's a good husband except when it comes to passion." 
 

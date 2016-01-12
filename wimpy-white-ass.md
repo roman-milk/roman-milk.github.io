@@ -1,8 +1,14 @@
+Wimpy White Ass
+===============
 #1 
 
  
 
- ****** Wimpy White Ass ****** byJust_Plain_Bob© It started out innocently enough. Carolyn and I had been married for just a little over seven years and while we were happy together the bloom had left the rose as far as sex was concerned. I didn't understand it. Carolyn was beautiful, sexy and a fun person to be around, but the passion, the pure lust we had experienced in the beginning was gone. 
+ 
+
+===
+
+It started out innocently enough. Carolyn and I had been married for just a little over seven years and while we were happy together the bloom had left the rose as far as sex was concerned. I didn't understand it. Carolyn was beautiful, sexy and a fun person to be around, but the passion, the pure lust we had experienced in the beginning was gone. 
 
  At first it was two or three times a day every day and then over the years it had gradually slowed down until it was once a week or even once every two weeks. We went from chasing each other around the house and ripping each other's clothes off to "You want to?" "Sure, why not." It wasn't just one sided either. Whatever it was that was affecting me affected Carolyn also; she seemed just as disinterested as I did. It wasn't mental or physical because I constantly got erections from seeing other sexy women and I'm pretty sure from the expressions on Carolyn's face when she eyed other guys that she was experiencing the female counterpart of me getting an erection. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Wimpy White Ass ****** byJust_Plain_Bob© The third time she did it she had gotten up to go to the bathroom and I had followed her. "He wants me to go out to the parking lot with him. Should I do it?" 
+ 
+
+===
+
+The third time she did it she had gotten up to go to the bathroom and I had followed her. "He wants me to go out to the parking lot with him. Should I do it?" 
 
  "Do you want to?" 
 

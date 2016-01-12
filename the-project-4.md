@@ -1,8 +1,14 @@
+The Project
+===========
 #1 
 
  
 
- ****** The Project ****** byJust_Plain_Bob© She was hot! She was hot and she knew it. The table had been 'guy central' as guy after guy made the pilgrimage to the shrine to ask for her to bestow even the smallest amount of attention on them. She danced with a few, but turned three times as many away. 
+ 
+
+===
+
+She was hot! She was hot and she knew it. The table had been 'guy central' as guy after guy made the pilgrimage to the shrine to ask for her to bestow even the smallest amount of attention on them. She danced with a few, but turned three times as many away. 
 
  Some things never change. 
 
@@ -246,7 +252,11 @@
 
  
 
- ****** The Project ****** byJust_Plain_Bob© "No problem." 
+ 
+
+===
+
+"No problem." 
 
  Mellissa said, "He cooks too?" 
 

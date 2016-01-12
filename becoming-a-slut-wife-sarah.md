@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Sarah Ch. 01
+==================================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 01 ****** byJust_Plain_Bob© Sarah looked down at the sleeping form on the bed and once again wondered what was wrong with her. She loved Tim with all her heart and she knew that she would die for him if need be so how could she do to him what she was doing? It would be one thing if Tim was lousy in bed, but he was a wonderful lover. And it wasn't because they did not get along; they had a wonderful and loving relationship. After having seen the way the marriages of some of her friends were she knew just how blessed she was. So what was it? Was there such a thing as a slut gene? A gene that made you a cock crazy slut? Whatever it was that caused her to do what she was doing she prayed to God that Tim would never find out. 
+ 
+
+===
+
+Sarah looked down at the sleeping form on the bed and once again wondered what was wrong with her. She loved Tim with all her heart and she knew that she would die for him if need be so how could she do to him what she was doing? It would be one thing if Tim was lousy in bed, but he was a wonderful lover. And it wasn't because they did not get along; they had a wonderful and loving relationship. After having seen the way the marriages of some of her friends were she knew just how blessed she was. So what was it? Was there such a thing as a slut gene? A gene that made you a cock crazy slut? Whatever it was that caused her to do what she was doing she prayed to God that Tim would never find out. 
 
  +++++++++++++++ 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 02 ****** byJust_Plain_Bob© For the next three weeks the pattern was the same. She would meet Brian in room 312 of the Hampton and Brian would answer the door already stripped down to his boxers. She would strip, put her high heels back on and then climb on the bed and suck him off. She would keep sucking until he was hard again and then he would fuck her to several orgasms and after he came she would suck him hard again and then he would take her ass. They never kissed and she never did more than nod her head when he told her something. He never asked, he just told her what he wanted and she always nodded a yes. 
+ 
+
+===
+
+For the next three weeks the pattern was the same. She would meet Brian in room 312 of the Hampton and Brian would answer the door already stripped down to his boxers. She would strip, put her high heels back on and then climb on the bed and suck him off. She would keep sucking until he was hard again and then he would fuck her to several orgasms and after he came she would suck him hard again and then he would take her ass. They never kissed and she never did more than nod her head when he told her something. He never asked, he just told her what he wanted and she always nodded a yes. 
 
  The fourth Tuesday she broke the pattern. After taking Brian in her ass she got up and washed his cock off and then deep throated him to get him up again and then she took him in her pussy for the second time that day. She also spoke to him for the first time: 
 
@@ -300,7 +310,11 @@
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 03 ****** byJust_Plain_Bob© On the way home Sarah wondered what kind of excuse she could use if Tim wanted to make love that night. A good douche would take care of the sloppy wetness, but she couldn't think of anything that would tighten her pussy up other than time. She would have to stall Tim at least for a day and maybe even two. One more reason to put a stop to what she was doing. It just wasn't right that Tim should be denied his rights as a husband because she couldn't seem to say no to Brian. Well she was going to say no. She was not going to give him the two weeks that Tim was gone. Brian had seen the last of her. 
+ 
+
+===
+
+On the way home Sarah wondered what kind of excuse she could use if Tim wanted to make love that night. A good douche would take care of the sloppy wetness, but she couldn't think of anything that would tighten her pussy up other than time. She would have to stall Tim at least for a day and maybe even two. One more reason to put a stop to what she was doing. It just wasn't right that Tim should be denied his rights as a husband because she couldn't seem to say no to Brian. Well she was going to say no. She was not going to give him the two weeks that Tim was gone. Brian had seen the last of her. 
 
  However she did have a fresh problem to work out - Dave! From the way he had acted he was obviously expecting to have more sex with her and she would need to shut him down, but she would have to do it in a nice way. If she had to she could tell Brian to go piss up a rope, but she couldn't do that with Dave, not and expect to continue working for him. She would be polite, but firm. She would tell him that it had been enjoyable, but that it was a one time thing. She would tell him that she loved her husband and valued her marriage and that she could never again do anything that would put it at risk. Dave was married so he should understand where she was coming from. Yes, that was the way to do it, polite but firm. 
 
@@ -492,7 +506,11 @@
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 04 ****** byJust_Plain_Bob© Sarah got home at twenty after five and began working on the speech she was going to give Brian. She would tell him that she loved Tim deeply and didn't want to lose him which is what was sure to happen if she got caught cheating on him. 
+ 
+
+===
+
+Sarah got home at twenty after five and began working on the speech she was going to give Brian. She would tell him that she loved Tim deeply and didn't want to lose him which is what was sure to happen if she got caught cheating on him. 
 
  "And I would get caught" she would say. "Sooner or later I'd make a slip or do something that would make him suspicious. The only way to keep that from happening is to stop things right now." 
 
@@ -638,7 +656,11 @@
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 05 ****** byJust_Plain_Bob© She awoke Monday morning and she felt like she was going through withdrawal. Sunday had been the first day in weeks that she hadn't had a cock. The day had been a nervous and irritable one for her and her mother had asked her if she was feeling well. After her mother and sister had gone she had spent the rest of the day cleaning house while feeling fidgety and then that night she hadn't slept for beans. 
+ 
+
+===
+
+She awoke Monday morning and she felt like she was going through withdrawal. Sunday had been the first day in weeks that she hadn't had a cock. The day had been a nervous and irritable one for her and her mother had asked her if she was feeling well. After her mother and sister had gone she had spent the rest of the day cleaning house while feeling fidgety and then that night she hadn't slept for beans. 
 
  She was eager to get to work and into Dave's office. It didn't matter what he wanted, pussy, ass or mouth as long as she got some cock. Dave didn't disappoint her. By nine-fifteen she had been fucked and the nervousness and irritability were gone and she was looking forward toward their nooner. She got the call at eleven-thirty and her pussy was already wet and dripping as she headed for Dave's office. As soon as she was in the office she went to remove her panties and Dave told her not too. He told her they were going out to lunch and that he had a surprise for her. She asked what kind of a surprise and got the predictable: 
 
@@ -870,7 +892,11 @@
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 06 ****** byJust_Plain_Bob© The next three months went quickly by. She was giving Tim all the sex he could handle, seeing to Dave's needs (and the needs of several of his better customers) and seeing Brian every Tuesday. The only fly in the ointment, at least from her standpoint, was that every time she tried to get something going with Melvin something always got in the way. Four times she was almost sure she had him alone, but each time either Dave or Jenny did something to prevent her from trying on Melvin. 
+ 
+
+===
+
+The next three months went quickly by. She was giving Tim all the sex he could handle, seeing to Dave's needs (and the needs of several of his better customers) and seeing Brian every Tuesday. The only fly in the ointment, at least from her standpoint, was that every time she tried to get something going with Melvin something always got in the way. Four times she was almost sure she had him alone, but each time either Dave or Jenny did something to prevent her from trying on Melvin. 
 
  It all came crashing down on a Monday in October. She got a call from Brian: 
 
@@ -1208,7 +1234,11 @@
 
  
 
- ****** Becoming a Slut Wife: Sarah Ch. 06 ****** byJust_Plain_Bob© "Well it isn't going to happen Sarah so give it up." 
+ 
+
+===
+
+"Well it isn't going to happen Sarah so give it up." 
 
  "Yes dear." 
 

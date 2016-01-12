@@ -1,8 +1,14 @@
+Myron Starts It
+===============
 #1 
 
  
 
- ****** Myron Starts It ****** byJust_Plain_Bob© This is not a story about my wanting to watch my wife fuck another man. This is a story about how I ended up watching her. 
+ 
+
+===
+
+This is not a story about my wanting to watch my wife fuck another man. This is a story about how I ended up watching her. 
 
  +++++++++++++++++++++++++++++++++++++++++++++ 
 

@@ -1,8 +1,14 @@
+&quot;Stocking Tales&quot;: Boss's Pet
+======================================
 #1 
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© Summary: College student is drawn into the world of sexual submission. 
+ 
+
+===
+
+Summary: College student is drawn into the world of sexual submission. 
 
  Note 1: This story is dedicated to Lily who requested the story and who willingly took photos of herself in a variety of positions and outfits as requested for a two month journey. 
 
@@ -320,7 +326,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© "You okay?" she asked. 
+ 
+
+===
+
+"You okay?" she asked. 
 
  "Um, yes, fine," I said, pulling myself back to reality. 
 
@@ -678,7 +688,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© Was that the moment that I began to have feelings for Mrs. Parks? 
+ 
+
+===
+
+Was that the moment that I began to have feelings for Mrs. Parks? 
 
  Maybe. 
 
@@ -1012,7 +1026,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© Was I ready to be in a relationship with a woman? Would it be an actual relationship? Did I want to be in a relationship? Did I just want the submissive sex I was already fantasizing? 
+ 
+
+===
+
+Was I ready to be in a relationship with a woman? Would it be an actual relationship? Did I want to be in a relationship? Did I just want the submissive sex I was already fantasizing? 
 
  I could spend hours psychoanalyzing myself, but decided 'fuck it', I would just take the day as fate meant it to be. I wouldn't push to force the issue nor resist whatever Mrs. Parks had in store. 
 
@@ -1402,7 +1420,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© 
+ 
+
+===
+
+
 
  bosss-pet40.jpg] 
 
@@ -1826,7 +1848,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© "Rub yourself, my little slut, but don't you dare come," she ordered. 
+ 
+
+===
+
+"Rub yourself, my little slut, but don't you dare come," she ordered. 
 
  "Yes, Mistress. Thank you, Mistress," I said, as I immediately moved to my fevered pussy, no, cunt, and started rubbing. 
 
@@ -2270,7 +2296,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Boss's Pet ****** bysilkstockingslover© "You've done this many times before, my pet," she mused, looking down at me on my knees with my mouth open. 
+ 
+
+===
+
+"You've done this many times before, my pet," she mused, looking down at me on my knees with my mouth open. 
 
  I smiled, continuing to look up at her, "Never for someone like you, though." 
 
@@ -2656,7 +2686,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Face Full of Cum ****** bysilkstockingslover© Summary: A teacher and an ex-student fall for each other. 
+ 
+
+===
+
+Summary: A teacher and an ex-student fall for each other. 
 
  Note 1: A special thanks to my beautiful girl next door model who is anything but the girl next door internet sensation both in photo and video Kelly Anderson (aka Housewife Kelly). 
 
@@ -2924,7 +2958,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Face Full of Cum ****** bysilkstockingslover© "No, outside," he sarcastically quipped. 
+ 
+
+===
+
+"No, outside," he sarcastically quipped. 
 
  I dropped to my knees. 
 
@@ -3230,7 +3268,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Face Full of Cum ****** bysilkstockingslover© "Maybe you're imagining that," she said. 
+ 
+
+===
+
+"Maybe you're imagining that," she said. 
 
  "Crawl to me," I demanded, pulling out my already stiff cock. 
 
@@ -3508,7 +3550,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Face Full of Cum ****** bysilkstockingslover© 
+ 
+
+===
+
+
 
  face-full-of-cum18.jpg] 
 
@@ -3548,7 +3594,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Office Submission ****** bysilkstockingslover© Summary: Sexy submissive MILF does WHATEVER it takes to get the job. 
+ 
+
+===
+
+Summary: Sexy submissive MILF does WHATEVER it takes to get the job. 
 
  Note 1: A great thank you goes to Vanessa for modeling for the photos (I pray I am as beautiful as you in ten years). 
 
@@ -3798,7 +3848,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Office Submission ****** bysilkstockingslover© "Ready for your first dictation?" he asked, unbuckling his belt. 
+ 
+
+===
+
+"Ready for your first dictation?" he asked, unbuckling his belt. 
 
  I hoped sucking cock was like riding a bike, even after not doing it for a long time you don't ever completely lose the ability. Alan loved having his cock sucked more than fucking and thus I usually received at least one daily dose of cum, often more. Yet, I hadn't sucked cock or swallowed a sweet load of jizz in over five years and my appetite was ferocious. Although I didn't miss it when I went without, the potential load waiting to be deposited in me had me craving cum like I used to. 
 
@@ -4080,7 +4134,11 @@
 
  
 
- ****** &quot;Stocking Tales&quot;: Office Submission ****** bysilkstockingslover© "Seven, six, five," he quickly counted down, as if reading my desperation and my struggle to hold off from coming prematurely. 
+ 
+
+===
+
+"Seven, six, five," he quickly counted down, as if reading my desperation and my struggle to hold off from coming prematurely. 
 
  "Four, I'm going to want to fuck your back door," he rhymed. 
 
@@ -4196,7 +4254,11 @@
 
  
 
- ****** Stocking Tales: Blackmailed Wife ****** bysilkstockingslover© Summary: Sweet teacher's naughty photos end up in a stranger's hands. 
+ 
+
+===
+
+Summary: Sweet teacher's naughty photos end up in a stranger's hands. 
 
  Note 1: Thanks to Sweet Daisy Haze for allowing her photos particularly from the following photo shoots to be used for this mammoth story: 
 
@@ -4632,7 +4694,11 @@
 
  
 
- ****** Stocking Tales: Blackmailed Wife ****** bysilkstockingslover© God, I wish I could get a hold of Tyler. I quickly called him again as my stomach turned. Again, no answer, which only added to my frustration. 
+ 
+
+===
+
+God, I wish I could get a hold of Tyler. I quickly called him again as my stomach turned. Again, no answer, which only added to my frustration. 
 
  I had no idea what to say. So I didn't respond, hoping to get some time to talk to Tyler and somehow figure out who had these compromising pictures of me. 
 
@@ -5168,7 +5234,11 @@
 
  
 
- ****** Stocking Tales: Blackmailed Wife ****** bysilkstockingslover© "Okay," I said, baffled by how this could be turning him on. 
+ 
+
+===
+
+"Okay," I said, baffled by how this could be turning him on. 
 
  
 
@@ -5740,7 +5810,11 @@
 
  
 
- ****** Stocking Tales: Blackmailed Wife ****** bysilkstockingslover© Once he broke the kiss, guilt hit me, kissing somehow seeming more intimate than sucking cock, or getting fucked. 
+ 
+
+===
+
+Once he broke the kiss, guilt hit me, kissing somehow seeming more intimate than sucking cock, or getting fucked. 
 
  "Hi, honey," I answered. 
 

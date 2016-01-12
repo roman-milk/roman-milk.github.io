@@ -1,8 +1,14 @@
+The Trouble with Mona
+=====================
 #1 
 
  
 
- ****** The Trouble with Mona ****** byJust_Plain_Bob© The trouble with Mona was that she could never take anything seriously. This is a trait that she had all the way through high school, through college and through the twenty-seven years of our marriage. Mona was what most men call a "Cock tease." 
+ 
+
+===
+
+The trouble with Mona was that she could never take anything seriously. This is a trait that she had all the way through high school, through college and through the twenty-seven years of our marriage. Mona was what most men call a "Cock tease." 
 
  +++++++++++++++++++++++++++++++++++++ 
 

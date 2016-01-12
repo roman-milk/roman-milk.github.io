@@ -1,8 +1,14 @@
+Slut Addict: Jessica
+====================
 #1 
 
  
 
- ****** Slut Addict: Jessica ****** byMetatronlive© I was 25, had a good job with a computer company, and although I wasn't in a relationship at the moment, I didn't feel unhappy. I had my share of one-night- stands, sometimes I even had a few week long relationships, but because of my work and the time it consumed, they were mostly based on sex. 
+ 
+
+===
+
+I was 25, had a good job with a computer company, and although I wasn't in a relationship at the moment, I didn't feel unhappy. I had my share of one-night- stands, sometimes I even had a few week long relationships, but because of my work and the time it consumed, they were mostly based on sex. 
 
  A warm Saturday evening, a few friends from work and college and a good place to go clubbing, that was to be the setting for a happening that left my belief in the natural innocence of women shattered. Well, of course, to have such a belief is not really a sensible thing, but I was kind of a nice guy, and always thought the best of young women the first time I met them. 
 
@@ -78,7 +84,11 @@
 
  
 
- ****** Slut Addict: Tricia ****** byMetatronlive© During my whole life, I have been attracted by women some people like to call sluts. I like to call them goddesses. My first encounter with one of those goddesses was when I was 18. Here's what happened. 
+ 
+
+===
+
+During my whole life, I have been attracted by women some people like to call sluts. I like to call them goddesses. My first encounter with one of those goddesses was when I was 18. Here's what happened. 
 
  It was my senior year in high school, and as it is with every red blooded male, I was very much into sex. I had had my share of girls until then, and wasn't exactly what you call a virgin. My girlfriend at that time was a sweet girl from my neighborhood, and although I thought I loved her, she was somehow too timid regarding sex. Of course, we did have sex at least twice a week, and she seemed to enjoy it, but whenever I proposed something out of the ordinary, she used to become really icy, trying to distract me from whatever "perversion" I was trying to convince her of. 
 

@@ -1,8 +1,14 @@
+Dressing Room Slut
+==================
 #1 
 
  
 
- ****** Dressing Room Slut ****** bygeronimo_appleby© Inspired by Chocolate Harlot. All pictures used have been reproduced with kind permission. 
+ 
+
+===
+
+Inspired by Chocolate Harlot. All pictures used have been reproduced with kind permission. 
 
  * * * * * 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** Dressing Room Slut ****** bygeronimo_appleby© I moved to Yolanda's head and gave her my cock to suck once again. She opened her eyes and saw my prick standing thick and angry in front of her face. She dribbled and drooled around my cock, moaning loudly as the young guy upped his tempo as he fucked her. When I looked across at the group that was centred on the young girl, I could see that she was in a similar position to Yolanda, with Danny pumping his cock into her from behind, while Stefan and Nick both pushed their cocks at her mouth. She was gamely trying to take both men into her mouth at the same time, but eventually had to move her head between the two offered pricks, sucking one first before transferring her attention to the other stiff member. 
+ 
+
+===
+
+I moved to Yolanda's head and gave her my cock to suck once again. She opened her eyes and saw my prick standing thick and angry in front of her face. She dribbled and drooled around my cock, moaning loudly as the young guy upped his tempo as he fucked her. When I looked across at the group that was centred on the young girl, I could see that she was in a similar position to Yolanda, with Danny pumping his cock into her from behind, while Stefan and Nick both pushed their cocks at her mouth. She was gamely trying to take both men into her mouth at the same time, but eventually had to move her head between the two offered pricks, sucking one first before transferring her attention to the other stiff member. 
 
  The guys took it in turns to fuck the delightfully slutty blonde. Each of them getting behind her and sticking their hard dicks into her bejewelled cunt. She was really getting to enjoy by now, and I could plainly hear her cries and moans of pleasure. 
 

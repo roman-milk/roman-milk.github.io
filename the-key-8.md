@@ -1,8 +1,14 @@
+The Key
+=======
 #1 
 
  
 
- ****** The Key ****** byJust_Plain_Bob© I get more married pussy than anyone else I know and that includes several husbands. My secret? I don't make passes at them! Yeah, you heard me right, I don't make passes at them and I don't even let them know I'm interested in them. What I do is become their friend, their buddy, and their big brother whose shoulder they can cry on. It is surprising how many husbands are complete assholes where their wives are concerned and those wives are always looking for someone they can talk to, someone who will say "There, there, don't cry, it can't be that bad." The wives confide in you, tell you their inner most secrets and all you have to do is listen closely and pick up on the 'key'. And there is always a 'key' and once you have it you can begin to move things in the direction you want. 
+ 
+
+===
+
+I get more married pussy than anyone else I know and that includes several husbands. My secret? I don't make passes at them! Yeah, you heard me right, I don't make passes at them and I don't even let them know I'm interested in them. What I do is become their friend, their buddy, and their big brother whose shoulder they can cry on. It is surprising how many husbands are complete assholes where their wives are concerned and those wives are always looking for someone they can talk to, someone who will say "There, there, don't cry, it can't be that bad." The wives confide in you, tell you their inner most secrets and all you have to do is listen closely and pick up on the 'key'. And there is always a 'key' and once you have it you can begin to move things in the direction you want. 
 
  Take Maddie for instance. Her husband would stop after work for drinks with his buddies and not get home until late and when he did get home there would be a faint whisper of perfume that was not Maddie's and maybe a lipstick smudge somewhere. Maddie was sure that her husband was fucking around on her. Was he? I have no idea, but the important thing was that Maddie thought he was. One day Maddie was telling me about how her husband had come home late with a phone number in his pocket in what Maddie was sure was a women's handwriting. She said to me, "I wonder how that bastard would like it if I screwed around on him?" and I had my 'key'. From then on every time Maddie would cry on my shoulder I would make sure that the conversation would be steered to the subject of her getting even. 
 

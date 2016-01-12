@@ -1,8 +1,14 @@
+The Van Ride
+============
 #1 
 
  
 
- ****** The Van Ride ****** byJust_Plain_Bob© It was by accident that I found out that I like seeing other men fuck my wife. We had been married for the better part of twenty years and both of us had grown comfortable with our lives. Our biggest pleasure was to get in our conversion van and go on camping trips, and that probably would still be our (I guess I should really say 'my') major enjoyment if it had not been for a Christmas party and a spell of really bad weather. 
+ 
+
+===
+
+It was by accident that I found out that I like seeing other men fuck my wife. We had been married for the better part of twenty years and both of us had grown comfortable with our lives. Our biggest pleasure was to get in our conversion van and go on camping trips, and that probably would still be our (I guess I should really say 'my') major enjoyment if it had not been for a Christmas party and a spell of really bad weather. 
 
  We had attended my company Christmas party and both of us had a really good time. Madge can not hold her liquor so about two thirds of the way through the party I had to take her out and bed her down in the van. By the time the party was over it was snowing, and I mean snowing in blizzard proportions. Two miles from the party I passed a pickup truck on its side in a ditch and another half- mile down the road I spotted two men trudging along. I normally do not pick up hitchhikers, but on a night as bad as this one was I could not just leave them out there. I pulled over and they got in. One sat up front with me, but since the van only had two captains style chairs up front the other man had to go in the back. I told him my wife was sleeping back there and to try and not wake her up. 
 

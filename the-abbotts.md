@@ -1,8 +1,14 @@
+The Abbotts Ch. 01
+==================
 #1 
 
  
 
- ****** The Abbotts Ch. 01 ****** byJust_Plain_Bob© It had been one hell of an eighteen month roller coaster ride. I was living in my own soap opera. Me? I'm Robert Courtney Abbott. A forty-eight year old successful business man, married for twenty-six years to Beverly Abigail Abbott, nee Sterns and with two children; Robert Courtney Abbott, Junior (affectionately called Deuce) and Stephanie Anne Abbott. 
+ 
+
+===
+
+It had been one hell of an eighteen month roller coaster ride. I was living in my own soap opera. Me? I'm Robert Courtney Abbott. A forty-eight year old successful business man, married for twenty-six years to Beverly Abigail Abbott, nee Sterns and with two children; Robert Courtney Abbott, Junior (affectionately called Deuce) and Stephanie Anne Abbott. 
 
  My wife Beverly is a Vice President at a large advertising agency and it is that agency that I blame in large part for the current situation. Well, it is easier than taking the blame myself and besides; it is so much more comforting to put the blame elsewhere. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** The Abbotts Ch. 02 ****** byJust_Plain_Bob© My mother was a slut and a whore. My earliest memory is of my mother and some guy fucking on our kitchen table. I was about six at the time. Mother saw me watching and did nothing to shoo me away. The guy saw me and said: 
+ 
+
+===
+
+My mother was a slut and a whore. My earliest memory is of my mother and some guy fucking on our kitchen table. I was about six at the time. Mother saw me watching and did nothing to shoo me away. The guy saw me and said: 
 
  "She sure is a cute little thing; how much to be her first?" 
 
@@ -400,7 +410,11 @@
 
  
 
- ****** The Abbotts Ch. 02 ****** byJust_Plain_Bob© "Why would you ant to set me up with this wondrous woman?" 
+ 
+
+===
+
+"Why would you ant to set me up with this wondrous woman?" 
 
  "She's Bobby's sister and it would be a way of keeping you close." 
 
@@ -524,7 +538,11 @@
 
  
 
- ****** The Abbotts Ch. 03 ****** byJust_Plain_Bob© I watched Stephanie Anne come down the aisle on the arm of her father and I had mixed emotions. I was happy to see my baby girl so happy and I was sad for myself. I was angry at Jason and I wanted to scratch his eyes out. As much as Stephanie loved him I knew that he wasn't right for her. Lest I be accused of being one of those mothers who doesn't think that any man is good enough for her daughter let me say that that is not the case here. I know many, many young men who I would like to see Steph married too, but Jason isn't one of them. My own marriage would be ending before I would let Jason marry my daughter. 
+ 
+
+===
+
+I watched Stephanie Anne come down the aisle on the arm of her father and I had mixed emotions. I was happy to see my baby girl so happy and I was sad for myself. I was angry at Jason and I wanted to scratch his eyes out. As much as Stephanie loved him I knew that he wasn't right for her. Lest I be accused of being one of those mothers who doesn't think that any man is good enough for her daughter let me say that that is not the case here. I know many, many young men who I would like to see Steph married too, but Jason isn't one of them. My own marriage would be ending before I would let Jason marry my daughter. 
 
  I thought back on the previous eighteen months and shook my head over what I had allowed to happen. How could I, Beverly Abigail Abbott, have let this happen? I had the world as my oyster. Married to a good, but somewhat gullible husband, with the job of my dreams and the freedom to do what I chose and when I chose but I had still managed to put myself in a position where it could all fall down on my head and leave me in ruins. 
 
@@ -710,7 +728,11 @@
 
  
 
- ****** The Abbotts Ch. 04 ****** byJust_Plain_Bob© "Nervous baby?" my daddy asked me. 
+ 
+
+===
+
+"Nervous baby?" my daddy asked me. 
 
  "Isn't every girl before she takes the long walk down the aisle?" 
 
@@ -866,7 +888,11 @@
 
  
 
- ****** The Abbotts Ch. 04 ****** byJust_Plain_Bob© "You really think that the rest of the kids on the tour don't know what we are doing? Rick isn't the only one of the guys that would like a bit of your time. I only brought Rick because of the special circumstances." 
+ 
+
+===
+
+"You really think that the rest of the kids on the tour don't know what we are doing? Rick isn't the only one of the guys that would like a bit of your time. I only brought Rick because of the special circumstances." 
 
  "Special circumstances? What special circumstances?" 
 

@@ -1,8 +1,14 @@
+Sammi
+=====
 #1 
 
  
 
- ****** Sammi ****** byJust_Plain_Bob© She had the tightest ass I'd ever slid my cock into and she loved anal sex. She had a cute, but sexy squeal as she took it up the dirt road and she had a way of making me feel like no other man in the world could fuck her ass as good as I could. 
+ 
+
+===
+
+She had the tightest ass I'd ever slid my cock into and she loved anal sex. She had a cute, but sexy squeal as she took it up the dirt road and she had a way of making me feel like no other man in the world could fuck her ass as good as I could. 
 
  Her mouth was like a vacuum cleaner and her blow jobs were state of the art, but it was her cunt that damned near enslaved me. It felt like hot crushed velvet and she could make her muscles make you think that there was a hand inside her pussy jacking you off while you thought you were fucking her. 
 
@@ -280,7 +286,11 @@
 
  
 
- ****** Sammi ****** byJust_Plain_Bob© +++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++ 
 
  The down side of Sammi living with me is what it did to my relationship with Lisa. Two days after my altercation with Fred Lisa called me. 
 

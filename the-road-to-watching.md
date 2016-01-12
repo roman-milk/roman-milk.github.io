@@ -1,8 +1,14 @@
+The Road to Watching
+====================
 #1 
 
  
 
- ****** The Road to Watching ****** byJust_Plain_Bob© WARNING: If you have strong religious beliefs you might want to avoid reading this story. It is guaranteed to piss off almost every known religion. 
+ 
+
+===
+
+WARNING: If you have strong religious beliefs you might want to avoid reading this story. It is guaranteed to piss off almost every known religion. 
 
  * 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** The Road to Watching ****** byJust_Plain_Bob© +++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++ 
 
  It was three days before I stopped at the bar again and I was sitting on a stool at the bar sipping on a Pabst Blue Ribbon when Gloria walked in, saw me and came over and sat down on the stool next to me. 
 
@@ -426,7 +436,11 @@
 
  
 
- ****** The Road to Watching ****** byJust_Plain_Bob© Dinner was a quiet affair as far as conversation between me and Candy went. We listened to the kids tell us about their day at school and then we spent family time until they went to bed. I slept in the nude and I was undressed, ready for bed and standing at the sink brushing my teeth when Candy came into the room. She came up behind me, reached around in front of me and took hold of my cock. It did what it always did when Candy touched it and she said: 
+ 
+
+===
+
+Dinner was a quiet affair as far as conversation between me and Candy went. We listened to the kids tell us about their day at school and then we spent family time until they went to bed. I slept in the nude and I was undressed, ready for bed and standing at the sink brushing my teeth when Candy came into the room. She came up behind me, reached around in front of me and took hold of my cock. It did what it always did when Candy touched it and she said: 
 
  "I wanted this last night baby. I wanted it bad. I came home horny as hell and I needed it bad." 
 
@@ -648,7 +662,11 @@
 
  
 
- ****** The Road to Watching ****** byJust_Plain_Bob© I watched as the group drank, danced to the jukebox and talked. The three guys (none of them young) took turns dancing with the five girls and I noticed that none of the guys held Candy real close and none of their hands appeared to go where they shouldn't. 
+ 
+
+===
+
+I watched as the group drank, danced to the jukebox and talked. The three guys (none of them young) took turns dancing with the five girls and I noticed that none of the guys held Candy real close and none of their hands appeared to go where they shouldn't. 
 
  Around eight the group began to break up and soon there was only Candy and one other woman and they got up from the tables and moved over to an empty booth. The two of them sat there talking until nine and then they both got up and left. I gave them a minute and then I got up and followed them out. They got in their cars and drove out of the lot and I got in my car and followed along behind Candy. She drove to a Denny's and went inside and the other woman joined her about two minutes later. They sat in a booth and talked over coffee and pie and at ten-fifteen I gave up watching and went on home. 
 

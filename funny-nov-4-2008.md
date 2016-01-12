@@ -1,8 +1,14 @@
+Nov 4, 2008
+===========
 #1 
 
  
 
- ****** Nov 4, 2008 ****** byHiddenDevil_© ***All characters are over 18*** 
+ 
+
+===
+
+***All characters are over 18*** 
 
  The clock struck 8'o'clock. CNN was on, the lights were off, and the door of my room was closed. My boyfriend and I were snuggled on my bed, both our mouths open. Outside, the hall of my dormitory was empty, dead silent. The commercial break ended. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Nov 4, 2008 ****** byHiddenDevil_© Now, Danny was fucking me in two ways; his dick in my mouth, thrusting up against my throat, his fingers buried in my twat, pumping me, filling my canal. And my body was meeting him in every way, bucking up off the bed in response to his fingers, eagerly trying to engulf them even further into my pussy; my mouth locking onto his cock as he pumped, slurping and slobbering on his shaft with loud smacks, licking and lapping at his dick as if I could draw him further into my mouth with just my tongue. My lips were stretched and my mouth was stuffed full with his cock, but somehow my moans were still escaping, whimpered and eager. 
+ 
+
+===
+
+Now, Danny was fucking me in two ways; his dick in my mouth, thrusting up against my throat, his fingers buried in my twat, pumping me, filling my canal. And my body was meeting him in every way, bucking up off the bed in response to his fingers, eagerly trying to engulf them even further into my pussy; my mouth locking onto his cock as he pumped, slurping and slobbering on his shaft with loud smacks, licking and lapping at his dick as if I could draw him further into my mouth with just my tongue. My lips were stretched and my mouth was stuffed full with his cock, but somehow my moans were still escaping, whimpered and eager. 
 
  "Ohhh...Danny…" 
 

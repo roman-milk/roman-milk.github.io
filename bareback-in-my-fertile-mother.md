@@ -1,8 +1,14 @@
+Bareback In My Fertile Mother
+=============================
 #1 
 
  
 
- ****** Bareback In My Fertile Mother ****** byGotBacon© Will Barnes is 41 years old. He is the owner of Software Solutions. He is a brilliant software engineer. His company has a net worth of just under one million dollars. He is in the process of landing a huge government contract. 
+ 
+
+===
+
+Will Barnes is 41 years old. He is the owner of Software Solutions. He is a brilliant software engineer. His company has a net worth of just under one million dollars. He is in the process of landing a huge government contract. 
 
  His wife, Sarah is 37 years old. She is a stay at home Mom. Her pride and joy is her son Eric. He joined the Marine Corps when he turned 18. She and Will have been married for 19 years. Over the years she has let herself go. She is about 30 pounds overweight. Their sex life has dwindled to once or twice a month. Will is just not into fat ladies. 
 
@@ -328,7 +334,11 @@
 
  
 
- ****** Bareback In My Fertile Mother ****** byGotBacon© "Bill. Let's not go to fast tonight. OK. I don't want to rush into something I'm not ready for. I had a nice time tonight. Let's just kiss and call it a night." 
+ 
+
+===
+
+"Bill. Let's not go to fast tonight. OK. I don't want to rush into something I'm not ready for. I had a nice time tonight. Let's just kiss and call it a night." 
 
  "OK. I don't want to rush you either. I'll let you set the pace. I had a great time tonight and I want to go out again. Can we do that?" 
 
@@ -746,7 +756,11 @@
 
  
 
- ****** Bareback In My Fertile Mother ****** byGotBacon© "Come on, big guy. It's show time. Come and wash me." 
+ 
+
+===
+
+"Come on, big guy. It's show time. Come and wash me." 
 
  They go to the bathroom, He turns the water on and adjust it. He turns and hugs her. 
 
@@ -1114,7 +1128,11 @@
 
  
 
- ****** Bareback In My Fertile Mother ****** byGotBacon© "Big beautiful cock. All mine." 
+ 
+
+===
+
+"Big beautiful cock. All mine." 
 
  "He pushes toward her and she takes him in her mouth. She licks and sucks on his throbbing cock. He pushes into her. It slowly does down her throat. 
 

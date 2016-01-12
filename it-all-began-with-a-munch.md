@@ -1,8 +1,14 @@
+It All Began with a Munch
+=========================
 #1 
 
  
 
- ****** It All Began with a Munch ****** bysilkstockingslover© Summary: A young curious lawyer explores her lesbian submissive side 
+ 
+
+===
+
+Summary: A young curious lawyer explores her lesbian submissive side 
 
  Note 1: First off, I have never been to a Munch but they do exist and can be found in most larger cities. 
 
@@ -486,7 +492,11 @@
 
  
 
- ****** It All Began with a Munch ****** bysilkstockingslover© MistressMichelle: I have to go. The Munch is at Peter's Cafe at 8PM on the 15th. 
+ 
+
+===
+
+MistressMichelle: I have to go. The Munch is at Peter's Cafe at 8PM on the 15th. 
 
  
 
@@ -1002,7 +1012,11 @@
 
  
 
- ****** It All Began with a Munch ****** bysilkstockingslover© A sudden disappointment swarmed Jill as she asked, "Really?" 
+ 
+
+===
+
+A sudden disappointment swarmed Jill as she asked, "Really?" 
 
  Amanda smiled. "You are one eager virgin, aren't you?" 
 
@@ -1368,7 +1382,11 @@
 
  
 
- ****** It All Began with a Munch ****** bysilkstockingslover© Beth returned, "I assume you have never been with a woman?" 
+ 
+
+===
+
+Beth returned, "I assume you have never been with a woman?" 
 
  Jill whispered, "You are correct, I have not." 
 
@@ -1704,7 +1722,11 @@
 
  
 
- ****** It All Began with a Munch ****** bysilkstockingslover© Amanda pulled Jill into the comfortable chairs and explained, "This is the most elite lesbian club in the country. What happens at Le Chateau Club stays at the Le Chateau Club. There are cameras everywhere filming everything and if someone ever let out the truth about what happens here, well their naughty indiscretions would be online instantly." 
+ 
+
+===
+
+Amanda pulled Jill into the comfortable chairs and explained, "This is the most elite lesbian club in the country. What happens at Le Chateau Club stays at the Le Chateau Club. There are cameras everywhere filming everything and if someone ever let out the truth about what happens here, well their naughty indiscretions would be online instantly." 
 
  "Oh my," Jill said, her head spinning. 
 

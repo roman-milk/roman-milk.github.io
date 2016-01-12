@@ -1,8 +1,14 @@
+The Trip
+========
 #1 
 
  
 
- ****** The Trip ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** The Trip ****** byTheTalkMan© "Jenna, this is a charity thing. We'll be building houses. No offense, but you're not exactly the type to get your hands dirty." I replied, trying to dissuade her. 
+ 
+
+===
+
+"Jenna, this is a charity thing. We'll be building houses. No offense, but you're not exactly the type to get your hands dirty." I replied, trying to dissuade her. 
 
  "Whatever. I don't care. I can help out. I'm sure no one will turn away the help. If not, I can stand on the sidelines or something." She replied. 
 
@@ -340,7 +350,11 @@
 
  
 
- ****** The Trip ****** byTheTalkMan© I tried to keep doing something. Either text, or talk to someone on the phone, or talk to them. Anything that would get Brian's attention on me. When he looked back on this trip, I wanted the first thing he remembered to be me. I want him to eventually forget the fact that Mary was even on the trip. 
+ 
+
+===
+
+I tried to keep doing something. Either text, or talk to someone on the phone, or talk to them. Anything that would get Brian's attention on me. When he looked back on this trip, I wanted the first thing he remembered to be me. I want him to eventually forget the fact that Mary was even on the trip. 
 
  I had a moment's remorse for Mary. She really didn't stand a chance. I really did like her. This was nothing personal. We always got along well. But all's fair in love and war. This wasn't cattiness between girls at the sight of a new man. This was something more. I felt like I had just discovered something, something deep inside me. I had never had any problems getting men. But I had never encountered a situation like this. I had never tried to steal another girl's man before. Just the thought of driving a man so crazy, of turning him on so much, that he forgot all about his loving girlfriend and just had to fuck me. Making a man ditch a possible future wife to start banging some slutty girl he barely knows. Driving all reason from his mind, making him a slave to his own sexual desires. Making him make such a bad choice for himself, but a great choice for the slutty girl. Most decent men know better than to fuck slutty girls. That has been instilled in them by their parents, by society. To drive that all away, to convince them that a slut can provide them all they truly need. To drive a man down to their base desires, their base urges. To reduce a man to the simple and undeniable urge to fuck. Not to make love or any of that bullshit. To fuck. When a man's reduced to that, they don't go after the pretty girls, the funny girls. No, they follow their instincts. They go after the girls that they know can fuck well. The slutty girls, the sexy girls. It doesn't matter how nice they are, how funny they are. All that matters is how hot they are. How sexy they are. How long their legs are. How round their asses are. How big their tits are. How tight their pussy's are. That would be all that matters. 
 
@@ -486,7 +500,11 @@
 
  
 
- ****** The Trip ****** byTheTalkMan© "What do you think?" I asked Brian, trying to not act too stingy. 
+ 
+
+===
+
+"What do you think?" I asked Brian, trying to not act too stingy. 
 
  "I'm pretty hungry too." He replied. I smiled at him and nodded. We both stood and packed up. We went back to the hotel room to change, and then drove around till we found a nice Italian restaurant. We sat at a table, with me sitting next to Brian and Jenna sitting across from Brian. Luckily, she had changed into something more decent than what she had worn most of the day. She was wearing a tight black t-shirt and jeans. The waiter came up to take our orders. I ordered a pasta dish, and then Brian ordered a steak. Jenna ordered the same thing that Brian did. 
 
@@ -676,7 +694,11 @@
 
  
 
- ****** The Trip ****** byTheTalkMan© "Oh, OH, OH FUCK! FUCK ME YOU FUCK! FUCKING CUM INSIDE ME! DO IT! OHHHHH!" I yelled out, cumming hard, the bed rocking. 
+ 
+
+===
+
+"Oh, OH, OH FUCK! FUCK ME YOU FUCK! FUCKING CUM INSIDE ME! DO IT! OHHHHH!" I yelled out, cumming hard, the bed rocking. 
 
  "I'm gonna cum! I'm gonna cum! OH FUCK YES!" he called out, unable to hold it in. He pulled me down on his dick, burying his dick inside me before finally releasing all that nice sticky cum that had built up in his balls for days deep inside my wet pussy. He kept humping, trying to bury his dick even more inside me, trying desperately to get me pregnant. Mary was no doubt still asleep as the bed next door rocked with the hard fuck that just occurred. 
 
@@ -916,7 +938,11 @@
 
  
 
- ****** The Trip ****** byTheTalkMan© "Doesn't that make you a whore? Having sex for money?" he responded. 
+ 
+
+===
+
+"Doesn't that make you a whore? Having sex for money?" he responded. 
 
  "I think it's all the fucking I do that makes me a whore." I responded with a smile. That shut him up. I started to leaf through the money. 
 
@@ -1072,7 +1098,11 @@
 
  
 
- ****** The Trip ****** byTheTalkMan© I didn't know what to do. How could that slut Jenna start seeing my ex? Who does that? But I had to stop thinking out of anger. If she was really trying to improve herself, then who am I to stop it? If she's happy, and Brian's happy, then who am I to get in the way? I had to let go of Brian. We were broken up, and he had moved on. I hated that he was seeing Jenna. I didn't understand what he saw in her. But, I had to be the bigger person. I had to move on. 
+ 
+
+===
+
+I didn't know what to do. How could that slut Jenna start seeing my ex? Who does that? But I had to stop thinking out of anger. If she was really trying to improve herself, then who am I to stop it? If she's happy, and Brian's happy, then who am I to get in the way? I had to let go of Brian. We were broken up, and he had moved on. I hated that he was seeing Jenna. I didn't understand what he saw in her. But, I had to be the bigger person. I had to move on. 
 
  "Okay. It's okay." I told her. Jenna groaned out loud. 
 

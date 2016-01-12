@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mia
+=========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mia ****** byJust_Plain_Bob© I have to admit that I did have mixed emotions as I looked at the papers I had just finished reading. Ten minutes earlier a man had come into my office: 
+ 
+
+===
+
+I have to admit that I did have mixed emotions as I looked at the papers I had just finished reading. Ten minutes earlier a man had come into my office: 
 
  "Mr. Esau? James Esau?" 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Becoming A Slut Wife: Mia ****** byJust_Plain_Bob© "Your fee?" 
+ 
+
+===
+
+"Your fee?" 
 
  "Yes Jack, my fee. Mary had called the guy that makes arrangements for her and the other girls and talked him into paying me for the night." 
 

@@ -1,8 +1,14 @@
+Stephanie Anne
+==============
 #1 
 
  
 
- ****** Stephanie Anne ****** byJust_Plain_Bob© I met Stephanie Anne on my first day at college. We were attending freshman indoctrination and ended up sitting next to each other. I've never been shy and she was good looking so I immediately hit on her. We left indoctrination to go for a pizza and ended up back in my room where we practically ripped each other clothes off. Steph had my cock in her mouth before I even got my T-shirt off. I hadn't been laid in months and she had me ready to cum in less than a minutes and I told her I was going to shoot and all she did was grab my ass and pull my cock deeper into her mouth. I pushed her back on the bed and returned the favor until she screamed for me to fuck her and by the end of the night the roller coaster ride was on. 
+ 
+
+===
+
+I met Stephanie Anne on my first day at college. We were attending freshman indoctrination and ended up sitting next to each other. I've never been shy and she was good looking so I immediately hit on her. We left indoctrination to go for a pizza and ended up back in my room where we practically ripped each other clothes off. Steph had my cock in her mouth before I even got my T-shirt off. I hadn't been laid in months and she had me ready to cum in less than a minutes and I told her I was going to shoot and all she did was grab my ass and pull my cock deeper into her mouth. I pushed her back on the bed and returned the favor until she screamed for me to fuck her and by the end of the night the roller coaster ride was on. 
 
  Steph was my twin, at least mentally and spiritually, and we had both come to college thinking more of the partying and good times than the studying. We spent more time in bed with each other than at the library or attending classes and I'm amazed at the fact that I was so surprised at finding out that I was flunking out. It was instantly, "Whoa up dude, dad is so going to kill you." It took a Herculean effort on my part, but I was able to pull my grades up enough to get me through the term. But the effort took me away from Steph more than she liked and so she dropped me and moved on. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Stephanie Anne ****** byJust_Plain_Bob© I gripped her hips and slammed my cock into her for several minutes as she moaned, "Yes yes yes yes, like that honey, just like that." And then she cried out, "Don't stop baby, don't stop, I'm almost there, I'm close, I'm close, OH GOD!" and I felt her body tremble and seconds later I sent my load into her butt. 
+ 
+
+===
+
+I gripped her hips and slammed my cock into her for several minutes as she moaned, "Yes yes yes yes, like that honey, just like that." And then she cried out, "Don't stop baby, don't stop, I'm almost there, I'm close, I'm close, OH GOD!" and I felt her body tremble and seconds later I sent my load into her butt. 
 
  As I was dressing to leave she asked, "Did you enjoy yourself?" 
 

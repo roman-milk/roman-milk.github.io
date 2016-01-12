@@ -1,8 +1,14 @@
+Sis-in-Law Pays the Price
+=========================
 #1 
 
  
 
- ****** Sis-in-Law Pays the Price ****** byTx_Tall_Tales© ========================== 
+ 
+
+===
+
+========================== 
 
  A misunderstanding? 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Sis-in-Law Pays the Price ****** byTx_Tall_Tales© "I understand." I told her. "I won't scream when I come in your mouth." 
+ 
+
+===
+
+"I understand." I told her. "I won't scream when I come in your mouth." 
 
  "Don't do this," she said pleadingly. 
 
@@ -334,7 +344,11 @@
 
  
 
- ****** Sis-in-Law Pays the Price ****** byTx_Tall_Tales© "Is there anything else?" She asked, cautiously. 
+ 
+
+===
+
+"Is there anything else?" She asked, cautiously. 
 
  "Why did you cut off all relations with the family? You never called, you never visited. After you had kids, it was more of the same. No Christmas presents for your niece, even though we never forgot your boys. And when we did visit, you treated us like crap." It was funny how easy it was for me to get worked up again. I didn't like her for a reason. She was a bitch. I needed to remind myself of that. I pulled out, put her back on her knees and fucked her some more. 
 
@@ -488,7 +502,11 @@
 
  
 
- ****** Sis-in-Law Pays the Price ****** byTx_Tall_Tales© I kissed her and let my hands wander her body, while I let sleep slowly overtake me. My last thoughts were about what other tricks she might be hiding up her sleeve, or other areas of interest. 
+ 
+
+===
+
+I kissed her and let my hands wander her body, while I let sleep slowly overtake me. My last thoughts were about what other tricks she might be hiding up her sleeve, or other areas of interest. 
 
  ==================== 
 

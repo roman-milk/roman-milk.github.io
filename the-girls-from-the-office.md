@@ -1,8 +1,14 @@
+The Girls From The Office
+=========================
 #1 
 
  
 
- ****** The Girls From The Office ****** byJust_Plain_Bob© Her car wasn't in the drive or the garage when I got home and that was rare. Ginny almost always beat me home from work and had dinner halfway done before I got there. I walked into the kitchen to get a cold one from the fridge, opened it and took a sip before seeing the box on the kitchen table with an envelope taped to it. I walked over and saw that the envelope had my name on it. I opened it and read the short letter inside: 
+ 
+
+===
+
+Her car wasn't in the drive or the garage when I got home and that was rare. Ginny almost always beat me home from work and had dinner halfway done before I got there. I walked into the kitchen to get a cold one from the fridge, opened it and took a sip before seeing the box on the kitchen table with an envelope taped to it. I walked over and saw that the envelope had my name on it. I opened it and read the short letter inside: 
 
  Dear Rob, 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** The Girls From The Office ****** byJust_Plain_Bob© When my cock went limp I pulled out of Ginny and rolled to my right and ended up on my back with Ginny on my right and Sue and Elise on my left. Elise was tossing her head from side to side as Sue ate her pussy and then Elise grabbed my hand and squeezed as she cried out, "YES!!!!" Sue got up and looked down into Elise's face and smiled. Elise relaxed and lay still for a minute and then she turned to me and smiled as she said, "Our turn." 
+ 
+
+===
+
+When my cock went limp I pulled out of Ginny and rolled to my right and ended up on my back with Ginny on my right and Sue and Elise on my left. Elise was tossing her head from side to side as Sue ate her pussy and then Elise grabbed my hand and squeezed as she cried out, "YES!!!!" Sue got up and looked down into Elise's face and smiled. Elise relaxed and lay still for a minute and then she turned to me and smiled as she said, "Our turn." 
 
  I looked at her confused and she got up and crawled over me to get on top of Ginny. She kissed Ginny's neck and then kissed her way down to Ginny's breasts as her hand moved down Ginny's body to her pussy. Elise started fingering Ginny's clit and Ginny moaned. I felt a hand on my cock and I looked and saw that Sue was fondling it. She saw me watching and she said: 
 

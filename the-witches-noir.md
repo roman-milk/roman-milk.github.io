@@ -1,8 +1,14 @@
+The Witches Noir
+================
 #1 
 
  
 
- ****** The Witches Noir ****** bysubslutjenna© Another work of complete fiction. 
+ 
+
+===
+
+Another work of complete fiction. 
 
  All characters are fictional and all characters are over the age of 18. 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** The Witches Noir ****** bysubslutjenna© Save for those items and a long, bejewed, and ornate type of key, the chest was empty. Tabitha picked up the key, and turned it over in her dainty hand. Her black fingernails shiny next to the dull silver of the key, and complimenting the jewels on the skull shaped end. 
+ 
+
+===
+
+Save for those items and a long, bejewed, and ornate type of key, the chest was empty. Tabitha picked up the key, and turned it over in her dainty hand. Her black fingernails shiny next to the dull silver of the key, and complimenting the jewels on the skull shaped end. 
 
  "What do you think it opens?" Jenna asked. Both girls looked around again, but no door was forthcoming. "I bet it opens the real treasure chest," Jenna continued, giggling. As she giggled, Jenna reached into the chest and picked up the silver chains, letting them dangle from her fingertips. 
 
@@ -276,7 +286,11 @@
 
  
 
- ****** The Witches Noir ****** bysubslutjenna© "Well, you ready Jen?" Tabitha asked, looking at her best friend. Jenna smiled, nodding yes and biting her lip. Both girls left the restroom and headed for the bedroom where the heavy hooded cloaks were laid out. 
+ 
+
+===
+
+"Well, you ready Jen?" Tabitha asked, looking at her best friend. Jenna smiled, nodding yes and biting her lip. Both girls left the restroom and headed for the bedroom where the heavy hooded cloaks were laid out. 
 
  "You first," Tabitha giggled. Jenna giggled back and unclasped her bra, sliding it off. Tabitha watched Jen and noticed just a little how her big tits looked bruised and had hickeys on them, but didn't say anything. The memory of what she had done to her best friend the previous night still out of her grasp. 
 

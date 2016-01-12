@@ -1,8 +1,14 @@
+Totally Inappropriate Behaviour
+===============================
 #1 
 
  
 
- ****** Totally Inappropriate Behaviour ****** bygeronimo_appleby© I hadn't seen my sister for a few years. I left Australia for England in 1981, before my sister was even born in 1984 and as a result I didn't know much about her at all. 
+ 
+
+===
+
+I hadn't seen my sister for a few years. I left Australia for England in 1981, before my sister was even born in 1984 and as a result I didn't know much about her at all. 
 
  I'd seen her a couple of times when I returned to Australia on visits over the years but the age difference between us meant that we had very little in common except for ancestry. The last time I'd seen Emma she was at a gawky pubescent age, all awkward limbed and spotty faced with the stereotypical ‘silly girl giggling,' that really irritated me at the time. 
 
@@ -158,11 +164,19 @@
 
  
 
- ****** Totally Inappropriate Behaviour ****** bygeronimo_appleby© That's another story!  
+ 
+
+===
+
+That's another story!  
 
  
 
- ****** Totally Inappropriate Behaviour Ch. 02 ****** bygeronimo_appleby© Now that Emma and I had given into temptation and spent the night fucking incestuously in my flat things got progressively more and more perverted. It seems my beautiful 19 year old sister was kinkier than I thought was possible and even though I was 40 and supposedly worldly wise I had a lot to learn from Emma. 
+ 
+
+===
+
+Now that Emma and I had given into temptation and spent the night fucking incestuously in my flat things got progressively more and more perverted. It seems my beautiful 19 year old sister was kinkier than I thought was possible and even though I was 40 and supposedly worldly wise I had a lot to learn from Emma. 
 
  For the first few nights following our leap into the depraved world of incest I would leave my business at 7pm and return to the flat to be greeted by a naked Emma. She would have a bath drawn for me and then she would undress me and bathe me as tenderly and proficiently as any Japanese Geisha. The bathroom was illuminated by scores of candles, the water was steaming hot and Emma made sure that we had glasses of chilled white wine to ease the tension away. 
 

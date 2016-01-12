@@ -1,8 +1,14 @@
+Daddy Watches Lacey's Phonefucking
+==================================
 #1 
 
  
 
- ****** Daddy Watches Lacey's Phonefucking ****** byNonStopFunGuy© "Hey Daddy -- I'm gonna just go up and fuck on the computer for a while, okay?" 
+ 
+
+===
+
+"Hey Daddy -- I'm gonna just go up and fuck on the computer for a while, okay?" 
 
  My father, whom I still call "Daddy" but whom everyone else calls Robert, looked embroiled in a pile of spreadsheets and thick contract papers on the kitchen table. He usually brings work home from the office, so that he and I can have dinner together and, you know, spend our quality time together and stuff. Now usually he doesn't get to his work until well after dinner, because he and I usually can't stop from getting it on at least once before or during dinner. But tonight I was getting home later than normal, because I went to the mall with my pals Cherrie and Dominic, so I guess he just dove into his work early. 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** Daddy Watches Lacey's Phonefucking ****** byNonStopFunGuy© Mmm, an active cheater! Frankly, I liked that; I have always feared, although it hasn't actually happened, that a guy might weird out on me if I was the first girl he cheated with. I laughed at what he wanted me to infer from his response. "So that means you are fucking other girls?" 
+ 
+
+===
+
+Mmm, an active cheater! Frankly, I liked that; I have always feared, although it hasn't actually happened, that a guy might weird out on me if I was the first girl he cheated with. I laughed at what he wanted me to infer from his response. "So that means you are fucking other girls?" 
 
  I was right. He admitted, "Oh yeah, I am, with a girl from work, and a woman I met through a web site." 
 
@@ -278,7 +288,11 @@
 
  
 
- ****** Daddy Watches Lacey's Phonefucking ****** byNonStopFunGuy© Paul told it to me, repeating it two times, then he had me read it back to him two times character for character. I had an error, he correctly guessed; don't trust a 19 year old to type something when she's horny. Or ever, for that matter. "Now hit send, Lacey," he ordered, and I did exactly as he said. 
+ 
+
+===
+
+Paul told it to me, repeating it two times, then he had me read it back to him two times character for character. I had an error, he correctly guessed; don't trust a 19 year old to type something when she's horny. Or ever, for that matter. "Now hit send, Lacey," he ordered, and I did exactly as he said. 
 
  It suddenly occurred to me, as soon as the email was sent, that I forwarded not just my email to Charlie, with my pictures (who cares about that), but also Charlie's email to me, with HIS pictures, and HIS cellphone. That probably was not smart; on the other hand, I didn't see Paul calling up Charlie asking for phonesex. 
 
@@ -430,7 +444,11 @@
 
  
 
- ****** Daddy Watches Lacey's Phonefucking ****** byNonStopFunGuy© "Uh huh," I winked at Daddy as I answered my new friend, "I love being fucked up the ass, you'd make me fucking scream!" 
+ 
+
+===
+
+"Uh huh," I winked at Daddy as I answered my new friend, "I love being fucked up the ass, you'd make me fucking scream!" 
 
  "Mmm, good! Now, Lacey, I want you to put your finger in your asshole -- do that for me, okay?" 
 

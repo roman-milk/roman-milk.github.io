@@ -1,8 +1,14 @@
+Cora's Curiosity
+================
 #1 
 
  
 
- ****** Cora's Curiosity ****** byJust_Plain_Bob© 'It started with those seven little words that send a chill up and down a man's spine: 
+ 
+
+===
+
+'It started with those seven little words that send a chill up and down a man's spine: 
 
  "Honey; how much do you love me? I mean really really love me?" 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** Cora's Curiosity ****** byJust_Plain_Bob© When I entered the house Cora was sitting at the kitchen table with a half empty bottle of wine on the table in front of her and a full glass in her hand. 
+ 
+
+===
+
+When I entered the house Cora was sitting at the kitchen table with a half empty bottle of wine on the table in front of her and a full glass in her hand. 
 
  "That isn't very smart of you Cora. You shouldn't be drinking that heavily while you are pregnant. You could cause problems for the baby." 
 
@@ -358,7 +368,11 @@
 
  
 
- ****** Cora's Curiosity ****** byJust_Plain_Bob© "That's all for now, but we may need to talk with you again." 
+ 
+
+===
+
+"That's all for now, but we may need to talk with you again." 
 
  "There is one thing, but I'm sure you have already thought of it. If this Decker character was hitting on my wife he probably hit on other wives, fiancés and girlfriends. Maybe you should be looking in that direction." 
 

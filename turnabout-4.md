@@ -1,8 +1,14 @@
+Turnabout
+=========
 #1 
 
  
 
- ****** Turnabout ****** byJust_Plain_Bob© Debbie was my next door neighbor and the closest thing I had to a best friend since leaving high school. She had divorced her husband shortly before we bought the house and moved in and she had gotten her house in her divorce settlement. We met over the back fence one morning, I invited her over for coffee and we hit it off. Two weeks later we were sharing our deepest, darkest secrets. I knew about her catching her husband cheating on her and how she forgave him and took him back - twice - before finally throwing him out, and now here we were six years later talking about my cheating husband. 
+ 
+
+===
+
+Debbie was my next door neighbor and the closest thing I had to a best friend since leaving high school. She had divorced her husband shortly before we bought the house and moved in and she had gotten her house in her divorce settlement. We met over the back fence one morning, I invited her over for coffee and we hit it off. Two weeks later we were sharing our deepest, darkest secrets. I knew about her catching her husband cheating on her and how she forgave him and took him back - twice - before finally throwing him out, and now here we were six years later talking about my cheating husband. 
 
  +++++ 
 

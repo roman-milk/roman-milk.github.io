@@ -1,8 +1,14 @@
+Lois Myra and Me
+================
 #1 
 
  
 
- ****** Lois Myra and Me ****** byJust_Plain_Bob© I sat there in shock at what I was seeing. The camera angle was a little weird. It had obviously been put on a flat surface which had line of sight to the bed and was tilted a little to the right, but the content way over shadowed the position and angles of the recording device. 
+ 
+
+===
+
+I sat there in shock at what I was seeing. The camera angle was a little weird. It had obviously been put on a flat surface which had line of sight to the bed and was tilted a little to the right, but the content way over shadowed the position and angles of the recording device. 
 
  The question is how did it end up with my other tapes? The unlabelled tape was supposed to have been a program I had recorded last week for later viewing. I'd sat down expecting to be entertained and what I got instead was the biggest surprise of my life. 
 
@@ -188,7 +194,11 @@
 
  
 
- ****** Lois Myra and Me ****** byJust_Plain_Bob© "Oh goodie. Can I watch and maybe kick him in the nuts once or twice?" 
+ 
+
+===
+
+"Oh goodie. Can I watch and maybe kick him in the nuts once or twice?" 
 
  It was all lies of course and wouldn't stand up in a show cause hearing, but if it would keep Lois away from the house until I got back I'd lie my ass off. I'd earned the right by listening to all the lies she'd told me while fucking Ralph and only God and Lois knew how many others. Ellsworth said there would be no problem in getting the restraining order, but there would be a hearing in ten days where I would have to convince a judge to make the order permanent. 
 
@@ -476,7 +486,11 @@
 
  
 
- ****** Lois Myra and Me ****** byJust_Plain_Bob© "It hasn't been that long." 
+ 
+
+===
+
+"It hasn't been that long." 
 
  "It damned sure has. Three weeks of avoiding me and when you finally tell me I'm going to get lucky when you get home you go straight to bed and go to sleep. When I tried to get something going you were all for it until you realized it was me. Remember that Lois? Remember that "Oh, it's you. I'm tired. Leave me alone." That said it all Lois. That "Oh; it's only you" said it all. Then seeing that tape was the final nail in the coffin. That "Poor excuse for a dick and cums in ten seconds was the hammer that drove that final nail down." 
 
@@ -736,7 +750,11 @@
 
  
 
- ****** Lois Myra and Me ****** byJust_Plain_Bob© "Why did you ask this question honey?" 
+ 
+
+===
+
+"Why did you ask this question honey?" 
 
  "Grandma told me to tell you that dinner would be ready in a couple secs." 
 
@@ -978,7 +996,11 @@
 
  
 
- ****** Lois Myra and Me ****** byJust_Plain_Bob© +++++++++++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++++++++++ 
 
  Sunday she checked out of the motel and by three that afternoon she was living with me and the next two months quickly went by with no problems surfacing and I began to relax and let my guard down. 
 

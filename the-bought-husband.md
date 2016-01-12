@@ -1,8 +1,14 @@
+The Bought Husband Ch. 01
+=========================
 #1 
 
  
 
- ****** The Bought Husband Ch. 01 ****** byJust_Plain_Bob© "Jack, Gloria would like to see you in her office." 
+ 
+
+===
+
+"Jack, Gloria would like to see you in her office." 
 
  It was the one thing that no one at Stearns Inc. wanted to hear because it usually meant that you were history. Gloria Stearns believed that she owed it to the people getting bad news to get it from her direct and not from some lower minion. The current economy sucked and Stearns was downsizing and it looked like I was on my way to the unemployment line. 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** The Bought Husband Ch. 01 ****** byJust_Plain_Bob© I still hadn't met Mr. Washington and I could only assume that Gloria had put him on ice until after the nuptials. Still, I scanned the crowd in the church looking for someone who might be Jumal. I figured that he was the kind of guy who would show up and sit in the back row and smirk as the "love, honor and obeys" were said. I wouldn't put it past him to have told Gloria that he would be there and just might have to speak his piece when it got to the "Is there anyone here who knows of any reason why these two should not be joined in holy matrimony." 
+ 
+
+===
+
+I still hadn't met Mr. Washington and I could only assume that Gloria had put him on ice until after the nuptials. Still, I scanned the crowd in the church looking for someone who might be Jumal. I figured that he was the kind of guy who would show up and sit in the back row and smirk as the "love, honor and obeys" were said. I wouldn't put it past him to have told Gloria that he would be there and just might have to speak his piece when it got to the "Is there anyone here who knows of any reason why these two should not be joined in holy matrimony." 
 
  I almost missed him. He had timed his arrival so that he sat down just as Gloria started down the aisle toward me. She was radiantly beautiful and as I looked toward her I saw Jumal take his seat and our eyes met and I got the sneer and smirk that I had known would be there. I smiled at him as I thought to myself, "Smirk all you want asshole, your woman is going to be my slut tonight and then after tonight I'll still have a part of her you will never have and I'll know it every time I eat her pussy." 
 
@@ -336,7 +346,11 @@
 
  
 
- ****** The Bought Husband Ch. 02 ****** byJust_Plain_Bob© The honeymoon was as bogus as the wedding had been. The script had been given to me well before hand so that I would be able to play my part so that any observer would only see what they thought was a happily married couple. Gloria was a conspiracy freak and she saw people everywhere whose sole purpose was to prove that she hadn't met the terms of her father's will. 
+ 
+
+===
+
+The honeymoon was as bogus as the wedding had been. The script had been given to me well before hand so that I would be able to play my part so that any observer would only see what they thought was a happily married couple. Gloria was a conspiracy freak and she saw people everywhere whose sole purpose was to prove that she hadn't met the terms of her father's will. 
 
  "I know you don't believe it Jack, but the people in charge of the charities and foundations that will get the money if I don't meet the conditions of daddy's will are going to do their best to find a way to get that money. They like their half million a year salaries and they will do their absolute best to get my money. You absolutely have to be a convincing husband." 
 
@@ -510,7 +524,11 @@
 
  
 
- ****** The Bought Husband Ch. 03 ****** byJust_Plain_Bob© It started out as a series of, what were at the time, seemingly unconnected events. I went out of my way to avoid Jumal and Gloria when the three of us were in the house together, but sometimes you just can't avoid loud. It was on one of those rare nights when I was in the den playing Hearts on the computer. The den is just off the dinning room and Jumal and Gloria were sitting at the dinning room table and I don't believe that they knew I was in the den. 
+ 
+
+===
+
+It started out as a series of, what were at the time, seemingly unconnected events. I went out of my way to avoid Jumal and Gloria when the three of us were in the house together, but sometimes you just can't avoid loud. It was on one of those rare nights when I was in the den playing Hearts on the computer. The den is just off the dinning room and Jumal and Gloria were sitting at the dinning room table and I don't believe that they knew I was in the den. 
 
  They were arguing and their voices grew louder and louder as they continued to argue. I didn't get it all, but the gist of it was that Jumal expected to be her second husband once I was out of the picture. Gloria on the other hand, did not see it that way. Her point being that the reasons she couldn't marry him in the first place would still be there even after I was gone. I think she shocked me just as much as she shocked Jumal when she stated that it just would not be socially acceptable for her to marry him. Where it went from there I have no idea because Jumal got up and stormed out of the house and I wasn't around when they next talked about it. 
 
@@ -688,7 +706,11 @@
 
  
 
- ****** The Bought Husband Ch. 03 ****** byJust_Plain_Bob© There was an uproar and a lot of gavel pounding before things settled down. The lawyers were called to the bench for a side bar and when it was over Moser's lawyer came back to me. 
+ 
+
+===
+
+There was an uproar and a lot of gavel pounding before things settled down. The lawyers were called to the bench for a side bar and when it was over Moser's lawyer came back to me. 
 
  "Mr. Stanton, you are aware that false statements can lead to civil penalties are you not?" 
 

@@ -1,10 +1,16 @@
+Football or Sex?
+================
 #1  
 
  
 
  
 
-  ****** Football or Sex? ****** byBoratus© The guys sat around the TV waiting for the game to start. Shaun looked around at his friends wondering when someone would clue in. Eventually Joe did.  
+  
+
+===
+
+The guys sat around the TV waiting for the game to start. Shaun looked around at his friends wondering when someone would clue in. Eventually Joe did.  
 
   "Hey, man, where's the beer?" he spouted.  
 
@@ -92,7 +98,11 @@
 
  
 
- ****** Football or Sex? ****** byBoratus© The guys sat around the TV waiting for the game to start. Shaun looked around at his friends wondering when someone would clue in. Eventually Joe did. 
+ 
+
+===
+
+The guys sat around the TV waiting for the game to start. Shaun looked around at his friends wondering when someone would clue in. Eventually Joe did. 
 
  "Hey, man, where's the beer?" he spouted. 
 

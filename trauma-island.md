@@ -1,8 +1,14 @@
+Trauma Island
+=============
 #1 
 
  
 
- ****** Trauma Island ****** byfastandsloppy© (Author's Note: I was going to warn sensitive Christian readers to avoid this tale but it occurred to me that such people would not be reading rape-fantasy stories anyway. So no such warning is offered. 
+ 
+
+===
+
+(Author's Note: I was going to warn sensitive Christian readers to avoid this tale but it occurred to me that such people would not be reading rape-fantasy stories anyway. So no such warning is offered. 
 
  Everyone involved in the action in this story is not only least eighteen but is also entirely fictional. And I do not condone real life forced sex in any way, ever. 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** Trauma Island ****** byfastandsloppy© Something in her soul broke at this moment. Being violated by a six men was traumatic, being marched into town topless and covered in sperm was humiliating, but being orally raped in public as the local peasants gawked and applauded damaged something in her forever. 
+ 
+
+===
+
+Something in her soul broke at this moment. Being violated by a six men was traumatic, being marched into town topless and covered in sperm was humiliating, but being orally raped in public as the local peasants gawked and applauded damaged something in her forever. 
 
  The details of the walk to the square were hazy from there. After being fed the lout's sperm another stepped up to tit-fuck her slime coated breasts and spray his load across her face. They soon stopped for another villager who fucked her mouth with his head while he worked his shaft with his hand. They were stopped several more times, always to cheers from the onlookers. Men called for her to kneel to accept their load as they jacked it onto her or as she was forced to use her mouth to satisfy them. She lost track of how many of men used her as she was walked through the streets with an ever growing crowd of laughing, cheering villagers who would occasionally run up to grab one of her filthy, dripping tits or grope her ass. It shocked her when several women, some young, some old, came up to kiss her full on her mouth or on one of her nipples, stretching strands of congealed spunk as they withdrew. Layers of semen flowed over her and draped from her body in curdled sheets as they finally reached a large raised platform in an open square. 
 

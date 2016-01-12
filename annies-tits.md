@@ -1,8 +1,14 @@
+Annie's Tits
+============
 #1 
 
  
 
- ****** Annie's Tits ****** byJust_Plain_Bob© It was supposed to be a joke. Every year, a couple of months ahead of time, my wife will ask me what I want for my birthday, or for Christmas, or our anniversary. Every year she gets the same answer, "I don't know. Whatever is fine by me." This has gone on for twenty years now and it's always the same, it has never, ever changed. One day we were sitting in our favorite restaurant having breakfast and Jeri asked me what I wanted for my birthday and I said, "I want to see Annie's tits." Jeri, expecting my usual 'I don't know", was caught totally by surprise and she spit out the mouthful of coffee she was just sipping. Annie, our waitress, saw it happen and hurried over with a rag to wipe it up, "You okay hon? Something wrong with the coffee?" 
+ 
+
+===
+
+It was supposed to be a joke. Every year, a couple of months ahead of time, my wife will ask me what I want for my birthday, or for Christmas, or our anniversary. Every year she gets the same answer, "I don't know. Whatever is fine by me." This has gone on for twenty years now and it's always the same, it has never, ever changed. One day we were sitting in our favorite restaurant having breakfast and Jeri asked me what I wanted for my birthday and I said, "I want to see Annie's tits." Jeri, expecting my usual 'I don't know", was caught totally by surprise and she spit out the mouthful of coffee she was just sipping. Annie, our waitress, saw it happen and hurried over with a rag to wipe it up, "You okay hon? Something wrong with the coffee?" 
 
  After Annie had gone my wife said, "What in the world do you mean?" 
 

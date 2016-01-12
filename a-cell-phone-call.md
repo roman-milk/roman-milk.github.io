@@ -1,8 +1,14 @@
+A Cell Phone Call
+=================
 #1 
 
  
 
- ****** A Cell Phone Call ****** byJust_Plain_Bob© I was driving down I-225 when my life changed. Actually when my life went to hell would be more accurate. I had just dropped my wife off at work. She had taken her car into the dealership the day previous for a recall item and she was going to pick it up that day during her lunch hour. 
+ 
+
+===
+
+I was driving down I-225 when my life changed. Actually when my life went to hell would be more accurate. I had just dropped my wife off at work. She had taken her car into the dealership the day previous for a recall item and she was going to pick it up that day during her lunch hour. 
 
  I was just merging onto I-25 when the cell phone rang. I flipped it open and the cell kept ringing and I suddenly realized that it wasn't my phone going off. I looked over and saw Candy's cell phone lying on the passenger seat close to the passenger door. No way was I going to reach over and pick it up while I was trying to merge with rush hour traffic so it rang a few more times and then stopped. 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** A Cell Phone Call ****** byJust_Plain_Bob© It was five after eight when Candy got home and I was in the kitchen drinking a beer and working the crossword puzzle from the day's paper when she walked in. 
+ 
+
+===
+
+It was five after eight when Candy got home and I was in the kitchen drinking a beer and working the crossword puzzle from the day's paper when she walked in. 
 
  "Hi honey" she said and she bent to kiss me. I turned my head so instead of my lips she got my cheek. She stepped back and said: 
 

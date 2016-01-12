@@ -1,8 +1,14 @@
+Porn Night
+==========
 #1 
 
  
 
- ****** Porn Night ****** bygeronimo_appleby© Foreword 
+ 
+
+===
+
+Foreword 
 
  A short Loving Wives piece this time. No wimpy cuck husband, no BBC, and no slut-wife or BTB revenge. This is a short scene about a husband and wife and some spice they add to their marriage. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Porn Night ****** bygeronimo_appleby© Melissa's strident tone eventually seeps through. "Don't waste it!" she squeaks, shoving Alan's hand away from his cock. 
+ 
+
+===
+
+Melissa's strident tone eventually seeps through. "Don't waste it!" she squeaks, shoving Alan's hand away from his cock. 
 
  Alan blinks, then mumbles, "I'm gonna come." 
 

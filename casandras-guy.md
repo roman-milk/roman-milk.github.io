@@ -1,8 +1,14 @@
+Casandra's Guy
+==============
 #1 
 
  
 
- ****** Casandra's Guy ****** byJust_Plain_Bob© I met Cassandra in college during my sophomore year. I'd seen her around campus since my first day as a freshman, but our paths had never crossed. One night I was at a party and there she was, surrounded by a platoon of male admirers. We made eye contact, I smiled, she looked away and I went and got myself another beer. 
+ 
+
+===
+
+I met Cassandra in college during my sophomore year. I'd seen her around campus since my first day as a freshman, but our paths had never crossed. One night I was at a party and there she was, surrounded by a platoon of male admirers. We made eye contact, I smiled, she looked away and I went and got myself another beer. 
 
  I was outside on the back patio catching a breath of fresh air. It was a clear night and I was looking up at the stars when a voice behind me said, "Which one do you think I should have named after me?" 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Casandra's Guy ****** byJust_Plain_Bob© And it seemed that she didn't know me any better than I knew her. How could she possibly think that I could accept what she was doing? Where did she get the idea that just because she said she loved me and that she knew that I loved her that everything was okay? And just where in the hell had the idea that all that was wrong was that I felt left out come from? Did she really think that I was going to follow her and her lover, boyfriend or whatever he was to the bedroom? 
+ 
+
+===
+
+And it seemed that she didn't know me any better than I knew her. How could she possibly think that I could accept what she was doing? Where did she get the idea that just because she said she loved me and that she knew that I loved her that everything was okay? And just where in the hell had the idea that all that was wrong was that I felt left out come from? Did she really think that I was going to follow her and her lover, boyfriend or whatever he was to the bedroom? 
 
  I grabbed my coat and was headed for the door when I heard Cassie shout, "Oh Jesus yes, just like that, just like that" from the bedroom. I don't know why, but all of a sudden curiosity got the best of me and I headed for the bedroom. 
 

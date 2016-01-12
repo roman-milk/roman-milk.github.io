@@ -1,8 +1,14 @@
+Revenge Gone Bad
+================
 #1 
 
  
 
- ****** Revenge Gone Bad ****** byJust_Plain_Bob© It started about six months ago when Frank came home from a six day business trip and I found a pair of women's underpants in his dirty clothes. I didn't think anything of it because when he is on his trips it is with a crew of three others and two of them -- Chad and Jerry -- are practical jokers and I figured that they were setting Frank up for a ball busting from me. 
+ 
+
+===
+
+It started about six months ago when Frank came home from a six day business trip and I found a pair of women's underpants in his dirty clothes. I didn't think anything of it because when he is on his trips it is with a crew of three others and two of them -- Chad and Jerry -- are practical jokers and I figured that they were setting Frank up for a ball busting from me. 
 
  Three months ago when he got home from another equipment installation trip I found a brassiere in his dirty clothes. I again just smiled and tossed it in the trash. I hadn't bitten on the panties so Chad or Jerry tried it with a bra. On his next trip I found another pair of panties in his dirty clothes only this time the crotch gusset was still wet. I held it to my nose and took a sniff and it definitely had the smell of sperm. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Revenge Gone Bad ****** byJust_Plain_Bob© We would be having a barbecue on Saturday and Jerry would be there and I decided that I would try and get something going with him. Mike and Stan would also be there so if things didn't go well with Jerry I'd give one of them a try. Chad would also be there and I was going to corner him about his not mentioning Gloria and maybe -- just maybe -- set up another meeting with him. 
+ 
+
+===
+
+We would be having a barbecue on Saturday and Jerry would be there and I decided that I would try and get something going with him. Mike and Stan would also be there so if things didn't go well with Jerry I'd give one of them a try. Chad would also be there and I was going to corner him about his not mentioning Gloria and maybe -- just maybe -- set up another meeting with him. 
 
  ++++++++++++++++++ 
 
@@ -472,7 +482,11 @@
 
  
 
- ****** Revenge Gone Bad ****** byJust_Plain_Bob© At ten on Sunday morning the doorbell rang and when I went to the door and opened it I found Jack standing there with a big smile on his face and a bouquet of flowers in his hand. I wasn't expecting that and I was touched. The simple act of handing me a bunch of flowers changed things from simply drawing a line through a number on The Get Even Sheet to something else. I wasn't sure what, but definitely something else. 
+ 
+
+===
+
+At ten on Sunday morning the doorbell rang and when I went to the door and opened it I found Jack standing there with a big smile on his face and a bouquet of flowers in his hand. I wasn't expecting that and I was touched. The simple act of handing me a bunch of flowers changed things from simply drawing a line through a number on The Get Even Sheet to something else. I wasn't sure what, but definitely something else. 
 
  In addition to the floral bouquet he brought another surprise. Jack was big! Chad, Jerry and Frank were pretty much all the same size and all three of them were roughly the same size as the three men I'd had sex with before meeting and marrying Frank, but Jack was big! He was at least three inches longer and at least an inch bigger around than any of the other cocks I'd ever seen. 
 
@@ -578,7 +592,11 @@
 
  
 
- ****** Revenge Gone Bad Ch. 02 ****** byJust_Plain_Bob© "That brings me to the favors I mentioned last night." 
+ 
+
+===
+
+"That brings me to the favors I mentioned last night." 
 
  The first was for him to call Chad and Jerry and tell them what a great time he'd had and tell them that I was looking forward to seeing them over the weekend. 
 

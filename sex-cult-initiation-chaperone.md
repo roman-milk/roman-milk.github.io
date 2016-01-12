@@ -1,8 +1,14 @@
+Sex-Cult Initiation Chaperone
+=============================
 #1 
 
  
 
- ****** Sex-Cult Initiation Chaperone ****** byfastandsloppy© (Author's Note: This is the third of my "Chaperone" stories - The other two being "Gangbang Chaperone" and "Glory Hole Chaperone" - all of which follow the sexual misadventures of Patty and her daughter Jane. These are all stand-alone tales, so don't feel obligated to 'catch-up' before reading. However, you should because they're awesome. 
+ 
+
+===
+
+(Author's Note: This is the third of my "Chaperone" stories - The other two being "Gangbang Chaperone" and "Glory Hole Chaperone" - all of which follow the sexual misadventures of Patty and her daughter Jane. These are all stand-alone tales, so don't feel obligated to 'catch-up' before reading. However, you should because they're awesome. 
 
  Also: a warning: The sexual activities in this work of fiction are diverse and occasionally extreme. Therefore, this tale is not for those of sensitive temperament or finicky tastes.) 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Sex-Cult Initiation Chaperone ****** byfastandsloppy© "Good. That means we're doing it right." 
+ 
+
+===
+
+"Good. That means we're doing it right." 
 
  I was wondering if she was going to give me trouble. I'd given her the second plug while we waited for our connecting flight in Atlanta and she'd gotten suddenly fussy, insisting I just admit this was all of one of Tom's plans. I told her nothing (just as Tom had specified). Fortunately she relented and sulked off to the bathroom to upgrade to the second plug (without 'help' from me this time... honest) but I worried she was winding herself up and might cause a scene on the flight. I'd be mortified if she embarrassed us while we were flying first class to Europe (and did I mention, Tom was flying us First Class? FIRST CLASS!!!) 
 
@@ -432,7 +442,11 @@
 
  
 
- ****** Sex-Cult Initiation Chaperone ****** byfastandsloppy© The entire room was focused on us when Tom spoke up. "My dear sister, why is this dog dressed like a school girl? Is this supposed to be a joke?" 
+ 
+
+===
+
+The entire room was focused on us when Tom spoke up. "My dear sister, why is this dog dressed like a school girl? Is this supposed to be a joke?" 
 
  "Perhaps she thinks she is people?" said Theresa with a smirk. 
 
@@ -582,7 +596,11 @@
 
  
 
- ****** Sex-Cult Initiation Chaperone ****** byfastandsloppy© I glowered at him. 
+ 
+
+===
+
+I glowered at him. 
 
  "As I said, this is a game... a game I play very well. I have nearly all my pieces in place for today's tournament. But there is but one detail to my strategy still unattended to. And that is what I will need you for, Patricia." 
 
@@ -730,7 +748,11 @@
 
  
 
- ****** Sex-Cult Initiation Chaperone ****** byfastandsloppy© That happy smile was all I needed. My relief that my daughter was actually having a lovely time was total. I let my anxiety and anger float away and gave myself over to the churning crush of sex and desire that congealed around us. 
+ 
+
+===
+
+That happy smile was all I needed. My relief that my daughter was actually having a lovely time was total. I let my anxiety and anger float away and gave myself over to the churning crush of sex and desire that congealed around us. 
 
  I should be able to fill a book with all the depravity we enjoyed that night but, in truth, I have only choppy recollections of the action after I saw Janie's eager smile. I was unbound at some point and I wound up on the floor beside Janie as men and women came and went, all using our bodies as a playground and quite a few sending us howling through increasingly mind- shredding climaxes. However, as for a blow-by-blow of what happened and when, any such coherent narrative is beyond the recollection of my sex-scrambled memories. My apologies, dear reader. 
 

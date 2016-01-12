@@ -1,8 +1,14 @@
+The Power Outage
+================
 #1 
 
  
 
- ****** The Power Outage ****** byJust_Plain_Bob© Diane looked up from her computer screen when the APC started to chirp and noticed that the second hand on the clock wasn't moving. "Not again" she groaned as she shut down her computer. It was the third time in six months that the power had gone down. When was the landlord going to get his head out of his ass and do something about the problem? 
+ 
+
+===
+
+Diane looked up from her computer screen when the APC started to chirp and noticed that the second hand on the clock wasn't moving. "Not again" she groaned as she shut down her computer. It was the third time in six months that the power had gone down. When was the landlord going to get his head out of his ass and do something about the problem? 
 
  She got up from her desk and walked down the hall to Mike's office. He was on his cell phone and she waited for him to disconnect. He finished his call and he looked up at her and answered her unasked question: 
 

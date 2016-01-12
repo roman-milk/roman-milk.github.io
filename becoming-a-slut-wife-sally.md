@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Sally
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Sally ****** byJust_Plain_Bob© For the longest time I've had the huge desire to see my wife with another man. I kept that to myself for several years because I knew what Sally's response would be -"No! Not just no, but hell no!" That would have been followed by several week of her not talking to me. One night we went to a party given by some friends. It was a friendly group and we knew almost everyone there and we were having a great time. We both had just enough to drink to put us in a really great mood and soon some one cranked up the stereo and the living room furniture ended up in the dining room to create a dance floor. My wife loves to dance and I don't so I usually watch while she dances with anyone who will ask her. 
+ 
+
+===
+
+For the longest time I've had the huge desire to see my wife with another man. I kept that to myself for several years because I knew what Sally's response would be -"No! Not just no, but hell no!" That would have been followed by several week of her not talking to me. One night we went to a party given by some friends. It was a friendly group and we knew almost everyone there and we were having a great time. We both had just enough to drink to put us in a really great mood and soon some one cranked up the stereo and the living room furniture ended up in the dining room to create a dance floor. My wife loves to dance and I don't so I usually watch while she dances with anyone who will ask her. 
 
  Given my fantasy it was only natural (for me anyway) to watch her dance and to try and visualize what she would look like fucking her dance partner. She danced with several guys that night as I sipped my drink and watched. Actually it was as I sat, watched and got a hard on. As we were driving home that night Sally said to me, "What was on your mind tonight? Every time I looked over at you I could see you watching me, but you seemed to be somewhere else." 
 

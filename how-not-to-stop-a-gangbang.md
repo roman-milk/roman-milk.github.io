@@ -1,8 +1,14 @@
+How NOT to Stop a Gangbang
+==========================
 #1 
 
  
 
- ****** How NOT to Stop a Gangbang ****** byfastandsloppy© (Note from the Author: Although this is a gangbang story, as you have probably guessed by the title, there is quite a varied catalog of other deviant sexual behavior that my misguided heroine encounters on her odyssey of debauchery. If you do not have an open mind about a wide variety of sexual situations perhaps you should move on and read one of the dozen or so stories about werewolves fucking vampires that were probably posted today. It would sadden me if, after logging into a website devoted to erotic writing, you wound up being offended by something you thought was yucky in a story with the word "gangbang" in the title. I do not wish to offend, only to entertain. 
+ 
+
+===
+
+(Note from the Author: Although this is a gangbang story, as you have probably guessed by the title, there is quite a varied catalog of other deviant sexual behavior that my misguided heroine encounters on her odyssey of debauchery. If you do not have an open mind about a wide variety of sexual situations perhaps you should move on and read one of the dozen or so stories about werewolves fucking vampires that were probably posted today. It would sadden me if, after logging into a website devoted to erotic writing, you wound up being offended by something you thought was yucky in a story with the word "gangbang" in the title. I do not wish to offend, only to entertain. 
 
  Thank you, Dear Reader. Now, on to our tale...) 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** How NOT to Stop a Gangbang ****** byfastandsloppy© It surprises me sometimes how goddamned vain I am. I actually felt proud when I realized that she was considering me an A-list girl. "What would I have to do?" 
+ 
+
+===
+
+It surprises me sometimes how goddamned vain I am. I actually felt proud when I realized that she was considering me an A-list girl. "What would I have to do?" 
 
  
 
@@ -418,7 +428,11 @@
 
  
 
- ****** How NOT to Stop a Gangbang ****** byfastandsloppy© As things started to settle down one of the older guys asked something in Japanese. A couple of guys translated simultaneously, "How old areyou?" they wanted to know. 
+ 
+
+===
+
+As things started to settle down one of the older guys asked something in Japanese. A couple of guys translated simultaneously, "How old areyou?" they wanted to know. 
 
  I don't know if it was the sake or just the good natured attention I was getting, but I was starting to like these guys. I decided to give them a treat. "Sixteen," I said. I don't think I look sixteen. But I guess with my big eyes, freckles and the ridiculous pig-tails, someone could convince themselves I'm seven years younger than I really am; especially if they really, really wanted to believe it; which, apparently, these guys did. 
 
@@ -592,7 +606,11 @@
 
  
 
- ****** How NOT to Stop a Gangbang ****** byfastandsloppy© The dress was the traditional virginal white, but strapless and tight; I had wanted something to show off the goods on my big day. As I got dressed I considered not bothering with the white stockings and lacy garters I'd bought to go under it, but since I had to put on the strapless bra anyway I figured I might as well don the whole costume, inside and out. After I had prepared I checked myself out in the long mirror and damndid I look good. When I managed to suppress my vengeful grin I looked just as hot and as virginal as eight pounds of taffeta and lace can make a girl. 
+ 
+
+===
+
+The dress was the traditional virginal white, but strapless and tight; I had wanted something to show off the goods on my big day. As I got dressed I considered not bothering with the white stockings and lacy garters I'd bought to go under it, but since I had to put on the strapless bra anyway I figured I might as well don the whole costume, inside and out. After I had prepared I checked myself out in the long mirror and damndid I look good. When I managed to suppress my vengeful grin I looked just as hot and as virginal as eight pounds of taffeta and lace can make a girl. 
 
  Shortly before noon I pulled up in front of a grand looking house in a community full of grand looking houses wrapped around a lake and fronted by a sprawling golf course. Knowing Adam, I was expecting the address Sheila gave me to be a sleazy motel. I briefly wondered who the hell Adam could know that had access to a place like this. 
 

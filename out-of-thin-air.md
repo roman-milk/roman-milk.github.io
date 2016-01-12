@@ -1,8 +1,14 @@
+Out of Thin Air Ch. 01
+======================
 #1 
 
  
 
- ****** Out of Thin Air Ch. 01 ****** byJust_Plain_Bob© She filled my coffee cup and I mumbled thanks. It took me a moment to notice that she hadn't taken the pot and moved to another table. I looked up at her and she knew what I was thinking. "Just curious" she said, "Every morning you come in here and it's the same thing. Several cups of coffee while you read the morning paper and eat your breakfast and then you take that pad out of your briefcase and write on it for a half or or so while you drink more coffee. What are you writing?" 
+ 
+
+===
+
+She filled my coffee cup and I mumbled thanks. It took me a moment to notice that she hadn't taken the pot and moved to another table. I looked up at her and she knew what I was thinking. "Just curious" she said, "Every morning you come in here and it's the same thing. Several cups of coffee while you read the morning paper and eat your breakfast and then you take that pad out of your briefcase and write on it for a half or or so while you drink more coffee. What are you writing?" 
 
  "I don't know you well enough to tell you." 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** Out of Thin Air Ch. 02 ****** byJust_Plain_Bob© "How many more times did you cheat on Harry?" 
+ 
+
+===
+
+"How many more times did you cheat on Harry?" 
 
  Three more times, not counting tonight." 
 
@@ -348,7 +358,11 @@
 
  
 
- ****** Out of Thin Air Ch. 02 ****** byJust_Plain_Bob© +++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++ 
 
  "So, that's my story of the second time I cheated on Harry. Are you ready?" she asked me as she started to unbutton her blouse. 
 
@@ -360,7 +374,11 @@
 
  
 
- ****** Out of Thin Air Ch. 03 ****** byJust_Plain_Bob© I was sitting in a booth at the restaurant when Debbie came over to refill my coffee cup. She topped me off and then sat down and asked me: 
+ 
+
+===
+
+I was sitting in a booth at the restaurant when Debbie came over to refill my coffee cup. She topped me off and then sat down and asked me: 
 
  "How's the second story coming along?" 
 
@@ -466,7 +484,11 @@
 
  
 
- ****** Out of Thin Air Ch. 04 ****** byJust_Plain_Bob© I was busy pounding away on my computer keyboard when the doorbell rang. I got up to answer it and found Debbie standing there. 
+ 
+
+===
+
+I was busy pounding away on my computer keyboard when the doorbell rang. I got up to answer it and found Debbie standing there. 
 
  "I know you weren't expecting me, but Harry got a call and had to leave. Can I come in?" 
 

@@ -1,8 +1,14 @@
+Dirty Susan
+===========
 #1 
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© Well, this one started out as a short, intense Loving Wives piece. But it got away from me and here we are in Group Sex. 
+ 
+
+===
+
+Well, this one started out as a short, intense Loving Wives piece. But it got away from me and here we are in Group Sex. 
 
  Susan likes to watch people having sex. She enjoys being involved in the action, too. She seduces her friend, Stephanie – and it goes on from there. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© "You don't want to lick me down there, Daddy?" Amy said, a moue of disappointment pursing her lips. 
+ 
+
+===
+
+"You don't want to lick me down there, Daddy?" Amy said, a moue of disappointment pursing her lips. 
 
  Amy paused for a few seconds, posing deliberately to allow Michael time to appreciate her vulva. Then, brightening, Amy let go of the kilt. She shrugged and clambered onto the bed, straddling Michael's thighs. 
 
@@ -428,7 +438,11 @@
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© "I'll be half-an-hour," Stephanie replied. 
+ 
+
+===
+
+"I'll be half-an-hour," Stephanie replied. 
 
  "Great. See you soon. Ciao." 
 
@@ -656,7 +670,11 @@
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© "Looking good, Suze," interjected John as he approached. He pecked a kiss against Susan's cheek. "Yep, this is Omar." He winked and gave the blonde his cheeky grin. "Omar, Suze. Suze, Omar." 
+ 
+
+===
+
+"Looking good, Suze," interjected John as he approached. He pecked a kiss against Susan's cheek. "Yep, this is Omar." He winked and gave the blonde his cheeky grin. "Omar, Suze. Suze, Omar." 
 
  "Hello, Susan," Omar responded with a languid wave. 
 
@@ -892,7 +910,11 @@
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© At the same time, with Michael berating Amy, an incredulous Stephanie cried: "You brought her here? You expect me to go with you and her?" Stephanie shook her head, flabbergasted, and, spluttering with outrage, added, "You've humiliated me, Michael. Turned me into a needy and desperate woman and I hate you for it." 
+ 
+
+===
+
+At the same time, with Michael berating Amy, an incredulous Stephanie cried: "You brought her here? You expect me to go with you and her?" Stephanie shook her head, flabbergasted, and, spluttering with outrage, added, "You've humiliated me, Michael. Turned me into a needy and desperate woman and I hate you for it." 
 
  There was a raucous laugh from Susan while Ray muttered, "Fucking hell, it's a fucking freakshow." 
 
@@ -1116,7 +1138,11 @@
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© Semen splashed against Susan's hip, the ejaculate squirting out of John in a hot and viscous outpouring that spattered against her skin and began a slow, glutinous slide down her leg. 
+ 
+
+===
+
+Semen splashed against Susan's hip, the ejaculate squirting out of John in a hot and viscous outpouring that spattered against her skin and began a slow, glutinous slide down her leg. 
 
  There were more cries and sighs and gasps. Grunts and groans and muttered obscenities peppered the air. 
 
@@ -1330,7 +1356,11 @@
 
  
 
- ****** Dirty Susan ****** bygeronimo_appleby© Occasionally Susan and Stephanie would swap partners, often kissing each other, girls together as they sucked and fucked and climaxed. 
+ 
+
+===
+
+Occasionally Susan and Stephanie would swap partners, often kissing each other, girls together as they sucked and fucked and climaxed. 
 
  "I'd better look for a place of my own," Stephanie mumbled to her friend at one point. She was on her hands and knees with Omar's dick plundering her from behind. 
 

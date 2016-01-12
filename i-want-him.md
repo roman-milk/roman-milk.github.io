@@ -1,8 +1,14 @@
+I Want Him
+==========
 #1 
 
  
 
- ****** I Want Him ****** byGotBacon© Sandy is a student at UCLA. 
+ 
+
+===
+
+Sandy is a student at UCLA. 
 
  Her mother and father were killed in a horrible auto accident. She received quite a large sum from the auto and life insurance policies. She has enrolled in some business and management courses so he can manage the money. 
 
@@ -400,7 +406,11 @@
 
  
 
- ****** I Want Him ****** byGotBacon© "Now. Cum in me. Please. Now. I want it now. Cum in me. Put your hot cum in my cervix. I want that hot cum in me." 
+ 
+
+===
+
+"Now. Cum in me. Please. Now. I want it now. Cum in me. Put your hot cum in my cervix. I want that hot cum in me." 
 
  He strokes a few time and then rams into me. His cum squirts in me and I scream our in ecstasy. I cum with every squirt. He keeps cumming in me forever. 
 

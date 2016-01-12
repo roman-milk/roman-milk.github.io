@@ -1,8 +1,14 @@
+The Marital Bed
+===============
 #1 
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© ======================= 
+ 
+
+===
+
+======================= 
 
  He loves her family, one of them, perhaps too much. 
 
@@ -162,7 +168,11 @@
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© My sister-in-law Alice half-heartedly offered to take over, but it wasn't what we needed. She worked, and traveled. She was only thirty-two, and after two failed marriages was having trouble settling down. She lived an hour away, and would have either had to quit her job, or commute well over an hour each way during rush hour. 
+ 
+
+===
+
+My sister-in-law Alice half-heartedly offered to take over, but it wasn't what we needed. She worked, and traveled. She was only thirty-two, and after two failed marriages was having trouble settling down. She lived an hour away, and would have either had to quit her job, or commute well over an hour each way during rush hour. 
 
  Roger and Caroline's issues were similar. Dana worked downtown, well over an hour from the property during rush hour. They lived twenty miles away. Dana couldn't do anything about her job; she was two years away from a pension. Roger had officially retired, but was still working part-time, also downtown. They could do it, but Grandma would still be alone during the day, and Caroline's commute would be over three hours a day. 
 
@@ -308,7 +318,11 @@
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© It was her best night in weeks. Her memory was good, and she was nothing but smiles and laughter, while we chatted around the dinner table. Dana was ecstatic, to see her Grandmother doing so well. The kids took it in stride, and little Caroline was proud as a peacock when she presented us with the first apple pie she'd ever made. It was delicious. 
+ 
+
+===
+
+It was her best night in weeks. Her memory was good, and she was nothing but smiles and laughter, while we chatted around the dinner table. Dana was ecstatic, to see her Grandmother doing so well. The kids took it in stride, and little Caroline was proud as a peacock when she presented us with the first apple pie she'd ever made. It was delicious. 
 
  Late that night, after everyone had gone to bed, my wife and I retired to our own. I knew I had to tell her what had happened. I was feeling more than a little guilty about it. 
 
@@ -554,7 +568,11 @@
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© With time on my hands, I was checking on the addition's progress, cleaning out an old shed behind the garage that probably hadn't been looked at in twenty years, and eventually, organizing and cleaning Grandpa's workshop and the garage which had been overtaken with all his work and tools. 
+ 
+
+===
+
+With time on my hands, I was checking on the addition's progress, cleaning out an old shed behind the garage that probably hadn't been looked at in twenty years, and eventually, organizing and cleaning Grandpa's workshop and the garage which had been overtaken with all his work and tools. 
 
  I was nervous about that, but the first time Grandma came out to see what I was up to, she just looked around, and left. She had that confused look again, and I knew it was a bad day. 
 
@@ -830,7 +848,11 @@
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© "It sure sounded like you were," she said. 
+ 
+
+===
+
+"It sure sounded like you were," she said. 
 
  I reached out for her, and thankfully, she didn't pull away. "I love when you do it. Sure, I'd like more, but it isn't that big a deal. I'm happy with you, and our love life. Even if the ratio of oral sex is heavily skewed." The fact was, I did it to her a lot more often. A lot. 
 
@@ -1054,7 +1076,11 @@
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© * * * 
+ 
+
+===
+
+* * * 
 
  It was about two weeks into the almost daily 'quickies' that things changed again. Grandma had been solidly in 'young' Grandma mode all day long. We'd had sex twice, which was a first for us, and she'd made her world famous buttermilk fried chicken. I had abandoned her and the kids to do a walk-through of the addition. It was finally done, had passed all the city inspections, and we'd completed the finish work, with paint, carpeting, and tiling the bathroom. 
 
@@ -1314,7 +1340,11 @@
 
  
 
- ****** The Marital Bed ****** byTx_Tall_Tales© "I get it, believe me. You're an incredible, sexy woman, Dana." 
+ 
+
+===
+
+"I get it, believe me. You're an incredible, sexy woman, Dana." 
 
  She leaned down and kissed me. "Hush, honey. It's time to be naughty." 
 

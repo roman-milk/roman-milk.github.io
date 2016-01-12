@@ -1,8 +1,14 @@
+Shortcut Home
+=============
 #1 
 
  
 
- ****** Shortcut Home ****** bygeronimo_appleby© There is nothing I wouldn't give not to have seen it. If I could erase it from memory I would. But see it I did. It appeared suddenly, a stutter in the corner of my eye. I turned my head slightly expecting to see a fox or a cat, maybe a drunk, the usual scavengers or miscreants with business in a skip at the back of the shops in the dark of night. Instead I saw ... it. 
+ 
+
+===
+
+There is nothing I wouldn't give not to have seen it. If I could erase it from memory I would. But see it I did. It appeared suddenly, a stutter in the corner of my eye. I turned my head slightly expecting to see a fox or a cat, maybe a drunk, the usual scavengers or miscreants with business in a skip at the back of the shops in the dark of night. Instead I saw ... it. 
 
  At first the shape of it puzzled me, its silhouette an oddity. Curious, I stepped closer. 
 

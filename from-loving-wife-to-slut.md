@@ -1,8 +1,14 @@
+From Loving Wife to Slut Ch. 01
+===============================
 #1 
 
  
 
- ****** From Loving Wife to Slut Ch. 01 ****** byJust_Plain_Bob© Authors note: By the time I reached chapter 5 of this story I had changed my mind about which way I wanted to go with it. I liked the original idea, but I also liked the thought of going someplace else with it. In the end I decided to do both stories. It is not an alternate ending, but a different story line altogether. Chapters 1a through 7a are the original story and chapters 5b through 8b are the different story. Hopefully you will like at least one of them. 
+ 
+
+===
+
+Authors note: By the time I reached chapter 5 of this story I had changed my mind about which way I wanted to go with it. I liked the original idea, but I also liked the thought of going someplace else with it. In the end I decided to do both stories. It is not an alternate ending, but a different story line altogether. Chapters 1a through 7a are the original story and chapters 5b through 8b are the different story. Hopefully you will like at least one of them. 
 
  ++++++++++++++++++ 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 02a ****** byJust_Plain_Bob© She smiled to herself as she hung up the phone. She had just done something that she hadn't thought she was capable of - she had said no to Jake. 
+ 
+
+===
+
+She smiled to herself as she hung up the phone. She had just done something that she hadn't thought she was capable of - she had said no to Jake. 
 
  The call had come at eleven-thirty. "Meet me at one in room 416 at the Marriott. Wear something sexy and make sure you have your diaphragm in." 
 
@@ -346,7 +356,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 03 ****** byJust_Plain_Bob© The blackmail affair with Jerry and Scott had continued twice a week until the first of September. Classes started at the local college and her meetings with the boys went from twice a week to once a week on Wednesday. She was surprised to find that she missed her twice weekly bouts with the two lusty young studs. No, that's not true she thought, what she missed is what she did with them. She missed the anal sex. 
+ 
+
+===
+
+The blackmail affair with Jerry and Scott had continued twice a week until the first of September. Classes started at the local college and her meetings with the boys went from twice a week to once a week on Wednesday. She was surprised to find that she missed her twice weekly bouts with the two lusty young studs. No, that's not true she thought, what she missed is what she did with them. She missed the anal sex. 
 
  She had never had anal sex before meeting Jake. Gary had tried to talk her into it several times, but she had always refused. Jake didn't try to talk her into it, he just took it. She had hollered, screamed and squealed like a pig when he did it, but she had loved it and one of the first things she had taught Jerry and Scott was the joy of anal sex and she missed it. She couldn't get it from her husband even though she very much wanted to let him have her ass. She had turned him down too many times for her to be able to go to him and ask for it now. It might make him wonder why now and making him wonder might get him to thinking thoughts she would rather he not have. 
 
@@ -532,7 +546,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 04 ****** byJust_Plain_Bob© It was Wednesday afternoon and Jerry and Scott had just finished putting her through the wringer. She had started them off with blow jobs, fucked each of them once and then they had started on combinations. She sucked on Jerry while Scott ate her pussy. She sucked on Scott's cock as Jerry fucked her ass, Jerry ate her pussy while she tongued Scott's butt hole and then they did their favorite thing (and hers) and took her pussy and ass at the same time. They did it twice, each one once in each hole. As usual, at least as far as she was concerned, it ended all too soon, but she did have to beat Gary home and get dinner on the stove. 
+ 
+
+===
+
+It was Wednesday afternoon and Jerry and Scott had just finished putting her through the wringer. She had started them off with blow jobs, fucked each of them once and then they had started on combinations. She sucked on Jerry while Scott ate her pussy. She sucked on Scott's cock as Jerry fucked her ass, Jerry ate her pussy while she tongued Scott's butt hole and then they did their favorite thing (and hers) and took her pussy and ass at the same time. They did it twice, each one once in each hole. As usual, at least as far as she was concerned, it ended all too soon, but she did have to beat Gary home and get dinner on the stove. 
 
  As they were getting dressed Jerry asked, "How would you like to get the tape back early?" 
 
@@ -646,7 +664,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 05a ****** byJust_Plain_Bob© She had dinner on the table when Gary and David got home and when they were clearing the dishes from the table Gary asked: 
+ 
+
+===
+
+She had dinner on the table when Gary and David got home and when they were clearing the dishes from the table Gary asked: 
 
  "We didn't have anything planned for tomorrow night, did we?" 
 
@@ -742,7 +764,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 05b ****** byJust_Plain_Bob© She had dinner on the table when Gary and David got home and when they were clearing the dishes from the table Gary asked: 
+ 
+
+===
+
+She had dinner on the table when Gary and David got home and when they were clearing the dishes from the table Gary asked: 
 
  "We didn't have anything planned for tomorrow night, did we?" 
 
@@ -816,7 +842,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 06a ****** byJust_Plain_Bob© She was up before Gary in the morning. She put on the coffee and then made her morning visit to the bathroom. As she wiped her pussy she noticed how loose it still was and she was glad that her time of the month was due. Even though it hadn't yet started she would still wear the sanitary napkin to keep Gary away. It looked like it might be a day or two, maybe even three, before she would tighten up enough that Gary wouldn't notice when they made love. 
+ 
+
+===
+
+She was up before Gary in the morning. She put on the coffee and then made her morning visit to the bathroom. As she wiped her pussy she noticed how loose it still was and she was glad that her time of the month was due. Even though it hadn't yet started she would still wear the sanitary napkin to keep Gary away. It looked like it might be a day or two, maybe even three, before she would tighten up enough that Gary wouldn't notice when they made love. 
 
  She thought back to the night before and how it had gone and she realized that she had loved every last bit of it. Her pussy tingled while she relived it in her mind. It was too bad that it would never happen again. She remembered how she had felt when she slid down that log that Rufe (the skinny black kid) had and wished she could do it every day. At the same time she knew that even if she could she wouldn't; her major goal was to get back to being Gary's loving wife. Last night had gotten her the tape and now all that was left was to get through Jake's party the coming Saturday. She would honor the deal she had made with Jake and that out of the way no one but Gary would ever touch her again. 
 
@@ -1020,7 +1050,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 06b ****** byJust_Plain_Bob© Fighting to get up would be a waste of time. The Asian boy had a death grip on her head; Jerry had his arms around her and was holding her against his chest as he worked his cock back and forth in her pussy. The shock at finding that her son David was fucking her butt hole was driven into the background by the strength of the orgasm that had just hit her. 
+ 
+
+===
+
+Fighting to get up would be a waste of time. The Asian boy had a death grip on her head; Jerry had his arms around her and was holding her against his chest as he worked his cock back and forth in her pussy. The shock at finding that her son David was fucking her butt hole was driven into the background by the strength of the orgasm that had just hit her. 
 
  The Asian boy made a small mewling sound and then his discharge hit the back of her throat and she greedily gulped and swallowed, not wasting a drop. The boy pulled back and stepped aside and another boy immediately took his place and slipped his cock into her open mouth. 
 
@@ -1260,7 +1294,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 06b ****** byJust_Plain_Bob© "Tell me something. Is Gary going to be made a vice president?" 
+ 
+
+===
+
+"Tell me something. Is Gary going to be made a vice president?" 
 
  "He will be getting Simpson's job when Simpson retires next month." 
 
@@ -1322,7 +1360,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 07a ****** byJust_Plain_Bob© She was in a different frame of mind when she headed for Jake's bedroom this time. The previous times her head had been full of mixed emotions. A part of her brain was telling her not to go to Jake, to turn around, go back and hang on Gary's arm. A different part of her brain was telling her that she needed what Jake could give her, that the brief time his cock was in her she was more alive than at any other time of her life. Fear of being caught was in her head, fear of losing Gary if he found out, but always, always, the attraction she could never understand pulled her toward the room. 
+ 
+
+===
+
+She was in a different frame of mind when she headed for Jake's bedroom this time. The previous times her head had been full of mixed emotions. A part of her brain was telling her not to go to Jake, to turn around, go back and hang on Gary's arm. A different part of her brain was telling her that she needed what Jake could give her, that the brief time his cock was in her she was more alive than at any other time of her life. Fear of being caught was in her head, fear of losing Gary if he found out, but always, always, the attraction she could never understand pulled her toward the room. 
 
  This time there was no warring in her head, no fear of losing Gary. Gary knew. Gary knew, had known all along, and he didn't care. She thought back to the night when Jake had taken her against the gazebo. She was certain now that the red/white flash she had seen was Gary watching her submit to his boss. 
 
@@ -1586,7 +1628,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 07a ****** byJust_Plain_Bob© "Wait a minute. What frat house gangbang?" 
+ 
+
+===
+
+"Wait a minute. What frat house gangbang?" 
 
  She explained about Jerry and Scott. "I had just started fucking Jake and even though it was you who gave me to him I still wasn't sure how you were going to take it and I didn't want you to see that tape before we talked. I kept waiting for you to bring the subject up, but you never did. But that said, I choose you. You say stop and I stop. That of course assumes that we still have a marriage." 
 
@@ -1616,7 +1662,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 07b ****** byJust_Plain_Bob© She was in a different frame of mind when she headed for Jake's bedroom this time. The previous times her head had been full of mixed emotions. A part of her brain was telling her not to go to Jake, to turn around, go back and hang on Gary's arm. A different part of her brain was telling her that she needed what Jake could give her, that the brief time his cock was in her she was more alive than at any other time of her life. Fear of being caught was in her head, fear of losing Gary if he found out, but always, always, the attraction she could never understand pulled her toward the room. 
+ 
+
+===
+
+She was in a different frame of mind when she headed for Jake's bedroom this time. The previous times her head had been full of mixed emotions. A part of her brain was telling her not to go to Jake, to turn around, go back and hang on Gary's arm. A different part of her brain was telling her that she needed what Jake could give her, that the brief time his cock was in her she was more alive than at any other time of her life. Fear of being caught was in her head, fear of losing Gary if he found out, but always, always, the attraction she could never understand pulled her toward the room. 
 
  This time there was no warring in her head, no fear of losing Gary. Gary knew. Gary knew, had known all along, and he didn't care. She thought back to the night when Jake had taken her against the gazebo. She was certain now that the red/white flash she had seen was Gary watching her submit to his boss. 
 
@@ -1876,7 +1926,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 07b ****** byJust_Plain_Bob© "What do you want?" 
+ 
+
+===
+
+"What do you want?" 
 
  "I want to hang on to you and our marriage. I won't lie to you, all the sex I've had since Jake took me I've loved and last nights gangbang was one of the most mind blowing things I've ever done and except for a frat house gangbang I have never been so sexually satisfied." 
 
@@ -1912,7 +1966,11 @@
 
  
 
- ****** From Loving Wife to Slut Ch. 08 ****** byJust_Plain_Bob© When I walked into the kitchen David was sitting at the kitchen table working on a bowl of cereal. It was the first time I had been alone with him since the night of Jake's party. I poured myself a cup of coffee and sat down at the table with him. 
+ 
+
+===
+
+When I walked into the kitchen David was sitting at the kitchen table working on a bowl of cereal. It was the first time I had been alone with him since the night of Jake's party. I poured myself a cup of coffee and sat down at the table with him. 
 
  "We need to talk young man." 
 

@@ -1,8 +1,14 @@
+Sell Baby, Sell
+===============
 #1 
 
  
 
- ****** Sell Baby, Sell ****** byJust_Plain_Bob© It was enough to make me want to scream! I worked my butt off for six weeks to land the deal and then the asshole who was supposed to be working with me, but who didn't do a damn thing except ask me once a week how things were going, got half the commission and a promotion. Don't ever let people tell you that women in the work place are not discriminated against - I'm living proof that they don't have a clue what they are talking about. 
+ 
+
+===
+
+It was enough to make me want to scream! I worked my butt off for six weeks to land the deal and then the asshole who was supposed to be working with me, but who didn't do a damn thing except ask me once a week how things were going, got half the commission and a promotion. Don't ever let people tell you that women in the work place are not discriminated against - I'm living proof that they don't have a clue what they are talking about. 
 
  I've worked for the XYZ Corporation for eleven years now and even though for eight of those eleven years I have been the highest grossing salesperson in the corporation I have never received a promotion. Raises yes, bonuses yes, but promotions no! I've watched as one incompetent after another has moved up the corporate ladder with absolutely nothing going for them except that they play golf and play cards with the right people. But for a woman even playing golf or cards with the right people isn't enough. I played poker once with the guys in upper management and never was asked to play again. I guess I hurt the VP's feelings when I bluffed him out of a fair sized pot. I've also played golf, once anyway, with the boys from upper management. The men's tee boxes on the course were being readied for a tournament and we all had to play from the woman's tees. Should have been an advantage for the boys, right? I beat them all by four strokes and was never asked to play with them again. Ron, the clown I had to share my commission with, beat them by seven strokes when he played with them and got a pat on the back for being a good golfer and was invited back. I beat them and we have to sweep it under the table because it would look bad if it got out they were beat by a girl. 
 

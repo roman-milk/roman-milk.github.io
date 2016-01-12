@@ -1,8 +1,14 @@
+The Escort Ch. 01
+=================
 #1 
 
  
 
- ****** The Escort Ch. 01 ****** byJust_Plain_Bob© The Escort (1) The Beginning 
+ 
+
+===
+
+The Escort (1) The Beginning 
 
  Annie and her husband Ray had been our next door neighbors for five years and she ended up being my best friend. John and Ray never developed that great a bond, but they did get along pretty well and a week didn't go by when we didn't have dinner with Annie and Ray at least once. 
 
@@ -278,7 +284,11 @@
 
  
 
- ****** The Escort Ch. 01 ****** byJust_Plain_Bob© "No, I believe I can handle it." 
+ 
+
+===
+
+"No, I believe I can handle it." 
 
  But it did bother me and in ways that I never expected. For the next three hours I hung on his arm and was touched, kissed and then touched and kissed some more. By the time the affair was over I was hot enough to fuck and there I was with a husband out of town and I was with a gay man who couldn't do me any good. It looked as if I might be hitting the bars looking for a stud after all. As we were leaving the party Phil said: 
 
@@ -356,7 +366,11 @@
 
  
 
- ****** The Escort Ch. 02 ****** byJust_Plain_Bob© Tuesday morning at nine Jim called me and asked me how things had gone with my first date. 
+ 
+
+===
+
+Tuesday morning at nine Jim called me and asked me how things had gone with my first date. 
 
  "Smooth as silk. It was almost like I never quit." 
 
@@ -468,7 +482,11 @@
 
  
 
- ****** The Escort Ch. 03 ****** byJust_Plain_Bob© I arrived at the convention center at one-thirty and told the security guard at the front door that I was there to see Don Harkness. He consulted a clipboard and then asked me what my name was and then he picked up a phone and made a call. 
+ 
+
+===
+
+I arrived at the convention center at one-thirty and told the security guard at the front door that I was there to see Don Harkness. He consulted a clipboard and then asked me what my name was and then he picked up a phone and made a call. 
 
  "Mr. Harkness? There is a Shelly Dawson here to see you. Yes sir." 
 
@@ -650,7 +668,11 @@
 
  
 
- ****** The Escort Ch. 04 ****** byJust_Plain_Bob© Chp.4 The Cowboy 
+ 
+
+===
+
+Chp.4 The Cowboy 
 
  As I poured cream in my coffee Annie said, "So, have you decided yet?" 
 
@@ -894,7 +916,11 @@
 
  
 
- ****** The Escort Ch. 04 ****** byJust_Plain_Bob© "Oh yeah baby, stuff that black pole into me." 
+ 
+
+===
+
+"Oh yeah baby, stuff that black pole into me." 
 
  In a low voice that he hoped that Tex wouldn't hear he said, "Like this missy? Like black meat in your soft white cunt? I gives you all you want missy. You comes back and sees me all you wants and I can see to it you get all the black meat you want. I can gets us a room here any time you wants to come see me. You don't be needin no white man any more cause I gots all the cock you needs." 
 
@@ -920,7 +946,11 @@
 
  
 
- ****** The Escort Ch. 05 ****** byJust_Plain_Bob© Chp.5 The Computer Nerd 
+ 
+
+===
+
+Chp.5 The Computer Nerd 
 
  At seven Sunday evening John returned home from his trip. A big hug and a fairly passionate kiss led me to believe that things might just be looking up. That hope was dashed all to hell when we sat down to dinner. Right after "Would you pass the potato's please" he hit me with: 
 
@@ -1162,7 +1192,11 @@
 
  
 
- ****** The Escort Ch. 05 ****** byJust_Plain_Bob© I sucked on him some more. I licked the top of his cock all the way down to the base, circled his cock with my tongue and then drug it up the underside. 
+ 
+
+===
+
+I sucked on him some more. I licked the top of his cock all the way down to the base, circled his cock with my tongue and then drug it up the underside. 
 
  "Come on baby, I'm your biggest fantasy. I am the woman you want most in the world. Come on lover, tell me who I am. Let it go baby, tell me." 
 
@@ -1190,7 +1224,11 @@
 
  
 
- ****** The Escort Ch. 06 ****** byJust_Plain_Bob© Chp. 6 The Sports Star 
+ 
+
+===
+
+Chp. 6 The Sports Star 
 
  Authors note: First let me apologize for the poor way I handled getting chapter 5 out to those who asked for it. I don't know why, but I naturally assumed that all requests would come to me at my email address and all I would have to do was click on "Reply" and attach the story and send it on its way. It didn't happen like that. The majority of requests came in on Esmail and I had no way to attach anything to a reply. I would have had to write down all 91 email addresses and then send each one a separate email and I had no time for that so I simply sent everyone a request to request the story at my regular email address. If you did not receive the message and still want chapter 5 send me a request and I will get it off to you. 
 
@@ -1442,7 +1480,11 @@
 
  
 
- ****** The Escort Ch. 07 ****** byJust_Plain_Bob© Chp.7 The John in the Hotel Room 
+ 
+
+===
+
+Chp.7 The John in the Hotel Room 
 
  I wondered if I would catch a ration of crap from John for not being home and having his dinner ready where he got there, but he was in the spare bedroom and didn't come down. I went into the hall closet and rummaged around until I found some wrapping paper, some ribbon and a bow. I wrapped the box with the jersey in it and set it on the kitchen table and then I went up to the bedroom and read until I fell asleep. 
 

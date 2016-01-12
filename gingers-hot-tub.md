@@ -1,8 +1,14 @@
+Ginger's Hot Tub
+================
 #1 
 
  
 
- ****** Ginger's Hot Tub ****** bygeronimo_appleby© This is a scene I wrote in response to someone's requirements. It features Ginger and Kathy, two friends who have a few drinks in a bar and go back to Ginger's house for more tequila and a dip in the hot tub. Curious at how the boob job feels, Kathy asks to feel Ginger's breasts. They're just getting sexed up when ... 
+ 
+
+===
+
+This is a scene I wrote in response to someone's requirements. It features Ginger and Kathy, two friends who have a few drinks in a bar and go back to Ginger's house for more tequila and a dip in the hot tub. Curious at how the boob job feels, Kathy asks to feel Ginger's breasts. They're just getting sexed up when ... 
 
  I hope you enjoy it. I posted it in Group Sex but suspect it will end up in Loving Wives - we'll see. 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Ginger's Hot Tub ****** bygeronimo_appleby© 'How the hell did I get here?' TJ muttered to himself, his head shaking. His eyes went from Ginger to Kathy. He saw Kathy's face stretched in a grimace of pleasure. It looked like Mike was doing a good job on her. He returned his attention to the slightly concerned face in front of him. Ginger questioned him with her eyes. He looked down to where the woman's breasts buoyed on the water. 
+ 
+
+===
+
+'How the hell did I get here?' TJ muttered to himself, his head shaking. His eyes went from Ginger to Kathy. He saw Kathy's face stretched in a grimace of pleasure. It looked like Mike was doing a good job on her. He returned his attention to the slightly concerned face in front of him. Ginger questioned him with her eyes. He looked down to where the woman's breasts buoyed on the water. 
 
  'TJ?' Ginger murmured. 
 

@@ -1,8 +1,14 @@
+Cathy, Gloria and Me
+====================
 #1 
 
  
 
- ****** Cathy, Gloria and Me ****** byJust_Plain_Bob© It started out as a joke and then things kind of got out of hand. Not that I'm complaining mind you, because as far as I'm concerned it all worked out. 
+ 
+
+===
+
+It started out as a joke and then things kind of got out of hand. Not that I'm complaining mind you, because as far as I'm concerned it all worked out. 
 
  I had gone through a rough stretch, losing my job and my fianc‚e within two weeks of each other. I was down on life and I was down on women. I'd had a great job, one that I actually enjoyed getting up in the morning and going to. Everything was great right up to the morning I showed up for work, found the door locked and a notice taped to the window that said the IRS had seized the place for non payment of taxes. The owner of the company disappeared owing all of the employee's wages and it was three weeks before I could even get into the building to get my personal possessions. Even then I had to prove to the IRS that the stuff was mine and not the company's. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Cathy, Gloria and Me ****** byJust_Plain_Bob© "The question is how much better do you want me to know you?" 
+ 
+
+===
+
+"The question is how much better do you want me to know you?" 
 
  "I'll need to give that some thought, won't I?" 
 

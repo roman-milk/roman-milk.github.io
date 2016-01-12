@@ -1,8 +1,14 @@
+A Whore for a Night
+===================
 #1 
 
  
 
- ****** A Whore for a Night ****** byGotBacon© Penny was a beautiful 25 year old housewife. She had a pair of C cup breasts, a slender waist with a world class ass. Her legs come clear up to her ass. She was a virgin whens she married John. She turned heads wherever she went. She was a little kinky. She loved to fuck in semi public places. Her favorite was in the mall parking lot in broad daylight. She would cum so hard she would sometimes pass out. 
+ 
+
+===
+
+Penny was a beautiful 25 year old housewife. She had a pair of C cup breasts, a slender waist with a world class ass. Her legs come clear up to her ass. She was a virgin whens she married John. She turned heads wherever she went. She was a little kinky. She loved to fuck in semi public places. Her favorite was in the mall parking lot in broad daylight. She would cum so hard she would sometimes pass out. 
 
  Her husband, John, buffed out construction worker. He was 6ft 2 in tall and weighed 215 lbs. He loved his wife and always gave in to her wants. He would fuck her anywhere she wanted. He often wondered why she liked to risk getting caught fucking. He suspected it was more than exhibitionism. . He also suspected she curious about fucking someone besides him. She would never talk about it. 
 

@@ -1,8 +1,14 @@
+The Raffle
+==========
 #1 
 
  
 
- ****** The Raffle ****** byJust_Plain_Bob© Just this week I had one of the oddest experiences of my life. I won - that's right, I won - the right to fuck my buddy's wife, and he watched me do it. 
+ 
+
+===
+
+Just this week I had one of the oddest experiences of my life. I won - that's right, I won - the right to fuck my buddy's wife, and he watched me do it. 
 
  It all started one Tuesday afternoon when a bunch of us stopped for a beer after work. What usually happens when a bunch of guys get together after work is the conversation starts about the work place, progresses to sports, and usually ends up being about women. This time was no different. We started on the relative merits of our new supervisor and we concluded he was an asshole; moved to the topic of the new merit review plan which had just been put in place which led to a conversation about what would happen if everybody got merit reviews. That took us to sports figures and what they would be worth based on merit per game and what they would get if fans filled out merit reviews following every sports contest at which point the barmaid walked by prompting Danny to say "I'd like to do an evaluation on that." 
 

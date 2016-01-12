@@ -1,8 +1,14 @@
+DARK Submission: A Bisexual Journey
+===================================
 #1 
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© Summary: Couple live out bisexual fantasies with dominant BLACK teens. 
+ 
+
+===
+
+Summary: Couple live out bisexual fantasies with dominant BLACK teens. 
 
  Note 1: This story is dedicated to TheOriginalAnonymous who suggested the idea and was a sounding board as this lengthy tale developed. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© She shrugged, repeating, "It's possible." 
+ 
+
+===
+
+She shrugged, repeating, "It's possible." 
 
  "Nice job avoiding answering the question," I quipped back, knowing her well enough to know she wasn't going to give me an answer until she was good and ready. Besides being beautiful and intelligent, she was damn stubborn; unlike me (I am very laid back and more of a people pleaser...except when I coach). 
 
@@ -502,7 +512,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© "Yes," she nodded, swirling her tongue around the mushroom head of Troy's cock. 
+ 
+
+===
+
+"Yes," she nodded, swirling her tongue around the mushroom head of Troy's cock. 
 
  "I won't take your cunt today Eve, but it is mine, is that understood?" He asked, even though it wasn't really a question. 
 
@@ -706,7 +720,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© The leader of the group grunted, "I'm going to come in your ass Mr. Hamilton." 
+ 
+
+===
+
+The leader of the group grunted, "I'm going to come in your ass Mr. Hamilton." 
 
  "Yeeees, full my ass with your cum," the teacher begged eagerly, as he gripped the desk. 
 
@@ -982,7 +1000,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© The other voice replied, "Honey, a quick bite to eat with your family will not kill you." The voice seemed familiar and yet I couldn't place it. 
+ 
+
+===
+
+The other voice replied, "Honey, a quick bite to eat with your family will not kill you." The voice seemed familiar and yet I couldn't place it. 
 
  "And if it does," the first voice said, sighing. 
 
@@ -1338,7 +1360,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© My eyes went big at just how perfect her body was and I hadn't even gotten a good look at her ass. 
+ 
+
+===
+
+My eyes went big at just how perfect her body was and I hadn't even gotten a good look at her ass. 
 
  The nurse stopped and stammered, "W-w-what are you doing?" 
 
@@ -1600,7 +1626,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© Once home, I went to pop a DVD into the player and saw the porn DVD on top of the player. Before I knew it, I had popped it in the player instead of the game film and was sitting on my couch watching scene three. 
+ 
+
+===
+
+Once home, I went to pop a DVD into the player and saw the porn DVD on top of the player. Before I knew it, I had popped it in the player instead of the game film and was sitting on my couch watching scene three. 
 
  The teacher was back at his desk, when he was paged to the office. He sighed, put his pen down and headed to the office. 
 
@@ -1872,7 +1902,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© My head was clouded with flashes of Ashley's approval and my own growing fascination and curiosity, juxtaposed with doing what was morally right. I didn't say anything as Troy moved to me and put his hands on my shoulders. My eyes pleaded for mercy, even as my mouth watered. 
+ 
+
+===
+
+My head was clouded with flashes of Ashley's approval and my own growing fascination and curiosity, juxtaposed with doing what was morally right. I didn't say anything as Troy moved to me and put his hands on my shoulders. My eyes pleaded for mercy, even as my mouth watered. 
 
  Troy firmly guided me down to my knees, my weak resistance shattered as my body allowed the guidance to occur. 
 
@@ -2114,7 +2148,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© As Troy grabbed some sweats and pulled them up, his finally shrinking cock disappearing from view. "It is a natural progression, Coach. First white men dream of sucking black cock, then you become the cocksucker you so desperately longed to be, then, inevitably, you eagerly submit your ass. You won't be able to deny your hunger for black cock, ass slut." 
+ 
+
+===
+
+As Troy grabbed some sweats and pulled them up, his finally shrinking cock disappearing from view. "It is a natural progression, Coach. First white men dream of sucking black cock, then you become the cocksucker you so desperately longed to be, then, inevitably, you eagerly submit your ass. You won't be able to deny your hunger for black cock, ass slut." 
 
  The term 'ass slut,' for some reason, was even a bigger slap in the face to my manhood and pride than the plethora of times he had called me cocksucker. My cock tightened. 
 
@@ -2432,7 +2470,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© I didn't hesitate, my mind went into auto pilot, as I moved to her and cupped her heavy, dark flesh in my hands. They were firm and yet moved with such ease as I lifted them up captivated like I had just got a new present. 
+ 
+
+===
+
+I didn't hesitate, my mind went into auto pilot, as I moved to her and cupped her heavy, dark flesh in my hands. They were firm and yet moved with such ease as I lifted them up captivated like I had just got a new present. 
 
  "Suck them, big breast lover," she ordered. 
 
@@ -2736,7 +2778,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© He laughed quipping, "I think I've created a cocksucking monster." 
+ 
+
+===
+
+He laughed quipping, "I think I've created a cocksucking monster." 
 
  Realizing how ridiculous I must have looked, I allowed his cock to slide out of my mouth, his stickiness everywhere on my face. 
 
@@ -3014,7 +3060,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© "Only to black pussy and you," she smirked back. 
+ 
+
+===
+
+"Only to black pussy and you," she smirked back. 
 
  "Don't you mean me and black pussy?" I asked. 
 
@@ -3334,7 +3384,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© "Actually, that isn't where it hurt," I smiled back. 
+ 
+
+===
+
+"Actually, that isn't where it hurt," I smiled back. 
 
  "Really?" She said, surprised but intrigued by my intent. 
 
@@ -3684,7 +3738,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© "This was your fantasy, to see your boyfriend suck cock, wasn't it?" Rhianna continued. 
+ 
+
+===
+
+"This was your fantasy, to see your boyfriend suck cock, wasn't it?" Rhianna continued. 
 
  "Yes," Ashley admitted. 
 
@@ -4004,7 +4062,11 @@
 
  
 
- ****** DARK Submission: A Bisexual Journey ****** bysilkstockingslover© "Whatever," Jamal dismissed Rhianna's words. 
+ 
+
+===
+
+"Whatever," Jamal dismissed Rhianna's words. 
 
  "I love you," Ashley whispered, not loud enough for our audience to hear. 
 

@@ -1,8 +1,14 @@
+Mother &amp; Daughter
+=====================
 #1 
 
  
 
- ****** Mother &amp; Daughter ****** byJust_Plain_Bob© The story sounded like it came from a braggart who would tell you whatever he believed you would believe just as long as it made him look like a stud, except that I knew the man telling the story and I believed him. 
+ 
+
+===
+
+The story sounded like it came from a braggart who would tell you whatever he believed you would believe just as long as it made him look like a stud, except that I knew the man telling the story and I believed him. 
 
  I was having lunch with an old friend from my army days. Jeff was in from Boston for a sales convention and we had arranged to meet for lunch at the same hotel where he was staying. The conversation covered every subject under the sun and when I got to the point where I asked him how his wife was he gave a loud snort and told me that she was long gone. 
 

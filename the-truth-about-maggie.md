@@ -1,8 +1,14 @@
+The Truth About Maggie
+======================
 #1 
 
  
 
- ****** The Truth About Maggie ****** byJust_Plain_Bob© "Put it against the wall" I told the two guys who carried in the dresser." 
+ 
+
+===
+
+"Put it against the wall" I told the two guys who carried in the dresser." 
 
  I went back to hanging the pictures on the wall. Tom came in with two suitcases and asked me where I wanted them. 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** The Truth About Maggie ****** byJust_Plain_Bob© "You wouldn't dare." 
+ 
+
+===
+
+"You wouldn't dare." 
 
  "I'm having dinner with them Wednesday night and they are bound to ask me why Maggie isn't there with me. Want to guess what I'm going to tell them? Oh, by the way; I took the key you gave me when you asked me to watch your place when you were on vacation and used it to get into your house and move all of Maggie's shit into your spare bedroom. She can stay there all the time now instead of just Tuesdays and Thursdays." 
 

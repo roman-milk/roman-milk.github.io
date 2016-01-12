@@ -1,8 +1,14 @@
+Fixer-Upper
+===========
 #1 
 
  
 
- ****** Fixer-Upper ****** byfastandsloppy© Katherine stumbled out onto the uneven back stoop, audibly groaning under the weight of the heavy-duty trash bag. It was full of crumbled plaster and strips of wooden lathe and swung ponderously, threatening to pull her over with each uncertain step. As her foot slipped on the sloping stone slab she overcompensated and was forced to let the bag drop with a heavy crunch. Catching herself with a sideways grab at the door frame, she slammed backwards into the peeling paint of the old wood siding. 
+ 
+
+===
+
+Katherine stumbled out onto the uneven back stoop, audibly groaning under the weight of the heavy-duty trash bag. It was full of crumbled plaster and strips of wooden lathe and swung ponderously, threatening to pull her over with each uncertain step. As her foot slipped on the sloping stone slab she overcompensated and was forced to let the bag drop with a heavy crunch. Catching herself with a sideways grab at the door frame, she slammed backwards into the peeling paint of the old wood siding. 
 
  When she looked over to her left she saw the two college boys next door watching her with bemused faces. 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Fixer-Upper ****** byfastandsloppy© So why hadn't the boys snuck in the bathroom to surprise her? 
+ 
+
+===
+
+So why hadn't the boys snuck in the bathroom to surprise her? 
 
  Katherine toweled off her hair and started pulling on her clothes. She had brought her cutoffs she had made from some old pink sweatpants, the ones she had cut off a little too high so that she felt uncomfortable wearing them outside. She also had a pair of tiny pink panties with little angles on them and her favorite old tee-shirt; the tight, white London Underground shirt with the subway map printed on it. 
 
@@ -254,7 +264,11 @@
 
  
 
- ****** Fixer-Upper ****** byfastandsloppy© Her video machine turned off with a clunk. She ignored it and started working her face up and down on the shaft, rubbing the underside with her tongue. That was the way Jack had liked it. 
+ 
+
+===
+
+Her video machine turned off with a clunk. She ignored it and started working her face up and down on the shaft, rubbing the underside with her tongue. That was the way Jack had liked it. 
 
  "Hey, you gotta keep the machine running or they'll kick you out," said the voice behind the cock. 
 
@@ -426,7 +440,11 @@
 
  
 
- ****** Fixer-Upper ****** byfastandsloppy© "Your turn," she said to him with a smile. As he got up eagerly, Katherine finally shed her top, leaving her completely naked for the appreciative eyes of the boys. 
+ 
+
+===
+
+"Your turn," she said to him with a smile. As he got up eagerly, Katherine finally shed her top, leaving her completely naked for the appreciative eyes of the boys. 
 
  Eric took Matt's place and brought his erection to her lips. His cock was about six inches long, shorter than Matt's but significantly fatter. He had to stand with his long legs spread wide to reach Katherine's mouth comfortably. Once situated, he took his turn pumping his fat meat in and out between her lips as she reached up to tickle his taint and cup his balls. 
 

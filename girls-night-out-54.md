@@ -1,8 +1,14 @@
+Girls Night Out
+===============
 #1 
 
  
 
- ****** Girls Night Out ****** byGotBacon© Amy is best described as petite. She is 4 ft. 11 in. tall. She has short blonde hair and brown eyes. Her breasts fill a B cup bra. She has legs all day long and knows it. She loves showing them off. All of her dresses and skirts are short. She is 25 years old and has been married to John for 5 years. He is the love of her life and vice versa. She is the secretary for a department manager in a large corporation. 
+ 
+
+===
+
+Amy is best described as petite. She is 4 ft. 11 in. tall. She has short blonde hair and brown eyes. Her breasts fill a B cup bra. She has legs all day long and knows it. She loves showing them off. All of her dresses and skirts are short. She is 25 years old and has been married to John for 5 years. He is the love of her life and vice versa. She is the secretary for a department manager in a large corporation. 
 
  John is 6 ft tall and weighs 185 lbs. He has brown hair and brown eyes. He was the manager of a supermarket. When John was 18 he had the mumps. He was one of the very few who developed orchitis. He is able to function sexually, but he is sterile. His 7 in. cock is enough to keep Amy very happy. They have sex about twice a week. 
 
@@ -334,7 +340,11 @@
 
  
 
- ****** Girls Night Out ****** byGotBacon© "That will work for me." 
+ 
+
+===
+
+"That will work for me." 
 
  "There is something I need to tell you. John is the love of my life and I have not intentions of ever leaving him. He is my first and best love. Let's just keep this going on the side. If I'm careful we can do this without him knowing. I don't want to fuck up my marriage." 
 
@@ -712,7 +722,11 @@
 
  
 
- ****** Girls Night Out Ch. 02 ****** byGotBacon© Even though John and Amy's relationship is rolling right along. Every now and then the issue of trust pops into his mind. She is being a model wife and nothing has come up to make him suspicious. The have sex three or four times a week and the sex is good. 
+ 
+
+===
+
+Even though John and Amy's relationship is rolling right along. Every now and then the issue of trust pops into his mind. She is being a model wife and nothing has come up to make him suspicious. The have sex three or four times a week and the sex is good. 
 
  One afternoon they are at the mall sitting in Cinnabon waiting for their order. A black guy walks in and places his order. He glances around, makes eye contact with Amy and smiles. John quickly glances at Amy. She returns the black guys smile. 
 

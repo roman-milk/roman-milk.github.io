@@ -1,8 +1,14 @@
+By the Pool with Aunt Barbara
+=============================
 #1 
 
  
 
- ****** By the Pool with Aunt Barbara ****** bygeronimo_appleby© Foreword 
+ 
+
+===
+
+Foreword 
 
  A quick mature aunt/nephew piece from me. I had other stuff to get on with and only had time to push this out before the deadline expired, so apologies for the errors remaining. 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** By the Pool with Aunt Barbara ****** bygeronimo_appleby© It’s all a bit vague as I go for the shorts. I’m aware of what’s going on, but it’s as though I’ve been drugged. I pull them down to my thighs, and hear Barbara gasp. 
+ 
+
+===
+
+It’s all a bit vague as I go for the shorts. I’m aware of what’s going on, but it’s as though I’ve been drugged. I pull them down to my thighs, and hear Barbara gasp. 
 
  “Oh my, yes,” she says with an appreciative chuckle. “Dear God, my beautiful nephew. If I’d known about this divine cock I’d have fucked you this afternoon.” 
 

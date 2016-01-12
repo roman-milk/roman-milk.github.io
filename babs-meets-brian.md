@@ -1,8 +1,14 @@
+Babs Meets Brian
+================
 #1 
 
  
 
- ****** Babs Meets Brian ****** byJust_Plain_Bob© Brian had been working with me for about a month and we had gotten friendly. For some reason that I couldn't understand no one else in the office seemed to like him. It could have been because he was black, but that didn't really make sense because from time to time we had other blacks working with us and the crew had always gotten along with them. 
+ 
+
+===
+
+Brian had been working with me for about a month and we had gotten friendly. For some reason that I couldn't understand no one else in the office seemed to like him. It could have been because he was black, but that didn't really make sense because from time to time we had other blacks working with us and the crew had always gotten along with them. 
 
  Brian had moved to our city from Atlanta to take the job and he had no friends or family in town and he was always after me to tell him where the nightlife was and where he could go to meet the ladies. Having been married for the last six years I wasn't really up on the night scene anymore and I asked my wife Babs to call some of her single girlfriends and see if she couldn't get some ideas. 
 

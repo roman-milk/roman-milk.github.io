@@ -1,8 +1,14 @@
+Andy, June and Me
+=================
 #1 
 
  
 
- ****** Andy, June and Me ****** byJust_Plain_Bob© She looked like a young girl lying there; a young girl with a grown woman's breasts. She looked so innocent as she slept with her head on my pillow and anyone looking at her right then would never have believed what an insatiable sexual being she had been just one hour before. 
+ 
+
+===
+
+She looked like a young girl lying there; a young girl with a grown woman's breasts. She looked so innocent as she slept with her head on my pillow and anyone looking at her right then would never have believed what an insatiable sexual being she had been just one hour before. 
 
  I watched her breasts rise and fall with each breath and I wondered what Andy would think. Would he think I was a low-fife asshole and his wife a cheating whore or would he understand? I laid there staring up at the ceiling and relieved the last eight years in my mind. 
 

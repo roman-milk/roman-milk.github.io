@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Tom (1)
+================================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Tom (1) ****** byJust_Plain_Bob© They say that the first step in solving a problem is to admit that there is a problem. Once you admit there is a problem you can determine how to fix it. Okay, I admit it; I am a cheating asshole! I admit that I fuck around behind my wife's back and I have been doing it for the seven years of our marriage. Actually it was before that - I started when we were still going steady. So, the problem admitted to the next step was to try and fix the problem. Why, since I love my wife dearly and do not want to lose her, can't I keep my cock in my pants? 
+ 
+
+===
+
+They say that the first step in solving a problem is to admit that there is a problem. Once you admit there is a problem you can determine how to fix it. Okay, I admit it; I am a cheating asshole! I admit that I fuck around behind my wife's back and I have been doing it for the seven years of our marriage. Actually it was before that - I started when we were still going steady. So, the problem admitted to the next step was to try and fix the problem. Why, since I love my wife dearly and do not want to lose her, can't I keep my cock in my pants? 
 
  I found me an analyst and at the end of our second session he told me to sit down and write up everything sexual that I have done. Where do I start? I guess the best thing is to start with what happened before I met Madge (my wife) and then work through it. 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Becoming A Slut Husband: Tom (1) ****** byJust_Plain_Bob© "Becky?" 
+ 
+
+===
+
+"Becky?" 
 
  "Mmmmmmmmm?" 
 
@@ -356,7 +366,11 @@
 
  
 
- ****** Becoming A Slut Husband: Tom (2) ****** byJust_Plain_Bob© Marlene was just the first of many. Apparently she told some of the others that I had stopped seeing about how she had gotten me to do her and I started hearing from them and getting the same threat from them that I had gotten from Marlene only more so. Tina threatened me with Marlene's husband Hal. Veronica threatened me with Tina's husband. Merrily threatened me with Veronica's fianc‚e and it went on and on like that. And to keep Madge in the dark I always gave in. 
+ 
+
+===
+
+Marlene was just the first of many. Apparently she told some of the others that I had stopped seeing about how she had gotten me to do her and I started hearing from them and getting the same threat from them that I had gotten from Marlene only more so. Tina threatened me with Marlene's husband Hal. Veronica threatened me with Tina's husband. Merrily threatened me with Veronica's fianc‚e and it went on and on like that. And to keep Madge in the dark I always gave in. 
 
  I both didn't like doing it and liked doing it. I didn't like it because I was cheating on Madge, but I liked it because of the sex. It was understood that if I gave them what they wanted I got what I wanted so eating pussy, full or not, kept me in blow jobs, pussy and anal sex. This was a good thing because Madge was 'saving herself' for marriage. We did a lot of heavy necking, but the rule was that I had to keep my hands above the waist. Madge did give me an occasional hand job, but that was it. Anything else had to wait until after the wedding, so for the entire length of our engagement I was getting sex behind her back. 
 

@@ -1,8 +1,14 @@
+Aunt Hazel's Hairy Pussy
+========================
 #1 
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© Foreword by the fuckwit who wrote this piece: 
+ 
+
+===
+
+Foreword by the fuckwit who wrote this piece: 
 
  FUCK! 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© I looked down and saw cum spitting from me, my bed protected from the stuff raining down by the towel I'd spread out for exactly that purpose, just as my aunt knocked on my door. 
+ 
+
+===
+
+I looked down and saw cum spitting from me, my bed protected from the stuff raining down by the towel I'd spread out for exactly that purpose, just as my aunt knocked on my door. 
 
  "Are you in there, Carl?" she called. 
 
@@ -326,7 +336,11 @@
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© But, as I confronted these problems and wondered what the hell to do, Aunt Hazel came to me. 
+ 
+
+===
+
+But, as I confronted these problems and wondered what the hell to do, Aunt Hazel came to me. 
 
  Following my antics in the kitchen, and the subsequent disastrous results, I'd taken to my bedroom to try and think of a way around this huge problem, to try to figure a way of removing this great boulder blocking the path of my future. I was on my bed, shoeless, wearing jeans and tee-shirt, legs crossed at the ankles with my arms behind my head. 
 
@@ -526,7 +540,11 @@
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© When it was all over I stood there, my penis oozing as it wilted. 
+ 
+
+===
+
+When it was all over I stood there, my penis oozing as it wilted. 
 
  My aunt gazed up at me and waved a hand at the gobs of glistening spunk clinging to her dark stockings. "Look at the bloody mess you made, Carl." Her finger split her labia and she winced, hissing as she sucked in a quick breath. "Such a mess," she added, "but it was such fun watching you do it." Hazel shooed me away with a wave of her hand before she hauled herself upright from where she'd been sprawled on the sofa. "That's enough for now, Carl. I don't want you to get over-excited." My aunt grinned at me. "But I think we'll be doing that again later." She paused and her mouth twisted into that teasing smirk. "If you want to, that is." 
 
@@ -700,7 +718,11 @@
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© When I groaned her name it broke the spell and Hazel dropped my cock immediately. 
+ 
+
+===
+
+When I groaned her name it broke the spell and Hazel dropped my cock immediately. 
 
  "We kissed," she muttered, her eyes and mouth wide, expression aghast. "Oh fuck, Carl," she added, fingers flying to her mouth. "We shouldn't have done that. I shouldn't have touched you." 
 
@@ -886,7 +908,11 @@
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© If I had to go on a picnic on the moors, then so be it. 
+ 
+
+===
+
+If I had to go on a picnic on the moors, then so be it. 
 
  "Cum for me, darling," my Aunt Hazel murmured in my ear. 
 
@@ -1094,7 +1120,11 @@
 
  
 
- ****** Aunt Hazel's Hairy Pussy ****** bygeronimo_appleby© The way my aunt's face twisted, eyes glazed with the sublime pleasure, her mouth open in a silent scream, fascinated me. I knew myself just what sensations caused my aunt's reaction for I felt them too. I knew how simply fucking delightful it was to move together, our bodies joined, the flesh squelching when my dick slid in and out, a piston of purely natural engineering and design. 
+ 
+
+===
+
+The way my aunt's face twisted, eyes glazed with the sublime pleasure, her mouth open in a silent scream, fascinated me. I knew myself just what sensations caused my aunt's reaction for I felt them too. I knew how simply fucking delightful it was to move together, our bodies joined, the flesh squelching when my dick slid in and out, a piston of purely natural engineering and design. 
 
  This, I thought, was a celebration of life, an extension of Earth Day, the reason my aunt and I had driven up to the moors in the first place. 
 

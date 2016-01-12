@@ -1,8 +1,14 @@
+Tanya the Tart
+==============
 #1 
 
  
 
- ****** Tanya the Tart ****** bygeronimo_appleby© Okay, here's a short stroker for you. Tanya is a gorgeous woman who loves to flaunt it. She goes out shopping for groceries in a mini skirt and boots, looking for attention. She meets a neighbour on the stairs of the block of flats and likes the look of him. He offers to help her carry the shopping bags upstairs. Tanya's husband is away so she accepts and invites the neighbour in. 
+ 
+
+===
+
+Okay, here's a short stroker for you. Tanya is a gorgeous woman who loves to flaunt it. She goes out shopping for groceries in a mini skirt and boots, looking for attention. She meets a neighbour on the stairs of the block of flats and likes the look of him. He offers to help her carry the shopping bags upstairs. Tanya's husband is away so she accepts and invites the neighbour in. 
 
  This one should score quite low on Lit because it's going in Loving Wives. I know the readers there love to hate cheating stories, and I can't wait to read the comments. 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** Tanya the Tart ****** bygeronimo_appleby© At first she rode him, her big breasts in his face while her hips worked and her pussy accommodated the full length of Gavin's tumescent ardour. They gasped and grunted, both frantic in the early flare of their coupling. Gavin's hands went from Tanya's breasts to her waist, and from there, after thrusting up hard and bringing her down onto him, his cock opening her pussy, filling the blonde, Gavin clasped Tanya's buttocks, her taut flesh filling his palms. 
+ 
+
+===
+
+At first she rode him, her big breasts in his face while her hips worked and her pussy accommodated the full length of Gavin's tumescent ardour. They gasped and grunted, both frantic in the early flare of their coupling. Gavin's hands went from Tanya's breasts to her waist, and from there, after thrusting up hard and bringing her down onto him, his cock opening her pussy, filling the blonde, Gavin clasped Tanya's buttocks, her taut flesh filling his palms. 
 
  "Don't come too soon," gasped Tanya, her hips moving fast. "I'm gonna ride you, Gavin. I'm gonna fuck your big cock. But don't you dare come too soon." 
 

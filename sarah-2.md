@@ -1,8 +1,14 @@
+Sarah
+=====
 #1 
 
  
 
- ****** Sarah ****** byJust_Plain_Bob© It is always a bad day when you find out that you are stupid; when you find out that you have been played for a sucker. And it is an extremely bad day when you find out that the person who played you is the same person who almost every day for years has been telling you that she loves you. 
+ 
+
+===
+
+It is always a bad day when you find out that you are stupid; when you find out that you have been played for a sucker. And it is an extremely bad day when you find out that the person who played you is the same person who almost every day for years has been telling you that she loves you. 
 
  Sarah and I met in the ninth grade and while most people will tell you that the feelings that you have when you are that young are just 'puppy love' and immature infatuation I knew that I loved Sarah as soon as I set eyes on her for the first time. 
 

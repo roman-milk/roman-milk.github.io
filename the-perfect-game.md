@@ -1,8 +1,14 @@
+The Perfect Game
+================
 #1 
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© The Perfect Party Game - Creation 
+ 
+
+===
+
+The Perfect Party Game - Creation 
 
  ================================= 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© The game moved along smoothly, with few questions and no need to review the rules. We'd already been around the whole group about 5 times, and we all got three Color cards pretty quick. Only a few of the 'penalties' were doled out, several drinking challenges (which made up almost a third of the early challenges) one declined penalty involving fingers and noses, a personal question ("When was the last time you peed your pants!") and a silly act, ("Bark like a dog."). The game wasn't taking long, with a large number of the Challenges being word types, and either answered or not in just a few seconds. 
+ 
+
+===
+
+The game moved along smoothly, with few questions and no need to review the rules. We'd already been around the whole group about 5 times, and we all got three Color cards pretty quick. Only a few of the 'penalties' were doled out, several drinking challenges (which made up almost a third of the early challenges) one declined penalty involving fingers and noses, a personal question ("When was the last time you peed your pants!") and a silly act, ("Bark like a dog."). The game wasn't taking long, with a large number of the Challenges being word types, and either answered or not in just a few seconds. 
 
  On Denise's next turn, she went for an Impersonation and failed on Tom Selleck. Her penalty was the first that was moderately interesting: she had to spin the wheel to select a 'master'. She was a dog and the master had to scratch her belly. Her spin landed on Cheryl. She good-naturedly took up her role on the floor, and Cheryl kneeled down beside her and rubbed her belly. Denise was wearing a loose T-shirt, and as she started kicking her leg out like dog getting scratched Cheryl really got into her part. 
 
@@ -368,7 +378,11 @@
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© The first one was obvious. Only Dave was nearly as tall as me. Just to be obnoxious, I ran both my hands down his chest, cupping his chest, then down his side to his butt, which I gave a squeeze. A giggle that I knew all too well came from my immediate right giving away Cheryl. After about 10 seconds Dave backed away from my touch. 
+ 
+
+===
+
+The first one was obvious. Only Dave was nearly as tall as me. Just to be obnoxious, I ran both my hands down his chest, cupping his chest, then down his side to his butt, which I gave a squeeze. A giggle that I knew all too well came from my immediate right giving away Cheryl. After about 10 seconds Dave backed away from my touch. 
 
  "Ok, I got that one," I said as I slid down. Reaching out with my two hands about waist high, I found Cheryl's waist. I slowly ran my hands up her sides, allowing my thumbs to brush the sides of her breasts. I ran my hands across her shoulders to her neck, and caressed her face. I brushed my thumb across her lips and she opened her mouth and took it in. With a lingering suck on my thumb she back away. 
 
@@ -580,7 +594,11 @@
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© He finally got his new card out, and read it. "One minute, alone with your partner's choice. Anything goes." 
+ 
+
+===
+
+He finally got his new card out, and read it. "One minute, alone with your partner's choice. Anything goes." 
 
  He looked over at Denise, a look of dismay on his face. 
 
@@ -830,7 +848,11 @@
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© "None of that, back to your places," Beth teased with a little push on Denise's rear. 
+ 
+
+===
+
+"None of that, back to your places," Beth teased with a little push on Denise's rear. 
 
  Reluctantly she sat back down, clad in nothing but her baggy green gym shorts. 
 
@@ -1082,7 +1104,11 @@
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© "I'm so close to coming, he's had me on edge forever," she gasped, "I can't believe how long he can keep this up, staying this hard." 
+ 
+
+===
+
+"I'm so close to coming, he's had me on edge forever," she gasped, "I can't believe how long he can keep this up, staying this hard." 
 
  I reached down and interrupted their conversation while I repositioned the teenager. I spread her legs apart again, locking the back of her knees against my elbows, as I bent her in two, her pussy angled up for me. I slid back inside of her, slowly and just waited a moment, filling her. 
 
@@ -1238,7 +1264,11 @@
 
  
 
- ****** The Perfect Game ****** byTx_Tall_Tales© But that's another story - and if you ask nice, I'll write it. 
+ 
+
+===
+
+But that's another story - and if you ask nice, I'll write it. 
 
  -------------- 
 
@@ -1246,7 +1276,11 @@
 
  
 
- ****** The Perfect Game Ch. 02 ****** byTx_Tall_Tales© Chapter 2 – Playtesting 
+ 
+
+===
+
+Chapter 2 – Playtesting 
 
  * * * * 
 
@@ -1456,7 +1490,11 @@
 
  
 
- ****** The Perfect Game Ch. 02 ****** byTx_Tall_Tales© "I don't remember those," Denise said. 
+ 
+
+===
+
+"I don't remember those," Denise said. 
 
  "I changed most of the strip cards to be Chug/Strip or some other activity/ strip, to give people an easy out." I told her. 
 
@@ -1734,7 +1772,11 @@
 
  
 
- ****** The Perfect Game Ch. 02 ****** byTx_Tall_Tales© Dave took up position behind Denise, and shortly was putting it to his wife, while she got more animated and placed her mouth over Cheryl's pussy and worked her with her tongue. After a couple of minutes of this, I announced it was time, and Dave pulled out of Denise, who positioned herself to the side. 
+ 
+
+===
+
+Dave took up position behind Denise, and shortly was putting it to his wife, while she got more animated and placed her mouth over Cheryl's pussy and worked her with her tongue. After a couple of minutes of this, I announced it was time, and Dave pulled out of Denise, who positioned herself to the side. 
 
  I had my hands on Cheryl's breasts, playing with them, while I nibbled on her neck. Dave reached down and spread Cheryl's legs wider apart, and Denise helped, taking one of the legs in her hand. I reached down with the opposite hand, and pulled Cheryl's legs even wider. 
 
@@ -1868,7 +1910,11 @@
 
  
 
- ****** The Perfect Game Ch. 03 ****** byTx_Tall_Tales© Chapter 3 - Girl's Night In 
+ 
+
+===
+
+Chapter 3 - Girl's Night In 
 
  * * * 
 
@@ -2124,7 +2170,11 @@
 
  
 
- ****** The Perfect Game Ch. 03 ****** byTx_Tall_Tales© And just like that, I was fully hard. I shouldn't have worn dockers; they didn't do a thing to hide my new status. 
+ 
+
+===
+
+And just like that, I was fully hard. I shouldn't have worn dockers; they didn't do a thing to hide my new status. 
 
  Anne was next, and she missed her word definition. Who knows what a 'Jodhpurs' is anyway? She decided she didn't want to demonstrate a severe constipation problem, so she did the chug & question. "What is one talent most people here don't know that you have?" 
 
@@ -2324,7 +2374,11 @@
 
  
 
- ****** The Perfect Game Ch. 03 ****** byTx_Tall_Tales© The spinner had barely stopped moving before Anne was out of her seat, and plopping herself in my lap. "It's about time," she laughed tipsily. She dropped her time warp Special from early in the game onto the table. "Double it." 
+ 
+
+===
+
+The spinner had barely stopped moving before Anne was out of her seat, and plopping herself in my lap. "It's about time," she laughed tipsily. She dropped her time warp Special from early in the game onto the table. "Double it." 
 
  Then she leaned forward and whispered in my ear, "Don't hold back." 
 
@@ -2568,7 +2622,11 @@
 
  
 
- ****** The Perfect Game Ch. 03 ****** byTx_Tall_Tales© Then I felt movement behind me, and Beth was taking up residency between her roommate's legs again, sucking away at her with total abandon. I looked for Cheryl, and found her returning from the living room with our cameras in hand. What a slutty picture we must have made, just using the sweet young girl who'd wandered into our home, for our own enjoyment. I watched in amazement as she circled the bed, the same camera used for my strip-tease act, now taking in this amazing tit-fuck, while she gripped our digital still camera in her other hand. 
+ 
+
+===
+
+Then I felt movement behind me, and Beth was taking up residency between her roommate's legs again, sucking away at her with total abandon. I looked for Cheryl, and found her returning from the living room with our cameras in hand. What a slutty picture we must have made, just using the sweet young girl who'd wandered into our home, for our own enjoyment. I watched in amazement as she circled the bed, the same camera used for my strip-tease act, now taking in this amazing tit-fuck, while she gripped our digital still camera in her other hand. 
 
  Denise turned to kiss me, and as our lips settled onto each other, tongues tangling, I felt the flash from the digital camera go off. I went off with it, cumming all over Anne's breasts and neck, and on the back of Denise's sweet ass. 
 
@@ -2800,7 +2858,11 @@
 
  
 
- ****** The Perfect Game Ch. 03 ****** byTx_Tall_Tales© I lifted her hips a little with my hands, so I could fuck up into her just a bit while she was made ready. 
+ 
+
+===
+
+I lifted her hips a little with my hands, so I could fuck up into her just a bit while she was made ready. 
 
  "How's that," Denise asked. 
 
@@ -3010,7 +3072,11 @@
 
  
 
- ****** The Perfect Game Ch. 03 ****** byTx_Tall_Tales© "Oh! I better get a towel to sit on if you're going to talk like that." Anne laughed. 
+ 
+
+===
+
+"Oh! I better get a towel to sit on if you're going to talk like that." Anne laughed. 
 
  "Why don't you two get better acquainted?" Beth told her roomy, then glancing over at me. "I think sis and I are going to clean up then do a little shopping." 
 

@@ -1,8 +1,14 @@
+A Great Day
+===========
 #1 
 
  
 
- ****** A Great Day ****** byJust_Plain_Bob© It started out as a great day. I made every light on the way to work and when I got there – wonder of wonders – there was an open parking place right by the front door. 
+ 
+
+===
+
+It started out as a great day. I made every light on the way to work and when I got there – wonder of wonders – there was an open parking place right by the front door. 
 
  An hour after I got to work Natalie, my secretary, came into my office and told me that Tom Snelling was on line two for me. I picked up the phone, said good morning and then listened as Tom told me that after thinking things over he was going to sign the contract and go with us. It was a deal that I had been working on for almost two months and it was a contract worth over six million for my company. Tom said that the signed contract was being faxed to me even as we spoke. I thanked him profusely and after he had hung up I went over to the fax machine and sure enough the contract was there. 
 

@@ -1,8 +1,14 @@
+It Gets Nasty in Nice
+=====================
 #1 
 
  
 
- ****** It Gets Nasty in Nice ****** bygeronimo_appleby© OK, here's another one for you LW fans out there. 
+ 
+
+===
+
+OK, here's another one for you LW fans out there. 
 
  A cheating slut-wife, a black man with an enormous cock, and a twist ... *wink* 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** It Gets Nasty in Nice ****** bygeronimo_appleby© "Oh God, Samson ..." Heather mewled when she saw the man split the folds of Magda's labia with his tongue. The girl arched her back and groaned in a sound that curdled in Heather's stomach and left a cupreous taste at the back of her throat. It was the unfamiliar essence of Jealousy again. 
+ 
+
+===
+
+"Oh God, Samson ..." Heather mewled when she saw the man split the folds of Magda's labia with his tongue. The girl arched her back and groaned in a sound that curdled in Heather's stomach and left a cupreous taste at the back of her throat. It was the unfamiliar essence of Jealousy again. 
 
  Samson slurped at the girl's cunt, licking her clitoris and bringing forth a series of short yelps and sighing mewls. Heather watched, morbidly fascinated at the contrast between Samson's dark skin and the girl's pale flesh. She saw the man slide one, then a second finger into the girl's cerise core. Magda grunted and winced and babbled in her native tongue when Samson curled the digits inside her and rubbed at her spongy insides. 
 

@@ -1,8 +1,14 @@
+Wilma, Wilber and Elrod
+=======================
 #1 
 
  
 
- ****** Wilma, Wilber and Elrod ****** byJust_Plain_Bob© For nine years I thought that Wilma and I had a good marriage. We seemed to be compatible in most areas, I liked everything she cooked (except her Tuna Casserole, but I ate it just to keep peace in the family), and we had a good sex life. I'd always heard that a good sex life was the key to a successful marriage and I believed it. I made damn sure that I took care of Wilma in that department, so it came as a shock to me one day when I came home and found Wilma gone. The note on the kitchen table was straight to the point: 
+ 
+
+===
+
+For nine years I thought that Wilma and I had a good marriage. We seemed to be compatible in most areas, I liked everything she cooked (except her Tuna Casserole, but I ate it just to keep peace in the family), and we had a good sex life. I'd always heard that a good sex life was the key to a successful marriage and I believed it. I made damn sure that I took care of Wilma in that department, so it came as a shock to me one day when I came home and found Wilma gone. The note on the kitchen table was straight to the point: 
 
  Dear Elrod, 
 

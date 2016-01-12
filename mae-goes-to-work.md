@@ -1,8 +1,14 @@
+Mae Goes To Work
+================
 #1 
 
  
 
- ****** Mae Goes To Work ****** byJust_Plain_Bob© My company wanted to send me to Denver to take care of a problem at our Denver office. I did not really want to make the trip because I had already spent five of the previous six weeks on the road. I told my boss that I really needed to stay home for a while because of personal problems. He told me three days couldn't possibly make a difference and when I told him that even three hours could make a difference he asked for an explanation. 
+ 
+
+===
+
+My company wanted to send me to Denver to take care of a problem at our Denver office. I did not really want to make the trip because I had already spent five of the previous six weeks on the road. I told my boss that I really needed to stay home for a while because of personal problems. He told me three days couldn't possibly make a difference and when I told him that even three hours could make a difference he asked for an explanation. 
 
  My wife, Mae, had recently celebrated a birthday and was now, as she put it, on the uncomfortable side of forty-five. This might not seem like a major complaint to some, but a few other things, combined with passing forty-five had put Mae down in the dumps. Mae has been a sexy woman all her life and her life has been filled with males coming on to her. Recently, however, she says the wolf whistles have stopped, men no longer pay her any attention and she has come to believe she is old and undesirable. Basically, her self-esteem was going into the toilet. During my last two business trips a couple of events occurred that convinced her that what she was feeling about herself was true. With our own kids grown up and gone and me away on business Mae's main social outlet is her girl friends. She had gone out with them one night, following a bridal shower, and they had stopped at a local lounge for drinks. The lounge had a live band and while all of Mae's friends had been asked to dance at least once, no one had paid any attention to Mae. She had brooded about it for a week and when the same thing happened the following week she just knew she was right - she was old and no longer desirable. It bothered her so much, in fact, that one night she had gone out and tried to get herself picked up, but had no takers. 
 

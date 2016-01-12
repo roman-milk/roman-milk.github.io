@@ -1,8 +1,14 @@
+Forbidden Fruit
+===============
 #1 
 
  
 
- ****** Forbidden Fruit ****** bydirty_geezer© The internet is an amazing thing. Not just because of the technology, or the sites and sounds, or even the porn, no the amazing thing is the way it's changed some people's attitudes, opening their eyes. 
+ 
+
+===
+
+The internet is an amazing thing. Not just because of the technology, or the sites and sounds, or even the porn, no the amazing thing is the way it's changed some people's attitudes, opening their eyes. 
 
  Before I go on, I better tell you a little about myself, and my dear wife. We are both early thirties, living and working in the south of England. We've been together for some time now, and while we've had rocky moments, love each other very much. 
 
@@ -120,7 +126,11 @@
 
  
 
- ****** Forbidden Fruit ****** bydirty_geezer© You lean forward, bringing your lips to his, and he responds, kissing you back hard, I can see your tongues sliding together, exploring each others mouths. His hand now finds your pussy, and he must realise you are wearing no knickers. This seems to spur him on, his kissing becoming more passionate, more intense. You spread your legs wantonly now, opening them up so anyone glancing in your direction can see plenty of thigh, and see that this man has his fingers now fucking you, his arm moving in and out. 
+ 
+
+===
+
+You lean forward, bringing your lips to his, and he responds, kissing you back hard, I can see your tongues sliding together, exploring each others mouths. His hand now finds your pussy, and he must realise you are wearing no knickers. This seems to spur him on, his kissing becoming more passionate, more intense. You spread your legs wantonly now, opening them up so anyone glancing in your direction can see plenty of thigh, and see that this man has his fingers now fucking you, his arm moving in and out. 
 
  I'm watching so intently that I fail to notice that his two friends have noticed his 'conquest', and have moved closer, watching the fun. They're standing close enough that they must be able to see your pussy, and the fingers working their magic on you. I wonder what will happen, hoping the audience doesn't upset you, or their friend. 
 
@@ -204,7 +214,11 @@
 
  
 
- ****** Forbidden Fruit ****** bydirty_geezer© Our bodies slapped together, sweat pouring down me, sliding down my chest, droplets falling onto Kevin below me. It made it so slippery, skin on skin, rubbing, sliding together. Four animals fucking together Chris, I was in heaven. Mike was thrusting harder and harder, not caring if he ripped my arse open, and I wanted more, wanted it harder. He cried out, his body tensing, and pulled out suddenly, my arse feeling open to the air, crying out for more cock. Oh then he came, all over my back, spunk running down into my still open arsehole, oh I came screaming then, his spunk cooling in my burning hot arse. 
+ 
+
+===
+
+Our bodies slapped together, sweat pouring down me, sliding down my chest, droplets falling onto Kevin below me. It made it so slippery, skin on skin, rubbing, sliding together. Four animals fucking together Chris, I was in heaven. Mike was thrusting harder and harder, not caring if he ripped my arse open, and I wanted more, wanted it harder. He cried out, his body tensing, and pulled out suddenly, my arse feeling open to the air, crying out for more cock. Oh then he came, all over my back, spunk running down into my still open arsehole, oh I came screaming then, his spunk cooling in my burning hot arse. 
 
  My cunt contracted around Kevin's cock, milking him, squeezing him so tight, he couldn't take it anymore, and I felt his cock explode in me, filling my wet hole with his creamy cum, again and again I felt his cock twitch, spunk running out my pussy around his cock. I could now concentrate on the cock in my mouth, I wanted that cum badly, I needed to taste it Chris. I wanted all his spunk in my mouth, and I got it. Looking into Dave's eyes I silently implored him to cum, my hand now massaging his balls, wanting to squeeze every drop from them. 
 

@@ -1,8 +1,14 @@
+The Apartment
+=============
 #1 
 
  
 
- ****** The Apartment ****** bygeronimo_appleby© Probably a few errors in this. I grew impatient and so have submitted it in pretty much original form. More to follow if you like it. GA 
+ 
+
+===
+
+Probably a few errors in this. I grew impatient and so have submitted it in pretty much original form. More to follow if you like it. GA 
 
  * 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** The Apartment Ch. 02 ****** bygeronimo_appleby© Part 2. Probably littered with errors, but, as for the first part, I wanted to get the story up. So, here it is pretty much as it fell out. Another to follow if you like it. GA. 
+ 
+
+===
+
+Part 2. Probably littered with errors, but, as for the first part, I wanted to get the story up. So, here it is pretty much as it fell out. Another to follow if you like it. GA. 
 
  * 
 
@@ -394,13 +404,21 @@
 
  
 
- ****** The Apartment Ch. 02 ****** bygeronimo_appleby© "Don't worry, darling," Helen soothed her son and stroked his hair. "You'll see. Everything will be OK." 
+ 
+
+===
+
+"Don't worry, darling," Helen soothed her son and stroked his hair. "You'll see. Everything will be OK." 
 
  Helen smiled secretly. Aunt Susan is flying in tomorrow, Daniel, she thought.  
 
  
 
- ****** The Apartment Ch. 03 ****** bygeronimo_appleby© Another one for the series. Again, I pushed it out quick, be warned it may contain nuts. 
+ 
+
+===
+
+Another one for the series. Again, I pushed it out quick, be warned it may contain nuts. 
 
  ... I mean errors. I hope you enjoy. 
 
@@ -604,7 +622,11 @@
 
  
 
- ****** The Apartment Ch. 03 ****** bygeronimo_appleby© "Fuck!" Susan shouted when the stuff rained down onto her belly and breasts. "You'd have blown the top of my head off if that had been inside me." She watched amazed as spurt after spurt of Danny's semen spattered onto her. 
+ 
+
+===
+
+"Fuck!" Susan shouted when the stuff rained down onto her belly and breasts. "You'd have blown the top of my head off if that had been inside me." She watched amazed as spurt after spurt of Danny's semen spattered onto her. 
 
  "Put it back in and fuck her now, Danny," his mother ordered. "Smear that spunk over her and do her ... Hard!" 
 
@@ -628,7 +650,11 @@
 
  
 
- ****** The Apartment Ch. 04 ****** bygeronimo_appleby© Another quick one. I pushed it out yesterday (Sunday 22 Aug). Please forgive any howlers. Send feedback. Enjoy, I hope. 
+ 
+
+===
+
+Another quick one. I pushed it out yesterday (Sunday 22 Aug). Please forgive any howlers. Send feedback. Enjoy, I hope. 
 
  * 
 

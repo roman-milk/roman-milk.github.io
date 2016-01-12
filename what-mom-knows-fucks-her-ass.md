@@ -1,8 +1,14 @@
+What Mom Knows Fucks Her Ass
+============================
 #1 
 
  
 
- ****** What Mom Knows Fucks Her Ass ****** bysilkstockingslover© Summary: Mother offers 18-year-old son her last remaining hole. 
+ 
+
+===
+
+Summary: Mother offers 18-year-old son her last remaining hole. 
 
  Note 1: This is part three of a continuing incest series. I highly recommend you read the first two parts (What Mom Doesn't Know Will Fuck Her and What Mom Knows Fucks Her Again) as the layered subplots may be confusing without the background information. 
 
@@ -342,7 +348,11 @@
 
  
 
- ****** What Mom Knows Fucks Her Ass ****** bysilkstockingslover© "Slut away, Mom," I replied, watching her engulf my cock and begin riding me. 
+ 
+
+===
+
+"Slut away, Mom," I replied, watching her engulf my cock and begin riding me. 
 
  Another deposit inside my Mom, her eager pussy this time, and I already had visions of going for the triple play in one day: mouth, pussy and ass. Like the cycle in baseball the last one is always the hardest to complete. 
 
@@ -620,7 +630,11 @@
 
  
 
- ****** What Mom Knows Fucks Her Ass ****** bysilkstockingslover© "So you loved Ellie," I asked, trying to open Mom up completely. 
+ 
+
+===
+
+"So you loved Ellie," I asked, trying to open Mom up completely. 
 
  "Unconditionally," she whispered, a tear forming in her eye. 
 

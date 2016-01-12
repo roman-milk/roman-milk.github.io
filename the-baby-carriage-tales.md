@@ -1,8 +1,14 @@
+The Baby Carriage Tales Ch. 01
+==============================
 #1 
 
  
 
- ****** The Baby Carriage Tales Ch. 01 ****** byJust_Plain_Bob© Okay, I admit it - I'm fucked up. As well as being a pervert I've found out that I'm a cum freak, but more on that later. I work midnights and so I'm around the house during the day when all the young housewives and mothers are out pushing their babies around in baby carriages and strollers. My greatest pleasure, my biggest kick, is turning those sweet young and innocent married women into gangbang loving sluts. Hey, everyone has a jones, right? Mine just happens to be a little more perverse than most. 
+ 
+
+===
+
+Okay, I admit it - I'm fucked up. As well as being a pervert I've found out that I'm a cum freak, but more on that later. I work midnights and so I'm around the house during the day when all the young housewives and mothers are out pushing their babies around in baby carriages and strollers. My greatest pleasure, my biggest kick, is turning those sweet young and innocent married women into gangbang loving sluts. Hey, everyone has a jones, right? Mine just happens to be a little more perverse than most. 
 
  It started out innocently enough. Sandy was twenty-two and the mother of two babies, both toddlers, and one morning as I was working in my front yard she came by pushing her two little ones in a baby carriage. Being neighborly I said good morning and made some small talk about the nice weather we were having and then she said that she'd heard that I had a pond and a waterfall in my backyard. I told her I did and I asked her if she wanted to see it. She said yes, that she would like to and a couple of minutes later we were setting on my deck, sipping coffee, and watching the Koi playing under the waterfall. 
 
@@ -106,7 +112,11 @@
 
  
 
- ****** The Baby Carriage Tales Ch. 02 ****** byJust_Plain_Bob© When Tyrone said, "Let's do her next" as Helen walked down the street he caught me by surprise. I figured that what we had done with Sandy was a one time thing. "Wait here" Tyrone said, "I'll be right back" He came back a moment later and handed me a bottle with an eyedropper in it. "You need to dose their coffee as soon as you get them in the backyard and then call me on my cell and I'll take it from there." 
+ 
+
+===
+
+When Tyrone said, "Let's do her next" as Helen walked down the street he caught me by surprise. I figured that what we had done with Sandy was a one time thing. "Wait here" Tyrone said, "I'll be right back" He came back a moment later and handed me a bottle with an eyedropper in it. "You need to dose their coffee as soon as you get them in the backyard and then call me on my cell and I'll take it from there." 
 
  I spent all that day waiting for a cop car to pull up in front of my house. When that didn't happen I braced myself for a visit from Sandy's outraged husband and when that didn't happen either I began to think that maybe we had gotten away with it. But I was still shaky enough that I didn't make a move on Helen for a couple of days. I had no idea how I was going to get Helen in the backyard, I thought about it for two days before deciding that simple usually works best. I made sure that I was working in the yard when she came by on Thursday morning. 
 
@@ -246,7 +256,11 @@
 
  
 
- ****** The Baby Carriage Tales Ch. 03 ****** byJust_Plain_Bob© I hit the Safeway on my way home from work and picked up some stuff that I never thought I would ever buy. Baby oil, baby powder, and diapers - Huggies and Pampers (I couldn't decide which was better so I got both) - and some baby bottles and formula. I wanted to be prepared for the next time I had a baby to deal with. When I got home I saw a great looking pair of legs sticking out in front of one of the deck chairs. Because of the high back I couldn't tell who it was so I put the coffee on and when it was ready I poured it into a carafe and put it on a tray with two cups, cream and sugar and went out to see who my visitor might be. 
+ 
+
+===
+
+I hit the Safeway on my way home from work and picked up some stuff that I never thought I would ever buy. Baby oil, baby powder, and diapers - Huggies and Pampers (I couldn't decide which was better so I got both) - and some baby bottles and formula. I wanted to be prepared for the next time I had a baby to deal with. When I got home I saw a great looking pair of legs sticking out in front of one of the deck chairs. Because of the high back I couldn't tell who it was so I put the coffee on and when it was ready I poured it into a carafe and put it on a tray with two cups, cream and sugar and went out to see who my visitor might be. 
 
  As the door opened a head looked around the chair and I saw that it was Sandy. As I set the tray down on the table in front of her she looked up at me and said, "Is it safe to drink this time?" I poured myself a cup from the carafe and took a sip, "Life is just a series of taking chances sweetie. I might be drugging myself to drug you, you'll never know unless you have a sip." She looked at me for several seconds and then she poured herself a cup, added cream and took a sip. She set the cup down and looked at me for several more seconds. 
 
@@ -322,7 +336,11 @@
 
  
 
- ****** The Baby Carriage Tales Ch. 04 ****** byJust_Plain_Bob© I was sitting on the deck sipping coffee and tossing Koi sticks to the fish in the pond when I heard, "Hello there neighbor, is the coffee pot on?" 
+ 
+
+===
+
+I was sitting on the deck sipping coffee and tossing Koi sticks to the fish in the pond when I heard, "Hello there neighbor, is the coffee pot on?" 
 
  I turned and saw Helen with a rather plain looking young woman. Kind of plain in the face, but it looked like she had world class tits under her sweatshirt. Helen introduced me to Bev and I asked them if they would like some coffee and both said yes. I went into the kitchen and poured the coffee and doctored Bev's and then I went to the bottom of the stairs and hollered up to Ty and the boys that the girls had arrived. Upstairs waiting for the word were five Mexicans, four blacks, two Arabs and one Asian. A regular United Nations and then of course there was me - the token white boy. 
 
@@ -362,7 +380,11 @@
 
  
 
- ****** The Baby Carriage Tales Ch. 05 ****** byJust_Plain_Bob© I would have been better off staying home over the weekend. The weather was lousy and the fishing sucked. Then at work Sunday night there was an accident that shut the line down for half an hour and then for the rest of the night the supervisors were total assholes as they pushed everyone to try and catch up. 
+ 
+
+===
+
+I would have been better off staying home over the weekend. The weather was lousy and the fishing sucked. Then at work Sunday night there was an accident that shut the line down for half an hour and then for the rest of the night the supervisors were total assholes as they pushed everyone to try and catch up. 
 
  When I got home I was surprised to find my driveway and the street in front of the house filled with cars. I'd forgotten about Helen having told me to make sure I had help on Monday morning. I'd set it up with Ty before leaving for the weekend and then had forgotten about it. I walked through the house and looked out onto the deck and I wasn't surprised to see Helen and the guys out there, but I was somewhat surprised to see Sandy out there also. When I unlocked the back door to the deck I was greeted with yells of "It's about time" and "What kept you" and then everyone trooped into the house and headed for the bedroom. The girls stopped long enough to kiss me on the cheek and give me instructions. Helen said, "I'm weaning Sasha from breast feeding so there are three bottles in the diaper bag" and then Devon picked her up and carried her away. Next Sandy told me that the red bottles were for Mikey and the blue bottles were for Dawn and then she kissed me on the cheek again and ran after everyone else leaving me feeling like I was running a day care for sluts. 
 

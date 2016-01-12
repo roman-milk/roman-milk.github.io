@@ -1,8 +1,14 @@
+A Pregnant Tale
+===============
 #1 
 
  
 
- ****** A Pregnant Tale ****** byJust_Plain_Bob© It was a typical neighborhood party, with the people clustered in pre-ordained groups, one group talking football, another gardening, soccer moms in the family room and the do-it-yourselfers in the dinning room. Since I work swing shift I had arrived a little after midnight and had a lot of catching up to do. Fortunately, I lived right next door so I did not have to worry about drinking and driving. I was fixing myself a drink in the kitchen when Lee came in to get more ice. Lee was the hostess and I had been in heat with her since the day she and her husband Brad had moved in. She knew of my interest, but we both knew it was something that was never going to happen and our relationship had settled into a good-natured semi-sexual give and take. Lee was three months pregnant and she had that healthy sexual glow that women get and to me she had never looked sexier. 
+ 
+
+===
+
+It was a typical neighborhood party, with the people clustered in pre-ordained groups, one group talking football, another gardening, soccer moms in the family room and the do-it-yourselfers in the dinning room. Since I work swing shift I had arrived a little after midnight and had a lot of catching up to do. Fortunately, I lived right next door so I did not have to worry about drinking and driving. I was fixing myself a drink in the kitchen when Lee came in to get more ice. Lee was the hostess and I had been in heat with her since the day she and her husband Brad had moved in. She knew of my interest, but we both knew it was something that was never going to happen and our relationship had settled into a good-natured semi-sexual give and take. Lee was three months pregnant and she had that healthy sexual glow that women get and to me she had never looked sexier. 
 
  "I can't get over it, babe. Three months pregnant and still the sexiest woman in town. You look good enough to eat." 
 

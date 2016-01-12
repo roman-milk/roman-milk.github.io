@@ -1,8 +1,14 @@
+The Beauty Queen
+================
 #1 
 
  
 
- ****** The Beauty Queen ****** byJust_Plain_Bob© Note: I put this in Loving Wives because I couldn't find a better category for it. 
+ 
+
+===
+
+Note: I put this in Loving Wives because I couldn't find a better category for it. 
 
  * 
 

@@ -1,8 +1,14 @@
+The Conversion
+==============
 #1 
 
  
 
- ****** The Conversion ****** byJust_Plain_Bob© John was sitting in the chair watching as I worked on Bill's cock with my mouth. He was smiling at me and slowly stroking his erection. I winked at him, took my mouth off of Bill and got on the bed. Bill spread my legs so he could slide his hard cock into my steaming pussy for the third time that afternoon and I moaned: 
+ 
+
+===
+
+John was sitting in the chair watching as I worked on Bill's cock with my mouth. He was smiling at me and slowly stroking his erection. I winked at him, took my mouth off of Bill and got on the bed. Bill spread my legs so he could slide his hard cock into my steaming pussy for the third time that afternoon and I moaned: 
 
  "Oh yes, oh god yes, that feels so damned good." 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** The Conversion ****** byJust_Plain_Bob© But even that wasn't the best part. The best part was a folder labeled "My Diary." It was an itemized account of every sexual affair that Vickie had engaged in. It gave names, dates, times and places and included a critique of the session. It started two days before our wedding and ran until the day before the accident. Her first was my cousin Tom on the night of our rehearsal dinner, her second was my best man the morning of the wedding and according to her diary there were seven other men who enjoyed her on our honeymoon when she wasn't being enjoyed by me. According to the story she wrote about it there were only three and I wondered about that. I guess she must have thought seven would be a little unbelievable for a new bride on her honeymoon. 
+ 
+
+===
+
+But even that wasn't the best part. The best part was a folder labeled "My Diary." It was an itemized account of every sexual affair that Vickie had engaged in. It gave names, dates, times and places and included a critique of the session. It started two days before our wedding and ran until the day before the accident. Her first was my cousin Tom on the night of our rehearsal dinner, her second was my best man the morning of the wedding and according to her diary there were seven other men who enjoyed her on our honeymoon when she wasn't being enjoyed by me. According to the story she wrote about it there were only three and I wondered about that. I guess she must have thought seven would be a little unbelievable for a new bride on her honeymoon. 
 
  I found out that she considered my best friend a 'lousy fuck' and my brother 'adequate." I was totally surprised to see that she considered me 'exceptional." If that was the case why was I only one of hundreds who had used her and why hadn't we been having more sex the last couple of years? 
 
@@ -394,7 +404,11 @@
 
  
 
- ****** The Conversion ****** byJust_Plain_Bob© It suddenly occurred to me that I would have no leverage if Harry somehow got the tapes back. I did have a copy of Vickie's diary but it could always be claimed that I made it up myself. I needed the visual proof so I got all of the tapes together and got them out of the house and hid them. Before I did that I copied the portions of the tapes that showed the twenty-two supposed friends of mine and I began making up packages to give to their wives and girlfriends. The package included the video of the asshole and Vickie's diary entries that pertained to him. 
+ 
+
+===
+
+It suddenly occurred to me that I would have no leverage if Harry somehow got the tapes back. I did have a copy of Vickie's diary but it could always be claimed that I made it up myself. I needed the visual proof so I got all of the tapes together and got them out of the house and hid them. Before I did that I copied the portions of the tapes that showed the twenty-two supposed friends of mine and I began making up packages to give to their wives and girlfriends. The package included the video of the asshole and Vickie's diary entries that pertained to him. 
 
  Once the packages were ready I called Harry and his secretary wouldn't put me through to him so I asked her to give him a message. 
 

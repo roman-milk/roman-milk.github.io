@@ -1,8 +1,14 @@
+The Gambler Ch. 01
+==================
 #1 
 
  
 
- ****** The Gambler Ch. 01 ****** byJust_Plain_Bob© Shit! Susan tore up the pari-mutual tickets and tossed them on the ground. She had been so sure that Indian Fog was going to win that she had bet her last $200 on the horse. Dead last for Christ's sake! The goddamn glue bag had come in dead last. At 7 to 1 she would have been sitting pretty, but now she was in deep trouble. The money she'd just lost was the week's grocery money. The cupboards were bare when her husband had gone for a snack and he had given her $300 to stock the shelves. When he got home tonight he was going to expect to see something and there was no way she was going to be able to explain that she'd lost the money at the track. 
+ 
+
+===
+
+Shit! Susan tore up the pari-mutual tickets and tossed them on the ground. She had been so sure that Indian Fog was going to win that she had bet her last $200 on the horse. Dead last for Christ's sake! The goddamn glue bag had come in dead last. At 7 to 1 she would have been sitting pretty, but now she was in deep trouble. The money she'd just lost was the week's grocery money. The cupboards were bare when her husband had gone for a snack and he had given her $300 to stock the shelves. When he got home tonight he was going to expect to see something and there was no way she was going to be able to explain that she'd lost the money at the track. 
 
  "What the hell am I going to do?" she asked herself. 
 
@@ -82,7 +88,11 @@
 
  
 
- ****** The Gambler Ch. 02 ****** byJust_Plain_Bob© Three horses that couldn't lose! Three sure bets. Shit! She tore up her tickets and threw them on the ground. All the money she had made yesterday was gone and she didn't have a damn thing to show for it. And there was still the seventh race to go and Blackie's Tyree was going off at 12 to 1 and Susan was certain that he couldn't lose. Sure, she'd had a run of bad luck, but it was going to turn - she could feel it. She needed to find some money quick; she only had about fifteen minutes to get her bet down on Blackie. She looked around and in less than ten seconds she found what she was looking for; a man of about forty who was staring at her with a look on his face that was saying, "Boy, I sure would like some of that." 
+ 
+
+===
+
+Three horses that couldn't lose! Three sure bets. Shit! She tore up her tickets and threw them on the ground. All the money she had made yesterday was gone and she didn't have a damn thing to show for it. And there was still the seventh race to go and Blackie's Tyree was going off at 12 to 1 and Susan was certain that he couldn't lose. Sure, she'd had a run of bad luck, but it was going to turn - she could feel it. She needed to find some money quick; she only had about fifteen minutes to get her bet down on Blackie. She looked around and in less than ten seconds she found what she was looking for; a man of about forty who was staring at her with a look on his face that was saying, "Boy, I sure would like some of that." 
 
  "Come on Little Andy, Mommy's got to do it again," she said to the eighteen month old baby in the stroller as she started to push it in the direction of the man. 
 
@@ -166,7 +176,11 @@
 
  
 
- ****** The Gambler Ch. 03 ****** byJust_Plain_Bob© Susan was feeding little Andy strained carrots when the door bell rang. She looked at the clock, nine already, Diamano was certainly punctual. She wiped the overflow off of little Andy's face and then got up to answer the door. She opened the door to find Diamano, Henry and Gloria waiting and she held the door open for them. Once inside Susan closed the door behind them and followed them into the living room and said, "I'm feeding the baby. It should only take a few more minutes." 
+ 
+
+===
+
+Susan was feeding little Andy strained carrots when the door bell rang. She looked at the clock, nine already, Diamano was certainly punctual. She wiped the overflow off of little Andy's face and then got up to answer the door. She opened the door to find Diamano, Henry and Gloria waiting and she held the door open for them. Once inside Susan closed the door behind them and followed them into the living room and said, "I'm feeding the baby. It should only take a few more minutes." 
 
  Diamano said, "Gloria." And Gloria said "I'll take over honey" and she headed for the kitchen. 
 
@@ -204,7 +218,11 @@
 
  
 
- ****** The Gambler Ch. 04 ****** byJust_Plain_Bob© Susan was soaking in the tub when the call from Andy came, "You going to be home for a while?" 
+ 
+
+===
+
+Susan was soaking in the tub when the call from Andy came, "You going to be home for a while?" 
 
  Susan said she would be and Andy said he would be right over. As Susan put down the cordless phone she wondered if she should bother getting dressed. Probably not. Lately, she thought, every guy who walks through the front door fucks me. After she had dried off and put on her makeup she went to the closet and selected her frumpiest looking robe; no sense putting on something sexy and asking for it, she thought, and then went into the kitchen to make a pot of coffee. The doorbell rang (the sound of doom she was beginning to think) and Susan answered it to find Andy and another black man standing on the porch. She stepped aside to let them in and then had them follow her into the kitchen where she offered them both coffee which they accepted. 
 
@@ -240,7 +258,11 @@
 
  
 
- ****** The Gambler Ch. 05 ****** byJust_Plain_Bob© Susan pulled into the slot in the supermarket parking lot. She got out, took the stroller out of the car and then helped little Andy out of his car seat. She was putting Andy in the stroller when a white van pulled up next to her. The side door slid open and Henry stepped out. He motioned for her to get in the van and she bent over to take Andy out of the stroller, but Henry said, "Leave the kid. Gloria will take care of it." 
+ 
+
+===
+
+Susan pulled into the slot in the supermarket parking lot. She got out, took the stroller out of the car and then helped little Andy out of his car seat. She was putting Andy in the stroller when a white van pulled up next to her. The side door slid open and Henry stepped out. He motioned for her to get in the van and she bent over to take Andy out of the stroller, but Henry said, "Leave the kid. Gloria will take care of it." 
 
  Susan climbed in the van and found Diamano sitting on a couch and before she was even fully inside the van his hand shot out toward her, "The money!" 
 
@@ -294,7 +316,11 @@
 
  
 
- ****** The Gambler Ch. 06 ****** byJust_Plain_Bob© It had been three months since Susan had been forced to make the porno film and her life had settled down some. She was still seeing five or six guys a week at a $100 a pop and she had done two more stag parties that Andy and Jerome had set up. She had even made two more films for Diamano. She didn't need the money - the track was closed for the season, but she had come to love all the sex she was having and why not make money at it? She figured she could have a very nice nest egg when the track reopened. Diamano wanted her to make more films, and had even offered to up her fee from $3000 to $4000. She hated making the films, but the wrap parties were great. She was in the kitchen fixing dinner when she heard her husband come in the front door. She went to the fridge and got the pitcher of ice cold vodka martinis she'd made and poured Brian a glass. When he came into the kitchen she walked up to him and handed him the martini and was about to kiss him when he threw the drink into her face. He grabbed her by the arm and dragged her into the living room and threw her down on the couch. 
+ 
+
+===
+
+It had been three months since Susan had been forced to make the porno film and her life had settled down some. She was still seeing five or six guys a week at a $100 a pop and she had done two more stag parties that Andy and Jerome had set up. She had even made two more films for Diamano. She didn't need the money - the track was closed for the season, but she had come to love all the sex she was having and why not make money at it? She figured she could have a very nice nest egg when the track reopened. Diamano wanted her to make more films, and had even offered to up her fee from $3000 to $4000. She hated making the films, but the wrap parties were great. She was in the kitchen fixing dinner when she heard her husband come in the front door. She went to the fridge and got the pitcher of ice cold vodka martinis she'd made and poured Brian a glass. When he came into the kitchen she walked up to him and handed him the martini and was about to kiss him when he threw the drink into her face. He grabbed her by the arm and dragged her into the living room and threw her down on the couch. 
 
  "Just you sit there and keep your fucking mouth shut" he commanded as he walked over to the TV and VCR. Taking a videotape out of his coat pocket he shoved it in the VCR and turned on the TV. He turned to her as the picture formed on the screen, "The Restless Housewife" starring Tracey Cummings in her debut as America's new porn queen" rolled across the screen and then she saw herself. The blood drained from her face as Brian said, "This little gem showed up on my desk last week in an envelope from our Los Angeles office with a note that said, "Thought you ought to know." "At first I didn't want to believe it, but there is no denying that it's you. It made me wonder about what else you were doing while you were supposed to be here taking care of the house and raising my son, so I hired a private detective" and he reached into his briefcase and took out a large manila envelope which he tossed at her. 
 

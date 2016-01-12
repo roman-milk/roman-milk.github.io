@@ -1,8 +1,14 @@
+Doggett
+=======
 #1 
 
  
 
- ****** Doggett ****** bygeronimo_appleby© The light peered through the mist, a beacon of warmth in the gloomy streets of Edwardian South London. Phillip cursed the impulse that had spurred him to England's capital without a plan, with little money for food, or more importantly he realised, lodgings. He paused at the door, apprehensive as to the reception he might receive as an unknown face. He needn't have worried, for when he stepped into the smoke, noise and bar smells, which wrapped their arms around him in welcome, he was ignored by everyone except a single barman. 
+ 
+
+===
+
+The light peered through the mist, a beacon of warmth in the gloomy streets of Edwardian South London. Phillip cursed the impulse that had spurred him to England's capital without a plan, with little money for food, or more importantly he realised, lodgings. He paused at the door, apprehensive as to the reception he might receive as an unknown face. He needn't have worried, for when he stepped into the smoke, noise and bar smells, which wrapped their arms around him in welcome, he was ignored by everyone except a single barman. 
 
  Inside the pub -- a rough place of the spit and sawdust variety -- the young man, on the cusp of his twenties, tried his best to appear as though he belonged. He stood on the periphery of a crowd of raucous navvies, all of whom were at the merry stage of drunkenness. No doubt the bonhomie would turn sour in an hour or so, with fistfights and curses punctuating the haze of blue smoke that hung in the air, but for now the pub was full of boozy good cheer. Reconciling the trade between half-an-hour in the warm and his meagre budget the lad ordered a drink. A pint of black and tan like a creamy-topped pudding sat half-drunk in front of the youngster while he pondered his next move. Having come to London on a whim, he found himself alone and a little scared in the rowdy boozer on the south side of the Thames. His most pressing concern now was where to spend the night. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Doggett ****** bygeronimo_appleby© Phillip barely registered the door bursting open. His pleasure blew apart in red agony that flashed deep in his groin. He felt the bite of the blade and looked down to its source. A scarlet jet squirted violently from the wound. Shocked, he looked to Gabrielle, who now stood over him, and he saw the evil spike of the stiletto in her fist. She'd cut him, stabbed him in the groin with the blade! Terrified at the sight of his severed femoral artery spurting his life away, the great arcs synchronised with his rapidly beating heart, Phillip blurted a cry of fear, surprise, and pain. He struggled to sit up, but Gabrielle dropped the weapon and, with strength beyond human, pinned his shoulders to the bed. 
+ 
+
+===
+
+Phillip barely registered the door bursting open. His pleasure blew apart in red agony that flashed deep in his groin. He felt the bite of the blade and looked down to its source. A scarlet jet squirted violently from the wound. Shocked, he looked to Gabrielle, who now stood over him, and he saw the evil spike of the stiletto in her fist. She'd cut him, stabbed him in the groin with the blade! Terrified at the sight of his severed femoral artery spurting his life away, the great arcs synchronised with his rapidly beating heart, Phillip blurted a cry of fear, surprise, and pain. He struggled to sit up, but Gabrielle dropped the weapon and, with strength beyond human, pinned his shoulders to the bed. 
 
  Ignoring the blood spattering against her body, uncaring that the stuff pooled on the bed and soaked into the cover and mattress like the tide on greedy sand, she stared into his eyes with an expression of avid concentration and jubilation. The lad continued his futile struggle and, with his efforts growing ever weaker, and his terrified moans tapering, Gabrielle turned her rear to Doggett. 
 

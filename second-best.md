@@ -1,8 +1,14 @@
+Second Best
+===========
 #1 
 
  
 
- ****** Second Best ****** byJust_Plain_Bob© I looked down at the legal pad on the desk and rolled the pen between my fingers as I tried to organize the words in my mind. It would have been much easier for me if I was at a keyboard in front of a computer. When at the computer my thoughts seemed to flow right to my fingers and the words would quickly appear on the screen. Hit 'print' and it would be done. Neat, single spaced lines of 11 point Times New Roman that would say it all, but to me that would be too impersonal. I needed for this to be personal; I needed what I was going to say to be an expression of "me" and so I would do it in my own handwriting. As one part of my brain tried to organize what I was going to say another part was busy remembering what it was that led to my need to say it. 
+ 
+
+===
+
+I looked down at the legal pad on the desk and rolled the pen between my fingers as I tried to organize the words in my mind. It would have been much easier for me if I was at a keyboard in front of a computer. When at the computer my thoughts seemed to flow right to my fingers and the words would quickly appear on the screen. Hit 'print' and it would be done. Neat, single spaced lines of 11 point Times New Roman that would say it all, but to me that would be too impersonal. I needed for this to be personal; I needed what I was going to say to be an expression of "me" and so I would do it in my own handwriting. As one part of my brain tried to organize what I was going to say another part was busy remembering what it was that led to my need to say it. 
 
  ++++++++++++++++++++ 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** Second Best ****** byJust_Plain_Bob© "Oh my God" she moaned, "What am I going to do?" 
+ 
+
+===
+
+"Oh my God" she moaned, "What am I going to do?" 
 
  I was silent for a moment or so and then I said, "You won't do anything. Tonight never happened. When you get up in the morning treat it as a weird dream that you had. Only two people know and I won't be telling anyone and I see no reason for you to tell anyone either." 
 
@@ -406,7 +416,11 @@
 
  
 
- ****** Second Best ****** byJust_Plain_Bob© ++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++ 
 
  I looked down at the legal pad in front of me, clicked the pen to extend the point and then began writing. 
 
@@ -590,6 +604,10 @@
 
  
 
- ****** Second Best ****** byJust_Plain_Bob© She kissed my shoulder and minutes later I heard the relaxed, easy breathing that told me that she had fallen asleep. I laid there looking up at the ceiling and thinking: 
+ 
+
+===
+
+She kissed my shoulder and minutes later I heard the relaxed, easy breathing that told me that she had fallen asleep. I laid there looking up at the ceiling and thinking: 
 
  "This feels right. This just feels so right" and I drifted off to sleep. Report_Story 

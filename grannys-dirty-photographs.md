@@ -1,8 +1,14 @@
+Granny's Dirty Photographs
+==========================
 #1 
 
  
 
- ****** Granny's Dirty Photographs ****** bygeronimo_appleby© A quick scene I pushed out today in which Robert has filched some dirty pictures taken years before of his grandmother. She discovers the photos are missing, and being a feisty, no-nonsense kind of lady she confronts him head- on. 
+ 
+
+===
+
+A quick scene I pushed out today in which Robert has filched some dirty pictures taken years before of his grandmother. She discovers the photos are missing, and being a feisty, no-nonsense kind of lady she confronts him head- on. 
 
  I hope you enjoy the piece. I did it on the fly but I hope there aren't too many glitches in it. Please forgive any errors that remain. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Granny's Dirty Photographs ****** bygeronimo_appleby© "Guh ...God, guh ... Gran ... yes," I managed to stutter. 
+ 
+
+===
+
+"Guh ...God, guh ... Gran ... yes," I managed to stutter. 
 
  She walked closer to me and, with a soft murmur of endearment, touched her pink-painted lips to my mouth. I felt the taut struts of her corset under my palms when my hands went to her waist automatically. Her tongue slid into my mouth while we shared that soft, oh-so-intimate first kiss. 
 
@@ -370,7 +380,11 @@
 
  
 
- ****** Granny's Dirty Photographs ****** bygeronimo_appleby© "You're insatiable," my grandmother panted as she rubbed herself between her legs. "I forgot how ardent young men can be. But this is so dangerous," she groaned, her hair spilling from its fastenings and falling over her face as her head lolled forward. "If Elaine comes in ..." 
+ 
+
+===
+
+"You're insatiable," my grandmother panted as she rubbed herself between her legs. "I forgot how ardent young men can be. But this is so dangerous," she groaned, her hair spilling from its fastenings and falling over her face as her head lolled forward. "If Elaine comes in ..." 
 
  "I'll fuck her too," I grunted, holding my grandmother's hips and corkscrewing my dick into her. "I've always fancied Elaine. I'd love to fuck her." 
 
@@ -382,7 +396,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 02 ****** bygeronimo_appleby© In response to some of the feedback forGranny's Dirty PhotographsI cobbled the following together. I hope you enjoy the scene I describe below. In this scenario Robert's grandmother has a little surprise for him at her house. It all starts well but unfortunately there's a glitch, a bump in the road of their incestuous relationship that seems like it will knock the wheel off the cart. 
+ 
+
+===
+
+In response to some of the feedback forGranny's Dirty PhotographsI cobbled the following together. I hope you enjoy the scene I describe below. In this scenario Robert's grandmother has a little surprise for him at her house. It all starts well but unfortunately there's a glitch, a bump in the road of their incestuous relationship that seems like it will knock the wheel off the cart. 
 
  Anyway, here it is, the follow-up; I've also left a postscript at the end of the piece that I couldn't include here in the preamble because it kinda gives the game away. 
 
@@ -584,7 +602,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 02 ****** bygeronimo_appleby© I wondered about the wisdom of sailing so close to the wind of truth, a sudden gust could easily capsize the tiny craft of our incestuous secret. 
+ 
+
+===
+
+I wondered about the wisdom of sailing so close to the wind of truth, a sudden gust could easily capsize the tiny craft of our incestuous secret. 
 
  But I needn't have worried, for Elaine, after a moment or two of thought, shrugged her shoulders. "OK," she replied, "but I'll find out sometime." 
 
@@ -748,7 +770,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 03 ****** bygeronimo_appleby© Here's the third in the Granny's Dirty Photographs series.Although there isn't much to do with the dirty pictures in this scene, it's a progression from Robert's grandmother and Elaine. 
+ 
+
+===
+
+Here's the third in the Granny's Dirty Photographs series.Although there isn't much to do with the dirty pictures in this scene, it's a progression from Robert's grandmother and Elaine. 
 
  Thanks for all the suggestions with where to take this. It pretty much evolves as it goes along. There's been no real plan to the scenes in the series since it began with that one original piece. Thanks to there being so many comments and emails about continuing the series, here we are. 
 
@@ -980,7 +1006,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 03 ****** bygeronimo_appleby© You tell me off for being a dirty, sneaky boy and I say I'm sorry. 
+ 
+
+===
+
+You tell me off for being a dirty, sneaky boy and I say I'm sorry. 
 
  Then you turn your back to me and slip your blouse over your shoulders. 
 
@@ -1246,7 +1276,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 03 ****** bygeronimo_appleby© After hours of practice on Elaine and my grandmother I soon had my mother writhing and squirming. She gasped and clawed at the settee, her body almost jack-knifing at the waist before she lifted my face from her opening and cradled my head in her arms. 
+ 
+
+===
+
+After hours of practice on Elaine and my grandmother I soon had my mother writhing and squirming. She gasped and clawed at the settee, her body almost jack-knifing at the waist before she lifted my face from her opening and cradled my head in her arms. 
 
  She gazed into my eyes. "Kiss me again," my mother groaned. 
 
@@ -1380,7 +1414,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 04 ****** bygeronimo_appleby© You may want to read the earlier chapters of Granny's Dirty Photographs before you continue with this one. 
+ 
+
+===
+
+You may want to read the earlier chapters of Granny's Dirty Photographs before you continue with this one. 
 
  Right, a short scene this time, but one in which things get complicated. I'm leading towards a climax (no pun intended) that should culminate in the chapter after this one -- or I might squeeze another in-between. After that, who knows if there will be more? 
 
@@ -1594,7 +1632,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 04 ****** bygeronimo_appleby© The following Saturday I sat in the kitchen with my mother. I hadn't been to see either my grandmother or Elaine during the interval. What could I say? Gran didn't know about the circumstances of my conception; she'd been told that my mum had fallen pregnant after a one-night-stand during a residential course she'd attended for the bank. Later on, when my grandmother kept on questioning about paternity, my grandfather and my mother made up the story about the man in question having been killed in a car crash. 
+ 
+
+===
+
+The following Saturday I sat in the kitchen with my mother. I hadn't been to see either my grandmother or Elaine during the interval. What could I say? Gran didn't know about the circumstances of my conception; she'd been told that my mum had fallen pregnant after a one-night-stand during a residential course she'd attended for the bank. Later on, when my grandmother kept on questioning about paternity, my grandfather and my mother made up the story about the man in question having been killed in a car crash. 
 
  "How do you feel?" my mother asked, her face full of love and concern for me. 
 
@@ -1626,7 +1668,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 05 ****** bygeronimo_appleby© You might like to read the previous chapters of Granny's Dirty Photographs before you continue with this one. Just for continuity. 
+ 
+
+===
+
+You might like to read the previous chapters of Granny's Dirty Photographs before you continue with this one. Just for continuity. 
 
  OK, well ... wow, chapter five! I didn't think the original scene would grow legs as it seems to have done. 
 
@@ -1876,7 +1922,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 05 ****** bygeronimo_appleby© My mother let out a long, curdling groan and looked back over one shoulder. "That's so fucking dirty," she moaned. "Your tongue's wriggling around like an eel. Oh, you filthy fucker." 
+ 
+
+===
+
+My mother let out a long, curdling groan and looked back over one shoulder. "That's so fucking dirty," she moaned. "Your tongue's wriggling around like an eel. Oh, you filthy fucker." 
 
  "Suck Robert's dick," the old man commanded when his face reappeared. "Suck him while I fuck you." 
 
@@ -2020,7 +2070,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 06 ****** bygeronimo_appleby© You might like to read the earlier chapters of Granny's Dirty Photographs before continuing with this piece. 
+ 
+
+===
+
+You might like to read the earlier chapters of Granny's Dirty Photographs before continuing with this piece. 
 
  This chapter is a slight deviation from the track I led you down at the end of the previous scene. It occurs in the week between when Robert and his grandfather shared Clara and Robert's birthday on the coming (no pun) Saturday. 
 
@@ -2248,7 +2302,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 06 ****** bygeronimo_appleby© After several minutes of dividing my attention between the two groaning, gasping women my grandmother told me to take off my clothes and sit down on the sofa. 
+ 
+
+===
+
+After several minutes of dividing my attention between the two groaning, gasping women my grandmother told me to take off my clothes and sit down on the sofa. 
 
  When I was naked and seated both women came to me and sat down, one either side. From there, while I kissed Elaine, my grandmother took hold of my cock and sucked at the knob-end with pursed lips. She cranked me at the root and sucked the tip of me while I ran my hands over the smooth skin of her shoulders before I felt the tightly packed corset that covered her torso. 
 
@@ -2284,7 +2342,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 07 ****** bygeronimo_appleby© The final chapter ... or is it? If you haven't read the earlier chapters of Granny's Dirty Photographs you might like to do so before reading this scene. 
+ 
+
+===
+
+The final chapter ... or is it? If you haven't read the earlier chapters of Granny's Dirty Photographs you might like to do so before reading this scene. 
 
  It's Robert's birthday – what presents will he receive? 
 
@@ -2516,7 +2578,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 07 ****** bygeronimo_appleby© Eventually, after food and drink and the obligatory round of Happy Birthday, the guests began to thin out. Some of the lads tried to get me to hit the pub with them to carry on the drinking. I declined, preferring to stick around with the family. Besides, I didn't trust my granddad not to get up to any tricks in my absence. 
+ 
+
+===
+
+Eventually, after food and drink and the obligatory round of Happy Birthday, the guests began to thin out. Some of the lads tried to get me to hit the pub with them to carry on the drinking. I declined, preferring to stick around with the family. Besides, I didn't trust my granddad not to get up to any tricks in my absence. 
 
  At half past nine in the evening, just as the light began to fade, my grandfather told me to come into the house. "I'll give you your gift now," he said with a wink. 
 
@@ -2710,7 +2776,11 @@
 
  
 
- ****** Granny's Dirty Photographs Ch. 07 ****** bygeronimo_appleby© "Good for you," gran responded. "He's always been too arrogant. You tell him, Robert. Put him in his place." 
+ 
+
+===
+
+"Good for you," gran responded. "He's always been too arrogant. You tell him, Robert. Put him in his place." 
 
  I climbed off the bed and my mother followed. I led mum by the hand along the landing and down the stairs. 
 

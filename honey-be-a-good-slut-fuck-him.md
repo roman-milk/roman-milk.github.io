@@ -1,8 +1,14 @@
+Honey, Be A Good Slut, Fuck Him!
+================================
 #1 
 
  
 
- ****** Honey, Be A Good Slut, Fuck Him! ****** byNonStopFunGuy© 
+ 
+
+===
+
+
 
  your dream, ideal marriage -- if you have an insatiable hunger burning between your thighs that you'd love a husband to stoke and satisfy -- then by god, send me an email for feedback, why aren't you and I dating yet?] 
 
@@ -96,7 +102,11 @@
 
  
 
- ****** Honey, Be A Good Slut, Fuck Him! ****** byNonStopFunGuy© Yeah," I smiled in delight, "fuck the whore's fucking throat dude." I fucking love seeing my wife used like this. 
+ 
+
+===
+
+Yeah," I smiled in delight, "fuck the whore's fucking throat dude." I fucking love seeing my wife used like this. 
 
  Stacie was doing her best to keep up with Andrew, but he was an animal now. I could see his strong thighs and muscular ass tensed, his arm muscles were bulging and his neck was strained. He was holding my wife's head by her long hair and ramfucking her mouth with his penis. The saliva and mucus were spilling out of her lips each time he pulled back, then he'd just fucking shove it back in there, into her throat making her neck stretch, furiously filling Stacie's throat with that big cock. Stacie's hands were on his hips to steady herself for the throat-banging, and this way she could sense his motions and know when he was coming forward. Andrew was humping her face as hard as he could, his balls crunching into her chin and his sweaty hairy abdomen pressing into Stacie's nostrils with each stroke. Fuck he was so deep! Gripping her hair madly and pummeling her face and throat with his body and erection, he was making spit and mucus splatter all over the place while he fucked harder and faster. 
 
@@ -200,7 +210,11 @@
 
  
 
- ****** Honey, Be A Good Slut, Fuck Him! ****** byNonStopFunGuy© Stacie's fingers locked around his neck, while she moved her legs higher to wrap them around his hips and back. Her dainty naked feet crossed together above his spine, right above his ass. "Fuck my baby!" she purred to him, her body now holding on with him fucking her slutty cunt harder and faster. "God you turn me on fuck me!" 
+ 
+
+===
+
+Stacie's fingers locked around his neck, while she moved her legs higher to wrap them around his hips and back. Her dainty naked feet crossed together above his spine, right above his ass. "Fuck my baby!" she purred to him, her body now holding on with him fucking her slutty cunt harder and faster. "God you turn me on fuck me!" 
 
  Andrew was working that huge cock so deep into her pussy it must have been past her cervix, seriously. I know my 6.5-inch erection can bang that wall at the back of her cunt when I fuck her, so add another inch or two and where else would his cock go? I don't know, but I mean, you could see a lump in her lower abdomen as he was fucking her, it was the head of his long hard prick, making a little ripple on her flat tummy between her cunt and her bellybutton, it was moving back and forth as he fucked her silly. He'd drive so far forward his hairy dangling balls would press into her ass, almost wanting to slide into her vagina too if there'd been room. 
 
@@ -310,7 +324,11 @@
 
  
 
- ****** Honey, Be A Good Slut, Fuck Him! ****** byNonStopFunGuy© "Guy," her response came quietly, followed by, "Uhh, oh god!" Her head dropped to the floor, her long dark hair falling around her arms, as she was working hard to push her butt against the vibrator entering her asshole. Andrew had one hand on the vibe, the other flat on one of her buttcheeks peeling it to the side, giving himself more room to probe her anus. The vibrator was looking pretty juicy, so it was well-lubricated to fuck her. Andrew was doing a good job of inserting it slowly, until her body naturally was pressing it out, and he pushed against the pressure to shove it in more, forcefully. He also was twisting it around a bit, so she felt the ribs and could feel its presence better. 
+ 
+
+===
+
+"Guy," her response came quietly, followed by, "Uhh, oh god!" Her head dropped to the floor, her long dark hair falling around her arms, as she was working hard to push her butt against the vibrator entering her asshole. Andrew had one hand on the vibe, the other flat on one of her buttcheeks peeling it to the side, giving himself more room to probe her anus. The vibrator was looking pretty juicy, so it was well-lubricated to fuck her. Andrew was doing a good job of inserting it slowly, until her body naturally was pressing it out, and he pushed against the pressure to shove it in more, forcefully. He also was twisting it around a bit, so she felt the ribs and could feel its presence better. 
 
  I savored the twin joys of seeing my wife get anally probed by a vibrator by a nude, total stranger, while also hearing about her fucking some other guy today on our bed. "So you fucked a guy in my bed did you, fuck you're such a slut - - well, did you make him cum good at least?" 
 
@@ -458,7 +476,11 @@
 
  
 
- ****** Honey, Be A Good Slut, Fuck Him! ****** byNonStopFunGuy© Again, my wife looked almost guilty, rolling her eyes and bouncing around like she just wanted to fuck and not answer the question. "Mmm, I dunno, maybe, maybe tomorrow?" She laughed at some inside joke. "Mmm, he thinks I'm cheating, so we're you know, keeping our little affair secret and low-key." She really laughed hard then. 
+ 
+
+===
+
+Again, my wife looked almost guilty, rolling her eyes and bouncing around like she just wanted to fuck and not answer the question. "Mmm, I dunno, maybe, maybe tomorrow?" She laughed at some inside joke. "Mmm, he thinks I'm cheating, so we're you know, keeping our little affair secret and low-key." She really laughed hard then. 
 
  "And, let's see, when are you meeting Andrew again, to fuck this other man you now are in love with?" There was not a hint of answer or jealousy in my voice. 
 

@@ -1,8 +1,14 @@
+Lunchtime Fun
+=============
 #1 #1 
 
  
 
- ****** Lunchtime Fun ****** byBoratus© Dawn arrived at the motel with Nancy already wet in anticipation of the fun to come. It was their lunch hour and Nancy, who had been wanting Dawn for sometime was also anxious to start sucking on her nipples and licking her pussy. They entered the room and to Nancy's surprise there was already someone inside. A black man sat on a chair near the bed calmly having a drink. 
+ 
+
+===
+
+Dawn arrived at the motel with Nancy already wet in anticipation of the fun to come. It was their lunch hour and Nancy, who had been wanting Dawn for sometime was also anxious to start sucking on her nipples and licking her pussy. They entered the room and to Nancy's surprise there was already someone inside. A black man sat on a chair near the bed calmly having a drink. 
 
  Dawn turned quickly to Nancy to explain. "Nancy, this is Shaun. I promised he could be here." 
 

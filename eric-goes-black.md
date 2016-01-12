@@ -1,8 +1,14 @@
+Eric Goes Black
+===============
 #1 
 
  
 
- ****** Eric Goes Black ****** byGotBacon© This isn't about a white guy falling for a black whore on anything even close to that. 
+ 
+
+===
+
+This isn't about a white guy falling for a black whore on anything even close to that. 
 
  It's just an idea that come to me. We'll follow Eric as he leaves college and moves into life, till... 
 
@@ -408,7 +414,11 @@
 
  
 
- ****** Eric Goes Black ****** byGotBacon© "I'm almost there, baby. Are you ready?" 
+ 
+
+===
+
+"I'm almost there, baby. Are you ready?" 
 
  "Fuck yes. Cum in me. Fill me with your cum. Fuck me. Fuck me." 
 
@@ -774,7 +784,11 @@
 
  
 
- ****** Eric Goes Black ****** byGotBacon© "Tell me what you want, Tiff. Tell me." 
+ 
+
+===
+
+"Tell me what you want, Tiff. Tell me." 
 
  "Fuck me in my ass, Eric. Ram your big cock in me." 
 
@@ -1150,7 +1164,11 @@
 
  
 
- ****** Eric Goes Black ****** byGotBacon© I pulled away and set it on eighty and tapped the cruise control button. He didn't follow me. I think he just wanted to look over my ride. 
+ 
+
+===
+
+I pulled away and set it on eighty and tapped the cruise control button. He didn't follow me. I think he just wanted to look over my ride. 
 
  I got home, slipped into bed and slept like a baby. 
 

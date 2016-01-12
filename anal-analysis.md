@@ -1,8 +1,14 @@
+Anal Analysis
+=============
 #1 
 
  
 
- ****** Anal Analysis ****** bygeronimo_appleby© Charlotte's expression was in step with her hesitation as she smiled weakly at the receptionist. Was this woman passing judgment? Charlotte worried. After all, this man specialised in sexual problems, so of course the receptionist would know that. How much detail was the woman privy to? 
+ 
+
+===
+
+Charlotte's expression was in step with her hesitation as she smiled weakly at the receptionist. Was this woman passing judgment? Charlotte worried. After all, this man specialised in sexual problems, so of course the receptionist would know that. How much detail was the woman privy to? 
 
  'Mr Holmes is free; go right in.' 
 
@@ -98,7 +104,7 @@
 
  'So you knew just about everything about this man? That he was married etc?' 
 
- 'Oh yes,' replied Charlotte. 'I told you, he was dad's friend. They'd been friends since before | was born. I knew his wife... and his kids.' 
+ 'Oh yes,' replied Charlotte. 'I told you, he was dad's friend. They'd been friends since before I was born. I knew his wife... and his kids.' 
 
  'Please, tell me what happened.' Mr Holmes eased back in his chair, and Charlotte followed the lead of his relaxed body language and began to talk. 
 
@@ -232,7 +238,11 @@
 
  
 
- ****** Anal Analysis ****** bygeronimo_appleby© Charlotte's eyes were closed as she frigged herself furiously. She could feel the onset of her climax, and she knew she would come hard and violently as she told the torrid tale of her anal de-flowering. 
+ 
+
+===
+
+Charlotte's eyes were closed as she frigged herself furiously. She could feel the onset of her climax, and she knew she would come hard and violently as she told the torrid tale of her anal de-flowering. 
 
  'He was muttering about how tight I was... How sweet I felt around his cock,' Charlotte groaned. 'I begged him to stop, to pull that awful bludgeon out of my body, but he was insistent. He fed more and more of it into me until, finally, I just submitted. I relaxed and he slid the final dirty inch or two into me. He was fully home in my arsehole.' 
 

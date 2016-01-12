@@ -1,8 +1,14 @@
+Stopping to See Eve
+===================
 #1 
 
  
 
- ****** Stopping to See Eve ****** byJust_Plain_Bob© It was my least favorite day of the week. It was the day after payday and the day I had to stop by my ex-wife's place and hand her the child support and alimony check. I didn't begrudge the kids their child support, but it just killed me to pay Eve alimony. Especially since the divorce was caused by her and what she did, or more to the point, didn't do. 
+ 
+
+===
+
+It was my least favorite day of the week. It was the day after payday and the day I had to stop by my ex-wife's place and hand her the child support and alimony check. I didn't begrudge the kids their child support, but it just killed me to pay Eve alimony. Especially since the divorce was caused by her and what she did, or more to the point, didn't do. 
 
  +++++ 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Stopping to See Eve ****** byJust_Plain_Bob© "I haven't had sex with Herb in three days honey. I'm clean down there. Would you eat my pussy, please honey, please?" 
+ 
+
+===
+
+"I haven't had sex with Herb in three days honey. I'm clean down there. Would you eat my pussy, please honey, please?" 
 
  The lying bitch! I had known from the last time that she was going to try and get me to eat her while Herb's juices were still in her. Doing it was going to be distasteful, but it would be a small price to pay for what I was going to do to her so I said: 
 

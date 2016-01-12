@@ -1,8 +1,14 @@
+Turning Contest: A Beautiful Blonde
+===================================
 #1 
 
  
 
- ****** Turning Contest: A Beautiful Blonde ****** bysilkstockingslover© Summary: Teen seductress MILF molests and takes teen in clothing shop 
+ 
+
+===
+
+Summary: Teen seductress MILF molests and takes teen in clothing shop 
 
  Thanks to: Thanks to hfernandez1983 for the story idea suggestion. 
 
@@ -364,7 +370,11 @@
 
  
 
- ****** Turning Contest: A Beautiful Blonde ****** bysilkstockingslover© "Yes, Mistress," Amy declared, screaming as if that word was the straw that broke the camel's back. 
+ 
+
+===
+
+"Yes, Mistress," Amy declared, screaming as if that word was the straw that broke the camel's back. 
 
  As Amy slowed down, Amy flipped her onto the floor on all fours and kept fucking her throughout her orgasm. 
 

@@ -1,8 +1,14 @@
+What To Do When Lacey Is Out
+============================
 #1 
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© With my heart breaking that I would get home too late to see my daughter before she left on her fuck date tonight, I almost jumped out of my car before I even shut the engine off. Four leaps later I was standing at the front door, fumbling with my keys, hoping Lacey would still be home. Naturally I couldn't isolate the house key right away then I put it in backwards, but eventually I got it into the lock and twisted -- and found it was unlocked. Damn, well, at least Lacey was still home. 
+ 
+
+===
+
+With my heart breaking that I would get home too late to see my daughter before she left on her fuck date tonight, I almost jumped out of my car before I even shut the engine off. Four leaps later I was standing at the front door, fumbling with my keys, hoping Lacey would still be home. Naturally I couldn't isolate the house key right away then I put it in backwards, but eventually I got it into the lock and twisted -- and found it was unlocked. Damn, well, at least Lacey was still home. 
 
  Taking a breath, I pushed the door open and stepped inside. The living room was dimly lit by a single lamp against the far wall, like it would be if my 19 year old had already left, but I spied light in the hallway across the room cast from the bathroom. Dropping my keys on the foyer table, I straightened myself up and tried not to look too desperate while I casually strolled down the hall. 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© Still, she wanted to toy with him, get him as aroused as possible. "So, what's the deal, your wife doesn't like to fuck, or what, is she ugly now or something?" The 19 year old spoke with confidence and not a hint of remorse, completely understanding the cause of horny married men who want something they usually can't have, namely, girls like herself. 
+ 
+
+===
+
+Still, she wanted to toy with him, get him as aroused as possible. "So, what's the deal, your wife doesn't like to fuck, or what, is she ugly now or something?" The 19 year old spoke with confidence and not a hint of remorse, completely understanding the cause of horny married men who want something they usually can't have, namely, girls like herself. 
 
  "Yeah, something like that," the guy chortled then looked at her knowingly, "you're pretty smart for a girl your age, you know how it is, huh?" 
 
@@ -192,7 +202,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© (Lacey has told me she used the story that she had a fantasy about her daddy knowing what a slut she is; I suppose that's why the guy actually smiles when she's talking to "Daddy" on the camera. Allegedly, she didn't say that her daddy would actually in fact watch the video.) 
+ 
+
+===
+
+(Lacey has told me she used the story that she had a fantasy about her daddy knowing what a slut she is; I suppose that's why the guy actually smiles when she's talking to "Daddy" on the camera. Allegedly, she didn't say that her daddy would actually in fact watch the video.) 
 
  My nude daughter leans up and straddles the guy, whose strong hands guide her slender hips over his lap. Her back is to his face, so her tits and pussy are facing the camera, his legs stretched out underneath her. She reaches down, holds his penis upright, lowering her pussy to it. I can't see his face now but I hear his moan, and hers, as his dick starts to penetrate her tight cunt. That huge cockhead is so big compared to her slit, you can see her lips visibly pry open to take in the wide erection. Lacey's eyes roll and her eyelids flutter, and she leans her slender body backwards with her hands behind her, tits arching up, as she lowers her pussy down the man's cockshaft. As always, stroking on the sofa watching, my eyes were glued to the penetration. She works herself hard, pushing down, until a few strokes later literally his entire shaft is buried up inside my daughter's cunt, his hairy balls slamming hard against her body as she grinds down on him. 
 
@@ -274,7 +288,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© Her piss over and cleaned up, Lacey returned to the bedroom where her male friend was finishing his call with his wife. Lacey let out an "oops!" when she realized she'd flushed the toilet, but Charlie had his hand over the cellphone to muffle the noise. No damage done, it seemed. He gave the cursory "I love you" and explained he wanted to "get back to the game." 
+ 
+
+===
+
+Her piss over and cleaned up, Lacey returned to the bedroom where her male friend was finishing his call with his wife. Lacey let out an "oops!" when she realized she'd flushed the toilet, but Charlie had his hand over the cellphone to muffle the noise. No damage done, it seemed. He gave the cursory "I love you" and explained he wanted to "get back to the game." 
 
  His dick was semi-hard, lying at an angle over his abdomen. It was wet and slimy from being stuck in her ass and pussy, and briefly her mouth, and it looked delicious. The girl didn't ask but crawled over the bed to it, leaning down and tracing her tonguetip softly along its length to taste its sexy flavor. Mmm, pussy juice with a single of ass. Her sore pussy itched for attention again, but her mouth and tongue were taking over for the moment. "Fuck you're pretty horny, aren't you slut," the man laughed at her, spreading his legs to let her work on his penis again. 
 
@@ -358,7 +376,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© He releases her, and she pulls off but immediately doubles over, gagging, choking for air, and a stream of slimy puke pours out of her mouth again, hanging like a rope from her mouth until she has another convulsion and a fat blob of the goo splatters onto the kitchen floor. Lacey is trying to breathe but she can't, making motions with no air, until she chokes hard and swallows a mouthful of air and mucus. That sets off a flurry of deep, nasty coughs, keeping her bent over and holding her knees, spitting out the acidic taste in her mouth while also trying to regain her breathing and empty her lungs. 
+ 
+
+===
+
+He releases her, and she pulls off but immediately doubles over, gagging, choking for air, and a stream of slimy puke pours out of her mouth again, hanging like a rope from her mouth until she has another convulsion and a fat blob of the goo splatters onto the kitchen floor. Lacey is trying to breathe but she can't, making motions with no air, until she chokes hard and swallows a mouthful of air and mucus. That sets off a flurry of deep, nasty coughs, keeping her bent over and holding her knees, spitting out the acidic taste in her mouth while also trying to regain her breathing and empty her lungs. 
 
  She's a trooper, and within a few seconds, she's breathing again although hard, and her nose is flowing with mucus which is now smeared all over her lower face. Her black nightie glistens from the liquids, her hair is tangled back. Think she's done? No way. After sucking up the air and lifting her nightie again to wipe her face clean, exposing her glistening-wet cuntlips in the process, she pulls the chair back up to the table, kneels on it, and climbs over the man's dick with her mouth. 
 
@@ -458,7 +480,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© At that very instant, Lacey realized several things. First, he was feeling guilty about fucking her, and the third orgasm in her pussy must have brought that guilt to a head. Second, she wasn't going to get more sex from him again tonight. Third, he's a prick, and she had no interest in seeing him again. 
+ 
+
+===
+
+At that very instant, Lacey realized several things. First, he was feeling guilty about fucking her, and the third orgasm in her pussy must have brought that guilt to a head. Second, she wasn't going to get more sex from him again tonight. Third, he's a prick, and she had no interest in seeing him again. 
 
  But fourth, unless she was extra-nice to him, she didn't have a ride home. 
 
@@ -536,7 +562,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© "I've been looking forward to this call all day," Lacey is telling the guy with a low, sultry purr, speaking slowly and emotively, "I was, like, in the bath this morning for an hour, just, like, lying there, you know, so fuckin' horny, touching myself and my tits and all, thinking that I was finally going to get to hear your voice after all those times just on the computer." As she talks, her thighs are squeezed together, momentarily satisfying the burning in her crotch. She listens to the man and then moans with delight at whatever he said. "Ooh, fuck yeah, I was so wet, I wish that big hard cock was there with me -- I wish it was here now with me, do you have it out honey? NO? Well, shit Kevin, what are you waiting for, take it out baby, I mean, if your wife won't play with it, who else is gonna get it off?" 
+ 
+
+===
+
+"I've been looking forward to this call all day," Lacey is telling the guy with a low, sultry purr, speaking slowly and emotively, "I was, like, in the bath this morning for an hour, just, like, lying there, you know, so fuckin' horny, touching myself and my tits and all, thinking that I was finally going to get to hear your voice after all those times just on the computer." As she talks, her thighs are squeezed together, momentarily satisfying the burning in her crotch. She listens to the man and then moans with delight at whatever he said. "Ooh, fuck yeah, I was so wet, I wish that big hard cock was there with me -- I wish it was here now with me, do you have it out honey? NO? Well, shit Kevin, what are you waiting for, take it out baby, I mean, if your wife won't play with it, who else is gonna get it off?" 
 
  He says something quickly and she blushes, looking apologetic. A hand reaches up to brush her long, curly golden-blonde hair back, as she sweetly intones into the phone, "Mmm, you're right, I'm sorry, DADDY -- does your cock get harder when you hear me say that on the phone, huh Daddy? You like your daughter asking if your cock is hard right now Daddy?" Her eyes are now on the camera, not to talk to me, but to toy with my emotions while she calls another man her daddy. It gets me fucking hard watching this every time. "Take out your penis, Daddy, because . . . because, Daddy! Because its big and hard and Mommy won't play with it, so show it to me, show me how hard it gets Daddy." The sparkle in her eye looking at the camera, talking nasty to her brand-new "daddy" while her real daddy gets to watch it later, is obviously turning on my daughter. "You can admit that, if I was your real daughter, you'd wanna show me your big cock, wouldn't you daddy?" 
 
@@ -612,7 +642,11 @@
 
  
 
- ****** What To Do When Lacey Is Out ****** byNonStopFunGuy© "Ooh fuck yes, Daddy, eat it, eat another man's cum out of me! Taste how many times he cummed in my tight pussy, Daddy, I made him fuck me so hard!" 
+ 
+
+===
+
+"Ooh fuck yes, Daddy, eat it, eat another man's cum out of me! Taste how many times he cummed in my tight pussy, Daddy, I made him fuck me so hard!" 
 
  Lacey's wet engorged pink clitty ground against my upper lip, even my teeth, while I tried to keep up with her body gyrating wildly over my mouth. She was holding my head steady, pumping her little ass and thin hips in circles, grinding that cunt against me hard, getting off on me. My tongue stuffed into her tight, wet hole, stretching inside, trying to draw out the juices and cum packed inside of it. But her body was moving wildly, her pussy circling back and forth, my tongue was pumping in and out only from staying in place. She was masturbating herself, really, using my tongue and face. "Yes! Eat his cum in my cunt, Daddy!" I didn't have to see her face to know her eyes were closed; I knew from the sounds of her shrill chanting. "Fuck yes! Fuck yes! Eat his cum Daddy!" Her fingers and palm clutched my head hard, and Lacey smashed her pussy into my Daddy-tongue furiously, so hard that I could slip my tongue deep into her hole, trying to tongue-fuck my daughter with as much energy as she was using to sit on my face. 
 

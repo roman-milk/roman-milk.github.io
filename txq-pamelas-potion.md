@@ -1,8 +1,14 @@
+TxQ - Pamela's Potion
+=====================
 #1 
 
  
 
- ****** TxQ - Pamela's Potion ****** byTx_Tall_Tales© =========================== 
+ 
+
+===
+
+=========================== 
 
  Love potion overdose changes everything. Quite a warped little tale, please forgive me. Wasn't quite sure which category to put it into, so I went with Nonconsent. You'll see why. 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** TxQ - Pamela's Potion ****** byTx_Tall_Tales© By the time it was dark, the place was settling down. A few guys left, some more arrived. Randy helped me pee into a jug, refusing to let me go to the bathroom. I had more than a dozen beers, and was amazed I was still getting it up for Julie and Becky. One of the other girls came down and rode me, I don't even know her name. Ugly little thing, but a pretty tight pussy. Guess she couldn't compete with my gorgeous wife and daughter. 
+ 
+
+===
+
+By the time it was dark, the place was settling down. A few guys left, some more arrived. Randy helped me pee into a jug, refusing to let me go to the bathroom. I had more than a dozen beers, and was amazed I was still getting it up for Julie and Becky. One of the other girls came down and rode me, I don't even know her name. Ugly little thing, but a pretty tight pussy. Guess she couldn't compete with my gorgeous wife and daughter. 
 
  By 3:00 am, I'd had to pee twice more, got fed some pizza, and had an anal ride by the ugly one. Becky was pissed off, and dragged her back downstairs, making her clean me up, and get me hard again, before Becky had her ride. She looked tired, riding me gently. "You too, right? Whatever happened to them, you got some of it. No way you stay hard like this all day long." She held me in her arms, fucking me slowly. "Don't worry, Julie and me, we'll get you through this. There's only about a dozen guys still up there, I think the girls are finally calming down." She did her best to take care of me, earning another load. She kissed me softly. "It's going to be Ok, Mr. Young." 
 

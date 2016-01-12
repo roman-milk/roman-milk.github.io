@@ -1,8 +1,14 @@
+Submissive Soccer Moms: Rich Bitch
+==================================
 #1 
 
  
 
- ****** Submissive Soccer Moms: Rich Bitch ****** bysilkstockingslover© Summary: A young lesbian soccer coach seduces a rich upper class mother. 
+ 
+
+===
+
+Summary: A young lesbian soccer coach seduces a rich upper class mother. 
 
  NOTE: A special thank you goes to Steve B for his editing suggestions and Estragon for his exhaustive copy editing work. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Submissive Soccer Moms: Rich Bitch ****** bysilkstockingslover© "Slut, get your ass over here now," Layla ordered and just as quickly put her phone down. She looked at the MILF she was playing like a fiddle and asked, "What are you still doing here? If it is about your daughter, tell her if she wants to start, she better start working as hard as everyone else. One of my good obedient lesbian sluts will drive you home. Go wait at the front entrance. Now get the fuck out of my dorm room." 
+ 
+
+===
+
+"Slut, get your ass over here now," Layla ordered and just as quickly put her phone down. She looked at the MILF she was playing like a fiddle and asked, "What are you still doing here? If it is about your daughter, tell her if she wants to start, she better start working as hard as everyone else. One of my good obedient lesbian sluts will drive you home. Go wait at the front entrance. Now get the fuck out of my dorm room." 
 
  A stunned and speechless Mrs. Jones walked out of the dorm. 
 
@@ -478,7 +488,11 @@
 
  
 
- ****** Submissive Soccer Moms: Rich Bitch ****** bysilkstockingslover© Once she arrived, she let out an accidental howl, "Oh my, you really are a slut, aren't you?" 
+ 
+
+===
+
+Once she arrived, she let out an accidental howl, "Oh my, you really are a slut, aren't you?" 
 
  On the bed, still bound, and dripping in sweat, was the MILF, attempting to cum by bouncing her ass up and down. The sight was so desperately erotic that Layla almost felt sorry for her. The MILF pleaded, "Oh Mistress Layla, please help me cum, I need to so bad." 
 
@@ -600,7 +614,11 @@
 
  
 
- ****** Submissive Soccer Moms: Shy MILF ****** bysilkstockingslover© NOTE: In the first part (Submissive Soccer Moms: Rich Bitch) Layla seduces and Dommes harshly a stuck-up rich soccer mom, Sammantha. Introduced only briefly is another soccer mom, the shy, sweet, Clara. This story is the touching story of a much different seduction. 
+ 
+
+===
+
+NOTE: In the first part (Submissive Soccer Moms: Rich Bitch) Layla seduces and Dommes harshly a stuck-up rich soccer mom, Sammantha. Introduced only briefly is another soccer mom, the shy, sweet, Clara. This story is the touching story of a much different seduction. 
 
  NOTE 2: As always, a special thank you to Estragon for his dedicated copy editing of this and all my other stories. 
 
@@ -848,7 +866,11 @@
 
  
 
- ****** Submissive Soccer Moms: Shy MILF ****** bysilkstockingslover© Layla shook her mouth back and forth with Clara's clit still between her lips, while fucking the MILF fast and furious with the toy. Layla continued the intense pleasure focus for a few minutes until she knew Clara was close again. Suddenly, Layla stopped, leaving the toy buried and buzzing inside Clara's wet pussy. She demanded, "Close your legs together, sexy." 
+ 
+
+===
+
+Layla shook her mouth back and forth with Clara's clit still between her lips, while fucking the MILF fast and furious with the toy. Layla continued the intense pleasure focus for a few minutes until she knew Clara was close again. Suddenly, Layla stopped, leaving the toy buried and buzzing inside Clara's wet pussy. She demanded, "Close your legs together, sexy." 
 
  Clara obeyed reluctantly and slightly confused, her face a contortion of pleasure and disappointment. 
 

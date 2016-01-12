@@ -1,8 +1,14 @@
+Kelsey Loves the Kissing
+========================
 #1 
 
  
 
- ****** Kelsey Loves the Kissing ****** bygeronimo_appleby© I thought I'd dip my toe into the girl-on-girl pool. Not a scene I venture into too often, not since I'm male and capturing the essence of Sapphic love isn't the easiest. 
+ 
+
+===
+
+I thought I'd dip my toe into the girl-on-girl pool. Not a scene I venture into too often, not since I'm male and capturing the essence of Sapphic love isn't the easiest. 
 
  Still, here it is, a scene of seduction where Kelsey is somewhat reluctant at first... 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Kelsey Loves the Kissing ****** bygeronimo_appleby© Kelsey is relieved when she sees Carla's expression. It wasn't so bad after all. All Carla wanted was an experimental feel. Her mood lightens. She eases forward, spine straightening, skin gleaming. 
+ 
+
+===
+
+Kelsey is relieved when she sees Carla's expression. It wasn't so bad after all. All Carla wanted was an experimental feel. Her mood lightens. She eases forward, spine straightening, skin gleaming. 
 
  Kelsey sips wine before saying, "I can't see why you'd be envious, Carla." She tilts the rim of her glass towards the other woman. "Your boobs look pretty good to me." 
 
@@ -408,7 +418,11 @@
 
  
 
- ****** Kelsey Loves the Kissing ****** bygeronimo_appleby© A delighted laugh comes from Carla. She grins and winks and, in the second before her mouth touches Kelsey's lips, murmurs, "There's more to come, my darling girl. Lot's more." 
+ 
+
+===
+
+A delighted laugh comes from Carla. She grins and winks and, in the second before her mouth touches Kelsey's lips, murmurs, "There's more to come, my darling girl. Lot's more." 
 
  Into the evening 
 

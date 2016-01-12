@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Maria
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Maria ****** byJust_Plain_Bob© I first saw Maria in my third year of college. I was Engineering major, but I was also taking classes in Art to get my electives out of the way. I had signed up a class called Developmental Figure Studies because the girl I was engaged to was taking the class and she had talked me into it. It is amazing how naive you can be sometimes; I thought the class was going to be charcoal and pencil drawings of figures like bowls of fruit and vases and the like so image my surprise when a young woman wearing a bathrobe came into the room, dropped the robe, sat down in a chair and struck a pose. She was extremely attractive and I found myself thinking that I was going to really like this class. Sarah, my fianc‚e, dug her elbow in my ribs, "Hey! Save those looks for me." 
+ 
+
+===
+
+I first saw Maria in my third year of college. I was Engineering major, but I was also taking classes in Art to get my electives out of the way. I had signed up a class called Developmental Figure Studies because the girl I was engaged to was taking the class and she had talked me into it. It is amazing how naive you can be sometimes; I thought the class was going to be charcoal and pencil drawings of figures like bowls of fruit and vases and the like so image my surprise when a young woman wearing a bathrobe came into the room, dropped the robe, sat down in a chair and struck a pose. She was extremely attractive and I found myself thinking that I was going to really like this class. Sarah, my fianc‚e, dug her elbow in my ribs, "Hey! Save those looks for me." 
 
  I wasn't sure but I thought that the model witnessed the exchange and had smiled. 
 

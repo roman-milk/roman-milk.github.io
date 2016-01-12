@@ -1,8 +1,14 @@
+Jumping to Conclusions
+======================
 #1 
 
  
 
- ****** Jumping to Conclusions ****** byJust_Plain_Bob© I left the apartment at my usual time and pulled out of the parking lot onto the street. I turned and headed down Cortez to the stop sign at Monte Vista and then hung a left. Twenty minutes would have me at work and if it was a normal Friday and the day had no surprises I would be able to leave work early and head for the lake. I had the tent and the rest of the gear in the back of the pickup and all I would need to do is stop and get ice. 
+ 
+
+===
+
+I left the apartment at my usual time and pulled out of the parking lot onto the street. I turned and headed down Cortez to the stop sign at Monte Vista and then hung a left. Twenty minutes would have me at work and if it was a normal Friday and the day had no surprises I would be able to leave work early and head for the lake. I had the tent and the rest of the gear in the back of the pickup and all I would need to do is stop and get ice. 
 
  I reached over and turned on the radio and caught the last of George Jones doing 'The Cold Hard Truth.' The song ended and the DJ said: 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Jumping to Conclusions ****** byJust_Plain_Bob© ++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++ 
 
  I finished up in Atlanta and headed for home. I left the airport and checked into a hotel close to work and then I went in to the office and brought Ben up to date. We talked about my taking the Atlanta office and set a timeline for it to happen. Then I took a couple of days off to take care of some personal business. 
 

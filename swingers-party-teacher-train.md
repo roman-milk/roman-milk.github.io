@@ -1,8 +1,14 @@
+Swingers' Party: Teacher Train
+==============================
 #1 
 
  
 
- ****** Swingers' Party: Teacher Train ****** bysilkstockingslover© A young teacher unwittingly goes to a swinger's party and becomes the party. 
+ 
+
+===
+
+A young teacher unwittingly goes to a swinger's party and becomes the party. 
 
  NOTE 1: This is a Halloween contest story. Please vote!!! 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Swingers' Party: Teacher Train ****** bysilkstockingslover© "Agreed," Heather responded with a nod. 
+ 
+
+===
+
+"Agreed," Heather responded with a nod. 
 
  Unlike the erotic sexual undertone tease of my first dressing, this time Amy and Heather dressed me with systematic precision. 
 

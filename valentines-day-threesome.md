@@ -1,8 +1,14 @@
+Valentine's Day Threesome
+=========================
 #1 
 
  
 
- ****** Valentine's Day Threesome ****** bysilkstockingslover© NOTE 1: This story was written for a fan. Hope you enjoy, Dani!!! 
+ 
+
+===
+
+NOTE 1: This story was written for a fan. Hope you enjoy, Dani!!! 
 
  NOTE 2: Thanks to Estragon for his copy editing. 
 
@@ -306,7 +312,11 @@
 
  
 
- ****** Valentine's Day Threesome ****** bysilkstockingslover© As he continued thrusting, he shocked me as he said, "Dianne get the slut's ass ready." 
+ 
+
+===
+
+As he continued thrusting, he shocked me as he said, "Dianne get the slut's ass ready." 
 
  "Of course," my friend, who knew of my no-entry backdoor policy, replied, walking over to me, a thinner strap-on already around her waist. 
 

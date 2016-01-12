@@ -1,8 +1,14 @@
+Training Teacher Ch. 01
+=======================
 #1 
 
  
 
- ****** Training Teacher Ch. 01 ****** bysilkstockingslover© Summary: A parent-teacher interview forever changes a teacher's life. 
+ 
+
+===
+
+Summary: A parent-teacher interview forever changes a teacher's life. 
 
  Note: This story is dedicated to my beautiful pet Julia. Your smile makes me tingle. 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** Training Teacher Ch. 01 ****** bysilkstockingslover© When I looked up, I realized we were pulling into a driveway of a large house, a mansion really. I asked nervously, but I already knew the answer, "Where are we?" 
+ 
+
+===
+
+When I looked up, I realized we were pulling into a driveway of a large house, a mansion really. I asked nervously, but I already knew the answer, "Where are we?" 
 
  She shrugged, her hand leaving my leg, and responded nonchalantly, "My house." 
 
@@ -248,7 +258,11 @@
 
  
 
- ****** Training Teacher Ch. 01 ****** bysilkstockingslover© I did as instructed. My Mistress joined me on the bed, and I did not struggle or protest as she grabbed my arms, quickly handcuffing me to the headboard. A feeling of complete helplessness hit me as I lay there bound. Up until now, I at least in theory could stop this descent into servitude and obedience. But now I was completely at the mercy of a woman who had humiliated me in public, chastised me as a teacher and forced me to be her whore. She reached back to the tray and returned with what I would soon learn was a butt plug. It was a thin black toy and I watched her lubricate it generously. Once she had lubricated it, she asked me, "Have you ever had anything in your ass?" 
+ 
+
+===
+
+I did as instructed. My Mistress joined me on the bed, and I did not struggle or protest as she grabbed my arms, quickly handcuffing me to the headboard. A feeling of complete helplessness hit me as I lay there bound. Up until now, I at least in theory could stop this descent into servitude and obedience. But now I was completely at the mercy of a woman who had humiliated me in public, chastised me as a teacher and forced me to be her whore. She reached back to the tray and returned with what I would soon learn was a butt plug. It was a thin black toy and I watched her lubricate it generously. Once she had lubricated it, she asked me, "Have you ever had anything in your ass?" 
 
  "No," I answered, my fear clearly expressed by my facial expression. 
 
@@ -388,7 +402,11 @@
 
  
 
- ****** Training Teacher Ch. 02 ****** bysilkstockingslover© Chapter 02: New Reality Revelations 
+ 
+
+===
+
+Chapter 02: New Reality Revelations 
 
  RECAP: I highly recommend you read the beginning of this series Training Teacher: The Seduction to find out how Julia became the submissive of one of her student's parents. Part 2 takes places the very next morning, when she wakes up...still at her new Mistress's home...at the foot of the bed. 
 
@@ -570,7 +588,11 @@
 
  
 
- ****** Training Teacher Ch. 02 ****** bysilkstockingslover© Her tone was sweet and caring, a surprising shift from her usual up front and blunt tone. "Oh, is that it? The only ones who will know have already submitted to me, my pet. They know exactly what you are feeling. They have been exactly where you are right now. They will actually help you come to grips with your new reality." 
+ 
+
+===
+
+Her tone was sweet and caring, a surprising shift from her usual up front and blunt tone. "Oh, is that it? The only ones who will know have already submitted to me, my pet. They know exactly what you are feeling. They have been exactly where you are right now. They will actually help you come to grips with your new reality." 
 
  "New reality," I murmured. 
 
@@ -800,7 +822,11 @@
 
  
 
- ****** Training Teacher Ch. 02 ****** bysilkstockingslover© "I am a lesbian, Hannah. I have known this for a long time, but I had never completely come to grips with it. So when Constance seduced me, I didn't even attempt to fight it. I wanted it. I needed it. She saw that in me and she seemed to have seen it in you too. Now I don't mean I am bi or just a submissive for Mistress Constance. I mean I am in love with a woman. A beautiful, sexy, smart, sweet woman I want to spend the rest of my life with." 
+ 
+
+===
+
+"I am a lesbian, Hannah. I have known this for a long time, but I had never completely come to grips with it. So when Constance seduced me, I didn't even attempt to fight it. I wanted it. I needed it. She saw that in me and she seemed to have seen it in you too. Now I don't mean I am bi or just a submissive for Mistress Constance. I mean I am in love with a woman. A beautiful, sexy, smart, sweet woman I want to spend the rest of my life with." 
 
  I was shocked by this admission; she seemed to be happily married. I could only recall a handful of times she had complained about Eric. Being a good friend, "It's Ok, Amy, I love you for who you are, the same way I know you love me and accept me. You mean the world to me Amy and I will be there for whatever you need." As soon as I acknowledged this, I knew it was true. Amy was my lifeline, the one who was there whenever I needed it, selflessly helping me through my divorce, my job and even looking after my daughter Elaine. 
 
@@ -944,7 +970,11 @@
 
  
 
- ****** Training Teacher Ch. 02 ****** bysilkstockingslover© Once I finally made it back to Amy, I crawled to her feet. She patted my head and rewarded me, "You are such a good pet, aren't you, baby?" 
+ 
+
+===
+
+Once I finally made it back to Amy, I crawled to her feet. She patted my head and rewarded me, "You are such a good pet, aren't you, baby?" 
 
  I couldn't respond because of the toy still in my mouth. 
 
@@ -1068,7 +1098,11 @@
 
  
 
- ****** Training Teacher Ch. 03 ****** bysilkstockingslover© Summary: Teacher is given to three 18-year-old ex-students for the weekend. 
+ 
+
+===
+
+Summary: Teacher is given to three 18-year-old ex-students for the weekend. 
 
  NOTE 1: Obviously, if you have not read parts 1 and 2, I highly recommend you do before reading part 3. 
 
@@ -1332,7 +1366,11 @@
 
  
 
- ****** Training Teacher Ch. 03 ****** bysilkstockingslover© Karli unhooked the leash and said, "We will let you walk for a while, but one hint of disobedience and the leash goes back on, understood?" 
+ 
+
+===
+
+Karli unhooked the leash and said, "We will let you walk for a while, but one hint of disobedience and the leash goes back on, understood?" 
 
  "Yes, Mistress," I replied, thankful to be allowed off my knees. 
 

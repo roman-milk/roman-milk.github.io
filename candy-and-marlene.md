@@ -1,8 +1,15 @@
+Candy and Marlene
+=================
+
 #1 
 
  
 
- ****** Candy and Marlene ****** byJust_Plain_Bob© I looked out the window at the freshly fallen snow. Up and down the street the houses were all decorated for the season. Santa's and reindeer on the roofs, Nativity scenes in front yards, outside trees strung with lights and inside trees shining through windows. Holiday spirit was everywhere, everywhere but in my house. I turned from the window and took in the scene. The tree lying on the floor, shards of glass from broken light bulbs and shattered Christmas ornaments. I suppose I should have seen it coming; Candy always did have a temper and she hadn't liked her Christmas present. She hadn't liked it at all. But what is it they always say? It isn't the gift, but the thought that counts? I took one last look at the mess and decided that cleanup could wait until the morning and then I went up to bed. 
+ 
+
+===
+
+I looked out the window at the freshly fallen snow. Up and down the street the houses were all decorated for the season. Santa's and reindeer on the roofs, Nativity scenes in front yards, outside trees strung with lights and inside trees shining through windows. Holiday spirit was everywhere, everywhere but in my house. I turned from the window and took in the scene. The tree lying on the floor, shards of glass from broken light bulbs and shattered Christmas ornaments. I suppose I should have seen it coming; Candy always did have a temper and she hadn't liked her Christmas present. She hadn't liked it at all. But what is it they always say? It isn't the gift, but the thought that counts? I took one last look at the mess and decided that cleanup could wait until the morning and then I went up to bed. 
 
  +++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -180,7 +187,11 @@
 
  
 
- ****** Candy and Marlene ****** byJust_Plain_Bob© "Well all I can say is that you are missing out on a hell of a good time. Come on baby, do me." 
+ 
+
+===
+
+"Well all I can say is that you are missing out on a hell of a good time. Come on baby, do me." 
 
  My jaw damned near hit the floor as Marlene spread her legs wide and Candy moved between them and went down on her best friend. Candy slipped a finger into Marlene's pussy and Marlene pushed her ass up off the bed. Candy fingered Marlene as she lowered her mouth to her girlfriend's hairy mound and her tongue joined her fingers and then she worked on Marlene's pussy for a couple of minutes. "Aaaahhhhh" Marlene moaned as she had a small orgasm. 
 

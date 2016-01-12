@@ -1,8 +1,14 @@
+The Limo Ride
+=============
 #1 
 
  
 
- ****** The Limo Ride ****** byBoratus© He had called her that afternoon and told her to be at this corner at 8:00pm. "Wear something sexy," he had said and he had never disappointed her before so here she was, her red dress form fitting and a little too short, black fish- nets, heels so high they were a bit uncomfortable, her hair moussed and stunning. It was now 8:10pm and only after the second car had stopped and the second driver had had propositioned her did she notice the girls on the other corners. They were getting angry and, if she diverted any more of their business, she was going to be in a lot of trouble. Ten more minutes and she'd either be beaten up, arrested, or have a pimp. Then she realized something else. He was close...and watching. He would never do something like this to her without being able to watch her. To see her fret and squirm and argue with herself whether she should just leave quickly. "I hate him!" she thought but the smile on her lips betrayed her thoughts. She loved that he could do this to her and then she realized that she was wet. 
+ 
+
+===
+
+He had called her that afternoon and told her to be at this corner at 8:00pm. "Wear something sexy," he had said and he had never disappointed her before so here she was, her red dress form fitting and a little too short, black fish- nets, heels so high they were a bit uncomfortable, her hair moussed and stunning. It was now 8:10pm and only after the second car had stopped and the second driver had had propositioned her did she notice the girls on the other corners. They were getting angry and, if she diverted any more of their business, she was going to be in a lot of trouble. Ten more minutes and she'd either be beaten up, arrested, or have a pimp. Then she realized something else. He was close...and watching. He would never do something like this to her without being able to watch her. To see her fret and squirm and argue with herself whether she should just leave quickly. "I hate him!" she thought but the smile on her lips betrayed her thoughts. She loved that he could do this to her and then she realized that she was wet. 
 
  Then the limo drove up. The chauffeur quickly jumped out, ran around and opened the door for her. She looked inside and there he was, dressed to kill. She got and sat facing him. He only sat and smiled at her. "Are you going to tell me what this is all about?" she asked. He reached beside him and picked a bottle of champagne and popped it open. He poured some into two glasses and handed one to her. She took and it and sipped. It was very good. She saw that he was checking her out, scanning from top to bottom and back up again. Then he moved in as though he was going to kiss her. She closed her eye to receive it but his lips brushed along her cheek to her ear and he started to talk to her. 
 

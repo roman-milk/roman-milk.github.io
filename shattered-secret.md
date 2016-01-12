@@ -1,8 +1,14 @@
+Shattered Secret
+================
 #1 
 
  
 
- ****** Shattered Secret ****** bygeronimo_appleby© She found the DVD by accident. She hadn't been snooping; she'd been searching for her mother's blue sweater, but her rummaging through the drawers of her parents' bedroom led to an exciting discovery. 
+ 
+
+===
+
+She found the DVD by accident. She hadn't been snooping; she'd been searching for her mother's blue sweater, but her rummaging through the drawers of her parents' bedroom led to an exciting discovery. 
 
  Francesca held the plastic case, transfixed by the printed images on the cover. She experienced a tremor of some deep, terrible, taboo in the pit of her stomach, as though a nerve had been touched. She knew about porn of course, although previously it held no interest for her, but the discovery of a secret stash stirred feelings within her and the spark of lust ignited with hot vehemence between her legs. Surprised by the heat in her pussy as it began to melt and throb, Francesca suddenly yearned to touch herself. The expressions of pleasure on the young models' faces captured her imagination and she fantasised over how it feel be to be in their position. How would she feel to be fucked on film and for money? 
 
@@ -146,7 +152,11 @@
 
  
 
- ****** Shattered Secret ****** bygeronimo_appleby© "Fuck," Francesca groaned. "Do it, Mr Bryant, fill my nasty cunt with cum." Her climax ripped through her body with an intensity that astounded her. Francesca rolled in the chaos of her bed covers, the fingers of one hand stuffed into her opening while the other hand swirled around her excited clitty. 
+ 
+
+===
+
+"Fuck," Francesca groaned. "Do it, Mr Bryant, fill my nasty cunt with cum." Her climax ripped through her body with an intensity that astounded her. Francesca rolled in the chaos of her bed covers, the fingers of one hand stuffed into her opening while the other hand swirled around her excited clitty. 
 
  Her orgasm was so intense that she decided to attempt to live out the fantasy in real-life. The idea thrilled and appalled her simultaneously. The excitement of what could happen caused the syrup to slide from her body, but the possibility for it to go wrong was huge, as was the potential fall-out, but she had to try. Despite the potential pitfalls she had to live it, the frustration of her unreleased desires was mounting, and soon it would be unbearable. Very soon the need to seduce Mr Bryant grew to occupy most of her waking thoughts and she made her plan. 
 
@@ -332,7 +342,11 @@
 
  
 
- ****** Shattered Secret ****** bygeronimo_appleby© Ted grinned at her. She was so enthusiastic. "Sure, whatever you say." 
+ 
+
+===
+
+Ted grinned at her. She was so enthusiastic. "Sure, whatever you say." 
 
  Francesca knew she looked hot, she knew that people, well, men, were staring after her as she walked through the foyer of the hotel. The dress clung to her like a second skin. Moulded to her hips and breasts, superbly styled it fell to the point of near indecency at mid thigh. The dress could be sluttish or elegant, depending on the wearer and the opinion of the beholder, but Francesca carried it off with style. 
 

@@ -1,8 +1,14 @@
+&quot;Best Wife Ever!&quot; 12 Days of Sexmas
+=============================================
 #1 
 
  
 
- ****** &quot;Best Wife Ever!&quot; 12 Days of Sexmas ****** bysilkstockingslover© Note 1: This is a 2011 Christmas contest story so please vote. 
+ 
+
+===
+
+Note 1: This is a 2011 Christmas contest story so please vote. 
 
  Note 2: A special thanks goes to Estragon for editing this story. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** &quot;Best Wife Ever!&quot; 12 Days of Sexmas ****** bysilkstockingslover© As I arrived at the table, I heard a chubby brunette say, "And number one would be Matt Damon." 
+ 
+
+===
+
+As I arrived at the table, I heard a chubby brunette say, "And number one would be Matt Damon." 
 
  "Number one in what?" I asked, interrupting their girl talk. 
 
@@ -584,7 +594,11 @@
 
  
 
- ****** &quot;Best Wife Ever!&quot; 12 Days of Sexmas ****** bysilkstockingslover© Two hours later, supper, dessert and dishes done, we were in the living room watching the news when my wife said, "I am going to call Mom." 
+ 
+
+===
+
+Two hours later, supper, dessert and dishes done, we were in the living room watching the news when my wife said, "I am going to call Mom." 
 
  "Sure," I replied, wondering if this role playing thing was a no-go tonight, as phone calls with her mother were not known for their brevity. Alexis left, as she always went to the bedroom to chat with her Mother, and I flipped on the hockey game. Ten minutes later I heard Alexis, the sound of heels on the hardwood floor and looked up to see the most beautiful sight I have ever laid eyes on. My wife was dressed in an outfit I had not seen earlier today. She had recreated herself as a 1950's goddess. I have always said I was born in the wrong decade. I love everything 1950s: the music, the cars, and the fashion. Now there in front of me, slowly walking down the stairs one at a time, was my wife in a poodle skirt, the same dark pantyhose, which I assumed were crotch- less, a fluorescent pink blouse with two buttons already undone to showcase her perfect cleavage, two pigtails and a sucker in her mouth. Oh, how I badly wanted to be that sucker. 
 
@@ -738,7 +752,11 @@
 
  
 
- ****** &quot;Best Wife Ever!&quot; 12 Days of Sexmas ****** bysilkstockingslover© The day itself was uneventful. A two-hour delay at the airport, a painfully bumpy flight and a stupidly expensive cab ride and I was in downtown New York. That afternoon I did some shopping, bought Alexis a couple of sweet New York trinkets she would love. I took a risk, buying her an expensive gold dress that I was sure she would love. Although my track record at buying her clothing was spotty at best (the wrong size, unflattering colours, etc), I was pretty confident this was perfect. I assumed she already had a dress for this year's formal New Year's Eve Party, but in case she didn't this would be perfect. 
+ 
+
+===
+
+The day itself was uneventful. A two-hour delay at the airport, a painfully bumpy flight and a stupidly expensive cab ride and I was in downtown New York. That afternoon I did some shopping, bought Alexis a couple of sweet New York trinkets she would love. I took a risk, buying her an expensive gold dress that I was sure she would love. Although my track record at buying her clothing was spotty at best (the wrong size, unflattering colours, etc), I was pretty confident this was perfect. I assumed she already had a dress for this year's formal New Year's Eve Party, but in case she didn't this would be perfect. 
 
  I had a great supper at an overpriced steakhouse and retreated to my room around 7:30. As I collapsed on my king-sized bed, I checked my phone for messages and learned it was dead. I grabbed a charger and plugged it in. I noticed three missed calls from Alexis, one from Jarrod, a colleague, and five missed text messages all from Alexis: 
 
@@ -996,7 +1014,11 @@
 
  
 
- ****** &quot;Best Wife Ever!&quot; 12 Days of Sexmas ****** bysilkstockingslover© Hearing such a slutty declaration, I doubled my efforts to shoot a second load in my wife, this time in her pussy. Having already come just an hour ago, it took more time, but was helped by my wife's continual naughtiness. "Yeah baby, cum in your slut. Fill my cunt with your hot juice," and later "you would like that wouldn't you, baby? Knowing your cum is leaking down my legs while I am on the dance floor." 
+ 
+
+===
+
+Hearing such a slutty declaration, I doubled my efforts to shoot a second load in my wife, this time in her pussy. Having already come just an hour ago, it took more time, but was helped by my wife's continual naughtiness. "Yeah baby, cum in your slut. Fill my cunt with your hot juice," and later "you would like that wouldn't you, baby? Knowing your cum is leaking down my legs while I am on the dance floor." 
 
  I indeed loved the thought and soon filled my wife's pussy, her cunt, with my cum. As I flooded her pussy, my wife purred, "Oh yeah, baby, that feels so good. Fill me completely." 
 

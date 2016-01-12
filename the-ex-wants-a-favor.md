@@ -1,8 +1,14 @@
+The Ex Wants a Favor
+====================
 #1 
 
  
 
- ****** The Ex Wants a Favor ****** byJust_Plain_Bob© The door bell rang and I opened the door to find Willy standing there. 
+ 
+
+===
+
+The door bell rang and I opened the door to find Willy standing there. 
 
  "What the fuck do you want?" 
 
@@ -246,7 +252,11 @@
 
  
 
- ****** The Ex Wants a Favor ****** byJust_Plain_Bob© "Water under the bridge Willy. Okay, you've said you're sorry; you can go now." 
+ 
+
+===
+
+"Water under the bridge Willy. Okay, you've said you're sorry; you can go now." 
 
  "We had twenty-one good years together Rob. Can't you be a little nicer than that?" 
 

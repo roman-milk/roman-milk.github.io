@@ -1,8 +1,14 @@
+The Pool Hall
+=============
 #1 
 
  
 
- ****** The Pool Hall ****** byJust_Plain_Bob© I guess, unless you are a total dumb shit, that you can pretty much figure that your marriage is over when your wife comes home trailing three black guys behind her and the four of them head straight for the bedroom. It is a rather blunt way of saying, "Fuck you dear." But I guess that I had asked for it. Well, the marriage was dead but I still had my pride and it was my house. I went into my den and unlocked my center desk drawer. Taking out the Colt 1911A1 I slid a magazine in and racked the slide back. I tucked it between my belt and the small of my back and then I headed for the bedroom. 
+ 
+
+===
+
+I guess, unless you are a total dumb shit, that you can pretty much figure that your marriage is over when your wife comes home trailing three black guys behind her and the four of them head straight for the bedroom. It is a rather blunt way of saying, "Fuck you dear." But I guess that I had asked for it. Well, the marriage was dead but I still had my pride and it was my house. I went into my den and unlocked my center desk drawer. Taking out the Colt 1911A1 I slid a magazine in and racked the slide back. I tucked it between my belt and the small of my back and then I headed for the bedroom. 
 
  One of the men was sitting on the side of the bed with his trousers down around his ankles and Mary Kaye was on her knees getting ready to take him in her mouth. All eyes turned to me when I walked into the room and I said, "I guess I can't stop the bitch for being a whore if that is what she wants, but it ain't going to happen in my bedroom. Take your little party down the hall to the spare bedroom." 
 

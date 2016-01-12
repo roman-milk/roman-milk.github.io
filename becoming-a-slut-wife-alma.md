@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Alma
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Alma ****** byJust_Plain_Bob© Okay, so I married her for her money. So what? She got her moneys worth out of the deal. She got an attentive husband, a damned good sex life (something she'd never had before) and no more lonely nights. I in turn got something that I'd never had before - a life where I didn't have to worry about where next months rent was going to come from or would I be able to come up with enough to buy groceries for the coming week. 
+ 
+
+===
+
+Okay, so I married her for her money. So what? She got her moneys worth out of the deal. She got an attentive husband, a damned good sex life (something she'd never had before) and no more lonely nights. I in turn got something that I'd never had before - a life where I didn't have to worry about where next months rent was going to come from or would I be able to come up with enough to buy groceries for the coming week. 
 
  Besides, it wasn't as if I had to beat other suitors off with a stick. Alma wasn't exactly a raving beauty. She was as homely as a mud fence. She did have a pretty nice body though; although from the way she dressed you would never know it. I found out by accident and I was just enough of a cock hound to overlook the homeliness just to get some of her pussy and one thing led to another and here we are. 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** Becoming A Slut Wife: Alma ****** byJust_Plain_Bob© "Where were you last night?" 
+ 
+
+===
+
+"Where were you last night?" 
 
  "Moving in to my new apartment." 
 

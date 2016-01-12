@@ -1,8 +1,14 @@
+He Looked Like Me Ch.01
+=======================
 #1 
 
  
 
- ****** He Looked Like Me Ch.01 ****** byTx_Tall_Tales© (c) Tx Tall Tales ===================== 
+ 
+
+===
+
+(c) Tx Tall Tales ===================== 
 
  My first time as a birthday present. 
 
@@ -308,7 +314,11 @@
 
  
 
- ****** He Looked Like Me Ch.01 ****** byTx_Tall_Tales© She grinned. "No more drinkin'. Maybe a li'l coffee to perk me up. I'll be good. I promise. Don't you want me?" she pouted. 
+ 
+
+===
+
+She grinned. "No more drinkin'. Maybe a li'l coffee to perk me up. I'll be good. I promise. Don't you want me?" she pouted. 
 
  "I'm not sure I ever wanted anything more," I confessed. 
 
@@ -686,7 +696,11 @@
 
  
 
- ****** He Looked Like Me Ch.02 ****** byTx_Tall_Tales© ===================== 
+ 
+
+===
+
+===================== 
 
  Her birthday present is unwrapped. 
 
@@ -1018,7 +1032,11 @@
 
  
 
- ****** He Looked Like Me Ch.02 ****** byTx_Tall_Tales© She sucked me dry, just as she'd promised in the store, only a few hours earlier. She closed her eyes, smiling, resting her head on my hip, while her husband fucked her. 
+ 
+
+===
+
+She sucked me dry, just as she'd promised in the store, only a few hours earlier. She closed her eyes, smiling, resting her head on my hip, while her husband fucked her. 
 
  "She did it?" he asked. 
 
@@ -1318,7 +1336,11 @@
 
  
 
- ****** He Looked Like Me Ch.02 ****** byTx_Tall_Tales© "Want us to stop?" 
+ 
+
+===
+
+"Want us to stop?" 
 
  "God, no! I want it. Wanna remember this forever. Riding a huge cock, while my hubby plunders my tight ass." 
 
@@ -1694,7 +1716,11 @@
 
  
 
- ****** He Looked Like Me Ch.02 ****** byTx_Tall_Tales© I loved her passionately, desperately, feeling her slipping away. Some sweet little orgasms, and one last heart-stopping one for me. We showered together, holding each other, slow dancing under the warm water. She dressed me afterward, making sure I wrote down my info, and walked me to the door naked. She kissed me on the doorstep. "Best night of my life, Jack. You'll still be my Jack, right?" 
+ 
+
+===
+
+I loved her passionately, desperately, feeling her slipping away. Some sweet little orgasms, and one last heart-stopping one for me. We showered together, holding each other, slow dancing under the warm water. She dressed me afterward, making sure I wrote down my info, and walked me to the door naked. She kissed me on the doorstep. "Best night of my life, Jack. You'll still be my Jack, right?" 
 
  "Always, Dana." 
 

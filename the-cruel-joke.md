@@ -1,8 +1,14 @@
+The Cruel Joke
+==============
 #1 
 
  
 
- ****** The Cruel Joke ****** byJust_Plain_Bob© She was, at worst, one of God's cruel jokes or, at best, a work in progress that he was pulled away from for something more important. She carried 125 pounds on a leggy five foot eight inch frame that measured 38-23-36. Her long brown hair hung down to her waist and just the sight of her walking away from you could make you cum in your pants. Her tits were magnificent! Imagine a football cut in half - two stiff cones tipped with inch long nipples. She had everything that most women would die for - everything except for a face. This body straight from Heaven came equipped with a face straight from Hell; ache scars so bad that it looked like someone had stepped on her face wearing golf shoe spikes. And if that wasn't enough, an automobile accident left her with a scar that started over her left eye, angled downward across the bridge of her nose, crossed under her right eye and finished on her right cheek. So, naturally, the question on everybody's mind, the question they were too polite to ask, but you could see it in their eyes, was why had I married her? 
+ 
+
+===
+
+She was, at worst, one of God's cruel jokes or, at best, a work in progress that he was pulled away from for something more important. She carried 125 pounds on a leggy five foot eight inch frame that measured 38-23-36. Her long brown hair hung down to her waist and just the sight of her walking away from you could make you cum in your pants. Her tits were magnificent! Imagine a football cut in half - two stiff cones tipped with inch long nipples. She had everything that most women would die for - everything except for a face. This body straight from Heaven came equipped with a face straight from Hell; ache scars so bad that it looked like someone had stepped on her face wearing golf shoe spikes. And if that wasn't enough, an automobile accident left her with a scar that started over her left eye, angled downward across the bridge of her nose, crossed under her right eye and finished on her right cheek. So, naturally, the question on everybody's mind, the question they were too polite to ask, but you could see it in their eyes, was why had I married her? 
 
  That is a question easy to answer, but given today's attitudes hard to understand. I am from a generation that was brought up to accept responsibility for their actions. I got drunk one night, was carried away by lust for that magnificent body, took her virginity and got her pregnant, and here I am. When she miscarried she expected me to pack up and leave - to end the marriage and get on with my life. But by then I had come to see past the outer shell and see the beautiful person inside. I discovered what a prize I had in Abby; intelligent, warm, caring, witty, and loyal and so I told her, "Sorry, but you are stuck with me. 
 

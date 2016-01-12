@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Corrie
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Corrie ****** byJust_Plain_Bob© Corrine took him in her arms and kissed him softly on the mouth. She felt his tongue flick at her lips and she let hers touch his and then his probed her mouth and she probed back. She moaned as Tim began kneading her breasts. She allowed her legs to spread as he slid his hand down into her panties and pushed two fingers into her cleft. Her mouth hung open in pleasure as his fingers found and fondled her clit. 
+ 
+
+===
+
+Corrine took him in her arms and kissed him softly on the mouth. She felt his tongue flick at her lips and she let hers touch his and then his probed her mouth and she probed back. She moaned as Tim began kneading her breasts. She allowed her legs to spread as he slid his hand down into her panties and pushed two fingers into her cleft. Her mouth hung open in pleasure as his fingers found and fondled her clit. 
 
  "The bed Tim, get me on the bed." 
 

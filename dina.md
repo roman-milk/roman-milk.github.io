@@ -1,8 +1,14 @@
+Dina
+====
 #1 
 
  
 
- ****** Dina ****** byJust_Plain_Bob© I had no idea what suddenly made me suspect that my wife was having sex with someone else. One day we were sitting at the dinner table smiling at each other and talking about how our respective days had gone and the next day at the same table I was sitting there looking at Dina and thinking, "Just what in the hell are you up to." 
+ 
+
+===
+
+I had no idea what suddenly made me suspect that my wife was having sex with someone else. One day we were sitting at the dinner table smiling at each other and talking about how our respective days had gone and the next day at the same table I was sitting there looking at Dina and thinking, "Just what in the hell are you up to." 
 
  I had seen nothing to make me suspect Dina, nor had I heard anything. All I had was a sudden feeling. It was as if I had walked into the room and there was a hint of something in the air that said, "Hey Mike, your wife is cheating on you." I started doing all the things that suspicious husband's do like checking the laundry hamper for telltale signs on her panties. I checked out her car - looking under the seats and checking out the trunk - and found nothing. I got up in the middle of the night and went through her purse. I checked entries in her checkbook and I closely scanned the Visa and MasterCard bills when they came in. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Dina ****** byJust_Plain_Bob© "You saw them?" 
+ 
+
+===
+
+"You saw them?" 
 
  "The day I moved out. I came home early and I saw them. They didn't see me, but I certainly saw them." 
 

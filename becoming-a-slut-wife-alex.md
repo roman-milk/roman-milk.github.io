@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Alex
+==========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Alex ****** byJust_Plain_Bob© I had never, not even once, thought about my wife having sex with another man. Alex is a very attractive woman and she does attract a lot of attention, but the only feelings that the attention generated in me were feelings of pride in that she had chosen me above all the others she could have had. And then everything turned to shit. 
+ 
+
+===
+
+I had never, not even once, thought about my wife having sex with another man. Alex is a very attractive woman and she does attract a lot of attention, but the only feelings that the attention generated in me were feelings of pride in that she had chosen me above all the others she could have had. And then everything turned to shit. 
 
  One evening six weeks ago I was hosting a poker game at our house. When it is my turn to host the game Alex always goes out for drinks with her girl friends and leaves us "crude" guys to our cards. Usually the game goes to mid-night, but on that particular night two of the six guys were consistent winners and the other four of us lost interest in playing. 
 

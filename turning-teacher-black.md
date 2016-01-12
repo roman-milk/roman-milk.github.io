@@ -1,8 +1,14 @@
+Turning Teacher Black
+=====================
 #1 
 
  
 
- ****** Turning Teacher Black ****** bysilkstockingslover© Summary: A white teacher succumbs to her long resisted black submission fantasy. 
+ 
+
+===
+
+Summary: A white teacher succumbs to her long resisted black submission fantasy. 
 
  Note 1: This story was written in response to a fan request for Pam and John...hope you enjoy! 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** Turning Teacher Black ****** bysilkstockingslover© 
+ 
+
+===
+
+
 
  3. PAM GETS JEALOUS 
 
@@ -596,7 +606,11 @@
 
  
 
- ****** Turning Teacher Black ****** bysilkstockingslover© "I'd better shut off the toy, my Kitty, hate for you to not be able to focus on the road." 
+ 
+
+===
+
+"I'd better shut off the toy, my Kitty, hate for you to not be able to focus on the road." 
 
  She shut it off and I suddenly felt kind of empty. 
 
@@ -832,7 +846,11 @@
 
  
 
- ****** Turning Teacher Black ****** bysilkstockingslover© "I thought that was you," Joan greeted with a big smile. 
+ 
+
+===
+
+"I thought that was you," Joan greeted with a big smile. 
 
  "Hi, Joan," I smiled, "it is great to see you." 
 
@@ -1126,7 +1144,11 @@
 
  
 
- ****** Turning Teacher Black ****** bysilkstockingslover© Joan stammered, suddenly overwhelmed, "T-t-they are very nice." 
+ 
+
+===
+
+Joan stammered, suddenly overwhelmed, "T-t-they are very nice." 
 
  "Nice," Alicia repeated. "My legs have been described many ways, but nice isn't one of them. Go ahead, touch the nylon. Feel how soft it is." 
 

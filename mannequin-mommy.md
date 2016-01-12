@@ -1,8 +1,14 @@
+Mannequin Mommy
+===============
 #1 
 
  
 
- ****** Mannequin Mommy ****** bysilkstockingslover© Summary: Son and mom fall for each other in an unorthodox way. 
+ 
+
+===
+
+Summary: Son and mom fall for each other in an unorthodox way. 
 
  Note 1: This is a Valentine's Day Contest Story 2015 so please vote. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Mannequin Mommy ****** bysilkstockingslover© "Oh, okay," she said, more disappointment hitting her. 
+ 
+
+===
+
+"Oh, okay," she said, more disappointment hitting her. 
 
  Kevin promised, "Trust me, I'll push you this weekend." 
 

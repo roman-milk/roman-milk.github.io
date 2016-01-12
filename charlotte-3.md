@@ -1,8 +1,14 @@
+Charlotte
+=========
 #1 
 
  
 
- ****** Charlotte ****** bygeronimo_appleby© Charlotte sensed someone was in the room with her. Despite the blindfold she turned her face towards the presence; her fingers clamped around the arms of the chair. Charlotte's nostrils flared, her sense of smell heightened from fear and the inability to see. The perfume told her it wasn't Peter, the scent was definitely not his, it was a more feminine smell. Charlotte recognised it - - but where from? The answer was close ... a hazy image formed in her mind but refused to materialise. She felt a waft of breath against her cheek and tried to rise from the chair, an impossible task since her wrists were bound to the wooden arms. 
+ 
+
+===
+
+Charlotte sensed someone was in the room with her. Despite the blindfold she turned her face towards the presence; her fingers clamped around the arms of the chair. Charlotte's nostrils flared, her sense of smell heightened from fear and the inability to see. The perfume told her it wasn't Peter, the scent was definitely not his, it was a more feminine smell. Charlotte recognised it - - but where from? The answer was close ... a hazy image formed in her mind but refused to materialise. She felt a waft of breath against her cheek and tried to rise from the chair, an impossible task since her wrists were bound to the wooden arms. 
 
  A voice came from across the room; the Polish accent confirmed it was Peter: So he was there too! 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Charlotte ****** bygeronimo_appleby© She soon found out. 
+ 
+
+===
+
+She soon found out. 
 
  Julian offered his penis to Charlotte. The blonde wriggled forwards on the sofa and leaned towards the proffered erection. Her hands, although cuffed at the wrists by wide leather bracelets, held close together with a few links of stout chain, could still be used. She opened her mouth and, with a glance at Vanessa, popped the purple dome between her lips. Julian sighed and pushed his fingers through Charlotte's hair. 
 

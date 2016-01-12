@@ -1,8 +1,14 @@
+Rob and Gwen
+============
 #1 
 
  
 
- ****** Rob and Gwen ****** byJust_Plain_Bob© As was my habit I stopped in at the "B" for my breakfast on my way home from my shift at the airport. It had been a hard night for me. I had to do a double brake change on a Boeing 727 and those suckers are heavy. I had to do them without the assistance of the dolly that we usually use because it was broken – both of them! Luckily I was in good shape thanks to daily visits to the gym and a three to five mile run every night so I was able to horse them into place without two much strain. 
+ 
+
+===
+
+As was my habit I stopped in at the "B" for my breakfast on my way home from my shift at the airport. It had been a hard night for me. I had to do a double brake change on a Boeing 727 and those suckers are heavy. I had to do them without the assistance of the dolly that we usually use because it was broken – both of them! Luckily I was in good shape thanks to daily visits to the gym and a three to five mile run every night so I was able to horse them into place without two much strain. 
 
  The tires and wheels weren't all that light either. Normally I would have had help, but because of one man being on vacation, two calling in sick and no one on swing shift accepting the overtime we were very short handed. As it was I had to work overtime in the morning to get the last of the overnight service checks out on time. 
 
@@ -264,7 +270,11 @@
 
  
 
- ****** Rob and Gwen ****** byJust_Plain_Bob© "When do you want to make the move?" 
+ 
+
+===
+
+"When do you want to make the move?" 
 
  "Tonight. I want to get it done before you come to your senses and change your mind." 
 
@@ -532,7 +542,11 @@
 
  
 
- ****** Rob and Gwen ****** byJust_Plain_Bob© "I have been expecting him to do something, but I never thought I'd have to shoot him. I thought that just pointing the gun at him would scare him off, but when I saw him going after Gwen with a knife in his hand I didn't hesitate." 
+ 
+
+===
+
+"I have been expecting him to do something, but I never thought I'd have to shoot him. I thought that just pointing the gun at him would scare him off, but when I saw him going after Gwen with a knife in his hand I didn't hesitate." 
 
  It didn't hurt that I knew half of the police force and had gone out to the range and shot with them. They all knew that I was pretty level headed. What the hell, I'd even been civilized and hadn't gone off when I walked in on Amy cheating on me. 
 

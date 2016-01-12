@@ -1,8 +1,14 @@
+My Brother's Fuck Toy...Me
+==========================
 #1 
 
  
 
- ****** My Brother's Fuck Toy...Me ****** bysilkstockingslover© SUMMARY: Mom's tits leads to me being a cocksucker and bottom. 
+ 
+
+===
+
+SUMMARY: Mom's tits leads to me being a cocksucker and bottom. 
 
  NOTE 1: Thanks to Andy for telling me his story of his incestuous cocksucking past. 
 

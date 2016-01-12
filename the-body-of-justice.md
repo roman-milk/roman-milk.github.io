@@ -1,8 +1,14 @@
+The Body of Justice
+===================
 #1 
 
  
 
- ****** The Body of Justice ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Michelle) 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** The Body of Justice ****** byTheTalkMan© "Hi, James, I'm Veronica." She said, holding out her hand. In a blur, I shook her hand, unconsciously wanting to touch this perfect creature. 
+ 
+
+===
+
+"Hi, James, I'm Veronica." She said, holding out her hand. In a blur, I shook her hand, unconsciously wanting to touch this perfect creature. 
 
  "Can I help you James?" she said, taking a step closer to me. I cleared my head as I remembered why I was here. 
 
@@ -364,7 +374,11 @@
 
  
 
- ****** The Body of Justice ****** byTheTalkMan© There were a stack of papers inside. Newspapers, documents, pictures. I started looking through them. The first was an article detailing how my ex-husband had closed a multi-million dollar deal. This was the deal he was working on his last business trip when we were together. Next were articles detailing my arrest. They were clearly biased to favor that bitch Veronica.. If they knew the truth, they would all be on my side. Next was an article explaining how Veronica chose to leave the police department to pursue other interests. She left the force with a hero's ceremony. The next item was a Maxim magazine, with Veronica on the cover! The headline was "Sexy Cop Struts her Stuff." The bitch was actually famous! I found the article, and throughout were sexy pictures of her. I read the interview with her, conducted by another woman, and found a highlighted section. I read it. 
+ 
+
+===
+
+There were a stack of papers inside. Newspapers, documents, pictures. I started looking through them. The first was an article detailing how my ex-husband had closed a multi-million dollar deal. This was the deal he was working on his last business trip when we were together. Next were articles detailing my arrest. They were clearly biased to favor that bitch Veronica.. If they knew the truth, they would all be on my side. Next was an article explaining how Veronica chose to leave the police department to pursue other interests. She left the force with a hero's ceremony. The next item was a Maxim magazine, with Veronica on the cover! The headline was "Sexy Cop Struts her Stuff." The bitch was actually famous! I found the article, and throughout were sexy pictures of her. I read the interview with her, conducted by another woman, and found a highlighted section. I read it. 
 
  "Q: Are you seeing anyone?" the interviewer asked. 
 

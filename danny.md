@@ -1,8 +1,14 @@
+Danny Ch. 01
+============
 #1 
 
  
 
- ****** Danny Ch. 01 ****** byJust_Plain_Bob© It started in high school and although I didn't know it at the time it would have far reaching consequences. Looking back on it I could see that it was just juvenile young teen bullshit; the kind of thing most teens go through and usually forget as they grow older. 
+ 
+
+===
+
+It started in high school and although I didn't know it at the time it would have far reaching consequences. Looking back on it I could see that it was just juvenile young teen bullshit; the kind of thing most teens go through and usually forget as they grow older. 
 
  Except in my case it didn't happen. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Danny Ch. 01 ****** byJust_Plain_Bob© I went down to the kitchen and asked my mother if there was anything I could do to help and she told me that I could set the table. At the dinner table I avoided Nancy's eye and when I'd finished eating and helping with the dishes I went up to my room to study and do my homework. 
+ 
+
+===
+
+I went down to the kitchen and asked my mother if there was anything I could do to help and she told me that I could set the table. At the dinner table I avoided Nancy's eye and when I'd finished eating and helping with the dishes I went up to my room to study and do my homework. 
 
  Maybe half an hour after I'd been in my room there was a knock at the door and then it opened and Nancy came in. 
 
@@ -332,7 +342,11 @@
 
  
 
- ****** Danny Ch. 02 ****** byJust_Plain_Bob© Pauline said, "You have been awful quiet these past couple of days. Something bothering you?" 
+ 
+
+===
+
+Pauline said, "You have been awful quiet these past couple of days. Something bothering you?" 
 
  I just shrugged and she said, "No you don't sugar. Don't sluff me off. What is the problem?" 
 
@@ -588,7 +602,11 @@
 
  
 
- ****** Danny Ch. 02 ****** byJust_Plain_Bob© I looked at her what I'm sure was a confused expression on my face and she said, "My mother silly." 
+ 
+
+===
+
+I looked at her what I'm sure was a confused expression on my face and she said, "My mother silly." 
 
  "What are you talking about?" 
 
@@ -620,7 +638,11 @@
 
  
 
- ****** Danny Ch. 03 ****** byJust_Plain_Bob© I was a little uneasy as I approached the front door of the French residence. I reached to push the doorbell, but before I could push it the door opened and there stood Mrs. Mrs. Frence naked except for high heels. 
+ 
+
+===
+
+I was a little uneasy as I approached the front door of the French residence. I reached to push the doorbell, but before I could push it the door opened and there stood Mrs. Mrs. Frence naked except for high heels. 
 
  "Surprised?" she asked. 
 
@@ -862,7 +884,11 @@
 
  
 
- ****** Danny Ch. 03 ****** byJust_Plain_Bob© I opened the car door and as I was getting in Pauline said, "This isn't over Danny. We were meant to be and I'm not going to quietly fade away." 
+ 
+
+===
+
+I opened the car door and as I was getting in Pauline said, "This isn't over Danny. We were meant to be and I'm not going to quietly fade away." 
 
  "Yeah yeah right" I thought to myself as I closed the door, started the car and drove off. 
 
@@ -1108,7 +1134,11 @@
 
  
 
- ****** Danny Ch. 03 ****** byJust_Plain_Bob© "That's pretty callous of you." 
+ 
+
+===
+
+"That's pretty callous of you." 
 
  "No it isn't. I have no interest in your mother. You are the one trying to push me into a relationship with her. You have any idea of how weird that is to me? Understand me here Pauline. I won't run from her if she wants to fuck me, but chase after a woman old enough to be my mother? No! 
 
@@ -1296,7 +1326,11 @@
 
  
 
- ****** Danny Ch. 04 ****** byJust_Plain_Bob© I was eating my lunch in the Student Union cafeteria and reviewing class notes when Claudia joined me. 
+ 
+
+===
+
+I was eating my lunch in the Student Union cafeteria and reviewing class notes when Claudia joined me. 
 
  "We still on for tonight?" she asked. 
 
@@ -1524,7 +1558,11 @@
 
  
 
- ****** Danny Ch. 04 ****** byJust_Plain_Bob© I was busy as hell at work that morning so I didn't spend any time thinking on the Mandy situation, but it was brought home to me when I headed for lunch. Appsolar had an employee cafeteria. I didn't notice anything until I got to the cashier and looked around for a table. That's when I noticed Mandy and Haight sitting at a table on one side of the room and Gary and Claudia sitting on the other side. I picked an empty table in the center and moved to it and sat down. Mandy got up from the table she shared with Haight, picked up her tray and walked over and sat down with me. 
+ 
+
+===
+
+I was busy as hell at work that morning so I didn't spend any time thinking on the Mandy situation, but it was brought home to me when I headed for lunch. Appsolar had an employee cafeteria. I didn't notice anything until I got to the cashier and looked around for a table. That's when I noticed Mandy and Haight sitting at a table on one side of the room and Gary and Claudia sitting on the other side. I picked an empty table in the center and moved to it and sat down. Mandy got up from the table she shared with Haight, picked up her tray and walked over and sat down with me. 
 
  "I didn't know you would be here or I would have waited for you" she said and looking over her shoulder I saw Haight looking at me with murder in his eyes. I could have been a total asshole and smiled at him but I didn't. I did see Claudia looking our way and laughing as she leaned toward Gary and said something. 
 
@@ -1788,7 +1826,11 @@
 
  
 
- ****** Danny Ch. 04 ****** byJust_Plain_Bob© "Um um good, um um good; that's what moms tits are; um um good" to the old Campbell Soups jingle substituting mom's ass or mom's tits in place of Campbell Soup. 
+ 
+
+===
+
+"Um um good, um um good; that's what moms tits are; um um good" to the old Campbell Soups jingle substituting mom's ass or mom's tits in place of Campbell Soup. 
 
  She got back at me by grabbing my package and saying, "Ball Park Franks. They plump up when they are hot." 
 

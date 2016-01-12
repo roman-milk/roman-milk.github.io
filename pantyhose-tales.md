@@ -1,8 +1,14 @@
+Pantyhose Tales: Black Lez Sub
+==============================
 #1 
 
  
 
- ****** Pantyhose Tales: Black Lez Sub ****** bysilkstockingslover© Summary: Submissive black housewife is dommed by white woman. 
+ 
+
+===
+
+Summary: Submissive black housewife is dommed by white woman. 
 
  Note 1: Thanks to Leah for being the inspiration to this story and providing the photos that are enclosed. 
 
@@ -498,7 +504,11 @@
 
  
 
- ****** Pantyhose Tales: Black Lez Sub ****** bysilkstockingslover© My cunt got wet instantly at the idea of her fucking me, making me her pet. 
+ 
+
+===
+
+My cunt got wet instantly at the idea of her fucking me, making me her pet. 
 
  Mistress P: Then take a picture of yourself in that exact position. U r not allowed to come, but u r to get yourself on the brink. Is that clear, slut? 
 
@@ -744,7 +754,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© Summary: MILF's submissive lesbian past comes back to haunt her. 
+ 
+
+===
+
+Summary: MILF's submissive lesbian past comes back to haunt her. 
 
  Note 1: A special thanks to Zoli for permission to use their photos for this special story. Please note that the backgrounds don't always perfectly match the story, so please use your imagination and ignore these small continuity issues. 
 
@@ -1024,7 +1038,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© Becky cringed at the condescending tone and words, especially the word 'Mistress', yet obeyed the command. Reaching Jessica's feet, she looked up to the shaved pussy and instantly wished hers was shaved. She had never even considered shaving herself completely until that moment. 
+ 
+
+===
+
+Becky cringed at the condescending tone and words, especially the word 'Mistress', yet obeyed the command. Reaching Jessica's feet, she looked up to the shaved pussy and instantly wished hers was shaved. She had never even considered shaving herself completely until that moment. 
 
  "Go ahead my pet. Lick your Mistress's pussy. Get used to it slut, you will be doing this a lot," Jessica smiled down at her defeated nemesis. 
 
@@ -1248,7 +1266,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© "Fate," Becky scoffed. 
+ 
+
+===
+
+"Fate," Becky scoffed. 
 
  "Yes, you clearly were in needed of a Mistress and I am in need of a new plaything," Jessica answered, her smug tone so frustrating. 
 
@@ -1544,7 +1566,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© "Mom?" Lacie asked, surprised. 
+ 
+
+===
+
+"Mom?" Lacie asked, surprised. 
 
  "Hi, girls," Rebecca said, trying to act casual. 
 
@@ -1860,7 +1886,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© OK, you win. But please leave my daughter out of this. 
+ 
+
+===
+
+OK, you win. But please leave my daughter out of this. 
 
  No reply occurred, as Rebecca quivered with nervous trepidation at who would be coming to her home. She quickly changed into something easy to take off and waited. When the knock came, a curiosity at who else would be a submissive to this MissA as well as the anxiety that soon there would be real new evidence of her submissiveness, which would be much more difficult to defend. 
 
@@ -2178,7 +2208,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© Becky looked up and waited further instructions. 
+ 
+
+===
+
+Becky looked up and waited further instructions. 
 
  "Go back to your desk, my pet," Mrs. Heart ordered. 
 
@@ -2502,7 +2536,11 @@
 
  
 
- ****** Pantyhose Tales: Blackmailed MILF ****** bysilkstockingslover© "Go ahead," Alexis smiled, as she pulled down her skirt. "But once you walk out that door, I will never let you please me. I will fuck your daughter in front of you, I will have her eating my pussy on your kitchen table and I will take her anal virginity in your bed, but you will never, ever, be allowed to submit to me." 
+ 
+
+===
+
+"Go ahead," Alexis smiled, as she pulled down her skirt. "But once you walk out that door, I will never let you please me. I will fuck your daughter in front of you, I will have her eating my pussy on your kitchen table and I will take her anal virginity in your bed, but you will never, ever, be allowed to submit to me." 
 
  
 

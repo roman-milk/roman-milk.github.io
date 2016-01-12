@@ -1,8 +1,14 @@
+Nadia Needs Her Step-Dad's Help
+===============================
 #1 
 
  
 
- ****** Nadia Needs Her Step-Dad's Help ****** byNonStopFunGuy© "DADDY!" screamed my nude step-daughter Nadia -- partly in surprise, partly in mocking disdain -- as she reached down her slender body to grab the bedsheet puddled at the foot of her bed. 
+ 
+
+===
+
+"DADDY!" screamed my nude step-daughter Nadia -- partly in surprise, partly in mocking disdain -- as she reached down her slender body to grab the bedsheet puddled at the foot of her bed. 
 
  My cock, already nearly fully erection, instantly swelled into a throbbing, aching shaft inside my pants and underwear. Having seen the expensive sportscar parked in our driveway just now as I got home from work, I had assumed Nadia's new friend Paul was still here. I'd introduced Nadia to him after he responded to my Internet ad, for local hung men who might want to help teach my very sexy, and incredibly horny, 18 year old daughter how to fuck. The first time he picked up Nadia after school and drove her home, she had a smile on her face all night and couldn't put her fucking knees together. So this hadn't been a surprise, finding his car still at our place. 
 
@@ -98,7 +104,11 @@
 
  
 
- ****** Nadia Needs Her Step-Dad's Help ****** byNonStopFunGuy© But she wasn't answering. Paul was moving on top of her, rolling her belly flat onto her bed under his body. The hung grown-up stud was now laying his 190- pound, muscular 6-foot body over my 18 year old step-daughter, his powerful legs spread wide open and his thick strong arms stretching down so that his sweaty nude body was hovering over her soft, slender female frame. His pelvis was definitely pressed against or over her ass. While he was fucking her, Nadia's face was turned to me and pressed into her pillow, as her eyes closed and her mouth opened to suck air. From the motions of the bedsheet hiding it all from my eyes, I could tell Paul was now plowing his erection into her pussy from behind as she lay lie on her tummy, pushing her little heartshaped butt upwards towards him. 
+ 
+
+===
+
+But she wasn't answering. Paul was moving on top of her, rolling her belly flat onto her bed under his body. The hung grown-up stud was now laying his 190- pound, muscular 6-foot body over my 18 year old step-daughter, his powerful legs spread wide open and his thick strong arms stretching down so that his sweaty nude body was hovering over her soft, slender female frame. His pelvis was definitely pressed against or over her ass. While he was fucking her, Nadia's face was turned to me and pressed into her pillow, as her eyes closed and her mouth opened to suck air. From the motions of the bedsheet hiding it all from my eyes, I could tell Paul was now plowing his erection into her pussy from behind as she lay lie on her tummy, pushing her little heartshaped butt upwards towards him. 
 
  "Oh Daddy!" she moaned, wincing, her hands gripping the pillow and bed while she felt Paul forcing his huge erection deeper into your cunt, "oooooh Daddeeeeee!" 
 
@@ -244,7 +254,11 @@
 
  
 
- ****** Nadia Needs Her Step-Dad's Help ****** byNonStopFunGuy© I took the phone to talk to sexy Marissa again. Marissa was purring, and I could hear the state of arousal in her voice. Her tone had a combination of energy and anxiety, as she was doing something to bring herself near an orgasm. "Oh daddy," Marissa said to me, "do you like it, seeing Nadia having a big cum?" 
+ 
+
+===
+
+I took the phone to talk to sexy Marissa again. Marissa was purring, and I could hear the state of arousal in her voice. Her tone had a combination of energy and anxiety, as she was doing something to bring herself near an orgasm. "Oh daddy," Marissa said to me, "do you like it, seeing Nadia having a big cum?" 
 
  An autopilot made me answer. "Uh huh -- oh yeah." 
 
@@ -404,7 +418,11 @@
 
  
 
- ****** Nadia Needs Her Step-Dad's Help ****** byNonStopFunGuy© And, although I wondered if I could get Nadia to change her mind about the weekend, I wasn't invited to go. So there isn't much to say about that, except, Nadia got home past 10 pm on that Sunday night wearing a guy's football jersey and nothing else, and she fell asleep sitting in my lap about 15 minutes later. And she stank like a fucked whore; she had cum all over her, her hair was a fucking disaster, she was sweaty and messy and obviously hadn't cleaned herself up for two full days. It was insanely sexy. 
+ 
+
+===
+
+And, although I wondered if I could get Nadia to change her mind about the weekend, I wasn't invited to go. So there isn't much to say about that, except, Nadia got home past 10 pm on that Sunday night wearing a guy's football jersey and nothing else, and she fell asleep sitting in my lap about 15 minutes later. And she stank like a fucked whore; she had cum all over her, her hair was a fucking disaster, she was sweaty and messy and obviously hadn't cleaned herself up for two full days. It was insanely sexy. 
 
  But, before the weekend began, I did have a fantasy realized, although not quite as, ah, fully as I would have liked. 
 
@@ -548,7 +566,11 @@
 
  
 
- ****** Nadia Needs Her Step-Dad's Help ****** byNonStopFunGuy© Marissa grinned at me, arching her back, showing me those titties again. "Yup," she snickered, leaning back with her hands behind her, teasing me with those hot boobs. 
+ 
+
+===
+
+Marissa grinned at me, arching her back, showing me those titties again. "Yup," she snickered, leaning back with her hands behind her, teasing me with those hot boobs. 
 
  I continued. "And when you're making out and the guys are sucking your tits in the car, you can just do this, and get fucked!" Now I grabbed the skirt down at the bottom hem, and I pulled it upwards towards her pussy. The skirt was loose and gave way easily, and even with Marissa sitting on the bottom half, the top half pulled up enough to show off her shaved vagina. 
 

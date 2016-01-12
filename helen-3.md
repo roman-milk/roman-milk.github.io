@@ -1,8 +1,14 @@
+Helen
+=====
 #1 
 
  
 
- ****** Helen ****** byJust_Plain_Bob© When I married Helen I had no idea she was a slut. Not that it would have mattered - I'd of married her anyway. She was, absolutely and without a doubt, the best piece of ass I ever had. We met at a wedding reception, fell in heat with each other, and before the night was over we were in bed together. Six weeks later she moved in with me and six months after that we were standing in front of a justice of the peace. Now Helen was no great beauty. She did not have a magnificent body, but she was nice looking in a plain sort of way and if you passed her on the street you probably would not have given her a second glance. But if you stopped to talk with her you would immediately be hit between the eyes with the power of her sex appeal - it charged the air between you. Five minutes in her company and you would want to fuck her until you died. 
+ 
+
+===
+
+When I married Helen I had no idea she was a slut. Not that it would have mattered - I'd of married her anyway. She was, absolutely and without a doubt, the best piece of ass I ever had. We met at a wedding reception, fell in heat with each other, and before the night was over we were in bed together. Six weeks later she moved in with me and six months after that we were standing in front of a justice of the peace. Now Helen was no great beauty. She did not have a magnificent body, but she was nice looking in a plain sort of way and if you passed her on the street you probably would not have given her a second glance. But if you stopped to talk with her you would immediately be hit between the eyes with the power of her sex appeal - it charged the air between you. Five minutes in her company and you would want to fuck her until you died. 
 
  I don't know when Helen started stepping out on me, my best guess is that she was faithful to me for the first six months of the marriage, but to be honest about it, she could have been fucking around on me from day one and I just didn't catch on. The thing that most people won't understand is my attitude toward her once I found out she was fucking other guys. I found out something about myself that I hadn't known before - I was just a little bit kinky! I found out that watching her fuck other men was a major turn on for me. Once I accepted the fact that she was a sperm bank for other guys and I was going hang on to her anyway, I discovered how exciting it was for me to fuck her after she had been fucked. Sloppy seconds might not appeal to some, or maybe even most guys, but I loved it. 
 

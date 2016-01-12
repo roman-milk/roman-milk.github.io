@@ -1,8 +1,14 @@
+Spring Break
+============
 #1 
 
  
 
- ****** Spring Break ****** byJust_Plain_Bob© She looked up at me, tears running down her cheeks, and with a look that clear as day said, "No, please God no." I looked down at her and the look on my face told her more than words ever could. She watched as I unbuckled my belt and let my trousers fall. She moaned, "No, no, no, please no" as my boxers fell and when I forced her legs apart she cried, "No, you can't, please don't do this to me." There was one final, "No, please don't" as I worked the head of my cock between her cunt lips. 
+ 
+
+===
+
+She looked up at me, tears running down her cheeks, and with a look that clear as day said, "No, please God no." I looked down at her and the look on my face told her more than words ever could. She watched as I unbuckled my belt and let my trousers fall. She moaned, "No, no, no, please no" as my boxers fell and when I forced her legs apart she cried, "No, you can't, please don't do this to me." There was one final, "No, please don't" as I worked the head of my cock between her cunt lips. 
 
  "Shut up and take it like the whore that you are." And I drove my cock home with one hard push. 
 

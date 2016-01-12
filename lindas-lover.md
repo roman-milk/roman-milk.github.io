@@ -1,8 +1,14 @@
+Linda's Lover
+=============
 #1 
 
  
 
- ****** Linda's Lover ****** bygeronimo_appleby© Thanks to Private_Label for the spell check and the edit. 
+ 
+
+===
+
+Thanks to Private_Label for the spell check and the edit. 
 
  Another Incest/Taboo story, hope you enjoy it. 
 
@@ -106,7 +112,11 @@
 
  
 
- ****** Linda's Lover ****** bygeronimo_appleby© No matter, the seed was sown and in spite of trying desperately to put the images out of her troubled mind, Linda found she kept returning to the story, and of course she eventually replaced the characters with herself and her son, Sean. 
+ 
+
+===
+
+No matter, the seed was sown and in spite of trying desperately to put the images out of her troubled mind, Linda found she kept returning to the story, and of course she eventually replaced the characters with herself and her son, Sean. 
 
  To Sean however, things were never the same. He kept up the outward appearance of normality in the same way that Linda managed, but his nights were filled with masturbatory fantasies from the very next evening. Sean lay in his bed the next night and struggled with the images that popped unbidden into his mind. He was tormented by the knowledge that his mother was laying in her bed only yards away from his, and he had to fight the constant urges to go to her. He fantasised about his mother's body and dreamed of taking her petite, firm breasts into his mouth and sucking on them. He pictured Linda's slim waist and soft stomach as he pulled at his cock vigorously, and he became even more aroused when he visualised how her breasts had moved with a soft swaying movement as she tugged at the man's cock. Sean's semen spurted from his cock with an energy that took his breath away when he climaxed during these marathon wanking sessions, and such was Sean's ardour that he found that his cock would stay hard and demanding in spite of its recent outpouring of Sean's desire. 
 
@@ -240,7 +250,11 @@
 
  
 
- ****** Linda's Lover ****** bygeronimo_appleby© 'Oh yes,' Linda replied. 'Lick me just there babe. Use your tongue up and down and then side to side,' she instructed. 'Then,' Linda continued slightly breathless. 'Then, use your fingers inside me. Stretch me open and massage me inside.' 
+ 
+
+===
+
+'Oh yes,' Linda replied. 'Lick me just there babe. Use your tongue up and down and then side to side,' she instructed. 'Then,' Linda continued slightly breathless. 'Then, use your fingers inside me. Stretch me open and massage me inside.' 
 
  Unsure, Sean did as he was told and was again rewarded by his mother's enthusiastic response. 'Fuck!' Linda called out. 'That's so good, yes baby, lick me, finger me, oh yes that's so fucking good.' Linda writhed on the bed boosting Sean's confidence even more. 'Do it to Mummy,' Linda wailed as she got more and more carried away. 'Lick Mummy's nasty cunt,' she murmured, shocking Sean with her depraved language. Nevertheless he persevered with his oral and digital manipulation of his mother's increasingly wet sex and was eventually rewarded by a prolonged cry of ecstatic release. 'Oh fuck, Sean, my beautiful son,' Linda called out. 'I'm coming... Fuck, I'm coming.' Linda lifted her son's face from between her thighs as her climax engulfed her senses. 'Kiss me, kiss me while I come,' she breathed urgently. Linda all but pulled Sean forcibly along the front of her body as she twisted and writhed with her orgasm. She pushed her tongue into her son's mouth and savoured the perverted pleasure of her own juices, as she tasted herself on his mouth, lips and tongue. 
 

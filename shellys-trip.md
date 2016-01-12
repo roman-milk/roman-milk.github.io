@@ -1,8 +1,14 @@
+Shelly's Trip
+=============
 #1 
 
  
 
- ****** Shelly's Trip ****** byJust_Plain_Bob© My strongest fantasy has always been to see my wife with another man. One day as we were lying in bed recovering from a rather strenuous bout of sexual activity she asked me if I had any sexual turn ons that she didn't know about and I told her that I did and then I told her what it was. She laughed and said, "As long as you realize that a fantasy is all that it will ever be." I had resigned myself to the fact that it would never happen when something happened that gave me just a touch of hope. 
+ 
+
+===
+
+My strongest fantasy has always been to see my wife with another man. One day as we were lying in bed recovering from a rather strenuous bout of sexual activity she asked me if I had any sexual turn ons that she didn't know about and I told her that I did and then I told her what it was. She laughed and said, "As long as you realize that a fantasy is all that it will ever be." I had resigned myself to the fact that it would never happen when something happened that gave me just a touch of hope. 
 
  ++++++++++++++++++++++++++ 
 

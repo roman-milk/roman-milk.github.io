@@ -1,8 +1,14 @@
+The Sales Associate Ch. 01-02
+=============================
 #1 
 
  
 
- ****** The Sales Associate Ch. 01-02 ****** bydlsloan© PART 1: THE MALL 
+ 
+
+===
+
+PART 1: THE MALL 
 
  "Dude, look at that!" said Austin to his high school buddies Josh and Zach. They looked at where Austin was pointing, toward a woman bending over to get something out of the trunk of her car, which was parked at the mall parking lot. She was bent over at the waist and her tiny pink skirt made no effort to cover her ass, which was tight, round and tan and covered – for lack of a better word – only by a barely there white thong which neatly split not only her ass cheeks, but also her pussy lips. They couldn't see her face or tits, but they could see a pair of long, slender, well-toned tan legs and a pair of white stiletto heels. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** The Sales Associate Ch. 01-02 ****** bydlsloan© It turned out that they were an even better match than originally expected. Holly was an exhibitionist and Martin was a bit of a voyeur. He got off on showing her off and on watching her tease other men, as she had just done in the parking lot. Often times, they used a small, short-range transmitter which they placed in her ear. Via that, he could tell her what to do – such as spilling the water all over herself and letting the boys jack off on her. 
+ 
+
+===
+
+It turned out that they were an even better match than originally expected. Holly was an exhibitionist and Martin was a bit of a voyeur. He got off on showing her off and on watching her tease other men, as she had just done in the parking lot. Often times, they used a small, short-range transmitter which they placed in her ear. Via that, he could tell her what to do – such as spilling the water all over herself and letting the boys jack off on her. 
 
  They played games like this all the time since there was so often long delays between sales calls. They were flying or driving to new cities almost every day. The company always put them up in nice hotels and paid for nice meals. Martin also had a hefty expense account to take care of attire for Holly, so he was constantly buying special outfits to dress her in. 
 
@@ -272,7 +282,11 @@
 
  
 
- ****** The Sales Associate Ch. 03-04 ****** bydlsloan© PART 3: THE CELEBRATION 
+ 
+
+===
+
+PART 3: THE CELEBRATION 
 
  At the hotel, Martin was indeed very lucky. Moments after checking into their room, he declared that it was "time to celebrate" and had Holly on her back, plowing her pussy with his 7-inch cock. She had discarded her thong in the car and now was still wearing the mini skirt, lycra top and heels as Martin drove into her, pumping her velvety pussy with long, powerful thrusts that she found pleasing if not orgasm-inducing. She had her legs over his shoulders and he was surging deeply into her, fucking her like it was their first time. 
 
@@ -396,7 +410,11 @@
 
  
 
- ****** The Sales Associate Ch. 05 ****** bydlsloan© PART 5: LET'S MAKE A DEAL 
+ 
+
+===
+
+PART 5: LET'S MAKE A DEAL 
 
  Torston's office was behind the check-in counter and had a large oak desk, a long conference table, two large screens mounted on the wall – one which showed various images from the gym and the other which was a standard TV. Oh, the pussy he could watch in here once those new machines came in! 
 
@@ -448,7 +466,11 @@
 
  
 
- ****** The Sales Associate Ch. 06-07 ****** bydlsloan© PART 6: AIRPORT DELAYS 
+ 
+
+===
+
+PART 6: AIRPORT DELAYS 
 
  The deal with Torston had gone like so many others. Martin's connections and Holly's presentation were a dynamic combo that seldom failed. A few self- righteous clients had acted insulted and kicked them out, but three out of every four were more than ready to deal, usually bartering for a hand-job, striptease of fuck-show like Torston had. Not once had Holly been asked to do more than that -- at least not yet. She feared the day was coming and wasn't sure how she would react. Yes, she understood that every signal she sent out was that she was a slut and while she didn't recoil at that label, she also didn't want to embrace it to the point of participating in gang bangs, either. At least right now, she was a slut for one man whom she knew she could trust for the most part. And, despite his eagerness to show her off, Martin was far too jealous and protective to ever share her willingly. Hell, even swallowing Torston's cum had been her own idea, not his. 
 
@@ -644,7 +666,11 @@
 
  
 
- ****** The Sales Associate Ch. 06-07 ****** bydlsloan© Well, there was no need to be discreet. First, Holly dropped her boarding pass and bent over to pick it up, flashing her bare pussy. Then, she turned her ass to him as she squeezed be to get to her seat. She moved slowly, making sure the guy had plenty of time to look up her skirt and get a good closeup before she sat down. Holly wondered if he noticed the strings hanging out of her ass and pussy. Surely he saw them. 
+ 
+
+===
+
+Well, there was no need to be discreet. First, Holly dropped her boarding pass and bent over to pick it up, flashing her bare pussy. Then, she turned her ass to him as she squeezed be to get to her seat. She moved slowly, making sure the guy had plenty of time to look up her skirt and get a good closeup before she sat down. Holly wondered if he noticed the strings hanging out of her ass and pussy. Surely he saw them. 
 
  After enjoying the view, the man glanced over at Martin and shrugged his shoulders as if to say, "Sorry to be ogling your daughter." Martin just nodded, letting him know it was all right. 
 
@@ -744,7 +770,11 @@
 
  
 
- ****** The Sales Associate Ch. 08-09 ****** bydlsloan© PART 8: TAKING A GAMBLE 
+ 
+
+===
+
+PART 8: TAKING A GAMBLE 
 
  When they landed in Las Vegas, Garsden reluctantly watched Holly and Martin walk away, though he certainly did enjoy the view. While he went on about his way, Martin and Holly took a cab to their hotel. Here, Holly was a little less conspicuous. Sure, she was a stunner who got plenty of looks, but skimpy outfits and hot women weren't exactly new in Vegas. She blended in here better than almost anywhere else. 
 
@@ -920,11 +950,19 @@
 
  
 
- ****** The Sales Associate Ch. 08-09 ****** bydlsloan© No jobs, no luggage and only the clothes -- skimpy and torn in the girls' case -- on their back. But they were away from Josky. That was enough to make anyone happy.  
+ 
+
+===
+
+No jobs, no luggage and only the clothes -- skimpy and torn in the girls' case -- on their back. But they were away from Josky. That was enough to make anyone happy.  
 
  
 
- ****** The Sales Associate Ch. 10 ****** bydlsloan© PART 10: A NEW START 
+ 
+
+===
+
+PART 10: A NEW START 
 
  Fortunately, Martin had his wallet with him, so they were able to pay for the cabbie to take them to the airport. There, they rented a car and headed back toward their homes in Los Angeles. 
 

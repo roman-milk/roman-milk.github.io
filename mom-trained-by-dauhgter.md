@@ -1,8 +1,14 @@
+Mommy: Becoming My Daughter's Slut
+==================================
 #1 
 
  
 
- ****** Mommy: Becoming My Daughter's Slut ****** bysilkstockingslover© Summary: A Mother attempts to become her daughter's Mommy-slut. 
+ 
+
+===
+
+Summary: A Mother attempts to become her daughter's Mommy-slut. 
 
  Note 1: A special thanks goes to Anne for our many conversations over the past couple of years and the idea for this story...which is not as much fiction as one would believe. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Mommy: Becoming My Daughter's Slut ****** bysilkstockingslover© MsAnn: She leaned in and kissed me. Next thing you know we were taking our clothes off and exploring each other with our hands. I laid her down and started kissing her from her head to her toes. 
+ 
+
+===
+
+MsAnn: She leaned in and kissed me. Next thing you know we were taking our clothes off and exploring each other with our hands. I laid her down and started kissing her from her head to her toes. 
 
  Evesub: Mmmmmmmmmm 
 
@@ -668,7 +678,11 @@
 
  
 
- ****** Mommy: Becoming My Daughter's Slut ****** bysilkstockingslover© "Well, your fashion sense for one. You have rekindled my feeling of sexy, something that had flamed out years ago." 
+ 
+
+===
+
+"Well, your fashion sense for one. You have rekindled my feeling of sexy, something that had flamed out years ago." 
 
  "Well, Evelyn," she began, seemingly already revelling in the shift, "with me at your side I will make you sex-a-licious." 
 
@@ -1070,7 +1084,11 @@
 
  
 
- ****** Mommy: Becoming My Daughter's Slut ****** bysilkstockingslover© "I couldn't help it, I couldn't hold back any longer," I weakly defended, my body a pile of mush. 
+ 
+
+===
+
+"I couldn't help it, I couldn't hold back any longer," I weakly defended, my body a pile of mush. 
 
  She took off the strap-on and tossed it on the couch and said, "You just lost the privilege to taste your daughter's delicious cunt; a cunt so appetizing dykes beg to taste it every day; a cunt that the sweet, virgin Reverend daughter Chloe now worships every opportunity she has. But you will have to earn it, by being a good girl, a good Mommy-slut." 
 
@@ -1126,7 +1144,11 @@
 
  
 
- ****** Mommy: Daughter Begins Training Mom ****** bysilkstockingslover© Note 1: Be sure to read part one...Mommy: Becoming My Daughter's Slut to see how the prim and proper mother ended up being her daughter's submissive. 
+ 
+
+===
+
+Note 1: Be sure to read part one...Mommy: Becoming My Daughter's Slut to see how the prim and proper mother ended up being her daughter's submissive. 
 
  Note 2: Goes to LeAnn and MAB7991 for their editing...especially since I originally sent them the wrong version! 
 
@@ -1452,7 +1474,11 @@
 
  
 
- ****** Mommy: Daughter Begins Training Mom ****** bysilkstockingslover© My daughter asked, "Is my Mom a good cunt-muncher?" 
+ 
+
+===
+
+My daughter asked, "Is my Mom a good cunt-muncher?" 
 
  "Yeeeees," Erica moaned, her body trembling, "she will maaaaake a good addition to our dyke cluuuuub." 
 

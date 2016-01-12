@@ -1,8 +1,14 @@
+Sandi's Miscalculation
+======================
 #1 
 
  
 
- ****** Sandi's Miscalculation ****** byJust_Plain_Bob© It was just another Christmas party and I wasn't even sure why I had come. Probably just tired of sitting at home and watching the TV. I hadn't expected her to be there and truth be told I wouldn't have come had I known she would be around. Our eyes meet across the room and she quickly turned away and I thought fleetingly of "The Road Not Taken." 
+ 
+
+===
+
+It was just another Christmas party and I wasn't even sure why I had come. Probably just tired of sitting at home and watching the TV. I hadn't expected her to be there and truth be told I wouldn't have come had I known she would be around. Our eyes meet across the room and she quickly turned away and I thought fleetingly of "The Road Not Taken." 
 
  It was my junior year in high school when Sandra moved into the neighborhood. We met and introduced ourselves at the buss stop and from then on we were almost inseparable. She gave me her virginity on prom night and everyone in our circle of friends knew we would be getting married eventually. We graduated and moved on to college were we rented an apartment and lived together. Nothing was said of marriage; there was an unspoken agreement that college had to be finished first. No relationship is perfect and we had our ups and downs. A couple of times we fought and she moved out; we made up and she moved back in. I never knew for sure, but I thought it likely that during our separations she went to bed with other guys, but so what, my bed didn't stay empty either. 
 

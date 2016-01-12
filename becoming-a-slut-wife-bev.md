@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Bev
+=========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Bev ****** byJust_Plain_Bob© Bev and I had been married almost fifteen years before the desire to see her with another man hit me. It happened at a family wedding reception where the drinks were flowing freely. It was half way through the evening, every one had swallowed enough to be mellow and Bev was on the dance floor with some guy from the bride's side of the family. I could tell from the way that the man held Bev and the way he moved his hands over her body that what he wanted was to get her out of the building and onto the back seat of his car. Bev had just enough booze in her that she wasn't objecting to the man's roaming hands and I began to wonder if he could get her outside and what would Bev do if he did? Then of course I wondered what I would do if it happened and the more I wondered the more I thought that I would do nothing except watch. Why would I do otherwise? Bev has had more passes made at her over the years than I could count and she has always turned them away. If all of a sudden she let it go too far wouldn't I do more harm than good by rushing in to say "stop that?" The man did maneuver her outside and they did swap tongues for several minutes, but as soon as he got his hand under her skirt she slapped him and came back inside. I was surprised to find that I was disappointed that it didn't go further. 
+ 
+
+===
+
+Bev and I had been married almost fifteen years before the desire to see her with another man hit me. It happened at a family wedding reception where the drinks were flowing freely. It was half way through the evening, every one had swallowed enough to be mellow and Bev was on the dance floor with some guy from the bride's side of the family. I could tell from the way that the man held Bev and the way he moved his hands over her body that what he wanted was to get her out of the building and onto the back seat of his car. Bev had just enough booze in her that she wasn't objecting to the man's roaming hands and I began to wonder if he could get her outside and what would Bev do if he did? Then of course I wondered what I would do if it happened and the more I wondered the more I thought that I would do nothing except watch. Why would I do otherwise? Bev has had more passes made at her over the years than I could count and she has always turned them away. If all of a sudden she let it go too far wouldn't I do more harm than good by rushing in to say "stop that?" The man did maneuver her outside and they did swap tongues for several minutes, but as soon as he got his hand under her skirt she slapped him and came back inside. I was surprised to find that I was disappointed that it didn't go further. 
 
  On the way home that night I asked her if she'd ever thought about having sex with another man and she laughed and said, "All the time baby, all the time. I've even come close a time or two. I almost did it tonight." Her answer caught me totally off guard because quite frankly I had expected here to say no. 
 

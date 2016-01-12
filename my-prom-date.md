@@ -1,8 +1,14 @@
+My Prom Date
+============
 #1 
 
  
 
- ****** My Prom Date ****** byJust_Plain_Bob© It had been a hard night for me. I had been up until almost three hitting the books to get ready for exams. I was sitting at the breakfast bar just off the kitchen when my mother slid a plate of bacon and eggs in front of me and asked, "So honey, have you got a date for the prom yet?" 
+ 
+
+===
+
+It had been a hard night for me. I had been up until almost three hitting the books to get ready for exams. I was sitting at the breakfast bar just off the kitchen when my mother slid a plate of bacon and eggs in front of me and asked, "So honey, have you got a date for the prom yet?" 
 
  "No mom, I'm not going." 
 
@@ -190,4 +196,8 @@
 
  
 
- ****** My Prom Date ****** byJust_Plain_Bob© Kathy is a slut! When dad does go out of town we always attend one of the parties that Kathy always manages to get us invited to and Kathy usually ends up in a bedroom making me a brand new bunch of best friends. We are going to another party at Phil's this Thursday and one of my new best friends told me that I should be ready for a surprise. Rumor has it that while Kathy is upstairs being the gangbang queen Trish is going to try and move in on Kathy's territory. I just might get a chance to prove that Kathy didn't lie. Report_Story 
+ 
+
+===
+
+Kathy is a slut! When dad does go out of town we always attend one of the parties that Kathy always manages to get us invited to and Kathy usually ends up in a bedroom making me a brand new bunch of best friends. We are going to another party at Phil's this Thursday and one of my new best friends told me that I should be ready for a surprise. Rumor has it that while Kathy is upstairs being the gangbang queen Trish is going to try and move in on Kathy's territory. I just might get a chance to prove that Kathy didn't lie. Report_Story 

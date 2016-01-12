@@ -1,8 +1,14 @@
+Coffee Mornings
+===============
 #1 
 
  
 
- ****** Coffee Mornings ****** bygeronimo_appleby© Marion had loved the Thursday coffee morning with the girls. She was so pleased she'd taken Astrid's invitation and made the effort to go. What a revelation! At first, Marion had been dubious, after all, who wanted to be surrounded by harassed mothers and screaming brats at thirty-five years of age? Not her, that's for sure. She would rather spend the morning in the company of like- minded ladies without the associated baggage of infants and toddlers. To her surprise and subsequent delight, that's exactly where Marion found herself. There were no children present at Astrid's plush residence, just like-minded ladies. 
+ 
+
+===
+
+Marion had loved the Thursday coffee morning with the girls. She was so pleased she'd taken Astrid's invitation and made the effort to go. What a revelation! At first, Marion had been dubious, after all, who wanted to be surrounded by harassed mothers and screaming brats at thirty-five years of age? Not her, that's for sure. She would rather spend the morning in the company of like- minded ladies without the associated baggage of infants and toddlers. To her surprise and subsequent delight, that's exactly where Marion found herself. There were no children present at Astrid's plush residence, just like-minded ladies. 
 
  Astrid had alluded to this meeting being 'special' when the previous week's meeting had drawn to a close. 'You have to come to Tuesday's gathering.' Astrid had invited when she saw Marion off at her front door.' 'We put it to the vote earlier and the rest of the girl's feel the same. We'd love you to become one of our regulars.' 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Coffee Mornings ****** bygeronimo_appleby© 'Jesus,' she thought to herself. 'I love these days... Look... just look. We're all so fucking nasty, so horny... If any of our men could see us...' 
+ 
+
+===
+
+'Jesus,' she thought to herself. 'I love these days... Look... just look. We're all so fucking nasty, so horny... If any of our men could see us...' 
 
  Astrid let her thoughts drift as she watched her new recruit using the rabbit dildo on her bright, hot, puffy cunt. 
 

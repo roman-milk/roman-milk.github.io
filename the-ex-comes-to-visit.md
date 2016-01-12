@@ -1,8 +1,14 @@
+The Ex Comes to Visit
+=====================
 #1 
 
  
 
- ****** The Ex Comes to Visit ****** byJust_Plain_Bob© I should have known better. I should have known that it was a stupid thing to do, but I did it anyway and now I get to pay the price. 
+ 
+
+===
+
+I should have known better. I should have known that it was a stupid thing to do, but I did it anyway and now I get to pay the price. 
 
  It all started the day my wife came to me and said, "Honey, I need a favor." 
 

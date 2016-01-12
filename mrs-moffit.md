@@ -1,8 +1,14 @@
+Mrs. Moffit
+===========
 #1 
 
  
 
- ****** Mrs. Moffit ****** byTx_Tall_Tales© ================= 
+ 
+
+===
+
+================= 
 
  All characters in the story are above the age of 18. 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Mrs. Moffit ****** byTx_Tall_Tales© I straddled her hips, and placed my hands on her temples and massaged her slowly, until her eyes eased closed. Then I massaged the sides and back of her neck, and her shoulders. I rubbed her arms, and her chest above and beside her breasts, then down her rib cage. Sliding my hands in and up, I rubbed her breasts. I was in unknown territory here. I'd never massaged my mother's front, nor anybody else's, but I wanted to treat this woman to the best massage of her life, before I entered her. 
+ 
+
+===
+
+I straddled her hips, and placed my hands on her temples and massaged her slowly, until her eyes eased closed. Then I massaged the sides and back of her neck, and her shoulders. I rubbed her arms, and her chest above and beside her breasts, then down her rib cage. Sliding my hands in and up, I rubbed her breasts. I was in unknown territory here. I'd never massaged my mother's front, nor anybody else's, but I wanted to treat this woman to the best massage of her life, before I entered her. 
 
  My hands were firm, slow and gentle as I massaged her breasts, missing nothing, squeezing her nipples, rolling her breasts across her upper chest. But I was patient, and continued my massage down her body, not lingering long between her legs, but continuing down her calves, and to her feet. 
 

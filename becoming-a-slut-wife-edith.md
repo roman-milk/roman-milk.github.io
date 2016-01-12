@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Edith
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Edith ****** byJust_Plain_Bob© I have known Edith almost all my life and for as long as I've known her she hadn't liked me. It started in the first grade when she accused me of pulling her pigtails. The teacher stood me in the corner for ten minutes despite my protests that I hadn't done it. Then, to add insult to injury Edith stuck her tongue out at me when I left the corner to go back to my seat. 
+ 
+
+===
+
+I have known Edith almost all my life and for as long as I've known her she hadn't liked me. It started in the first grade when she accused me of pulling her pigtails. The teacher stood me in the corner for ten minutes despite my protests that I hadn't done it. Then, to add insult to injury Edith stuck her tongue out at me when I left the corner to go back to my seat. 
 
  That pretty much set the pattern for the next thirteen years. I had run ins with Edith in grade school, middle school and high school and the only thing I ever did to her was try to avoid her -- to stay out of her way. And then she went and married my brother. 
 
@@ -282,7 +288,11 @@
 
  
 
- ****** Becoming a Slut Wife: Edith ****** byJust_Plain_Bob© I quickly found out that his change of work schedule was not going to change the quantity of sex that I was getting from Edith, it just changed the timing. I was no longer met at the door with blow jobs; I started getting them to wake me up in the morning. 
+ 
+
+===
+
+I quickly found out that his change of work schedule was not going to change the quantity of sex that I was getting from Edith, it just changed the timing. I was no longer met at the door with blow jobs; I started getting them to wake me up in the morning. 
 
  I usually went to bed around ten-thirty during the week and got up at five thirty in the morning. Now that Jerry was working mid-nights his car was no sooner out the driveway than Edith was climbing into bed with me. If I were asleep she would wake me up with a blow job and then fuck me until I couldn't get it up any more. When the alarm went off in the morning she would be in bed sleeping with me, all snuggled up against me. 
 

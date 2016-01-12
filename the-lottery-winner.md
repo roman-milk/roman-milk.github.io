@@ -1,8 +1,14 @@
+The Lottery Winner
+==================
 #1 
 
  
 
- ****** The Lottery Winner ****** byJust_Plain_Bob© It was the last thing that I would have expected to find after twenty years of marriage, but there was no denying it. It sat there on the kitchen table waiting for me to snatch it up and tear it to pieces or burn it or do whatever it is that you do with things like that. I suddenly realized why Simone had been so happy and excited during the last week. I picked it up and read it for the forth or fifth time: 
+ 
+
+===
+
+It was the last thing that I would have expected to find after twenty years of marriage, but there was no denying it. It sat there on the kitchen table waiting for me to snatch it up and tear it to pieces or burn it or do whatever it is that you do with things like that. I suddenly realized why Simone had been so happy and excited during the last week. I picked it up and read it for the forth or fifth time: 
 
  "Dear Ron, 
 
@@ -44,7 +50,11 @@
 
  
 
- ****** The Lottery Winner (B) ****** byJust_Plain_Bob© It was the last thing that I would have expected to find after twenty years of marriage, but there was no denying it. It sat there on the kitchen table waiting for me to snatch it up and tear it to pieces or burn it or do whatever it is that you do with things like that. I suddenly realized why Simone had been so happy and excited during the last week. I picked it up and read it for the forth or fifth time: 
+ 
+
+===
+
+It was the last thing that I would have expected to find after twenty years of marriage, but there was no denying it. It sat there on the kitchen table waiting for me to snatch it up and tear it to pieces or burn it or do whatever it is that you do with things like that. I suddenly realized why Simone had been so happy and excited during the last week. I picked it up and read it for the forth or fifth time: 
 
  "Dear Ron, 
 

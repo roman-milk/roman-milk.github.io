@@ -1,8 +1,14 @@
+Mellie Does It
+==============
 #1 
 
  
 
- ****** Mellie Does It ****** byJust_Plain_Bob© Hi. My name is Melannie. I'm 34 and married to a wonderful man, and have a story to tell that is not what you might expect to find on this site. 
+ 
+
+===
+
+Hi. My name is Melannie. I'm 34 and married to a wonderful man, and have a story to tell that is not what you might expect to find on this site. 
 
  First, a little about me. I'm 5 feet tall, weight 101 pounds and measure out at 34-22-33. My hair is brown and of shoulder length and my eyes are hazel. I'm not in bad shape for a thirty-four year old with four children and there are men out there who also think so judging by the wolf whistles I get when I'm out and about. My husband is my high school sweetheart and we have been married fourteen years. It would have been seventeen, but he went into the Army right after graduation and we waited until he was discharged before getting married. I'm both proud, and sad, to say that I was a virgin when we married. Proud, because I held myself to a higher standard than most of the girls I grew up with and went to school with. Sad because recently I've spent a lot of time wondering what I have missed. 
 

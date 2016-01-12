@@ -1,8 +1,14 @@
+Husband and Lover
+=================
 #1 
 
  
 
- ****** Husband and Lover ****** byGotBacon© Joe is returning from a tour in Afghanistan. He was wounded when an IED went off under his hummer. He was lucky. It malfunctioned and the blast only messed up his knee. With a few months of rehab it will be as good as new. He looks out the window and watches the landscape moving under the plane. 
+ 
+
+===
+
+Joe is returning from a tour in Afghanistan. He was wounded when an IED went off under his hummer. He was lucky. It malfunctioned and the blast only messed up his knee. With a few months of rehab it will be as good as new. He looks out the window and watches the landscape moving under the plane. 
 
  I'll be home soon to the love of my life. God, I miss her. She is so beautiful and loving. I really miss holding her in my arms and feeling her respond to my caresses. 
 
@@ -472,7 +478,11 @@
 
  
 
- ****** Husband and Lover ****** byGotBacon© This woman is something special. I can see it in her. I'm feeling things I thought I would never feel again. 
+ 
+
+===
+
+This woman is something special. I can see it in her. I'm feeling things I thought I would never feel again. 
 
  A week later. 
 

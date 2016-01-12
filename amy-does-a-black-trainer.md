@@ -1,8 +1,14 @@
+Amy Does a Black Trainer
+========================
 #1 
 
  
 
- ****** Amy Does a Black Trainer ****** byGotBacon© Don is 27 years old. He stands 5 ft. 11 in. He weighs 185 lbs. He has brown hair and hazel eyes. He is good looking enough to turn girls heads. He has a 8.5 in. uncut cock. He is the boxing and wrestling coach at a local university. You do not want to fuck with him. 
+ 
+
+===
+
+Don is 27 years old. He stands 5 ft. 11 in. He weighs 185 lbs. He has brown hair and hazel eyes. He is good looking enough to turn girls heads. He has a 8.5 in. uncut cock. He is the boxing and wrestling coach at a local university. You do not want to fuck with him. 
 
  His wife, Amy is 5 ft tall. She weighs 115 lbs and is a natural blonde with brown eyes. She does medical billing from her home computer. She turns heads where ever she goes. She has legs clear up to her ass and likes short skirts. She seldom wears panties or a bra. She is a screamer and gets real vocal when she fucks. 
 
@@ -318,7 +324,11 @@
 
  
 
- ****** Amy Does a Black Trainer ****** byGotBacon© "I'm off Monday and Tuesday." 
+ 
+
+===
+
+"I'm off Monday and Tuesday." 
 
  "That will work. I work from home so I'm pretty flexible." 
 

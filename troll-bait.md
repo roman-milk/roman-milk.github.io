@@ -1,8 +1,14 @@
+Troll Bait
+==========
 #1 
 
  
 
- ****** Troll Bait ****** byfastandsloppy© (Author's note: this is dedicated to my brother and sister Literotica writers and all the readers who've shared their thoughts on my stories in comments and via email. 
+ 
+
+===
+
+(Author's note: this is dedicated to my brother and sister Literotica writers and all the readers who've shared their thoughts on my stories in comments and via email. 
 
  Well, maybe not all the commenters...) 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Troll Bait ****** byfastandsloppy© Gene was on his knees now, his cock in his hand, masturbating openly as he watched his wife sag under the assault of the massive prick. He shook with envy as Lloyds glistening, still stiff dick slid from his wife as he turned her around and pushed her back against the tree. He dropped to his knees in the leaves and dirt and his face found her vulva. She threw her left leg over his shoulder; the tread of her hiking boot scraping parallel grooves in his back. With loud slurping licks his tongue and fingers began playing along Betty's nectar drenched labia as she groaned and cried with pleasure. 
+ 
+
+===
+
+Gene was on his knees now, his cock in his hand, masturbating openly as he watched his wife sag under the assault of the massive prick. He shook with envy as Lloyds glistening, still stiff dick slid from his wife as he turned her around and pushed her back against the tree. He dropped to his knees in the leaves and dirt and his face found her vulva. She threw her left leg over his shoulder; the tread of her hiking boot scraping parallel grooves in his back. With loud slurping licks his tongue and fingers began playing along Betty's nectar drenched labia as she groaned and cried with pleasure. 
 
  Again she came. She was soaked in sweat. Her golden blond hair was wild and disheveled like the hair of Lloyd's orange fright wig currently hanging in a tangle of nearby raspberry thorns. She looked down at Lloyd's dewy face and smiled stupidly. The two of them were now moving to the same inner metronome of desire. Without a word being spoken or a gesture exchanged, they switched places. She was on her knees now. Lloyd's impossible cock bobbed grotesquely inches from her face. She opened her mouth. 
 

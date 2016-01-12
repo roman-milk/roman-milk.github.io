@@ -1,8 +1,14 @@
+Masturbating with Mother
+========================
 #1 
 
  
 
- ****** Masturbating with Mother ****** bygeronimo_appleby© Ian ignored his mother and didn't look up for a few seconds when she walked into the living room; he had been enthralled in his new video game and was too busy to pay his mother any attention. 
+ 
+
+===
+
+Ian ignored his mother and didn't look up for a few seconds when she walked into the living room; he had been enthralled in his new video game and was too busy to pay his mother any attention. 
 
  However, when he did glance up he was forced to do a quick double take. 'Wow, Mum,' he whistled when he saw the short hemline of his mother's skirt. 'You look great.' 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** Masturbating with Mother ****** bygeronimo_appleby© Annette grunted lewdly as she came for the first time that evening. Her climax burst over her in wave after wave of blissful release. She settled back down momentarily and continued to watch the mature woman being debauched by a succession of lovers. Annette fervently wished it was she who was being royally fucked by a string of young men, and was soon writhing in the throes of yet another squelching orgasm. 
+ 
+
+===
+
+Annette grunted lewdly as she came for the first time that evening. Her climax burst over her in wave after wave of blissful release. She settled back down momentarily and continued to watch the mature woman being debauched by a succession of lovers. Annette fervently wished it was she who was being royally fucked by a string of young men, and was soon writhing in the throes of yet another squelching orgasm. 
 
  Later, after Annette had temporarily sated her lust, she walked bare foot and naked to the bathroom for a shower. As the fates would have it, Ian chose precisely that moment to visit the toilet and appeared on the landing at the same time as his nude mother. 
 

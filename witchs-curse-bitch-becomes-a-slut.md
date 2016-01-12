@@ -1,8 +1,14 @@
+Witch's Curse: Bitch Becomes a Slut
+===================================
 #1 
 
  
 
- ****** Witch's Curse: Bitch Becomes a Slut ****** bysilkstockingslover© Summary: A rich diva bitch is cursed and turned into a bimbo slut. 
+ 
+
+===
+
+Summary: A rich diva bitch is cursed and turned into a bimbo slut. 
 
  Note: All characters are at least 18 years of age. 
 
@@ -268,7 +274,11 @@
 
  
 
- ****** Witch's Curse: Bitch Becomes a Slut ****** bysilkstockingslover© "Go ahead, Kimmy, lick away," the witch offered, opening her legs wide and presenting a panty less disgusting hairy cunt to me. 
+ 
+
+===
+
+"Go ahead, Kimmy, lick away," the witch offered, opening her legs wide and presenting a panty less disgusting hairy cunt to me. 
 
  'Fuck, it is 2012 for Christ sake. Shave that fucking cunt.' I thought to myself, and 'There is no way in hell I am licking that unkempt mess of a cunt', but instead of resisting I heard myself giggle like a fucking two year old and say, "Yummy time." 'Yummy time?' are you fucking kidding me? Yet, no matter how much I tried to fight it, desperately trying to hold my head back and resist, a sudden insatiable hunger grew. My cunt burned with desire and as I felt my head lean forward, between her stocking-clad legs and towards her hairy snatch. 
 
@@ -576,7 +586,11 @@
 
  
 
- ****** Witch's Curse: Bitch Becomes a Slut ****** bysilkstockingslover© "Honey, you look like you have seen a ghost," he said, staring at me with concern even after my, in his mind, irrational behaviour. 
+ 
+
+===
+
+"Honey, you look like you have seen a ghost," he said, staring at me with concern even after my, in his mind, irrational behaviour. 
 
  "You are," I said, tears streaming down my face, the reality of just how powerful the curse was now hitting home. Silence lingered. 
 
@@ -854,7 +868,11 @@
 
  
 
- ****** Witch's Curse: Bitch Becomes a Slut ****** bysilkstockingslover© "What?" I asked. 
+ 
+
+===
+
+"What?" I asked. 
 
  "I am going to fuck the shit out of you next time," she promised. "I have always wanted my own pet slut. Bark for me." 
 
@@ -1106,7 +1124,11 @@
 
  
 
- ****** Witch's Curse: Bitch Becomes a Slut ****** bysilkstockingslover© Luckily, Sandra I assumed had never had anyone touch her down there before and her breathing got heavy quickly. She moaned, "Oh god, fuck, keep licking." 
+ 
+
+===
+
+Luckily, Sandra I assumed had never had anyone touch her down there before and her breathing got heavy quickly. She moaned, "Oh god, fuck, keep licking." 
 
  A few minutes later, the reserved preacher girl grabbed my hair and pulled me into her forest. She held me as she began rubbing her cunt up and down on my face. 
 

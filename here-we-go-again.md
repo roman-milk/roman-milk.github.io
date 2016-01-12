@@ -1,8 +1,14 @@
+Here We Go Again
+================
 #1 
 
  
 
- ****** Here We Go Again ****** byJust_Plain_Bob© I would have to say (others might not agree) that my life was fairly normal for the first twenty-five years of it. A 'middle of the roader' would be a pretty accurate description. 
+ 
+
+===
+
+I would have to say (others might not agree) that my life was fairly normal for the first twenty-five years of it. A 'middle of the roader' would be a pretty accurate description. 
 
  In school I never made the honor role, but I never failed a class. In the sports I went out for I usually made the team, but I was never a stand out star. My extra curricular activities were the Chess Club and the Thespian Society. I won seventy percent of my chess matches (which of course meant the I lost thirty percent of them) and in the plays the Thespian Society put on I almost always got a part, but never the lead. 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** Here We Go Again ****** byJust_Plain_Bob© I pointed the car toward Fiona's and she said, "You are going the wrong way Rob. You need to turn around and head for Wilcox." 
+ 
+
+===
+
+I pointed the car toward Fiona's and she said, "You are going the wrong way Rob. You need to turn around and head for Wilcox." 
 
  "Why?" 
 
@@ -418,7 +428,11 @@
 
  
 
- ****** Here We Go Again Ch. 02 ****** byJust_Plain_Bob© "Your decision Miss Michelle. Do you want me to show you around or not?" 
+ 
+
+===
+
+"Your decision Miss Michelle. Do you want me to show you around or not?" 
 
  "I don't suppose it would hurt and it would keep dad happy. How do you want to handle it?" 
 
@@ -722,7 +736,11 @@
 
  
 
- ****** Here We Go Again Ch. 02 ****** byJust_Plain_Bob© +++++++++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++++++++ 
 
  When Mickey told her father that I had proposed and that she had accepted he called me into his office one day at work. 
 
@@ -892,7 +910,11 @@
 
  
 
- ****** Here We Go Again Ch. 03 ****** byJust_Plain_Bob© Two years after striking my deal with Hank Marsha, Hank's secretary, called me in a panic. She had gone into Hank's office and found him face down on his desk and she couldn't get him to respond. I told her to call 911 and I rushed over to his office. I felt for a pulse, but couldn't find one and I got him on the floor and started doing CPR on him and I kept it up until the paramedics arrived, but it was no use. He was gone. 
+ 
+
+===
+
+Two years after striking my deal with Hank Marsha, Hank's secretary, called me in a panic. She had gone into Hank's office and found him face down on his desk and she couldn't get him to respond. I told her to call 911 and I rushed over to his office. I felt for a pulse, but couldn't find one and I got him on the floor and started doing CPR on him and I kept it up until the paramedics arrived, but it was no use. He was gone. 
 
  Knowing that Michelle and Ronnie didn't get along all that well and figuring that I would break the news a little more gently than Michelle would I called Ronnie first and let her know what happened and where the paramedics were taking Hank. And then I called Michelle who was in a meeting at the Hilton. I was a little shocked at her response to the news. 
 
@@ -1128,7 +1150,11 @@
 
  
 
- ****** Here We Go Again Ch. 03 ****** byJust_Plain_Bob© "That sure went well" Ronnie said. 
+ 
+
+===
+
+"That sure went well" Ronnie said. 
 
  "It went like we knew it would when we had lunch the other day." 
 
@@ -1366,7 +1392,11 @@
 
  
 
- ****** Here We Go Again Ch. 03 ****** byJust_Plain_Bob© "Have you been drinking?" 
+ 
+
+===
+
+"Have you been drinking?" 
 
  "No; I've been thinking. You aren't going to like this boss, but you need to know." 
 
@@ -1626,7 +1656,11 @@
 
  
 
- ****** Here We Go Again Ch. 03 ****** byJust_Plain_Bob© "Add to that she was already fucking him and if she liked his size why quit when she knew she had been caught? Once she knew that you knew she expected a confrontation so she might as well enjoy it while it lasted. What is important here boss is that you love her and she wants you. Sign the contract Rob. Sign it and I'll match whatever she gives you in the way of company stock. I've got work to do so I'm going to leave you with your thoughts" and she got up and left the office. 
+ 
+
+===
+
+"Add to that she was already fucking him and if she liked his size why quit when she knew she had been caught? Once she knew that you knew she expected a confrontation so she might as well enjoy it while it lasted. What is important here boss is that you love her and she wants you. Sign the contract Rob. Sign it and I'll match whatever she gives you in the way of company stock. I've got work to do so I'm going to leave you with your thoughts" and she got up and left the office. 
 
  I watched her go as I thought about what the two women had proposed. Michelle was absolutely correct when she said I'd be a fool to turn it down, but the sticking point would be my working relationship with Michelle if I decided to go for a divorce. And Ronnie had just pretty much eliminated my fall back position by telling me that she would never do anything to stand in the way of Hank's daughter's happiness. 
 

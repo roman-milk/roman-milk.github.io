@@ -1,8 +1,14 @@
+Another Letter to Dear Abby
+===========================
 #1 
 
  
 
- ****** Another Letter to Dear Abby ****** byJust_Plain_Bob© Dear Abby, 
+ 
+
+===
+
+Dear Abby, 
 
  I am a 44 year old woman and I will have been married to my husband for 25 years this coming Thursday. I love my husband dearly, but I have kept a secret (actually two of them) from him for our entire marriage. 
 

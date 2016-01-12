@@ -1,8 +1,14 @@
+Rob and Amy
+===========
 #1 
 
  
 
- ****** Rob and Amy ****** byJust_Plain_Bob© The gate clicked closed behind me and I started walking toward my sister's car. I took a deep breath. The air where I was walking was the same air that was on the other side of the wall, but some how it smelled fresher and sweeter. Marci gave me a hug and said: 
+ 
+
+===
+
+The gate clicked closed behind me and I started walking toward my sister's car. I took a deep breath. The air where I was walking was the same air that was on the other side of the wall, but some how it smelled fresher and sweeter. Marci gave me a hug and said: 
 
  "Before I take you home is there anything you want to do? Any place in particular you want to go?" 
 
@@ -226,7 +232,11 @@
 
  
 
- ****** Rob and Amy ****** byJust_Plain_Bob© "What are you going to do?" 
+ 
+
+===
+
+"What are you going to do?" 
 
  "Divorce her." 
 
@@ -440,7 +450,11 @@
 
  
 
- ****** Rob and Amy ****** byJust_Plain_Bob© I took a seat the seat across from her with the visiting room partition between us and Amy smiled and said: 
+ 
+
+===
+
+I took a seat the seat across from her with the visiting room partition between us and Amy smiled and said: 
 
  "Orange is not your color." 
 
@@ -654,7 +668,11 @@
 
  
 
- ****** Rob and Amy ****** byJust_Plain_Bob© "She doesn't want to see you either. He still wants to cut your head off for burning up everything she owned, but she has changed in the last couple of years. She is really sorry for the way things turned out. She really thought she could have her cake and eat it too. She swears she loved you and Hal was only sex and you were never supposed to find out about him. Anyway, she has indicated that she wouldn't be against your having a relationship with Brian and Susan." 
+ 
+
+===
+
+"She doesn't want to see you either. He still wants to cut your head off for burning up everything she owned, but she has changed in the last couple of years. She is really sorry for the way things turned out. She really thought she could have her cake and eat it too. She swears she loved you and Hal was only sex and you were never supposed to find out about him. Anyway, she has indicated that she wouldn't be against your having a relationship with Brian and Susan." 
 
  "Well isn't that big of her especially after telling them that I wasn't really their father." 
 

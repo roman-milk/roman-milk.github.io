@@ -1,8 +1,14 @@
+After Hours with Mrs Jenner
+===========================
 #1 
 
  
 
- ****** After Hours with Mrs Jenner ****** bygeronimo_appleby© A quick one for you this time. I put this one together during a rainy afternoon here in Mexico. In this scene, Sam, a young driver, takes his truck back to the yard one night and discovers that the voluptuous and desirable accounts clerk is working late. She offers him a quick drink of vodka and, when the conversation gets a little hot and heavy, shows him how she masturbates with a finger vibrator. 
+ 
+
+===
+
+A quick one for you this time. I put this one together during a rainy afternoon here in Mexico. In this scene, Sam, a young driver, takes his truck back to the yard one night and discovers that the voluptuous and desirable accounts clerk is working late. She offers him a quick drink of vodka and, when the conversation gets a little hot and heavy, shows him how she masturbates with a finger vibrator. 
 
  I hope you enjoy the scene. If you do, send feedback saying why; if you don't, send feedback saying why you didn't enjoy it. Make it constructive though – "you're a sick pommy faggot and your story is crap", doesn't really do much at all. 
 

@@ -1,8 +1,14 @@
+Gangbang Mommy
+==============
 #1 
 
  
 
- ****** Gangbang Mommy ****** bysilkstockingslover© Summary: A drunk Mother at the lake ends up fucking all three of her sons. 
+ 
+
+===
+
+Summary: A drunk Mother at the lake ends up fucking all three of her sons. 
 
  NOTE 1: This story was written especially for the Summer Lovin' Contest. So please vote!!! 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** Gangbang Mommy ****** bysilkstockingslover© Having already come once, I knew this would be a marathon session. Perspiration was dripping down my face while I continued the fast paced ass fucking my Mother had demanded. 
+ 
+
+===
+
+Having already come once, I knew this would be a marathon session. Perspiration was dripping down my face while I continued the fast paced ass fucking my Mother had demanded. 
 
  Finally, I could feel my cum bubbling and I, being aggressive like I learned my Mother loved, pulled out, and ordered, "Adam go fuck our whore's ass. I want Mommy dearest to suck the cock that just rammed her asshole." 
 

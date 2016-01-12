@@ -1,8 +1,14 @@
+In Plane View
+=============
 #1 
 
  
 
- ****** In Plane View ****** byJs_Keeper© The first time Claire caught him watching her she was sitting at the gate waiting for the long-delayed flight home. Although the man's frequent gazes made her a little uncomfortable, she couldn't help but feel somewhat flattered by the attention. After all, it wasn't often the thirty-something married mother of two got a chance at innocent flirtation with a handsome stranger. It was the stuff of fantasies, but the reality of it made her blush each time their gazes collided. 
+ 
+
+===
+
+The first time Claire caught him watching her she was sitting at the gate waiting for the long-delayed flight home. Although the man's frequent gazes made her a little uncomfortable, she couldn't help but feel somewhat flattered by the attention. After all, it wasn't often the thirty-something married mother of two got a chance at innocent flirtation with a handsome stranger. It was the stuff of fantasies, but the reality of it made her blush each time their gazes collided. 
 
  Adding both to her sense of embarrassment and exhilaration was the fact the she was dressed in more revealing attire than she normally wore in public. At her husband's request, she had agreed to wear a short black skirt and a sheer white blouse over a deeply low-cut white spaghetti-strap bra top. As he so often did for special occasions, he had specifically picked her outfit for the homecoming they would enjoy after her weeklong trip to New York. Suddenly her effort to show off her shapely legs and sensuous cleavage for her husband left her feeling exposed to the probing eyes of the stranger. And although hidden from sight, even the thong panties she wore beneath her skirt left her feeling blatantly bare. She was thankful that at least her husband hadn't requested that she go without any panties at all, as he sometimes did. 
 

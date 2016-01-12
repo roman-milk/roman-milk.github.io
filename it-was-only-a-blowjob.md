@@ -1,8 +1,14 @@
+It Was Only a Blowjob Ch. 01
+============================
 #1 
 
  
 
- ****** It Was Only a Blowjob Ch. 01 ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  She didn't understand the big deal. He had to help her. 
 
@@ -320,7 +326,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 01 ****** byTx_Tall_Tales© I called six more of her friends, with equal responses from all, except for a few caveats such as it's not cheating if both spouses agree to it, or if they're separated, or if it's forced. 
+ 
+
+===
+
+I called six more of her friends, with equal responses from all, except for a few caveats such as it's not cheating if both spouses agree to it, or if they're separated, or if it's forced. 
 
  "They're wrong," she continued to argue. "If you can't get a baby from it, it's not cheating." 
 
@@ -564,7 +574,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 01 ****** byTx_Tall_Tales© Old guy? I wasn't even 30 yet. "How much for a blowjob?" I asked, once more surprising myself. 
+ 
+
+===
+
+Old guy? I wasn't even 30 yet. "How much for a blowjob?" I asked, once more surprising myself. 
 
  "$20 for a quickie. You want the really good, extended action, toe curler, take me someplace and I'll blow your mind for $50." 
 
@@ -860,7 +874,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 01 ****** byTx_Tall_Tales© Wendy climbed out of the bed, angrily. "Why are you being such a bastard?" 
+ 
+
+===
+
+Wendy climbed out of the bed, angrily. "Why are you being such a bastard?" 
 
  "Five times. Three men." I was naked, and reclined on the bed. 
 
@@ -1212,7 +1230,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 01 ****** byTx_Tall_Tales© "How much are we paying her?" Wendy asked. 
+ 
+
+===
+
+"How much are we paying her?" Wendy asked. 
 
  "I haven't decided yet. I've already given her two hundred." 
 
@@ -1256,7 +1278,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 02 ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  With understanding comes responsibility, and absolution 
 
@@ -1616,7 +1642,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 02 ****** byTx_Tall_Tales© They both nodded, then Kelly wrapped her arms around my neck. "It's going to be alright. I know it is." She pulled me down for a quick kiss. "Did we win?" 
+ 
+
+===
+
+They both nodded, then Kelly wrapped her arms around my neck. "It's going to be alright. I know it is." She pulled me down for a quick kiss. "Did we win?" 
 
  I smiled. "Kicked ass." 
 
@@ -1942,7 +1972,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 02 ****** byTx_Tall_Tales© Between the teasing, a naked horny wife, and an equally naked young whore in my bathroom, I was ready to do just that. I rolled over on top of her and between her legs before the words were out of her mouth. 
+ 
+
+===
+
+Between the teasing, a naked horny wife, and an equally naked young whore in my bathroom, I was ready to do just that. I rolled over on top of her and between her legs before the words were out of her mouth. 
 
  She guided me home, and she was as wet as she'd ever been. I leaned over her, stroking into her slowly and steadily, as she left little kisses all over my face. She smiled. "Have I told you how much I love you lately?" 
 
@@ -2246,7 +2280,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 02 ****** byTx_Tall_Tales© I kissed her head, smelling her fresh skin. That irresistible baby smell. "How's my little Angel doing?" I whispered. 
+ 
+
+===
+
+I kissed her head, smelling her fresh skin. That irresistible baby smell. "How's my little Angel doing?" I whispered. 
 
  I looked over, and Wendy was removing her new bra. She saw me watching, and smiled. "Sorry lover. Your daughter's hungry, and it's feeding time. She has first claim to these for a few more months." 
 
@@ -2362,7 +2400,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 03 ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  Stray blowjobs have consequences, all around. 
 
@@ -2672,7 +2714,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 03 ****** byTx_Tall_Tales© "If anyone ever did, I'd not only tell you, but I'd help you make things right." 
+ 
+
+===
+
+"If anyone ever did, I'd not only tell you, but I'd help you make things right." 
 
  He grinned. "Good. I'd do the same. Let me know if you think you'd ever like any help. Slimy bastard. You don't do that shit to friends." 
 
@@ -2940,7 +2986,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 03 ****** byTx_Tall_Tales© Wendy sat back a little, wincing. "Did I do alright making things better?" she asked. 
+ 
+
+===
+
+Wendy sat back a little, wincing. "Did I do alright making things better?" she asked. 
 
  "Better than alright. I'm proud of you. I don't know if I would have done as well myself." 
 
@@ -3218,7 +3268,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 03 ****** byTx_Tall_Tales© "Why are we even talking about it, then? I have no need for her. Hell, it'll probably be a miracle if I can keep my own horny wife satisfied." 
+ 
+
+===
+
+"Why are we even talking about it, then? I have no need for her. Hell, it'll probably be a miracle if I can keep my own horny wife satisfied." 
 
  She laughed, then bobbed up and down on my shaft a while. "She may feel the urge to, well, pay you, for all the things we're doing for her. She's used to trading in sex." 
 
@@ -3414,7 +3468,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 04 ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  Bad surprises and further consequences 
 
@@ -3754,7 +3812,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 04 ****** byTx_Tall_Tales© Wendy climbed down beside Kelly, and I got a replay of our earlier fun. After a few minutes Kelly told her to ride me. 
+ 
+
+===
+
+Wendy climbed down beside Kelly, and I got a replay of our earlier fun. After a few minutes Kelly told her to ride me. 
 
  "Kelly..." Wendy whined. 
 
@@ -4088,7 +4150,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 04 ****** byTx_Tall_Tales© It was a half hour later, when I heard them return. I was stacking the gifts under where our tree should be. Sad to say, with all the craziness, we'd never even put one up yet. One more task to do. 
+ 
+
+===
+
+It was a half hour later, when I heard them return. I was stacking the gifts under where our tree should be. Sad to say, with all the craziness, we'd never even put one up yet. One more task to do. 
 
  I turned to the door, and was surprised as hell to see my sister-in-law Alice standing in the doorway, nervously. "John," she said softly in greeting. "Can I talk to her? Please?" 
 
@@ -4278,7 +4344,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 05 ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  Family issues and vengeance concerns 
 
@@ -4574,7 +4644,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 05 ****** byTx_Tall_Tales© Expose him, and cause a divorce. Would that help her or hurt her? Affect him financially, and in the end, she would end up paying, at least partially. Humiliate him publicly, and she suffered with him. 
+ 
+
+===
+
+Expose him, and cause a divorce. Would that help her or hurt her? Affect him financially, and in the end, she would end up paying, at least partially. Humiliate him publicly, and she suffered with him. 
 
  Fuck. This really sucked. Why couldn't my wife cheat with some stranger, where I didn't really care what kind of collateral damage there was? 
 
@@ -4820,7 +4894,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 05 ****** byTx_Tall_Tales© I was happy to let her do her thing, utterly relaxed, except for those few inches the teen was caressing. Wendy shifted, lifting her body a bit, before turning her face toward me. I opened my eyes to see her gazing at me, a small smile turning up the corner of her lips. "Morning," she whispered softly. 
+ 
+
+===
+
+I was happy to let her do her thing, utterly relaxed, except for those few inches the teen was caressing. Wendy shifted, lifting her body a bit, before turning her face toward me. I opened my eyes to see her gazing at me, a small smile turning up the corner of her lips. "Morning," she whispered softly. 
 
  I returned her smile. "Love you, baby." 
 
@@ -5094,7 +5172,11 @@
 
  
 
- ****** It Was Only a Blowjob Ch. 05 ****** byTx_Tall_Tales© I nodded, and got up out of her arms. I helped her from the bed, and took her to the shower with me, wondering how life could get any better. 
+ 
+
+===
+
+I nodded, and got up out of her arms. I helped her from the bed, and took her to the shower with me, wondering how life could get any better. 
 
  I was done first, and went out to join the rest of the family in the living room. 
 

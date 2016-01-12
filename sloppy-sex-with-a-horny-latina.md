@@ -1,8 +1,14 @@
+Sloppy Sex with a Horny Latina
+==============================
 #1 
 
  
 
- ****** Sloppy Sex with a Horny Latina ****** byNonStopFunGuy© "Well, I have like 45 minutes to kill," sang the high-pitched, sweet teen voice of my daughter's curvy Latina friend Marisa, "would you like a sloppy blowjob?" 
+ 
+
+===
+
+"Well, I have like 45 minutes to kill," sang the high-pitched, sweet teen voice of my daughter's curvy Latina friend Marisa, "would you like a sloppy blowjob?" 
 
  My ears weren't expecting that question, and I swear I must have blushed. Perverted middle-aged fathers don't get that question often, or at least, this one doesn't. Or hasn't before at least. Maybe she saw me staring at her ample boobs in her tight babydoll, or she detected my eyes on her stellar round butt in that thin little skirt a few minutes earlier. Or maybe she was just fucking clairvoyant, because she read my mind. 
 
@@ -82,7 +88,11 @@
 
  
 
- ****** Sloppy Sex with a Horny Latina ****** byNonStopFunGuy© "You're fucking awesome," I exclaimed, pulling back to examine her pretty face, dripping with saliva from her thick lips and thin chin. 
+ 
+
+===
+
+"You're fucking awesome," I exclaimed, pulling back to examine her pretty face, dripping with saliva from her thick lips and thin chin. 
 
  Her lips closed, she licked her lips and she smiled. "You're a good kisser," she informed me quietly. Then she returned to work, lowering her mouth down to my cock. Since I was sitting upright, I got a look now at her naked back and her thin skirt over her hips and ass. I could make out the curves of her buttocks, which were round and fleshy. I couldn't stop wondering if she'd let me see that ass too, and maybe get some personal time with her wet Latin kitty. I asked myself, wonder if she's shaved at all. 
 
@@ -180,7 +190,11 @@
 
  
 
- ****** Sloppy Sex with a Horny Latina ****** byNonStopFunGuy© She stood up slowly, giving me another look at that precious naked teenage body. I think she was enjoying how I stared at her naked body, maybe appreciating it more than teenage boys did. Softly smiling in my direction, she paused as if waiting for me. I hadn't thought ahead as to where I was going to put her, so I quickly had to decide between laying her out on my desktop, having her sit in my chair, or spreading her open on my floor. The basement home office had a rough, worn carpet that wasn't that comfortable. And the idea of having a teenage girl spread her pussy open for me on my desk was really exciting. 
+ 
+
+===
+
+She stood up slowly, giving me another look at that precious naked teenage body. I think she was enjoying how I stared at her naked body, maybe appreciating it more than teenage boys did. Softly smiling in my direction, she paused as if waiting for me. I hadn't thought ahead as to where I was going to put her, so I quickly had to decide between laying her out on my desktop, having her sit in my chair, or spreading her open on my floor. The basement home office had a rough, worn carpet that wasn't that comfortable. And the idea of having a teenage girl spread her pussy open for me on my desk was really exciting. 
 
  With a swoop of my arm, I pushed aside stacks of paper from my desk, sending them and some pencils and even a calculator crashing to my carpet. Marisa giggled. I pushed back the computer and patted the big empty space on my solid oak desk. "Come on over here, sweetie," I giggled. 
 

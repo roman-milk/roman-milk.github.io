@@ -1,8 +1,14 @@
+For The Love of Adele
+=====================
 #1 
 
  
 
- ****** For The Love of Adele ****** bygeronimo_appleby© I often wonder that if Adele, my aunt, hadn't forgotten her sunglasses that day, then would things have turned out as they have? After all, if she'd remembered to bring the glasses up to the sundeck there would have been no need for me to take a trip down to her cabin and collect them. If I hadn't gone to my aunt's cabin I never would've found the dildo and the book of erotica... And if I hadn't made that little discovery, my mind wouldn't have been filled with the images that followed; images of my lovely aunt using the rubber cock on her tight pussy... 
+ 
+
+===
+
+I often wonder that if Adele, my aunt, hadn't forgotten her sunglasses that day, then would things have turned out as they have? After all, if she'd remembered to bring the glasses up to the sundeck there would have been no need for me to take a trip down to her cabin and collect them. If I hadn't gone to my aunt's cabin I never would've found the dildo and the book of erotica... And if I hadn't made that little discovery, my mind wouldn't have been filled with the images that followed; images of my lovely aunt using the rubber cock on her tight pussy... 
 
  But, she did forget the sunglasses, and I did take that walk. The rest is history. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** For The Love of Adele ****** bygeronimo_appleby© I pushed and the door opened slightly. I pushed a little more and was then able to see a slice of my aunt's cabin. I squeezed my eye right up as close as possible to the six inch wide gap and was instantly rewarded by a view of my Aunt Adele lying on top of her bed. It wasn't a full view of her, just a foreshortened side view, but I could see her nakedness quite clearly and I could tell by the positioning of her arm that she was using her dildo. 
+ 
+
+===
+
+I pushed and the door opened slightly. I pushed a little more and was then able to see a slice of my aunt's cabin. I squeezed my eye right up as close as possible to the six inch wide gap and was instantly rewarded by a view of my Aunt Adele lying on top of her bed. It wasn't a full view of her, just a foreshortened side view, but I could see her nakedness quite clearly and I could tell by the positioning of her arm that she was using her dildo. 
 
  The shock of what I saw flashed through me, but once that initial flare had died I could hear the soft sighs and tiny mewls of pleasure my aunt was making. I could hear the oscillating buzz of the vibrator as my aunt smeared it around her vulva and then pushed a length of it inside her body. Adele was reading her smutty tome, holding the book awkwardly with one hand while the other was busy with the toy between her soft thighs. 
 
@@ -346,7 +356,11 @@
 
  
 
- ****** For The Love of Adele ****** bygeronimo_appleby© Adele had left a foamy mix of her saliva and my precum around the head of my cock when she came up for air again, but she kept up the pressure by wanking her fist urgently up and down the slippery shaft. 
+ 
+
+===
+
+Adele had left a foamy mix of her saliva and my precum around the head of my cock when she came up for air again, but she kept up the pressure by wanking her fist urgently up and down the slippery shaft. 
 
  My aunt groaned and kissed me while keeping up the vigorous manipulation of my shaft. Her gooey tongue pushed into my mouth and coiled sinuously with my own tongue while my Adele groaned and moaned her arousal into my open mouth. 
 

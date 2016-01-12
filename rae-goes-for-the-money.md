@@ -1,8 +1,14 @@
+Rae Goes For The Money Ch. 01
+=============================
 #1 
 
  
 
- ****** Rae Goes For The Money Ch. 01 ****** byJust_Plain_Bob© My sex life pretty much sucked. My wife and I hadn't been getting along all that great recently. Hell, not just recently, but for the last six months! Constant squabbles over money, specifically the lack of it, always seemed to lead in to other areas and we would end up going for days without speaking to each other which translated into no sex. For me it was a no win situation; if I worked a straight forty hours I didn't bring home enough money. If I worked the available overtime or took on a part time job I caught hell for never being home and for leaving her to raise the kids on her own. One day I'd finally had enough of her bitching and I told her that if she wanted money so god damned bad to get her ass out of the house in the evening and get a job and I'd watch the kids. She started job hunting the next day and the day after that she found one as a tele-marketer - she was going to be the one who interrupted your dinner. 
+ 
+
+===
+
+My sex life pretty much sucked. My wife and I hadn't been getting along all that great recently. Hell, not just recently, but for the last six months! Constant squabbles over money, specifically the lack of it, always seemed to lead in to other areas and we would end up going for days without speaking to each other which translated into no sex. For me it was a no win situation; if I worked a straight forty hours I didn't bring home enough money. If I worked the available overtime or took on a part time job I caught hell for never being home and for leaving her to raise the kids on her own. One day I'd finally had enough of her bitching and I told her that if she wanted money so god damned bad to get her ass out of the house in the evening and get a job and I'd watch the kids. She started job hunting the next day and the day after that she found one as a tele-marketer - she was going to be the one who interrupted your dinner. 
 
  Things got immediately better. I was having a good time being a father to our kids, not that I wasn't one before, but now I did not have to share time with mom, it was just me. Rae was in a much better mood and I think it had as much to do with her being able to get out of the house for a while as it did the money. And with the constant arguments out of the way I began to have a sex life again. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Rae Goes For The Money Ch. 02 ****** byJust_Plain_Bob© Rae's words bounced around in my head as I drove home: 
+ 
+
+===
+
+Rae's words bounced around in my head as I drove home: 
 
  "I thought it would be a kick to have Jimmy pay me to let my own husband fuck me." 
 

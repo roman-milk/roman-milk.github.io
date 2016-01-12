@@ -1,8 +1,14 @@
+Three Sisters: A Crazy Lesbian Orgy
+===================================
 #1 
 
  
 
- ****** Three Sisters: A Crazy Lesbian Orgy ****** bysilkstockingslover© Summary: Jasmine and her two sisters cross every taboo line. 
+ 
+
+===
+
+Summary: Jasmine and her two sisters cross every taboo line. 
 
  Note 1: This is a Valentine's Day 2014 Contest entry...so please vote. 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Three Sisters: A Crazy Lesbian Orgy ****** bysilkstockingslover© I missed the clear-cut-man-in-charge relationship I used to have, although I didn't miss the lack of emotion and conversation that had also been a part of it. Yet, I do often yearn to be face-fucked, forced to do something naughty in public, or to feel a cock in my ass again. Being a teacher, I always have to be in control, and thus having a man just take control in the bedroom is a major turn-on. 
+ 
+
+===
+
+I missed the clear-cut-man-in-charge relationship I used to have, although I didn't miss the lack of emotion and conversation that had also been a part of it. Yet, I do often yearn to be face-fucked, forced to do something naughty in public, or to feel a cock in my ass again. Being a teacher, I always have to be in control, and thus having a man just take control in the bedroom is a major turn-on. 
 
  "A penny for your thoughts?" Caroline asked. 
 
@@ -712,7 +722,11 @@
 
  
 
- ****** Three Sisters: A Crazy Lesbian Orgy ****** bysilkstockingslover© "Marilyn," Caroline revealed. 
+ 
+
+===
+
+"Marilyn," Caroline revealed. 
 
  "Aunt Marilyn?" Jill asked. 
 
@@ -1020,7 +1034,11 @@
 
  
 
- ****** Three Sisters: A Crazy Lesbian Orgy ****** bysilkstockingslover© Caroline commented, "Shit, Jasmine, you are like a fat kid at a candy store after years on a diet." 
+ 
+
+===
+
+Caroline commented, "Shit, Jasmine, you are like a fat kid at a candy store after years on a diet." 
 
  I looked up and said, so drawn into the submission, "Oh, Mistress, thank you for helping me become what I have fantasized being for so long." 
 

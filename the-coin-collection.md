@@ -1,8 +1,14 @@
+The Coin Collection
+===================
 #1 
 
  
 
- ****** The Coin Collection ****** byJust_Plain_Bob© Try to imagine this. You come home from work, park your car in the garage, and walk through the door that connects the house to the garage as you call out "Honey, I'm home." The door closes behind you before you see two men with guns and next to them you see your frightened wife tied to one of the swivel stools at the breakfast bar that separates the kitchen from the family room. She appears to be unhurt, but she has duct tape across her mouth. One of the men waves his gun at you and says: 
+ 
+
+===
+
+Try to imagine this. You come home from work, park your car in the garage, and walk through the door that connects the house to the garage as you call out "Honey, I'm home." The door closes behind you before you see two men with guns and next to them you see your frightened wife tied to one of the swivel stools at the breakfast bar that separates the kitchen from the family room. She appears to be unhurt, but she has duct tape across her mouth. One of the men waves his gun at you and says: 
 
  "Be quiet, listen, and do what we tell you to do and you will get out of this unhurt." 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** The Coin Collection ****** byJust_Plain_Bob© So back to what would I do if the assholes gave up and didn't roll over on Annie? I had no proof of Annie's involvement and that meant the only way I could get her out of my life would be to divorce her. That would mean an asset split of fifty/fifty and I would probably end up having to pay alimony. To a woman who had set me up to die? No fucking way! I'd kill her before I would let that happen and I'd make damned sure that she knew why I was doing it. 
+ 
+
+===
+
+So back to what would I do if the assholes gave up and didn't roll over on Annie? I had no proof of Annie's involvement and that meant the only way I could get her out of my life would be to divorce her. That would mean an asset split of fifty/fifty and I would probably end up having to pay alimony. To a woman who had set me up to die? No fucking way! I'd kill her before I would let that happen and I'd make damned sure that she knew why I was doing it. 
 
  Naturally since my worst case scenario was the one that let Annie walk it was the one that I got. 
 

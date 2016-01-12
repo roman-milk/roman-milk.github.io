@@ -1,8 +1,14 @@
+The Coward
+==========
 #1 
 
  
 
- ****** The Coward ****** byJust_Plain_Bob© I've finally had to admit to myself that I'm a coward. Oh, it's always been there but I've never admitted it. As a kid I always ran away from fights and said that discretion was the better part of valor. As an adult I walked away from things and said I was being a mature and sensible, but I can't hide it anymore. I'm a coward. 
+ 
+
+===
+
+I've finally had to admit to myself that I'm a coward. Oh, it's always been there but I've never admitted it. As a kid I always ran away from fights and said that discretion was the better part of valor. As an adult I walked away from things and said I was being a mature and sensible, but I can't hide it anymore. I'm a coward. 
 
  I had been out of work for almost eight months because of the faltering economy. I had papered the city with applications and resumes, but hadn't received one call. I was working three part time jobs trying to hold things together and my wife Glenda worked and between the two of us we were just barely hanging on. Our personal life pretty much sucked because of constant arguments over money and an almost absolute lack of sex because of the hours I was working. Glenda had a nine to five job so she was gone from seven-thirty to around six. I worked the counter in a convenience store from three in the afternoon till eleven at night so she was asleep when I got home. I slept from the time I got home until three when I got up to go and deliver newspapers. I threw two routes so I didn't get home until after Glenda had already left for work. The only time we saw each other was on the weekend, but even then my third part time job, flipping burgers, got in the way and when we were finally home together I just flat couldn't stay awake. 
 

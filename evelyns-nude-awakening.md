@@ -1,8 +1,14 @@
+Evelyn's Nude Awakening
+=======================
 #1 
 
  
 
- ****** Evelyn's Nude Awakening ****** bygeronimo_appleby© My first venture into Romance. Send me your emails with critical points please. Oh, I hope you enjoy it as well. 
+ 
+
+===
+
+My first venture into Romance. Send me your emails with critical points please. Oh, I hope you enjoy it as well. 
 
  Evelyn smiled with content when she felt the warmth of the morning sun on her bare skin. She stood on the back veranda of her secluded beach house and closed her eyes as she luxuriated in the peace and tranquillity of her surroundings. The sun's warm smile kissed her upturned face, and the cool breath of the sea breeze teased her walnut dark nipples to hardness. As she basked in the morning sun, Evelyn listened to the powerful sound of the sea as the rolling tide crashed against the breakwater a short distance away along the shoreline. 
 
@@ -110,7 +116,11 @@
 
  
 
- ****** Evelyn's Nude Awakening ****** bygeronimo_appleby© 'Oh my God. What's happening to me?' Evelyn whispered. 
+ 
+
+===
+
+'Oh my God. What's happening to me?' Evelyn whispered. 
 
  'I'm sorry,' Jason repeated, 'I'd better go.' With one hand vainly trying to hide the bulging towel, Jason turned. 
 

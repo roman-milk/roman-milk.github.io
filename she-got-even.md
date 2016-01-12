@@ -1,8 +1,14 @@
+She Got Even
+============
 #1 
 
  
 
- ****** She Got Even ****** byJust_Plain_Bob© She sat at the kitchen table, softly crying, and wondering why her husband of only nine months was doing this to her. My God, only nine months since he promised to love her and keep her above all others, to be faithful and true, and now the bastard was fucking his secretary. It had broken her heart when she'd sent his suit to the cleaners and found the charge slip from the hotel in his pocket. The son-of-a-bitch was even going to try and put it on his expense report. The words printed on the slip were burned into her brain, "Marla - Room 316. Must have room for her by 6p.m." She had checked the date on the charge slip and it had been for one of the nights that he hadn't come home until late. The tears would not stop. 
+ 
+
+===
+
+She sat at the kitchen table, softly crying, and wondering why her husband of only nine months was doing this to her. My God, only nine months since he promised to love her and keep her above all others, to be faithful and true, and now the bastard was fucking his secretary. It had broken her heart when she'd sent his suit to the cleaners and found the charge slip from the hotel in his pocket. The son-of-a-bitch was even going to try and put it on his expense report. The words printed on the slip were burned into her brain, "Marla - Room 316. Must have room for her by 6p.m." She had checked the date on the charge slip and it had been for one of the nights that he hadn't come home until late. The tears would not stop. 
 
  At noon the phone rang and she almost didn't answer it, but at the last minute she picked it up, "Hello?" 
 

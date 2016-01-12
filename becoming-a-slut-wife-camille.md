@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Camille
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Camille ****** byJust_Plain_Bob© "Way to go asshole," I thought as I looked down on the sleeping woman lying next to me on the bed. This was not supposed to happen and it should not have. I was an adult for Christ's sake and I was supposed to be able to control my self and make intelligent decisions. I knew that I was responsible for what happened, but I had never intended it. It was kidding, just stupid flirting and that's all it ever was supposed to be. How in the hell was I ever going to be able to face my brother? How was I going to be able to face Camille when she woke up? 
+ 
+
+===
+
+"Way to go asshole," I thought as I looked down on the sleeping woman lying next to me on the bed. This was not supposed to happen and it should not have. I was an adult for Christ's sake and I was supposed to be able to control my self and make intelligent decisions. I knew that I was responsible for what happened, but I had never intended it. It was kidding, just stupid flirting and that's all it ever was supposed to be. How in the hell was I ever going to be able to face my brother? How was I going to be able to face Camille when she woke up? 
 
  The day Bill brought Camille home to meet the family I fell absolutely in lust with her. Picture in your mind a five-foot tall, 110-pound woman with a set of 38DD tits and raven black hair that hung down to her ass. The only thing that kept her from being perfect was that her face was a homely as a mud fence, but good God what a body. 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** Becoming A Slut Wife: Camille ****** byJust_Plain_Bob© "Yes." 
+ 
+
+===
+
+"Yes." 
 
  "Okay then, that's table three. The cleaning crew picked up your coats and took them to the manager's office. You need to go and get them quick because he is getting ready to lock up his office and leave. Come on, I'll show you where it is." 
 

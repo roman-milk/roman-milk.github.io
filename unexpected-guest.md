@@ -1,8 +1,14 @@
+Unexpected Guest
+================
 #1 
 
  
 
- ****** Unexpected Guest ****** byBoratus© The party was good. And Dawn was enjoying the attention she was getting from the men there. Her husband talked with his friends and didn't notice her wandering eyes. She had drank enough to give her a buzz and was contemplating whether she would take it further. Then she saw him. Shaun. What the hell was he doing here? Her first instinct was to blend into the crowd and figure out what to do about it but he had seen her. Their eyes locked and he beckoned her with his finger. She looked over at her husband and saw him engrossed in a conversation with some of his buddies. She went over to Shaun but he turned and walked away from her. She followed as he went up the stairs. She noticed they were far enough apart that no one would realize she was following. At the top of the stairs she saw a series of doors in the hallway. Only one was open. She made her way to it and entered. The door shut quickly as she entered. He stood there smiling. 
+ 
+
+===
+
+The party was good. And Dawn was enjoying the attention she was getting from the men there. Her husband talked with his friends and didn't notice her wandering eyes. She had drank enough to give her a buzz and was contemplating whether she would take it further. Then she saw him. Shaun. What the hell was he doing here? Her first instinct was to blend into the crowd and figure out what to do about it but he had seen her. Their eyes locked and he beckoned her with his finger. She looked over at her husband and saw him engrossed in a conversation with some of his buddies. She went over to Shaun but he turned and walked away from her. She followed as he went up the stairs. She noticed they were far enough apart that no one would realize she was following. At the top of the stairs she saw a series of doors in the hallway. Only one was open. She made her way to it and entered. The door shut quickly as she entered. He stood there smiling. 
 
  "Shaun!" she exclaimed, "What the hell are you doing here?" 
 

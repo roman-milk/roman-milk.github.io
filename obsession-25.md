@@ -1,8 +1,14 @@
+Obsession
+=========
 #1 
 
  
 
- ****** Obsession ****** byJust_Plain_Bob© My sister Marta had stopped by to have coffee with me and shoot the shit. Then, from out of nowhere she told me about what had happened the night before following a party she had been to. 
+ 
+
+===
+
+My sister Marta had stopped by to have coffee with me and shoot the shit. Then, from out of nowhere she told me about what had happened the night before following a party she had been to. 
 
  "You're joking, right?" 
 

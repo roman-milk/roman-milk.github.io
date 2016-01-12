@@ -1,8 +1,14 @@
+All in the Family
+=================
 #1 
 
  
 
- ****** All in the Family ****** byGotBacon© Jim is the proud owner of Computer Solutions. It took a few years to get it going, and he makes a comfortable living now. His store is in a small strip mall. 
+ 
+
+===
+
+Jim is the proud owner of Computer Solutions. It took a few years to get it going, and he makes a comfortable living now. His store is in a small strip mall. 
 
  He is 6 ft. tall, weighs 180 pounds and is 29 years old. His cock is 6 in. soft and knows how to use it. His is better looking than average. His personality is what makes his life and business run well. Everyone he meets likes him. He is married to his college sweetheart. They met at a frat party when Marie was a freshman. 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** All in the Family ****** byGotBacon© "Yes. Big fat cock in me. Oh fuck yes. Shove it in me. Give it all to me." 
+ 
+
+===
+
+"Yes. Big fat cock in me. Oh fuck yes. Shove it in me. Give it all to me." 
 
  He grabs her hair and pulls back. His pelvic bone slams against her ass and his balls hit her clit. She cries out and cums. He lets go of her hair and holds her breasts and he pumps in her. He pinches her nipples and she cries out and cums again. He reaches down and grabs both of her wrists. He pulls her arms back behind her. He pulls them making her stroke on him. He lets go and grabs her hip bones. He starts pulling on her faster and faster. His cock swells in her and he pumps her full of cum. She screams and cums with him. 
 
@@ -596,7 +606,11 @@
 
  
 
- ****** All in the Family ****** byGotBacon© 'Holy shit. She is smoking. What a beautiful body. I see why Jerry keeps her as a trophy.' 
+ 
+
+===
+
+'Holy shit. She is smoking. What a beautiful body. I see why Jerry keeps her as a trophy.' 
 
  He watches her examine her body from all angles. She walks over to the bed, pulls back the covers and gets in. She pulls them up and closes her eyes. His mind is blown. The thought of fucking her pops into his mind. He doubts she would go for it, but the seed is planted. 
 
@@ -1004,7 +1018,11 @@
 
  
 
- ****** All in the Family ****** byGotBacon© "Just sharing you hot cum with you. It feels so good. All hot and creamy. Good for our skin." 
+ 
+
+===
+
+"Just sharing you hot cum with you. It feels so good. All hot and creamy. Good for our skin." 
 
  He pulls her up and sucks her cum covered nipples. She moans for him. 
 

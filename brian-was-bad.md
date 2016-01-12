@@ -1,8 +1,14 @@
+Brian Was Bad
+=============
 #1 
 
  
 
- ****** Brian Was Bad ****** byJust_Plain_Bob© It was my own fault. I let my cock run away and take over my thinking and I ended up having to pay the price. 
+ 
+
+===
+
+It was my own fault. I let my cock run away and take over my thinking and I ended up having to pay the price. 
 
  Collen and I met in college as sophomores and we were a couple from then on. We were married after graduation and settled down to build a life and a family. Ten near perfect years passed by and Collen and I were still in love as much as the day we were married. It was summer time and the kids were spending two weeks with my parents and Collen and I were having a fun time being alone. It was a Tuesday night and Collen was supposed to meet me at the Landing Strip Lounge when I got off work and we were going to have dinner and then maybe go out and do some drinking and dancing. Half an hour before quitting time Colleen called me and said that her mother had called and that there was a family crisis concerning her younger sister that had to be taken care of. She told me she would be late and to not wait up. I told her that I would probably stop at the Strip, have a few beers and catch a burger on the way home. 
 
@@ -62,4 +68,8 @@
 
  
 
- ****** Brian Was Bad ****** byJust_Plain_Bob© The night I spent with Sam showed me that I didn't really enjoy sucking cock or taking it up my ass of my own free will. By tied up and forced? Now that was a totally different story. I see Sarah Ann two or three times a week and then I go home and confess to Colleen and then one night I will come home from work and she and her lovers punish me for my transgressions. Colleen makes sure that she gets plenty enjoyment out of it, but can you blame her? Just like I found out some things about myself, she found out that she is a gangbang loving cock hungry slut. But hey, it seems to be working out for both of us. Report_Story 
+ 
+
+===
+
+The night I spent with Sam showed me that I didn't really enjoy sucking cock or taking it up my ass of my own free will. By tied up and forced? Now that was a totally different story. I see Sarah Ann two or three times a week and then I go home and confess to Colleen and then one night I will come home from work and she and her lovers punish me for my transgressions. Colleen makes sure that she gets plenty enjoyment out of it, but can you blame her? Just like I found out some things about myself, she found out that she is a gangbang loving cock hungry slut. But hey, it seems to be working out for both of us. Report_Story 

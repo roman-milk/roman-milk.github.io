@@ -1,8 +1,14 @@
+The Princess and the Hog
+========================
 #1 
 
  
 
- ****** The Princess and the Hog ****** byJust_Plain_Bob© I met Rob when I was sitting at the Sonic drive-in eating a burger and fries with my girlfriend Tanya. There was a loud roar and two Harleys pulled into the parking space next to us. Tanya looked over at them and said: 
+ 
+
+===
+
+I met Rob when I was sitting at the Sonic drive-in eating a burger and fries with my girlfriend Tanya. There was a loud roar and two Harleys pulled into the parking space next to us. Tanya looked over at them and said: 
 
  "Oooh baby, I'd go for a ride with him any time." 
 

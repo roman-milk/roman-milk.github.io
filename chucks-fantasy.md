@@ -1,8 +1,14 @@
+Chuck's Fantasy Ch. 01
+======================
 #1 
 
  
 
- ****** Chuck's Fantasy Ch. 01 ****** byJust_Plain_Bob© I love my husband, I really do, and I'd bet money that he loves me, but that won't stop the divorce I see coming. When it comes time to apportion blame it will be a fifty-fifty split even though I could have stopped it at any time. But just as love is love, dumb is dumb and I was dumb enough to believe that Chuck knew what he wanted and that he could handle it when he got it. 
+ 
+
+===
+
+I love my husband, I really do, and I'd bet money that he loves me, but that won't stop the divorce I see coming. When it comes time to apportion blame it will be a fifty-fifty split even though I could have stopped it at any time. But just as love is love, dumb is dumb and I was dumb enough to believe that Chuck knew what he wanted and that he could handle it when he got it. 
 
  ++++++++++++++++++++++++++++++++++++++ 
 
@@ -80,7 +86,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 02 ****** byJust_Plain_Bob© I carried the box of magazines into the house, poured myself a glass of wine and settled down to read. I read and sipped wine from five in the afternoon until eleven-thirty and when I climbed into bed I was so hot and horny that I did something that I hadn't done in ten years - I masturbated! I was so horny from reading those stories that my pussy was on fire. I'm not just talking about the wife watching stories either. The girl on girl, black on white, swinging and swapping, straying and wayward wives also got to me. The only ones that left me cold were the boy on boy ones. 
+ 
+
+===
+
+I carried the box of magazines into the house, poured myself a glass of wine and settled down to read. I read and sipped wine from five in the afternoon until eleven-thirty and when I climbed into bed I was so hot and horny that I did something that I hadn't done in ten years - I masturbated! I was so horny from reading those stories that my pussy was on fire. I'm not just talking about the wife watching stories either. The girl on girl, black on white, swinging and swapping, straying and wayward wives also got to me. The only ones that left me cold were the boy on boy ones. 
 
  The next day I took a couple of the magazines to work with me and read them during coffee breaks and lunch hour. That afternoon one of the girls I work with told me that some of the others from the office were going to be stopping after work for drinks and asked me if I would like to join them. Chuck was not going to be home for two more days and I had nothing to hurry home for so I said I would. The waitress wasn't even back with our drink order before men were coming over to us and asking us to dance. Being the only married woman at the table I didn't think it would be wise so I said no thanks and I just sat, sipped my drink and watched. 
 
@@ -298,7 +308,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 02 ****** byJust_Plain_Bob© "The party was different Loretta. I wasn't in on it. If I had known what you were doing I'd have felt like I was part of it." 
+ 
+
+===
+
+"The party was different Loretta. I wasn't in on it. If I had known what you were doing I'd have felt like I was part of it." 
 
  "That's what you say now, but I have no way of knowing whether or not it is just bullshit and I'm not risking my marriage on bullshit." 
 
@@ -392,7 +406,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 03 ****** byJust_Plain_Bob© The ride home was silent which wasn't a real surprise to me. Chuck had been quiet since returning to the party. I had no idea how he had taken what I'd done; his only response to my, "Well, was it what you wanted?" was "We will talk about it later." The rest of the party he busied himself talking with friends and he pretty much ignored me. I was beginning to think that I had the answer to the question of whether or not he could handle me being with another man and the answer was no. It looked like Mark was going to be my first and only extra-marital affair. Suddenly I was glad he screwed me the second time. 
+ 
+
+===
+
+The ride home was silent which wasn't a real surprise to me. Chuck had been quiet since returning to the party. I had no idea how he had taken what I'd done; his only response to my, "Well, was it what you wanted?" was "We will talk about it later." The rest of the party he busied himself talking with friends and he pretty much ignored me. I was beginning to think that I had the answer to the question of whether or not he could handle me being with another man and the answer was no. It looked like Mark was going to be my first and only extra-marital affair. Suddenly I was glad he screwed me the second time. 
 
  Mark had just cum and I had been lying on that backseat in that dreamy state I get in after having an orgasm (or in that case - several) and Mark had asked when we could do it again. He was asking me what day we could meet again, but I had looked up at him and asked if he had another condom. He had pulled on his pants and run for his car to get one out of the glove compartment. I had expected Chuck to run up to the car as soon as Mark left, but he didn't. 
 
@@ -620,7 +638,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 03 ****** byJust_Plain_Bob© I started grabbing up his clothes and tossing them at him, "I'm sorry lover, I was so close, so close, but Chuck is only minutes away. Hurry lover, you need to get out of here now. Get dressed and go. I need to get this bed straight and get rid of these rubbers and clean myself up a little before Chuck sees me. Hurry Mark hurry. We only have minutes." 
+ 
+
+===
+
+I started grabbing up his clothes and tossing them at him, "I'm sorry lover, I was so close, so close, but Chuck is only minutes away. Hurry lover, you need to get out of here now. Get dressed and go. I need to get this bed straight and get rid of these rubbers and clean myself up a little before Chuck sees me. Hurry Mark hurry. We only have minutes." 
 
  Mark got his pants and shirt on and with his shoes, socks, and boxers in his hand he raced for the stairs. He hadn't even opened the front door yet and I was pulling the closet door open and going to my knees in front of my husband. His cock was sticking straight out in front of him and was slick from the juices he had stroked out of himself during his three hours in isolation. His hand was still wrapped around his cock when my mouth closed around it and I grabbed his ass and pulled him to me. I was on him so fast that my chin hit his hand before he could let go. His cock hit the back of my throat and he blew. I held him in my mouth until he was soft and then I stood up and led him to the bed. 
 
@@ -640,7 +662,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 04 ****** byJust_Plain_Bob© The next five weeks were glorious from my standpoint. Chuck had been so turned on by watching Mark fuck me that he wanted me to do it again. I had Mark back on Thursday and spent three hours with him while my hubby watched from the closet. As he was getting ready to leave Mark asked me when he could see me again and that is when I gave him the bad news: 
+ 
+
+===
+
+The next five weeks were glorious from my standpoint. Chuck had been so turned on by watching Mark fuck me that he wanted me to do it again. I had Mark back on Thursday and spent three hours with him while my hubby watched from the closet. As he was getting ready to leave Mark asked me when he could see me again and that is when I gave him the bad news: 
 
  "You can't lover. It has been a blast and I have loved every minute of it, but I told you going in that I wasn't looking for a relationship, just an experience." 
 
@@ -834,7 +860,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 05 ****** byJust_Plain_Bob© That week I limited myself to Chuck. I wanted to go into that Friday with a sexual hunger that would amaze Chuck's buddies. There was an ego thing going on there also. When I finished with them (or they finished with me) I wanted them all to say, "Alice who?" Chuck wasn't aware of it yet, but if things went well on Friday I planned on pushing him into having poker games every Friday at our house. 
+ 
+
+===
+
+That week I limited myself to Chuck. I wanted to go into that Friday with a sexual hunger that would amaze Chuck's buddies. There was an ego thing going on there also. When I finished with them (or they finished with me) I wanted them all to say, "Alice who?" Chuck wasn't aware of it yet, but if things went well on Friday I planned on pushing him into having poker games every Friday at our house. 
 
  As the Friday of the game approached I spent some time thinking on what had happened between Chuck and I since he had sampled Alice at Randy's poker game. I had become a flaming slut while holding Chuck on a pretty tight rein. I was fucking a new man every week while telling Chuck he had better keep his cock in his pants. I had no idea why I was being that way although I suspected that it had something to do with some sort of insecurity on my part. I think that I felt the real reason that Chuck had for getting me together with other men was so that he could go after other women with out fear of reprisal. In the back of my mind was the thought that he wanted to have more fun with Alice. 
 
@@ -1040,7 +1070,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 05 ****** byJust_Plain_Bob© Next Randy called all the guys in the office and told them to knock off the bullshit. "Harry is going to be out for several days and I don't need to lose any more of you." 
+ 
+
+===
+
+Next Randy called all the guys in the office and told them to knock off the bullshit. "Harry is going to be out for several days and I don't need to lose any more of you." 
 
  Ben laughed and said, "No problem boss. We can handle him, right guys?" and Randy had replied "Maybe so, but can you handle him and me?" 
 
@@ -1088,7 +1122,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 06 ****** byJust_Plain_Bob© I called Alice and told her our plans had changed and that Chuck and I would see her on Friday. 
+ 
+
+===
+
+I called Alice and told her our plans had changed and that Chuck and I would see her on Friday. 
 
  "Were you able to convince him to do what we talked about?" 
 
@@ -1316,7 +1354,11 @@
 
  
 
- ****** Chuck's Fantasy Ch. 06 ****** byJust_Plain_Bob© "Okay, okay, you're right, I should have let you know. But you know now. I don't want you to do it any more." 
+ 
+
+===
+
+"Okay, okay, you're right, I should have let you know. But you know now. I don't want you to do it any more." 
 
  "Why? What has happened?" 
 

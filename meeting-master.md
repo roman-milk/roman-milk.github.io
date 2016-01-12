@@ -1,8 +1,14 @@
+Meeting Master
+==============
 #1 
 
  
 
- ****** Meeting Master ****** byBoratus© Kathy was understandably nervous. This was the first time she would see Him in person. Her request for a Master had been answered by so many. So many pretenders. So many wannabes. So many self-absorbed egomaniacal Doms. And then there was Him. He had caught her attention differently, not with a description of Himself or the offer what He'd do to her. He sent her a story, an erotic subtle D/s story that left her drenched. After reading it she contacted Him. They talked and He continued to send more stories, all by His own hand. Some based on truth, some based on the fantasies of His previous subs, a few His own. They chatted on-line and once, when He told her what He would do when they met, she soaked the chair she was on. He told her to get on her knees, lick it up and thank Him as she did it. She submitted to Him on-line. She knew she was His. She wanted Him like no other. Needed Him. 
+ 
+
+===
+
+Kathy was understandably nervous. This was the first time she would see Him in person. Her request for a Master had been answered by so many. So many pretenders. So many wannabes. So many self-absorbed egomaniacal Doms. And then there was Him. He had caught her attention differently, not with a description of Himself or the offer what He'd do to her. He sent her a story, an erotic subtle D/s story that left her drenched. After reading it she contacted Him. They talked and He continued to send more stories, all by His own hand. Some based on truth, some based on the fantasies of His previous subs, a few His own. They chatted on-line and once, when He told her what He would do when they met, she soaked the chair she was on. He told her to get on her knees, lick it up and thank Him as she did it. She submitted to Him on-line. She knew she was His. She wanted Him like no other. Needed Him. 
 
  Now she walked down the road in a short skirt and no panties, a sexy blouse and push-up bra, (not that her tits really needed it) and high heels, looking every bit a slut as he had ordered. Every now and then a car passed and her heart raced thinking that it was Him. Finally, one slowed and the window went down. She stopped and looked in. She reminded herself to breathe. "Get in, pet." He said and she quickly did as she was told. When she was in she looked at Him. Just like His picture, slim and muscular and dark. His head was freshly shaved, His smile a wicked grin, and His eyes, penetrating but mischievous. He could see her state and was loving it. 
 

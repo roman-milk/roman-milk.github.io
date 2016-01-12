@@ -1,8 +1,14 @@
+Triad Project: An Elegant Seduction
+===================================
 #1 
 
  
 
- ****** Triad Project: An Elegant Seduction ****** byTx_Tall_Tales© (If you've read the "Jen and Me" tales, the events portrayed here actually occurred the weekend following the "Marisa move".) 
+ 
+
+===
+
+(If you've read the "Jen and Me" tales, the events portrayed here actually occurred the weekend following the "Marisa move".) 
 
  * * * * * 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** Triad Project: An Elegant Seduction ****** byTx_Tall_Tales© Denise learned the hazards of banana dipping also. "Oh, shit!" she pronounced, when she pulled an empty fork from the fondue. Denise crawled over and placed a delicate kiss on my lips. Her robe gaped open as she leaned over, and provided a nice view. 
+ 
+
+===
+
+Denise learned the hazards of banana dipping also. "Oh, shit!" she pronounced, when she pulled an empty fork from the fondue. Denise crawled over and placed a delicate kiss on my lips. Her robe gaped open as she leaned over, and provided a nice view. 
 
  I lost a strawberry - no, really, it WAS an accident - and asked the ladies what they'd like for a drink. 
 
@@ -392,7 +402,11 @@
 
  
 
- ****** Triad Project: An Elegant Seduction ****** byTx_Tall_Tales© "Of us. Of how I'll feel afterwards. Will I be able to look you guys in the eyes? What will you think of me? What do you think of me now? And Mark. What would he think? Will I be able to tell him? Do I want to?" Once the dam broke I was drowned in a torrent of words. 
+ 
+
+===
+
+"Of us. Of how I'll feel afterwards. Will I be able to look you guys in the eyes? What will you think of me? What do you think of me now? And Mark. What would he think? Will I be able to tell him? Do I want to?" Once the dam broke I was drowned in a torrent of words. 
 
  I kissed her lips lightly, as Cheryl continued her cleanup. "Let me answer what I can. We love you. We have for years, and we will long after this night is through." 
 
@@ -588,7 +602,11 @@
 
  
 
- ****** Triad Project: An Elegant Seduction ****** byTx_Tall_Tales© "Kind of helpless aren't we?" I laughed as she sputtered. I released her shoulders, and reached in and grabbed her tit, tight. "Lean back, I want to see your hard little nipples on those delicious tits." 
+ 
+
+===
+
+"Kind of helpless aren't we?" I laughed as she sputtered. I released her shoulders, and reached in and grabbed her tit, tight. "Lean back, I want to see your hard little nipples on those delicious tits." 
 
  She looked at me, staring into my face, then she locked her feet behind my ass and leaned back. I still had one hand in the small of her back. I know she wanted to cling to me with her hands, but she held them out near me but not touching, as she leaned way back and took the cold stream of water in her chest, and down her front; it pooled where our loins met. 
 

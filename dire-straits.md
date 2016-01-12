@@ -1,8 +1,14 @@
+Dire Straits
+============
 #1 
 
  
 
- ****** Dire Straits ****** bygeronimo_appleby© Well, another one for Loving Wives! In anticipation of the reaction... Thanks to Sulk, Azure Dreams, ChocolateHarlot, Bootgrrl, and the others. Thanks for the help along the way. Thanks to Impressive for the quick typo check and edit. Any remaining errors are due entirely to my own impatience to get submitted, and my own sheer stupidity! Ok, over to the Loving Wives, faithful for your reaction. If you're going to comment, please have the minerals to identify yourself since the anonymous thing is a real drag. In the main, I hope you enjoy 'Susie' as much as I have during the writing. Geronimo. 
+ 
+
+===
+
+Well, another one for Loving Wives! In anticipation of the reaction... Thanks to Sulk, Azure Dreams, ChocolateHarlot, Bootgrrl, and the others. Thanks for the help along the way. Thanks to Impressive for the quick typo check and edit. Any remaining errors are due entirely to my own impatience to get submitted, and my own sheer stupidity! Ok, over to the Loving Wives, faithful for your reaction. If you're going to comment, please have the minerals to identify yourself since the anonymous thing is a real drag. In the main, I hope you enjoy 'Susie' as much as I have during the writing. Geronimo. 
 
  The thrill of anticipation caused Susie to shiver involuntarily, and as she clipped the strap of her garter belt to her stocking top, a vivid image of a naked Anton burst across her mind. Susie felt her insides melt and her nipples pucker with deliciously wicked thoughts of the depraved and wanton acts she would be party to very shortly. She hoped fervently that Anton would be using his tongue and fingers on her delicate vulva, and then ultimately spearing her clenching cunt with his large, thick penis. 
 
@@ -112,7 +118,11 @@
 
  
 
- ****** Dire Straits ****** bygeronimo_appleby© He ignored the clinging silver string on his leg, and which remained stubbornly anchored to his cock head. He sucked, licked and slurped over Susie's clit as he used one hand to slide a finger into her opening. He moved it around inside her and massaged the tunnel of Susie's vagina gently. As the woman on the bed began to move her hips against the pressure of his face and fingers, Anton increased the movement with his probing digit. Finally, Susie began to breathe heavily, and as she sighed and groaned at intervals she looked down along her body to watch Anton's tonguing. Susie's sighs and moans turned to more primitive grunts that gave Anton an idea of her level of arousal. 
+ 
+
+===
+
+He ignored the clinging silver string on his leg, and which remained stubbornly anchored to his cock head. He sucked, licked and slurped over Susie's clit as he used one hand to slide a finger into her opening. He moved it around inside her and massaged the tunnel of Susie's vagina gently. As the woman on the bed began to move her hips against the pressure of his face and fingers, Anton increased the movement with his probing digit. Finally, Susie began to breathe heavily, and as she sighed and groaned at intervals she looked down along her body to watch Anton's tonguing. Susie's sighs and moans turned to more primitive grunts that gave Anton an idea of her level of arousal. 
 
  He knew that Susie was close to the edge when she spoke, the obscenities pouring from her mouth in a foul mouthed torrent. Anton found the use of such profanity a huge boost, and he redoubled his efforts to have Susie climax for him. 
 
@@ -222,7 +232,11 @@
 
  
 
- ****** Dire Straits ****** bygeronimo_appleby© Susie's husband had crept forward, closer and closer until he was standing next to the bed on the opposite side of Susie to Anton. He watched as his wife slurped and slobbered over Anton's cock. The picture of her labia captivated him as they clung to the shaft of the rubber cock while his wife fucked it into herself. He loved the sound of her juices mixed with Anton's seed squelching wetly between her legs, and he could smell the scent of sex, pungent in the room. 
+ 
+
+===
+
+Susie's husband had crept forward, closer and closer until he was standing next to the bed on the opposite side of Susie to Anton. He watched as his wife slurped and slobbered over Anton's cock. The picture of her labia captivated him as they clung to the shaft of the rubber cock while his wife fucked it into herself. He loved the sound of her juices mixed with Anton's seed squelching wetly between her legs, and he could smell the scent of sex, pungent in the room. 
 
  'You pathetic man,' Susie said as she watched her husband tugging at his cock. 'I'm in control from now on,' she whispered. You keep the business going, keep me in style, and I may let you fuck me from time to time.' She pulled the big cock from her body and concentrated her attention fully on Anton's cock. 'I'm going to take lovers,' she continued as she used her hands on Anton's shaft. 'You're going to watch while I'm fucked by them,' she said after a prolonged and wet sounding suck on Anton's big dome. 
 

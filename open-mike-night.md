@@ -1,8 +1,14 @@
+Open Mike Night
+===============
 #1 
 
  
 
- ****** Open Mike Night ****** byJust_Plain_Bob© I came into the bar and when my eyes adjusted to the light I looked toward the table in the back corner and saw what I expected to see. She was there with seven of her co-workers. Not counting her there were three females and four males. She had always maintained that there was no dating going on in the group and that all they were were co-workers stopping for a few drinks after work, but I knew better. I'd seen too many of them leave in pairs for me to believe that story and after seeing it too many times I wasn't ready to believe that she wasn't doing the same thing. 
+ 
+
+===
+
+I came into the bar and when my eyes adjusted to the light I looked toward the table in the back corner and saw what I expected to see. She was there with seven of her co-workers. Not counting her there were three females and four males. She had always maintained that there was no dating going on in the group and that all they were were co-workers stopping for a few drinks after work, but I knew better. I'd seen too many of them leave in pairs for me to believe that story and after seeing it too many times I wasn't ready to believe that she wasn't doing the same thing. 
 
  I headed over and took a seat at the bar with my back to the table, but I was able to see them in the mirror behind the bar. Melody came up and set a Pabst Blue Ribbon down in front of me as she said: 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Open Mike Night ****** byJust_Plain_Bob© "You know she hasn't taken her eyes off of you since you got here. I think there is something there Bobby. It might be to your benefit to give her a chance. After all, you really don't know for sure that she did anything. Hit her with all of it and see where it goes. You don't have anything to lose." 
+ 
+
+===
+
+"You know she hasn't taken her eyes off of you since you got here. I think there is something there Bobby. It might be to your benefit to give her a chance. After all, you really don't know for sure that she did anything. Hit her with all of it and see where it goes. You don't have anything to lose." 
 
  "After what I saw? I don't think so." 
 
@@ -410,7 +420,11 @@
 
  
 
- ****** Open Mike Night ****** byJust_Plain_Bob© I looked to the back of the room where Bree sat with Marge, Sally, Nancy and the rest of her usual group minus Frank Miller and saw Bree giving me a big smile. 
+ 
+
+===
+
+I looked to the back of the room where Bree sat with Marge, Sally, Nancy and the rest of her usual group minus Frank Miller and saw Bree giving me a big smile. 
 
  So since blond jokes are out any redheads here tonight? No? Okay then: 
 

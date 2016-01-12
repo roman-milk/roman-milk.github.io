@@ -1,8 +1,14 @@
+Search for a Sugardaddy
+=======================
 #1 
 
  
 
- ****** Search for a Sugardaddy ****** bygeronimo_appleby© A quick stroke I pushed out for a friend's blog -- hence the female POV. 
+ 
+
+===
+
+A quick stroke I pushed out for a friend's blog -- hence the female POV. 
 
  Hope you enjoy it, it was fun to do. 
 

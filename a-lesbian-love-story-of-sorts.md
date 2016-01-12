@@ -1,8 +1,14 @@
+A Lesbian Love Story- of Sorts
+==============================
 #1 
 
  
 
- ****** A Lesbian Love Story- of Sorts ****** bysilkstockingslover© PROLOGUE: WHAT IS LOVE? 
+ 
+
+===
+
+PROLOGUE: WHAT IS LOVE? 
 
  L-o-v-e. Just four tiny letters. 
 
@@ -276,7 +282,11 @@
 
  
 
- ****** A Lesbian Love Story- of Sorts ****** bysilkstockingslover© The saleslady then handed me a much slimmer blue dildo called a Feeldoe Dildo. I looked at in awe. The saleslady explained, "This one is for a situation where one wants to be a little dominant and still get off at the same time." 
+ 
+
+===
+
+The saleslady then handed me a much slimmer blue dildo called a Feeldoe Dildo. I looked at in awe. The saleslady explained, "This one is for a situation where one wants to be a little dominant and still get off at the same time." 
 
  "That sounds like me," I flirted. 
 
@@ -666,7 +676,11 @@
 
  
 
- ****** A Lesbian Love Story- of Sorts ****** bysilkstockingslover© I kissed her gently and then said, "I have never came like that before. That we-vibe is fucking amazing." 
+ 
+
+===
+
+I kissed her gently and then said, "I have never came like that before. That we-vibe is fucking amazing." 
 
  She smiled, "I know, we sell a ton of them." 
 
@@ -954,7 +968,11 @@
 
  
 
- ****** A Lesbian Love Story- of Sorts ****** bysilkstockingslover© The governor smiled and said, "It is Daphne, hi Emma." 
+ 
+
+===
+
+The governor smiled and said, "It is Daphne, hi Emma." 
 
  Emma looked surprised she knew her name and said to me, "This place is amazing. Over in the other corner is Mrs. Wilson, my old grade 12 teacher and someone said Candice Carter is here, although I can't find her." 
 
@@ -1274,7 +1292,11 @@
 
  
 
- ****** A Lesbian Love Story- of Sorts ****** bysilkstockingslover© I said, "Calm down. Phantom of the Opera is in town. Tell him you and I got all dolled up for a nice supper and a show. Technically that is all true. We did go out for a supper and we definitely saw a show. He will assume it is the play you saw." 
+ 
+
+===
+
+I said, "Calm down. Phantom of the Opera is in town. Tell him you and I got all dolled up for a nice supper and a show. Technically that is all true. We did go out for a supper and we definitely saw a show. He will assume it is the play you saw." 
 
  This seemed to relax her a bit. I then added, "You should probably take that toy out." 
 
@@ -1732,7 +1754,11 @@
 
  
 
- ****** A Lesbian Love Story- of Sorts ****** bysilkstockingslover© The lightbulb went on as she gasped, "It was you?" 
+ 
+
+===
+
+The lightbulb went on as she gasped, "It was you?" 
 
  "Yes Gwen. I love you. I love you as a friend. But I also love you completely." 
 

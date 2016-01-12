@@ -1,8 +1,14 @@
+You Couldn't Handle Me Ch. 01
+=============================
 #1 
 
  
 
- ****** You Couldn't Handle Me Ch. 01 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -72,7 +78,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 01 ****** byTheTalkMan© It was almost unfair. Like it was bad karma for being so lucky with girls. Being stuck with the hottest woman I had ever seen and not being able to make a move due to her being my mom. I was able to get a bunch of high-school girls between the sheets, but I could never truly enjoy them. Imagine how torturous it would be, that anytime you fucked a girl, you couldn't help but see your mom in her place. Imagine fucking an 18 year old with pristine DD's and not being satisfied, because they are not as big as your mom's FF's. Luckily, my mom was super-hot, and seeing her in those girls' places wasn't an unpleasant sight, but it was still torture nonetheless. Having your mind's eye see a pair of massive, natural tits, bigger and more perfect than any tits you had ever seen, and knowing it was unlikely you would ever get to see them... it was not fun. It was dangling meat in front of a starving man. I wouldn't wish this mental anguish on my worst enemy. I wouldn't wish the torture, the initial shame, of what I felt when it first happened, and the turmoil it caused, on anyone. I wouldn't wish it on anyone. 
+ 
+
+===
+
+It was almost unfair. Like it was bad karma for being so lucky with girls. Being stuck with the hottest woman I had ever seen and not being able to make a move due to her being my mom. I was able to get a bunch of high-school girls between the sheets, but I could never truly enjoy them. Imagine how torturous it would be, that anytime you fucked a girl, you couldn't help but see your mom in her place. Imagine fucking an 18 year old with pristine DD's and not being satisfied, because they are not as big as your mom's FF's. Luckily, my mom was super-hot, and seeing her in those girls' places wasn't an unpleasant sight, but it was still torture nonetheless. Having your mind's eye see a pair of massive, natural tits, bigger and more perfect than any tits you had ever seen, and knowing it was unlikely you would ever get to see them... it was not fun. It was dangling meat in front of a starving man. I wouldn't wish this mental anguish on my worst enemy. I wouldn't wish the torture, the initial shame, of what I felt when it first happened, and the turmoil it caused, on anyone. I wouldn't wish it on anyone. 
 
  I don't think she knew what she was doing to me. She couldn't have known how badly she was torturing me. Like I said, she was a great mom and she was super cool with me. She just had a flirty way about her. That's how she treated all guys, so I knew it wasn't anything out of the ordinary as she very subtly flirted in my presence. And she clearly was aware of her body as she showed it off every opportunity she could. She loved to tan out by the pool, and she wore skimpy bikinis constantly. Nothing indecent, unfortunately, but with her it was hard not to show off. I was forced to watch my mom show off tons of skin and not be able to do anything about it. I had to watch her and Dad be kissy-kissy in front of me, and I was being driven mad with jealousy. I was living with the guy who was plowing the object of my lust. I was a mad jumble of emotions. 
 
@@ -260,7 +270,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 01 ****** byTheTalkMan© "So you're gonna tease me? Taunt me?" I said. 
+ 
+
+===
+
+"So you're gonna tease me? Taunt me?" I said. 
 
  "Of course, honey. Knowing that it makes you so crazy, so mad, makes it totally worth it." Mom laughed. "But it's like I said, what you want will never happen." 
 
@@ -384,7 +398,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 01 ****** byTheTalkMan© I guess I was one of the lucky ones to see her in a bit of a non-professional way. In her friendship with my mom, I got to see her dressed in a way to flatter her body. Gone were the dress pants, professional tops, pony-tails and understated make-up. Instead, I saw Ms. Graham in skirts, exposing her bare legs and clinging to her round, ripe ass. I saw her wearing sexy leather boots and figure-hugging tops, showing off a view of her juicy cleavage. I could even see a hint of her hard nipples through her tops. 
+ 
+
+===
+
+I guess I was one of the lucky ones to see her in a bit of a non-professional way. In her friendship with my mom, I got to see her dressed in a way to flatter her body. Gone were the dress pants, professional tops, pony-tails and understated make-up. Instead, I saw Ms. Graham in skirts, exposing her bare legs and clinging to her round, ripe ass. I saw her wearing sexy leather boots and figure-hugging tops, showing off a view of her juicy cleavage. I could even see a hint of her hard nipples through her tops. 
 
  Her and my mom, two gorgeous, hard-nippled women, eager for a night on the town. 
 
@@ -528,7 +546,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 01 ****** byTheTalkMan© Mom began to walk away, out of my room. I watched her firm thighs, soaked slightly in sweat, flex as she walked. Mom reached my doorway and stopped, turning to face me once again. 
+ 
+
+===
+
+Mom began to walk away, out of my room. I watched her firm thighs, soaked slightly in sweat, flex as she walked. Mom reached my doorway and stopped, turning to face me once again. 
 
  "Face it Tom, it's like I said..." she began, her mouth curling into an evil smile. Her hands reached up to cup her own huge breasts, squeezing them firmly through the silk. 
 
@@ -698,7 +720,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 01 ****** byTheTalkMan© The party became less fun after that. I had to hear it over and over again, the jokes, the douchey comments from my friends about my mom's rack, how hot those tits were, all the things they would do to them and asking if I had ever seen them. I had to hear the girls envy at their perfection. This running commentary filled me with an even greater fury. I wanted these people gone... now. 
+ 
+
+===
+
+The party became less fun after that. I had to hear it over and over again, the jokes, the douchey comments from my friends about my mom's rack, how hot those tits were, all the things they would do to them and asking if I had ever seen them. I had to hear the girls envy at their perfection. This running commentary filled me with an even greater fury. I wanted these people gone... now. 
 
  Things finally began to wind down. People began to head out, now having a legendary story to share with those who weren't here. Mom reappeared, fully clothed in her dress once more. She made sure everyone was safe to drive, put up with their drunken come-ons, called taxis and arranged rides for those who weren't. To them, she was a good Mom. To me, a torturous, teasing minx. She hadn't said a word to me since her flashing of all my friends. And finally, once the door shut, and the last person left, a confrontation was inevitable. 
 
@@ -850,7 +876,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 02 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -1038,7 +1068,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 02 ****** byTheTalkMan© My eyes were scrunched in pleasured concentration as I focused only on getting the cum out of my swollen dick. My jacking began to slow as the tanks began to empty, the beams of cum lessening in volume and strength, barely making it past her belly button. Finally, I forced the last of my cum out from my shaft, dripping it onto her. My muscles relaxed and my hands fell to my side. I looked up at Carrie. 
+ 
+
+===
+
+My eyes were scrunched in pleasured concentration as I focused only on getting the cum out of my swollen dick. My jacking began to slow as the tanks began to empty, the beams of cum lessening in volume and strength, barely making it past her belly button. Finally, I forced the last of my cum out from my shaft, dripping it onto her. My muscles relaxed and my hands fell to my side. I looked up at Carrie. 
 
  She was fucking covered in cum. I tended to cum a lot, but never this much. I had painted her stomach with some of my cum having landed on her breasts and one shot landing on her sternum. Carrie dragged her fingers across her belly and pulled them back, letting the strands of cum stretch between her fingers and her stomach. She looked up at me and smiled. 
 
@@ -1274,7 +1308,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 02 ****** byTheTalkMan© "Mr. Jones." Ms. Graham began, looking up coldly at Evan. "I know your answers were correct. But I said to use the full proof for each of your derivatives. I am aware there are quicker ways to do the derivatives, but we are not there yet." 
+ 
+
+===
+
+"Mr. Jones." Ms. Graham began, looking up coldly at Evan. "I know your answers were correct. But I said to use the full proof for each of your derivatives. I am aware there are quicker ways to do the derivatives, but we are not there yet." 
 
  "But, I'm being penalized for being ahead of the curve." Evan argued. 
 
@@ -1496,7 +1534,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 02 ****** byTheTalkMan© "How did you meet her?" I asked. 
+ 
+
+===
+
+"How did you meet her?" I asked. 
 
  "I've known Tanya since grade school." he said. "We were neighbors growing up. We were always friends. She was a stunner from the beginning. It wasn't till high school that I realized how I felt about her." 
 
@@ -1684,7 +1726,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 02 ****** byTheTalkMan© Part of me considered just jumping forward and ripping her blouse apart, or just reaching out and groping her mammoth rack. But I talked myself out of that quickly. That felt over the line. That was, like, legit assault. I felt shame at even considering it. What was I doing? What had I been driven to, considering something like that? I realized then I had to step back, and really consider what kind of guy I was becoming. 
+ 
+
+===
+
+Part of me considered just jumping forward and ripping her blouse apart, or just reaching out and groping her mammoth rack. But I talked myself out of that quickly. That felt over the line. That was, like, legit assault. I felt shame at even considering it. What was I doing? What had I been driven to, considering something like that? I realized then I had to step back, and really consider what kind of guy I was becoming. 
 
  I fancied myself as being a good person. But I was seeing depths of my character I didn't know I had. And it scared me. I had to take a step back and cool down. 
 
@@ -1758,7 +1804,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -1882,7 +1932,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© How could I resist? 
+ 
+
+===
+
+How could I resist? 
 
  "Well, Tom," Ms. Graham called out, turning her attention to me, "Looks like I'll be sticking around here for a little bit till your mom gets back." I stood up as she joined me in the living room, her heels clicking on the floor. As I did, I gave her the once over again. Everyone at school viewed her as severe and bitchy, and it was amazing how differently I viewed her. She was always warm and friendly to me and far less intimidating than she was to everyone else. Looking at her, I didn't feel fear or intimidation. I looked at her like I looked at any woman I thought was hot. And Ms. Graham was very hot. Her clothes flattered her form. Her legs looked long. Her ass looked round and juicy. And her breasts looked huge. Her rock-hard nipples showed through her top. 
 
@@ -2150,7 +2204,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© My dick throbbed at this confession. I pressed on. 
+ 
+
+===
+
+My dick throbbed at this confession. I pressed on. 
 
  "How often do you partake in the meats of a younger man?" I asked. 
 
@@ -2286,7 +2344,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© "Ohhhh, damn that's fucking big!" she squealed. 
+ 
+
+===
+
+"Ohhhh, damn that's fucking big!" she squealed. 
 
  "Ssssshit!" I grunted out. Her pussy was clinging to the tip of my cock, and she was soaked. She really wanted this. She wiggled her frame and tilted her body, angling herself in just the right way to allow more of my shaft to enter her. 
 
@@ -2482,7 +2544,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© Her eyes opened and she regained her bearings. 
+ 
+
+===
+
+Her eyes opened and she regained her bearings. 
 
  "Or..." I began, reaching down to guide my cock back into her hole. "Do you want me to go slow and gentle, like I'm sure all your pathetic boyfriends do? Or do you want me to keep fucking the shit out of you? C'mon, Ms. Graham. It's your turn to answer." 
 
@@ -2742,7 +2808,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© "Hon, you have no idea what I've been through..." she began. "Traffic was beyond insane." she said, setting down her purse. I reached the bottom of the stairs. 
+ 
+
+===
+
+"Hon, you have no idea what I've been through..." she began. "Traffic was beyond insane." she said, setting down her purse. I reached the bottom of the stairs. 
 
  "Oh yeah?" I asked. 
 
@@ -2962,7 +3032,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 03 ****** byTheTalkMan© I knew it was pointless, but I had to give it a shot. 
+ 
+
+===
+
+I knew it was pointless, but I had to give it a shot. 
 
  "Mom...we still have a couple hours before I have to leave. There's still a chance. C'mon, Mom. Please. Give me something here." I practically begged. 
 
@@ -3020,7 +3094,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 04 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -3156,7 +3234,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 04 ****** byTheTalkMan© Both girls spoke quickly, voices panicked and slurring as they tried to tell me what happened. Listening to their drunken ramblings and using my deductive skills, I figured out what happened quickly. 
+ 
+
+===
+
+Both girls spoke quickly, voices panicked and slurring as they tried to tell me what happened. Listening to their drunken ramblings and using my deductive skills, I figured out what happened quickly. 
 
  Both girls had gotten drunk and were racing down the hall. One of them didn't realize that she actually had to, you know, stop, so she had slammed into the waist-high window, her arms and head going through it. 
 
@@ -3444,7 +3526,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 04 ****** byTheTalkMan© She giggled at this. Any girl that could so casually toss around the term buttfuck and all it's derivatives like she could was a keeper in my book. 
+ 
+
+===
+
+She giggled at this. Any girl that could so casually toss around the term buttfuck and all it's derivatives like she could was a keeper in my book. 
 
  We made our way into the stadium and got some pretty good seats in the student section. I stood next to Carmen, and feeling her pressed next to me, seeing her smile warmly at me, feeling the tension in the air, something was gonna happen today. I was sure of it. And that was good, because I had kind of held myself back sexually lately, making sure I was super-charged for this one day, cause I expected something to happen. I needed something to happen today. I couldn't wait any longer. 
 
@@ -3670,7 +3756,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 04 ****** byTheTalkMan© THWACK! THWACK! THWACK! 
+ 
+
+===
+
+THWACK! THWACK! THWACK! 
 
  I felt a shiver run through us both. We were both nearly there. We each buckled down. She pressed herself into me, wrapping her arms around my neck, pressing her bare breasts against my bare chest. I wrapped my arms around her waist. She now used her ass to drive into me, flexing her ass as she continued riding my cock, bouncing from knob to root. Using her added leverage, she really ground into me, her bouncing more firm and insistent, trying to draw this heated sexual action to a close, trying to draw the cum from my swollen balls. 
 
@@ -3904,7 +3994,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 04 ****** byTheTalkMan© "Ah, that is good!" I complimented. "Tanucci, you know you're way around a dick." 
+ 
+
+===
+
+"Ah, that is good!" I complimented. "Tanucci, you know you're way around a dick." 
 
  She finally pulled her mouth off of me and caught her breath. 
 
@@ -4150,7 +4244,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 04 ****** byTheTalkMan© We both basked in the glow for a while. We both passed out slightly, exhausted, and when we awoke, neither of us wanted to break this moment. We talked and snuggled, clutched to each other, a far cry of the harder edge of the sex we had just had. She got kissy with me, kissing my neck, my cheek, and my mouth. I kissed her back, and soon, I rolled on top of her. Before I knew it, she was spread for me again, and I was inside of her. 
+ 
+
+===
+
+We both basked in the glow for a while. We both passed out slightly, exhausted, and when we awoke, neither of us wanted to break this moment. We talked and snuggled, clutched to each other, a far cry of the harder edge of the sex we had just had. She got kissy with me, kissing my neck, my cheek, and my mouth. I kissed her back, and soon, I rolled on top of her. Before I knew it, she was spread for me again, and I was inside of her. 
 
  This was like the night before. This wasn't fucking. It was lovemaking. I was on top of her, slowly, passionately pleasuring her as she returned the favor. Her gasps and moans were hotter to me than anything I had heard before. And when I lost control and came inside her one more time, and made her cum one last time, I heard the words 'I love you' pass through her lips, and in that moment, I had never felt happier. This was so right. So perfect. 
 
@@ -4204,7 +4302,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 05 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -4484,7 +4586,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 05 ****** byTheTalkMan© ************ 
+ 
+
+===
+
+************ 
 
  The next morning, I made it a point to hit the exercise room. I liked to work out in the morning. It helped wake me up and get my day going right. Mom was in the shower and Carmen and Dad were in the living room, sipping coffee. Dad had warmed to Carmen quickly, but Mom was still very frosty. I could hear Dad and Carmen laughing as they watched some morning show. I don't think Carmen found my dad especially funny, but she knew enough to suck up to him and get on his good side. She was a good girlfriend. 
 
@@ -4694,7 +4800,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 05 ****** byTheTalkMan© But that didn't stop Mom from trying. 
+ 
+
+===
+
+But that didn't stop Mom from trying. 
 
  Thoughts of Mom from my younger years came to mind cause Mom had seized the opportunity to bust out a family album and show Carmen pictures of me as a kid. Carmen giggled as she saw pictures of me, saying that I was such a cutie. But this maneuver was two-fold for Mom. It was nice for my girlfriend to see pictures of me as a kid on the beach. But these pictures also happened to, totally coincidentally, I'm sure, show off pictures of my younger, twenty- something mother bursting out of her bikini. Yes, I knew these pictures very fondly, and yes, Mom was an absolute fucking babe in her twenties. Mom kept highlighting pictures for Carmen to look at, all of which happened to also have Mom looking super hot or be in proximity to pictures of Mom looking hot and busty. Mom wanted to make sure Carmen knew how hot her boyfriend's mother was. 
 
@@ -4916,7 +5026,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 05 ****** byTheTalkMan© I watched Mom approach the glass like a wild animal before finally wrapping her fingers around it. She lifted it and began carrying it delicately to the sink. As she did, I saw her fingers running against the glass, feeling it, feeling the warmth of its contents. As she walked, she let the glass bounce slightly, testing its weight. As she reached the sink, I saw her head jolt. The scent of my jizz hit her nose, and she was clearly reacting. She then teased pouring the glass into the sink, but she paused. She studied the contents of the glass intensely, tipping it, testing its thickness. I watched her lean down and place her nose above the rim of the glass, smelling the rich cum. I saw Mom's body shiver, and suddenly, I knew it was close to the moment of truth. 
+ 
+
+===
+
+I watched Mom approach the glass like a wild animal before finally wrapping her fingers around it. She lifted it and began carrying it delicately to the sink. As she did, I saw her fingers running against the glass, feeling it, feeling the warmth of its contents. As she walked, she let the glass bounce slightly, testing its weight. As she reached the sink, I saw her head jolt. The scent of my jizz hit her nose, and she was clearly reacting. She then teased pouring the glass into the sink, but she paused. She studied the contents of the glass intensely, tipping it, testing its thickness. I watched her lean down and place her nose above the rim of the glass, smelling the rich cum. I saw Mom's body shiver, and suddenly, I knew it was close to the moment of truth. 
 
  'Don't do, it,' I begged. "Don't do it." I didn't want to see this. I couldn't handle seeing this. 
 
@@ -4944,7 +5058,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -5048,7 +5166,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© I learned to suppress my sexual urges. I redirected them to healthier pursuits, like fitness or yoga. I devoted myself to being a good mother and let this new phase of my life be my focus. I learned to accept the pretty good sex I got from Jay as what I would be getting for the rest of my life. And honestly, he wasn't bad, more than enough for most girls. But he simply did not match up to me and I knew that from early on. I eventually had to be less demanding of him. Knowing what he was capable of handling, I tailored what I asked of him. It was like when he was in drive, and I had to learn to shift into neutral. 
+ 
+
+===
+
+I learned to suppress my sexual urges. I redirected them to healthier pursuits, like fitness or yoga. I devoted myself to being a good mother and let this new phase of my life be my focus. I learned to accept the pretty good sex I got from Jay as what I would be getting for the rest of my life. And honestly, he wasn't bad, more than enough for most girls. But he simply did not match up to me and I knew that from early on. I eventually had to be less demanding of him. Knowing what he was capable of handling, I tailored what I asked of him. It was like when he was in drive, and I had to learn to shift into neutral. 
 
  I had to make sacrifices. I had to learn to not wear my husband down, not making him feel inadequate in the bedroom. That was a good wife's job, especially one who was much better at sex than he was. The old me would be happy with taking it twice a night, every night, but I had to learn to be happy with twice a week. I had to stop using my patented blow-job technique, because I could make him cum in 30 seconds flat doing that. I had to be more dainty with him, which was not my preference. I stopped making him fuck my ass. My asshole would drive him wild, but he couldn't deal with how vigorous I would get, my driving ass bruising his torso, making him sore for days. And unfortunately, I had to give up expecting to cum all the time. In the beginning he had enough to take the edge off with small orgasms, but he didn't have enough to make my world shake. Nobody did. 
 
@@ -5138,7 +5260,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© Then, he stopped. 
+ 
+
+===
+
+Then, he stopped. 
 
  He zoomed back and confronted me, calling me out on my bullshit. After all the tension between us, this was bound to happen. I let him get it all out of his system, and he deserved to yell at me a bit. But then, he did something I didn't expect. He said something no guy had said to me before. 
 
@@ -5232,7 +5358,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© I wanted to be with someone I loved, and not have someone be with me out of obligation. I waited for Tanya to emerge, and I apologized profusely. We eventually separated, and for a while I hoped that would be the end of it. I had done something really dumb and I would never do it again. I had learned my lesson. I hoped I had escaped scot free. That was until Tanya came to me after class a few weeks later and said we needed to talk. I was filled with dread, knowing what I was about to hear. 
+ 
+
+===
+
+I wanted to be with someone I loved, and not have someone be with me out of obligation. I waited for Tanya to emerge, and I apologized profusely. We eventually separated, and for a while I hoped that would be the end of it. I had done something really dumb and I would never do it again. I had learned my lesson. I hoped I had escaped scot free. That was until Tanya came to me after class a few weeks later and said we needed to talk. I was filled with dread, knowing what I was about to hear. 
 
  When she told me she was pregnant, I felt like scum. I had affected three lives, mine, hers, and our soon to be child, just for one moment of selfish pleasure. My dark side had taken over for a few minutes, and that changed my life forever. She wasn't exactly happy about the situation, and neither was I, but I comforted her in these emotional moments. My guilt forced me to be strong for her, to give her something solid in this unstable time. Both of our upbringings made it so neither of us considered any option other than having this child and raising it together. My wolfish thoughts had come true. Me and Tanya were forced to be together. 
 
@@ -5362,7 +5492,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© Scotty and Erik's eyes widened as they realized this was my mother. I ignored them and focused on Mom. 
+ 
+
+===
+
+Scotty and Erik's eyes widened as they realized this was my mother. I ignored them and focused on Mom. 
 
  "What are you doing?" I asked quietly. 
 
@@ -5558,7 +5692,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© There were a few small containers, but on top was a crisply folded piece of paper. I pulled it open and read it, recognizing Mom's handwriting. 
+ 
+
+===
+
+There were a few small containers, but on top was a crisply folded piece of paper. I pulled it open and read it, recognizing Mom's handwriting. 
 
  Tom, 
 
@@ -5734,7 +5872,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 06 ****** byTheTalkMan© I could see Mom's eyes tearing up a bit, and she smiled. 
+ 
+
+===
+
+I could see Mom's eyes tearing up a bit, and she smiled. 
 
  "I mean, I figured you were just lashing out. I don't blame you. It still did kinda hurt, but it's still nice to hear you apologize." Mom said, wiping under her eye. 
 
@@ -5884,7 +6026,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -5976,7 +6122,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© The house was dead silent. 
+ 
+
+===
+
+The house was dead silent. 
 
  Usually, at any given moment, I would hear the buzz of the fridge, or the blowing of the AC, but I literally heard nothing. It was dead silent. I could have been in the deepest cave on Earth with the lack of noise I heard. Something was wrong. 
 
@@ -6136,7 +6286,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© I gave Marco the good news, and he promised to pass it along to Carmen and Tom. Once everything was set, I leaned over and gave Jay a kiss on top of his head. He looked up and I kissed him on the lips. 
+ 
+
+===
+
+I gave Marco the good news, and he promised to pass it along to Carmen and Tom. Once everything was set, I leaned over and gave Jay a kiss on top of his head. He looked up and I kissed him on the lips. 
 
  We had sex that night. He had done real good, so I felt like I owed him something. Plus, if everything went to plan, this might be his last crack at my body, his last chance to prove himself, his last opportunity before his access disappeared for good. If everything went to plan, someone else will be availing themselves in my hot body, and Jay will be left in the dust. 
 
@@ -6330,7 +6484,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© "Hey, I am just trying to keep this house clean. I know you're away from your girlfriend, so I know how tempting it must be to just whip it out and fire that thick cum all over the house. I just want to make sure you have a safe place to empty all that cum into whenever the need arises." Mom said. 
+ 
+
+===
+
+"Hey, I am just trying to keep this house clean. I know you're away from your girlfriend, so I know how tempting it must be to just whip it out and fire that thick cum all over the house. I just want to make sure you have a safe place to empty all that cum into whenever the need arises." Mom said. 
 
  "I'll be alright." I told her. "I think I have enough self-control to be able to hold back until I see Carmen again. I don't plan to spill a drop." 
 
@@ -6546,7 +6704,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© Mom let that statement hang in the air. Sure, I had cum on Carmen's face that first time, but I haven't done it since. It felt... wrong. Disrespectful, like Mom said. I loved her, and I didn't want to do something so arrogant, so controlling. Me and Carmen were in sync. I didn't need to do an anything like that anymore. 
+ 
+
+===
+
+Mom let that statement hang in the air. Sure, I had cum on Carmen's face that first time, but I haven't done it since. It felt... wrong. Disrespectful, like Mom said. I loved her, and I didn't want to do something so arrogant, so controlling. Me and Carmen were in sync. I didn't need to do an anything like that anymore. 
 
  "Okay, you're up." Mom said. I was shaken from my regret by her voice. A thought came to mind quickly. 
 
@@ -6718,7 +6880,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© She wasn't done yet. 
+ 
+
+===
+
+She wasn't done yet. 
 
  Before I could react, before I could move, before I could object, Mom made her move. She backed up so she stood on either side of my outstretched legs, placing the backs of her lower legs against the front edge of the deck chair. Then, she bent over, pointing her brazenly exposed ass at me as she placed put her hands on the arm rests. And then, before I could barely mutter a reply, Mom began to sit down. 
 
@@ -6838,7 +7004,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© The night after the pool incident, I realized I had to do something. My balls felt so full that I couldn't think straight. I could barely sleep. If I didn't take care of it, I would do something I would definitely regret. As soon as the hour was decent, I called up Carmen, desperate to meet up, desperate for relief. But fate was not on my side. 
+ 
+
+===
+
+The night after the pool incident, I realized I had to do something. My balls felt so full that I couldn't think straight. I could barely sleep. If I didn't take care of it, I would do something I would definitely regret. As soon as the hour was decent, I called up Carmen, desperate to meet up, desperate for relief. But fate was not on my side. 
 
  "Hey! What's up?" Carmen said. 
 
@@ -7136,7 +7306,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 07 ****** byTheTalkMan© These thoughts kept my mind busy all day. Dad said he'd be working late that night, so Mom was whipping up dinner for us before Dad got home. Mom was grilling up some steaks on the patio out back. I think even Mom knew something was up with me, as I had barely left my room all day. So, when I appeared on the patio and joined her outside, it wasn't the seductress Mom that I saw, it was just... Mom. 
+ 
+
+===
+
+These thoughts kept my mind busy all day. Dad said he'd be working late that night, so Mom was whipping up dinner for us before Dad got home. Mom was grilling up some steaks on the patio out back. I think even Mom knew something was up with me, as I had barely left my room all day. So, when I appeared on the patio and joined her outside, it wasn't the seductress Mom that I saw, it was just... Mom. 
 
  "Hey!" Mom said, looking back at me from in front of the grill. "You doin okay?" 
 
@@ -7276,7 +7450,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. 
 
  A few warnings before going forward. This story is a little different than my others, taking a different approach than I usually do, though at the end of the day, it veers more towards the type of story you have all come to know and expect from me. But, all the same general themes are present, with all my typical hallmarks. But this is a teasing story, and in my opinion, that type of story needs a slow build. So this complete story is quite long, practically novel-length, so keep that in mind. This story will be released in smaller chunks to make it more manageable. 
 
@@ -7414,7 +7592,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "Sure, you loved it. But it wasn't enough to break you, to tempt you into cheating. But...the one thing you couldn't resist was catching your own son eying you up like any other guy would, right?" I asked. Mom didn't reply. "That drove you wild, didn't it? Drove you more wild than anything, knowing even your son was affected by your charms? Admit it, you knew I wanted you, even before I confessed. Right?" I said. 
+ 
+
+===
+
+"Sure, you loved it. But it wasn't enough to break you, to tempt you into cheating. But...the one thing you couldn't resist was catching your own son eying you up like any other guy would, right?" I asked. Mom didn't reply. "That drove you wild, didn't it? Drove you more wild than anything, knowing even your son was affected by your charms? Admit it, you knew I wanted you, even before I confessed. Right?" I said. 
 
  "Yeah." Mom said, holding my gaze, her voice a harsh whisper as we stood inches from each other, feeling our lusty heat. "I always know when a guy's looking at me. Eyeing me up. You're no exception. I felt your eyes on my tits. I saw you stare into my cleavage. I felt your gaze on my ass. I always knew deep down you had a little crush. But I wasn't about to indulge a boy's filthy mind. Though I did take great pride knowing I was hotter than all of your girlfriends. I loved knowing you would be thinking about me when you were with them. I loved knowing I owned you like I owned every other guy I was with." I wasn't sure if Mom was lying or if this was the truth. But I didn't care. It sounded good. 
 
@@ -7568,7 +7750,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© I slid my bare ass up the bed, lying back against the headboard, my lean body exposed in front of Mom, my jutting cock pointing towards the heavens. Mom still sat on the edge of the bed, eying my body up lustfully. I couldn't get over seeing her naked. I mean, her big boobs were just right there, exposed to me. They looked so perfectly round and firm, and seeing her hard, throbbing nipples pointing at me was a thrilling sight. Mom stood up and stared me down. 
+ 
+
+===
+
+I slid my bare ass up the bed, lying back against the headboard, my lean body exposed in front of Mom, my jutting cock pointing towards the heavens. Mom still sat on the edge of the bed, eying my body up lustfully. I couldn't get over seeing her naked. I mean, her big boobs were just right there, exposed to me. They looked so perfectly round and firm, and seeing her hard, throbbing nipples pointing at me was a thrilling sight. Mom stood up and stared me down. 
 
  "I thought you were the big, bad stud, Tom. Now, look at you, lying there, letting me run the show. A real man would know how handle a woman. If you're trying to impress me, you are failing miserably." Mom sneered. 
 
@@ -7666,7 +7852,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© An onlooker would have seen an impressive sight. A sexy, hot-bodied older woman bent over on the bed, her bare ass pointed at the door, her huge boobs hanging down as she sucked the dick of a well built, well-hung, 20-year-old stud. 
+ 
+
+===
+
+An onlooker would have seen an impressive sight. A sexy, hot-bodied older woman bent over on the bed, her bare ass pointed at the door, her huge boobs hanging down as she sucked the dick of a well built, well-hung, 20-year-old stud. 
 
  "Ahhh, I'm close." I groaned out. Mom pulled her mouth off of me, strands of spit coating her lips and my cock. 
 
@@ -7796,7 +7986,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "Look at it, Tom. Really stare at it." Mom whispered. "Look at your mother's cunt. Cause that's what it is. A filthy fucking cunt. Most moms have nice, plump little pussies. Not me, I have a sleek, taut cunt, built for pleasure, built to take a dick. This is what you've wanted for so long, Tom. You owe this cunt so much. So... kiss it. Give your mom's cunt a nice, wet kiss... and use some tongue while you're at it." 
+ 
+
+===
+
+"Look at it, Tom. Really stare at it." Mom whispered. "Look at your mother's cunt. Cause that's what it is. A filthy fucking cunt. Most moms have nice, plump little pussies. Not me, I have a sleek, taut cunt, built for pleasure, built to take a dick. This is what you've wanted for so long, Tom. You owe this cunt so much. So... kiss it. Give your mom's cunt a nice, wet kiss... and use some tongue while you're at it." 
 
  I glanced at Mom as she stared me down, raising her eyebrows, daring me to eat her cunt. I didn't want her to push me around so easily. I mean, I had wanted to slow-play this sex, but admittedly, I had lost sight of the goal the minute I felt Mom's breasts smothering my face. And now, being inches from my own mother's cunt, smelling her scent, almost tasting her juices on my tongue, at that moment what Mom wanted me to do was exactly what I wanted. 
 
@@ -7930,7 +8124,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "Is that what you wanted? Is that it!? Can you handle that?" I growled down to Mom. Her eyes were closed again, but she ran her hands up my arms, then down my firm back, then took two firm handfuls of my bare ass and pulled me into her. 
+ 
+
+===
+
+"Is that what you wanted? Is that it!? Can you handle that?" I growled down to Mom. Her eyes were closed again, but she ran her hands up my arms, then down my firm back, then took two firm handfuls of my bare ass and pulled me into her. 
 
  "Just stay right there, babe. Stay right there." she gasped, squeezing my ass in her palms repeatedly. I looked down and wondered if I was succeeding. Was my cock too much for her? Was my cock making her lose control? 
 
@@ -8068,7 +8266,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "Fuck." Mom sighed softly, the picture I was painting clearly appealing to her. 
+ 
+
+===
+
+"Fuck." Mom sighed softly, the picture I was painting clearly appealing to her. 
 
  "And when a filthy cunt like yours gets filled to the brim with the thick, creamy load of a 20-year-old guy, there's only one possible outcome." I continued. "So, if you think me getting you pregnant, me knocking up my own Mom and putting the baby in your belly that should be given to Carmen, if you think that will scare me off... think again." 
 
@@ -8214,7 +8416,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© My mind was absorbed by the big pair of breasts smothering my face. Mom scrubbed her tits against my face, making sure her smooth flesh and breast- sweat rubbed against every part of my face. Her nipples scratched across me, criss-crossing my face as her smooth flesh molded over my features. My mouth gasped for breath whenever there were no breasts on my lips, pulling air through her cleavage and into my mouth. And the scent of her body, her smooth breasts and her light perfume, I don't think I would ever get it out of my nose. I don't know if I even wanted you, cause that scent was an aphrodisiac, sending a jolt of pleasure to my cock. 
+ 
+
+===
+
+My mind was absorbed by the big pair of breasts smothering my face. Mom scrubbed her tits against my face, making sure her smooth flesh and breast- sweat rubbed against every part of my face. Her nipples scratched across me, criss-crossing my face as her smooth flesh molded over my features. My mouth gasped for breath whenever there were no breasts on my lips, pulling air through her cleavage and into my mouth. And the scent of her body, her smooth breasts and her light perfume, I don't think I would ever get it out of my nose. I don't know if I even wanted you, cause that scent was an aphrodisiac, sending a jolt of pleasure to my cock. 
 
  My cock was getting re-moistened by Mom's slick, running juices that were dripping down my cock, coating my balls, practically coating my entire crotch. Mom worked up a good rhythm, using the bed's bounciness to aid her in riding my cock. She was riding my cock at a rapid pace, taking my entire length inside of her quivering sheathe. 
 
@@ -8364,7 +8570,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© I was close to coming. Very close to letting the pleasure overwhelm me. And like I said before, I wanted the best possible orgasm, which is why I pulled my mouth off her nipple and moved up to her ear. 
+ 
+
+===
+
+I was close to coming. Very close to letting the pleasure overwhelm me. And like I said before, I wanted the best possible orgasm, which is why I pulled my mouth off her nipple and moved up to her ear. 
 
  I thought about Carmen for a moment. She told me guys have broken her heart before. I always wondered if I would join that list. If I was just toying with her till something better came along. If there was something about her that made betraying her incredibly pleasurable. If she is the type of girl who always loses to better women, who always gets cheated on. If there was something hot about shutting her smart-ass up, making her care just long enough to be able to break her heart. Well, it was time to find out. I had to make it vicious and mean, to prove if my thoughts were accurate. 
 
@@ -8608,7 +8818,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "I'm gonna break you, Mom! I promise I will! I will give you the best sex you've ever had, and then walk away. That is my revenge! I will go back to Carmen, and you will be here, humbled... knowing you will never get this pleasure again!" I growled. 
+ 
+
+===
+
+"I'm gonna break you, Mom! I promise I will! I will give you the best sex you've ever had, and then walk away. That is my revenge! I will go back to Carmen, and you will be here, humbled... knowing you will never get this pleasure again!" I growled. 
 
  "YES! YES! I'M GONNA CUM! I'M GONNA FUCKING CUM!" Mom screamed out. I kept pile-driving my schlong into her, not slowing down. I reached forward, and grabbed the back of her head roughly, pushing her face into the mattress, grinding Mom's face into the bed as she screamed and moaned. 
 
@@ -8806,7 +9020,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "God, I love it." Mom said, thick cum stretching between her lips in bands. 
+ 
+
+===
+
+"God, I love it." Mom said, thick cum stretching between her lips in bands. 
 
  My cock just kept firing thick cum, coating her chin, her nose, and a few thick jets firing straight into her open mouth, coating her tongue. As I felt myself nearing the end, I pointed my cock down, firing a few bands of cum onto her smooth, jutting breasts. I coated her smooth, silky slopes in thick cum, a few strands of it interrupting the perfection that was her rack. I got cum on both of her nipples, and I landed a stream or two deep into her deep, cavernous cleavage. Finally, the tanks dried up, and I pulled the last, thick drop of cum out of my cock, the drop hanging on the tip of my cock for a few moments before dropping into her open, waiting mouth. 
 
@@ -8958,7 +9176,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© Mom was in the loveseat, legs crossed as she sipped a drink. Her eyes were on me, on my crotch, studying for my bulge. She looked up when she caught me looking at her. She guided my eyes down to her smooth, long legs, and I couldn't help but notice her round, sexy thighs pressed together. Her legs looked sooo shiny and smooth. Mom met my eyes with hers, and as she did, she uncrossed her legs and brought one of her feet onto the loveseat. And just like that, right in front of me, Mom was lewdly exposing her bare cunt to me under her slim skirt. 
+ 
+
+===
+
+Mom was in the loveseat, legs crossed as she sipped a drink. Her eyes were on me, on my crotch, studying for my bulge. She looked up when she caught me looking at her. She guided my eyes down to her smooth, long legs, and I couldn't help but notice her round, sexy thighs pressed together. Her legs looked sooo shiny and smooth. Mom met my eyes with hers, and as she did, she uncrossed her legs and brought one of her feet onto the loveseat. And just like that, right in front of me, Mom was lewdly exposing her bare cunt to me under her slim skirt. 
 
  Mom was facing me, this show meant solely for me, but her pussy was well in view of both of us. If Dad just turned slightly, he would see. He would know everything. But he didn't. He was clueless, as both me and Mom knew he would be. I stared wolfishly at Mom's cunt as she tried to tempt me back. I tried to look away, but all I did was lick my lips. 
 
@@ -9134,7 +9356,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© To a mom, any details about her son's penis shouldn't matter... unless it's really, really big. A son having a massive cock really shouldn't make a difference to a mom, but it totally does. And Tom, he was bigger than big. He was huge! It's not my fault that my son had a fucking cannon in his pants, and it's not my fault I wanted to fuck it. It was only natural. 
+ 
+
+===
+
+To a mom, any details about her son's penis shouldn't matter... unless it's really, really big. A son having a massive cock really shouldn't make a difference to a mom, but it totally does. And Tom, he was bigger than big. He was huge! It's not my fault that my son had a fucking cannon in his pants, and it's not my fault I wanted to fuck it. It was only natural. 
 
  It wasn't my fault I had gotten so invested in my son's sexual habits. Tom's cock was like magic, every thick, meaty inch designed to give a woman pleasure. I LOVED his cock! Loved, loved, LOVED his cock! I know a mom isn't supposed to be so smitten with her son's bulging meat. But it was SO BIG! I loved it. Mom's weren't supposed to have to deal with having a hot, sexy son with such a massive, bulging dong. It was a work of fucking art, ten thick, meaty inches of perfection. And I had experienced its full fury. I had experienced Tom's rock- hard dick in all my holes, fucking me ferociously, turning my previous curiosity at my son's size to a full-blown obsession. I couldn't stop thinking about it. It was my sexual muse. I couldn't stop thinking about that beautiful piece of meat and what it had done to me. I couldn't take my mind off his amazing length, each perfect inch more impressive than the last. Everything about it was just big. It was as thick as a soda can, the tip was massive, and the head flared out in just the right way... ooh, I just loved it. It was SO sexy! Even that tube along the underside was thick, allowing gallons of cum to travel up from his large, swollen, beautiful balls. Then, there was that nice, long slit at the end, the only interruption on that beautiful perfect fat tip. The way it always bubbled and boiled over with hot cum...mmm, I get wet just thinking about it. I would happily run my finger along that tip, collecting his leaking cum onto my finger, toying with it for a good long while, teasing him. And then there was the way his massive cock would swell up, stretching my cunt even more when it was about to cum inside me, feeling his iron-hard rod flexing as it pumped warm cum inside me... uhhh, even thinking about it was enough to make me melt. 
 
@@ -9254,7 +9480,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© "Get off of me!" Carmen said, shoving Tom away, stepping back away from him. And that was when she ran into me. 
+ 
+
+===
+
+"Get off of me!" Carmen said, shoving Tom away, stepping back away from him. And that was when she ran into me. 
 
  The back of her head hit one of my perky, jutting boobs. She jumped away and spun around, turning to face me. 
 
@@ -9422,7 +9652,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© It was all my fault. 
+ 
+
+===
+
+It was all my fault. 
 
  I had the original sin. I had lied to Tanya, not telling her about the broken condom, letting myself lose control inside her, getting her pregnant. It was an awful thing to do and in the end nothing good had come with it. I had spent twenty years in a marriage that was based on this lie, and even though it had its good points, this marriage was definitely missing that special something. And now my wife was cheating on me, carrying out an incestuous affair in front of me and I was stuck letting this happen, and footing the bill. 
 
@@ -9524,7 +9758,11 @@
 
  
 
- ****** You Couldn't Handle Me Ch. 08 ****** byTheTalkMan© We had traveled the world as well, our sojourns turning into sexual romps in far-off places. We had done things in public, and even done a few things with other women. Needless to say, the level of filth did not dissipate in the least between us. Things only got nastier. 
+ 
+
+===
+
+We had traveled the world as well, our sojourns turning into sexual romps in far-off places. We had done things in public, and even done a few things with other women. Needless to say, the level of filth did not dissipate in the least between us. Things only got nastier. 
 
  It was bliss. 
 

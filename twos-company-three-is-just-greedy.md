@@ -1,8 +1,14 @@
+Two's Company, Three Is Just Greedy
+===================================
 #1 
 
  
 
- ****** Two's Company, Three Is Just Greedy ****** bygeronimo_appleby© I walked into the busy pub, bought my drink and settled into a corner of the room to wait for my mate to arrive. He was late as usual and so I took the opportunity to take a quick look at the talent that was in the pub. It was a popular place and there were the usual crowd of sweet young things all displaying cleavage, body jewellery and ‘en vogue' body art. 
+ 
+
+===
+
+I walked into the busy pub, bought my drink and settled into a corner of the room to wait for my mate to arrive. He was late as usual and so I took the opportunity to take a quick look at the talent that was in the pub. It was a popular place and there were the usual crowd of sweet young things all displaying cleavage, body jewellery and ‘en vogue' body art. 
 
  Then I saw her. 
 
@@ -220,4 +226,8 @@
 
  
 
- ****** Two's Company, Three Is Just Greedy ****** bygeronimo_appleby© I wonder what happened next? Report_Story 
+ 
+
+===
+
+I wonder what happened next? Report_Story 

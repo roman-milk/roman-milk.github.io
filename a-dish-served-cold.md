@@ -1,8 +1,14 @@
+A Dish Served Cold
+==================
 #1 
 
  
 
- ****** A Dish Served Cold ****** byJust_Plain_Bob© I waved at the security guard as if I belonged there and gave him a cheery good morning as I headed for the elevators. I got on and hit the button for the third floor. When the door opened on three I quickly got off and went directly to the employees bulletin board. I took a piece of paper from my pocket and thumbtacked it to the board and then headed for the men's bathroom. Once inside I went into each of the four stalls and using a magic marker I wrote the same thing on all four of the stall walls. I used the stairwell to go up to the fourth floor where I repeated what I had done on three and then I took the stairwell down to the lobby. I had a huge smile on my face as I walked out the front door of the building. 
+ 
+
+===
+
+I waved at the security guard as if I belonged there and gave him a cheery good morning as I headed for the elevators. I got on and hit the button for the third floor. When the door opened on three I quickly got off and went directly to the employees bulletin board. I took a piece of paper from my pocket and thumbtacked it to the board and then headed for the men's bathroom. Once inside I went into each of the four stalls and using a magic marker I wrote the same thing on all four of the stall walls. I used the stairwell to go up to the fourth floor where I repeated what I had done on three and then I took the stairwell down to the lobby. I had a huge smile on my face as I walked out the front door of the building. 
 
  +++++++++++++++++++++++++++++++++++++ 
 

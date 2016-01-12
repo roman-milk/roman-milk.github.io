@@ -1,8 +1,14 @@
+That Damned Valentine's Day Card
+================================
 #1 
 
  
 
- ****** That Damned Valentine's Day Card ****** byTx_Tall_Tales© =============================== 
+ 
+
+===
+
+=============================== 
 
  He made her an offer, 7 years later she took him up on it. 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** That Damned Valentine's Day Card ****** byTx_Tall_Tales© I was trying to ignore her, walking through the house to the kitchen, starting the coffee. She followed, a step or two behind, trying to justify herself. 
+ 
+
+===
+
+I was trying to ignore her, walking through the house to the kitchen, starting the coffee. She followed, a step or two behind, trying to justify herself. 
 
  "I think I can help him. I have to if I can," she whined. 
 
@@ -444,7 +454,11 @@
 
  
 
- ****** That Damned Valentine's Day Card ****** byTx_Tall_Tales© She brought her lips to my ear. "We can tease her, but no penetration and no kissing. Understood?" 
+ 
+
+===
+
+She brought her lips to my ear. "We can tease her, but no penetration and no kissing. Understood?" 
 
  "Perfectly." 
 
@@ -716,7 +730,11 @@
 
  
 
- ****** That Damned Valentine's Day Card ****** byTx_Tall_Tales© "Not fair," she teased. "It's not a race." 
+ 
+
+===
+
+"Not fair," she teased. "It's not a race." 
 
  "I wanted to finish quickly, so I could watch you for a few more minutes," I told her. 
 
@@ -990,7 +1008,11 @@
 
  
 
- ****** That Damned Valentine's Day Card ****** byTx_Tall_Tales© "I'd love to. And yes, we can keep things under control." 
+ 
+
+===
+
+"I'd love to. And yes, we can keep things under control." 
 
  We did, and it was wonderful. After the shower she put on a pair of little boy- short panties, and I wore my boxers as we climbed into bed together. 
 
@@ -1352,7 +1374,11 @@
 
  
 
- ****** That Damned Valentine's Day Card ****** byTx_Tall_Tales© The door closed behind her, then Alyssa was guiding me back to the table. She giggled. "Just you and me again." 
+ 
+
+===
+
+The door closed behind her, then Alyssa was guiding me back to the table. She giggled. "Just you and me again." 
 
  I nodded, still having a hard time getting my head around things. 
 

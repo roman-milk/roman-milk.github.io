@@ -1,8 +1,14 @@
+After the Party
+===============
 #1 
 
  
 
- ****** After the Party ****** bygeronimo_appleby© just a shorty 'cos i was in the mood. hope you enjoy it. GA. 
+ 
+
+===
+
+just a shorty 'cos i was in the mood. hope you enjoy it. GA. 
 
  July. 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** After the Party ****** bygeronimo_appleby© Amanda moved and, with the tips of her fingers, eased Samuel's buttocks apart. The man paused in his vicious pounding. He looked over his shoulder and down at the blonde. 
+ 
+
+===
+
+Amanda moved and, with the tips of her fingers, eased Samuel's buttocks apart. The man paused in his vicious pounding. He looked over his shoulder and down at the blonde. 
 
  "Do her slowly, baby," Amanda grinned. "Not too hard now ... And, in a minute, it's my turn." 
 

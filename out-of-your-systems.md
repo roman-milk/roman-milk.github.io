@@ -1,8 +1,14 @@
+Out of Your Systems
+===================
 #1 
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for his help preparing this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
+ 
+
+===
+
+This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. Thanks to my biggest fan for his help preparing this story. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy. 
 
  ************* 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© "Jen, I don't think..." he began. 
+ 
+
+===
+
+"Jen, I don't think..." he began. 
 
  "Shane, listen. Don't tell me you haven't noticed how close she is getting with you. Touching your arm. Twirling her hair. Biting her lip. Bouncing and giggling. Begging her Daddy for his opinion." I replied, laying it out plainly. 
 
@@ -372,7 +382,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© "Yeah, I think so." Kaylee said. "I mean, haha..." she began, rearranging herself so her legs were under her and she was kneeling on the couch on them. "What did she think? That I was harboring some deep, dark, filthy crush on my dad?" she asked, holding her arms up, questioningly. This movement caused her bra-less breasts to jiggle. (Yes, I had noticed her lack of a bra. It was a hot and sweaty day, I was giving her a break.) 
+ 
+
+===
+
+"Yeah, I think so." Kaylee said. "I mean, haha..." she began, rearranging herself so her legs were under her and she was kneeling on the couch on them. "What did she think? That I was harboring some deep, dark, filthy crush on my dad?" she asked, holding her arms up, questioningly. This movement caused her bra-less breasts to jiggle. (Yes, I had noticed her lack of a bra. It was a hot and sweaty day, I was giving her a break.) 
 
  "I think so. I, uh, I know it's wrong, but yeah, she thought something weird was up." I replied. She reached up, wiping her forehead with the back of her hand. God, she looked sexy doing that. 
 
@@ -526,7 +540,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© She was inches away from me, still holding her top in place. We held each others' lusty gaze. 
+ 
+
+===
+
+She was inches away from me, still holding her top in place. We held each others' lusty gaze. 
 
  "Can I be your little slut, Daddy?" she asked, in the most teasingly girlish voice possible, wanting to have me completely wrapped around her finger before sealing the deal. 
 
@@ -644,7 +662,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© "Kaylee, I know it would be good, but... we can't, and you know that." I asserted, appealing to her better nature, feeling as if I had almost turned the tide and had finally wrested control from her. I had made a dent in her plans, but it seemed she was looking at this from a purely logical point of view. Trying to figure out how we could just look past this desire between us. She continued. 
+ 
+
+===
+
+"Kaylee, I know it would be good, but... we can't, and you know that." I asserted, appealing to her better nature, feeling as if I had almost turned the tide and had finally wrested control from her. I had made a dent in her plans, but it seemed she was looking at this from a purely logical point of view. Trying to figure out how we could just look past this desire between us. She continued. 
 
  "But how can we hide this? Dad, like I said, we both want this. You want your own daughter to suck you off, and quite frankly, I still really, really want to suck it. I have wanted to for a long time, and honestly, I am drooling just looking at it. You are hot for your daughter's body, as hot as I am for yours. If we just get up and walk away, there is still gonna be all this hot, sticky tension between us. Nothing will change. I will still be the little slut strutting her stuff in front of you. I will be shaking my ass, and my big boobs will be bouncing, and it will be just for you. The tension will be unbearable, but the only difference will be that you now know that I am willing to spread my legs for you in an instant. And the knowledge that you have a hot, little teenage slut with huge tits and a perfect ass who's willing to do bad things to you... that thought will keep your cock throbbing." Kaylee asserted. "And knowing that your eyes are gonna be on me and, like, me alone... and not Mom... my pussy is gonna be fucking soaked whenever we're together. I say we just fucking do it. Let's give Mom what she asked for and just get it on. Let's just do it, just fuck me wherever you want, hard as you want, get it all out of our systems, then just move on. You can't say you don't want this!" 
 
@@ -766,7 +788,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© "AAAHHHHH! FUCK!" she screamed out, her voice scratchy as she felt such primal pleasure. We both stayed pressed together, holding position, our bare, sweaty chests sliding against each other, her nipples scratching my chest. Her hands slid up my back, rubbing my tensed back as I rode out the pleasure of my daughter's cunt wrapped around every inch of my naked cock. 
+ 
+
+===
+
+"AAAHHHHH! FUCK!" she screamed out, her voice scratchy as she felt such primal pleasure. We both stayed pressed together, holding position, our bare, sweaty chests sliding against each other, her nipples scratching my chest. Her hands slid up my back, rubbing my tensed back as I rode out the pleasure of my daughter's cunt wrapped around every inch of my naked cock. 
 
  I let my body relax, letting my forehead rest against Kaylee's shoulder as I slid my cock around inside of her, swiveling it ever so slightly, holding all ten inches inside of her. 
 
@@ -874,7 +900,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© "Oh my God!" she moaned, almost violently. And before I knew it, her lips jumped to mine, kissing me savagely. She leaned back, pulling me down until I was unable to stay on the couch, both of us falling to the floor. Our limbs tangled as we rolled around, our mouths roughly kissing as we wrestled for control. Eventually I ended up on my back as she sat on top of me, the sweat on our chests mixing as made out, her tongue mashing into mine as she forced it in my mouth. Finally, she sat up straight, sliding her hands to my chest as she began to bounce again. 
+ 
+
+===
+
+"Oh my God!" she moaned, almost violently. And before I knew it, her lips jumped to mine, kissing me savagely. She leaned back, pulling me down until I was unable to stay on the couch, both of us falling to the floor. Our limbs tangled as we rolled around, our mouths roughly kissing as we wrestled for control. Eventually I ended up on my back as she sat on top of me, the sweat on our chests mixing as made out, her tongue mashing into mine as she forced it in my mouth. Finally, she sat up straight, sliding her hands to my chest as she began to bounce again. 
 
  "Oh my God, Daddy. Fuck me! Fuck me HARD!" she begged, my hands slapping onto her big, bouncing boobs again. "I need it so bad! I need you to fuck me! I want to cum on my daddy's big hard cock again!" 
 
@@ -1034,7 +1064,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© "Whatever you want." he whispered. She kissed him softly again. 
+ 
+
+===
+
+"Whatever you want." he whispered. She kissed him softly again. 
 
  "Well, now that we're agreed on that, my first command, hehehe... my first command is to rub Mom's face in it. She said she sensed tension between us before? Ha, for now on, we're gonna be slapping her across the face with that yummy sexual tension! Flirting, sexy comments, innuendo, all of it! I will wear skimpy clothes, show so much skin, and Mom will notice your eyes on me. On my body. Every time I slut it up and show off my tits and my ass, I want you to tell me how beautiful I am, how hot I look. And I want Mom to hear it. I want her to know how much you LOVE my body. And we will be fooling around every chance we get. Right in front of her, even. I am not gonna wait for her to leave the house to have you. We will be fucking with her in the house, her in the other room, her asleep. God, that sounds so hot! I want her to even see us fucking and not even put it together, the fucking dumbass! We will rub our hot fucking in her ugly face and she won't be able to put the pieces together. Ha Ha! This will be SO much fun, Daddy! Don't you agree? Don't you want to cheat right in front of Mommy with me?" she said, giving him another soft kiss. 
 
@@ -1224,7 +1258,11 @@
 
  
 
- ****** Out of Your Systems ****** byTheTalkMan© This was the type of thing that would have sent the alarms blaring in my head. But now, I just had to ignore it. Shane was right. She was well within her rights to wear something that skimpy. I just had to adjust to that. There was nothing wrong with it. Nothing wrong... 
+ 
+
+===
+
+This was the type of thing that would have sent the alarms blaring in my head. But now, I just had to ignore it. Shane was right. She was well within her rights to wear something that skimpy. I just had to adjust to that. There was nothing wrong with it. Nothing wrong... 
 
  Kaylee tested the limits of what she could wear all summer. Mini-skirts that redefined the word mini. Tops that seemed specifically made to show off her boobs. Skimpy underwear that always seemed to appear from under her clothes. And she seemed to suddenly become allergic to bras. I got used to seeing her boobs bouncing and jiggling all summer and her hard nipples dancing under her top. 
 

@@ -1,8 +1,14 @@
+Darrel's Hole Card
+==================
 #1 
 
  
 
- ****** Darrel's Hole Card ****** byJust_Plain_Bob© I pulled into the lot and parked and as I got out of the car I thought back to the last time Hal told me he was running late and that I should drive to the hotel and meet him there. I had to smile as the events of that night came back to me vividly. 
+ 
+
+===
+
+I pulled into the lot and parked and as I got out of the car I thought back to the last time Hal told me he was running late and that I should drive to the hotel and meet him there. I had to smile as the events of that night came back to me vividly. 
 
  +++++++++++++++++++ 
 
@@ -252,7 +258,11 @@
 
  
 
- ****** Darrel's Hole Card ****** byJust_Plain_Bob© When Bill came out of the bathroom he slid into my pussy and Darrel took my ass. They were working me hard when the room phone rang and I told them to stop. 
+ 
+
+===
+
+When Bill came out of the bathroom he slid into my pussy and Darrel took my ass. They were working me hard when the room phone rang and I told them to stop. 
 
  "It is probably Hal and I need to take the call." 
 

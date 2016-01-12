@@ -1,8 +1,14 @@
+Sarah and Eric
+==============
 #1 
 
  
 
- ****** Sarah and Eric ****** byGotBacon© I met Melissa at a frat party. It was my first one as a freshman at UCLA. I quickly discovered that I didn't belong here. I noticed one girl standing in the back, away from all the action. She looked totally bored and totally beautiful. I decided to see if she was a kindred spirit. I slowly moved in her direction. I stopped beside her. 
+ 
+
+===
+
+I met Melissa at a frat party. It was my first one as a freshman at UCLA. I quickly discovered that I didn't belong here. I noticed one girl standing in the back, away from all the action. She looked totally bored and totally beautiful. I decided to see if she was a kindred spirit. I slowly moved in her direction. I stopped beside her. 
 
  "So, what do you think of this party?" 
 
@@ -246,7 +252,11 @@
 
  
 
- ****** Sarah and Eric ****** byGotBacon© I did a quick little mental search of the single women I knew. A couple came to mind that I might explore later. Right now I just wanted to kick back, relax and let the past few days sink in. I mean, seriously, how many men ask their wife for a divorce on Monday and you both sign the papers on Thursday. If you hit me on the head with a hammer you would get the same reaction. 
+ 
+
+===
+
+I did a quick little mental search of the single women I knew. A couple came to mind that I might explore later. Right now I just wanted to kick back, relax and let the past few days sink in. I mean, seriously, how many men ask their wife for a divorce on Monday and you both sign the papers on Thursday. If you hit me on the head with a hammer you would get the same reaction. 
 
  That evening we started another cribbage tournament. We played ten games and I managed to win seven. She accused me of cheating. I told her it was the only way I could win. 
 
@@ -494,7 +504,11 @@
 
  
 
- ****** Sarah and Eric ****** byGotBacon© "I don't know yet. Richard already paid for our dresses and hired a wedding planner We go in next week for the final fitting." 
+ 
+
+===
+
+"I don't know yet. Richard already paid for our dresses and hired a wedding planner We go in next week for the final fitting." 
 
  "How about I just give you my Visa card." 
 
@@ -798,7 +812,11 @@
 
  
 
- ****** Sarah and Eric ****** byGotBacon© As I was driving back I got to thinking about her. I wished I had met her twenty five years ago. She was quite a woman. Beautiful, intelligent, loving and the best fuck I ever had. Sadly I knew we could never be anything but fuck buddies. You could see in her eyes that she loved Richard. They were a perfect match. Anyone that loved her enough to let her have a lover was truly a remarkable man. 
+ 
+
+===
+
+As I was driving back I got to thinking about her. I wished I had met her twenty five years ago. She was quite a woman. Beautiful, intelligent, loving and the best fuck I ever had. Sadly I knew we could never be anything but fuck buddies. You could see in her eyes that she loved Richard. They were a perfect match. Anyone that loved her enough to let her have a lover was truly a remarkable man. 
 
  ********************* 
 

@@ -1,8 +1,14 @@
+All-Inclusive Summer
+====================
 #1 
 
  
 
- ****** All-Inclusive Summer ****** byTx_Tall_Tales© ======================= 
+ 
+
+===
+
+======================= 
 
  Daughter and her friends think Daddy's been alone long enough. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** All-Inclusive Summer ****** byTx_Tall_Tales© My sweet Eve was coming in waves. I sat up and jabbed my cock home in mid squeal, and she screamed. Even in my lust shrouded mind, I heard the giggling. I looked to the side and saw Tina and my rotten daughter watching from the balcony. When they realized they'd been caught, they started clapping, and walked into the room. 
+ 
+
+===
+
+My sweet Eve was coming in waves. I sat up and jabbed my cock home in mid squeal, and she screamed. Even in my lust shrouded mind, I heard the giggling. I looked to the side and saw Tina and my rotten daughter watching from the balcony. When they realized they'd been caught, they started clapping, and walked into the room. 
 
  "Do her, Daddy," Wendy said, taking a seat next to the bed. At least she was moderately dressed, in her bikini. 
 
@@ -496,7 +506,11 @@
 
  
 
- ****** All-Inclusive Summer ****** byTx_Tall_Tales© I had tipped our server, and took Tina by the hand. "What did she say?" 
+ 
+
+===
+
+I had tipped our server, and took Tina by the hand. "What did she say?" 
 
  "She ... she said I looked scrumptious." 
 
@@ -808,7 +822,11 @@
 
  
 
- ****** All-Inclusive Summer ****** byTx_Tall_Tales© Wendy was still sitting behind me, while Fiona was stretched out on the opposite side, her hand still tugging away at my unresponsive cock. "Would it freak you out?" my surprising daughter asked. 
+ 
+
+===
+
+Wendy was still sitting behind me, while Fiona was stretched out on the opposite side, her hand still tugging away at my unresponsive cock. "Would it freak you out?" my surprising daughter asked. 
 
  "You and Tina?" 
 

@@ -1,8 +1,14 @@
+Pet Teacher
+===========
 #1 
 
  
 
- ****** Pet Teacher ****** bysilkstockingslover© Note 1: A special thank you goes to my two editors (Estragon and Steven B) who made this work A LOT better than it originally was. 
+ 
+
+===
+
+Note 1: A special thank you goes to my two editors (Estragon and Steven B) who made this work A LOT better than it originally was. 
 
  Note 2: All characters are at least 18 years old. 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** Pet Teacher ****** bysilkstockingslover© But just as I considered this, in came Beth, in a blue sundress and beige stockings. And... shoeless! I double and triple-checked, but it was Beth. 
+ 
+
+===
+
+But just as I considered this, in came Beth, in a blue sundress and beige stockings. And... shoeless! I double and triple-checked, but it was Beth. 
 
  When I looked up at her, she quickly looked down as she sat down in her regular front row seat. Heather came in a few seconds later wearing cowboy boots and Karen quickly followed. She too was wearing boots. I sat at my desk and tried to make a connection between quiet, shy, reserved Beth and outspoken, trouble- making Julie. No matter how much I continued to try and make a connection, none came. 
 
@@ -362,7 +372,7 @@
 
  "Ok," she said, with a tone that seemed disappointed, and left without another word. 
 
- Julie watched Beth leave and said, "They grow up so fast, don't they?| 
+ Julie watched Beth leave and said, "They grow up so fast, don't they? 
 
  It seemed like a rhetorical question, so I did not respond. 
 
@@ -580,7 +590,11 @@
 
  
 
- ****** Pet Teacher ****** bysilkstockingslover© "I can't wait," I said, my pussy leaking pussy juice. 
+ 
+
+===
+
+"I can't wait," I said, my pussy leaking pussy juice. 
 
  "What do you want to do right now, my pet?" she asked, knowing the answer I was about to give. 
 
@@ -648,7 +662,11 @@
 
  
 
- ****** Pet Teacher: Five Tasks ****** bysilkstockingslover© NOTE 1: I highly recommend you read part one if you haven't already. But to refresh your memory, or entice you to go read part one, here is a quite summary. In part one a happily married teacher is seduced by one of her tough pretty students and slowly her long lost and hidden sexual naughtiness is rekindled. In the end, she submits to the grade 12 eighteen year old and becomes her pet. A plot twist at the end adds a second woman... 
+ 
+
+===
+
+NOTE 1: I highly recommend you read part one if you haven't already. But to refresh your memory, or entice you to go read part one, here is a quite summary. In part one a happily married teacher is seduced by one of her tough pretty students and slowly her long lost and hidden sexual naughtiness is rekindled. In the end, she submits to the grade 12 eighteen year old and becomes her pet. A plot twist at the end adds a second woman... 
 
  NOTE 2: Part one was strictly a lesbian tale. Part 2 includes toys, a glory hole and interracial sex. If any of that offends you please stop reading now. Part 3 will return with the continuation of her final lesbian submission. 
 
@@ -916,7 +934,11 @@
 
  
 
- ****** Pet Teacher: Five Tasks ****** bysilkstockingslover© I know she used the Mrs. Walker part as part of her dominance game, but I no longer cared. Instead, I said, "Good, because I am famished." 
+ 
+
+===
+
+I know she used the Mrs. Walker part as part of her dominance game, but I no longer cared. Instead, I said, "Good, because I am famished." 
 
  My hunger was about to be filled. A small, but erect cock had popped into view. I walked over to the wall, sat on the stool and easily took the small five inch cock in my mouth. I tried to replicate Julie's fast paced cocksucking, knowing I had at least two more to do. I also used my special saliva trick, where I make sure I have a fair amount of saliva in my mouth. This seems to make guys come quicker. After only a couple of minutes of focused sucking, I felt the first load of warm cum explode down my throat. For a small cock, he could sure cum. Once I had retrieved all his cum, his shrivelling cock disappeared and I stayed sitting waiting my next meal. 
 
@@ -1186,7 +1208,11 @@
 
  
 
- ****** Pet Teacher: Five Tasks ****** bysilkstockingslover© "Scout's honour," he said. 
+ 
+
+===
+
+"Scout's honour," he said. 
 
  "Ok, I will do it. What time?" 
 
@@ -1304,7 +1330,11 @@
 
  
 
- ****** Pet Teacher: Lesbian Club ****** bysilkstockingslover© PET TEACHER: 6th Task 
+ 
+
+===
+
+PET TEACHER: 6th Task 
 
  Summary: Teacher Pet must eat 3 girls at lesbian club. 
 
@@ -1582,7 +1612,11 @@
 
  
 
- ****** Pet Teacher: Lesbian Club ****** bysilkstockingslover© "Oh my God, yes. But then I was in the closet and I never even remotely thought you may be bi," she explained, her tongue in my ear. 
+ 
+
+===
+
+"Oh my God, yes. But then I was in the closet and I never even remotely thought you may be bi," she explained, her tongue in my ear. 
 
  I moaned, distracted by her hot breath in my ear, "I didn't know I was bi then either." 
 
@@ -1626,7 +1660,7 @@
 
  I moved to her neck and covered her with light nibbles, not enough to leave a mark, but enough for her to know I was there. Her breathing continued to increase. I moved to her ear, and whispered, "You want to be my pet, don't you Sandra?" 
 
- "|Desperately," she moaned, my knee gently graving her pussy. 
+ "Desperately," she moaned, my knee gently graving her pussy. 
 
  "You want to obey me?" I pushed. 
 
@@ -1694,7 +1728,11 @@
 
  
 
- ****** Pet Teacher: Lesbian Toy Party ****** bysilkstockingslover© PET TEACHER: Lesbian Toy Party 
+ 
+
+===
+
+PET TEACHER: Lesbian Toy Party 
 
  Note 1: Although not absolutely necessary, I recommend you read the first three parts first: Pet Teacher, Pet Teacher: Five Tasks, and Pet Teacher: Lesbian Club. If time does not permit, here is a very, very brief primer. A teacher is seduced by an eighteen year old student and after submitting to her she is forced to complete seven tasks to prove herself worthy of being a pet...this episode is the seventh and final task. 
 
@@ -1864,7 +1902,11 @@
 
  
 
- ****** Pet Teacher: Lesbian Toy Party ****** bysilkstockingslover© Jenna exclaimed, "I think she likes it." The women roared with laughter. "Let's take a ten minute break to fill up your glasses, go tinkle, have an orgasm, whatever. When we come back I will show you wonderful ladies a few high powered anal toys that will change your life." 
+ 
+
+===
+
+Jenna exclaimed, "I think she likes it." The women roared with laughter. "Let's take a ten minute break to fill up your glasses, go tinkle, have an orgasm, whatever. When we come back I will show you wonderful ladies a few high powered anal toys that will change your life." 
 
  I winced slightly, as I assumed I would be having my ass used soon. I didn't have long to consider my impending anal assault as I heard, "Teacher. Get over here and get me off." 
 

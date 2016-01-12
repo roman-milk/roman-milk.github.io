@@ -1,8 +1,14 @@
+Coming Home For Christmas
+=========================
 #1 
 
  
 
- ****** Coming Home For Christmas ****** byJust_Plain_Bob© Following family tradition David, as the youngest, said grace as the rest of the family sat with heads bowed and thought about what they were most thankful for. Well, almost everyone had their head down; mine was slightly elevated and my eyes were fixed on the spot halfway down the table where David's wife Shelly was sitting. Shelly was looking back at me with a small smile and as our eyes met she winked at me. I wondered what she was thinking; what she was being thankful for. I knew what I was thinking. I was thankful that my family was able to come together for this holiday, and that they were all in good health and leading happy lives. I was especially thankful for the two hours of wild sex I'd shared with Shelly when we had been alone in the house the previous day. 
+ 
+
+===
+
+Following family tradition David, as the youngest, said grace as the rest of the family sat with heads bowed and thought about what they were most thankful for. Well, almost everyone had their head down; mine was slightly elevated and my eyes were fixed on the spot halfway down the table where David's wife Shelly was sitting. Shelly was looking back at me with a small smile and as our eyes met she winked at me. I wondered what she was thinking; what she was being thankful for. I knew what I was thinking. I was thankful that my family was able to come together for this holiday, and that they were all in good health and leading happy lives. I was especially thankful for the two hours of wild sex I'd shared with Shelly when we had been alone in the house the previous day. 
 
  +++++++++++++++++++++++++++++++++++++++++ 
 

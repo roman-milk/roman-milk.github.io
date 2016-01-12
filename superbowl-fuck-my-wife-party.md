@@ -1,8 +1,14 @@
+SuperBowl &quot;Fuck my Wife&quot; Party
+========================================
 #1 
 
  
 
- ****** SuperBowl &quot;Fuck my Wife&quot; Party ****** byNonStopFunGuy© MY WIFE LINDSAY SHRIKED "I WANNA GET FUCKED SO BAAAAD" while her wet cunt spasmed around my penis. I held her hips tighter, ramming my pelvis into her butt, shoving my cock deeper into that quivering juicy vagina from behind. Her fourth orgasm of our bedtime fucking was the hardest of the night, making her shiver and shake and gasp for air. It was delicious. It put me over the edge, and I shot my load into her cunt. 
+ 
+
+===
+
+MY WIFE LINDSAY SHRIKED "I WANNA GET FUCKED SO BAAAAD" while her wet cunt spasmed around my penis. I held her hips tighter, ramming my pelvis into her butt, shoving my cock deeper into that quivering juicy vagina from behind. Her fourth orgasm of our bedtime fucking was the hardest of the night, making her shiver and shake and gasp for air. It was delicious. It put me over the edge, and I shot my load into her cunt. 
 
  Drained, her body fell away from my penis onto the bedsheets. Her long dark, reddish hair was matted from all the sweat, tangled from me pulling at it. Her 34B-cup tits glistened with perspiration, her knobby pink nipples pointing straight out for the last 90 minutes. And her shaved pussy, over her long legs, was smeared in a mixture of her pussyjuice, my cum and our sweat. That 5-foot- 6 frame of hers, a divine size 6, smelled like a gymnasium from our animal fucking. 
 
@@ -88,7 +94,11 @@
 
  
 
- ****** SuperBowl &quot;Fuck my Wife&quot; Party ****** byNonStopFunGuy© By now everyone is thinking I'm some kind of deformed mutant, having been around this slut fucking so many cocks all night but not getting into the action myself. In truth, my underwear is soiled from all the precum I've leaked. But to prove I'm no weirdo, I take her naked body back into the TV room with Bob and Earl, followed by blonde Chris. I pop into the VCR a videotape she and I made a couple weekends ago -- with me fucking a horny 19 year old blonde coed Linsday and I found on the Internet, while my horny wife helped me by licking the girl's clitty and sitting on her face. The guys were duly impressed, and with them watching the video I got naked with all of them them, so now Lindsay was surrounded by four hard pricks again. 
+ 
+
+===
+
+By now everyone is thinking I'm some kind of deformed mutant, having been around this slut fucking so many cocks all night but not getting into the action myself. In truth, my underwear is soiled from all the precum I've leaked. But to prove I'm no weirdo, I take her naked body back into the TV room with Bob and Earl, followed by blonde Chris. I pop into the VCR a videotape she and I made a couple weekends ago -- with me fucking a horny 19 year old blonde coed Linsday and I found on the Internet, while my horny wife helped me by licking the girl's clitty and sitting on her face. The guys were duly impressed, and with them watching the video I got naked with all of them them, so now Lindsay was surrounded by four hard pricks again. 
 
  With the homemake porn tape running on the TV, we go at my wife again. I start off, having her on her fours and fucking her cunt and ass with my throbbing penis. Chris comes over for a blowjob while she fucked me. Then we switched, Chris fucking her, me in her mouth. I pull out -- I mean, I'd been hard since my blowjob about about 4:30, hours ago -- and cummed all over her face and hair, and immediately got replaced by Earl. Earl snarled down at my wife, ordering her to suck his big black dick, and he and I watched it disappear down her greedy throat. Meanwhile Chris was hammering Linsday from behind, then Chris pulled out and slid underneath her body to fuck her femaile-on-top. Linsday had such a workmanlike, serious look on her face; she was all about the business of getting fucked, that's it. With her on top, Bob now pushed her forward to lean horizontally over Chris, giving space for Bob to kneel behind her and fuck her ass. 
 

@@ -1,8 +1,14 @@
+A Trip to Clintonville
+======================
 #1 
 
  
 
- ****** A Trip to Clintonville ****** byJust_Plain_Bob© This is a wimp story in that the wife cheated, the husband found out and did nothing about it. If you don't like this kind of story just move on to the next one and save yourself from turning purple with rage and wasting your valuable time writing silly comments that will be ignored anyway. That won't stop Harry, but who pays any attention to him anyway. 
+ 
+
+===
+
+This is a wimp story in that the wife cheated, the husband found out and did nothing about it. If you don't like this kind of story just move on to the next one and save yourself from turning purple with rage and wasting your valuable time writing silly comments that will be ignored anyway. That won't stop Harry, but who pays any attention to him anyway. 
 
  +++++++++++++++++++++++++++++++ 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** A Trip to Clintonville ****** byJust_Plain_Bob© No I didn't. 
+ 
+
+===
+
+No I didn't. 
 
  I believe she was telling the truth when she told CP that she loved me and she had never screwed another man since marrying me and didn't intend to. I decided that a couple of blow jobs on old boyfriends to relive a memory weren't worth throwing away nine years of a pretty good marriage. I wasn't brain dead however and I would keep a closer eye on Nan in the future just in case her 'reunion indiscretion' lit a fire she decided that she wanted to feed. 
 

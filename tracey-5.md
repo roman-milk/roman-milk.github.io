@@ -1,8 +1,14 @@
+Tracey
+======
 #1 
 
  
 
- ****** Tracey ****** byJust_Plain_Bob© "An old farmer was pulled over by a young state trooper for speeding. The trooper, fresh on the job, decided to throw his weight around and he started lecturing the farmer about his speed. He did his best to make the farmer uncomfortable but eventually got around to writing the ticket. 
+ 
+
+===
+
+"An old farmer was pulled over by a young state trooper for speeding. The trooper, fresh on the job, decided to throw his weight around and he started lecturing the farmer about his speed. He did his best to make the farmer uncomfortable but eventually got around to writing the ticket. 
 
  As he wrote he had to swat at several flies that were buzzing around his head. 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** Tracey ****** byJust_Plain_Bob© "Interfere?" 
+ 
+
+===
+
+"Interfere?" 
 
  "What if when they found me and I was obviously pregnant and they wanted to know if it was theirs? What if they wanted a DNA test? And before you even ask not one of them was any better than you and only one of them was bigger and he wasn't longer just bigger around. And yes I enjoyed it. It was sex and I like sex and you know that from as much as I give you." 
 
@@ -512,7 +522,11 @@
 
  
 
- ****** Tracey ****** byJust_Plain_Bob© "I looked around for some one who resembled you and settled on Boyd. I hid the fact that I was married and over time I let him seduce me. I say over time because I wasn't going to let him score until my fertile time. A week before my most fertile time I gave it up and then we kept at it until I knew I was pregnant. A couple of things happened during that time. I decided that I wanted all my kids to have the same father and that meant that I'd have to keep Boyd around and the only way I could do that was keep seeing him. So even after I got pregnant we still got together once or twice a week. 
+ 
+
+===
+
+"I looked around for some one who resembled you and settled on Boyd. I hid the fact that I was married and over time I let him seduce me. I say over time because I wasn't going to let him score until my fertile time. A week before my most fertile time I gave it up and then we kept at it until I knew I was pregnant. A couple of things happened during that time. I decided that I wanted all my kids to have the same father and that meant that I'd have to keep Boyd around and the only way I could do that was keep seeing him. So even after I got pregnant we still got together once or twice a week. 
 
  "The other thing that happened is I realized that even if you did accept the baby I knew you well enough to know that you would go looking for my lover. I needed to protect Boyd because I needed him for a couple more babies so just before I told you I was pregnant I broke up with Boyd, let Marvin pick me up and do me until I saw what you were going to do. When Marvin was attacked and beaten I was pretty sure that you were the one who did it. All the bull-crap over Marvin's name was to burn into your mind that Marvin was my lover and you wouldn't think of anyone else. After Marvin was out of the way I got back together with Boyd. 
 
@@ -692,7 +706,11 @@
 
  
 
- ****** Tracey ****** byJust_Plain_Bob© "So you have a clear field" she said. 
+ 
+
+===
+
+"So you have a clear field" she said. 
 
  "Only one small problem with that. I'm still married." 
 
@@ -976,7 +994,11 @@
 
  
 
- ****** Tracey ****** byJust_Plain_Bob© "You might not have. I was young and not yet set in my ways and I might have gone along." 
+ 
+
+===
+
+"You might not have. I was young and not yet set in my ways and I might have gone along." 
 
  "The reason we are here" Darnell said, "Is to see if it is too late. You both love each other and it would be a crying shame to see the two of you split up." 
 

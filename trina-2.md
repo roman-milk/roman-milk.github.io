@@ -1,8 +1,14 @@
+Trina
+=====
 #1 
 
  
 
- ****** Trina ****** byJust_Plain_Bob© I met Trina the first day of class as a freshman at Eastern Michigan University. We bumped into each other in the hallway and she dropped a couple of books. I looked her over as I helped her pick up her books and saw that she was a great looking girl. I followed her into the classroom and when she picked a seat I took the one beside her. 
+ 
+
+===
+
+I met Trina the first day of class as a freshman at Eastern Michigan University. We bumped into each other in the hallway and she dropped a couple of books. I looked her over as I helped her pick up her books and saw that she was a great looking girl. I followed her into the classroom and when she picked a seat I took the one beside her. 
 
  We introduced ourselves as we waited for the instructor to show up and I found out that she was eighteen, from Romulus, and hadn't yet declared a major. She found out that I was twenty-two, originally from Ypsilanti, but was just out of the Navy after putting in four years right out of high school. 
 
@@ -232,7 +238,11 @@
 
  
 
- ****** Trina ****** byJust_Plain_Bob© Friday was one of my days off from work so I used Friday to go over Trina's car. I replaced her shock absorbers and had to do a complete reline on her brakes including the replacement of her right front brake drum. I told Trina I would bring the car back to her on Saturday, but I finished with it much earlier than I expected. I got a buddy to follow me and I drove over to her apartment planning to drop her keys in her mail slot along with a note. 
+ 
+
+===
+
+Friday was one of my days off from work so I used Friday to go over Trina's car. I replaced her shock absorbers and had to do a complete reline on her brakes including the replacement of her right front brake drum. I told Trina I would bring the car back to her on Saturday, but I finished with it much earlier than I expected. I got a buddy to follow me and I drove over to her apartment planning to drop her keys in her mail slot along with a note. 
 
  I pulled into the apartment's parking lot just in time to see Trina's apartment door open and Trina come out of her apartment with a man. A man with a brush cut and a mustache. Trina was dressed for a night out on the town in a little black dress and heels. The two walked to a car and got in and Trina slid over next to him and they kissed. The guy started the car and they drove out of the lot. 
 
@@ -408,7 +418,11 @@
 
  
 
- ****** Trina ****** byJust_Plain_Bob© "What is it?" 
+ 
+
+===
+
+"What is it?" 
 
  "I missed my period and I'm never ever late. I went to the store this morning and bought one of those self test kits. I'm pregnant. You are going to be a daddy." 
 

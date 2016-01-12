@@ -1,8 +1,14 @@
+Falling Prey
+============
 #1 
 
  
 
- ****** Falling Prey ****** bygeronimo_appleby© This is a tentative, possible first chapter of a series. Further additions are dependent on any feedback this piece may receive. 
+ 
+
+===
+
+This is a tentative, possible first chapter of a series. Further additions are dependent on any feedback this piece may receive. 
 
  Thanks to those who took the time to cast an eye over what follows. I listened to suggestions and took what I agreed with, so if you don't like this effort, then the blame lies solely with me. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Falling Prey ****** bygeronimo_appleby© Oh, and poor Bobby. Of course I'll have to show Bobby how filthy his wife has become. I'll have to show him how she begged. Eventually of course; not too soon; I want to enjoy her, to have my fill. Then Bobby can have her back, if he wants her by then, although I doubt he will. 
+ 
+
+===
+
+Oh, and poor Bobby. Of course I'll have to show Bobby how filthy his wife has become. I'll have to show him how she begged. Eventually of course; not too soon; I want to enjoy her, to have my fill. Then Bobby can have her back, if he wants her by then, although I doubt he will. 
 
  *** 
 
@@ -218,7 +228,11 @@
 
  
 
- ****** Falling Prey Ch. 02 ****** bygeronimo_appleby© Thank you for the positive response to the first chapter, ergo, as threatened, here's the second. Thank you to those who made suggestions and were actively involved in the creative - *snerk* creative? - process. You know who you are, UKOD, and there was even encouragement from the USA for which I am grateful. Right, before I get all emotional like a celeb at the Oscars I'm outta here. Enjoy, I hope. 
+ 
+
+===
+
+Thank you for the positive response to the first chapter, ergo, as threatened, here's the second. Thank you to those who made suggestions and were actively involved in the creative - *snerk* creative? - process. You know who you are, UKOD, and there was even encouragement from the USA for which I am grateful. Right, before I get all emotional like a celeb at the Oscars I'm outta here. Enjoy, I hope. 
 
  * 
 
@@ -366,7 +380,11 @@
 
  
 
- ****** Falling Prey Ch. 02 ****** bygeronimo_appleby© *** 
+ 
+
+===
+
+*** 
 
  Helen, realising she had displeased him reacted to Matthew's look by instantly breaking contact, redoubling her efforts against Clayton's pounding rhythm. Clayton, mistaking Helen's efforts at placating Matthew, took this as proof of his own prowess and concentrated his efforts by slamming harder against Helen's body, hammering at her mound with merciless vigour. 
 

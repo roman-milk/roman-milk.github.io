@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Linda
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Linda ****** byJust_Plain_Bob© My deepest, darkest fantasy has always been to watch my wife fuck another man. I wanted to watch her in the throes of passion, clamping her legs around and digging her nails into someone else. I finally got up the courage to mention it to her and she laughed at me, "Get serious Vern." 
+ 
+
+===
+
+My deepest, darkest fantasy has always been to watch my wife fuck another man. I wanted to watch her in the throes of passion, clamping her legs around and digging her nails into someone else. I finally got up the courage to mention it to her and she laughed at me, "Get serious Vern." 
 
  Even though she wouldn't admit it the idea did turn her on. I could tell she was turned on by how wildly she would fuck me after I mentioned it. In a one hundred and eighty-degree turnabout Linda began to tell me her fantasies. They mostly concerned men with huge cocks, sex with Latinos and gangbangs with blacks. After a couple of weeks of listening to her fantasies I asked her if she wanted to try them for real. I reminded her of my fantasy and suggested that we could combine our fantasies and each of us would get what we wanted. 
 

@@ -1,8 +1,14 @@
+Patty Screws Up
+===============
 #1 
 
  
 
- ****** Patty Screws Up ****** byJust_Plain_Bob© It started with an innocent request: "Feel up to going to a party with me and having a drink or two?" 
+ 
+
+===
+
+It started with an innocent request: "Feel up to going to a party with me and having a drink or two?" 
 
  It wasn't the first time that Janis had asked me that, but I'd usually said no in the past. Janis wasn't looking to hustle me, she just wanted company at another affair that she really didn't want to go to anyway. Janis, my boss, was a political animal and as such she always felt the need to put in an appearance at parties and events that our customers and suppliers put on. 
 
@@ -298,7 +304,11 @@
 
  
 
- ****** Patty Screws Up ****** byJust_Plain_Bob© ++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++ 
 
  I finally fell asleep, but it was a fitful sleep and I tossed and turned a lot. I had some bad dreams about Patty. I kept seeing her and Randy. My mind relived everything way out that Patty and I had ever done, only it wasn't me that I saw doing those things with Patty, it was Randy. 
 

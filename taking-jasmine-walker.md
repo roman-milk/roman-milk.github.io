@@ -1,8 +1,14 @@
+Taking Jasmine Walker
+=====================
 #1 
 
  
 
- ****** Taking Jasmine Walker ****** bysilkstockingslover© Summary: On summer holidays Jasmine is seduced by a young Mistress. 
+ 
+
+===
+
+Summary: On summer holidays Jasmine is seduced by a young Mistress. 
 
  Note 1: This is a summer 2012 contest story so please vote. 
 
@@ -244,7 +250,11 @@
 
  
 
- ****** Taking Jasmine Walker ****** bysilkstockingslover© The waitress gave a knowing smirk and asked, "Would there be anything else?" 
+ 
+
+===
+
+The waitress gave a knowing smirk and asked, "Would there be anything else?" 
 
  Dana asked, trying to build onto the humiliation she was confident Jasmine craved, "Slut, will there be anything else?" 
 
@@ -516,7 +526,11 @@
 
  
 
- ****** Taking Jasmine Walker ****** bysilkstockingslover© Seeing the hunger and awe in Jasmine's facial expression, Dana purred, "Go ahead my pet, play with my breasts." 
+ 
+
+===
+
+Seeing the hunger and awe in Jasmine's facial expression, Dana purred, "Go ahead my pet, play with my breasts." 
 
  Jasmine cupped Dana's breasts in her hand. Her awe was obvious as she said, "They are so heavy, how do you carry such a load?" 
 
@@ -828,7 +842,11 @@
 
  
 
- ****** Taking Jasmine Walker ****** bysilkstockingslover© Finally Dana pulled the toy out of her cunt and her pet and leaned in for a kiss. The kiss was tender and passionate. A minute later Dana stood up and teased, "You can't reach multiple orgasms, hey?" 
+ 
+
+===
+
+Finally Dana pulled the toy out of her cunt and her pet and leaned in for a kiss. The kiss was tender and passionate. A minute later Dana stood up and teased, "You can't reach multiple orgasms, hey?" 
 
  Jasmine replied still in shock, "I can't believe you made it happen." 
 

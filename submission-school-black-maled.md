@@ -1,8 +1,14 @@
+Submission School: Black-Maled
+==============================
 #1 
 
  
 
- ****** Submission School: Black-Maled ****** bysilkstockingslover© SUMMARY: White teacher is blackmailed by black student with big cock. 
+ 
+
+===
+
+SUMMARY: White teacher is blackmailed by black student with big cock. 
 
  Thanks: To goamz86, Robert, and Wayne. 
 
@@ -300,7 +306,11 @@
 
  
 
- ****** Submission School: Black-Maled ****** bysilkstockingslover© Beth, a student, asked, "Mrs. Barber, may I go to the washroom?" 
+ 
+
+===
+
+Beth, a student, asked, "Mrs. Barber, may I go to the washroom?" 
 
  "Yes," I answered, barely holding in a moan, my voice disconcertingly high, which caused much of the class to look up from their work. 
 
@@ -610,7 +620,11 @@
 
  
 
- ****** Submission School: Black-Maled ****** bysilkstockingslover© "You obeyed all my orders," Jordan said approvingly. "I think you will make a very good teacher pet." 
+ 
+
+===
+
+"You obeyed all my orders," Jordan said approvingly. "I think you will make a very good teacher pet." 
 
  "Please don't call me that," I protested. 
 

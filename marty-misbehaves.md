@@ -1,8 +1,14 @@
+Marty Misbehaves
+================
 #1 
 
  
 
- ****** Marty Misbehaves ****** byJust_Plain_Bob© It was a large project and it had been occupying all my time for almost a year and when I say all my time I mean just that. I worked until late at night and I brought work home with me to do on weekends. The survival of the company I worked for, and by extension, my survival, depended on the project being finished on time and on or under budget. 
+ 
+
+===
+
+It was a large project and it had been occupying all my time for almost a year and when I say all my time I mean just that. I worked until late at night and I brought work home with me to do on weekends. The survival of the company I worked for, and by extension, my survival, depended on the project being finished on time and on or under budget. 
 
  My wife was not happy. 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** Marty Misbehaves ****** byJust_Plain_Bob© I turned back to the booth and said, "There is a table over there where we can talk" and I held out my hand. She took it and I helped her out of the booth and walked her to the table and we sat down. 
+ 
+
+===
+
+I turned back to the booth and said, "There is a table over there where we can talk" and I held out my hand. She took it and I helped her out of the booth and walked her to the table and we sat down. 
 
  "It looks like I interrupted your evening." 
 
@@ -424,7 +434,11 @@
 
  
 
- ****** Marty Misbehaves ****** byJust_Plain_Bob© I stared at her for a couple of moments and then I said, "One more thing. I know that this is irrational as hell, but for some strange reason I never looked on your gangbangs as you cheating on me, but when you fucked whoever it was who brought you home tonight in our own driveway that to me was cheating. The bottom line Marty - leave me alone. I'll pack in the morning and be out of here by noon." 
+ 
+
+===
+
+I stared at her for a couple of moments and then I said, "One more thing. I know that this is irrational as hell, but for some strange reason I never looked on your gangbangs as you cheating on me, but when you fucked whoever it was who brought you home tonight in our own driveway that to me was cheating. The bottom line Marty - leave me alone. I'll pack in the morning and be out of here by noon." 
 
  "Billy please, don't do this to me." 
 

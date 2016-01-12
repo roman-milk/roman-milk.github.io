@@ -1,8 +1,14 @@
+David and Jessica
+=================
 #1 
 
  
 
- ****** David and Jessica ****** byGotBacon© David is a big strapping 19 year old. He stands 6ft 4 in tall. He weighs 215 pounds. He has brown hair and hazel eyes. He stays in shape working construction. His cock is 7 in. soft. 
+ 
+
+===
+
+David is a big strapping 19 year old. He stands 6ft 4 in tall. He weighs 215 pounds. He has brown hair and hazel eyes. He stays in shape working construction. His cock is 7 in. soft. 
 
  He has a steady 18 year old girlfriend, but she is more like a friend with benefits. They aren't planning on getting married. They just enjoy each other's company and they have good sex. They are careful to use condoms. 
 
@@ -386,7 +392,11 @@
 
  
 
- ****** David and Jessica ****** byGotBacon© "Oh god. That was so good. Your scent and your hot cum is so good. I love it. You came right in my cervix. I could feel you pumping me full. So good. So good." 
+ 
+
+===
+
+"Oh god. That was so good. Your scent and your hot cum is so good. I love it. You came right in my cervix. I could feel you pumping me full. So good. So good." 
 
  "We just keep getting better and better. That was so hot. Knowing my cum went into your womb made it so much better. Breeding you gives me the best feeling ever. 
 

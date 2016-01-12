@@ -1,8 +1,14 @@
+The Trophy Wife
+===============
 #1 
 
  
 
- ****** The Trophy Wife ****** bygeronimo_appleby© OK, in this one, Tony is a rich old man with a hot wife. He likes to show her off; she's his; he owns her. but in a bar one night while they holiday, Eleanor is kissed by a younger man, and she realises what she's been missing. 
+ 
+
+===
+
+OK, in this one, Tony is a rich old man with a hot wife. He likes to show her off; she's his; he owns her. but in a bar one night while they holiday, Eleanor is kissed by a younger man, and she realises what she's been missing. 
 
  Loving Wives ... hmmmmmm. This should be interesting. Still ... *shrug* 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** The Trophy Wife ****** bygeronimo_appleby© 'You fucking whore,' he snarled, her hair twisted in his fingers. 'Choke on it, you cunt. Am I fucking your throat like you wanted? Am I doing it the way all those other bastards do when you get gang-fucked in toilets?' He pulled himself from his wife's stretched lips. Cords of slimy drool hung from his cock. Tony lifted Eleanor's face by her goo-smeared chin. He brought his face inches from hers. 'Slut,' he spat making her flinch. 'Parading your tits and legs and arse for everyone to see ...' He stared into his wife's eyes intently. 'You fucking love it don't you? Don't you, you whoring cunt.' 
+ 
+
+===
+
+'You fucking whore,' he snarled, her hair twisted in his fingers. 'Choke on it, you cunt. Am I fucking your throat like you wanted? Am I doing it the way all those other bastards do when you get gang-fucked in toilets?' He pulled himself from his wife's stretched lips. Cords of slimy drool hung from his cock. Tony lifted Eleanor's face by her goo-smeared chin. He brought his face inches from hers. 'Slut,' he spat making her flinch. 'Parading your tits and legs and arse for everyone to see ...' He stared into his wife's eyes intently. 'You fucking love it don't you? Don't you, you whoring cunt.' 
 
  'Oh, God, Tony ...' gasped Eleanor. 'What's happened to you?' 
 

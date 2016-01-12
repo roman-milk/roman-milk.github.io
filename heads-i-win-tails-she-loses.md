@@ -1,8 +1,14 @@
+Heads I Win, Tails She Loses
+============================
 #1 
 
  
 
- ****** Heads I Win, Tails She Loses ****** byTx_Tall_Tales© =========================== 
+ 
+
+===
+
+=========================== 
 
  Some things are better left to chance. 
 
@@ -318,7 +324,11 @@
 
  
 
- ****** Heads I Win, Tails She Loses ****** byTx_Tall_Tales© Lauren turned away from him, the tears spilling forth, unbidden. She reached for her glass, and drained her drink, flipping it upside down. "Hit me, Gina." 
+ 
+
+===
+
+Lauren turned away from him, the tears spilling forth, unbidden. She reached for her glass, and drained her drink, flipping it upside down. "Hit me, Gina." 
 
  Gina got up, and started preparing the next salvo in getting the poor girl blitzed. 
 

@@ -1,8 +1,14 @@
+Mary, Robert and the Prom
+=========================
 #1 
 
  
 
- ****** Mary, Robert and the Prom ****** byJust_Plain_Bob© It started when I was thirteen years old. I was at the drive in movies with my parents and I'd gone to use the bathrooms. On the way back to our car I was passing by a car and I heard, "Oh yeah baby, fuck me with your cock," and I peeked in the window and saw a guy fucking a girl in the backseat and I stayed and watched until the girl looked up and saw me and then I ran back to our car. Two weeks later my parents took me to the movies again and I left the car on the pretext of going to the bathroom, but I prowled the lot until I found another couple fucking in their car. I was hooked! 
+ 
+
+===
+
+It started when I was thirteen years old. I was at the drive in movies with my parents and I'd gone to use the bathrooms. On the way back to our car I was passing by a car and I heard, "Oh yeah baby, fuck me with your cock," and I peeked in the window and saw a guy fucking a girl in the backseat and I stayed and watched until the girl looked up and saw me and then I ran back to our car. Two weeks later my parents took me to the movies again and I left the car on the pretext of going to the bathroom, but I prowled the lot until I found another couple fucking in their car. I was hooked! 
 
  When drive in movies disappeared I was devastated. For four years I had watched over sixty couples getting it on in their back seats and I was a confirmed voyeur. I started walking the neighborhood at night, looking in open windows and I was rewarded on several occasions by seeing couples screwing. Twice I saw one woman doing two guys while a third sat in a chair and watched (same house) and once I saw a woman with five guys. I caught hell on that one because I stayed and watched so long I missed my curfew and got grounded for a week. Fortunately I woke up to the fact that what I was doing was frowned upon by the law, and since jail wasn't in the long-term plan I had for myself, I quit - cold turkey! I didn't realize how hooked I was on watching until then. 
 

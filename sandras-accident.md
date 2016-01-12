@@ -1,8 +1,14 @@
+Sandra's Accident
+=================
 #1 
 
  
 
- ****** Sandra's Accident ****** byJust_Plain_Bob© One of life's great mysteries, I thought, as I sat waiting for the light to change. Why was the light here? I stopped for it an average of ten times a week and at various times of the day and night and ninety percent of the time there was never another vehicle in sight. Whatever traffic I saw the other ten- percent wasn't enough to justify a four way stop sign. So why was the light here when an inexpensive stop sign could have done the job? 
+ 
+
+===
+
+One of life's great mysteries, I thought, as I sat waiting for the light to change. Why was the light here? I stopped for it an average of ten times a week and at various times of the day and night and ninety percent of the time there was never another vehicle in sight. Whatever traffic I saw the other ten- percent wasn't enough to justify a four way stop sign. So why was the light here when an inexpensive stop sign could have done the job? 
 
  The sudden shock of the hit drove all thoughts of traffic signals out of my mind and replaced them with bad thoughts; how bad was the damage, how much was my already too high insurance going to go up as a result. I was a little pissed when I got out of the van. I could understand a bumper tap when slowing and stopping, but I had been sitting still for almost a minute now. The woman who had hit me was probably wondering what the hell happened too. She was still sitting behind the wheel, face white and eyes wide open in shocked surprise and both hands gripping the steering wheel so hard that her knuckles were white. A quick glance at the back of the van showed no apparent damage, but I would need to look underneath to be sure. 
 

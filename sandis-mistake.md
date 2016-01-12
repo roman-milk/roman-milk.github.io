@@ -1,8 +1,14 @@
+Sandi's Mistake
+===============
 #1 
 
  
 
- ****** Sandi's Mistake ****** byJust_Plain_Bob© Typical story; married almost ten years, thought I had a good marriage and then I found out I didn't. 
+ 
+
+===
+
+Typical story; married almost ten years, thought I had a good marriage and then I found out I didn't. 
 
  I met Sandi when she was hired and put in the cubicle next to mine. Charlie walked her into my cube and said: 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Sandi's Mistake ****** byJust_Plain_Bob© "You mentioned divorce papers. Is there any way we can avoid that? I love you Rob and you know I do. I screwed up. I screwed up big time and I know it, but I love you Rob and I don't want to lose you." 
+ 
+
+===
+
+"You mentioned divorce papers. Is there any way we can avoid that? I love you Rob and you know I do. I screwed up. I screwed up big time and I know it, but I love you Rob and I don't want to lose you." 
 
  I didn't answer her question. I just stared at her for several seconds and then I asked: 
 

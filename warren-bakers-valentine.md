@@ -1,8 +1,14 @@
+Warren Baker's Valentine
+========================
 #1 
 
  
 
- ****** Warren Baker's Valentine ****** bygeronimo_appleby© Another Valentine's Day contest entry from me. I did think to use this scene as the precursor to a multi-chapter series. There was a lot of potential in subsequent scenes where Warren could enhance his sexual repertoire, but I got bogged down in the Granny's Dirty Photographs series recently and wanted to spread myself across a few more Lit story categories for the Survivor Contest. That's why this piece starts and ends the way it does; I made it a stand-alone scene. 
+ 
+
+===
+
+Another Valentine's Day contest entry from me. I did think to use this scene as the precursor to a multi-chapter series. There was a lot of potential in subsequent scenes where Warren could enhance his sexual repertoire, but I got bogged down in the Granny's Dirty Photographs series recently and wanted to spread myself across a few more Lit story categories for the Survivor Contest. That's why this piece starts and ends the way it does; I made it a stand-alone scene. 
 
  I did consider putting this in Romance, but it might be a touch too graphic, and besides, First Time suited it just as well. 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Warren Baker's Valentine ****** bygeronimo_appleby© "Uh ... I suppose," I managed to croak. 
+ 
+
+===
+
+"Uh ... I suppose," I managed to croak. 
 
  "Have you ever been with a woman? You know ... been intimate?" My burning cheeks told her all she needed to know, and Charlotte chuckled as she stubbed the butt of her cigarette into an ashtray. "A blank canvas," the woman murmured to herself, but loud enough for me to hear. "How fucking delightful." Charlotte abruptly rose to her feet. "There it is, Warren," she said brightly. "A job if you want it. I understand that what I've said will have come as a bit of a shock, but please consider it. Don't worry, I won't throw you in at the deep end." She laughed, adding with a smirk, "Those dirty bitches would devour you if I offered you to them as you are. No, you think on the offer and let me know. I'll give you twenty-four hours to decide. If you say yes I'll ... break you in gently. It'll be a probation period initially, just because you've got the requisite equipment doesn't mean you're qualified to use it. But it would be a shame not to try at least. I really do think we could make some money together, darling." She dropped an eyelid onto her cheek in a lascivious wink. "And there's some fun to be had to boot. 
 
@@ -312,7 +322,11 @@
 
  
 
- ****** Warren Baker's Valentine ****** bygeronimo_appleby© My voice sounded creaky in my own ears when I replied, "Can I try a vodka and lemonade please?" 
+ 
+
+===
+
+My voice sounded creaky in my own ears when I replied, "Can I try a vodka and lemonade please?" 
 
  Charlotte regarded me with a curious expression for a long moment. "Of course, darling," she replied eventually. "Do come in though, you can't stand by the door all night." 
 

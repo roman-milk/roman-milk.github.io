@@ -1,8 +1,14 @@
+Scarlett, A Pregnant Slut Ch. 01
+================================
 #1 
 
  
 
- ****** Scarlett, A Pregnant Slut Ch. 01 ****** byJust_Plain_Bob© The Adventures of Scarlett, a Pregnant Slut 
+ 
+
+===
+
+The Adventures of Scarlett, a Pregnant Slut 
 
  As told to Just Plain Bob 
 
@@ -98,7 +104,11 @@
 
  
 
- ****** Scarlett, A Pregnant Slut Ch. 02 ****** byJust_Plain_Bob© This was the second email that I received from Scarlett and it brought me up to date on her latest adventure. 
+ 
+
+===
+
+This was the second email that I received from Scarlett and it brought me up to date on her latest adventure. 
 
  From: Scarlett 
 

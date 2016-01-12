@@ -1,8 +1,14 @@
+Daughter Lusts For Her Sexy Daddy
+=================================
 #1 
 
  
 
- ****** Daughter Lusts For Her Sexy Daddy ****** byNonStopFunGuy© Am I crazy because I want my own DADDY to FUCK me -- with that MASSIVE, gorgeous penis of his, which I happen to KNOW he loves to shove into tight cunts of girls around my age? 
+ 
+
+===
+
+Am I crazy because I want my own DADDY to FUCK me -- with that MASSIVE, gorgeous penis of his, which I happen to KNOW he loves to shove into tight cunts of girls around my age? 
 
  I'm sitting here nude at my computer typing this. I have slender, tanned thighs, and they're spread open so I can touch my shaved teenage vagina. It's so wet that it's dripping my juices down my inner thighs and over my tight asscheeks. Now my keyboard's getting wet, because I can't help but reach down and circle my fingertips on my throbbing clitoris, or spread my slick juices over my puffy, pink cuntlips. 
 
@@ -96,7 +102,11 @@
 
  
 
- ****** Daughter Lusts For Her Sexy Daddy ****** byNonStopFunGuy© So, having not-great sex myself, I was really emotional and charged when I got home that afternoon, and Daddy wasn't home. I thought about him at Elena's picturing her sexy, nude body underneath his, that amazing erection drilling her hole, and I was almost crying. Why won't he just fuck me? I really needed to do something about it, didn't I? 
+ 
+
+===
+
+So, having not-great sex myself, I was really emotional and charged when I got home that afternoon, and Daddy wasn't home. I thought about him at Elena's picturing her sexy, nude body underneath his, that amazing erection drilling her hole, and I was almost crying. Why won't he just fuck me? I really needed to do something about it, didn't I? 
 
  Girls, when they get mad, made dumb, emotional decisions. I called Elena about 5 pm, I was like, can you talk? She said she was alone at home for another hour -- my Daddy had left about a half-hour ago. So I invited myself over to her house, for no good reason. I was mad at her and bitchy, and really, I could have scratched her eyes out, I was just in this over-charged, hyper-sexual state. Anger merged with lust, triggered by unsatisfying sex earlier that day. I mean, Elena didn't do a thing wrong -- she merely had sex with an older guy who was really hot for her. Lucky her! But I was still mad at her, anyway. 
 
@@ -196,7 +206,11 @@
 
  
 
- ****** Daughter Lusts For Her Sexy Daddy ****** byNonStopFunGuy© So I did it! I just strolled into the room in my lacey, slutty outfit, walking in front of the TV -- and directly across his field of vision -- to a table at the far side of the room. With my back and partly-uncovered ass turned in his direction, I flipped through a stack of magazines and papers on the table, pretending to look for something. "Where are my earbuds," I lied, pretending I didn't know they were up in my room. I kept looking twice, then three times, through the stack of junk on the table, going piece-by-piece. I leaned forward, pushing my ass towards him a bit, parting my legs to steady myself, really giving Daddy a perfect view of my teen butt, if he wanted to look at me. 
+ 
+
+===
+
+So I did it! I just strolled into the room in my lacey, slutty outfit, walking in front of the TV -- and directly across his field of vision -- to a table at the far side of the room. With my back and partly-uncovered ass turned in his direction, I flipped through a stack of magazines and papers on the table, pretending to look for something. "Where are my earbuds," I lied, pretending I didn't know they were up in my room. I kept looking twice, then three times, through the stack of junk on the table, going piece-by-piece. I leaned forward, pushing my ass towards him a bit, parting my legs to steady myself, really giving Daddy a perfect view of my teen butt, if he wanted to look at me. 
 
  I didn't dare look back at him, I was pretending I barely even knew he was in the room! 
 
@@ -308,7 +322,11 @@
 
  
 
- ****** Daughter Lusts For Her Sexy Daddy ****** byNonStopFunGuy© "Mmm, Daddy, I fuckin' love your cock," I told him at some point, while slurping on it. It was pretty obvious I did. I couldn't get enough of it in my mouth, pumping back and forth, and licking and kissing up and down the sides. 
+ 
+
+===
+
+"Mmm, Daddy, I fuckin' love your cock," I told him at some point, while slurping on it. It was pretty obvious I did. I couldn't get enough of it in my mouth, pumping back and forth, and licking and kissing up and down the sides. 
 
  Daddy muttered a response that made me laugh. "I loved you in that black outfit early this morning," he snickered, "but, apparently, not even as much as you loved Elena's pussy the other day." 
 
@@ -422,7 +440,11 @@
 
  
 
- ****** Daughter Lusts For Her Sexy Daddy ****** byNonStopFunGuy© But his words were so endearing. "Chayanna," he muttered, still pumping his dick in and out of my twat violently, "you turn me on so much -- you're so sexy, so gorgeous, perfect body -- I just want you to love this, as much as I do!" 
+ 
+
+===
+
+But his words were so endearing. "Chayanna," he muttered, still pumping his dick in and out of my twat violently, "you turn me on so much -- you're so sexy, so gorgeous, perfect body -- I just want you to love this, as much as I do!" 
 
  "Awww!" I teared up, literally I started to cry, while he was fucking me. "I love you sooo much, Daddy!" I balled, my hands up to his neck. He came down, and we started kissing madly, passionately, while that awesome tool was busy plunging into my sloppy-wet pussy. 
 

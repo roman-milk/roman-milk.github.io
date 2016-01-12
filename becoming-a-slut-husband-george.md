@@ -1,8 +1,14 @@
+Becoming A Slut Husband: George
+===============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: George ****** byJust_Plain_Bob© My story starts in college when I met Amy and fell head over heels in love. Amy was five foot seven, weighed one hundred-twenty pounds and was built like a brick shit house. Amy seemed to like me, but her feelings for me, at the time, were nowhere near as strong as my feelings for her. I chased Amy for over a year before I began to get anywhere with her. Gradually I gained ground and we began going steady. One month into our senior year I asked her to marry me and she said yes. 
+ 
+
+===
+
+My story starts in college when I met Amy and fell head over heels in love. Amy was five foot seven, weighed one hundred-twenty pounds and was built like a brick shit house. Amy seemed to like me, but her feelings for me, at the time, were nowhere near as strong as my feelings for her. I chased Amy for over a year before I began to get anywhere with her. Gradually I gained ground and we began going steady. One month into our senior year I asked her to marry me and she said yes. 
 
  Like any red blooded American boy I wanted to spread pollen, but Amy was adamant - no sex until married - and so I had to settle for Mrs. Rosy Palm and her five daughters. Necking with Amy was passionate and her kisses kept my car windows steamed up and we sat on the couch for hours and swapped tongues. All of that told me that Amy was going to be one hell of a wild woman when the time came. 
 

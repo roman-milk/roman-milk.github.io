@@ -1,8 +1,14 @@
+The Relay
+=========
 #1 
 
  
 
- ****** The Relay ****** byJust_Plain_Bob© Her tongue lovingly licked the cock. It swirled around the bulbous purple head and I tingled in anticipation. I could feel her eyes on mine as her hot mouth opened and engulfed the head of the cock. It took all of my will power not to burst out of the closet and rush to the bed to claim what was rightfully mine. Instead, I sat perfectly still and watched as my wife of twenty years sucked the cock of one of my coworkers - a coworker who thought I was miles away on an overnight business trip. Nancy's head bobbed up and down while her fingers massaged his balls and before very long Charlie grabbed her head in his hands and started thrusting up at her face. Nancy pushed his hands away, took her mouth from his cock and as I watched the saliva drip from her lips she laughed and said, "Not so fast - not so fast!" She moved her body and swung a leg over Charlie, and holding his cock at the entrance to her body she looked over at the closet as she slowly lowered herself onto the stiff pole. I ached for relief, but my hard cock had to be left untouched. I had promised I would not cum until I could take my sloppy seconds. 
+ 
+
+===
+
+Her tongue lovingly licked the cock. It swirled around the bulbous purple head and I tingled in anticipation. I could feel her eyes on mine as her hot mouth opened and engulfed the head of the cock. It took all of my will power not to burst out of the closet and rush to the bed to claim what was rightfully mine. Instead, I sat perfectly still and watched as my wife of twenty years sucked the cock of one of my coworkers - a coworker who thought I was miles away on an overnight business trip. Nancy's head bobbed up and down while her fingers massaged his balls and before very long Charlie grabbed her head in his hands and started thrusting up at her face. Nancy pushed his hands away, took her mouth from his cock and as I watched the saliva drip from her lips she laughed and said, "Not so fast - not so fast!" She moved her body and swung a leg over Charlie, and holding his cock at the entrance to her body she looked over at the closet as she slowly lowered herself onto the stiff pole. I ached for relief, but my hard cock had to be left untouched. I had promised I would not cum until I could take my sloppy seconds. 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

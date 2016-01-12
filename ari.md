@@ -1,8 +1,14 @@
+Ari
+===
 #1 
 
  
 
- ****** Ari ****** byJust_Plain_Bob© \Everybody has bad days, but when I have one it seems to go on forever. I was sitting on the side of the road with a flat on the right rear and when I opened the truck I found the spare flat too. I picked up my cell phone to call Triple A for roadside assistance and found that I was in a dead spot and couldn't connect to anything. That left me with two options - walk up the road or walk down the road. No real choice there. I could see my destination sitting on top of a hill about a mile and a half away and going the other way would be a five- mile walk to reach a phone. I grabbed my bag and set out for Charlie's place. 
+ 
+
+===
+
+\Everybody has bad days, but when I have one it seems to go on forever. I was sitting on the side of the road with a flat on the right rear and when I opened the truck I found the spare flat too. I picked up my cell phone to call Triple A for roadside assistance and found that I was in a dead spot and couldn't connect to anything. That left me with two options - walk up the road or walk down the road. No real choice there. I could see my destination sitting on top of a hill about a mile and a half away and going the other way would be a five- mile walk to reach a phone. I grabbed my bag and set out for Charlie's place. 
 
  As I trudged up the hill I thought, for at least the twentieth time, that I really didn't want to be there. I would much rather have been in my own home with my wife all to myself rather than having to share her with thirty or forty other people, especially since she had been gone almost a week. Arrington, Ari for short, was the Executive Assistant to Charles Wellington Byrns, President, CEO, and Chairman of the Board and major stockholder in one of the Midwest's largest corporations. Ari's job meant that she went where Charlie went and that was all over the place and often. I wasn't very happy about it since I would much rather have her home with me, but Ari had made it perfectly clear when I proposed that if she accepted she was keeping her job. She told me that I needed to understand that the condition was non-negotiable and that she would not entertain any motions to reopen the question after we were married. Her straightforward, no nonsense approach to things was one of the qualities that I admired in her and if letting her keep her job was the price I had to pay to get her, so be it. Besides, I planned on using trickery - make babies and turn her into a stay at home mom. So far it hadn't happened, but I was trying hard. 
 

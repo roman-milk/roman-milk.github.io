@@ -1,8 +1,14 @@
+Cathy's Clown
+=============
 #1 
 
  
 
- ****** Cathy's Clown ****** bygeronimo_appleby© I'd been impatiently waiting for Cathy's return almost since she'd left the house. I knew that she wouldn't let me down, that she could be relied upon to fulfil my perverted wishes. Not because of any intimate bond that had developed in our most unlikely of relationships; there was no physical contact between us; but because Cathy did what she did for the sheer depraved enjoyment she wringed from the situation. She was an exhibitionist slut, and I was the perfect mechanism for her to use in order to carry out her showings off in relative safety and comfort. As far as I was concerned it was a perfect arrangement; I could indulge myself in the build up of my home grown pornographic collection; and Cathy could fulfil her heart's desire of showing off her lithe little body and getting fucked senseless. 
+ 
+
+===
+
+I'd been impatiently waiting for Cathy's return almost since she'd left the house. I knew that she wouldn't let me down, that she could be relied upon to fulfil my perverted wishes. Not because of any intimate bond that had developed in our most unlikely of relationships; there was no physical contact between us; but because Cathy did what she did for the sheer depraved enjoyment she wringed from the situation. She was an exhibitionist slut, and I was the perfect mechanism for her to use in order to carry out her showings off in relative safety and comfort. As far as I was concerned it was a perfect arrangement; I could indulge myself in the build up of my home grown pornographic collection; and Cathy could fulfil her heart's desire of showing off her lithe little body and getting fucked senseless. 
 
  Cathy and I had first met when I'd advertised for a model. She had turned up at the rendezvous nervous and pent up, but I had already decided that I wanted to photograph the wild eyed twenty something, and would pay a hefty fee to do so if she turned reluctant. 
 

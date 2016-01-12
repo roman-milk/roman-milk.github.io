@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 04
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 04 ****** byNonStopFunGuy© I do really stupid, stupid things when I'm fucking horny. I've learned that about myself. It's just the way I am. 
+ 
+
+===
+
+I do really stupid, stupid things when I'm fucking horny. I've learned that about myself. It's just the way I am. 
 
  This might be -- no, definitely is -- the single stupidest thing I did just because my 18 year old pussy wanted to get fucked by an adult cock. 
 
@@ -118,7 +124,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 04 ****** byNonStopFunGuy© Quickly I put my jeans and t-shirt and shoes back on, stuffing my white undies and bra and my socks into my pockets. It looked stupid, but, I couldn't think of anything else to do. 
+ 
+
+===
+
+Quickly I put my jeans and t-shirt and shoes back on, stuffing my white undies and bra and my socks into my pockets. It looked stupid, but, I couldn't think of anything else to do. 
 
  Unlocking the fitting room door, I peered out wondering who was staring at me, knowing what I was doing. Only no one was paying attention; the fitting room was empty, the girls on the floor were chatting off in the corner, a couple of adult shoppers weren't paying me any attention. So, the coast was really clear, and my knees grew weak when I realized it. It was time to get it on -- wasn't this what I wanted? 
 

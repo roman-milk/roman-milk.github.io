@@ -1,8 +1,14 @@
+The Gypsy Blacksmith
+====================
 #1 
 
  
 
- ****** The Gypsy Blacksmith ****** bygeronimo_appleby© She was woken by the impatient snorting and stamping from the stalls below her loft chamber. Victoria smiled to herself with the simple pleasure of her new life when she once again realised where she was. She savoured the warmth of her cot for a few more seconds – let Jupiter stamp and snort for a few moments more – as she breathed in the tangy scent of the stables down below, and listened to the birdsong calling outside. 
+ 
+
+===
+
+She was woken by the impatient snorting and stamping from the stalls below her loft chamber. Victoria smiled to herself with the simple pleasure of her new life when she once again realised where she was. She savoured the warmth of her cot for a few more seconds – let Jupiter stamp and snort for a few moments more – as she breathed in the tangy scent of the stables down below, and listened to the birdsong calling outside. 
 
  Victoria threw off the thin bolster and stretched her lithe body in preparation for the day. In the few weeks during which she'd been in the employ of the estate, Victoria had grown to love these easy summer mornings. She adored the work, as hard as it often was; it was like a dream to her. She had always loved the wildness and latent power of those most noble of beasts, and to be amongst them all day from sunup 'til sundown? Why, it was simply Heaven. 
 

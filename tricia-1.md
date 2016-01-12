@@ -1,8 +1,14 @@
+Tricia
+======
 #1 
 
  
 
- ****** Tricia ****** byJust_Plain_Bob© Pretty much everyone knows about Stockholm Syndrome - the name given to the condition that occurs when a hostage befriends or starts to feel compassion for his or her captor. I wonder if there is a similar syndrome for rape victims? I watched my wife being raped but she never told me about it and never reported it to the authorities. And even though I know she can't stand the asshole I know that she has seen him at least twice more. 
+ 
+
+===
+
+Pretty much everyone knows about Stockholm Syndrome - the name given to the condition that occurs when a hostage befriends or starts to feel compassion for his or her captor. I wonder if there is a similar syndrome for rape victims? I watched my wife being raped but she never told me about it and never reported it to the authorities. And even though I know she can't stand the asshole I know that she has seen him at least twice more. 
 
  Trisha and I have a cabin up in the mountains. It isn't much, just a place for weekend getaways. We get up there once every six weeks or so and when we are there Trisha usually lays out and soaks up the sun while I take our two boys and go rock climbing. We have a neighbor who is semi-retired and who lives on the mountain full time. Trisha can't stand Archie and I don't know why. I can only guess that it might have been because Archie is black 
 

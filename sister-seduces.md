@@ -1,8 +1,14 @@
+Sister Seduces
+==============
 #1 
 
  
 
- ****** Sister Seduces ****** bygeronimo_appleby© I wrote this as a shorty, it finishes at a point that leaves the reader hanging. If you want me to continue this - and let you into the secret that Michelle reveals to her brother - let me know in feedback, either here in Public Comments, email, or by PM in the Lit. forums. 
+ 
+
+===
+
+I wrote this as a shorty, it finishes at a point that leaves the reader hanging. If you want me to continue this - and let you into the secret that Michelle reveals to her brother - let me know in feedback, either here in Public Comments, email, or by PM in the Lit. forums. 
 
  Forgive any errors, I pushed it out quickly, but I do hope you enjoy. 
 
@@ -116,7 +122,11 @@
 
  
 
- ****** Sister Seduces Ch. 02 ****** bygeronimo_appleby© The second instalment of Michelle's depravity. Thank you for all the feedback on the first chapter. Just to clarify a point; when I asked for feedback in the preamble to chapter 1, it wasn't my intention to 'fish for compliments'. What I wanted, and in some cases received, was some constructive guidance on how the piece should evolve (if at all), and any areas for improvement. I would ask the same for this second helping if the reader has time and inclination. 
+ 
+
+===
+
+The second instalment of Michelle's depravity. Thank you for all the feedback on the first chapter. Just to clarify a point; when I asked for feedback in the preamble to chapter 1, it wasn't my intention to 'fish for compliments'. What I wanted, and in some cases received, was some constructive guidance on how the piece should evolve (if at all), and any areas for improvement. I would ask the same for this second helping if the reader has time and inclination. 
 
  Is the piece confusing with the differing points of view? 
 
@@ -300,7 +310,11 @@
 
  
 
- ****** Sister Seduces Ch. 02 ****** bygeronimo_appleby© Paradoxical emotions fought for supremacy as Beverly's breathing calmed. The thought of her son's seed planting a baby inside her both appalled and delighted the woman. (Oh, God, what have we done? My son, I've just done ... that ... with my own son ... I could be pregnant!). 
+ 
+
+===
+
+Paradoxical emotions fought for supremacy as Beverly's breathing calmed. The thought of her son's seed planting a baby inside her both appalled and delighted the woman. (Oh, God, what have we done? My son, I've just done ... that ... with my own son ... I could be pregnant!). 
 
  Michelle's voice broke put the brakes on Beverly's racing thoughts. 
 

@@ -1,8 +1,14 @@
+Rob and Gina
+============
 #1 
 
  
 
- ****** Rob and Gina ****** byJust_Plain_Bob© Once upon a time I loved my wife and I thought she loved me. I thought we had a good marriage, but time changes all things and our relationship was no exception. 
+ 
+
+===
+
+Once upon a time I loved my wife and I thought she loved me. I thought we had a good marriage, but time changes all things and our relationship was no exception. 
 
  I met Gina by accident - literally - when she ran into the back of my car while I was sitting at a stoplight. It wasn't her fault; she was rear ended and pushed into me. When we got out of our cars to check out the damage I paid more interest to her than I did the damage to my car. Visually speaking, she was my ideal woman. Tall at five-nine, long hair down to the middle of her back, she looked great without any makeup on and she had legs that seemed to go on forever. It didn't hurt that she was showing off those legs by wearing four- inch heels. 
 
@@ -260,7 +266,11 @@
 
  
 
- ****** Rob and Gina ****** byJust_Plain_Bob© "Why didn't you follow through on it?" 
+ 
+
+===
+
+"Why didn't you follow through on it?" 
 
  "On what?" 
 

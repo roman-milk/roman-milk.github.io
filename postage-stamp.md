@@ -1,8 +1,14 @@
+Postage Stamp
+=============
 #1 
 
  
 
- ****** Postage Stamp ****** byJust_Plain_Bob© You wouldn't think that something as small and inexpensive as a postage stamp could fuck up a marriage, but one of them, or rather the lack of one of them, did just that. 
+ 
+
+===
+
+You wouldn't think that something as small and inexpensive as a postage stamp could fuck up a marriage, but one of them, or rather the lack of one of them, did just that. 
 
  I wasn't supposed to be there. There had been an accident at work. Joe Bivens hadn't been paying attention and as a result the turret lathe he had been operating took the little finger off of his left hand and I was elected to take him to the hospital emergency rooms. Once they had Joe in one of the treatment rooms I gave them my cell phone number so they could call me when he was ready to leave and I left. I decided to go home and have lunch while I waited for the call. 
 
@@ -142,7 +148,11 @@
 
  
 
- ****** Postage Stamp ****** byJust_Plain_Bob© He had gotten a free ride! 
+ 
+
+===
+
+He had gotten a free ride! 
 
  I couldn't have that. I had to do something, but what? It must have come to me while I slept because when I got up in the morning I knew exactly what I was going to do. That afternoon when Marcus was going into his locker I came up behind him with a baseball bat and smacked him in the head with it. Not a full swing like I was going for a pitch, but a downward chopping strike and Marcus went to his knees. I smacked him on the side of his head again and he fell to the floor. I kicked his legs apart and used the bat on his crotch. Only once, but hard. I bent down, grabbed a handful of his hair and pulled his head up until it was only inches from my mouth and then said: 
 

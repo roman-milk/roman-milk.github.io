@@ -1,8 +1,14 @@
+Little Man and the Stupid Bitch
+===============================
 #1 
 
  
 
- ****** Little Man and the Stupid Bitch ****** byJust_Plain_Bob© I guess the first thing you need to know in order to understand what happened is background. My name is Robert Daltry; I'm twenty-seven years old and I work as an aircraft mechanic for a major airline. I'm five foot six, about a hundred and sixty-five pounds and I'm in great shape thanks to daily runs and work outs at the gym. 
+ 
+
+===
+
+I guess the first thing you need to know in order to understand what happened is background. My name is Robert Daltry; I'm twenty-seven years old and I work as an aircraft mechanic for a major airline. I'm five foot six, about a hundred and sixty-five pounds and I'm in great shape thanks to daily runs and work outs at the gym. 
 
  I've always been small – at least in relation to my peers – and it goes back to my parents. My father was five foot six and my mother was four foot ten. Always being smaller than those of the same age was not a good thing to be. Bigger kids, especially at younger ages tend to take advantage of those smaller and that happened to me a lot. From the second grade on I averaged two fights a month and I usually lost. They might have been bigger, but I never backed down and I usually got whipped. 
 
@@ -162,7 +168,11 @@
 
  
 
- ****** Little Man and the Stupid Bitch ****** byJust_Plain_Bob© I didn't know what to say and I was trying to organize my thoughts when our food arrived. Eating gave me some time and when the empty plates were cleared away I said: 
+ 
+
+===
+
+I didn't know what to say and I was trying to organize my thoughts when our food arrived. Eating gave me some time and when the empty plates were cleared away I said: 
 
  "First off, I don't care how many guys you have had a relationship with. I didn't go into last night a virgin either and my feelings are that what happened in the past is none of my business. As far as us having a future I don't know. The four inch difference in our height may not be a problem for you, but you are right in that it is a problem for me and not for the reasons you might think. I have no problem being by your side and I do smile and think "Eat your hearts out, she is with me." The problem is I do not think that you will be all that happy with the situation after a couple of years. I just can not believe that you won't eventually want someone you don't have to bend down to kiss; someone whose shoulder you can put your head on when you dance. In short, to use the word that you avoided using, I don't think that we can make it over the long haul." 
 
@@ -376,7 +386,11 @@
 
  
 
- ****** Little Man and the Stupid Bitch ****** byJust_Plain_Bob© I stopped where I was and watched to see what would happen next. There was some laughter and the man sitting across from Mellanie reached over and lightly touched her cheek and at the same time the man who had his hand on her leg moved it up six inches or so until he was right at the edge of her skirt. Again, Mellanie did nothing to stop the man. She might not stop him, but I sure as hell would. 
+ 
+
+===
+
+I stopped where I was and watched to see what would happen next. There was some laughter and the man sitting across from Mellanie reached over and lightly touched her cheek and at the same time the man who had his hand on her leg moved it up six inches or so until he was right at the edge of her skirt. Again, Mellanie did nothing to stop the man. She might not stop him, but I sure as hell would. 
 
  I headed straight for the table flexing my fist in preparation of punching the asshole who was manhandling my wife even knowing that I was most likely going to end up fighting all three of them which would not end well for me. Mellanie saw me coming and gave me a big smile as she said: 
 
@@ -614,7 +628,11 @@
 
  
 
- ****** Little Man and the Stupid Bitch ****** byJust_Plain_Bob© "Prepare the ground? You aren't making any sense here Mellanie." 
+ 
+
+===
+
+"Prepare the ground? You aren't making any sense here Mellanie." 
 
  "You would have been all right with what happened if I had just taken the time to get you ready." 
 

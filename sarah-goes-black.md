@@ -1,8 +1,14 @@
+Sarah Goes Black
+================
 #1 
 
  
 
- ****** Sarah Goes Black ****** byGotBacon© Eric and Sarah have been married for 16 years. The got married just after he graduated with a degree in marketing. Sarah didn't go to college. They met at a frat party during Eric's sophomore year. One of Sarah's girlfriends took her. Eric and Sarah met and hit it off immediately. They were an exclusive after the third date. They had sex as often as possible and always used a condom. She got pregnant after his graduation party. One month later they were married. Eight months later Sarah gave birth to twin girls. They named them Amy and Kim after both of their grandmothers. Soon after they were born Eric and Sarah decided two was enough and he got a vasectomy. 
+ 
+
+===
+
+Eric and Sarah have been married for 16 years. The got married just after he graduated with a degree in marketing. Sarah didn't go to college. They met at a frat party during Eric's sophomore year. One of Sarah's girlfriends took her. Eric and Sarah met and hit it off immediately. They were an exclusive after the third date. They had sex as often as possible and always used a condom. She got pregnant after his graduation party. One month later they were married. Eight months later Sarah gave birth to twin girls. They named them Amy and Kim after both of their grandmothers. Soon after they were born Eric and Sarah decided two was enough and he got a vasectomy. 
 
  Eric got a job right off with a wholesale grocery company. All of the big supermarkets had their own buyers so his company concentrated on the small mom and pop grocery stores and convenience stores. The have over 300 accounts. Eric quickly rose through the ranks from running a route to being their trouble shooter. His job was putting out the small fires that popped up now and then. He was a people person and took good care of his customers. Most of the problems were with orders being short. It seemed that some of the employees would help themselves to the good off the loading docks. Eric had all of them install hidden cameras. This took care of most of the problems and made his job a lot easier. As a result he had time to help with some of the nuts and bolts of the company. His ideas were good and made money for his boss. He made himself indispensable. 
 

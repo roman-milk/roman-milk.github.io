@@ -1,8 +1,14 @@
+Office Party Orgy
+=================
 #1 
 
  
 
- ****** Office Party Orgy ****** bysilkstockingslover© Summary: A temp secretary is willing to do it ALL for a full time job. 
+ 
+
+===
+
+Summary: A temp secretary is willing to do it ALL for a full time job. 
 
  Note 1: I wanted to write a story about 21st century women who were both intelligent and yet sexual beings. So, unlike many of my stories where one of the characters is submissive or straight or shy or whatever else, this is a story about a highly sexual, active bisexual woman in their early 20s who loves sex and is up for almost anything. (PS: I really wish I was this liberated when I was in my early 20s... sigh... I was definitely born 20 years too early). 
 
@@ -394,7 +400,11 @@
 
  
 
- ****** Office Party Orgy ****** bysilkstockingslover© I quickly followed her, my pussy on fire. 
+ 
+
+===
+
+I quickly followed her, my pussy on fire. 
 
  Once in the bathroom, she locked the bathroom door, pulled down her skirt and put the strap-on on. She said, "Hurry up and get undressed if you want me to fuck that neglected cunt." 
 
@@ -838,7 +848,11 @@
 
  
 
- ****** Office Party Orgy ****** bysilkstockingslover© "Oh yes, fill my ass with your cum," I moaned, loving the feeling of being filled with cum. I was disappointed to not swallow most of Mr. Bergeron's load and opening the one eye that wasn't hit with cum, I found his dick and took it back in my mouth to retrieve any last remnants. 
+ 
+
+===
+
+"Oh yes, fill my ass with your cum," I moaned, loving the feeling of being filled with cum. I was disappointed to not swallow most of Mr. Bergeron's load and opening the one eye that wasn't hit with cum, I found his dick and took it back in my mouth to retrieve any last remnants. 
 
  "She really is a great find," Mr. Bergeron groaned. 
 

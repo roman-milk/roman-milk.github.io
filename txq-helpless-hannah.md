@@ -1,8 +1,14 @@
+TxQ - Helpless Hannah
+=====================
 #1 
 
  
 
- ****** TxQ - Helpless Hannah ****** byTx_Tall_Tales© =========================== 
+ 
+
+===
+
+=========================== 
 
  Tied, helpless, discovered, used hard 
 
@@ -360,7 +366,11 @@
 
  
 
- ****** TxQ - Helpless Hannah ****** byTx_Tall_Tales© I looked back at Alex. "Do I want to know why she's naked, and what you two have been up to?" 
+ 
+
+===
+
+I looked back at Alex. "Do I want to know why she's naked, and what you two have been up to?" 
 
  Megan's naughty finger slid into me. "Pleasing you. That's all. Making your fantasy come true. He didn't touch me." 
 

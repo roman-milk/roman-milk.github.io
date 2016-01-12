@@ -1,8 +1,14 @@
+Role Playing With Kirsten
+=========================
 #1 
 
  
 
- ****** Role Playing With Kirsten ****** byJust_Plain_Bob© A story by Just Plain Bob 
+ 
+
+===
+
+A story by Just Plain Bob 
 
  I suppose you could say that I was na‹ve and maybe even that I should have seen it coming, but I didn't. It just happened. I thought that I was strengthening my marriage when actually what I was doing was weakening the fabric that would eventually let it disintegrate. 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** Role Playing With Kirsten ****** byJust_Plain_Bob© I pulled back and looked up at her. She saw the look on my face and I saw a slight change come over her face and her eyes broke contact with mine. 
+ 
+
+===
+
+I pulled back and looked up at her. She saw the look on my face and I saw a slight change come over her face and her eyes broke contact with mine. 
 
  "How long has this been going on?" 
 

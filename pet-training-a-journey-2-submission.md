@@ -1,8 +1,14 @@
+Pet Training: A Journey 2 Submission
+====================================
 #1 
 
  
 
- ****** Pet Training: A Journey 2 Submission ****** bysilkstockingslover© Summary: A bi-curious MILF doctor submits to a young seductive nurse. 
+ 
+
+===
+
+Summary: A bi-curious MILF doctor submits to a young seductive nurse. 
 
  Note 1: This is a 2012 Halloween Contest Story. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Pet Training: A Journey 2 Submission ****** bysilkstockingslover© At work, she didn't see Zandi for the first couple of hours of the shift as it was one crisis after another. It wasn't until break that Breanne saw Zandi dressed in a Snow White costume, which had Breanne feel her panties dampen. 
+ 
+
+===
+
+At work, she didn't see Zandi for the first couple of hours of the shift as it was one crisis after another. It wasn't until break that Breanne saw Zandi dressed in a Snow White costume, which had Breanne feel her panties dampen. 
 
  Zandi smiled and beckoned Breanne over to the table, where two other nurses where dressed as Disney Princesses too: Mulan and Belle. 
 
@@ -492,7 +502,11 @@
 
  
 
- ****** Pet Training: A Journey 2 Submission ****** bysilkstockingslover© "Did I give you permission to quit? Get back to licking, you dumb fucking slut," Zandi's ordered, her tone hinting at her obvious disdain for such disobedience. 
+ 
+
+===
+
+"Did I give you permission to quit? Get back to licking, you dumb fucking slut," Zandi's ordered, her tone hinting at her obvious disdain for such disobedience. 
 
  As more of her juices leaked out of her, Breanne quickly returned to licking Zandi's foot which was now raised higher so she could lick the bottom of the younger girl's foot. 
 

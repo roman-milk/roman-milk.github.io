@@ -1,8 +1,14 @@
+Salon Sluts
+===========
 #1 
 
  
 
- ****** Salon Sluts ****** bygeronimo_appleby© The club was filled with party people, happy, smiling, and not entirely sober. The music thumped; a deep resonance, like a heartbeat, that Della felt through the soles of her feet. "I'm too old for this," she muttered to herself and then grinned wryly, shaking her head at the ridiculousness. "I must be the oldest person in here." 
+ 
+
+===
+
+The club was filled with party people, happy, smiling, and not entirely sober. The music thumped; a deep resonance, like a heartbeat, that Della felt through the soles of her feet. "I'm too old for this," she muttered to herself and then grinned wryly, shaking her head at the ridiculousness. "I must be the oldest person in here." 
 
  A petite, blonde girl pushed her way through the press of people around the bar. She held a glass in each hand, mindful of the mob around her, wary for drunks who might jostle her and cause the drinks to spill. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Salon Sluts ****** bygeronimo_appleby© Della gasped when his finger rubbed at the nub of her clitoris. "I'm so hot," she sighed, "so desperately hot." 
+ 
+
+===
+
+Della gasped when his finger rubbed at the nub of her clitoris. "I'm so hot," she sighed, "so desperately hot." 
 
  Frankie eased Della back into the seat he'd previously occupied. He knelt between her feet and eased her legs apart. Once again his fingers found the curl of her labia and he spread her wide, exposing her opening. 
 

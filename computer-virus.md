@@ -1,8 +1,14 @@
+Computer Virus
+==============
 #1 
 
  
 
- ****** Computer Virus ****** bygeronimo_appleby© An odd one this time. I'm not sure where the idea came from, but ... here it is. Also, I wasn't too sure about the category, but this seems to fit best. Anyway, I hope you enjoy it. 
+ 
+
+===
+
+An odd one this time. I'm not sure where the idea came from, but ... here it is. Also, I wasn't too sure about the category, but this seems to fit best. Anyway, I hope you enjoy it. 
 
  The woman he follows is an enigma; he thinks he knows her from somewhere, and indeed he does, she's his ideal woman. But she isn't all that she seems. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** Computer Virus ****** bygeronimo_appleby© Pushing the weirdness aside, I put it down to stress, lack of sleep, the ale, and instead I concentrated on the immediate -- Alexandra's gorgeous breasts. 
+ 
+
+===
+
+Pushing the weirdness aside, I put it down to stress, lack of sleep, the ale, and instead I concentrated on the immediate -- Alexandra's gorgeous breasts. 
 
  I let my senses feast on Alexandra's pliant flesh. The nipples thickened and grew between my lips as I sucked, their areola tightening and shrinking. My fingers and palms caressed smooth skin while my ears heard Alexandra's soft crooning, her sighs, and her lewd exhortations. I could smell her, a hint of soap, talcum powder, and her perfume. 
 

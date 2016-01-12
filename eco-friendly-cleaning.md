@@ -1,8 +1,14 @@
+Eco-&quot;Friendly&quot; Cleaning
+=================================
 #1 
 
  
 
- ****** Eco-&quot;Friendly&quot; Cleaning ****** byTx_Tall_Tales© =========================== 
+ 
+
+===
+
+=========================== 
 
  The high cost of success in her business. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Eco-&quot;Friendly&quot; Cleaning ****** byTx_Tall_Tales© "Take it Nicky. Take my ass. Fuck me, baby," she growled, as I started stroking into her. It only took a few strokes before I was bottoming out inside of her. 
+ 
+
+===
+
+"Take it Nicky. Take my ass. Fuck me, baby," she growled, as I started stroking into her. It only took a few strokes before I was bottoming out inside of her. 
 
  "Is it tight, baby? Barely used, you know. Only special clients. Favorite clients. What took you so long, Nicky?" she grunted as she took my pounding of her ass in stride. "Does it excite you to know you're getting something that even Dave doesn't get? VIP service?" 
 
@@ -390,7 +400,11 @@
 
  
 
- ****** Eco-&quot;Friendly&quot; Cleaning ****** byTx_Tall_Tales© I spent the night, and returned to Mexico the next day, thoroughly exhausted. I had held onto five grand, for expenses. Still managed to leave over $80,000 in the new account. I made the drive back home, once again paying cash for everything. 
+ 
+
+===
+
+I spent the night, and returned to Mexico the next day, thoroughly exhausted. I had held onto five grand, for expenses. Still managed to leave over $80,000 in the new account. I made the drive back home, once again paying cash for everything. 
 
  There was a lot of risk in what I was doing, without that much payoff, but I couldn't help myself. I still burned with anger. At my wife, the cheating whore, her slut partner, and my ex-best-friend, who'd been banging both of them. 
 
@@ -638,7 +652,11 @@
 
  
 
- ****** Eco-&quot;Friendly&quot; Cleaning ****** byTx_Tall_Tales© "None?" I asked, finding it hard to believe. 
+ 
+
+===
+
+"None?" I asked, finding it hard to believe. 
 
  She shook her head. "I had a couple of nice regulars. Two. They could get me off. I didn't mind them. Even liked them a little. Not enough to go bareback or swallow." 
 
@@ -900,7 +918,11 @@
 
  
 
- ****** Eco-&quot;Friendly&quot; Cleaning ****** byTx_Tall_Tales© "Hi Brenda." 
+ 
+
+===
+
+"Hi Brenda." 
 
  "Would you come to see me? Please?" 
 

@@ -1,8 +1,14 @@
+&quot;Taking&quot; My Sister's Virginity
+========================================
 #1 
 
  
 
- ****** &quot;Taking&quot; My Sister's Virginity ****** bysilkstockingslover© Summary: Older brother seduces and takes cute nerd sister's virginity. 
+ 
+
+===
+
+Summary: Older brother seduces and takes cute nerd sister's virginity. 
 
  Note: This is a Winter 2014 contest submission. 
 
@@ -382,7 +388,11 @@
 
  
 
- ****** &quot;Taking&quot; My Sister's Virginity ****** bysilkstockingslover© Her legs buckled and she fell sideways to the ground. As she quivered on the ground, my balls about to erupt for a second time, I straddled her and shoved my cock in her mouth. The position was awkward, but I again fucked her face. 
+ 
+
+===
+
+Her legs buckled and she fell sideways to the ground. As she quivered on the ground, my balls about to erupt for a second time, I straddled her and shoved my cock in her mouth. The position was awkward, but I again fucked her face. 
 
  In only a few strokes, I deposited a second load down her throat. Spent, I pulled out and rolled beside her. 
 
@@ -866,7 +876,11 @@
 
  
 
- ****** &quot;Taking&quot; My Sister's Virginity ****** bysilkstockingslover© Adamistheman: u don't know the half of it 
+ 
+
+===
+
+Adamistheman: u don't know the half of it 
 
  Lisa1996: so on that note...do u eat pussy 
 
@@ -1246,7 +1260,11 @@
 
  
 
- ****** &quot;Taking&quot; My Sister's Virginity ****** bysilkstockingslover© The boss's wife laughed, "I think you two are having one of those inside joke conversations." 
+ 
+
+===
+
+The boss's wife laughed, "I think you two are having one of those inside joke conversations." 
 
  Lisa laughed, "Sorry, we're still in that early stage of our relationship." 
 
@@ -1566,7 +1584,11 @@
 
  
 
- ****** &quot;Taking&quot; My Sister's Virginity ****** bysilkstockingslover© Getting home, both our parents were asleep and after one last kiss, we went our separate ways. 
+ 
+
+===
+
+Getting home, both our parents were asleep and after one last kiss, we went our separate ways. 
 
  We fucked every day until Christmas, including a threesome with Andrea at my secret rendezvous spot. Watching my sister eat pussy was damn hot, as was having both of them suck my cock together. 
 

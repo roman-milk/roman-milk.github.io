@@ -1,8 +1,14 @@
+Mandy and the Wimp
+==================
 #1 
 
  
 
- ****** Mandy and the Wimp ****** byJust_Plain_Bob© I wasn't ready for it. I knew what I was going to find when I got there, but I still wasn't ready for it and it didn't help any to know that it happened because of something I'd done. 
+ 
+
+===
+
+I wasn't ready for it. I knew what I was going to find when I got there, but I still wasn't ready for it and it didn't help any to know that it happened because of something I'd done. 
 
  +++++++++++++++++++++++++++++++++++++++++ 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Mandy and the Wimp ****** byJust_Plain_Bob© I was surprised at my lack of anger and at my ability to just sit there and watch. I guess that after my talks with Sally and Tanya I had already accepted that the marriage and my relationship with Mandy were dead and by the time I got my proof I just didn't care enough to be outraged by it. 
+ 
+
+===
+
+I was surprised at my lack of anger and at my ability to just sit there and watch. I guess that after my talks with Sally and Tanya I had already accepted that the marriage and my relationship with Mandy were dead and by the time I got my proof I just didn't care enough to be outraged by it. 
 
  After a while they both sat up in the back seat and talked for several minutes and then the guy got out of the car and went back into the bar. Mandy got out of the back and I saw her take a bag from the front and put something from the back in it and then she started up and drove off. I followed her as she drove over and picked up the kids and then followed her home. 
 

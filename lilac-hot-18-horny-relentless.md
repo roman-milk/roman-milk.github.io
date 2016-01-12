@@ -1,8 +1,14 @@
+Lilac: Hot, 18, Horny, Relentless!
+==================================
 #1 
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© ============================ 
+ 
+
+===
+
+============================ 
 
  Author's Note: This story is a slooooowwwww, swwwweeeeet riiiiiide!!! If you are extremely horny and looking for a 'quickie' where the sex comes early and often, and the story is nothing but sex-sex-sex, then I politely suggest you read something else. This is another one of my stories with a tormenting build- up, best suited for someone who wants to be teased by graphic visual images, by a sexually-charged relationship that isn't permitted, and that eventually boils over into explosive sex. You need a little bit of time to read it, get caught up in the moment, then enjoy the thrill when it 'explodes.' So I don't want any negative comments, like, it took too long for the sex to happen. Duh, that's the POINT, stupid. Oh, alright, if you must, there is a promise of tons of sex, just wade through the opening half or whatever....! 
 
@@ -122,7 +128,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© "Gosh, what time is it?" she suddenly blurted out. I didn't have a watch, but figured it was close to 9. She said she had to be home by 8:45, a girl friend was coming over at 9. "I'll check my cell," Lilac gasped. Then she turned to pick up her beach bag from the grass behind her. As her backside came into view again, and she bent over, I couldn't repress a moan. 
+ 
+
+===
+
+"Gosh, what time is it?" she suddenly blurted out. I didn't have a watch, but figured it was close to 9. She said she had to be home by 8:45, a girl friend was coming over at 9. "I'll check my cell," Lilac gasped. Then she turned to pick up her beach bag from the grass behind her. As her backside came into view again, and she bent over, I couldn't repress a moan. 
 
  Holy fuck, I was looking at her almost-nude asscheeks! 
 
@@ -246,7 +256,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© The little bitch must have been reading my mind from thousands of miles away. I'd been sitting five minutes, maybe ten, when my cell pinged that I had a new text message. I almost didn't have to look to know who it was; my office was leaving me alone for this trip. Sure enough, it was Lilac's number. 
+ 
+
+===
+
+The little bitch must have been reading my mind from thousands of miles away. I'd been sitting five minutes, maybe ten, when my cell pinged that I had a new text message. I almost didn't have to look to know who it was; my office was leaving me alone for this trip. Sure enough, it was Lilac's number. 
 
  This was not a report about our dog. "I'm excited today wanna know why?" 
 
@@ -400,7 +414,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© I glanced at my watch, it was 2:45. Flight had been delayed. I knew she wasn't here for the dog, she would have come at lunchtime. Or, maybe she was way behind too. But I didn't confront her, I wanted to act like it was strictly professional, even though I'd seen her topless, and wanted to fuck her, and knew she was coming onto me. "Well, Tigger's in the kitchen," I indicated, where he would always be, "help yourself, it's why we hired you." I tried to keep my voice calm, almost to the point of sounding bored. Maybe passive disinterest would scare her off, it was the least confrontational way. 
+ 
+
+===
+
+I glanced at my watch, it was 2:45. Flight had been delayed. I knew she wasn't here for the dog, she would have come at lunchtime. Or, maybe she was way behind too. But I didn't confront her, I wanted to act like it was strictly professional, even though I'd seen her topless, and wanted to fuck her, and knew she was coming onto me. "Well, Tigger's in the kitchen," I indicated, where he would always be, "help yourself, it's why we hired you." I tried to keep my voice calm, almost to the point of sounding bored. Maybe passive disinterest would scare her off, it was the least confrontational way. 
 
  "Yup!" The girl put my house keys on the table near me, and our eyes caught for a second. She was nervous, almost biting her lip. I guess I wasn't being receptive to her obvious advances, and she wasn't sure how to get through my bravado. The moment passed, though, she slipped away, though, headed into the kitchen. I heard her call out sweetly to our dog, and heard his barks of excitement. I forced myself not to look, reading through the mail, seeing nothing of particular interest. Still, I stood there, hearing the back door open, hearing the girl and my dog go outside. 
 
@@ -528,7 +546,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© I slumped into my house about 10 pm, knowing I needed to get to bed. I put Tigger out and played with him a bit, thinking I needed to eat dinner. I wasn't hungry, however. My stomach was a mess of emotions. 
+ 
+
+===
+
+I slumped into my house about 10 pm, knowing I needed to get to bed. I put Tigger out and played with him a bit, thinking I needed to eat dinner. I wasn't hungry, however. My stomach was a mess of emotions. 
 
  But if I was anything, I was horny still. Lilac's naked body on my bed was an image that had me constantly horny. Almost like a robot, as soon as Tigger retreated to his bed -- it was late, his time, he was 11 years old, which is 77 years to us -- I headed up to my bedroom. I stripped nude, lying on the very spot Lilac had been lying. I smelled her perfume, it was so sexy. My hand grabbed my seven inches of swollen penis, slowly stroking it, thinking about her. I was fantasizing about her petite nude body riding me, swallowing my dick into her bald cunt, screaming while I fucked her senseless. My dick was leaking precum as I masturbated, I was so fucking hard for it to happen for real. As my fist wrapped around my throbbing, seven inch penis, I laid back on my bed, dreaming about nude Lilac, fantasizing about shoving this hard prick into that hot little pussy -- what did she call it? "Young and tight." It was definitely young, at age 18; and I was sure she was right, it probably was insanely tight. She needed a big dick to stretch it out, didn't she? She could lie back and let me jam my meat into her spread-open vagina, or bend over and let me stare at her hot all while I pumped her doggy-style. Yeah, that's what the bitch needed, a good poking from the rear, driving her around the bed like a toy for a horny man. She's just a dumb fucking whore, a young little slut who needs to be used. Fuck, she was so sexy, I loved fantasizing about her. 
 
@@ -646,7 +668,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© Her slim hands slid up my body, under my t-shirt, reaching to the curly hairs on my chest. "Let me see your body, baby," she muttered with my dick against her lips, "I love your body, take your shirt off." 
+ 
+
+===
+
+Her slim hands slid up my body, under my t-shirt, reaching to the curly hairs on my chest. "Let me see your body, baby," she muttered with my dick against her lips, "I love your body, take your shirt off." 
 
  I hesitated, thinking for a moment that was crossing some kind of line -- but fuck, I had my penis in her mouth. I ripped my shirt off so I was completely nude, sitting back, seeing her admire my firm tummy and strong shoulders. It felt great, my masculinity affirmed by this horny, 18 year old slut. 
 
@@ -740,7 +766,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© "Mmmmm," moaned the slut, opening her eyes to gaze down with a satisfied grin, both of her hands on my hairy chest, feeling my sweat and my muscles, "ooooh, yeah, baby!" She looked down at my cock in her pussy, pumping her small hips around, riding me slowly. "Uhhhh, fuck, your dick is soooo big!" 
+ 
+
+===
+
+"Mmmmm," moaned the slut, opening her eyes to gaze down with a satisfied grin, both of her hands on my hairy chest, feeling my sweat and my muscles, "ooooh, yeah, baby!" She looked down at my cock in her pussy, pumping her small hips around, riding me slowly. "Uhhhh, fuck, your dick is soooo big!" 
 
  My eyes were riveted at the sight of her sexy little boobies, which were round soft orbs on her thin torso as she sat upright, whereas they looked flat when she was lying on her back. Inside the creamy, triangle-shaped tan lines, her stiff brown nipples pointing forward. Above her sensational breasts, Lilac's attractive, narrow face and thin lips were showing some stress, feeling my oversized erection stretching out her pussy, as she pushed her body downward on it. As she moved lower each time, her face sneered, she reacted with pain, gasping, snarling, then moving up to quickly push down again and send me deeper. "Yesss . . . uhhhh, yes . . . uhhhhh, fuck, fuck!" ] As she rode me, she moved one of her hands from my chest and raced it to her crotch, starting to rub her clitoris wildly while my penis was in her vagina. She collapsed forward, almost laying on top of me, her blonde hair spilling over my face as she stimulated herself while fucking me. "Uhhhh, uh huhhhh!" I reached both hands to her hips, holding her small body firmly, undulating my pelvis to shove my cock deeper into her wet hole. She was shrieking again, screaming in my ear as I fucked her from underneath her, and she began having orgasms. Not one, but several in a row, each making her scream and gasp, then moan and come down, then begin to scream and gasp again. Lilac was fucking in love with my cock, it was making me feel so great about myself. 
 
@@ -834,7 +864,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© Lilac instantly had an orgasm, just feeling me so deep inside. She shouted something unintelligible, her hands in fists pounding my hairy chest, as if to push me away, but really to beat off the pressures she was feeling inside her young body. Her cunt was leaking juices all over my balls and thighs, and I kept my dick inside the back of her pussy while she spasmed around it. To intensify her pleasure, I let go of one of her legs and grabbed her little booby, pinching her brown nipple hard, twisting it through her orgasm, which shot a bolt of pain from her tit right down into her crotch, elongating her orgasm and making her scream even harder still. 
+ 
+
+===
+
+Lilac instantly had an orgasm, just feeling me so deep inside. She shouted something unintelligible, her hands in fists pounding my hairy chest, as if to push me away, but really to beat off the pressures she was feeling inside her young body. Her cunt was leaking juices all over my balls and thighs, and I kept my dick inside the back of her pussy while she spasmed around it. To intensify her pleasure, I let go of one of her legs and grabbed her little booby, pinching her brown nipple hard, twisting it through her orgasm, which shot a bolt of pain from her tit right down into her crotch, elongating her orgasm and making her scream even harder still. 
 
  I loved watching it. "You like that, huh, honey?" She smelled and looked amazing, having that huge cum with me all the way in the back of her cunt. 
 
@@ -966,7 +1000,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© Her response made me love her even more. "ur hot n sweet 2," she wrote, "ur great"; then she quickly added, "i know ur married but if u werent id b ur gf." 
+ 
+
+===
+
+Her response made me love her even more. "ur hot n sweet 2," she wrote, "ur great"; then she quickly added, "i know ur married but if u werent id b ur gf." 
 
  
 
@@ -1060,7 +1098,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© "Hurry up," laughed the girl, watching me devour two-thirds of the sandwich in about four bites, "you have to fuck me again." 
+ 
+
+===
+
+"Hurry up," laughed the girl, watching me devour two-thirds of the sandwich in about four bites, "you have to fuck me again." 
 
  With my mouth full of food, I just shrugged. "I can eat and fuck at the same time," I offered, somewhat unintelligibly. 
 
@@ -1162,7 +1204,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© My eyes stared at the sight of my dick entering her pink, shaved pussy, and at her flat tummy and perky, creamy-white A-cup titties, then at her lovely young face. I now could see why her Dad fucked her 18 year old friend, it was the same reason I was fucking Lilac -- these young bitches are sex goddesses. 
+ 
+
+===
+
+My eyes stared at the sight of my dick entering her pink, shaved pussy, and at her flat tummy and perky, creamy-white A-cup titties, then at her lovely young face. I now could see why her Dad fucked her 18 year old friend, it was the same reason I was fucking Lilac -- these young bitches are sex goddesses. 
 
  Lilac handed me her cellphone. I laid back, letting Lilac do the work of moving herself up and down my dick, while I turned on the camera function and aimed the camera. I turned it sideways for a long shot, then clicked a picture of Lilac riding my erection; the photo had everything, her face and tits, the lower part of my erection exposed below her pink vagina, her cuntlips stretched open to take my shaft, and even part of my firm abdomen. I showed the pic to the girl, who snickered in delight and then typed out a message to send it to Anya. 
 
@@ -1294,7 +1340,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© So hot for the little bitch, I moved to kiss her, but the blonde 18 year old had other ideas. She pushed my back against a thick tree trunk, dropping to her knees and already fumbling with the zipper on my shorts. I nervously looked around for my wife, stupidly, knowing we were alone, helping Lilac unfasten my clothing. The girl pulled my shorts down to my ankles, then reached up to yank off my black briefs and free my already-engorged erection. Seeing my swollen 7 inches of manhood, the teenager licked her lips and moaned, "Mmm there's that hot cock." 
+ 
+
+===
+
+So hot for the little bitch, I moved to kiss her, but the blonde 18 year old had other ideas. She pushed my back against a thick tree trunk, dropping to her knees and already fumbling with the zipper on my shorts. I nervously looked around for my wife, stupidly, knowing we were alone, helping Lilac unfasten my clothing. The girl pulled my shorts down to my ankles, then reached up to yank off my black briefs and free my already-engorged erection. Seeing my swollen 7 inches of manhood, the teenager licked her lips and moaned, "Mmm there's that hot cock." 
 
  "Suck my dick, you cunt," I swore at her, knowing the words would turn her on. 
 
@@ -1406,7 +1456,11 @@
 
  
 
- ****** Lilac: Hot, 18, Horny, Relentless! ****** byNonStopFunGuy© Lucky prick, whomever he was. "So who's the lucky guy?" 
+ 
+
+===
+
+Lucky prick, whomever he was. "So who's the lucky guy?" 
 
  I saw her petite shoulder shrug again, and she didn't seem inclined to provide many details. "Oh, uh -- he's, well, like you -- an older guy -- but--" She paused, taking a breath, and blurted out a rather key detail. "He left his wife, you know, separated, I guess is the word." 
 
@@ -1434,7 +1488,11 @@
 
  
 
- ****** Lilac and Three Separate Strangers ****** byNonStopFunGuy© One four-hour stretch of time on a chilly Wednesday night the week before Thanksgiving week. Three married men who never met each other. Three separate tales of promiscuous fun with the same 18 year old slut, who was a stranger to all of them -- before she sucked or fucked their fat married cocks. 
+ 
+
+===
+
+One four-hour stretch of time on a chilly Wednesday night the week before Thanksgiving week. Three married men who never met each other. Three separate tales of promiscuous fun with the same 18 year old slut, who was a stranger to all of them -- before she sucked or fucked their fat married cocks. 
 
  * * * * * * * * * * * * * 
 
@@ -1560,7 +1618,11 @@
 
  
 
- ****** Lilac and Three Separate Strangers ****** byNonStopFunGuy© The comment seemed to please her. "Mmm, well, if the boot fits?" She giggled, it was a reference to a movie line I didn't know at the time. (Google it and find out for yourself; it was something an 18 year old would know, from her childhood.) Keeping her big eyes on my face, she watched my reaction as her thin lips parted, and swallowed my throbbing peckerhead. Her mouth was velvety soft, warm too. She hummed against my penis, sucking my dick an inch or two into her high school mouth, her fist pumping slowly on my base. Salivating on my erection, she sucked more into her mouth, deeper, lavishing saliva over my shaft and warmly wrapping those lips around my married penis. 
+ 
+
+===
+
+The comment seemed to please her. "Mmm, well, if the boot fits?" She giggled, it was a reference to a movie line I didn't know at the time. (Google it and find out for yourself; it was something an 18 year old would know, from her childhood.) Keeping her big eyes on my face, she watched my reaction as her thin lips parted, and swallowed my throbbing peckerhead. Her mouth was velvety soft, warm too. She hummed against my penis, sucking my dick an inch or two into her high school mouth, her fist pumping slowly on my base. Salivating on my erection, she sucked more into her mouth, deeper, lavishing saliva over my shaft and warmly wrapping those lips around my married penis. 
 
  "Oooh, fuck yeah, honey," I panted, pushing my hips forward, one of my hands on her small, blonde head, feeling her skull bobbing as she sucked me off, "suck my dick, you've got me so fucking hard!" 
 
@@ -1688,7 +1750,11 @@
 
  
 
- ****** Lilac and Three Separate Strangers ****** byNonStopFunGuy© Her shriek echoed through the bedroom. "Yes! I do!" 
+ 
+
+===
+
+Her shriek echoed through the bedroom. "Yes! I do!" 
 
  My dickhead found her wet hole, and as we both wiggled our bodies, my helmet was kissing her magical, soft entrance to her pussy. With one shove, I thrust forward, and I was fucking the girl I'd just met on the bus not even 15 or 20 minutes earlier. 
 
@@ -1802,7 +1868,11 @@
 
  
 
- ****** Lilac and Three Separate Strangers ****** byNonStopFunGuy© I couldn't stand it. I was babbling on and on about college applications, the admissions process, getting her applications to look better to schools, and all I could think about was -- this fucking hottie has cum oozing out of her slutty pussy! I was daydreaming about how hot her lucky boyfriend was, some 18 or 19 year old stud who could get inside the panties of a high school senior like Lilac. My perverted thoughts were interrupting my lecture, my voice trailed off or I rambled a bit a few times, making the blonde girl in front of me giggle and ask if anything was wrong. 
+ 
+
+===
+
+I couldn't stand it. I was babbling on and on about college applications, the admissions process, getting her applications to look better to schools, and all I could think about was -- this fucking hottie has cum oozing out of her slutty pussy! I was daydreaming about how hot her lucky boyfriend was, some 18 or 19 year old stud who could get inside the panties of a high school senior like Lilac. My perverted thoughts were interrupting my lecture, my voice trailed off or I rambled a bit a few times, making the blonde girl in front of me giggle and ask if anything was wrong. 
 
  Was anything wrong? I had to admit, something was wrong. I apologized, and I just said what it was -- sort of. "So -- I don't usually talk like an idiot," I said with as casual and friendly a smile as I could muster, "but, honestly, I don't usually get to talk with girls as pretty -- well, to be totally truthful -- as HOT as you -- I just feel lucky even talking to you." Her slim, pale face lit up with an appreciate smile. She wasn't feigning her reaction. "Awww, really? That's sooo nice of you to say!" 
 
@@ -1922,7 +1992,11 @@
 
  
 
- ****** Lilac and Three Separate Strangers ****** byNonStopFunGuy© I quickly quick-dialed my home phone, and I could hear it ringing upstairs in the kitchen. A couple rings later, my wife answered. Quickly, I told her, this girl I was with today wants me to help her write out an essay for an application, so the counseling will run longer than an hour; maybe, I suggested, my wife could help me out and drive over to the cleaner's and pick up my suits I'd dropped off? And possibly grab some Chinese pick-up for a late dinner? 
+ 
+
+===
+
+I quickly quick-dialed my home phone, and I could hear it ringing upstairs in the kitchen. A couple rings later, my wife answered. Quickly, I told her, this girl I was with today wants me to help her write out an essay for an application, so the counseling will run longer than an hour; maybe, I suggested, my wife could help me out and drive over to the cleaner's and pick up my suits I'd dropped off? And possibly grab some Chinese pick-up for a late dinner? 
 
  The half-naked slut on my lap applauded my creativity. My wife didn't know the game, and she readily agreed. She was going to leave the house, and it would be well over 30 minutes before she would come back. We'd be guaranteed privacy in the house. 
 
@@ -2018,7 +2092,11 @@
 
  
 
- ****** Lilac and Three Separate Strangers ****** byNonStopFunGuy© I was laughing on the inside. We really fucked! And I had two orgasms -- and she had a lot more than two! 
+ 
+
+===
+
+I was laughing on the inside. We really fucked! And I had two orgasms -- and she had a lot more than two! 
 
  Leaving my cock inside her, I pulled her torso downwards, onto mine. We caught each other's eyes, faces near each other. Ironically, after all that hot fucking, we finally had our first kiss. It wasn't much, at first -- almost a polite peck on each other's lips. I sort of made the first move, but she moved in too, although we both hesitated at first. The body language was like, well, we just fucked so a kiss shouldn't hurt -- but it seemed stilted, almost pointless. However, for the brief moment our lips touched, I took a whiff of her scent again -- the very fucked smell of a young woman's sweaty body and cunt juices. It turned me on. Something aroused her too, and suddenly, that brief, meaningless kiss turned hungry. Our lips sealed together, our jaws opened, and a moment later we were Frenching each other, tongues wrapped around one another, passing hot air between our lungs, moaning into each other's throat. Her hands slipped around my head, digging into my short dark hair, while my hands instinctively cradled the young woman's body, clutching at her shoulders as my arms crossed behind her. 
 
@@ -2040,7 +2118,11 @@
 
  
 
- ****** Lilac's 18-year-old Friend: Anya's Fetish ****** byNonStopFunGuy© Apparently, some 18 year old girls fantasize about being tied up and fucked relentlessly all day or night by perverted, animal grownup studs who don't care about the girls but just want to get off on young pussy. I wouldn't have guessed that, until an 18 year old girl told me it was her fantasy -- and proved it with sexy detail! 
+ 
+
+===
+
+Apparently, some 18 year old girls fantasize about being tied up and fucked relentlessly all day or night by perverted, animal grownup studs who don't care about the girls but just want to get off on young pussy. I wouldn't have guessed that, until an 18 year old girl told me it was her fantasy -- and proved it with sexy detail! 
 
  My name's Xavier, I'm just an ordinary, horny, married guy who trolls for younger women online. I thought other guys like me would get a kick out of an email that a chick sent me last spring. She's 18 years old, her name's Anya (so she says), she's from Russia originally but has been living here for so long you can't tell from the way she writes that she still has a little accent. I love that accent when we phone fuck, it's hot hearing a Russian bitch get horny and talk about my "cock" and her "pussy" with that dialect -- comes out more like "coke" and "poosy." 
 
@@ -2132,7 +2214,11 @@
 
  
 
- ****** Lilac's 18-year-old Friend: Kaeli Goes Bi ****** byNonStopFunGuy© I could tell stories about my married lover Kim, but what you REALLY want to hear is the story Kim told ME, about the hot 18 year old dancer Kaeli who Kim got to fuck in an afternoon of delicious girl/girl sex. 
+ 
+
+===
+
+I could tell stories about my married lover Kim, but what you REALLY want to hear is the story Kim told ME, about the hot 18 year old dancer Kaeli who Kim got to fuck in an afternoon of delicious girl/girl sex. 
 
  Kim related the tale while she was licking and jerking my very fat six and a half inches of swollen cockmeat. It made her horny to see my reaction, and I heard all the juicy details about how she seduced and fucked a high school senior at the end of this past summer. 
 
@@ -2244,7 +2330,11 @@
 
  
 
- ****** Lilac's 18-year-old Friend: Kaeli Goes Bi ****** byNonStopFunGuy© Kim's hands were on my butt, pulling my erection deeper into her juicy vagina. "Now why is that?" Her voice was scolding, consdescending, but she was joking. "You gonna try and cheat on me with her?" 
+ 
+
+===
+
+Kim's hands were on my butt, pulling my erection deeper into her juicy vagina. "Now why is that?" Her voice was scolding, consdescending, but she was joking. "You gonna try and cheat on me with her?" 
 
  How fucking funny is that. Cheat on Kim, the woman with whom I was cheating on my wife? 
 
@@ -2254,7 +2344,11 @@
 
  
 
- ****** Lilac's 18-Year-Old Friend: Madison Is #1 ****** byNonStopFunGuy© The other guys on our football team's staff agree with me that our university should really be called "Fuck U." Because it is filled with slutty coeds who love to fuck. Although I have to say, now into our third season here, the best fuck of all of them was actually an 18 year old high school senior visiting the campus for a night, named Madison. She was a hot, shapely black track athlete who could fuck the skin off of a hard cock! 
+ 
+
+===
+
+The other guys on our football team's staff agree with me that our university should really be called "Fuck U." Because it is filled with slutty coeds who love to fuck. Although I have to say, now into our third season here, the best fuck of all of them was actually an 18 year old high school senior visiting the campus for a night, named Madison. She was a hot, shapely black track athlete who could fuck the skin off of a hard cock! 
 
  I can proudly say, I have a bit of experience in the area, I mean, seeing 18 to 22 year old girls have wild sex. I'm 39 and used to play some ball and got into coaching professional teams in the NFL. That was insanely hard work for really lousy pay. So two and a half years ago, I got invited to join a staff at a not- so-successful college. What a fucking good decision I made to join them. The work was just as hard, the pay even lower, but I found myself around horny college girls pretty constantly. I'm married, but so what. I can't turn down 19 year old pussy when it's offered to me. Now halfway through our third season, to date I've banged no less than 12 separate girls who go to this school - - mostly in their dorm rooms, sometimes on road trips when I'm saying in a motel room. This year I have three regular girlfriends I'm fucking, including a blonde cheerleader in her Junior year, whom I started banging last year. 
 
@@ -2350,7 +2444,11 @@
 
  
 
- ****** Lilac's 18-Year-Old Friend: Madison Is #1 ****** byNonStopFunGuy© "Keep playing," shouted the black high school girl with the hot butt, seeing Chanie and me about to get it on. Madison was horny for the game to continue. 
+ 
+
+===
+
+"Keep playing," shouted the black high school girl with the hot butt, seeing Chanie and me about to get it on. Madison was horny for the game to continue. 
 
  I forced my lips to separate from Chanie's mouth, and I dealt the next hand. The lowest card turned up for the built football player, who quickly stood up to remove his jeans. Naked Holly did the honors, reaching out to unfasten his belt, snap and zipper, and she tugged down his jeans while he stepped out of them. Thad was reduced to wearing his dark-gray underwear briefs with white elastic band. The tent in his underwear was not enormous, but it was pronounced; he must have had a cock like mine, somewhere around seven inches, with fat balls inside his briefs. As he sat back proudly on the sofa between Holly and Madison, all three girls in the room stared at it, and he knew it, making sure his thighs were spread to show off his bulge. 
 
@@ -2430,7 +2528,11 @@
 
  
 
- ****** Lilac's 18-Year-Old Friend: Madison Is #1 ****** byNonStopFunGuy© The brunette, utterly horny and dying for more sex, watched her roommate with wide-open brown eyes. I snickered at the girl. "You ever had your roommate eat you out before?" She shook her head, but I saw she wasn't going to stop Holly. 
+ 
+
+===
+
+The brunette, utterly horny and dying for more sex, watched her roommate with wide-open brown eyes. I snickered at the girl. "You ever had your roommate eat you out before?" She shook her head, but I saw she wasn't going to stop Holly. 
 
  So with the other three of us watching, Holly began licking her roommate's sperm-filled pussy too. Chanie gasped, her head back and long dark hair spilling around the floor, her back arched her petite tits with pointy pink nipples stretching into the air. Holly was lapping furiously at Chanie's muff, digging tongue into her roommate's pussy, tasting my seed I just squirted into the bitch. Thad and I both laughed at the blonde eating her roommate, but we both thought Chanie should reciprocate. So, at our stern direction, Holly crawled around to rotate above Chanie, and a moment later the two 19 year olds were in a "69" position, with Holly's face above Chanie's cunt, and the brunette was staring up at the blonde's wet vagina. 
 
@@ -2516,7 +2618,11 @@
 
  
 
- ****** Lilac's 18-Year-Old Friend: Madison Is #1 ****** byNonStopFunGuy© "Ahhh, fuck!" I had my eyes closed, trying to hold it back, but I was going to do it. I was going to flood her pussy with my second orgasm, just as Thad had done moments ago. "Fuck, baby, I'm cumming!" 
+ 
+
+===
+
+"Ahhh, fuck!" I had my eyes closed, trying to hold it back, but I was going to do it. I was going to flood her pussy with my second orgasm, just as Thad had done moments ago. "Fuck, baby, I'm cumming!" 
 
  With a scream, I felt my dick explode, and semen shot through my shaft into her teenage vagina, deep inside that hole where my cockhead was buried, doubling her pleasure with yet more sperm inside her high school cunt. 
 
@@ -2570,7 +2676,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Ashley's FMM ****** byNonStopFunGuy© My work partner and me had been able to double-fuck a few horny sluts over the last couple of years, but this big-titted, 18 year old was the hottest of them all. 
+ 
+
+===
+
+My work partner and me had been able to double-fuck a few horny sluts over the last couple of years, but this big-titted, 18 year old was the hottest of them all. 
 
  Willy and me, we're a two-guy "handiman service." We can fix just about any small project in a house -- electrical, plumbing, painting, move a wall, build a fireplace, you name it. He's 52 and I'm 38, and we're both in really good shape. He's got huge, muscular arms and shoulders, and I've got a very fit, slim body. While we're both married, we are also typical males. Hot women get us really horny. 
 
@@ -2672,7 +2782,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Ashley's FMM ****** byNonStopFunGuy© The bitch was naked between the two of us, except for socks which we ignored. Kind of sexy, actually, fucking a girl who leaves her socks on. Her snatch was drenched, with a thick batch of dark, coarse pubic hair around it. Willy's and my fingers met at it, and I let him have the first honors of fingering her clitoris while my hand massaged warmth into her creamy soft thighs but equally silky buttocks, my lips on her mouth, sucking her tongue. The girl was a pretty good kisser, and she was moaning into me, feeling the four male hands on her nude body. 
+ 
+
+===
+
+The bitch was naked between the two of us, except for socks which we ignored. Kind of sexy, actually, fucking a girl who leaves her socks on. Her snatch was drenched, with a thick batch of dark, coarse pubic hair around it. Willy's and my fingers met at it, and I let him have the first honors of fingering her clitoris while my hand massaged warmth into her creamy soft thighs but equally silky buttocks, my lips on her mouth, sucking her tongue. The girl was a pretty good kisser, and she was moaning into me, feeling the four male hands on her nude body. 
 
  Pete's cock wanted to come out to play, as did Willy's. Pete's peter and Willy's willy, we might call them. I stood upright and gently nudged her down to her knees, between Willy and me, as we faced her. She looked up at us hungrily but a little nervous, biting her lower lip, clearly unsure of herself. I assuaged her fears with an amicable grin and another nice kiss on her lips, before I said to her, "Just do what comes naturally, darling -- you got a couple big, hot cocks that love you so much." With that, I unsnapped and unzipped my jeans, pushing them and my underwear down to proudly expose my long erection. Throbbing hard, leaking precum around the bulbous cockhead, my seven and a half inches of pure joy was aching for her, pulsating, just twitching in the air as it jutted out of my firm belly. I kicked my pants and underwear off, then ripped off my sweaty t-shirt, so I was basically nude in front of her as well. In front of me, on her other side, Willy's big belly was out now, followed moments later by his thick dick, sticking right at the girl. 
 
@@ -2766,7 +2880,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Ashley's FMM ****** byNonStopFunGuy© It was still almost too good to be true. "So, were you looking for sex today," I asked pointedly, wondering how it really happened so fast. "Looked like you were flirting with us all week." 
+ 
+
+===
+
+It was still almost too good to be true. "So, were you looking for sex today," I asked pointedly, wondering how it really happened so fast. "Looked like you were flirting with us all week." 
 
  The teenager giggled again, shrugging her petite shoulder. "Not really -- I'm just always horny I guess." Then she blushed. "I get hot, like, when guys look at my tits." 
 
@@ -2784,7 +2902,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Moniqua Chats ****** byNonStopFunGuy© After two decades of chatting with horny women on the Internet, the best orgasms I ever had occurred just this past summer. I had three intense, almost painful ejaculations from the hottest, sluttiest girl I'd ever met, online or in person -- a petite, pretty black 18 year old named Moniqua. Wow, could that chick take a big cock into her tiny pink pussy! 
+ 
+
+===
+
+After two decades of chatting with horny women on the Internet, the best orgasms I ever had occurred just this past summer. I had three intense, almost painful ejaculations from the hottest, sluttiest girl I'd ever met, online or in person -- a petite, pretty black 18 year old named Moniqua. Wow, could that chick take a big cock into her tiny pink pussy! 
 
  Let's be clear about a few things. If you don't like hearing about older white guys banging teenagers -- this girl was still had a year of high school left - - or hearing about white guys hooking up with black females, then, stop reading this. 
 
@@ -2892,7 +3014,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Moniqua Chats ****** byNonStopFunGuy© "Anything else?" she typed, standing half-naked in front of the computer, completely tantalizing me. 
+ 
+
+===
+
+"Anything else?" she typed, standing half-naked in front of the computer, completely tantalizing me. 
 
  "Nope," I responded, assuming she was going off to shower. I was so excited to see the show, although I had a wait a while for it. Part of me, of course, expected something to go wrong -- no way this was actually going to happen, would it? 
 
@@ -2998,7 +3124,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Moniqua Chats ****** byNonStopFunGuy© Then, her orgasm hit. Without warning, she flopped entirely on her back, her hands falling to her sides and gripping her white bedsheets. I could see her face contorting, jaw trembling, eyes rolling. Her body stiffened, her knees bent up more, and she began cumming. Reading her lips, I could see her yelp, "I'm cumming, I'm cumming," while she spasmed and thrust her pelvis against his face. The guy kept licking her twat through her orgasm, he must have been driving his middle-aged tongue so deep into her 18 year old pussy. Moniqua grabbed her bedsheets more, undulating her slim black hips, feeling herself get eaten over and over. Again she must have had an orgasm, then a few minutes later a third one. He was driving her insane. 
+ 
+
+===
+
+Then, her orgasm hit. Without warning, she flopped entirely on her back, her hands falling to her sides and gripping her white bedsheets. I could see her face contorting, jaw trembling, eyes rolling. Her body stiffened, her knees bent up more, and she began cumming. Reading her lips, I could see her yelp, "I'm cumming, I'm cumming," while she spasmed and thrust her pelvis against his face. The guy kept licking her twat through her orgasm, he must have been driving his middle-aged tongue so deep into her 18 year old pussy. Moniqua grabbed her bedsheets more, undulating her slim black hips, feeling herself get eaten over and over. Again she must have had an orgasm, then a few minutes later a third one. He was driving her insane. 
 
  I could read her lips again quite easily: "Fuck me, fuck me!" 
 
@@ -3106,7 +3236,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Moniqua Chats ****** byNonStopFunGuy© "YES," the horny teenager wrote quickly. 
+ 
+
+===
+
+"YES," the horny teenager wrote quickly. 
 
  She was really turning me on, my thrice-spent dick was really swollen hard again, this was a record for being so turned on. "And," I asked next, "does it make you hot knowing I'm watching you fuck?" 
 
@@ -3186,7 +3320,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Payton's Gift ****** byNonStopFunGuy© I don't like to be too boastful, but sometimes, horny, sexy young women just throw themselves at me, looking for no-strings-attached, hot sex with a very good-looking, well-off guy. 
+ 
+
+===
+
+I don't like to be too boastful, but sometimes, horny, sexy young women just throw themselves at me, looking for no-strings-attached, hot sex with a very good-looking, well-off guy. 
 
  The youngest to do it was this 18 year old brunette, Payton, who had to be one of the most gorgeous girls I'd ever stuck my cock into. And what a horny little bitch she was! It was two hours of luscious, promiscous sexuality by two good- looking people, just using each other to get off, and create lasting memories. I'll probably never see her again, but I won't forget Payton! 
 
@@ -3306,7 +3444,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Payton's Gift ****** byNonStopFunGuy© I didn't hate her, I found the question amusing. "Thirty six." Then, almost not wanting to know, I knew I had to return the favor. Nothing had "happened" yet, at least. "And -- you, how old?" 
+ 
+
+===
+
+I didn't hate her, I found the question amusing. "Thirty six." Then, almost not wanting to know, I knew I had to return the favor. Nothing had "happened" yet, at least. "And -- you, how old?" 
 
  I almost winced, not wanting to hear a number that was too low. It wasn't. "Eighteen," she said proudly, beginning to unfasten my pants. 
 
@@ -3418,7 +3560,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Payton's Gift ****** byNonStopFunGuy© Keeping her on her back, I flopped to the bed on my stomach between her spread- open legs, my face over her sloppy, shaved pussy. It smelled incredibly good - - fishy, wet, musky, and fucked so hard. Her juices were coating her pussylips and thighs, even her asscheeks and asshole. So fucking hot! Putting my hands on her thighs to keep her spread open, I stuck my tongue out and began licking the juices off of her pussylips. I heard her moan, her small hands ran through the dark hair on my head, pulling my mouth firmly against her twat. The bitch wanted me to eat her. Moving my lips and tongue around, I found her swollen clitoris, sucking juices off of it, then digging my tongue into the wet fleshy crevaces around her twat. Her ass was squirming now, gyrating rapidly as I sucked her clitoris, building up the sexual tension inside her body. 
+ 
+
+===
+
+Keeping her on her back, I flopped to the bed on my stomach between her spread- open legs, my face over her sloppy, shaved pussy. It smelled incredibly good - - fishy, wet, musky, and fucked so hard. Her juices were coating her pussylips and thighs, even her asscheeks and asshole. So fucking hot! Putting my hands on her thighs to keep her spread open, I stuck my tongue out and began licking the juices off of her pussylips. I heard her moan, her small hands ran through the dark hair on my head, pulling my mouth firmly against her twat. The bitch wanted me to eat her. Moving my lips and tongue around, I found her swollen clitoris, sucking juices off of it, then digging my tongue into the wet fleshy crevaces around her twat. Her ass was squirming now, gyrating rapidly as I sucked her clitoris, building up the sexual tension inside her body. 
 
  "Fuck, yessss!" The teenage slut began squealing again, having an orgasm from the licking and suckling of her clitoris. Her hands were under her knees, pulling them back to her chest, completely exposing her spasming cunt to my mouth. 
 
@@ -3516,7 +3662,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Payton's Gift ****** byNonStopFunGuy© Only, I had a surprise for her. I grabbed her slim hips with both hands, holding her still, and without asking I pushed my dickhead forward against her little butthole. It was right below the water line, I saw that little puckered brown hole. The teenager didn't expect that, and she let out a howl of protest when she felt my dickhead against her poop hole. But instead of getting away from me, she lifted her hips a bit more, spreading her knees in the tub, offering me that asshole. 
+ 
+
+===
+
+Only, I had a surprise for her. I grabbed her slim hips with both hands, holding her still, and without asking I pushed my dickhead forward against her little butthole. It was right below the water line, I saw that little puckered brown hole. The teenager didn't expect that, and she let out a howl of protest when she felt my dickhead against her poop hole. But instead of getting away from me, she lifted her hips a bit more, spreading her knees in the tub, offering me that asshole. 
 
  There, my peckerhead just found her butthole and was at the entrance, and I yanked her hips towards my body while shoving my cock forward. She yelped, and I had a good inch or so inside her ass! That little hole was even more tight than her pussy, a fleshy little orifice barely big enough for my oversized dick. Grunting and wincing as I started to fuck it, I rammed my cock forward bit by bit, holding her firmly, watching her ass in the bubbles of the swirling warm water. Inch by inch my erection sank into Payton's asshole, until soon I had a good five inches inside. 
 
@@ -3588,7 +3738,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Stacy's Trip ****** byNonStopFunGuy© Only one thing that can make it worthwhile to sit in the very last of an overstuffed commercial jetliner, and then having the next flight cancelled - - and that would be, sitting right next to a gorgeous, strawberry-blonde 18 year old. Who, it later turned out, was a nasty, dirty SLUT who loved a big cock up her tight ass. 
+ 
+
+===
+
+Only one thing that can make it worthwhile to sit in the very last of an overstuffed commercial jetliner, and then having the next flight cancelled - - and that would be, sitting right next to a gorgeous, strawberry-blonde 18 year old. Who, it later turned out, was a nasty, dirty SLUT who loved a big cock up her tight ass. 
 
  Wow, what a great fucking trip it ended up being after all. 
 
@@ -3706,7 +3860,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Stacy's Trip ****** byNonStopFunGuy© The girl snickered. "Did you hear that?" Like I could have missed it. 
+ 
+
+===
+
+The girl snickered. "Did you hear that?" Like I could have missed it. 
 
  "Sure." I sighed, hoping the next round of storms wasn't going to last long. "Looks like ol' Mother Nature isn't done with us yet, tonight." 
 
@@ -3832,7 +3990,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Stacy's Trip ****** byNonStopFunGuy© The power came back on outside at some point, restoring some dim light to the room. I took advantage of it, pushing Stacy onto her fours, climbing behind her hot young ass. She had a round butt, with a bit of flesh on it, but it looked delicious, like two half-moons in the dim light. I could even make out the beads of sweat and juices on her buttcheeks. 
+ 
+
+===
+
+The power came back on outside at some point, restoring some dim light to the room. I took advantage of it, pushing Stacy onto her fours, climbing behind her hot young ass. She had a round butt, with a bit of flesh on it, but it looked delicious, like two half-moons in the dim light. I could even make out the beads of sweat and juices on her buttcheeks. 
 
  But as I moved to fuck her doggy-style, the girl whimpered, moving her pelvis away from me, reaching back with a hand. "No, here," she spat at me, with a rushed, urgent tone, "fuck my ass -- can you please fuck my ass?" I hadn't fucked an ass for a long time, and I guess I hesitated, because that is what she really wanted. "I wanna be dirty -- make me your dirty slut, baby -- stick your dick in my ass, please!" 
 
@@ -3886,7 +4048,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Tawni Learns ****** byNonStopFunGuy© "You're so lucky to be married to me," my pregnant wife Vicky purred at me with a wicked grin, "because I'm going to let you get laid by the hottest little slut you can imagine." Her playful grin was ear to ear, knowing things I didn't know -- like, the identity of the teenager I was going to bang. 
+ 
+
+===
+
+"You're so lucky to be married to me," my pregnant wife Vicky purred at me with a wicked grin, "because I'm going to let you get laid by the hottest little slut you can imagine." Her playful grin was ear to ear, knowing things I didn't know -- like, the identity of the teenager I was going to bang. 
 
  My seven-inch erection was already fully engorged inside my tight jeans, but I played it cool, not wanting to seem too eager to have sex with an 18 year old high school student -- in front of my 8-month pregnant wife. But I couldn't wait, and I knew Vicky knew I couldn't wait. Really, why was I pretending it was no big deal? 
 
@@ -4012,7 +4178,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Tawni Learns ****** byNonStopFunGuy© Vicky stared at the girl, then barked the instructions. "Good, then, get off the sofa, and I want you to really tease him -- start taking your clothing off -- show him your hot little body." My wife explained her thinking. "A girl should get naked first, it tells a guy that she wants sex -- and it gets a guy really fucking horny." 
+ 
+
+===
+
+Vicky stared at the girl, then barked the instructions. "Good, then, get off the sofa, and I want you to really tease him -- start taking your clothing off -- show him your hot little body." My wife explained her thinking. "A girl should get naked first, it tells a guy that she wants sex -- and it gets a guy really fucking horny." 
 
  I almost gasped. It seemed to be a big leap, going from an erotic kiss to stripping nude -- but, I wasn't going to stop the girl from getting nude in front of me, if she was intending to do so. 
 
@@ -4158,7 +4328,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Tawni Learns ****** byNonStopFunGuy© Vicky just had one more in mind. Upside-down, she said. 
+ 
+
+===
+
+Vicky just had one more in mind. Upside-down, she said. 
 
  Fortunately, Tawni was flexible. It was a strange position, but she did as told. Her lower back was flat against the front of the sofa, her neck, shoulders and upper back on the floor, her legs spread and feet bracing herself while she was upside-down -- so, her pussy was hanging in mid-air, right in front of the sofa. Vicky had me stand over the girl, pointing my erection downward, and I sunk my cock into the girl's pussy. Frankly, it wasn't a great position -- but I got it a few inches, in and out a little bit. I think this is a position porn movies show, but real people don't really fuck this way, I don't think -- it's not that easy. Tawni didn't like it. 
 
@@ -4264,7 +4438,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Vivian Swings ****** byNonStopFunGuy© Sitting back in a large hot tub perched on a bluff overlooking the fabulous ocean coast, surrounded by FIVE promiscuous women in string bikinis and three other perverted guys, all my attention was focused on the hottest 18 year old I'd ever met. This skinny but chesty, long-haired brunette with a perfect ass proved to be an incredible slut, and all of us in the hot tub had her ex- stepmom to thank for it. 
+ 
+
+===
+
+Sitting back in a large hot tub perched on a bluff overlooking the fabulous ocean coast, surrounded by FIVE promiscuous women in string bikinis and three other perverted guys, all my attention was focused on the hottest 18 year old I'd ever met. This skinny but chesty, long-haired brunette with a perfect ass proved to be an incredible slut, and all of us in the hot tub had her ex- stepmom to thank for it. 
 
  The sex party that ran from night into morning probably would have been incredibly satisfying anyway, but the fact that I got to meet and fuck this gorgeous, slutty 18 year old bitch was the sexual highlight of my life, I think. 
 
@@ -4350,7 +4528,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Vivian Swings ****** byNonStopFunGuy© Right next to me, the brunette was blushing badly, her brown eyes flirtatiously glancing at all of the adults arrayed around her in the pool, knowing we were thinking very perverted thoughts about her. 
+ 
+
+===
+
+Right next to me, the brunette was blushing badly, her brown eyes flirtatiously glancing at all of the adults arrayed around her in the pool, knowing we were thinking very perverted thoughts about her. 
 
  Trixie saw Vivian's defensive grin, and wanted to prove her point. "Go ahead, Viv," said the woman, "just try -- name each of the men you've fucked at parties with me -- I know them, I think -- bet you can't even name all of them!" 
 
@@ -4460,7 +4642,11 @@
 
  
 
- ****** Lilac's 18yo Friend: Vivian Swings ****** byNonStopFunGuy© And that, my friendly readers, was just the FIRST round of the sex that night! 
+ 
+
+===
+
+And that, my friendly readers, was just the FIRST round of the sex that night! 
 
  The hookups would continue unabated. I wasn't going to be allowed to fuck Vivian by myself all night, of course, so I had to find another pussy to drill. The adoring eyes of 23 year old Roxy caught sight of my swinging dick, and instantly I had my next sex partner. By the end of a couple of hours, I'd had my cock inside Trixie too, as well as Giana a second time. 
 
@@ -4562,11 +4748,19 @@
 
  
 
- ****** Lilac's 18yo Friend: Vivian Swings ****** byNonStopFunGuy© I took it in stride, not arguing back. I didn't fucking care that she was mad. Not only was Vivian a great, young fuck, but I got more than a sexy memory from it -- I got Vivian's cellphone number, too!  
+ 
+
+===
+
+I took it in stride, not arguing back. I didn't fucking care that she was mad. Not only was Vivian a great, young fuck, but I got more than a sexy memory from it -- I got Vivian's cellphone number, too!  
 
  
 
- ****** Lilac's Sleepover At Madison's ****** byNonStopFunGuy© Two horny, slutty 18 year old females -- "Best Friends Forever," specifically - - wearing their nighttime pajamas, having a sleepover in one of their rooms. The room is nearly pitch black, the time is past midnight on the Saturday evening the weekend before Thanksgiving. 
+ 
+
+===
+
+Two horny, slutty 18 year old females -- "Best Friends Forever," specifically - - wearing their nighttime pajamas, having a sleepover in one of their rooms. The room is nearly pitch black, the time is past midnight on the Saturday evening the weekend before Thanksgiving. 
 
  Any mere mortals, if lucky enough to be a fly on the wall in that room, wouldn't believe their ears. 
 
@@ -4972,7 +5166,11 @@
 
  
 
- ****** Lilac's Sleepover At Madison's ****** byNonStopFunGuy© Madison: "It's okay, baby, I'm horny too -- really fuckin' horny -- knowing you fucked your hot, sexy Daddy? That's so hot. He's such a good fuck. I wanna see you two fuck -- I'm so wet thinking about bein' at your house Wednesday, watching you two fuck -- maybe getting him to fuck me too, or you and I even doing it while he watches or is doing us -- sooo fuckin' sexy!" 
+ 
+
+===
+
+Madison: "It's okay, baby, I'm horny too -- really fuckin' horny -- knowing you fucked your hot, sexy Daddy? That's so hot. He's such a good fuck. I wanna see you two fuck -- I'm so wet thinking about bein' at your house Wednesday, watching you two fuck -- maybe getting him to fuck me too, or you and I even doing it while he watches or is doing us -- sooo fuckin' sexy!" 
 
  Lilac: "I can't believe it -- first I fuck my Daddy, now talking to you about this, I've know you almost as long as him, it seems -- this is depraved!" 
 
@@ -5242,7 +5440,11 @@
 
  
 
- ****** Lilac's Sluts: Giana's 3 Tests ****** byNonStopFunGuy© I'm Thom, I'm a rich, good-looking, hung, married-but-cheating playboy, and I have the perfect mistress: A 20 year old, gorgeous, skinny, Chinese college girl with big, fake tits and an insatiable, outrageous appetite for every kind of erotic sex. So far, I haven't found Giana's limits. She's fucking perfect. 
+ 
+
+===
+
+I'm Thom, I'm a rich, good-looking, hung, married-but-cheating playboy, and I have the perfect mistress: A 20 year old, gorgeous, skinny, Chinese college girl with big, fake tits and an insatiable, outrageous appetite for every kind of erotic sex. So far, I haven't found Giana's limits. She's fucking perfect. 
 
  * * * * * 
 
@@ -5350,7 +5552,11 @@
 
  
 
- ****** Lilac's Sluts: Giana's 3 Tests ****** byNonStopFunGuy© Sawyer announced he had to cum, and Ameldo relented. He allowed Sawyer to take control of Giana, rolling her onto her back and butt, then Sawyer straddled her huge fake tits and shoved his cock into her mouth. My girlfriend looked up at him in horror, her eyes wide open, just his cockhead inside her thin lips, and then she felt it. He was squirting semen into her mouth and throat, and there was a LOT of it. "Mmmmmm!" She tried to keep her lips around his dickhead while he unloaded in her, but it was too much, I saw sperm spilling out the corners of her mouth, around her chin, and she was gasping for air while she took more than a mouthful of his black-man's, white-hot cum. 
+ 
+
+===
+
+Sawyer announced he had to cum, and Ameldo relented. He allowed Sawyer to take control of Giana, rolling her onto her back and butt, then Sawyer straddled her huge fake tits and shoved his cock into her mouth. My girlfriend looked up at him in horror, her eyes wide open, just his cockhead inside her thin lips, and then she felt it. He was squirting semen into her mouth and throat, and there was a LOT of it. "Mmmmmm!" She tried to keep her lips around his dickhead while he unloaded in her, but it was too much, I saw sperm spilling out the corners of her mouth, around her chin, and she was gasping for air while she took more than a mouthful of his black-man's, white-hot cum. 
 
  Barely able to swallow, she choked down some air, then finally took the sperm into her stomach, looking at me with pain in her eyes, really gasping for air. Giana rubbed her pussy, it was so sore from me stretching it earlier and now Sawyer. 
 
@@ -5468,7 +5674,11 @@
 
  
 
- ****** Lilac's Sluts: Giana's 3 Tests ****** byNonStopFunGuy© So that Giana could see better, I laid on my back with my feet pointed right to Giana. Then I had Janae sit on me reverse-cowgirl style, so as Janae leaned back and spread those creamy thighs, Giana saw my penis drilling into Janae's twat. I reached upwards and around Janae's torso, my hands pawing and groping the married woman's titties; while Janae had a hand in her crotch, forcefully rubbing her clitoris, drawing out more orgasms as she felt my dick plunging into her wet pussy. 
+ 
+
+===
+
+So that Giana could see better, I laid on my back with my feet pointed right to Giana. Then I had Janae sit on me reverse-cowgirl style, so as Janae leaned back and spread those creamy thighs, Giana saw my penis drilling into Janae's twat. I reached upwards and around Janae's torso, my hands pawing and groping the married woman's titties; while Janae had a hand in her crotch, forcefully rubbing her clitoris, drawing out more orgasms as she felt my dick plunging into her wet pussy. 
 
  Over on the chair, Giana's small ass was sitting in a pool of her juices, which were streaming down her asscheeks and thighs. Poor girl wanted to get fucked so badly, but all she could do was see it, smell it, hear it, almost taste it - - but not get any of it, not a bit. 
 
@@ -5594,7 +5804,11 @@
 
  
 
- ****** Lilac's Sluts: Giana's 3 Tests ****** byNonStopFunGuy© My slutty college girlfriend giggled, in part watching me brutally fuck Kitty, but also watching the husband's weird reaction. He was hard, his cock was tenting out his wet trunks. But he just stood there on his knees on the bed, gazing at the stud ram-fucking his horny wife on their marital bed, watching intently with every thrust I drove into the bitch. I could sense him watching, but I didn't stare back at him. His wife was mine, I didn't need to see what he thought about it. I offered my mouth to his wife, and she went for it, leaning up to close the gap, shoving her tongue in my mouth and French-kissing me madly, hungrily, moaning and using lots of tongue. The woman sure could kiss well. 
+ 
+
+===
+
+My slutty college girlfriend giggled, in part watching me brutally fuck Kitty, but also watching the husband's weird reaction. He was hard, his cock was tenting out his wet trunks. But he just stood there on his knees on the bed, gazing at the stud ram-fucking his horny wife on their marital bed, watching intently with every thrust I drove into the bitch. I could sense him watching, but I didn't stare back at him. His wife was mine, I didn't need to see what he thought about it. I offered my mouth to his wife, and she went for it, leaning up to close the gap, shoving her tongue in my mouth and French-kissing me madly, hungrily, moaning and using lots of tongue. The woman sure could kiss well. 
 
  "Awww," I heard Giana moan aloud, "seems Kitty really likes Thom's cock!" She giggled again, almost a sneer. "David, too bad you don't have a big cock like Thom, I'd let you fuck me that way if you did." 
 
@@ -5660,7 +5874,11 @@
 
  
 
- ****** Lilac's Sluts: Heather Does Daddy ****** byNonStopFunGuy© If you don't like hearing why a middle-aged, married father ends up sticking his cock in his 19 year old slutty daughter, then don't read any further. Because this is what I'm going to tell you about. 
+ 
+
+===
+
+If you don't like hearing why a middle-aged, married father ends up sticking his cock in his 19 year old slutty daughter, then don't read any further. Because this is what I'm going to tell you about. 
 
  Heather is fucking gorgeous, and the mere fact that I'm her father shouldn't discolor my objectivity in that regard. She's tall, had long, golden-blonde hair, nice C cup tits on a perfect slender, no-fat body, and thin, exquisite legs that make any man's mouth water. She's also incredibly fucking horny, she's in her sophomore year at college and it turns out she pretty much fucks any hot adult male or sexy female that wants access to her bald, shaved cunt. She's also sweet, adorable, funny, smart, and playful. I mean, who wouldn't say she's anything but gorgeous and, just, you know, great. 
 
@@ -5796,7 +6014,11 @@
 
  
 
- ****** Lilac's Sluts: Heather Does Daddy ****** byNonStopFunGuy© Now it became a running joke. "Well, it's a required course, Daddy, we all have to take it." 
+ 
+
+===
+
+Now it became a running joke. "Well, it's a required course, Daddy, we all have to take it." 
 
  "I'm sure," I answered, pouring myself coffee to avoid how nervous the discussion was making me, "that you're getting an A+ in it." 
 
@@ -5938,7 +6160,11 @@
 
  
 
- ****** Lilac's Sluts: Heather Does Daddy ****** byNonStopFunGuy© "Uhhh," I muttered, somewhat at a loss for words, "what are you suggesting, sweetie?" Of course, I knew exactly what she was suggesting. 
+ 
+
+===
+
+"Uhhh," I muttered, somewhat at a loss for words, "what are you suggesting, sweetie?" Of course, I knew exactly what she was suggesting. 
 
  But she wasn't leaving it to chance. With a low, raspy voice, she gasped, "You know what I'm suggesting, Daddy" -- and, at the moment she said that, her body moved forward. She whipped her hips at me, driving the tight mound of her crotch onto her father's erection inside my own jeans, and I felt her slender hips start to grind in a circle, pushing that teenage pussy against my married adult cock. Oh, she found out how hard her father was, there was no doubting the erection in my pants. 
 
@@ -6072,7 +6298,11 @@
 
  
 
- ****** Lilac's Sluts: Heather Does Daddy ****** byNonStopFunGuy© My cock was on fire, almost cumming in mid-air, so turned on that I was making my gorgeous, sexy blonde daughter orgasm from just my tongue. I loved her so much, and suddenly was even more infatuated with her from becoming one of her lovers now. 
+ 
+
+===
+
+My cock was on fire, almost cumming in mid-air, so turned on that I was making my gorgeous, sexy blonde daughter orgasm from just my tongue. I loved her so much, and suddenly was even more infatuated with her from becoming one of her lovers now. 
 
  Continuing to lick her pussy, I had my tongue pull out and lap juices off her soft, pink pussylips, then I lapped down a stream of the juice to a pool of it over her butthole. I hadn't ever licked a girl's ass before, but I have to say -- hers sure seemed inviting. Clean, puckered, lightly brown, and smelling sweet. With her pussyjuice coating it, I couldn't resist. She kept her legs spread wide open for me, howling in delight, feeling her father's tongue licking around her ass then lightly penetrating it. My nose was rubbing her cunt, and her hips were wildly gyrating in circles. Following the rim job that lasted a few minutes, I returned my tongue to her pussy -- and, as soon as I stuck it inside that cummy hole, Heather screamed and her body shook, and she exhaled with a third orgasm of the night. 
 
@@ -6168,7 +6398,11 @@
 
  
 
- ****** Lilac's Sluts: Heather Does Daddy ****** byNonStopFunGuy© "So you're like dating Jill?" I asked her. Heather shook her head. No, Jill has a regular boyfriend, and Heather does whom she pleases. But, my daughter told me, at night one of the two might say, I'm horny; or sometime during the day one of the two will say to the other their code words -- "So is tonight a good night?" And pretty much, they don't refuse each other, and fuck and eat each other until sleeping sometimes in the same bed, or separating. 
+ 
+
+===
+
+"So you're like dating Jill?" I asked her. Heather shook her head. No, Jill has a regular boyfriend, and Heather does whom she pleases. But, my daughter told me, at night one of the two might say, I'm horny; or sometime during the day one of the two will say to the other their code words -- "So is tonight a good night?" And pretty much, they don't refuse each other, and fuck and eat each other until sleeping sometimes in the same bed, or separating. 
 
  I was so impressed my hot blonde daughter was a bisexual slut, fucking Jill and these other girls, I told her something like, "You're the hottest lesbian I've ever met, honey!" 
 
@@ -6216,7 +6450,11 @@
 
  
 
- ****** Lilac's Sluts: Riona's 18th B-Day ****** byNonStopFunGuy© I had the skinny, sexy redhead's 18th birthday circled on my calendar at work, in a big, fat red circle. 
+ 
+
+===
+
+I had the skinny, sexy redhead's 18th birthday circled on my calendar at work, in a big, fat red circle. 
 
  Working at an IT company with mostly males and ugly women (sorry, it's true), and with my wife not exactly being an eye-catcher any more these days, it was easy to fixate on Riona. She looked pretty traditional Irish, with long red hair mostly down to her slim butt, she was taller than the average teenager but had a ridiculously slim body. Flattish chest, small tight ass, skinny legs. If you're into rail-thin girls, and I am, Riona was fucking eye candy. Her face, too, was easy on the eyes. She radiated a smile all the time from her thin lips, she had light freckles across her bony cheeks, and her green eyes were playful albeit shy. 
 
@@ -6332,7 +6570,11 @@
 
  
 
- ****** Lilac's Sluts: Riona's 18th B-Day ****** byNonStopFunGuy© Fuck, she was tight, incredibly tight. I had to clench my teeth, my ass muscles tightening too, and I pounded my rigid shaft against her tight young hole. I could barely get the head of my dick inside her twat at first, but she was so wet, and I was so hard, it was time to drill for victory. Ramming my pelvis forward time after time, and with my hands firmly grabbing her thin hips to pin her against my desk, I pounded her tight hole with my piston to drive more and more meat into her. Bit by bit my cock sank, first an inch deep, then two, then maybe three. She was so fucking tight! I loved staring at her slim body and little titties, cramming more married cock into her, deeper and deeper, prying open her cuntlips from the size of my erection. 
+ 
+
+===
+
+Fuck, she was tight, incredibly tight. I had to clench my teeth, my ass muscles tightening too, and I pounded my rigid shaft against her tight young hole. I could barely get the head of my dick inside her twat at first, but she was so wet, and I was so hard, it was time to drill for victory. Ramming my pelvis forward time after time, and with my hands firmly grabbing her thin hips to pin her against my desk, I pounded her tight hole with my piston to drive more and more meat into her. Bit by bit my cock sank, first an inch deep, then two, then maybe three. She was so fucking tight! I loved staring at her slim body and little titties, cramming more married cock into her, deeper and deeper, prying open her cuntlips from the size of my erection. 
 
  I could feel her juices trickling down my hairy thighs, her pussy was so wet, as I drove my erection into her, the juices were being squished out, flowing in streams. Her tiny feet, with red-painted toenails, were flopping in the air as I screwed her, her knees over my elbows, until she raised her bony legs up and put her feet over my shoulders. Now her ass was raised off the desk, and as I leaned over her, cramming my cock harder against her tight vagina, I could really get some leverage to screw her. Riona's face was trembling, feeling my adult cock a good four or five inches inside her twat, but I had more to work into it. 
 
@@ -6376,7 +6618,11 @@
 
  
 
- ****** Lilac's Sluts: Roxy Will Do It ****** byNonStopFunGuy© My 23 year old step-daughter Caroline Rae - "Roxy" to most of us -- proved to be the horny, slutty girlfriend I'd been hoping to have since I left my boring, prudish first five six years ago. 
+ 
+
+===
+
+My 23 year old step-daughter Caroline Rae - "Roxy" to most of us -- proved to be the horny, slutty girlfriend I'd been hoping to have since I left my boring, prudish first five six years ago. 
 
  I discovered my sexual prowess a bit later in life. Married right out of college, I was shackled for 12 years to a lovely but sexually stilted bitch. I played the doting husband and didn't cheat on her, trying to be the good guy. The pervert in me wouldn't be retrained forever, so after nearly a decade of being repressed, I began screwing around with porn. That led to chatrooms, emails, sexting, webcam sex, and ultimately an overnight affair on a business trip with a slutty married chick. Her name was Kitty, she was a slim, petite Chinese-American fox, who fucked around with her husband's permission. The sex was unbelievable, I think I had five orgasms that night, the woman kept screaming, "Fuck me again, stud, I love your cock!" I realized my seven-inch prick was pretty good at sex, I kept it up for hours for the most part, and wore down the married cunt. I felt like Thor or Apollo or something, just a divine creature meant to put smiles on horny women's faces. 
 
@@ -6478,7 +6724,11 @@
 
  
 
- ****** Lilac's Sluts: Roxy Will Do It ****** byNonStopFunGuy© I pulled my dick back, then slipped it straight ahead, between her thighs, my cockhead brushing through her pubic hair from beneath. "Stop me if you don't like it, baby," I hissed with conviction, "but I bet you like this." I moved my hand from her hip up her sides, under her armpit, reaching around to cup her ample breast. That tit was fucking soft and fat, it filled my hand as I groped it. My fingertips found my step-daughter's nipples extremely stiff and long. 
+ 
+
+===
+
+I pulled my dick back, then slipped it straight ahead, between her thighs, my cockhead brushing through her pubic hair from beneath. "Stop me if you don't like it, baby," I hissed with conviction, "but I bet you like this." I moved my hand from her hip up her sides, under her armpit, reaching around to cup her ample breast. That tit was fucking soft and fat, it filled my hand as I groped it. My fingertips found my step-daughter's nipples extremely stiff and long. 
 
  "Mmm!" She started to wiggle her round, slightly-flabby butt in a circle, stroking the head of my erection with her pussylips between her meaty thighs. With a hand against the tiled wall to prop herself up, she moaned with anxious lust, gasping even, feeling my dick kiss her pussy. "Ohh, Rick -- you shouldn't!" She didn't say it like she meant it; I heard her gasp again, and her pussy was getting wet from more than just the shower's water. "This is sooooo bad!" 
 

@@ -1,8 +1,14 @@
+All is Well That Ends Well
+==========================
 #1 
 
  
 
- ****** All is Well That Ends Well ****** byJust_Plain_Bob© It has been said that "All is well that ends well" but who is it that determines what is "well"? A case in point: I find out that my wife is an unfaithful whore and I toss her out on her ass and I'm rid of her. It ended well for me right? Then how come I'm so fucking miserable? 
+ 
+
+===
+
+It has been said that "All is well that ends well" but who is it that determines what is "well"? A case in point: I find out that my wife is an unfaithful whore and I toss her out on her ass and I'm rid of her. It ended well for me right? Then how come I'm so fucking miserable? 
 
  It started six months ago when I married my secretary. Hillary was hired by my dick. The day she came in for her interview and walked into my office my brains shot right down into the head of my cock and it said, "You are hired" before we even said hello to each other. A tall woman, 5 feet 9 inches, and a body to die for (36-22-34 I found out later). She had the face of an angel and long blond hair that hung down to the middle of her back. When she sat down in front of me and crossed her incredibly long legs I only had one question I wanted to ask: "When can you start." 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** All is Well That Ends Well ****** byJust_Plain_Bob© "If you don't pull those divorce papers Chuck I'll ruin you. I don't want to, but I'll do what I have to do to stop this divorce." 
+ 
+
+===
+
+"If you don't pull those divorce papers Chuck I'll ruin you. I don't want to, but I'll do what I have to do to stop this divorce." 
 
  "I'm going to say this just once Hillary. Go into court with those assholes and lie and I'll ruin every one of you. So far all that stabbing me in the back has cost them is their jobs. If they go in with you and lie I'll make you all pay." 
 

@@ -1,8 +1,14 @@
+Rachel Makes the Sale
+=====================
 #1 
 
  
 
- ****** Rachel Makes the Sale ****** byJust_Plain_Bob© The kiss made my entire body tingle and that was in addition to the absolute surprise of it. I had walked into the lounge intending to have one, at the most two, drinks to take the edge off of the hard day I'd had, get a football card off of the bartender, fill it out, give him five bucks and then leave. I hadn't even seen her sitting at the bar between the two men until she jumped down off the stool and hurried toward me. The surprise was total when she threw her arms around me and kissed me. Then, without a word being said to me she pulled me over to where she had been sitting. 
+ 
+
+===
+
+The kiss made my entire body tingle and that was in addition to the absolute surprise of it. I had walked into the lounge intending to have one, at the most two, drinks to take the edge off of the hard day I'd had, get a football card off of the bartender, fill it out, give him five bucks and then leave. I hadn't even seen her sitting at the bar between the two men until she jumped down off the stool and hurried toward me. The surprise was total when she threw her arms around me and kissed me. Then, without a word being said to me she pulled me over to where she had been sitting. 
 
  "Here's my husband now. Thanks for the drinks. Come on Jim, let's find a table." 
 

@@ -1,8 +1,14 @@
+One Night In Tokyo
+==================
 #1 
 
  
 
- ****** One Night In Tokyo ****** byJs_Keeper© The fact that this story takes place in a Japanese temple is meant as no disrespect to any particular religious persuasion. The idea was sparked by a visit to a Tokyo temple, but just as easily could have taken place in any cathedral, synagogue or mosque. 
+ 
+
+===
+
+The fact that this story takes place in a Japanese temple is meant as no disrespect to any particular religious persuasion. The idea was sparked by a visit to a Tokyo temple, but just as easily could have taken place in any cathedral, synagogue or mosque. 
 
  ------------------------------ 
 
@@ -98,7 +104,11 @@
 
  
 
- ****** One Night In Tokyo ****** byJs_Keeper© Her orgasm did little to relieve the sexual inferno that raged deep inside her. As the sixth priest started coming she pulled his cock from her mouth and smeared his come all over her lips, cheeks and chin until it dribbled down her face in streaky white globs and down onto her tits. She licked her lips clean, and with her fingers gathered all the come she could and slurped it down. When her fingers moved to the come that had dripped onto her breasts, she came again instantly as soon as her finger grazed her nipple. 
+ 
+
+===
+
+Her orgasm did little to relieve the sexual inferno that raged deep inside her. As the sixth priest started coming she pulled his cock from her mouth and smeared his come all over her lips, cheeks and chin until it dribbled down her face in streaky white globs and down onto her tits. She licked her lips clean, and with her fingers gathered all the come she could and slurped it down. When her fingers moved to the come that had dripped onto her breasts, she came again instantly as soon as her finger grazed her nipple. 
 
  Now half way around the circle and with a belly full of come, Amber showed no signs of slowing down. Rather, she seemed to become more randy with each man's ejaculation. When number seven went off, she sprayed his huge load all over one of her beautiful breasts, being careful to coat the areole and nipple thoroughly. Though slightly obscured by the platform now, I could see that without cleaning off, she moved on to number eight and covered the other tit similarly. She stood and faced me, affording me a clear view of the puddles of jizz trickling into small streams over lovely mammaries and into the valley between. She gave me intensely lusty looks as she proceeded to wipe the priestly man-juice from her upper body, careful to avoid the nipple area until the remainder had been judiciously cleaned. 
 
@@ -180,7 +190,11 @@
 
  
 
- ****** One Night In Tokyo ****** byJs_Keeper© Before I knew it I was out cold. 
+ 
+
+===
+
+Before I knew it I was out cold. 
 
  - - - - 
 

@@ -1,8 +1,14 @@
+A Cherry in Las Vegas
+=====================
 #1 
 
  
 
- ****** A Cherry in Las Vegas ****** byGotBacon© Eric is spending a weekend in Las Vegas. 
+ 
+
+===
+
+Eric is spending a weekend in Las Vegas. 
 
  He checks in at his favorite casino. 
 
@@ -396,7 +402,11 @@
 
  
 
- ****** A Cherry in Las Vegas ****** byGotBacon© "Hi darling. I missed you so much. Hold me." 
+ 
+
+===
+
+"Hi darling. I missed you so much. Hold me." 
 
  "I missed you too, baby. I got you. Hang on." 
 

@@ -1,8 +1,14 @@
+Becoming a Pet: An Innocent Start
+=================================
 #1 
 
  
 
- ****** Becoming a Pet: An Innocent Start ****** bysilkstockingslover© Note: This story is dedicated to Jamie who requested this perverse tale. Jamie you are one naughty deviant. 
+ 
+
+===
+
+Note: This story is dedicated to Jamie who requested this perverse tale. Jamie you are one naughty deviant. 
 
  Note 2: And thanks to Estragon for his dedicated copy editing. 
 
@@ -178,7 +184,11 @@
 
  
 
- ****** Becoming a Pet: An Innocent Start ****** bysilkstockingslover© "Tell you what," she bargained, "I will give you one taste for free. But if you want a second helping of my cunt, you will have to submit unconditionally to me." 
+ 
+
+===
+
+"Tell you what," she bargained, "I will give you one taste for free. But if you want a second helping of my cunt, you will have to submit unconditionally to me." 
 
  I remained silent, no longer able to process my bizarre predicament or the undeniable stirring that was warming my vagina down below. 
 

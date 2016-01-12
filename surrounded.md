@@ -1,8 +1,14 @@
+Surrounded Ch. 01
+=================
 #1 
 
  
 
- ****** Surrounded Ch. 01 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Surrounded Ch. 01 ****** byTheTalkMan© "Get out of my house, now!" I said, incensed. 
+ 
+
+===
+
+"Get out of my house, now!" I said, incensed. 
 
  "Matt, this is a one-time offer. I don't like being denied. If you turn this down, you will never get another chance. You will always wonder what could have been. You will always wonder what these tits look like. You will never see any like these again. So, why take the risk? Just let go. Let's take our clothes off, go into your bedroom, and fuck each others brains out for the rest of the day." Katie offered. 
 
@@ -344,7 +354,11 @@
 
  
 
- ****** Surrounded Ch. 01 ****** byTheTalkMan© "Well, Matt, I know that if I let you, you'd be in here all day with me. But, I've got shit to do, and you've got to explain to your wife why you're an hour late. So, I'll see you later, lover." She finished, as she put her shirt on, and was now fully clothed again. She walked out of the room and out of the house. Now I am alone and naked on the bed. I get my bearings back, and the full gravity of what I just did hit me. I just cheated on my wife. I cheated on her with her sister, and it was the best sex of my life. I should be more disgusted with myself than I am. I just can't believe I did this to my wife. I love Amanda. I should have never even thought about sex with Katie, let alone actually doing it. I look at the clock. Katie's right; it's been over an hour since Amanda called. I stood up. I've got some explaining to do. 
+ 
+
+===
+
+"Well, Matt, I know that if I let you, you'd be in here all day with me. But, I've got shit to do, and you've got to explain to your wife why you're an hour late. So, I'll see you later, lover." She finished, as she put her shirt on, and was now fully clothed again. She walked out of the room and out of the house. Now I am alone and naked on the bed. I get my bearings back, and the full gravity of what I just did hit me. I just cheated on my wife. I cheated on her with her sister, and it was the best sex of my life. I should be more disgusted with myself than I am. I just can't believe I did this to my wife. I love Amanda. I should have never even thought about sex with Katie, let alone actually doing it. I look at the clock. Katie's right; it's been over an hour since Amanda called. I stood up. I've got some explaining to do. 
 
  Somehow, I was able to smooth things over with Amanda. She was pissed when I called, but I told her that I was helping this guy who was having car problems, and that I lost track of time. She seemed to accept that, but she wasn't in the best of moods while we ate our lunch. I promised to make it up to her with a nice dinner. 
 
@@ -514,7 +528,11 @@
 
  
 
- ****** Surrounded Ch. 01 ****** byTheTalkMan© "Yeah, sis, he's feeling much better. Oh, he's in the shower right now. I wouldn't want to disturb him." Katie said. "Okay, he'll be home soon. Okay, bye." Katie said, ending the conversation, and tossing the phone away. She smiled at me evilly as I continued fucking her. Life was perfect. 
+ 
+
+===
+
+"Yeah, sis, he's feeling much better. Oh, he's in the shower right now. I wouldn't want to disturb him." Katie said. "Okay, he'll be home soon. Okay, bye." Katie said, ending the conversation, and tossing the phone away. She smiled at me evilly as I continued fucking her. Life was perfect. 
 
  ********** 
 
@@ -588,7 +606,11 @@
 
  
 
- ****** Surrounded Ch. 02 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  
 
@@ -730,7 +752,11 @@
 
  
 
- ****** Surrounded Ch. 02 ****** byTheTalkMan© "Thanks, Matty." she said, reaching over and squeezing my arm. "It's so nice to talk to you like this. I usually only talk to Amanda about stuff like this. It's good to know I don't always need to have her around for us to be close." she said. I thought that comment was a bit strange, but I didn't get the chance to dwell on it. 
+ 
+
+===
+
+"Thanks, Matty." she said, reaching over and squeezing my arm. "It's so nice to talk to you like this. I usually only talk to Amanda about stuff like this. It's good to know I don't always need to have her around for us to be close." she said. I thought that comment was a bit strange, but I didn't get the chance to dwell on it. 
 
  "It's been a long week. I'm beat. I can tell you're pretty tense too." She paused, then her head shot up as an idea hit her, "Hey, I have an idea! Let's get your hot tub going and just relax." she suggested, clapping her hands together at her good idea, causing her breasts to jiggle. 
 
@@ -970,7 +996,11 @@
 
  
 
- ****** Surrounded Ch. 02 ****** byTheTalkMan© "Well, Amanda is a little old-fashioned, if you don't mind me saying." Michelle replied, sipping the wine. 
+ 
+
+===
+
+"Well, Amanda is a little old-fashioned, if you don't mind me saying." Michelle replied, sipping the wine. 
 
  "You really don't think very highly of Amanda, do you?" I asked, starting to realize nice and sweet Michelle was not so nice at all. She might just be a snake in the grass. 
 
@@ -1112,7 +1142,11 @@
 
  
 
- ****** Surrounded Ch. 02 ****** byTheTalkMan© I crossed the threshold into my bedroom, and as soon as I did, Michelle took control. She slipped out of my arms and stood in front of me. She grabbed my head and pulled it down towards her. Our lips parted as we got closer. Her soft lips met mine and her tongue slipped into my mouth. I just stood there, in me and my wife's bedroom, making out with my wife's best friend. I slipped my hands down her sexy back, past her thong straps, and I helped myself to two healthy handfuls of her firm, bare ass. She brought her hands to my bare chest and pushed me back. I fell to a sitting position on the bed, our lips parting. 
+ 
+
+===
+
+I crossed the threshold into my bedroom, and as soon as I did, Michelle took control. She slipped out of my arms and stood in front of me. She grabbed my head and pulled it down towards her. Our lips parted as we got closer. Her soft lips met mine and her tongue slipped into my mouth. I just stood there, in me and my wife's bedroom, making out with my wife's best friend. I slipped my hands down her sexy back, past her thong straps, and I helped myself to two healthy handfuls of her firm, bare ass. She brought her hands to my bare chest and pushed me back. I fell to a sitting position on the bed, our lips parting. 
 
  "I'm really a nasty little slut, aren't I?" she said, starting to pace around, modeling her body in front of me. "What kind of nasty whore parades a body like mine around a married man?" she said. I watched as her breasts jiggled under her bra, bursting to escape. "What kind of bitch stays friends with a girl only so she could get closer to her man? What kind of absolute cunt lets herself be her friend's BFF, her maid of honor, when she wants to steal her man from her?" She turned and showed off her perfect ass again, with its two jiggling cheeks. She turned to face me again. 
 
@@ -1252,7 +1286,11 @@
 
  
 
- ****** Surrounded Ch. 02 ****** byTheTalkMan© "Such a perfect night." She said, basking in the cool dusk night. We were sitting together on a large chair, cuddled up together, her head on my shoulder. 
+ 
+
+===
+
+"Such a perfect night." She said, basking in the cool dusk night. We were sitting together on a large chair, cuddled up together, her head on my shoulder. 
 
  "Yeah." I replied. 
 
@@ -1316,7 +1354,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -1484,7 +1526,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© "Uh, c'mon." Katie muttered under her breath. Amanda glanced at her and rolled her eyes. 
+ 
+
+===
+
+"Uh, c'mon." Katie muttered under her breath. Amanda glanced at her and rolled her eyes. 
 
  "I'll just have the, uh, sirloin. 6 ounces. Medium well." I said, distracted. Elise took down the order and turned to Katie. 
 
@@ -1674,7 +1720,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© "You're always so mean to her, Katie." Amanda said. "I wish you'd give her a chance." 
+ 
+
+===
+
+"You're always so mean to her, Katie." Amanda said. "I wish you'd give her a chance." 
 
  "Uh, I'd rather kill myself." Katie replied. 
 
@@ -1846,7 +1896,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© I had no idea. 
+ 
+
+===
+
+I had no idea. 
 
  ************* 
 
@@ -2028,7 +2082,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© "Oh no." Katie replied, "He's definitely the one." she paused before adding, "We're a perfect match. He's got really big hands." 
+ 
+
+===
+
+"Oh no." Katie replied, "He's definitely the one." she paused before adding, "We're a perfect match. He's got really big hands." 
 
  "Eww." Amanda replied. Katie laughed mockingly at her little sister's prudishness. 
 
@@ -2278,7 +2336,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© "Well, I left out some of the good stuff. My underwear wasn't the only thing I wore in front of Matt here. You know that one ugly two-piece Amanda has?" Michelle asked. 
+ 
+
+===
+
+"Well, I left out some of the good stuff. My underwear wasn't the only thing I wore in front of Matt here. You know that one ugly two-piece Amanda has?" Michelle asked. 
 
  "You wore that too?" Katie asked. 
 
@@ -2492,7 +2554,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© Katie's lips met mine in a fiery kiss. Her tongue met mine as her soft lips pressed against mine. As me and my sister-in-law made out, Michelle kept herself busy. I felt her lips attach to my neck, sucking at my flesh as my mouth was busy with Katie. Katie moved in front of me, trying to box Michelle out, but Michelle wasn't having it. She kept one of her hands against my back, keeping a firm grip as she sucked at my neck. Katie wrapped her arms around my neck possessively as our kiss became deeper. My sister-in-law's tongue mashed against mine as we swapped spit. Her moans echoed in my mouth, as my grunts no doubt did with her. This was a long-awaited, full-on, no boundaries, separated- for-a-week-and-desperate-for-rough-sex kinda kiss. We could have fallen completely into the passion, the need of this nasty kiss, at least until we were suddenly pulled apart. 
+ 
+
+===
+
+Katie's lips met mine in a fiery kiss. Her tongue met mine as her soft lips pressed against mine. As me and my sister-in-law made out, Michelle kept herself busy. I felt her lips attach to my neck, sucking at my flesh as my mouth was busy with Katie. Katie moved in front of me, trying to box Michelle out, but Michelle wasn't having it. She kept one of her hands against my back, keeping a firm grip as she sucked at my neck. Katie wrapped her arms around my neck possessively as our kiss became deeper. My sister-in-law's tongue mashed against mine as we swapped spit. Her moans echoed in my mouth, as my grunts no doubt did with her. This was a long-awaited, full-on, no boundaries, separated- for-a-week-and-desperate-for-rough-sex kinda kiss. We could have fallen completely into the passion, the need of this nasty kiss, at least until we were suddenly pulled apart. 
 
  "Aaah!" Katie called out. As my eyes opened, I realized Michelle had taken a handful of Katie's hair and yanked it back. Katie's head was forced back, pulled back as Michelle became aggressive. Before I could react, Michelle took Katie's place, jamming her tongue down my throat. Michelle's tongue coiled around mine as her soft lips pressed into me, eager to out-kiss Katie. She pressed her body against mine, my cock pressing into her belly, her huge, bra- clad breasts pressing into my chest. Like before, I could have fallen completely into the passion, but the instant before I could, we were once again interrupted. 
 
@@ -2604,7 +2670,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© Michelle was attacking Katie's nipple, worshiping the hard nipple with her tongue, devouring it in her mouth. Michelle moved forward, crawling over me so she could get better leverage at Katie's nipple. As Michelle moved closer, she let one hand drop down and used the other to forcing as much of Katie's breast into her mouth. I suddenly felt a hand snake around my cock. I felt this hand guiding my cock upwards, and I felt the tip of it brush against the outside of a pussy. Above me, Michelle's eyes slid up and met Katie's gaze. Suddenly, Michelle's eyes flashed a look victory at Katie, and at the same time bit down on Katie's juicy nipple. 
+ 
+
+===
+
+Michelle was attacking Katie's nipple, worshiping the hard nipple with her tongue, devouring it in her mouth. Michelle moved forward, crawling over me so she could get better leverage at Katie's nipple. As Michelle moved closer, she let one hand drop down and used the other to forcing as much of Katie's breast into her mouth. I suddenly felt a hand snake around my cock. I felt this hand guiding my cock upwards, and I felt the tip of it brush against the outside of a pussy. Above me, Michelle's eyes slid up and met Katie's gaze. Suddenly, Michelle's eyes flashed a look victory at Katie, and at the same time bit down on Katie's juicy nipple. 
 
  "Aaaaahhhh!" Katie screamed out, in a mixture of pain and pleasure. At that same moment, I felt some pressure on my cock, as I realized I would finally, blessedly, be balls-deep in a pussy momentarily. But of course, it was not meant to be. 
 
@@ -2798,7 +2868,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© I groaned in pleasure as she finished her vision of the future. 
+ 
+
+===
+
+I groaned in pleasure as she finished her vision of the future. 
 
  "Do you like that Matt?" she purred. "Do you love it? I think you do." she added with a laugh. I looked down and realized my shaft was now throbbing hard with need once again, wet and smooth with sex-juices. "Well, it looks like you're ready, and so am I. So get up." 
 
@@ -2992,7 +3066,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© "I don't have much left." I told her. "But I think I have one more." 
+ 
+
+===
+
+"I don't have much left." I told her. "But I think I have one more." 
 
  "Well, I've got an idea." Katie said. "Just lay back. Lay that sexy body down, and let us do the work." 
 
@@ -3188,7 +3266,11 @@
 
  
 
- ****** Surrounded Ch. 03 ****** byTheTalkMan© I knew deep down, when it came to it, my heart lied with Amanda. My wife. I married her for a reason. But those sluts, those evil, nasty, sexy sluts, they owned my body. They could play my body like an instrument. I knew better, but when I was around those women, and their lush bodies, my animal brain took over. I became something else when I was with them. I was truly the monster they created. I didn't like how far those sluts took me. 
+ 
+
+===
+
+I knew deep down, when it came to it, my heart lied with Amanda. My wife. I married her for a reason. But those sluts, those evil, nasty, sexy sluts, they owned my body. They could play my body like an instrument. I knew better, but when I was around those women, and their lush bodies, my animal brain took over. I became something else when I was with them. I was truly the monster they created. I didn't like how far those sluts took me. 
 
  I was being tugged in two directions. My heart with Amanda, my body with those two whores. The prize was my soul, and I was terrified where it would end up. 
 

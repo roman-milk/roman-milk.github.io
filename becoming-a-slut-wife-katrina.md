@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Katrina
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Katrina ****** byJust_Plain_Bob© It started with a sharp little pain in my right side and in about two hours the pain was so bad that I couldn't even stand up straight. My wife Katrina called the doctor and he told her that it sounded like I was passing a kidney stone and that she should get me to the emergency room at the hospital. 
+ 
+
+===
+
+It started with a sharp little pain in my right side and in about two hours the pain was so bad that I couldn't even stand up straight. My wife Katrina called the doctor and he told her that it sounded like I was passing a kidney stone and that she should get me to the emergency room at the hospital. 
 
  It was a twenty-minute trip and every bump, chuckhole, and imperfection in the pavement sent a jolt of red-hot pain through my body. 
 

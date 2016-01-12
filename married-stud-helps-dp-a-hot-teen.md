@@ -1,8 +1,14 @@
+Married Stud Helps &quot;DP&quot; a Hot Teen
+============================================
 #1 
 
  
 
- ****** Married Stud Helps &quot;DP&quot; a Hot Teen ****** byNonStopFunGuy© I don't fucking understand how some perverts get off on slutting out their own daughter or step-daughter to other men -- but, I won't argue with it either. 
+ 
+
+===
+
+I don't fucking understand how some perverts get off on slutting out their own daughter or step-daughter to other men -- but, I won't argue with it either. 
 
  I mean, when one of those perverts BEGGED me to help another married guy double-fuck his gorgeous, sexy 18 year old Asian step-daughter, it didn't matter how pathetic I thought the guy was. Of course I said yes, I'll fuck that bitch's cunt for you! 
 
@@ -122,7 +128,11 @@
 
  
 
- ****** Married Stud Helps &quot;DP&quot; a Hot Teen ****** byNonStopFunGuy© She didn't stand up for nothing. Lucy slipped on her flip-flops and glided slowly accross the lawn then patio, coming into the house wearing only the string bikini. Standing in front of the three of us, not trying to hide her amazing body from the two strangers her step-daddy had invited over, she told Thom in her sexy Aussie accent that she was "super hot" and needed a bottle of water. I thought to myself, drinking a bottle of water wouldn't change the fact that she was, absolutely, "super-hot." Then she looked at Danny and me, sweetly asking if we wanted any water, too. This time, he and I both said yes to her. 
+ 
+
+===
+
+She didn't stand up for nothing. Lucy slipped on her flip-flops and glided slowly accross the lawn then patio, coming into the house wearing only the string bikini. Standing in front of the three of us, not trying to hide her amazing body from the two strangers her step-daddy had invited over, she told Thom in her sexy Aussie accent that she was "super hot" and needed a bottle of water. I thought to myself, drinking a bottle of water wouldn't change the fact that she was, absolutely, "super-hot." Then she looked at Danny and me, sweetly asking if we wanted any water, too. This time, he and I both said yes to her. 
 
  Danny's head whipped around, as Lucy passed him to walk into the kitchen. He snickered to Thom, "How can you stand it, having that hot piece of ass in your house and not trying to bang it yourself?" Thom played it cool, shrugging of the suggestion that he had any prurient interest in his wife's daughter. 
 
@@ -228,7 +238,11 @@
 
  
 
- ****** Married Stud Helps &quot;DP&quot; a Hot Teen ****** byNonStopFunGuy© We didn't even say a fucking thing, really, as we began the sex. I reached forward, one hand on her tit through her bikini top, while my other hand dropped to fondle her naked buttock. Danny grabbed her other breast and slid a hand to her crotch, while he bent down to kiss her. He wasn't asking for permission; she didn't resist, however. I watched the 55 year old, dark-haired, mustached pervert begin french kissing the Asian teenager right in front of me, while my hands were fondling her smallish tit and soft, firm buttcheeks. Her body was alive, vibrant, wiggling in our adult paws as we manhandled her. Her bikini top loosened, with Danny untying it; I pulled it away from her, exposing her awesome, perky A-cup breasts. Lucy's nipples were dark brown and short, but extremely hard, and she had small areolae around them. My hand kneeded her one breast, pinching and stretching her nipple, making her moan more into her hot, wet kiss with Danny. I wasn't jealous; she'd been sucking my cock a few moments earlier. 
+ 
+
+===
+
+We didn't even say a fucking thing, really, as we began the sex. I reached forward, one hand on her tit through her bikini top, while my other hand dropped to fondle her naked buttock. Danny grabbed her other breast and slid a hand to her crotch, while he bent down to kiss her. He wasn't asking for permission; she didn't resist, however. I watched the 55 year old, dark-haired, mustached pervert begin french kissing the Asian teenager right in front of me, while my hands were fondling her smallish tit and soft, firm buttcheeks. Her body was alive, vibrant, wiggling in our adult paws as we manhandled her. Her bikini top loosened, with Danny untying it; I pulled it away from her, exposing her awesome, perky A-cup breasts. Lucy's nipples were dark brown and short, but extremely hard, and she had small areolae around them. My hand kneeded her one breast, pinching and stretching her nipple, making her moan more into her hot, wet kiss with Danny. I wasn't jealous; she'd been sucking my cock a few moments earlier. 
 
  While the other guy made out with her, I bent down a little, peeling her string thong down, digging the string out of her asscrack so that I could slide it down her thighs. She stepped out of it, and Lucy was completely naked now, her shaved, bald cunt exposed to Danny and me. He already had a hand on it, fingers rubbing her teenage clitoris, while he was shoving his tongue in her mouth. I stood up and kept groping her naked asscheek, it was so fleshy and smooth, so dreamy; I pushed my pelvis forward, too, so she could feel my aching erection in my shorts against the side of her hip and chest. 
 
@@ -314,7 +328,11 @@
 
  
 
- ****** Married Stud Helps &quot;DP&quot; a Hot Teen ****** byNonStopFunGuy© "Fuck, shit -- yes!" Having pumped my full load on Lucy's face, I climbed off her petite body to admire the work I'd done. Her face was caked in my semen, the white streams drooling down her cheeks, eyelids and forehead. She had to wipe her eyes to open them, laughing, then she sucked my sperm off of her petite fingers. 
+ 
+
+===
+
+"Fuck, shit -- yes!" Having pumped my full load on Lucy's face, I climbed off her petite body to admire the work I'd done. Her face was caked in my semen, the white streams drooling down her cheeks, eyelids and forehead. She had to wipe her eyes to open them, laughing, then she sucked my sperm off of her petite fingers. 
 
  Like I said, Danny was ready to go again. With her cunt available to him, he climbed on top of her without giving her any rest. Grunting painfully, Lucy opened her thighs, her hands reaching to his butt to pull him inside of her. They both moaned when his very adult penis sank into her very teenage pussy again, and the stud began screwing the bitch for the second time. 
 
@@ -412,7 +430,11 @@
 
  
 
- ****** Married Stud Helps &quot;DP&quot; a Hot Teen ****** byNonStopFunGuy© Looking up at the pervert's face while his dick was stretching her jaw and cheek, the teenager could only mutter and nod her head. 
+ 
+
+===
+
+Looking up at the pervert's face while his dick was stretching her jaw and cheek, the teenager could only mutter and nod her head. 
 
  After sharing her a little while that we, we turned her around -- so that Danny could fuck her doggy-style, while Lucy bent over and licked her cuntjuices off of my penis. I laid back, my cock throbbing so hard, wanting her tight cunt again. But I didn't mind it, feeling her soft, velvety tongue sliding up and down my shaft and around my aching balls, and also her lips surrounding my cockhead to suckle it intensely. The girl was tasting her juices on my slimy, coated cock, and soon she was replacing her juices with her saliva. Even using just her mouth, she was fucking good; my cock felt pleasured and increasingly satisfied, with an orgasm nearing bit by bit. 
 

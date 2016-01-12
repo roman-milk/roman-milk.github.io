@@ -1,8 +1,14 @@
+For Those Who Wondered
+======================
 #1 
 
  
 
- ****** For Those Who Wondered ****** byJust_Plain_Bob© A message for those who like my stories, those who hate my stories, those who are indifferent and those who have yet to make up their minds. 
+ 
+
+===
+
+A message for those who like my stories, those who hate my stories, those who are indifferent and those who have yet to make up their minds. 
 
  I have often stated that I really don't care what others think about my stories, that I write for my own enjoyment and then I offer to share. If you like my stories fine and if you don't, also fine since I have already satisfied my target audience - me! 
 

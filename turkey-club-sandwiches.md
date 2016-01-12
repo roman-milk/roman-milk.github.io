@@ -1,8 +1,14 @@
+Turkey Club Sandwiches
+======================
 #1 
 
  
 
- ****** Turkey Club Sandwiches ****** byJust_Plain_Bob© As told to Just Plain Bob by Mrs. Hottbutt 
+ 
+
+===
+
+As told to Just Plain Bob by Mrs. Hottbutt 
 
  I began noticing him weeks ago. He came into the sandwich shop every day at 1: 25 after most of the lunch crowd had dispersed. I would watch from the window as he came from the high-rise across the street. He always had a copy of some financial newspaper tucked under his arm. He wore an expensive suit and I surmised that he must be a financial consultant of some kind. He was maybe early forties, casually handsome, with a hint of gray at the temples. He had the most beautiful, piercing light-green eyes I had ever seen. On two different occasions our eyes had met and locked together, but both times ended quickly with his eye averting and his face flushing crimson. So I figured out that he was very shy. 
 

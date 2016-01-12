@@ -1,8 +1,14 @@
+DVD Night For The Boys
+======================
 #1 
 
  
 
- ****** DVD Night For The Boys ****** bygeronimo_appleby© A short, nasty (I hope!) gay male piece from me this time. This submission serves two purposes, the first of which is to get me 5 points in the survivor contest here on Lit, the second is to test the waters to see if those of you who read this kinda story would like me to do more. I kept it short, omitting details, purely because this is, as I said, a tester to see how it's received. 
+ 
+
+===
+
+A short, nasty (I hope!) gay male piece from me this time. This submission serves two purposes, the first of which is to get me 5 points in the survivor contest here on Lit, the second is to test the waters to see if those of you who read this kinda story would like me to do more. I kept it short, omitting details, purely because this is, as I said, a tester to see how it's received. 
 
  If you like this vignette and would like me to do more, and longer, pieces, let me know. I'd like feedback, which can be delivered in public comments below, by PM in the Lit forums, or via email. If you want a response to feedback or have a specific question or request then email is prolly best. 
 

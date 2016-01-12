@@ -1,8 +1,14 @@
+A Gift for Simone
+=================
 #1 
 
  
 
- ****** A Gift for Simone ****** bygeronimo_appleby© A Loving Wives piece from me. As ever with LW I'm looking forward to any comments the piece may garner. It's always an experience. 
+ 
+
+===
+
+A Loving Wives piece from me. As ever with LW I'm looking forward to any comments the piece may garner. It's always an experience. 
 
  Simone wants Jake, but he's married. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** A Gift for Simone ****** bygeronimo_appleby© I look forward to hearing from you and learning about your requirements if we are to progress. 
+ 
+
+===
+
+I look forward to hearing from you and learning about your requirements if we are to progress. 
 
  
 
@@ -488,7 +498,11 @@
 
  
 
- ****** A Gift for Simone ****** bygeronimo_appleby© If a mere week ago, Simone had read the filthy things Jake pictured in his mind she would have been outraged, deeply offended. The things he'd described would have been unthinkable. But, somehow, coming from him the idea actually had some appeal. It was all very sordid, despicable in fact, yet not without dark, licentious attraction. 
+ 
+
+===
+
+If a mere week ago, Simone had read the filthy things Jake pictured in his mind she would have been outraged, deeply offended. The things he'd described would have been unthinkable. But, somehow, coming from him the idea actually had some appeal. It was all very sordid, despicable in fact, yet not without dark, licentious attraction. 
 
  The question was -- if Jake was serious -- could she do it? Simone assumed, the whole scene described in Jake's email was pure fantasy -- it had to be fantasy, he couldn't really expect her to do it ... But what if he did? 
 
@@ -736,7 +750,11 @@
 
  
 
- ****** A Gift for Simone ****** bygeronimo_appleby© "Oh God," she groaned when her knuckles rapped at the door. 
+ 
+
+===
+
+"Oh God," she groaned when her knuckles rapped at the door. 
 
  The man who answered the door smiled, his eyes moving along the length of Simone's body. 
 

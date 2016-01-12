@@ -1,8 +1,14 @@
+A Pendant for Wendy
+===================
 #1 
 
  
 
- ****** A Pendant for Wendy ****** bygeronimo_appleby© Okay, I ran up against the deadline for entries into the Winter Holiday comp. So here it is; my effort at Toys and Masturbation in time for the closing date. 
+ 
+
+===
+
+Okay, I ran up against the deadline for entries into the Winter Holiday comp. So here it is; my effort at Toys and Masturbation in time for the closing date. 
 
  As per the competition guidelines the entry is a stand-alone piece, but it could also serve as the precursor to further chapters. There's scope for more if there's any interest from out there, and if I have the opportunity to continue. Anyway, we'll see what the interest is like first. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** A Pendant for Wendy ****** bygeronimo_appleby© He was getting there, was so close to the explosion, the surge in his cock threatening to burst out of him in a heavy outpouring of ejaculate when he sensed the door opening. 
+ 
+
+===
+
+He was getting there, was so close to the explosion, the surge in his cock threatening to burst out of him in a heavy outpouring of ejaculate when he sensed the door opening. 
 
  "What?" Vince gasped as his head turned and his hands scrabbled at the quilt. 
 
@@ -488,7 +498,11 @@
 
  
 
- ****** A Pendant for Wendy ****** bygeronimo_appleby© Vince glanced to his right, looking down the corridor, checking no one was there to hear him speak. 
+ 
+
+===
+
+Vince glanced to his right, looking down the corridor, checking no one was there to hear him speak. 
 
  He looked at Wendy and raised the cup he carried in his left hand. "It's okay. Mum asked me to bring you a coffee." He took a step inside the bedroom and then hesitated. "I need to talk to you, Wendy," Vince added. "About last night." 
 
@@ -730,7 +744,11 @@
 
  
 
- ****** A Pendant for Wendy ****** bygeronimo_appleby© "And we can fuck, Vince," Wendy snarled. "In my bed. All fucking night. You can fuck me, Vince. Any way you want to. I'll get on my knees and you can fuck me doggy. I'll ride your cock..." 
+ 
+
+===
+
+"And we can fuck, Vince," Wendy snarled. "In my bed. All fucking night. You can fuck me, Vince. Any way you want to. I'll get on my knees and you can fuck me doggy. I'll ride your cock..." 
 
  Wendy mauled her breasts and forced her lips against Vince's mouth. 
 

@@ -1,8 +1,14 @@
+Nan's Old Flame
+===============
 #1 
 
  
 
- ****** Nan's Old Flame ****** byJust_Plain_Bob© Things started going to hell for me when my wife told me that we were invited to her best friend Mary's birthday party on Saturday. I said, "That's nice dear. Have a good time." I don't get along with Mary; we don't like each other and have mutually decided to avoid being in each other's presence. 
+ 
+
+===
+
+Things started going to hell for me when my wife told me that we were invited to her best friend Mary's birthday party on Saturday. I said, "That's nice dear. Have a good time." I don't get along with Mary; we don't like each other and have mutually decided to avoid being in each other's presence. 
 
  "You have to go with me," Nan said. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Nan's Old Flame ****** byJust_Plain_Bob© "I didn't fuck Dan because I wanted him, and I didn't fuck him to spite you. I fucked him because I owed it to him. I led him on all night long. Everything I let him do to me just made him hotter and hotter and led him to believe that he would have me before the night was over. The more he did to me without my stopping him the hotter he got and the guiltier I felt for doing it to him. When we got in the back seat and you didn't come after me I gave him what he wanted. I watched the front door and gave him a hand job as I waited for you and when you didn't show I went ahead and sucked his cock. Then I fucked him, sucked him hard again and let him do to me the one thing he really loved when we were a couple - I got on my hands and knees and squealed like a pig while he fucked me in the ass. 
+ 
+
+===
+
+"I didn't fuck Dan because I wanted him, and I didn't fuck him to spite you. I fucked him because I owed it to him. I led him on all night long. Everything I let him do to me just made him hotter and hotter and led him to believe that he would have me before the night was over. The more he did to me without my stopping him the hotter he got and the guiltier I felt for doing it to him. When we got in the back seat and you didn't come after me I gave him what he wanted. I watched the front door and gave him a hand job as I waited for you and when you didn't show I went ahead and sucked his cock. Then I fucked him, sucked him hard again and let him do to me the one thing he really loved when we were a couple - I got on my hands and knees and squealed like a pig while he fucked me in the ass. 
 
  "And you want to know the worst part? I didn't even like the asshole. Before we even hit the dance floor I knew he was an obnoxious asshole. I knew right away that I had made the right choice in getting rid of him. I just didn't know I'd made the wrong choice when I chose you. I thought I had a husband who loved me and cared for me and I guess I was wrong." 
 

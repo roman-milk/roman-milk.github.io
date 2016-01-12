@@ -1,8 +1,14 @@
+A Night of Unconditional Submission
+===================================
 #1 
 
  
 
- ****** A Night of Unconditional Submission ****** bysilkstockingslover© Summary: Fantasy of being a submissive slut comes true for 1 night. 
+ 
+
+===
+
+Summary: Fantasy of being a submissive slut comes true for 1 night. 
 
  NOTE 1: This is my 50th story to be released. With that in mind, I decided to do something a little special...I hope. Readers often ask if my stories are true. In almost all my stories there are just specks of the real me in them. Most are just naughty fantasies I wish I had the chance to live. This story is the first true story I am going to tell...well, mostly true....You can use your imagination to decide what is and isn't true. It is a story that looks at my first love and our reunion, albeit very brief, three years after breaking up. 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** A Night of Unconditional Submission ****** bysilkstockingslover© Jasmine 
+ 
+
+===
+
+Jasmine 
 
  As soon as I heard his voice, I knew who it was without turning around. My knees weakened and I instantly had butterflies in my stomach, just like I had back in grade twelve when he asked me out after a basketball game. I nervously turned around. "Hi, Mike." 
 
@@ -436,7 +446,11 @@
 
  
 
- ****** A Night of Unconditional Submission ****** bysilkstockingslover© "Yes," she whispered, slightly embarrassed to be asking. 
+ 
+
+===
+
+"Yes," she whispered, slightly embarrassed to be asking. 
 
  "He may make me suck his cock in the second act in front of you two, for example," I said rather casually. 
 
@@ -724,7 +738,11 @@
 
  
 
- ****** A Night of Unconditional Submission ****** bysilkstockingslover© "Yes, Master. You were the first cock I had in my mouth. The first cock I had in my cunt. And now, the first cock in my ass." 
+ 
+
+===
+
+"Yes, Master. You were the first cock I had in my mouth. The first cock I had in my cunt. And now, the first cock in my ass." 
 
  He spanked me playfully, pulled apart my ass cheeks and began to slowly push forward. The buzzing inside my cunt was a great distraction from the slight burning already brimming in my rectum. Each slight push tore my rectum open and I whimpered in pain. 
 

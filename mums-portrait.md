@@ -1,8 +1,14 @@
+Mum's Portrait
+==============
 #1 
 
  
 
- ****** Mum's Portrait ****** bygeronimo_appleby© The cool interior of the house was a welcome relief for Billy as he stepped indoors. The intensity of the heat of mid December was stifling and BILLY was glad to be inside the air conditioned house once again. 'Hi mum,' he called out, really just checking to see if his mother, Jenny, was home. 
+ 
+
+===
+
+The cool interior of the house was a welcome relief for Billy as he stepped indoors. The intensity of the heat of mid December was stifling and BILLY was glad to be inside the air conditioned house once again. 'Hi mum,' he called out, really just checking to see if his mother, Jenny, was home. 
 
  When he received no reply, Billy knew that he was alone in the house and that he could make good use of the time he had at his disposal. He went straight to his parents' bedroom and wasted no time in pulling a pair of his mother's panties from her underwear drawer. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Mum's Portrait ****** bygeronimo_appleby© Jenny's back arched as her buttocks lifted from the bed, almost throwing Billy from where his mouth was still clamped tightly, his tongue coated with her goo as Jenny's climax hit. 
+ 
+
+===
+
+Jenny's back arched as her buttocks lifted from the bed, almost throwing Billy from where his mouth was still clamped tightly, his tongue coated with her goo as Jenny's climax hit. 
 
  'Shit baby, that was so good.' Jenny kissed Billy when her orgasm eventually subsided and they were lying together on his bed, side by side under the sheet. 
 

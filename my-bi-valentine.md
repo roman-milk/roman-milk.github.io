@@ -1,8 +1,14 @@
+My Bi Valentine
+===============
 #1 
 
  
 
- ****** My Bi Valentine ****** bygeronimo_appleby© A Valentine's Day contest entry from me that doesn't have a proper home. In my opinion this piece doesn't sit in Gay Male, not since there's a lot of activity centred around Michelle. I'm torn between Fetish or Novels and Novellas, and I hope the category it ends up in attracts the readers. 
+ 
+
+===
+
+A Valentine's Day contest entry from me that doesn't have a proper home. In my opinion this piece doesn't sit in Gay Male, not since there's a lot of activity centred around Michelle. I'm torn between Fetish or Novels and Novellas, and I hope the category it ends up in attracts the readers. 
 
  In this one a young man has a keen desire for his mature and sexy neighbour. He sends her a Valentine but gets caught in the clandestine act of delivery. She's flattered by his attentions but points out she's so much older and already has a boyfriend. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** My Bi Valentine ****** bygeronimo_appleby© The resurgent feelings were exactly the same as the day I'd seen so much of Michelle's body, the yellow bikini enhancing her appeal. 
+ 
+
+===
+
+The resurgent feelings were exactly the same as the day I'd seen so much of Michelle's body, the yellow bikini enhancing her appeal. 
 
  A lewd mind-reel flashed across my consciousness, fantasies forming in my head until Michelle, oblivious to the turmoil raging inside me, glanced at her watch and said, "Drink up your coffee, Alan. I don't mean to be rude but I have a couple of things to do before my first appointment." 
 
@@ -428,7 +438,11 @@
 
  
 
- ****** My Bi Valentine ****** bygeronimo_appleby© Michelle shook her head. "No," she breathed. "Not yet. Oh God, Alan," she sobbed. "I do want you to. I'm so fucking horny." Her chest hitched as another sob burst out of her. "I'd love to feel you inside me, but..." 
+ 
+
+===
+
+Michelle shook her head. "No," she breathed. "Not yet. Oh God, Alan," she sobbed. "I do want you to. I'm so fucking horny." Her chest hitched as another sob burst out of her. "I'd love to feel you inside me, but..." 
 
  "What!" I cried, ire exploding in a fiery burst. "You're teasing me? You've got to be joking, Michelle." I released my erection, the long jib springing back against my stomach. 
 
@@ -674,7 +688,11 @@
 
  
 
- ****** My Bi Valentine ****** bygeronimo_appleby© Again, without knowing what I was letting myself in for, I gulped and indicated my acceptance of the terms with a single nod. 
+ 
+
+===
+
+Again, without knowing what I was letting myself in for, I gulped and indicated my acceptance of the terms with a single nod. 
 
  Zach chuckled and kept his eyes on me while asserting his role as top dog, kissing Michelle with exaggerated fervour. Using only his mouth he dominated his girlfriend and put me in my place on the totem-pole. 
 
@@ -890,7 +908,11 @@
 
  
 
- ****** My Bi Valentine ****** bygeronimo_appleby© We rutted for another twenty minutes or so, with me fucking into Michelle from behind, our bodies colliding with meaty slaps. Leaning in low over her back meant I could grab for her breasts, their weight in my palms while I squeezed and savoured their texture. 
+ 
+
+===
+
+We rutted for another twenty minutes or so, with me fucking into Michelle from behind, our bodies colliding with meaty slaps. Leaning in low over her back meant I could grab for her breasts, their weight in my palms while I squeezed and savoured their texture. 
 
  We also tried it standing up, with me battering her from behind, my hands on her hips, her heels pecking at the parquet flooring as Michelle struggled to stay on her feet. Michelle was mad for it, moaning and gasping and mewling while Zach looked at us and stroked himself to a second hard-on. Her head lolled loose and she sobbed with delight, what spare flesh she had on her hips rippling under the impact of my energetic thrusting. 
 

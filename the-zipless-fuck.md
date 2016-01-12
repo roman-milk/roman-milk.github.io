@@ -1,8 +1,14 @@
+The Zipless Fuck
+================
 #1 
 
  
 
- ****** The Zipless Fuck ****** byJust_Plain_Bob© This is about the most amazing and satisfying sexual encounter of my life. I am still having a hard time believing that it happened to me - me, of all people. I am a sixty year old man who loves the ladies, especially the young ones (young to me is anyone under fifty). I am semi-retired and as a result I have a lot of free time on my hands and it was during one of those periods of free time that the following happened. 
+ 
+
+===
+
+This is about the most amazing and satisfying sexual encounter of my life. I am still having a hard time believing that it happened to me - me, of all people. I am a sixty year old man who loves the ladies, especially the young ones (young to me is anyone under fifty). I am semi-retired and as a result I have a lot of free time on my hands and it was during one of those periods of free time that the following happened. 
 
  I had some work to do around the house and I needed some paint and some screws and nails. I live fairly close to a Wal-Mart so I made my list, jumped into my pick-up truck and drove over there. I love going into Wally World during the day because that is when all the young housewives are out shopping and I never get tired of looking at the ladies, or with flirting. Flirting is usually harmless fun since none of the women are going to take a sixty-year-old guy seriously. I pulled in to the lot, parked and headed into the store behind a woman who had a very nice walk if you know what I mean. She pulled a cart out of the stack and then took off her coat and dropped into the cart and I couldn't help but notice that she had an extremely nice looking rack. I pulled my cart out of the stack next to her and she turned my way, nice face, I thought, freshly scrubbed, no make up and very, very appealing. Our eyes met, we exchanged quick little smiles and then pushed our carts into the store where she went right and I went left. 
 

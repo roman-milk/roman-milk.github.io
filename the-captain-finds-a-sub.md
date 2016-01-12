@@ -1,8 +1,14 @@
+The Captain Finds a Sub
+=======================
 #1 
 
  
 
- ****** The Captain Finds a Sub ****** byJs_Keeper© If you take the time to read this story, please take a few more seconds to leave a comment and/or a vote. Feedback is always appreciated. 
+ 
+
+===
+
+If you take the time to read this story, please take a few more seconds to leave a comment and/or a vote. Feedback is always appreciated. 
 
  Note: this is a story about domination and submission. If that's not your kink, please move on to a different story. 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** The Captain Finds a Sub ****** byJs_Keeper© From his pocket Ian produced a four-inch folding knife with a deep-hued rosewood handle and intricate brass details, and judging by the ease with which it sliced through the heavy rope, it was razor sharp. He caught her eying it and held it up for her to see more closely. "Lovely isn't it?" he asked. 
+ 
+
+===
+
+From his pocket Ian produced a four-inch folding knife with a deep-hued rosewood handle and intricate brass details, and judging by the ease with which it sliced through the heavy rope, it was razor sharp. He caught her eying it and held it up for her to see more closely. "Lovely isn't it?" he asked. 
 
  "Yes. Sharp, too," she replied nervously. 
 

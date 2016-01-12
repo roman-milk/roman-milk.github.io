@@ -1,8 +1,14 @@
+The Adventures of Kathleen M.
+=============================
 #1 
 
  
 
- ****** The Adventures of Kathleen M. ****** byJust_Plain_Bob© As told to Just Plain Bob by Kathleen M. 
+ 
+
+===
+
+As told to Just Plain Bob by Kathleen M. 
 
  This is the story of Kathleen M., a young housewife and mother who unexpectedly finds that she has a kinky side. Come join us as we follow Kathleen on her journey of discovery. 
 
@@ -90,7 +96,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 02 ****** byJust_Plain_Bob© Kathleen sat at her desk staring out the window and thinking about the last two weeks. First, there had been what had happened on the night she and her husband Rick had celebrated her birthday and their anniversary. She couldn't believe how she had acted and the thoughts she'd had that night. She had been stared at and lusted after by a whole room full of men and she had loved it. She left the restaurant a changed woman - a woman who wanted the attention of men and a woman who would do the things necessary to grab that attention. 
+ 
+
+===
+
+Kathleen sat at her desk staring out the window and thinking about the last two weeks. First, there had been what had happened on the night she and her husband Rick had celebrated her birthday and their anniversary. She couldn't believe how she had acted and the thoughts she'd had that night. She had been stared at and lusted after by a whole room full of men and she had loved it. She left the restaurant a changed woman - a woman who wanted the attention of men and a woman who would do the things necessary to grab that attention. 
 
  The next day on the train to work she noticed that the men in the car weren't paying her any attention even though she was a good looking woman and she finally figured out that the way she was dressed had a lot to do with it. Severely tailored business suit, hair up in an unbecoming bun and wearing 'sensible' shoes. The perfect look for a sixth grade school teacher, but not something that would make men want her. And Kathleen wanted them to want her - she needed them to want her - not that she would ever let one of them gave her. She loved Rick and she would never betray him, but that didn't mean that she couldn't tease a bit. 
 
@@ -192,7 +202,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 03 ****** byJust_Plain_Bob© It was a Saturday morning. Rick was out playing eighteen, the kids were at the pool for their swimming lessons and she had an hour before she needed to go pick them up. She had just gotten home from shopping at Wal-Mart and she was horny and hotter than hell. She had worn what she considered her "slut suit," short skirt, low cut blouse with no brassiere on under it and high heels. She got a hell of a kick out of slowly walking the aisles and generating hard dicks and knowing that every man who saw her wanted to fuck her. She wondered if the day would come when one of them would. She knew one who wanted to and who was determined to. At least she thought he did. She hadn't heard from The Watcher in three weeks. 
+ 
+
+===
+
+It was a Saturday morning. Rick was out playing eighteen, the kids were at the pool for their swimming lessons and she had an hour before she needed to go pick them up. She had just gotten home from shopping at Wal-Mart and she was horny and hotter than hell. She had worn what she considered her "slut suit," short skirt, low cut blouse with no brassiere on under it and high heels. She got a hell of a kick out of slowly walking the aisles and generating hard dicks and knowing that every man who saw her wanted to fuck her. She wondered if the day would come when one of them would. She knew one who wanted to and who was determined to. At least she thought he did. She hadn't heard from The Watcher in three weeks. 
 
  She was in her kitchen looking out her window at Billy who was busy cutting the grass in her backyard. Billy was the eighteen year old son of their next door neighbors and Rick had hired him to take care of the yard so Rick would be free to play golf on the weekends. She watched him as he moved back and forth across the yard dressed in only shorts. She wondered if he had boxers or briefs on under those shorts. It didn't seem fair that he could get away with walking around in only shorts. 
 
@@ -308,7 +322,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 04 ****** byJust_Plain_Bob© Kathleen went over the list of things she had to get done with an eye to those items where there was a possibility of being able to expose herself to Billy. She had no idea why she got such a rush from letting the boy see her, she just knew that it turned her on and she loved that turned on feeling. 
+ 
+
+===
+
+Kathleen went over the list of things she had to get done with an eye to those items where there was a possibility of being able to expose herself to Billy. She had no idea why she got such a rush from letting the boy see her, she just knew that it turned her on and she loved that turned on feeling. 
 
  The item she was giving the most consideration to was the wall between the upstairs bathroom and the kid's bedroom. The kids at one time had done a number on the wall with crayons and finger paint. She had scrubbed and scrubbed the wall, but had never gotten it totally clean so it was going to have to be painted. Her bedroom door was just opposite the wall and if she had Billy paint the wall she could be in the bedroom with the door opened just a crack and give Billy a show. The wall would need two coats of paint and that meant she could tease him for hours. But she was running out of time. She needed to get it done soon. 
 
@@ -462,11 +480,19 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 04 ****** byJust_Plain_Bob© To be continued...  
+ 
+
+===
+
+To be continued...  
 
  
 
- ****** The Adventures of Kathleen M. Ch. 05 ****** byJust_Plain_Bob© The next several weeks were busy ones for Kathleen as she spent her days in the classroom and her evenings and weekends getting ready to move. Anyone observing her during that period would think she was organized, well ordered and efficient, but she wasn't 'well ordered' at all. Her life was anything but. 
+ 
+
+===
+
+The next several weeks were busy ones for Kathleen as she spent her days in the classroom and her evenings and weekends getting ready to move. Anyone observing her during that period would think she was organized, well ordered and efficient, but she wasn't 'well ordered' at all. Her life was anything but. 
 
  In the last few months she had unleashed something that she had never known she had inside her. One hour in an eighteenth floor hotel room with the drapes open had let loose a sexual being she had never been aware of. From loving wife and prim and proper school teacher to slut in one hour and she didn't understand where it came from. She didn't understand it, but someone did. He had looked at her from a distance of thirty feet and had immediately known she was a slut and four hours later he had pinned her to a wall, shoved his fingers into her pussy and had told her that when the time came he was going to fuck her until she bled. 
 
@@ -570,7 +596,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 06 ****** byJust_Plain_Bob© It was a slow week for Kathleen. She spent most of spring break moving into her new house, unpacking boxes and moving furniture to where she wanted it. By Wednesday she was going through withdrawal. No students to tease, no tunnel to suck her way through and no Billy or Todd to help her take the edge off. 
+ 
+
+===
+
+It was a slow week for Kathleen. She spent most of spring break moving into her new house, unpacking boxes and moving furniture to where she wanted it. By Wednesday she was going through withdrawal. No students to tease, no tunnel to suck her way through and no Billy or Todd to help her take the edge off. 
 
  Rick had reached the point where he was pushing her away and coming up with excuses as to why he couldn't make love. It was the first time that she had ever heard of a man using, "Sorry honey, not tonight. I have a hell of a headache" to get out of having sex. She hadn't even been able to check out the boys next door and maybe get a little teasing done. She hadn't seen them since that Saturday that they had seen her going at it with Billy and Todd in her kitchen. They must have gone somewhere for spring break. 
 
@@ -690,7 +720,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 07 ****** byJust_Plain_Bob© The rest of the week flew by as she hadn't seen the kids in almost a week and there were games to play and stories to be read. And there were the nights; nights when Rick was reduced to a quivering wreck. 
+ 
+
+===
+
+The rest of the week flew by as she hadn't seen the kids in almost a week and there were games to play and stories to be read. And there were the nights; nights when Rick was reduced to a quivering wreck. 
 
  But even though the rest of the week was fun and family time there was always a little of the 'new' Kathleen awake and in her mind and it was kept awake by two rose bushes that she saw everyday. When had he planted them? What had she been doing while he was outside digging the holes? Was she inside the house at the time? Alone? Could he have come inside and taken her then? She shivered at the thought. 
 
@@ -848,7 +882,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 07 ****** byJust_Plain_Bob© She knew that what Hank had just said was true. Just the accusation alone would be enough for the school board. She could tell the board that the only reason that the accusation was made was because she refused to let them blackmail her, but it wouldn't matter to the board. In the current climate, with all the other student/teacher cases in the news, they would take no chances. She was trapped - she had to do it. She could see no other way out other than to just quit her job and she couldn't bring herself to do that. 
+ 
+
+===
+
+She knew that what Hank had just said was true. Just the accusation alone would be enough for the school board. She could tell the board that the only reason that the accusation was made was because she refused to let them blackmail her, but it wouldn't matter to the board. In the current climate, with all the other student/teacher cases in the news, they would take no chances. She was trapped - she had to do it. She could see no other way out other than to just quit her job and she couldn't bring herself to do that. 
 
  She looked at Hank's cock sticking out of his trouser fly and she took a deep breath and walked toward him. She looked into his eyes hoping for a last minute reprieve and saw nothing but expectation. She leaned forward and put her hands flat on the desk on either side of Hank's legs for support and then she lowered her head and took his cock in her mouth. Jim moved up behind her and pushed her skirt up to her waist. She spread her legs and braced herself for what was coming and felt the head of his cock pushing at her pussy. He pushed against her a couple of times and then his cock split her lips and he began thrusting at her to work his way in. 
 
@@ -888,7 +926,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 08 ****** byJust_Plain_Bob© "Have you been taking your vitamins sweetie?" Kathleen asked her husband when they climbed into bed that night. 
+ 
+
+===
+
+"Have you been taking your vitamins sweetie?" Kathleen asked her husband when they climbed into bed that night. 
 
  "Why?" 
 
@@ -1042,7 +1084,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 08 ****** byJust_Plain_Bob© While she held the cock with one hand she got herself ready and then she let go of the cock and was out the door of her booth and on her way to her car before the man could pull his cock back out of the glory hole. As she drove off the parking lot she told herself that she was never going to go back there again. 
+ 
+
+===
+
+While she held the cock with one hand she got herself ready and then she let go of the cock and was out the door of her booth and on her way to her car before the man could pull his cock back out of the glory hole. As she drove off the parking lot she told herself that she was never going to go back there again. 
 
  +++++ 
 
@@ -1060,7 +1106,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 09 ****** byJust_Plain_Bob© Monday it was Steve's turn to drive and his Honda Accord wasn't near as roomy and comfortable as her Suburban had been. Hank sat up front with Steve and she ended up in the back between Harry and Ralph. Anticipating that the men would be talking about the outcomes of the weekends sporting events she brought a magazine to read. 
+ 
+
+===
+
+Monday it was Steve's turn to drive and his Honda Accord wasn't near as roomy and comfortable as her Suburban had been. Hank sat up front with Steve and she ended up in the back between Harry and Ralph. Anticipating that the men would be talking about the outcomes of the weekends sporting events she brought a magazine to read. 
 
  She had trouble concentrating on what she was reading because she kept thinking of the thoughts she'd had over the weekend. Following her visit to the adult bookstore she had realized she was on the edge of being out of control. Her classroom behavior was fast approaching the outrageous and it didn't matter how much it excited her and turned her on she was going to have to rein it in. She could still tease the front row boys as she sat at her desk, but there would be no more going without her panties. And she had to stop being alone in a room with a student following her fourth hour. She was just going to have to get by on her teasing the boys in the front row. It would be hard, but she was going to have to do it. 
 
@@ -1254,7 +1304,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 10 ****** byJust_Plain_Bob© Thursday morning the four men were waiting for her when she pulled up and parked at the mall. Steve and Hank were already sitting on the front seat and Ralph was already in the back. Harry was standing there waiting so she knew she was expected to take the middle of the back seat. She got in the Accord and Harry got in after her. As Harry closed the door Hank said: 
+ 
+
+===
+
+Thursday morning the four men were waiting for her when she pulled up and parked at the mall. Steve and Hank were already sitting on the front seat and Ralph was already in the back. Harry was standing there waiting so she knew she was expected to take the middle of the back seat. She got in the Accord and Harry got in after her. As Harry closed the door Hank said: 
 
  "We set up a rotation sweetie. We drew for position and the way it came out is Ralph, Harry, Steve and then me. Ralph gets you on the way to work this morning and Harry gets you on the way home. You sit up front with Steve tomorrow and make him smile on the way to school and I'll get mine on the way home. Monday the rotation will start over." 
 
@@ -1462,7 +1516,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 11 ****** byJust_Plain_Bob© The boys were waiting when she got to the mall Monday morning. It was Ralph's turn to drive and according to the rotation that the guys had set up he was also the next one in line for the blow job. She got in front with him and the other three got in the back. As soon as he was out of the parking lot Ralph unzipped and took his cock out and she reached over and took it in her hand. She stroked it until it was good and hard and then she let go of it and reached into her purse and took out the mini-cassette recorder and hit PLAY. She sat there and looked from face to face as the four men listened to what took place in the van on Friday. When the tape ended she said: 
+ 
+
+===
+
+The boys were waiting when she got to the mall Monday morning. It was Ralph's turn to drive and according to the rotation that the guys had set up he was also the next one in line for the blow job. She got in front with him and the other three got in the back. As soon as he was out of the parking lot Ralph unzipped and took his cock out and she reached over and took it in her hand. She stroked it until it was good and hard and then she let go of it and reached into her purse and took out the mini-cassette recorder and hit PLAY. She sat there and looked from face to face as the four men listened to what took place in the van on Friday. When the tape ended she said: 
 
  "If you would like your very own copy of this tape I will see to it that you get one. I'll drop it off at your house and leave it with your wife." 
 
@@ -1626,7 +1684,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 12 ****** byJust_Plain_Bob© It was a beautiful Sunday and Rick had taken the kids to the park to play on the swings and slide. She was in the backyard working on her landscaping plan and trying to figure out what she want to do with the north corner when she heard, "Hi neighbor." She turned to see Sarah coming toward her. 
+ 
+
+===
+
+It was a beautiful Sunday and Rick had taken the kids to the park to play on the swings and slide. She was in the backyard working on her landscaping plan and trying to figure out what she want to do with the north corner when she heard, "Hi neighbor." She turned to see Sarah coming toward her. 
 
  "What are you up to?" 
 
@@ -1894,7 +1956,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 12 ****** byJust_Plain_Bob© "What?" 
+ 
+
+===
+
+"What?" 
 
  "I'm horny and I haven't been laid since last Thursday and you will have the boys until the day after tomorrow. I thought I'd ask you to share. Can I have one?" 
 
@@ -1974,7 +2040,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 13 ****** byJust_Plain_Bob© Authors note: All teenage participants are eighteen or older. 
+ 
+
+===
+
+Authors note: All teenage participants are eighteen or older. 
 
  * 
 
@@ -2262,7 +2332,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 13 ****** byJust_Plain_Bob© "Don't you worry none honey, you will be able to handle it. Come on over here and get it wet." 
+ 
+
+===
+
+"Don't you worry none honey, you will be able to handle it. Come on over here and get it wet." 
 
  "I've never seen one that big before." 
 
@@ -2348,7 +2422,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 14 ****** byJust_Plain_Bob© She was still horny when she woke up Saturday morning. She got the kids up and dressed and while they were eating their breakfast she called Sarah. 
+ 
+
+===
+
+She was still horny when she woke up Saturday morning. She got the kids up and dressed and while they were eating their breakfast she called Sarah. 
 
  "Are the boys up yet?" 
 
@@ -2594,7 +2672,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 14 ****** byJust_Plain_Bob© Getting him out of the room in time for him to take care of himself also meant hat she had time to get to the girls bathroom and relieve her own tensions. As her fingers worked furiously at her pussy she tried to imagine Barry with his cock in his hand. She had to bite her lip to keep from screaming when she had her orgasm. 
+ 
+
+===
+
+Getting him out of the room in time for him to take care of himself also meant hat she had time to get to the girls bathroom and relieve her own tensions. As her fingers worked furiously at her pussy she tried to imagine Barry with his cock in his hand. She had to bite her lip to keep from screaming when she had her orgasm. 
 
  As she walked toward the car she saw her male companions watching her approach and she knew that they were wondering what the ride home was going to be like. Would it be as frosty as the ride in or would things heat up a little in the back seat? She saw the smiles appear when she said: 
 
@@ -2744,7 +2826,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 15 ****** byJust_Plain_Bob© Frank and the kids were gone for three hours and that was enough time for her to be thoroughly fucked by Chris and Bobby. She was in a very mellow mood when the kids had been put to bed and Frank had come into her bedroom. She smiled up at him: 
+ 
+
+===
+
+Frank and the kids were gone for three hours and that was enough time for her to be thoroughly fucked by Chris and Bobby. She was in a very mellow mood when the kids had been put to bed and Frank had come into her bedroom. She smiled up at him: 
 
  "Want some pussy daddy? Want to fuck your baby boy's wife? Come on daddy; bring your slut her cock." 
 
@@ -3034,7 +3120,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 15 ****** byJust_Plain_Bob© She had never worried about being caught because she gave Rick no reason to suspect anything. There was no reason to believe that that had changed, but now the cold, hard reality of what would happen if by some chance he did find out anything grabbed her by the throat. 
+ 
+
+===
+
+She had never worried about being caught because she gave Rick no reason to suspect anything. There was no reason to believe that that had changed, but now the cold, hard reality of what would happen if by some chance he did find out anything grabbed her by the throat. 
 
  She sat up and looked out the window at the passing scenery as she went over in her mind what she had to do. No more car pool for a start. It would only be six weeks until the end of the school term and she could handle the expense of driving the Suburban that long. Chris and Bobby would no longer be a problem if Frank and Sarah went through with what they planned. She would know how that turned out as soon as they got home. Oh shit! Frank and Sarah. Should she tell Rick about what his father was doing? No, better let Frank explain that. What else? Oh yes, get rid of Roy and Morrie's phone number before she was tempted to call it. Anything else? Not that she could think of. Just get back into the groove of being a faithful wife. 
 
@@ -3046,7 +3136,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 16 ****** byJust_Plain_Bob© It had been three weeks since she had received her wake up call and a lot had happened in that time. Frank and Sarah had followed through on their plan and Sarah and the boys had moved out. That night Frank had left Sarah and the two boys at the motel and had come to the house and explained to Rick what he was doing. 
+ 
+
+===
+
+It had been three weeks since she had received her wake up call and a lot had happened in that time. Frank and Sarah had followed through on their plan and Sarah and the boys had moved out. That night Frank had left Sarah and the two boys at the motel and had come to the house and explained to Rick what he was doing. 
 
  Rick had not taken it well. He seemed to feel that his father was being disrespectful to the memory of his mother. She found that curious because it had only been a couple of days since he had asked her if she knew anyone they could have fixed Frank up with. The fact that his mother had been dead for six years and that his father still had a life didn't seem to occur to him. Frank listened to Rick and then said, "Sorry you feel that way" and he had gotten up and walked out of the house without another word. 
 
@@ -3226,7 +3320,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 16 ****** byJust_Plain_Bob© "My cock not enough for you slut? You want more cock don't you?" 
+ 
+
+===
+
+"My cock not enough for you slut? You want more cock don't you?" 
 
  "Oh God yes. Stay there, don't pull out. You'll get hard again." 
 
@@ -3242,7 +3340,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 17 ****** byJust_Plain_Bob© The look in Rick's eyes was murderous as he walked from the light switch over to where she was leaning across Ron's desk with her skirt bunched up around her waist and Ron's cum leaking out of her ass. He never took his eyes off of her as he advanced toward her. She heard Ron chuckle and say: 
+ 
+
+===
+
+The look in Rick's eyes was murderous as he walked from the light switch over to where she was leaning across Ron's desk with her skirt bunched up around her waist and Ron's cum leaking out of her ass. He never took his eyes off of her as he advanced toward her. She heard Ron chuckle and say: 
 
  "I told you the bitch was a slut." 
 
@@ -3380,7 +3482,11 @@
 
  
 
- ****** The Adventures of Kathleen M. Ch. 17 ****** byJust_Plain_Bob© "And then we went to Ron's open house. It was then I found out that he was The Watcher and when he told me I had to give in to him or he would tell you about me I had no choice. He promised me that it would be that one night only and then he would delete that picture and I would never hear of it again. And yes, before you bring it up again, I did say all those things you heard while he was using me, but that shouldn't have come as a huge surprise to you. I've said the same things to you when you had me in the throes of passion and having orgasm after orgasm. It is the way I am when I'm having sex. The major difference is that I didn't mean a word of it with Ron, but I always meant it with you." 
+ 
+
+===
+
+"And then we went to Ron's open house. It was then I found out that he was The Watcher and when he told me I had to give in to him or he would tell you about me I had no choice. He promised me that it would be that one night only and then he would delete that picture and I would never hear of it again. And yes, before you bring it up again, I did say all those things you heard while he was using me, but that shouldn't have come as a huge surprise to you. I've said the same things to you when you had me in the throes of passion and having orgasm after orgasm. It is the way I am when I'm having sex. The major difference is that I didn't mean a word of it with Ron, but I always meant it with you." 
 
  She finished her confession and got up from the kitchen table. 
 

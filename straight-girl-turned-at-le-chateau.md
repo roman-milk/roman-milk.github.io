@@ -1,8 +1,14 @@
+Straight Girl Turned at Le Chateau
+==================================
 #1 
 
  
 
- ****** Straight Girl Turned at Le Chateau ****** bysilkstockingslover© Summary: 3 friends, costumes, kinky Halloween games and lesbianism. 
+ 
+
+===
+
+Summary: 3 friends, costumes, kinky Halloween games and lesbianism. 
 
  Note: This is a HALLOWEEN 2014 Contest story. 
 
@@ -388,7 +394,11 @@
 
  
 
- ****** Straight Girl Turned at Le Chateau ****** bysilkstockingslover© Sara smiled, her smile devious, "Maybe later." 
+ 
+
+===
+
+Sara smiled, her smile devious, "Maybe later." 
 
  "I'll keep you to that," Jane nodded, as she said, "Mrs. Hamilton crawl to the cheerleader to your right." 
 
@@ -780,7 +790,11 @@
 
  
 
- ****** Straight Girl Turned at Le Chateau ****** bysilkstockingslover© Jenny backed away and was soon again sitting across from me. She smiled and said, "Thank you, you have a very unique taste." 
+ 
+
+===
+
+Jenny backed away and was soon again sitting across from me. She smiled and said, "Thank you, you have a very unique taste." 
 
  "Thank you," I replied, the compliment so surreal. 
 

@@ -1,8 +1,14 @@
+Tricking Twin Sister
+====================
 #1 
 
  
 
- ****** Tricking Twin Sister ****** bysilkstockingslover© Summary: Brother in costume fucks all three of his bitch twin sister's holes. 
+ 
+
+===
+
+Summary: Brother in costume fucks all three of his bitch twin sister's holes. 
 
  Note 1: This is a Halloween 2013 contest story...I hope you enjoy. 
 
@@ -282,7 +288,11 @@
 
  
 
- ****** Tricking Twin Sister ****** bysilkstockingslover© "Soooo full," she whimpered, her hands grabbing onto the sheets of the bed. 
+ 
+
+===
+
+"Soooo full," she whimpered, her hands grabbing onto the sheets of the bed. 
 
  "Do you want all of your big brother's big cock?" I asked, slowly going deeper only a couple inches left. 
 

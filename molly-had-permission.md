@@ -1,8 +1,14 @@
+Molly Had Permission
+====================
 #1 
 
  
 
- ****** Molly Had Permission ****** byJust_Plain_Bob© My wife and I are pretty open minded about things and the one basic rule in our house is that if you have something you want to talk about, or do, just bring it up and we will talk about it. This includes sexual matters too. For instance, she asked me one day why I never tried to fuck her in the ass and the answer was that I had never thought about it. But she was curious about it and so we tried it; she liked it and now it is a regular part of our sex life. 
+ 
+
+===
+
+My wife and I are pretty open minded about things and the one basic rule in our house is that if you have something you want to talk about, or do, just bring it up and we will talk about it. This includes sexual matters too. For instance, she asked me one day why I never tried to fuck her in the ass and the answer was that I had never thought about it. But she was curious about it and so we tried it; she liked it and now it is a regular part of our sex life. 
 
  We are both the products of broken homes and have seen first hand what the lack of trust can cause. On my side of the equation my mother had remarried twice after having been divorced by my dad and all three of her marriages had ended because of sexual problems, mostly because my mom was not a one-man woman. My mother never hid this from me and as a result my attitude toward sex was a lot more open than that of most people my age and I had a fairly active sex life before getting married. 
 

@@ -1,8 +1,14 @@
+A Shave and a Haircut
+=====================
 #1 
 
  
 
- ****** A Shave and a Haircut ****** byJust_Plain_Bob© I've been married to Steffanie for almost twenty years now and if I would have had to bet my life on it I would have wagered that she was so in tune with me she could have picked me out of a crowd of men even if she was blindfolded. We had some sort of ESP when it came to each other. Each of us always knew what the other was thinking and we always seemed to be able to sense when the other was near. 
+ 
+
+===
+
+I've been married to Steffanie for almost twenty years now and if I would have had to bet my life on it I would have wagered that she was so in tune with me she could have picked me out of a crowd of men even if she was blindfolded. We had some sort of ESP when it came to each other. Each of us always knew what the other was thinking and we always seemed to be able to sense when the other was near. 
 
  I am a traveling salesman and I'm usually on the road two weeks out of every three. Steff was an executive secretary for a manufacturing firm and had been since our two kids got old enough to go to school. Because of my occupation and the many separations that it caused Steff and I had a fantastic love life. She was always so glad to see me come home and I was always so glad to be there that we never reached that point in our marriage where sex became "ho hum." 
 

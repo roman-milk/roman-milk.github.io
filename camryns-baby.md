@@ -1,8 +1,14 @@
+Camryn's Baby
+=============
 #1 
 
  
 
- ****** Camryn's Baby ****** byJust_Plain_Bob© I really didn't have anyone to blame but myself. I could have stopped it in the early stages, but I let it go on because it just didn't matter to me. I had no idea that it would go as far as it did. 
+ 
+
+===
+
+I really didn't have anyone to blame but myself. I could have stopped it in the early stages, but I let it go on because it just didn't matter to me. I had no idea that it would go as far as it did. 
 
  Camryn and I met in college, dated for a while and then moved on to other relationships. A year later we were at the same party, got to talking and started dating again. We went steady for about a year and then broke up again. It wasn't a bitter break up, just one of those 'not ready for anything permanent' break ups. The year after graduation we met at another party and started dating again and that time it went from dating to going steady to getting engaged. One year later we were married. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Camryn's Baby ****** byJust_Plain_Bob© "What's wrong with you and Camryn?" 
+ 
+
+===
+
+"What's wrong with you and Camryn?" 
 
  "Nothing." 
 

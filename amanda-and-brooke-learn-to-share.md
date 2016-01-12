@@ -1,8 +1,14 @@
+Amanda &amp; Brooke Learn to Share
+==================================
 #1 
 
  
 
- ****** Amanda &amp; Brooke Learn to Share ****** byfastandsloppy© All characters are eighteen or older. 
+ 
+
+===
+
+All characters are eighteen or older. 
 
  *** 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Amanda &amp; Brooke Learn to Share ****** byfastandsloppy© Brooke looked back at me, her eyebrows arched in an unspoken question. "Almost," I said. She shrugged and turned back to Amanda. She slowly ascended her friend's body, working her lips up over her abdomen, chest and neck before embracing her for a long and deep kiss. 
+ 
+
+===
+
+Brooke looked back at me, her eyebrows arched in an unspoken question. "Almost," I said. She shrugged and turned back to Amanda. She slowly ascended her friend's body, working her lips up over her abdomen, chest and neck before embracing her for a long and deep kiss. 
 
  I was almost there. I stood and brought my near-erection over to their joined lips. With a pleased hum they continued to kiss each other around my cock; moving up and down my shaft as their tongues and lips struggled to join around my newly reborn hard-on. Soon Amanda was taking one ball then the other into her mouth while Brooke slid her head up and down along my length. I groaned lividly at the sensation. They switched places for awhile, Amanda on my dick and Brooke at my balls, before Brooke moved up to bring her big tits together around my cock. Amanda lovingly kissed Brooke's breasts and nipples before moving her face up to lap at my head as I slowly tit-fucked Brooke. 
 

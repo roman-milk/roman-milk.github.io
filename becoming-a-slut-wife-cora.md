@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Cora
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Cora ****** byJust_Plain_Bob© I'm probably going to end up divorced, but right now I just don't care. I'm having the time of my life cheating on my husband and I don't intend to stop. I'm doing it right under Ben's (my husband) nose and he doesn't suspect a thing. He was even the one who helped set me up with my lover. 
+ 
+
+===
+
+I'm probably going to end up divorced, but right now I just don't care. I'm having the time of my life cheating on my husband and I don't intend to stop. I'm doing it right under Ben's (my husband) nose and he doesn't suspect a thing. He was even the one who helped set me up with my lover. 
 
  +++++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Becoming A Slut Wife: Cora ****** byJust_Plain_Bob© He looked crestfallen, but he said he understood and then he was gone. 
+ 
+
+===
+
+He looked crestfallen, but he said he understood and then he was gone. 
 
  +++++++++++++++++++++++++++++++++++++++++++++++++ 
 

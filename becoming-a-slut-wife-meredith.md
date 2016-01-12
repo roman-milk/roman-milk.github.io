@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Meredith
+==============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Meredith ****** byJust_Plain_Bob© I'm told, usually by other men, that size doesn't really matter, that all that really counts is knowing how to use what you have and that may be true although I suspect that only a woman can really give a truthful answer on the subject. What I do know personally is that while size may not matter is sure does fascinate. 
+ 
+
+===
+
+I'm told, usually by other men, that size doesn't really matter, that all that really counts is knowing how to use what you have and that may be true although I suspect that only a woman can really give a truthful answer on the subject. What I do know personally is that while size may not matter is sure does fascinate. 
 
  ++++++++++++++++++ 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Becoming a Slut Wife: Meredith ****** byJust_Plain_Bob© The whole time Meredith was talking to me I was reminded of how turned on I had gotten just thinking about the night she told me she had seen Mike's cock for the first time. I also remembered how many times I had masturbated in my hotel room thinking about her being at Mike and Amy's and thinking about what she was probably doing there. Then of course there was the fact that her confession had me hard as a rock. 
+ 
+
+===
+
+The whole time Meredith was talking to me I was reminded of how turned on I had gotten just thinking about the night she told me she had seen Mike's cock for the first time. I also remembered how many times I had masturbated in my hotel room thinking about her being at Mike and Amy's and thinking about what she was probably doing there. Then of course there was the fact that her confession had me hard as a rock. 
 
  "Are you telling me that if you could have found a way to face me you would have been everybody's slut?" 
 

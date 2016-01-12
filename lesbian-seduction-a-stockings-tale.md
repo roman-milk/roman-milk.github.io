@@ -1,8 +1,14 @@
+Lesbian Seduction: A Stockings Tale
+===================================
 #1 
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© Summary: A lonely bi-curious MILF falls for an on-line teen Mistress. 
+ 
+
+===
+
+Summary: A lonely bi-curious MILF falls for an on-line teen Mistress. 
 
  Note 1: This is a long story...so patience is a virtue. 
 
@@ -414,7 +420,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© Silkstockings18: I c...u r very concerned about ur identity obviously? 
+ 
+
+===
+
+Silkstockings18: I c...u r very concerned about ur identity obviously? 
 
  Milflezinnylons: yes 
 
@@ -764,7 +774,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© Silkstockings18: if u r comfortable with it 
+ 
+
+===
+
+Silkstockings18: if u r comfortable with it 
 
  Milflezinnylons: It will be only of my bottom half 
 
@@ -1174,7 +1188,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© The MILF hungrily lapped the teen's pussy juice, a taste she craved constantly. 
+ 
+
+===
+
+The MILF hungrily lapped the teen's pussy juice, a taste she craved constantly. 
 
  
 
@@ -1444,7 +1462,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© Silkstockings18: I know u would 
+ 
+
+===
+
+Silkstockings18: I know u would 
 
  Milflezinnylons: so no coming for a week? 
 
@@ -1824,7 +1846,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© She tried doing some cleaning, but it was incredibly distracting to have the plug always almost slipping out of her ass. Suddenly, the doorbell rang. She considered not answering it, she considered taking the plug out, but instead, deciding it would make a good story to tell mistress, she went to the door and opened it. 
+ 
+
+===
+
+She tried doing some cleaning, but it was incredibly distracting to have the plug always almost slipping out of her ass. Suddenly, the doorbell rang. She considered not answering it, she considered taking the plug out, but instead, deciding it would make a good story to tell mistress, she went to the door and opened it. 
 
  A Girl Guide was selling Girl Guide cookies. Maureen offered to buy three boxes. She went to get her purse praying the toy wouldn't fall out of her ass forever tainting this young girl's innocence. 
 
@@ -2196,7 +2222,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© "Aaaaaaaaaaaah," Maureen screamed, as a searing pain coursed through her, her ass literally feeling like it was being ripped in two. 
+ 
+
+===
+
+"Aaaaaaaaaaaah," Maureen screamed, as a searing pain coursed through her, her ass literally feeling like it was being ripped in two. 
 
  Milflezinnylons: All in. 
 
@@ -2598,7 +2628,11 @@
 
  
 
- ****** Lesbian Seduction: A Stockings Tale ****** bysilkstockingslover© Maureen, dressed exactly as she was yesterday in the photos, fed the cat first and then made her way up the stairs. There was almost no trepidation, but rather a quiet calm as she prepared to obey her Mistress. Her pussy was on fire all day, and she was eager to get herself off... desperate, actually. 
+ 
+
+===
+
+Maureen, dressed exactly as she was yesterday in the photos, fed the cat first and then made her way up the stairs. There was almost no trepidation, but rather a quiet calm as she prepared to obey her Mistress. Her pussy was on fire all day, and she was eager to get herself off... desperate, actually. 
 
  She walked into the teenager's room, got out of her dress, went directly to the dildo on the wall and dropped to her knees. 
 

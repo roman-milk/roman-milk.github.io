@@ -1,8 +1,14 @@
+Mistle-Blow: Three Nerds and a Beauty
+=====================================
 #1 
 
  
 
- ****** Mistle-Blow: Three Nerds and a Beauty ****** bysilkstockingslover© Note 1: This is a Christmas 2013 Contest story...so please vote and enjoy. 
+ 
+
+===
+
+Note 1: This is a Christmas 2013 Contest story...so please vote and enjoy. 
 
  Note 2: Thanks to goamz86 and MAB7991 for editing this story. 
 
@@ -350,7 +356,11 @@
 
  
 
- ****** Mistle-Blow: Three Nerds and a Beauty ****** bysilkstockingslover© Pride washed over me at the compliment as I began to slowly pump my cock in and out of Amber's incredible warmth. 
+ 
+
+===
+
+Pride washed over me at the compliment as I began to slowly pump my cock in and out of Amber's incredible warmth. 
 
  "That's it baby, fuck my cunt harder," she moaned. 
 

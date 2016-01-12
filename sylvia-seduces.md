@@ -1,8 +1,14 @@
+Sylvia Seduces
+==============
 #1 
 
  
 
- ****** Sylvia Seduces ****** bygeronimo_appleby© Another from me, this time charting a young man's first time. Mature, voluptuous, sexy Sylvia seduces her friend's son. The pitfall being he's her friend's son! Please send feedeback about any part you enjoy, or any part you don't. There may be errors that remain - forgive me if there are. 
+ 
+
+===
+
+Another from me, this time charting a young man's first time. Mature, voluptuous, sexy Sylvia seduces her friend's son. The pitfall being he's her friend's son! Please send feedeback about any part you enjoy, or any part you don't. There may be errors that remain - forgive me if there are. 
 
  Above all, I hope you enjoy. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Sylvia Seduces ****** bygeronimo_appleby© She smelled good too, but the disconcerting thing, even more disturbing than the shivering jellies of Sylvia's breasts, the tops of which he could clearly see displayed in the V of her décolletage, was how attentive the woman had been. 
+ 
+
+===
+
+She smelled good too, but the disconcerting thing, even more disturbing than the shivering jellies of Sylvia's breasts, the tops of which he could clearly see displayed in the V of her décolletage, was how attentive the woman had been. 
 
  "I thought," Sylvia began in a breathy voice. "That perhaps we could eat together, share a bottle of wine -- What do you think, Justin? Good idea?" He'd squawked some inarticulate gargle, bemused and embarrassed. Sylvia had laughed then. "What's the matter, Justin? Do I make you ... uncomfortable?" Did she? - - Hell yes! Especially tonight done up as she was. Justin's erection throbbed painfully, outraged at the restriction, but Sylvia's next words caused the leaden lump of anxiety to form in Justin's guts. "I think we need to have a little talk," she'd said. "There's something we need to discuss. Clear the air." 
 

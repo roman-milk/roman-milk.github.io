@@ -1,8 +1,14 @@
+Three Tales: Wifey, Girl And Hubby
+==================================
 #1 
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© *************************************** 
+ 
+
+===
+
+*************************************** 
 
  PART ONE -- WIFEY'S TALE 
 
@@ -86,7 +92,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© Suddenly, he threw me off of his body; almost in one motion, he put me on my knees, and he was behind me on his knees. I felt his strong hands wrapping around my thin hips, as he steadied me, and guided his cock to my cunt from the backside. I yelped, as Paul began to fuck my doggy-style. He reached a hand down my thin spine, pushing my head and shoulders into the bed, while he spread his thick legs to lower his genitals and fuck my cunt with that huge shaft. I heard him roar, as he stared down at me in the near-darkness, probably imagining the strawberry-blonde's hot little ass in front of him instead. "I love your fuckin' body, Kelli!" spat my husband at his pretend, fantasy date, pulling my pelvis back so he could sink his dick all the way inside my cunt. 
+ 
+
+===
+
+Suddenly, he threw me off of his body; almost in one motion, he put me on my knees, and he was behind me on his knees. I felt his strong hands wrapping around my thin hips, as he steadied me, and guided his cock to my cunt from the backside. I yelped, as Paul began to fuck my doggy-style. He reached a hand down my thin spine, pushing my head and shoulders into the bed, while he spread his thick legs to lower his genitals and fuck my cunt with that huge shaft. I heard him roar, as he stared down at me in the near-darkness, probably imagining the strawberry-blonde's hot little ass in front of him instead. "I love your fuckin' body, Kelli!" spat my husband at his pretend, fantasy date, pulling my pelvis back so he could sink his dick all the way inside my cunt. 
 
  Shit, this was brutal! We both screamed and moaned, while I pinched my nipples and alternatively rubbed my clitoris while my sexy husband fucked me senseless. My legs and back were sore from being bent over, but he didn't stop; he continued driving that fat, long dick into my cunt over and over, stretching it. I felt liquids dripping down my spread-open, inner thighs, a mixture of his sperm and my juices. I felt my asscheeks, tight as they are, ripping from the repeated impacts of his flat, firm pelvis against my small figure. The air was still, hot, musky; we moaned as we sucked in air, pounding our bodies together. 
 
@@ -192,7 +202,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© Now, as we began making out, her hand slid between my thighs. Oh fuck! Her petite hand moved right over my bald cunt, and she found my pussy sopping wet - - and not just from being in a hot tub. Her fingers slipped around my clitty, grinding it, rubbing it against my body; then, downwards her fingertips slipped more, to my wet lips, to my entrance, and softly inside. Ohhh shit! She was finger-fucking me, as I stood in front of her, making out with her! I didn't know exactly where to put my hands, but with a leg lifted, I needed to balance myself; I wrapped both my arms around her slim back, clutching her, leaning into her as our faces meshed together in a sloppy kiss, and her fingers drove into my cunt. 
+ 
+
+===
+
+Now, as we began making out, her hand slid between my thighs. Oh fuck! Her petite hand moved right over my bald cunt, and she found my pussy sopping wet - - and not just from being in a hot tub. Her fingers slipped around my clitty, grinding it, rubbing it against my body; then, downwards her fingertips slipped more, to my wet lips, to my entrance, and softly inside. Ohhh shit! She was finger-fucking me, as I stood in front of her, making out with her! I didn't know exactly where to put my hands, but with a leg lifted, I needed to balance myself; I wrapped both my arms around her slim back, clutching her, leaning into her as our faces meshed together in a sloppy kiss, and her fingers drove into my cunt. 
 
  She was totally leading me, which is okay, because in bed normally I let the guy be the aggressor. I was slightly bothered that we were in her backyard, naked, doing the nasty -- I mean, anyone around could have seen us. Her house backed to trees, and while there was a neighbor's house to one side, she had this big privacy fence between us and it; so it wasn't likely anyone was watching us. Still, there was a (closed) upstairs window of that house; had someone been looking out at it, they'd have gotten quite the show! But, passive me, I didn't stop her, when she had me move to the edge of the tub. 
 
@@ -274,7 +288,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© What the fuck did that mean? 
+ 
+
+===
+
+What the fuck did that mean? 
 
  I hung up, tossing the cell to the bed, kicking off my pants. Susan crawled onto the middle of the bed, rolling onto her back and spreading her creamy, white thighs. Her cunt was trimmed, not bald; as a guy who's been around pussy, I have to say, hers isn't the hottest. She has sort of fat pussylips, plus some dark hair around her anus. But her body was tight, her tits proportionately small, and she could fuck like a paid whore -- plus, with that long blonde hair, she truly was gorgeous. Stripping totally naked except for my socks, I climbed onto the bed to keep fucking the bitch, barking at her, "Spread open those slutty thighs, you fuckin' trampy whore, you've got a lot more cock to take today!" Amy, and whatever thing she had going on at home, could wait. 
 
@@ -358,7 +376,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© As I stood there, stupidly gazing at Kelli's naked boobs, my wife peeled down my Speedos. It wasn't easy, the fabric was stretched to its limits; but she pulled it around my erection and down my fit ass, and then as she slid it down to my ankles, Kelli got an eyeful of my cock and balls. I'm really proud of my penis -- hard, at that moment, it was seven and a half inches long, but extremely thick at the base, with a fat, round cockhead and noticeable, bulging veins running down the shaft. My balls were shaved, and they dangled low under my tool, full of cum. 
+ 
+
+===
+
+As I stood there, stupidly gazing at Kelli's naked boobs, my wife peeled down my Speedos. It wasn't easy, the fabric was stretched to its limits; but she pulled it around my erection and down my fit ass, and then as she slid it down to my ankles, Kelli got an eyeful of my cock and balls. I'm really proud of my penis -- hard, at that moment, it was seven and a half inches long, but extremely thick at the base, with a fat, round cockhead and noticeable, bulging veins running down the shaft. My balls were shaved, and they dangled low under my tool, full of cum. 
 
  The big-titted teenager gasped, seeing my adult erection. Her big eyes flirted up to catch me staring at her; and she giggled when she saw how enamored each of us was with the other. 
 
@@ -442,7 +464,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© I wanted to yell at her, tell her what a hot cunt she had for my big married dick, but I continued to bite my tongue -- besides, she was making so much noise, I didn't really need to add to it. 
+ 
+
+===
+
+I wanted to yell at her, tell her what a hot cunt she had for my big married dick, but I continued to bite my tongue -- besides, she was making so much noise, I didn't really need to add to it. 
 
  As the not-yet-college girl screamed underneath me, her arms and legs binding her body to mine, my movements were restricted. Plus, the thought of her insanely gorgeous ass was on my mind. So, after a good long time of screwing her cunt with me on top of her, I pulled out and flipped Kelli onto her knees. Willingly, she bent over, pushing that hot ass into the air, parting her knees, and lowering her chest down to the bed sheets. Kelli looked back at me over her petite shoulder, the same anxious look in her eyes that Amy was giving me right next to her. My eyes fell onto the sight of that naked, teenage butt -- small, firm, with a shallow valley, glistening in cunt juices and sweat, plus the light-brown, puckered asshole above her drenched, pink cuntlips. 
 
@@ -520,7 +546,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© Playfully, still standing above her with my cock twitching and dripping juices, I shrugged like it was no big thing. My wife, however, reached a hand out to pat Kelli's bony little knee. "Told ya, darlin'," my wife chirped proudly, "I told y'all th' mah manly husband would fuck y'all better'n th' whole load of teen boys y'all've had." 
+ 
+
+===
+
+Playfully, still standing above her with my cock twitching and dripping juices, I shrugged like it was no big thing. My wife, however, reached a hand out to pat Kelli's bony little knee. "Told ya, darlin'," my wife chirped proudly, "I told y'all th' mah manly husband would fuck y'all better'n th' whole load of teen boys y'all've had." 
 
  By this point, I was feeling like Superman. Not only had I fucked this teen girl senseless, but my wife was fucking proud of me for doing it. I had a newfound appreciation for Amy, too; maybe I'd misappreciated some of her real talents. One can only think of all the pussy I could have fucked over the past few years, knowing Amy liked cunt as much as I did. Feeling boisterous, I leaned back against the wrought-iron headboard of the bed, with a couple pillows behind me, to give my sore cock a little rest. Spreading my thighs, I let the cool air of the room soothe my well-used penis and aching balls, allowing the liquids on them to evaporate. It also let me show off my handsome genitalia to the two sluts in the room. Meanwhile, I pulled Kelli to my side, propping her back against the side of my chest and throwing an arm around her. I kissed her forehead, turned her face, and began making out with her -- right in front of my wife. Amy just smiled at us, watching the new lovers making out. It was like, I was showing off my new sex toy to my wife. Definitely a novel but very satisfactory feeling. 
 
@@ -600,7 +630,11 @@
 
  
 
- ****** Three Tales: Wifey, Girl And Hubby ****** byNonStopFunGuy© Straight into the master bathroom my wife led Kelli and me, opening the large shower stall and turning on the jets of water from the huge head above. Amy and I had taken many showers together, most of them ending in sex, so despite being tired I was amused at the idea of showering with young Kelli. My wife allowed me to take the 18 year old into the stall, and Amy remained outside -- sitting on the closed toilet lid, looking at me and the girl through the glass of the shower stall's door. 
+ 
+
+===
+
+Straight into the master bathroom my wife led Kelli and me, opening the large shower stall and turning on the jets of water from the huge head above. Amy and I had taken many showers together, most of them ending in sex, so despite being tired I was amused at the idea of showering with young Kelli. My wife allowed me to take the 18 year old into the stall, and Amy remained outside -- sitting on the closed toilet lid, looking at me and the girl through the glass of the shower stall's door. 
 
  After adjusting the water to a mutually acceptable warm temperature, I soaped up my hands and started groping Kelli's little body. Fondling her big tits way too long, then caressing her slim back and squishy buttocks, I touched every part of her figure in the name of cleaning it off. She giggled when my soapy hands rubbed her soft, shaved armpits; she stuck her legs out so I could rub soap over her tanned thighs, even up to her cunt. When her body was gorgeous, streaming with white soap bubbles, Kelli took her turn to scrub me off -- well, just my hairy chest, down to my cock and balls, which she fondled in her small hands until my dick and sack were totally clean, and my cock was, surprisingly, totally hard. 
 

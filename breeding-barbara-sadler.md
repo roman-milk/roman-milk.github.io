@@ -1,8 +1,14 @@
+Breeding Barbara Sadler
+=======================
 #1 
 
  
 
- ****** Breeding Barbara Sadler ****** bygeronimo_appleby© A quick one I did in response to a specific request. In this one, Barbara is desperate for a baby. When the [somewhat unorthodox!] methods in a clinic fail, Barbara's nurse offers an alternative. 
+ 
+
+===
+
+A quick one I did in response to a specific request. In this one, Barbara is desperate for a baby. When the [somewhat unorthodox!] methods in a clinic fail, Barbara's nurse offers an alternative. 
 
  OK, there's a clichéd racial stereotype involved, but I did manage to convince the person who requested the piece that we could steer away from any wimpy, cuckold husband/boyfriend – hence Barbara is single. 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Breeding Barbara Sadler ****** bygeronimo_appleby© Barbara sat in an armchair and squeezed one tender breast before she opened her legs and fingered her tight clitoris as. Groaning with pleasure she watched the lean muscles bunch in Samson's thighs as he walked towards his wife. "Kiss her," Barbara gasped as Geni, her fingers closing around Samson's cock, opened her mouth to take her husband's tongue for a long, deep kiss. "That's so good, watching you two kissing." 
+ 
+
+===
+
+Barbara sat in an armchair and squeezed one tender breast before she opened her legs and fingered her tight clitoris as. Groaning with pleasure she watched the lean muscles bunch in Samson's thighs as he walked towards his wife. "Kiss her," Barbara gasped as Geni, her fingers closing around Samson's cock, opened her mouth to take her husband's tongue for a long, deep kiss. "That's so good, watching you two kissing." 
 
  "Your turn," Geni said after breaking away from Samson's tight embrace. She released her grip on his girth. "Kiss my husband and touch his cock. Then I'm going to lick your cunt until you come for me." 
 

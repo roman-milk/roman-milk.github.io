@@ -1,8 +1,14 @@
+Handpicked
+==========
 #1 
 
  
 
- ****** Handpicked ****** bygeronimo_appleby© The air cooled noticeably when I reached the edge of the wood and passed from the glorious warmth of the summer's day into its cool embrace. I walked on for a hundred yards or so until a glint of sunlight off metal caught my eye. I noticed a car parked a short way down a little track, a tributary to the dirt road I was currently walking along, and there seemed to be a group of people gathered around the car, a small cluster, all men, crowding together around the front doors of what I now recognised as a cabriolet with the hood down. I approached and found myself in the land of improbability, for there, sat in the passenger seat of the car, was an exquisite blonde, who appeared to be dressed most inappropriately for a walk in the woods. 
+ 
+
+===
+
+The air cooled noticeably when I reached the edge of the wood and passed from the glorious warmth of the summer's day into its cool embrace. I walked on for a hundred yards or so until a glint of sunlight off metal caught my eye. I noticed a car parked a short way down a little track, a tributary to the dirt road I was currently walking along, and there seemed to be a group of people gathered around the car, a small cluster, all men, crowding together around the front doors of what I now recognised as a cabriolet with the hood down. I approached and found myself in the land of improbability, for there, sat in the passenger seat of the car, was an exquisite blonde, who appeared to be dressed most inappropriately for a walk in the woods. 
 
  The outside world ceased to exist for me. The distant hum of the motorway traffic and the clatter of a combine harvester from an unseen field faded into insignificance. The arterial traffic undoubtedly continued to flow, and the unknown farmer worked on, but my universe was suddenly and intensely concentrated. 
 

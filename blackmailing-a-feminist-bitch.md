@@ -1,8 +1,14 @@
+Blackmailing a Feminist Bitch
+=============================
 #1 
 
  
 
- ****** Blackmailing a Feminist Bitch ****** bysilkstockingslover© Summary: An 18-year old daughter manipulated; a bitch mom dominated. 
+ 
+
+===
+
+Summary: An 18-year old daughter manipulated; a bitch mom dominated. 
 
  Notes: The concept of Syndom was first used in the Bride Submission series. 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** Blackmailing a Feminist Bitch ****** bysilkstockingslover© "Well, I think you can get Mommy's cunt ready for your father," Jasmine ordered, sitting beside her husband, spreading her legs before leaning in and kissing him. 
+ 
+
+===
+
+"Well, I think you can get Mommy's cunt ready for your father," Jasmine ordered, sitting beside her husband, spreading her legs before leaning in and kissing him. 
 
  Mercedes, who was also her mother's submissive based on Syndom slut hierarchy (Syndom slut hierarchy was clear - the hierarchy was not based on age, but on when the woman becomes a Syndom slut; obviously all daughters became submissives to their veteran mothers, but older women were often submissive to younger ones if their father delayed the initiation into Syndom later than the usual eighteenth birthday), dropped to her knees between the nylon-clad legs of her mother. "Mommy, you got a Brazilian today," she announced, as she stared at her Mom's completely smooth cunt. 
 
@@ -564,7 +574,11 @@
 
  
 
- ****** Blackmailing a Feminist Bitch ****** bysilkstockingslover© When the song ended, Cherry asked, "Are you ready to be a part of history?" 
+ 
+
+===
+
+When the song ended, Cherry asked, "Are you ready to be a part of history?" 
 
  "Yes!" the feverous crowd roared. 
 
@@ -926,7 +940,11 @@
 
  
 
- ****** Blackmailing a Feminist Bitch ****** bysilkstockingslover© "Holy shiiiiiit," Mary screamed, feeling her ass widened unnaturally. 
+ 
+
+===
+
+"Holy shiiiiiit," Mary screamed, feeling her ass widened unnaturally. 
 
  For a few minutes Mary whimpered and whined as the sodomy burned her entire body. 
 
@@ -1300,7 +1318,11 @@
 
  
 
- ****** Blackmailing a Feminist Bitch ****** bysilkstockingslover© Eva couldn't believe how good the ass fucking began to feel after a few minutes. She hated herself for enjoying it, yet her body was in control. She began moving her ass to meet his strokes. 
+ 
+
+===
+
+Eva couldn't believe how good the ass fucking began to feel after a few minutes. She hated herself for enjoying it, yet her body was in control. She began moving her ass to meet his strokes. 
 
  "Liking the ass fucking," Carl assessed. 
 

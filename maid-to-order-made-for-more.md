@@ -1,8 +1,14 @@
+Maid to Order, Made for More
+============================
 #1 
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely cheating, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  (Irene) 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© I never used to be this vain. I never used to be such a slut, but things changed. I changed. My life wasn't what I'd thought it would be. 
+ 
+
+===
+
+I never used to be this vain. I never used to be such a slut, but things changed. I changed. My life wasn't what I'd thought it would be. 
 
  My parents always said I was destined for greatness. I don't know if it was a reaction because of how my siblings turned out, or if they genuinely believed it. But that always stuck with me. 
 
@@ -330,7 +340,11 @@
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© I would go out during the day, leaving her on her own, and I was relieved that nothing catastrophic happened. If she had done a better job, I would have been more lenient with her. I would have let her go into the pool, like she had asked. I would have let her borrow my car to go into town. But she was still struggling, and I would find myself having to go in after she left and fix things up. It reached the point where I wondered why I had a maid if I was still doing some cleaning. 
+ 
+
+===
+
+I would go out during the day, leaving her on her own, and I was relieved that nothing catastrophic happened. If she had done a better job, I would have been more lenient with her. I would have let her go into the pool, like she had asked. I would have let her borrow my car to go into town. But she was still struggling, and I would find myself having to go in after she left and fix things up. It reached the point where I wondered why I had a maid if I was still doing some cleaning. 
 
  I was patient with her, more patient than I would be normally, but it was starting to reach the point where I thought it might be best to go a different direction and find a new maid. I didn't tell Troy about this, because I knew he would talk me out of it. He was a softy, and I couldn't imagine him cutting someone off so callously. I could though. I could fire the sweet Mexican flower. I could be that bitch. 
 
@@ -514,7 +528,11 @@
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© I had to admit, Gabby had started to grow on me. She had improved immensely as a worker, so I didn't have to stand over her shoulder as much. Even her girly, naïve charm had started to grow on me. And her infuriating perfect body didn't bother me as much as it used to. I began to trust her with all the chores and I even let her take my car out for errands. 
+ 
+
+===
+
+I had to admit, Gabby had started to grow on me. She had improved immensely as a worker, so I didn't have to stand over her shoulder as much. Even her girly, naïve charm had started to grow on me. And her infuriating perfect body didn't bother me as much as it used to. I began to trust her with all the chores and I even let her take my car out for errands. 
 
  The only thing that occasionally set off alarm bells was her wardrobe. Occasionally, she would wear something that flattered her a little too well. It was never over the top or slutty, but every so often, she would wear a shirt that was a little too tight. A little too low cut. She would wear jeans that hung a little too low. She was admittedly a gorgeous girl, and typically, a woman wouldn't want a girl that beautiful around their house, and around their man. But, it was hard to view her as a threat. She was so shy and introverted and naïve that she didn't come across as a sexual being. She was just a quiet, shy girl, but with giant breasts, a gorgeous face, and a perfect ass. I agreed with Troy's assessment of her: she was like a little sister. So I was never worried about leaving her alone with Troy. She was not a threat to me. 
 
@@ -734,7 +752,11 @@
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© "By my side?" I asked, my head full of comments. She did fuck Dan. She deliberately got that information. She actually was a secret slut. 
+ 
+
+===
+
+"By my side?" I asked, my head full of comments. She did fuck Dan. She deliberately got that information. She actually was a secret slut. 
 
  "I did so much for you. Don't you think I deserve a reward?" she said, getting uncomfortably close. 
 
@@ -892,7 +914,11 @@
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© I looked forward, seeing her cute, tiny pussy bared to me again. Just above it, her clean, tight asshole, in between the perfect cheeks of her perfect round ass, her smooth legs standing street, her thong stretched between her thighs, her ruffled skirt framing this vision, the sexiest sight I'd ever seen. She looked back at me, lust and anticipation in her eyes. I fisted my dick, stroking it in anticipation. I brought the head to the outside of her cunt and slapped it against the outside. Grabbing her hips and sneering at her, I began to push. 
+ 
+
+===
+
+I looked forward, seeing her cute, tiny pussy bared to me again. Just above it, her clean, tight asshole, in between the perfect cheeks of her perfect round ass, her smooth legs standing street, her thong stretched between her thighs, her ruffled skirt framing this vision, the sexiest sight I'd ever seen. She looked back at me, lust and anticipation in her eyes. I fisted my dick, stroking it in anticipation. I brought the head to the outside of her cunt and slapped it against the outside. Grabbing her hips and sneering at her, I began to push. 
 
  "Oh, fuck, you're so big!" Gabriella moaned out, in half-pain half-pleasure. I didn't care. I was a beast at this point. This slut was here for my pleasure. I began to push deeper, not slowing down. My head started to roll. 
 
@@ -1020,7 +1046,11 @@
 
  
 
- ****** Maid to Order, Made for More ****** byTheTalkMan© I heard a noise, so I went to investigate. Gabby's room was empty, which confused me, but not enough to stop me. The source of the noise was coming from my bedroom. Troy must still be awake. I walked towards my room, my heels clicking on the floor as I reached my door. 
+ 
+
+===
+
+I heard a noise, so I went to investigate. Gabby's room was empty, which confused me, but not enough to stop me. The source of the noise was coming from my bedroom. Troy must still be awake. I walked towards my room, my heels clicking on the floor as I reached my door. 
 
  The scent was the first thing I noticed. The room reeked of sex. As my eyes were able to comprehend the image I was seeing on the bed, I nearly collapsed. 
 

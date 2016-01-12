@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Bettina
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Bettina ****** byJust_Plain_Bob© Did you ever do something on the spur of the moment and have it change your whole life? I did. I have no idea why I did it or what even put the thought into my head. Just one or two seconds is all it took to change my life forever. 
+ 
+
+===
+
+Did you ever do something on the spur of the moment and have it change your whole life? I did. I have no idea why I did it or what even put the thought into my head. Just one or two seconds is all it took to change my life forever. 
 
  My wife is what some might call pleasingly plump. At five feet, one hundred and twenty-five pounds (a good bit of it stuffed into her 34C bra) she is a voluptuous bombshell. Add long black hair that hangs down to her ass and legs that just cry out "fuck me" when she wears heels and you have a walking wet dream. She's always hot, ready and willing to fuck and it is usually all I can do to keep up with her. 
 

@@ -1,8 +1,14 @@
+Little Sexy
+===========
 #1 
 
  
 
- ****** Little Sexy ****** byJust_Plain_Bob© I wasn't at all that happy about it, but it was one of those things you get conned into doing even thought you don't want to. It was one of those things you are supposed to do simply because you are 'family.' My niece Shelly was getting married and my entire family were after me to attend. It didn't seem to matter to them that I hadn't seen Shelly in over ten years and I wouldn't know her if she walked up to me on the street. They wanted me there because the rest of the family would be there and they all wanted to see me. The rest of the family would all be there because they all lived within thirty miles of the church while I was fifteen hundred miles away, but the bottom line was that I wasn't at all sure that I wanted to see them. 
+ 
+
+===
+
+I wasn't at all that happy about it, but it was one of those things you get conned into doing even thought you don't want to. It was one of those things you are supposed to do simply because you are 'family.' My niece Shelly was getting married and my entire family were after me to attend. It didn't seem to matter to them that I hadn't seen Shelly in over ten years and I wouldn't know her if she walked up to me on the street. They wanted me there because the rest of the family would be there and they all wanted to see me. The rest of the family would all be there because they all lived within thirty miles of the church while I was fifteen hundred miles away, but the bottom line was that I wasn't at all sure that I wanted to see them. 
 
  ++++++++++++++++++++++++++++++++++++++++++++ 
 

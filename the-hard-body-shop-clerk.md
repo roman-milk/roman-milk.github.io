@@ -1,8 +1,14 @@
+The Hard Body Shop Clerk
+========================
 #1 
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© THURSDAY MORNING 
+ 
+
+===
+
+THURSDAY MORNING 
 
  Thursday. That meant it was time for Cori Banks' most revealing outfit of the week. And that was saying something, considering what she had worn and would wear the rest of the week. Monday it was a backless red mini-dress that barely covered her thong-divided ass and revealed ample cleavage. Tuesday was a little blue tube top and some matching blue hot pants. Wednesday had been a mini-skirt with a thong underneath and a tiny crop-top sweater (with no bra, of course). She already knew tomorrow would Daisy Duke day. For Saturday, she would be instructed to wear a wildcard outfit, which could be anything the staff chose for her. 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Really!?" Cori feigned surprise. "That'd be great. But I hate to impose." 
+ 
+
+===
+
+"Really!?" Cori feigned surprise. "That'd be great. But I hate to impose." 
 
  "No problem at all," he assured her. "Why don't you lay down on the pool table where we can stretch you out?" 
 
@@ -300,7 +310,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Whew, I needed that one!" Ben said, stuffing his cock back in his pants. "Thanks, babe. Wow, you really do look hot in that suit. John's in for a good time tonight, especially since he picked that one out." 
+ 
+
+===
+
+"Whew, I needed that one!" Ben said, stuffing his cock back in his pants. "Thanks, babe. Wow, you really do look hot in that suit. John's in for a good time tonight, especially since he picked that one out." 
 
  "I hope he likes it," Cori said, putting her suit back in place. "He was so excited when he picked it out." 
 
@@ -442,7 +456,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© At about three-thirty, John decided Cori needed a second dose of oil and lubed her up again. It took about half as much oil this time as the first, but he made sure she was well covered and sufficiently slick and glistening from head to toe and all points in between. 
+ 
+
+===
+
+At about three-thirty, John decided Cori needed a second dose of oil and lubed her up again. It took about half as much oil this time as the first, but he made sure she was well covered and sufficiently slick and glistening from head to toe and all points in between. 
 
  At about a quarter before four, Chester and Gordon, the two retirees, showed up. As always, Cori went up to them and gave them kiss on the cheek. Normally, she gave them a hug too, but this time she was careful to keep her oily body from staining their clothes. 
 
@@ -578,7 +596,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Drake showed John and Cori into the office and Mr. Cornett greeted them warmly, shaking their hands and openly admiring Cori's body. "Sure I can't convince you to come work for me?" Mr. Cornett said, half-jokingly. He always joked with her about switching jobs, but it was clear he would hire her in a second. 
+ 
+
+===
+
+Drake showed John and Cori into the office and Mr. Cornett greeted them warmly, shaking their hands and openly admiring Cori's body. "Sure I can't convince you to come work for me?" Mr. Cornett said, half-jokingly. He always joked with her about switching jobs, but it was clear he would hire her in a second. 
 
  "No, thank you, Mr. Cornett," Cori smiled. "I love my job." 
 
@@ -722,7 +744,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© They sat and chatted for several minutes, talking about work, dinner and the show they had put on for the other patrons. Cori admitted that wearing his cum in public had really gotten her juices flowing and probably contributed to her rapid orgasm from his fingers in the living room. She also admitted that the oil was a fun addition to the mix and really helped during the anal sex. They weren't talking loudly, but loud enough that any of their neighbors would have been able to overhear their x-rated conversation with little effort. 
+ 
+
+===
+
+They sat and chatted for several minutes, talking about work, dinner and the show they had put on for the other patrons. Cori admitted that wearing his cum in public had really gotten her juices flowing and probably contributed to her rapid orgasm from his fingers in the living room. She also admitted that the oil was a fun addition to the mix and really helped during the anal sex. They weren't talking loudly, but loud enough that any of their neighbors would have been able to overhear their x-rated conversation with little effort. 
 
  It was a warm night, but there was a cool breeze which hardened Cori's nipples to full erection. Her long legs were crossed and she was leaning back, relaxing and sipping her beer. John, in his robe, was also relaxed, resting for his next go-round and waiting to see if anyone might happen to pop outside and see them. 
 
@@ -896,7 +922,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Oh, you poor thing," Cori puffed out her lower lip. "How can I ever make it up to you?" 
+ 
+
+===
+
+"Oh, you poor thing," Cori puffed out her lower lip. "How can I ever make it up to you?" 
 
  "You're doing a good job so far," John grunted, forcing his cock all the way into her. "Just ride it long, slow and hard. Don't rush it, baby." 
 
@@ -1018,7 +1048,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© When they saw Cori's outfit, they immediately had some artistic suggestions for how to improve it. Ben and Ty were all ears. 
+ 
+
+===
+
+When they saw Cori's outfit, they immediately had some artistic suggestions for how to improve it. Ben and Ty were all ears. 
 
  "Well, you guys did a great job cutting down the shirt and jeans to fit her body," Troy pointed out. The four men were standing around Cori,, who stood with feet apart, hands on hips, ready for inspection and instruction. "But while you had your scissors out, you could also have cut some slits and holes in them — you know, kind of like jeans with the holes in the knees and stuff." 
 
@@ -1180,7 +1214,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Fuck, that was so fucking hot!" Troy said, still holding his flaccid cock. 
+ 
+
+===
+
+"Fuck, that was so fucking hot!" Troy said, still holding his flaccid cock. 
 
  "I'll say," Steve agreed. "She swallowed every drop!" 
 
@@ -1330,7 +1368,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© She let out two quick, raspy, high-pitched gasps, then her body went completely limp. She was spent. Between the workout and the high-energy orgasm, she was completely wiped out. Ben put her legs back down and Gordon and Chester wiped the pussy cream off their hands and onto her sweat-soaked tank top, each giving her tits a last firm squeeze before slowly standing back up. 
+ 
+
+===
+
+She let out two quick, raspy, high-pitched gasps, then her body went completely limp. She was spent. Between the workout and the high-energy orgasm, she was completely wiped out. Ben put her legs back down and Gordon and Chester wiped the pussy cream off their hands and onto her sweat-soaked tank top, each giving her tits a last firm squeeze before slowly standing back up. 
 
  Cori lay on the mat, curled up, her eyes closed and a smile on her face. Ben thought she was about to fall asleep. He helped her to her feet and she thanked everyone for their help during her workout and her orgasm. 
 
@@ -1474,7 +1516,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Cori and Ben looked around for a few minutes while Beverly went into the back room. Ben selected a couple of crotchless thong panties, some stockings and a garter belt. Again, Cori already had these things, but she could always use more and this was good business, the kind that got them special treatment from people like Beverly. 
+ 
+
+===
+
+Cori and Ben looked around for a few minutes while Beverly went into the back room. Ben selected a couple of crotchless thong panties, some stockings and a garter belt. Again, Cori already had these things, but she could always use more and this was good business, the kind that got them special treatment from people like Beverly. 
 
  The first item Beverly brought out was a catsuit. Cori had a couple catsuits, but not many, and none quite like this. She went into the dressing room and Ben went with her — another perk of doing good business. She quickly stripped out of her clothes — with Ben's helping hands , of course — and pulled on the catsuit. It was tight, but not skin tight. It was made out of black leather that was shiny and molded to her curves. It extended from her neck, which it encircled like a turtleneck sweater, to her wrists and ankles. All that was left exposed were her feet, hands and head. 
 
@@ -1616,7 +1662,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Cori, her eyes closed, licked her lips and moaned. She was genuinely turned on now, the father-son combination doing a good job of manipulating her tits and pussy. And there really was something very exciting about being the first sexual encounter for Gerald. She wanted to make it special for him and that made her even more excited. Cori's juice were flowing thickly now, coating Gerald's pumping fingers. 
+ 
+
+===
+
+Cori, her eyes closed, licked her lips and moaned. She was genuinely turned on now, the father-son combination doing a good job of manipulating her tits and pussy. And there really was something very exciting about being the first sexual encounter for Gerald. She wanted to make it special for him and that made her even more excited. Cori's juice were flowing thickly now, coating Gerald's pumping fingers. 
 
  "Let's switch places," Russ said. "Go ahead and play with her tits." Gerald pulled his fingers out of Cori's snatch and Russ quickly replaced them with his own. "Nice and juicy," he said. "Just go ahead and lick that off your fingers. I bet her cream's real sweet." 
 
@@ -1736,7 +1786,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "All right," Gerald said. "Thank you so much, Cori." 
+ 
+
+===
+
+"All right," Gerald said. "Thank you so much, Cori." 
 
  "My pleasure," she said. "Thank you both for the shoes. Is there somewhere I can clean up a bit?" 
 
@@ -1878,7 +1932,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Probably. Can I call you Sunday morning?" 
+ 
+
+===
+
+"Probably. Can I call you Sunday morning?" 
 
  "Sure. See you then," Cori said with a wave. 
 
@@ -2008,7 +2066,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "All right," Ben said, "here's the deal. The game is in the fifth inning, which means it should last about another hour or so. You are going to suck my cock for the remainder of the game — slow and steady. Every time the pitcher throws a ball, you will deep throat me and stay all the way down until the next he throws a strike. When he throws a strike, you will suck the head of my cock. 
+ 
+
+===
+
+"All right," Ben said, "here's the deal. The game is in the fifth inning, which means it should last about another hour or so. You are going to suck my cock for the remainder of the game — slow and steady. Every time the pitcher throws a ball, you will deep throat me and stay all the way down until the next he throws a strike. When he throws a strike, you will suck the head of my cock. 
 
  "Because I want to last as long as possible, you will not bob up and down like you normally might. Just suck the head or hold the entire shaft in your mouth. During commercials, you can sit up and rest your jaws and get something to drink. I will sit her on the couch and you will lay across me with your head in my lap. Any questions so far?" 
 
@@ -2122,7 +2184,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Ben gave it to her good and hard and Cori, still somewhat dazed and groggy and very tired, did her best to arch her back and wiggle her ass in conjunction with his thrusts. There was really nothing in this for her this time — she was just his sex toy, his plaything, his cum receptacle. And she was happy to be all those things for him. She was also happy when he came, dumping another load in her ass. A few minutes later, she was ready to go back to sleep. 
+ 
+
+===
+
+Ben gave it to her good and hard and Cori, still somewhat dazed and groggy and very tired, did her best to arch her back and wiggle her ass in conjunction with his thrusts. There was really nothing in this for her this time — she was just his sex toy, his plaything, his cum receptacle. And she was happy to be all those things for him. She was also happy when he came, dumping another load in her ass. A few minutes later, she was ready to go back to sleep. 
 
  But after cleaning up, Ben returned with a soft scarf. 
 
@@ -2276,7 +2342,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Actually, she was looking forward to this. She always enjoyed her dates with Ty and fully expected another fun day. Sure, he'd fuck her a lot — he only got her one night a week, so she could hardly blame him for making the most of his time. Chad was the same way. Plus, Ty's huge cock generally serviced her quite well and was a pleasure to suck, ride or whatever. 
+ 
+
+===
+
+Actually, she was looking forward to this. She always enjoyed her dates with Ty and fully expected another fun day. Sure, he'd fuck her a lot — he only got her one night a week, so she could hardly blame him for making the most of his time. Chad was the same way. Plus, Ty's huge cock generally serviced her quite well and was a pleasure to suck, ride or whatever. 
 
  When she was ready, she finished packing a few essentials in her overnight bag and they were on their way. Ty drove a large SUV, which provided plenty of comfort for a 2-hour drive. They stopped on the way out of town at a fast-food drive-thru and picked up a couple of burgers. Even greasy fast food tasted good to Cori, who had worked up quite an appetite. 
 
@@ -2430,7 +2500,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Reed pulled out onto the highway, lights flashing, and Ty followed. They cruised along at better than 80 miles per hour, traffic clearing out of their way. They arrived at the stadium in no time. Ty gave Reed the thumbs up and, with a subtle wave, Reed took off in search, no doubt, of his next victim. Ty was certain Reed wouldn't be able to pass up the many young, nubile opportunities available to him on a college campus. 
+ 
+
+===
+
+Reed pulled out onto the highway, lights flashing, and Ty followed. They cruised along at better than 80 miles per hour, traffic clearing out of their way. They arrived at the stadium in no time. Ty gave Reed the thumbs up and, with a subtle wave, Reed took off in search, no doubt, of his next victim. Ty was certain Reed wouldn't be able to pass up the many young, nubile opportunities available to him on a college campus. 
 
  Ty and Cori put Reed out of their minds, found a parking space and set their thoughts on enjoying each other and a good college football game. 
 
@@ -2618,7 +2692,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© They took full advantage, nearly ripping her top completely off before Ty pulled her back and they sat back down. Cori pulled her jersey back into place while Ty once again stuffed his hand between her smooth, warm thighs. 
+ 
+
+===
+
+They took full advantage, nearly ripping her top completely off before Ty pulled her back and they sat back down. Cori pulled her jersey back into place while Ty once again stuffed his hand between her smooth, warm thighs. 
 
  A few minutes later, Georgia intercepted a pass and scored again. This time, the guys noticed a lot of the students were celebrating by holding one of their classmates up, then throwing them up in the air and then catching them. They were thrown up in the air once for every point scored — currently 14. They decided to do this with Cori. 
 
@@ -2756,7 +2834,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "That's great," Ty said. "Thanks, fellas. I've got a little tip for you both. I'm going to give it to Cori and then you can take it from her. All right, bend over, Cori." Cori did and Ty inserted a small, folded up plastic baggie into her pussy. He pushed it in as far as he could, then Cori went to the first guy and bent over. "Reach in and grab it," Ty said. "It's in pretty deep, so really dig up in there." 
+ 
+
+===
+
+"That's great," Ty said. "Thanks, fellas. I've got a little tip for you both. I'm going to give it to Cori and then you can take it from her. All right, bend over, Cori." Cori did and Ty inserted a small, folded up plastic baggie into her pussy. He pushed it in as far as he could, then Cori went to the first guy and bent over. "Reach in and grab it," Ty said. "It's in pretty deep, so really dig up in there." 
 
  The guy eased two fingers into her slowly — not because he was hesitant, but because he wanted to relish every second of this. Cori wasn't wet, but quickly became that way as her pussy warmed to its newest visitors. 
 
@@ -2898,7 +2980,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Chuck, who had enjoyed the pleasure of feeling Cori up and jerking off in her mouth before, again found himself aroused by his proximity to this gorgeous babe. He loved running his hands all over her, free to pinch and squeeze wherever he liked. Neither Cori nor Ty were about to voice objection. 
+ 
+
+===
+
+Chuck, who had enjoyed the pleasure of feeling Cori up and jerking off in her mouth before, again found himself aroused by his proximity to this gorgeous babe. He loved running his hands all over her, free to pinch and squeeze wherever he liked. Neither Cori nor Ty were about to voice objection. 
 
  Once Cori was dressed, Ty put her over his shoulder in a fireman's carry, her ass sticking out for all the world to see. Chuck took the liberty of adjusting the thong's position between her pussy lips, then held the door open as they left the room. Late at night, the hallway was empty on this floor and so was the elevator. However, it stopped a couple floors later and four middle-aged, well-dressed men got in. Ty pegged them for businessmen in town for a convention and heading out for a late night drink or trip to the strip club. They were sure happy to see Cori. 
 
@@ -3024,7 +3110,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Everyone left to head to the park, excited about the game, the contest and, of course, about watching Cori. Cori rode with Chad, John, Ty and Ben in the company van. John drove with Ben, Ty and Chad all sitting next to each other in the back. Cori was in full "pre-game motivation" mode for the 15-minute drive to the park. She was on her knees in front of the three guys, sucking their cocks. So long as none of them came, this would not count as one of their "fucks" of the week. This was a just a little pre-game stimulation, intended not to bring about orgasm, just some fun and excitement — a little oral encouragement from their biggest — and hottest — fan. 
+ 
+
+===
+
+Everyone left to head to the park, excited about the game, the contest and, of course, about watching Cori. Cori rode with Chad, John, Ty and Ben in the company van. John drove with Ben, Ty and Chad all sitting next to each other in the back. Cori was in full "pre-game motivation" mode for the 15-minute drive to the park. She was on her knees in front of the three guys, sucking their cocks. So long as none of them came, this would not count as one of their "fucks" of the week. This was a just a little pre-game stimulation, intended not to bring about orgasm, just some fun and excitement — a little oral encouragement from their biggest — and hottest — fan. 
 
  She went back and forth between the three impressive cocks, sucking each for a few moments before moving on to the next. She was careful to make sure all three received the same amount of attention and she licked, sucked and deep- throated them all. 
 
@@ -3156,7 +3246,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Well, you know where to find me," Cori smiled. She turned, wiggling her ass for him as she walked around behind the counter. Moments later, John came out of the back and Cori repeated the show for him. John was delighted by the suit he had ordered and anxious for his Thursday night date with Cori. 
+ 
+
+===
+
+"Well, you know where to find me," Cori smiled. She turned, wiggling her ass for him as she walked around behind the counter. Moments later, John came out of the back and Cori repeated the show for him. John was delighted by the suit he had ordered and anxious for his Thursday night date with Cori. 
 
  "You and me all night tonight," he smiled. "Did you get a good night's sleep?" 
 
@@ -3348,7 +3442,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© He spanked her ass and grunted loud enough that Chad and a couple of customers in the lobby could hear. Of course, they all knew Ty was fucking her, so they weren't shocked. But it was still funny and arousing to hear. There wasn't one of them who didn't want to change places with Ty that very second. 
+ 
+
+===
+
+He spanked her ass and grunted loud enough that Chad and a couple of customers in the lobby could hear. Of course, they all knew Ty was fucking her, so they weren't shocked. But it was still funny and arousing to hear. There wasn't one of them who didn't want to change places with Ty that very second. 
 
  Ty rutted into Cori's ass for about 15 fast-paced minutes before blasting her intestines with yet another shot of his semen. Cori put aside thoughts of where his cock had just been and licked him clean before ducking into the bathroom to freshen up before returning to work. She might as well not have bothered, since about half an hour later, Ben escorted back into her office for his second session of the day. 
 
@@ -3524,7 +3622,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Well, she's a hottie all right," John said, referring to Paris Hilton, "but I don't think she holds a candle to Cori. The only place she's even close is with those legs. But they're a little too skinny. She has no ass and no tits, and I think we'll all agree Cori is very well-proportioned in those areas. And as far as cock-sucking, well, I've never had the pleasure of a Paris Hilton blowjob, but given the choice between one blowjob from Cori and 10 from Paris Hilton, I'd take the one every time." 
+ 
+
+===
+
+"Well, she's a hottie all right," John said, referring to Paris Hilton, "but I don't think she holds a candle to Cori. The only place she's even close is with those legs. But they're a little too skinny. She has no ass and no tits, and I think we'll all agree Cori is very well-proportioned in those areas. And as far as cock-sucking, well, I've never had the pleasure of a Paris Hilton blowjob, but given the choice between one blowjob from Cori and 10 from Paris Hilton, I'd take the one every time." 
 
  "What do you think of Paris Hilton, Cori?" 
 
@@ -3676,7 +3778,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "How about some of these in her cunt?" Tom said. He had a string of large metal balls meant for insertion into ass or pussy. They had smaller metal balls inside them that made them feel like they were vibrating. 
+ 
+
+===
+
+"How about some of these in her cunt?" Tom said. He had a string of large metal balls meant for insertion into ass or pussy. They had smaller metal balls inside them that made them feel like they were vibrating. 
 
  "Go right ahead," John said. 
 
@@ -3812,7 +3918,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© Everyone agreed that was a great idea and left, shaking John's hand and taking one last look at the prone, oil-covered Cori before filing out. 
+ 
+
+===
+
+Everyone agreed that was a great idea and left, shaking John's hand and taking one last look at the prone, oil-covered Cori before filing out. 
 
  John followed them to the front door, then took out a large sheet of plastic and spread it over his living room floor. Then he went back outside, scooped Cori up in his arms and carried her inside, laying her oily, still limp body on the sheet. 
 
@@ -3982,7 +4092,11 @@
 
  
 
- ****** The Hard Body Shop Clerk ****** bydlsloan© "Then let's get some sleep," John said. "You've got your first day with the mayor to be tomorrow. I have to call him in the morning and see where he wants you to be. Do you have something you can wear or do we need to stop by your house in the morning?" 
+ 
+
+===
+
+"Then let's get some sleep," John said. "You've got your first day with the mayor to be tomorrow. I have to call him in the morning and see where he wants you to be. Do you have something you can wear or do we need to stop by your house in the morning?" 
 
  "Yeah, I have my cutoffs and tube top — the usual Friday uniform," Cori said. "I hope that will be OK for Mr. Holman." 
 
@@ -3992,7 +4106,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 01 ****** bydlsloan© THURSDAY MORNING 
+ 
+
+===
+
+THURSDAY MORNING 
 
  Thursday. That meant it was time for Cori Banks' most revealing outfit of the week. And that was saying something, considering what she had worn and would wear the rest of the week. Monday it was a backless red mini-dress that barely covered her thong-divided ass and revealed ample cleavage. Tuesday was a little blue tube top and some matching blue hot pants. Wednesday had been a mini-skirt with a thong underneath and a tiny crop-top sweater (with no bra, of course). She already knew tomorrow would Daisy Duke day. For Saturday, she would be instructed to wear a wildcard outfit, which could be anything the staff chose for her. 
 
@@ -4126,7 +4244,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 01 ****** bydlsloan© "Really!?" Cori feigned surprise. "That'd be great. But I hate to impose." 
+ 
+
+===
+
+"Really!?" Cori feigned surprise. "That'd be great. But I hate to impose." 
 
  "No problem at all," he assured her. "Why don't you lay down on the pool table where we can stretch you out?" 
 
@@ -4292,7 +4414,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 01 ****** bydlsloan© "Whew, I needed that one!" Ben said, stuffing his cock back in his pants. "Thanks, babe. Wow, you really do look hot in that suit. John's in for a good time tonight, especially since he picked that one out." 
+ 
+
+===
+
+"Whew, I needed that one!" Ben said, stuffing his cock back in his pants. "Thanks, babe. Wow, you really do look hot in that suit. John's in for a good time tonight, especially since he picked that one out." 
 
  "I hope he likes it," Cori said, putting her suit back in place. "He was so excited when he picked it out." 
 
@@ -4388,7 +4514,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 02 ****** bydlsloan© THURSDAY AFTERNOON 
+ 
+
+===
+
+THURSDAY AFTERNOON 
 
  As usual, the morning went by fast and before Cori knew it, it was lunch time. The guys gave her their orders from the diner and she called them in. Fifteen minutes later, she left to go pick them up. 
 
@@ -4492,7 +4622,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 03 ****** bydlsloan© THURSDAY EVENING 
+ 
+
+===
+
+THURSDAY EVENING 
 
  Normally, John liked to stay in with Cori. She would cook for him and they would have sex once or twice before bed, then once more in the morning before work. John tended to be fairly routine in terms of his sexual activities, but Cori was slowly bringing him out of it. She had only recently persuaded him to fuck her ass, which he loved, of course. Perhaps it was a bit of that newfound wild-side combined with the sheer excitement created by Cori's outfit that led John to want to take her out and show her off. He wanted to make sure everyone saw her with him and knew that he was going to fuck her. 
 
@@ -4638,7 +4772,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 03 ****** bydlsloan© "Looks like you pretty well covered everything you needed to cover," Mr. Cornett acknowledged. "I'm glad it was a successful meeting. Would you care to have Drake return you to your table and the rest of your meal?" 
+ 
+
+===
+
+"Looks like you pretty well covered everything you needed to cover," Mr. Cornett acknowledged. "I'm glad it was a successful meeting. Would you care to have Drake return you to your table and the rest of your meal?" 
 
  "Yes, that would be great." 
 
@@ -4808,7 +4946,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 03 ****** bydlsloan© "Oh my God, she's going to cum," Tom said, stunned. "Oh damn, she's hot!" 
+ 
+
+===
+
+"Oh my God, she's going to cum," Tom said, stunned. "Oh damn, she's hot!" 
 
  "Yeah, she's cumming all right," John said. "Don't stop. Keep squeezing her tits and pinching her nipples. She loves that. When I say so, grab both her nipples and pull straight up on them. Don't twist, just pull. Got it?" 
 
@@ -4886,7 +5028,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 04 ****** bydlsloan© FRIDAY MORNING 
+ 
+
+===
+
+FRIDAY MORNING 
 
  Cori woke up first, looking at the clock and seeing that it was about 7 a.m. She had two hours before she had to be at work and John had three. She noticed that John, like most men, had a healthy morning hard-on and decided to give him a friendly wake-up. Carefully pulling back the covers, she gently opened the fly to his boxers, letting his hard-on stand free. Then, she slowly lowered her mouth onto his cock, gently licking and sucking the head, all the while looking at his face to see how long it would take to wake him up. 
 
@@ -5006,7 +5152,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 04 ****** bydlsloan© "Thanks, Cori, I really needed that," Chad said, his head finally clearing and his demeanor returning to normal. 
+ 
+
+===
+
+"Thanks, Cori, I really needed that," Chad said, his head finally clearing and his demeanor returning to normal. 
 
  "I can tell," Cori said, laughing lightly. "I've never seen you quite so ... energetic." 
 
@@ -5174,7 +5324,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 04 ****** bydlsloan© "Of course," Troy said. He was trembling with excitement now. He was about to get a blowjob from the hottest babe in the state. And she wanted to swallow his cum. 
+ 
+
+===
+
+"Of course," Troy said. He was trembling with excitement now. He was about to get a blowjob from the hottest babe in the state. And she wanted to swallow his cum. 
 
  Cori hopped off the table and squatted in front of him like a catcher. She put her hands on his thighs and he stepped forward, putting his cock to her lips. Never before had his cock felt so hard, so ready to explode. 
 
@@ -5218,7 +5372,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 05 ****** bydlsloan© FRIDAY AFTERNOON 
+ 
+
+===
+
+FRIDAY AFTERNOON 
 
  After lunch, Cori set about doing some of the paperwork that seemed to pile up so quickly while she was involved in her many sexual escapades. Both she and Ben fully understood that her sexual duties were top priority, so there was seldom any stress over the paperwork. Still, Cori considered herself a very responsible professional and took pride in keeping up with the bills, inventory and payroll as best she could. 
 
@@ -5360,7 +5518,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 05 ****** bydlsloan© She had worn this skirt many times before, sometimes with a thong, sometimes without. It was very short, of course, and was pleated, hanging loosely off her hips, ending just at the bottom curve of her ass cheeks. Because it was loose instead of the tight style she wore so often, it flipped up when she walked and, being so short, revealed more than just a hint of her ass with every step. And if she bent over, ass and pussy were there for anyone fortunate enough to be standing behind her. 
+ 
+
+===
+
+She had worn this skirt many times before, sometimes with a thong, sometimes without. It was very short, of course, and was pleated, hanging loosely off her hips, ending just at the bottom curve of her ass cheeks. Because it was loose instead of the tight style she wore so often, it flipped up when she walked and, being so short, revealed more than just a hint of her ass with every step. And if she bent over, ass and pussy were there for anyone fortunate enough to be standing behind her. 
 
  The bikini top was made mostly out black fishnet. It tied around her back and neck with tiny black white spaghetti straps that contrasted nicely with her dark skin. Her nipples were covered by two small circles of black cloth, each about an inch in diameter. Everything else was the black fishnet, which naturally covered very little of her breasts. 
 
@@ -5374,7 +5536,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 06 ****** bydlsloan© FRIDAY EVENING (PART 1 — THE MALL) 
+ 
+
+===
+
+FRIDAY EVENING (PART 1 — THE MALL) 
 
  "Dinner or shopping first?" Ben asked her. This was the first time he had told her what they would be doing tonight. 
 
@@ -5512,7 +5678,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 06 ****** bydlsloan© The top of the suit simply wrapped around her body, just above her breasts and below her armpits. There were no sleeves and her shoulders and neck were left bare. It would take less than a second to yank the top down and let her tits pop out, which Ben did a couple times, just to make sure it would work all right. 
+ 
+
+===
+
+The top of the suit simply wrapped around her body, just above her breasts and below her armpits. There were no sleeves and her shoulders and neck were left bare. It would take less than a second to yank the top down and let her tits pop out, which Ben did a couple times, just to make sure it would work all right. 
 
  In the back, the material didn't come together all the way. Instead, it had to be laced up, sort of like a corset. Since the laces ran in criss-cross fashion all the way down to her ass-crack, the easiest access to her pussy would be obtained by simply untying the laces and pulling the suit down past her waist. It wasn't nearly as simple as a skirt with no panties or a catsuit with a button, but it still wouldn't take long to get to her magical pot of gold. 
 
@@ -5656,7 +5826,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 06 ****** bydlsloan© Russ took his rigid throbber and started smacking Cori's cheeks and lips and nose with it, not hard enough to leave a mark or really hurt, but plenty hard enough to make a loud smacking noise and to sting a bit with each strike. 
+ 
+
+===
+
+Russ took his rigid throbber and started smacking Cori's cheeks and lips and nose with it, not hard enough to leave a mark or really hurt, but plenty hard enough to make a loud smacking noise and to sting a bit with each strike. 
 
  "You can also spank her tongue," Russ continued, demonstrating this procedure as Cori obliging stuck out her tongue. 
 
@@ -5778,7 +5952,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 07 ****** bydlsloan© FRIDAY EVENING (PART 2 — THE BAR & HOME) 
+ 
+
+===
+
+FRIDAY EVENING (PART 2 — THE BAR & HOME) 
 
  Without a doubt, Ben and Cori had the most complex relationship of any of the group. To Chad, Cori was a fuck toy and, though they got along all right, she wouldn't consider themselves close friends —he had a girlfriend, for crying out loud. John was like a father figure Cori so desperately wanted to please and make proud. Ty was like a best friend who was fun to hang out with — she and Ty had almost as much not having sex as they did having it. Sure, he enjoyed his time fucking her and did it as often as he could, but he was also nice and fun- loving. 
 
@@ -5916,7 +6094,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 07 ****** bydlsloan© "Basement," Ben said as soon as they got in the door. Cori led the way down the stairs into the finished basement that Ben had turned into a rec room, similar to the customer lounge at the shop. He had a sofa, a love seat, a recliner, a wide-screen TV, a stereo and a pool table. 
+ 
+
+===
+
+"Basement," Ben said as soon as they got in the door. Cori led the way down the stairs into the finished basement that Ben had turned into a rec room, similar to the customer lounge at the shop. He had a sofa, a love seat, a recliner, a wide-screen TV, a stereo and a pool table. 
 
  The walls were adorned with various framed posters of women. Three were of Cori. In one, she was wearing a tight white tank top, denim shorts, high heels and was drenched from head to toe. She was posed on a chair, her legs spread wide and her back arched, the see-through shirt doing nothing to hide her erect nipples. In another, she was wearing heels and a thong bikini and was bent over at the waist, grabbing her ankles. The picture was taken from behind, of course. In the third poster, she was naked, on her hands and knees, looking for all the world like she was ready to take it doggy style or up the ass. The picture was taken from the side and she was looking at the camera, licking her lips suggestively. 
 
@@ -6050,7 +6232,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 07 ****** bydlsloan© "All right, it's 10:05 p.m. and the game is in the bottom of the fifth inning, one out," Ben said. "Let's see if we can make it to the end of the game. All right, here's the pitch — strike one. Play ball!" 
+ 
+
+===
+
+"All right, it's 10:05 p.m. and the game is in the bottom of the fifth inning, one out," Ben said. "Let's see if we can make it to the end of the game. All right, here's the pitch — strike one. Play ball!" 
 
  Cori immediately went to work, taking the head of his cock into her mouth. He was still only semi-erect, but she felt his cock harden as her lips and tongue began their well-choreographed dance on his mushroom head. 
 
@@ -6162,7 +6348,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 07 ****** bydlsloan© In his usual style, he was narrating this to no one in particular, the words serving only to add to his excitement and fantasy and bring him to an even stronger climax. When he came, it felt great, but his load size had diminished drastically from his first few fucks of the evening. Still, he gave Cori a respectable amount to swallow as she enjoyed her own midnight snack. After she cleaned his cock, he left her laying there, still tied up, cum drying on her lips and chin, and let her go back to sleep. 
+ 
+
+===
+
+In his usual style, he was narrating this to no one in particular, the words serving only to add to his excitement and fantasy and bring him to an even stronger climax. When he came, it felt great, but his load size had diminished drastically from his first few fucks of the evening. Still, he gave Cori a respectable amount to swallow as she enjoyed her own midnight snack. After she cleaned his cock, he left her laying there, still tied up, cum drying on her lips and chin, and let her go back to sleep. 
 
  Ben went back downstairs, but returned at about 5 a.m. This time, he woke Cori up by pulling her legs up and binding her ankles — spread out to both sides — to the headboard as well. Cori woke up immediately, of course, and asked him what he had in mind this time. 
 
@@ -6196,7 +6386,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 08 ****** bydlsloan© SATURDAY MORNING/AFTERNOON 
+ 
+
+===
+
+SATURDAY MORNING/AFTERNOON 
 
  Ben drove Cori home and she immediately went to bed and fell sound asleep. Ben also went home and slept soundly the rest of the morning while Gina and Tammy headed to the shop to cover for Cori. 
 
@@ -6370,7 +6564,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 08 ****** bydlsloan© "That's what happened," Ty said matter-of-factly. 
+ 
+
+===
+
+"That's what happened," Ty said matter-of-factly. 
 
  "Oh, I believe she was eating," Reed said. "But I don't think you were. I think she was giving you a blowjob. That's right, isn't it? Actually, before you answer, understand that I saw your pants unzipped and your girlfriend had cum on her chin and shirt — I know cum when I see it, so don't try to claim it was something else. And, quite frankly, if you weren't fucking a hot bitch like her, I'd be even more apt to arrest you. I can't fault you for sticking your cock inside her any chance you get." 
 
@@ -6468,7 +6666,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 09 ****** bydlsloan© SATURDAY EVENING (AT THE GAME) 
+ 
+
+===
+
+SATURDAY EVENING (AT THE GAME) 
 
  "So, where are we supposed to meet your friends?" Cori asked as they got out of the SUV. Immediately, heads turned and whistles and cat-calls could be heard from the throng of people milling around the outside of the stadium. There were plenty of gorgeous, sexily dressed babes scampering around on this southern campus, but none quite as gorgeous or quite as scantily clad as Cori. Her nipples were once again poking through her mesh jersey, holding it in place over her tits. Her tight ass wiggled fantastically in the white shorts, her ass cheeks split by the red thong. 
 
@@ -6658,7 +6860,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 09 ****** bydlsloan© When they first picked her up, the crowd in their area buzzed, getting a good look at the nearly perfect, nearly naked girl. When the 11 black men started tossing her in the air, the view got even better. Cori's jersey was flopping up, her bare breasts jiggling with amazing firmness. Her long legs were spread wide enough to offer a nice view of her crotch. The guys had a firm grasp on her ankles and wrists and any free hands groped her ass or tits. 
+ 
+
+===
+
+When they first picked her up, the crowd in their area buzzed, getting a good look at the nearly perfect, nearly naked girl. When the 11 black men started tossing her in the air, the view got even better. Cori's jersey was flopping up, her bare breasts jiggling with amazing firmness. Her long legs were spread wide enough to offer a nice view of her crotch. The guys had a firm grasp on her ankles and wrists and any free hands groped her ass or tits. 
 
  The crowd around them counted out the reps and the guys in their row begged for them to pass her down. "Next time," Ty promised. 
 
@@ -6796,7 +7002,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 09 ****** bydlsloan© "You might be able to reach deeper with four fingers," Ty suggested. "And if you use your thumb to rub that little clitty, she might wiggle around a little and shake that money right out." 
+ 
+
+===
+
+"You might be able to reach deeper with four fingers," Ty suggested. "And if you use your thumb to rub that little clitty, she might wiggle around a little and shake that money right out." 
 
  The guy did everything Ty suggested, plugging her twat with four fingers and rubbing her clit with his thumb. This did inspire a positive response from Cori, who thrust her hips back against his hand, helping him drive his fingers deeper into her. When he was knuckles-deep, he felt the bag and pinched it between his fingertips. Slowly, he pulled it out, constantly rubbing her clit as he did so. 
 
@@ -6938,7 +7148,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 09 ****** bydlsloan© "Damn, look at that, Dutch," one man said, getting on the elevator and staring at Cori's ass. "Sir, it looks like your girlfriend has had a bit too much to drink." 
+ 
+
+===
+
+"Damn, look at that, Dutch," one man said, getting on the elevator and staring at Cori's ass. "Sir, it looks like your girlfriend has had a bit too much to drink." 
 
  "She's fine," Ty smiled. "Just a bit worn out, if you know what I mean." 
 
@@ -6980,7 +7194,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 10 ****** bydlsloan© SUNDAY 
+ 
+
+===
+
+SUNDAY 
 
  Since it was Sunday and his time was technically up, Ty let Cori sleep on the way back to Darien. Normally, however, Cori had no dress requirements on Sundays, but for the ride home, Ty had her wear only heels and her string bikini. Even if he wasn't going to fuck her any more, he could still enjoy the scenery on the drive home. Even as she slept, he would reach over and pull her top aside to reveal her tits or pull her thong aside to expose her pussy. Cori was so tired she slept through everything. 
 
@@ -7094,7 +7312,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 10 ****** bydlsloan© After the game, Cori gave each of the guys a congratulatory kiss. Then, it was time for the drawing. There were 22 Irregulars on hand, and they each put their name on a slip of paper. To add to the fun, Ben had Cori remove her thong and the pouch of this tiny piece of fabric was used to hold the paper in lieu of a hat. 
+ 
+
+===
+
+After the game, Cori gave each of the guys a congratulatory kiss. Then, it was time for the drawing. There were 22 Irregulars on hand, and they each put their name on a slip of paper. To add to the fun, Ben had Cori remove her thong and the pouch of this tiny piece of fabric was used to hold the paper in lieu of a hat. 
 
  Closing her eyes and baring her teeth, Cori buried her face in her own thong, digging out a single piece of paper with her talented lips. John read the name of the winner, "Sam!" 
 
@@ -7192,7 +7414,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 11 ****** bydlsloan© THURSDAY MORNING 
+ 
+
+===
+
+THURSDAY MORNING 
 
  It was thong Thusday and Cori, knowing how much the guys appreciated last week's thong swimsuit, wore another one just like it today. Well, not exactly like it. As promised, John had ordered different colors and even smaller sizes. This one could have been mailed in a standard business envelope. 
 
@@ -7374,7 +7600,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 11 ****** bydlsloan© "I already told Ben that I am happy to do whatever you all think is best for the shop. I trust you all and know that you have the shop's and my best interests at heart. My main concern is whether or not you all will be all right with some cut backs in our dating time." 
+ 
+
+===
+
+"I already told Ben that I am happy to do whatever you all think is best for the shop. I trust you all and know that you have the shop's and my best interests at heart. My main concern is whether or not you all will be all right with some cut backs in our dating time." 
 
  "Yeah, that part stinks," Ty said. 
 
@@ -7436,7 +7666,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 12 ****** bydlsloan© THURSDAY EVENING 
+ 
+
+===
+
+THURSDAY EVENING 
 
  But first, John had a big date night planned with Cori. "What are we doing tonight," Cori asked as they left the shop for the evening. John had instructed her to keep her spaghetti-strap suit on and had given her a fresh layer of oil before they left. 
 
@@ -7614,7 +7848,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 12 ****** bydlsloan© Cori started gyrating and bucking her hips frantically. She was moaning in her sexy, whimpering style and, sure enough, her nostrils began to flare. John knew all the signs very well and knew she was very close. Without skipping a beat, he poked a fourth finger into pussy and lightly pinched her clit between his thumb and forefinger. 
+ 
+
+===
+
+Cori started gyrating and bucking her hips frantically. She was moaning in her sexy, whimpering style and, sure enough, her nostrils began to flare. John knew all the signs very well and knew she was very close. Without skipping a beat, he poked a fourth finger into pussy and lightly pinched her clit between his thumb and forefinger. 
 
  "Squeeze her tits hard, boys," John instructed. Both guys used both hands to squeeze her firm, meaty tits and held on tight as Cori bucked and writhed and finally climaxed. Her body shook and spasmed until she was done, then she slumped in John's lap. 
 
@@ -7768,7 +8006,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 12 ****** bydlsloan© "Slim, if those nipples get any harder, they're going to cut someone or at least poke somebody's eye out," Paul said. "Slap those nipple clamps on her and let's see how she likes it." 
+ 
+
+===
+
+"Slim, if those nipples get any harder, they're going to cut someone or at least poke somebody's eye out," Paul said. "Slap those nipple clamps on her and let's see how she likes it." 
 
  Slim reached below Cori and gave her left tit a big squeeze, then a slap to make it jiggle. He gripped her nipple between his thumb and forefinger and pulled straight down, further exaggerating the length of her erect nipples. With it fully erect and extended, he opened the clamp, then released it, snapping the tight jaws shut on her sensitive tit-bud. Cori immediately began shaking and twisting in obvious discomfort, trying to shake the painful attachment free. 
 
@@ -7892,7 +8134,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 12 ****** bydlsloan© Cori smiled lustily at him and giggled. "That would probably look funny at the mall — me stuffing clothes up my pussy." 
+ 
+
+===
+
+Cori smiled lustily at him and giggled. "That would probably look funny at the mall — me stuffing clothes up my pussy." 
 
  "No funnier than you with cum shooting out of your nose like it did at the mall," John said, slowly beginning to fuck her ass while he rubbed her pussy. "Damn, I wish I would have seen that." 
 
@@ -8050,7 +8296,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 13-14 ****** bydlsloan© CH. 13: FRIDAY MORNING 
+ 
+
+===
+
+CH. 13: FRIDAY MORNING 
 
  On Friday morning the John called Holman while Cori got dressed in her Daisy Duke attire. Holman instructed that she meet him at the local TV station - - there was only one in town, as most of their programming came out of Atlanta. They were going to shoot a commercial there with Cori endorsing Holman for mayor. 
 
@@ -8238,7 +8488,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 13-14 ****** bydlsloan© "Enough show time, anyway," Chad grunted. "I need to blow my wad. Get on the floor." Cori slid between his legs and knelt on the dirty floor of the van. Chad pointed his cock at her face and stuffed it between her lips, inside her cheek, then down her throat. A moment later, he pulled back out and started stroking his cock with one hand and holding her head with the other. Cum started firing out in hard, thick blasts, painting her face in creamy streaks of white. It spilled down her forehead, into her eyelashes. More coated her upper lip, threatening to be inhaled into her flaring nostrils. Some seeped into her mouth and she welcomed it with her tongue, tasting and swallowing without hesitation. 
+ 
+
+===
+
+"Enough show time, anyway," Chad grunted. "I need to blow my wad. Get on the floor." Cori slid between his legs and knelt on the dirty floor of the van. Chad pointed his cock at her face and stuffed it between her lips, inside her cheek, then down her throat. A moment later, he pulled back out and started stroking his cock with one hand and holding her head with the other. Cum started firing out in hard, thick blasts, painting her face in creamy streaks of white. It spilled down her forehead, into her eyelashes. More coated her upper lip, threatening to be inhaled into her flaring nostrils. Some seeped into her mouth and she welcomed it with her tongue, tasting and swallowing without hesitation. 
 
  "That's what I'm talking about!" Jarvis yelled. "Drown her in that shit!" 
 
@@ -8412,7 +8666,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 13-14 ****** bydlsloan© Everything happened in an instant. Ty tackled Jarvis and slammed him against the wall. It was a mismatch and the fight was over before it started, ending with Jarvis knocked out cold. Ben was by Cori's side, frantically undoing her bonds and helping her up. Ty picked up her clothes and handed them to her. 
+ 
+
+===
+
+Everything happened in an instant. Ty tackled Jarvis and slammed him against the wall. It was a mismatch and the fight was over before it started, ending with Jarvis knocked out cold. Ben was by Cori's side, frantically undoing her bonds and helping her up. Ty picked up her clothes and handed them to her. 
 
  "Are you OK?" Ben asked. 
 
@@ -8430,7 +8688,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 15 ****** bydlsloan© CH. 15: SUNDAY NIGHT 
+ 
+
+===
+
+CH. 15: SUNDAY NIGHT 
 
  After Cori's violent abduction and rescue, Ben gave her the weekend off -- no work, no dates. He and Ty and John checked on her frequently, calling to make sure she was OK, sending food and flowers to her. Every action re-affirmed their affection for Cori and their desire to let her know that they weren't like Chad -- and certainly not like Jarvis. Ben even told Cori that the deal with Holman was off. They didn't trust him and his sister and weren't about to put Cori in danger again. Cori felt so fortunate to have not one, but three men who cared about her so much. 
 
@@ -8578,7 +8840,11 @@
 
  
 
- ****** The Hard Body Shop Clerk Ch. 15 ****** bydlsloan© He picked her up and pulled the dildo out of her ass, then sat her down, facing away from him, his cock simply filling the gaping void left by the dildo. "Oh yeah, right up the ass!" Holman grunted, pulling her onto his lap until he was balls deep in her sweat-slickened asshole. He let her sit there for a moment, relishing the feel of her tight rectum sleeved around his cock. She squirmed, trying to get comfortable, but he simply started pushing her up and down on his cock, his hands on her ass, lifting her firm, light body up and down with increasing speed. 
+ 
+
+===
+
+He picked her up and pulled the dildo out of her ass, then sat her down, facing away from him, his cock simply filling the gaping void left by the dildo. "Oh yeah, right up the ass!" Holman grunted, pulling her onto his lap until he was balls deep in her sweat-slickened asshole. He let her sit there for a moment, relishing the feel of her tight rectum sleeved around his cock. She squirmed, trying to get comfortable, but he simply started pushing her up and down on his cock, his hands on her ass, lifting her firm, light body up and down with increasing speed. 
 
  She grunted as his cock entered her tightest hole repeatedly, his thrusts becoming stronger, deeper, quicker. He stood up and bent her over. She put her hands against the wall to hold herself up and he used her hips to provide the leverage to pound her ass with all his might. He was hammering away at it now, giving it to her as hard and fast as he could. She was moaning and grunting and telling him to do it harder. 
 

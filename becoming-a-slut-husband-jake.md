@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Jake
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Jake ****** byJust_Plain_Bob© I was having lunch with my brother Tom. It was one of his rare trips downtown and since it had been close to noon he had called and asked me to join him at Mario's for lunch. I love my brother and I would do anything for him, but he can be such a pill at times and this was one of those times. 
+ 
+
+===
+
+I was having lunch with my brother Tom. It was one of his rare trips downtown and since it had been close to noon he had called and asked me to join him at Mario's for lunch. I love my brother and I would do anything for him, but he can be such a pill at times and this was one of those times. 
 
  After a suitable period spent on the pleasantries he launched into the real reason for his wanting to have lunch. His wife Kathy had been at the Hilton Tuesday for one of her Mary Kay things. 
 

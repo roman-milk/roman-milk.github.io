@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mary
+==========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mary ****** byJust_Plain_Bob© Mary and I had been married twenty years and like a lot of marriages of long duration ours had become somewhat complacent, at least as far as sex went. It had nothing to do with physical attraction; Mary was still a pleasure to look at, it was just that after twenty years sex had become boring - there was no excitement any more. Mary was great in bed when the mood hit her; it just didn't hit often enough. Even though she had a great body, with world class tits, she always hid herself in very conservative clothes and wore 'sensible' shoes. She did have a few pair of high heels that she called her "I'm in the mood to fuck" shoes, but she never wore them outside the bedroom. She had no interest or desire in ever trying anything new or exciting. She'd only had one man before we were married and as far as I knew I was the only other man she'd ever been with. 
+ 
+
+===
+
+Mary and I had been married twenty years and like a lot of marriages of long duration ours had become somewhat complacent, at least as far as sex went. It had nothing to do with physical attraction; Mary was still a pleasure to look at, it was just that after twenty years sex had become boring - there was no excitement any more. Mary was great in bed when the mood hit her; it just didn't hit often enough. Even though she had a great body, with world class tits, she always hid herself in very conservative clothes and wore 'sensible' shoes. She did have a few pair of high heels that she called her "I'm in the mood to fuck" shoes, but she never wore them outside the bedroom. She had no interest or desire in ever trying anything new or exciting. She'd only had one man before we were married and as far as I knew I was the only other man she'd ever been with. 
 
  Once on a trip to Detroit on business I bought a couple of magazines to read at night in my hotel room. One was Penthouse Letters and for some reason that I was never able to fathom I got really turned on by reading the letters from men who liked watching there wives with other men. I tried to imagine Mary with another man, but I couldn't. However the more I read the more I thought about what a kick it would be to see her with someone. I knew my sweet conservative Mary would never do something like that, but I had a good imagination and that was enough. 
 

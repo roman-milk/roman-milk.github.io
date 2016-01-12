@@ -1,8 +1,14 @@
+Bride Submission: A Shocking Secret
+===================================
 #1 
 
  
 
- ****** Bride Submission: A Shocking Secret ****** bysilkstockingslover© Summary: Feminist lawyer learns of family's secret sex society life. 
+ 
+
+===
+
+Summary: Feminist lawyer learns of family's secret sex society life. 
 
  Note 1: Thanks to MAB7991, Robert, and goamz86 for editing this story. 
 
@@ -362,7 +368,11 @@
 
  
 
- ****** Bride Submission: A Shocking Secret ****** bysilkstockingslover© "Bradley!" I gasped, shocked that he told his father intimate details of what happened in the bedroom. 
+ 
+
+===
+
+"Bradley!" I gasped, shocked that he told his father intimate details of what happened in the bedroom. 
 
  "What names do you call her in the bedroom?" My dad asked joining the conversation. 
 
@@ -734,7 +744,11 @@
 
  
 
- ****** Bride Submission: A Shocking Secret ****** bysilkstockingslover© "Shit, you have a nice rack," he complimented, as they bounced up and down in unison. 
+ 
+
+===
+
+"Shit, you have a nice rack," he complimented, as they bounced up and down in unison. 
 
  Old me would have been pissed at such a derogatory word being used for my breasts, but submissive me understood that I didn't have breasts but rather I had a rack or tits. So I responded, "I am happy you like my tits, my owner." 
 
@@ -1110,7 +1124,11 @@
 
  
 
- ****** Bride Submission: Boss's Bitch ****** bysilkstockingslover© Summary: Bride-to-be submits to black boss in his office. 
+ 
+
+===
+
+Summary: Bride-to-be submits to black boss in his office. 
 
  NOTE 1: This is the 2nd part of a multi-chaptered story, although I believe it can be read without reading the first part if you wish. With that in mind, here is a summary of the story so far: 
 
@@ -1478,7 +1496,11 @@
 
  
 
- ****** Bride Submission: Boss's Bitch ****** bysilkstockingslover© She slapped my ass hard making me yelp. "Put your panties back in your fucking mouth and don't you dare make a sound, you pretentious little fucking bitch." 
+ 
+
+===
+
+She slapped my ass hard making me yelp. "Put your panties back in your fucking mouth and don't you dare make a sound, you pretentious little fucking bitch." 
 
  Her tone fierce, I quickly obeyed, shoving my panties back in my mouth like an obedient child as she began pumping her arm in and out of my cunt. I whimpered and moaned into my panties as I was fisted and violated like a cheap slut. 
 

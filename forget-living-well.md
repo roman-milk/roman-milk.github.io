@@ -1,8 +1,14 @@
+Forget Living Well
+==================
 #1 
 
  
 
- ****** Forget Living Well ****** byJust_Plain_Bob© It has been said many, many times - God knows I'd heard it enough - that the best revenge is to live well. For some of us that just won't work. The way the divorce courts are loaded in the woman's favor a man is lucky if he can live at all when the dust settles, let alone live well. I've seen a lot of guys go into divorce court and come out raped and bleeding and sheared like a sheep. No, if I wanted revenge it would have to be something other than living well. Why was I wanting revenge? Well, that's the story. 
+ 
+
+===
+
+It has been said many, many times - God knows I'd heard it enough - that the best revenge is to live well. For some of us that just won't work. The way the divorce courts are loaded in the woman's favor a man is lucky if he can live at all when the dust settles, let alone live well. I've seen a lot of guys go into divorce court and come out raped and bleeding and sheared like a sheep. No, if I wanted revenge it would have to be something other than living well. Why was I wanting revenge? Well, that's the story. 
 
  ++++++++++++++++++++++++++++++++++++++++++ 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Forget Living Well ****** byJust_Plain_Bob© "What has gotten into you Tiger?" 
+ 
+
+===
+
+"What has gotten into you Tiger?" 
 
  "You wanted a baby; I'm just trying to see to it that you get one. The guy I'm giving you to tomorrow wants to do you doggie and he says I can leave the ball gag out because he wants to hear you scream out his name as he fucks you. His name is Ron, can you remember it?" 
 

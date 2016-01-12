@@ -1,8 +1,14 @@
+Dirty Geezer Meets A Fan
+========================
 #1 
 
  
 
- ****** Dirty Geezer Meets A Fan ****** bydirty_geezer© Another of my very strong, dirty, nasty sex stories, where a Master gets to use a willing sub slut. Please don't read if hard and strong stories aren't your thing. Please note, I do love women, and am a gentle guy. I have found that there are many women who have a need, a deep down sexual hunger, for pure dirty sex for pleasures sake, and as part of that, they have an urge to please their lover any way possible – whatever he wants. That giving of pleasure, turns the sub slut on more than anything, and the further they have to go, the more degrading the sex, the more power the Master takes, the further they slide into sexual bliss.... 
+ 
+
+===
+
+Another of my very strong, dirty, nasty sex stories, where a Master gets to use a willing sub slut. Please don't read if hard and strong stories aren't your thing. Please note, I do love women, and am a gentle guy. I have found that there are many women who have a need, a deep down sexual hunger, for pure dirty sex for pleasures sake, and as part of that, they have an urge to please their lover any way possible – whatever he wants. That giving of pleasure, turns the sub slut on more than anything, and the further they have to go, the more degrading the sex, the more power the Master takes, the further they slide into sexual bliss.... 
 
  The story is 1st person – so female sub sluts read and put yourself in 'her' position... 
 
@@ -74,7 +80,11 @@
 
  
 
- ****** Dirty Geezer Meets A Fan Ch. 02 ****** bydirty_geezer© After writing about my first experience meeting a fan of my writing 'dirty' writing style, I received some very positive feedback, from many women who love the master/slut style of story. One of those caught my eye immediately – short and sweet; "do you want to play online with a wanton married slut?". Hmmm, I thought to myself, of course I do! 
+ 
+
+===
+
+After writing about my first experience meeting a fan of my writing 'dirty' writing style, I received some very positive feedback, from many women who love the master/slut style of story. One of those caught my eye immediately – short and sweet; "do you want to play online with a wanton married slut?". Hmmm, I thought to myself, of course I do! 
 
  I wrote back immediately, asking for more.. 'Who are you... what in my stories did you like? What do you want to do?' I asked, wanting to know if this was a slut who really wanted to play. 
 
@@ -172,7 +182,11 @@
 
  
 
- ****** Dirty Geezer Meets A Fan Ch. 03 ****** bydirty_geezer© Part 3, where I continue to use the second fan who's dared meet me after reading my stories here... submissive sluts, please read and put yourself in the position of my willing and dirty slut, and you'll enjoy yourselves far more ;) This time I'll try and keep to one tense – 1st person, so that's me talking to YOU! (anal, rough dirty oral, male dom) 
+ 
+
+===
+
+Part 3, where I continue to use the second fan who's dared meet me after reading my stories here... submissive sluts, please read and put yourself in the position of my willing and dirty slut, and you'll enjoy yourselves far more ;) This time I'll try and keep to one tense – 1st person, so that's me talking to YOU! (anal, rough dirty oral, male dom) 
 
  I lay next to you, my new beautiful slut, enjoying the sight of your smooth pale skin covered with a sheen of sweat, beads of moisture running down between your breasts. Your chest still rising and falling as you breathe deeply, relaxing after the first orgasm of the night. 
 

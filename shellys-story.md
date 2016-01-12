@@ -1,8 +1,14 @@
+Shelly's Story
+==============
 #1 
 
  
 
- ****** Shelly's Story ****** byJust_Plain_Bob© I sat down at the computer for the first time in a couple of months and in reacquainting myself with what was on it I noticed "Watching The Wife" on the Favorites drop down menu. Being curious, and knowing that my husband Robert uses the same user name and password for everything, I had no trouble in pulling up the site. All I can say is 'fascinating!' Robert has always wanted to watch me with another man, but I had no idea that so many others had the same fantasy. I randomly read several of the stories and while scrolling through the list I happened upon a story entitled "Shelly's Trip." Since my name is Shelly I pulled the story up and imagine my surprise when the story turned out to be the one I told Robert following my last trip to Grand Island. 
+ 
+
+===
+
+I sat down at the computer for the first time in a couple of months and in reacquainting myself with what was on it I noticed "Watching The Wife" on the Favorites drop down menu. Being curious, and knowing that my husband Robert uses the same user name and password for everything, I had no trouble in pulling up the site. All I can say is 'fascinating!' Robert has always wanted to watch me with another man, but I had no idea that so many others had the same fantasy. I randomly read several of the stories and while scrolling through the list I happened upon a story entitled "Shelly's Trip." Since my name is Shelly I pulled the story up and imagine my surprise when the story turned out to be the one I told Robert following my last trip to Grand Island. 
 
  Robert has been after me for several years to fulfil his fantasy, but I've always said no. I was one of those silly females who believed that marriage was forever and that love and sex were the same. How could I possibly go to bed with someone I didn't love? Especially with my husband watching? I did try to satisfy Robert after a fashion. I would come home from business trips and tell him stories about my imaginary sexual adventures, but he always realized that they were made up and that I never intended to violate my wedding vows. Robert ended "Shelly's Trip" with the question, "You don't suppose?" 
 

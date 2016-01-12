@@ -1,8 +1,14 @@
+Vanessa's Dissonance Ch. 01
+===========================
 #1 
 
  
 
- ****** Vanessa's Dissonance Ch. 01 ****** byCathartico© This is my first ever written story and I'm not a native English speaker. So I hope you may forgive some wrong use of punctuation, etc. Nevertheless, I hope you enjoy reading it as much as I enjoyed writing it. 
+ 
+
+===
+
+This is my first ever written story and I'm not a native English speaker. So I hope you may forgive some wrong use of punctuation, etc. Nevertheless, I hope you enjoy reading it as much as I enjoyed writing it. 
 
  Epilogue 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 01 ****** byCathartico© Still, the payment they had offered was more than she would ever be able to earn with another job. She didn't want to meet Maria again wearing some cheap dress and perfume. Next time, she wanted to be the one stealing the spotlight again - just like in the old days. 
+ 
+
+===
+
+Still, the payment they had offered was more than she would ever be able to earn with another job. She didn't want to meet Maria again wearing some cheap dress and perfume. Next time, she wanted to be the one stealing the spotlight again - just like in the old days. 
 
  These were old guys not looking very good though. She would have never looked at them twice on the street. How could she fuck those ugly guys? It would make her feel so cheap and dirty. And she knew that she would never be able to look straight into Mark's eyes, would she? 
 
@@ -348,7 +358,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 01 ****** byCathartico© Vanessa's stomach was heaving and she had to gag so hard her entire upper body hurt. She prayed for this to be over soon. But the guy held her down for an extra long time. She wasn't able to breathe and she feared passing out. Black stars started dancing in front of her eyes and her legs began twitching unintentionally. When everything seemed to go black, he pulled her head off his dick. He laughed out loud as she slightly puked spittle over his cock and a long line of sticky drool fell humiliatingly from her lips. She breathed in heavily, happy to get new air. 
+ 
+
+===
+
+Vanessa's stomach was heaving and she had to gag so hard her entire upper body hurt. She prayed for this to be over soon. But the guy held her down for an extra long time. She wasn't able to breathe and she feared passing out. Black stars started dancing in front of her eyes and her legs began twitching unintentionally. When everything seemed to go black, he pulled her head off his dick. He laughed out loud as she slightly puked spittle over his cock and a long line of sticky drool fell humiliatingly from her lips. She breathed in heavily, happy to get new air. 
 
  Pulling on her hair, he made her look up at him and asked with a mischievous smile 
 
@@ -474,7 +488,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 02 ****** byCathartico© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Vanessa stood in the ladies' restroom of the sleazy strip club. Looking into the mirror, her mouth dropped open. She almost couldn't recognize herself. Her whole face was covered in cum as if she had dunked her head straight into a bucket filled with glue. It was completely glazed like a donut. She wasn't able to see with her left eye as it was shut with strings of sperm. The cum even hung in her hair and from her ears. 
 
@@ -668,7 +686,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 02 ****** byCathartico© "Please!... No!... My ass is so sore. I'll do anything for you, just not my ass. Please!" 
+ 
+
+===
+
+"Please!... No!... My ass is so sore. I'll do anything for you, just not my ass. Please!" 
 
  But he paid no attention to her hammering her abused bunghole at once. He took both her arms in his hands and pulled them back. This way, he bent her back to him like a bow being able to penetrate her even deeper. This resulted in more screams and pleas from her. 
 
@@ -710,7 +732,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 03 ****** byCathartico© Vanessa Laren lay in her bath tub caressing her smooth precious body. Looking down at herself, her eyes followed the silk curves of her heavy full breasts down over her tight nicely tanned belly to her long lean legs. She knew exactly why Stanton and his partners where so happy that she had signed the job papers. 
+ 
+
+===
+
+Vanessa Laren lay in her bath tub caressing her smooth precious body. Looking down at herself, her eyes followed the silk curves of her heavy full breasts down over her tight nicely tanned belly to her long lean legs. She knew exactly why Stanton and his partners where so happy that she had signed the job papers. 
 
  Jumping back in time, she recapitulated the scene that happened after her parking garage bang. Stanton, Miller and Erickson had packed her into the Mercedes taking her back to the law office. There, she had signed the papers and received her first cheque. It had been more money than she had ever got before in her whole life. 
 
@@ -908,7 +934,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 03 ****** byCathartico© The next second, she could hear a zipper. Finally, she would get what she was craving. 
+ 
+
+===
+
+The next second, she could hear a zipper. Finally, she would get what she was craving. 
 
  When Stanton reached her, he laid his hard thick cock onto her ass crack waiting for her reaction. Vanessa couldn't wait any longer. Only a few seconds later she begged him 
 
@@ -968,7 +998,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 04 ****** byCathartico© Over the next few weeks, Vanessa got used to getting fucked once a day by one of the partners. They began turning up the wildness a notch gathering in a bureau two or three at a time banging her as hard as they could. And Vanessa could feel herself losing more and more inhibitions. 
+ 
+
+===
+
+Over the next few weeks, Vanessa got used to getting fucked once a day by one of the partners. They began turning up the wildness a notch gathering in a bureau two or three at a time banging her as hard as they could. And Vanessa could feel herself losing more and more inhibitions. 
 
  During the entire working day, she felt elated, a tingly itch prickling between her loins. She started betting with herself which partner would fuck her that day. Although she didn't like to admit it, she needed cock every day now to still her craving. She also started wearing more and more provocative dresses her skirts becoming shorter and her cleavage deeper. 
 
@@ -1166,7 +1200,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 04 ****** byCathartico© When he was done, he was quickly replaced by another guy. With all the slobber in her eyes, Vanessa couldn't tell who it was but his tool was extremely large and thick. Then she heard the voice of the black man whispering into her ear. 
+ 
+
+===
+
+When he was done, he was quickly replaced by another guy. With all the slobber in her eyes, Vanessa couldn't tell who it was but his tool was extremely large and thick. Then she heard the voice of the black man whispering into her ear. 
 
  "You slut will love my cock! It's 13" long and 4" thick and it'll go all the way down your throat! If you want it or not!" 
 
@@ -1358,7 +1396,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 04 ****** byCathartico© The two men proceeded fucking her relentlessly. As they had already cum two times, they needed longer until they were ready to shoot their sperm deep inside her holes and Vanessa lost track again of how many times she had cum. It felt like one long never ending orgasm to her. But she still felt the fire burning in her loins, it hadn't been quenched completely yet. Surprising herself, she had to admit that she wanted more. 
+ 
+
+===
+
+The two men proceeded fucking her relentlessly. As they had already cum two times, they needed longer until they were ready to shoot their sperm deep inside her holes and Vanessa lost track again of how many times she had cum. It felt like one long never ending orgasm to her. But she still felt the fire burning in her loins, it hadn't been quenched completely yet. Surprising herself, she had to admit that she wanted more. 
 
  While the guys had a rest drinking another beer, she tried stimulating them bringing their cocks back to attention. She lay down onto the couch and started rubbing her clit while adding more and more fingers into her cunt. 
 
@@ -1410,7 +1452,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 05 ****** byCathartico© Standing in the entrance hall, Vanessa felt like a completely different person. When she had walked into the hotel, she had loved the gazes from the men roaming over her body. She had looked like the temptation in person. Now, she stood out like a scarce wild animal in this noble surrounding, 
+ 
+
+===
+
+Standing in the entrance hall, Vanessa felt like a completely different person. When she had walked into the hotel, she had loved the gazes from the men roaming over her body. She had looked like the temptation in person. Now, she stood out like a scarce wild animal in this noble surrounding, 
 
  Her red stockings and bright red hooker platform heels drew attention like moths to the flame. However, her black dress didn't take a back seat to them although this piece of clothing barely earned its name. The two straps that ran separately over each boob merged just below her belly button ending in some tiny hot pants. This way, her enormous cleavage and deeply tanned belly were completely exposed. 
 
@@ -1658,7 +1704,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 05 ****** byCathartico© Vanessa could feel a lump in her throat. She didn't want it all to end. She loved this life. But right now, she was a lady not a slut! 
+ 
+
+===
+
+Vanessa could feel a lump in her throat. She didn't want it all to end. She loved this life. But right now, she was a lady not a slut! 
 
  Still, she'd only have to get off this mean man. Any women had to do this from time to time to keep their men in line, didn't they? And afterwards, she could go back to chatting with her friends like nothing had ever happened. 
 
@@ -1894,7 +1944,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 05 ****** byCathartico© Since then, she had even sucked cocks coming directly out of her ass. So it wasn't that special anymore, was it? 
+ 
+
+===
+
+Since then, she had even sucked cocks coming directly out of her ass. So it wasn't that special anymore, was it? 
 
  Why did she hesitate then? Why didn't she move? 
 
@@ -1978,7 +2032,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 06 ****** byCathartico© It was just a normal week in the law-office Stanton, Erickson & Partners. Nothing out of the ordinary happened and every one minded his own business - - every one but a special secretary. 
+ 
+
+===
+
+It was just a normal week in the law-office Stanton, Erickson & Partners. Nothing out of the ordinary happened and every one minded his own business - - every one but a special secretary. 
 
  Vanessa's country club adventure didn't leave her alone. She was frightened beyond believe how people might react to her presence. Over the course of the days, she got more and more convinced that every member knew it had been her on the balcony. But she didn't know for sure, did she? 
 
@@ -2232,7 +2290,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 06 ****** byCathartico© But this was her job, wasn't it? In every job one had to overcome displeasing situations if one wanted to be good at it. And she was dead sure that she was the best office whore ever! 
+ 
+
+===
+
+But this was her job, wasn't it? In every job one had to overcome displeasing situations if one wanted to be good at it. And she was dead sure that she was the best office whore ever! 
 
  As a private person, she stood far over this bottom-feeder. But as the office whore it was her job to please any man. 
 
@@ -2474,7 +2536,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 06 ****** byCathartico© At once, the taste hit her. It was salty and bitter. 
+ 
+
+===
+
+At once, the taste hit her. It was salty and bitter. 
 
  "I can't believe such a beautiful girl could be such a dirty whore!" the waiter exclaimed. 
 
@@ -2580,7 +2646,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 07 ****** byCathartico© It had already been a long day for Vanessa. After getting used by the fat waiter, she felt emotionally drained. But she knew that her day was far from over. 
+ 
+
+===
+
+It had already been a long day for Vanessa. After getting used by the fat waiter, she felt emotionally drained. But she knew that her day was far from over. 
 
  Right now, she was sitting in a post car next to this sleazebag of a messenger called Joe. She didn't know what he planned doing with her next. But honestly, she thought it was better this way. 
 
@@ -2832,7 +2902,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 07 ****** byCathartico© "You, bastards! This is disgusting! You're revolting!" 
+ 
+
+===
+
+"You, bastards! This is disgusting! You're revolting!" 
 
  "No, bitch!" Johnny hissed in response towering over her. "You're the disgusting sleazewhore here!" 
 
@@ -2972,7 +3046,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 08 ****** byCathartico© It was a battered sordid quarter of the city. The red light district had spread out taking over the entire area. Most houses were crumbling. The streets were dingy with garbage lying about covering the sidewalks. 
+ 
+
+===
+
+It was a battered sordid quarter of the city. The red light district had spread out taking over the entire area. Most houses were crumbling. The streets were dingy with garbage lying about covering the sidewalks. 
 
  The only thing catching the eye of pedestrians today was an expensive limousine parking in front of a tattoo parlour. 
 
@@ -3186,7 +3264,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 08 ****** byCathartico© Immediately, the two lawyers drew nearer wedging her in between them. They started chatting her up while interchanging knowing glances. Vanessa felt flattered by their attention. She only listened half-heartedly though. Her itching pussy completely absorbed her mind. 
+ 
+
+===
+
+Immediately, the two lawyers drew nearer wedging her in between them. They started chatting her up while interchanging knowing glances. Vanessa felt flattered by their attention. She only listened half-heartedly though. Her itching pussy completely absorbed her mind. 
 
  The moment she answered one of their questions, the buzzing started again - only this time with double force. Her words turned into one long grunt. Her eyes closed. Her hands gripped a leg of each guy. She had to claw into them her whole body shaking uncontrollably. 
 
@@ -3470,7 +3552,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 08 ****** byCathartico© Of course, Vanessa did. It was exactly today. She wasn't able to go there because of Erickson's meeting! She had already been thinking about how to provoke her co-workers the most and simultaneously how to increase their envy even further. But now, they had to party without her presence. 
+ 
+
+===
+
+Of course, Vanessa did. It was exactly today. She wasn't able to go there because of Erickson's meeting! She had already been thinking about how to provoke her co-workers the most and simultaneously how to increase their envy even further. But now, they had to party without her presence. 
 
  "It takes place right there in that cocktail bar." Erickson continued pointing to the bar on the first floor directly on the other side of the window. "Maybe they can see us right now with the suite brightly lit!" 
 
@@ -3734,7 +3820,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 08 ****** byCathartico© With her hands spreading his cheeks apart, she went to work. At once, the stench crept up her nose making her shudder again. 
+ 
+
+===
+
+With her hands spreading his cheeks apart, she went to work. At once, the stench crept up her nose making her shudder again. 
 
  But there was no hesitating anymore. Beginning at the sensitive and sweaty flesh of his perineum, she ran her tongue over his entire ass crack up to his asshole. She repeated this several times. 
 
@@ -3940,7 +4030,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 09 ****** byCathartico© One moment, Vanessa was walking down the entrance area of the exclusive hotel with a happy, satisfied look in her eyes. She had been more than successful in entertaining Erickson and his friends. And she had loved every second of the hard rough fucking they had dished out to her. 
+ 
+
+===
+
+One moment, Vanessa was walking down the entrance area of the exclusive hotel with a happy, satisfied look in her eyes. She had been more than successful in entertaining Erickson and his friends. And she had loved every second of the hard rough fucking they had dished out to her. 
 
  But the next moment, she was suddenly in Trey's vice grip. The bellboy pulled her into the employee's area that quickly she didn't have any chance to protest. 
 
@@ -4178,7 +4272,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 09 ****** byCathartico© They guy pushed her back against a dirty tiled wall and came as close as possible. She could feel his breath on her cheek and of course smell the alcoholic stench. 
+ 
+
+===
+
+They guy pushed her back against a dirty tiled wall and came as close as possible. She could feel his breath on her cheek and of course smell the alcoholic stench. 
 
  In one motion, he ripped the cups of her dress down exposing her plump juggs. 
 
@@ -4438,7 +4536,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 09 ****** byCathartico© "You lied to me! You exploited my trust!" he hissed at her. "I followed you. I've seen you at the hotel." 
+ 
+
+===
+
+"You lied to me! You exploited my trust!" he hissed at her. "I followed you. I've seen you at the hotel." 
 
  "You repulse me, you fucking whore." he spat out. "Did you ever think about me? I fucked you not knowing who filled your rotten cunt with his filthy goo before! Do you know how I feel now?" 
 
@@ -4722,7 +4824,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 09 ****** byCathartico© As Miller had been watching the show all the time, he couldn't wait any longer. His balls felt like exploding any second. He walked up to Vanessa, grabbed the back of her head and jammed his straining cock down her throat in one motion. He didn't stop pushing her head down until his balls hit against her chin. 
+ 
+
+===
+
+As Miller had been watching the show all the time, he couldn't wait any longer. His balls felt like exploding any second. He walked up to Vanessa, grabbed the back of her head and jammed his straining cock down her throat in one motion. He didn't stop pushing her head down until his balls hit against her chin. 
 
  Vanessa violently gagged from the sudden attack on her throat muscles. Slobber exploded from her mouth. Unimpressed, Miller went on pushing her head up and down while holding his shaft still. He used her soft wet mouth like a glove to jack himself off. 
 
@@ -4910,7 +5016,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 10 ****** byCathartico© Four men were standing in a circle taking a smoke and having a chat. 
+ 
+
+===
+
+Four men were standing in a circle taking a smoke and having a chat. 
 
  At first sight, nothing seemed unusual about it. But there were two things attracting interest. The guys were standing in the toilet of a law-office and a ravishing redhead with a supermodel face, inviting curves and juicy double Ds knelt in their middle. A leash was attached to a dog collar around her neck. Her face was glistening from spunk and spit and her exposed tits were glowing fiery red. 
 
@@ -5178,7 +5288,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 10 ****** byCathartico© Meanwhile, she pushed her index finger inside his butthole making him groan. When she pushed the cock out of her mouth, she looked up at him. Her entire mouth was smeared with her own drool. 
+ 
+
+===
+
+Meanwhile, she pushed her index finger inside his butthole making him groan. When she pushed the cock out of her mouth, she looked up at him. Her entire mouth was smeared with her own drool. 
 
  With a naughty glint in her eyes, she stuck the finger fresh from his ass into her mouth. Groaning loudly, she munched on it like a cat licking milk. Then she gathered the sticky white revolting slobber off his dick and fed it to her self. Opening her mouth wide, she showed the white slime to the guy before she gulped it down. 
 
@@ -5442,7 +5556,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 10 ****** byCathartico© It cost her quite an effort -- or rather a huge effort - to bring these words out. Vanessa's aversion towards this mean bastard had only increased over the last hours. But she knew her role in this game. And for the moment, her body wasn't so sad about this position. 
+ 
+
+===
+
+It cost her quite an effort -- or rather a huge effort - to bring these words out. Vanessa's aversion towards this mean bastard had only increased over the last hours. But she knew her role in this game. And for the moment, her body wasn't so sad about this position. 
 
  By the surprising course of action, the mob had turned quiet. They were all excitedly waiting for Pavone's next move. 
 
@@ -5696,7 +5814,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 10 ****** byCathartico© Finally, he was ready to blow his load. He pushed his dick out of her mouth only letting the tip rest between her lips. Letting her hair and the knot go, he grabbed both of her nipples and squeezed hard. 
+ 
+
+===
+
+Finally, he was ready to blow his load. He pushed his dick out of her mouth only letting the tip rest between her lips. Letting her hair and the knot go, he grabbed both of her nipples and squeezed hard. 
 
  At the same second, spunk jizzed out of his cock. Vanessa screamed with an even higher tone while blurt after blurt of goo hit the back of her mouth. 
 
@@ -5964,7 +6086,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 10 ****** byCathartico© The men weren't just letting her suck them off though. They had seen too many perverted ideas that needed to be tested thoroughly. 
+ 
+
+===
+
+The men weren't just letting her suck them off though. They had seen too many perverted ideas that needed to be tested thoroughly. 
 
  Some of them loved pushing their dicks between her swelled fat tits. She then had to hump the monster dildo to make her ample boobs bounce up and down and thereby jack them off with her massive cleavage. 
 
@@ -6048,7 +6174,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 11 ****** byCathartico© It was a run-down sleazy strip club right in the redlight district of the city. Today wasn't an ordinary day in the club. Today was the initiation of the newest whore. And this initiation took place right on stage for any guest to see. 
+ 
+
+===
+
+It was a run-down sleazy strip club right in the redlight district of the city. Today wasn't an ordinary day in the club. Today was the initiation of the newest whore. And this initiation took place right on stage for any guest to see. 
 
  The new whore was a certain red-head with supermodel looks, big luscious tits, and a curvy apple bottom. 
 
@@ -6350,7 +6480,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 11 ****** byCathartico© It felt so good! It felt indescribable! 
+ 
+
+===
+
+It felt so good! It felt indescribable! 
 
  And finally, it hit her. 
 
@@ -6616,7 +6750,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 11 ****** byCathartico© With the fist in Vanessa's cunt tightening her ass back up, the blonde guy even started plowing her asshole harder than before. He was truly amazed at this beautiful fuckslut who enjoyed such a brutal assfuck even while a fist was up her cunt! 
+ 
+
+===
+
+With the fist in Vanessa's cunt tightening her ass back up, the blonde guy even started plowing her asshole harder than before. He was truly amazed at this beautiful fuckslut who enjoyed such a brutal assfuck even while a fist was up her cunt! 
 
  As her anal fuckhole was now tightened up again, the blond guy couldn't hold out very long. With a roar his cock exploded dumping his load inside her ass coating its walls with his syrupy cream. 
 
@@ -6840,7 +6978,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 12 ****** byCathartico© A woman was fast asleep. But she wasn't at home in her bed. She was lying on the dirty ground of a sleazy strip club. And she was bare naked. 
+ 
+
+===
+
+A woman was fast asleep. But she wasn't at home in her bed. She was lying on the dirty ground of a sleazy strip club. And she was bare naked. 
 
  She didn't even notice a guy picking her up and bringing her back to her apartment. 
 
@@ -7076,7 +7218,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 12 ****** byCathartico© Of course, Stanton and Myers wanted to check out the surprise. From her club adventure with Miller and Pavone, Vanessa knew to well that there was no chance to get out of this risky situation before Miller was getting bored with his playtoy. 
+ 
+
+===
+
+Of course, Stanton and Myers wanted to check out the surprise. From her club adventure with Miller and Pavone, Vanessa knew to well that there was no chance to get out of this risky situation before Miller was getting bored with his playtoy. 
 
  Gulping down her fear, she hesitantly looked from one lawyer to the other. 
 
@@ -7340,7 +7486,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 12 ****** byCathartico© She could see the two women still sunbathing on the green. They hadn't noticed her yet. But they would do so any second. 
+ 
+
+===
+
+She could see the two women still sunbathing on the green. They hadn't noticed her yet. But they would do so any second. 
 
  Vanessa's appearance was simply too striking. Her bikini was soaked and her nipples stiff from the cold. With the fabric clinging tightly to her wet skin, not only the rings on her protruding nipples were on full display but also the rings on her cunt lips stood clearly out of the material. 
 
@@ -7594,7 +7744,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 12 ****** byCathartico© For the moment, she was too stunned to react. Instead, Stanton and Miller took the lead. 
+ 
+
+===
+
+For the moment, she was too stunned to react. Instead, Stanton and Miller took the lead. 
 
  And then they surprised her with a totally unexpected action. 
 
@@ -7866,7 +8020,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 13 ****** byCathartico© Vanessa was lying in the bath tub soothing her sore muscles. She finally got some time to rest from the exhausting days lying behind her. Her first days working as the 'Red Rose Whore' were over. 
+ 
+
+===
+
+Vanessa was lying in the bath tub soothing her sore muscles. She finally got some time to rest from the exhausting days lying behind her. Her first days working as the 'Red Rose Whore' were over. 
 
  It had been the most strenuous time of her life. But it had also been the worst experience she had ever endured. 
 
@@ -8102,7 +8260,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 13 ****** byCathartico© Once again, Vanessa's anticipations had suffered a hard blow. Her imagination of being the 'Red Rose Superstar' had taken another hit. She didn't know how to handle this rejection. 
+ 
+
+===
+
+Once again, Vanessa's anticipations had suffered a hard blow. Her imagination of being the 'Red Rose Superstar' had taken another hit. She didn't know how to handle this rejection. 
 
  All she knew was that she needed some attention and appreciation. After constantly being humiliated by Pavone and suffering this harsh rebuff, she needed to feel like a hot tasty slut again. 
 
@@ -8352,7 +8514,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 13 ****** byCathartico© "Wanna fuck this whore up for 100?" she simply asked holding her breath while waiting for his answer. 
+ 
+
+===
+
+"Wanna fuck this whore up for 100?" she simply asked holding her breath while waiting for his answer. 
 
  When he started running his eyes up and down her figure, she turned around sticking out her butt and raising her short miniskirt. It didn't feel whorish or cheap anymore. It came almost natural. Anything was fine to entice this guy. 
 
@@ -8568,7 +8734,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 13 ****** byCathartico© After the guy had cum, Vanessa simply slumped down on the bed. She didn't have any strength left. 
+ 
+
+===
+
+After the guy had cum, Vanessa simply slumped down on the bed. She didn't have any strength left. 
 
  Her last john was long gone when she finally made it to the chart. He had given her an A. She had suffered a lot for it. But somehow it made her proud. Vanessa felt like a first-grader happy about getting its first report card. And all at once, her first shift as the 'Red Rose Whore' appeared in a positive light. 
 
@@ -8580,7 +8750,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 14 ****** byCathartico© With a scream, Vanessa's eyes shot open. Her body was trembling. Water was splashing out of the tub onto the tiled floor of her bathroom. 
+ 
+
+===
+
+With a scream, Vanessa's eyes shot open. Her body was trembling. Water was splashing out of the tub onto the tiled floor of her bathroom. 
 
  She was back in reality. And rushing through her body was one of the most earth-shattering orgasms she had ever experienced. The memories of her first day as the 'Red Rose Whore' had aroused her tremendously and taken her to a new dimension of bliss. 
 
@@ -8810,7 +8984,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 14 ****** byCathartico© The moment, her lips opened, he pulled her mouth over his big toe. Obviously, the guy hadn't washed his feet for several days. And that was exactly the way it tasted. 
+ 
+
+===
+
+The moment, her lips opened, he pulled her mouth over his big toe. Obviously, the guy hadn't washed his feet for several days. And that was exactly the way it tasted. 
 
  Vanessa lost control over her body and puke shot into her mouth. She barely managed to keep it inside not letting it splatter all over the guy's foot. 
 
@@ -9058,7 +9236,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 14 ****** byCathartico© "Tell me how much you like your whore treatment!" the guy ordered. 
+ 
+
+===
+
+"Tell me how much you like your whore treatment!" the guy ordered. 
 
  From the constant thrusts and pressure on her pussy, Vanessa's breath became choppy and turned into gasps. 
 
@@ -9310,7 +9492,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 14 ****** byCathartico© When the two guys stopped their conversation and looked quizzically at her, she simply blurted out her claims. 
+ 
+
+===
+
+When the two guys stopped their conversation and looked quizzically at her, she simply blurted out her claims. 
 
  Of course, Pavone was not a whit pleased about it. She was in no position to interrupt a meeting and especially not with such a demanding attitude. 
 
@@ -9566,7 +9752,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 14 ****** byCathartico© She was slowly getting light-headed from the lack of oxygen when they finally made it to the steps. 
+ 
+
+===
+
+She was slowly getting light-headed from the lack of oxygen when they finally made it to the steps. 
 
  The guy stopped right there and unchained Vanessa's wrists. 
 
@@ -9686,7 +9876,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 15 ****** byCathartico© Vanessa's eyes slowly opened. A comforting, warm feeling enclosed her whole body. Remembering the final earth-shattering orgasm she had experienced while serving as the 'Red Rose Fuckpony' made her pussy tickle. 
+ 
+
+===
+
+Vanessa's eyes slowly opened. A comforting, warm feeling enclosed her whole body. Remembering the final earth-shattering orgasm she had experienced while serving as the 'Red Rose Fuckpony' made her pussy tickle. 
 
  Some noise had torn her out of her memories. But she couldn't quite put that noise into context. 
 
@@ -9964,7 +10158,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 15 ****** byCathartico© For a second, Vanessa stood there frozen to the ground. Everyone around had heard Mark's words. In their eyes, she was exactly what he had said – a slutty streetwalking hooker. And there was nothing she could do to change that impression. 
+ 
+
+===
+
+For a second, Vanessa stood there frozen to the ground. Everyone around had heard Mark's words. In their eyes, she was exactly what he had said – a slutty streetwalking hooker. And there was nothing she could do to change that impression. 
 
  Finally resigned to her fate, she turned to the business-guy still standing at the curb. 
 
@@ -10228,7 +10426,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 15 ****** byCathartico© "Stick that tongue out and mop up the smut!" he bellowed. 
+ 
+
+===
+
+"Stick that tongue out and mop up the smut!" he bellowed. 
 
  The janitor barely gave Vanessa enough time to do as he had ordered when he pressed her cheek against the fender. He used her head like a swab. 
 
@@ -10298,7 +10500,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 16 ****** byCathartico© "Finally!" Vanessa breathed a sigh of relief. 
+ 
+
+===
+
+"Finally!" Vanessa breathed a sigh of relief. 
 
  Finally, Mark and Vanessa had managed to arrive at the law-office and get off the street. She couldn't even tell how relieved she was about it. This morning, the day's prospect had looked more than easy and relaxed. It was Friday afternoon and Vanessa had to entertain Stanton, Miller and Erickson as the office-slut -- nothing new or exceptionally shocking. 
 
@@ -10510,7 +10716,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 16 ****** byCathartico© When they got out of the car, Erickson didn't waste any time taking the leash and dragging Vanessa along to the restaurant entrance. Hastily, Vanessa looked around. As the restaurant was situated a little off the Downtown area, there were no people around. 
+ 
+
+===
+
+When they got out of the car, Erickson didn't waste any time taking the leash and dragging Vanessa along to the restaurant entrance. Hastily, Vanessa looked around. As the restaurant was situated a little off the Downtown area, there were no people around. 
 
  She breathed a sigh of relief. After the walk of shame through Downtown earlier, Vanessa had enough of being publicly disgraced for the day. 
 
@@ -10720,7 +10930,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 16 ****** byCathartico© This approach definitely worked better and Vanessa cursed herself for not coming up with the idea earlier. 
+ 
+
+===
+
+This approach definitely worked better and Vanessa cursed herself for not coming up with the idea earlier. 
 
  Still, she somehow had to open the bottle so she had to forcefully push her hips back in an attempt to get enough pressure at the right angle. 
 
@@ -10962,7 +11176,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 16 ****** byCathartico© "Guess that fuckpony needs some more anal training." Connor commented dryly. 
+ 
+
+===
+
+"Guess that fuckpony needs some more anal training." Connor commented dryly. 
 
  "You're welcome to lend a helping dick!" Erickson chipped making all guys chuckle. 
 
@@ -11244,7 +11462,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 16 ****** byCathartico© It was her task to prepare Blondie for her anal abuse and not to give her pleasure. This meant getting the bitch's asshole wet and ready -- not licking her cunt. Vanessa truly hated licking men's asses to the bone. Although Maria's ass crack was kind of smooth and hairless, she wasn't particularly looking forward to the task of licking it. 
+ 
+
+===
+
+It was her task to prepare Blondie for her anal abuse and not to give her pleasure. This meant getting the bitch's asshole wet and ready -- not licking her cunt. Vanessa truly hated licking men's asses to the bone. Although Maria's ass crack was kind of smooth and hairless, she wasn't particularly looking forward to the task of licking it. 
 
  Bracing herself for the bad taste, Vanessa finally tackled that ass. Again, she stuck out her tongue and let it twirl around the vibrator. Then she grabbed the vibrator with her teeth and slowly pushed it out of Maria's asshole. 
 
@@ -11452,7 +11674,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 16 ****** byCathartico© "Ooohhh! Aaahhh!" Vanessa immediately started groaning and moaning uninhibitedly. 
+ 
+
+===
+
+"Ooohhh! Aaahhh!" Vanessa immediately started groaning and moaning uninhibitedly. 
 
  The rapid buzzing instantly electrified all her nerves sending waves of ecstasy up and down her spine. 
 
@@ -11552,7 +11778,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© It was Saturday evening. Eric Collins drove down a street lined with rundown houses and closed stores. Garbage was up and down the sidewalks. He parked his car in an empty parking lot. The few other cars were mostly abandoned and gutted. 
+ 
+
+===
+
+It was Saturday evening. Eric Collins drove down a street lined with rundown houses and closed stores. Garbage was up and down the sidewalks. He parked his car in an empty parking lot. The few other cars were mostly abandoned and gutted. 
 
  Looking nervously around, he walked to a seedy building nearby. A neon marquee sign with interchangeable letters greeted him from above the entrance. It gave the building the look of an old movie theatre. Only, this wasn't a movie theatre but a strip club instead. 
 
@@ -11730,7 +11960,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© This realization hit her harder than anything ever before and it mercilessly preyed her mind. 
+ 
+
+===
+
+This realization hit her harder than anything ever before and it mercilessly preyed her mind. 
 
  It felt like her entire self-image had been shattered into pieces. She had been the elegant, posh secretary who could twist any guy around her little finger with ease - even getting away with her arrogant ice-queen attitude in the country club. She was a classy secretary with a kinky secret - a classy secretary that lived out her submissive side by serving random men letting them treat her like a dirty, filthy whore. 
 
@@ -11950,7 +12184,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© The pressure on her precious nipples and cunt lips made Vanessa yelp and groan in rhythm while she got jerked around his chair. The biker dragged the chain from side to side making Queeny Ho pirouette around his chair. Then he pulled the chain up and down making the redhead jump and squat while her funbags were wildly jiggling and shaking. 
+ 
+
+===
+
+The pressure on her precious nipples and cunt lips made Vanessa yelp and groan in rhythm while she got jerked around his chair. The biker dragged the chain from side to side making Queeny Ho pirouette around his chair. Then he pulled the chain up and down making the redhead jump and squat while her funbags were wildly jiggling and shaking. 
 
  Finally, the biker pushed the chain towards himself making Vanessa stumble upon his lap. She instantly, cupped her fat fucktits from the sides and pressed them right into his face. She almost smothered him with her soft titflesh while he licked her pierced nipples. 
 
@@ -12172,7 +12410,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© When the orgasm finally faded, Pavone didn't let her go yet. Instead, he gripped Vanessa's hair and forced her face up to look up to Maria. 
+ 
+
+===
+
+When the orgasm finally faded, Pavone didn't let her go yet. Instead, he gripped Vanessa's hair and forced her face up to look up to Maria. 
 
  "Tzz, what a dumb little whore!" the blonde huffed with the most derogatory sneer possible. "Cumming from getting her ass beaten!" 
 
@@ -12352,7 +12594,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© While the music started playing again, the two bikers started their game. The tattoo-sleeve badass used the buzzing Magic Wand to stimulate Maria and make her gyrate her hips while baldhead used the violet wand to prod her making her twitch and jump around. This way, Maria was taken on a rollercoaster ride of arousal. The vibrator took her to heights of excitement while the stinging shocks harshly brought her back down. 
+ 
+
+===
+
+While the music started playing again, the two bikers started their game. The tattoo-sleeve badass used the buzzing Magic Wand to stimulate Maria and make her gyrate her hips while baldhead used the violet wand to prod her making her twitch and jump around. This way, Maria was taken on a rollercoaster ride of arousal. The vibrator took her to heights of excitement while the stinging shocks harshly brought her back down. 
 
  Tattoo sleeve guy began running the Magic Wand up the blonde bimbo's sides. This caused Maria to start moaning and swivelling her hips. Her moans turned into groans when he pressed the vibrator onto her nipples and she began humping the baton. Then out of nowhere, baldhead shocked Maria. She grunted and jerked from the electric spark. Thereby, she lost her balance, impaling herself completely on the baton. 
 
@@ -12530,7 +12776,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© The biker slapped Vanessa's blistered ass 10 times. Each spank felt like a mind-boggling hot flame. He forced the ginger whore to count out each blow and subsequently thank him profusely. Each slap left a white mark on her red glowing buttocks until this white spot turned into even darker shades of red. 
+ 
+
+===
+
+The biker slapped Vanessa's blistered ass 10 times. Each spank felt like a mind-boggling hot flame. He forced the ginger whore to count out each blow and subsequently thank him profusely. Each slap left a white mark on her red glowing buttocks until this white spot turned into even darker shades of red. 
 
  The act of getting spanked like a badly behaved child in front of an audience was a new kind of humiliation for Vanessa. And thanking the rude guy for teaching her how to become a better slut was even worse. 
 
@@ -12724,7 +12974,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 17 ****** byCathartico© The crowd watched the black circular plug slowly stretching Vanessa's cunt further open. But it was working its way out of the slut's pussy far too slow. The young bloke couldn't keep up his pace forever. Finally, he groaned out while his cock erupted spurting a second load of cum into Queeny Ho's bowels. 
+ 
+
+===
+
+The crowd watched the black circular plug slowly stretching Vanessa's cunt further open. But it was working its way out of the slut's pussy far too slow. The young bloke couldn't keep up his pace forever. Finally, he groaned out while his cock erupted spurting a second load of cum into Queeny Ho's bowels. 
 
  Watching the depraved spectacle, the final two participants had realized that it was an extremely hard task to fuck the inflated pussy plug out of the whore's cunt. So they made a deal and decided to work on the slut jointly. 
 
@@ -12838,7 +13092,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 18 ****** byCathartico© It was Wednesday night and Vanessa was working her shift in the 'Red Rose Club'. It was a good night and she was in full slut-mode. Her latest john was just leaving after giving her an extra tip for her exceptional service. The flame-haired beauty stood at the bar with a smile across her face while she took a short break sipping on a glass of water. 
+ 
+
+===
+
+It was Wednesday night and Vanessa was working her shift in the 'Red Rose Club'. It was a good night and she was in full slut-mode. Her latest john was just leaving after giving her an extra tip for her exceptional service. The flame-haired beauty stood at the bar with a smile across her face while she took a short break sipping on a glass of water. 
 
  When her eyes fell onto the clock, her smile turned into a sour expression. She hastily grabbed a bottle of beer and a cigar from behind the counter before she tottered to the backdoor in her pink platform ankle boots. 
 
@@ -13002,7 +13260,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 18 ****** byCathartico© While the flame-haired knockout panted for breath, Tucker's fingers slipped out of her pussy. A breeze of cold air rushed into her wide open fuckhole. The sudden chill abruptly stopped Vanessa's orgasm and cut it short. It had been a tremendous wave of pleasure but it had been too short. The fire was still burning in her loins. The ginger slut still craved to get her cunt filled. 
+ 
+
+===
+
+While the flame-haired knockout panted for breath, Tucker's fingers slipped out of her pussy. A breeze of cold air rushed into her wide open fuckhole. The sudden chill abruptly stopped Vanessa's orgasm and cut it short. It had been a tremendous wave of pleasure but it had been too short. The fire was still burning in her loins. The ginger slut still craved to get her cunt filled. 
 
  She threw her legs up to her face and reached around either side of her ass. She pulled her ringed pussy lips apart presenting her angry red snatch in its full glory. She wanted Tucker to thrust his cock up her pussy. 
 
@@ -13200,7 +13462,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 18 ****** byCathartico© "HechHechHechHech" 
+ 
+
+===
+
+"HechHechHechHech" 
 
  SLAP 
 
@@ -13334,7 +13600,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 19 ****** byCathartico© For the next few weeks, Vanessa's schedule was pretty full. She had so many balls to juggle that her head was spinning from all the different appointments. Her popularity as the 'Red Rose Whore' kept rising with every won slut-battle. The night shifts during the week turned into a sort of mass processing with lines of customers waiting to get their hands – or rather dicks – on her fuckholes. Stanton, Miller and Erickson continued to use her as their deal- sweetener as well. Apparently, they were extremely busy closing deals. Each Friday, she got a new assignment to meet a client. 
+ 
+
+===
+
+For the next few weeks, Vanessa's schedule was pretty full. She had so many balls to juggle that her head was spinning from all the different appointments. Her popularity as the 'Red Rose Whore' kept rising with every won slut-battle. The night shifts during the week turned into a sort of mass processing with lines of customers waiting to get their hands – or rather dicks – on her fuckholes. Stanton, Miller and Erickson continued to use her as their deal- sweetener as well. Apparently, they were extremely busy closing deals. Each Friday, she got a new assignment to meet a client. 
 
  Every other afternoon, Vanessa had to visit the security booth of the country club. Tucker relentlessly carried on turning the flame-haired knockout into his dogslut. Quickly, she got used to her new dogbitch-uniform. Her tits and ass were exposed while her dress hung around her hips and the fly swatter stuck out of her asshole as her dog's tail. This indecent outfit clearly showed off Vanessa's status in the booth. 
 
@@ -13458,7 +13728,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 19 ****** byCathartico© Before a noise came over her lips, Mr. Lineman - the massive footballer - held his huge paw in front of her mouth and stifled the scream. 
+ 
+
+===
+
+Before a noise came over her lips, Mr. Lineman - the massive footballer - held his huge paw in front of her mouth and stifled the scream. 
 
  "Tztztz!" he scolded the redhead under his breath. "We don't wanna cause a stir! You already had your sensation for the day." 
 
@@ -13646,7 +13920,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 19 ****** byCathartico© With a sexy motion, she pushed the lace thong down to the lower edge of her buttocks. For the first time, Lineman got a clear view at her lush pussy slit. Her ringed cunt lips already peaked out. For a few moments, the ginger slut played peek-a-boo pushing the thong up and down to cover and reveal her snatch. 
+ 
+
+===
+
+With a sexy motion, she pushed the lace thong down to the lower edge of her buttocks. For the first time, Lineman got a clear view at her lush pussy slit. Her ringed cunt lips already peaked out. For a few moments, the ginger slut played peek-a-boo pushing the thong up and down to cover and reveal her snatch. 
 
  
 
@@ -13824,7 +14102,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 19 ****** byCathartico© Beardman was coming close to the edge. But he didn't want to waste the whole 'Bonus Service' on a juggfuck. With surprising speed, the stocky guy jumped off his chair and pulled Vanessa up. He pushed her over the table and drove his cock up her pussy in one swift motion. Fortunately, the ginger slut's pussy was overflowing so his shaft slid easily inside. 
+ 
+
+===
+
+Beardman was coming close to the edge. But he didn't want to waste the whole 'Bonus Service' on a juggfuck. With surprising speed, the stocky guy jumped off his chair and pulled Vanessa up. He pushed her over the table and drove his cock up her pussy in one swift motion. Fortunately, the ginger slut's pussy was overflowing so his shaft slid easily inside. 
 
  "Ooohhhh!" Vanessa moaned out. 
 
@@ -14026,7 +14308,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 19 ****** byCathartico© Beardman didn't last much longer. He only thrust into her wet mouth a few more times before his balls were ready to explode. Following Lineman's lead, he simply stepped away from the slut before shooting his load. 
+ 
+
+===
+
+Beardman didn't last much longer. He only thrust into her wet mouth a few more times before his balls were ready to explode. Following Lineman's lead, he simply stepped away from the slut before shooting his load. 
 
  Finally, Greyhair had reached his boiling point as well. With a loud grunt, his cock started jerking. He pushed the ginger slut off his lap but didn't turn her around to spurt his cum onto her face. He simply left the bonus whore lying on the ground. 
 
@@ -14198,7 +14484,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© "Oh... My... Gosh...!" Megan Salpa almost stuttered from astonishment. 
+ 
+
+===
+
+"Oh... My... Gosh...!" Megan Salpa almost stuttered from astonishment. 
 
  She had heard some weird noises coming out of the country club library when she had passed the room. She had opened the door a crack and peeked inside. The scene she witnessed left her completely gobsmacked. 
 
@@ -14394,7 +14684,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© "Fucking tell them who you really are!" Tucker insisted. 
+ 
+
+===
+
+"Fucking tell them who you really are!" Tucker insisted. 
 
  "I... I'm Vanessa Laren. I've been working as a secretary for Stanton, Erickson and Partners." Vanessa hesitantly began her self-exposure. 
 
@@ -14600,7 +14894,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© A kick to their sides finally brought the two glamour bitches back into motion and they began to ride the baton again. They were both eager to avoid any further degrading mop action. It fuelled them with a whole new level of enthusiasm for their task. They rammed the club down each other's cunthole with vigour. The stick was so far down their fuck tunnels that their asses noisily clashed with a slapping sound. 
+ 
+
+===
+
+A kick to their sides finally brought the two glamour bitches back into motion and they began to ride the baton again. They were both eager to avoid any further degrading mop action. It fuelled them with a whole new level of enthusiasm for their task. They rammed the club down each other's cunthole with vigour. The stick was so far down their fuck tunnels that their asses noisily clashed with a slapping sound. 
 
  Megan started moaning again. It quickly turned into full-blown groans and grunts in rhythm to the noisy ass clashes. Vanessa tried her best to keep up with her rival. But after the sex sessions she had endured before, she didn't stand a chance. The raven minx went wild on the club. She bucked the stick so madly that she almost knocked the hogtied sluts over. 
 
@@ -14766,7 +15064,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© "Hehehe! That's a spectacular treat for a break!" he remarked. "Too bad the others are having a smoke on the porch. They'll never belief this!" 
+ 
+
+===
+
+"Hehehe! That's a spectacular treat for a break!" he remarked. "Too bad the others are having a smoke on the porch. They'll never belief this!" 
 
  After a few more thrusts down Vanessa's throat, the young bloke's dick erupted and filled the condom with a healthy dose of cum. When his balls were drained, the ginger slut quickly rolled the rubber off his cock. She lifted her gown and tucked the cum-filled condom onto the waistband of her thong. She shuddered from the feeling of the slick used rubber on her skin. It was another humiliating idea by Ramirez that the fuckpets had to carry the cum-filled condoms like strippers carrying their money. 
 
@@ -14920,7 +15222,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© Vanessa tugged on the leash and dragged the raven minx onto her knees. Then she sank down next to her. This way, the two glamour bitches were kneeling face-to- face on the tiled floor. With a head gesture, Vanessa guided McKenzie over to her. Then she threw her head back and opened her mouth. The black janitor took her hint and grabbed the second condom. He held the cum-filled rubber directly above Vanessa's head. 
+ 
+
+===
+
+Vanessa tugged on the leash and dragged the raven minx onto her knees. Then she sank down next to her. This way, the two glamour bitches were kneeling face-to- face on the tiled floor. With a head gesture, Vanessa guided McKenzie over to her. Then she threw her head back and opened her mouth. The black janitor took her hint and grabbed the second condom. He held the cum-filled rubber directly above Vanessa's head. 
 
  McKenzie squeezed the gooey jizz out of the condom. The white, slimy mass left smeary streaks on the rubber tube. It looked more than unappetizingly. Nonetheless, Vanessa bravely kept her mouth open and awaited the sperm load. Finally, the thick wad landed on the redhead's tongue. She looked straight at Megan. The raven stunner kneeled directly opposite her. 
 
@@ -15096,7 +15402,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© The smug greenkeeper only treated Missy's asshole to a few powerful strokes. Then he pulled out, rammed his thick cock up Queeny's gaping butthole and reamed her ass for a few moments. His three co-workers loved this position the most as they got a full view of Miss Gold Digger's drilled out fuckholes and Miss Arrogance's stretched out snatch. By now, all three sexholes had taken on an aggressive, crimson colour. 
+ 
+
+===
+
+The smug greenkeeper only treated Missy's asshole to a few powerful strokes. Then he pulled out, rammed his thick cock up Queeny's gaping butthole and reamed her ass for a few moments. His three co-workers loved this position the most as they got a full view of Miss Gold Digger's drilled out fuckholes and Miss Arrogance's stretched out snatch. By now, all three sexholes had taken on an aggressive, crimson colour. 
 
  However, Ramirez was intent on upping the level of debauchery. He picked up a rhythm of administering individual thrusts to each fuckhole. He pounded the fuckpets' sexholes in a particular sequence. First, he plunged his cock up Megan's pussy followed by Vanessa's cunt. Then he tackled Missy's asshole followed by Queeny's bunghole. This caused the glamour bitches to continuously writhe and wriggle around while screaming in a frenzied chaos. 
 
@@ -15242,7 +15552,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 20 ****** byCathartico© "Double Trouble!" she read out. 
+ 
+
+===
+
+"Double Trouble!" she read out. 
 
  This didn't sound good. But after all, the black janitor was on his own. Maybe, it was supposed to mean double trouble for his cock as he had two sluts attacking his tool. 
 
@@ -15338,7 +15652,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© "It's done!" Steve exclaimed while pulling the memory card from the video camera. "At long last, I got what I've been waiting for all this time -- some cold, hard proof!" 
+ 
+
+===
+
+"It's done!" Steve exclaimed while pulling the memory card from the video camera. "At long last, I got what I've been waiting for all this time -- some cold, hard proof!" 
 
  Vanessa stood in the middle of the locker room and looked at her date for the 'Monte Carlo Ball'. She was confused and bewildered. Steve's sudden appearance had left her dumbfounded and thunderstruck. The flame-haired beauty was completely perplexed. Once and for all, she felt like her world was irrecoverable out of joint. 
 
@@ -15520,7 +15838,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© 'FLUSH' 
+ 
+
+===
+
+'FLUSH' 
 
  With this instruction on her face, Vanessa felt like a common piece of bathroom equipment. She felt like a cheap shithouse device. Ultimately, Steve had turned her into nothing more than a human pissmop. 
 
@@ -15684,7 +16006,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© "Uuuhhh!" 
+ 
+
+===
+
+"Uuuhhh!" 
 
  The flame-haired knockout squirmed when she finally couldn't hold the piss up her ass any longer. The moment she relaxed her ass muscles, the pressure of her bulged ass chute caused the piss enema to burst from her ass. It spurted high up in the air like a golden fountain. Then it broke and rained down. 
 
@@ -15830,7 +16156,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© To this day, Vanessa was still wearing the nipple rings and pussy piercings. She had planned to get rid of them many times. But she had never followed through on it. Somehow, the slut rings were the last thing that kept her in touch with her submissive side. She feared that this side might be gone forever. 
+ 
+
+===
+
+To this day, Vanessa was still wearing the nipple rings and pussy piercings. She had planned to get rid of them many times. But she had never followed through on it. Somehow, the slut rings were the last thing that kept her in touch with her submissive side. She feared that this side might be gone forever. 
 
  Life was good for Vanessa. However, something was missing. The feeling of dissonance was gone. Only the posh, arrogant lady-ego was left. The cheap, trashy whore-self was gone. Her submissive 'Red Rose Whore' identity had always counterbalanced her 'Miss Arrogance' ego. The constant flip-flopping between these two polar opposites had been an extreme rollercoaster ride - an endless adrenaline rush that had put her into a constant state of arousal. This thrill was gone. Nowadays, she somehow felt incomplete and instable. 
 
@@ -16018,7 +16348,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© "It's OK! It's OK!" she tried to calm the blonde dancer. 
+ 
+
+===
+
+"It's OK! It's OK!" she tried to calm the blonde dancer. 
 
  "I pay the price." she said opening her wallet. Only to find out that she carried no more than 50 dollars. 
 
@@ -16194,7 +16528,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© Immediately, the stench overwhelmed the ginger slut. His overall reeked of petrol like an entire garage. The smell was so aggressive that it stung in her nose and made her nauseous. 
+ 
+
+===
+
+Immediately, the stench overwhelmed the ginger slut. His overall reeked of petrol like an entire garage. The smell was so aggressive that it stung in her nose and made her nauseous. 
 
  Vanessa struggled in her bonds to get away from the reek. But to no avail. She only succeeded in stretching her leashed fleshcans further out of proportions. The red-haired hooker's disgusted reaction didn't remain hidden to the guy though. 
 
@@ -16366,7 +16704,11 @@
 
  
 
- ****** Vanessa's Dissonance Ch. 21 ****** byCathartico© And he was right. Vanessa had tried to get away with simply letting the leash drop onto her bodacious boobs without adding much force. Only a slight red glow was visible after these two soft slaps. 
+ 
+
+===
+
+And he was right. Vanessa had tried to get away with simply letting the leash drop onto her bodacious boobs without adding much force. Only a slight red glow was visible after these two soft slaps. 
 
  Of course, the ginger slut wasn't getting away with the memory task that easily. Once again, she lifted the leash. This time she added some strength to the slaps. 
 

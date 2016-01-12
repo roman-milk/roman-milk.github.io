@@ -1,8 +1,14 @@
+Marla
+=====
 #1 
 
  
 
- ****** Marla ****** bygeronimo_appleby© The dark haired woman strode into the room -- confident, a confidence bordering on arrogance. Her hair shone beneath the glare of the spotlights, hair so unfeasibly black it had the blue sheen of a crow's feathers, hair so straight it looked ironed. The woman paused and time stretched for the Watcher, hidden from view, safe behind the wall in the voyeurs' cocoon. This was the sublime moment; the instant that the Watcher craved, this was the moment, the sum of effort, and the pinnacle of achievement. It was the instant of delight or disappointment. The Watcher had experienced the crush of frustrated plans in the past; there had been several failed efforts in times gone by. 
+ 
+
+===
+
+The dark haired woman strode into the room -- confident, a confidence bordering on arrogance. Her hair shone beneath the glare of the spotlights, hair so unfeasibly black it had the blue sheen of a crow's feathers, hair so straight it looked ironed. The woman paused and time stretched for the Watcher, hidden from view, safe behind the wall in the voyeurs' cocoon. This was the sublime moment; the instant that the Watcher craved, this was the moment, the sum of effort, and the pinnacle of achievement. It was the instant of delight or disappointment. The Watcher had experienced the crush of frustrated plans in the past; there had been several failed efforts in times gone by. 
 
  The magnificent woman in the viewing room, believing that she was alone, behaved without affectation or self-consciousness, and, with a shrug of her shoulders, let the full-length leather coat drop to the floor. Luscious, thought the Watcher, she's luscious.' 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Marla ****** bygeronimo_appleby© And so it went -- first Anton, then Peter, and then Armand -- with each man pushing his cock into Marla as she sat helpless in the hanging chair. 
+ 
+
+===
+
+And so it went -- first Anton, then Peter, and then Armand -- with each man pushing his cock into Marla as she sat helpless in the hanging chair. 
 
  "Oh my god," Marla squealed repeatedly now that her mouth was vacant. "Three of you... Three of you fucking me! I'm a whore, I'm a slut... It's so bad, but I love it. Fuck me you bastards, fuck me and make me come." 
 
@@ -214,7 +224,11 @@
 
  
 
- ****** Marla Ch. 02 ****** bygeronimo_appleby© The Second Chapter - Piss 
+ 
+
+===
+
+The Second Chapter - Piss 
 
  The click-clack of Marla's heels upon the cracked tiled floor echoed through the dank corridor. The decaying surroundings in which Marla found herself contrasted incongruously with the elegant evening gown and delicate make-up worn by the woman. Whereas Marla was presented near perfect, the building possessed a dilapidated air of abandonment and decay. The walls were adorned with graffiti, some ancient some new. Odd bits of rubbish were strewn haphazardly along the corridors, bits of wood, remnants of shattered windows, and, bizarrely, an androgynous shop window mannequin. 
 

@@ -1,8 +1,14 @@
+White Sluts’ Club: Innocent Lawyer
+==================================
 #1 
 
  
 
- ****** White Sluts’ Club: Innocent Lawyer ****** bysilkstockingslover© Summary: White lawyer turned into a submissive slut for black cock. 
+ 
+
+===
+
+Summary: White lawyer turned into a submissive slut for black cock. 
 
  Thanks: To MAB7991, Robert and goamz86 for editing. 
 
@@ -326,7 +332,11 @@
 
  
 
- ****** White Sluts’ Club: Innocent Lawyer ****** bysilkstockingslover© Mandi and Heather, my twin girls, were both freshmen in college and sweethearts on full scholarship rides. They would be mortified to see their prudish mother right now. Yet, I pushed them out of my mind, as at the moment, I wanted nothing more than to feel him shoot his cum in my mouth or bend me over the table and pound the shit out of me. 
+ 
+
+===
+
+Mandi and Heather, my twin girls, were both freshmen in college and sweethearts on full scholarship rides. They would be mortified to see their prudish mother right now. Yet, I pushed them out of my mind, as at the moment, I wanted nothing more than to feel him shoot his cum in my mouth or bend me over the table and pound the shit out of me. 
 
  He pulled his cock out of my mouth and asked, "Are you a nigger lover?" 
 
@@ -646,7 +656,11 @@
 
  
 
- ****** White Sluts’ Club: Innocent Lawyer ****** bysilkstockingslover© I paused briefly, Samantha surprising me yet again with another revelation that naive me was completely oblivious to before tonight, before returning to licking her wet pussy. 
+ 
+
+===
+
+I paused briefly, Samantha surprising me yet again with another revelation that naive me was completely oblivious to before tonight, before returning to licking her wet pussy. 
 
  "Get ino a sixty-nine, sluts," Mr. Cocksmith ordered after a couple of minutes of watching me lick pussy. 
 
@@ -920,7 +934,11 @@
 
  
 
- ****** White Sluts’ Club: Innocent Lawyer ****** bysilkstockingslover© I screamed bloody murder, "Fuuuuuuck, it huuuuurts." 
+ 
+
+===
+
+I screamed bloody murder, "Fuuuuuuck, it huuuuurts." 
 
  "No pain, no gain," Matt quipped the generic cliché. 
 

@@ -1,8 +1,14 @@
+White Slut Wife: Black Cock Fantasy
+===================================
 #1 
 
  
 
- ****** White Slut Wife: Black Cock Fantasy ****** bysilkstockingslover© SUMMARY: Husband makes submissive wife's black cock fantasy come true. 
+ 
+
+===
+
+SUMMARY: Husband makes submissive wife's black cock fantasy come true. 
 
  NOTE: This is a Halloween 2014 contest story so please vote. 
 
@@ -310,7 +316,11 @@
 
  
 
- ****** White Slut Wife: Black Cock Fantasy ****** bysilkstockingslover© He made sure I had a great look at my wife, as she stared at his massive erect cock. The lust in her eyes was clear and she asked, "Does my husband know?" 
+ 
+
+===
+
+He made sure I had a great look at my wife, as she stared at his massive erect cock. The lust in her eyes was clear and she asked, "Does my husband know?" 
 
  "Does it matter?" he asked, tapping his cock on her lips. 
 

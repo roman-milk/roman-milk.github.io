@@ -1,8 +1,14 @@
+Lords, Ladies &amp; Gentlemen Ch. 01-04
+=======================================
 #1 
 
  
 
- ****** Lords, Ladies &amp; Gentlemen Ch. 01-04 ****** bygeronimo_appleby© Chapter One 
+ 
+
+===
+
+Chapter One 
 
  The Master woke early as was his custom and threw the heavy blankets from the bed. He stood and stretched, thinking lazily about what he could do that day, he had no particular plans, other than the visit of his daughter and her husband, but he was harbouring lustful thoughts about the new scullery maid. 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** Lords, Ladies &amp; Gentlemen Ch. 01-04 ****** bygeronimo_appleby© Finally Samuel began to jerk and shake as he poured a second load of white goo into his employer's cunt. 
+ 
+
+===
+
+Finally Samuel began to jerk and shake as he poured a second load of white goo into his employer's cunt. 
 
  Both men kissed the Lady and caressed her body, as she lay spent, cum dribbling out of her body and staining the bed sheets. She lay there immobile for a few minutes whilst the grooms felt her tingling skin, taking it in turns to lick her tender breasts and to kiss her mouth tenderly. 
 
@@ -266,7 +276,11 @@
 
  
 
- ****** Lords, Ladies &amp; Gentlemen Ch. 05 ****** bygeronimo_appleby© When Amelia reached Amy's chamber she didn't pause to knock, but simply opened the door and entered. Amy was sobbing on her bed and was being consoled by Mrs Hope, the housekeeper. Mrs Hope turned and saw Amelia standing in the open doorway. 'Good morning to you ma'am,' said Mrs Hope archly. 
+ 
+
+===
+
+When Amelia reached Amy's chamber she didn't pause to knock, but simply opened the door and entered. Amy was sobbing on her bed and was being consoled by Mrs Hope, the housekeeper. Mrs Hope turned and saw Amelia standing in the open doorway. 'Good morning to you ma'am,' said Mrs Hope archly. 
 
  'Mrs Hope.., oh.., good morning,' replied Amelia, flustered. 'I was just.. err..' she continued, her voice trailing when she realised she had no legitimate reason to be bursting into Amy's room uninvited. 
 

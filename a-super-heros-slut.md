@@ -1,8 +1,14 @@
+A Super Hero's Slut Ch. 01
+==========================
 #1 
 
  
 
- ****** A Super Hero's Slut Ch. 01 ****** byJust_Plain_Bob© It took a second to register, but when it did he reacted quickly. Rolling down the partition he instructed the driver to pull over to the curb. As the limo pulled over he turned to the short, balding man sitting next to him. 
+ 
+
+===
+
+It took a second to register, but when it did he reacted quickly. Rolling down the partition he instructed the driver to pull over to the curb. As the limo pulled over he turned to the short, balding man sitting next to him. 
 
  "I've found my female lead. See the redhead coming down the walk toward us? Find out everything about her that you can. She's the one. I knew it as soon as I saw her that she is the one." 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** A Super Hero's Slut Ch. 02 ****** byJust_Plain_Bob© Peter was out the door at the crack of dawn armed with his cameras. He hoped to get some good shots of Kraven to go with the ones he had taken the previous day. He headed for the building where he had left Kraven the night before. He intended to find out what Kraven's interest in the place was. 
+ 
+
+===
+
+Peter was out the door at the crack of dawn armed with his cameras. He hoped to get some good shots of Kraven to go with the ones he had taken the previous day. He headed for the building where he had left Kraven the night before. He intended to find out what Kraven's interest in the place was. 
 
  There were two men sitting at a table just inside the door, sipping coffee and going over blueprints. He identified himself as a reporter/photographer for the Daily Bugle, gave them a song and dance about how the paper was going to do a series on new construction and renovations in the downtown and then asked them what the place they were working on was going to be. 
 
@@ -368,7 +378,11 @@
 
  
 
- ****** A Super Hero's Slut Ch. 02 ****** byJust_Plain_Bob© "I'm Peter Parker and I'm here to interview Kraven The Hunter for an article I'm doing for the Daily Bugle." 
+ 
+
+===
+
+"I'm Peter Parker and I'm here to interview Kraven The Hunter for an article I'm doing for the Daily Bugle." 
 
  "Peter Parker? Aren't you the one who gets all those great photos of Spider- Man?" 
 
@@ -422,7 +436,11 @@
 
  
 
- ****** A Super Hero's Slut Ch. 03 ****** byJust_Plain_Bob© Peter checked out the room numbers as he walked down the hall. When he got to room 914 he wondered if the desk clerk had gotten it right. He knew that he was reasonably close to the right place because his Spider Sense was tingling enough to tell him that Kraven was close by and doing something that he shouldn't be. But room 914 didn't look like an office; it looked like the door to any other hotel room. He tried the door and was surprised when it opened under his hand. 
+ 
+
+===
+
+Peter checked out the room numbers as he walked down the hall. When he got to room 914 he wondered if the desk clerk had gotten it right. He knew that he was reasonably close to the right place because his Spider Sense was tingling enough to tell him that Kraven was close by and doing something that he shouldn't be. But room 914 didn't look like an office; it looked like the door to any other hotel room. He tried the door and was surprised when it opened under his hand. 
 
  He walked into a room that was obviously a hotel room converted to an office. It was the same as any other hotel room Peter had been in except where the bed should be there was a desk and a small table with four chairs. A young man was sitting behind the desk and he looked up as Peter came into the room. 
 
@@ -514,7 +532,11 @@
 
  
 
- ****** A Super Hero's Slut Ch. 04 ****** byJust_Plain_Bob© While Peter waited for Kraven to return with the brochure of the Kraven The Hunter Wild Life Foundation he wondered if maybe he wasn't over-reacting. Kraven's aims were good ones and the man did sound sincere. If it wasn't for the Spider Sense he could have bought into what Kraven had said. On the one hand his Spider Sense had never been wrong, but that wasn't to say that there couldn't be a first time. What if the man was sincere and prison had turned him around? What if the Spider Sense was just some residual from their last encounter. Should he give the man the benefit of the doubt? He really didn't have an answer to that question. 
+ 
+
+===
+
+While Peter waited for Kraven to return with the brochure of the Kraven The Hunter Wild Life Foundation he wondered if maybe he wasn't over-reacting. Kraven's aims were good ones and the man did sound sincere. If it wasn't for the Spider Sense he could have bought into what Kraven had said. On the one hand his Spider Sense had never been wrong, but that wasn't to say that there couldn't be a first time. What if the man was sincere and prison had turned him around? What if the Spider Sense was just some residual from their last encounter. Should he give the man the benefit of the doubt? He really didn't have an answer to that question. 
 
  Had Peter the x-ray vision of Superman and could he have seen through the two walls that currently separated him from Kraven he would have had no problem answering that question. Kraven had the legs of Peter's wife up on his shoulders and he was ramming his cock into her accommodating cunt. Andy and Joe were kneeling on the bed on either side of her head and Mary Jane was alternating between their cocks. MJ felt Andy's cock start to throb and she locked her lips around it and reached a hand up to caress his balls and when he spurted it hit the back of her throat and she swallowed it down. She held him in her mouth until he was soft and then she let his dick fall from her lips and turned her head to take on Joe'' cock. 
 
@@ -662,7 +684,11 @@
 
  
 
- ****** A Super Hero's Slut Ch. 05 ****** byJust_Plain_Bob© At two in the morning Peter left a softly snoring Mary Jane and went out for his nightly swing around the city. It was a pretty slow night considering. He interrupted a jewelry story robbery; two guys had broken the front window and were throwing the display merchandise in a bag when he webbed them and left them for the cops. 
+ 
+
+===
+
+At two in the morning Peter left a softly snoring Mary Jane and went out for his nightly swing around the city. It was a pretty slow night considering. He interrupted a jewelry story robbery; two guys had broken the front window and were throwing the display merchandise in a bag when he webbed them and left them for the cops. 
 
  He left one man swinging upside down from a lamppost after catching the guy trying to boost a radio from a parked car. 
 
@@ -858,7 +884,11 @@
 
  
 
- ****** A Super Hero's Slut Ch. 06 ****** byJust_Plain_Bob© Mary Jane stood in the middle of the sound stage dressed in some ones idea of what a woman would wear on an African safari. Khaki shirt and shorts with way too many pockets and a pith helmet. Thick socks and hiking boots completed the outfit. 
+ 
+
+===
+
+Mary Jane stood in the middle of the sound stage dressed in some ones idea of what a woman would wear on an African safari. Khaki shirt and shorts with way too many pockets and a pith helmet. Thick socks and hiking boots completed the outfit. 
 
  Several men, similarly attired, were lying on the floor with fake blood smeared on them. A mousy little man who had been introduced to her as the director made a motion and the AD (assistant director) shouted, "Places everyone." There was some stirring and then everyone was still. 
 

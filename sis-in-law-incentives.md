@@ -1,8 +1,14 @@
+Sis-in-law Incentives Ch. 01
+============================
 #1 
 
  
 
- ****** Sis-in-law Incentives Ch. 01 ****** byTx_Tall_Tales© ====================== 
+ 
+
+===
+
+====================== 
 
  Jenny and Alex find ways to incentivize each other. 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 01 ****** byTx_Tall_Tales© "On your stomach." She told me, putting some cream in her hand. 
+ 
+
+===
+
+"On your stomach." She told me, putting some cream in her hand. 
 
  I did as she said, and she tugged my towel loose, spreading it loosely across my rear. "Now relax," she commanded as she straddled my body, rubbing the ointment into my shoulders, arms and back. She followed the rubbing with a pretty good massage, and the warmth of the ointment was starting to really get strong, when she moved from my lower back to my legs. 
 
@@ -342,7 +352,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 02 ****** byTx_Tall_Tales© 2: "Handy" sis-in-law 
+ 
+
+===
+
+2: "Handy" sis-in-law 
 
  =================================== 
 
@@ -612,7 +626,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 02 ****** byTx_Tall_Tales© "I can't believe that for six months this incredible cock has been so close, while I was upstairs, going to sleep frustrated, rubbing myself off." She closed her eyes and leaned her face against my hard-on. Her cheek pressed against it, she rubbed up and down, like a kitten, begging to be stroked. 
+ 
+
+===
+
+"I can't believe that for six months this incredible cock has been so close, while I was upstairs, going to sleep frustrated, rubbing myself off." She closed her eyes and leaned her face against my hard-on. Her cheek pressed against it, she rubbed up and down, like a kitten, begging to be stroked. 
 
  "Can I, just for a second, hold it in my mouth?" She asked, opening her mouth just above the head. I grunted my assent. She lowered her mouth, my cock barely brushing against the edge of her lips. The head had disappeared from view, when she pulled back abruptly. 
 
@@ -666,7 +684,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 03 ****** byTx_Tall_Tales© Chapter 03: An Oral Contract 
+ 
+
+===
+
+Chapter 03: An Oral Contract 
 
  =========================== 
 
@@ -918,7 +940,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 03 ****** byTx_Tall_Tales© Grasping the shaft of my cock in her hand, she slowly started pumping my cock into her face. Up and down my cock, her face went, meeting her hand coming from the opposite direction. Her tongue danced over my cock head as she sucked me, teasing where I was most sensitive. After a couple of minutes of this pumping she pulled away. She stroked me with long firm pulls, while watching my cock, and occasionally licking and sucking the head. 
+ 
+
+===
+
+Grasping the shaft of my cock in her hand, she slowly started pumping my cock into her face. Up and down my cock, her face went, meeting her hand coming from the opposite direction. Her tongue danced over my cock head as she sucked me, teasing where I was most sensitive. After a couple of minutes of this pumping she pulled away. She stroked me with long firm pulls, while watching my cock, and occasionally licking and sucking the head. 
 
  "Where do you want to come? On my face? In my mouth? On my tits? What do you want?" She asked me, sliding her hand up and down my shaft the whole while. 
 
@@ -1004,7 +1030,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 04 ****** byTx_Tall_Tales© Chapter 04: Carrot and the Stick 
+ 
+
+===
+
+Chapter 04: Carrot and the Stick 
 
  =========================== 
 
@@ -1248,7 +1278,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 05 ****** byTx_Tall_Tales© Ch. 05: Hot Tub Interlude 
+ 
+
+===
+
+Ch. 05: Hot Tub Interlude 
 
  =========================== 
 
@@ -1446,7 +1480,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 05 ****** byTx_Tall_Tales© "Oh, I need to use the powder room too," she murmured, climbing out of the hot- tub and almost running for the house. 
+ 
+
+===
+
+"Oh, I need to use the powder room too," she murmured, climbing out of the hot- tub and almost running for the house. 
 
  I turned to look for Dawn, and she was sidling over next to me, until her body was pressed against mine. 
 
@@ -1572,7 +1610,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 06 ****** byTx_Tall_Tales© Ch 06: Payments and Play-acting 
+ 
+
+===
+
+Ch 06: Payments and Play-acting 
 
  
 
@@ -1860,7 +1902,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 06 ****** byTx_Tall_Tales© "Oh, God, it was real," she said, dreamily. 
+ 
+
+===
+
+"Oh, God, it was real," she said, dreamily. 
 
  "Amazingly real," I told her. "You know I fucked you last night," I teased. 
 
@@ -1882,7 +1928,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 07 ****** byTx_Tall_Tales© Chapter 07: Payback's a Bitch 
+ 
+
+===
+
+Chapter 07: Payback's a Bitch 
 
  =========================== 
 
@@ -2106,7 +2156,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 07 ****** byTx_Tall_Tales© She didn't say anything, she just licked me several times before taking me into her mouth. She sucked me for a minute or so, then got up. "That's hard on the knees," she admitted, then she guided me back to the bed, and when my legs bumped against the end, she gave a little push, so I sat back, then laid out fully, my cock sticking straight up. 
+ 
+
+===
+
+She didn't say anything, she just licked me several times before taking me into her mouth. She sucked me for a minute or so, then got up. "That's hard on the knees," she admitted, then she guided me back to the bed, and when my legs bumped against the end, she gave a little push, so I sat back, then laid out fully, my cock sticking straight up. 
 
  She climbed on after me, opposite the side Dawn was on, and kneeled down perpendicular to me. Her face was back in my lap and she was going to town. I was enjoying every minute of the blow-job with an audience, and then watched in wonder as Dawn put her drink away, and slid down to put her face just inches away from Holly's. 
 
@@ -2184,7 +2238,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 08 ****** byTx_Tall_Tales© Chapter 08: The Calm 
+ 
+
+===
+
+Chapter 08: The Calm 
 
  =========================== 
 
@@ -2466,7 +2524,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 08 ****** byTx_Tall_Tales© "Too bad. I know a couple of guys who would have loved to play along. And they really know what they're doing when it comes to blow-jobs." This girl was just dropping surprises on me left and right. We'd talked several times, but not once did it get sexual. This was intense. 
+ 
+
+===
+
+"Too bad. I know a couple of guys who would have loved to play along. And they really know what they're doing when it comes to blow-jobs." This girl was just dropping surprises on me left and right. We'd talked several times, but not once did it get sexual. This was intense. 
 
  When I got to the first mouth going down on me, she piped in again. "How long before the first one had to go for it? How long did they tease?" 
 
@@ -2552,7 +2614,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 09 ****** byTx_Tall_Tales© Hot tub for five, no holes barred. Plus a late surprise 
+ 
+
+===
+
+Hot tub for five, no holes barred. Plus a late surprise 
 
  ====================== 
 
@@ -2808,7 +2874,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 09 ****** byTx_Tall_Tales© As for me, I was experiencing a bit of deja-vu, while Holly and Dawn took turns sucking and licking me. I noticed Holly looking over, several times to see what Beth and her sister were up to. 
+ 
+
+===
+
+As for me, I was experiencing a bit of deja-vu, while Holly and Dawn took turns sucking and licking me. I noticed Holly looking over, several times to see what Beth and her sister were up to. 
 
  "Switch," I heard her announce, and was hoping for just a few seconds respite. This was too exciting too endure for too much longer. 
 
@@ -2938,7 +3008,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 10 ****** byTx_Tall_Tales© Chapter 10: No Rest for the Weary 
+ 
+
+===
+
+Chapter 10: No Rest for the Weary 
 
  ====================== 
 
@@ -3166,7 +3240,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 10 ****** byTx_Tall_Tales© "She looks good on you," Holly teased. 
+ 
+
+===
+
+"She looks good on you," Holly teased. 
 
  "Yes she does," I laughed. 
 
@@ -3248,7 +3326,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 11 ****** byTx_Tall_Tales© Ch. 11: The Aftermath 
+ 
+
+===
+
+Ch. 11: The Aftermath 
 
  
 
@@ -3400,7 +3482,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 12 ****** byTx_Tall_Tales© Ch. 12: Sisters, Sisters 
+ 
+
+===
+
+Ch. 12: Sisters, Sisters 
 
  
 
@@ -3562,7 +3648,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 12 ****** byTx_Tall_Tales© "I don't want to know." I told her, climbing off the bed and settling down next to her. "I don't care. Would you do it today?" 
+ 
+
+===
+
+"I don't want to know." I told her, climbing off the bed and settling down next to her. "I don't care. Would you do it today?" 
 
  "God no! I'd do anything to take it back." She said while her shaking hands slowly worked their magic on her sister's hair. 
 
@@ -3782,7 +3872,11 @@
 
  
 
- ****** Sis-in-law Incentives Ch. 12 ****** byTx_Tall_Tales© JT was a co-owner of a successful consulting business, and every year, the owners took a 'working' vacation down to Mexico, on the company payroll. They spent an hour talking work plans and going over the company financials from the previous year, and spent the next five days luxuriating in a 5 star all- inclusive resort. Dan was an original investor. 
+ 
+
+===
+
+JT was a co-owner of a successful consulting business, and every year, the owners took a 'working' vacation down to Mexico, on the company payroll. They spent an hour talking work plans and going over the company financials from the previous year, and spent the next five days luxuriating in a 5 star all- inclusive resort. Dan was an original investor. 
 
  "Damn straight I am, what would it cost?" I asked. 
 

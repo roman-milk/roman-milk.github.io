@@ -1,8 +1,14 @@
+Poolboy Benefits
+================
 #1 
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© ======================== 
+ 
+
+===
+
+======================== 
 
  She's desperate for help. The only question is how desperate? 
 
@@ -248,7 +254,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© "Sure. There's one in the garage." 
+ 
+
+===
+
+"Sure. There's one in the garage." 
 
  "I'm going to grab my sump pump to start the draining. Plug in the extension cord, and bring it here." 
 
@@ -534,7 +544,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© * * * 
+ 
+
+===
+
+* * * 
 
  I was waist deep in horrible green slimy water, the pump working diligently to drain the pool, when I heard her make her appearance the next morning. 
 
@@ -862,7 +876,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© "Ow, please Alex, that's enough, it stings," she whined. 
+ 
+
+===
+
+"Ow, please Alex, that's enough, it stings," she whined. 
 
  "Its supposed to, naughty girl. How else will you remember to do what you're supposed to. Bad girls need guidance." 
 
@@ -1144,7 +1162,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© I lifted her chin and kissed her. "Best day of my life, Amy. Without compare." 
+ 
+
+===
+
+I lifted her chin and kissed her. "Best day of my life, Amy. Without compare." 
 
  "Good. Let's see if we can't make tomorrow even better." 
 
@@ -1488,7 +1510,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© I was concentrating on that sweet ass of hers, but didn't want to overdo it. I slid the bottoms back up and went to work on her legs. "I like that one. Another?" 
+ 
+
+===
+
+I was concentrating on that sweet ass of hers, but didn't want to overdo it. I slid the bottoms back up and went to work on her legs. "I like that one. Another?" 
 
  "I'm selfish, impatient and a little insecure. I make mistakes, I am out of control, and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best. Marilyn Monroe." 
 
@@ -1736,7 +1762,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© "You can. It works for me. I have a bigger list, but this is the one I can carry in my pocket and reflect on." 
+ 
+
+===
+
+"You can. It works for me. I have a bigger list, but this is the one I can carry in my pocket and reflect on." 
 
  She lowered the list, rubbing her fingers through my hair. "You do that so well, Alex," she said softly. 
 
@@ -2060,7 +2090,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© She started to raise her hips up, and I grabbed her ass cheeks and pulled her back down hard. "No." 
+ 
+
+===
+
+She started to raise her hips up, and I grabbed her ass cheeks and pulled her back down hard. "No." 
 
  "Just a little, baby?" she pleaded. 
 
@@ -2236,7 +2270,11 @@
 
  
 
- ****** Poolboy Benefits ****** byTx_Tall_Tales© "Better?" 
+ 
+
+===
+
+"Better?" 
 
  "Perfect. Every damn last thing about you." 
 

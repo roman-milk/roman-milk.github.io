@@ -1,8 +1,14 @@
+Stud Fees
+=========
 #1 
 
  
 
- ****** Stud Fees ****** bygeronimo_appleby© How did it all go wrong? I'm writing this in a London hotel room. It's Sunday 6 March 2005 and I'm going to write down the sorry tale of what's been happening to me over the last year or so. Some of you may be sympathetic, others won't give a damn, but I'm writing this for myself anyway. 
+ 
+
+===
+
+How did it all go wrong? I'm writing this in a London hotel room. It's Sunday 6 March 2005 and I'm going to write down the sorry tale of what's been happening to me over the last year or so. Some of you may be sympathetic, others won't give a damn, but I'm writing this for myself anyway. 
 
  Once I've finished I'll read it back to myself and then decide what I'm going to do. Of course there are a number of options open to me, but I'll make my decision later. 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Stud Fees ****** bygeronimo_appleby© Alex entered the en suite and I looked at my blonde wife as she waited nervously. 
+ 
+
+===
+
+Alex entered the en suite and I looked at my blonde wife as she waited nervously. 
 
  'Are you Ok, baby?' I asked quietly. My stomach churned with what was about to happen. I couldn't believe I was actually taking an active part in this event. Allowing another man to stick his hard prick into my wife, and not just that physical act of intimacy. I was actually hoping that his spunk would swell my wife with child. What a bizarre situation to find myself in. 
 

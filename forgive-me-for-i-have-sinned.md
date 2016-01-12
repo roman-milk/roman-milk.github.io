@@ -1,8 +1,14 @@
+Forgive Me For I Have Sinned....
+================================
 #1 
 
  
 
- ****** Forgive Me For I Have Sinned.... ****** bysilkstockingslover© NOTE: 
+ 
+
+===
+
+NOTE: 
 
  This story was written as a fantasy for a married couple expecting their first child. If you are offended by submissive, but consensual, sex with a pregnant woman please don't read on. 
 
@@ -292,7 +298,11 @@
 
  
 
- ****** Forgive Me For I Have Sinned.... ****** bysilkstockingslover© Maria called, "Bring the pizza guy in here." 
+ 
+
+===
+
+Maria called, "Bring the pizza guy in here." 
 
  I brought him in, oblivious to her devious plan. Maria continued, "Wow, you are a pretty hot delivery boy." 
 

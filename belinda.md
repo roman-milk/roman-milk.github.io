@@ -1,8 +1,14 @@
+Belinda
+=======
 #1 
 
  
 
- ****** Belinda ****** byJust_Plain_Bob© I don't even remember what it was that triggered my suspicions, but one day I was a happily content husband and the next I was I was watching everything that Belinda did. I was sure that she was having an affair. I was checking her email on the house computer, looking in her purse when she wasn't around, checking out the glove box and the trunk of her car and even that cliché of cliché's - checking out her clothes in the laundry hamper. I found nothing. 
+ 
+
+===
+
+I don't even remember what it was that triggered my suspicions, but one day I was a happily content husband and the next I was I was watching everything that Belinda did. I was sure that she was having an affair. I was checking her email on the house computer, looking in her purse when she wasn't around, checking out the glove box and the trunk of her car and even that cliché of cliché's - checking out her clothes in the laundry hamper. I found nothing. 
 
  But even after finding absolutely no evidence that she was betraying me there was something in the back of my mind that told me that Belinda was being untrue. There was an upside to my suspicions; I made love to Belinda more often just to see if I could find her unaccountably wet or loose. The more I made love to her the more she wanted to make love and our sex life did a 180 degree turn and went from twice a week to four and five times a week. As enjoyable as the increased amount of sex was it did not change the fact that I just knew that Belinda was cheating on me and I wanted proof before I accused her of it. 
 

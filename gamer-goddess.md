@@ -1,8 +1,14 @@
+Gamer Goddess Ch. 01
+====================
 #1 
 
  
 
- ****** Gamer Goddess Ch. 01 ****** byTx_Tall_Tales© Gamer Goddess Ch.01 
+ 
+
+===
+
+Gamer Goddess Ch.01 
 
  by Tx Tall Tales (c) 
 
@@ -542,7 +548,11 @@
 
  
 
- ****** Gamer Goddess Ch. 01 ****** byTx_Tall_Tales© 
+ 
+
+===
+
+
 
  
 
@@ -1148,7 +1158,11 @@
 
  
 
- ****** Gamer Goddess Ch. 01 ****** byTx_Tall_Tales© "You trying to embarrass me again? Looking for a show maybe?" 
+ 
+
+===
+
+"You trying to embarrass me again? Looking for a show maybe?" 
 
  I chuckled. "You know me by now. I'll never turn down the show, but it's not required. No quid-pro-quo. I'm happy to gear you up. Playing with you is more than pay enough." 
 
@@ -1596,7 +1610,11 @@
 
  
 
- ****** Gamer Goddess Ch. 01 ****** byTx_Tall_Tales© "Bullshit. You are anything but frigid. You are so fucking hot and sexy, you're making my blood boil." 
+ 
+
+===
+
+"Bullshit. You are anything but frigid. You are so fucking hot and sexy, you're making my blood boil." 
 
  "I hate men," she sobbed. 
 
@@ -2004,7 +2022,11 @@
 
  
 
- ****** Gamer Goddess Ch. 01 ****** byTx_Tall_Tales© "You wanted to see me. Down there. You even seemed to like it." 
+ 
+
+===
+
+"You wanted to see me. Down there. You even seemed to like it." 
 
  She blushed. "I did like it. Fuck if I know how. It wasn't real. My boyfriend getting excited over me, like a normal couple. I liked it. I'm scared to death it won't transfer to real life. I know it can't." 
 
@@ -2122,7 +2144,11 @@
 
  
 
- ****** Gamer Goddess Ch. 02 ****** byTx_Tall_Tales© ============================== 
+ 
+
+===
+
+============================== 
 
  Gamer Goddess vs the Real World 
 
@@ -2438,7 +2464,11 @@
 
  
 
- ****** Gamer Goddess Ch. 02 ****** byTx_Tall_Tales© We walked up and through the outside door. In the vestibule a man opened the door for us, letting us in, and the noise of the festivities out. 
+ 
+
+===
+
+We walked up and through the outside door. In the vestibule a man opened the door for us, letting us in, and the noise of the festivities out. 
 
  There must have been close to 100 people in there, and it was pretty crowded near the door. I felt Sheri's hand grip my arm tightly. "Dan," I said. 
 
@@ -2758,7 +2788,11 @@
 
  
 
- ****** Gamer Goddess Ch. 02 ****** byTx_Tall_Tales© "Sheri?" I asked. 
+ 
+
+===
+
+"Sheri?" I asked. 
 
  "She'll be alright," Dan said softly. I could see he was hurting, and I don't mean physically. 
 
@@ -3108,7 +3142,11 @@
 
  
 
- ****** Gamer Goddess Ch. 02 ****** byTx_Tall_Tales© "Do you think my ornery Devil would like to give it a try?" 
+ 
+
+===
+
+"Do you think my ornery Devil would like to give it a try?" 
 
  "Trust me, there's not much that your personal Devil wouldn't try for you. I'm not saying she'd want to do it more than once, but she'll give anything a try for you. Anything." 
 
@@ -3326,7 +3364,11 @@
 
  
 
- ****** Gamer Goddess Ch. 03 ****** byTx_Tall_Tales© ============================== 
+ 
+
+===
+
+============================== 
 
  Gamer Goddess Surrenders 
 
@@ -3578,7 +3620,11 @@
 
  
 
- ****** Gamer Goddess Ch. 03 ****** byTx_Tall_Tales© "Soon," I gasped. 
+ 
+
+===
+
+"Soon," I gasped. 
 
  Sandy kept going, and before much longer I was shooting in her mouth. She let me finish there, swallowing most, but letting a little drip out over the head and shaft. 
 
@@ -3894,7 +3940,11 @@
 
  
 
- ****** Gamer Goddess Ch. 03 ****** byTx_Tall_Tales© "Who is it? I'll kill the bastard," I growled, taking her in my arms and swinging her around. 
+ 
+
+===
+
+"Who is it? I'll kill the bastard," I growled, taking her in my arms and swinging her around. 
 
  She kissed me, blushing. "Do you really love me?" she asked. 
 
@@ -4178,7 +4228,11 @@
 
  
 
- ****** Gamer Goddess Ch. 03 ****** byTx_Tall_Tales© I held her in my arms, while Sandy soothed her. "No, you're forcing it, baby. It has to be good. You need to be ready. Accept him. Welcome him inside you. Not suffer through it." 
+ 
+
+===
+
+I held her in my arms, while Sandy soothed her. "No, you're forcing it, baby. It has to be good. You need to be ready. Accept him. Welcome him inside you. Not suffer through it." 
 
  Sheri sobbed. "Why?" she moaned. 
 
@@ -4538,7 +4592,11 @@
 
  
 
- ****** Gamer Goddess Ch. 03 ****** byTx_Tall_Tales© Sandy laughed, rising up to a sitting position. "Nobody deserves it more." She turned to Sheri. "Share the ride?" 
+ 
+
+===
+
+Sandy laughed, rising up to a sitting position. "Nobody deserves it more." She turned to Sheri. "Share the ride?" 
 
  Sheri looked nervous. "You think I can?" 
 
@@ -4808,7 +4866,11 @@
 
  
 
- ****** Gamer Goddess Ch. 03 ****** byTx_Tall_Tales© She grinned. "Remind me never to get on your bad side." 
+ 
+
+===
+
+She grinned. "Remind me never to get on your bad side." 
 
  "She wasn't supposed to know. It wasn't about that." 
 

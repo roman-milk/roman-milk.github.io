@@ -1,8 +1,14 @@
+Susan Clarke
+============
 #1 
 
  
 
- ****** Susan Clarke ****** byJust_Plain_Bob© Susan Clarke was being fucked! Susan Clarke, wife and mother was being fucked. Susan Clarke, member of the New Hope Baptist Church choir, Sunday school teacher and Girl Scout Troop leader was being fucked and Susan Clarke had no idea who she was being fucked by. 
+ 
+
+===
+
+Susan Clarke was being fucked! Susan Clarke, wife and mother was being fucked. Susan Clarke, member of the New Hope Baptist Church choir, Sunday school teacher and Girl Scout Troop leader was being fucked and Susan Clarke had no idea who she was being fucked by. 
 
  She knew it had to be one of the young men visiting in her home, but who? She could eliminate David. He was the one who started the whole thing, but he had a massive cock while the one in her now was much smaller. Much smaller, but still capable of pushing her toward the climax that was fast approaching. She pushed her hips up at her lover and even as she felt the flood of pleasure wash over her she felt her unknown lover's sperm shoot deep into her. 
 

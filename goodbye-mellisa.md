@@ -1,8 +1,14 @@
+Goodbye Mellisa
+===============
 #1 
 
  
 
- ****** Goodbye Mellisa ****** byJust_Plain_Bob© I approached the counter and asked the clerk if there were any messages for me and he checked the box for room 305, took out a slip of paper and handed it to me. As I was reading it two men who had been sitting in the lobby when I walked in got up and headed for me. 
+ 
+
+===
+
+I approached the counter and asked the clerk if there were any messages for me and he checked the box for room 305, took out a slip of paper and handed it to me. As I was reading it two men who had been sitting in the lobby when I walked in got up and headed for me. 
 
  I read the note. It simply asked me to call Detective Howard Miller and gave me a phone number. The two men walked up, one to either side of me, and the one on my right asked me if I was Frank Thomas. 
 
@@ -294,7 +300,11 @@
 
  
 
- ****** Goodbye Mellisa ****** byJust_Plain_Bob© At home Melissa was loving and affectionate and she never denied me in the bedroom. In fact, at least half the time Melissa was the instigator. I had no idea of why she was cheating, but I didn't care to know either. All I knew is that the marriage would continue while I made plans. 
+ 
+
+===
+
+At home Melissa was loving and affectionate and she never denied me in the bedroom. In fact, at least half the time Melissa was the instigator. I had no idea of why she was cheating, but I didn't care to know either. All I knew is that the marriage would continue while I made plans. 
 
  I periodically checked on Melissa over the next several years and she had at least four more lovers. It could have been more, but if so they took place during periods when I wasn't checking on her. I would sit on that information until the time was right. 
 

@@ -1,8 +1,14 @@
+The Cancelled Flight
+====================
 #1 
 
  
 
- ****** The Cancelled Flight ****** byJust_Plain_Bob© It's eight-thirty p.m., the outside temperature is sixteen degrees, there is a foot of snow on the ground and I'm in my bare feet running for my life. All because I like to kid around at work. That's right! I was just kidding around and here I am hoofing down the street with my shirt and coat in one hand and my shoes in the other while behind me a voice is shouting, "I'm going to kill you, you little cocksucker." 
+ 
+
+===
+
+It's eight-thirty p.m., the outside temperature is sixteen degrees, there is a foot of snow on the ground and I'm in my bare feet running for my life. All because I like to kid around at work. That's right! I was just kidding around and here I am hoofing down the street with my shirt and coat in one hand and my shoes in the other while behind me a voice is shouting, "I'm going to kill you, you little cocksucker." 
 
  In twenty years, if I'm lucky and still alive, I'll probably look back on this and have a good chuckle. Yeah! Right! 
 

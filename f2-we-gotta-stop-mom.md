@@ -1,8 +1,14 @@
+F2: We Gotta Stop Mom!
+======================
 #1 
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© FAWC 2: "We Gotta Stop Mom!" 
+ 
+
+===
+
+FAWC 2: "We Gotta Stop Mom!" 
 
  (Author's note: This story is a submission to the second Friendly Anonymous Writing Challenge (FAWC). The true author of this story is kept anonymous, but will be revealed on August 16th, 2013, in the comments section following this story. Each story in this challenge is centered around a random determination of four "mystery ingredients." There are no prizes given in this challenge; this is simply a friendly competition.) 
 
@@ -340,7 +346,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© "Not so big," I said. "The average is around six, right? So I'm only a couple of inches longer." 
+ 
+
+===
+
+"Not so big," I said. "The average is around six, right? So I'm only a couple of inches longer." 
 
  "And twice as thick." She released the tape, stroking my cock firmly once, from base to tip. "Messy boy," she teased, as I started to leak from the end. 
 
@@ -726,7 +736,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© "He's given her two raises. He's paying her for almost full-time work, when she really puts in 4-5 hours a day. Promising her one of the jobs when her co- worker retires in the next six months." 
+ 
+
+===
+
+"He's given her two raises. He's paying her for almost full-time work, when she really puts in 4-5 hours a day. Promising her one of the jobs when her co- worker retires in the next six months." 
 
  "So she's a whore. He pays her, she screws around." 
 
@@ -1032,7 +1046,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© So damn sexy. The first pussy I'd seen, and the sight, the smell, the feel drove all reason out of my head. I touched her tentatively, wanting to see what her flesh felt like, opening her a little, tugging on the flaps of skin. 
+ 
+
+===
+
+So damn sexy. The first pussy I'd seen, and the sight, the smell, the feel drove all reason out of my head. I touched her tentatively, wanting to see what her flesh felt like, opening her a little, tugging on the flaps of skin. 
 
  "Is... is it your first time, bro?" 
 
@@ -1330,7 +1348,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© I have no idea how long we were at it. She was sitting in my lap, her shirt gone, her bra undone, my hands inside the loose holder, cupping her breasts, gently teasing her nipples. Her hips were making small circles, grinding against my aching cock. She was driving me crazy. I reached down, grabbed her bottom, and pulled her against me, humping against her. Her mouth descended on mine with a renewed passion, and she whimpered softly, moaning into my lips. I could feel her legs trembling, and her mouth went slack. She groaned, her hips twitching manically, rubbing against my shaft. I grunted, squeezing her ass fiercely, as I made a mess in my pants. She tore her lips off mine, lowered her head to my shoulder, biting down and stifling a scream. 
+ 
+
+===
+
+I have no idea how long we were at it. She was sitting in my lap, her shirt gone, her bra undone, my hands inside the loose holder, cupping her breasts, gently teasing her nipples. Her hips were making small circles, grinding against my aching cock. She was driving me crazy. I reached down, grabbed her bottom, and pulled her against me, humping against her. Her mouth descended on mine with a renewed passion, and she whimpered softly, moaning into my lips. I could feel her legs trembling, and her mouth went slack. She groaned, her hips twitching manically, rubbing against my shaft. I grunted, squeezing her ass fiercely, as I made a mess in my pants. She tore her lips off mine, lowered her head to my shoulder, biting down and stifling a scream. 
 
  I held her softly, waiting for her teeth to release me. She kissed my shoulder, my neck, my cheek, my lips. She gave me a naughty little smile. "Now that's how you kiss." 
 
@@ -1680,7 +1702,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© Mom sighed, snuggling against me. "This is nice," she murmured. 
+ 
+
+===
+
+Mom sighed, snuggling against me. "This is nice," she murmured. 
 
  I scooted down and kissed her. "Bret..." 
 
@@ -2000,7 +2026,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© Mom glanced over at Dad nervously. "I was just dropping off something for an out-of-town client. I needed to get home." 
+ 
+
+===
+
+Mom glanced over at Dad nervously. "I was just dropping off something for an out-of-town client. I needed to get home." 
 
  Dad was reading some magazine. "Your meeting went well?" he asked. "Seems like you got home early." 
 
@@ -2296,7 +2326,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© I felt a little bad about it, and stood, rebuttoning my pants. I took her in my arms, and hugged her. "I couldn't let you do it Mom. I couldn't. Especially not with him." 
+ 
+
+===
+
+I felt a little bad about it, and stood, rebuttoning my pants. I took her in my arms, and hugged her. "I couldn't let you do it Mom. I couldn't. Especially not with him." 
 
  She cried harder, and I drew her down to the couch, holding her while she sobbed. 
 
@@ -2562,7 +2596,11 @@
 
  
 
- ****** F2: We Gotta Stop Mom! ****** byTx_Tall_Tales© Mom sucked me, and I knew I'd never get enough of that. Incredible. 
+ 
+
+===
+
+Mom sucked me, and I knew I'd never get enough of that. Incredible. 
 
  "God, Bret! You're bleeding all over the place!" 
 

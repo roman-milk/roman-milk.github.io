@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Mandy
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Mandy ****** byJust_Plain_Bob© We were sitting at the table and I was pulling on a longneck while she was sipping her vodka tonic and watching the dance the floor. Actually she wasn't watching the dance floor as much as she was watching one of the dancers. He was a lean, tall man of about thirty and he had become Amanda's favorite dance partner since I broke my foot. There was a mutual attraction between the two of them and everybody at the Silver Palace, including me, knew that they would eventually end up in bed together. Well, almost everybody. Amanda didn't know it, and while Toby might have hoped for it he certainly never expected that it would happen. 
+ 
+
+===
+
+We were sitting at the table and I was pulling on a longneck while she was sipping her vodka tonic and watching the dance the floor. Actually she wasn't watching the dance floor as much as she was watching one of the dancers. He was a lean, tall man of about thirty and he had become Amanda's favorite dance partner since I broke my foot. There was a mutual attraction between the two of them and everybody at the Silver Palace, including me, knew that they would eventually end up in bed together. Well, almost everybody. Amanda didn't know it, and while Toby might have hoped for it he certainly never expected that it would happen. 
 
  Amanda and I had been coming to the Silver Palace at least twice a month for the past fifteen years. Mandy loved to dance and while I wasn't all that keen on it I was willing to do whatever it took to keep her happy. Mandy came along late in my life and I was still amazed that the raven haired beauty had wanted me enough to chase me until I finally caved in and asked her to marry me. Everyone, and I do mean everyone, had warned us not to get married and I knew that they were right, but Mandy owned me by then and I would do anything that she wanted. I warned her several times myself that the twenty years between us in age was going to be a major problem later on, but she said, "Bullshit! You either love me or you don't. If you love me now you will still love me later and that's all that counts." 
 

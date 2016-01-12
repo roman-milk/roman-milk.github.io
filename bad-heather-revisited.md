@@ -1,8 +1,14 @@
+Bad Heather Revisited Ch. 01
+============================
 #1 
 
  
 
- ****** Bad Heather Revisited Ch. 01 ****** byTx_Tall_Tales© =================== 
+ 
+
+===
+
+=================== 
 
  Heather has been bad, very bad. Can she turn over a new leaf? 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 01 ****** byTx_Tall_Tales© "I've always thought she was the best of your friends, Heather." What he really thought about the little waif was not something he'd willingly share with his daughter. 
+ 
+
+===
+
+"I've always thought she was the best of your friends, Heather." What he really thought about the little waif was not something he'd willingly share with his daughter. 
 
  Heather got up and cleared the table, then returned and stood beside her father, leaning back against the table. 
 
@@ -486,7 +496,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 01 ****** byTx_Tall_Tales© "It's true, baby. Just a little more than a week from now. Think about it." 
+ 
+
+===
+
+"It's true, baby. Just a little more than a week from now. Think about it." 
 
  "I miss you so much," he said. 
 
@@ -804,7 +818,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 01 ****** byTx_Tall_Tales© Heather approached her father, and put her arms around his neck. "Please don't take it away, Daddy. I promise I'll do better. Please." 
+ 
+
+===
+
+Heather approached her father, and put her arms around his neck. "Please don't take it away, Daddy. I promise I'll do better. Please." 
 
  "I can't let this go unpunished," Harold told her. 
 
@@ -904,7 +922,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 02 ****** byTx_Tall_Tales© =================== 
+ 
+
+===
+
+=================== 
 
  Heather has been bad, and she's being punished. So is her friend. 
 
@@ -1202,7 +1224,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 02 ****** byTx_Tall_Tales© Lynn stomped her foot. "Mr. Payne, I'm going inside. I demand you give me my punishment." 
+ 
+
+===
+
+Lynn stomped her foot. "Mr. Payne, I'm going inside. I demand you give me my punishment." 
 
  Harold and Heather just looked at her, as she turned and walked inside. 
 
@@ -1516,7 +1542,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 02 ****** byTx_Tall_Tales© Lynn stopped in her tracks. "It was only fifteen minutes. Really, we're sorry." 
+ 
+
+===
+
+Lynn stopped in her tracks. "It was only fifteen minutes. Really, we're sorry." 
 
  Heather chimed in, "And we were late getting out, so it really shouldn't count." 
 
@@ -1796,7 +1826,11 @@
 
  
 
- ****** Bad Heather Revisited Ch. 02 ****** byTx_Tall_Tales© "It wasn't so bad. We kind of worked things out, you know?" 
+ 
+
+===
+
+"It wasn't so bad. We kind of worked things out, you know?" 
 
  "Whatever you did, it was wonderful. I kind of expected to come home to World War III, not this haven." 
 

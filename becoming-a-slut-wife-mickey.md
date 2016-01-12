@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Mickey
+============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Mickey ****** byJust_Plain_Bob© Everything has to start somewhere and that includes becoming a slut. I was thirty-four years old and had only had one man in my life. I was a virgin when my husband carried me to our marriage bed and in the eleven years we had been married he was the only man to ever touch me and in the space of forty-eight hours he went from the only one to just one of many. 
+ 
+
+===
+
+Everything has to start somewhere and that includes becoming a slut. I was thirty-four years old and had only had one man in my life. I was a virgin when my husband carried me to our marriage bed and in the eleven years we had been married he was the only man to ever touch me and in the space of forty-eight hours he went from the only one to just one of many. 
 
  ++++++++++++++++++++++ 
 
@@ -202,7 +208,11 @@
 
  
 
- ****** Becoming A Slut Wife: Mickey ****** byJust_Plain_Bob© I was in a boutique looking at some bras and panties and one young man walking through stopped long enough to say: 
+ 
+
+===
+
+I was in a boutique looking at some bras and panties and one young man walking through stopped long enough to say: 
 
  "The black lace ones would look great on you," and then he was gone leaving me to look at his back with the image in my mind of me standing in front of him in those black lace panties and stroking his cock. 
 

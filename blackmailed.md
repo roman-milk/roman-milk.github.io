@@ -1,8 +1,14 @@
+Blackmailed into Black Submission
+=================================
 #1 
 
  
 
- ****** Blackmailed into Black Submission ****** bysilkstockingslover© NOTE 1: This story is dedicated to the real JESSICA who requested this DARK fantasy. 
+ 
+
+===
+
+NOTE 1: This story is dedicated to the real JESSICA who requested this DARK fantasy. 
 
  NOTE 2: Thanks to MAB7991 for editing this and many of my other stories. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** Blackmailed into Black Submission ****** bysilkstockingslover© "A good obedient white slave for black cock?" He questioned. 
+ 
+
+===
+
+"A good obedient white slave for black cock?" He questioned. 
 
  My hand went to my pussy as another tingle trembled through me at bring called a white slave, the irony of my family's past obvious to me. I admitted, letting out an accidental moan, and answered, "Yes Master, a good obedient white slave for black cock." 
 
@@ -628,7 +638,11 @@
 
  
 
- ****** Blackmailed into Black Submission ****** bysilkstockingslover© "Get used to this," she moaned, "your face was made for fucking." 
+ 
+
+===
+
+"Get used to this," she moaned, "your face was made for fucking." 
 
  It was the most absurd statement, yet somehow I found it flattering. 
 
@@ -928,7 +942,11 @@
 
  
 
- ****** Blackmailed into Black Submission ****** bysilkstockingslover© "I meant can you help me out of this situation," I replied, stunned that she planned to go down on me. 
+ 
+
+===
+
+"I meant can you help me out of this situation," I replied, stunned that she planned to go down on me. 
 
  "Do as you are told, Jessica," she demanded, her tone suddenly shifting from compassionate to authoritative. 
 
@@ -1276,7 +1294,11 @@
 
  
 
- ****** Blackmailed into Black Submission ****** bysilkstockingslover© "You like that, Jessica?" He asked, whispering into my ear. 
+ 
+
+===
+
+"You like that, Jessica?" He asked, whispering into my ear. 
 
  I trembled as his hot breath hit my ear and neck. "Y-y-yeeeeees." 
 
@@ -1562,7 +1584,11 @@
 
  
 
- ****** Blackmailed into Black Submission ****** bysilkstockingslover© "You always give away when you are bluffing," Bubba chuckled as he stood up. 
+ 
+
+===
+
+"You always give away when you are bluffing," Bubba chuckled as he stood up. 
 
  "I do not," Kyle protested. 
 
@@ -1708,7 +1734,11 @@
 
  
 
- ****** Blackmailed Teen Submissive ****** bysilkstockingslover© Summary: Pretty tennis player blackmailed into lesbian submission. 
+ 
+
+===
+
+Summary: Pretty tennis player blackmailed into lesbian submission. 
 
  Note: This story is dedicated to the real Erin! 
 
@@ -2030,7 +2060,11 @@
 
  
 
- ****** Blackmailed Teen Submissive ****** bysilkstockingslover© "We don't have all day," she said, as I hadn't yet moved. 
+ 
+
+===
+
+"We don't have all day," she said, as I hadn't yet moved. 
 
  With a heavy sigh, I began getting out of my sweaty outfit. 
 
@@ -2456,7 +2490,11 @@
 
  
 
- ****** Blackmailed Teen Submissive ****** bysilkstockingslover© A chill went up my spine at the harsh reality of the fact it was filmed. 
+ 
+
+===
+
+A chill went up my spine at the harsh reality of the fact it was filmed. 
 
  As I stood there, she returned and added, "After I fuck Julie, of course." 
 
@@ -2972,7 +3010,11 @@
 
  
 
- ****** Blackmailed Teen Submissive ****** bysilkstockingslover© It couldn't be. 
+ 
+
+===
+
+It couldn't be. 
 
  Please, please, please... no! 
 
@@ -3406,7 +3448,11 @@
 
  
 
- ****** Blackmailed Teen Submissive ****** bysilkstockingslover© "Sweetheart, I have my own secret to reveal," she said ominously. 
+ 
+
+===
+
+"Sweetheart, I have my own secret to reveal," she said ominously. 
 
  "What is it?" I asked. 
 
@@ -3466,7 +3512,11 @@
 
  
 
- ****** Blackmailed: Cheerleader's Cherry ****** bysilkstockingslover© Summary: A Principal disciplines a stuck-up hot bitch cheerleader. 
+ 
+
+===
+
+Summary: A Principal disciplines a stuck-up hot bitch cheerleader. 
 
  Note: This story is dedicated to Doc who inspired this ass-centered story. 
 
@@ -3822,7 +3872,11 @@
 
  
 
- ****** Blackmailed: Cheerleader's Cherry ****** bysilkstockingslover© Finally spent, I pulled up my underwear and pants and said, 'You understand this is not a one time thing, slut?" 
+ 
+
+===
+
+Finally spent, I pulled up my underwear and pants and said, 'You understand this is not a one time thing, slut?" 
 
  "Yes, sir," she agreed, still on her knees. 
 
@@ -3940,7 +3994,11 @@
 
  
 
- ****** Blackmailed: Cheerleader's Mom ****** bysilkstockingslover© Summary: He forces the Cheerleader's Mom to be his eager ass-slut too. 
+ 
+
+===
+
+Summary: He forces the Cheerleader's Mom to be his eager ass-slut too. 
 
  Note 1: Although not completely necessary, I would recommend you read Blackmailed: Cheerleader's Cherry first as it explains how Principal Stanford blackmails the popular head cheerleader to be his personal ass-slut. 
 
@@ -4250,7 +4308,11 @@
 
  
 
- ****** Blackmailed: Cheerleader's Mom ****** bysilkstockingslover© "Well, you better get it rock hard, slut," I ordered, shoving my cock in her mouth. 
+ 
+
+===
+
+"Well, you better get it rock hard, slut," I ordered, shoving my cock in her mouth. 
 
  She bobbed on it awkwardly for a minute or two before I pulled out and returned to her fine bent ass. 
 

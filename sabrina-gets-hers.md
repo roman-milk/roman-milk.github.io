@@ -1,8 +1,14 @@
+Sabrina Gets Hers
+=================
 #1 
 
  
 
- ****** Sabrina Gets Hers ****** byJust_Plain_Bob© I used to think that the more love you showed, the more attention you paid, the more you catered to her every wish and desire the woman in your life would realize how lucky she was to have you. I don't think that anymore. Now I believe that all those things just make her take you for granted, they make her think that there isn't anything she can't do that you won't overlook or excuse her for. 
+ 
+
+===
+
+I used to think that the more love you showed, the more attention you paid, the more you catered to her every wish and desire the woman in your life would realize how lucky she was to have you. I don't think that anymore. Now I believe that all those things just make her take you for granted, they make her think that there isn't anything she can't do that you won't overlook or excuse her for. 
 
  ++++++++++++++++++++ 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Sabrina Gets Hers ****** byJust_Plain_Bob© I spent a quiet weekend at home and told Sabrina that I felt up to going to work on Monday. 
+ 
+
+===
+
+I spent a quiet weekend at home and told Sabrina that I felt up to going to work on Monday. 
 
  "I'm still a little weak, but I should be okay as long as I don't overdue it." 
 

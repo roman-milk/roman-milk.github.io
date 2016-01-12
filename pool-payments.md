@@ -1,8 +1,14 @@
+Pool Payments Ch. 01
+====================
 #1 
 
  
 
- ****** Pool Payments Ch. 01 ****** byTx_Tall_Tales© Chapter 01: Beth 
+ 
+
+===
+
+Chapter 01: Beth 
 
  --------------------- 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** Pool Payments Ch. 02 ****** byTx_Tall_Tales© ---------------------- 
+ 
+
+===
+
+---------------------- 
 
  Trophy wife Lisa's willing to Pay to Play as well. 
 
@@ -254,7 +264,11 @@
 
  
 
- ****** Pool Payments Ch. 03 ****** byTx_Tall_Tales© Chapter 3: Lisa off the Clock 
+ 
+
+===
+
+Chapter 3: Lisa off the Clock 
 
  A divine afternoon alone with Lisa. 
 
@@ -428,7 +442,11 @@
 
  
 
- ****** Pool Payments Ch. 04 ****** byTx_Tall_Tales© Chapter 04: Beth's Late Fee 
+ 
+
+===
+
+Chapter 04: Beth's Late Fee 
 
  Beth misses a payment, I insist on a late fee. 
 
@@ -558,7 +576,11 @@
 
  
 
- ****** Pool Payments Ch. 05 ****** byTx_Tall_Tales© ------------------------------------------ 
+ 
+
+===
+
+------------------------------------------ 
 
  Kayla enters the fray, and learns the cost 
 
@@ -770,7 +792,11 @@
 
  
 
- ****** Pool Payments Ch. 05 ****** byTx_Tall_Tales© "Good, I want it to feel incredible. I want you to come for me." 
+ 
+
+===
+
+"Good, I want it to feel incredible. I want you to come for me." 
 
  "I don't come," she answered hesitantly, "not ever." 
 
@@ -842,7 +868,11 @@
 
  
 
- ****** Pool Payments Ch. 06 ****** byTx_Tall_Tales© Chapter 06: Beth for Breakfast 
+ 
+
+===
+
+Chapter 06: Beth for Breakfast 
 
  Unplanned morning fun with Beth 
 
@@ -970,7 +1000,11 @@
 
  
 
- ****** Pool Payments Ch. 07 ****** byTx_Tall_Tales© Chapter 07 - Double the Fun 
+ 
+
+===
+
+Chapter 07 - Double the Fun 
 
  Beth helps deliver Kayla's next lesson. 
 
@@ -1220,7 +1254,11 @@
 
  
 
- ****** Pool Payments Ch. 07 ****** byTx_Tall_Tales© "Kayla, help me," She finally pleaded, begging Kayla to take a turn under me. 
+ 
+
+===
+
+"Kayla, help me," She finally pleaded, begging Kayla to take a turn under me. 
 
  Kayla was a little hesitant, but agreed, matching Beth's position on her hands and knees. I pulled out of my sweet Beth, and slid over behind Kayla. As I located her opening, Beth rolled over on her side, and heaved a sigh. 
 
@@ -1256,7 +1294,11 @@
 
  
 
- ****** Pool Payments Ch. 08 ****** byTx_Tall_Tales© ------------------------ 
+ 
+
+===
+
+------------------------ 
 
  Chapter 08: Kayla's Private Tutelage 
 
@@ -1524,7 +1566,11 @@
 
  
 
- ****** Pool Payments Ch. 09 ****** byTx_Tall_Tales© Ch. 09: Lisa's Back Payment 
+ 
+
+===
+
+Ch. 09: Lisa's Back Payment 
 
  By Tx Tall Tales (c) 
 
@@ -1762,7 +1808,11 @@
 
  
 
- ****** Pool Payments Ch. 09 ****** byTx_Tall_Tales© "Just make sure I never miss two weeks in a row," Beth giggled. She held my new hard-on in her hand. "What do you want to do with this?" 
+ 
+
+===
+
+"Just make sure I never miss two weeks in a row," Beth giggled. She held my new hard-on in her hand. "What do you want to do with this?" 
 
  "I've got a choice?" 
 
@@ -1832,7 +1882,11 @@
 
  
 
- ****** Pool Payments Ch. 10 ****** byTx_Tall_Tales© Chapter 10: Late Night Visit 
+ 
+
+===
+
+Chapter 10: Late Night Visit 
 
  -------------------------------- 
 
@@ -2078,7 +2132,11 @@
 
  
 
- ****** Pool Payments Ch. 10 ****** byTx_Tall_Tales© "Oh," she groaned, "Oh, GOD!" The blasphemous cry signaled my success, and I rubbed her clit hard, while my hips pounded her like a jackhammer. I was watching her face, watching her eyes roll up, and her skin flushing bright red. Her mouth opened in a silent scream and she released her legs, to my hands. They were trembling, shaking like a leaf in the wind. 
+ 
+
+===
+
+"Oh," she groaned, "Oh, GOD!" The blasphemous cry signaled my success, and I rubbed her clit hard, while my hips pounded her like a jackhammer. I was watching her face, watching her eyes roll up, and her skin flushing bright red. Her mouth opened in a silent scream and she released her legs, to my hands. They were trembling, shaking like a leaf in the wind. 
 
  She stayed on the edge of cumming for so long, muscle spasms tensing her abs and legs, while she cried out over and over again. It felt incredible to tear these enormous orgasms from my new curvy sex toy. 
 
@@ -2288,7 +2346,11 @@
 
  
 
- ****** Pool Payments Ch. 11 ****** byTx_Tall_Tales© Chapter 11 -- Clarity 
+ 
+
+===
+
+Chapter 11 -- Clarity 
 
  ----------------------------------- 
 
@@ -2638,7 +2700,11 @@
 
  
 
- ****** Pool Payments Ch. 11 ****** byTx_Tall_Tales© I never expected to be in that position, certainly not twice in the same day. And not with these particular women. I wasn't complaining. 
+ 
+
+===
+
+I never expected to be in that position, certainly not twice in the same day. And not with these particular women. I wasn't complaining. 
 
  Greg was sweating, breathing hard, and fucking her for all he was worth. I could feel every stroke reflected in her sucking. It was intense. I'd never fucked her mouth like that, and I found myself pushing deeper, sliding down her throat, making her gasp when I pulled out. 
 
@@ -2716,7 +2782,11 @@
 
  
 
- ****** Pool Payments Ch. 12 ****** byTx_Tall_Tales© Chapter 12 -- Closure 
+ 
+
+===
+
+Chapter 12 -- Closure 
 
  -------------------- 
 

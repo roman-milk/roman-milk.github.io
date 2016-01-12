@@ -1,8 +1,14 @@
+The Naughty Boy
+===============
 #1 
 
  
 
- ****** The Naughty Boy ****** bygeronimo_appleby© I don't really know into which category to put this piece. It's an incest role- play between a mature lady, a celebrity actress (to whom I make no reference to reality, she's imaginary) and a young man for whose services she pays. 
+ 
+
+===
+
+I don't really know into which category to put this piece. It's an incest role- play between a mature lady, a celebrity actress (to whom I make no reference to reality, she's imaginary) and a young man for whose services she pays. 
 
  Wherever it ends up, I hope you enjoy it. feedback is good, even critical as long as it's constructive. Feedback can be in public comments below, PM on Lit, or email. If you want a response from me for some reason then email is probably best. 
 
@@ -144,6 +150,10 @@
 
  
 
- ****** The Naughty Boy ****** bygeronimo_appleby© 'Love me like that every night, darling,' she sighed. 'Love Mummy like you should every day.' 
+ 
+
+===
+
+'Love me like that every night, darling,' she sighed. 'Love Mummy like you should every day.' 
 
  I thought of the money and grinned. I think I'd be happy to play this game without any financial reward, not that I'd be saying anything like that to Mrs Monroe. But I'd be her naughty boy whatever happened. Report_Story 

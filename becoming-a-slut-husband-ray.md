@@ -1,8 +1,14 @@
+Becoming a Slut Husband: Ray
+============================
 #1 
 
  
 
- ****** Becoming a Slut Husband: Ray ****** byJust_Plain_Bob© I just found out that my wife is a sneaking, conniving bitch and I don't know if I should be pissed or do something nice for her out of gratitude. 
+ 
+
+===
+
+I just found out that my wife is a sneaking, conniving bitch and I don't know if I should be pissed or do something nice for her out of gratitude. 
 
  Heather and I have been together almost fifteen years, eight of it married and all of it tumultuous. Before tying the knot we must have broken up and then gotten back together at least a dozen times and each time we broke up we would each go and find someone else to fuck just to rub the other persons nose in it. That carried into our marriage and twice we separated and both times we moved in with someone else and then made a big show of how happy we were to be having sex with our new lover. 
 

@@ -1,8 +1,14 @@
+Trip to Cancun
+==============
 #1 
 
  
 
- ****** Trip to Cancun ****** byJust_Plain_Bob© It was a conversation that I wasn't supposed to hear. I was supposed to be at a customer's that day, but the customer had called and cancelled. As a result I was sitting in my cubicle catching up on some paperwork. It was early, around seven-fifteen, and starting time wasn't until eight, but a lot of the guys come in early to drink coffee and shoot the shit until starting time. 
+ 
+
+===
+
+It was a conversation that I wasn't supposed to hear. I was supposed to be at a customer's that day, but the customer had called and cancelled. As a result I was sitting in my cubicle catching up on some paperwork. It was early, around seven-fifteen, and starting time wasn't until eight, but a lot of the guys come in early to drink coffee and shoot the shit until starting time. 
 
  I heard Brad and Bill come in and sit down in Brad's cube and they started talking about the latest idiocy promulgated by management and then they touched on yesterday's ball game before getting to the inevitable discussion on women. By the time they reached the subject of women Brad and Bill and been joined by Sam, Al, Josh and Donny. Brad's cube backs onto mine and is accessed from one aisle over so nobody had walked by my cubicle and no one knew I was there. 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** Trip to Cancun ****** byJust_Plain_Bob© Josh and Donny looked at each other, smiled and then high-fived. Jenny had Donny lay down and then she straddled him reverse cow girl, lowered herself onto him and then leaned back and Josh moved up and slid his cock into her alongside Donny's. Jenny grunted as Josh pushed himself in and then she moaned: 
+ 
+
+===
+
+Josh and Donny looked at each other, smiled and then high-fived. Jenny had Donny lay down and then she straddled him reverse cow girl, lowered herself onto him and then leaned back and Josh moved up and slid his cock into her alongside Donny's. Jenny grunted as Josh pushed himself in and then she moaned: 
 
  "Okay, fuck me, both of you fuck me." 
 

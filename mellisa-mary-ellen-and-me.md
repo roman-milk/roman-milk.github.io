@@ -1,8 +1,14 @@
+Mellisa, Mary Ellen and Me Ch. 01
+=================================
 #1 
 
  
 
- ****** Mellisa, Mary Ellen and Me Ch. 01 ****** byJust_Plain_Bob© Up front I'll say that I'm no Adonis. I'm not movie star handsome, I don't have an especially great body and truth be told I'm not much more than average in any of the hundreds of things that women look for in a man. God only knows why Mellisa decided to chase after me. 
+ 
+
+===
+
+Up front I'll say that I'm no Adonis. I'm not movie star handsome, I don't have an especially great body and truth be told I'm not much more than average in any of the hundreds of things that women look for in a man. God only knows why Mellisa decided to chase after me. 
 
  I started working part time for the XYZ Corporation when I was a seventeen- year-old high school student. I continued working there when I started college and at nineteen when a full time position opened up I applied for it and got it. It was a hard life for me trying to handle a fulltime job and a full load of sixteen credit hours at school. I had zero social life, but it didn't matter to me because I had a goal. I was determined to get a degree and get a good paying white-collar job. I was not going to end up like my father who spent his life working the blast furnaces at the Ford Rouge Plant and who came home every day worn out and beat down. To dad it was a great job. It was union, paid well and had great benefits, but it was back breaking labor and it just wasn't what I wanted for myself. I fully intended to make that early start at XYZ, coupled with my degree, lead me into middle and upper management. 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** Mellisa, Mary Ellen and Me Ch. 01 ****** byJust_Plain_Bob© As we danced Mary Ellen gave me a bemused smile and said, "And just how long have you been dating the 'little girl' Ryan?" 
+ 
+
+===
+
+As we danced Mary Ellen gave me a bemused smile and said, "And just how long have you been dating the 'little girl' Ryan?" 
 
  "Since I walked in the door tonight." 
 
@@ -322,7 +332,11 @@
 
  
 
- ****** Mellisa, Mary Ellen and Me Ch. 02 ****** byJust_Plain_Bob© If I had passed on picking up Mellisa the next night at seven my life over the next year would have been a whole lot less stressful, but I picked her up on time and headed for the motel. 
+ 
+
+===
+
+If I had passed on picking up Mellisa the next night at seven my life over the next year would have been a whole lot less stressful, but I picked her up on time and headed for the motel. 
 
  "What? I don't rate a date of any kind? Just going to haul me to the motel like some kind of round heeled slut?" 
 
@@ -622,7 +636,11 @@
 
  
 
- ****** Mellisa, Mary Ellen and Me Ch. 02 ****** byJust_Plain_Bob© "Yes sir, I did." 
+ 
+
+===
+
+"Yes sir, I did." 
 
  Mind telling me why?" 
 
@@ -662,7 +680,11 @@
 
  
 
- ****** Mellisa, Mary Ellen and Me Ch. 03 ****** byJust_Plain_Bob© I debated keeping my conversation with Ron a secret from Mary Ellen, but there wasn't anyway that I could keep my getting back with Mellisa from her. She would be curious as to why and I knew her well enough to know that she would stay after me until I told her so best do it up front and get it out of the way. 
+ 
+
+===
+
+I debated keeping my conversation with Ron a secret from Mary Ellen, but there wasn't anyway that I could keep my getting back with Mellisa from her. She would be curious as to why and I knew her well enough to know that she would stay after me until I told her so best do it up front and get it out of the way. 
 
  "Why in the world would you let him push you into that? You can't possibly be that hard up for a job. So he fires you, so what? You're young, you're smart, you could always find something else." 
 
@@ -958,7 +980,11 @@
 
  
 
- ****** Mellisa, Mary Ellen and Me Ch. 03 ****** byJust_Plain_Bob© Well, there it was. What Ron and I had planned. I'd given Mellisa just what she needed to break it off with me. I picked up my clothes and stared dressing and Mellisa said, "What are you doing?" 
+ 
+
+===
+
+Well, there it was. What Ron and I had planned. I'd given Mellisa just what she needed to break it off with me. I picked up my clothes and stared dressing and Mellisa said, "What are you doing?" 
 
  "I'm getting dressed so I can bail out of here. Obviously I've just had two relationships crater on me and it is time for me to hit the road." 
 

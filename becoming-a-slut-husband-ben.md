@@ -1,8 +1,14 @@
+Becoming A Slut Husband: Ben
+============================
 #1 
 
  
 
- ****** Becoming A Slut Husband: Ben ****** byJust_Plain_Bob© It came as a surprise to me that there are women who are willing to go to bed with a man simply because he is married and therefore considered "safe." It doesn't seem to matter to them whether he is good looking or ugly (well maybe not ugly, but not all that great looking), rich or poor, well dressed or in jeans and a T-shirt just as long as he is married. I've met several in the last two years and they all have the same thing in common; they want sex without any commitment and that means, to them anyway, sex with someone already in a committed relationship. 
+ 
+
+===
+
+It came as a surprise to me that there are women who are willing to go to bed with a man simply because he is married and therefore considered "safe." It doesn't seem to matter to them whether he is good looking or ugly (well maybe not ugly, but not all that great looking), rich or poor, well dressed or in jeans and a T-shirt just as long as he is married. I've met several in the last two years and they all have the same thing in common; they want sex without any commitment and that means, to them anyway, sex with someone already in a committed relationship. 
 
  I don't even pretend to understand it; I've seen many a married man lose his marriage over some chick he fell into an affair with. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Becoming A Slut Husband: Ben ****** byJust_Plain_Bob© "Same thing you want love. Take the chain off and let me in." 
+ 
+
+===
+
+"Same thing you want love. Take the chain off and let me in." 
 
  "No. I told you the last time that it was over. Just go away and leave me alone." 
 

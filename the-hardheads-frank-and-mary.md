@@ -1,8 +1,14 @@
+The Hardheads: Frank and Mary
+=============================
 #1 
 
  
 
- ****** The Hardheads: Frank and Mary ****** byJust_Plain_Bob© My head hurt, my stomach was roiling and my wife was screaming at me: 
+ 
+
+===
+
+My head hurt, my stomach was roiling and my wife was screaming at me: 
 
  "You bastard! You rotten cock sucking bastard! How could you do this to me? One day, I'm gone one fucking day and leave you here alone and you do this to me." 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** The Hardheads: Frank and Mary ****** byJust_Plain_Bob© "Please Frank" she was saying as I walked away. 
+ 
+
+===
+
+"Please Frank" she was saying as I walked away. 
 
  +++++++++++++ 
 

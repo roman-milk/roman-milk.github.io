@@ -1,8 +1,14 @@
+A New World Record
+==================
 #1 
 
  
 
- ****** A New World Record ****** byTx_Tall_Tales© =================================== 
+ 
+
+===
+
+=================================== 
 
  Just what was the record they were setting? 
 

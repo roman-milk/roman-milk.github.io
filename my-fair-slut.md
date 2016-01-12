@@ -1,8 +1,14 @@
+My Fair Slut Ch. 01
+===================
 #1 
 
  
 
- ****** My Fair Slut Ch. 01 ****** byBoratus© I should have realized it was too good to be true. It all worked too well, too easily. There had to be consequences. But you'll soon see what they were. This is my story... 
+ 
+
+===
+
+I should have realized it was too good to be true. It all worked too well, too easily. There had to be consequences. But you'll soon see what they were. This is my story... 
 
  Chapter 1 – What you wish for 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** My Fair Slut Ch. 01 ****** byBoratus© It just got better from there. We fucked every night, sometimes several times. Her everyday attire changed. She began to dress so sexy it was like I had a new wife. When I drove my cock into her she yelled at me to fuck her like a whore and called herself a slut. She asked for it up the ass and I was surprised at how easily she took me. She pulled her ass cheeks apart to help me get in. And her blowjobs could make me cum in 2 minutes now, if she wanted, but she loved to tease my cock, keep me on the edge for a long time. When I did blow she either swallowed it up or pulled my cock free at let me spray all over her face and tits. She really loved that. The weird thing was that I thought all this would make her my sex slave but it was almost the other way around. She needed it and demanded it. Of course, I was always more than willing to oblige, but she would tell me to fuck her from behind or lie down so she could ride me or lick her. She knew just what she wanted and how she wanted it. I didn't mind letting her take the lead so long as I got off. 
+ 
+
+===
+
+It just got better from there. We fucked every night, sometimes several times. Her everyday attire changed. She began to dress so sexy it was like I had a new wife. When I drove my cock into her she yelled at me to fuck her like a whore and called herself a slut. She asked for it up the ass and I was surprised at how easily she took me. She pulled her ass cheeks apart to help me get in. And her blowjobs could make me cum in 2 minutes now, if she wanted, but she loved to tease my cock, keep me on the edge for a long time. When I did blow she either swallowed it up or pulled my cock free at let me spray all over her face and tits. She really loved that. The weird thing was that I thought all this would make her my sex slave but it was almost the other way around. She needed it and demanded it. Of course, I was always more than willing to oblige, but she would tell me to fuck her from behind or lie down so she could ride me or lick her. She knew just what she wanted and how she wanted it. I didn't mind letting her take the lead so long as I got off. 
 
  Then one night after she had totally exhausted me and I told we had had to quit for the night I woke up because of a noise downstairs. I turned to her and she was not in the bed. I crept quietly down and found her watching My Fair Lady and frigging herself like crazy. God, she was a sight. I watched for a long time before realizing I was jacking off, then just went down and shoved my cock in front of her face. When she saw it she just gasped with joy and swallowed it up, sucking like her life depending on it. I had to pry her off because I knew she wanted to be fucked. Although she HAD developed a big appetite for cum but, if I came in her mouth, there was no way she'd get the fucking she needed. 
 
@@ -346,7 +356,11 @@
 
  
 
- ****** My Fair Slut Ch. 02 ****** byBoratus© Thanks for the great feedback on My Fair Slut. I hope this one affects you as much… 
+ 
+
+===
+
+Thanks for the great feedback on My Fair Slut. I hope this one affects you as much… 
 
  The pile of work that meets me at my desk almost makes me turn around and go home. But I’m already late getting in for work and no one else is going to do it. I figure I’d better get right to it. I’m dead tired. Had to entertain a client from out of town last night. Paul called me last minute and I spent the evening refusing every other drink - which was still more than enough to get me drunk – and driving from bar to club to strip club until the man finally called it a night at 5am! 
 
@@ -492,7 +506,11 @@
 
  
 
- ****** My Fair Slut Ch. 02 ****** byBoratus© She smiles at the memories. I move towards her, intent of shaking some sense into her. 
+ 
+
+===
+
+She smiles at the memories. I move towards her, intent of shaking some sense into her. 
 
  “Don’t come near me, Jim. And don’t think of leaving this room.” 
 
@@ -538,7 +556,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© "My name is Elmer J. Fudd, millionaire. I own a mansion and a yacht." 
+ 
+
+===
+
+"My name is Elmer J. Fudd, millionaire. I own a mansion and a yacht." 
 
  "Again." 
 
@@ -834,7 +856,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© "YES!" she screamed as an orgasm ripped through her. "God yes! Fuck me Paul!" 
+ 
+
+===
+
+"YES!" she screamed as an orgasm ripped through her. "God yes! Fuck me Paul!" 
 
  That's what I wanted. I liked her vocal and she kept it up. "Fuck me. Fuck me. Fill me. Cum in me!" 
 
@@ -1104,7 +1130,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© "Yes." 
+ 
+
+===
+
+"Yes." 
 
  "And how do you feel now?" 
 
@@ -1440,7 +1470,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© She tried to deny it, "No, I was just- oh god, Paul. I want you." 
+ 
+
+===
+
+She tried to deny it, "No, I was just- oh god, Paul. I want you." 
 
  "Do you?" 
 
@@ -1734,7 +1768,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© -- 
+ 
+
+===
+
+-- 
 
  The next year at school everything went bad. The cheerleaders wouldn't practice unless I was there. The football team wouldn't practice unless I was there. The basketball team wouldn't practice unless . . .well you get the picture. I HAD to attend a party if anyone else was going to show. Everyone wanted to take the same courses I did to be in the same classes. Older students had purposely flunked out or were retaking courses to be closer to me. Even the teachers were affected and tried to get me in their classes. Fights eventually broke out. The tapes I made had been copied and distributed throughout the school and, I suspected, to a few others. A few of the music videos I made for specific girls had been stolen and I had to deal with a new group of sluts that I really didn't want. They weren't so hard to handle after initially fending them off. They trusted me so much and would do anything to be with me that they allowed me to hypnotize them and undo the programming and then order them to destroy the tapes. The problem was I couldn't go one by one undoing everything for everyone. It would forever and the tapes would just reprogram them. I had to get rid of the tapes. The biggest problem with that was it was like taking cocaine away from a drug addict. I was screwed. This thing was going to spiral out of control until someone put it all together and I spent a long, long time in jail. 
 
@@ -2066,7 +2104,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© "I didn't say I didn't like it. It's just that I've never felt that way before. I've never had more than one orgasm during sex. I-I just wanted to experience that once more." 
+ 
+
+===
+
+"I didn't say I didn't like it. It's just that I've never felt that way before. I've never had more than one orgasm during sex. I-I just wanted to experience that once more." 
 
  "And then stop?" I asked. 
 
@@ -2312,7 +2354,11 @@
 
  
 
- ****** My Fair Slut Ch. 03 ****** byBoratus© -- 
+ 
+
+===
+
+-- 
 
  We were in business a few years when I knew I needed a second in command. I did a lot of interviews and eventually hired Jim. Now Jim was a different kind of guy. He was completely straight up and incredibly smart with great business savvy. He was so nice I didn't have the heart to put under and had to give him Friday afternoons off to avoid the 3pm orgy. He was fast becoming a friend and that's something I realized that I really hadn't had since this whole adventure started: an honest friend who liked me for me. Things got bad when I met his wife. She was stunning even though she tried to hide it under frumpy housewife clothes. Kathy begged me for her as well as Jim but I wanted to keep Jim out of this. I was really enjoying having a friend. 
 
@@ -2320,7 +2366,11 @@
 
  
 
- ****** My Fair Slut Ch. 04 ****** byBoratus© Author's notes: Thank you for the great feedback on Chapter 3 and the great votes. It is always appreciated! I would, however, like to ask for more feedback from those who didn't like it, especially those who give 1's. If you think My work sucks that badly please tell Me why so that I can try and improve on it. I know I can't please everybody but that doesn't mean I won't try to! Anyone else who wishes to voice out good or bad comments is more than welcome! 
+ 
+
+===
+
+Author's notes: Thank you for the great feedback on Chapter 3 and the great votes. It is always appreciated! I would, however, like to ask for more feedback from those who didn't like it, especially those who give 1's. If you think My work sucks that badly please tell Me why so that I can try and improve on it. I know I can't please everybody but that doesn't mean I won't try to! Anyone else who wishes to voice out good or bad comments is more than welcome! 
 
  Warning: This chapter more rightly belongs under Non-Consent (very Non-Consent) than Mind Control but I've listed it here for three reasons: 1) The Mind Control theme is evident through it and 2) the rest of the chapters are in this section and I didn't want to split them up. That being said, if you don't like Non-Consent fantasies you may not like this chapter but, as you'll see, it is important to the plot of series. 
 
@@ -2536,7 +2586,11 @@
 
  
 
- ****** My Fair Slut Ch. 04 ****** byBoratus© We walked over to Slut Me. He tried to run but the room seemed to have no boundaries and yet be incredibly small. He ran but, walking, we caught up to him. We each grabbed an arm. 
+ 
+
+===
+
+We walked over to Slut Me. He tried to run but the room seemed to have no boundaries and yet be incredibly small. He ran but, walking, we caught up to him. We each grabbed an arm. 
 
  "I don't want to merge!" Slut Me screamed but then the memories pushed through all of us with the force of a hurricane. What took us by surprise was that Slut Me hadn't been created as a result of Real Me finding out about Paul. He'd been around before that. Paul groomed him gradually. He started him with submissive roles for Liz, not as an actual sub but just playing at it. The role became more in-depth though and the rewards of sex from Liz made him try harder to please her. Then Liz had him fuck Kathy. A task he was only too happy to do. Pretty soon, though, both women enjoyed his servitude as they had coffee, or shopped or fucked each other. The sex he had enjoyed so much became his table scraps. The girls were enjoying other men and he became more of a human dildo that they used when they were bored. The less sex he got the more he craved. The more he craved the more submissive he became. Finally the day came when Liz brought him to meet a client of Paul's. Liz had taken to dressing as sexy as Kathy by that point. Despite that the client didn't focus on her but on him, me. Liz patted his head and said, "You'd do anything for me, wouldn't you, Jim?" 
 
@@ -2812,7 +2866,11 @@
 
  
 
- ****** My Fair Slut Ch. 04 ****** byBoratus© "You can fuck her when you recover if you like." I told him. "Anytime you like if you help Me out." 
+ 
+
+===
+
+"You can fuck her when you recover if you like." I told him. "Anytime you like if you help Me out." 
 
  "Help you out?" Jeff said confused. "Didn't I just finish doing that? You are yourself again. Well, I think. I don't remember you being this…uh…dominant before but I don't know how much you've changed since university. And your wife is now yours. All you have to do now is call the police on Paul" 
 
@@ -2824,7 +2882,11 @@
 
  
 
- ****** My Fair Slut Ch. 05 ****** byBoratus© For bashful, chaise and, of course, kitten. 
+ 
+
+===
+
+For bashful, chaise and, of course, kitten. 
 
  * 
 
@@ -2972,7 +3034,11 @@
 
  
 
- ****** My Fair Slut Ch. 05 ****** byBoratus© "God, you're a horny cunt!" I heard him say. 
+ 
+
+===
+
+"God, you're a horny cunt!" I heard him say. 
 
  "I'm sorry, sir." She replied through grunts of pleasure. "I heard her yelled 'Fuck my cunt and hit me.' It gave me a clear picture of what was going on. Can I watch you fuck her, sir?" 
 
@@ -3208,7 +3274,11 @@
 
  
 
- ****** My Fair Slut Ch. 05 ****** byBoratus© He was taken aback. "So what should I do? Call you? Date you?" 
+ 
+
+===
+
+He was taken aback. "So what should I do? Call you? Date you?" 
 
  "Leave." I said. 
 
@@ -3458,7 +3528,11 @@
 
  
 
- ****** My Fair Slut Ch. 05 ****** byBoratus© "Where's the dress you bought for me?" he asked. 
+ 
+
+===
+
+"Where's the dress you bought for me?" he asked. 
 
  "Upstairs." 
 
@@ -3664,7 +3738,11 @@
 
  
 
- ****** My Fair Slut Ch. 05 ****** byBoratus© "Bend over, bitch." Isaac said finally and I smiled. He knew how to treat a slut. 
+ 
+
+===
+
+"Bend over, bitch." Isaac said finally and I smiled. He knew how to treat a slut. 
 
  I leaned forward and started sucking off both of the guys in front of me, alternating my mouth and hands every now and then. Eric was bigger than I thought he'd be but still average. Carl was as long as my forearm and as thick. I'm surprised he didn't pass out when all the blood rushed into his cock. Isaac was slightly shorter and thinner than Carl. I expected Isaac's cock to enter my cunt at any moment but he surprised me and stuck his tongue in it instead. His fingers worked up and down my slit, focusing on my clit as his tongue fucked me. He had a long tongue too. I began to moan from his ministrations. And then his tongue was in my ass and his fingers went in my pussy. My eyes widened but I didn't lose my rhythm sucking those cocks. A little while later his finger was in my ass, slick with pussy juice, then a second, then a third. Fingers still working their way in me, Isaac stood up and then his fingers were replaced with his cock. He wasn't even going for the pussy first. I felt his huge tool start to stretch me. I started sucking faster and stroking harder. He pushed in farther and farther. I loved it. I pushed back against him, taking more in. I got louder with each inch and my sounds turned Eric and Carl on even more. Carl shot first. (I really expected it to be Eric.) A wad of cum hit me in the side of the face because I was sucking Eric at the time. I quickly switched over and sucked on him before the next stream came out. I cleaned him off and was going to switch back to Eric when Isaac smacked my ass hard. I came. I gripped both cocks in my hands and held on as it took me. I moaned and squirmed on that beautiful cock and screamed "Yes!" as he shoved his fingers in my cunt and made me cum again. "Fuck me!" I screamed but then he was gone. He pulled out suddenly. 
 
@@ -3876,7 +3954,11 @@
 
  
 
- ****** My Fair Slut Ch. 05 ****** byBoratus© Jeff seemed exhausted. 
+ 
+
+===
+
+Jeff seemed exhausted. 
 
  "Have a seat." Master said offering the couch and a beer. Jeff took both and breathed a relaxing sigh. "I think you deserve a reward for all you did for Me, buddy." 
 
@@ -3910,7 +3992,11 @@
 
  
 
- ****** My Fair Slut Ch. 06 ****** byBoratus© “We are only ever are true selves when we think no one is watching.” – Boratus 
+ 
+
+===
+
+“We are only ever are true selves when we think no one is watching.” – Boratus 
 
  “Mr. Heffler, your 1 o’clock is here.” Carol said through the intercom. 
 
@@ -4158,7 +4244,11 @@
 
  
 
- ****** My Fair Slut Ch. 06 ****** byBoratus© It was the middle of the night and I was at Jim’s place. Only an hour ago his wife, Liz, gave me a great blow job to thank me for helping them. Shortly after, they argued a bit about their relationship. Liz used to be Paul’s slut. Now she was Jim’s. She argued that she was more though. She was his wife and she loved him. Jim didn’t seem to believe her. After all they had been through I could see why. Apparently that woman had fucked more guys in the past year than your average hooker would. She begged him to let her prove her love. She said she wanted to have a complete relationship. Not what they had when they married and not what they had now but a joining of the two: husband and wife, master and slave, ownership and love. 
+ 
+
+===
+
+It was the middle of the night and I was at Jim’s place. Only an hour ago his wife, Liz, gave me a great blow job to thank me for helping them. Shortly after, they argued a bit about their relationship. Liz used to be Paul’s slut. Now she was Jim’s. She argued that she was more though. She was his wife and she loved him. Jim didn’t seem to believe her. After all they had been through I could see why. Apparently that woman had fucked more guys in the past year than your average hooker would. She begged him to let her prove her love. She said she wanted to have a complete relationship. Not what they had when they married and not what they had now but a joining of the two: husband and wife, master and slave, ownership and love. 
 
  Now I was watching videos of Liz in action with several men while the sounds of the two of them in the bedroom penetrated the ceiling above to add to the sounds of sex coming from the tv. I knew what they were doing up there. They were not fucking. They were making love, for the first time in a year. It was not long before I was jacking off watching Liz in action on the screen with three guys and a hot blonde and then it occurred to me just how much she looked like Angela. The hair was the wrong colour and she was much shorter but the face was the same and the body almost identical. Could they be related? Ha! Yeah, sure. I was grasping. 
 
@@ -4484,7 +4574,11 @@
 
  
 
- ****** My Fair Slut Ch. 06 ****** byBoratus© “Sit bitch!” Shaun yelled and Kathy quickly pulled out and sat like a dog facing Shaun. 
+ 
+
+===
+
+“Sit bitch!” Shaun yelled and Kathy quickly pulled out and sat like a dog facing Shaun. 
 
  “Roll over.” Shaun ordered and she flipped onto her back. “Ok, Jeff.” He said turning to me. “Fuck the bitch.” 
 
@@ -4592,7 +4686,11 @@
 
  
 
- ****** My Fair Slut Ch. 07 ****** byBoratus© The results of the vote are in and there were some interesting responses including ideas on exactly how the story should end but I’ll withhold the results for just now. For updates on what I’m doing and far I am doing it just check my profile. I can’t wait to hear the feedback on this one. ;-) Enjoy the show. 
+ 
+
+===
+
+The results of the vote are in and there were some interesting responses including ideas on exactly how the story should end but I’ll withhold the results for just now. For updates on what I’m doing and far I am doing it just check my profile. I can’t wait to hear the feedback on this one. ;-) Enjoy the show. 
 
  Men are weak, easily manipulated, toys. You can make them do anything you want, any time you, any way you want. Well, with a few select exceptions. 
 
@@ -4702,7 +4800,11 @@
 
  
 
- ****** My Fair Slut Ch. 07 ****** byBoratus© I really learned my worth when I came over one day and he had a friend there. At least his friend was impressed with my appearance. The wolf whistle and lust-filled stare made it obvious. 
+ 
+
+===
+
+I really learned my worth when I came over one day and he had a friend there. At least his friend was impressed with my appearance. The wolf whistle and lust-filled stare made it obvious. 
 
  “This is the new slut?” He asked. 
 
@@ -4904,7 +5006,11 @@
 
  
 
- ****** My Fair Slut Ch. 07 ****** byBoratus© It didn’t take long to convert the basement and I tested all the equipment thoroughly on the three of them. It was a good time for me but I was still unsatisfied. I had my sluts and I would meet others and bring them home to play with but I would also see other people on the street who I just craved to bring home and make mine. Unfortunately not all people are sluts. It was when I was visiting my cousin Serena that I found the key to my happiness. I arrived early to meet her to take her out for her birthday. Serena was a couple years older than me and in college. She and some friends rented a house together and I walked up to her room to say hi only to find her lying in her bed, frigging herself like a madwoman while a music video played. 
+ 
+
+===
+
+It didn’t take long to convert the basement and I tested all the equipment thoroughly on the three of them. It was a good time for me but I was still unsatisfied. I had my sluts and I would meet others and bring them home to play with but I would also see other people on the street who I just craved to bring home and make mine. Unfortunately not all people are sluts. It was when I was visiting my cousin Serena that I found the key to my happiness. I arrived early to meet her to take her out for her birthday. Serena was a couple years older than me and in college. She and some friends rented a house together and I walked up to her room to say hi only to find her lying in her bed, frigging herself like a madwoman while a music video played. 
 
  “I don’t really get off on videos.” I said closing the door. 
 
@@ -5062,7 +5168,11 @@
 
  
 
- ****** My Fair Slut Ch. 08 ****** byBoratus© This is the final chapter in the series. New readers, you’d better go back and read the other chapters to know what the hell is going on and to make the Epilogues meaningful. 
+ 
+
+===
+
+This is the final chapter in the series. New readers, you’d better go back and read the other chapters to know what the hell is going on and to make the Epilogues meaningful. 
 
  It has been both a joy and a challenge writing this story and I hope you all enjoyed it. Thank you so much for the great ratings and the feedback both good and bad. It’s all helped to improve My style and give Me great boosts of confidence, although if you know Me then you know that boosts of confidence might be overkill. ;-) 
 
@@ -5408,7 +5518,11 @@
 
  
 
- ****** My Fair Slut Ch. 08 ****** byBoratus© Jim plowed back into her. Liz grabbed her tits again. Angela came hard. She screamed as it hit her not trying to hold back at all. Jim didn’t stop pumping though and soon another one came. “Yes!” she yelled. “Fuck me, Master! Fuck your horny slut!” 
+ 
+
+===
+
+Jim plowed back into her. Liz grabbed her tits again. Angela came hard. She screamed as it hit her not trying to hold back at all. Jim didn’t stop pumping though and soon another one came. “Yes!” she yelled. “Fuck me, Master! Fuck your horny slut!” 
 
  Jim and Liz smiled at each other. It had been easier than they had expected. Liz hugged her mother and kissed her passionately. “You’re going to be so happy from now on, mother. We all are.” 
 

@@ -1,8 +1,14 @@
+Mrs Jordan's Wedding Ring
+=========================
 #1 
 
  
 
- ****** Mrs Jordan's Wedding Ring ****** bygeronimo_appleby© Just a quick stroker inspired by a thread in the Fetish section of Lit. 
+ 
+
+===
+
+Just a quick stroker inspired by a thread in the Fetish section of Lit. 
 
  A young man kicks his football over the fence and into the neighbour's garden. And how was he to know she was out there sunbathing? 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Mrs Jordan's Wedding Ring ****** bygeronimo_appleby© Mrs Jordan blurted a laugh, one hand reaching for her husband's hard-on. Then she jacked at his cock and twisted to look back at me. "Don't stop," she hissed, eyes glazing. "Don't you fucking dare stop doing it." 
+ 
+
+===
+
+Mrs Jordan blurted a laugh, one hand reaching for her husband's hard-on. Then she jacked at his cock and twisted to look back at me. "Don't stop," she hissed, eyes glazing. "Don't you fucking dare stop doing it." 
 
  So there I was with my cock inside Mrs Jordan, her husband facing me in the most surreal and unnerving experience in my life to date. I could only look at him in snatches, my eyes sliding anywhere except on his face. 
 

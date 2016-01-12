@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Juanita
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Juanita ****** byJust_Plain_Bob© I guess I really got too carried away. John had gotten promoted to foreman and he invited the crew to stop after work with him for a little celebration. His wife was throwing a party for him the next evening, but he wanted to have a few drinks with just his crew so we followed him over to the Kit Kat Lounge. 
+ 
+
+===
+
+I guess I really got too carried away. John had gotten promoted to foreman and he invited the crew to stop after work with him for a little celebration. His wife was throwing a party for him the next evening, but he wanted to have a few drinks with just his crew so we followed him over to the Kit Kat Lounge. 
 
  The Kit Kat was a topless bar about ten minutes from work. You know how it is when you go out with the boys and start drinking. Some one buys a round and then some one else does and then it is your turn. You get half in the bag and are having a ball; throwing money at the dancers up on the platform, getting lap dances that get you hot and leave you horny. Pretty soon it is last call and you are drunk on your ass. 
 

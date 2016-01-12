@@ -1,8 +1,14 @@
+The Boyfriend Test
+==================
 #1 
 
  
 
- ****** The Boyfriend Test ****** byJust_Plain_Bob© It was a Monday evening and I was rolling down Hwy. 83 and trying to find a radio station playing something worth listening to and not having much luck. It was a perfect ending to a sucky day that was one more in a lousy week that was in turn a part of a god awful month. 
+ 
+
+===
+
+It was a Monday evening and I was rolling down Hwy. 83 and trying to find a radio station playing something worth listening to and not having much luck. It was a perfect ending to a sucky day that was one more in a lousy week that was in turn a part of a god awful month. 
 
  It was one month to the day since I'd found out that my fiancé was cheating on me. Of course according to her it wasn't cheating and maybe by her definition of cheating it wasn't, but by my definition it was and it was mine that counted as far as I was concerned. 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** The Boyfriend Test ****** byJust_Plain_Bob© Wednesday I was beat so I went straight home from work and made an early night of it. Thursday at two my cell went off and I turned off the cutting torch and took the call. 
+ 
+
+===
+
+Wednesday I was beat so I went straight home from work and made an early night of it. Thursday at two my cell went off and I turned off the cutting torch and took the call. 
 
  "Hello?" 
 
@@ -476,7 +486,11 @@
 
  
 
- ****** The Boyfriend Test ****** byJust_Plain_Bob© "I never gave a thought as to how you were seeing things. I guess I'd forgotten all about Holly and what she did to you. However, be that as it may, I'm still going to put in my two cents worth. Cara does love you and it is killing her that you have turned your back on her. Search your heart Frank. See if you can't find just a smidgen of forgiveness in there." 
+ 
+
+===
+
+"I never gave a thought as to how you were seeing things. I guess I'd forgotten all about Holly and what she did to you. However, be that as it may, I'm still going to put in my two cents worth. Cara does love you and it is killing her that you have turned your back on her. Search your heart Frank. See if you can't find just a smidgen of forgiveness in there." 
 
  I thanked her for the apology, but didn't comment on the rest. 
 
@@ -680,4 +694,8 @@
 
  
 
- ****** The Boyfriend Test ****** byJust_Plain_Bob© Cara? Cara decided that she couldn't live with a man who would always be wondering about her and an old boyfriend. So where is she now? Living with the old boyfriend. Kind of makes you wonder, doesn't it? Report_Story 
+ 
+
+===
+
+Cara? Cara decided that she couldn't live with a man who would always be wondering about her and an old boyfriend. So where is she now? Living with the old boyfriend. Kind of makes you wonder, doesn't it? Report_Story 

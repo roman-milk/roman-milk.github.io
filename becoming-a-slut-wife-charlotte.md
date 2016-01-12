@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Charlotte
+===============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Charlotte ****** byJust_Plain_Bob© It started six months ago and even though I've had chances to stop I haven't. I probably never will. It will cost me my marriage because eventually my husband will find out. It won't matter how hard I try to keep it hidden or how many believable lies I tell him he will find out. I'll slip up somehow and it will be over. 
+ 
+
+===
+
+It started six months ago and even though I've had chances to stop I haven't. I probably never will. It will cost me my marriage because eventually my husband will find out. It won't matter how hard I try to keep it hidden or how many believable lies I tell him he will find out. I'll slip up somehow and it will be over. 
 
  I love my husband and I love being his wife and I can't see me living out my life with anyone else, but I'm going to end up losing it all. I know it, but I just can't stop what I'm doing. 
 
@@ -154,7 +160,11 @@
 
  
 
- ****** Becoming a Slut Wife: Charlotte ****** byJust_Plain_Bob© While I cleaned myself I thought of what I was going to have to do to keep my body from Steve. We didn't do anal so he would never notice how loose I was there. But my pussy lips looked inflamed -- all puffy and reddish -- and I would need some time for that to clear up. My monthly was due in a couple of days. I could plead throbbing headache for that night and say that my period started the next day and that should give me enough time to recover from the gangbang. I would make it up to Steve with blow jobs until I could let him in me again and then everything should turn out fine. 
+ 
+
+===
+
+While I cleaned myself I thought of what I was going to have to do to keep my body from Steve. We didn't do anal so he would never notice how loose I was there. But my pussy lips looked inflamed -- all puffy and reddish -- and I would need some time for that to clear up. My monthly was due in a couple of days. I could plead throbbing headache for that night and say that my period started the next day and that should give me enough time to recover from the gangbang. I would make it up to Steve with blow jobs until I could let him in me again and then everything should turn out fine. 
 
  When I got home Steve was out in the front yard cutting the grass and as I got out of the car he shut off the mower and asked: 
 

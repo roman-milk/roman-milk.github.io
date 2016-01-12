@@ -1,8 +1,14 @@
+Debutante MILF Lesbian Submissive
+=================================
 #1 
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© Summary: A mother submits to her daughter's seductive nemesis 
+ 
+
+===
+
+Summary: A mother submits to her daughter's seductive nemesis 
 
  Note 1: Thanks to goamz86 and LeAnn for editing this story 
 
@@ -326,7 +332,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© I stammered, all my humiliation flooding back to me, "I-I-I, it was long." 
+ 
+
+===
+
+I stammered, all my humiliation flooding back to me, "I-I-I, it was long." 
 
  "Are you okay, Mom?" Miranda asked, sensing my anxiety riddled state. 
 
@@ -680,7 +690,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© Serena seeing me standing, still staring at her smiled and waved me over. 
+ 
+
+===
+
+Serena seeing me standing, still staring at her smiled and waved me over. 
 
  I walked the few feet, an anxiety overwhelming me unlike any I could recall in years. Reaching her, I handed her a bag with the items she had requested. She took them and said, "Thank you, my Petra, my pet Petra, how adorable is that?" She laughed as she added, "Even your name was made to be mine." 
 
@@ -1038,7 +1052,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© "W-w-what?" I stammered, my head spinning in a million directions. Hearing my daughter's name brought my shame instantly back, a reminder that I was more than just a sexual being, but also a mother. Yet, the exotic scent of Serena's cunt, to the sexual thrill of submission, to the toy currently filling my cunt, I was too overwhelmed to do the right thing for Miranda, instead doing the right thing for my sexual hunger and weakness. "Yes, Mistress, I want to eat my daughter's arch enemy's cunt." 
+ 
+
+===
+
+"W-w-what?" I stammered, my head spinning in a million directions. Hearing my daughter's name brought my shame instantly back, a reminder that I was more than just a sexual being, but also a mother. Yet, the exotic scent of Serena's cunt, to the sexual thrill of submission, to the toy currently filling my cunt, I was too overwhelmed to do the right thing for Miranda, instead doing the right thing for my sexual hunger and weakness. "Yes, Mistress, I want to eat my daughter's arch enemy's cunt." 
 
  "And you will obey every order," Serena clarified. 
 
@@ -1430,7 +1448,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© I apologized to Portia who I interrupted, and checked the message. 
+ 
+
+===
+
+I apologized to Portia who I interrupted, and checked the message. 
 
  Pet Petra, Go to the bathroom now and masturbate yourself to orgasm. Mistress Serena 
 
@@ -1720,7 +1742,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© Dumb Pet, It is who you are. A submissive cum hungry slut regardless of whose cunt or cock is in front of you or in you, Do you want to come? 
+ 
+
+===
+
+Dumb Pet, It is who you are. A submissive cum hungry slut regardless of whose cunt or cock is in front of you or in you, Do you want to come? 
 
  I typed as fast as I could, praying for permission for sexual release: 
 
@@ -2056,7 +2082,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© Choosing a costume was harder. What was she expecting me to dress like? There was slutty everything, but I decided to go a bit out there when I choose a naughty nun outfit. In case, that wasn't slutty enough for her, I also bought a slutty nurse outfit and a slutty cowgirl outfit. 
+ 
+
+===
+
+Choosing a costume was harder. What was she expecting me to dress like? There was slutty everything, but I decided to go a bit out there when I choose a naughty nun outfit. In case, that wasn't slutty enough for her, I also bought a slutty nurse outfit and a slutty cowgirl outfit. 
 
  I finished by buying a dozen pairs of thigh high stockings in a variety of colours and headed to the cashier. I asked the plump but pretty girl, "Are you, Janie?" 
 
@@ -2440,7 +2470,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© "I've never done anal before," I admitted. 
+ 
+
+===
+
+"I've never done anal before," I admitted. 
 
  "We will change that tonight," Serena said, as she pushed a wider plug in my ass than what was previously in me. 
 
@@ -2828,7 +2862,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© "Okay," Miranda agreed, suddenly bubbling with enthusiasm. 
+ 
+
+===
+
+"Okay," Miranda agreed, suddenly bubbling with enthusiasm. 
 
  The next hour plus I created a look I called the Braided Beauty which gave a sexy look of sophistication and class. Plus the braid across the front keeps the rest of her hair out of her face. It was the perfect do for Miranda's adorably cute face. 
 
@@ -3278,7 +3316,11 @@
 
  
 
- ****** Debutante MILF Lesbian Submissive ****** bysilkstockingslover© "At first I was angry at you betraying me like that. She is my enemy and yet you easily submitted to her. I realized it was partly my fault because I hadn't ever really stood up for myself," Miranda continued. 
+ 
+
+===
+
+"At first I was angry at you betraying me like that. She is my enemy and yet you easily submitted to her. I realized it was partly my fault because I hadn't ever really stood up for myself," Miranda continued. 
 
  "I'm sorry," I said. 
 

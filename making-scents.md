@@ -1,8 +1,14 @@
+Making Scents Ch. 01
+====================
 #1 
 
  
 
- ****** Making Scents Ch. 01 ****** byBoratus© Thanks to all for the great feedback on my other stories and the prodding to write something new. News and updates will be on my profile as always. 
+ 
+
+===
+
+Thanks to all for the great feedback on my other stories and the prodding to write something new. News and updates will be on my profile as always. 
 
  * 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** Making Scents Ch. 01 ****** byBoratus© -- 
+ 
+
+===
+
+-- 
 
  Nancy's picked up various bed pillows and flung them at Tyson. He batted them away and they hit the walls and the floor. She then reached into a drawer and pulled out a large dildo and raised her skirt to expose her naked cunt. Tyson froze. 
 
@@ -356,7 +366,11 @@
 
  
 
- ****** Making Scents Ch. 02 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "Ok, let me ask you this." Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -754,7 +768,11 @@
 
  
 
- ****** Making Scents Ch. 02 ****** byBoratus© "Donny!" he exclaimed. "Kara, this is my best friend, Donny." 
+ 
+
+===
+
+"Donny!" he exclaimed. "Kara, this is my best friend, Donny." 
 
  Kara glanced over at him, eyed him up and down with an unimpressed look that he was used to getting, and greeted him with a "Hi." that seemed to say "Don't talk to me." She then turned back to Tyson. "So anyway, Paula walks in wearing the exact same dress as Ivana!" 
 
@@ -904,7 +922,11 @@
 
  
 
- ****** Making Scents Ch. 03 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "Ok, let me ask you this." Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -1138,7 +1160,11 @@
 
  
 
- ****** Making Scents Ch. 03 ****** byBoratus© "Please!" she screamed. 
+ 
+
+===
+
+"Please!" she screamed. 
 
  "Please what?" he asked innocently. 
 
@@ -1412,7 +1438,11 @@
 
  
 
- ****** Making Scents Ch. 03 ****** byBoratus© He got up and reached around her. He removed both the toys and the restraints and she knelt in front of his chair with her head on the seat, crying. "Please, Richard. I'm sorry." 
+ 
+
+===
+
+He got up and reached around her. He removed both the toys and the restraints and she knelt in front of his chair with her head on the seat, crying. "Please, Richard. I'm sorry." 
 
  "Oh, now does my horny little slut need to cum?" 
 
@@ -1454,7 +1484,11 @@
 
  
 
- ****** Making Scents Ch. 04 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "Ok, let me ask you this." Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -1752,7 +1786,11 @@
 
  
 
- ****** Making Scents Ch. 04 ****** byBoratus© Carol nodded and leaned in toward him. Donald could swear she was going to kiss him when her cell phone rang. The happiness seemed to drain from her face when she saw the number. 
+ 
+
+===
+
+Carol nodded and leaned in toward him. Donald could swear she was going to kiss him when her cell phone rang. The happiness seemed to drain from her face when she saw the number. 
 
  "Hello?" she said, answering it. "I told you I was going to a movie with a friend. Yes, we just got out. No, we were going to go for drinks. But I . . .You do . . .You do. . .You do. . .I am. Yes, I'll leave right now. Bye." 
 
@@ -1852,7 +1890,11 @@
 
  
 
- ****** Making Scents Ch. 05 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "Ok, let me ask you this." Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -2144,7 +2186,11 @@
 
  
 
- ****** Making Scents Ch. 05 ****** byBoratus© She sat on the couch and her hand drifted down to her slit. She felt a calm flow through her as she touched herself. She called up images of Donald as she had before. He fingers moved slowly up and down and her nipples hardened again almost immediately. This little Japanese woman was horny for a white stranger. It was against everything she had learned as a proper woman and a faithful wife. Somehow, that just made her wetter. Her hand picked up its tempo and she let out one of her cute little moans. Kazumi seemed to respond from the bedroom with a loud snore. The sound of him annoyed her. It took away her focus from Donald. She pictured him in front of her. They both wore only kimonos. He slowly undressed her, kissing each part of her as it became exposed. She imagined his hot breath on her neck, his hands caressing her shoulders. She slid her arms under his and pulled him close. When he put his mouth over her breast, her free hand cupped and squeezed it. She focused her fingers on her clit. She was already getting close, partly from the images and partly from her memories of last night's orgasm. She needed this. She needed Donald. She needed him now. 
+ 
+
+===
+
+She sat on the couch and her hand drifted down to her slit. She felt a calm flow through her as she touched herself. She called up images of Donald as she had before. He fingers moved slowly up and down and her nipples hardened again almost immediately. This little Japanese woman was horny for a white stranger. It was against everything she had learned as a proper woman and a faithful wife. Somehow, that just made her wetter. Her hand picked up its tempo and she let out one of her cute little moans. Kazumi seemed to respond from the bedroom with a loud snore. The sound of him annoyed her. It took away her focus from Donald. She pictured him in front of her. They both wore only kimonos. He slowly undressed her, kissing each part of her as it became exposed. She imagined his hot breath on her neck, his hands caressing her shoulders. She slid her arms under his and pulled him close. When he put his mouth over her breast, her free hand cupped and squeezed it. She focused her fingers on her clit. She was already getting close, partly from the images and partly from her memories of last night's orgasm. She needed this. She needed Donald. She needed him now. 
 
  -- 
 
@@ -2364,7 +2410,11 @@
 
  
 
- ****** Making Scents Ch. 06 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "Ok, let me ask you this," Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -2598,7 +2648,11 @@
 
  
 
- ****** Making Scents Ch. 06 ****** byBoratus© -- 
+ 
+
+===
+
+-- 
 
  Sunny was impressed with Tyson. The man knew how to take control and fuck a woman. He had an impressive tool, too, although Sunny knew he was even bigger. He had his own cock out and was jacking off to the images. He had a great view of the action from in front of Mariko, where he could see the ecstasy in her face. Something in the background caught his attention though and he switched to one of the living room cameras. The front door opened and Sunny waited for Dr. Jacobs to walk in and see the action. Only it wasn't Dr. Jacobs. It was Carol. She looked sexy as hell, but she also looked nervous and unsure. She heard the noise coming from the bedroom and moved quietly to have a look. She breathed a sigh of relief when she saw it wasn't Jacobs and almost snuck back out, but her curiousity seemed to take hold. She watched as the big black man fucked the shit of little Asian woman. It wasn't long before her hand went under her skirt and she played with herself. 
 
@@ -2750,7 +2804,11 @@
 
  
 
- ****** Making Scents Ch. 06 ****** byBoratus© "I had some trouble with Donny," he told her. It wasn't exactly a lie. 
+ 
+
+===
+
+"I had some trouble with Donny," he told her. It wasn't exactly a lie. 
 
  "Girl trouble?" she asked. 
 
@@ -2832,7 +2890,11 @@
 
  
 
- ****** Making Scents Ch. 07 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "OK, let me ask you this," Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -3114,7 +3176,11 @@
 
  
 
- ****** Making Scents Ch. 07 ****** byBoratus© Daya returned and set up the camera on a tripod. Sunny had her focus on Mrs. Acton who started her prepared speech. "My name is a Denise Acton. I am a stuck up, racist Bitch who needs to know the pleasure of a good dark cock. Today, I am this man's slut and will do whatever he says." 
+ 
+
+===
+
+Daya returned and set up the camera on a tripod. Sunny had her focus on Mrs. Acton who started her prepared speech. "My name is a Denise Acton. I am a stuck up, racist Bitch who needs to know the pleasure of a good dark cock. Today, I am this man's slut and will do whatever he says." 
 
  Sunny was naked as well by this time. He turned Denise toward him and pushed her down to her knees. "Suck my cock, slut." 
 
@@ -3300,7 +3366,11 @@
 
  
 
- ****** Making Scents Ch. 08 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "OK, let me ask you this," Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -3592,7 +3662,11 @@
 
  
 
- ****** Making Scents Ch. 08 ****** byBoratus© "Open your eyes, Natalie." Dominique whispered and Natalie saw herself in the mirror as her hands slid back up her legs, along her hips and up her stomach, over her breasts to her neck and then her cheeks, finally into her hair before stretching up to the ceiling. Her hands fell gracefully down again and moved onto her hips as she increased her sway, dipped low for a moment as she twisted and then rose to continue her stripper's tease. 
+ 
+
+===
+
+"Open your eyes, Natalie." Dominique whispered and Natalie saw herself in the mirror as her hands slid back up her legs, along her hips and up her stomach, over her breasts to her neck and then her cheeks, finally into her hair before stretching up to the ceiling. Her hands fell gracefully down again and moved onto her hips as she increased her sway, dipped low for a moment as she twisted and then rose to continue her stripper's tease. 
 
  Natalie was mesmerized by the stranger in front of her whose mouth spread in a joyful yet wicked smile. Was that really her? 
 
@@ -3844,7 +3918,11 @@
 
  
 
- ****** Making Scents Ch. 09 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "OK, let me ask you this," Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -4050,7 +4128,11 @@
 
  
 
- ****** Making Scents Ch. 09 ****** byBoratus© "Uh uh. My turn. You don't get a kiss until you answer a question of mine." 
+ 
+
+===
+
+"Uh uh. My turn. You don't get a kiss until you answer a question of mine." 
 
  "OK, give me your best shot." 
 
@@ -4286,7 +4368,11 @@
 
  
 
- ****** Making Scents Ch. 09 ****** byBoratus© "Yeah. Why?" 
+ 
+
+===
+
+"Yeah. Why?" 
 
  Nancy grabbed the end of the table and yanked. Their bodies shot off and tumbled onto one of the pillow piles. Tyson bounced off and his now slick body slid across the floor and into a wall. 
 
@@ -4492,7 +4578,11 @@
 
  
 
- ****** Making Scents Ch. 10 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "OK, let me ask you this," Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -4930,7 +5020,11 @@
 
  
 
- ****** Making Scents Ch. 10 ****** byBoratus© Donald emerged soon after in a fresh change of clothes. "Oh hey, Nancy." 
+ 
+
+===
+
+Donald emerged soon after in a fresh change of clothes. "Oh hey, Nancy." 
 
  "Hi Donny. You OK?" 
 
@@ -5410,7 +5504,11 @@
 
  
 
- ****** Making Scents Ch. 11 ****** byBoratus© Previously on Making Scents: 
+ 
+
+===
+
+Previously on Making Scents: 
 
  "OK, let me ask you this," Tyson continued. "Do you really think you can discover a magical formula that will make people irresistible?" 
 
@@ -5640,7 +5738,11 @@
 
  
 
- ****** Making Scents Ch. 11 ****** byBoratus© "Soon enough." he told her while stroking himself. He moved in behind Alice and shoved his cock into her. Alice squealed with delight and quickly began to fuck him, though her face stayed buried in Angelina's cunt. 
+ 
+
+===
+
+"Soon enough." he told her while stroking himself. He moved in behind Alice and shoved his cock into her. Alice squealed with delight and quickly began to fuck him, though her face stayed buried in Angelina's cunt. 
 
  Angelina pushed herself forward so that she and Sunny could kiss while they used Alice's body for pleasure. Alice was happy to be of use. After Alice made Angelina cum again, Sunny told her to climb up and straddle the star. The girls began a passionate make-out out session, breaking only to suck and squeeze each others tits every now and then. Sunny moved up and shoved his cock in Angelina's cunt again and fucked her hard until she came. He switched to Alice's pussy which hung inches above Angelina's. When his secretary screamed in orgasm, he switched again. Each time one of the girls came, her senses cleared a little, but the other girl was all over her stimulating her pleasure centers. 
 
@@ -5844,7 +5946,11 @@
 
  
 
- ****** Making Scents Ch. 11 ****** byBoratus© He went through several ideas of what to do when he got home. Mariko would, no doubt, be cooking dinner. He could pull her away from the kitchen and into the bedroom for some sex before dinner. That might spoil the meal though. Then again, it might be worth it. He could always fuck her for dessert. He didn't know if he could wait that long though. His cock was already a solid hunk of wood in his pants. He couldn't believe Mariko affected him this way. He loved her and always thought she was pretty, but now she was sexy. Her look hadn't changed. Her body was the same. For reason now, however, she exuded sexuality. Dress her up differently and she would turn heads in public. Kazumi smiled. What if he didn't take her to the bedroom? What if they did it on the couch like teenagers? She wouldn't expect him to do that and he was sure she would love it. Yes, that was what he would do. She had been taking the lead lately. It was time he showed her that he was still the man and he could be as creative as she could. 
+ 
+
+===
+
+He went through several ideas of what to do when he got home. Mariko would, no doubt, be cooking dinner. He could pull her away from the kitchen and into the bedroom for some sex before dinner. That might spoil the meal though. Then again, it might be worth it. He could always fuck her for dessert. He didn't know if he could wait that long though. His cock was already a solid hunk of wood in his pants. He couldn't believe Mariko affected him this way. He loved her and always thought she was pretty, but now she was sexy. Her look hadn't changed. Her body was the same. For reason now, however, she exuded sexuality. Dress her up differently and she would turn heads in public. Kazumi smiled. What if he didn't take her to the bedroom? What if they did it on the couch like teenagers? She wouldn't expect him to do that and he was sure she would love it. Yes, that was what he would do. She had been taking the lead lately. It was time he showed her that he was still the man and he could be as creative as she could. 
 
  When he walked through the door his plan stayed in the hall. Mariko was at the kitchen counter cutting vegetables in her cooking apron, just like he had imagined. The only difference from what he saw and what he imagined was that the apron was the only thing she was wearing. 
 

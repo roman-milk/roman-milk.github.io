@@ -1,8 +1,14 @@
+Gangbang Junkie
+===============
 #1 
 
  
 
- ****** Gangbang Junkie ****** byfastandsloppy© Claire knew it was three-forty. She knew because she had just checked the clock a few seconds ago, but she looked anyway. It was three-forty. 
+ 
+
+===
+
+Claire knew it was three-forty. She knew because she had just checked the clock a few seconds ago, but she looked anyway. It was three-forty. 
 
  She had already closed what she'd been working on, so she opened a couple of spreadsheets to clutter the screen. She picked a paperclip - a fancy one with a red no-slip plastic coating - from the magnetic dispenser to the right of her phone and un-bent it to an approximation of straight. She tapped the thin, red, plastic and steel shaft against the temple of her glasses as she permitted herself another look at the clock: three-forty-five. She sighed. She put the ruined paperclip down on her desk. Her hands were shaking. 
 
@@ -190,7 +196,11 @@
 
  
 
- ****** Gangbang Junkie ****** byfastandsloppy© Claire Looked down and caught the woman's eye. "Marta!?" she said as Marta's surprised eyes looked up at her with recognition. She pivoted her head to see Marta's husband Chuck behind her, moving in to fill her ass with his cock. 
+ 
+
+===
+
+Claire Looked down and caught the woman's eye. "Marta!?" she said as Marta's surprised eyes looked up at her with recognition. She pivoted her head to see Marta's husband Chuck behind her, moving in to fill her ass with his cock. 
 
  Claire felt her mind let go. The usual wave of regret and disgust evaporated away. Now that Marta and Chuck knew her secret, there was no going back. She spun quick fantasies of weekends, lunches and evenings as their willing sex toy. 
 

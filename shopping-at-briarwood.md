@@ -1,8 +1,14 @@
+Shopping at Briarwood
+=====================
 #1 
 
  
 
- ****** Shopping at Briarwood ****** byJust_Plain_Bob© When I lived in Michigan I used to do a lot of shopping at Briarwood Mall in Ann Arbor. One day, while picking up an order at J.C.Penny, I noticed a rather attractive woman of about twenty-five pushing a stroller with a child of about two in it. She was dressed in a tube top, shorts, high heels and had absolutely fabulous legs. You do not normally see something like that during the day in a mall. Being the 'dirty old man' that I am (I have been a DOM since I was thirteen) and being as turned on by heels as I am, I would normally have approached her. Hitting on a married woman has never been a problem for me, but even I have to draw the line somewhere and a married woman with a child in tow just had to be off-limits. But (there is always a 'but' - isn't there?) I was not about to deprive myself of the visual experience so when she left Penny's I followed at what I thought was a discrete distance. 
+ 
+
+===
+
+When I lived in Michigan I used to do a lot of shopping at Briarwood Mall in Ann Arbor. One day, while picking up an order at J.C.Penny, I noticed a rather attractive woman of about twenty-five pushing a stroller with a child of about two in it. She was dressed in a tube top, shorts, high heels and had absolutely fabulous legs. You do not normally see something like that during the day in a mall. Being the 'dirty old man' that I am (I have been a DOM since I was thirteen) and being as turned on by heels as I am, I would normally have approached her. Hitting on a married woman has never been a problem for me, but even I have to draw the line somewhere and a married woman with a child in tow just had to be off-limits. But (there is always a 'but' - isn't there?) I was not about to deprive myself of the visual experience so when she left Penny's I followed at what I thought was a discrete distance. 
 
  She moved through the mall and when she went into a shop I would either follow her in, if it was a big store, or wait outside if it was small. This went on for about half an hour and then she went into a shoe store. I watched as she tried on several pairs of high heels and by the time she was ready to leave the store I had a cock that was so stiff that I was afraid I wouldn't be able to walk and follow her. She left that shoe store and went to another and again I positioned myself where I could watch without being too obvious about it. I was again afforded the pleasure of being able to watch her as she tried on high heels. She would put them on, stretch her legs out and look at them, and get up and walk around on them. 
 

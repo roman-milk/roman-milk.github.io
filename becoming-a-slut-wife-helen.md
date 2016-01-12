@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Helen
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Helen ****** byJust_Plain_Bob© The phone call was hoped for, but not totally expected. I had figured that the soonest I would hear from them, if they took the deal, would be at least two weeks away. But at eleven-thirty the phone rang and Mortenson said, "We are going with you Bruce. I've signed the papers and a copy is being faxed to you. You should have the originals by FedEx in the morning. Looking forward to doing business with you guys. Talk to you later." 
+ 
+
+===
+
+The phone call was hoped for, but not totally expected. I had figured that the soonest I would hear from them, if they took the deal, would be at least two weeks away. But at eleven-thirty the phone rang and Mortenson said, "We are going with you Bruce. I've signed the papers and a copy is being faxed to you. You should have the originals by FedEx in the morning. Looking forward to doing business with you guys. Talk to you later." 
 
  I walked over to the fax machine just as the document started coming in. This was the last of seven deals that I had spent the last five months putting together. Five months of fourteen and sixteen hour days including working in my home office in the evenings and on the weekend, but it had been worth it. I was a lock now for the VP of Sales slot and the salary, bonuses and other perks that went with the job. I stapled the package together and walked down the hall to the boss's office. I knocked and Harv hollered at me to come in. I walked in and dropped the package on his desk, "Mortenson - signed, sealed and delivered. If you have no objection I'm going to take a week off and see if I can't get reacquainted with my wife." 
 

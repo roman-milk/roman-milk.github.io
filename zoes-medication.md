@@ -1,8 +1,14 @@
+Zoe's Medication
+================
 #1 
 
  
 
- ****** Zoe's Medication ****** byJust_Plain_Bob© My wife Zoe had a hysterectomy a few years back and all of a sudden her body chemistry went crazy. Hormonal imbalance caused mood swings that ranged from euphoria on one side of the scale to almost homicidal depression on the other. Her doctor had to pretty much experiment on her to try and find a combination of hormone pills and other drugs that would bring her to a balance. Whenever he found something that seemed to work things would be great for a month or two and then they wouldn't work anymore and he would go back to experimenting again. I never knew what I was going to find when I came home. 
+ 
+
+===
+
+My wife Zoe had a hysterectomy a few years back and all of a sudden her body chemistry went crazy. Hormonal imbalance caused mood swings that ranged from euphoria on one side of the scale to almost homicidal depression on the other. Her doctor had to pretty much experiment on her to try and find a combination of hormone pills and other drugs that would bring her to a balance. Whenever he found something that seemed to work things would be great for a month or two and then they wouldn't work anymore and he would go back to experimenting again. I never knew what I was going to find when I came home. 
 
  I had just come home from a three-day business trip and found the house empty. That was strange because I'd called Zoe and told her what time I would be home and she always had dinner waiting for me. By eight o'clock Zoe still wasn't home and I hadn't heard from her. I got on the phone and started calling around, but no one I talked to had any idea of where she might be. Her mother told me that she had talked to Zoe that morning and that Zoe had told her that she had a doctor's appointment for that afternoon. I called Zoe's doctor and got his service and they told me that he was out of town for a week and that Dr. Thomas was handling his cases until he came back. Dr. Thomas called me back twenty minutes later and told me that he had not seen Zoe that afternoon and that if she'd had an appointment it hadn't been with him. I made up my mind that if I didn't hear from Zoe by ten I was going to call the cops. 
 

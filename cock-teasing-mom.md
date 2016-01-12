@@ -1,8 +1,14 @@
+Cock Teasing Mom Ch. 01
+=======================
 #1 
 
  
 
- ****** Cock Teasing Mom Ch. 01 ****** byJust_Plain_Bob© Mom and dad led a tumultuous life and I think that the only thing that kept them from killing each other was the fact that dad was an over the road truck driver and he was gone for days at a time. Both mom and dad were borderline alcoholics and most, if not all, of their arguments came after they had both been at the bottle. From mom's side it was always about dad going off and leaving her alone so much. From dad's side it was always about how when he was gone she was never alone. He never caught her, never had any proof, but he "just knew." He was right even though he was the cause of it. His being gone all the time wasn't the cause; the cause was that mom finally decided that if she was "going to wear the name, she was going to play the game." After two years of being accused she went and did it. 
+ 
+
+===
+
+Mom and dad led a tumultuous life and I think that the only thing that kept them from killing each other was the fact that dad was an over the road truck driver and he was gone for days at a time. Both mom and dad were borderline alcoholics and most, if not all, of their arguments came after they had both been at the bottle. From mom's side it was always about dad going off and leaving her alone so much. From dad's side it was always about how when he was gone she was never alone. He never caught her, never had any proof, but he "just knew." He was right even though he was the cause of it. His being gone all the time wasn't the cause; the cause was that mom finally decided that if she was "going to wear the name, she was going to play the game." After two years of being accused she went and did it. 
 
  She rarely brought her gentlemen friends home with her because she could never be sure when dad was going to come home, but I could always tell when she had been with a man. She would be more laid back, mellower and just a little bit slutty. Her running around on dad had a major effect on me because when she came home she was always different around me than she was usually. It is hard to explain, but it seemed like when she had gotten laid in the afterglow she either forgot who I was or she got some perverse pleasure out of sexually teasing me. 
 
@@ -68,7 +74,11 @@
 
  
 
- ****** Cock Teasing Mom Ch. 02 ****** byJust_Plain_Bob© That night I was already in bed asleep when mom got home from wherever it is that she goes. I woke up in the morning and found her in bed with me. Her dress was lying on the floor and she was still wearing her heels, hose, panties and bra. She was still asleep and as I looked down on her I thought again about what Troy had said. It would be so easy to just push her panties aside and do it. But what if Troy was wrong? What if all she had been doing was what she considered harmless teasing? What if the only reason for her being in my bed was that she just needed to feel close to some one? I carefully got out of bed so as not to wake her and went downstairs, had breakfast and then headed off to class. 
+ 
+
+===
+
+That night I was already in bed asleep when mom got home from wherever it is that she goes. I woke up in the morning and found her in bed with me. Her dress was lying on the floor and she was still wearing her heels, hose, panties and bra. She was still asleep and as I looked down on her I thought again about what Troy had said. It would be so easy to just push her panties aside and do it. But what if Troy was wrong? What if all she had been doing was what she considered harmless teasing? What if the only reason for her being in my bed was that she just needed to feel close to some one? I carefully got out of bed so as not to wake her and went downstairs, had breakfast and then headed off to class. 
 
  I don't think I gained any knowledge during any of my classes that day as my mind wasn't anywhere near the classrooms. All I thought about was what my mother had been doing lately and my reaction to it. Incest was not supposed to be a good thing. There were laws against it - the laws of nature as well as the laws of man - and it was supposed to be something that all right minded people abhorred. Even though I was only a kid, well I guess actually a young adult, I had always considered myself an upright individual and I had always expected to grow up and be a responsible adult and a productive member of society. Yet the only question on my mind was, "Is it what my mom is really looking for." Regardless of the laws of man and nature if I ever came to the point where I really believed that she was coming on to me I was going to fuck her - that was a given! 
 
@@ -116,7 +126,11 @@
 
  
 
- ****** Cock Teasing Mom Ch. 03 ****** byJust_Plain_Bob© For the next two months every time my dad was on a trip I either slept in mom's bed or she slept in mine. She was doing her absolute best to fuck me to death and I was doing my best to keep her at home doing it. She still went out occasionally so she could drink and dance, which was something she couldn't do with me, and when she came home she was always horny and she wanted me to eat her pussy. 
+ 
+
+===
+
+For the next two months every time my dad was on a trip I either slept in mom's bed or she slept in mine. She was doing her absolute best to fuck me to death and I was doing my best to keep her at home doing it. She still went out occasionally so she could drink and dance, which was something she couldn't do with me, and when she came home she was always horny and she wanted me to eat her pussy. 
 
  Unfortunately, she had also always been fucked by someone else. I wasn't all that keen on going down on her and licking up someone else's leavings, but she loved it and it was a small price to pay for what I was getting from her. She taught me everything that she liked having done to her and she taught me how to do it well. It might have been incest, but no bolts of lightening were coming down at me from the sky so I took all I could get. The really curious thing, at least to me, was that mom cut way down on her drinking when the two of us started having sex. I still haven't figured that one out. 
 
@@ -150,7 +164,11 @@
 
  
 
- ****** Cock Teasing Mom Ch. 04 ****** byJust_Plain_Bob© "Maybe next time." The phrase sat in the back of my mind all the next day. What did mom mean by that? Was there to be a next time? And if there were would I fuck Monica if I had the chance? Silly question -of course I would - in a heartbeat! I had fantasies of mom, Monica and me on the same bed. Mom blond and tanned; Monica light skinned, freckled and with her long red hair - it would be a great contrast. But it was only fantasy and I knew it. 
+ 
+
+===
+
+"Maybe next time." The phrase sat in the back of my mind all the next day. What did mom mean by that? Was there to be a next time? And if there were would I fuck Monica if I had the chance? Silly question -of course I would - in a heartbeat! I had fantasies of mom, Monica and me on the same bed. Mom blond and tanned; Monica light skinned, freckled and with her long red hair - it would be a great contrast. But it was only fantasy and I knew it. 
 
  My affair with my mother was not without an element of danger. We pretty much knew when to expect that dad would be coming home, but we sometimes got caught up in the heat of things and lost track of time. That was pretty much the case when two days after the Monica episode we were bouncing around on my bed when we heard dad's Kenworth pull up next to the house. Mom pushed me off her and made a mad dash for her bedroom. I watched as she took a large dildo out the bedside table and then ran back and closed the bedroom door. The front door slammed and I heard, "Honey, I'm home" and my mom hollered "I'm upstairs sweetie." My door was closed when dad came up the steps, but I could imagine what he saw when he opened his bedroom door and heard mom say, "Hurry up damn it, I expected you an hour ago." I could hear the noises coming from my parents bedroom and I thought that there was nothing in the world so cruel as to have a hot pussy suddenly pulled off of a hard cock and then have to listen to someone else fuck that same hot pussy. And then I had to laugh; who was I to deny my dad what was his, at least when he was home. 
 
@@ -196,7 +214,11 @@
 
  
 
- ****** Cock Teasing Mom Ch. 05 ****** byJust_Plain_Bob© It was two days after my night with Monica. I was eating my breakfast when the phone rang and mom answered it. "Sure honey, he's here." She carried the phone over to me, "It's your girlfriend baby, I think she wants your dick." 
+ 
+
+===
+
+It was two days after my night with Monica. I was eating my breakfast when the phone rang and mom answered it. "Sure honey, he's here." She carried the phone over to me, "It's your girlfriend baby, I think she wants your dick." 
 
  It was Monica and she told me that her hubby had just left for work and Troy was on his way to class. "I'm all alone her honey, can you come over?" My only class of any consequence was an eleven o'clock on Business Law so I told her I would be by. "The door won't be locked honey, just come straight up to the bedroom. Hurry honey, don't make me wait too long." As I hung up mom said, "Your dad is leaving this afternoon and mommy intends to keep her little boy busy tonight. Keep that in mind while you are spreading pollen over at Monica's" 
 
@@ -318,7 +340,11 @@
 
  
 
- ****** Cock Teasing Mom Ch. 06 ****** byJust_Plain_Bob© I called my mother to let her know that I had met the girl I was going to marry. "You need to come visit and meet her. It would be nice if the two of you could get to know each other before the wedding." Mom said she would try and get up to see us the following weekend. That night when Wendy had finished fucking me into exhaustion I told her about mom's impending visit and was surprised when she seemed less than pleased. When I asked her why she said it was because my mom wasn't going to like her. 
+ 
+
+===
+
+I called my mother to let her know that I had met the girl I was going to marry. "You need to come visit and meet her. It would be nice if the two of you could get to know each other before the wedding." Mom said she would try and get up to see us the following weekend. That night when Wendy had finished fucking me into exhaustion I told her about mom's impending visit and was surprised when she seemed less than pleased. When I asked her why she said it was because my mom wasn't going to like her. 
 
  "Women can sense some things honey. She won't be here twenty-four hours and she will know exactly what kind of girl I am." 
 

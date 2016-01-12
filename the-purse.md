@@ -1,8 +1,14 @@
+The Purse
+=========
 #1 
 
  
 
- ****** The Purse ****** byJust_Plain_Bob© I knew the fridge was empty so I made a shopping list during my afternoon break and on the way home from work I stopped at Safeway. I grabbed a cart, hit the courtesy counter to get my lottery tickets for that nights drawing and then headed for the produce section. 
+ 
+
+===
+
+I knew the fridge was empty so I made a shopping list during my afternoon break and on the way home from work I stopped at Safeway. I grabbed a cart, hit the courtesy counter to get my lottery tickets for that nights drawing and then headed for the produce section. 
 
  I am not a picky shopper. I know what I'm after so I pretty much grab and go. I'm not one to pick up a head of lettuce or a green pepper and roll it around in my hands minutely inspecting it before dropping it in my cart. The exception of course is eggs. I always -- always! -- open the carton and check to make sure that none of them are broken. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** The Purse ****** byJust_Plain_Bob© "Fraid so. I heard that she married again. So you're the guy huh?" 
+ 
+
+===
+
+"Fraid so. I heard that she married again. So you're the guy huh?" 
 
  "Yep, and I want to thank you for it." 
 

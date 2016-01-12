@@ -1,8 +1,14 @@
+The Benefits Man
+================
 #1 
 
  
 
- ****** The Benefits Man ****** byJust_Plain_Bob© I'm the last person in the world who you would think had a problem with a cheating wife, but I think it's possible that I do and no one is more surprised over it than me. 
+ 
+
+===
+
+I'm the last person in the world who you would think had a problem with a cheating wife, but I think it's possible that I do and no one is more surprised over it than me. 
 
  My wife Ellen is not all that physically attractive (except to me of course). She is over-weight, has a rather plain face and wears her hair the way she likes it even though most people would say that it was very unbecoming. Makeup would help her face some, but she refuses to wear any, and the clothes she wears would be more suited to an eighty-year-old great grandmother. Looks were not what attracted me to Ellen. She is highly intelligent, has great common sense, is witty, charming and has a great sense of humor. She is also loving, affectionate and very attentive to me. To sum it up, Ellen suits me, but I seriously doubted that she would appeal to anyone else. 
 

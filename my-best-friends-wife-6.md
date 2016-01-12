@@ -1,8 +1,14 @@
+My Best Friend's Wife
+=====================
 #1 
 
  
 
- ****** My Best Friend's Wife ****** byTx_Tall_Tales© ========= A short little vignette, inspired by an actual event. Enjoy. ========= 
+ 
+
+===
+
+========= A short little vignette, inspired by an actual event. Enjoy. ========= 
 
  Shot down again. 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** My Best Friend's Wife ****** byTx_Tall_Tales© "Hold her still a moment," he told me. 
+ 
+
+===
+
+"Hold her still a moment," he told me. 
 
  I stopped my motion, and held her. She leaned down and whispered in my ear, "Next time, I might even try to let you take the back door." 
 

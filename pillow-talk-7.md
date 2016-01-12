@@ -1,8 +1,14 @@
+Pillow Talk
+===========
 #1 
 
  
 
- ****** Pillow Talk ****** byJust_Plain_Bob© Christina pulled into the drive and stopped, got out and got the mail out of the box. She leafed quickly through it and saw there was nothing of any importance, at least not if she paid them on time. She hit the garage door opener and pulled into the garage and parked. It had been one hell of a day at work and the air conditioner hadn't been working properly and she decided that she needed a shower before starting dinner. 
+ 
+
+===
+
+Christina pulled into the drive and stopped, got out and got the mail out of the box. She leafed quickly through it and saw there was nothing of any importance, at least not if she paid them on time. She hit the garage door opener and pulled into the garage and parked. It had been one hell of a day at work and the air conditioner hadn't been working properly and she decided that she needed a shower before starting dinner. 
 
  She started shedding clothes as she headed up the stairs; she would pick them up later, but right then all she wanted was to get under the showerhead. She entered the bedroom, pushed her thong down and stepped out of it and then unsnapped her bra and let it fall to the floor. As she was walking by the bed on her way to the bathroom she saw the envelope on the pillow. She smiled and her pussy tingled as she thought about what that envelope meant. First off, it meant that she wouldn't be fixing dinner. The second thing it meant was that she would be getting to bed late that night and that she would most probably be sexually exhausted by the time she fell asleep. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Pillow Talk ****** byJust_Plain_Bob© "Better hurry baby, before all of him leaks out of me." 
+ 
+
+===
+
+"Better hurry baby, before all of him leaks out of me." 
 
  She had hurried into the bedroom, stripped and had crawled on the bed. She had spread her legs wide and then had watched the doorway. She remembered thinking that it was the acid test. She would know the minute he came through the door if he really wanted his fantasy to become a reality or not. She heard him coming up the steps and she braced herself for the moment of truth. She smiled in relief as Gary came through the doorway dropping clothes as he came. 
 
@@ -446,7 +456,11 @@
 
  
 
- ****** Pillow Talk ****** byJust_Plain_Bob© "Maybe next time lover, but not tonight." 
+ 
+
+===
+
+"Maybe next time lover, but not tonight." 
 
  The front door closed and Gary came out of the closet. He had been in there three hours and he looked haggard. She had giggled and then she had said: 
 

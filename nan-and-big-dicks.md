@@ -1,8 +1,14 @@
+Nan and Big Dicks
+=================
 #1 
 
  
 
- ****** Nan and Big Dicks ****** byJust_Plain_Bob© You ever do something and then later find yourself wondering just what the fuck ever possessed you to make you do something so stupid? I have and what I did has pretty much fucked up my life. It started out as a kinky way to have some sexual fun with my wife and blew up in my face big time. 
+ 
+
+===
+
+You ever do something and then later find yourself wondering just what the fuck ever possessed you to make you do something so stupid? I have and what I did has pretty much fucked up my life. It started out as a kinky way to have some sexual fun with my wife and blew up in my face big time. 
 
  I'm a Site Coordinator for a large advertising agency and my job is to go wherever the agency is planning a shoot and coordinate things. Coordinator is just a fancy title for a 'gofer.' Doing an ad for an automobile and the ground is bare and dry? I go for a pump sprayer and some water with green dye and then spray the ground to make it look like the car is parked on green grass. Need hair spray to dull down a reflector and there isn't any in the location box? I go for some. Basically, what I do is fetch and carry and go for things. Not a glamorous job, but one that pays fairly well. 
 
@@ -266,7 +272,11 @@
 
  
 
- ****** Nan and Big Dicks ****** byJust_Plain_Bob© Robert's dad smirked and said, "No you won't. If you do you out the whore yourself." 
+ 
+
+===
+
+Robert's dad smirked and said, "No you won't. If you do you out the whore yourself." 
 
  "Are you really as stupid as you just sounded? If the word gets out you simple minded asshole she's already outed anyway. You want to save time and just get it over with now?" and I reached for the phone. 
 

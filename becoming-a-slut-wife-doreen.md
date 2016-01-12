@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Doreen
+============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Doreen ****** byJust_Plain_Bob© It was the evening of my fortieth birthday and I was sitting in the living room wondering where my wife was. I heard the front door close and Doreen, my thirty-six year old wife of thirteen years walked in and sat down on the couch next to me. Before I could ask her where she had been she said, "How do you feel about having a slut for a wife?" 
+ 
+
+===
+
+It was the evening of my fortieth birthday and I was sitting in the living room wondering where my wife was. I heard the front door close and Doreen, my thirty-six year old wife of thirteen years walked in and sat down on the couch next to me. Before I could ask her where she had been she said, "How do you feel about having a slut for a wife?" 
 
  "What do you mean?" 
 

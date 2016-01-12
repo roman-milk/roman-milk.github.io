@@ -1,8 +1,14 @@
+Tommy's Fantasy Fullfilled, sort of
+===================================
 #1 
 
  
 
- ****** Tommy's Fantasy Fullfilled, sort of ****** byJust_Plain_Bob© All I wanted to do was try anal sex. Just one time to see what it was like. Hell, I might not even have liked it, but I did want to try it, at least once. But Betty Jo would have none of it, "You are disgusting Tommy. How can you even think about things like that?" was what I got when I brought the subject up and I pretty much figured that she meant not only no, but hell no! Since our sex life was pretty good otherwise I decided, reluctantly, to drop the matter. 
+ 
+
+===
+
+All I wanted to do was try anal sex. Just one time to see what it was like. Hell, I might not even have liked it, but I did want to try it, at least once. But Betty Jo would have none of it, "You are disgusting Tommy. How can you even think about things like that?" was what I got when I brought the subject up and I pretty much figured that she meant not only no, but hell no! Since our sex life was pretty good otherwise I decided, reluctantly, to drop the matter. 
 
  One night I was having a beer with my best friend Toby. Toby and I go all the way back to second grade and he and I have no secrets from each other. I was moaning about how Betty Jo wouldn't let me try her 'brown eye' and Toby was doing what buddies are supposed to do when they hear you whine - sipping his beer and nodding his head. When I was through he looked at me for a minute and then said, "You're going about it in the wrong way. You have to make her think it's her idea - make her want to do it." 
 

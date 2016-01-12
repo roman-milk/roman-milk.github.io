@@ -1,8 +1,14 @@
+My Hero
+=======
 #1 
 
  
 
- ****** My Hero ****** byGotBacon© Eric is 24 years old. He stands 6ft, 4in. He weighs 215 lbs. He has brown hair and hazel eyes. His cock measures 7 in soft. He would be described as a pussy magnet. 
+ 
+
+===
+
+Eric is 24 years old. He stands 6ft, 4in. He weighs 215 lbs. He has brown hair and hazel eyes. His cock measures 7 in soft. He would be described as a pussy magnet. 
 
  He owns four large shopping centers that he inherited from his father. 
 
@@ -490,7 +496,11 @@
 
  
 
- ****** My Hero ****** byGotBacon© "Are you ready to cum now, baby?" 
+ 
+
+===
+
+"Are you ready to cum now, baby?" 
 
  "Oh yes, I'm ready. Do me, do me." 
 
@@ -866,7 +876,11 @@
 
  
 
- ****** My Hero ****** byGotBacon© "Oh baby, I never get tired of cumming in you." 
+ 
+
+===
+
+"Oh baby, I never get tired of cumming in you." 
 
  "mmmm Every time it's heaven. My big strong hero's cock takes me there every time." 
 

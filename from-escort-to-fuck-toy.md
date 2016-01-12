@@ -1,8 +1,14 @@
+From Escort to Fuck Toy
+=======================
 #1 
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© Eric is a self-made millionaire. He is thirty years old. He his handsome beyond belief. He is 6 ft 4 in tall and weighs 220. He works out in his private gym every other day for two hours. He is buffed. He has one mansion and several really nice houses in different parts of the country. Women hit on him all the time. He knows his worth and is very selective. The last woman he was with was a gold digger. She tried to play him at first, but he caught on to her quickly. He had met her type before. He sent her packing. 
+ 
+
+===
+
+Eric is a self-made millionaire. He is thirty years old. He his handsome beyond belief. He is 6 ft 4 in tall and weighs 220. He works out in his private gym every other day for two hours. He is buffed. He has one mansion and several really nice houses in different parts of the country. Women hit on him all the time. He knows his worth and is very selective. The last woman he was with was a gold digger. She tried to play him at first, but he caught on to her quickly. He had met her type before. He sent her packing. 
 
  He decides to try something different. He wonders if he can convert a whore into a fuck toy. 
 
@@ -378,7 +384,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© "I think I got it all. I got all your cum. Your balls are dry now." 
+ 
+
+===
+
+"I think I got it all. I got all your cum. Your balls are dry now." 
 
  "Oh god. No more please. I'm drained. Have mercy on me. Please." 
 
@@ -746,7 +756,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© She sits there looking at him. She smiles. 
+ 
+
+===
+
+She sits there looking at him. She smiles. 
 
  "That's quite an offer, Eric. I suspected something like this, but I wasn't sure. I'll think about it and let you know. By he way, I've developed some feelings for you. It will be hard to leg go of you. We are very good together. 
 
@@ -1218,7 +1232,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© She looks at him. 
+ 
+
+===
+
+She looks at him. 
 
  "Eric, fuck me. Fuck me hard. I want you to really take me hard. Make me cum and shoot your big load in me." 
 
@@ -1538,7 +1556,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© She takes it down her throat again. She rolls his balls and sucks it hard. She feels it swell and gets ready to take it. She feels it flare and his cum squirts in her mouth. She hangs on and takes it all. She holds it in her mouth. His squirting stops. She moves up and shows him her mouth full of his cum. She swallows and shows him her empty mouth. 
+ 
+
+===
+
+She takes it down her throat again. She rolls his balls and sucks it hard. She feels it swell and gets ready to take it. She feels it flare and his cum squirts in her mouth. She hangs on and takes it all. She holds it in her mouth. His squirting stops. She moves up and shows him her mouth full of his cum. She swallows and shows him her empty mouth. 
 
  "I just swallowed your hot black cum. It tastes so good. It's gone now. I took all of your hot black cum. I want some every day. I want you to cum in my mouth everyday. " 
 
@@ -1830,7 +1852,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© "Cum in me. Give me you hot black cum. Give it to me. Fill me with it. Now. Now." 
+ 
+
+===
+
+"Cum in me. Give me you hot black cum. Give it to me. Fill me with it. Now. Now." 
 
  His cock flares and he squirts his cum in her. She screams and cums. 
 
@@ -2194,7 +2220,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© She takes her dishes back in the kitchen and goes in the bedroom. She lays down and turns on the TV. She is asleep in five minutes. 
+ 
+
+===
+
+She takes her dishes back in the kitchen and goes in the bedroom. She lays down and turns on the TV. She is asleep in five minutes. 
 
  She is dreaming that Eric is sucking on her nipples. She stirs awake and sees that he is. She watches him for a minute. Her hands move to the back of his head. He holds him to her breasts. He switches and she moans for him. He tweaks them and she moans louder. His hand moves down to her pussy. He feels her wetness. He slide two fingers in her and finger fucks her. He hips are humping up to him, matching his strokes. His palm presses down on her clit and she cries out. She humps faster and faster. He presses harder and she screams out and cums. 
 
@@ -2548,7 +2578,11 @@
 
  
 
- ****** From Escort to Fuck Toy ****** byGotBacon© Johnson says. "You will never see that again in you lifetime. Never." 
+ 
+
+===
+
+Johnson says. "You will never see that again in you lifetime. Never." 
 
  Kim finally comes back. She looks at them and smiles again. 
 

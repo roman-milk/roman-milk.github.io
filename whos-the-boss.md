@@ -1,8 +1,14 @@
+Who's The Boss? Ch. 01
+======================
 #1 
 
  
 
- ****** Who's The Boss? Ch. 01 ****** byJs_Keeper© It all began a little more than three months after I started working for Adrienne, an attractive and successful executive of an ad firm whose stylish offices were located in an upscale downtown high-rise office building. In that time we had developed a good working relationship, but other than some innocent flirting, everything was strictly platonic. 
+ 
+
+===
+
+It all began a little more than three months after I started working for Adrienne, an attractive and successful executive of an ad firm whose stylish offices were located in an upscale downtown high-rise office building. In that time we had developed a good working relationship, but other than some innocent flirting, everything was strictly platonic. 
 
  All that changed one fateful evening. 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Who's The Boss? Ch. 02 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading Chapter 1 in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading Chapter 1 in order to get the context of this story. 
 
  Comments are welcome. 
 
@@ -416,7 +426,11 @@
 
  
 
- ****** Who's The Boss? Ch. 02 ****** byJs_Keeper© "And so you began touching yourself as you though of this?" 
+ 
+
+===
+
+"And so you began touching yourself as you though of this?" 
 
  "I had started touching myself as soon as I started to imagine it." 
 
@@ -506,7 +520,11 @@
 
  
 
- ****** Who's The Boss? Ch. 03 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading Chapter 1&2 in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading Chapter 1&2 in order to get the context of this story. 
 
  Comments are welcome 
 
@@ -704,7 +722,11 @@
 
  
 
- ****** Who's The Boss? Ch. 03 ****** byJs_Keeper© "Are you as excited by this as I am?" I asked. 
+ 
+
+===
+
+"Are you as excited by this as I am?" I asked. 
 
  "By the movie or by your hands, Sir?" she asked in return. 
 
@@ -726,7 +748,11 @@
 
  
 
- ****** Who's The Boss? Ch. 04 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  Meaningful comments are always welcome 
 
@@ -920,7 +946,11 @@
 
  
 
- ****** Who's The Boss? Ch. 04 ****** byJs_Keeper© I paid the bill, allowing her plenty of time to get naked for me, and a little extra time to wait anxiously for my arrival. By the time I entered the restroom, there was a guy in the stall next to her and another at the urinal. The door to her stall was locked when I tried it. 
+ 
+
+===
+
+I paid the bill, allowing her plenty of time to get naked for me, and a little extra time to wait anxiously for my arrival. By the time I entered the restroom, there was a guy in the stall next to her and another at the urinal. The door to her stall was locked when I tried it. 
 
  "MLS," I said tapping on the door. When she cracked to door and peered out, I pushed my way in as she attempted to cover her naked body with her arms. I closed and locked the door, and then pulled her arms down to her side. I looked over her delicious body slowly and deliberately. I could see that she was trembling slightly, either due to nervousness or the chill in the air. I noticed her erect nipples and gently cupped my warm hands under her tits, lifting them slightly as I lowered my mouth to kiss one then the other. I started with soft kisses; then went to sucking, then pulling the distended flesh outward between my lips, and finally biting more roughly. 
 
@@ -958,7 +988,11 @@
 
  
 
- ****** Who's The Boss? Ch. 05 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  Meaningful comments are always welcome 
 
@@ -1118,7 +1152,11 @@
 
  
 
- ****** Who's The Boss? Ch. 06 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  Comments are always more than welcome. 
 
@@ -1322,7 +1360,11 @@
 
  
 
- ****** Who's The Boss? Ch. 07 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  If you take the time to read my stories, please take a few more seconds to leave a comments and/or a vote. Feedback is always appreciated. And let me know if you want this story to continue... 
 
@@ -1510,7 +1552,11 @@
 
  
 
- ****** Who's The Boss? Ch. 07 ****** byJs_Keeper© "We're alone except for Nataliya. Don't worry," I assured her. I reached out my hand and stroked one of her pierced nipples through the translucent blue material of her bra. Her sweet bud jumped to attention for me. "I like the way this shows off your assets, though I'm not so sure you'd be able to wear this for work. Still, for play it's very nice." I continued playing with her nipple for a moment, tugging lightly on the barbell through the stretchy thin fabric. 
+ 
+
+===
+
+"We're alone except for Nataliya. Don't worry," I assured her. I reached out my hand and stroked one of her pierced nipples through the translucent blue material of her bra. Her sweet bud jumped to attention for me. "I like the way this shows off your assets, though I'm not so sure you'd be able to wear this for work. Still, for play it's very nice." I continued playing with her nipple for a moment, tugging lightly on the barbell through the stretchy thin fabric. 
 
  "Turn for me," I instructed. She stepped back from the doorway and turned around slowly. 
 
@@ -1670,7 +1716,11 @@
 
  
 
- ****** Who's The Boss? Ch. 08 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  If you take the time to read my stories, please take a few more seconds to leave a comments and/or a vote. Feedback is always appreciated. 
 
@@ -1830,7 +1880,11 @@
 
  
 
- ****** Who's The Boss? Ch. 08 ****** byJs_Keeper© Nikki had always intrigued me, but in the few days since having her as my cunt, I had grown increasingly fascinated. Did she struggle with stark contrast between her inner life and the one visible to everyone else, or had she resolved in her mind to live contented with the conflict? Here she was, a stunning beauty with a fantastically sexy body that remained modestly hidden beneath ordinary, almost homely attire and until my intervention, equally drab lingerie. She was clearly intelligent and sharp-witted, yet seemed completely satisfied with her humble secretarial career. The casual observer would likely deduce that her sexuality was in the same class as her dress: plain and traditional. Yet beneath the exterior raged an inferno of sexual deviance, a bisexual submissive addicted to being dominated with rough sex and humiliation, and possessing a deeply erotic imagination. 
+ 
+
+===
+
+Nikki had always intrigued me, but in the few days since having her as my cunt, I had grown increasingly fascinated. Did she struggle with stark contrast between her inner life and the one visible to everyone else, or had she resolved in her mind to live contented with the conflict? Here she was, a stunning beauty with a fantastically sexy body that remained modestly hidden beneath ordinary, almost homely attire and until my intervention, equally drab lingerie. She was clearly intelligent and sharp-witted, yet seemed completely satisfied with her humble secretarial career. The casual observer would likely deduce that her sexuality was in the same class as her dress: plain and traditional. Yet beneath the exterior raged an inferno of sexual deviance, a bisexual submissive addicted to being dominated with rough sex and humiliation, and possessing a deeply erotic imagination. 
 
  I wondered, as she stood there in front of me, dressed conservatively and displaying a typically modest demeanor, whether she even consciously acknowledged the intense sexual passion that I knew to be seething beneath her cool exterior. My goal, as her new Master, was to bring her inner cunt to the surface, to let it consume her to the utmost. 
 
@@ -1994,7 +2048,11 @@
 
  
 
- ****** Who's The Boss? Ch. 08 ****** byJs_Keeper© I watched Adrienne rotate her fingers inside Nikki's gaping pussy until her hand came to rest palm up, fingers lodged inside her to the knuckles. She began quickly curling her fingers back against the front wall of Nikki's throbbing cunt, massaging her g-spot with steady, forceful motions. Nikki's hips involuntarily began thrashing again, more earnestly than ever, and I sensed that she was well on her way to a one incredible orgasm. 
+ 
+
+===
+
+I watched Adrienne rotate her fingers inside Nikki's gaping pussy until her hand came to rest palm up, fingers lodged inside her to the knuckles. She began quickly curling her fingers back against the front wall of Nikki's throbbing cunt, massaging her g-spot with steady, forceful motions. Nikki's hips involuntarily began thrashing again, more earnestly than ever, and I sensed that she was well on her way to a one incredible orgasm. 
 
  "That's it cunt, you're going to come now. You know you can't help it! You can't resist it! Let it overtake you!" I called out as I continued pounding her face with my cock. 
 
@@ -2060,7 +2118,11 @@
 
  
 
- ****** Who's The Boss? Ch. 09 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  If you take the time to read my stories, please take a few more seconds to leave a comments and/or a vote. Feedback is always appreciated. 
 
@@ -2288,7 +2350,11 @@
 
  
 
- ****** Who's The Boss? Ch. 09 ****** byJs_Keeper© "And it makes you wet every time, doesn't it?" 
+ 
+
+===
+
+"And it makes you wet every time, doesn't it?" 
 
  "Yes, Sir." 
 
@@ -2582,7 +2648,11 @@
 
  
 
- ****** Who's The Boss? Ch. 09 ****** byJs_Keeper© "Wait here and do you best to relax while I prepare things for the taking of your ass." 
+ 
+
+===
+
+"Wait here and do you best to relax while I prepare things for the taking of your ass." 
 
  I retrieved my bag, the two candlesticks and the dildo from the living room, lighting a few additional candles on the dining room side table upon my return. This was an event that I intended to see clearly and remember well. I emptied the contents of my bag onto the table, setting everything out in order. 
 
@@ -2750,7 +2820,11 @@
 
  
 
- ****** Who's The Boss? Ch. 10 ****** byJs_Keeper© Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
+ 
+
+===
+
+Author's Note: Although you can enjoy the story as a stand-alone, I recommend reading the earlier chapters in order to get the context of this story. 
 
  If you take the time to read my stories, please take a few more seconds to leave a comments and/or a vote. Feedback is always appreciated. 
 
@@ -2934,7 +3008,11 @@
 
  
 
- ****** Who's The Boss? Ch. 10 ****** byJs_Keeper© At a few minutes before ten I pulled into the parking lot I’d instructed them to use. I parked my car in an empty row at the far end of the lot and waited. Even on this soggy morning, there were six other cars already parked there. I’d driven past the park’s east lot on my way in, and noticed at least another dozen cars or so. Perfect. There would be a sufficient number of bystanders, just as I’d hoped, but the large park wouldn’t be overly crowded either. 
+ 
+
+===
+
+At a few minutes before ten I pulled into the parking lot I’d instructed them to use. I parked my car in an empty row at the far end of the lot and waited. Even on this soggy morning, there were six other cars already parked there. I’d driven past the park’s east lot on my way in, and noticed at least another dozen cars or so. Perfect. There would be a sufficient number of bystanders, just as I’d hoped, but the large park wouldn’t be overly crowded either. 
 
  Nikki arrived first, since she had the shortest drive from home. She pulled into the space to my left, flashing me a brief nervous smile before remembering my instruction to disregard my presence. She turned off her engine, reached under her seat, and pulled out the zip-lock bag. I watched her eyes widen as she pulled out the extra small, cheaply thin, white men’s tank type t-shirt and a bright pink little pair of running shorts. She unfolded the tank top, and her mouth dropped open when she saw the word “cunt” silk-screened in bold black lettering right on the chest. She quickly put the shirt down and unfolded the sheet of instructions I’d typed out for her. 
 
@@ -3094,7 +3172,11 @@
 
  
 
- ****** Who's The Boss? Ch. 10 ****** byJs_Keeper© While Adrienne waited a ways away, hidden from sight by a clump of bushes, yet able to see the approach to the bathrooms, I went into the men’s room, entered the far stall, and took a piss. Then I sat down on the toilet seat to wait. I was glad I didn’t have to wait long, because the place stunk like a grotesque mixture of piss and mildew. Perfect, I thought. 
+ 
+
+===
+
+While Adrienne waited a ways away, hidden from sight by a clump of bushes, yet able to see the approach to the bathrooms, I went into the men’s room, entered the far stall, and took a piss. Then I sat down on the toilet seat to wait. I was glad I didn’t have to wait long, because the place stunk like a grotesque mixture of piss and mildew. Perfect, I thought. 
 
  The men’s room door slammed open with a bang and the two of them came scrambling in. 
 
@@ -3298,7 +3380,11 @@
 
  
 
- ****** Who's The Boss? Ch. 10 ****** byJs_Keeper© “You see, Sir, you and Nikki and I are all completely free now to be who we want to be. The question is, who do you want to be?” 
+ 
+
+===
+
+“You see, Sir, you and Nikki and I are all completely free now to be who we want to be. The question is, who do you want to be?” 
 
  I slid my chair around to face these two gorgeous, topless women who were offering themselves to me in a way no other women had ever done. I gently pulled each of their heads down to rest on one of my knees, facing each other, while I softly stroked their hair. 
 

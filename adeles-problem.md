@@ -1,8 +1,14 @@
+Adele's Problem
+===============
 #1 
 
  
 
- ****** Adele's Problem ****** byJust_Plain_Bob© I looked down at the pile on the table in front of me and wondered just where the habit had come from and how I'd gotten started doing it. I always peel the labels off of my beer bottles. I had been sitting there for over an hour and a half waiting for my stepmother to show and the pile had grown. Adele had called me at work and had asked me to meet her for a drink. She said that she had something important that she needed to talk to me about and so far she had called me twice on her cell to tell me that she was running late, but that she was on the way. 
+ 
+
+===
+
+I looked down at the pile on the table in front of me and wondered just where the habit had come from and how I'd gotten started doing it. I always peel the labels off of my beer bottles. I had been sitting there for over an hour and a half waiting for my stepmother to show and the pile had grown. Adele had called me at work and had asked me to meet her for a drink. She said that she had something important that she needed to talk to me about and so far she had called me twice on her cell to tell me that she was running late, but that she was on the way. 
 
  Normally I won't sit around and wait for people who are late for meetings and appointments, but this time curiosity had me pinned to my chair. Adele and I did not get along - never had - and I didn't expect that we ever would. I did have to admit that I was as much to blame for the animosity as she was. After mom had died I thought dad had replaced her way too soon and so I was a little cold toward Adele when she moved in. On her part Adele was way too bossy for someone new to the household and to the two teenagers who lived there. 
 

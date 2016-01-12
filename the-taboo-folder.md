@@ -1,8 +1,14 @@
+The Taboo Folder
+================
 #1 
 
  
 
- ****** The Taboo Folder ****** bygeronimo_appleby© Right, okay, so here's My Valentine's Day Contest entry. I hate to begin with an apology, but time, geography, other writing commitments, lack of electricity, too many Chang beers and, of course, laziness on my part means that I had to sprint for the line with this one. I hope the result isn't too appalling or disappointing, but I did want to get this in for the competition. 
+ 
+
+===
+
+Right, okay, so here's My Valentine's Day Contest entry. I hate to begin with an apology, but time, geography, other writing commitments, lack of electricity, too many Chang beers and, of course, laziness on my part means that I had to sprint for the line with this one. I hope the result isn't too appalling or disappointing, but I did want to get this in for the competition. 
 
  Okay, it's an incest piece. The young man has a folder on the shared computer just chock full of incest video clips. His mother finds it and is, at first, shocked. But she can't keep away and goes back to look at the stuff her son has squirrelled away. Then she finds a draft of a Valentine's Day scene penned by her son (which is the prologue to this piece). 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** The Taboo Folder ****** bygeronimo_appleby© It didn't bear thinking about. 
+ 
+
+===
+
+It didn't bear thinking about. 
 
  His mother seeing the folder and discovering his dirty little secret was too awful to contemplate. Even as he sat there, the folder a silent mockery, its title screaming out perversion, Carl felt his face burn. His sphincter tightened again, his toes actually curling while Carl groaned out loud. His mind whirled for answers, wondering if his mother had been on the computer that day, hoping desperately that she hadn't. It wasn't every day she used the desktop, preferring her laptop machine at the kitchen table for day-to-day running of her business. But she did use the desktop as a back-up for her files, and all Carl could do was hope like hell that today wasn't one of those days his mother had decided on some corporate housekeeping. 
 
@@ -352,7 +362,11 @@
 
  
 
- ****** The Taboo Folder ****** bygeronimo_appleby© Carl made doubly sure he'd hidden the folder before powering down the computer. The fright he'd had still hadn't completely worn off, but his mother's demeanour in the several days since the incident convinced him his secret was safe. The screen went blank and Carl slid the chair back on its casters, the seat swivelling beneath him as he turned towards the door. 
+ 
+
+===
+
+Carl made doubly sure he'd hidden the folder before powering down the computer. The fright he'd had still hadn't completely worn off, but his mother's demeanour in the several days since the incident convinced him his secret was safe. The screen went blank and Carl slid the chair back on its casters, the seat swivelling beneath him as he turned towards the door. 
 
  He met his mother on the landing just as she broached the top riser on the stairs. 
 
@@ -536,7 +550,11 @@
 
  
 
- ****** The Taboo Folder ****** bygeronimo_appleby© He was due home no later than quarter-to-six, which also came and went. 
+ 
+
+===
+
+He was due home no later than quarter-to-six, which also came and went. 
 
  When both hands on the huge Ikea clock showed a single vertical line Louise began to worry. It was February, cold and dark, and he was on a motorbike. She chewed her bottom lip, anxious for her son's safety, but stopped when she realised she would have to carry out repairs with more of the red lipstick she'd chosen for the effect. 
 

@@ -1,8 +1,14 @@
+The Complete Submission Ch. 01
+==============================
 #1 
 
  
 
- ****** The Complete Submission Ch. 01 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  Of course, all participants are 18 years or older. 
 
@@ -110,7 +116,11 @@
 
  
 
- ****** The Complete Submission Ch. 02 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  Of course, all participants are 18 years or older. 
 
@@ -334,7 +344,11 @@
 
  
 
- ****** The Complete Submission Ch. 03 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  PART THREE: THE COMPLETE SEDUCTION 
 
@@ -402,7 +416,7 @@
 
  "I smiled and said, 'Mommy, I learned today that you are a bad, bad girl.' She looked at me confused. 'Mommy, before Mandi's mother ate your daughter's pussy, she admitted that she had been between your legs too.'" 
 
- "My mother blushed and started to realize the situation she was in. She attempted to cover herself up. I got up and demanded her to get on her knees. She did not quickly obey. I started fingering her again, her body betrayed her mind and she started moaning to my strokes. I stopped again and said, 'Now Mommy, things are going to be different from now on. You will submit to me. You will beg to eat my pussy.' I reinserted by fingers and fucked her until she quaked with joy.| 
+ "My mother blushed and started to realize the situation she was in. She attempted to cover herself up. I got up and demanded her to get on her knees. She did not quickly obey. I started fingering her again, her body betrayed her mind and she started moaning to my strokes. I stopped again and said, 'Now Mommy, things are going to be different from now on. You will submit to me. You will beg to eat my pussy.' I reinserted by fingers and fucked her until she quaked with joy. 
 
  "I lifted up my skirt and said, 'Do you want to lick her daughter's pussy?'" 
 
@@ -530,7 +544,11 @@
 
  
 
- ****** The Complete Submission Ch. 03 ****** bysilkstockingslover© Danny continued to thrust in and out of my Mom's slut hole. I watched as Mom got back into it, heedless to that her two children were watching the incestuous coupling. Uncle then withdrew his cock and waited. Mom looked at him, then at me, then at Mark. She said in complete submission, "Oh please Danny, fuck me, show my kids what kind of whore I am. They deserve to know the truth. I am a brother fucking slut." 
+ 
+
+===
+
+Danny continued to thrust in and out of my Mom's slut hole. I watched as Mom got back into it, heedless to that her two children were watching the incestuous coupling. Uncle then withdrew his cock and waited. Mom looked at him, then at me, then at Mark. She said in complete submission, "Oh please Danny, fuck me, show my kids what kind of whore I am. They deserve to know the truth. I am a brother fucking slut." 
 
  As Danny reentered her, she screamed with lust, looked me straight in the eye and confessed, "Mandi, darling, sweetheart, mistress, I love you. You saw through my false exterior. Thank you for allowing me to be a whore again. I love what you make me do. I'll do anything. Drag me deeper into your and Carla's perversion. My body is yours to do as you please. Humiliate me, degrade me; I deserve it, I crave it. Go get your Daddy honey." 
 
@@ -736,7 +754,11 @@
 
  
 
- ****** The Complete Submission Ch. 04 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  Of course, all participants are 18 years or older. 
 
@@ -1042,7 +1064,11 @@
 
  
 
- ****** The Complete Submission Ch. 04 ****** bysilkstockingslover© The stud got dressed, said thanks and left. 
+ 
+
+===
+
+The stud got dressed, said thanks and left. 
 
  Carla said to Nadine, "Do you fuck your mother?" 
 
@@ -1106,7 +1132,11 @@
 
  
 
- ****** The Complete Submission Ch. 05 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  Of course, all participants are 18 years or older. 
 
@@ -1294,7 +1324,11 @@
 
  
 
- ****** The Complete Submission Ch. 06 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  Of course, all participants are 18 years or older. 
 
@@ -1392,7 +1426,11 @@
 
  
 
- ****** The Complete Submission Ch. 07 ****** bysilkstockingslover© A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
+ 
+
+===
+
+A special thanks to Estragon for all his editing help. (Re-edited: March 2011) 
 
  Of course, all participants are 18 years or older. 
 
@@ -1602,7 +1640,11 @@
 
  
 
- ****** The Complete Submission Ch. 07 ****** bysilkstockingslover© Dad instantly obeyed and took his son's cock that had just been reaming his ass and swallowed it whole. He pumped up and down deep-throating my brother's cock constantly. I had never seen such a ferocious blow job in my life. My Dad was an amazing cock-sucker. My brother eventually grabbed dad's head and started fucking father's face and in just a few pumps he shot his semen down our father's throat. My father swallowed it all and kept moving, slowly, up and down on his son's cock. Mark being a young pup, his cock stayed hard. I knew now was the time to fuck Daddy dearest. 
+ 
+
+===
+
+Dad instantly obeyed and took his son's cock that had just been reaming his ass and swallowed it whole. He pumped up and down deep-throating my brother's cock constantly. I had never seen such a ferocious blow job in my life. My Dad was an amazing cock-sucker. My brother eventually grabbed dad's head and started fucking father's face and in just a few pumps he shot his semen down our father's throat. My father swallowed it all and kept moving, slowly, up and down on his son's cock. Mark being a young pup, his cock stayed hard. I knew now was the time to fuck Daddy dearest. 
 
  I walked over to Daddy and said in a sweet innocent voice, "Daddy do you want to fuck your little baby?" 
 

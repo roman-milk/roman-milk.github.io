@@ -1,8 +1,14 @@
+The Anniversary Dinner
+======================
 #1 
 
  
 
- ****** The Anniversary Dinner ****** byJust_Plain_Bob© I've had the hots for my wife's younger sister since the day I met her. I was dating Karen and one day she took me home with her to meet her family. I took one look at her sister and I had to fight to keep the rest of the family from seeing me drooling. And don't think that little sister didn't know it. Shannon went out of her way that night to tease the hell out of me and fifteen years later she is still doing it. 
+ 
+
+===
+
+I've had the hots for my wife's younger sister since the day I met her. I was dating Karen and one day she took me home with her to meet her family. I took one look at her sister and I had to fight to keep the rest of the family from seeing me drooling. And don't think that little sister didn't know it. Shannon went out of her way that night to tease the hell out of me and fifteen years later she is still doing it. 
 
  If Shannon turned me on so much why didn't I drop Karen and go after Shannon? Because I was in love with Karen, I only wanted to fuck Shannon. That hadn't changed after fifteen years either. Neither had the fact that Shannon teased me unmercifully every chance she got. From "accidentally" letting me see her naked to rubbing her body all over me on the dance floor. But the worse thing she did was tell me all about the men she played with. Shannon was married to a dumbshit - a hell of a nice guy - but a dumbshit. He thought he was married to the sweetest, purest, most faithful woman in the world, but Shannon was the biggest slut in town and everyone but her husband and family knew it. I knew it because she went out of her way to tell me. And she did that, or so I believe, because she knew I lusted for her but loved my wife too much to do anything that would fuck up my marriage and she was going to punish me for it. I say that she went out of her way to tell me, but going out of her way wasn't really going all that far since we both worked for the same company. All Shannon had to do was catch me at morning or afternoon break or catch me in the cafeteria at lunch. 
 

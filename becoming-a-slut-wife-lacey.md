@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Lacey
+===========================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Lacey ****** byJust_Plain_Bob© I probably never would have found out if it wasn't for me doing something that I had never done before. I came up out of the basement and went to the laundry room carrying several sets of dirty coveralls. Earlier in the week my wife Lacey had made the comment that I couldn't seem to do anything for myself and I'd be helpless without her being around to take care of me. 
+ 
+
+===
+
+I probably never would have found out if it wasn't for me doing something that I had never done before. I came up out of the basement and went to the laundry room carrying several sets of dirty coveralls. Earlier in the week my wife Lacey had made the comment that I couldn't seem to do anything for myself and I'd be helpless without her being around to take care of me. 
 
  It stung me. I thought that I was carrying my weight around the house. I maintained both cars, did all the lawn work, and took care of all the home repairs and painting. So what if I never dusted a room or mopped a kitchen floor; I didn't see her out changing the oil in her car. So to prove her wrong I was going to wash my own dirty coveralls instead of leaving them in the laundry room for her to do. 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Becoming a Slut Wife: Lacey ****** byJust_Plain_Bob© After two hours in the basement and having no clearer idea of where I was than I'd had when I first went down there I headed back upstairs, grabbed my coat and headed for the door. 
+ 
+
+===
+
+After two hours in the basement and having no clearer idea of where I was than I'd had when I first went down there I headed back upstairs, grabbed my coat and headed for the door. 
 
  "Brian. Where are you going?" 
 
@@ -464,7 +474,11 @@
 
  
 
- ****** Becoming a Slut Wife: Lacey ****** byJust_Plain_Bob© Rick climbed up on the bed and stuffed his dick in Lacey's mouth, but the moans and the screaming still came through loud and clear. 
+ 
+
+===
+
+Rick climbed up on the bed and stuffed his dick in Lacey's mouth, but the moans and the screaming still came through loud and clear. 
 
  For the next two hours Lacey was never without a cock in her mouth or pussy for more than ten seconds and during that entire time either Darren or Rick was trash talking and Lacey was agreeing with whatever they said. She agreed to fuck dogs, suck off a pony, do gangbangs, let herself be sold as a prostitute, whatever they wanted as long as Darren didn't stop giving her his cock. She had orgasm after orgasm and I don't think that there was more that a five-minute break between any of them. 
 

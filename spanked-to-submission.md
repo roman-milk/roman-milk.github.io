@@ -1,8 +1,14 @@
+Spanked to Submission: A Novella
+================================
 #1 
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© Spanked to Submission: A Novella 
+ 
+
+===
+
+Spanked to Submission: A Novella 
 
  Summary: A white boss is dommed by her 18-year-old black female employee. 
 
@@ -160,7 +166,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© I sat flabbergasted. That did not go at all as I planned. I contemplated leaving early, but my fear of encountering her full wrath scared me. That hour was the longest hour in my life, waiting for what was coming next and desperately trying to find a way out of this situation. 
+ 
+
+===
+
+I sat flabbergasted. That did not go at all as I planned. I contemplated leaving early, but my fear of encountering her full wrath scared me. That hour was the longest hour in my life, waiting for what was coming next and desperately trying to find a way out of this situation. 
 
  At 5:33, three minutes late, Audree walked in. Without a saying a word, she sat on my love seat. I sat behind my desk, too scared to move. We looked at each other, a battle of wills of sorts. Audree waited patiently for me. I stood my ground at first, wondering if this was all still just an elaborate prank. If it was, Audree was a great actress. Her facial expression did not change while she waited for me to break. I was a bundle of nerves, riddled with anxiety, but I attempted to present myself as calm and collected. All my old insecurities came flooding back and I was no longer the confident successful boss, but rather the shy, geeky insecure teenager I used to be. 
 
@@ -302,7 +312,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© I surveyed the room and observed that it was painted in a soothing sunset orange. The room had a table, a couple of chairs and a few contraptions whose purposes I couldn't begin to imagine. My tranquility was broken when Brenda suddenly stepped through the door, greatly startling me. I used my left arm to cover my small breasts and I used my right hand to cover my naked hairy vagina. I let out a shocked gasp as I looked at this woman that Audree had sent me to. The black woman's arms were covered in tattoos. She wore a black and white bandana, a short schoolgirl plaid skirt, fishnet stockings, black ankle boots, and a strange white see-through blouse with no sleeves. I could see that both nipples were pierced. I had never been so intimidated or scared in my life. 
+ 
+
+===
+
+I surveyed the room and observed that it was painted in a soothing sunset orange. The room had a table, a couple of chairs and a few contraptions whose purposes I couldn't begin to imagine. My tranquility was broken when Brenda suddenly stepped through the door, greatly startling me. I used my left arm to cover my small breasts and I used my right hand to cover my naked hairy vagina. I let out a shocked gasp as I looked at this woman that Audree had sent me to. The black woman's arms were covered in tattoos. She wore a black and white bandana, a short schoolgirl plaid skirt, fishnet stockings, black ankle boots, and a strange white see-through blouse with no sleeves. I could see that both nipples were pierced. I had never been so intimidated or scared in my life. 
 
  To make things worse, I was starting to feel a little buzz from the tea, making me a little light headed. She looked me over and asked, "Well honey, what are we doing with you today?" 
 
@@ -454,7 +468,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© She seemed pleased by my compliance as she peered between my legs and at my naked cunt. After a few seconds of utter silence, Audree said, "Oh, I left the lotion in my purse, I will be right back." As she walked to the door, she paused and demanded, "Don't you dare move a muscle, Annie-girl." Purposefully, she left the door partially open. 
+ 
+
+===
+
+She seemed pleased by my compliance as she peered between my legs and at my naked cunt. After a few seconds of utter silence, Audree said, "Oh, I left the lotion in my purse, I will be right back." As she walked to the door, she paused and demanded, "Don't you dare move a muscle, Annie-girl." Purposefully, she left the door partially open. 
 
  I was mortified; this was a whole new level of risk and obedience. There I was, sitting on my desk, my dress up to my waist; legs spread wide open, and door partially open. I could hear rumblings from the outer office stirring. It seemed like forever for Audree to return. I was a nervous wreck, worried that another employee might walk into my office and catch me in this humiliating, submissive situation. How would I explain it? How could I explain it? Even so, as nervous as I was, my pussy was getting excited again. I could feel the juices warming up when she finally returned. 
 
@@ -654,7 +672,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© I was too wrapped up with my banana-fucking to remember all she called me, but I do recall bits and pieces. She called me a lesbian slut, Audree's property and a fruit fucker. What I have committed to memory was her soft touch on my ass and the way she fucked my ear with her tongue and teeth. Standing up made it harder to come, but between the long curved fruit, Tiara's lips and hands, and her nasty verbal abuse of me, I came like a nasty slut. My legs buckled out of weakness and Tiara had to catch me from tumbling. As I silently shook, Tiara held me tightly while continuing the verbal degrading. "Fuck, you are a whore, fucking yourself in front of a stranger with a banana. Who does that?" My orgasmic bliss instantly changed to sheer shame from her harsh, but true, words. 
+ 
+
+===
+
+I was too wrapped up with my banana-fucking to remember all she called me, but I do recall bits and pieces. She called me a lesbian slut, Audree's property and a fruit fucker. What I have committed to memory was her soft touch on my ass and the way she fucked my ear with her tongue and teeth. Standing up made it harder to come, but between the long curved fruit, Tiara's lips and hands, and her nasty verbal abuse of me, I came like a nasty slut. My legs buckled out of weakness and Tiara had to catch me from tumbling. As I silently shook, Tiara held me tightly while continuing the verbal degrading. "Fuck, you are a whore, fucking yourself in front of a stranger with a banana. Who does that?" My orgasmic bliss instantly changed to sheer shame from her harsh, but true, words. 
 
  My words in response were outrageous as I ignored her question and instead thanked her for the orgasm. She let out a harsh laugh. Then she let me go and demanded I sit on her couch, legs spread, the banana still in me. She knelt down between my legs and looked at my just fucked pussy with a banana sticking out of it. To my surprise, instead of taking the banana out, she began moving it in and out furiously. After a few quick hard thrusts, I got excited all over again. My moans got louder as she thrust the yellow fruit in and out of my dripping wet pussy. Just as I was getting close to my second orgasm in a few minutes, she pulled it out. I moaned, "Noooooo." 
 
@@ -786,7 +808,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© I got to work, trepidation filling me as I wondered what Ms. Audree might have in store for me. There was nothing waiting for me, so I logged into my computer and saw an e-mail from Audree. It included my schedule for the day and the following note: 
+ 
+
+===
+
+I got to work, trepidation filling me as I wondered what Ms. Audree might have in store for me. There was nothing waiting for me, so I logged into my computer and saw an e-mail from Audree. It included my schedule for the day and the following note: 
 
  Dear Annie-girl, 
 
@@ -988,7 +1014,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© 
+ 
+
+===
+
+
 
  Now here was the moment that I could have had stopped it all. I could have said 'please stop', but my head was spinning, her magical fingers having done a spell on me, and all I could think about was coming. So although I could hear my conscience screaming 'No ,no, no,', the words that came out of my mouth were the eager desperate words "Please don't stop, Ms. Audree." 
 
@@ -1146,7 +1176,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© Ms. Audree 
+ 
+
+===
+
+Ms. Audree 
 
  P.S. Don't you dare think about taking a cab home! You must take the train home tonight! Also, you must stand even if you are offered a seat. 
 
@@ -1394,7 +1428,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© Ms. Audree pulled her finger out and took off her strap-on cock. She demanded as she handed me the cock, "Clean my cock, Annie-girl." 
+ 
+
+===
+
+Ms. Audree pulled her finger out and took off her strap-on cock. She demanded as she handed me the cock, "Clean my cock, Annie-girl." 
 
  I obeyed and cleaned my cum off the plastic cock. Audree watched until I was done, took the toy and left the room. She came downstairs a minute later with her duffle bag, "See you on Monday, Annie-girl." 
 
@@ -1600,7 +1638,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© "I needed to find someone to help me with the nipple clamps." 
+ 
+
+===
+
+"I needed to find someone to help me with the nipple clamps." 
 
  "Did you find someone?" 
 
@@ -1806,7 +1848,11 @@
 
  
 
- ****** Spanked to Submission: A Novella ****** bysilkstockingslover© Audree gave an olive branch and Penelope took it hook, line and sinker. "Who would that be?" Penelope asked curiously. 
+ 
+
+===
+
+Audree gave an olive branch and Penelope took it hook, line and sinker. "Who would that be?" Penelope asked curiously. 
 
  Audree gave a coy smile, "I don't kiss and tell." Her finger slipped between my pussy lips. It was all I could do to not come right there. 
 
@@ -1926,7 +1972,11 @@
 
  
 
- ****** Spanked to Submission: Love Story ****** bysilkstockingslover© Spanked to Submission: A Love Story 
+ 
+
+===
+
+Spanked to Submission: A Love Story 
 
  Summary:White boss tries to break free from young black seductress. 
 
@@ -2190,7 +2240,11 @@
 
  
 
- ****** Spanked to Submission: Love Story ****** bysilkstockingslover© "Yes, but not in the same way I have become now. I liked to please my boyfriends or my husband, both in the bedroom and just in general. In retrospect, we went to the restaurants they wanted to go to, watched the movies they chose and so forth. I never really got to make any of the choices. That is why I love my job so much." 
+ 
+
+===
+
+"Yes, but not in the same way I have become now. I liked to please my boyfriends or my husband, both in the bedroom and just in general. In retrospect, we went to the restaurants they wanted to go to, watched the movies they chose and so forth. I never really got to make any of the choices. That is why I love my job so much." 
 
  "Because you are clearly in charge?" 
 
@@ -2536,7 +2590,11 @@
 
  
 
- ****** Spanked to Submission: Love Story ****** bysilkstockingslover© Ms. Audree's smile didn't fade but her tone dripped with authority. &quot;Sit down, Dr. White.&quot; 
+ 
+
+===
+
+Ms. Audree's smile didn't fade but her tone dripped with authority. &quot;Sit down, Dr. White.&quot; 
 
  The doctor, clearly confused by the young girl's tone, didn't obey the order, as Ms. Audree sat down beside me. &quot;If my white slut is going to be seeing a head doctor, I think it is imperative you hear my side.&quot; 
 
@@ -2898,7 +2956,11 @@
 
  
 
- ****** Spanked to Submission: Love Story ****** bysilkstockingslover© "Who she really is?" Jane questioned, as I slowly licked, listening intently to Ms. Audree's seemingly accurate assessment of me. 
+ 
+
+===
+
+"Who she really is?" Jane questioned, as I slowly licked, listening intently to Ms. Audree's seemingly accurate assessment of me. 
 
  "Isn't it obvious?" Ms. Audree asked, grabbing my head and pulling me deeper into her. 
 

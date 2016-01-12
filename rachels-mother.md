@@ -1,8 +1,14 @@
+Rachel's Mother: My Slut
+========================
 #1 
 
  
 
- ****** Rachel's Mother: My Slut ****** bypainmaster© Several years ago I was dating a lovely girl Rachel. I was 24 and she was 21. Rachel was a tall, thin, pretty girl with long brunette hair. She was studying at university and still living at home with her mother (Sandra) who was divorced. Most of the time we would meet out at pubs and clubs and we would go back to my place to fuck. Although she was a lovely girl she was very prudish and sex was very basic. We very rarely got past missionary position and once in a blue moon she would go down on me but she would never let me come in her mouth. After several months she asked me to o to her house and meet her mother. 
+ 
+
+===
+
+Several years ago I was dating a lovely girl Rachel. I was 24 and she was 21. Rachel was a tall, thin, pretty girl with long brunette hair. She was studying at university and still living at home with her mother (Sandra) who was divorced. Most of the time we would meet out at pubs and clubs and we would go back to my place to fuck. Although she was a lovely girl she was very prudish and sex was very basic. We very rarely got past missionary position and once in a blue moon she would go down on me but she would never let me come in her mouth. After several months she asked me to o to her house and meet her mother. 
 
  
 
@@ -152,13 +158,21 @@
 
  
 
- ****** Rachel's Mother: My Slut ****** bypainmaster© Walking out I said, 
+ 
+
+===
+
+Walking out I said, 
 
  "I'll be here at 9 o'clock tomorrow morning – be ready to go shopping, wear a see through dress, g-string and high heels.  
 
  
 
- ****** Rachel's Mother Ch. 2 ****** bypainmaster© On Saturday morning I arrived at exactly 9 am. Sandra let me in and made me a cup of coffee. She looked beautiful. She was wearing a light yellow sundress that came down to just above her knees and a pair of yellow high heel shoes. The material of her dress was thin enough to see the g-string she was wearing beneath it and her tits were clearly visible. It was obvious that she was not wearing a bra. She didn't say anything about last night and after having our coffee she asked if she was dressed satisfactory for our shopping trip. 
+ 
+
+===
+
+On Saturday morning I arrived at exactly 9 am. Sandra let me in and made me a cup of coffee. She looked beautiful. She was wearing a light yellow sundress that came down to just above her knees and a pair of yellow high heel shoes. The material of her dress was thin enough to see the g-string she was wearing beneath it and her tits were clearly visible. It was obvious that she was not wearing a bra. She didn't say anything about last night and after having our coffee she asked if she was dressed satisfactory for our shopping trip. 
 
  I drove across town to a mall that I knew had some really good shops. Walking around the mall a lot of people were staring at Sandra – her tits clearly visible bouncing slightly as she walked and her nipples were poking through the dress. Finding a lingerie shop we walked and started looking around. A young female assistant asked if we needed any help and I said yes 
 
@@ -330,7 +344,11 @@
 
  
 
- ****** Rachel's Mother Ch. 3 ****** bypainmaster© On Monday evening I went around to Rachel's place as always for dinner. Sandra was not home as yet. I told Rachel that I was really horny from not having seen her all weekend. The truth is that I was still thinking about her mother and was desperate to let a load go. Rachel was sure that her mother would not be home for at least half an hour so we slipped into her room and started kissing. Rachel didn't want to get caught by her mother and she said 
+ 
+
+===
+
+On Monday evening I went around to Rachel's place as always for dinner. Sandra was not home as yet. I told Rachel that I was really horny from not having seen her all weekend. The truth is that I was still thinking about her mother and was desperate to let a load go. Rachel was sure that her mother would not be home for at least half an hour so we slipped into her room and started kissing. Rachel didn't want to get caught by her mother and she said 
 
  "We will have to be quick – I don't want mum to catch us – I don't want her thinking that I am having sex or she will think I am a slut" 
 

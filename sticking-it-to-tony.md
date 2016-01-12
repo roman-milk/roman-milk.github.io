@@ -1,8 +1,14 @@
+Sticking It to Tony
+===================
 #1 
 
  
 
- ****** Sticking It to Tony ****** byJust_Plain_Bob© I have never been accused of being a nice guy which didn't bother me at all because I wasn't. I was an asshole and I knew it, but even though I was an asshole what happened wouldn't have if I hadn't disliked Tony so much and if he hadn't pissed me off just one time too many. 
+ 
+
+===
+
+I have never been accused of being a nice guy which didn't bother me at all because I wasn't. I was an asshole and I knew it, but even though I was an asshole what happened wouldn't have if I hadn't disliked Tony so much and if he hadn't pissed me off just one time too many. 
 
  Tony was my supervisor at work. He was one of those dick-wads that climb the ladder by taking credit for work that someone else did and by slipping a knife in the back of anyone he thought of as competition. Tony did it all with a smile and pretended he liked you and that you were his buddy even as he was picking out the spot where he would bury the knife. In short, Tony was an asshole. But not like me. Tony was the worst kind of asshole - he hid it and pretended he wasn't one. I, on the other hand, didn't hide it at all. 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Sticking It to Tony ****** byJust_Plain_Bob© The plan was then was to talk Angela into taking him up to the room where he could 'rest' before going home. Then Angela and I would go back to the party, I'd get her blitzed, hit her with a drop or two of the date rape drug if necessary and then take her up to the room to 'check on Tony' and then do the deed. 
+ 
+
+===
+
+The plan was then was to talk Angela into taking him up to the room where he could 'rest' before going home. Then Angela and I would go back to the party, I'd get her blitzed, hit her with a drop or two of the date rape drug if necessary and then take her up to the room to 'check on Tony' and then do the deed. 
 
  It went off like clockwork. Tony drank the doctored drink, got woozy, I talked Angela into taking him up to my room so he could lie down and then in the elevator on the way up to my floor the whole plan went into the toilet. I stood there, supporting Tony and looking at Angela, and I realized I couldn't do it. I just couldn't do it to Angela. Months of sneaky ass preparation right down the chute. We got Tony into the room and put him down on one of the twin beds. Angela removed his tie and his shoes and when she had him comfortable I headed for the door. 
 

@@ -1,8 +1,14 @@
+Gangbang Submission
+===================
 #1 
 
  
 
- ****** Gangbang Submission ****** bysilkstockingslover© NOTE 1: This is dedicated to Bree (who requested this story). 
+ 
+
+===
+
+NOTE 1: This is dedicated to Bree (who requested this story). 
 
  NOTE 2: Thank you to Estragon for your copy editing. 
 
@@ -348,7 +354,11 @@
 
  
 
- ****** Gangbang Submission ****** bysilkstockingslover© "You will eat my pussy?" 
+ 
+
+===
+
+"You will eat my pussy?" 
 
  "Yes." 
 

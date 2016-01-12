@@ -1,8 +1,14 @@
+My Di
+=====
 #1 
 
  
 
- ****** My Di ****** byJust_Plain_Bob© The bookmakers in Vegas would have laughed at you if you would have asked for odds on it happening or they would have just said, "Maybe a billion or a billion and a half to one." But happen it did and I'm sitting here at a table with my wife and I'm watching disaster walking straight toward me. 
+ 
+
+===
+
+The bookmakers in Vegas would have laughed at you if you would have asked for odds on it happening or they would have just said, "Maybe a billion or a billion and a half to one." But happen it did and I'm sitting here at a table with my wife and I'm watching disaster walking straight toward me. 
 
  +++++++++++++++++++++++++++++++++++++ 
 

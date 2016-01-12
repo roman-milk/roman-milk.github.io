@@ -1,8 +1,14 @@
+Windows
+=======
 #1 
 
  
 
- ****** Windows ****** byJust_Plain_Bob© It's the little things that fuck your life up. I mean you know that the big things might happen so you try to prepare for them. You try to squeeze a little bit out of every paycheck to put in savings against that rainy day you get laid off or the company you are working for goes bankrupt. You cover your house with insurance to protect you against fire, flood, and hail damage or some other disaster. You are always looking for the big things, hoping that they won't happen, but trying to be ready if they do. 
+ 
+
+===
+
+It's the little things that fuck your life up. I mean you know that the big things might happen so you try to prepare for them. You try to squeeze a little bit out of every paycheck to put in savings against that rainy day you get laid off or the company you are working for goes bankrupt. You cover your house with insurance to protect you against fire, flood, and hail damage or some other disaster. You are always looking for the big things, hoping that they won't happen, but trying to be ready if they do. 
 
  It's the little things that kill you. Mail the house payment on time, but forget to put a stamp on the envelope and get a late payment tick on your credit report. Let your kid use your car to go out on a date and don't check the gas gauge in the morning; run out of gas on the way to work and have your boss yell at you for being late. Take your wife out to a nice restaurant and go use the restroom. Forget to zip up and walk back to your table with your shirttail sticking out your fly to everyone's amusement. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Windows ****** byJust_Plain_Bob© "You bastard, you miserable bastard" Pam said. 
+ 
+
+===
+
+"You bastard, you miserable bastard" Pam said. 
 
  "Only when you fuck with me Pammy. The rest of the time I'm a nice guy." 
 

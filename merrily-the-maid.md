@@ -1,8 +1,14 @@
+Merrily The Maid
+================
 #1 
 
  
 
- ****** Merrily The Maid ****** byJust_Plain_Bob© Merrily tells me that it is not incest, but I can't help but believe that it is. Not that I'm going to stop mind you, but I do sometimes wonder about what her mother would say. 
+ 
+
+===
+
+Merrily tells me that it is not incest, but I can't help but believe that it is. Not that I'm going to stop mind you, but I do sometimes wonder about what her mother would say. 
 
  Mary and I had been together almost thirty years when she passed on. She was my third and I was her second and both of us were leery of marriage and so we lived together for seven years before we made it legal. All of my kids went with my ex-wives and after my last child with the second wife I had a vasectomy so Mary and I never had kids of our own. But Mary brought two kids from her first marriage with her and I helped raise them as if they were my own. They grew up, married and started raising children of their own, but we remained close. 
 

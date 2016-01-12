@@ -1,8 +1,14 @@
+The Decision
+============
 #1 
 
  
 
- ****** The Decision ****** byJust_Plain_Bob© Author's forward – 
+ 
+
+===
+
+Author's forward – 
 
  I receive a lot of criticism for the way I end some of my stories. I have lived a long enough life to know that at any given time life hits a fork in the road and it can go one way or another. These forks in the road can happen every few week, every few days, every few minutes or even every few seconds. I often leave my stories at one of these forks in the road so the reader can use his or her imagination to give the story the ending that suits them. I make no apologies for this – it is my way. If the reader lacks the imagination to decide what outcome he or she prefers it is not my problem. 
 
@@ -182,7 +188,11 @@
 
  
 
- ****** The Decision ****** byJust_Plain_Bob© "Josie had her panties off and was finger fucking herself while watching the action. Phil undressed and walked up to her and tried to pull her fingers out of her pussy so he could fuck her, but she wouldn't let him. I was busy trying to work my cock into Sue's ass so I lost track of what was going on between Josie and Phil, but the next time I looked their way they were kissing and Phil was finger fucking her while she was jacking him off. That's all she did though. It was the same for the next three weeks. She would let you suck her tits and finger fuck her and she would give you a hand job, but that is all she would do. She wanted to join in and once she was even on her hands and knees getting ready to suck Charlie's cock, but at the last minute she pulled back, said she couldn't and just jacked him off." 
+ 
+
+===
+
+"Josie had her panties off and was finger fucking herself while watching the action. Phil undressed and walked up to her and tried to pull her fingers out of her pussy so he could fuck her, but she wouldn't let him. I was busy trying to work my cock into Sue's ass so I lost track of what was going on between Josie and Phil, but the next time I looked their way they were kissing and Phil was finger fucking her while she was jacking him off. That's all she did though. It was the same for the next three weeks. She would let you suck her tits and finger fuck her and she would give you a hand job, but that is all she would do. She wanted to join in and once she was even on her hands and knees getting ready to suck Charlie's cock, but at the last minute she pulled back, said she couldn't and just jacked him off." 
 
  "That's it?" 
 

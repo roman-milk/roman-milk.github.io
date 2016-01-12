@@ -1,8 +1,14 @@
+Holly Grows Up
+==============
 #1 
 
  
 
- ****** Holly Grows Up ****** byTx_Tall_Tales© ========================= 
+ 
+
+===
+
+========================= 
 
  What to do when the girl next door is all grown up and looking for fun? How do say no? I couldn't. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** Holly Grows Up ****** byTx_Tall_Tales© "Straddle me and lower yourself onto it. Take only as much as is comfortable." I told her. 
+ 
+
+===
+
+"Straddle me and lower yourself onto it. Take only as much as is comfortable." I told her. 
 
  She smiled shyly, and then stepped across my body and squatted over my hips. My hands were holding my cock straight for her, and she reached down and guided the head back into her incredibly tight snatch. 
 
@@ -436,7 +446,11 @@
 
  
 
- ****** Holly Grows Up ****** byTx_Tall_Tales© "Oh God, oh god, oh god," she moaned, then bit her lip and squealed as she clamped down hard on me. 
+ 
+
+===
+
+"Oh God, oh god, oh god," she moaned, then bit her lip and squealed as she clamped down hard on me. 
 
  I pulled her down the bed as far as I could, putting some slack in her legs. The ribbon that had been around her chest was now laying across her neck, the waist one just under her breasts. I got on my knees, wedging them under her thighs, grabbed her waist and fucked the little tart as fast and hard as I could. I owned this young pussy and drilled it thoroughly. She came again for me, gasping, and I looked up to see Holly untie the ribbon that was across Sara's throat. She leaned down and kissed her friend, then eased her own body onto the bed, straddling her friend's hips. Holly tucked her knees in tight, and gave me an open shot at her beckoning pink slit. I could see where she had already lubed herself up, in anticipation. 
 

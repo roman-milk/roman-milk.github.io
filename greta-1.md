@@ -1,8 +1,14 @@
+Greta
+=====
 #1 
 
  
 
- ****** Greta ****** byJust_Plain_Bob© She leafed through the photo album, stopping every once in a while to look up at me, and finally she put the book down and said, "I guess you are my husband." 
+ 
+
+===
+
+She leafed through the photo album, stopping every once in a while to look up at me, and finally she put the book down and said, "I guess you are my husband." 
 
  I smiled and thought, "Yes I am Greta, much to your detriment." 
 

@@ -1,8 +1,14 @@
+Nancy's Christmas Party
+=======================
 #1 
 
  
 
- ****** Nancy's Christmas Party ****** byJust_Plain_Bob© About an hour from now, Larry, one of my coworkers is going to pay me a visit. I will greet him with a passionate kiss (lots of tongue - he likes that) and then I will take him upstairs to my bedroom. I will do a sexy strip for him (leaving on only my high heels) and then I will help him take off his clothes. I will push him back on the bed, kneel between his legs and give him a slow sensuous blow- job until he comes in my mouth. I will swallow every drop of his sperm, I will lick him clean and I will suck him until he is hard again at which time I will climb into bed with him and spend the next hour or so trying to fuck his brains out. When I have totally satisfied him he will dress and I will walk him down to the front door where he will ask if he can see me again soon. I will smile and tell him that my pussy is his whenever he wants it and I will kiss him goodbye. The door will be barely closed behind him and I will be running up the steps to the bedroom where my husband will be waiting with a rock hard cock, providing, of course, that he didn't jack off in the closet. 
+ 
+
+===
+
+About an hour from now, Larry, one of my coworkers is going to pay me a visit. I will greet him with a passionate kiss (lots of tongue - he likes that) and then I will take him upstairs to my bedroom. I will do a sexy strip for him (leaving on only my high heels) and then I will help him take off his clothes. I will push him back on the bed, kneel between his legs and give him a slow sensuous blow- job until he comes in my mouth. I will swallow every drop of his sperm, I will lick him clean and I will suck him until he is hard again at which time I will climb into bed with him and spend the next hour or so trying to fuck his brains out. When I have totally satisfied him he will dress and I will walk him down to the front door where he will ask if he can see me again soon. I will smile and tell him that my pussy is his whenever he wants it and I will kiss him goodbye. The door will be barely closed behind him and I will be running up the steps to the bedroom where my husband will be waiting with a rock hard cock, providing, of course, that he didn't jack off in the closet. 
 
  How did a thirty-eight year old loving wife and mother of three become such a cock hungry slut? Just pure dumb luck, I guess. It all started last December when my company threw its annual Christmas party. I'd only been with them for three months and I was really looking forward to the party so I could get to know my coworkers better. At the last minute my husband Danny decided to throw cold water on my plans. 
 

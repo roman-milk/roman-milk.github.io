@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 07
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 07 ****** byNonStopFunGuy© I could see why my Daddy's eyes were glued in Crystal's direction. As I looked over, my shaved bald cunt in my thong and jeans definitely tingled a little, as I stared at the contours of the parallel ridges of my pretty Latina friend's teenage pussylips in her ultra-tight, faded jean shorts. The shape of her pussy was as obvious as the two stiff nipples on her C-cup tits, stretching out little bumps on her sleeveless t-shirt. 
+ 
+
+===
+
+I could see why my Daddy's eyes were glued in Crystal's direction. As I looked over, my shaved bald cunt in my thong and jeans definitely tingled a little, as I stared at the contours of the parallel ridges of my pretty Latina friend's teenage pussylips in her ultra-tight, faded jean shorts. The shape of her pussy was as obvious as the two stiff nipples on her C-cup tits, stretching out little bumps on her sleeveless t-shirt. 
 
  For the first time ever, I saw one of my best friends from school not just as a pretty, playful 18 year old who I liked to hang out with; I understood how her short, curvy body with her round butt, ample chest and big "cocksucking" lips were a fucking turn-on to adult men. No wonder Daddy had a rigid hard-on in his pants, which he was pathetically trying to disguise by leaving his t-shirt hanging over his crotch. The shirt wasn't long enough; there was no doubt that Daddy's cock was raging, it was fully erect from the sight of my female friend's high school body on display in front of him. 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 07 ****** byNonStopFunGuy© The fact that I was masturbating my girl friend's pussy -- and sucking her tit too -- through her clothing was not lost on me, at that moment. I felt like I was someone else, like my lusty imagination had taken complete control of me, tossed the Real Kristen aside and replaced her with Horny Robot Kristen (gee am I a Number 6 cylon, perhaps). The shapes and smells of her 18 year old petite body with ample breasts was proving to be a powerful aphrodisiac to me. I wanted to really make Crystal feel great, give her what her body wanted. 
+ 
+
+===
+
+The fact that I was masturbating my girl friend's pussy -- and sucking her tit too -- through her clothing was not lost on me, at that moment. I felt like I was someone else, like my lusty imagination had taken complete control of me, tossed the Real Kristen aside and replaced her with Horny Robot Kristen (gee am I a Number 6 cylon, perhaps). The shapes and smells of her 18 year old petite body with ample breasts was proving to be a powerful aphrodisiac to me. I wanted to really make Crystal feel great, give her what her body wanted. 
 
  Munching her boob through her shirt and bra, and fingering her clitty through her jeans and panties, I continued giving her body the muted pleasure for a couple of minutes until suddenly, without any warning, the clothing came flying off. It was like a silent starter's pistol popped and the two of us sprung into motion. 
 
@@ -184,7 +194,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 07 ****** byNonStopFunGuy© Crystal was on fire, her pussy streaming with juices that coated the cucumber and my hand, and ran in drips down her asscheeks and thighs. The smell was divine, she was so fucking horny. I didn't have the leverage I had a few moments ago, so pushing the cuke into her cunt was not so easy; but I gripped it with the liquids all around it, twisting it around, sort of just pushing it in and not really pumping it. She was fucking close to cumming, the way she was screaming and gasping. The sight of her wet pink clitty made me go for it, and I leaned forward, tongue out, flicking across her clitoris while I was shoving the fat cucumber into her adoring vagina. Crystal really screamed at that, I felt her hand grab my nude ass to her side while her other hand pulled her knee far to the side, exposing her cunt more to me. I tasted her musky wet clitty, teasing it by flicking just the tip of my tongue over it, around and around, while her pussylips stretched to take the thick cucumber deeper into her pussy. I rammed the banana hard into my own cunt, going in a good four inches, feeling it provide a little relief to my cock-hungry twat. 
+ 
+
+===
+
+Crystal was on fire, her pussy streaming with juices that coated the cucumber and my hand, and ran in drips down her asscheeks and thighs. The smell was divine, she was so fucking horny. I didn't have the leverage I had a few moments ago, so pushing the cuke into her cunt was not so easy; but I gripped it with the liquids all around it, twisting it around, sort of just pushing it in and not really pumping it. She was fucking close to cumming, the way she was screaming and gasping. The sight of her wet pink clitty made me go for it, and I leaned forward, tongue out, flicking across her clitoris while I was shoving the fat cucumber into her adoring vagina. Crystal really screamed at that, I felt her hand grab my nude ass to her side while her other hand pulled her knee far to the side, exposing her cunt more to me. I tasted her musky wet clitty, teasing it by flicking just the tip of my tongue over it, around and around, while her pussylips stretched to take the thick cucumber deeper into her pussy. I rammed the banana hard into my own cunt, going in a good four inches, feeling it provide a little relief to my cock-hungry twat. 
 
  My friend thrashed with an orgasm, squeezing the cucumber so hard it started to slide out, I really had to grab it and keep it shoved into her cunt while she cried to the end of her climax. Squeezing the hard cucumber in her gushing pussy left her breathless, she almost choked, trying to regain her breaths, almost fearing her breathing had stopped forever. 
 

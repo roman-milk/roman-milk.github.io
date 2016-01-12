@@ -1,8 +1,14 @@
+Playing with Cindy - The Beginning
+==================================
 #1 
 
  
 
- ****** Playing with Cindy - The Beginning ****** bygeronimo_appleby© The second chapter of Cindy. This piece describes how the affair with my mother 
+ 
+
+===
+
+The second chapter of Cindy. This piece describes how the affair with my mother 
 
  longer and longer; until I eventually got sick of it. Thanks to those who looked at it, made suggestions, and helped my with the process. Any errors (and there will be errors) that remain are all mine. 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** Playing with Cindy - The Beginning ****** bygeronimo_appleby© "Oh, God," I groaned, this was too much. The humiliation of her knowing about my sordid little act was more than I could bear. "Leave me alone, Mum. Please just go. I'm so sorry. I don't know what happened to me, but please, just leave me alone." 
+ 
+
+===
+
+"Oh, God," I groaned, this was too much. The humiliation of her knowing about my sordid little act was more than I could bear. "Leave me alone, Mum. Please just go. I'm so sorry. I don't know what happened to me, but please, just leave me alone." 
 
  "We have to sort this out, David." There was a new tone to my mother's voice now. It was sharper, harder. "We have to come to some kind of arrangement. Before your father gets home. If you and I act strange when he gets back... He'll ask all kinds of questions, questions that will be very difficult to answer." She stood and looked down at me, her expression serious and stern. "Fuck it." The expletive startled me, Mum wasn't prone to swearing. "Do you want to see me naked again? Now, right here and now?" 
 

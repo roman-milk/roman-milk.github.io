@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Hetty
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Hetty ****** byJust_Plain_Bob© Hetty had been a cock teaser for as long as I had known her and that had been since the third grade. As she grew too old to play 'doctor' and as her body blossomed she took to wearing short skirts, tight sweaters, low cut blouses and whatever else it took to titillate the boys. As a teen she dated a lot and a lot of guys had some pretty hot times with Hetty, but she always stopped short and send her dates home with a case of blue balls. You would think that with that reputation the boys would avoid her like the plague, but Hetty had that certain something that always kept them coming back. 
+ 
+
+===
+
+Hetty had been a cock teaser for as long as I had known her and that had been since the third grade. As she grew too old to play 'doctor' and as her body blossomed she took to wearing short skirts, tight sweaters, low cut blouses and whatever else it took to titillate the boys. As a teen she dated a lot and a lot of guys had some pretty hot times with Hetty, but she always stopped short and send her dates home with a case of blue balls. You would think that with that reputation the boys would avoid her like the plague, but Hetty had that certain something that always kept them coming back. 
 
  ++++++++++++++++++++++++++++++++++++ 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Becoming A Slut Wife: Hetty ****** byJust_Plain_Bob© I wish things would have played out differently because I really would have liked to know what her choice would have been, but at ten that morning my detective friend and his partner showed up at Hetty's place of employment. They asked for her boss and then had him point out Darrell and then in front of and in the hearing of everyone in the office they told Darrel they had a warrant for his arrest on charges of rape, pandering and a half a dozen other charges. They read him his rights, handcuffed him and then John had his partner take Darrel out and put him in the back of the cop car. Then John gave Hetty's boss a list of names and told him to get them all in a place where he could talk to them. 
+ 
+
+===
+
+I wish things would have played out differently because I really would have liked to know what her choice would have been, but at ten that morning my detective friend and his partner showed up at Hetty's place of employment. They asked for her boss and then had him point out Darrell and then in front of and in the hearing of everyone in the office they told Darrel they had a warrant for his arrest on charges of rape, pandering and a half a dozen other charges. They read him his rights, handcuffed him and then John had his partner take Darrel out and put him in the back of the cop car. Then John gave Hetty's boss a list of names and told him to get them all in a place where he could talk to them. 
 
  "You all know what is going on here and everyone of you could face the same thing that Darrel is facing. You knew what he did that night and what he has done since and everyone of you has contributed which makes all of you open to felony charges. But I don't want you. I want Darrel because I don't like assholes who drug women and then take advantage of them. I want Darrel so bad that I'm willing to forget about you people in exchange for your signed statements outlining what Darrel did and how he brought each of you in on it." 
 

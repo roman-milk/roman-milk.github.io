@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Marty
+===========================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Marty ****** byJust_Plain_Bob© I just found out that my wife of eleven years has been hanging horns on me for several of them and I never had a clue that it was going on. Not just individual affairs either, but what might as well be considered as wholesale fucking. How do I know? I caught the unfaithful slut red-handed! What do you do when you catch the woman you love as the centerpiece at what amounted to a gangbang? How do you handle the crying, begging and pleading you get from her while you are trying to figure out what to do? In addition to her trashing our marriage she may also have cost me my career; my boss was one of the men involved. He swears that he didn't know that Marty was my wife and I believe him and he has promised to make it up to me, but can I go to work everyday, see him, and still remain objective about my job. Then there is Marty; she swears she loves me, didn't mean to hurt me and doesn't want to lose me. How do I handle that? For most men the problem would be cut and dried - throw the slut out and get on with your life. But I love the stupid cunt; I love her and I don't want to lose her, but how can I live with her after what she has done? How do I listen to her express her undying love for me at the same time she admits to loving all the strange cock she had been getting? I'm almost to the point of writing to Ann Landers or Dear Abby and asking them for advice. 
+ 
+
+===
+
+I just found out that my wife of eleven years has been hanging horns on me for several of them and I never had a clue that it was going on. Not just individual affairs either, but what might as well be considered as wholesale fucking. How do I know? I caught the unfaithful slut red-handed! What do you do when you catch the woman you love as the centerpiece at what amounted to a gangbang? How do you handle the crying, begging and pleading you get from her while you are trying to figure out what to do? In addition to her trashing our marriage she may also have cost me my career; my boss was one of the men involved. He swears that he didn't know that Marty was my wife and I believe him and he has promised to make it up to me, but can I go to work everyday, see him, and still remain objective about my job. Then there is Marty; she swears she loves me, didn't mean to hurt me and doesn't want to lose me. How do I handle that? For most men the problem would be cut and dried - throw the slut out and get on with your life. But I love the stupid cunt; I love her and I don't want to lose her, but how can I live with her after what she has done? How do I listen to her express her undying love for me at the same time she admits to loving all the strange cock she had been getting? I'm almost to the point of writing to Ann Landers or Dear Abby and asking them for advice. 
 
  Marty has been an executive secretary at the XYZ Corporation for the past twelve years and for the last five she has been the secretary for the president and CEO. Her job entails some travel, as she has to accompany her boss to meetings in the various cities where XYZ conducts operations. She averages about two trips a month and they last anywhere from one to three days and it was on one of these trips that Marty started her career as the company's "party girl." 
 
@@ -56,7 +62,11 @@
 
  
 
- ****** Becoming A Slut Wife: Marty ****** byJust_Plain_Bob© "All of it, or just the secretary part?" 
+ 
+
+===
+
+"All of it, or just the secretary part?" 
 
  She gave me a long look and then said, "Let's clear the air on a couple of things here. I loved what I was doing and I would love to keep on doing it and if you didn't know about it I would keep on doing it. I'd love to hear you say "Well dear, we love each other, we have a happy life together and what you have been doing hasn't hurt our marriage at all. So go ahead, have fun and I'll be waiting for you when you get home." But I will give it up in a heartbeat if that is what it takes for me to keep you. That said, I'm not burning any bridges at work until I know where the two of us are going to end up. That means if Darren asks me to take care of a customer tonight or if he wants to fuck me himself and I haven't heard from you as to what my status around here is, I'll take care of Darren or the customer." 
 

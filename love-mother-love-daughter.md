@@ -1,8 +1,14 @@
+Love Mother, Love Daughter
+==========================
 #1 
 
  
 
- ****** Love Mother, Love Daughter ****** byHiddenDevil_© ***All characters are over 18 *** 
+ 
+
+===
+
+***All characters are over 18 *** 
 
  I consider myself to be a pretty good person. I've never cheated on any of my boyfriends. I've never led any guys on, unless I had some genuine feelings for them. And I've never stolen someone else's boyfriend. 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Love Mother, Love Daughter ****** byHiddenDevil_© I hadn't made any more moves on him since my sunbathing earlier in the month &ndash; I guess my anger at my mom had dimmed a little. But for some reason, I was in a teasing mood that day. It was just so much fun the last time, the way he struggled so desperately to refuse to even look at me, to avoid even the slightest temptation. The more he tried to resist me, the more I wanted to seduce him. 
+ 
+
+===
+
+I hadn't made any more moves on him since my sunbathing earlier in the month &ndash; I guess my anger at my mom had dimmed a little. But for some reason, I was in a teasing mood that day. It was just so much fun the last time, the way he struggled so desperately to refuse to even look at me, to avoid even the slightest temptation. The more he tried to resist me, the more I wanted to seduce him. 
 
  My mirror was set up so that I could lean forward and see the window in the reflection, and I could pretend to only be staring at myself even as I kept an eye on the view outside. I carefully leaned over the sink now, examining imaginary spots on my face, watching Mark as I tried to catch his attention. At last, my movements caught his idle eye, and he turned his head to glance inside. In the next instant, as soon as he realized that he was peering into my bathroom just after I had showered, his face quickly whipped back to his work. His eyes swung away in the same way as they always did, focusing on nothing at all in their effort to avoid staring at me. I grinned at myself in the mirror. God, this is too much fun! 
 
@@ -252,7 +262,11 @@
 
  
 
- ****** Love Mother, Love Daughter ****** byHiddenDevil_© "Geez, Ashley!" he said, his voice straining. "Couldn't you have waited till I left?" 
+ 
+
+===
+
+"Geez, Ashley!" he said, his voice straining. "Couldn't you have waited till I left?" 
 
  "Oh come on, Mark!" I said, grinning. "Don't be such a prude!" 
 
@@ -436,7 +450,11 @@
 
  
 
- ****** Love Mother, Love Daughter ****** byHiddenDevil_© I gasped in surprise as I felt his cock push against my lips, his powerful hands shoving me forward, and I just barely recovered in time to part them and let him once more spear deep into the cocoon of my mouth. This time he wasn't letting me bob back and forth &ndash; he was gripping me hard by the hair, growling and grunting as he pushed me forward, forcing me to gulp him down. I wasn't prepared, and I gagged on his length, feeling my throat convulse and drool spill out of my lips, pouring down my chin and dribbling onto my tits and thighs below. 
+ 
+
+===
+
+I gasped in surprise as I felt his cock push against my lips, his powerful hands shoving me forward, and I just barely recovered in time to part them and let him once more spear deep into the cocoon of my mouth. This time he wasn't letting me bob back and forth &ndash; he was gripping me hard by the hair, growling and grunting as he pushed me forward, forcing me to gulp him down. I wasn't prepared, and I gagged on his length, feeling my throat convulse and drool spill out of my lips, pouring down my chin and dribbling onto my tits and thighs below. 
 
  "Damnett, Ashley…fuck…fuck…" I had finally tipped him over the edge, and in frustration &ndash; half at himself, half at me &ndash; he was now giving himself fully over to his lust for me, to the desire he had struggled to contain. My lips smacked and gurgled as I felt him plunge in and out of my mouth, and I moaned as I struggled to keep up, licking frantically at him, sucking as best as I could. His size was so dominating &ndash; he was stretching and stuffing my mouth full, making me choke on his girth. 
 
@@ -578,7 +596,11 @@
 
  
 
- ****** Love Mother, Love Daughter ****** byHiddenDevil_© I stood in front of the mirror, the unzipped back of the dress dangling across my slim figure. He cleared his throat again, and came to stand behind me. "Just zip it all the way up?" He asked, his voice gruff. 
+ 
+
+===
+
+I stood in front of the mirror, the unzipped back of the dress dangling across my slim figure. He cleared his throat again, and came to stand behind me. "Just zip it all the way up?" He asked, his voice gruff. 
 
  "Yup." I reached behind me and bundled up my long caramel hair, revealing my back to him. A second later I felt his fingertips tickling my skin. He was looking now at my naked back &ndash; he knew I wasn't wearing a bra. I stared at him in the reflection; his head was bent down as he worked the zipper upwards, his fingers brushing again and again on my smooth skin. I leaned just slightly back against him, so the back of his hand was now pressed firmly against my bare skin. The fabric tightened around my slender body, and Mark quickly stepped back. 
 
@@ -706,7 +728,11 @@
 
  
 
- ****** Love Mother, Love Daughter ****** byHiddenDevil_© "Mark…w-wait…" 
+ 
+
+===
+
+"Mark…w-wait…" 
 
  "You…bitch!" He growled out loud, cutting me off. I let out another gasp as he suddenly leaned forward, and I felt him swing around, now facing the bed. My body jolted as I felt my back press into my mother's bedspread. My hips were still pressed against his, his rock-hard shaft stuffed in my little cunt. My legs had instinctively wrapped around his to keep from dangling, and now, as he pushed my body flat on the bed, I felt him climb on top of me, towering over me, pressing in between my hips, spreading my legs wide. His face appeared, fierce, red, and enraged above me. 
 

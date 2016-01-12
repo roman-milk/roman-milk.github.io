@@ -1,8 +1,14 @@
+Better Than It's Ever Been
+==========================
 #1 
 
  
 
- ****** Better Than It's Ever Been ****** byJs_Keeper© It was the first time in our eight years of marriage that Mitch had bought lingerie for me, so it's arrival that Valentines Day afternoon by express delivery from a rather exclusive upscale lingerie store caught me completely off guard, and, frankly, it left me feeling a little skeptical. I was never one much for the pretentious celebrations that surrounded Valentines Day, a holiday which I was convinced was nothing more than a commercial fabrication, and one which had passed little noticed at our house for the past five years. 
+ 
+
+===
+
+It was the first time in our eight years of marriage that Mitch had bought lingerie for me, so it's arrival that Valentines Day afternoon by express delivery from a rather exclusive upscale lingerie store caught me completely off guard, and, frankly, it left me feeling a little skeptical. I was never one much for the pretentious celebrations that surrounded Valentines Day, a holiday which I was convinced was nothing more than a commercial fabrication, and one which had passed little noticed at our house for the past five years. 
 
  Sitting at our kitchen table I gently lifted the mysterious gift from its elegant packaging to discover a beautiful sheer ruby red chemise. I had to admit it was gorgeous, even if it wasn't something I would have chosen for myself. Exquisitely crafted of silky-soft, deep red, fine-denier nylon, so whisper-thin as to be almost completely transparent, it was delicately framed with tiny black satin piping and an intricate black lace hem. Sophisticated and luxurious, yet definitely sexy, this was completely unique to my meager lingerie collection, which at that point largely consisted of comfy cotton PJs and a few oversized sleep shirts. 
 
@@ -114,7 +120,11 @@
 
  
 
- ****** Better Than It's Ever Been ****** byJs_Keeper© "Do you remember the last time I kissed you like this?" he asked quietly, his lips continuing to work their magic. 
+ 
+
+===
+
+"Do you remember the last time I kissed you like this?" he asked quietly, his lips continuing to work their magic. 
 
  I unsuccessfully tried to clear my head enough to think back but drew a blank. At last I simply muttered, "No." 
 

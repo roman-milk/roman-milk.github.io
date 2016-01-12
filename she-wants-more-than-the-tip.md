@@ -1,8 +1,14 @@
+She Wants More than the Tip
+===========================
 #1 
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. This story features characters from my stories "The Body of Justice" and "The Hotel Room". It might flesh out this story a bit if you read those stories first, but it is absolutely not necessary to do so. This story stands on its own. Also, I would like to thank my biggest fan for his help preparing this story. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal. This story features characters from my stories "The Body of Justice" and "The Hotel Room". It might flesh out this story a bit if you read those stories first, but it is absolutely not necessary to do so. This story stands on its own. Also, I would like to thank my biggest fan for his help preparing this story. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -224,7 +230,11 @@
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© "Well, technically, you friended me." Ryan typed back. 
+ 
+
+===
+
+"Well, technically, you friended me." Ryan typed back. 
 
  "Well all that matters is that we're friends now." Alicia said. There was a pause before she sent another message. 
 
@@ -416,7 +426,11 @@
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© "I know what I'm doing." Veronica said, clearly disinterested in talking. 
+ 
+
+===
+
+"I know what I'm doing." Veronica said, clearly disinterested in talking. 
 
  "I didn't mean to offend you, I just..." Anna started. Veronica stood up straight and started talking, interrupting Anna. 
 
@@ -620,7 +634,11 @@
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© "Are you and Anna planning to have kids?" Alicia asked, capturing his attention. 
+ 
+
+===
+
+"Are you and Anna planning to have kids?" Alicia asked, capturing his attention. 
 
  "Um, not right away. She said she wants to wait a few years." Ryan replied. 
 
@@ -746,7 +764,11 @@
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© ********** 
+ 
+
+===
+
+********** 
 
  Anna drove home in a great mood. The more she thought about her upcoming marriage, the more excited she got. She couldn't wait to be married to Ryan and start a family with him. They had talked about having kids, and she had explained that she wanted to wait while their careers grew. But she wanted kids. She wanted lots of them. She couldn't wait to start a family. She couldn't wait to be a mom. 
 
@@ -882,7 +904,11 @@
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© "Oh, fuck!" Ryan yelled, the pleasure her pussy was providing was too great. He knew he wouldn't last too long. She was too fucking hot. But he would try his best. He would give this slut his best. 
+ 
+
+===
+
+"Oh, fuck!" Ryan yelled, the pleasure her pussy was providing was too great. He knew he wouldn't last too long. She was too fucking hot. But he would try his best. He would give this slut his best. 
 
  He grabbed her hips and assisted her in making this fuck as hard as possible. They started to work up a sweat with the only goal of getting each other off. As Ryan saw those massive breasts bouncing, he couldn't resist any longer. He reached up and palmed those massive titties. 
 
@@ -1096,7 +1122,11 @@
 
  
 
- ****** She Wants More than the Tip ****** byTheTalkMan© "You want to know why I chose you?" she started. "The minute I saw you, I could tell you wanted me. I felt the love you had for me. And I felt the same way. And when I saw her, I knew you were gagging to be stolen. I knew that's what you wanted. You desperately wanted some slut to scoop you up, even if you couldn't admit it to yourself. I knew what a mistake you were making, and so I thought I would make your dreams come true. I would show you the good life. You would get all of my love, Ryan. So, I used the ring to get myself off. I stuck it in my pussy, my ass, and between my tits. I stalked you. I followed you and Anna around. I learned about you both. I broke into your house. I got myself off on your bed. I threatened your fiancée. I did it because I knew you were nasty. I knew it would turn you on. I knew you would like all the things I did. And you did, didn't you? I broke the law for you, Ryan? If that's not love, I don't know what is." 
+ 
+
+===
+
+"You want to know why I chose you?" she started. "The minute I saw you, I could tell you wanted me. I felt the love you had for me. And I felt the same way. And when I saw her, I knew you were gagging to be stolen. I knew that's what you wanted. You desperately wanted some slut to scoop you up, even if you couldn't admit it to yourself. I knew what a mistake you were making, and so I thought I would make your dreams come true. I would show you the good life. You would get all of my love, Ryan. So, I used the ring to get myself off. I stuck it in my pussy, my ass, and between my tits. I stalked you. I followed you and Anna around. I learned about you both. I broke into your house. I got myself off on your bed. I threatened your fiancée. I did it because I knew you were nasty. I knew it would turn you on. I knew you would like all the things I did. And you did, didn't you? I broke the law for you, Ryan? If that's not love, I don't know what is." 
 
  "Yes, I did. I loved what you did. I loved that you used the engagement ring to get yourself off. I loved that you stalked me. I love that you broke into my house. I love that you sent letters and made fun of my fiancée. I love you." Ryan called out. Anna was shocked at this admission. 
 

@@ -1,8 +1,14 @@
+Sally's Trip to the Theatre
+===========================
 #1 
 
  
 
- ****** Sally's Trip to the Theatre ****** byJust_Plain_Bob© For me, the day started out bad and got progressively worse. The clock didn't go off when it was supposed to and when I woke up I was already half an hour late for work. I skipped breakfast and with only a cup of black coffee for sustenance I jumped in my car only to find that the battery was dead. It cost me $55 to get the service station to send over a guy to give me a jump-start and when I finally got down town I couldn't find a place to park. I had to settle for one of the rip-off parking lots that hosed me $30 for the day. In the elevator on the way up to the 16th floor I rehearsed my excuses for being late, but I fully expected to have my butt reamed regardless of what I said so I was pleasantly surprised when my boss caught me coming off the elevator and greeted me with: 
+ 
+
+===
+
+For me, the day started out bad and got progressively worse. The clock didn't go off when it was supposed to and when I woke up I was already half an hour late for work. I skipped breakfast and with only a cup of black coffee for sustenance I jumped in my car only to find that the battery was dead. It cost me $55 to get the service station to send over a guy to give me a jump-start and when I finally got down town I couldn't find a place to park. I had to settle for one of the rip-off parking lots that hosed me $30 for the day. In the elevator on the way up to the 16th floor I rehearsed my excuses for being late, but I fully expected to have my butt reamed regardless of what I said so I was pleasantly surprised when my boss caught me coming off the elevator and greeted me with: 
 
  "John! Thank God you're here. Come into my office." 
 

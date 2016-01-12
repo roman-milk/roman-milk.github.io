@@ -1,8 +1,14 @@
+Cheat and Lie
+=============
 #1 
 
  
 
- ****** Cheat and Lie ****** byGotBacon© "Dad, am I adopted?" 
+ 
+
+===
+
+"Dad, am I adopted?" 
 
  "Holy cow, Jim. What made you ask that. I was in the delivery room when you were born. They let me watch. You looked like a little potato with arms and legs. It was one of the best experiences of my life. It's an amazing thing to watch new life coming into the world. In fact, I watched all of you kids being born. I was busting my shirt buttons watching that. You're Mom had a tough time with you. You were really big and she had a hysterectomy after you were born." 
 
@@ -316,7 +322,11 @@
 
  
 
- ****** Cheat and Lie ****** byGotBacon© "Please don't hurt him. He isn't a bad man. It took me a long time to convince him to go with my plan. I think he agreed just so I would stop asking." 
+ 
+
+===
+
+"Please don't hurt him. He isn't a bad man. It took me a long time to convince him to go with my plan. I think he agreed just so I would stop asking." 
 
  "Do you have feelings for him? Amy. Are you trying to protect him." 
 
@@ -632,7 +642,11 @@
 
  
 
- ****** Cheat and Lie ****** byGotBacon© I walk into my apartment and strangely it feels good. Like a sanctuary. I sit on the sofa and run the evening through my mind. It was going great till she started begging for my cum. She had no clue that it would set me off. It was just the way she is. Now I have to deal with that picture. I decide to use what my counselor taught me. 
+ 
+
+===
+
+I walk into my apartment and strangely it feels good. Like a sanctuary. I sit on the sofa and run the evening through my mind. It was going great till she started begging for my cum. She had no clue that it would set me off. It was just the way she is. Now I have to deal with that picture. I decide to use what my counselor taught me. 
 
  Over the rest of the weekend I play with my mental photo program. It's not a video this time. It's just a picture. I mentally blur her face out and click on the close window x every time it pops into my mind. Slowly the pains lessens as I see the picture. 
 

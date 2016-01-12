@@ -1,8 +1,14 @@
+My Submissive Teacher: 3 Hole Slut
+==================================
 #1 
 
  
 
- ****** My Submissive Teacher: 3 Hole Slut ****** bysilkstockingslover© My Submissive Teacher: 3 Hole Slut 
+ 
+
+===
+
+My Submissive Teacher: 3 Hole Slut 
 
  Summary: Student has best night of his life with ex-teacher in Mexico. 
 
@@ -378,7 +384,11 @@
 
  
 
- ****** My Submissive Teacher: 3 Hole Slut ****** bysilkstockingslover© When she left Mexico in three days, she would be flying to Paris to meet up with both her kids for a three week trip throughout Europe. 
+ 
+
+===
+
+When she left Mexico in three days, she would be flying to Paris to meet up with both her kids for a three week trip throughout Europe. 
 
  I had to ask. "Why a blessing in disguise?" 
 
@@ -878,7 +888,11 @@
 
  
 
- ****** My Submissive Teacher: 3 Hole Slut ****** bysilkstockingslover© "I love how big a slut you are," I groaned, as my cock disappeared into her cunt. 
+ 
+
+===
+
+"I love how big a slut you are," I groaned, as my cock disappeared into her cunt. 
 
  "And I love how big your dick is and how fucking good it feels in me," she moaned, as she slowly began grinding on my cock in a packed bar. 
 

@@ -1,8 +1,14 @@
+The Feminization of Daniel Ch. 01
+=================================
 #1 
 
  
 
- ****** The Feminization of Daniel Ch. 01 ****** byJust_Plain_Bob© I wish to God I'd never done it. It was a spur of the moment kind of thing and now my life is an absolute mess. 
+ 
+
+===
+
+I wish to God I'd never done it. It was a spur of the moment kind of thing and now my life is an absolute mess. 
 
  Lily's favorite sexual position is doggie style and her favorite place to do it is right on the edge of our bed so I can stand on the floor and drive into her. We found that if I stand on my toes the angle is such that I touch her someplace inside her that drives her wild; a place I never seemed to touch any other way. I tried a little stool but that apparently put me a little too high. I made a little box about half as high as the stool, but that didn't work either. I tried standing on pillows, on a pile of various sizes of rugs, but the only way I could seem to hit that spot was by standing on my tiptoes. But that was too hard to do, especially for bouts of sex that could sometimes last twenty minutes to half an hour. I was in the mall shopping one day and as I was passing by a shoe store something caught my eye and I stopped to take a look. It was a black high heeled shoe with a very high heel (turned out they were five inch) and what looked like a two or three inch platform sole and it had ankle straps. I wondered if …, nah, no way. What could I have been thinking? But I came back to that store and looked in the window at those shoes three times before I went home. The next day I was standing at the door of the store when it opened for business and I told the lady what I wanted. 
 
@@ -152,11 +158,19 @@
 
  
 
- ****** The Feminization of Daniel Ch. 01 ****** byJust_Plain_Bob© No I didn't! What I wanted to do was yell, "stop the car" and then jump out and run away from it as fast as my high heels would let me, but something had a hold on me and I just sat there and stared at Todd's cock as I beat him off. Lily wouldn't stop, "Do it baby, do it. Get even with your hubby baby. Do it for yourself. Make me proud of you baby" and I felt her hand on the back of my head. "Come on baby, do it" she crooned as she gently pushed my head down. Just before my mouth swallowed Todd's manhood a voice deep inside me screamed "God damn you Lily, what have you done to me!"  
+ 
+
+===
+
+No I didn't! What I wanted to do was yell, "stop the car" and then jump out and run away from it as fast as my high heels would let me, but something had a hold on me and I just sat there and stared at Todd's cock as I beat him off. Lily wouldn't stop, "Do it baby, do it. Get even with your hubby baby. Do it for yourself. Make me proud of you baby" and I felt her hand on the back of my head. "Come on baby, do it" she crooned as she gently pushed my head down. Just before my mouth swallowed Todd's manhood a voice deep inside me screamed "God damn you Lily, what have you done to me!"  
 
  
 
- ****** The Feminization of Daniel Ch. 02 ****** byJust_Plain_Bob© As my mouth opened to swallow the head of Todd's cock a voice deep inside of me cried out, "God damn you Lily, what have you done to me? Her hand on the back of my head kept up a steady gentle downward pressure as she pushed me farther down on Todd's cock. She was crooning in my ear, "That's right baby, teach your husband a lesson. Suck his cock baby, suck his cock like I sucked Russ, like I suck my husband and like you used to suck yours." 
+ 
+
+===
+
+As my mouth opened to swallow the head of Todd's cock a voice deep inside of me cried out, "God damn you Lily, what have you done to me? Her hand on the back of my head kept up a steady gentle downward pressure as she pushed me farther down on Todd's cock. She was crooning in my ear, "That's right baby, teach your husband a lesson. Suck his cock baby, suck his cock like I sucked Russ, like I suck my husband and like you used to suck yours." 
 
  In my rapidly short circuiting brain I realized what she was doing - she was telling me to suck his cock the way I liked her to suck mine - just do to him what you like me to do to you. The thought struck terror in me. What I loved was for Lily to swallow my cum. No, God no, I had to get out of this mess, but how? Todd's hands took the place of Lily's on the back of my head and he began to push his cock up at me. If I didn't do something soon he was going to ram it so far down my throat I would choke. I swallowed what little pride I had left and began to suck Todd's dick. I did everything to him that I liked Lily to do to me and somewhere along the line I decided that if I had to do it I would give him the best blow job he'd ever gotten. I might not be able to face myself in the mirror tomorrow, but Todd would never forget me as long as he lived. I licked, I sucked, I played with his balls and teased his ass with a finger. My head bobbed, my tongue swirled and when he began to moan, "Oh god oh god I'm going to cum, I'm cumming" I forced the horror of having another man cum in my mouth from my mind and I stuck my finger up his ass and felt him flood my mouth. My lips were clamped tight around his cock and I gulped and swallowed as the fluids poured out of him and then I sucked him until he was dry and his cock turned soft. As I raised my head out of his lap I saw Lily staring at me with wonder. 
 
@@ -300,7 +314,11 @@
 
  
 
- ****** The Feminization of Daniel Ch. 02 ****** byJust_Plain_Bob© The Limo pulled up in front of the house and as we got out Lily told the driver he could leave, "We'll see to it they get home. The driver looked at Bart who nodded and the Limo took off. Inside Lily put on some music and made everyone a drink and a couple of minutes later she took Bart by the hand and led him from the room. Troy asked me to dance and then he pulled me against him and kissed me; it was another long and passionate kiss that left me weak in the knees. And then we were on the couch kissing and then he had his cock out and then I was stroking it and then my mouth was on him again and again all thoughts were gone except for the one that said be the best you can be. I was so lost in what I was doing that I hadn't realized that he had run his hand up my leg. I felt his hand take hold of my cock just as he cried "Oh my God" and fired his second load of the night down my throat. 
+ 
+
+===
+
+The Limo pulled up in front of the house and as we got out Lily told the driver he could leave, "We'll see to it they get home. The driver looked at Bart who nodded and the Limo took off. Inside Lily put on some music and made everyone a drink and a couple of minutes later she took Bart by the hand and led him from the room. Troy asked me to dance and then he pulled me against him and kissed me; it was another long and passionate kiss that left me weak in the knees. And then we were on the couch kissing and then he had his cock out and then I was stroking it and then my mouth was on him again and again all thoughts were gone except for the one that said be the best you can be. I was so lost in what I was doing that I hadn't realized that he had run his hand up my leg. I felt his hand take hold of my cock just as he cried "Oh my God" and fired his second load of the night down my throat. 
 
  "Oh you fucking bitch. You god damned slut! You are my fantasy come true. I've always wanted to make love to a cross-dresser or a transvestite and here you are. God, what a wild way to start the New Year." 
 

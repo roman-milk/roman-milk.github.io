@@ -1,8 +1,14 @@
+About Writing Sequels
+=====================
 #1 
 
  
 
- ****** About Writing Sequels ****** bysilkstockingslover© Summary: A brief essay about my philosophy on writing sequels. 
+ 
+
+===
+
+Summary: A brief essay about my philosophy on writing sequels. 
 
  Thanks: To MAB7991 for a quick edit of this brief essay. 
 

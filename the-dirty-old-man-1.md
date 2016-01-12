@@ -1,8 +1,14 @@
+The Dirty Old Man
+=================
 #1 
 
  
 
- ****** The Dirty Old Man ****** byJust_Plain_Bob© In my thirties and early forties I was reasonably good looking, kept myself in pretty good shape and had the confidence that enabled me to do well with the ladies. Rarely a week went by when I didn't have a bed partner, or sometimes two, and it was never difficult to find one to have a short long-term relationship with. I think the longest ran just over five months, but then she was a rare lady. 
+ 
+
+===
+
+In my thirties and early forties I was reasonably good looking, kept myself in pretty good shape and had the confidence that enabled me to do well with the ladies. Rarely a week went by when I didn't have a bed partner, or sometimes two, and it was never difficult to find one to have a short long-term relationship with. I think the longest ran just over five months, but then she was a rare lady. 
 
  My relationships had never been long for the same reason I never married - I could not stand living with anyone else. The relationship would start out great and then the personal habits and idiosyncrasies would come out, irritate the hell out of me and things would be said and soon my current paramour would go stomping out the door in a huff. I never cared because there were always more where they came from. And then one day there weren't! 
 

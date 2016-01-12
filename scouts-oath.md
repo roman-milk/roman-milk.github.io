@@ -1,8 +1,14 @@
+Scout's Oath
+============
 #1 
 
  
 
- ****** Scout's Oath ****** byTx_Tall_Tales© ========================== 
+ 
+
+===
+
+========================== 
 
  A Last Boy Scout standalone short story. 
 
@@ -320,7 +326,11 @@
 
  
 
- ****** Scout's Oath ****** byTx_Tall_Tales© "Do you vow to uphold the values of the sisterhood, and if you do, recite the motto." 
+ 
+
+===
+
+"Do you vow to uphold the values of the sisterhood, and if you do, recite the motto." 
 
  The pledge spoke, and the leader moved to the next one. 
 
@@ -594,7 +604,11 @@
 
  
 
- ****** Scout's Oath ****** byTx_Tall_Tales© And Jeannie had been very popular. 
+ 
+
+===
+
+And Jeannie had been very popular. 
 
  It only took a minute or so for her to feel him thicken, then harden, until she couldn't readily take more than half his length. She shuddered when she felt his hand on her head, and braced herself to have that big cock shoved against the back of her throat. 
 

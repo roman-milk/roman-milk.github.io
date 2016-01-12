@@ -1,8 +1,14 @@
+A Demon, A Witch and Frankenstein
+=================================
 #1 
 
  
 
- ****** A Demon, A Witch and Frankenstein ****** bygeronimo_appleby© There's a scene in this MMF threesome here where a man take's a mouthful of cock. You've been warned! 
+ 
+
+===
+
+There's a scene in this MMF threesome here where a man take's a mouthful of cock. You've been warned! 
 
  I couldn't wait until later when it's safe to call, I just have to get it off my chest right now. I'm on the train and I've got my laptop fired up and ready. I just can't stop thinking about it, about the party and what we got up to. I'm shocked and surprised at myself, truly, but I can't wait until we try it again. I hope it's soon. 
 

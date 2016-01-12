@@ -1,8 +1,14 @@
+Becoming A Slut Wife: Darlene
+=============================
 #1 
 
  
 
- ****** Becoming A Slut Wife: Darlene ****** byJust_Plain_Bob© I spent the first ten years as Darlene's husband being a normal guy, whatever normal means. You know, loving husband and father, the family provider, churchgoer every Sunday, all that stuff that is good and wholesome. I'd never had any weird thoughts or fantasies about my wife and the kinkiest I ever got was having anal sex with Darlene, and even that only happened because she said she wanted to try it. And then one day Darlene and I went to her best friend's birthday party and my life changed - radically. 
+ 
+
+===
+
+I spent the first ten years as Darlene's husband being a normal guy, whatever normal means. You know, loving husband and father, the family provider, churchgoer every Sunday, all that stuff that is good and wholesome. I'd never had any weird thoughts or fantasies about my wife and the kinkiest I ever got was having anal sex with Darlene, and even that only happened because she said she wanted to try it. And then one day Darlene and I went to her best friend's birthday party and my life changed - radically. 
 
  Tina had been Darlene's best friend since the sixth grade. They were closer than twin sisters; they went everywhere together, did everything together including giving up their virginity on a double date - Darlene in the back seat and Tina in the front. Darlene was Tina's maid of honor at her wedding and Tina filled the same role at ours. They had stayed close friends even after both had become housewives and mothers; our kids called Tina and her husband Mark aunt and uncle and their kids called us the same. A week never went by when the two of them didn't get together at least once. 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** Becoming A Slut Wife: Darlene ****** byJust_Plain_Bob© Tina said, "Fuck him girlfriend, fuck him. I'm going up to check on your hubby. You just take care of your new lover and I'll be right back." 
+ 
+
+===
+
+Tina said, "Fuck him girlfriend, fuck him. I'm going up to check on your hubby. You just take care of your new lover and I'll be right back." 
 
  Tina came up the stairs and approached me, "You haven't fucked up my carpet, have you?" and she went to her knees in front of me. Her mouth closed on me and it was like her lips tripped a switch - I shot what felt like a quart of cum down her throat. When she had sucked me dry she looked up at me and grinned, "Got here just in time, didn't I?" 
 

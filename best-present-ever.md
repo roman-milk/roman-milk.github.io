@@ -1,8 +1,14 @@
+Best Present Ever: Bitch Sister
+===============================
 #1 
 
  
 
- ****** Best Present Ever: Bitch Sister ****** bysilkstockingslover© Note 1: This is a Christmas contest story...so please vote!!! 
+ 
+
+===
+
+Note 1: This is a Christmas contest story...so please vote!!! 
 
  Note 2: A special thank you goes to the great people who read my story in advance and give me suggestions and point out errors (Julia...you will always be my pet and Greg...who has sparked a few new ideas for me). 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Best Present Ever: Bitch Sister ****** bysilkstockingslover© "Yes, Mistress Baby Sister," I replied, like a brainwashed sub, as I allowed my pants to drop to the floor. 
+ 
+
+===
+
+"Yes, Mistress Baby Sister," I replied, like a brainwashed sub, as I allowed my pants to drop to the floor. 
 
  She pulled up her skirt a bit, opened her legs and tore her pantyhose at the crotch. I got a quick glimpse of her pink pussy as she was apparently commando. She demanded, "Slut, get to work." 
 
@@ -426,7 +436,11 @@
 
  
 
- ****** Best Present Ever: Bitch Sister ****** bysilkstockingslover© She looked at me with a mixture of frustration, desperation and horniness as my fingers pumped her pussy. "Fuck Matthew, what's gotten into you?" 
+ 
+
+===
+
+She looked at me with a mixture of frustration, desperation and horniness as my fingers pumped her pussy. "Fuck Matthew, what's gotten into you?" 
 
  I shrugged, and played on her words, "I don't know, but I do know what is soon going into you." 
 
@@ -670,7 +684,11 @@
 
  
 
- ****** Best Present Ever: Cheerleader Orgy ****** bysilkstockingslover© Note: Although not necessary, reading part one (Best Present Ever: Bitch Sister) will explain how Mathew goes from being a nerdy virgin to a dominant Master over his gorgeous, stuck-up cheerleading sister. 
+ 
+
+===
+
+Note: Although not necessary, reading part one (Best Present Ever: Bitch Sister) will explain how Mathew goes from being a nerdy virgin to a dominant Master over his gorgeous, stuck-up cheerleading sister. 
 
  Note 2: A special thanks goes to Estragon for his dedication to copy editing my work and making me a better writer. 
 
@@ -928,7 +946,11 @@
 
  
 
- ****** Best Present Ever: Cheerleader Orgy ****** bysilkstockingslover© Beth beside me said, "That was fucking amazing." 
+ 
+
+===
+
+Beth beside me said, "That was fucking amazing." 
 
  I smiled, "You were not bad yourself." 
 
@@ -1016,7 +1038,11 @@
 
  
 
- ****** Best Present Ever: MILF Neighbor ****** bysilkstockingslover© Summary: With sister's help on New Year's Eve, he fucks his MILF Neighbor. 
+ 
+
+===
+
+Summary: With sister's help on New Year's Eve, he fucks his MILF Neighbor. 
 
  Note 1: This is the third part of the Best Present Ever series. In Part One (Bitch Sister), Matthew turns the tables on his bitch sister making her his personal sex slave. In Part Two (Cheerleader Orgy), Matthew has a fun foursome with his sister and two other cheerleaders. Of course, I suggest you read the first two first, but this is a very brief summary of one crazy week in the life of our nerdy, well-equipped protagonist. 
 
@@ -1324,7 +1350,11 @@
 
  
 
- ****** Best Present Ever: MILF Neighbor ****** bysilkstockingslover© "Guilty," I admitted, mesmerized by her stocking-clad legs and feet. 
+ 
+
+===
+
+"Guilty," I admitted, mesmerized by her stocking-clad legs and feet. 
 
  "Ever had a foot job," the seductive MILF asked. 
 
@@ -1506,7 +1536,11 @@
 
  
 
- ****** Best Present Ever: Mom ****** bysilkstockingslover© Summary: Son finally gets his ultimate conquest...his hot innocent Mom. 
+ 
+
+===
+
+Summary: Son finally gets his ultimate conquest...his hot innocent Mom. 
 
  Note 1: This is the fourth part of the Best Present Ever series. 
 
@@ -1856,7 +1890,11 @@
 
  
 
- ****** Best Present Ever: Mom ****** bysilkstockingslover© "Oh God, Matthew," she quivered, "I can't believe you are being so...." 
+ 
+
+===
+
+"Oh God, Matthew," she quivered, "I can't believe you are being so...." 
 
  "So what?" I asked, as I stood up and went to unbuckle my belt. 
 

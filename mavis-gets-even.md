@@ -1,8 +1,14 @@
+Mavis Gets Even
+===============
 #1 
 
  
 
- ****** Mavis Gets Even ****** byJust_Plain_Bob© It was the usual quiet mid-night shift. She looked around and checked out the floor very carefully. Maude Peterson was at the nurse's station and she knew from experience that Maude would sit there and read her romance novel and not move unless a monitor sounded off or it was time for medication rounds. She would have plenty of time to do what she needed to do. 
+ 
+
+===
+
+It was the usual quiet mid-night shift. She looked around and checked out the floor very carefully. Maude Peterson was at the nurse's station and she knew from experience that Maude would sit there and read her romance novel and not move unless a monitor sounded off or it was time for medication rounds. She would have plenty of time to do what she needed to do. 
 
  She prayed that nothing would go wrong. She had waited almost five months for the right circumstances. One last look to make sure the hall was clear and then she slipped into room 521. The patient was heavily medicated so he should pose no problem. She checked his chart one last time to be absolutely certain. Yes, there it was, AB positive. She took the syringe and the vials from her pocket. She felt for a good vein and when she found it she opened the alcohol wipe packet, swabbed the vein and slipped the needle in. She drew enough blood from the unconscious man to fill both vials and then put a cotton ball over the puncture and taped it in place. She put the needle in the medical waste bin and then slipped out of the room. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** Mavis Gets Even ****** byJust_Plain_Bob© She slept well that night for the first time in a long while. The four men would spend the rest of their sweating that HIV might suddenly appear. 
+ 
+
+===
+
+She slept well that night for the first time in a long while. The four men would spend the rest of their sweating that HIV might suddenly appear. 
 
  +++++++++++++++++++++++++++++++++++++++++++ 
 

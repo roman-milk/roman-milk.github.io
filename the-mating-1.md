@@ -1,8 +1,14 @@
+The Mating
+==========
 #1 
 
  
 
- ****** The Mating ****** byGotBacon© Jim would be described as a hunk. He stands 6ft 2 inches tall and weighs 215 pounds. He spends 3 nights a week in the gym. His 28 year old body is buffed. His sessions there last two hours. 
+ 
+
+===
+
+Jim would be described as a hunk. He stands 6ft 2 inches tall and weighs 215 pounds. He spends 3 nights a week in the gym. His 28 year old body is buffed. His sessions there last two hours. 
 
  He broke up with his girlfriend two weeks ago, and he feels unfulfilled with his life. Their sex was good, but there was no meeting of their minds. Her aim in life was to be the best dressed woman on the planet. Jim grew tired of her shopping expeditions with his credit card. 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** The Mating ****** byGotBacon© "Oh yes. You are so good in me. Your big strong cock. I love it. Put some more cum in me. I want your baby growing in me." 
+ 
+
+===
+
+"Oh yes. You are so good in me. Your big strong cock. I love it. Put some more cum in me. I want your baby growing in me." 
 
  He pulls her up and drops her on his cock. She cries out and cums. She feels so familiar on his cock. He pulls her up again and drops her. She screams and cums. 
 

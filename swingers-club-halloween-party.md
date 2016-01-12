@@ -1,8 +1,14 @@
+Swingers Club: Halloween Party
+==============================
 #1 
 
  
 
- ****** Swingers Club: Halloween Party ****** bysilkstockingslover© SUMMARY: A wife is convinced to try swinging to save her marriage. 
+ 
+
+===
+
+SUMMARY: A wife is convinced to try swinging to save her marriage. 
 
  NOTE 1: This is a Halloween 2013 Contest Story...I hope you enjoy...although it is long Halloween story that starts plot heavy before ending in my longest sex scene to date. 
 
@@ -300,7 +306,11 @@
 
  
 
- ****** Swingers Club: Halloween Party ****** bysilkstockingslover© Once on, she twirled me around and said, "Wow. Every girl needs a sexy black bra." 
+ 
+
+===
+
+Once on, she twirled me around and said, "Wow. Every girl needs a sexy black bra." 
 
  "Is that so?" I asked. 
 
@@ -632,7 +642,11 @@
 
  
 
- ****** Swingers Club: Halloween Party ****** bysilkstockingslover© I laughed slightly at Matt being called a boy toy. Of course, he didn't hesitate as he was now sitting directly across from me and was watching me get completely filled by a cock two inches bigger than his. 
+ 
+
+===
+
+I laughed slightly at Matt being called a boy toy. Of course, he didn't hesitate as he was now sitting directly across from me and was watching me get completely filled by a cock two inches bigger than his. 
 
  His cock, like Eddie's, was saluting the ladies, as Jessica replicated my position straddling over my husband. The one big difference is she slowly took Matt's cock in her ass. I watched both in awe and envy, at just how easily she took a cock in her ass. Being ass fucked had always been a secret fantasy of mine, but other than my fingers, and a very epic failure when I was drunk in college, which had resulted in it only being an exit hole. 
 
@@ -1038,7 +1052,11 @@
 
  
 
- ****** Swingers Club: Halloween Party ****** bysilkstockingslover© "Fresh meat," I laughed nervously. 
+ 
+
+===
+
+"Fresh meat," I laughed nervously. 
 
  Eddie added, "The odds of you not getting fucked by every guy there is pretty slim." 
 
@@ -1344,7 +1362,11 @@
 
  
 
- ****** Swingers Club: Halloween Party ****** bysilkstockingslover© "No problem," he smiled. "I know when I can't compete." 
+ 
+
+===
+
+"No problem," he smiled. "I know when I can't compete." 
 
  "Oh, I want you too sexy," I purred, as I stood up and saw he had a nice cock himself. 
 
@@ -1666,7 +1688,11 @@
 
  
 
- ****** Swingers Club: Halloween Party ****** bysilkstockingslover© "I'm Trudy," I said, to the Batman cocksucker. 
+ 
+
+===
+
+"I'm Trudy," I said, to the Batman cocksucker. 
 
  "I'm Blaine," he offered, adding, "Your hubby has a delicious cock." 
 

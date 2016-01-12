@@ -1,8 +1,14 @@
+Caitlyn Fucks Her New Daddy
+===========================
 #1 
 
  
 
- ****** Caitlyn Fucks Her New Daddy ****** byNonStopFunGuy© Hearing my daughter Caitlyn's girlish giggles brought my dormant cock to life. Her soft high-pitched voice and the husky responses of an adult man downstairs in our house switched my whole body from the lifeless sack of flesh that had been lying inactive under Caitlyn's bed for about four hours, to the pulsating, throbbing lusty father that I know I am. 
+ 
+
+===
+
+Hearing my daughter Caitlyn's girlish giggles brought my dormant cock to life. Her soft high-pitched voice and the husky responses of an adult man downstairs in our house switched my whole body from the lifeless sack of flesh that had been lying inactive under Caitlyn's bed for about four hours, to the pulsating, throbbing lusty father that I know I am. 
 
  Finally she was back home with her date, so it made all of the waiting worthwhile. My cock was instantly hard on my naked abdomen. I didn't care that my back ached from lying for all this time underneath the middle of Caitlyn's bed. I also didn't care that my arms and wrists were sore from being handcuffed to the legs of the bed, so I was like in a Jesus position under the bed on my back, arms out to my sides. I shouldn't make it sound like punishment, I mean, it wasn't. And before putting me in this position naked under her bed before she left for her date, Caitlyn had been good enough to shove some of this week's panties that she wore under my neck and head, as sort of a pillow, with the musty smells of the panties a constant reminder of how much I love my beautiful daughter. 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Caitlyn Fucks Her New Daddy ****** byNonStopFunGuy© Caitlyn doesn't take 'no' well. "Here, then, Daddy," she moaned. I didn't know what she was doing, until a couple seconds later her dress slacks hit the floor too -- immediately followed by her black thong. My daughter was nude in front of this adult man with the big cock, right above me on the bed. "God Daddy don't you just wanna eat me? Please, Daddy? I'm so fucking wet, Daddy." 
+ 
+
+===
+
+Caitlyn doesn't take 'no' well. "Here, then, Daddy," she moaned. I didn't know what she was doing, until a couple seconds later her dress slacks hit the floor too -- immediately followed by her black thong. My daughter was nude in front of this adult man with the big cock, right above me on the bed. "God Daddy don't you just wanna eat me? Please, Daddy? I'm so fucking wet, Daddy." 
 
  It worked. The bed rolled a little over me, and I heard him grunt, "Oh yeah," then his shirt hit the floor too. Both were nude now; and my cock was so erect it was going to explode, because I just knew she was going to get fucked tonight. Her first cry of pleasure was a quick, loud exclamation, as his tongue must have hit her clit or pussy or something hard. "FUCK YES DADDY," she shrieked. I've seen videotape of her getting eaten, and I know that Caitlyn is nonstop noise when someone has his or her tongue up her vagina. Even when she makes me help her fuck herself with a dildo, she can't shut the fuck up. "FUCK DADDY EAT MY CUNT DADDY." 
 
@@ -240,7 +250,11 @@
 
  
 
- ****** Caitlyn Fucks Her New Daddy ****** byNonStopFunGuy© More silence, maybe some kissing or something, just a little bit of her moaning. I hold my breath for that, hoping to hear anything that would let me know what he or she was touching. After about a minute I get dizzy from not breathing, but I keep trying to remain as quiet as I can to spy on what they are doing. At that moment, it occurred to me that as I look out from under her bed, I see the doors of her closet and part of her wall. Now, if I installed full-size mirrors there, I probably would be able to see what was going on up there, and maybe NEXT time I can actually watch my daughter get fucked! Yeah, that's pretty clever, I thought to myself, I'll have to remember to do that. 
+ 
+
+===
+
+More silence, maybe some kissing or something, just a little bit of her moaning. I hold my breath for that, hoping to hear anything that would let me know what he or she was touching. After about a minute I get dizzy from not breathing, but I keep trying to remain as quiet as I can to spy on what they are doing. At that moment, it occurred to me that as I look out from under her bed, I see the doors of her closet and part of her wall. Now, if I installed full-size mirrors there, I probably would be able to see what was going on up there, and maybe NEXT time I can actually watch my daughter get fucked! Yeah, that's pretty clever, I thought to myself, I'll have to remember to do that. 
 
  "Daddy," I heard Caitlyn moaned, "does your big cock have more cum for little Katie?" She giggled and I heard him sigh, and I almost could picture her rubbing his dick or balls. She laughed, whatever his response was pleased her, then he answered with confidence, "Honey Daddy is going to fill you with cum all night." 
 
@@ -338,7 +352,11 @@
 
  
 
- ****** Caitlyn Fucks Her New Daddy ****** byNonStopFunGuy© He must have been really doing something amazing, because Caitlyn shrieked with disbelief. "Oh fuck you're so deep! Daddy you're so deep!" 
+ 
+
+===
+
+He must have been really doing something amazing, because Caitlyn shrieked with disbelief. "Oh fuck you're so deep! Daddy you're so deep!" 
 
  Even he was surprised. "Fuck, feel that Katie -- feel that lump in your tummy!" 
 

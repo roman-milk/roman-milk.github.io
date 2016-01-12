@@ -1,8 +1,14 @@
+The Making of a Slut Ch. 01
+===========================
 #1 
 
  
 
- ****** The Making of a Slut Ch. 01 ****** byJust_Plain_Bob© Okay, so it was a rotten thing to do, but then I've never said I was a nice guy, and what's more, no one else has ever said it either. I am what I am and always have been and Mike should have known that. Hell, anyone who has known me for more than twenty-four hours would have known what I'd do and Mike has known me for over fifteen years. 
+ 
+
+===
+
+Okay, so it was a rotten thing to do, but then I've never said I was a nice guy, and what's more, no one else has ever said it either. I am what I am and always have been and Mike should have known that. Hell, anyone who has known me for more than twenty-four hours would have known what I'd do and Mike has known me for over fifteen years. 
 
  Barbara Jean was Mike's wife and I've wanted to stick a dick in her since the first time I laid eyes on her. Barbara Jean, everyone called her BJ for short (and didn't the guys all have fun with that), wasn't a spectacularly beautiful woman and I doubt that anyone ever called her gorgeous, but she had a certain something about her. Call it sex appeal, call it an aura, but she had something that gave you an immediate boner whenever you saw her. Maybe it was her slutty looks or the slutty way she acted sometimes, I don't know. What I did know was that if I ever got a chance I was going to fuck her. Don't misunderstand me here, Barbara Jean wasn't a slut or if she was nobody that I knew knew it, but she dressed like a slut and talked like a slut and God but did it ever turn me on. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** The Making of a Slut Ch. 02 ****** byJust_Plain_Bob© I smiled as BJ sank to her knees and, tears streaming down her cheeks, started to crawl toward me. My cock, so soft after just fucking her, was coming erect just from the thought of what I was going to do to her until her husband came home from Baghdad. I was betting that I had at least six months before that happened and I fully intended that she was going to be my slut even after he came home. 
+ 
+
+===
+
+I smiled as BJ sank to her knees and, tears streaming down her cheeks, started to crawl toward me. My cock, so soft after just fucking her, was coming erect just from the thought of what I was going to do to her until her husband came home from Baghdad. I was betting that I had at least six months before that happened and I fully intended that she was going to be my slut even after he came home. 
 
  BJ didn't know that my threat of sending her husband a video of her gangbang was a bluff. I hadn't taped it, but I was already planning her next gangbang and I would make damned sure that one got videotaped. BJ moved between my legs and looked up at me. 
 
@@ -296,7 +306,11 @@
 
  
 
- ****** The Making of a Slut Ch. 03 ****** byJust_Plain_Bob© Sunday was a day of rest, for me anyway. I ripped off a piece of BJ when I woke up, fixed her breakfast, fucked her two more times and then told her she could go home and I'd give her a call later to let her know what time I wanted to see her on Monday. Sunday afternoon was spent at electronic stores and Sunday evening was spent setting up my purchases in my living room and bedroom. When I was done I looked around and was pleased to see that you couldn't spot any of the hidden cameras. Up till then I had been blackmailing BJ with a non-existent videotape, but sooner or later the odds were pretty good that she was going to want to see it. Against that time I figured that I'd better have a couple. 
+ 
+
+===
+
+Sunday was a day of rest, for me anyway. I ripped off a piece of BJ when I woke up, fixed her breakfast, fucked her two more times and then told her she could go home and I'd give her a call later to let her know what time I wanted to see her on Monday. Sunday afternoon was spent at electronic stores and Sunday evening was spent setting up my purchases in my living room and bedroom. When I was done I looked around and was pleased to see that you couldn't spot any of the hidden cameras. Up till then I had been blackmailing BJ with a non-existent videotape, but sooner or later the odds were pretty good that she was going to want to see it. Against that time I figured that I'd better have a couple. 
 
  Monday I called BJ from work and told her to be at my place by seven, "And sweetie? Don't wear a lot because you'll just be taking it off." BJ showed up at seven and I let her in and led her into the living room. Charley was sitting on the easy chair and Mel, Ben and Harry were sitting on the couch and all four men were naked. BJ looked at me and I saw the shock show on her face. 
 
@@ -490,7 +504,11 @@
 
  
 
- ****** The Making of a Slut Ch. 04 ****** byJust_Plain_Bob© I woke up alone on Friday morning. After the confrontation of the night before I wondered how BJ was going to act when I saw her. I smelled coffee brewing so I knew she had not gone home. I took my shower and dressed for work and then went to get a cup of coffee. BJ was sitting at the kitchen table, eyes red and sipping a cup of coffee and she looked up at me when I came into the room. 
+ 
+
+===
+
+I woke up alone on Friday morning. After the confrontation of the night before I wondered how BJ was going to act when I saw her. I smelled coffee brewing so I knew she had not gone home. I took my shower and dressed for work and then went to get a cup of coffee. BJ was sitting at the kitchen table, eyes red and sipping a cup of coffee and she looked up at me when I came into the room. 
 
  "You'll have to change whatever plans you have made for the weekend." 
 
@@ -718,7 +736,11 @@
 
  
 
- ****** The Making of a Slut Ch. 05 ****** byJust_Plain_Bob© The next morning I told BJ that even though it was a Sunday, one of the days that I told her would always be a party day, she could look forward to a quiet night with just me. She gave me a look that said, "Yeah, right! What kind of shit are you going to pull on me now." 
+ 
+
+===
+
+The next morning I told BJ that even though it was a Sunday, one of the days that I told her would always be a party day, she could look forward to a quiet night with just me. She gave me a look that said, "Yeah, right! What kind of shit are you going to pull on me now." 
 
  "Okay, you're right, I do have an ulterior motive. I told you that you could make plans to do what ever you wanted between Monday and Thursday, but because of your period I have to change plans. I'm giving you tonight in exchange for Wednesday. I trust that your period will be over by then." 
 
@@ -914,7 +936,11 @@
 
  
 
- ****** The Making of a Slut Ch. 06 ****** byJust_Plain_Bob© Sunday afternoon I told BJ to dress as slutty as she could. "High heels, the shortest skirt you have, low cut blouse and no bra or panties. Oh, and no hose. Nothing looks sluttier than 'come fuck me' pumps and bare legs. 
+ 
+
+===
+
+Sunday afternoon I told BJ to dress as slutty as she could. "High heels, the shortest skirt you have, low cut blouse and no bra or panties. Oh, and no hose. Nothing looks sluttier than 'come fuck me' pumps and bare legs. 
 
  As we drove across town she asked me where we were going. "To visit a friend of mine sweetie. I know how much you loved Claude's big dick and Dave tells me that his is pretty big so I thought I'd give you a chance to do some comparing." 
 
@@ -1114,6 +1140,10 @@
 
  
 
- ****** The Making of a Slut Ch. 06 ****** byJust_Plain_Bob© She is leaving tomorrow to go and stay with Claude until the baby is born. If the baby isn't white BJ will come home and say that she lost it. Dave has already arranged for a childless couple to take the baby. They have promised that BJ will have unrestricted access to the child. She doesn't really want to give it up, but she doesn't want to lose her family either. If the baby is white she will come home with it and keep it. 
+ 
+
+===
+
+She is leaving tomorrow to go and stay with Claude until the baby is born. If the baby isn't white BJ will come home and say that she lost it. Dave has already arranged for a childless couple to take the baby. They have promised that BJ will have unrestricted access to the child. She doesn't really want to give it up, but she doesn't want to lose her family either. If the baby is white she will come home with it and keep it. 
 
  So that's where things stand right now. She may or may not put her marriage to Mike back together. She may or may not stay with me. The only sure thing, at least according to BJ is that she is a slut and plans to stay one. Only time will tell. Report_Story 

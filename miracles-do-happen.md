@@ -1,8 +1,14 @@
+Miracles Do Happen
+==================
 #1 
 
  
 
- ****** Miracles Do Happen ****** byMetatronlive© As he stood next to the stop, waiting for the streetcar which would take him into the safety of his home-district, he caught sight of a girl moving towards the station. He couldn't really make out the looks of her face, all he could see was the blond hair, loosely waving around her rather narrow face, and a body which seemed to be quite appealing, although a little bit too thin for his taste. 
+ 
+
+===
+
+As he stood next to the stop, waiting for the streetcar which would take him into the safety of his home-district, he caught sight of a girl moving towards the station. He couldn't really make out the looks of her face, all he could see was the blond hair, loosely waving around her rather narrow face, and a body which seemed to be quite appealing, although a little bit too thin for his taste. 
 
  As it was his normal manner, he turned his face to look at a shop window on the opposite side of the street, trying not to show the girl he had checked her out. Shyness had always been a problem for him, and although he didn't look too bad, he never really attempted to chat up a girl he didn't know at all. 
 

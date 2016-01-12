@@ -1,8 +1,14 @@
+Bad Heather
+===========
 #1 
 
  
 
- ****** Bad Heather ****** byTx_Tall_Tales© =================== 
+ 
+
+===
+
+=================== 
 
  Heather has been bad, very bad. Can she turn over a new leaf? 
 
@@ -284,7 +290,11 @@
 
  
 
- ****** Bad Heather ****** byTx_Tall_Tales© "Shit. Which one is it?" 
+ 
+
+===
+
+"Shit. Which one is it?" 
 
  "I hate that I love it." 
 
@@ -614,7 +624,11 @@
 
  
 
- ****** Bad Heather ****** byTx_Tall_Tales© At first Harold just caressed the gorgeous flesh laid out before him. Then he reached for her crotch and slid two fingers deep into his daughter's quim. His other hand had found her chest and a nipple was in his firm grasp. As he slid his fingers in and out of Heather, she matched his motions with her own, stroking his aching cock through his shorts. 
+ 
+
+===
+
+At first Harold just caressed the gorgeous flesh laid out before him. Then he reached for her crotch and slid two fingers deep into his daughter's quim. His other hand had found her chest and a nipple was in his firm grasp. As he slid his fingers in and out of Heather, she matched his motions with her own, stroking his aching cock through his shorts. 
 
  "You must miss Mom a lot," Heather gasped between strokes. 
 
@@ -936,7 +950,11 @@
 
  
 
- ****** Bad Heather ****** byTx_Tall_Tales© Then he pulled the other straight back chair directly in front of Harold's. He sat down and summoned Heather over, who was naked except her panties. 
+ 
+
+===
+
+Then he pulled the other straight back chair directly in front of Harold's. He sat down and summoned Heather over, who was naked except her panties. 
 
  "That's fine, you can leave them on for now. Come here." 
 

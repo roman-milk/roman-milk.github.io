@@ -1,8 +1,14 @@
+Catching Mommy: A Shocking Secret
+=================================
 #1 
 
  
 
- ****** Catching Mommy: A Shocking Secret ****** bysilkstockingslover© Summary: 18-year-old daughter learns her Mom is a submissive lesbian. 
+ 
+
+===
+
+Summary: 18-year-old daughter learns her Mom is a submissive lesbian. 
 
  Note 1: A great, big, super thanks goes to great Estragon for his dedicated copy-editing. 
 
@@ -498,7 +504,11 @@
 
  
 
- ****** Catching Mommy: A Shocking Secret ****** bysilkstockingslover© From: Mistress Olivia 
+ 
+
+===
+
+From: Mistress Olivia 
 
  To: Slut Sarah 
 
@@ -720,7 +730,11 @@
 
  
 
- ****** Catching Mommy: Blackmailing a MILF ****** bysilkstockingslover© Summary:An 18-year-old seduces her arch-enemy's MILF Mom. 
+ 
+
+===
+
+Summary:An 18-year-old seduces her arch-enemy's MILF Mom. 
 
  Note 1:A great, big, super thanks goes to great Estragon for his dedicated copy-editing. 
 
@@ -1050,7 +1064,11 @@
 
  
 
- ****** Catching Mommy: Blackmailing a MILF ****** bysilkstockingslover© Once she was done, still on her back in her own home, I explained, "I own you now, Mrs. Phillips. You are my slut. If you obey all my orders, I won't upload this quaint little video of you onto the Internet. Is that understood?" 
+ 
+
+===
+
+Once she was done, still on her back in her own home, I explained, "I own you now, Mrs. Phillips. You are my slut. If you obey all my orders, I won't upload this quaint little video of you onto the Internet. Is that understood?" 
 
  "Yes," she replied defeated, before adding, "Please, is there any way we can work something out?" 
 
@@ -1076,7 +1094,11 @@
 
  
 
- ****** Catching Mommy: Creating a Slut ****** bysilkstockingslover© Summary: An 18-year-old begins controlling her arch-enemy's MILF Mom. 
+ 
+
+===
+
+Summary: An 18-year-old begins controlling her arch-enemy's MILF Mom. 
 
  Note 1: A great, big, super thanks goes to great Estragon for his dedicated copy-editing. 
 
@@ -1468,7 +1490,11 @@
 
  
 
- ****** Catching Mommy: Creating a Slut ****** bysilkstockingslover© I screamed as I creamed, "Fuuuuuuuck, Mommy slut, I am comiiiiiiiing." My cum exploded out of my cunt as I vibrated from the euphoria my new pet brought me. 
+ 
+
+===
+
+I screamed as I creamed, "Fuuuuuuuck, Mommy slut, I am comiiiiiiiing." My cum exploded out of my cunt as I vibrated from the euphoria my new pet brought me. 
 
  The intense pleasure made me weak, so I let go of my slut's head and collapsed back onto her bed. To my surprise, my hungry slut continued licking my cunt, seemingly unable to get enough of my perfect nectar. 
 
@@ -1506,7 +1532,11 @@
 
  
 
- ****** Catching Mommy: Daughter Domme ****** bysilkstockingslover© Catching Mommy: Daughter Domme 
+ 
+
+===
+
+Catching Mommy: Daughter Domme 
 
  Summary: An 18-year-old makes her Mom her submissive. 
 
@@ -1888,7 +1918,11 @@
 
  
 
- ****** Catching Mommy: Housewife Lesbians ****** bysilkstockingslover© Summary: An 18-year-old dommes two rich MILF bitches. 
+ 
+
+===
+
+Summary: An 18-year-old dommes two rich MILF bitches. 
 
  Note 1: A great, big, super thanks goes to MAB7991 for his dedicated copy- editing. 
 
@@ -2232,7 +2266,11 @@
 
  
 
- ****** Catching Mommy: Housewife Lesbians ****** bysilkstockingslover© I slapped her ass and once she was gone I went to grab the video camera I planned to hide in my room, assuming the bitch would humiliate my mother on my bed again. I set it up and hid it pretty well in the corner, taking the remote with me. 
+ 
+
+===
+
+I slapped her ass and once she was gone I went to grab the video camera I planned to hide in my room, assuming the bitch would humiliate my mother on my bed again. I set it up and hid it pretty well in the corner, taking the remote with me. 
 
  I went into mom's room just in time to see her finish putting on the dark beige pantyhose that really brought out her legs. She turned to me and asked, clearly insecure, "How do I look?" 
 
@@ -2576,7 +2614,11 @@
 
  
 
- ****** Catching Mommy: Housewife Lesbians ****** bysilkstockingslover© June looked too exhausted to move, but Lauren, clearly horny, got in position and as the two women scissored themselves together as I went to the camera and filmed for a couple of minutes. 
+ 
+
+===
+
+June looked too exhausted to move, but Lauren, clearly horny, got in position and as the two women scissored themselves together as I went to the camera and filmed for a couple of minutes. 
 
  Smiling, I looked at my watch and realized I was probably playing with fire, and stopped the camera, popped out the tape, and said, "I will be in contact sluts. Both of you keep tomorrow evening free in case I need you." 
 
@@ -2596,7 +2638,11 @@
 
  
 
- ****** Catching Mommy: Olivia Wins ****** bysilkstockingslover© WARNING: This is one of three alternate endings to the Catching Mommy saga. You can also read Catching Mommy: Victoria Wins (for the TEAM VICTORIA fans) and Catching Mommy: Win Win For All (for the kinky romantics at heart). 
+ 
+
+===
+
+WARNING: This is one of three alternate endings to the Catching Mommy saga. You can also read Catching Mommy: Victoria Wins (for the TEAM VICTORIA fans) and Catching Mommy: Win Win For All (for the kinky romantics at heart). 
 
  Note 1: A great, big, super thanks goes to MAB7991, Robert and Goamz86 for their dedicated copy-editing. 
 
@@ -2882,7 +2928,11 @@
 
  
 
- ****** Catching Mommy: Olivia Wins ****** bysilkstockingslover© My cunt frustratingly tingled at the words 'pet-to-be', my cunt again trying to betray me. 
+ 
+
+===
+
+My cunt frustratingly tingled at the words 'pet-to-be', my cunt again trying to betray me. 
 
  Miss Watkins on the floor, now licking the stocking-clad feet of Angela, said, her tone implying she still hadn't recovered from her punishment, "She isn't bluffing." 
 
@@ -3148,7 +3198,11 @@
 
  
 
- ****** Catching Mommy: Olivia Wins ****** bysilkstockingslover© I had no intention of stopping, dying to taste the full blast of her come on my lips and tongue. 
+ 
+
+===
+
+I had no intention of stopping, dying to taste the full blast of her come on my lips and tongue. 
 
  I felt hands on my ass and I stopped, startled, but felt my head pushed deeper into Olivia's cunt as I returned to the task at hand. I felt fingers playing with my pussy and then without warning I felt something big, a fist I thought shoved into my cunt. I screamed into Olivia's cunt, feeling a mixture of pleasure and pain, as my cunt was unnaturally widened. I quickly learned it was indeed a fist as I felt fingers wiggling inside me. 
 
@@ -3436,7 +3490,11 @@
 
  
 
- ****** Catching Mommy: Olivia Wins ****** bysilkstockingslover© Olivia asked, "Finally ready to cum, our slut?" 
+ 
+
+===
+
+Olivia asked, "Finally ready to cum, our slut?" 
 
  "Oh God yes," I answered, my need to come overpowering after all this humiliation, fucking, serving and teasing. 
 
@@ -3548,7 +3606,11 @@
 
  
 
- ****** Catching Mommy: Protecting Slut-Mom ****** bysilkstockingslover© Catching Mommy: Protecting Slut-Mom 
+ 
+
+===
+
+Catching Mommy: Protecting Slut-Mom 
 
  Summary: A plan to humiliate her arch-enemy completely backfires. 
 
@@ -3894,7 +3956,11 @@
 
  
 
- ****** Catching Mommy: Protecting Slut-Mom ****** bysilkstockingslover© I stopped, realizing that I needed to make clear that I too had blackmail evidence on her mother as well as her; I peeked back into the bathroom in time to hear Lauren trying to explain. 
+ 
+
+===
+
+I stopped, realizing that I needed to make clear that I too had blackmail evidence on her mother as well as her; I peeked back into the bathroom in time to hear Lauren trying to explain. 
 
  "She...blackmailed...me...because...of...you," Lauren said between sobs. 
 
@@ -4314,7 +4380,11 @@
 
  
 
- ****** Catching Mommy: Protecting Slut-Mom ****** bysilkstockingslover© Suddenly, a plan formed. I realized I couldn't beat her on my own...but she could be beat. 
+ 
+
+===
+
+Suddenly, a plan formed. I realized I couldn't beat her on my own...but she could be beat. 
 
  I pulled to the side of the road, smiling a plan finally formulating in my mind, I pulled out my phone and dialed. 
 
@@ -4340,7 +4410,11 @@
 
  
 
- ****** Catching Mommy: Victoria Wins ****** bysilkstockingslover© WARNING: This is one of three alternate endings to the Catching Mommy saga. You can also read Catching Mommy: Olivia Wins (for the TEAM OLIVIA fans) and Catching Mommy: Win Win For All (for the kinky romantics at heart). 
+ 
+
+===
+
+WARNING: This is one of three alternate endings to the Catching Mommy saga. You can also read Catching Mommy: Olivia Wins (for the TEAM OLIVIA fans) and Catching Mommy: Win Win For All (for the kinky romantics at heart). 
 
  Note 1: A great, big, super thanks goes to MAB7991, Robert and Goamz for their dedicated copy-editing. 
 
@@ -4662,7 +4736,11 @@
 
  
 
- ****** Catching Mommy: Victoria Wins ****** bysilkstockingslover© Grasping at straws, she said, "You can have Katrina and Angela as unconditional pets." 
+ 
+
+===
+
+Grasping at straws, she said, "You can have Katrina and Angela as unconditional pets." 
 
  "What?" they both questioned in unison. 
 
@@ -5104,7 +5182,11 @@
 
  
 
- ****** Catching Mommy: Victoria Wins ****** bysilkstockingslover© "Well, fuck away, ladies, it's time to take our pets home. "Let's go my pets," I said, pulling on the leash. 
+ 
+
+===
+
+"Well, fuck away, ladies, it's time to take our pets home. "Let's go my pets," I said, pulling on the leash. 
 
  "What about our clothes?" Lauren asked. 
 
@@ -5152,7 +5234,11 @@
 
  
 
- ****** Catching Mommy: Win Win For All ****** bysilkstockingslover© WARNING: This is one of three alternate endings to the Catching Mommy saga. You can also read Catching Mommy: Olivia Wins (for the TEAM OLIVIA fans) and Catching Mommy: Victoria Wins (for the TEAM VICTORIA fans). 
+ 
+
+===
+
+WARNING: This is one of three alternate endings to the Catching Mommy saga. You can also read Catching Mommy: Olivia Wins (for the TEAM OLIVIA fans) and Catching Mommy: Victoria Wins (for the TEAM VICTORIA fans). 
 
  Note 1: A great, big, super thanks goes to MAB7991, Robert and Goamz86 for their dedicated copy-editing. 
 
@@ -5452,7 +5538,11 @@
 
  
 
- ****** Catching Mommy: Win Win For All ****** bysilkstockingslover© "S-s-sorry Mistress," Katrina stuttered looking back at Olivia, before turning to me and begging with much more conviction, "Mistress Victoria, please may your new slutty bitch serve you?" 
+ 
+
+===
+
+"S-s-sorry Mistress," Katrina stuttered looking back at Olivia, before turning to me and begging with much more conviction, "Mistress Victoria, please may your new slutty bitch serve you?" 
 
  "Better," I smiled, snapping my fingers and pointing to my cunt. 
 

@@ -1,8 +1,14 @@
+A Secretary Changed Ch. 01
+==========================
 #1 
 
  
 
- ****** A Secretary Changed Ch. 01 ****** bysubslutjenna© Yawn, stretch, eyes open. 
+ 
+
+===
+
+Yawn, stretch, eyes open. 
 
  The stupid alarm ringing. 
 
@@ -158,7 +164,11 @@
 
  
 
- ****** A Secretary Changed Ch. 02 ****** bysubslutjenna© You probably want to read chapter 1..... 
+ 
+
+===
+
+You probably want to read chapter 1..... 
 
  Coming back from the restroom, I stumbled a bit. Shaking my head I thought to myself, no more of that Devil's Iced Tea. 
 
@@ -336,7 +346,11 @@
 
  
 
- ****** A Secretary Changed Ch. 03 ****** bysubslutjenna© You should read the first two.... Of course it's complete fiction...all similarities are coincidence. .blah blah blah... 
+ 
+
+===
+
+You should read the first two.... Of course it's complete fiction...all similarities are coincidence. .blah blah blah... 
 
  After Miss Jane left me kneeling..naked...collared, I stood. Going to the sink I looked at my reflection and sighed. 
 
@@ -530,7 +544,11 @@
 
  
 
- ****** A Secretary Changed Ch. 04 ****** bysubslutjenna© Our story so far... 
+ 
+
+===
+
+Our story so far... 
 
  Miss Jane, our protagonist, has the lovely young blonde Jenna just where she wants her. 
 
@@ -704,7 +722,11 @@
 
  
 
- ****** A Secretary Changed Ch. 05 ****** bysubslutjenna© This is total fiction...any similarities to blah blah blah entirely coincidence. .. 
+ 
+
+===
+
+This is total fiction...any similarities to blah blah blah entirely coincidence. .. 
 
  Read the first parts first.. 
 
@@ -914,7 +936,11 @@
 
  
 
- ****** A Secretary Changed Ch. 06 ****** bysubslutjenna© Read the first parts of this fictitious tale of tail for your evening delectation. ... 
+ 
+
+===
+
+Read the first parts of this fictitious tale of tail for your evening delectation. ... 
 
  Sitting at the vanity I looked at the cosmetics. So many I began to wonder if this Jane owned a beauty supply company. Then it crossed my mind. So obvious my blonde head missed it. 
 
@@ -1122,7 +1148,11 @@
 
  
 
- ****** A Secretary Changed Ch. 06 ****** bysubslutjenna© Watching her throat muscles working, and her lips in play tightly against his body, I couldn't believe her skill. Then, I really was shocked as she slid her talented lips up his shaft. The chain and my ring missing from his cock. Looking up at her, she smiled down at me and slowly pulled the chain, and my ring from her mouth. 
+ 
+
+===
+
+Watching her throat muscles working, and her lips in play tightly against his body, I couldn't believe her skill. Then, I really was shocked as she slid her talented lips up his shaft. The chain and my ring missing from his cock. Looking up at her, she smiled down at me and slowly pulled the chain, and my ring from her mouth. 
 
  " When I'm done with you precious, you'll be able to do that with even bigger cocks," she said as she slid my ring off her gold chain. "Now I'll give you another chance to earn it back. My man here is going to fuck your ass, and if you can take it without complaining, I'll let you have it back." 
 
@@ -1150,7 +1180,11 @@
 
  
 
- ****** A Secretary Changed Ch. 07 ****** bysubslutjenna© As always, read the first parts of this work of fiction first. All similarities to anyone are purely cosmic coincidence. Also don't forget to vote and let me know what you think. 
+ 
+
+===
+
+As always, read the first parts of this work of fiction first. All similarities to anyone are purely cosmic coincidence. Also don't forget to vote and let me know what you think. 
 
  ***** 
 
@@ -1336,7 +1370,11 @@
 
  
 
- ****** A Secretary Changed Ch. 07 ****** bysubslutjenna© She made quick work of it and again I was a little impressed. Must be a regular thing I guess. My neck stiffened and I risked lowering my head just a bit. Squealed as the hook's ball end moved up my rectum. Not even a glance from the maid. Then she was gone. Alone again. Naturally. 
+ 
+
+===
+
+She made quick work of it and again I was a little impressed. Must be a regular thing I guess. My neck stiffened and I risked lowering my head just a bit. Squealed as the hook's ball end moved up my rectum. Not even a glance from the maid. Then she was gone. Alone again. Naturally. 
 
  Laying there with nothing to do but think and look at my reflection, I closed my eyes. My head slipped down but this time, the hook didn't make me squeal. Just lovely. I'm getting used to it. 
 
@@ -1346,7 +1384,11 @@
 
  
 
- ****** A Secretary Changed Ch. 08 ****** bysubslutjenna© Just a bit of details, some of you were asking... 
+ 
+
+===
+
+Just a bit of details, some of you were asking... 
 
  Any similarities are entirely coincidence and blah blah blah... 
 
@@ -1492,7 +1534,11 @@
 
  
 
- ****** A Secretary Changed Ch. 09 ****** bysubslutjenna© Read the first chapters. It's a work of fiction and everyone's fictional. We're all adults here as well. 
+ 
+
+===
+
+Read the first chapters. It's a work of fiction and everyone's fictional. We're all adults here as well. 
 
  
 
@@ -1692,7 +1738,11 @@
 
  
 
- ****** A Secretary Changed Ch. 09 ****** bysubslutjenna© "Kneel pet," she told me. As I sank down to my knees she produced something I never would've thought she would. Looking at it I trembled. I was face to face with nine inches of very realistic, veiny and thick, balls attatched, hard rubber cock. 
+ 
+
+===
+
+"Kneel pet," she told me. As I sank down to my knees she produced something I never would've thought she would. Looking at it I trembled. I was face to face with nine inches of very realistic, veiny and thick, balls attatched, hard rubber cock. 
 
  "By the time were done here pet, you'll be able to swallow this whole. Your deep throat lessons begin right now," she said. 
 
@@ -1702,7 +1752,11 @@
 
  
 
- ****** A Secretary Changed Ch. 10 ****** bysubslutjenna© Read all the first parts if you please. 
+ 
+
+===
+
+Read all the first parts if you please. 
 
  Let me know what you think. 
 
@@ -1872,7 +1926,11 @@
 
  
 
- ****** A Secretary Changed Ch. 10 ****** bysubslutjenna© I've always been a good girl. Besides making out, and the occasional grope of my body in certain areas. The few boyfriends I've had can testify. While I'm not a virgin, I've never had a penis anywhere besides my tight little pussy. And that includes my mouth. That would've been considered, naughty. 
+ 
+
+===
+
+I've always been a good girl. Besides making out, and the occasional grope of my body in certain areas. The few boyfriends I've had can testify. While I'm not a virgin, I've never had a penis anywhere besides my tight little pussy. And that includes my mouth. That would've been considered, naughty. 
 
  So it was with a whimper, and a grimace, my cuffed wrists flexing and my pretty little toes curling when I heard Mistress Jane whisper in my ear, "You were enjoying your new diet little miss big tits...sperm." 
 
@@ -1918,7 +1976,11 @@
 
  
 
- ****** A Secretary Changed Ch. 11 ****** bysubslutjenna© Enjoy and remember, if you don't like it, at least it's free. 
+ 
+
+===
+
+Enjoy and remember, if you don't like it, at least it's free. 
 
  We're all adults in this tale. 
 
@@ -2040,7 +2102,11 @@
 
  
 
- ****** A Secretary Changed Ch. 12 ****** bysubslutjenna© This is a work of fiction and any similarities to anyone are coincidence. 
+ 
+
+===
+
+This is a work of fiction and any similarities to anyone are coincidence. 
 
  I've decided to let Rebecca tell her story without Jenna, as per request. 
 
@@ -2168,7 +2234,11 @@
 
  
 
- ****** A Secretary Changed Ch. 12 ****** bysubslutjenna© "Yes Dear, I miss you too, and I'm sorry I have to work so late," I said on the phone as I took the dildo and rubbed it along my wet slit. Lubing it with my own juices. "Uhhh yes dear, I'll be home as soon as I'm able," I told Finley with a groan, as I slipped the dildo inside me slowly. Pouting up at Mistress Jane, I took the entire length up inside me. Filling me. Stretching my tight pussy more then my fiancee ever did. 
+ 
+
+===
+
+"Yes Dear, I miss you too, and I'm sorry I have to work so late," I said on the phone as I took the dildo and rubbed it along my wet slit. Lubing it with my own juices. "Uhhh yes dear, I'll be home as soon as I'm able," I told Finley with a groan, as I slipped the dildo inside me slowly. Pouting up at Mistress Jane, I took the entire length up inside me. Filling me. Stretching my tight pussy more then my fiancee ever did. 
 
  Once again, I guess it wasn't good enough, because just as I was telling my fiancee how much I missed him, Mistress reached down and gripped the rubber cock, then started pumping it into me hard and fast. I decided at that point it was better to say goodnight to my fiancee, then to try and hold a conversation with him. 
 
@@ -2216,7 +2286,11 @@
 
  
 
- ****** A Secretary Changed Ch. 13 ****** bysubslutjenna© Back by popular demand, another work of fiction. 
+ 
+
+===
+
+Back by popular demand, another work of fiction. 
 
  Everyone's an adult here. And it's all fantasy. 
 
@@ -2348,7 +2422,11 @@
 
  
 
- ****** A Secretary Changed Ch. 13 ****** bysubslutjenna© Now I knew why the other girls made such a fuss. It hurt! Kiana was relentless and firm and quite merciless as she pushed the entire thing slowly in. All the way in. Deep. My words caught in my throat but I kept myself together and took it. Finally she got the fattest part in and my anal ring closed around the base of the plug. 
+ 
+
+===
+
+Now I knew why the other girls made such a fuss. It hurt! Kiana was relentless and firm and quite merciless as she pushed the entire thing slowly in. All the way in. Deep. My words caught in my throat but I kept myself together and took it. Finally she got the fattest part in and my anal ring closed around the base of the plug. 
 
  "Now you do want to be a Delta sister, don't you pledge?" Miss Tanya asked. I could hear the smirk in her voice. "Yes Miss Tanya, I do want to be a Delta sister," I calmly replied. Calm but my ass was in agony. Stretched. I could hear Sarah and Audrey whimpering next to me. 
 
@@ -2442,7 +2520,11 @@
 
  
 
- ****** A Secretary Changed Ch. 14 ****** bysubslutjenna© I hope you've enjoyed me so far. 
+ 
+
+===
+
+I hope you've enjoyed me so far. 
 
  Remember it's free and fantasy. 
 
@@ -2598,7 +2680,11 @@
 
  
 
- ****** A Secretary Changed Ch. 14 ****** bysubslutjenna© I opened the bag and found all it contained for clothes consisted of a tiny green dress and some shiny black heels. Very high heels. At least four inch stilettos. As I slipped the dress over my head and wiggled into it, Mistress began to speak. 
+ 
+
+===
+
+I opened the bag and found all it contained for clothes consisted of a tiny green dress and some shiny black heels. Very high heels. At least four inch stilettos. As I slipped the dress over my head and wiggled into it, Mistress began to speak. 
 
  "Here's something you may not know little miss big tits," she began. I struggled to adjust the dress as tight as it was and what with me kneeling and all. "That other sister of yours, the cheerleader? She's a closet lesbian. Never been with a man, and still a virgin," she explained. I hid my shock at the extent of her knowledge. But she wasn't finished. "Her doctor is a dear old friend of mine you see, and believe it or not I've already seen her naked. She's even more fit then you," she explained as I slipped on the heels. 
 
@@ -2626,7 +2712,11 @@
 
  
 
- ****** A Secretary Changed Ch. 15 ****** bysubslutjenna© This is work of fiction. It's free. 
+ 
+
+===
+
+This is work of fiction. It's free. 
 
  Everyone is entirely made up and coincidence in real life is just that. 
 
@@ -2766,7 +2856,11 @@
 
  
 
- ****** A Secretary Changed Ch. 15 ****** bysubslutjenna© I stuck my tounge out, and her soft folds enveloped it. Her body lowered down onto my waiting mouth. I couldn't see what Chloe was doing, but I could feel her playing with my tits. Doing something. However, I was quite well occupied, sucking and licking on Mistress Jane's wet warm pussy. Slurping on it. 
+ 
+
+===
+
+I stuck my tounge out, and her soft folds enveloped it. Her body lowered down onto my waiting mouth. I couldn't see what Chloe was doing, but I could feel her playing with my tits. Doing something. However, I was quite well occupied, sucking and licking on Mistress Jane's wet warm pussy. Slurping on it. 
 
  This was a rare thing for me. Mistress had me screwing loads of men, but aside from that first encounter with the blonde Asian girl, I hadn't had much in the way of lesbo action. Not that I felt I was missing anything. I have always been about the men. 
 
@@ -2806,7 +2900,11 @@
 
  
 
- ****** A Secretary Changed Ch. 16 ****** bysubslutjenna© Thank you all once again for taking the time to read me. 
+ 
+
+===
+
+Thank you all once again for taking the time to read me. 
 
  Remember it's free and fantasy, so any similarities to anyone or anything are purely coincidence. 
 
@@ -2972,7 +3070,11 @@
 
  
 
- ****** A Secretary Changed Ch. 16 ****** bysubslutjenna© "So I see you're married," I told him. Not really asking but just leading the conversation. I made a point of looking at his ring. He made a point of looking at my breasts as he replied, "Yes dear, been married for years now." 
+ 
+
+===
+
+"So I see you're married," I told him. Not really asking but just leading the conversation. I made a point of looking at his ring. He made a point of looking at my breasts as he replied, "Yes dear, been married for years now." 
 
  "So where is the wifey?" I asked, giggling. I felt a little guilty knowing what I was playing at, but that was outweighed by my fear of what Mistress Jane would do if I failed my task. Heavily outweighed. 
 
@@ -3052,7 +3154,11 @@
 
  
 
- ****** A Secretary Changed Ch. 17 ****** bysubslutjenna© Hello again readers. 
+ 
+
+===
+
+Hello again readers. 
 
  I hope you enjoy this next installment. 
 
@@ -3220,7 +3326,11 @@
 
  
 
- ****** A Secretary Changed Ch. 17 ****** bysubslutjenna© I hardly paid attention as Bill Shockley started pulling out papers from a case, as I was distracted by Chris taking her boxers down, revealing a huge rubber strapon cock. I stood and watched in rapt attention as the dyke spit in her hand copiously, and lubed the shaft. Over and over, adding more and more saliva to the huge thing. 
+ 
+
+===
+
+I hardly paid attention as Bill Shockley started pulling out papers from a case, as I was distracted by Chris taking her boxers down, revealing a huge rubber strapon cock. I stood and watched in rapt attention as the dyke spit in her hand copiously, and lubed the shaft. Over and over, adding more and more saliva to the huge thing. 
 
  "Get over here princess, on all fours," Chris said, patting the bed. Slowly, I went over and crawled up on the bed. Whimpering as she took off my wedding veil and tossed it aside. The two of us on the bed, me on my hands and knees. Chris played a bit with my pink collar and giggled as Bill Shockley came around in front of me. Grinning like an idiot. 
 
@@ -3264,7 +3374,11 @@
 
  
 
- ****** A Secretary Changed Ch. 18 ****** bysubslutjenna© Hello dear readers. 
+ 
+
+===
+
+Hello dear readers. 
 
  If you've been keeping up, enjoy this chapter. 
 
@@ -3438,7 +3552,11 @@
 
  
 
- ****** A Secretary Changed Ch. 18 ****** bysubslutjenna© I'm not sure what compelled me to do it, but something did as I could feel my nipple piercings. Giggling to myself, I also felt my new tattoo, a sweet little rose. My husband was probably going to have a fit but whatever. I looked good. 
+ 
+
+===
+
+I'm not sure what compelled me to do it, but something did as I could feel my nipple piercings. Giggling to myself, I also felt my new tattoo, a sweet little rose. My husband was probably going to have a fit but whatever. I looked good. 
 
  I shook my head again, for the umpteenth time. It seemed lately I had cobwebs in there and couldn't think as clearly as usual. Maybe I was coming down with the flu or something. I don't know. As I drove home I squirmed a bit. For some reason I felt, wet? Squishy? I just needed a shower maybe. 
 
@@ -3470,7 +3588,11 @@
 
  
 
- ****** A Secretary Changed Ch. 19 ****** bysubslutjenna© Please enjoy this latest chapter and remember, it's complete fiction. 
+ 
+
+===
+
+Please enjoy this latest chapter and remember, it's complete fiction. 
 
  All similarities to actual people is pure coincidence. 
 
@@ -3626,7 +3748,11 @@
 
  
 
- ****** A Secretary Changed Ch. 19 ****** bysubslutjenna© But first, it went, let me take a selfie. And that's what I did. A few selfies actually. Naked at first. Then just in my panties. Then I picked out one of my new dresses. A cute little pink and white minidress. Strapless and tight. Very short, showing off plenty of leg and cleavage. A few more selfies then I slipped on my new little ankle boots. Black patent leather with four inch heels. Very cute. A few more selfies and it was time to go. As I got in my car and drove to the Pink Partridge I was a very bad girl. Posting my new selfies onto my FB page. Not the indecent ones mind you. Just the ones of me in my dress. Legs apart and bending down so my cleavage was popping out. 
+ 
+
+===
+
+But first, it went, let me take a selfie. And that's what I did. A few selfies actually. Naked at first. Then just in my panties. Then I picked out one of my new dresses. A cute little pink and white minidress. Strapless and tight. Very short, showing off plenty of leg and cleavage. A few more selfies then I slipped on my new little ankle boots. Black patent leather with four inch heels. Very cute. A few more selfies and it was time to go. As I got in my car and drove to the Pink Partridge I was a very bad girl. Posting my new selfies onto my FB page. Not the indecent ones mind you. Just the ones of me in my dress. Legs apart and bending down so my cleavage was popping out. 
 
  I didn't think there was anything wrong with that. Unless you think being on social media while driving is bad. I know it is, and I felt guilty about it, so I put my phone down and slapped myself on the wrist with a giggle. Just ahead was my destination. The Pink Partridge salon. Maybe just a small tattoo. Or maybe a new piercing. Maybe both? 
 
@@ -3682,7 +3808,11 @@
 
  
 
- ****** A Secretary Changed Ch. 20 ****** bysubslutjenna© Thank you for reading this latest chapter. I hope you enjoy it and as always, we are all adults in this tale and any similarities to anyone are purely coincidence. 
+ 
+
+===
+
+Thank you for reading this latest chapter. I hope you enjoy it and as always, we are all adults in this tale and any similarities to anyone are purely coincidence. 
 
  Also, these two timelines are about a week apart this time, with Ashley about a week ahead of Jenna. 
 
@@ -3816,7 +3946,11 @@
 
  
 
- ****** A Secretary Changed Ch. 20 ****** bysubslutjenna© Helplessly pinned, with her body bent in half, Ashley could only dig her long nails into the bed and gasp as Hans began relentlessly pounding into her. Harder, faster, and deeper than she had ever been fucked before. Every thrust causing his body to slap and grind against the ring in her clit. She quickly succumbed to her next orgasm, this time screaming out in pleasure. Her pussy actually squirting out from around his shaft to soak his legs and the bed. He didn't stop, or even pause, and Ashley was struggling to even breathe. 
+ 
+
+===
+
+Helplessly pinned, with her body bent in half, Ashley could only dig her long nails into the bed and gasp as Hans began relentlessly pounding into her. Harder, faster, and deeper than she had ever been fucked before. Every thrust causing his body to slap and grind against the ring in her clit. She quickly succumbed to her next orgasm, this time screaming out in pleasure. Her pussy actually squirting out from around his shaft to soak his legs and the bed. He didn't stop, or even pause, and Ashley was struggling to even breathe. 
 
  Seeing Hans began to frenetically thrust, Mistress Jane giggled and said to him, just in time,"On her lovely face dear." 
 
@@ -3918,7 +4052,11 @@
 
  
 
- ****** A Secretary Changed Ch. 20 ****** bysubslutjenna© So much so, that Tabitha was choking down her fourth cock, and I had yet to do anything but squirm in discomfort and listen to her suck. I could tell she was swallowing every time. In the few minutes between guys we didn't talk much. Mostly she was trying to catch her breath but I did find out she met Mistress Jane through Rebecca. I guess Mrs. Anders had introduced them at a party and Tabitha woke up the next day in bed with two guys. She couldn't have her girlfriend finding out so one thing led to another and here she was. 
+ 
+
+===
+
+So much so, that Tabitha was choking down her fourth cock, and I had yet to do anything but squirm in discomfort and listen to her suck. I could tell she was swallowing every time. In the few minutes between guys we didn't talk much. Mostly she was trying to catch her breath but I did find out she met Mistress Jane through Rebecca. I guess Mrs. Anders had introduced them at a party and Tabitha woke up the next day in bed with two guys. She couldn't have her girlfriend finding out so one thing led to another and here she was. 
 
  As I heard another cock slide into Tabitha's mouth I got my first one. It slid right through the hole and pushed its way into my mouth. With my eyes open in surprise I quickly let it slide down my throat and started sucking. Well, in the position the two of us were in it wasn't so much of a blow job as just getting throat fucked. After that first one, the strip club must have picked up in business. Because after that it was one cock after another, for both of us. 
 
@@ -3938,7 +4076,11 @@
 
  
 
- ****** A Secretary Changed Ch. 21 ****** bysubslutjenna© Thank you for reading these chapters. 
+ 
+
+===
+
+Thank you for reading these chapters. 
 
  Your comments and votes are truly appreciated. 
 
@@ -4068,7 +4210,11 @@
 
  
 
- ****** A Secretary Changed Ch. 21 ****** bysubslutjenna© The cute blonde at the video game waved and said hi without looking at me, and I saw she was the youngest of the bunch. 
+ 
+
+===
+
+The cute blonde at the video game waved and said hi without looking at me, and I saw she was the youngest of the bunch. 
 
  "Hi all of you, I'm Jenna," I said. A few girls said hi but mostly noone paid much attention. Looking around I noticed only me and Taylor had collars on. Mine being black, and her's was red with the word slut on it. 
 

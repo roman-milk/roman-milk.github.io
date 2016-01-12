@@ -1,8 +1,14 @@
+Found Out My Babysitter Is a Slut!
+==================================
 #1 
 
  
 
- ****** Found Out My Babysitter Is a Slut! ****** byNonStopFunGuy© I couldnt believe I was staring at a picture on my computer of my 18 year old babysitter's naked pussy. 
+ 
+
+===
+
+I couldnt believe I was staring at a picture on my computer of my 18 year old babysitter's naked pussy. 
 
  Leaning back behind my desk in my home office, maximized on my monitor, was a picture of Candice lying on her back nude with her legs spread, and a perfectly shaved, glistening pink pussy pointed at the camera. Wow. I mean -- wow. 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Found Out My Babysitter Is a Slut! ****** byNonStopFunGuy© "Do it baby!" encouraged this horny old perv. 
+ 
+
+===
+
+"Do it baby!" encouraged this horny old perv. 
 
  Suddenly we both heard a thump in the living room. Outside the study's door. Candice immediately pulled her shirt over her tits while I jumped up and pulled my pants back on. They stretched, but at least I was covered. "Wait," I yelled to whichever kid was outside, running for the door. 
 
@@ -274,7 +284,11 @@
 
  
 
- ****** Found Out My Babysitter Is a Slut! ****** byNonStopFunGuy© Burying one finger deep in her ass -- not really pumping it, just leaving it in there -- I bent my face down again. Using thumb and finger, I spread open the lips around her clit to expose the little girlie-cock. I put the side of my tongue on it and went at it, furiously licking and pushing her clit in its place. "Yes! yes!" she screamed for me, and I saw her clutch the side of the sofa with narled fingers. Her body tensed up. Lick lick lick I went . . . and it happened. Her pussy leaked and soiled with another trickle of juices, she was having yet another orgasm for me. I continued licking her clit until I was sure she was done, then I pulled my finger out of her ass and leaned up on my knees in front of her. 
+ 
+
+===
+
+Burying one finger deep in her ass -- not really pumping it, just leaving it in there -- I bent my face down again. Using thumb and finger, I spread open the lips around her clit to expose the little girlie-cock. I put the side of my tongue on it and went at it, furiously licking and pushing her clit in its place. "Yes! yes!" she screamed for me, and I saw her clutch the side of the sofa with narled fingers. Her body tensed up. Lick lick lick I went . . . and it happened. Her pussy leaked and soiled with another trickle of juices, she was having yet another orgasm for me. I continued licking her clit until I was sure she was done, then I pulled my finger out of her ass and leaned up on my knees in front of her. 
 
  I kept licking her sweet juices from my lips while I rose up off the floor. The horny young bitch was reaching down for my body, trying to pull me closer. I felt her grinding her obviously-throbbing clit against empty air, so as I rose up I leaned forward and pressed the hairy skin of my chest against her cunt. She purred like a kitten and her fingers clutched my torso under my armpits, and she began to hump my chestplate with her wet vagina. Down farther below I could sense my prick was fully erect again and wanting to fuck this eighteen year old slut. And Candice's eyes were begging for it. 
 
@@ -380,7 +394,11 @@
 
  
 
- ****** Found Out My Babysitter Is a Slut! ****** byNonStopFunGuy© Both of us giggled, knowing that I would. 
+ 
+
+===
+
+Both of us giggled, knowing that I would. 
 
  It was now already near midnight, her mom was going to be insanely mad. So what. After she dressed I led her to the front door of the house, where I scooped her in my arms again and planted another lusty perverted tongue-filled kiss on her young mouth. She kissed back not like a whore -- well, I guess they don't kiss do they -- but instead like an oversexed young woman who adores the men who fuck her. 
 

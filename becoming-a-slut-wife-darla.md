@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Darla Ch. 01
+==================================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Darla Ch. 01 ****** byJust_Plain_Bob© Let's see, numbers where the babysitter can reach us if necessary; birthday present for Barb and the card; bottle of white wine for Darla in case all they have is hard liquor. What else? Oh yeah, condoms, just in case what happened at the last party happens again. I handed the rubbers to Darla and she looked at me sheepishly, but she took them and put them in her purse. As she tucked them away I wondered if what happened last time was going to happen again tonight. It had been three weeks ago and I could remember it like it was last night. 
+ 
+
+===
+
+Let's see, numbers where the babysitter can reach us if necessary; birthday present for Barb and the card; bottle of white wine for Darla in case all they have is hard liquor. What else? Oh yeah, condoms, just in case what happened at the last party happens again. I handed the rubbers to Darla and she looked at me sheepishly, but she took them and put them in her purse. As she tucked them away I wondered if what happened last time was going to happen again tonight. It had been three weeks ago and I could remember it like it was last night. 
 
  It was a party to celebrate the promotion of one of the guys that Darla works with and even though I would prefer to skip company type parties (I don't even go to my own) Darla talked me into going with her to this one. It was a typical party for a company you didn't work for. When you got there you were introduced to sixty people you had never seen before and you promptly forgot them all except for the tall blond with the big tits. Then you got a drink and circulated in a desperate attempt to find someone you knew well enough to be comfortable with. 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** Becoming a Slut Wife: Darla Ch. 02 ****** byJust_Plain_Bob© I had so much I wanted to ask, so much I wanted to know, but after Darla's last orgasm she fell asleep. I shook her a couple of times, but the night's drinking and all the physical exertion had worn her out. I lay there staring at the ceiling and thought about what she'd said. She had said yes to every question I'd asked. She said she was going to fuck Max again, she was going to fuck Sean again, she was going to get gang fucked again and I apparently had no say in the matter - she was going to do it! This wasn't my wife! Some alien being must have taken over her body. How else do you explain Darla's going from loving wife and mother to everybody's whore in the space of a five hour party? When she had screamed "Shut up and fuck me" it was the first time she had ever used that word in speaking to me. Hell, when she'd said it to the guys gangbanging her it was the first time I'd ever heard her use the word. Maybe the morning would bring the "I'm sorry's" and the "please forgive me's" but they sure were not in evidence that night. 
+ 
+
+===
+
+I had so much I wanted to ask, so much I wanted to know, but after Darla's last orgasm she fell asleep. I shook her a couple of times, but the night's drinking and all the physical exertion had worn her out. I lay there staring at the ceiling and thought about what she'd said. She had said yes to every question I'd asked. She said she was going to fuck Max again, she was going to fuck Sean again, she was going to get gang fucked again and I apparently had no say in the matter - she was going to do it! This wasn't my wife! Some alien being must have taken over her body. How else do you explain Darla's going from loving wife and mother to everybody's whore in the space of a five hour party? When she had screamed "Shut up and fuck me" it was the first time she had ever used that word in speaking to me. Hell, when she'd said it to the guys gangbanging her it was the first time I'd ever heard her use the word. Maybe the morning would bring the "I'm sorry's" and the "please forgive me's" but they sure were not in evidence that night. 
 
  There was no "please forgive me" the next day, but there was one "I'm sorry." 
 

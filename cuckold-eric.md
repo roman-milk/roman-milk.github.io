@@ -1,8 +1,14 @@
+Cuckold Eric
+============
 #1 
 
  
 
- ****** Cuckold Eric ****** byGotBacon© This story has some typos and grammar errors. If that bothers you, move on. 
+ 
+
+===
+
+This story has some typos and grammar errors. If that bothers you, move on. 
 
  ***** 
 
@@ -304,7 +310,11 @@
 
  
 
- ****** Cuckold Eric ****** byGotBacon© "Sarah. Wake up." 
+ 
+
+===
+
+"Sarah. Wake up." 
 
  She moans and looks at me. Nothing registers. I help her up and walk her to the shower. She is aware enough to stand up. I take off my clothes and put her in the shower. I wash and dry her. I get her dressed and put her in the front seat of the car. I go back and pack a bag for her. Some clothes and most of her toiletries. I drive downtown and help her out. I sit her on a bus bench and drive away. 
 

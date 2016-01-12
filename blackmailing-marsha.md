@@ -1,8 +1,14 @@
+Blackmailing Marsha
+===================
 #1 
 
  
 
- ****** Blackmailing Marsha ****** byJust_Plain_Bob© I had trouble believing my eyes and I had to take a second and closer look to make sure. No doubt about it, it was Marsha and the man with her with his hand up under her skirt was not her husband. Carefully taking out my cell phone I took a picture of the two of them clearly showing where his hand was. A minute later I got a picture of the two of them leaning toward each other and kissing. I got one more with her hand high up on his leg and cupped as if over a lump. Then I put the cell phone away and just sat and watched. 
+ 
+
+===
+
+I had trouble believing my eyes and I had to take a second and closer look to make sure. No doubt about it, it was Marsha and the man with her with his hand up under her skirt was not her husband. Carefully taking out my cell phone I took a picture of the two of them clearly showing where his hand was. A minute later I got a picture of the two of them leaning toward each other and kissing. I got one more with her hand high up on his leg and cupped as if over a lump. Then I put the cell phone away and just sat and watched. 
 
  Fifteen minutes later they got up and started to leave and that is when Marsh saw me and I saw the blood drain from her face. The man said something and then took her by the arm and led her away. I saw her nervously look back at me once and then they were gone. 
 
@@ -244,7 +250,11 @@
 
  
 
- ****** Blackmailing Marsha ****** byJust_Plain_Bob© +++++ 
+ 
+
+===
+
++++++ 
 
  Marsha lied, but pictures don't and Bill tossed her ass out. The divorce was a bitter one with Marsha fighting all the way to keep it from happening while Bill fought just as hard to make it happen. I didn't come out of it looking too good when I had to go to court and admit I coerced Marsha into doing the bachelor party, but the fact was she did do it and the pictures I'd taken of her showed that it wasn't the first time she had cheated on Bill. Bill ended up winning, but losing. He got the divorce, but he ended up having to pay both attorneys fees and court costs. He was able to exempt his pension and 401k but everything else was split down the middle. 
 

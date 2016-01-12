@@ -1,8 +1,14 @@
+Annie and the Neighbors
+=======================
 #1 
 
  
 
- ****** Annie and the Neighbors ****** byJust_Plain_Bob© I had been in the backyard working the flowerbeds and in over an hour I had accomplished very little. The reason for the lack of progress was sitting in a lounge chair about sixty feet away and she was wearing two strips of yellow cloth, no bigger than Band-Aids on a body that was designed by the Devil to get men like me in trouble. 
+ 
+
+===
+
+I had been in the backyard working the flowerbeds and in over an hour I had accomplished very little. The reason for the lack of progress was sitting in a lounge chair about sixty feet away and she was wearing two strips of yellow cloth, no bigger than Band-Aids on a body that was designed by the Devil to get men like me in trouble. 
 
  I had been casting lustful glances at Amber ever since she was a very early teen. It is very hard not to look at a fifteen-year-old girl who looks and acts twenty-one. The trouble was that Amber knew what she had, knew what it did to men, knew what it caused and knew that the men knew that because of her age that they didn't dare do or say anything. And knowing she was safe she became a terrible flirt and the biggest cock tease that I had ever seen. No, not terrible - evil. Amber did everything but flat out ask you to fuck her knowing that unless you were terminally stupid you would turn and run from her like the Devil was chasing you, which in a way I guess he was. Believe me - it is very hard having an Amber living next door to you. 
 

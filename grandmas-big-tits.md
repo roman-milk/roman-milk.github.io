@@ -1,8 +1,14 @@
+Grandma's Big Tits
+==================
 #1 
 
  
 
- ****** Grandma's Big Tits ****** bygeronimo_appleby© I saw one of those captioned photos on Tumblr that showed a very attractive mature lady with what was supposedly her grandson's cock between her breasts - - and *ping!*, a story idea. 
+ 
+
+===
+
+I saw one of those captioned photos on Tumblr that showed a very attractive mature lady with what was supposedly her grandson's cock between her breasts - - and *ping!*, a story idea. 
 
  It's a short stroke story of around 5000 words, and there's a reason for the brevity that I won't bore you with here, but there was a word-cap on the piece so it is what it is. Anyway, I hope you enjoy it. 
 
@@ -166,7 +172,11 @@
 
  
 
- ****** Grandma's Big Tits ****** bygeronimo_appleby© Then her tongue was in his mouth again. 
+ 
+
+===
+
+Then her tongue was in his mouth again. 
 
  Emily's fist cranked at her grandson's hard-on while they kissed, the young man moaning into her mouth. 
 

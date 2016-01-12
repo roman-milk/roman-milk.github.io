@@ -1,8 +1,14 @@
+Willingly Cuckolded for Love
+============================
 #1 
 
  
 
- ****** Willingly Cuckolded for Love ****** bysilkstockingslover© Summary: A happily married couple both submit to her Dom ex-lover. 
+ 
+
+===
+
+Summary: A happily married couple both submit to her Dom ex-lover. 
 
  Note 1: This story is dedicated to Mike and Laura, a married couple, who requested this story. 
 
@@ -330,7 +336,11 @@
 
  
 
- ****** Willingly Cuckolded for Love ****** bysilkstockingslover© Phillip 
+ 
+
+===
+
+Phillip 
 
  
 
@@ -648,7 +658,11 @@
 
  
 
- ****** Willingly Cuckolded for Love ****** bysilkstockingslover© "Kkkkkk," I whimpered, like a school-girl, trusting my wife who was sodomizing me. 
+ 
+
+===
+
+"Kkkkkk," I whimpered, like a school-girl, trusting my wife who was sodomizing me. 
 
  A minute or two of slow burn and my wife announced, "You took it all, baby. My cock is all in your pretty ass." 
 
@@ -934,7 +948,11 @@
 
  
 
- ****** Willingly Cuckolded for Love ****** bysilkstockingslover© "Well, he does have some potential as a cocksucker," Phillip announced. Oddly, a compliment after all the criticism of my manhood warmed me. Phillip asked Laura, "Do you still have your wedding dress?" 
+ 
+
+===
+
+"Well, he does have some potential as a cocksucker," Phillip announced. Oddly, a compliment after all the criticism of my manhood warmed me. Phillip asked Laura, "Do you still have your wedding dress?" 
 
  "Yes," she answered, as I wondered why he'd ask such a question. 
 

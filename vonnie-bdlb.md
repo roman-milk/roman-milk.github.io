@@ -1,8 +1,14 @@
+Vonnie, BDLB
+============
 #1 
 
  
 
- ****** Vonnie, BDLB ****** byJust_Plain_Bob© It was a typical American middle class story. Boy goes to college, boy meets girl, boy falls in love, girl reciprocates, they graduate, get married and start their new life together. The story wasn't totally typical of course (they never are) because the girl the boy fell in love with had a 'reputation'. 
+ 
+
+===
+
+It was a typical American middle class story. Boy goes to college, boy meets girl, boy falls in love, girl reciprocates, they graduate, get married and start their new life together. The story wasn't totally typical of course (they never are) because the girl the boy fell in love with had a 'reputation'. 
 
  Yvonne, called Y-Von or Vonnie by her friends, while not a round heeled slut, still had a penchant for fucking everybody that she dated. Usually not until the fourth or fifth date, but if you got that far you were an odds on favorite to get laid. What set Vonnie apart from most of the girls on campus was that Vonnie dated black men, especially basketball players, almost exclusively. The fact in and by itself made our being together a most surprising occurrence. 
 

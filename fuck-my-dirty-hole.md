@@ -1,8 +1,14 @@
+Fuck My Dirty-Hole
+==================
 #1 
 
  
 
- ****** Fuck My Dirty-Hole ****** bygeronimo_appleby© One for the Anal category with this submission. Nothing autobiographical in it despite some of the content. I noticed I needed to add one to the Anal category for Lit's survivor contest, so here it is. Fairly short at 11k words. I hope you enjoy it, but would I appreciate feedback either way. 
+ 
+
+===
+
+One for the Anal category with this submission. Nothing autobiographical in it despite some of the content. I noticed I needed to add one to the Anal category for Lit's survivor contest, so here it is. Fairly short at 11k words. I hope you enjoy it, but would I appreciate feedback either way. 
 
  Please forgive any errors in the text. I've gone over it a few times but, as usual, I've probably missed something. In fact I could do with a beta reader, if anyone wants to volunteer. Send a PM or drop an email if you'd like a preview of stuff before it goes to Lit – a whole raft of categories are available, not just bottom-sex. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Fuck My Dirty-Hole ****** bygeronimo_appleby© "Ah, Julia again," Angus said. 
+ 
+
+===
+
+"Ah, Julia again," Angus said. 
 
  The woman looked at him, confused. 
 
@@ -462,7 +472,11 @@
 
  
 
- ****** Fuck My Dirty-Hole ****** bygeronimo_appleby© "It was and it wasn't," Angus gurgled. "I ... I'll write another one, just for you." 
+ 
+
+===
+
+"It was and it wasn't," Angus gurgled. "I ... I'll write another one, just for you." 
 
  He heard April say, "Good," and then groaned when the heat of her mouth engulfed him. 
 
@@ -702,7 +716,11 @@
 
  
 
- ****** Fuck My Dirty-Hole ****** bygeronimo_appleby© Then April began to move, a regular rhythm building. 
+ 
+
+===
+
+Then April began to move, a regular rhythm building. 
 
  "April ... Fuck, April ... You're so tight around my cock." 
 

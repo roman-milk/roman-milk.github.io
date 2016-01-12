@@ -1,8 +1,14 @@
+Hot Tub Fuck Machine
+====================
 #1 
 
  
 
- ****** Hot Tub Fuck Machine ****** bysilkstockingslover© My wife and I have talked about adding men to our love making for a couple 0f years; it is her greatest fantasy, a submissive gangbang. But her parameters have always been rather restrictive. It has to be at home, all men, her being taken and made to submit. It can't be close friends, but shouldn't be complete strangers. 
+ 
+
+===
+
+My wife and I have talked about adding men to our love making for a couple 0f years; it is her greatest fantasy, a submissive gangbang. But her parameters have always been rather restrictive. It has to be at home, all men, her being taken and made to submit. It can't be close friends, but shouldn't be complete strangers. 
 
  Anyways, this summer we put up an 8' tall privacy fence and built a gazebo with sitting area and a fire pit, and put in a hot tub. This seems irrelevant, but it actually set up the perfect opportunity to make my wife's fantasy of come true. I was in a golf tournament with some guys for charity and this fit all the parameters my wife had. I told my wife Amanda that we would be back around 4 and she should have food ready for me to barbeque and that we would probably have a few cocktails and hit the hit tub. 
 

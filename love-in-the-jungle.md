@@ -1,8 +1,14 @@
+Love in the Jungle
+==================
 #1 
 
  
 
- ****** Love in the Jungle ****** byGotBacon© Eric is 27 years old. He stands 6ft. 2in. Tall. He has brown hair and hazel eyes. He is an accomplished pilot and owns a single engine Cessna. He flies coke from Columbia to Puerto Rico. 
+ 
+
+===
+
+Eric is 27 years old. He stands 6ft. 2in. Tall. He has brown hair and hazel eyes. He is an accomplished pilot and owns a single engine Cessna. He flies coke from Columbia to Puerto Rico. 
 
  He is looking for landmarks for his landing on a jungle airstrip 50 miles northeast of Bogota. He sees the small hill and lines up. The airstrip comes into view and he makes a rough landing. He makes a mental note to have the strip smoothed out. He taxis to the end of the strip and shuts off the engines. He pulls out his camo net and spreads it over the plane. He carries his camping gear into the edge of the forest about 100 yards from the plane. He checks his MP4 to make sure its loaded. He carries three thirty round magazines for it. He stays away from his plane and watches. He doesn't want anyone sneaking up on him. He will have to spend the night waiting for morning when the mules will bring his load. He slings his hammock and mosquito net between two trees and spays each end with Raid. He has learned that there are insects here big enough to carry off small children. He hangs camo net all around his camp. He sets up the rest of his camp and kicks back. Just before dark he eats dinner. He gets in his hammock and listens to the night sounds of the jungle. Soon her falls asleep. 
 

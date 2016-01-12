@@ -1,8 +1,14 @@
+Loretta
+=======
 #1 
 
  
 
- ****** Loretta ****** byJust_Plain_Bob© I wonder what it is that makes some men get the hots for pregnant women. The opposite side of the coin is what is it about being pregnant that turns some women into cock hungry sluts. It's a question that I have asking myself for about a month now; ever since I found out my wife of three years, who is seven months pregnant, has been getting fucked by other men. Not just a lover, but by a lot of other men. 
+ 
+
+===
+
+I wonder what it is that makes some men get the hots for pregnant women. The opposite side of the coin is what is it about being pregnant that turns some women into cock hungry sluts. It's a question that I have asking myself for about a month now; ever since I found out my wife of three years, who is seven months pregnant, has been getting fucked by other men. Not just a lover, but by a lot of other men. 
 
  Loretta was by no means a virgin when we took our wedding vows. She'd had other lovers before she met me and in the interests of having an honest relationship she told me all. We lived together for two years before we got married and I'm almost positive that during that two year period, as well as the three years of our marriage (at least until she got pregnant) that she had been faithful. I probably never would have known otherwise if I hadn't overheard a conversation at a friend's house that I obviously wasn't supposed to hear. 
 

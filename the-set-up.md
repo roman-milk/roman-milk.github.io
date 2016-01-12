@@ -1,8 +1,14 @@
+The Set Up Ch. 01
+=================
 #1 
 
  
 
- ****** The Set Up Ch. 01 ****** byJust_Plain_Bob© Authors note: If you are one of the readers who got bent out of shape over my story "The Racist" I'd advise you to skip this one. 
+ 
+
+===
+
+Authors note: If you are one of the readers who got bent out of shape over my story "The Racist" I'd advise you to skip this one. 
 
  +++++++++++++++++++++++++++++++++++ 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** The Set Up Ch. 02 ****** byJust_Plain_Bob© Authors note: If you are one of the readers who got all bent out of shape over my story "The Racist" I'd advise you to skip this one. 
+ 
+
+===
+
+Authors note: If you are one of the readers who got all bent out of shape over my story "The Racist" I'd advise you to skip this one. 
 
  +++++++++++++++++++++++++++++++++++++++ 
 

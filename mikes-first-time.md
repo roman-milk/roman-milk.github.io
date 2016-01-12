@@ -1,8 +1,14 @@
+Mike's First Time
+=================
 #1 
 
  
 
- ****** Mike's First Time ****** byColdfinger© A prequel to Mike Trains A Slut 
+ 
+
+===
+
+A prequel to Mike Trains A Slut 
 
  Mike studied the scene before him. He was in the living room of his beautiful next- door neighbor watching her breast-feed her three-month-old son. Mike liked being over here. Just turned eighteen, visiting Rachel and her baby was a good way to escape the clutches of his Aunt Beth, a nasty tempered piece of work who made his life hell. His visits were frequent and the two had become good friends. 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** Mike's First Time Ch. 02 ****** byColdfinger© Mike whistled quietly as he ran the comb through his hair. Tall, athletic and good- looking, Mike was very happy with events of the past couple of days. Indeed, despite the dark shadow cast by his Aunt Beth, life was very good. 
+ 
+
+===
+
+Mike whistled quietly as he ran the comb through his hair. Tall, athletic and good- looking, Mike was very happy with events of the past couple of days. Indeed, despite the dark shadow cast by his Aunt Beth, life was very good. 
 
  A few days ago Mike had lost his virginity to Rachel, the young goddess housewife and mother who lived next door. After two years of lustful dreaming, to his great surprise he had first been allowed to cum over her very large tits and then been invited to fuck her magnificent pussy. 
 
@@ -356,7 +366,11 @@
 
  
 
- ****** Mike's First Time Ch. 02 ****** byColdfinger© After a few moments she released his cock. "I think we're ready now." 
+ 
+
+===
+
+After a few moments she released his cock. "I think we're ready now." 
 
  Eagerly, Mike moved around between her legs and waited as Rachel pulled her knees towards her chest giving him easy access. He moved closer, holding his cock as he positioned the flaring head against her waiting hole. 
 
@@ -558,7 +572,11 @@
 
  
 
- ****** Mike's First Time Ch. 02 ****** byColdfinger© Carefully, Nicky swung her legs over Mike and positioned her gaping pussy over his glistening blood red cock. Mike grabbed hold of both breasts and used them to pull her gently to him. They kissed again as he massaged both breasts pulling on the big hard nipples. 
+ 
+
+===
+
+Carefully, Nicky swung her legs over Mike and positioned her gaping pussy over his glistening blood red cock. Mike grabbed hold of both breasts and used them to pull her gently to him. They kissed again as he massaged both breasts pulling on the big hard nipples. 
 
  He pulled her closer and took a nipple into his mouth, holding it hard with his lips and flicking it with his tongue. He swapped to the other nipple and gave it the same treatment. He could fell her rounded belly pressing against his muscular stomach and his cock throbbed. 
 
@@ -588,7 +606,11 @@
 
  
 
- ****** Mike's First Time Ch. 03 ****** byColdfinger© Mike's First Time Chapter 03 
+ 
+
+===
+
+Mike's First Time Chapter 03 
 
  Mike stepped out of the shower and began to dry himself off. He thought about Rachel's phone call earlier that afternoon. She had insisted that he come over this evening, as she had a surprise for him. After everything that had happened so far, he was curious about what erotic activity she had planned. 
 
@@ -764,7 +786,11 @@
 
  
 
- ****** Mike's First Time Ch. 03 ****** byColdfinger© Soon the room was silent except for the sound of heavy breathing as they all recovered. Leah's pussy throbbed with dull pain, but it did not bother her. She was relaxed and satisfied. She was also pleased that her first time with a man had been better than many of her friends had experienced. 
+ 
+
+===
+
+Soon the room was silent except for the sound of heavy breathing as they all recovered. Leah's pussy throbbed with dull pain, but it did not bother her. She was relaxed and satisfied. She was also pleased that her first time with a man had been better than many of her friends had experienced. 
 
  "I hope we can do this again sometime," she murmured to Mike. 
 
@@ -984,7 +1010,11 @@
 
  
 
- ****** Mike's First Time Ch. 03 ****** byColdfinger© Ignoring the protests of his friends he went into the house and found Wheeler and the three women over by the kitchen door. Wheeler was trying to persuade his wife to go home in a cab, but she was not willing. 
+ 
+
+===
+
+Ignoring the protests of his friends he went into the house and found Wheeler and the three women over by the kitchen door. Wheeler was trying to persuade his wife to go home in a cab, but she was not willing. 
 
  "Sorry to interrupt Mr. Wheeler, but if Mrs. Wheeler is ready to go home, I could give her a lift. Its on my way." 
 

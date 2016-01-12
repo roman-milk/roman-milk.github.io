@@ -1,8 +1,14 @@
+That First Call
+===============
 #1 
 
  
 
- ****** That First Call ****** byTx_Tall_Tales© ========================= 
+ 
+
+===
+
+========================= 
 
  You gave him your number. He wants to talk. 
 

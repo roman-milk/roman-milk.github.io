@@ -1,8 +1,14 @@
+Saving Her Husband's Job Ch. 01
+===============================
 #1 
 
  
 
- ****** Saving Her Husband's Job Ch. 01 ****** byJust_Plain_Bob© Bob Brandt could not believe what he was hearing. For fifteen years he had worked his ass off trying to go places with his company and now, just as he had reached the pinnacle of success, a vice presidency, he was being told he might not even have a job come tomorrow. Matt Brown, president and CEO, looked at him and repeated: 
+ 
+
+===
+
+Bob Brandt could not believe what he was hearing. For fifteen years he had worked his ass off trying to go places with his company and now, just as he had reached the pinnacle of success, a vice presidency, he was being told he might not even have a job come tomorrow. Matt Brown, president and CEO, looked at him and repeated: 
 
  "That's the deal Bob. You get the VP slot, stock options, year-end bonuses, and I get to fuck your wife. I don't get to fuck Tina and you can start job hunting." 
 
@@ -88,7 +94,11 @@
 
  
 
- ****** Saving Her Husband's Job Ch. 02 ****** byJust_Plain_Bob© Tina made a final adjustment to her garter belt and nylons and then she stepped into her 4 inch "come fuck me" pumps. She looked at herself in the full-length mirror and thought, "Tina my love, you look like a slut, which I suppose is fitting, since that is what you have become." And then she giggled, "I am a slut and I love it." 
+ 
+
+===
+
+Tina made a final adjustment to her garter belt and nylons and then she stepped into her 4 inch "come fuck me" pumps. She looked at herself in the full-length mirror and thought, "Tina my love, you look like a slut, which I suppose is fitting, since that is what you have become." And then she giggled, "I am a slut and I love it." 
 
  She and Bob had been married for fifteen years and in all that time she had never been unfaithful to him (although she had fantasized about fucking other men). There were even times when she had almost done it, but she never had. She was in love with her husband and she knew he would never understand her desire for seeing what another cock would be like so she had behaved herself and had taken her sexual frustration out on Bob by trying to fuck him to death every time they were alone. That is she had been faithful until the night of his promotion party. That night, for reasons that didn't matter anymore, she had gone to bed with her husband's boss and she had loved it. She had not been surprised when Matt had called her two days later and asked if he could stop by and talk to her. She knew that if she said yes they would end up in her bed, but she had hesitated only a moment before telling him to come over. She had just gotten out of the tub and only had a robe on and she debated getting dressed, but then thought it would be a waste of time. After all, she was going to have to get naked again to get fucked, right? 
 
@@ -144,7 +154,11 @@
 
  
 
- ****** Saving Her Husband's Job Ch. 03 ****** byJust_Plain_Bob© Bob was halfway to the airport when he realized that he'd left a folder full of information that he would need on this trip on his desk at home. He looked at his watch and saw that he still had enough time to get home, get the papers, and still make it to the airport in time for his flight. He turned onto his street just in time to see Tina come down the front steps and get into a long black limo. What the hell is going on he thought as the limo pulled away from the curb and he followed, all thoughts of the folder on his desk gone from his mind. He was surprised when the limo pulled up at the Hilton and Tina got out. He looked for a place to park and found one close by, but then he hesitated. The limo was still there - waiting for Tina to come back out? He decided to sit tight and see what would happen. 
+ 
+
+===
+
+Bob was halfway to the airport when he realized that he'd left a folder full of information that he would need on this trip on his desk at home. He looked at his watch and saw that he still had enough time to get home, get the papers, and still make it to the airport in time for his flight. He turned onto his street just in time to see Tina come down the front steps and get into a long black limo. What the hell is going on he thought as the limo pulled away from the curb and he followed, all thoughts of the folder on his desk gone from his mind. He was surprised when the limo pulled up at the Hilton and Tina got out. He looked for a place to park and found one close by, but then he hesitated. The limo was still there - waiting for Tina to come back out? He decided to sit tight and see what would happen. 
 
  Five minutes passed, then ten and just as Bob thought that he might have guessed wrong, Tina came out of the hotel on the arm of a tall black man that Bob instantly recognized. John Wright was one of the company's biggest customers and his company was responsible for a good twenty percent of Bob's company's bottom line. But what was he doing with Tina, or better yet, what was Tina doing with him? He followed them to Carl's ChopHouse and then one hour later to one of the many nightspots that dot the Lower East Side. He couldn't take a chance on getting caught spying on his wife so he had to be content with waiting outside and keeping an eye on the limo. 
 

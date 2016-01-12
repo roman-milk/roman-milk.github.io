@@ -1,8 +1,14 @@
+The Reluctant Gift
+==================
 #1 
 
  
 
- ****** The Reluctant Gift ****** byTx_Tall_Tales© ============ 
+ 
+
+===
+
+============ 
 
  What do you give the man who has everything? 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** The Reluctant Gift ****** byTx_Tall_Tales© "Beautiful," she heard as the blackness receded and she was once more aware of her surroundings. 
+ 
+
+===
+
+"Beautiful," she heard as the blackness receded and she was once more aware of her surroundings. 
 
  Gasping, she slowly lowered her body to the table before her trembling legs failed her. What was becoming of her? She'd enjoyed that far more than she should have, desperate for the release. Sex was something that was endured, not this. Never like this. 
 
@@ -442,7 +452,11 @@
 
  
 
- ****** The Reluctant Gift ****** byTx_Tall_Tales© "That's enough, I think." The Mistress's voice had a strange sound to it, and it excited her. Sheri stood. "Thank you Mistress. You are too kind." 
+ 
+
+===
+
+"That's enough, I think." The Mistress's voice had a strange sound to it, and it excited her. Sheri stood. "Thank you Mistress. You are too kind." 
 
  "Were you about to bite my nipple, girl? Get a little payback?" 
 
@@ -670,7 +684,11 @@
 
  
 
- ****** The Reluctant Gift ****** byTx_Tall_Tales© "No! I mean, no Scarlet, please. You won't have to." 
+ 
+
+===
+
+"No! I mean, no Scarlet, please. You won't have to." 
 
  Sheri got up and stood beside the trainee. "Let's get this over with. This has been exhausting." She pushed Ivory down. "On your hands and knees. Ass up. Quickly." 
 
@@ -902,7 +920,11 @@
 
  
 
- ****** The Reluctant Gift ****** byTx_Tall_Tales© He stroked her cheek, and she turned her head, those devilish lips capturing a finger and sucking it in. His cock bounced upward, responding to her. He brought his hands to the side of her head, tilting it back. He leaned down his face inches from hers. She could feel his breath on her skin. 
+ 
+
+===
+
+He stroked her cheek, and she turned her head, those devilish lips capturing a finger and sucking it in. His cock bounced upward, responding to her. He brought his hands to the side of her head, tilting it back. He leaned down his face inches from hers. She could feel his breath on her skin. 
 
  The desire for this innocent pawn was undeniable. He closed the last inch and pressed his lips against hers, kissing her, softly at first, then increasingly more demanding. He finally pulled away, moving his head beside hers, his mouth nudging her ear. "Thank you, Amber, for this gift. I accept." He pulled back, looking her over again. I once in a lifetime gift. One time only. Amazing. 
 

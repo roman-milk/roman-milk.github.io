@@ -1,8 +1,14 @@
+Rhonda and Seattle's Damp Air
+=============================
 #1 
 
  
 
- ****** Rhonda and Seattle's Damp Air ****** byJust_Plain_Bob© I was sitting in my office getting a blow job (door locked of course) from my secretary when suddenly she stopped, looked up at me and asked, "Does your wife run around on you?" 
+ 
+
+===
+
+I was sitting in my office getting a blow job (door locked of course) from my secretary when suddenly she stopped, looked up at me and asked, "Does your wife run around on you?" 
 
  "I don't know, I don't think so, why?" 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** Rhonda and Seattle's Damp Air ****** byJust_Plain_Bob© "That's so you can go enjoy your threesome again. Stay as long as you want." 
+ 
+
+===
+
+"That's so you can go enjoy your threesome again. Stay as long as you want." 
 
  She was surprised, "Why are you doing this?" 
 

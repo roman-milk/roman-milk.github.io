@@ -1,8 +1,14 @@
+Frank and Cookie
+================
 #1 
 
  
 
- ****** Frank and Cookie ****** byJust_Plain_Bob© I met Cookie in the seventh grade. Her parents had moved to town just in time to enroll her at the start of the school year. I was walking up the steps to the west entrance of the school and I saw her by the front door. She was blocked by three guys who were making fun of her pigtails. She kept trying to get by them, but they kept moving to keep themselves between her and the door. One of the guys was Oscar Walls and he and I had gone at it a couple of times. Once on the playground at the elementary school during recess and once at the city swimming pool. Both times there were no clear winners, but both times had established that I wouldn't put up with his shit and since then we had steered clear of each other. I walked up to the little group and said: 
+ 
+
+===
+
+I met Cookie in the seventh grade. Her parents had moved to town just in time to enroll her at the start of the school year. I was walking up the steps to the west entrance of the school and I saw her by the front door. She was blocked by three guys who were making fun of her pigtails. She kept trying to get by them, but they kept moving to keep themselves between her and the door. One of the guys was Oscar Walls and he and I had gone at it a couple of times. Once on the playground at the elementary school during recess and once at the city swimming pool. Both times there were no clear winners, but both times had established that I wouldn't put up with his shit and since then we had steered clear of each other. I walked up to the little group and said: 
 
  "You're in the way Oz. The lady and I want to go in that door." 
 
@@ -274,7 +280,11 @@
 
  
 
- ****** Frank and Cookie ****** byJust_Plain_Bob© "What happened to your sudden concern for manners? According to your attitude lately aren't you supposed to say "Mind if I join you" or something like that? Or is it just me that has to do it when you are with Jason?" 
+ 
+
+===
+
+"What happened to your sudden concern for manners? According to your attitude lately aren't you supposed to say "Mind if I join you" or something like that? Or is it just me that has to do it when you are with Jason?" 
 
  "What is wrong with you Frankie? Why are you behaving like you are?" 
 
@@ -524,7 +534,11 @@
 
  
 
- ****** Frank and Cookie ****** byJust_Plain_Bob© I felt a little guilty the first time I took one of my dates to bed. It was like I was cheating on Pauline, but it didn't take me long to reason it out. Pauline had no doubt started within a month of getting to school so I really wasn't being unfaithful to her but still, the first couple of times I didn't feel right about it. 
+ 
+
+===
+
+I felt a little guilty the first time I took one of my dates to bed. It was like I was cheating on Pauline, but it didn't take me long to reason it out. Pauline had no doubt started within a month of getting to school so I really wasn't being unfaithful to her but still, the first couple of times I didn't feel right about it. 
 
  When I did start dating I would occasionally run across Cookie and her date of the evening and I noticed that she was never with the same guy twice. I chalked it up to her still pining away for Jason and not being able to come up with a guy who gave her the same feelings he did. 
 
@@ -768,7 +782,11 @@
 
  
 
- ****** Frank and Cookie ****** byJust_Plain_Bob© I was just up the street from her office when she came out at lunch time. She got in her car and drove to the Burger King and went through the drive thru and then drove back to her office. 
+ 
+
+===
+
+I was just up the street from her office when she came out at lunch time. She got in her car and drove to the Burger King and went through the drive thru and then drove back to her office. 
 
  I went back to work and spent most of the afternoon wondering about how the evening was going to go. I'd made up my mind that if Cookie went on her girl's night out we were done. She would come home and find all of her things in the spare bedroom; the bedroom that was supposed to be for our next child. The one we wouldn't be having. 
 
@@ -944,7 +962,11 @@
 
  
 
- ****** Frank and Cookie ****** byJust_Plain_Bob© "Look honey; the tapes speak for themselves. You want to believe the asshole feel free, but keep in mind that this isn't the only place he travels to. You might want to consider what he is up to at the other places he visits." 
+ 
+
+===
+
+"Look honey; the tapes speak for themselves. You want to believe the asshole feel free, but keep in mind that this isn't the only place he travels to. You might want to consider what he is up to at the other places he visits." 
 
  "No. I doubt very much he will be looking me up after my sending you the tapes." 
 
@@ -1000,7 +1022,11 @@
 
  
 
- ****** Frank and Diane ****** byJust_Plain_Bob© The day showed no signs of being a disaster when I woke up. The alarm went off at five and my wife Diane reached for me and pulled me back down as I started to get out of bed. She kissed me, slipped me a little tongue and her hand reached for my cock. Twenty-five years and the woman could still turn me into a quivering wreck. She pulled me on top of her and as my cock parted her nether lips she said: 
+ 
+
+===
+
+The day showed no signs of being a disaster when I woke up. The alarm went off at five and my wife Diane reached for me and pulled me back down as I started to get out of bed. She kissed me, slipped me a little tongue and her hand reached for my cock. Twenty-five years and the woman could still turn me into a quivering wreck. She pulled me on top of her and as my cock parted her nether lips she said: 
 
  "Make it a good morning lover; make it a very good morning." 
 
@@ -1218,7 +1244,11 @@
 
  
 
- ****** Frank and Diane ****** byJust_Plain_Bob© "You said that his saying that Diane chased him could be true and that she wouldn't have been the first. Why did you say that?" 
+ 
+
+===
+
+"You said that his saying that Diane chased him could be true and that she wouldn't have been the first. Why did you say that?" 
 
  "Stan is rather well endowed and some women when they hear that want to check it out." 
 
@@ -1414,7 +1444,11 @@
 
  
 
- ****** Frank and Diane ****** byJust_Plain_Bob© "Scream or call the cops and your hubby will find out what has been going on. Best you go back in the house and pretend that nothing is going on out here. I won't kill him, but you can be sure that another husband that he has stabbed in the back is getting even." 
+ 
+
+===
+
+"Scream or call the cops and your hubby will find out what has been going on. Best you go back in the house and pretend that nothing is going on out here. I won't kill him, but you can be sure that another husband that he has stabbed in the back is getting even." 
 
  She jumped backwards and slammed the door. Mary Ellen knew me from all the company picnics and Christmas parties that Diane had taken me to, but I was counting on the ski mask and the disguised voice to keep her from knowing who was fucking over her fuck buddy. I couldn't count on her not calling the police so I had to hurry. I pulled North's pants off of him and believe me when I tell you that pulling pants off of a guy in convulsions isn't easy. 
 
@@ -1512,7 +1546,11 @@
 
  
 
- ****** Frank and Doris ****** byJust_Plain_Bob© It started when my cousin Tom set up a bachelor party for his brother, my cousin James. I was invited and I of course accepted and said I would be there. This did not set well with my wife Doris. Doris had an extremely low opinion of bachelor parties because of what she had seen on her side of the family. 
+ 
+
+===
+
+It started when my cousin Tom set up a bachelor party for his brother, my cousin James. I was invited and I of course accepted and said I would be there. This did not set well with my wife Doris. Doris had an extremely low opinion of bachelor parties because of what she had seen on her side of the family. 
 
  Her brother Sam had attended one, had partaken of the offer made by the hired stripper to 'entertain' anyone with the proper amount of cash and had ended up with a case of VD which he was unable to adequately explain to his wife. Her cousin Ron had left his wife and two children and had run off with the hired entertainment at a bachelor party that he had attended. Her father had gotten drunk at a bachelor party and had wrecked his car and put himself in the hospital for a week. No indeed, Doris was not at all happy with me for accepting the invitation. 
 
@@ -1756,7 +1794,11 @@
 
  
 
- ****** Frank and Doris ****** byJust_Plain_Bob© That information kind of cooled me down. In the long run it would be cheaper to just stay married, but not live together. If Doris didn't like it then she could file and at least then I wouldn't get stuck with court costs and her attorney fees. I left the attorney's office determined to find a reasonable apartment close to work and move on with my life. 
+ 
+
+===
+
+That information kind of cooled me down. In the long run it would be cheaper to just stay married, but not live together. If Doris didn't like it then she could file and at least then I wouldn't get stuck with court costs and her attorney fees. I left the attorney's office determined to find a reasonable apartment close to work and move on with my life. 
 
  ++++++++++++++++++ 
 
@@ -2022,7 +2064,11 @@
 
  
 
- ****** Frank and Doris ****** byJust_Plain_Bob© "Why would you." You have never seen us together." 
+ 
+
+===
+
+"Why would you." You have never seen us together." 
 
  "As much as she talks about you I should have recognized you just from her descriptions. Things any better between you since we last talked?" 
 
@@ -2262,7 +2308,11 @@
 
  
 
- ****** Frank and Doris ****** byJust_Plain_Bob© "I'm having trouble believing that she could go from faithful wife to pulling trains overnight. In my mind there has to have been a transition of sorts. A parking lot romance or two or maybe a short affair. I just can't see a faithful wife on Tuesday doing a gang bang on Wednesday." 
+ 
+
+===
+
+"I'm having trouble believing that she could go from faithful wife to pulling trains overnight. In my mind there has to have been a transition of sorts. A parking lot romance or two or maybe a short affair. I just can't see a faithful wife on Tuesday doing a gang bang on Wednesday." 
 
  "I don't know what to tell you Frank. I didn't stop every night that the girls stopped so I don't know what went on when I wasn't there, but I never saw her doing anything on the nights I was there except dance with guys that asked her and other than that I wouldn't know." 
 
@@ -2450,7 +2500,11 @@
 
  
 
- ****** Frank and Doris ****** byJust_Plain_Bob© "The odds are that Dorie and I will be back together when you see her at work on Monday. It isn't a hundred percent certainty, but it is close. I may be wrong. I gave her an ultimatum and if she accepts it we will be back together. If she doesn't, we won't." 
+ 
+
+===
+
+"The odds are that Dorie and I will be back together when you see her at work on Monday. It isn't a hundred percent certainty, but it is close. I may be wrong. I gave her an ultimatum and if she accepts it we will be back together. If she doesn't, we won't." 
 
  "You do know that there will be several upset women if you and Doris do get back together don't you?" 
 
@@ -2486,7 +2540,11 @@
 
  
 
- ****** Frank and Iris ****** byJust_Plain_Bob© It is said that "The husband is always the last to know" and it may or may not have been true in my case, but the one thing that was true was that I did know. 
+ 
+
+===
+
+It is said that "The husband is always the last to know" and it may or may not have been true in my case, but the one thing that was true was that I did know. 
 
  I didn't discover it by accident or get clued in by some friend of mine or an enemy of my wife's. No, I got it from the horse's mouth so to speak. It was at breakfast after a night of hot sex and I was on my second cup of coffee when my wife Iris said: 
 
@@ -2726,7 +2784,11 @@
 
  
 
- ****** Frank and Iris ****** byJust_Plain_Bob© +++++++++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++++++++ 
 
  The next day my attorney called me and told me that he had heard from Haarbauer. 
 
@@ -3000,7 +3062,11 @@
 
  
 
- ****** Frank and Iris ****** byJust_Plain_Bob© "Call her daddy. It won't kill you to talk to her." 
+ 
+
+===
+
+"Call her daddy. It won't kill you to talk to her." 
 
  I hadn't spoken to Iris since moving to the coast and I wasn't sure that I wanted to hear the sound of her voice. No contact with her made it easier to put what she had done in the back of my mind. I had loved the stupid bitch. Hell, I still loved her and I thought about her all the time. I even thought about her when I was making love to Anna and Mel. No; I really did not want to hear the sound of her voice. 
 
@@ -3286,7 +3352,11 @@
 
  
 
- ****** Frank and Iris ****** byJust_Plain_Bob© "Why not? You wanted something on your ass didn't you? Isn't that what you said? Maybe you wanted his hands on your ass?" 
+ 
+
+===
+
+"Why not? You wanted something on your ass didn't you? Isn't that what you said? Maybe you wanted his hands on your ass?" 
 
  "I've never done that Frank." 
 
@@ -3356,7 +3426,11 @@
 
  
 
- ****** Frank and Jean ****** byJust_Plain_Bob© I saw the couple back in the dark corner acting like they were out for a quiet evening together, but they were anything but. They had followed us in, taken a seat where they could watch us and hadn't taken their eyes off of us since we sat down. The might as well have been wearing signs that said "Private Detectives at Work." The 'us' they were watching? Me and my secretary Kathy. 
+ 
+
+===
+
+I saw the couple back in the dark corner acting like they were out for a quiet evening together, but they were anything but. They had followed us in, taken a seat where they could watch us and hadn't taken their eyes off of us since we sat down. The might as well have been wearing signs that said "Private Detectives at Work." The 'us' they were watching? Me and my secretary Kathy. 
 
  Actually Kathy was more of a personal assistant than a secretary and she always traveled with me when I went out of town on business. My wife's boyfriend thought that Kathy was much more and he was trying to find out for sure. He was trying to get information that he could give to Jean so she could divorce me and get a big pot of money. She obviously hasn't told him why she can't do that. 
 
@@ -3544,7 +3618,11 @@
 
  
 
- ****** Frank and Jean ****** byJust_Plain_Bob© I went back to the office and since I had a clear schedule I went down to the conference room and got the audio-visual cart and pushed it to my office. The cart was set up with a large screen TV and the necessary equipment to play cassette tapes, CDs and DVDs. I told Kathy I didn't want to be disturbed unless it was a catastrophic emergency and then I settled in to watch the CDs Alan had given me. 
+ 
+
+===
+
+I went back to the office and since I had a clear schedule I went down to the conference room and got the audio-visual cart and pushed it to my office. The cart was set up with a large screen TV and the necessary equipment to play cassette tapes, CDs and DVDs. I told Kathy I didn't want to be disturbed unless it was a catastrophic emergency and then I settled in to watch the CDs Alan had given me. 
 
  There was nothing of interest on the phone taps other than Jean's worries following my Alpha male performance. Most of it was setting up times for meetings and exchanges of "I miss you" and "I can't wait to see you again." 
 
@@ -3762,7 +3840,11 @@
 
  
 
- ****** Frank and Jean ****** byJust_Plain_Bob© I was smiling when I turned off the CD. Time for the next step. One of the things that I learned from Alan was that in his business he met and made friends with some pretty shady characters. By shady I meant that some of the things they did were not legal and above board and some of them would do almost anything if the money was right. I called Alan and told him what I wanted and he told me that it was doable and that he would get back to me. Two hours later he called me back with a name and a phone number. Three hours later in the back room of a bar on the east side of town a deal was struck and I left the place two thousand dollars poorer. I called Pat on my cell and gave her a heads up and headed home. 
+ 
+
+===
+
+I was smiling when I turned off the CD. Time for the next step. One of the things that I learned from Alan was that in his business he met and made friends with some pretty shady characters. By shady I meant that some of the things they did were not legal and above board and some of them would do almost anything if the money was right. I called Alan and told him what I wanted and he told me that it was doable and that he would get back to me. Two hours later he called me back with a name and a phone number. Three hours later in the back room of a bar on the east side of town a deal was struck and I left the place two thousand dollars poorer. I called Pat on my cell and gave her a heads up and headed home. 
 
  When I got home, knowing that Jean hadn't seen Andy that day, I pushed for sex and got what I usually got on days when she hadn't fucked her lover. 
 
@@ -3996,7 +4078,11 @@
 
  
 
- ****** Frank and Jean ****** byJust_Plain_Bob© "I don't see how." 
+ 
+
+===
+
+"I don't see how." 
 
  "Well I'm going to let it be your choice, but it is either reduce household expenses or give up your car. The payment, plates and insurance are about the same as a third of the household budget. You decide what you want to do." 
 
@@ -4198,7 +4284,11 @@
 
  
 
- ****** Frank and Mary Beth ****** byJust_Plain_Bob© Our story is like so many others. We met in college, dated off and on and then one day I realized I didn't want to date other girls. I wanted to spend all my time with Mary Beth. Apparently about the same time she decided that she wanted to spend her time with me. We were a steady couple the rest of the way through college and we were married three months after graduation. 
+ 
+
+===
+
+Our story is like so many others. We met in college, dated off and on and then one day I realized I didn't want to date other girls. I wanted to spend all my time with Mary Beth. Apparently about the same time she decided that she wanted to spend her time with me. We were a steady couple the rest of the way through college and we were married three months after graduation. 
 
  Mary Beth never did put her college education to go use. Three weeks after we married we found out that she was pregnant. She had Gloria and eleven months later she had Alexander. She decided that she would be a stay at home mom and I had no problem with that. One year after the arrival of Alex Melanie arrived on the scene and Mary Beth decided that three was enough and she had her tubes tied. 
 
@@ -4362,7 +4452,11 @@
 
  
 
- ****** Frank and Mary Beth ****** byJust_Plain_Bob© Mike and Alice showed up just after I had showered and changed. Mary Beth was hustling around trying to get us out of the house, but I told her to slow down. I told them that I needed them to come into the den so I could show them a funny video that I had gotten earlier in the day. 
+ 
+
+===
+
+Mike and Alice showed up just after I had showered and changed. Mary Beth was hustling around trying to get us out of the house, but I told her to slow down. I told them that I needed them to come into the den so I could show them a funny video that I had gotten earlier in the day. 
 
  They came into the den and I told Mary Beth to hit the 'play' button on the VCR. The video was very clear and Mary Beth got very red in the face. Mike paled and Alice was stunned. I just stood there and watched. Alice recovered first and she hollered "You rotten son of a bitch" and kneed Mike in the balls and then said: 
 
@@ -4636,7 +4730,11 @@
 
  
 
- ****** Frank and Mary Beth ****** byJust_Plain_Bob© "Damn it Ralph; I love you. I always have and I've done my absolute best for twenty-four years to prove it to you. I know you loved me and I know that you can't just turn love off like a light switch. Don't let a silly little fling kill off twenty-four damned good years. 
+ 
+
+===
+
+"Damn it Ralph; I love you. I always have and I've done my absolute best for twenty-four years to prove it to you. I know you loved me and I know that you can't just turn love off like a light switch. Don't let a silly little fling kill off twenty-four damned good years. 
 
  "Go and have a fling of your own. You said you intend to bed Amber so go do it. Call Alice and see if she wants to get even with Mike by fucking your socks off. We were good together Ralph. Please don't let it end." 
 
@@ -4882,7 +4980,11 @@
 
  
 
- ****** Frank and Mary Beth ****** byJust_Plain_Bob© Then I pulled myself up short. I had always been honest and upfront so why was I going to play games with Alice? That would not be the me I always thought I was. Be honest with Alice and let the chips fall where they may. 
+ 
+
+===
+
+Then I pulled myself up short. I had always been honest and upfront so why was I going to play games with Alice? That would not be the me I always thought I was. Be honest with Alice and let the chips fall where they may. 
 
  What was it that the wise man said? Something like "Don't let your head get so big that they don't make a hat size big enough to fit you?" 
 
@@ -5076,7 +5178,11 @@
 
  
 
- ****** Frank and Maxine ****** byJust_Plain_Bob© I sat on a folding chair and watched the twins as they played field hockey and I couldn't help but wonder how the coming upheaval was going to affect them. Knowing them as well as I did I thought that they would probably handle it better than I was. They were pretty resilient and a lot more mature than you would expect a pair of sixteen year olds to be. As I watched Michelle execute a pass to Melanie I thought back to the night that my world crumbled and fell on me. 
+ 
+
+===
+
+I sat on a folding chair and watched the twins as they played field hockey and I couldn't help but wonder how the coming upheaval was going to affect them. Knowing them as well as I did I thought that they would probably handle it better than I was. They were pretty resilient and a lot more mature than you would expect a pair of sixteen year olds to be. As I watched Michelle execute a pass to Melanie I thought back to the night that my world crumbled and fell on me. 
 
  My wife Maxine and I were at a party the previous Saturday. It was a company thing to celebrate her company buying out one of their biggest competitors. The party was held at the country club probably because the president of Maxine's company was on the country club's board of directors. 
 
@@ -5268,7 +5374,11 @@
 
  
 
- ****** Frank and Maxine ****** byJust_Plain_Bob© Maxine's face showed anger as she said, "And just what the hell do you mean by that?" 
+ 
+
+===
+
+Maxine's face showed anger as she said, "And just what the hell do you mean by that?" 
 
  "Simple. I have no way of knowing if you took on one of your fuck buddies before you came home so while I'm willing to follow them in I'm not willing to put my mouth where their cocks have been." 
 
@@ -5464,7 +5574,11 @@
 
  
 
- ****** Frank and Maxine ****** byJust_Plain_Bob© Two days later she had a job working for one of her previous employers competitors. 
+ 
+
+===
+
+Two days later she had a job working for one of her previous employers competitors. 
 
  ++++++++++++++++++++++++++ 
 
@@ -5484,7 +5598,11 @@
 
  
 
- ****** Frank and Regina ****** byJust_Plain_Bob© It started one Saturday morning during summer vacation when I woke up to noise in front of my house. I looked out my bedroom window and saw a moving van parked in front of the Martin's house although I guess that it wasn't really the Martin place any more. They had moved out months ago and there had been a For Sale sign in their yard for a long time. 
+ 
+
+===
+
+It started one Saturday morning during summer vacation when I woke up to noise in front of my house. I looked out my bedroom window and saw a moving van parked in front of the Martin's house although I guess that it wasn't really the Martin place any more. They had moved out months ago and there had been a For Sale sign in their yard for a long time. 
 
  I noticed that the For Sale sign was gone and men were carrying furniture into the house. Then I saw a girl about my age (10) watching the movers. She had the longest blond hair I had ever seen on a girl; it fell to below her waist and while I was looking out the window she looked toward our house and our eyes met and though I was too young to understand what happened something passed between us. 
 
@@ -5694,7 +5812,11 @@
 
  
 
- ****** Frank and Regina ****** byJust_Plain_Bob© I went down into the basement and worked in my shop until noon and then I went upstairs and sat where I could watch the driveway. At one Regina pulled in and parked and a couple of minutes later Stan pulled up and parked across the street. I went out the back door and over the fence into the Miller's backyard and walked to my car. I waited five minutes and then I drove home and parked on the street in front of the house. 
+ 
+
+===
+
+I went down into the basement and worked in my shop until noon and then I went upstairs and sat where I could watch the driveway. At one Regina pulled in and parked and a couple of minutes later Stan pulled up and parked across the street. I went out the back door and over the fence into the Miller's backyard and walked to my car. I waited five minutes and then I drove home and parked on the street in front of the house. 
 
  I entered the house and climbed the stairs as I moved toward the room where the "Oh God yes, fill me up" was coming from. I walked up and waited in the open doorway and watched Stan as he drove his cock into Regina. Regina saw me and moaned: 
 
@@ -5914,7 +6036,11 @@
 
  
 
- ****** Frank and Regina ****** byJust_Plain_Bob© "What does that mean?" 
+ 
+
+===
+
+"What does that mean?" 
 
  "Getting macho. How do you think I felt after what you and your lover did to me? "Just go away Frank and when I'm done fucking him I'll let you know." That told me that as far as you were concerned I was some kind of fucking wimp that would put up with shit like that. Like I was supposed to go sit in the corner and suck my thumb and wait for your call. I was not going to let that stand! What is the opposite of wimp? Macho! For my own mental health I could not let you get away with it. 
 
@@ -6114,7 +6240,11 @@
 
  
 
- ****** Frank and Regina ****** byJust_Plain_Bob© "You fucking bitch! I'll get you for this!" 
+ 
+
+===
+
+"You fucking bitch! I'll get you for this!" 
 
  Regina got up and walked over to the dresser and picked something up. She turned back to Stan and said: 
 
@@ -6276,7 +6406,11 @@
 
  
 
- ****** Frank and Ruth ****** byJust_Plain_Bob© I was on my back, totally fucked out, and she stood next to the bed looking down at me and looking for all the world like she had just awakened and was as fresh as a daisy. No one seeing her at that moment would have believed that she had been sucking and fucking me for five hours. No one would have imagined that those lips had been wrapped around my cock and that mouth had swallowed my cum. She looked so fresh that no one would have believed that her pussy had taken two of my loads and that her ass -- her beautiful heart shaped ass -- had taken a third and fourth. She looked exactly like what she wasn't -- a sweet looking faithful wife. 
+ 
+
+===
+
+I was on my back, totally fucked out, and she stood next to the bed looking down at me and looking for all the world like she had just awakened and was as fresh as a daisy. No one seeing her at that moment would have believed that she had been sucking and fucking me for five hours. No one would have imagined that those lips had been wrapped around my cock and that mouth had swallowed my cum. She looked so fresh that no one would have believed that her pussy had taken two of my loads and that her ass -- her beautiful heart shaped ass -- had taken a third and fourth. She looked exactly like what she wasn't -- a sweet looking faithful wife. 
 
  She smiled and said, "Take plenty of vitamins baby; I need you to last longer next time" and then she left me to go home to her husband and kids. 
 
@@ -6440,7 +6574,11 @@
 
  
 
- ****** Frank and Ruth ****** byJust_Plain_Bob© "You?" 
+ 
+
+===
+
+"You?" 
 
  "Can you think of a more fitting revenge than getting together with the wife of the man your wife is cheating with? Think about it Frank. No arguments over who gets what in the fifty/fifty split. No alimony being taken out of your paycheck to support her cheating ass. No paying for her attorney if she wants to fight the divorce. No court costs if you don't file and go to court. No ten weeks of visiting a marriage counselor which is something a judge almost always orders in cases where the spouse fights back and says they don't want a divorce. And there could be other benefits in it for you. Is there something sexual you would like to do that your wife won't do? I'll do them Frank." 
 
@@ -6468,7 +6606,11 @@
 
  
 
- ****** Frank and Shayleen Ch. 01 ****** byJust_Plain_Bob© I was waiting to board an airplane that would take me from Atlanta to home. I'd been sitting and people watching when she came into the boarding area and took a seat. I recognized her right away even though it had been twelve years since I'd last seen her. 
+ 
+
+===
+
+I was waiting to board an airplane that would take me from Atlanta to home. I'd been sitting and people watching when she came into the boarding area and took a seat. I recognized her right away even though it had been twelve years since I'd last seen her. 
 
  Shayleen Murphy had been my fantasy girl from the time I'd first laid eyes on her the first day of class at the start of the eighth grade. As she sat and fiddled with her cell phone I watched her. In fact I could not take my eyes off of her. She noticed and after maybe five minutes she got up and came over to me. 
 
@@ -6696,7 +6838,11 @@
 
  
 
- ****** Frank and Shayleen Ch. 01 ****** byJust_Plain_Bob© "About two years after she got married she came into work in a really bubbly mood and when one of the girls asked her what had her on such a high she said, and as I recall it, these are her exact words." 
+ 
+
+===
+
+"About two years after she got married she came into work in a really bubbly mood and when one of the girls asked her what had her on such a high she said, and as I recall it, these are her exact words." 
 
  "My Barry is back and he wants me." 
 
@@ -6942,7 +7088,11 @@
 
  
 
- ****** Frank and Shayleen Ch. 01 ****** byJust_Plain_Bob© ++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++ 
 
  When I got to the office in the morning I did something I should have done the day after my first encounter with Lucero. I made an appointment with a private investigator. That afternoon I saw him and gave him the information I had taken from Lucero's driver's license and then told him that I wanted him to find out whatever he could about Lucero. 
 
@@ -7162,7 +7312,11 @@
 
  
 
- ****** Frank and Shayleen Ch. 01 ****** byJust_Plain_Bob© I moved the bolt cutters to the next toe and said, "Okay; let's try this again. Talk to me Travon; talk to me" and talk he did. While Shay bandaged his toe I went looking and found everything right where he said it would be. We collected all the cameras and recorders and behind a false wall in a closet we found all of the blackmail material. Shay raised an eyebrow as she looked at some of it. 
+ 
+
+===
+
+I moved the bolt cutters to the next toe and said, "Okay; let's try this again. Talk to me Travon; talk to me" and talk he did. While Shay bandaged his toe I went looking and found everything right where he said it would be. We collected all the cameras and recorders and behind a false wall in a closet we found all of the blackmail material. Shay raised an eyebrow as she looked at some of it. 
 
  "Travon has been a very busy boy. If this material falls into the wrong hands he would be in big trouble." 
 
@@ -7182,7 +7336,11 @@
 
  
 
- ****** Frank and Shayleen Ch. 02 ****** byJust_Plain_Bob© Shay was silent for most of the ride home. About five minutes from the house she said: 
+ 
+
+===
+
+Shay was silent for most of the ride home. About five minutes from the house she said: 
 
  "Did you really mean it when you said what happened is going to have a major impact on our marriage? I didn't do it. I stopped. I didn't go through with it Frank." 
 
@@ -7392,7 +7550,11 @@
 
  
 
- ****** Frank and Shayleen Ch. 02 ****** byJust_Plain_Bob© "So you did fuck him." 
+ 
+
+===
+
+"So you did fuck him." 
 
  "I did not! But I guess that I did lie at that. I told you that I pushed him away when he started pushing me down to my knees. That was the lie. What really happened was that he pushed me to my knees and I took his cock in my mouth. That was when I came to my senses and broke away from him. I didn't think you needed to know that. I thought that what I'd told you was bad enough and I didn't need to tell any more. You didn't need to think any worse of me than you were all ready going to. 
 
@@ -7456,7 +7618,11 @@
 
  
 
- ****** Frank and Stella ****** byJust_Plain_Bob© Love is something that I have a hard time understanding. Love is only an emotion right? So how can an emotion make you stupid? How can love cause you to do things that no man in his right mind would even consider? It was a little late for me to be asking the question. The damage has already been done. 
+ 
+
+===
+
+Love is something that I have a hard time understanding. Love is only an emotion right? So how can an emotion make you stupid? How can love cause you to do things that no man in his right mind would even consider? It was a little late for me to be asking the question. The damage has already been done. 
 
  ++++++++++++++++++ 
 
@@ -7652,7 +7818,11 @@
 
  
 
- ****** Frank and Stella ****** byJust_Plain_Bob© +++++++++++++++++++++ 
+ 
+
+===
+
++++++++++++++++++++++ 
 
  I wasn't at all surprised that she started on me Saturday after she got back from her hair appointment. 
 
@@ -7944,7 +8114,11 @@
 
  
 
- ****** Frank and Stella ****** byJust_Plain_Bob© Tuesday when I came home from bowling Stella was waiting for me in my favorite outfit – naked except for 'CFM' pumps. I could tell I was getting sloppy seconds, but I acted as she expected me to – clueless. 
+ 
+
+===
+
+Tuesday when I came home from bowling Stella was waiting for me in my favorite outfit – naked except for 'CFM' pumps. I could tell I was getting sloppy seconds, but I acted as she expected me to – clueless. 
 
  Wednesday over breakfast Stella said, "You do know that I love you right?" 
 
@@ -8206,7 +8380,11 @@
 
  
 
- ****** Frank and Stella ****** byJust_Plain_Bob© "Frank's the type alright. I boss him around all the time. I even make him get in the bath tub so I can piss on him. Being able to dominate him that way turns me on." 
+ 
+
+===
+
+"Frank's the type alright. I boss him around all the time. I even make him get in the bath tub so I can piss on him. Being able to dominate him that way turns me on." 
 
  As the rest of the taped conversations played on Stella seemed to deflate like a balloon that the air slowly leaks out of. She looked away from me and started crying when she heard: 
 
@@ -8352,7 +8530,11 @@
 
  
 
- ****** Frank and Tanya ****** byJust_Plain_Bob© I sat there and stared at her incredulously. It took a few seconds for what she had said to register and in those few seconds my mind went back in time. 
+ 
+
+===
+
+I sat there and stared at her incredulously. It took a few seconds for what she had said to register and in those few seconds my mind went back in time. 
 
  I'd met Tanya Louise Marshall on the first day of school when I started the eighth grade. She had just moved to town and didn't know anyone in the class. From the first time I'd laid eyes on her I was lost. I introduced myself and she gave me a big smile and said that she was glad to meet me. 
 
@@ -8552,7 +8734,11 @@
 
  
 
- ****** Frank and Tanya ****** byJust_Plain_Bob© ++++++++++++++++++++++++ 
+ 
+
+===
+
+++++++++++++++++++++++++ 
 
  Friday I was at Tanya's at ten to six and I sat in my car until two minutes to six and then I went up and rang her doorbell. The vision that opened the door took my breath away. 
 
@@ -8796,7 +8982,11 @@
 
  
 
- ****** Frank and Tanya ****** byJust_Plain_Bob© When I finished I could tell from the look on her face that things weren't going as she had expected (or hoped) so I asked: 
+ 
+
+===
+
+When I finished I could tell from the look on her face that things weren't going as she had expected (or hoped) so I asked: 
 
  "Do we have a deal?" 
 
@@ -9032,7 +9222,11 @@
 
  
 
- ****** Frank and Tanya ****** byJust_Plain_Bob© "If you lied and any of those photos show up three things will happen. One, the gangbang will be out in the open and I will see to it that the pictures I now have will get to your boss thereby exposing what you, his son and his nephew did to Tanya. He may not be too pleased to have his son and nephew called rapists. He might even fire you and see to it that you get a reference that will ensure you never get a good job again. 
+ 
+
+===
+
+"If you lied and any of those photos show up three things will happen. One, the gangbang will be out in the open and I will see to it that the pictures I now have will get to your boss thereby exposing what you, his son and his nephew did to Tanya. He may not be too pleased to have his son and nephew called rapists. He might even fire you and see to it that you get a reference that will ensure you never get a good job again. 
 
  "That ties in with the second thing. There is no statute of limitations on rape and Tanya will press the matter. True, it will be her word against yours, but her word will be backed up by the recording we have and you will be drug out into the publics eye. And don't think for one minute that she won't do it. Once you have put her photos out there for all to see she has nothing to lose in coming after you. 
 
@@ -9054,7 +9248,11 @@
 
  
 
- ****** Frank and the J Girls ****** byJust_Plain_Bob© I didn't have a clue. Not even a smidgen. One day I had a wife and the next day I didn't. 
+ 
+
+===
+
+I didn't have a clue. Not even a smidgen. One day I had a wife and the next day I didn't. 
 
  I got a call from my wife at work and she told me that her sister was in trouble and she had to go and help her. She told me that the kids were at my mothers and I would need to pick them up when I got off work. She told me she would talk to me later and then she hung up. I didn't get the usual "I love you" just the click of the phone being put in its cradle. 
 
@@ -9230,7 +9428,11 @@
 
  
 
- ****** Frank and the J Girls ****** byJust_Plain_Bob© Once in the living room Jasmine said, "Feeling like you've been ambushed Frank?" 
+ 
+
+===
+
+Once in the living room Jasmine said, "Feeling like you've been ambushed Frank?" 
 
  "Ambushed? Why would I feel that?" 
 
@@ -9380,7 +9582,11 @@
 
  
 
- ****** Frank's Decision ****** byJust_Plain_Bob© Debbie was a slut. She'd been one the entire time I'd known her and that had been almost ten years. Since the eleventh grade. For some strange reason known only to God my wife Tammy and Debbie have become best friends. 
+ 
+
+===
+
+Debbie was a slut. She'd been one the entire time I'd known her and that had been almost ten years. Since the eleventh grade. For some strange reason known only to God my wife Tammy and Debbie have become best friends. 
 
  Even though Debbie was a round heeled slut I'd never fucked her. Not that I didn't want to because the girl was hot! Seriously hot!! But just before I turned sixteen my dad sat me down and talked about the facts of life. Not the birds and bees talk, but about life. The good, bad and the ugly and I listened because I figured dad knew what he was talking about. 
 
@@ -9572,7 +9778,11 @@
 
  
 
- ****** Frank's Decision ****** byJust_Plain_Bob© "Debbie paid me a visit Friday night" and I went on to recount what the visit was about and what was said. "It was all bullshit Tam. I don't know if Dennis is screwing around on her or not, but if he is it is to get even with her." 
+ 
+
+===
+
+"Debbie paid me a visit Friday night" and I went on to recount what the visit was about and what was said. "It was all bullshit Tam. I don't know if Dennis is screwing around on her or not, but if he is it is to get even with her." 
 
  I told Tammy what I knew about Debbie and Mark and Debbie and Phil Reed and then said: 
 
@@ -9768,7 +9978,11 @@
 
  
 
- ****** Frank's Decision ****** byJust_Plain_Bob© It didn't help the decision process any that I loved her and had from the moment that I met her. Did I dare give her the benefit of the doubt? I was relieved to hear that she had not cheated on me since we took our vows and she seemed sincere when saying that she loved me and didn't want to lose me or our marriage, but did I dare take the chance? 
+ 
+
+===
+
+It didn't help the decision process any that I loved her and had from the moment that I met her. Did I dare give her the benefit of the doubt? I was relieved to hear that she had not cheated on me since we took our vows and she seemed sincere when saying that she loved me and didn't want to lose me or our marriage, but did I dare take the chance? 
 
  The problem was that I had no way of knowing. She could do anything while I was gone and I wouldn't know unless I was willing to bankrupt myself paying private detectives to watch her while I was away. 
 

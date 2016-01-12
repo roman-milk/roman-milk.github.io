@@ -1,8 +1,14 @@
+Orgasms
+=======
 #1 
 
  
 
- ****** Orgasms ****** byJust_Plain_Bob© I was pretty pleased with myself as I pulled onto my driveway and hit the button on the garage door opener. Addie's car was already in the garage which was nothing new since she was always home before I was. She would have dinner on and I was trying to make up my mind as to whether I should give her the surprise before dinner, during dinner or maybe after dinner as we sat on the patio and chatted about our day. 
+ 
+
+===
+
+I was pretty pleased with myself as I pulled onto my driveway and hit the button on the garage door opener. Addie's car was already in the garage which was nothing new since she was always home before I was. She would have dinner on and I was trying to make up my mind as to whether I should give her the surprise before dinner, during dinner or maybe after dinner as we sat on the patio and chatted about our day. 
 
  Our twenty-fifth wedding anniversary was in three weeks and I had gotten on line and found us a two week cruise. We both had plenty of vacation time coming and I couldn't think of a better way to burn some of it up than spending two weeks on a romantic cruise. 
 
@@ -198,7 +204,11 @@
 
  
 
- ****** Orgasms ****** byJust_Plain_Bob© "Oh my God Rob, I never thought any such thing. I thought I could talk you into letting me do that little something for myself. I thought we loved each other enough that I could show you that letting me do it wouldn't hurt us any. I wasn't talking long term affair or anything like that. Just one time to see what it was like, but you got up and stormed out before I could make my case." 
+ 
+
+===
+
+"Oh my God Rob, I never thought any such thing. I thought I could talk you into letting me do that little something for myself. I thought we loved each other enough that I could show you that letting me do it wouldn't hurt us any. I wasn't talking long term affair or anything like that. Just one time to see what it was like, but you got up and stormed out before I could make my case." 
 
  "Get serious Adelaide. My reaction to what you told me told you everything you needed to know about how I felt about the idea and you went anyway. And what if Kevin hadn't given you an orgasm? Who would you try next? How many more would you have wanted to try out to get that orgasm?" 
 

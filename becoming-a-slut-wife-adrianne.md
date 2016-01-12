@@ -1,8 +1,14 @@
+Becoming a Slut Wife: Adrianne
+==============================
 #1 
 
  
 
- ****** Becoming a Slut Wife: Adrianne ****** byJust_Plain_Bob© What happened was my own fault so I guess I can't cry too loud, but Adrianne gets a little bit of the blame - she didn't have to do what she did. It all happened because I'm a basically insecure guy where my wife is concerned. Adrianne is drop dead gorgeous and had every guy in town hot after her ass from the age of fourteen on. I on the other hand was the type of nerd who never even could get a date until I hit the eleventh grade. How I ended up with Adrianne I'll never know, but I was constantly afraid that other guys would try and take her away from me and that someday she might just realize she had made a mistake and let one of them do it. Add to that a generally suspicious nature and an active imagination and you had the recipe for disaster. 
+ 
+
+===
+
+What happened was my own fault so I guess I can't cry too loud, but Adrianne gets a little bit of the blame - she didn't have to do what she did. It all happened because I'm a basically insecure guy where my wife is concerned. Adrianne is drop dead gorgeous and had every guy in town hot after her ass from the age of fourteen on. I on the other hand was the type of nerd who never even could get a date until I hit the eleventh grade. How I ended up with Adrianne I'll never know, but I was constantly afraid that other guys would try and take her away from me and that someday she might just realize she had made a mistake and let one of them do it. Add to that a generally suspicious nature and an active imagination and you had the recipe for disaster. 
 
  ++++++++++++++++++++++++++++ 
 

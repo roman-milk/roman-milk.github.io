@@ -1,8 +1,14 @@
+A Surprise Family Christmas Orgy
+================================
 #1 
 
  
 
- ****** A Surprise Family Christmas Orgy ****** bysilkstockingslover© Summary: Faithful man is tempted by sister-in-law at Christmas party. 
+ 
+
+===
+
+Summary: Faithful man is tempted by sister-in-law at Christmas party. 
 
  Note: This is a 2015 Christmas contest story. 
 
@@ -350,7 +356,11 @@
 
  
 
- ****** A Surprise Family Christmas Orgy ****** bysilkstockingslover© "You slut," Wanda said playfully, "You're jerking him off under the table aren't you?" 
+ 
+
+===
+
+"You slut," Wanda said playfully, "You're jerking him off under the table aren't you?" 
 
  "No, 'slut' would be dropping my fork, going under the table and sucking his cock," Jennifer countered, as she indeed dropped the fork and said dramatically, "Oops, I better get that." She went under the table and quickly took my cock in her mouth. 
 
@@ -718,7 +728,11 @@
 
  
 
- ****** A Surprise Family Christmas Orgy ****** bysilkstockingslover© "How was Connie's cunt?" I asked. 
+ 
+
+===
+
+"How was Connie's cunt?" I asked. 
 
  "Delicious as always," my wife responded. 
 
@@ -1202,7 +1216,11 @@
 
  
 
- ****** A Surprise Family Christmas Orgy ****** bysilkstockingslover© "You fuck me," I ordered. 
+ 
+
+===
+
+"You fuck me," I ordered. 
 
  And Connie began slowly riding my cock. 
 

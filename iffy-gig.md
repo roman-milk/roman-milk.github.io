@@ -1,8 +1,14 @@
+Iffy Gig
+========
 #1 
 
  
 
- ****** Iffy Gig ****** byfastandsloppy© With my shift over, I made my escape through the gauntlet of leering bus boys and cat-calling prep cooks. Sighing in relief as I reached the back door, I pushed it open and stepped into the afternoon sun. I blinked and squinted and raised a flattened hand to shade my eyes. I could see nothing. Has she stood me up again?I wondered. A flash of panic tickled the base of my brain. 
+ 
+
+===
+
+With my shift over, I made my escape through the gauntlet of leering bus boys and cat-calling prep cooks. Sighing in relief as I reached the back door, I pushed it open and stepped into the afternoon sun. I blinked and squinted and raised a flattened hand to shade my eyes. I could see nothing. Has she stood me up again?I wondered. A flash of panic tickled the base of my brain. 
 
  "Over here, dummy," came Maddy's voice with a hint of a laugh. 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** Iffy Gig ****** byfastandsloppy© "Help me get my clothes off," she said. 
+ 
+
+===
+
+"Help me get my clothes off," she said. 
 
  I did, pulling the silvery dress off her in maybe five seconds. She removed her little bra as I dropped her panties to the floor, taking the time to kiss the golden fuzz of her pussy as she kicked them away. Together we climbed back on the table and embraced with our arms and legs. 
 

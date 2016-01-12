@@ -1,8 +1,14 @@
+The Devil Wears Nada
+====================
 #1 
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© (This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely adultery, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
+ 
+
+===
+
+(This story is posted on the Literotica website. Do not repost anywhere else without the author's consent. For fans of my stories, they know what kinds of things to expect. This story deals with similar themes as the stories by wannabeboytoy, seducedHylas, and Dark Betrayal, namely adultery, betrayal, and heartbreak. If stuff like that isn't your cup of tea, then you probably shouldn't bother reading it. I do not condone any of these actions in real life. This is just a story. Enjoy.) 
 
  * 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© The most embarrassing moment came when Abby had to deliver a book detailing some of the new clothing coming out. Nina was at home, and Abby would have to deliver it to her house personally. Audrey had done this job before, and she had passed off this errand to Abby. Audrey laid out very detailed instructions on what to do when she arrived at Nina's house. Walk in, go straight into a hallway, and set it on a particular table. It must be on that particular table. Don't go upstairs, don't disturb Nina, don't deviate from the instructions. 
+ 
+
+===
+
+The most embarrassing moment came when Abby had to deliver a book detailing some of the new clothing coming out. Nina was at home, and Abby would have to deliver it to her house personally. Audrey had done this job before, and she had passed off this errand to Abby. Audrey laid out very detailed instructions on what to do when she arrived at Nina's house. Walk in, go straight into a hallway, and set it on a particular table. It must be on that particular table. Don't go upstairs, don't disturb Nina, don't deviate from the instructions. 
 
  Abby took a cab to Nina's home, book in hand. The cab stopped outside of a large house in one of the nicer areas in the city. It was a few stories tall. It was the type of house Abby dreamed of having. Abby stepped up to the door, and cautiously opened the door up. She stepped into the hallway and as she followed the instructions Audrey gave her, she realized there were two tables she could put the book on. Abby knew Nina wanted things done her way, so Abby just stood there, trying to figure out which table to put the book on. 
 
@@ -414,7 +424,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© "That's all." Nina said, not quite as dismissive as normal. 
+ 
+
+===
+
+"That's all." Nina said, not quite as dismissive as normal. 
 
  ********* 
 
@@ -576,7 +590,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© The day was busy for both Nina and Abby. Abby had gotten separated from Nina, and it was at this point that she ran into Simon. Simon and her had been in contact, and had started to become friends. They chatted about work and other common interests. Abby got the impression that Simon was in to her. She was flattered, since he was a rich, handsome man, but she was not looking to cheat. She was not that type of girl. 
+ 
+
+===
+
+The day was busy for both Nina and Abby. Abby had gotten separated from Nina, and it was at this point that she ran into Simon. Simon and her had been in contact, and had started to become friends. They chatted about work and other common interests. Abby got the impression that Simon was in to her. She was flattered, since he was a rich, handsome man, but she was not looking to cheat. She was not that type of girl. 
 
  Simon offered to meet with her for lunch. She accepted and met him at a small café near the hotel. They chatted for a bit before Simon dropped a bomb on her. 
 
@@ -738,7 +756,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© Nathan was flabbergasted. This woman was threatening to fire Abby! This was not going at all like he hoped. He looked at Nina. She looked at him expectantly. She was demanding an answer. He knew what he wanted to say, but could he do it? Could he say the nasty things he wanted to say to her? She looked like him as if she knew exactly what he was thinking. To hell with it, he thought. 
+ 
+
+===
+
+Nathan was flabbergasted. This woman was threatening to fire Abby! This was not going at all like he hoped. He looked at Nina. She looked at him expectantly. She was demanding an answer. He knew what he wanted to say, but could he do it? Could he say the nasty things he wanted to say to her? She looked like him as if she knew exactly what he was thinking. To hell with it, he thought. 
 
  "I want to know how you did it. I know what you did to Abby here. I know all the horrible things you put my wife through. I know how much of a bitch you were to her! But what I don't know is how you got her on your side. How did you, all of a sudden, get her to be loyal to you? How did you get it so she did your bidding 24/7? What did you do? How did you trick her into being loyal to you? Did you blackmail her? How did you get her under your spell?" Nathan said, becoming more confident and angrier as he spoke. 
 
@@ -858,7 +880,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© "Deeper, honey." Nina commanded. Nathan had hesitated to work his hands into her ass-crack, but she clearly wanted it. His hands slowly made the way towards the cavern between her butt-cheeks. He gingerly worked his fingers into her ass-crack, afraid to get too deep. This continued for a few minutes until Nina got impatient. 
+ 
+
+===
+
+"Deeper, honey." Nina commanded. Nathan had hesitated to work his hands into her ass-crack, but she clearly wanted it. His hands slowly made the way towards the cavern between her butt-cheeks. He gingerly worked his fingers into her ass-crack, afraid to get too deep. This continued for a few minutes until Nina got impatient. 
 
  "I said deeper!" Nina growled. "Don't be afraid of it." 
 
@@ -974,7 +1000,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© "Put your mouth on my cunt." Nina commanded. With little force, Nina was able to force his head downward. He kissed her smooth stomach, down to her belly button. Then, Nina's pussy was in his face. The area surrounding her pussy was dry, not having been oiled up. Now that Nathan was within a foot of it, he could now tell that her pussy wasn't completely dry. In fact, it was soaking wet. She was dripping wet, clearly turned on. 
+ 
+
+===
+
+"Put your mouth on my cunt." Nina commanded. With little force, Nina was able to force his head downward. He kissed her smooth stomach, down to her belly button. Then, Nina's pussy was in his face. The area surrounding her pussy was dry, not having been oiled up. Now that Nathan was within a foot of it, he could now tell that her pussy wasn't completely dry. In fact, it was soaking wet. She was dripping wet, clearly turned on. 
 
  "Do it! It's where your mouth belongs." Nina commanded. Nathan had his doubts. Eating a woman's pussy was such an intimate act. He had only ever gone down on one woman. Abby. He had only given his wife that pleasure. He wasn't sure if he could give that pleasure to another woman. But Nina didn't give him time to decide. She reached down, grabbed his head, and pulled him roughly face-first into her dripping cunt. 
 
@@ -1158,7 +1188,11 @@
 
  
 
- ****** The Devil Wears Nada ****** byTheTalkMan© Abby tried to distance herself from the fashion industry in every way. She no longer wore any clothes considered fashionable, settling for bulky clothes, playing down her looks. She didn't want to even be seen as anything close to fashionable. Needless to say, she wasn't turning any heads. 
+ 
+
+===
+
+Abby tried to distance herself from the fashion industry in every way. She no longer wore any clothes considered fashionable, settling for bulky clothes, playing down her looks. She didn't want to even be seen as anything close to fashionable. Needless to say, she wasn't turning any heads. 
 
  She was watching TV in her small apartment when she saw a show about the entertainment industry. She was half watching it, but her attention was grabbed when she saw Nathan on the show. Abby turned up the volume. 
 

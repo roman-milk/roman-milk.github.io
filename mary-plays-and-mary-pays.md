@@ -1,8 +1,14 @@
+Mary Plays and Mary Pays
+========================
 #1 
 
  
 
- ****** Mary Plays and Mary Pays ****** byJust_Plain_Bob© I stood there looking in the window at my life crashing down. I listened to my wife as she made a mockery of the seven years of our marriage and our eleven year relationship. Eleven years of me being a blind, stupid fool. 
+ 
+
+===
+
+I stood there looking in the window at my life crashing down. I listened to my wife as she made a mockery of the seven years of our marriage and our eleven year relationship. Eleven years of me being a blind, stupid fool. 
 
  +++++++++++++++++++++ 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** Mary Plays and Mary Pays ****** byJust_Plain_Bob© It was two hours into it when I suddenly knew what I was going to do. Mary was on her hands and knees with her mouth on Jack and Phil was fucking her from behind. She was moaning and pushing her ass back at Phil when he pulled out of her cunt and poked the head of his cock at Mary's asshole. At the first touch of his cock head against her butt hole Mary came unglued. She jerked her mouth off of Jack and pulled forward away from Phil and turned to give Phil a murderous look. 
+ 
+
+===
+
+It was two hours into it when I suddenly knew what I was going to do. Mary was on her hands and knees with her mouth on Jack and Phil was fucking her from behind. She was moaning and pushing her ass back at Phil when he pulled out of her cunt and poked the head of his cock at Mary's asshole. At the first touch of his cock head against her butt hole Mary came unglued. She jerked her mouth off of Jack and pulled forward away from Phil and turned to give Phil a murderous look. 
 
  "God damn you Phil! You know better than to try that. I will not take that big thing in my ass and you know it. I don't even let Rob have my ass. You keep trying and huge cock or not I will stop seeing you. I do not want to have to tell you again." 
 

@@ -1,8 +1,14 @@
+Target Practice
+===============
 #1 
 
  
 
- ****** Target Practice ****** byJust_Plain_Bob© For years I've known about what people say about me behind my back. They say I'm a hen-pecked, pussy whipped wimp. I suppose it had a lot to do with the fact that my wife was ten years older than I am and some of it was because I tended to do what she told me to do, but so what? What was wrong in trying to keep your wife happy? 
+ 
+
+===
+
+For years I've known about what people say about me behind my back. They say I'm a hen-pecked, pussy whipped wimp. I suppose it had a lot to do with the fact that my wife was ten years older than I am and some of it was because I tended to do what she told me to do, but so what? What was wrong in trying to keep your wife happy? 
 
  I felt that I had lucked out big time when I found Kathleen and that I'd hit the lottery jackpot when she said yes to my marriage proposal. Damned right I did whatever it took to keep her happy and satisfied and if that made people see me as hen-pecked and a wimp so be it. They were right on when it came to my being pussy whipped. Before I'd met Kathleen I'd had my fair share of the ladies and I could say without a doubt that Kath was the best pussy I had ever had. 
 

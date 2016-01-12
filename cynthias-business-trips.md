@@ -1,8 +1,14 @@
+Cynthia's Business Trips
+========================
 #1 
 
  
 
- ****** Cynthia's Business Trips ****** byJust_Plain_Bob© My wife Cynthia could be the poster girl for Overachievers of The World. Grade school, high school, college and in the world of business Cyn just had to be at the top of the heap or life just wasn't worth living. She managed to get there with the first three and she is working hard to get there in business. 
+ 
+
+===
+
+My wife Cynthia could be the poster girl for Overachievers of The World. Grade school, high school, college and in the world of business Cyn just had to be at the top of the heap or life just wasn't worth living. She managed to get there with the first three and she is working hard to get there in business. 
 
  Cyn is the highest grossing sales representative in her company. Her goal is to remain the top performer until she becomes the Vice President of Sales and then she has her sights set on becoming the company CEO. Cyn's territory covers most of three states and as a result she is gone on two and three day sales trips several times a month. I'm not too happy about it, but I'm living with it as best I can. I figure that it is the price I have to pay just to have Cyn in the first place. That I do have her is a miracle, at least to me. I am her complete opposite. Where she is drop dead gorgeous I'm a little on the plain side; where she is the hard charging over-achiever I am the original "go with the flow" guy and where she was the brainy one I was the quintessential jock. We meet at a fraternity mixer in college and just seemed to stay together after that. 
 

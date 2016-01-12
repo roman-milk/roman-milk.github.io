@@ -1,8 +1,14 @@
+Kristen Finally Fucks Daddy Pt. 08
+==================================
 #1 
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 08 ****** byNonStopFunGuy© My repeatedly-fucked cunt ached in wonderful pain, and the bedsheets under my naked ass were still soaking wet. Those were the first two things in my sleepy brain, the moment I suddenly bolted awake. Sitting upright in the near-pitch darkness, only a nightlight on the wall to cast a pale amber glow over Daddy's bedroom. My throat is what woke me up; it was still raw from being violated by a couple of huge adult cocks that evening, fucking so deep they penetrated my neck. My mouth was also try, and the flavor of male sperm, teenage pussyjuice and all sorts of sweat mixed together in my mouth had made a stanky mess of aromas in my nose. I needed a drink, is what I thought. 
+ 
+
+===
+
+My repeatedly-fucked cunt ached in wonderful pain, and the bedsheets under my naked ass were still soaking wet. Those were the first two things in my sleepy brain, the moment I suddenly bolted awake. Sitting upright in the near-pitch darkness, only a nightlight on the wall to cast a pale amber glow over Daddy's bedroom. My throat is what woke me up; it was still raw from being violated by a couple of huge adult cocks that evening, fucking so deep they penetrated my neck. My mouth was also try, and the flavor of male sperm, teenage pussyjuice and all sorts of sweat mixed together in my mouth had made a stanky mess of aromas in my nose. I needed a drink, is what I thought. 
 
  Lying on his stomach immediately next to me, my naked grown-up boyfriend Jack was in a deep slumber. I watched his tight, hairy ass laying unperturbed right next to my petite, half-Asian teenage body; his broad, muscular flat back rose and fell softly with his slow breaths. On Jack's other side from me, stretched out on over half of my Daddy's bed, was the slender nude figure of my new "best friend" Debi. Her long, golden-blonde hair was in tangles, while her 18 year old body lay on her back but her slenger pale-white legs were stretched open in both directions. She had such a fucking sexy body; her B-cup tits were larger than mine, and her shaved pink cunt was a small slit between her slender hips. That cunt had taken adult cocks tonight, for the first time; seeing how fast asleep she was, I figured she was not going to regret that little speech she gave me earlier in the week, begging to come to the next orgy at our house. She'd heard how good they were, and she wanted some hot grown-up cock for herself. 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 08 ****** byNonStopFunGuy© "Yup." I climbed onto his bed on my knees, remaining near the bottom edge, reaching back to hold Crystal's hand and have her join me. Now we were hip to hip facing him, all three of us on his bed. "I need to say something more to Jack, Daddy . . . start the video, go ahead." Crystal didn't say a word, although I'm sure she was confused, she just remained next to me quietly, giggly. She had no idea who Jack was, she'd never met him and I don't think I'd even mentioned him to her. But she had the hots for my Daddy, knowing he fucked our friend Melanie a few weeks earlier -- with Melanie reporting to Crystal that my Daddy had an awesome cock and used it for hours -- and Crystal spent her time around my father flirting and showing off her C-cup tits and hot little Latina ass. I didn't get the sense Crystal wanted to leave. 
+ 
+
+===
+
+"Yup." I climbed onto his bed on my knees, remaining near the bottom edge, reaching back to hold Crystal's hand and have her join me. Now we were hip to hip facing him, all three of us on his bed. "I need to say something more to Jack, Daddy . . . start the video, go ahead." Crystal didn't say a word, although I'm sure she was confused, she just remained next to me quietly, giggly. She had no idea who Jack was, she'd never met him and I don't think I'd even mentioned him to her. But she had the hots for my Daddy, knowing he fucked our friend Melanie a few weeks earlier -- with Melanie reporting to Crystal that my Daddy had an awesome cock and used it for hours -- and Crystal spent her time around my father flirting and showing off her C-cup tits and hot little Latina ass. I didn't get the sense Crystal wanted to leave. 
 
  Besides, for the last couple of hours, Crystal and I had been having our first girl/girl sex in my bedroom. She still smelled like wet pussy; her mouth was undoubtedly filled with the scent of my cunt juices, like mine was of hers. She and I were still fucking horny. 
 
@@ -214,7 +224,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 08 ****** byNonStopFunGuy© Daddy watched me cum in Crystal's mouth, and he moaned loudly. "I love you, Kristen," he said, his hands still around Crystal's nude thin hips, his body rocking back and forth shoving his dick in her cunt from behind. 
+ 
+
+===
+
+Daddy watched me cum in Crystal's mouth, and he moaned loudly. "I love you, Kristen," he said, his hands still around Crystal's nude thin hips, his body rocking back and forth shoving his dick in her cunt from behind. 
 
  Crystal lifted her head from my pussy, looking back at my father over her soft shoulder. "Oh yeah, yeah, yeah!" she whined, her face clenching tight. Her eyes closed, her jaw opened, her nostrils flared out. She was having an orgasm, just from my Daddy's cock inside her. Her little body seemed to contract all at once, tightening, her breaths stopped . . . then she just fucking screamed. "SHIT!" she roared, eyes still closed tight, her face in pain, her hands clutching my legs as her cunt spasmed around my Daddy's penis. He knew she was cumming again, another huge hard orgasm, and he plowed his dick deep into her pussy so she could squeeze it and cum around it, and he felt how fucking tight her young cunt got from the orgasm. 
 
@@ -354,7 +368,11 @@
 
  
 
- ****** Kristen Finally Fucks Daddy Pt. 08 ****** byNonStopFunGuy© My lusty father glanced at me, but his face was sweating from fucking Riley's tight pussy. His body was rocking back and forth, powerfully driving his penis into her wet, silky tube. He nodded, I think, or was it just his head shaking? "Fuck, nice," he moaned, probably liking the news, but really excited more about screwing his niece for the second time that afternoon. 
+ 
+
+===
+
+My lusty father glanced at me, but his face was sweating from fucking Riley's tight pussy. His body was rocking back and forth, powerfully driving his penis into her wet, silky tube. He nodded, I think, or was it just his head shaking? "Fuck, nice," he moaned, probably liking the news, but really excited more about screwing his niece for the second time that afternoon. 
 
  Turns out my bisexual cousin had a positive reaction as well. "Fuck!" she screamed, pulling her legs so far back, taking my Daddy's dick into her. "I'll be there too -- I'm staying this weekend, Uncle Rick! Oh, I'm so fucking hot!" 
 

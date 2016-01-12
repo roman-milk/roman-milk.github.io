@@ -1,8 +1,14 @@
+My Russian Valentine
+====================
 #1 
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© A Valentine's contest entry from me, not that I expect much from this piece, but contest entries get put up quicker than regular submissions. This one started after I had the good fortune to be behind a hottie in a pink bikini as we walked along the beach the other week. It wasn't intentional, she just happened to be on a walk from one end of the beach to the other and I happened to be behind her. I got to thinking, and ... 
+ 
+
+===
+
+A Valentine's contest entry from me, not that I expect much from this piece, but contest entries get put up quicker than regular submissions. This one started after I had the good fortune to be behind a hottie in a pink bikini as we walked along the beach the other week. It wasn't intentional, she just happened to be on a walk from one end of the beach to the other and I happened to be behind her. I got to thinking, and ... 
 
  Thus the embryonic scene was born. I started writing and it just got out of control. I added the blonde to the mix and then the nympho second sister-in-law came along. 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© The girl gasped and clutched my shoulders when I found her tight core. "Kiss me more," she sighed, eyes closed, her face twisted with pleasure. 
+ 
+
+===
+
+The girl gasped and clutched my shoulders when I found her tight core. "Kiss me more," she sighed, eyes closed, her face twisted with pleasure. 
 
  She mewled and wriggled against my hand while I played with her, one of her fists curling around the length of me as the kiss rolled on and on. 
 
@@ -444,7 +454,11 @@
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© "Where will I meet you?" I asked my bikini girl. 
+ 
+
+===
+
+"Where will I meet you?" I asked my bikini girl. 
 
  She told me the name of her hotel, a room number and gave me a time. 
 
@@ -668,7 +682,11 @@
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© The woman interrupted us then. She grunted something and pushed at my chest. 
+ 
+
+===
+
+The woman interrupted us then. She grunted something and pushed at my chest. 
 
  "She say you make the fuck from behind now. Like the dog." 
 
@@ -874,7 +892,11 @@
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© "Fuck," I cursed when the woman began to ride me. I looked at the graceful line of Galya's body, holding her around the waist to assist her in staying upright. 
+ 
+
+===
+
+"Fuck," I cursed when the woman began to ride me. I looked at the graceful line of Galya's body, holding her around the waist to assist her in staying upright. 
 
  "Is so sexy watching you make the fuck with her," Katia sighed. She moved in front of us, her eyes fixed on the conjunction of my piston and Galya's pussy. Galya grunted when the girl reached towards her. I assumed Katia was fingering her sister-in-law's clit, and I wished I could see the woman's meaty flaps dangling while my cock penetrated her. "Make it the good fuck with her," Katia implored me, her eyes shining. She chewed her bottom lip and moaned. "It make me hot and sexy to see this. Galya is very sexy. I know why my brothers make the fuck with her." 
 
@@ -1084,7 +1106,11 @@
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© My girlfriend kissed my cheek and held my hand while we waited for a minute or two in the vestibule downstairs for the taxi I'd pre-booked that afternoon. 
+ 
+
+===
+
+My girlfriend kissed my cheek and held my hand while we waited for a minute or two in the vestibule downstairs for the taxi I'd pre-booked that afternoon. 
 
  Our arrival at the pub caused a bit of a stir. Several pairs of male eyes, hungry and calculating watched the girls as we made our way to a table. I saw a few nudges and muttered comments from a table full of lads I didn't recognise - - not locals but probably a group of itinerant tradesmen, sparks and chippies who landed where the winds of the construction game blew them. 
 
@@ -1290,7 +1316,11 @@
 
  
 
- ****** My Russian Valentine ****** bygeronimo_appleby© "Good trip?" he asked, smiling when I walked up to him. 
+ 
+
+===
+
+"Good trip?" he asked, smiling when I walked up to him. 
 
  "The usual." 
 

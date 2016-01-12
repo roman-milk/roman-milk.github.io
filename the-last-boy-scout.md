@@ -1,8 +1,14 @@
+The Last Boy Scout Ch. 01
+=========================
 #1 
 
  
 
- ****** The Last Boy Scout Ch. 01 ****** byTx_Tall_Tales© ====================== 
+ 
+
+===
+
+====================== 
 
  He can't resist helping anyone in need. 
 
@@ -176,7 +182,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 01 ****** byTx_Tall_Tales© I fantasized that if I was able to get Dominique alone, instead of surrounded by half the camp while sitting by the huge central fire, I'd have more luck. I'd have to do something about that. Luck favors the prepared. 
+ 
+
+===
+
+I fantasized that if I was able to get Dominique alone, instead of surrounded by half the camp while sitting by the huge central fire, I'd have more luck. I'd have to do something about that. Luck favors the prepared. 
 
  Despite my best (or worst) intentions, I was in my sleeping bag, alone, before eleven, and planning my personal missions for the next day. 
 
@@ -392,7 +402,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 01 ****** byTx_Tall_Tales© "Do the deed?" Julie asked. 
+ 
+
+===
+
+"Do the deed?" Julie asked. 
 
  "Coitus, intercourse, the two-backed beast." Teri expounded, peeking back over her shoulder. "Sex." 
 
@@ -702,7 +716,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 01 ****** byTx_Tall_Tales© Lisa was driving me nuts, still pressing my cock between her breasts, while looking up at me while I spoke. 
+ 
+
+===
+
+Lisa was driving me nuts, still pressing my cock between her breasts, while looking up at me while I spoke. 
 
  "Kaitlyn's Aunt and Uncle were supposed to come down for the second weekend, and her parents left us in their care. But the weather turned bad, and since all they do is golf every day, they decided to wait until after the storm blew over. Leaving us alone. As soon as we got the word they were going to be delayed a couple of days, we started drinking and fooling around. Angela and I were getting bad, doing it anywhere and everywhere. We'd never been alone like that for so long. A house to ourselves. The first couple of times we did it around Kaitlyn, she'd just leave, but finally she just sat beside us, ignoring us, while Angela sat in my lap and we watched a movie together, screwing the whole time." 
 
@@ -850,7 +868,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 02 ****** byTx_Tall_Tales© ====================== 
+ 
+
+===
+
+====================== 
 
  The Camp Savior, and hotel Alex 
 
@@ -1134,7 +1156,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 02 ****** byTx_Tall_Tales© My next companion wasn't as prone to surrender everything, content to grind against me, her body writhing against mine. My hands were freed, allowing me to fondle her to my heart's content, and I breathed a sigh of relief, my need to come momentarily ameliorated. She gave me a last long kiss and moved away. 
+ 
+
+===
+
+My next companion wasn't as prone to surrender everything, content to grind against me, her body writhing against mine. My hands were freed, allowing me to fondle her to my heart's content, and I breathed a sigh of relief, my need to come momentarily ameliorated. She gave me a last long kiss and moved away. 
 
  Another body eased onto me, and I groaned in feverish anticipation when her legs embraced me, an invisible hand holding my cock steady, poised to enter another teen hottie. My hands moved up to her thighs, but they were pulled back to the sides and encouraged to take up residence between the thighs of my soft bookends. Sliding my fingers inside of my special friends, my cock slowly penetrated another tight young pussy, teasing hands still joining that molten slot on my cock. 
 
@@ -1356,7 +1382,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 02 ****** byTx_Tall_Tales© I gave her a soft kiss. "Six years of being around you. It's a miracle I ever go soft." 
+ 
+
+===
+
+I gave her a soft kiss. "Six years of being around you. It's a miracle I ever go soft." 
 
  She reached out and gave me a push. "I'm trying, Buddy. I'm really trying. So cut the hyperbole, finish up and come back to me." 
 
@@ -1618,7 +1648,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 02 ****** byTx_Tall_Tales© A hell of an invitation. One I couldn't turn down. I found the motion and angle that allowed me to build my own need, holding back as long as I could, until I had to finish. I groaned, pushing deep and erupting inside of her. I continued with a dozen or so deep thrusts, filling her with my juice. 
+ 
+
+===
+
+A hell of an invitation. One I couldn't turn down. I found the motion and angle that allowed me to build my own need, holding back as long as I could, until I had to finish. I groaned, pushing deep and erupting inside of her. I continued with a dozen or so deep thrusts, filling her with my juice. 
 
  Exhaustion hammered me down immediately, my legs trembling with fatigue. I rolled with her, pulling her over on top of me, leaning against Julie's semi- conscious form. With an enormous effort, I straightened out the blanket, covering us. I stayed inside of Shannon, nudging her with my cock, fondling her tremendous ass, trying to keep hard, never wanting to pull out of her. It was working at least a little, as I stayed thick, buried inside of her. 
 
@@ -1858,7 +1892,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 02 ****** byTx_Tall_Tales© "If you and John get the other picnic bench, I'll get the table." I was asking a lot. John and I both had a good 50 pounds on the kid. Didn't seem to matter, he was a trooper, holding up his end. I thought it a sad commentary that of six guys sitting around, only Max offered to help. Didn't surprise me, but it was disappointing. 
+ 
+
+===
+
+"If you and John get the other picnic bench, I'll get the table." I was asking a lot. John and I both had a good 50 pounds on the kid. Didn't seem to matter, he was a trooper, holding up his end. I thought it a sad commentary that of six guys sitting around, only Max offered to help. Didn't surprise me, but it was disappointing. 
 
  I had a good memory for things like that. Max was earning himself a place on the good guys list. 
 
@@ -2046,7 +2084,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 03 ****** byTx_Tall_Tales© ====================== 
+ 
+
+===
+
+====================== 
 
  Girlfriend decisions and campfire fun 
 
@@ -2374,7 +2416,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 03 ****** byTx_Tall_Tales© Shannon laughed. "30% chance of showers, huh? This is turning into quite the adventure." 
+ 
+
+===
+
+Shannon laughed. "30% chance of showers, huh? This is turning into quite the adventure." 
 
  I laughed. "Yeah, but they'll learn more from this than from 20 other tame camping trips. Survival. Staying dry and warm. Dealing with adversity. It's all good." 
 
@@ -2718,7 +2764,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 03 ****** byTx_Tall_Tales© "Holding her. Arm around the shoulder." 
+ 
+
+===
+
+"Holding her. Arm around the shoulder." 
 
  "Enough. You're going to make me slap you for being a pussy. Go back and thank her for waiting and give her a kiss. On the lips. A little tongue would be good." 
 
@@ -3050,7 +3100,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 03 ****** byTx_Tall_Tales© That had my girlfriends teasing me for trying to be a seven year-old superhero. It also got me some nice kissin' so I wasn't complaining. 
+ 
+
+===
+
+That had my girlfriends teasing me for trying to be a seven year-old superhero. It also got me some nice kissin' so I wasn't complaining. 
 
  Teri had maneuvered herself in front of me, and had joined the ranks of the topless, as naked as Lisa, with her T-shirt wrapped around her chest. "Do you know how I met him?" she asked Shannon. 
 
@@ -3286,7 +3340,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 03 ****** byTx_Tall_Tales© I didn't stick around for an answer. I had my own tent full of beauties waiting, and another by my side. 
+ 
+
+===
+
+I didn't stick around for an answer. I had my own tent full of beauties waiting, and another by my side. 
 
  ================ 
 
@@ -3294,7 +3352,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 04 ****** byTx_Tall_Tales© ====================== 
+ 
+
+===
+
+====================== 
 
  Sisters, Teacher and Best Friend. Jealous? 
 
@@ -3572,7 +3634,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 04 ****** byTx_Tall_Tales© "He did us both," Julie giggled, "taking turns. How cool was that? Sharing him with her. He made her come for him, and then he fucked my brains out, making me come so much I thought I was going to die. And she helped me get that first one, playing with my clitty, while he pounded me into the ground. I don't know how long he fucked her after that. I fell asleep and twice woke up to him still screwing her." 
+ 
+
+===
+
+"He did us both," Julie giggled, "taking turns. How cool was that? Sharing him with her. He made her come for him, and then he fucked my brains out, making me come so much I thought I was going to die. And she helped me get that first one, playing with my clitty, while he pounded me into the ground. I don't know how long he fucked her after that. I fell asleep and twice woke up to him still screwing her." 
 
  "You guys didn't act like you'd been doing it, when you were around the fire," Teri said. 
 
@@ -3852,7 +3918,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 04 ****** byTx_Tall_Tales© I was at her hips, licking her hip bones, tugging on her fine pubes with my lips. 
+ 
+
+===
+
+I was at her hips, licking her hip bones, tugging on her fine pubes with my lips. 
 
  "You don't mind the hair?" she asked nervously. 
 
@@ -4190,7 +4260,11 @@
 
  
 
- ****** The Last Boy Scout Ch. 04 ****** byTx_Tall_Tales© I pulled her close for a hug and a kiss. "Is there going to be a later, for us?" I asked nervously. 
+ 
+
+===
+
+I pulled her close for a hug and a kiss. "Is there going to be a later, for us?" I asked nervously. 
 
  "I hope so," she said. 
 
