@@ -439,4 +439,4 @@ He nodded.
 
 "Well, Merry Christmas," I smiled as I walked to him, dropped to my knees and took his cock, which had last been in my ass back, in my mouth. 
 
-The End Report_Story 
+The End
