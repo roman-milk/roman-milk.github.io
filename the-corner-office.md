@@ -1,10 +1,16 @@
+The Corner Office Ch. 01
+========================
 #1  
 
  
 
  
 
-  ****** The Corner Office Ch. 01 ****** bytom6432© (a fantasy)  
+  
+
+===
+
+(a fantasy)  
 
   I am the sole owner of a small internet software company. Over the past two years our business has increased 500%. The business was started in my home part-time and now is a full-time business with clients in the continental US. We are located in a small town in the Northeast. I have 6 full-time women on my staff to handle customer service, billing, software distribution, and an administrative assistant.  
 
@@ -170,7 +176,11 @@
 
  
 
- ****** The Corner Office Ch. 01 ****** bytom6432© (a fantasy) 
+ 
+
+===
+
+(a fantasy) 
 
  I am the sole owner of a small internet software company. Over the past two years our business has increased 500%. The business was started in my home part-time and now is a full-time business with clients in the continental US. We are located in a small town in the Northeast. I have 6 full-time women on my staff to handle customer service, billing, software distribution, and an administrative assistant. 
 
@@ -338,7 +348,11 @@
 
  
 
-  ****** The Corner Office Ch. 02 ****** bytom6432© (This is a fantasy. Thank you to my editor you know who you are. There is a Chapter 1 which would be helpful to read, but is not essential)  
+  
+
+===
+
+(This is a fantasy. Thank you to my editor you know who you are. There is a Chapter 1 which would be helpful to read, but is not essential)  
 
   Chapter II - The T-Bar  
 
@@ -428,7 +442,11 @@
 
  
 
- ****** The Corner Office Ch. 02 ****** bytom6432© (This is a fantasy. Thank you to my editor you know who you are. There is a Chapter 1 which would be helpful to read, but is not essential) 
+ 
+
+===
+
+(This is a fantasy. Thank you to my editor you know who you are. There is a Chapter 1 which would be helpful to read, but is not essential) 
 
  Chapter II - The T-Bar 
 
@@ -520,7 +538,11 @@
 
  
 
-  ****** The Corner Office Ch. 03 ****** bytom6432© Chapter III - The Letter  
+  
+
+===
+
+Chapter III - The Letter  
 
   This is a fantasy. Thank you to my editor you know who you are. There are two previous chapters, but this stands on its own.  
 
@@ -582,7 +604,11 @@
 
  
 
- ****** The Corner Office Ch. 03 ****** bytom6432© Chapter III - The Letter 
+ 
+
+===
+
+Chapter III - The Letter 
 
  This is a fantasy. Thank you to my editor you know who you are. There are two previous chapters, but this stands on its own. 
 
@@ -646,7 +672,11 @@
 
  
 
-  ****** The Corner Office Ch. 04 ****** bytom6432© Chapter IV - Susan is pinned  
+  
+
+===
+
+Chapter IV - Susan is pinned  
 
   (This is a fantasy. If you do not enjoy stories about several spankings and humiliation please do not read it, as you will be disappointed)  
 
@@ -732,7 +762,11 @@
 
  
 
- ****** The Corner Office Ch. 04 ****** bytom6432© Chapter IV - Susan is pinned 
+ 
+
+===
+
+Chapter IV - Susan is pinned 
 
  (This is a fantasy. If you do not enjoy stories about several spankings and humiliation please do not read it, as you will be disappointed) 
 
@@ -820,7 +854,11 @@
 
  
 
-  ****** The Corner Office Ch. 05 ****** bytom6432© Chapter V -The previous weekend  
+  
+
+===
+
+Chapter V -The previous weekend  
 
   (This is a fantasy containing spanking and humiliation. If you do not enjoy reading this type of story please do not read it. Thank you to my editor you know who you are.)  
 
@@ -982,7 +1020,11 @@
 
  
 
- ****** The Corner Office Ch. 05 ****** bytom6432© Chapter V -The previous weekend 
+ 
+
+===
+
+Chapter V -The previous weekend 
 
  (This is a fantasy containing spanking and humiliation. If you do not enjoy reading this type of story please do not read it. Thank you to my editor you know who you are.) 
 
@@ -1146,7 +1188,11 @@
 
  
 
-  ****** The Corner Office Ch. 06 ****** bytom6432© VI. The Interruption  
+  
+
+===
+
+VI. The Interruption  
 
   (This is a fantasy containing spanking and humiliation. If you do not enjoy reading this type of story please do not read it. Some readers do not understand the difference between fiction and real life. It is all in fun. : ) Thank you to my editor you know who you are.)  
 
@@ -1356,7 +1402,11 @@
 
  
 
- ****** The Corner Office Ch. 06 ****** bytom6432© VI. The Interruption 
+ 
+
+===
+
+VI. The Interruption 
 
  (This is a fantasy containing spanking and humiliation. If you do not enjoy reading this type of story please do not read it. Some readers do not understand the difference between fiction and real life. It is all in fun. : ) Thank you to my editor you know who you are.) 
 
@@ -1568,7 +1618,11 @@
 
  
 
-  ****** The Corner Office Ch. 07 ****** bytom6432© VIII Saturday Visit  
+  
+
+===
+
+VIII Saturday Visit  
 
   (This is a fantasy containing spanking and humiliation. If you do not enjoy reading this type of story please do not read it. It is meant to be a fun story)  
 
@@ -1752,7 +1806,11 @@
 
  
 
-  ****** The Corner Office Ch. 07 ****** bytom6432© I took the hairbrush and without further ado lifted the brush and brought it down sharply on her full rounded bottom cheeks. Cassie jumped but held her position. The hairbrush fell going from one cheek to the next then landing a few on the same spot. Her legs kicked up and down and crossed over each other. I spanked the lower part of her cheeks where she sat. Her bottom was very red in spots. Tears flooded her eyes her nose began to run. The brush landed again and again, a few of the blows landed on her upper thighs.  
+  
+
+===
+
+I took the hairbrush and without further ado lifted the brush and brought it down sharply on her full rounded bottom cheeks. Cassie jumped but held her position. The hairbrush fell going from one cheek to the next then landing a few on the same spot. Her legs kicked up and down and crossed over each other. I spanked the lower part of her cheeks where she sat. Her bottom was very red in spots. Tears flooded her eyes her nose began to run. The brush landed again and again, a few of the blows landed on her upper thighs.  
 
   I stopped and she lay there sobbing until told to get up. Her hand flew to her bottom as she danced and rubbed her backside until I told her to stop. "Elizabeth go get the children's chair and place it in the corner of the room."  
 
@@ -1768,7 +1826,11 @@
 
  
 
- ****** The Corner Office Ch. 07 ****** bytom6432© VIII Saturday Visit 
+ 
+
+===
+
+VIII Saturday Visit 
 
  (This is a fantasy containing spanking and humiliation. If you do not enjoy reading this type of story please do not read it. It is meant to be a fun story) 
 
@@ -1948,7 +2010,11 @@
 
  
 
- ****** The Corner Office Ch. 07 ****** bytom6432© I took the hairbrush and without further ado lifted the brush and brought it down sharply on her full rounded bottom cheeks. Cassie jumped but held her position. The hairbrush fell going from one cheek to the next then landing a few on the same spot. Her legs kicked up and down and crossed over each other. I spanked the lower part of her cheeks where she sat. Her bottom was very red in spots. Tears flooded her eyes her nose began to run. The brush landed again and again, a few of the blows landed on her upper thighs. 
+ 
+
+===
+
+I took the hairbrush and without further ado lifted the brush and brought it down sharply on her full rounded bottom cheeks. Cassie jumped but held her position. The hairbrush fell going from one cheek to the next then landing a few on the same spot. Her legs kicked up and down and crossed over each other. I spanked the lower part of her cheeks where she sat. Her bottom was very red in spots. Tears flooded her eyes her nose began to run. The brush landed again and again, a few of the blows landed on her upper thighs. 
 
  I stopped and she lay there sobbing until told to get up. Her hand flew to her bottom as she danced and rubbed her backside until I told her to stop. "Elizabeth go get the children's chair and place it in the corner of the room." 
 

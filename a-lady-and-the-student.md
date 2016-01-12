@@ -1,8 +1,14 @@
+A Lady and the Student Ch. 01
+=============================
 #1 
 
  
 
- ****** A Lady and the Student Ch. 01 ****** byStoryTeller07© "Freud based his studies on hysterical, frustrated Victorian women. He was a man of his age and not relevant today. I agree he changed our thinking but we've progressed since then," Margaret countered. 
+ 
+
+===
+
+"Freud based his studies on hysterical, frustrated Victorian women. He was a man of his age and not relevant today. I agree he changed our thinking but we've progressed since then," Margaret countered. 
 
  "I agree, but did he maneuver psychology in the wrong direction?" Marvin asked. 
 
@@ -256,7 +262,11 @@
 
  
 
- ****** A Lady and the Student Ch. 01 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  Sunday morning Margaret was up early tidying the house. The phone rang and she quickly ran to it, in case it woke Marvin. It was only a salesman. 
 
@@ -458,7 +468,11 @@
 
  
 
- ****** A Lady and the Student Ch. 02 ****** byStoryTeller07© Margaret opened the kitchen door wearing a vacant look. Standing there, with a salesman's smile, was a large, rough looking man. 
+ 
+
+===
+
+Margaret opened the kitchen door wearing a vacant look. Standing there, with a salesman's smile, was a large, rough looking man. 
 
  Bill was a hard working guy who enjoyed gardening, and building up a small business. Last Sunday he phoned around the neighborhood, something he hated doing, as people just slammed the phone down. As usual just one person responded, so there he was, hoping to gain some new business. 
 
@@ -680,7 +694,11 @@
 
  
 
- ****** A Lady and the Student Ch. 02 ****** byStoryTeller07© "Candy will miss, sir. I'll keep my pussy ready for you," she told him, when he left. 
+ 
+
+===
+
+"Candy will miss, sir. I'll keep my pussy ready for you," she told him, when he left. 
 
  Another satisfied customer he thought. Climbing into the truck he realized she hadn't signed the paperwork. If she was playing the same game next week, it wouldn't be much of a problem. He shrugged his shoulders and drove off. 
 
@@ -878,7 +896,11 @@
 
  
 
- ****** A Lady and the Student Ch. 03 ****** byStoryTeller07© Marvin sat comfortably in an armchair, in the study, contemplating the progress of his new found affluence. The first few tries at hypnosis had been a success, earning a small amount, and stirring the idea of taking advantage of a niche market. 
+ 
+
+===
+
+Marvin sat comfortably in an armchair, in the study, contemplating the progress of his new found affluence. The first few tries at hypnosis had been a success, earning a small amount, and stirring the idea of taking advantage of a niche market. 
 
  Almost a year ago Marvin worked in a laboratory, where the manager lusted after a secretary, Daisy. She took full advantage of the poor guy, without giving an inch. Marvin bet the nerdy, no hoper of a manager, that hypnosis would get her interested in him. 
 
@@ -1098,7 +1120,11 @@
 
  
 
- ****** A Lady and the Student Ch. 03 ****** byStoryTeller07© "Yes," she hesitantly agreed. "I'm just a dim bimbo, a silly slut of a bimbo," she intoned. 
+ 
+
+===
+
+"Yes," she hesitantly agreed. "I'm just a dim bimbo, a silly slut of a bimbo," she intoned. 
 
  "Of course you are, Candy. You are just a perfect, sexy bimbo, for master," they confirmed. 
 
@@ -1160,7 +1186,11 @@
 
  
 
- ****** A Lady and the Student Ch. 04 ****** byStoryTeller07© Chapter 04 
+ 
+
+===
+
+Chapter 04 
 
  A bimbo is sold 
 
@@ -1344,7 +1374,11 @@
 
  
 
- ****** A Lady and the Student Ch. 04 ****** byStoryTeller07© Before the other bimbos he was giving her a special treat. Candy felt precious, ever so privileged to be caressed so lovingly by her master. He was smiling at her with warm approval, aware of how she felt. 
+ 
+
+===
+
+Before the other bimbos he was giving her a special treat. Candy felt precious, ever so privileged to be caressed so lovingly by her master. He was smiling at her with warm approval, aware of how she felt. 
 
  "Your master has arranged to have a big bouncy pair of breasts," Marvin smiled. 
 

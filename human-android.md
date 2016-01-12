@@ -1,8 +1,14 @@
+Human Android Ch. 01
+====================
 #1 
 
  
 
- ****** Human Android Ch. 01 ****** byStoryTeller07© Professor Draper dashed from the kitchen into the garage looking desperately around for somewhere to hide. 
+ 
+
+===
+
+Professor Draper dashed from the kitchen into the garage looking desperately around for somewhere to hide. 
 
  Only a few minutes ago she had a wonderful sex session during which she pretended to be William's android. She had planned the session knowing William, her husband, couldn't resist wanting to give him something to remember on his business trip. He was late and dashed off for the airport. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Human Android Ch. 01 ****** byStoryTeller07© Larry had been sitting reading through an old pile of comics. When she came up to him to wait patiently for the next order he lifted his eyes from it to blink at her. 
+ 
+
+===
+
+Larry had been sitting reading through an old pile of comics. When she came up to him to wait patiently for the next order he lifted his eyes from it to blink at her. 
 
  Anne saw the open page and would have shuddered if she could. It was soft porn. The cartoon woman with huge breasts was cavorting in what she thought to be an impossible position. She compared the improbable cartoon breasts with her own and realised they weren't so different. 
 
@@ -208,7 +218,11 @@
 
  
 
- ****** Human Android Ch. 02 ****** byStoryTeller07© The back door of the truck slid upward with a hiss of compressed air. Anne had brought her emotions under control by thinking over positive aspects of the situation. After all she was a professor and head of the business department, therefore used to analysing difficult situations. 
+ 
+
+===
+
+The back door of the truck slid upward with a hiss of compressed air. Anne had brought her emotions under control by thinking over positive aspects of the situation. After all she was a professor and head of the business department, therefore used to analysing difficult situations. 
 
  Although virtually naked in the back of a truck she was wearing a mask so wouldn't be recognised on campus. It was moulded onto her face and wouldn't just fall off. It was styled as an android maid, which was in keeping with the thin one piece android body suit she wore. 
 
@@ -384,7 +398,11 @@
 
  
 
- ****** Human Android Ch. 02 ****** byStoryTeller07© He stood up, still a little shaky from the unfamiliar exertion. "Stand maid," he told it. "Sit in the chair," he added. It seemed confused and disorientated but managed to slump down into his games consul chair. 
+ 
+
+===
+
+He stood up, still a little shaky from the unfamiliar exertion. "Stand maid," he told it. "Sit in the chair," he added. It seemed confused and disorientated but managed to slump down into his games consul chair. 
 
  He wondered if he had used up the last of its energy reserves so worked quickly. He needed to look at the security programming for it was outdated therefore more easily broken into. Once he had the algorithms they could be used to hack the mark two games consol; if the rumours were correct. 
 
@@ -558,7 +576,11 @@
 
  
 
- ****** Human Android Ch. 02 ****** byStoryTeller07© "Stop it! Stop sucking on your master's cock," he told her. 
+ 
+
+===
+
+"Stop it! Stop sucking on your master's cock," he told her. 
 
  She sat back on her haunches with knees spread, hands on them palm up, thrusting her huge breasts at him. He should have guessed. He wasn't a student in the Business Studies department but that made no difference at all. 
 
@@ -576,7 +598,11 @@
 
  
 
- ****** Human Android Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  Anne goes back for more 
 
@@ -772,7 +798,11 @@
 
  
 
- ****** Human Android Ch. 03 ****** byStoryTeller07© "Oh! Yessss, my love, whatever you want," she panted out the words. She slid to the floor at his feet. "May your slave, please, master," she asked plaintively, with both hands already on his zip. 
+ 
+
+===
+
+"Oh! Yessss, my love, whatever you want," she panted out the words. She slid to the floor at his feet. "May your slave, please, master," she asked plaintively, with both hands already on his zip. 
 
  She turned him around and pushed him into the chair, managing to unzip and pull out his hard cock like a magician pulling a rabbit out of a hat. She licked at his cock, gurgling little sounds of pleasure. 
 
@@ -804,7 +834,11 @@
 
  
 
- ****** Human Android Ch. 04 ****** byStoryTeller07© Professor Draper walked into Larry's apartment with a completely different attitude to last time. She was more her old self, assured and defiant, ready to inform him this must stop. He wasn't in the room waiting for her as expected. 
+ 
+
+===
+
+Professor Draper walked into Larry's apartment with a completely different attitude to last time. She was more her old self, assured and defiant, ready to inform him this must stop. He wasn't in the room waiting for her as expected. 
 
  She looked around examining the room seeing it in a different light. The focus of the whole space concentrated on the computer table loaded with equipment and that ominous chair a focal point. 
 
@@ -1020,7 +1054,11 @@
 
  
 
- ****** Human Android Ch. 04 ****** byStoryTeller07© The big hulk of a football player tapped her on the shoulder and she turned around to dance with him, whether he wanted to or not. He turned out to be more nibble than he looked. A couple of fast numbers, blasts from the past came on that even she recognized, had them breathing hard. 
+ 
+
+===
+
+The big hulk of a football player tapped her on the shoulder and she turned around to dance with him, whether he wanted to or not. He turned out to be more nibble than he looked. A couple of fast numbers, blasts from the past came on that even she recognized, had them breathing hard. 
 
  He ignored her request to sit the next one out and just grabbed a hand pulling her into a jive. Not knowing how to she was thrown around like a rag doll. The little dress flew around her hips showing off the little white panties with her only saving grace being the android suit underneath everything. 
 
@@ -1162,7 +1200,11 @@
 
  
 
- ****** Human Android Ch. 05 ****** byStoryTeller07© Ch. 05 
+ 
+
+===
+
+Ch. 05 
 
  Anne faces a dire future as an android 
 
@@ -1332,7 +1374,11 @@
 
  
 
- ****** Human Android Ch. 06 ****** byStoryTeller07© (Don't blame my editor for any errors, as this was rushed out without his kind assistance.) 
+ 
+
+===
+
+(Don't blame my editor for any errors, as this was rushed out without his kind assistance.) 
 
  
 
@@ -1526,7 +1572,11 @@
 
  
 
- ****** Human Android Ch. 06 ****** byStoryTeller07© John rolled back the towel down her back, leave her partially uncovered. It had been a surprise she agreed to a massage, as she had always been dismissive of alternative therapies, and denied the benefits of healing arts. He was even more surprised she wasn't wearing underwear. 
+ 
+
+===
+
+John rolled back the towel down her back, leave her partially uncovered. It had been a surprise she agreed to a massage, as she had always been dismissive of alternative therapies, and denied the benefits of healing arts. He was even more surprised she wasn't wearing underwear. 
 
  "This is your hour. I am here for you. All you need do is relax," he recited, with hands smoothing oil into her back. It was as calming for him as it would be for her, though he was surprised how quickly she had relaxed, considering how uptight she usually was. 
 
@@ -1678,7 +1728,11 @@
 
  
 
- ****** Human Android Ch. 07 ****** byStoryTeller07© Anne was tightly encased in a blow up outfit that took the shape of an arm chair when inflated. Her mouth was held open at the front of the seat, where John had sat. It had been overkill, to be left helpless, like a humble piece of furniture. Anne had no option but to faithfully obey orders from the influence of the implant in her head, so there was no need to hold her captive. Encased in clear plastic, unable to move, she was physically, as well as psychologically, powerless. 
+ 
+
+===
+
+Anne was tightly encased in a blow up outfit that took the shape of an arm chair when inflated. Her mouth was held open at the front of the seat, where John had sat. It had been overkill, to be left helpless, like a humble piece of furniture. Anne had no option but to faithfully obey orders from the influence of the implant in her head, so there was no need to hold her captive. Encased in clear plastic, unable to move, she was physically, as well as psychologically, powerless. 
 
  He had abandoned her there in the lounge, like a piece of furniture, an object owned, to attend to his wife as part of the usual daily routine. Leaving his sperm to trickle over the plastic seat, dribbling into her mouth, she had to swallow or choke. Her mouth was held open so there was little she could do, as the sticky fluid dripped onto her tongue, where it slowly ran to the back of her throat. 
 
@@ -1872,7 +1926,11 @@
 
  
 
- ****** Human Android Ch. 07 ****** byStoryTeller07© If it were him he would have left a note before leaving, but nothing so simple was possible in that household. It would be inconvenient to keep phoning the house, until getting through to him, even though Elizabeth had nothing else to do while waiting in the hospital. 
+ 
+
+===
+
+If it were him he would have left a note before leaving, but nothing so simple was possible in that household. It would be inconvenient to keep phoning the house, until getting through to him, even though Elizabeth had nothing else to do while waiting in the hospital. 
 
  Although he was over eighteen Richard was just as fickle as the rest of the family. Besides, he had promised to arrange something. Bernard, another neighbour, was away on a fishing trip. He looked across the room at Anne and received the desired inspiration. Of course! 
 
@@ -2034,7 +2092,11 @@
 
  
 
- ****** Human Android Ch. 08 ****** byStoryTeller07© Chapter 08 
+ 
+
+===
+
+Chapter 08 
 
  The professor becomes a giggly bimbo 
 
@@ -2224,7 +2286,11 @@
 
  
 
- ****** Human Android Ch. 08 ****** byStoryTeller07© "You can't go around like that, you naughty girl," Joe told her, with a big smile. 
+ 
+
+===
+
+"You can't go around like that, you naughty girl," Joe told her, with a big smile. 
 
  He pulled from his back pocket a red handkerchief, one he used to clean himself up after an impromptu session with a wiling housewife. He started to rub her breasts with it, pretending to dry them off. He held one in the palm of his hand, rubbing it, while particularly concentrating on a nipple. 
 
@@ -2422,7 +2488,11 @@
 
  
 
- ****** Human Android Ch. 09 ****** byStoryTeller07© Rebecca was worried about her mother. It wasn't so much that she was dressing so differently, it was the way she behaved. She put it down to her father's disappearance, leaving them both so unexpectedly for another woman. It seemed her mother had become a recluse, not leaving the house at all, since returning from Uncle John's house. 
+ 
+
+===
+
+Rebecca was worried about her mother. It wasn't so much that she was dressing so differently, it was the way she behaved. She put it down to her father's disappearance, leaving them both so unexpectedly for another woman. It seemed her mother had become a recluse, not leaving the house at all, since returning from Uncle John's house. 
 
  Anne had been so jumpy after arriving home she cleaned the whole house, from top to bottom. It did no good though, for she needed something, yet not daring to think what it was. There was a hole in her life since her husband had left. More considerable was the influence of the mind implant. She had become so used to uninhibited sex, she was suffering withdrawal symptoms. 
 
@@ -2616,7 +2686,11 @@
 
  
 
- ****** Human Android Ch. 09 ****** byStoryTeller07© "I can grip your cock tight with my cunt, if you would prefer it, sir. My asshole is even tighter, for your big cock, sir. It looks so big you might have trouble entering my bottom with it," she said, with a slight moan. He had an obvious erection in his tight jeans, as they all did. 
+ 
+
+===
+
+"I can grip your cock tight with my cunt, if you would prefer it, sir. My asshole is even tighter, for your big cock, sir. It looks so big you might have trouble entering my bottom with it," she said, with a slight moan. He had an obvious erection in his tight jeans, as they all did. 
 
  She couldn't help leaning forward and licking her lips, while fingering her mouth. The girlish lisp from mouthing the obscenities around a finger was meant to be alluring. Bent over like that, the guys sitting behind her could see a bare ass cut by the string of the thong. While committed to behaving like a whore, this lewd display didn't bother her at all. 
 
@@ -2676,7 +2750,11 @@
 
  
 
- ****** Human Android Ch. 10 ****** byStoryTeller07© Chapter 10 
+ 
+
+===
+
+Chapter 10 
 
  The professor becomes a gang whore 
 
@@ -2874,7 +2952,11 @@
 
  
 
- ****** Human Android Ch. 10 ****** byStoryTeller07© She breathed in deeply, expanding her chest, leaving it impossible for him to pull the skimpy garment around her. She hardly reacted on seeing who it was. This man, pumping her breasts, trying to get them back into the blouse, was someone she knew! He was the CEO of a corporation, where she had been a consultant. 
+ 
+
+===
+
+She breathed in deeply, expanding her chest, leaving it impossible for him to pull the skimpy garment around her. She hardly reacted on seeing who it was. This man, pumping her breasts, trying to get them back into the blouse, was someone she knew! He was the CEO of a corporation, where she had been a consultant. 
 
  While working with them, they hadn't dared stare at her breasts, in respect of her formidable reputation. At the time they had kept close, respectful eye contact. Now he was fondling her tits. He didn't have to pretend, it was a struggle to get them covered. 
 
@@ -2944,7 +3026,11 @@
 
  
 
- ****** Human Android Ch. 11 ****** byStoryTeller07© (Please note, there are more fetish scenes in this chapter, so if you are not into it, please ignore this one. You can't please, all the people, all the time. Or, you could think of it, as just another way to humiliate the professor.) 
+ 
+
+===
+
+(Please note, there are more fetish scenes in this chapter, so if you are not into it, please ignore this one. You can't please, all the people, all the time. Or, you could think of it, as just another way to humiliate the professor.) 
 
  Her daughter takes over 
 
@@ -3156,7 +3242,11 @@
 
  
 
- ****** Human Android Ch. 11 ****** byStoryTeller07© Despite some misgivings, about presenting her mother as a maid, Rebecca was looking forward to the ruse. She looked forward to humiliating her mother, in front of friends. 
+ 
+
+===
+
+Despite some misgivings, about presenting her mother as a maid, Rebecca was looking forward to the ruse. She looked forward to humiliating her mother, in front of friends. 
 
  The bodysuit left her looking like a maid-bot, without being recognized behind the mask. No-one would take much notice of a household robot maid. Her mother would be fully aware of her humble role, before students, and that was sweet retribution. 
 
@@ -3380,7 +3470,11 @@
 
  
 
- ****** Human Android Ch. 11 ****** byStoryTeller07© Bob watched her fingering her pussy under the skirt. There was something wrong with this. Or maybe, she had been hiding a nymphomaniac persona, behind a priggish image. Perhaps her husband couldn't cope with it any longer, so left, leaving her super frustrated. 
+ 
+
+===
+
+Bob watched her fingering her pussy under the skirt. There was something wrong with this. Or maybe, she had been hiding a nymphomaniac persona, behind a priggish image. Perhaps her husband couldn't cope with it any longer, so left, leaving her super frustrated. 
 
  "Tell me what you want, horny slut," he asked, wishing he had a record of this, incase it later blew up in his face. 
 
@@ -3582,7 +3676,11 @@
 
  
 
- ****** Human Android Ch. 12 ****** byStoryTeller07© All packed for a trip 
+ 
+
+===
+
+All packed for a trip 
 
  (Please note; no animals were harmed in the making of this story. The bitch's are in Rebecca's head, and are fully human, doing human things to each other. As usual they are nasty things or, nice, if you are not on the receiving end of the humiliation. If you become confused, read chapter 11.) 
 
@@ -3778,7 +3876,11 @@
 
  
 
- ****** Human Android Ch. 12 ****** byStoryTeller07© They scrambled away from each other, to take up their pose. Side by side, they squatted on the floor, with knees pulled apart, sitting upright, pushing out their breasts. Both hands were palm up, perched on their knees. They looked down at the carpet, at a point just in front of them. 
+ 
+
+===
+
+They scrambled away from each other, to take up their pose. Side by side, they squatted on the floor, with knees pulled apart, sitting upright, pushing out their breasts. Both hands were palm up, perched on their knees. They looked down at the carpet, at a point just in front of them. 
 
  Anne must have taught her daughter this pose too, while he was out. Anne's large, luscious breasts were still impressive, especially when thrust out at him. Rebecca's younger body was firm, with perfectly smooth skin. Her mother too looked youthful, though more sumptuous, with larger hips and a slim waist under the impressive breasts. 
 
@@ -3968,7 +4070,11 @@
 
  
 
- ****** Human Android Ch. 12 ****** byStoryTeller07© He saw the two rubber bags being carted away in the back of a truck. There was no driver or passenger, so it was impossible to find out who had bought them. The two vulnerable women had been carted off, to an unknown destination, now owned by a stranger. 
+ 
+
+===
+
+He saw the two rubber bags being carted away in the back of a truck. There was no driver or passenger, so it was impossible to find out who had bought them. The two vulnerable women had been carted off, to an unknown destination, now owned by a stranger. 
 
  They had been programmed to be sex slaves, ready to obey a master. Now they had been purchased, they had an owner, a real master. It wouldn't take long for a man to discover they were thoroughly obedient, and thereafter, their sexual skills would be discovered. As devoted sex slaves, they would perform any perversion he cared to demand. 
 
@@ -3976,7 +4082,11 @@
 
  
 
- ****** Human Android Ch. 13 ****** byStoryTeller07© Chapter 13 
+ 
+
+===
+
+Chapter 13 
 
  Waking into a new life 
 
@@ -4170,7 +4280,11 @@
 
  
 
- ****** Human Android Ch. 13 ****** byStoryTeller07© "Perfect! You both look gorgeous," he beamed at them. He almost called them his slaves, out of habit. It was best to take it easy, until he could work out what they wanted from him. It was obviously the effect of the sensory depravation, but how deep was it, and how permanent? 
+ 
+
+===
+
+"Perfect! You both look gorgeous," he beamed at them. He almost called them his slaves, out of habit. It was best to take it easy, until he could work out what they wanted from him. It was obviously the effect of the sensory depravation, but how deep was it, and how permanent? 
 
  "Would master like to play a naughty game?" Rebecca giggled. She appeared to be shy and mischievous, all rolled into one enticing look. 
 
@@ -4376,7 +4490,11 @@
 
  
 
- ****** Human Android Ch. 14 ****** byStoryTeller07© Chapter 14 
+ 
+
+===
+
+Chapter 14 
 
  Awkward situation in college 
 
@@ -4584,7 +4702,11 @@
 
  
 
- ****** Human Android Ch. 14 ****** byStoryTeller07© "Well, it doesn't seem right. We shouldn't rely on him so much. Do we need a master to look after us? I mean, calling him master, isn't that demeaning?" Anne carefully said, not wanting to upset Rebecca. 
+ 
+
+===
+
+"Well, it doesn't seem right. We shouldn't rely on him so much. Do we need a master to look after us? I mean, calling him master, isn't that demeaning?" Anne carefully said, not wanting to upset Rebecca. 
 
  "No! We need him. We need a master to tell us what to do. He looks after us, mom. We've been through this before, there's nothing to discuss," Rebecca crossly fumed. 
 

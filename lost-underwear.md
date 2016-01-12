@@ -1,8 +1,14 @@
+Lost Underwear
+==============
 #1 
 
  
 
- ****** Lost Underwear ****** byStoryTeller07© Arriving home Alicia slammed the door and leant back on it closing her eyes not wanting to look. It was Friday evening and she had the whole weekend ahead of her yet she felt anxious and afraid. After taking a deep breath she rummaged frantically through a handbag to find what she dreaded. Both bra and panties she remembered putting on that morning were there. On finding them she became aware of not wearing underwear though until that moment she had been completely oblivious of the fact. 
+ 
+
+===
+
+Arriving home Alicia slammed the door and leant back on it closing her eyes not wanting to look. It was Friday evening and she had the whole weekend ahead of her yet she felt anxious and afraid. After taking a deep breath she rummaged frantically through a handbag to find what she dreaded. Both bra and panties she remembered putting on that morning were there. On finding them she became aware of not wearing underwear though until that moment she had been completely oblivious of the fact. 
 
  This morning she had left for the office wearing this set but some time during the day it found its way into her bag, so what had happened? Every day that week she arrived home to find a pair of panties crumpled into a corner of this bag with no recollection of how they got there. She had a vague memory of going to the restroom on Monday where she removed her panties but nothing more of that episode and not a glimmer of how it had happened each day after that. 
 
@@ -116,7 +122,11 @@
 
  
 
- ****** Lost Underwear Ch. 02 ****** byStoryTeller07© Saturday had been an anxious day for Brian as he had met Alicia offering to help her with the real chance it could all go wrong. It hadn't. In fact it had gone exactly as planned. It was late and he was tired when he stopped to look at the young woman on his way to bed. In her sleep she squirmed, still wearing the tight fitting rubber panties with the dildo inserted, she seemed to be pivoting her hips around the thing. He wondered what bizarre dreams she was having, shrugged and continued on to his room. 
+ 
+
+===
+
+Saturday had been an anxious day for Brian as he had met Alicia offering to help her with the real chance it could all go wrong. It hadn't. In fact it had gone exactly as planned. It was late and he was tired when he stopped to look at the young woman on his way to bed. In her sleep she squirmed, still wearing the tight fitting rubber panties with the dildo inserted, she seemed to be pivoting her hips around the thing. He wondered what bizarre dreams she was having, shrugged and continued on to his room. 
 
  *** 
 

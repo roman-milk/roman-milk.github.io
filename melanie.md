@@ -1,8 +1,14 @@
+Melanie Ch. 01
+==============
 #1 
 
  
 
- ****** Melanie Ch. 01 ****** byStoryTeller07© Chapter 01 
+ 
+
+===
+
+Chapter 01 
 
  A beauty bound and packaged 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Melanie Ch. 01 ****** byStoryTeller07© "Leave her with me," Ed said, opening the door. 
+ 
+
+===
+
+"Leave her with me," Ed said, opening the door. 
 
  "What about money?" Bob started to say. 
 
@@ -230,7 +240,11 @@
 
  
 
- ****** Melanie Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  The beautiful mystery woman is drugged 
 
@@ -394,7 +408,11 @@
 
  
 
- ****** Melanie Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  The sex party 
 
@@ -560,7 +578,11 @@
 
  
 
- ****** Melanie Ch. 03 ****** byStoryTeller07© "So Melanie, you did well yesterday but today the real training starts. I'm sure you've learnt there's just one important thing, obedience. Well now you have to do more than that." The trainer told her. 
+ 
+
+===
+
+"So Melanie, you did well yesterday but today the real training starts. I'm sure you've learnt there's just one important thing, obedience. Well now you have to do more than that." The trainer told her. 
 
  She was getting a bit fed up of this. It was time to go home. 
 
@@ -626,7 +648,11 @@
 
  
 
- ****** Melanie Ch. 04 ****** byStoryTeller07© Roberta arrives on the scene: 
+ 
+
+===
+
+Roberta arrives on the scene: 
 
  Roberta felt pleased with her performance convincing Eddy to accept the hastily invented story. She had pretended to be in trouble, needing to escape the area, and was now in a plane being sent to a rich mans home as a servant. 
 
@@ -792,7 +818,11 @@
 
  
 
- ****** Melanie Ch. 04 ****** byStoryTeller07© "Sure, we'll find a way out of here," Melanie said to her friend. 
+ 
+
+===
+
+"Sure, we'll find a way out of here," Melanie said to her friend. 
 
  "You going to join us? Three intrepid slaves fighting for freedom?" Roberta asked Sandy. 
 
@@ -802,7 +832,11 @@
 
  
 
- ****** Melanie Ch. 05 ****** byStoryTeller07© Chapter 5 
+ 
+
+===
+
+Chapter 5 
 
  Roberta's training starts 
 
@@ -974,7 +1008,11 @@
 
  
 
- ****** Melanie Ch. 05 ****** byStoryTeller07© She gave up struggling at some point with a heavy sigh. It was no good the thin chains looked fragile but wouldn't give. All he had to do was press a little button and she was helpless. Besides that he looked strong enough to over-power her or beat her into submission. There was nowhere to run to so this would have to be endured. 
+ 
+
+===
+
+She gave up struggling at some point with a heavy sigh. It was no good the thin chains looked fragile but wouldn't give. All he had to do was press a little button and she was helpless. Besides that he looked strong enough to over-power her or beat her into submission. There was nowhere to run to so this would have to be endured. 
 
  "You were whipped because you refused to answer a question promptly. You have been confined because you reacted with dissent, you hissed at your master," he stated. 
 
@@ -1022,7 +1060,11 @@
 
  
 
- ****** Melanie Ch. 06 ****** byStoryTeller07© Chapter 6 
+ 
+
+===
+
+Chapter 6 
 
  Escape 
 

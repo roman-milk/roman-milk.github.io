@@ -1,8 +1,14 @@
+Victoria the Slut Ch. 01
+========================
 #1 
 
  
 
- ****** Victoria the Slut Ch. 01 ****** byLifeisgood21© Chapter 1: Victoria Becomes a Slut 
+ 
+
+===
+
+Chapter 1: Victoria Becomes a Slut 
 
  My girlfriend Victoria hasn't always been a slut. It wasn't until a few years after we met that she became one, with a little of my help of course. 
 
@@ -114,7 +120,11 @@
 
  
 
- ****** Victoria the Slut Ch. 01 ****** byLifeisgood21© I gave her a few seconds to enjoy the waves of pleasure going through her before I picked her up off my cock and turned her around. She fumbled around in an orgasmic haze, with her eyes closed, until she was straddling me with her back to me. Her pussy enveloped me as she sank back down letting out a long sigh. I placed my hands on her hips and began guiding her up and down on my cock. Vic slowly moved on her own fucking herself on my dick, putting her arms behind her to support herself on my chest. This made her back to arch thrusting her tits out further, much to the delight of the two guys watching us. They now had a full on view of Vic's bouncing tits and her splayed pussy lips enveloping my cock sliding in and out of her. I could feel the individual muscles of her cunt milking my cock as she seemed to be having almost continuous mini orgasms. I sat up behind her and wrapped my arms around her taking her nipple in my left hand and her clit in my right. I gave her nipple a light pinch and twisted it between my fingers getting a satisfying gasp. I put my face just beside her ear and whispered "You seem to have quite the audience." 
+ 
+
+===
+
+I gave her a few seconds to enjoy the waves of pleasure going through her before I picked her up off my cock and turned her around. She fumbled around in an orgasmic haze, with her eyes closed, until she was straddling me with her back to me. Her pussy enveloped me as she sank back down letting out a long sigh. I placed my hands on her hips and began guiding her up and down on my cock. Vic slowly moved on her own fucking herself on my dick, putting her arms behind her to support herself on my chest. This made her back to arch thrusting her tits out further, much to the delight of the two guys watching us. They now had a full on view of Vic's bouncing tits and her splayed pussy lips enveloping my cock sliding in and out of her. I could feel the individual muscles of her cunt milking my cock as she seemed to be having almost continuous mini orgasms. I sat up behind her and wrapped my arms around her taking her nipple in my left hand and her clit in my right. I gave her nipple a light pinch and twisted it between my fingers getting a satisfying gasp. I put my face just beside her ear and whispered "You seem to have quite the audience." 
 
  Vic froze instantly, sitting upright on my cock not moving, her eyes flew open. "How long have they been there?" She asked quietly. 
 
@@ -286,7 +296,11 @@
 
  
 
- ****** Victoria the Slut Ch. 01 ****** byLifeisgood21© ***** 
+ 
+
+===
+
+***** 
 
  I woke up late Sunday morning to the sun coming in the window and alone in bed, Victoria was already awake. I took my time getting up throwing on a pair of shorts and started looking around the cottage for my girlfriend. I found her standing out on the deck looking out over the water wearing only a little blue silk robe that just barely covered her ass. I came up behind Vic put my arms around her waist and she sank back into me. 
 
@@ -436,7 +450,11 @@
 
  
 
- ****** Victoria the Slut Ch. 01 ****** byLifeisgood21© "Yes! I want your cocks!" Vic purred and rolled over on to her hands and knees as quick as she could. As she changed positions Chris, Steve and I hurriedly dropped our shorts on the ground and knelt around Vic. Vic bent her head slightly and took Chris's cock in her mouth and my cock in her left hand jerking me off. 
+ 
+
+===
+
+"Yes! I want your cocks!" Vic purred and rolled over on to her hands and knees as quick as she could. As she changed positions Chris, Steve and I hurriedly dropped our shorts on the ground and knelt around Vic. Vic bent her head slightly and took Chris's cock in her mouth and my cock in her left hand jerking me off. 
 
  Steve had a huge grin on his face as he admired Vic's wiggling ass in front of him and her glistening pussy hanging between her ass cheeks. "Such a beautiful pussy can't wait to fuck her!" He exclaimed. Steve stroked his nice sized cock, that was around 8" long and thicker than average, then aimed the tip between her slippery lips. Steve pushed his cock slowly into Vic's cunt she let out a long moan around Chris's cock that she was currently working into her throat. "She is so fucking tight and sloppy wet! Wait until you try this cunt man!" Steve said sinking his cock all the way into my girlfriend. Once he had gotten his dick all the way into Vic he began fucking her slowly using short strokes and gradually speeding up. 
 
@@ -560,7 +578,11 @@
 
  
 
- ****** Victoria the Slut Ch. 01 ****** byLifeisgood21© Victoria finally came out of the water about 10 minutes later and walked back up to us water cascading of her naked body. Steve offered her the last beer and she took several sips. "Feel better now?" He asked. 
+ 
+
+===
+
+Victoria finally came out of the water about 10 minutes later and walked back up to us water cascading of her naked body. Steve offered her the last beer and she took several sips. "Feel better now?" He asked. 
 
  "Much! Thank you." She replied, standing in front of them wringing the water out of her hair. 
 
@@ -692,7 +714,11 @@
 
  
 
- ****** Victoria the Slut Ch. 01 ****** byLifeisgood21© Vic continued to leisurely grind her ass back against me her pussy muscles milking the last little bit of cum from my dick. I withdrew my dick from her and stood up and went to tie up the boat. Vic remained on her hands and knees for a bit longer before rising on to her knees. She smiled at me while she scooped my cum out of her pussy and cleaning her fingers off with her tongue. "Mmmm yum." She said. 
+ 
+
+===
+
+Vic continued to leisurely grind her ass back against me her pussy muscles milking the last little bit of cum from my dick. I withdrew my dick from her and stood up and went to tie up the boat. Vic remained on her hands and knees for a bit longer before rising on to her knees. She smiled at me while she scooped my cum out of her pussy and cleaning her fingers off with her tongue. "Mmmm yum." She said. 
 
  "Glad you enjoy it! I foresee you getting more in the future." I said smiling. 
 
@@ -708,7 +734,11 @@
 
  
 
- ****** Victoria the Slut Ch. 02 ****** byLifeisgood21© Chapter 02: The Club 
+ 
+
+===
+
+Chapter 02: The Club 
 
  It had been a week since Victoria, my girlfriend turned wanton slut, and I got back home from the cottage. Since then things between us had changed for the better, the sex was even better and we were almost constantly fucking anywhere and everywhere. Vic was naked all the time when she was at home and was only wore clothes when she went out or, to work. I had brought up that I didn't want her to wear panties at all, but she pointed out that she only wore them while it was her time of the month. The latest thing I instituted was, if she was home before me when I arrived she was to be waiting naked on her knees at the front door and was to suck my cock as soon as I walked in. 
 
@@ -860,7 +890,11 @@
 
  
 
- ****** Victoria the Slut Ch. 02 ****** byLifeisgood21© "Turn around again slut." I told her. Vic didn't hesitate at all and immediately turn to face us with her tits still hanging out. She took the opportunity and sipped her drink again. I grabbed bottom of her dress again this time at the front and lifted it up so that her dress slid up to her waist back and front. I stroked her pussy and made her spread her legs so we had a better view. 
+ 
+
+===
+
+"Turn around again slut." I told her. Vic didn't hesitate at all and immediately turn to face us with her tits still hanging out. She took the opportunity and sipped her drink again. I grabbed bottom of her dress again this time at the front and lifted it up so that her dress slid up to her waist back and front. I stroked her pussy and made her spread her legs so we had a better view. 
 
  "Fuck me! Look at that bald little cunt!" Tyler hooted, "That is once juicy looking cunt you have there slut!" 
 
@@ -972,7 +1006,11 @@
 
  
 
- ****** Victoria the Slut Ch. 02 ****** byLifeisgood21© Tyler got up off the chair and joined us on the couch. His massive black cock was still hard despite having just blown his load. He stood on the couch and guided Vic's head to his cock. "Open up slut, time to make you airtight!" He said. 
+ 
+
+===
+
+Tyler got up off the chair and joined us on the couch. His massive black cock was still hard despite having just blown his load. He stood on the couch and guided Vic's head to his cock. "Open up slut, time to make you airtight!" He said. 
 
  "Mmmmhmmmm!" Vic moaned around his cock as the tip passed her lips. She tried her best to open her mouth wider, but could still only fit the first few inches in. Instead she bobbed her head up and down making loud slurping noises and reached up with her right hand to cup his balls. 
 
@@ -1066,7 +1104,11 @@
 
  
 
- ****** Victoria the Slut Ch. 02 ****** byLifeisgood21© Vic headed back down the hall naked and slipped quietly into Rob's room. She slid into the bed and under the comforter looking for his cock. Rob was fast asleep when she found his soft member and sucked the whole thing into her warm mouth. She swirled her tongue around his cock and could feel it start to harden and grow. Vic slowly began to bob her head up and down as Rob's cock grew. She fondled his balls with her hand and soon Rob was rock hard. He let out a quiet moan stirring slightly, still more asleep than awake, his hand reaching for his now hard cock. "What the fuck!?" He said waking up instantly when his hand felt Vic's head moving up and down his cock. "What are you doing here?" He asked not bothering to stop Vic from sucking his dick. 
+ 
+
+===
+
+Vic headed back down the hall naked and slipped quietly into Rob's room. She slid into the bed and under the comforter looking for his cock. Rob was fast asleep when she found his soft member and sucked the whole thing into her warm mouth. She swirled her tongue around his cock and could feel it start to harden and grow. Vic slowly began to bob her head up and down as Rob's cock grew. She fondled his balls with her hand and soon Rob was rock hard. He let out a quiet moan stirring slightly, still more asleep than awake, his hand reaching for his now hard cock. "What the fuck!?" He said waking up instantly when his hand felt Vic's head moving up and down his cock. "What are you doing here?" He asked not bothering to stop Vic from sucking his dick. 
 
  "I just wanted to say good morning!" She said looking up from his cock, smiling. Vic kissed the tip sucking up a drop of pre cum. "Would you like me to stop?" 
 
@@ -1182,7 +1224,11 @@
 
  
 
- ****** Victoria the Slut Ch. 02 ****** byLifeisgood21© Tyler started to increase his speed and now had a third inch inside her. He was now pulling out over an inch then thrusting back in always getting a little more up her ass. "Your ass is so tight slut! Fuck your ass on my dick!" Tyler grunted pushing a fourth inch into her. 
+ 
+
+===
+
+Tyler started to increase his speed and now had a third inch inside her. He was now pulling out over an inch then thrusting back in always getting a little more up her ass. "Your ass is so tight slut! Fuck your ass on my dick!" Tyler grunted pushing a fourth inch into her. 
 
  "Ahhhh that feels so good!" Vic moaned louder. She slid a hand between her legs and found her open pussy. Vic slipped two fingers into her wet cunt fingering herself and grinding her own palm against her clit. She started rock back and forth in her doggie style position pulling Tyler's cock out of her ass then pushing herself back against his forward thrusts. "Ohhh... Mmmm... Ahhh..." She grunted with each thrust back as more and more of Tyler's cock forced into her obscenely stretched ass. 
 
@@ -1376,7 +1422,11 @@
 
  
 
- ****** Victoria the Slut Ch. 02 ****** byLifeisgood21© I stepped back and looked at Vic before me kneeling in the threshold naked. Her hair was a mess, her face was covered in cum and saliva, she was having trouble opening her left eye because the cum in it was starting to dry, her left tit was coated in cum and hanging from her nipple, plus there was a small river of cum running down through her cleavage to her flat stomach. Vic returned my gaze and smiled happily up at me, her right eye twinkling. 
+ 
+
+===
+
+I stepped back and looked at Vic before me kneeling in the threshold naked. Her hair was a mess, her face was covered in cum and saliva, she was having trouble opening her left eye because the cum in it was starting to dry, her left tit was coated in cum and hanging from her nipple, plus there was a small river of cum running down through her cleavage to her flat stomach. Vic returned my gaze and smiled happily up at me, her right eye twinkling. 
 
  "You look so sexy!" I told her reach into my pocket for my phone. 
 
@@ -1388,7 +1438,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© I wandered back into the house and made myself a coffee. Vic came down a few minutes later wearing jeans and a very tight low cut red t-shirt. "Well I am off. I will see you later this afternoon." She said, giving me a long kiss on the lips. 
+ 
+
+===
+
+I wandered back into the house and made myself a coffee. Vic came down a few minutes later wearing jeans and a very tight low cut red t-shirt. "Well I am off. I will see you later this afternoon." She said, giving me a long kiss on the lips. 
 
  I accompanied her to the door, pinching her ass as she left. "See you later." I said. 
 
@@ -1548,7 +1602,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "Yeah I agree I think it's time I fuck your sweet pussy!" I said standing up between her legs. 
+ 
+
+===
+
+"Yeah I agree I think it's time I fuck your sweet pussy!" I said standing up between her legs. 
 
  "Mmmm! Yes! I want your cock! Fuck my pussy!" She moaned. 
 
@@ -1700,7 +1758,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© I pounded her ass furiously while her orgasm took her and made her ass muscles tighten even more. This finally sent me over the edge and I began to cum. "Fuuucckk!" I yelled loudly. I pulled Jenny back hard against me burying my cock deep in her ass and pumping my entire load into her. I pulled her hard enough that she lost her grip on the backrest and collapsed into a heap on the chair. 
+ 
+
+===
+
+I pounded her ass furiously while her orgasm took her and made her ass muscles tighten even more. This finally sent me over the edge and I began to cum. "Fuuucckk!" I yelled loudly. I pulled Jenny back hard against me burying my cock deep in her ass and pumping my entire load into her. I pulled her hard enough that she lost her grip on the backrest and collapsed into a heap on the chair. 
 
  I held her like that for several moments while we both shook from our combined orgasms. Finally I regained my strength and slowly pulled my cock from Jenny's asshole. I sat down on the end of the lounge chair and looked at her. Jenny still wasn't moving and her ass was up in the air. Her pussy was splayed open and I could see drops of pussy juice on her lips. Her asshole was a dark wide open gaping hole that had a thin line of cum running from it down into her pussy. I reached over and lightly rubbed her bald pussy and Jenny moaned quietly. "You alive over there?" I asked. 
 
@@ -1832,7 +1894,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© Jenny's eyes were closed and she was vibrating in pleasure with every movement of Vic's tongue. "Ohhhhh fuckkkk!" She moaned loudly when Vic hit her clit, "That's it lick my pussy! Ohhhh my gooodddd I am going to cum!" Jenny arched her back and ground her snatch into Vic's invading tongue. She grabbed a handful of chair cushion in one hand while the other grabbed Vic's hair and pulled her mouth harder against her snatch. 
+ 
+
+===
+
+Jenny's eyes were closed and she was vibrating in pleasure with every movement of Vic's tongue. "Ohhhhh fuckkkk!" She moaned loudly when Vic hit her clit, "That's it lick my pussy! Ohhhh my gooodddd I am going to cum!" Jenny arched her back and ground her snatch into Vic's invading tongue. She grabbed a handful of chair cushion in one hand while the other grabbed Vic's hair and pulled her mouth harder against her snatch. 
 
  I started fucking Vic harder from behind and pushed her forward into Jenny with each thrust. Vic was moaning louder and grunting in pleasure with each thrust. She tried to push back against me, but Jenny's hand held her still. 
 
@@ -1966,7 +2032,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© The restaurant I picked was a nice one that was known for its food and its quiet ambience. I pulled in and noted that the parking lot was about half full indicating that it wouldn't be too busy inside. I parked and helped my two sluts out. They both slid out and the seat made their dresses ride up exposing their naked asses. There was one older couple that was walking by who saw them before they had a chance to adjust their clothing. The man stared, open mouthed, at the two sexy sluts accompanying me and their naked asses. His wife was pissed and dragged him away smacking him on the face in disgust. Once Vic and Jenny had adjusted their dresses and covered their ass cheeks back up I led them to the entrance, one slut on each arm. 
+ 
+
+===
+
+The restaurant I picked was a nice one that was known for its food and its quiet ambience. I pulled in and noted that the parking lot was about half full indicating that it wouldn't be too busy inside. I parked and helped my two sluts out. They both slid out and the seat made their dresses ride up exposing their naked asses. There was one older couple that was walking by who saw them before they had a chance to adjust their clothing. The man stared, open mouthed, at the two sexy sluts accompanying me and their naked asses. His wife was pissed and dragged him away smacking him on the face in disgust. Once Vic and Jenny had adjusted their dresses and covered their ass cheeks back up I led them to the entrance, one slut on each arm. 
 
  I opened the door and ushered the girls in. The hostess and her assistant looked up at us and openly stared for a second before asking us what kind of table we would like. I asked for a corner booth and the assistant hostess led us to our table in a dimly lit corner of the restaurant. The table was a mid- sized booth that could seat at least six and had two candles for light. There were partitioned half walls separating the dining areas and while there were other booths in our section only two were actually occupied so we had a bit of privacy. The hostess pointed to our booth and laid the menus on the table telling us that our waiter, Eric, would be around shortly. I thanked her and slid into the booth all the way to the middle while Jenny and Vic slid in on either side of me. With the dim lighting of the restaurant, even though there were people around us, it was hard to see us in the back of our booth unless someone was right in front of us. 
 
@@ -2138,7 +2208,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "As good a spot as any for a quick fuck!" Jenny agreed, joining Vic leaning against the dumpster with her ass out. 
+ 
+
+===
+
+"As good a spot as any for a quick fuck!" Jenny agreed, joining Vic leaning against the dumpster with her ass out. 
 
  Eric admired the two naked assed pointed in his direction trying to decide which naked slut he wanted to fuck first. With a silly grin on his face he stepped over to them, his hard cock leading the way. He ran a hand over each round ass while trying to pick who to fuck. Finally he stepped in behind Vic, grasping her hips in both hands he eased his dick into her dripping pussy. 
 
@@ -2310,7 +2384,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "Well I will fill you back up! I think it's time to fuck that juicy pussy of yours!" I said, pulling her towards me. 
+ 
+
+===
+
+"Well I will fill you back up! I think it's time to fuck that juicy pussy of yours!" I said, pulling her towards me. 
 
  "Oh..." My sexy Asian pouted, sitting up at my side. "I am going to get a chance to get your cock in me right?" She said with a mock sad face. 
 
@@ -2418,7 +2496,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "Ummm... For now, but we will see. You going to be up for it?" Vic giggled, looking over at me. 
+ 
+
+===
+
+"Ummm... For now, but we will see. You going to be up for it?" Vic giggled, looking over at me. 
 
  "I think I might want more in a little bit. Just need a little break." Jenny added, caressing Vic's tit and kissing her neck. 
 
@@ -2558,7 +2640,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© Vic stood up as well and loosened of the straps securing the strap-on with the help of Jenny, who pulled them down off her like a pair of underwear. "Ohh... mmm!" Vic said, letting out a little squeal as the little dildo popped out of her soaked pussy. 
+ 
+
+===
+
+Vic stood up as well and loosened of the straps securing the strap-on with the help of Jenny, who pulled them down off her like a pair of underwear. "Ohh... mmm!" Vic said, letting out a little squeal as the little dildo popped out of her soaked pussy. 
 
  "Looks like somebody almost came themselves!" Jenny said mischievously looking at the dildo soaked in Vic's pussy juices and giving it a long suck to clean it off. 
 
@@ -2690,7 +2776,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "Hahaha! I think she likes it! Don't you slut?" Eric asked with a laugh. 
+ 
+
+===
+
+"Hahaha! I think she likes it! Don't you slut?" Eric asked with a laugh. 
 
  "Uh-hu! Fuck me!" Jenny mumbled in agreement, now able to talk a little. 
 
@@ -2798,7 +2888,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "I would love to!" Jenny said in a husky voice. I watched as my sexy Asian slut crawled across my lap and between Vic's shapely legs. 
+ 
+
+===
+
+"I would love to!" Jenny said in a husky voice. I watched as my sexy Asian slut crawled across my lap and between Vic's shapely legs. 
 
  "Ohhhhh... Mmmmm!" Vic moaned, laying back against the couch and spreading her legs further for Jenny. 
 
@@ -2944,7 +3038,11 @@
 
  
 
- ****** Victoria the Slut Ch. 03 ****** byLifeisgood21© "Ahhhh... No please... Put it back in! Please keep fucking meee!" Jenny wailed, her snatch all of a sudden empty. Vic sucked on my cock for a couple more thrusts and the released me and nestled the tip between Jenny puffy lips. Without missing a beat I thrust forward again and this time buried my cock back in Jenny's heavenly pussy. "Ohhh fuuccckkk! Yes... Fuck... Please fuck me!" Jenny's wailed when I bottomed out in her. 
+ 
+
+===
+
+"Ahhhh... No please... Put it back in! Please keep fucking meee!" Jenny wailed, her snatch all of a sudden empty. Vic sucked on my cock for a couple more thrusts and the released me and nestled the tip between Jenny puffy lips. Without missing a beat I thrust forward again and this time buried my cock back in Jenny's heavenly pussy. "Ohhh fuuccckkk! Yes... Fuck... Please fuck me!" Jenny's wailed when I bottomed out in her. 
 
  While I continued to pound Jenny with my entire length Vic started to rub and tease Jenny's little clit with. "Oh yes! Yes! God that feels great! Don't stop! So close!" Jenny moaned. I fucked Jenny for a bit longer until Vic pulled me from Jenny's pussy and put me in her mouth. Vic sucked me, taking my cock deep in her throat, for a few moments before again putting my dick back at the entrance to Jenny's hole. Thrusting back in I kept fucking Jenny. 
 
@@ -3008,7 +3106,11 @@
 
  
 
- ****** Victoria the Slut Ch. 04 ****** byLifeisgood21© The remainder of our weekend after Jenny left was relaxing. Vic and I spent the rest of the day lounging by the pool, tanning and fucking. We had a bottle of wine with dinner and adjourned to the hot tub for a while before finishing up with a relaxing screw in bed. 
+ 
+
+===
+
+The remainder of our weekend after Jenny left was relaxing. Vic and I spent the rest of the day lounging by the pool, tanning and fucking. We had a bottle of wine with dinner and adjourned to the hot tub for a while before finishing up with a relaxing screw in bed. 
 
  Monday morning I was up early and out of the house just as Vic was getting up. She gave me a kiss at the front door, naked, before heading back upstairs to get ready for her own day. The day was hectic at the office, as most Mondays are, while we catch up with the business world following the weekend. I had planned on getting out of the office for lunch, but even that didn't work out. Eventually I was the last one in the office so I decided to head home around seven. 
 
@@ -3148,7 +3250,11 @@
 
  
 
- ****** Victoria the Slut Ch. 04 ****** byLifeisgood21© I pounded Jenny through her orgasm for a couple moments, her pussy muscles gripping at me like a vice. Just after Frank blew his load in Jenny's mouth I felt my balls contract. "Fuck yes!" I grunted loudly and buried my cock as deep in Jenny's wet cunt as I could. Holding her too me I felt my cock spasm a couple times as I coated her insides with my cum. 
+ 
+
+===
+
+I pounded Jenny through her orgasm for a couple moments, her pussy muscles gripping at me like a vice. Just after Frank blew his load in Jenny's mouth I felt my balls contract. "Fuck yes!" I grunted loudly and buried my cock as deep in Jenny's wet cunt as I could. Holding her too me I felt my cock spasm a couple times as I coated her insides with my cum. 
 
  I stayed buried in Jenny for half a minute, relishing the feel of her tight pussy twitching around my cock, before finally pulling out of her. "Ohhh fuck that felt so good." She moaned, collapsing in the passenger seat of the cab. Looking back over her shoulder, Frank's cum smeared all over her face, she said "Is that what you had in mind?" 
 
@@ -3300,7 +3406,11 @@
 
  
 
- ****** Victoria the Slut Ch. 04 ****** byLifeisgood21© I got into work a few minutes late, but being the boss nobody said anything. Sitting down at my desk I was soon buried in paperwork and several hours passed before I heard my cell buzz. Grabbing my phone I saw that Vic had sent me a text saying that she would be free for lunch around one if I was. Checking my schedule I figured I could make it so I replied telling her I would meet her at her office for one. Vic replied a minute later confirming everything and added that she had her Ben wha ball in her and that her pussy was super wet with excitement. 
+ 
+
+===
+
+I got into work a few minutes late, but being the boss nobody said anything. Sitting down at my desk I was soon buried in paperwork and several hours passed before I heard my cell buzz. Grabbing my phone I saw that Vic had sent me a text saying that she would be free for lunch around one if I was. Checking my schedule I figured I could make it so I replied telling her I would meet her at her office for one. Vic replied a minute later confirming everything and added that she had her Ben wha ball in her and that her pussy was super wet with excitement. 
 
  The next couple hours went by in a blur and then it was time for me to leave to meet Vic. Heading out of the office I said bye to my secretary and headed out to my truck. The drive over to the office tower where Vic worked was quick despite traffic. I found a convenient parking spot, parked my suburban and made my way up the elevators to the floor where Vic's worked. Asking the receptionist for directions I soon found Vic at her desk with and older gentleman leaning on it talking to her. He was probably in his late forties, well-kept with salt and pepper hair. I guessed he was close to six feet tall and looked like he was very fit. I recognized him as the head of the advertising company Vic worked. Vic caught sight of me and waved me over. "Hi Matt you remember my boss Brian." She said introducing us again. 
 
@@ -3440,7 +3550,11 @@
 
  
 
- ****** Victoria the Slut Ch. 04 ****** byLifeisgood21© "Good let's get going. We don't want to be late getting back for dessert." I said. Vic giggled, standing up and pulling her tight skirt down around her ass. She grabbed her suit jacket and put it on over her naked tits. "Just do the middle button." I told her. 
+ 
+
+===
+
+"Good let's get going. We don't want to be late getting back for dessert." I said. Vic giggled, standing up and pulling her tight skirt down around her ass. She grabbed her suit jacket and put it on over her naked tits. "Just do the middle button." I told her. 
 
  Vic did the middle button up leaving the top and bottom ones undone. The jacket now met just above her navel, pressing her tits together nicely and exposing her cleavage in the deep 'V'. The lapels of the suit jacket held her nipples in place so just the edges of her areolas were showing. 
 
@@ -3588,7 +3702,11 @@
 
  
 
- ****** Victoria the Slut Ch. 04 ****** byLifeisgood21© "Good lord that was amazing! I have never had a blowjob like that." He moaned with ecstasy. 
+ 
+
+===
+
+"Good lord that was amazing! I have never had a blowjob like that." He moaned with ecstasy. 
 
  Vic smiled again, but the hard cocks in her hands reminded her that there was more to come. She turned back to Eugene and started to suck his member with sloppy strokes. With one cock down she was able to focus her attention on the two remaining. Vic bobbed up and down on Eugene rapidly for a minute before switching to Bruce while she stroked both with her hands. Switching back and forth quickly she soon had both guys moaning with pleasure. After another minute or two of the sloppy blow jobs it was Bruce's turn to cum. 
 

@@ -1,8 +1,14 @@
+How High a Price: Another View
+==============================
 #1 
 
  
 
- ****** How High a Price: Another View ****** byE.Z.Riter© Dear Reader, 
+ 
+
+===
+
+Dear Reader, 
 
  The Troubador wrote a story entitled How High a Price in March, 2003, about a man and his cheating wife. That is always a popular subject. Since then, other authors have written stories based on The Troubador's theme and his characters, Early and Susan Conroy. 
 
@@ -238,7 +244,11 @@
 
  
 
- ****** How High a Price: Another View ****** byE.Z.Riter© "Good idea. Plan to watch me until further notice. I'm at home now." 
+ 
+
+===
+
+"Good idea. Plan to watch me until further notice. I'm at home now." 
 
  Early looked at his watch. It was almost seven. He hadn't slept in thirty-eight hours, yet he wasn't sleepy. He was drained emotionally and empty inside, but he wasn't tired. He was hungry. He got into his car, went to a burger joint, and got a meal to go. 
 

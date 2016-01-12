@@ -1,8 +1,14 @@
+Brandi and Kelly Ch. 01
+=======================
 #1 
 
  
 
- ****** Brandi and Kelly Ch. 01 ****** byStoryTeller07© Driving from Monterey Park, Brandi was pleased to be leaving her parent's home where an argument had ensued between her uncle and father. The Chinese New Year celebrations started with a bang then fizzled out with the usual quarrel whether they were Taiwanese Americans or Chinese Americans. It meant nothing to her, so she left them to it. 
+ 
+
+===
+
+Driving from Monterey Park, Brandi was pleased to be leaving her parent's home where an argument had ensued between her uncle and father. The Chinese New Year celebrations started with a bang then fizzled out with the usual quarrel whether they were Taiwanese Americans or Chinese Americans. It meant nothing to her, so she left them to it. 
 
  She also felt guilty because she had lied about returning to the apartment to complete an essay. If she had told them she was going to a club, her parents would have kicked up a fuss. A good Taiwanese girl should obey her parents and Brandi tried to, but how could she when studying at UCLA? There were just too many distractions. 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 01 ****** byStoryTeller07© "Just let me finish. No one is allowed to touch you in there if you 'belong' to me," he said, making quote marks in the air. "These people have rules. I know them, but that isn't enough for a good paper, I need to feel it, too," he said, with enthusiasm. 
+ 
+
+===
+
+"Just let me finish. No one is allowed to touch you in there if you 'belong' to me," he said, making quote marks in the air. "These people have rules. I know them, but that isn't enough for a good paper, I need to feel it, too," he said, with enthusiasm. 
 
  She looked at him a moment, admiring the intensity in his eyes. He was serious and if it meant better protection then maybe she could agree. 
 
@@ -456,7 +466,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 01 ****** byStoryTeller07© In class she could hardly concentrate, wanting to finger them. They itched a little but that wasn't it. At break time she would have to search out Kevin. Several times she had to shake off the feeling of being locked up by him. 
+ 
+
+===
+
+In class she could hardly concentrate, wanting to finger them. They itched a little but that wasn't it. At break time she would have to search out Kevin. Several times she had to shake off the feeling of being locked up by him. 
 
  When she asked a question of the lecturer, the little word, 'Sir' slithered from her lips. It had such a different meaning now. Or, did it? Wasn't it just a form of deferment, a way of showing respect? It was having an effect on her anyway. 
 
@@ -660,7 +674,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 02 ****** byStoryTeller07© "Wow! Look at this," Kevin said. 
+ 
+
+===
+
+"Wow! Look at this," Kevin said. 
 
  "What is it?" Brandi asked. With so many devices around the walls and in cupboards it was difficult to single out just one item. 
 
@@ -894,7 +912,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 02 ****** byStoryTeller07© She watched and felt a lip pulled from her pussy opening up this private place. The engorged red slit glistened with wet excitement. Thoughts baulked at the sensual messages being thrust into her mind. 
+ 
+
+===
+
+She watched and felt a lip pulled from her pussy opening up this private place. The engorged red slit glistened with wet excitement. Thoughts baulked at the sensual messages being thrust into her mind. 
 
  "This is one of the reasons why there is a rubber mat on the carpet. To catch any fluids," he chuckled to himself thinking of other interesting messes that might be made here. 
 
@@ -1110,7 +1132,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 02 ****** byStoryTeller07© "That damn shit Kevin and his friends are going to pay for this," Brandi growled, looking at her friend. "I'm sorry Kelly," she said. "I'm really sorry I got you into this." 
+ 
+
+===
+
+"That damn shit Kevin and his friends are going to pay for this," Brandi growled, looking at her friend. "I'm sorry Kelly," she said. "I'm really sorry I got you into this." 
 
  Kelly shook her head muttering something from around the bit. Brandi looked around listening carefully. Not hearing anyone she loosened the bit so her friend could talk. She watched her loosen her jaw with yawning like exercises. With concern writ large on her face and tears welling in her eyes Brandi looked all in. 
 
@@ -1346,7 +1372,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 02 ****** byStoryTeller07© She stood before him with head bowed, her dignity sinking to her feet, near to tears. 
+ 
+
+===
+
+She stood before him with head bowed, her dignity sinking to her feet, near to tears. 
 
  "You forgot to get her to count. Never mind, next time." John told him with a chuckle. "What next?" 
 
@@ -1360,7 +1390,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 03 ****** byStoryTeller07© A pet is trained. (If you are into BDSM you will be pleased to know the intensity increases with each chapter. So, keep reading!) 
+ 
+
+===
+
+A pet is trained. (If you are into BDSM you will be pleased to know the intensity increases with each chapter. So, keep reading!) 
 
  * 
 
@@ -1586,7 +1620,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 03 ****** byStoryTeller07© "You've done a good job of training your pet and it's nicely under control. The shape of its pussy is just perfect. I don't like long dangly lips, these are cute," someone said. 
+ 
+
+===
+
+"You've done a good job of training your pet and it's nicely under control. The shape of its pussy is just perfect. I don't like long dangly lips, these are cute," someone said. 
 
  Brandi wanted to kick him in the balls to show him just how well trained she was. How dare a stranger look and comment on her exposed pussy! This situation was so alien it was difficult to know what to do. 
 
@@ -1786,7 +1824,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 03 ****** byStoryTeller07© She wanted to lie under the hot water letting it splash her sex with the inevitable play for a much needed orgasm. Instead she dried her naked body ready to pad back on bare feet into the dungeon. She felt guilty as the sluts' moans and groans had settled into a pathetic pleading for an orgasm. 
+ 
+
+===
+
+She wanted to lie under the hot water letting it splash her sex with the inevitable play for a much needed orgasm. Instead she dried her naked body ready to pad back on bare feet into the dungeon. She felt guilty as the sluts' moans and groans had settled into a pathetic pleading for an orgasm. 
 
  Before Brandi could do anything Kevin returned with John. "Assume your position Pet Slave," John commanded. "You have no right to punish my slave." He stated. 
 
@@ -1854,7 +1896,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 04 ****** byStoryTeller07© Brandi 4 
+ 
+
+===
+
+Brandi 4 
 
  The Party 
 
@@ -2044,7 +2090,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 04 ****** byStoryTeller07© "Yes it's possible. He would keep her in his dungeon. I don't know where it is but he has one and she wouldn't be the only slave there. I think he imports Asian women to train and sell to wannabe Masters. He also sends women from here across the Pacific. That one over there is probably destined for Taiwan or Hong Kong." 
+ 
+
+===
+
+"Yes it's possible. He would keep her in his dungeon. I don't know where it is but he has one and she wouldn't be the only slave there. I think he imports Asian women to train and sell to wannabe Masters. He also sends women from here across the Pacific. That one over there is probably destined for Taiwan or Hong Kong." 
 
  "He covers up the slave trade with the antique importing business. I've tried to find out how he does it but haven't had much success. That's why I tolerate him here, to find his warehouse dungeon and gain more information about his operation. Do you intend to sell the slave, it's up to you." John told him. 
 
@@ -2210,7 +2260,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 04 ****** byStoryTeller07© "This part is hollow where the prong fits in. Once slid into place it can't be undone. It would have to be cut off and it's a special steel alloy, doesn't cut easily." 
+ 
+
+===
+
+"This part is hollow where the prong fits in. Once slid into place it can't be undone. It would have to be cut off and it's a special steel alloy, doesn't cut easily." 
 
  Brandi looked at it then looked up at Kevin. The look he gave the collar meant it could be the Holy Grail not just a plain loop of steel. "No! Kevin you can't expect me to accept that. Round here it has been, well, not exactly fun, but interesting. I don't want to make a commitment or even do this again. I know what we did together was important but it happened because of what you put me through." 
 
@@ -2400,7 +2454,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 04 ****** byStoryTeller07© "No! I haven't!" Brandi managed to reply in fury. Brandi wanted to say it had all been forced upon her but the intensity and submission of the last few days couldn't be explained away so easily. 
+ 
+
+===
+
+"No! I haven't!" Brandi managed to reply in fury. Brandi wanted to say it had all been forced upon her but the intensity and submission of the last few days couldn't be explained away so easily. 
 
  "OK, hang tight I'll be back in a few," and Cindy left the changing room. 
 
@@ -2568,7 +2626,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 05 ****** byStoryTeller07© Brandi and Kelly 5 
+ 
+
+===
+
+Brandi and Kelly 5 
 
  The Auction 
 
@@ -2758,7 +2820,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 05 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  The packing case had been opened with Brandi gagged and bound. Thomas tipped it over spilling the helpless woman onto the floor. 
 
@@ -2948,7 +3014,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 05 ****** byStoryTeller07© "Empty slave's cunt." Thomas ordered. Kelly squatted with knees spread wide and eased out the egg. Responding to his pointed finger she stood astride the nasty looking stool, making ready. Her fingers spread the lips of her pussy revealing the engorged inner folds. 
+ 
+
+===
+
+"Empty slave's cunt." Thomas ordered. Kelly squatted with knees spread wide and eased out the egg. Responding to his pointed finger she stood astride the nasty looking stool, making ready. Her fingers spread the lips of her pussy revealing the engorged inner folds. 
 
  Brandi wanted to look away, to at least give her friend some privacy, but couldn't. She looked on in morbid fascination as Kelly squatted with the large phallus poking at her sex. With her pussy shaved it was clear to see she was ready for it as it nudged her slick hole. As ordered she pushed her body down over it. She sank down on the big black phallus until it disappeared right up inside her. 
 
@@ -2980,7 +3050,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 06 ****** byStoryTeller07© A dungeon is a torment or pleasure depending on your point of view. 
+ 
+
+===
+
+A dungeon is a torment or pleasure depending on your point of view. 
 
  * 
 
@@ -3160,7 +3234,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 06 ****** byStoryTeller07© "Thank you for letting me cum, Master," Kelly said, without a hint of shame. 
+ 
+
+===
+
+"Thank you for letting me cum, Master," Kelly said, without a hint of shame. 
 
  The master stood before Kelly to have his cock sucked clean. He didn't have to order it for she knew what was expected of a slave. 
 
@@ -3354,7 +3432,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 06 ****** byStoryTeller07© Taking a shower Brandi thought over yet again the experience of being auctioned then sold to a complete stranger as a slave. It didn't feel bad, it was exciting. The touch of regret that she hadn't been sold as a trained slave was still there. 
+ 
+
+===
+
+Taking a shower Brandi thought over yet again the experience of being auctioned then sold to a complete stranger as a slave. It didn't feel bad, it was exciting. The touch of regret that she hadn't been sold as a trained slave was still there. 
 
  What it might be like could be lived out with Kevin if he had what it takes. The sealed envelope was there on her bed increasing a tingling feeling started by those naughty thoughts. 
 
@@ -3536,7 +3618,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 07 ****** byStoryTeller07© Ch. 07 Brandi and the bitches 
+ 
+
+===
+
+Ch. 07 Brandi and the bitches 
 
  Kelly lay in bed wondering if she would feel better wearing a 'sirik'. The tight bonds would leave her helpless, dependent on a master. She missed her master for he knew how to treat her; in the way she craved. 
 
@@ -3756,7 +3842,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 07 ****** byStoryTeller07© Teresa smiled knowing Cindy was thinking the same as her. She heard the thwack of a smack and knew Cindy hurt her hand on Brandi's ass for it wasn't followed up. Cindy was still peeved that she hadn't been included in the fun at the store a few weeks ago and was meaning to catch up. 
+ 
+
+===
+
+Teresa smiled knowing Cindy was thinking the same as her. She heard the thwack of a smack and knew Cindy hurt her hand on Brandi's ass for it wasn't followed up. Cindy was still peeved that she hadn't been included in the fun at the store a few weeks ago and was meaning to catch up. 
 
  It sunk in that Brandi hadn't even yelped and by the sound of it, it must have been a real stinger. Maybe she was used to rougher treatment. She would have to revise her opinion of the mild mannered Kevin. It would be interesting to find out what would make her yelp in pain. 
 
@@ -3894,7 +3984,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 08 ****** byStoryTeller07© Chapter 8 
+ 
+
+===
+
+Chapter 8 
 
  Brandi is in dire trouble 
 
@@ -4090,7 +4184,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 08 ****** byStoryTeller07© Fortunately his mistress was at last served a drink and turned to see her slave being molested. Seeing what was going on she slapped the guy's hand, which was quickly extracted from between the leash guys crotch. 
+ 
+
+===
+
+Fortunately his mistress was at last served a drink and turned to see her slave being molested. Seeing what was going on she slapped the guy's hand, which was quickly extracted from between the leash guys crotch. 
 
  He had been messing around with leash guys cock and balls. They didn't hear what was said but heard the slap and saw the wince from pain. 
 
@@ -4300,7 +4398,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 08 ****** byStoryTeller07© She patted Brandi's head mockingly as though she were just a pet bitch on a leash. She bent over and kissed her forehead, "There, there little pet girl, your mistress will take care of you. No need to fret," Teresa said, with a great amusement lighting her face. 
+ 
+
+===
+
+She patted Brandi's head mockingly as though she were just a pet bitch on a leash. She bent over and kissed her forehead, "There, there little pet girl, your mistress will take care of you. No need to fret," Teresa said, with a great amusement lighting her face. 
 
  Kevin gritted his teeth in frustration, wanting to strike the bitch for treating Brandi this way. He only just held on to the anger boiling away inside. He wondered if she would be able to summon the strength to resist Teresa but he couldn't count on it. 
 
@@ -4452,7 +4554,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 09 ****** byStoryTeller07© John arrived at the club to find Kevin angry and downing a second beer. "Forget it Kevin. Sometimes you just have to accept you lost. Whether it's a football game or a woman you just can't win them all. I'm not saying give up, just wait and see what happens. Step back to take a moment to think about your next move," John told him. 
+ 
+
+===
+
+John arrived at the club to find Kevin angry and downing a second beer. "Forget it Kevin. Sometimes you just have to accept you lost. Whether it's a football game or a woman you just can't win them all. I'm not saying give up, just wait and see what happens. Step back to take a moment to think about your next move," John told him. 
 
  He could see it wasn't going to be easy for the young man as it looked as though he had lost Brandi to a girl in her class. John figured it was her choice and she had chosen a friend from class over Kevin. 
 
@@ -4616,7 +4722,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 09 ****** byStoryTeller07© With the extra slack in the leash she fiddled with it only to find there were locks on both ends of it. She was going to have to endure a night on the floor at the feet of her tormentors. Thinking it was going to be a long night, instead, her eyes closed and she immediately fell fast asleep. 
+ 
+
+===
+
+With the extra slack in the leash she fiddled with it only to find there were locks on both ends of it. She was going to have to endure a night on the floor at the feet of her tormentors. Thinking it was going to be a long night, instead, her eyes closed and she immediately fell fast asleep. 
 
  *** 
 
@@ -4778,7 +4888,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 09 ****** byStoryTeller07© A collar was slipped around Cindy's neck making her jump when it snapped loudly closed. Her wrists were eased out of the loop of rope to be dragged to where Brandi stood waiting. Cindy was relieved with the pain in her arms receding, unaware of the dire entanglement before her. She didn't bother to look at Brandi for she was withdrawing into herself, away from the harsh realities of the BDSM store. A chain was pulled from the ceiling and clipped to the collar. 
+ 
+
+===
+
+A collar was slipped around Cindy's neck making her jump when it snapped loudly closed. Her wrists were eased out of the loop of rope to be dragged to where Brandi stood waiting. Cindy was relieved with the pain in her arms receding, unaware of the dire entanglement before her. She didn't bother to look at Brandi for she was withdrawing into herself, away from the harsh realities of the BDSM store. A chain was pulled from the ceiling and clipped to the collar. 
 
  Brandi took a good look at the collar around Cindy's neck confirming what it was and closed her eyes tight. This answered the fearful question of whether this woman intended to keep them for long or let them go at closing time. The collar was a tube of titanium with a devious ratchet catch inside. Once pushed closed the teeth won't pull apart, ever. 
 
@@ -4936,7 +5050,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 09 ****** byStoryTeller07© Janet watched him trying to make sense of what had happened. She had judged him right. He was an ass. He was a nice gentle donkey but nevertheless a stupid ass when it came to real life and real people. She had wanted to mother him in her own peculiar way. She walked him to the door. "I must go home to my husband now. He must never find out I am your sex slave, master, or he will kill me," she said, with a doleful look creasing her features. 
+ 
+
+===
+
+Janet watched him trying to make sense of what had happened. She had judged him right. He was an ass. He was a nice gentle donkey but nevertheless a stupid ass when it came to real life and real people. She had wanted to mother him in her own peculiar way. She walked him to the door. "I must go home to my husband now. He must never find out I am your sex slave, master, or he will kill me," she said, with a doleful look creasing her features. 
 
  He said little as she kept talking overwhelming him with ideas. He looked shocked over hearing she had a husband but it worked as a means of keeping him at bay. He was soon ushered out of the store on his way, unaware of where he was or where he was going. 
 
@@ -5108,7 +5226,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 09 ****** byStoryTeller07© "No I gave her as present to Judy. I'm sure she looks after her well, you know Judy, she's nice, spoils her little pets something rotten," Nelly smiled. The girl had been a right pain in the ass and when eventually giving up on her training, Nelly placed the slave in a whore house. She would bet on Janet checking up with Judy so she would have to phone to agree a cover story. Judy owed her a favour anyway. 
+ 
+
+===
+
+"No I gave her as present to Judy. I'm sure she looks after her well, you know Judy, she's nice, spoils her little pets something rotten," Nelly smiled. The girl had been a right pain in the ass and when eventually giving up on her training, Nelly placed the slave in a whore house. She would bet on Janet checking up with Judy so she would have to phone to agree a cover story. Judy owed her a favour anyway. 
 
  "Have you thought about a mod making it into a slave suck?" Nelly asked, as a way of changing the subject. 
 
@@ -5148,7 +5270,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 10 ****** byStoryTeller07© Brandi had lapped at her new mistress like a good little kitten. First her nipples, then between her legs she had licked and licked. She worked hard, giving her mistress an orgasm that helped the mistress sleep. 
+ 
+
+===
+
+Brandi had lapped at her new mistress like a good little kitten. First her nipples, then between her legs she had licked and licked. She worked hard, giving her mistress an orgasm that helped the mistress sleep. 
 
  Brandi was lying awake wondering what was to become of her. It had been a turbulent few weeks and she missed her friend, Kelly. 
 
@@ -5318,7 +5444,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 10 ****** byStoryTeller07© Why in hell did the mistress let that man abuse them when she was supposed to protect her slaves? It seemed everyone didn't think about slaves the same way as Big John at the slave farm. 
+ 
+
+===
+
+Why in hell did the mistress let that man abuse them when she was supposed to protect her slaves? It seemed everyone didn't think about slaves the same way as Big John at the slave farm. 
 
  During the next hour several customers came over to try out a variety of devices on them. It seemed to be a successful sales afternoon for Janet. 
 
@@ -5384,7 +5514,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 11 ****** byStoryTeller07© Chapter 11 
+ 
+
+===
+
+Chapter 11 
 
  The Escape 
 
@@ -5582,7 +5716,11 @@
 
  
 
- ****** Brandi and Kelly Ch. 11 ****** byStoryTeller07© Michelle slut stood up and patted Brandi on the shoulder. "You had me well and truly fucked when you were first here. No need to blush and look coy. Anytime you need a dirty fuck toy, I'm always very willing," she sincerely stated. 
+ 
+
+===
+
+Michelle slut stood up and patted Brandi on the shoulder. "You had me well and truly fucked when you were first here. No need to blush and look coy. Anytime you need a dirty fuck toy, I'm always very willing," she sincerely stated. 
 
  Brandi sat by herself trying to absorb all she had learnt, attempting to fit it all in with what the slave had said. When taken to the slave farm by Kevin she had no idea what it was all about. It had all been a joke; just a fun game. There was a serious dark side, which mirrored the hardships of the vanilla life out there. 
 

@@ -1,8 +1,14 @@
+Exhibitionist Wife Ch. 01
+=========================
 #1 
 
  
 
- ****** Exhibitionist Wife Ch. 01 ****** byStoryTeller07© Just a thong 
+ 
+
+===
+
+Just a thong 
 
  'I'm thirty-eight, so too old to flash my boobs around,' Felicity complained. 
 
@@ -182,7 +188,11 @@
 
  
 
- ****** Exhibitionist Wife Ch. 01 ****** byStoryTeller07© Turning to her husband, she exclaimed, 'Oh! Who are you?' 
+ 
+
+===
+
+Turning to her husband, she exclaimed, 'Oh! Who are you?' 
 
  Her voice was a squeak of fear. 
 
@@ -406,7 +416,11 @@
 
  
 
- ****** Exhibitionist Wife Ch. 01 ****** byStoryTeller07© When they pulled away he had a big satisfied grin on his face. She wondered if he had cum in his pants. Was that a compliment, or a sorry comment on her flashing him. The couple hadn't notice her at all, as they were too busy arguing over the shopping they were carrying. 
+ 
+
+===
+
+When they pulled away he had a big satisfied grin on his face. She wondered if he had cum in his pants. Was that a compliment, or a sorry comment on her flashing him. The couple hadn't notice her at all, as they were too busy arguing over the shopping they were carrying. 
 
  'You can't blame me for that. You were the one who stripped off,' he playfully scolded her. 
 
@@ -414,7 +428,11 @@
 
  
 
- ****** Exhibitionist Wife Ch. 02 ****** byStoryTeller07© Felicity felt as though she'd been on fire over the last three days. From the moment they first played the naughty games, she could think of nothing else, with powerful imaginings flooding her mind with a continuous arousal. Being so heated up for so long, left her vulnerable to her husband's suggestions. She'd do almost anything to have them arrive home highly excited, ready to have wonderful uninhibited sex. 
+ 
+
+===
+
+Felicity felt as though she'd been on fire over the last three days. From the moment they first played the naughty games, she could think of nothing else, with powerful imaginings flooding her mind with a continuous arousal. Being so heated up for so long, left her vulnerable to her husband's suggestions. She'd do almost anything to have them arrive home highly excited, ready to have wonderful uninhibited sex. 
 
  
 
@@ -612,7 +630,11 @@
 
  
 
- ****** Exhibitionist Wife Ch. 02 ****** byStoryTeller07© In the store front reflections she could see strangers react to the exposed cheek. Smiles, outrage, and arousal, were revealed on many faces. At the exit doors the two workmen were before them, lunch boxes in hand, returning to refurbish the store. 
+ 
+
+===
+
+In the store front reflections she could see strangers react to the exposed cheek. Smiles, outrage, and arousal, were revealed on many faces. At the exit doors the two workmen were before them, lunch boxes in hand, returning to refurbish the store. 
 
  'You know where we're working. Come on over when you're finished with him,' one of them seriously spoke. 'We'll pay you well to spend the afternoon with us,' he added. 
 
@@ -822,7 +844,11 @@
 
  
 
- ****** Exhibitionist Wife Ch. 02 ****** byStoryTeller07© Felicity really did feel alone now. More eighteen year olds climbed onto the bus, adding to the press of bodies around her. Why weren't they driving to school, damn it? It didn't help her that parking would be available tomorrow, after the parking lot was re-furbished. They were bolder now, with exploring hands everywhere. 
+ 
+
+===
+
+Felicity really did feel alone now. More eighteen year olds climbed onto the bus, adding to the press of bodies around her. Why weren't they driving to school, damn it? It didn't help her that parking would be available tomorrow, after the parking lot was re-furbished. They were bolder now, with exploring hands everywhere. 
 
  The bus came to a sudden halt, swaying them all forward. In desperation she pushed aside one lad, and beamed in delight. Philip took her hand to guide her down the steps to safety. All of a fluster, she spluttered an explanation which made little sense. 
 

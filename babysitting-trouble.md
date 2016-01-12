@@ -1,10 +1,16 @@
+Babysitting Trouble Ch. 01
+==========================
 #1  
 
  
 
  
 
-  ****** Babysitting Trouble Ch. 01 ****** byStoryTeller07© "Oh thanks Sara you're a life saver." Martha gushed. "The babysitter let us down and the tickets are so expensive. I've been looking forward to seeing the show for simply ages."  
+  
+
+===
+
+"Oh thanks Sara you're a life saver." Martha gushed. "The babysitter let us down and the tickets are so expensive. I've been looking forward to seeing the show for simply ages."  
 
   "Yes, yes I know you said on the phone. I wouldn't do it for anyone else you know." Sara told her neighbour. "Just don't tell anyone else or I'll get stuck with phone calls from everyone." Sara said. Sometimes she wondered why the silly woman was on her list of friends.  
 
@@ -222,7 +228,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 01 ****** byStoryTeller07© She was surprised on feeling his tongue enter her mouth in return, gently exploring. The earlier bath time fantasy had prepared her body and the prancing around naked had made her angry yet it too added to her excitement. Now the wine had loosened her inhibitions.  
+  
+
+===
+
+She was surprised on feeling his tongue enter her mouth in return, gently exploring. The earlier bath time fantasy had prepared her body and the prancing around naked had made her angry yet it too added to her excitement. Now the wine had loosened her inhibitions.  
 
   She stiffened on feeling a hand delve into the thin cotton gown. His free hand held her head pressing his mouth tight onto hers.  
 
@@ -436,7 +446,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 01 ****** byStoryTeller07© "Oh thanks Sara you're a life saver." Martha gushed. "The babysitter let us down and the tickets are so expensive. I've been looking forward to seeing the show for simply ages." 
+ 
+
+===
+
+"Oh thanks Sara you're a life saver." Martha gushed. "The babysitter let us down and the tickets are so expensive. I've been looking forward to seeing the show for simply ages." 
 
  "Yes, yes I know you said on the phone. I wouldn't do it for anyone else you know." Sara told her neighbour. "Just don't tell anyone else or I'll get stuck with phone calls from everyone." Sara said. Sometimes she wondered why the silly woman was on her list of friends. 
 
@@ -650,7 +664,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 01 ****** byStoryTeller07© She was surprised on feeling his tongue enter her mouth in return, gently exploring. The earlier bath time fantasy had prepared her body and the prancing around naked had made her angry yet it too added to her excitement. Now the wine had loosened her inhibitions. 
+ 
+
+===
+
+She was surprised on feeling his tongue enter her mouth in return, gently exploring. The earlier bath time fantasy had prepared her body and the prancing around naked had made her angry yet it too added to her excitement. Now the wine had loosened her inhibitions. 
 
  She stiffened on feeling a hand delve into the thin cotton gown. His free hand held her head pressing his mouth tight onto hers. 
 
@@ -866,7 +884,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 02 ****** byStoryTeller07© Sara had agreed to house-sit while her friend was away, just in case the son hosted a party and the house got wrecked. He was eighteen and it was summer holidays so who knew what kind of trouble he might get into. Only it was Sara who got into trouble.  
+  
+
+===
+
+Sara had agreed to house-sit while her friend was away, just in case the son hosted a party and the house got wrecked. He was eighteen and it was summer holidays so who knew what kind of trouble he might get into. Only it was Sara who got into trouble.  
 
   At thirty-two she should have been on her guard around him and his friend but she was sure of herself. The neighbour teasing beauty could look after herself as she had experience in keeping men in check so these youths shouldn't have been any bother.  
 
@@ -1052,7 +1074,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 02 ****** byStoryTeller07© "Not loud enough." He told her.  
+  
+
+===
+
+"Not loud enough." He told her.  
 
   All those young lads were watching him demean her, reducing her to a nervous wreck. She wanted to shout at him and curse them all. She felt betrayed for they had just stood by watching. At last it was nearly over and she could run to the bathroom and lock herself in.  
 
@@ -1240,7 +1266,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 02 ****** byStoryTeller07© A thin waist accentuated her breasts and every time she moved they brushed his hands. She didn't seem to notice but he was more afraid of her discovering the hardness growing in his jeans. It was pressed against her bottom growing more potent. Every time they heard a noise she pressed back into the corner pushing against his hard cock.  
+  
+
+===
+
+A thin waist accentuated her breasts and every time she moved they brushed his hands. She didn't seem to notice but he was more afraid of her discovering the hardness growing in his jeans. It was pressed against her bottom growing more potent. Every time they heard a noise she pressed back into the corner pushing against his hard cock.  
 
   Harry couldn't bear the thought she would discover his erection and be repelled by him. He wanted to save her from those animals not be thought of as one of them. He was afraid he might cum in his pants but couldn't let go of his babysitters' wonderful warm body.  
 
@@ -1344,7 +1374,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 02 ****** byStoryTeller07© Sara had agreed to house-sit while her friend was away, just in case the son hosted a party and the house got wrecked. He was eighteen and it was summer holidays so who knew what kind of trouble he might get into. Only it was Sara who got into trouble. 
+ 
+
+===
+
+Sara had agreed to house-sit while her friend was away, just in case the son hosted a party and the house got wrecked. He was eighteen and it was summer holidays so who knew what kind of trouble he might get into. Only it was Sara who got into trouble. 
 
  At thirty-two she should have been on her guard around him and his friend but she was sure of herself. The neighbour teasing beauty could look after herself as she had experience in keeping men in check so these youths shouldn't have been any bother. 
 
@@ -1526,7 +1560,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 02 ****** byStoryTeller07© "Not loud enough." He told her. 
+ 
+
+===
+
+"Not loud enough." He told her. 
 
  All those young lads were watching him demean her, reducing her to a nervous wreck. She wanted to shout at him and curse them all. She felt betrayed for they had just stood by watching. At last it was nearly over and she could run to the bathroom and lock herself in. 
 
@@ -1712,7 +1750,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 02 ****** byStoryTeller07© A thin waist accentuated her breasts and every time she moved they brushed his hands. She didn't seem to notice but he was more afraid of her discovering the hardness growing in his jeans. It was pressed against her bottom growing more potent. Every time they heard a noise she pressed back into the corner pushing against his hard cock. 
+ 
+
+===
+
+A thin waist accentuated her breasts and every time she moved they brushed his hands. She didn't seem to notice but he was more afraid of her discovering the hardness growing in his jeans. It was pressed against her bottom growing more potent. Every time they heard a noise she pressed back into the corner pushing against his hard cock. 
 
  Harry couldn't bear the thought she would discover his erection and be repelled by him. He wanted to save her from those animals not be thought of as one of them. He was afraid he might cum in his pants but couldn't let go of his babysitters' wonderful warm body. 
 
@@ -1818,7 +1860,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 03 ****** byStoryTeller07© Brian took Sara over to the wall and fastened her wrists then wrapped the rope around a wall lamp holding both arms above her head. Sara closed her eyes in shame at her nakedness before the boys standing examining her. "Please Brian cover me up its so bad letting them see me like this. You've had your fun now please let me go." She demanded.  
+  
+
+===
+
+Brian took Sara over to the wall and fastened her wrists then wrapped the rope around a wall lamp holding both arms above her head. Sara closed her eyes in shame at her nakedness before the boys standing examining her. "Please Brian cover me up its so bad letting them see me like this. You've had your fun now please let me go." She demanded.  
 
   Brian slapped her face. "Shut up slut. Just keep quiet and stand there like the good little slutty tease you are. You're no longer the one in charge, I am. The rest of the guys will be around soon to keep that pretty mouth of yours busy." He said. Brian had a look of satisfaction on his face from showing his friends he had the arrogant babysitter exactly where he wanted her.  
 
@@ -2022,7 +2068,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 03 ****** byStoryTeller07© "I can't believe I did that to you and you wanted me so much." He said. He slipped into the Jacuzzi and splashed around in an exuberant mood then returned to her side.  
+  
+
+===
+
+"I can't believe I did that to you and you wanted me so much." He said. He slipped into the Jacuzzi and splashed around in an exuberant mood then returned to her side.  
 
   He sat next to her examining the luscious naked body, the skin so perfect and smooth. "Don't cover yourself." He pulled her arms away from her breasts, pulled her legs apart wanting to see everything. Her pussy was shaved so smooth it looked delicious. He had never seen a woman so close before and marvelled at the folds of her pussy.  
 
@@ -2174,7 +2224,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 03 ****** byStoryTeller07© Brian took Sara over to the wall and fastened her wrists then wrapped the rope around a wall lamp holding both arms above her head. Sara closed her eyes in shame at her nakedness before the boys standing examining her. "Please Brian cover me up its so bad letting them see me like this. You've had your fun now please let me go." She demanded. 
+ 
+
+===
+
+Brian took Sara over to the wall and fastened her wrists then wrapped the rope around a wall lamp holding both arms above her head. Sara closed her eyes in shame at her nakedness before the boys standing examining her. "Please Brian cover me up its so bad letting them see me like this. You've had your fun now please let me go." She demanded. 
 
  Brian slapped her face. "Shut up slut. Just keep quiet and stand there like the good little slutty tease you are. You're no longer the one in charge, I am. The rest of the guys will be around soon to keep that pretty mouth of yours busy." He said. Brian had a look of satisfaction on his face from showing his friends he had the arrogant babysitter exactly where he wanted her. 
 
@@ -2376,7 +2430,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 03 ****** byStoryTeller07© "I can't believe I did that to you and you wanted me so much." He said. He slipped into the Jacuzzi and splashed around in an exuberant mood then returned to her side. 
+ 
+
+===
+
+"I can't believe I did that to you and you wanted me so much." He said. He slipped into the Jacuzzi and splashed around in an exuberant mood then returned to her side. 
 
  He sat next to her examining the luscious naked body, the skin so perfect and smooth. "Don't cover yourself." He pulled her arms away from her breasts, pulled her legs apart wanting to see everything. Her pussy was shaved so smooth it looked delicious. He had never seen a woman so close before and marvelled at the folds of her pussy. 
 
@@ -2530,7 +2588,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 04 ****** byStoryTeller07© Sara awoke from a night sleep disturbed by dreams of pirates; being captured and relentlessly raped by them, one after another, then rescued. She shook off the dreamy state for dark memories of yesterday to replace the fantasy.  
+  
+
+===
+
+Sara awoke from a night sleep disturbed by dreams of pirates; being captured and relentlessly raped by them, one after another, then rescued. She shook off the dreamy state for dark memories of yesterday to replace the fantasy.  
 
   'Surely yesterday couldn't have been real.' She thought, needing it to be just another dream. Opening her eyes she wondered where she was for a moment then realised it was her friends' guest bedroom. Martha had arrived home late from the theatre and asked Sara to stay the night so as to make an early start on a visit to her sister.  
 
@@ -2720,7 +2782,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 04 ****** byStoryTeller07© "Oh! Stop it, Harry please!" She said, not daring to move. Squirming around on the vibrator moved the rubber thing over her clit so she dare not move. To relieve the pressure between her legs she parted both feet and thighs.  
+  
+
+===
+
+"Oh! Stop it, Harry please!" She said, not daring to move. Squirming around on the vibrator moved the rubber thing over her clit so she dare not move. To relieve the pressure between her legs she parted both feet and thighs.  
 
   "You had better get a gown on as the Pizza guy will be here soon. I shouldn't go to the door like that showing off your lovely tits as he has a bit of a reputation."  
 
@@ -2964,7 +3030,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 04 ****** byStoryTeller07© It was difficult but he managed to pull the chastity belt away from her crotch. Pulling the vibrator from her soaking wet pussy was fascinating. He knelt before her his eyes in line with glistening lips, so very swollen with passion.  
+  
+
+===
+
+It was difficult but he managed to pull the chastity belt away from her crotch. Pulling the vibrator from her soaking wet pussy was fascinating. He knelt before her his eyes in line with glistening lips, so very swollen with passion.  
 
   "Did you want to stick your dick into me like that creep?"  
 
@@ -3078,7 +3148,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 04 ****** byStoryTeller07© Sara awoke from a night sleep disturbed by dreams of pirates; being captured and relentlessly raped by them, one after another, then rescued. She shook off the dreamy state for dark memories of yesterday to replace the fantasy. 
+ 
+
+===
+
+Sara awoke from a night sleep disturbed by dreams of pirates; being captured and relentlessly raped by them, one after another, then rescued. She shook off the dreamy state for dark memories of yesterday to replace the fantasy. 
 
  'Surely yesterday couldn't have been real.' She thought, needing it to be just another dream. Opening her eyes she wondered where she was for a moment then realised it was her friends' guest bedroom. Martha had arrived home late from the theatre and asked Sara to stay the night so as to make an early start on a visit to her sister. 
 
@@ -3264,7 +3338,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 04 ****** byStoryTeller07© "Oh! Stop it, Harry please!" She said, not daring to move. Squirming around on the vibrator moved the rubber thing over her clit so she dare not move. To relieve the pressure between her legs she parted both feet and thighs. 
+ 
+
+===
+
+"Oh! Stop it, Harry please!" She said, not daring to move. Squirming around on the vibrator moved the rubber thing over her clit so she dare not move. To relieve the pressure between her legs she parted both feet and thighs. 
 
  "You had better get a gown on as the Pizza guy will be here soon. I shouldn't go to the door like that showing off your lovely tits as he has a bit of a reputation." 
 
@@ -3506,7 +3584,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 04 ****** byStoryTeller07© It was difficult but he managed to pull the chastity belt away from her crotch. Pulling the vibrator from her soaking wet pussy was fascinating. He knelt before her his eyes in line with glistening lips, so very swollen with passion. 
+ 
+
+===
+
+It was difficult but he managed to pull the chastity belt away from her crotch. Pulling the vibrator from her soaking wet pussy was fascinating. He knelt before her his eyes in line with glistening lips, so very swollen with passion. 
 
  "Did you want to stick your dick into me like that creep?" 
 
@@ -3620,7 +3702,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© Sara kept out of the way by tidying up while trying hard not to think about what had happened yesterday and that morning. At least Harry seemed sated from all the passionate sex they had indulged in as he too kept out of the way in his room.  
+  
+
+===
+
+Sara kept out of the way by tidying up while trying hard not to think about what had happened yesterday and that morning. At least Harry seemed sated from all the passionate sex they had indulged in as he too kept out of the way in his room.  
 
   She was sure he would keep their secret from his parents so all she needed to do was talk to Brian. He had so much influence over his friends she was sure he could bully them into not blabbing.  
 
@@ -3822,7 +3908,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© With both wrists tied above her head she had no option but stand before him in the little dress hiked up around her thighs. It wouldn't have been quite so bad if she were wearing panties.  
+  
+
+===
+
+With both wrists tied above her head she had no option but stand before him in the little dress hiked up around her thighs. It wouldn't have been quite so bad if she were wearing panties.  
 
   "Respect for you? You're just a slut, a common whore, a cock sucking whore and you know it, so don't open your mouth again." He warned her.  
 
@@ -4024,7 +4114,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© In this neighbourhood the few acquaintances she made could be fobbed off by his mother. The parents could just tell anyone who asked she had joined their crazy sect. This view of her life ahead looked grim; a life of drudgery by day and sex object by night. She felt so stupid having trapped herself in this appalling situation!  
+  
+
+===
+
+In this neighbourhood the few acquaintances she made could be fobbed off by his mother. The parents could just tell anyone who asked she had joined their crazy sect. This view of her life ahead looked grim; a life of drudgery by day and sex object by night. She felt so stupid having trapped herself in this appalling situation!  
 
   The only hope was if Harry missed her and managed to find where she was. Would he be able to find the courage to face Brian and his gang to save her? It was just so humiliating to be dependent on that young man's crush on her. A rush of ice cold fear worked its way up her spine to freeze her thoughts.  
 
@@ -4202,7 +4296,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© She felt his fingers squeezing her nipples and it drove her on. "Are you going to give your damsel your cock Harry?" Sara was breathing heavily past the point of no return. "Fuck me, make me yours my hero. Let me ride your cock."  
+  
+
+===
+
+She felt his fingers squeezing her nipples and it drove her on. "Are you going to give your damsel your cock Harry?" Sara was breathing heavily past the point of no return. "Fuck me, make me yours my hero. Let me ride your cock."  
 
   "I'm going to fuck you slut, hard and fast." He said.  
 
@@ -4262,7 +4360,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© Sara kept out of the way by tidying up while trying hard not to think about what had happened yesterday and that morning. At least Harry seemed sated from all the passionate sex they had indulged in as he too kept out of the way in his room. 
+ 
+
+===
+
+Sara kept out of the way by tidying up while trying hard not to think about what had happened yesterday and that morning. At least Harry seemed sated from all the passionate sex they had indulged in as he too kept out of the way in his room. 
 
  She was sure he would keep their secret from his parents so all she needed to do was talk to Brian. He had so much influence over his friends she was sure he could bully them into not blabbing. 
 
@@ -4462,7 +4564,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© With both wrists tied above her head she had no option but stand before him in the little dress hiked up around her thighs. It wouldn't have been quite so bad if she were wearing panties. 
+ 
+
+===
+
+With both wrists tied above her head she had no option but stand before him in the little dress hiked up around her thighs. It wouldn't have been quite so bad if she were wearing panties. 
 
  "Respect for you? You're just a slut, a common whore, a cock sucking whore and you know it, so don't open your mouth again." He warned her. 
 
@@ -4662,7 +4768,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© In this neighbourhood the few acquaintances she made could be fobbed off by his mother. The parents could just tell anyone who asked she had joined their crazy sect. This view of her life ahead looked grim; a life of drudgery by day and sex object by night. She felt so stupid having trapped herself in this appalling situation! 
+ 
+
+===
+
+In this neighbourhood the few acquaintances she made could be fobbed off by his mother. The parents could just tell anyone who asked she had joined their crazy sect. This view of her life ahead looked grim; a life of drudgery by day and sex object by night. She felt so stupid having trapped herself in this appalling situation! 
 
  The only hope was if Harry missed her and managed to find where she was. Would he be able to find the courage to face Brian and his gang to save her? It was just so humiliating to be dependent on that young man's crush on her. A rush of ice cold fear worked its way up her spine to freeze her thoughts. 
 
@@ -4836,7 +4946,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 05 ****** byStoryTeller07© She felt his fingers squeezing her nipples and it drove her on. "Are you going to give your damsel your cock Harry?" Sara was breathing heavily past the point of no return. "Fuck me, make me yours my hero. Let me ride your cock." 
+ 
+
+===
+
+She felt his fingers squeezing her nipples and it drove her on. "Are you going to give your damsel your cock Harry?" Sara was breathing heavily past the point of no return. "Fuck me, make me yours my hero. Let me ride your cock." 
 
  "I'm going to fuck you slut, hard and fast." He said. 
 
@@ -4898,7 +5012,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© Sara was getting a drink from the fridge when the phone rang. "Hi Martha how's things. Yea he's here." She handed Harry the phone quickly not wanting to speak to her friend after having just had a naughty sex session with her son.  
+  
+
+===
+
+Sara was getting a drink from the fridge when the phone rang. "Hi Martha how's things. Yea he's here." She handed Harry the phone quickly not wanting to speak to her friend after having just had a naughty sex session with her son.  
 
   "I asked Sara if I could stay and work late on the college project is that OK." He said.  
 
@@ -5064,7 +5182,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© While she hesitated reliving that dreadful nightmare the change in Brian's attitude was missed. It was a fateful mistake taking her eye off him as he was too dangerous a character not to watch carefully.  
+  
+
+===
+
+While she hesitated reliving that dreadful nightmare the change in Brian's attitude was missed. It was a fateful mistake taking her eye off him as he was too dangerous a character not to watch carefully.  
 
   He stepped forward grabbing her wrist and with another step was behind her twisting an arm up her back. "Nicely done, Andy." He said to his partner in crime.  
 
@@ -5300,7 +5422,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© "She's really a nasty whore. I told you guys, just fuck her and she will take it all." Brian told the others waiting their turn.  
+  
+
+===
+
+"She's really a nasty whore. I told you guys, just fuck her and she will take it all." Brian told the others waiting their turn.  
 
   It sounded as though she was cursing them but the muffled words were very different. "Punish me you little shit. Rape my holes, you deserved to lose the game because you suck. Not as good as me though I suck cock real good because they taught me so well with all those little creeps' dicks deep in my throat." She ranted.  
 
@@ -5520,7 +5646,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© She crawled on hands and knees to him looking up into his face with an earnest plea. No sign of shame was there just a look of lust. "Please fuck my wet cunt. You're little slave, Sara, wants it in her pussy."  
+  
+
+===
+
+She crawled on hands and knees to him looking up into his face with an earnest plea. No sign of shame was there just a look of lust. "Please fuck my wet cunt. You're little slave, Sara, wants it in her pussy."  
 
   "I might take your ass Sara." He said.  
 
@@ -5592,7 +5722,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© Sara was getting a drink from the fridge when the phone rang. "Hi Martha how's things. Yea he's here." She handed Harry the phone quickly not wanting to speak to her friend after having just had a naughty sex session with her son. 
+ 
+
+===
+
+Sara was getting a drink from the fridge when the phone rang. "Hi Martha how's things. Yea he's here." She handed Harry the phone quickly not wanting to speak to her friend after having just had a naughty sex session with her son. 
 
  "I asked Sara if I could stay and work late on the college project is that OK." He said. 
 
@@ -5756,7 +5890,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© While she hesitated reliving that dreadful nightmare the change in Brian's attitude was missed. It was a fateful mistake taking her eye off him as he was too dangerous a character not to watch carefully. 
+ 
+
+===
+
+While she hesitated reliving that dreadful nightmare the change in Brian's attitude was missed. It was a fateful mistake taking her eye off him as he was too dangerous a character not to watch carefully. 
 
  He stepped forward grabbing her wrist and with another step was behind her twisting an arm up her back. "Nicely done, Andy." He said to his partner in crime. 
 
@@ -5990,7 +6128,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© "She's really a nasty whore. I told you guys, just fuck her and she will take it all." Brian told the others waiting their turn. 
+ 
+
+===
+
+"She's really a nasty whore. I told you guys, just fuck her and she will take it all." Brian told the others waiting their turn. 
 
  It sounded as though she was cursing them but the muffled words were very different. "Punish me you little shit. Rape my holes, you deserved to lose the game because you suck. Not as good as me though I suck cock real good because they taught me so well with all those little creeps' dicks deep in my throat." She ranted. 
 
@@ -6206,7 +6348,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 06 ****** byStoryTeller07© She crawled on hands and knees to him looking up into his face with an earnest plea. No sign of shame was there just a look of lust. "Please fuck my wet cunt. You're little slave, Sara, wants it in her pussy." 
+ 
+
+===
+
+She crawled on hands and knees to him looking up into his face with an earnest plea. No sign of shame was there just a look of lust. "Please fuck my wet cunt. You're little slave, Sara, wants it in her pussy." 
 
  "I might take your ass Sara." He said. 
 
@@ -6280,7 +6426,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© Sara is kidnapped  
+  
+
+===
+
+Sara is kidnapped  
 
   In the kitchen Martha handed her friend, Sara, a coffee.  
 
@@ -6500,7 +6650,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© 'My place is in the home, obeying the men of the house,' she began to repeat, over and over.  
+  
+
+===
+
+'My place is in the home, obeying the men of the house,' she began to repeat, over and over.  
 
   Her mother had died in childbirth. Her father had her looked after by an indifferent nanny, while he pursued a career in the law. He was distant, while she needed his guidance and love. How could she tell Brian anything of her upbringing when she was confused about it herself.  
 
@@ -6756,7 +6910,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© ***  
+  
+
+===
+
+***  
 
   'Wake up, come on, it's time to get up,' Brian told her.  
 
@@ -7016,7 +7174,11 @@
 
  
 
-  ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© Sara felt him spurt into her and it carried the orgasm on, just as she thought it was completing. She slumped over him feeling the orgasm renewed, reaching through her entire body, leaving her weak and sated.  
+  
+
+===
+
+Sara felt him spurt into her and it carried the orgasm on, just as she thought it was completing. She slumped over him feeling the orgasm renewed, reaching through her entire body, leaving her weak and sated.  
 
   'Thank you, master, thank you for the orgasm, master,' she heavily breathed out in gasps.  
 
@@ -7036,7 +7198,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© Sara is kidnapped 
+ 
+
+===
+
+Sara is kidnapped 
 
  In the kitchen Martha handed her friend, Sara, a coffee. 
 
@@ -7254,7 +7420,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© 'My place is in the home, obeying the men of the house,' she began to repeat, over and over. 
+ 
+
+===
+
+'My place is in the home, obeying the men of the house,' she began to repeat, over and over. 
 
  Her mother had died in childbirth. Her father had her looked after by an indifferent nanny, while he pursued a career in the law. He was distant, while she needed his guidance and love. How could she tell Brian anything of her upbringing when she was confused about it herself. 
 
@@ -7504,7 +7674,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  'Wake up, come on, it's time to get up,' Brian told her. 
 
@@ -7762,7 +7936,11 @@
 
  
 
- ****** Babysitting Trouble Ch. 07 ****** byStoryTeller07© Sara felt him spurt into her and it carried the orgasm on, just as she thought it was completing. She slumped over him feeling the orgasm renewed, reaching through her entire body, leaving her weak and sated. 
+ 
+
+===
+
+Sara felt him spurt into her and it carried the orgasm on, just as she thought it was completing. She slumped over him feeling the orgasm renewed, reaching through her entire body, leaving her weak and sated. 
 
  'Thank you, master, thank you for the orgasm, master,' she heavily breathed out in gasps. 
 

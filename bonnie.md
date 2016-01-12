@@ -1,8 +1,14 @@
+Bonnie
+======
 #1 
 
  
 
- ****** Bonnie ****** byStoryTeller07© Bonnie didn't think it proper to be early but she needed a drink to steady her nerves. The excitement of meeting a stranger was bordering on paranoia. She began to wonder if she really knew enough about him. What if he was a mass murderer or a pervert? 
+ 
+
+===
+
+Bonnie didn't think it proper to be early but she needed a drink to steady her nerves. The excitement of meeting a stranger was bordering on paranoia. She began to wonder if she really knew enough about him. What if he was a mass murderer or a pervert? 
 
  More realistically she thought they would meet and the chemistry would be zero. That's why she told nobody about this meeting. A secret meeting with a man seemed so exciting a prospect whereas now it was a worry. 
 

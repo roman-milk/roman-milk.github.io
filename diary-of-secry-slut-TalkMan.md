@@ -1,8 +1,14 @@
+Diary of a Secretary/Slut Ch. 01
+================================
 #1 
 
  
 
- ****** Diary of a Secretary/Slut Ch. 01 ****** bysex4every1© I had been unemployed for eighteen months; due to the recession my previous employer decided to downsize and because I was 41 at the time, I was amongst the first to go. Finding another job at my age, considering the economic climate, was a nearly impossible task. My husband is a hard worker but his salary just wasn't enough to get us by, so we had been nibbling at our savings, which were now running out. While working some crummy temp jobs to get us by, I applied for dozens of positions with my spruced up resume, all in vain. Even though I had already considerably lowered my standards, I remained frustratingly unsuccessful. However, one Thursday, while returning from yet another botched interview, I found an unusual ad in a three-day old paper: Smithers & Hall, a consultancy firm, was looking for a "secretary/slut" to handle their paperwork, incoming phone calls and "other secretarial duties". Although a bit dodgy and questionable to say the least, I was in no position to be picky and since the address was on my way home, I decided to go and have a quick look. 
+ 
+
+===
+
+I had been unemployed for eighteen months; due to the recession my previous employer decided to downsize and because I was 41 at the time, I was amongst the first to go. Finding another job at my age, considering the economic climate, was a nearly impossible task. My husband is a hard worker but his salary just wasn't enough to get us by, so we had been nibbling at our savings, which were now running out. While working some crummy temp jobs to get us by, I applied for dozens of positions with my spruced up resume, all in vain. Even though I had already considerably lowered my standards, I remained frustratingly unsuccessful. However, one Thursday, while returning from yet another botched interview, I found an unusual ad in a three-day old paper: Smithers & Hall, a consultancy firm, was looking for a "secretary/slut" to handle their paperwork, incoming phone calls and "other secretarial duties". Although a bit dodgy and questionable to say the least, I was in no position to be picky and since the address was on my way home, I decided to go and have a quick look. 
 
  To my surprise the address led me to a brand new office building in a upright neighborhood; I walked into the lobby and read the information board: Smithers & Hall was on the sixth floor of a nineteen story building. When I arrived on the sixth floor, a series of arrows led me to a backwater part of the floor, where I was greeted by a receptionist named Becky who asked me how she could of assistance. Convinced I was in the wrong place, I hesitantly mentioned the ad. She smiled and as she looked me up and down, she whispered:"Interesting." 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 01 ****** bysex4every1© He was really pounding into her; I could hear their skin slapping together and I could see Becky twisting and squirming; she was clearly enjoying herself. When she opened her eyes about twenty seconds into their fucking, she whispered:"Let me lick you!" 
+ 
+
+===
+
+He was really pounding into her; I could hear their skin slapping together and I could see Becky twisting and squirming; she was clearly enjoying herself. When she opened her eyes about twenty seconds into their fucking, she whispered:"Let me lick you!" 
 
  Surprised, but horny enough to go along, I knelt down, putting a knee on either side of her face, slowly pressing down my wet pussy onto her face. She started licking and sucking, even jamming her tongue inside of me; a clear sign of how horny she was. Deciding Donald could maybe use some extra persuasion, I slowly lowered myself on top of Becky's body and wedged my head between her body and the bottom of the stall door. Luckily, there was still plenty of room left - - at least a couple of centimeters -- for some maneuvering. When Donald saw my head appearing from under the door, he started pounding Becky even harder - - probably realizing that she had her head between my legs. I squirmed and wriggled down further until my mouth was only a couple of centimeters away from his cock. 
 
@@ -266,7 +276,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 02 ****** bysex4every1© I was excited to start my first official day. Hubby was up for some early morning sex, but I turned him down, although I was more than primed. I wanted to save myself for my new bosses. 
+ 
+
+===
+
+I was excited to start my first official day. Hubby was up for some early morning sex, but I turned him down, although I was more than primed. I wanted to save myself for my new bosses. 
 
  When I arrived at the office around 8.20, I took off my long overcoat, anxious to show off my short black skirt and silk blouse to Becky, but I soon realized she had other things on her mind. When I saw her squirming in her chair with her eyes closed, I walked to the front of the open desk and saw Brian sitting on his knees, his head between Becky's naked thighs -- her skirt and panties lying next to her chair -- licking her snatch and wanking his own fat cock. Startled, but reminding myself that this was part of the job, I walked to my chair and sat down, browsing through the papers and files on my desk, pretending to understand what I was reading. Becky briefly opened her eyes, turned to look at me and gave me a head nod. I smiled and returned the nod. 
 
@@ -450,7 +464,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 02 ****** bysex4every1© Becky herself didn't seem to have any misgivings about her assignment; she simply took the letter, got up and walked out of his office. I followed her, covering up my tits as soon as I left Hendry's sight and asked: "What do you want me to do?" 
+ 
+
+===
+
+Becky herself didn't seem to have any misgivings about her assignment; she simply took the letter, got up and walked out of his office. I followed her, covering up my tits as soon as I left Hendry's sight and asked: "What do you want me to do?" 
 
  "Get a piece of tape from my desk." she replied as she kept moving towards the ladies room. 
 
@@ -616,7 +634,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 03 ****** bysex4every1© As chance would have it, that weekend was a pretty busy one, socially speaking, which usually meant that it would be quiet on the sexual front; except for a quick missionary fuck on Saturday, my husband pretty much left me alone, which was fine by me, considering I wanted to save myself for my bosses. 
+ 
+
+===
+
+As chance would have it, that weekend was a pretty busy one, socially speaking, which usually meant that it would be quiet on the sexual front; except for a quick missionary fuck on Saturday, my husband pretty much left me alone, which was fine by me, considering I wanted to save myself for my bosses. 
 
  It was like going to school for the first time, that's how nervous I was; I had spent an entire Sunday evening getting ready; waxing and moisturizing, and I had tried on several outfits before eventually settling for a standard black skirt, white blouse and stockings, high heels to top it off. As far as length was concerned, my skirt was borderline slutty, but thanks to my overcoat that fact remained largely concealed until I arrived at the office. My white blouse had five buttons, two of which I had unbuttoned at home, I unbuttoned a third as soon as I had taken off my overcoat, which neatly exposed the top of my boobs and just small portion of my bra. 
 
@@ -810,7 +832,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 03 ****** bysex4every1© I was trying to breath through my nose, clawing at the carpet with my free hand to stay and trying to think of all sorts of non-erotic things to stay in control, but eventually – after at least three major orgasms – I couldn't take it any more: I let his cock slip from my mouth and screamed:"Fuck, oh fuck!!!" 
+ 
+
+===
+
+I was trying to breath through my nose, clawing at the carpet with my free hand to stay and trying to think of all sorts of non-erotic things to stay in control, but eventually – after at least three major orgasms – I couldn't take it any more: I let his cock slip from my mouth and screamed:"Fuck, oh fuck!!!" 
 
  Brian jumped up right at that moment and started wildly jacking off his shaft over my face; after just a few seconds dozens of tiny drops of cum started raining down all over my face... he had clearly been holding back, waiting for the right moment to cum in my face. Becky, not having been giving the order to stop kept pounding her fingers into me mercilessly, pushing me deeper and deeper into sexual bliss. Even after Brian had finished cumming, had wiped his cum on my chin and had sat back down again, Becky was still at it. 
 
@@ -952,7 +978,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 04 ****** bysex4every1© Tuesday morning was pretty slow; although Becky and I were in by 8 o'clock, the guys didn't seem to be in any kind of a hurry. Donald and Brian showed up around 9h30 while the rest came in well after 10 o'clock. They were all pretty beat from the party yesterday, which apparently continued into the wee hours in a few local bars after Maya and I had left. To my surprise, there was no action of any kind until 11.15 when Henry came out of his office and walked into the kitchen, getting himself another cup of coffee. When he walked back out about half a minute later, he was stroking his cock with his left hand and sipping from his coffee with his right hand; he walked up to our desk and positioned himself between Becky and myself. As we hadn't been giving any instructions, we just ignored him and continued our work as he stroked and stroked. Minutes later, he suddenly leaned forward and started ejaculating all over my blouse and into my cleavage. After he was done, he took another sip from his coffee and waggled his cock around in his hand, catapulting the last few drops of cum all over my desk and just walked back to his office, closing his door behind him. 
+ 
+
+===
+
+Tuesday morning was pretty slow; although Becky and I were in by 8 o'clock, the guys didn't seem to be in any kind of a hurry. Donald and Brian showed up around 9h30 while the rest came in well after 10 o'clock. They were all pretty beat from the party yesterday, which apparently continued into the wee hours in a few local bars after Maya and I had left. To my surprise, there was no action of any kind until 11.15 when Henry came out of his office and walked into the kitchen, getting himself another cup of coffee. When he walked back out about half a minute later, he was stroking his cock with his left hand and sipping from his coffee with his right hand; he walked up to our desk and positioned himself between Becky and myself. As we hadn't been giving any instructions, we just ignored him and continued our work as he stroked and stroked. Minutes later, he suddenly leaned forward and started ejaculating all over my blouse and into my cleavage. After he was done, he took another sip from his coffee and waggled his cock around in his hand, catapulting the last few drops of cum all over my desk and just walked back to his office, closing his door behind him. 
 
  About half an hour later, Carter came out of his office and asked: "You ladies free?" 
 
@@ -1188,7 +1218,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 04 ****** bysex4every1© Now, the previous times I had to wait for my dad to finish up with Becky before I could get some, but now that there are two of you, I don't have to wait anymore, now do I?" she concluded as he opened her legs ostentatiously and took another sip of her coke. 
+ 
+
+===
+
+Now, the previous times I had to wait for my dad to finish up with Becky before I could get some, but now that there are two of you, I don't have to wait anymore, now do I?" she concluded as he opened her legs ostentatiously and took another sip of her coke. 
 
  "Yes, I understand now miss Weinberg. I am terribly sorry for the misunderstanding." I replied as I got down on my knees in front of her and bent my head down to her pussy. I must admit, she smelled delightful; her skin had clearly been scented for the occasion, even down there. 
 
@@ -1386,7 +1420,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 05 ****** bysex4every1© Wednesday morning, I woke up feeling my husband's cock pressing against the small of my back. I reached back and wrapped my hand around his shaft, getting it nice hard and throbbing. Then, right before he was about to get on top of me, I looked at the alarm clock and jumped out of bed, saying: "Oh shit, I am gonna be late... shit, shit, shit." I grabbed some clothes and ran into the bathroom, leaving him with a massive, throbbing cock and no hole to put it in. I turned the shower on and waited for a few seconds. True enough, my frustrated husband started wanking off within thirty seconds of my leaving, that's how desperately horny he was, the poor thing. I snuck back into the hallway, right next to our bedroom door and listened to his moaning and his incessant jacking off. I grinned as I thought how angry he'd be if he knew I had plenty of time to get to work or if he knew I had looked at the alarm clock before wrapping my hand around his dick in the first place. Or if he'd know that a considerable amount of strange cock was going to boink his wife in every one of her slutty holes all the live long day. I listened to him groan and moan and eventually spray his load all over the sheets. After he collapsed on the bed, I snuck back into the bathroom and hopped into the shower, for real this time. 
+ 
+
+===
+
+Wednesday morning, I woke up feeling my husband's cock pressing against the small of my back. I reached back and wrapped my hand around his shaft, getting it nice hard and throbbing. Then, right before he was about to get on top of me, I looked at the alarm clock and jumped out of bed, saying: "Oh shit, I am gonna be late... shit, shit, shit." I grabbed some clothes and ran into the bathroom, leaving him with a massive, throbbing cock and no hole to put it in. I turned the shower on and waited for a few seconds. True enough, my frustrated husband started wanking off within thirty seconds of my leaving, that's how desperately horny he was, the poor thing. I snuck back into the hallway, right next to our bedroom door and listened to his moaning and his incessant jacking off. I grinned as I thought how angry he'd be if he knew I had plenty of time to get to work or if he knew I had looked at the alarm clock before wrapping my hand around his dick in the first place. Or if he'd know that a considerable amount of strange cock was going to boink his wife in every one of her slutty holes all the live long day. I listened to him groan and moan and eventually spray his load all over the sheets. After he collapsed on the bed, I snuck back into the bathroom and hopped into the shower, for real this time. 
 
  I had a big smile on my face all the way to work; I had tormented my husband for no good reason and it had gotten me so fucking horny. And it only seemed to get better: as luck would have it, Henry came running up just as my elevator was about to close. He got his hand in just in time and wriggled in, half out of breath. 
 
@@ -1570,7 +1608,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 05 ****** bysex4every1© "Take off your blouse." Henry said as he turned towards me in the middle of a seemingly random cubicle, fished out his erection and started wobbling his dick around in his fist. Uneasily, I took off my blouse and waited for my next command. 
+ 
+
+===
+
+"Take off your blouse." Henry said as he turned towards me in the middle of a seemingly random cubicle, fished out his erection and started wobbling his dick around in his fist. Uneasily, I took off my blouse and waited for my next command. 
 
  "Good, now blow me." he said as he sat down on the chair of whoever's cubicle this was. I sank to my knees, somehow relieved that I could hide behind the cubicle walls for a bit. I grabbed his cock, gave it a few tugs and then put it my mouth. After sucking him for about two minutes, he whispered: "That's enough hon, get up and take off your bra." 
 
@@ -1686,7 +1728,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 06 ****** bysex4every1© But he didn't ask, and I didn't offer. So, after an uneventful cab drive, I snuck into the house and headed straight to the bathroom to take a much needed shower. After throwing my dirty clothes in the laundry basket, I put on a nighty - a short one. When I came back down, dinner was on the table and hubby was clearly in a playful mood, after seeing me in my nighty. Figuring I might as well give him a turn too, I got down on my knees in front of him and sucked his balls dry. When he was about to cum, I jacked him off all over the floor - deliberately not taking his spunk in my mouth. He seemed content with that smidgen of sexual attention, so we ate dinner and spent the rest of the night in front of the tv. 
+ 
+
+===
+
+But he didn't ask, and I didn't offer. So, after an uneventful cab drive, I snuck into the house and headed straight to the bathroom to take a much needed shower. After throwing my dirty clothes in the laundry basket, I put on a nighty - a short one. When I came back down, dinner was on the table and hubby was clearly in a playful mood, after seeing me in my nighty. Figuring I might as well give him a turn too, I got down on my knees in front of him and sucked his balls dry. When he was about to cum, I jacked him off all over the floor - deliberately not taking his spunk in my mouth. He seemed content with that smidgen of sexual attention, so we ate dinner and spent the rest of the night in front of the tv. 
 
  In the morning, I got up and left before he was up, I wanted to get an early start. After arriving at the office around 8.15, I managed to catch up on some paperwork by the time the guys started arriving. Brian was the first one to stumble in, but was clearly too tired for any kind of action. Aside from the standard hello, he just walked into his office, probably to get some more sleep. 
 
@@ -1922,7 +1968,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 06 ****** bysex4every1© "If [moan] that's what you [moan] want [moan]..." Becky whispered submissively. 
+ 
+
+===
+
+"If [moan] that's what you [moan] want [moan]..." Becky whispered submissively. 
 
  "Mm, seems like someone learned her lesson." Carter said. 
 
@@ -2106,7 +2156,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 06 ****** bysex4every1© As I told him how to drive, he told me how he had spent the night on the town, having dinner and drinks with some friends and then going to the movies by himself. It wasn't until he was leaving the movie theater that he had thought of me again and sent me the disrespectful text - which had driven me to sexual frenzy. As his cock had gotten hard from thinking of me - blindly following his commands like a dumb whore - he had simply decided that he was going to fuck me on all fours in the parking lot, just like that. As he was casually relaying all that information to me, his non-steering hand groped my tits, pinched my nipples, cupped my bush and even played with my clit a little bit. He had free reign, my body was his to do with whatever he wanted. While we were waiting at one of the red lights on our route, he even put his fingers - which had, among other places no doubt, been in my twat - in my mouth. 
+ 
+
+===
+
+As I told him how to drive, he told me how he had spent the night on the town, having dinner and drinks with some friends and then going to the movies by himself. It wasn't until he was leaving the movie theater that he had thought of me again and sent me the disrespectful text - which had driven me to sexual frenzy. As his cock had gotten hard from thinking of me - blindly following his commands like a dumb whore - he had simply decided that he was going to fuck me on all fours in the parking lot, just like that. As he was casually relaying all that information to me, his non-steering hand groped my tits, pinched my nipples, cupped my bush and even played with my clit a little bit. He had free reign, my body was his to do with whatever he wanted. While we were waiting at one of the red lights on our route, he even put his fingers - which had, among other places no doubt, been in my twat - in my mouth. 
 
  He continued to grope and play with my body until we reached our destination, some fifteen minutes later. After parking in front of my house, he gently grabbed me by the hair and pushed my head down into his lap. 
 
@@ -2118,7 +2172,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 07 ****** bysex4every1© Well, you get the picture. I might have been a slut before - oh, who am I kidding, I already was a big slut - but Jerry, David, Brian, Henry, Carter and Donald turned me into a downright whore, using, fucking and degrading me day after day, week after week. Instead of giving you guys - and girls - a play-by- play of what happened to me each and every day, I'll stick to some red-letter moments, so you won't get bored. 
+ 
+
+===
+
+Well, you get the picture. I might have been a slut before - oh, who am I kidding, I already was a big slut - but Jerry, David, Brian, Henry, Carter and Donald turned me into a downright whore, using, fucking and degrading me day after day, week after week. Instead of giving you guys - and girls - a play-by- play of what happened to me each and every day, I'll stick to some red-letter moments, so you won't get bored. 
 
  So, I was having the time of my life - my husband not so much, lol - and getting paid handsomely for a job well done. The guys were able and willing to put in even more effort, thanks to having two whores - instead of just one - at their disposal to have their way with, pretty much anytime and anyhow they wanted, and so the company boomed. We were able to reel in some big accounts and our numbers were looking very good. 
 
@@ -2290,7 +2348,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 07 ****** bysex4every1© He opened the drapes and left the room, only to find Carter and David waiting in the hallway for the busy light to go off. They whispered and laughed amongst themselves for a second, before entering. 
+ 
+
+===
+
+He opened the drapes and left the room, only to find Carter and David waiting in the hallway for the busy light to go off. They whispered and laughed amongst themselves for a second, before entering. 
 
  "How are you feeling Maya?" Carter asked as he walked over to my husband to shake his hand. 
 
@@ -2444,7 +2506,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 08 ****** bysex4every1© Needless to say, I felt a powerful urge to go back to work as soon as possible. 
+ 
+
+===
+
+Needless to say, I felt a powerful urge to go back to work as soon as possible. 
 
  The next day I would like to tell you guys about, started out as an ordinary Thursday. Becky and I were in before eight, but the guys didn't start arriving until half past nine. Last to arrive was Jerry, who strolled in around 10.15 laughing and joking, with a woman in her late forties. She looked sophisticated and elegant, and was wearing a long black overcoat, a grey skirt, a white blouse and brown, see-through nylons. 
 
@@ -2604,7 +2670,11 @@
 
  
 
- ****** Diary of a Secretary/Slut Ch. 08 ****** bysex4every1© Suddenly, the female interpreter walked up to me. She was still on her first or second glass of champagne, as she clearly didn't want to get drunk amongst all these guys, which was probably a good sign. She glanced at Becky sucking off one her colleagues – probably her boss – and then at me. Her eyes wandered up and down my body twice as she took another small sip from her glass. 
+ 
+
+===
+
+Suddenly, the female interpreter walked up to me. She was still on her first or second glass of champagne, as she clearly didn't want to get drunk amongst all these guys, which was probably a good sign. She glanced at Becky sucking off one her colleagues – probably her boss – and then at me. Her eyes wandered up and down my body twice as she took another small sip from her glass. 
 
  "Do you only suck cock?" she whispered softly. Her whispering was clearly instigated by embarrassment as her colleagues were too drunk to overhear, even negating the fact that they didn't understand English. I knew what she meant and what she was after, but it had been a long time since I had enjoyed the sexual high ground in a conversation, so I teased her a little bit by saying, "No, I also fuck, give handjobs, take it up the ass and swallow." 
 

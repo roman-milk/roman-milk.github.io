@@ -1,8 +1,14 @@
+Hit Ch. 01
+==========
 #1 
 
  
 
- ****** Hit Ch. 01 ****** byStoryTeller07© (No BDSM yet but be patient. Things will develop.) 
+ 
+
+===
+
+(No BDSM yet but be patient. Things will develop.) 
 
  * 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** Hit Ch. 01 ****** byStoryTeller07© There wasn't an elaborate show this time. She handed him the bra through the curtain. This seemed to please him and so she too was happy. 'Was this how it is to be in love,' she thought, then quickly dismissed the stupid notion. 
+ 
+
+===
+
+There wasn't an elaborate show this time. She handed him the bra through the curtain. This seemed to please him and so she too was happy. 'Was this how it is to be in love,' she thought, then quickly dismissed the stupid notion. 
 
  She let him take her hand as they made their way to another store. She felt like a young girl being taken out on a birthday treat. It was a unique sensation, leaving her feeling giddy with its implications. 
 
@@ -354,7 +364,11 @@
 
  
 
- ****** Hit Ch. 02 ****** byStoryTeller07© Josie wasn't too good at domestic chores or taking orders. Her father had tried to teach her some discipline but as a teenager she had rebelled. So here she was a wanderer in search of something, not knowing what. She had been moving from place to place, living frugally, and slowly spending the inheritance. 
+ 
+
+===
+
+Josie wasn't too good at domestic chores or taking orders. Her father had tried to teach her some discipline but as a teenager she had rebelled. So here she was a wanderer in search of something, not knowing what. She had been moving from place to place, living frugally, and slowly spending the inheritance. 
 
  Somehow she had taken to Pete so moved in, with meagre possessions, but with a load of personal baggage. 
 
@@ -540,7 +554,11 @@
 
  
 
- ****** Hit Ch. 02 ****** byStoryTeller07© "Yes!" she gasped. 
+ 
+
+===
+
+"Yes!" she gasped. 
 
  "Tell me," he demanded. 
 
@@ -702,7 +720,11 @@
 
  
 
- ****** Hit Ch. 03 ****** byStoryTeller07© Hit 03 
+ 
+
+===
+
+Hit 03 
 
  Kidnapping is against the club rules 
 
@@ -894,7 +916,11 @@
 
  
 
- ****** Hit Ch. 03 ****** byStoryTeller07© "What does your dog want to drink?" Pete asked, completely oblivious to the breach of protocol. 
+ 
+
+===
+
+"What does your dog want to drink?" Pete asked, completely oblivious to the breach of protocol. 
 
  "Bitch slave will have what it is given," the man stated coldly. He clearly thought it Pete's fault for not keeping his slave in check. "A still water is all the bitch slave deserves," he smiled. 
 
@@ -1060,7 +1086,11 @@
 
  
 
- ****** Hit Ch. 03 ****** byStoryTeller07© He pushed her legs apart almost splitting her in two and heard a hiss. He looked closer to see a valve. Every time she moved it sucked in air. He pushed a finger into her wet pussy to feel the shared wall between vagina and colon. The damn thing wasn't stuck to her asshole it was up her ass. 
+ 
+
+===
+
+He pushed her legs apart almost splitting her in two and heard a hiss. He looked closer to see a valve. Every time she moved it sucked in air. He pushed a finger into her wet pussy to feel the shared wall between vagina and colon. The damn thing wasn't stuck to her asshole it was up her ass. 
 
  He tried to unscrew it until one half turn solved the mystery. The valve now acted in reverse. Air, smelly air, seeped out. Another slight turn and it whooshed out. It made a whining sound as though she were farting for her country at the wacky Olympics. 
 

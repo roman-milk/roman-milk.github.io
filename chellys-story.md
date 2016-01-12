@@ -1,8 +1,14 @@
+Chelly's Story
+==============
 #1 
 
  
 
- ****** Chelly's Story ****** bydawn1958© Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
 
  I receive many requests from loyal readers to do stories for them but it takes me weeks to do a story properly. After receiving this request from Michelle, I decided to try doing a real short story for her and see if it comes off okay. See what you think. 
 
@@ -134,7 +140,11 @@
 
  
 
- ****** Chelly's Story ****** bydawn1958© Chelly was well aware that he tattooed an extra hickie on her boobs but she really didn't care. Then he began a slow, enticing nibbling of her nipples and all she could do was put her hands around his rugged, whiskered face. All of a sudden she knew there was more. She was about to surrender again without any reservations to a complete stranger who somehow controlled her spirit. 
+ 
+
+===
+
+Chelly was well aware that he tattooed an extra hickie on her boobs but she really didn't care. Then he began a slow, enticing nibbling of her nipples and all she could do was put her hands around his rugged, whiskered face. All of a sudden she knew there was more. She was about to surrender again without any reservations to a complete stranger who somehow controlled her spirit. 
 
  There was not need to speak but she did anyway. "I love... love you. I love you... oh gawd you make me feel like a woman. Gawd, my tits are so throbbing... so yearning for your mouth," she moaned in between gasps of air. "Oh gawd no... your fingers are touching me... down there and it feels so good. Oh gawd, when you touch my clit like that... I can't stop. Gawd, I think I am going to cum... cum." 
 

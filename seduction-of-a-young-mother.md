@@ -1,8 +1,14 @@
+Seduction of a Young Mother
+===========================
 #1 
 
  
 
- ****** Seduction of a Young Mother ****** bydawn1958© Sharon was the happiest mother in the world. She was fairly happily married; although her husband was on the road a lot with his job, yet she did her best taking care of a baby and the house without a man around a lot of the time. The best part of the day was taking her six month daughter for walks, which proved to be perfect bonding times for the two. 
+ 
+
+===
+
+Sharon was the happiest mother in the world. She was fairly happily married; although her husband was on the road a lot with his job, yet she did her best taking care of a baby and the house without a man around a lot of the time. The best part of the day was taking her six month daughter for walks, which proved to be perfect bonding times for the two. 
 
  It was during one of those daily walks through the neighborhood park that she met a young couple who had secretly watched her almost every day. Rob and Darlene were about the same age as Sharon and they had been married for three years when their sexlife took a radical change. They had a very active sexlife, but were always looking for new and interesting twists when Rob suggested a threesome. 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Seduction of a Young Mother ****** bydawn1958© Darlene was determined to take full advantage of the situation and knew the effects of too much alcohol made Sharon the perfect slave. The driver almost ran over two pedestrians and hit several parked cars when he kept staring into the rear-view mirror at the women. His heart pounded at the sight of skin and then he actually spotted a bare boob, as Darlene stretched the front of Sharon's dress downward to expose her breasts. 
+ 
+
+===
+
+Darlene was determined to take full advantage of the situation and knew the effects of too much alcohol made Sharon the perfect slave. The driver almost ran over two pedestrians and hit several parked cars when he kept staring into the rear-view mirror at the women. His heart pounded at the sight of skin and then he actually spotted a bare boob, as Darlene stretched the front of Sharon's dress downward to expose her breasts. 
 
  He watched Darlene fondle the luscious tits and then she ripped the lacy bra off. The scene was animalistic, as the woman's head swooped downward and devoured an exposed titty. The driver had never witnessed womanly lust. He noticed the sexy goddess being ravaged by the dominating young woman and the scene appeared consensual. Sharon's head was thrown back on the headrest and she was rolling her head back and forth, as if she was going through something dramatic. Her hands were on the woman's head and in her hair, but they didn't appear to be pushing Darlene away. 
 
@@ -368,7 +378,11 @@
 
  
 
- ****** Seduction of a Young Mother ****** bydawn1958© "Aah, shit, no, not yet... damn. Spread your legs. Wait baby, wait." 
+ 
+
+===
+
+"Aah, shit, no, not yet... damn. Spread your legs. Wait baby, wait." 
 
  "Whaaa, whaaa." 
 
@@ -586,7 +600,11 @@
 
  
 
- ****** Seduction of a Young Mother ****** bydawn1958© Naked as the day she was born and more embarrassed than at any time in her life, Sharon tried to squirm. She recognized Rob and Ken and they worked together on Darlene's cleaver plan. In less than ten seconds, Sharon found herself on her hands and knees and her face buried in the wettest crotch. The aroma was definitely female and Darlene had a firm grip of hair with both hands to hold the rolling head entrenched between her splayed thighs. 
+ 
+
+===
+
+Naked as the day she was born and more embarrassed than at any time in her life, Sharon tried to squirm. She recognized Rob and Ken and they worked together on Darlene's cleaver plan. In less than ten seconds, Sharon found herself on her hands and knees and her face buried in the wettest crotch. The aroma was definitely female and Darlene had a firm grip of hair with both hands to hold the rolling head entrenched between her splayed thighs. 
 
  Sharon didn't know what to do next. Her mouth was pressed against the puffy labia and she felt the leaking juices coat her lips and cheeks. When the swollen lips spread, she automatically opened her mouth and sucked on the enlarged clitoris. Sharon heard a squeal and then her tongue was rolling the clit around and around inside her mouth. 
 
@@ -790,7 +808,11 @@
 
  
 
- ****** Seduction of a Young Mother ****** bydawn1958© Sharon merely moaned and tried to shake her head. "Uuuggghhh... nnnaaaggghhh." Her clit felt like it had grown immensely and the fingers kept squeezing and twirling. 
+ 
+
+===
+
+Sharon merely moaned and tried to shake her head. "Uuuggghhh... nnnaaaggghhh." Her clit felt like it had grown immensely and the fingers kept squeezing and twirling. 
 
  "Yes, yes, oh baby, yes." 
 

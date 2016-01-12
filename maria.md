@@ -1,8 +1,14 @@
+Maria
+=====
 #1 
 
  
 
- ****** Maria ****** byStoryTeller07© Maria was walking on air with a feeling of elation. After working so very hard for promotion it shouldn't have been a surprise to receive the exulted position, CEO of the Eastern Division, but it was. Every time she walked into the large impressive corner office it was impossible not to look out over the city and exclaim, "Wow!" 
+ 
+
+===
+
+Maria was walking on air with a feeling of elation. After working so very hard for promotion it shouldn't have been a surprise to receive the exulted position, CEO of the Eastern Division, but it was. Every time she walked into the large impressive corner office it was impossible not to look out over the city and exclaim, "Wow!" 
 
  From high school through university an ethic of hard work had permeated her being and this promotion was the culmination of ten years dedication to the corporation. At thirty-two she was the youngest executive with great prospects for the future. 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Maria Ch. 02 ****** byStoryTeller07© Chapter 02: A bad weekend at home 
+ 
+
+===
+
+Chapter 02: A bad weekend at home 
 
  With every squirming movement in the meeting room chair Maria was reminded of her bare bottom and how sore it was. She had been given a spanking in her executive office by a student and he added to the humiliation by keeping her panties as a souvenir. 
 
@@ -314,7 +324,11 @@
 
  
 
- ****** Maria Ch. 03 ****** byStoryTeller07© Maria felt so ashamed giving in so completely to a stranger. The blackmail put her into a difficult position and he had out manoeuvred her every time she tried to regain some composure. 
+ 
+
+===
+
+Maria felt so ashamed giving in so completely to a stranger. The blackmail put her into a difficult position and he had out manoeuvred her every time she tried to regain some composure. 
 
  What made her feel so wretched was having succumbed to two overpowering orgasms from a young inexperienced man. Realising they were in part from the humiliating situations he had contrived, left her feeling bewildered and pathetic. 
 
@@ -448,7 +462,11 @@
 
  
 
- ****** Maria Ch. 04 ****** byStoryTeller07© "Please Peter, lets go home, please," Maria asked plaintively. She felt so vulnerable driving around in just a slip. At least she wore panties but the slip was thin and far too short to be seen in outside. Dominating her thoughts was the idea of how embarrassed she would be if someone familiar saw her. If they spotted her dressed like a tramp, with this young man, the cruel gossip would do incalculable damage to her reputation. 
+ 
+
+===
+
+"Please Peter, lets go home, please," Maria asked plaintively. She felt so vulnerable driving around in just a slip. At least she wore panties but the slip was thin and far too short to be seen in outside. Dominating her thoughts was the idea of how embarrassed she would be if someone familiar saw her. If they spotted her dressed like a tramp, with this young man, the cruel gossip would do incalculable damage to her reputation. 
 
  Peter had blackmailed and humiliated her with the intention of bringing down the office bully. He had meant to tame her just a little to give everyone an easier life in the office but it went too far when he had sex with her. It didn't seem as though he need mention the threat to her job anymore. She was going along with whatever he wanted, for the moment. 
 

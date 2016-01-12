@@ -1,8 +1,14 @@
+Mom Becomes A Cheating Slut Ch. 01
+==================================
 #1 
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 01 ****** bysex4every1© All persons in this story are at least 18 years of age. 
+ 
+
+===
+
+All persons in this story are at least 18 years of age. 
 
  
 
@@ -232,7 +238,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 01 ****** bysex4every1© Mom puts one foot on either side of my legs, lifts up her dress and with her back towards me lowers herself onto me, agonizingly slow! 
+ 
+
+===
+
+Mom puts one foot on either side of my legs, lifts up her dress and with her back towards me lowers herself onto me, agonizingly slow! 
 
  While her wet cunt sluggishly slides down my throbbing cock, she holds on to the seats in front of her for support, drawing the attention of our two neighbors again... they get up on their knees again and lean over their seat just as before. When mom's finally down all the way, I gently put my hands in her sides and push her up, then back down, over and over again; slowly at first, giving her time to adjust to my size and length. 
 
@@ -348,7 +358,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 02 ****** bysex4every1© Part I: The Cab Ride 
+ 
+
+===
+
+Part I: The Cab Ride 
 
  I kept on smiling all the way to the transit area, thinking that maybe this holiday wasn't going to be so bad after all! It took us a little over half an hour to get through customs and another fifteen minutes to get to conveyer belt A-3 which the screens indicated would be bringing our luggage in from the plane. Unfortunately there were already two more planes unloading their luggage in front of us, using the same conveyer belt and taking their sweet time in doing so. After standing amongst hundreds of other passengers for about ten minutes, mom was getting impatient; when our eyes met, she signaled me to meet up with her, away from the crowd. 
 
@@ -502,7 +516,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 02 ****** bysex4every1© She dropped the towels she was holding and squirmed against me, reaching back and running her hands roughly through my hair, whispering:"I am so slutty right now!" 
+ 
+
+===
+
+She dropped the towels she was holding and squirmed against me, reaching back and running her hands roughly through my hair, whispering:"I am so slutty right now!" 
 
  "Really, how slutty?" I asked as I bit her ear lobe. 
 
@@ -576,7 +594,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 02 ****** bysex4every1© By the time he was done, a third guy was already lining up to take his place, and after him the fourth... even though they banged the shit out of her, mom wore them both out -- as easily and casually as she'd done with the first two - without breaking a sweat. 
+ 
+
+===
+
+By the time he was done, a third guy was already lining up to take his place, and after him the fourth... even though they banged the shit out of her, mom wore them both out -- as easily and casually as she'd done with the first two - without breaking a sweat. 
 
  After bearing two more loads onto her fat tits, she put out her cigarette, stepped over the naked spent bodies of the exhausted men and squatted down in front of me, whispering:"Mommy needs one more load... right between my eyes!" 
 
@@ -594,7 +616,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 03 ****** bysex4every1© Thanks for all the feedback and emails. I've tried to incorporate all of your sensible and hot suggestions in this third chapter. Whether or not I'll write a fourth chapter will depend greatly on the feedback I receive. 
+ 
+
+===
+
+Thanks for all the feedback and emails. I've tried to incorporate all of your sensible and hot suggestions in this third chapter. Whether or not I'll write a fourth chapter will depend greatly on the feedback I receive. 
 
  We got back to the apartment, me with just a towel wrapped around me and mom naked as the day she was born. Luckily dad wasn’t back yet from his scouting tour as mom’s clothes were still on the living room floor where she had left them… as she came down her adrenaline-high from the torrid fucking she'd endured, mom did some soul-searching for the next hour. I followed her everywhere, even into the bathroom while she was taking a shower. Since there was no longer any embarrassment between us, I watched her take an extensive shower and rub herself down with scented oils afterwards. With just a towel wrapped around her wet hair, she looked at me – sitting on the edge of the bath tub watching her every move – and rubbed her hands together for about twenty seconds to get rid of the excess of oils. After looking into my eyes for several seconds, she whispered:"Come here." as she got down on her knees. I walked over to her and looked down at her as she fished my erection out of my boxers and guided it to her mouth; for the next several minutes, mom's sucking was the only sound in the bathroom. It was a slow and delicate blowjob which was clearly emotionally charged; the both of us had had all the nasty and wild sex we were going to have for that day. This wasn't just carnal desire, this was an passionate act. Anyway, she finished me off and swallowed the small amount of cum I could spare and kept kissing and licking my cock head until it was too small to handle. She got up and continued getting herself ready and dressed. I could see she was still mulling things over. In her bedroom, she got dressed in her red shorts and a new white halter top, along with a white bra and no panties. When I heard dad coming back in; I gave her quick kiss and hit the shower. Afterwards, I sat down in the living room with a book, while mom started preparations for lunch. During lunch dad started talking about all the interesting places he had encountered on his scouting mission: a seafood restaurant, a cocktail bar, an orange tree orchard etc... we talked like a "normal" family, planning excursions and discussing what to do for dinner and lunch the following days. Afterwards we went for a walk, familiarizing ourselves with the surroundings, the most important stores in the vicinity as well as the shortest road to the beach. We had a few drinks on the beach promenade and dinner in fancy restaurant. All the while mom was visibly absent, which she claimed to be the result of some minor migraine, but I knew better than that. It was late at night when we returned to our apartment and while mom and dad went straight to bed, I remained on the balcony for a little while longer, finishing another chapter of my book and listening to some music. I half expected and hoped to see mom again before going to bed, but she was either asleep or didn't feel like it... anyway, I went to bed, hoping things would resolve themselves tomorrow. And they did! 
 
@@ -616,7 +642,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 03 ****** bysex4every1© I stuffed my dick back in my boxers and mom put her bathing suit back on, just in case dad were to wake up. He didn't however, as expected. And after about an hour of talking, reading and sunbathing later, I cupped mom's tits through her bathing attire, letting her know that I was in the mood for more incestuous play. She surprised me by reaching over and waking up dad with a gentle nudge. "You're getting sunburn sweetie." she said. "Time to turn over..." Dad yawned, stretched and said:"Thanks honey." and then turned onto his stomach. Mom got up and said:"Here, I'll rub some lotion on your back." Still not a clue as to what she was doing, I started thinking that she was tormenting me further. She walked over to his longue chair, took a towel and covered the back of his head as well as the sides of his face with it, whispering:"We don't want any lotion in your hair, now do we?" Dad, anxious to get back to sleep, just grunted and didn't move, perfectly content where he was. Then mom untied her string again, dropping it to the floor and looking at me... it was beginning to dawn on me what she had in mind: my cock immediately responded and bounced up and down in my trunks. As mom positioned herself over dad, one leg on each side of the chair and leaning forward on his back, she squirted some lotion on his back and gently started rubbing him. At this point, I didn't even think about getting caught, I just took off my boxers and walked up to the back of dad's chair, where I grabbed mom's ass with both hands and pushed my monster cock into her wet cunt, as mom smiled back at me, biting her lower lip. This was so dangerous: all dad had to do, was move his feet to feel me standing there, or pull the towel away and glance behind him to see his wife standing over him, spread open and taking it like a whore. Mom took her time rubbing his back, but after about three more minutes, she had to change position to avoid arousing suspicion. Signaling me with one of her hands, we backed up together and I slid out of her. Fearless, she just laid down on the warm concrete floor, right next to dad's chair and spread her legs as wide as she could, crooking her finger at me. My cock spontaneously bounced up and down when I realized she wanted me to fuck her right next to dad. I was too fucking horny to turn her down and so I got on my knees, plunged my cock into her willing cunt and shafted away, as fast and as silently as I could. Mom had a big grin on her face as she propped herself up on her elbows, looking me straight in the eye, as my thrusts rocked her entire body. Thankfully, dad was already half asleep and oblivious to the whole thing. Not that I needed a lot of time; because of the unusual circumstances, I was unable to hold my cum back for more than twenty seconds. I pulled out and shot my load across her belly. After that, I got up and dangled my half-hard cock – still wet from residual cum and her own fluids – in front of her face. Mom opened up and cleaned my cock like a good little slut! When we were done, we put our bathing suits back on and relaxed in our chairs again. 
+ 
+
+===
+
+I stuffed my dick back in my boxers and mom put her bathing suit back on, just in case dad were to wake up. He didn't however, as expected. And after about an hour of talking, reading and sunbathing later, I cupped mom's tits through her bathing attire, letting her know that I was in the mood for more incestuous play. She surprised me by reaching over and waking up dad with a gentle nudge. "You're getting sunburn sweetie." she said. "Time to turn over..." Dad yawned, stretched and said:"Thanks honey." and then turned onto his stomach. Mom got up and said:"Here, I'll rub some lotion on your back." Still not a clue as to what she was doing, I started thinking that she was tormenting me further. She walked over to his longue chair, took a towel and covered the back of his head as well as the sides of his face with it, whispering:"We don't want any lotion in your hair, now do we?" Dad, anxious to get back to sleep, just grunted and didn't move, perfectly content where he was. Then mom untied her string again, dropping it to the floor and looking at me... it was beginning to dawn on me what she had in mind: my cock immediately responded and bounced up and down in my trunks. As mom positioned herself over dad, one leg on each side of the chair and leaning forward on his back, she squirted some lotion on his back and gently started rubbing him. At this point, I didn't even think about getting caught, I just took off my boxers and walked up to the back of dad's chair, where I grabbed mom's ass with both hands and pushed my monster cock into her wet cunt, as mom smiled back at me, biting her lower lip. This was so dangerous: all dad had to do, was move his feet to feel me standing there, or pull the towel away and glance behind him to see his wife standing over him, spread open and taking it like a whore. Mom took her time rubbing his back, but after about three more minutes, she had to change position to avoid arousing suspicion. Signaling me with one of her hands, we backed up together and I slid out of her. Fearless, she just laid down on the warm concrete floor, right next to dad's chair and spread her legs as wide as she could, crooking her finger at me. My cock spontaneously bounced up and down when I realized she wanted me to fuck her right next to dad. I was too fucking horny to turn her down and so I got on my knees, plunged my cock into her willing cunt and shafted away, as fast and as silently as I could. Mom had a big grin on her face as she propped herself up on her elbows, looking me straight in the eye, as my thrusts rocked her entire body. Thankfully, dad was already half asleep and oblivious to the whole thing. Not that I needed a lot of time; because of the unusual circumstances, I was unable to hold my cum back for more than twenty seconds. I pulled out and shot my load across her belly. After that, I got up and dangled my half-hard cock – still wet from residual cum and her own fluids – in front of her face. Mom opened up and cleaned my cock like a good little slut! When we were done, we put our bathing suits back on and relaxed in our chairs again. 
 
  
 
@@ -630,7 +660,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 04 ****** bysex4every1© Off course we weren't so lucky with the seating arrangement on the flight home; we had three adjacent seats, practically in the middle of the plane. Luckily, mom had pretty much drained me for some time and besides, my mind was preoccupied with Lizzy, whom – I was ashamed to admit – I had largely forgotten about during the entire holiday. Due to the late departure time, it was time to go to sleep by the time the plane had finally taken off; with the whole plane completely darkened, except for some minor orientation lights, we all drifted off to sleep pretty quickly. 
+ 
+
+===
+
+Off course we weren't so lucky with the seating arrangement on the flight home; we had three adjacent seats, practically in the middle of the plane. Luckily, mom had pretty much drained me for some time and besides, my mind was preoccupied with Lizzy, whom – I was ashamed to admit – I had largely forgotten about during the entire holiday. Due to the late departure time, it was time to go to sleep by the time the plane had finally taken off; with the whole plane completely darkened, except for some minor orientation lights, we all drifted off to sleep pretty quickly. 
 
  In the morning, as the cabin crew started serving breakfast, mom was visibly irritated, horny and bored. After breakfast – it was still several hours before we were to land – my cock was almost bursting through my jeans. My mind wandered off as I couldn't remember the last time I hadn't pumped out my morning load: whether it was by my own hands or in either mom or Lizzy, I had always taken care of my morning erection. Even before, when Lizzy spent the night at my place and she wasn't in the mood, I always emptied my sack in the morning, even if I had to dump it on the floor or in a corner somewhere. This train of thought was not helping me with my self-control; I had an even bigger boner than before, which caused me to squirm uncomfortable; mom quickly caught on and smiled at me, whispering:"I am here for you, whatever you need." I could see, that although she had quite some literature and crossword puzzles to keep her occupied, mom was bored out of her skull and the only thing that kept her from attacking me was our seating arrangement. 
 
@@ -762,7 +796,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 04 ****** bysex4every1© "You don't have to pleasure me, you can use my body for whatever you want, whenever and wherever you want; as long and as often as you want." mom continued as she used her free hand to guide my big cock into her twat as she sat down on it, releasing her gown and putting both hands on the back of the couch behind me as she started bouncing up and down on my mammoth cock. Mom's submissive talk, along with the informality of what we were doing made me extremely horny; when on top of that, mom started riding me like a rodeo bull, I realized that I wasn't going to last long at all. I tried to hold back for a little bit, but when she whispered:"Come on honey, let's get this sperm out of you so your dad can have his sloppy seconds!" nothing on this Earth could have stopped me from violently convulsing and pumping my load into mom's hot little cunt. I stuffed my face in her cleavage, moaning and groaning. Mom kept riding me until I was completely limp, using one of her hands to keep my face buried between her tits in order to stifle my moaning. When I was done, she got up and took a step back, her gown immediately and automatically falling into place. She picked up her panties and put them back on, as she smiled down at me. After pulling her straps back into place, she headed for the door and whispered: "Night hon." 
+ 
+
+===
+
+"You don't have to pleasure me, you can use my body for whatever you want, whenever and wherever you want; as long and as often as you want." mom continued as she used her free hand to guide my big cock into her twat as she sat down on it, releasing her gown and putting both hands on the back of the couch behind me as she started bouncing up and down on my mammoth cock. Mom's submissive talk, along with the informality of what we were doing made me extremely horny; when on top of that, mom started riding me like a rodeo bull, I realized that I wasn't going to last long at all. I tried to hold back for a little bit, but when she whispered:"Come on honey, let's get this sperm out of you so your dad can have his sloppy seconds!" nothing on this Earth could have stopped me from violently convulsing and pumping my load into mom's hot little cunt. I stuffed my face in her cleavage, moaning and groaning. Mom kept riding me until I was completely limp, using one of her hands to keep my face buried between her tits in order to stifle my moaning. When I was done, she got up and took a step back, her gown immediately and automatically falling into place. She picked up her panties and put them back on, as she smiled down at me. After pulling her straps back into place, she headed for the door and whispered: "Night hon." 
 
  Saturday morning. Lizzy had spent the night and since we had gone to bed rather late – fucking missionary style before actually going to sleep – she was still fast asleep when I woke up with my usual morning boner. Since I knew that waking Lizzy up for sex was a bad idea, I snuck out into the hallway and very carefully opened the door to the master bedroom – I knew that dad was a firm sleeper and usually slept in in the weekends. I tiptoed to mom's side of the bed (the side closest to the door) and gently woke her up. As she opened her eyes and looked at me surprised, I took my dick out and waved it up and down, whispering:"Come with me..." as I backed up towards the door. Mom, even after being abruptly woken up, still remembered how to be a slut and carefully got out of bed, following me without objection or any reservation. After gently closing the door behind her, she yawned and looked at me – wearing nothing but a flimsy night gown – waiting for instructions. I took her hand and led her down the stairs into the kitchen, where she yawned again and rubbed her upper arms as it was pretty chilly this time of day. At that moment, a nasty idea popped into my mind and I walked over to the sliding doors, opening them about a meter. As I turned to mom, she looked at me kind of funny, but didn't even think of objecting; she just squeezed her upper arms a little tighter as she started shivering. I walked up to her and lowered her arms, then lowered the straps on her nighty letting the only piece of clothing she was wearing slide down her quivering body. 
 
@@ -854,7 +892,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 05 ****** bysex4every1© I was in seventh heaven: I had two women -- well, let's be honest: two sluts - - at my disposal now. Repeatedly I used mom simply to get my rocks off, fucking her just before or after a date with Lizzy, with whom, as a result, I could be extra romantic and attentive. Lizzy, out of appreciation, started acting a lot sluttier in the bedroom -- as well as a few other rooms... Yes, this arrangement was working out very well, at least for me. For mom, the novelty was wearing off and because of her low threshold for boredom, she was getting less and less interested... that's not to say she didn't put out anymore, quite the contrary: mom's holes were always available! As a matter of fact: casual, uninterested or risky sex seemed to be all that could hold her interest as time went by. 
+ 
+
+===
+
+I was in seventh heaven: I had two women -- well, let's be honest: two sluts - - at my disposal now. Repeatedly I used mom simply to get my rocks off, fucking her just before or after a date with Lizzy, with whom, as a result, I could be extra romantic and attentive. Lizzy, out of appreciation, started acting a lot sluttier in the bedroom -- as well as a few other rooms... Yes, this arrangement was working out very well, at least for me. For mom, the novelty was wearing off and because of her low threshold for boredom, she was getting less and less interested... that's not to say she didn't put out anymore, quite the contrary: mom's holes were always available! As a matter of fact: casual, uninterested or risky sex seemed to be all that could hold her interest as time went by. 
 
  One evening dad and I were watching football, while mom was reading out back on the patio. As always during sports, she would take one of her novels and immerse herself in it until the game was over. Dad rarely got up himself, so I was usually in charge of snacks and beer and that night was no different. During one of the commercial breaks, I walked into the kitchen to take out another six pack out of the fridge. As I walked to the cupboard to grab some potato chips, I saw mom coming into the kitchen with her book. She didn't look at me or acknowledge my presence in any way, but simply walked up to me, stopped and turned her back towards me. She put her thumbs inside the waistband of her skirt and pushed it down, along with her panties in one quick motion as she got on her knees. Next, she leaned forward on her elbows and arms, positioning her book right in front of her on the ground so she could continue reading. My cock became hard almost immediately. I put the six pack down on the counter and whipped out my dong, getting on my knees behind her. As she was (pretending to be) reading, I slid my cock into her wet cunt and started shafting her slow and deep. A few seconds later mom turned a page! I nearly came right there. Was this slut actually reading? Or was she pretending to be, to make this particular fuck even more casual? No matter how deep or hard I fucked her, she didn't give any indication of pleasure; not a moan, grunt or even shallow breathing. I couldn't take it any longer: I just let go and shot my load deep inside of her. When I pulled back a few seconds later, mom immediately responded by picking up her book and pulling up her skirt and panties. By the time I had gotten up and zipped up my pants again, mom was already walking out of the kitchen, back into the patio, still reading her book. 
 
@@ -922,7 +964,11 @@
 
  
 
- ****** Mom Becomes A Cheating Slut Ch. 05 ****** bysex4every1© The day of the party finally came. I was really nervous; after all, the stakes were pretty high; either things would go well and I would have a clear shot at as many threesomes I could ever want, or everything would fall into shambles, probably ending my relationship with Lizzy for all eternity. No stress... 
+ 
+
+===
+
+The day of the party finally came. I was really nervous; after all, the stakes were pretty high; either things would go well and I would have a clear shot at as many threesomes I could ever want, or everything would fall into shambles, probably ending my relationship with Lizzy for all eternity. No stress... 
 
  After picking up Lizzy, we drove for another hour before reaching our destination. Once the obligatory handshaking, kissing and congratulating were over, I steered the four of us towards a table, far enough from the bar and the dance floor, which was an important part of my plan. 
 

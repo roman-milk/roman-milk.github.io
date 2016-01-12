@@ -1,8 +1,14 @@
+Boss Lady
+=========
 #1 
 
  
 
- ****** Boss Lady ****** byStoryTeller07© The job was interesting only the boss was difficult. She required Jim to work late on reports which she took the credit for when sending them to head office. He knew his time would come but when it did he was surprised how bizarre and complete his revenge was. As usual Mary informed him of a meeting with clients at the last minute on a Friday afternoon. She would pick him up at the tube station near the restaurant so all he had to do was go home and change. Luckily he had a change of clothing ready and the journey in both directions would give him a chance to get up to date with the client who was bringing his wife. 
+ 
+
+===
+
+The job was interesting only the boss was difficult. She required Jim to work late on reports which she took the credit for when sending them to head office. He knew his time would come but when it did he was surprised how bizarre and complete his revenge was. As usual Mary informed him of a meeting with clients at the last minute on a Friday afternoon. She would pick him up at the tube station near the restaurant so all he had to do was go home and change. Luckily he had a change of clothing ready and the journey in both directions would give him a chance to get up to date with the client who was bringing his wife. 
 
  "Jump in, I don't want to hang around." She said as he scrambled into the passenger seat. Before he had the door shut she was off pushing into the evening traffic. Jim kept quiet, a tactic he had learnt from experience, it was better to find out what kind of mood she was in before starting a conversation. 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** Boss Lady ****** byStoryTeller07© "Yes, sir." She said. Although a little afraid she accepted knowing it was a promotion in this profession. 
+ 
+
+===
+
+"Yes, sir." She said. Although a little afraid she accepted knowing it was a promotion in this profession. 
 
  "I'll meet you tomorrow night here. Understood? That's right, you be here, girl or your in trouble. Be here at six. I'll have a place set up for you by then. Remember you be here at six tomorrow." He ordered leaving no chance to refuse, even if she had a mind to, which she hadn't. 
 

@@ -1,8 +1,14 @@
+Family Troubles
+===============
 #1 
 
  
 
- ****** Family Troubles ****** byStoryTeller07© Gina was visiting her daughter with husband in tow. They were staying at the house her daughter shared with fellow university students. It had been her idea as a means of checking up on Dianne. Her husband, Dean, of course hated the idea, until last night. 
+ 
+
+===
+
+Gina was visiting her daughter with husband in tow. They were staying at the house her daughter shared with fellow university students. It had been her idea as a means of checking up on Dianne. Her husband, Dean, of course hated the idea, until last night. 
 
  Surrounded by young women he had obviously revelled in their attention. They didn't seem to notice the effect they had on him but Gina did. Once home she would make him pay for those nasty little thoughts that were firing his imagination. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Family Troubles Ch. 02 ****** byStoryTeller07© Gina needs to keep the secret 
+ 
+
+===
+
+Gina needs to keep the secret 
 
  "We must talk," Gina whispered. 
 
@@ -488,7 +498,11 @@
 
  
 
- ****** Family Troubles Ch. 02 ****** byStoryTeller07© "No, I can't take dad. He and grandmother don't get on. Besides, he's gone missing too. I'll leave now, and mom can catch me up. I don't want to be stuck with her for three hours driving home. She'll lecture me all the way. I'll be a lot quicker too, she drives so careful. That should be her middle name, careful," Dianne commented. 
+ 
+
+===
+
+"No, I can't take dad. He and grandmother don't get on. Besides, he's gone missing too. I'll leave now, and mom can catch me up. I don't want to be stuck with her for three hours driving home. She'll lecture me all the way. I'll be a lot quicker too, she drives so careful. That should be her middle name, careful," Dianne commented. 
 
  "See you when you get back," he said, and blew her a kiss down the phone. 
 
@@ -756,7 +770,11 @@
 
  
 
- ****** Family Troubles Ch. 02 ****** byStoryTeller07© She slid to his side, careful not to hurt him. 
+ 
+
+===
+
+She slid to his side, careful not to hurt him. 
 
  As a matter of pride Reggie was going to have to make him spurt his load. 
 

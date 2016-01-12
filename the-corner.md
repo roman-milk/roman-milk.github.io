@@ -1,8 +1,14 @@
+The Corner Pt. 01
+=================
 #1 
 
  
 
- ****** The Corner Pt. 01 ****** bytom6432© This is a total fantasy written by me for fun. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older. 
+ 
+
+===
+
+This is a total fantasy written by me for fun. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older. 
 
  ================== 
 
@@ -140,7 +146,11 @@
 
  
 
- ****** The Corner Pt. 02 ****** bytom6432© (This is a total fantasy written by me for fun. It is not real either legally or in real life and is a product of my imagination. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older.) 
+ 
+
+===
+
+(This is a total fantasy written by me for fun. It is not real either legally or in real life and is a product of my imagination. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older.) 
 
  
 
@@ -266,7 +276,11 @@
 
  
 
- ****** The Corner Pt. 02 ****** bytom6432© We followed behind her. I admired her firm buttocks, which swayed as she walked. We reached the table and I watched Lisa lower her shorts as she slide into the booth. Master gave me the 'look' and I did the same thing. Lucky the booth was located in the back out of sight of most patrons. Master sat across from us. We sat on our ruffled panties with the hobble chain between our legs. 
+ 
+
+===
+
+We followed behind her. I admired her firm buttocks, which swayed as she walked. We reached the table and I watched Lisa lower her shorts as she slide into the booth. Master gave me the 'look' and I did the same thing. Lucky the booth was located in the back out of sight of most patrons. Master sat across from us. We sat on our ruffled panties with the hobble chain between our legs. 
 
  He motioned for Susan to stand at his side, as he sat near the corner of the table. "Present Missy I did not get a good look when you curtsied. You will hold your skirt up nice and high for me to view," He ordered. 
 

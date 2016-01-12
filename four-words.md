@@ -1,8 +1,14 @@
+Four Words Ch. 01
+=================
 #1 
 
  
 
- ****** Four Words Ch. 01 ****** bytom6432© In my house there are four words my wife never wants to hear. They can be in any sequence, but are usually in this order: "PRESENT", "DISPLAY", "LAP" and "CORNERTIME" Let me give you an example. My wife, who is 41, with long slim legs, and a perky backside, is a manager at a Fortune 500 company. One evening last week she was in the kitchen preparing dinner. I was reviewing the bills at my desk, when I noticed an unusually large charge bill on our credit card. It could mean only one thing; Elizabeth had exceeded her allowance and decided to charge her expenses on our joint credit card. 
+ 
+
+===
+
+In my house there are four words my wife never wants to hear. They can be in any sequence, but are usually in this order: "PRESENT", "DISPLAY", "LAP" and "CORNERTIME" Let me give you an example. My wife, who is 41, with long slim legs, and a perky backside, is a manager at a Fortune 500 company. One evening last week she was in the kitchen preparing dinner. I was reviewing the bills at my desk, when I noticed an unusually large charge bill on our credit card. It could mean only one thing; Elizabeth had exceeded her allowance and decided to charge her expenses on our joint credit card. 
 
  "Elizabeth PRESENT!" I raised my voice slightly so she could hear me, and looked at my watch. She had exactly two minutes. I could hear her scrambling to make sure she got upstairs to my den within the allotted time. She rounded the corner with thirty seconds to spare and stood at attention in the center of the room. I continued working at my desk ignoring her. She immediately reached down to the hem of her short blue skirt. Slowly, she lifted her skirt until her under things were completely on display. The rule is she must be wherever I am located standing at attention with her panties fully on display. Pantyhose are not allowed, and her panties must be either white cotton full cut or cartoon character with reinforced elastic around the waistband. 
 
@@ -68,7 +74,11 @@
 
  
 
- ****** Four Words Ch. 02 ****** bytom6432© Elizabeth, my 41 year old wife, sat at her desk in her punishment PJ's. The PJ's consisted of a one piece Dr. Denton footed sleeper complete with a drop seat. The zipper ran down the front all the way to her drop seat flap for easy access. It fit her snugly accenting her fantastic figure. It was a white outfit trimmed with pink and Disney characters on the front and back. Her drop seat was unbuttoned exposing her backside, as she sat on 'ELIZABETH'S SPANKING MAT'. It was a special order welcome mat, which had a prickly bumpy side and a smooth side. She sat on the prickly side. Elizabeth was being punished for over spending on her credit card. 
+ 
+
+===
+
+Elizabeth, my 41 year old wife, sat at her desk in her punishment PJ's. The PJ's consisted of a one piece Dr. Denton footed sleeper complete with a drop seat. The zipper ran down the front all the way to her drop seat flap for easy access. It fit her snugly accenting her fantastic figure. It was a white outfit trimmed with pink and Disney characters on the front and back. Her drop seat was unbuttoned exposing her backside, as she sat on 'ELIZABETH'S SPANKING MAT'. It was a special order welcome mat, which had a prickly bumpy side and a smooth side. She sat on the prickly side. Elizabeth was being punished for over spending on her credit card. 
 
  She was fidgeting back and forth trying to get some relief from her sore cheeks while she printed 500 times "I WAS A NAUGHTY GIRL FOR USING MY DADDY'S CREDIT CARD AND MUST BE DISCIPLINED." She had been working at it for about 2 hours and was close to finishing it. I decided to let her finish, while I did some work in my den. 
 
@@ -106,7 +116,11 @@
 
  
 
- ****** Four Words Ch. 03 ****** bytom6432© The ten minute ride to the mall was made in almost complete silence. Elizabeth sat biting her lower lip and twisting the handkerchief in her hands, as she worried about what other things I had in store for her. I pulled into a space in front of the mall. "Let's go young lady; it's time to return your purchases. I am going to teach you a lesson you will never forget." I took her hand, as if she were a child as she carried her purchases to be returned. When she reached the escalator to go up to the second floor of the mall, I told her to go ahead of me. Letting her go about a quarter of the way up the escalator I followed, I could see her panties still tangled at her thighs. She blushed as she knew what I was doing. 
+ 
+
+===
+
+The ten minute ride to the mall was made in almost complete silence. Elizabeth sat biting her lower lip and twisting the handkerchief in her hands, as she worried about what other things I had in store for her. I pulled into a space in front of the mall. "Let's go young lady; it's time to return your purchases. I am going to teach you a lesson you will never forget." I took her hand, as if she were a child as she carried her purchases to be returned. When she reached the escalator to go up to the second floor of the mall, I told her to go ahead of me. Letting her go about a quarter of the way up the escalator I followed, I could see her panties still tangled at her thighs. She blushed as she knew what I was doing. 
 
  Getting to the lingerie store I quickly located the manager, Kathleen Lawson, a 47 year old shapely divorced mother of two college age girls, who knew both of us. As a matter of fact, she was a neighbor, who had asked me to discipline her daughters many times. I have also dealt with Kathleen several times when she misbehaved. I purchase all of Elizabeth's punishment panties at this store. 
 

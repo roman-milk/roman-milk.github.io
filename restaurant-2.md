@@ -1,8 +1,14 @@
+Restaurant
+==========
 #1 
 
  
 
- ****** Restaurant ****** byStoryTeller07© Tuesdays was a quiet night but they needed all the business they could get so remained open. They had talked about starting a theme evening, without spending too much, to attract customers. While bandying ideas around Pauline mentioned, with a sly grin on her face, "I could dress up as a French maid, what do you think?" 
+ 
+
+===
+
+Tuesdays was a quiet night but they needed all the business they could get so remained open. They had talked about starting a theme evening, without spending too much, to attract customers. While bandying ideas around Pauline mentioned, with a sly grin on her face, "I could dress up as a French maid, what do you think?" 
 
  She didn't expect him to agree as it was merely a suggestion to cheer him up while they waited in hope of at least someone walking in. 
 

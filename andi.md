@@ -1,7 +1,6 @@
 Andi
 ====
 
-
 ===
 
 Author's note: This has absolutely no redeeming value. It has precious little in the way of a plot or character development. Most, if not all, of the characters are not even remotely likeable. In short, it is pretty much what you have come to expect from me. Also I should add "Don't bother reading this Harry; you will hate it as much as you have everything else I have done." 

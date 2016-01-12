@@ -1,8 +1,14 @@
+Doctoral Discipline Pt. 04
+==========================
 #1 
 
  
 
- ****** Doctoral Discipline Pt. 04 ****** bytom6432© Co-Authors: subbie1982 and tom6432 
+ 
+
+===
+
+Co-Authors: subbie1982 and tom6432 
 
  This is a fantasy written by subbie1982 and myself for fun. All errors in spelling, punctuation and grammar are my responsibility. It contains spanking, humiliation and fetish; if this bothers you please seek other authors. All characters are 25 year old or older. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Doctoral Discipline Pt. 04 ****** bytom6432© It was now my turn, so he stepped in front of me and stretched my mouth wide with his two thumbs. It felt uncomfortable and I was beginning to feel mortified to be checked in this manner. He felt my tongue and stretched it out of my mouth and slowly stuck one finger inside. I almost gaged but was able to breathe slowly. He took two fingers and stuck them down my throat and I did gag feeling the pressure and lack of air. Three fingers were even worse and tears formed in my eyes as I gagged and began to drool on his fingers. He took his fingers out of my mouth and was not pleased with me. 
+ 
+
+===
+
+It was now my turn, so he stepped in front of me and stretched my mouth wide with his two thumbs. It felt uncomfortable and I was beginning to feel mortified to be checked in this manner. He felt my tongue and stretched it out of my mouth and slowly stuck one finger inside. I almost gaged but was able to breathe slowly. He took two fingers and stuck them down my throat and I did gag feeling the pressure and lack of air. Three fingers were even worse and tears formed in my eyes as I gagged and began to drool on his fingers. He took his fingers out of my mouth and was not pleased with me. 
 
  "Naughty cocksucker you need much practice you will be sucking on a large penis shaped dido every day until you can control your gag reflex. Annabelle my good cocksucker will teach you." 
 

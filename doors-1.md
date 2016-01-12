@@ -1,8 +1,14 @@
+Doors
+=====
 #1 
 
  
 
- ****** Doors ****** byE.Z.Riter© Hi, Dear Reader, This one is short and sweet. A little romance. Thanks to Gail and Ruthie for editing. And please comment and vote. Thanks. E. Z. 
+ 
+
+===
+
+Hi, Dear Reader, This one is short and sweet. A little romance. Thanks to Gail and Ruthie for editing. And please comment and vote. Thanks. E. Z. 
 
  * 
 

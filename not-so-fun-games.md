@@ -1,8 +1,14 @@
+Not So Fun Games Ch. 01
+=======================
 #1 
 
  
 
- ****** Not So Fun Games Ch. 01 ****** byStoryTeller07© Feeling stupid and more than a little embarrassed, Cynthia lay in a toy box wearing nothing but manacles. It was Peter's idea to play a game in the spare room with the notion it would stimulate their marriage. It had been a surprise that he wanted to take an interest in her but one more try at saving their marriage wouldn't hurt. 
+ 
+
+===
+
+Feeling stupid and more than a little embarrassed, Cynthia lay in a toy box wearing nothing but manacles. It was Peter's idea to play a game in the spare room with the notion it would stimulate their marriage. It had been a surprise that he wanted to take an interest in her but one more try at saving their marriage wouldn't hurt. 
 
  Her body was in good shape and something to be proud of. She was only twenty- four but dressing up in a cheerleaders outfit was, besides being an obvious request, embarrassing. When it turned into a major turn on for both of them she agreed to continue. 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Not So Fun Games Ch. 01 ****** byStoryTeller07© "You are thirsty and need to drink," he announced. 
+ 
+
+===
+
+"You are thirsty and need to drink," he announced. 
 
  She didn't need reminding. The thought of having the gag removed was re- assuring. She nodded her head vigorously the only means of communication available. She had already decided the only course open to her was to co- operate. They couldn't keep her long for there was work on Monday. When free the reckoning would be expensive and she meant to extract every penny. 
 
@@ -204,7 +214,11 @@
 
  
 
- ****** Not So Fun Games Ch. 02 ****** byStoryTeller07© Not so Fun Games 2 
+ 
+
+===
+
+Not so Fun Games 2 
 
  Life in a dungeon 
 
@@ -378,7 +392,11 @@
 
  
 
- ****** Not So Fun Games Ch. 02 ****** byStoryTeller07© Examining everything with eyes full of wonder she followed him up the stone steps. It must be an old house. When she stepped through the door she rapidly blinked her eyes from the brightness of a new day. The house was impressive. After the dungeon it was like stepping into another world. 
+ 
+
+===
+
+Examining everything with eyes full of wonder she followed him up the stone steps. It must be an old house. When she stepped through the door she rapidly blinked her eyes from the brightness of a new day. The house was impressive. After the dungeon it was like stepping into another world. 
 
  They were in a large kitchen with a cold stone floor, which kept her attention for she wore no shoes, or anything else. With head bowed in respect of her master she followed him. 
 
@@ -452,7 +470,11 @@
 
  
 
- ****** Not So Fun Games Ch. 03 ****** byStoryTeller07© Not So Fun Games Ch. 03 
+ 
+
+===
+
+Not So Fun Games Ch. 03 
 
  Fully trained to obey 
 

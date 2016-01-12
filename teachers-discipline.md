@@ -1,8 +1,14 @@
+Teacher's Discipline Ch. 01
+===========================
 #1 
 
  
 
- ****** Teacher's Discipline Ch. 01 ****** bytom6432© (This is a fantasy written for fun. All characters are over 18. It contains spanking and humiliation, so if you do not enjoy please skip the story) 
+ 
+
+===
+
+(This is a fantasy written for fun. All characters are over 18. It contains spanking and humiliation, so if you do not enjoy please skip the story) 
 
  * 
 
@@ -218,7 +224,11 @@
 
  
 
- ****** Teacher's Discipline Ch. 02 ****** bytom6432© (This is a fantasy written for fun. All characters are over 18. It contains spanking, humiliation, and domination so if you do not enjoy please skip the story. It is a contination of Chapter 1) 
+ 
+
+===
+
+(This is a fantasy written for fun. All characters are over 18. It contains spanking, humiliation, and domination so if you do not enjoy please skip the story. It is a contination of Chapter 1) 
 
  
 
@@ -334,7 +344,11 @@
 
  
 
- ****** Teacher's Discipline Ch. 03 ****** bytom6432© (This story is a fantasy written for fun. All character are 18 or older. Please skip this story if you do not enjoy spanking and humiliation) 
+ 
+
+===
+
+(This story is a fantasy written for fun. All character are 18 or older. Please skip this story if you do not enjoy spanking and humiliation) 
 
  * 
 
@@ -472,7 +486,11 @@
 
  
 
- ****** Teacher's Discipline Ch. 04 ****** bytom6432© (This is a fantasy written for fun. All characters are age 18 and over. If you do not enjoy spanking, humiliation and some fetish please do not read, as you will not enjoy the story. Thank you.) 
+ 
+
+===
+
+(This is a fantasy written for fun. All characters are age 18 and over. If you do not enjoy spanking, humiliation and some fetish please do not read, as you will not enjoy the story. Thank you.) 
 
  
 

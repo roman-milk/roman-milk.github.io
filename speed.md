@@ -1,8 +1,14 @@
+Speed
+=====
 #1 
 
  
 
- ****** Speed ****** byE.Z.Riter© This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre- approved archives. 
+ 
+
+===
+
+This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre- approved archives. 
 
  Copyright 2002 by E. Z. Riter 
 

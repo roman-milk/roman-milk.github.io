@@ -1,8 +1,14 @@
+Humiliated Ch. 01
+=================
 #1 
 
  
 
- ****** Humiliated Ch. 01 ****** byStoryTeller07© Tracy had one too many cool glasses of Chablis, while dining with friends. They weren't ladies that lunched, though they did meet up for the occasional dinner together. Since university they kept in touch, attending weddings, and the usual social gatherings, whenever possible. 
+ 
+
+===
+
+Tracy had one too many cool glasses of Chablis, while dining with friends. They weren't ladies that lunched, though they did meet up for the occasional dinner together. Since university they kept in touch, attending weddings, and the usual social gatherings, whenever possible. 
 
  The others seemed to have far more interesting lives, though she knew they weren't all fun and games. Margaret's funeral had brought it home to them all that life was too short, to put off that elusive something. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Humiliated Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Her friend takes control 
 
@@ -382,7 +392,11 @@
 
  
 
- ****** Humiliated Ch. 02 ****** byStoryTeller07© "Shake it," he told her. 
+ 
+
+===
+
+"Shake it," he told her. 
 
  Afraid of hurting it, she gently moved it from side to side. 
 
@@ -542,7 +556,11 @@
 
  
 
- ****** Humiliated Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  Forced into becoming a slut 
 
@@ -772,7 +790,11 @@
 
  
 
- ****** Humiliated Ch. 03 ****** byStoryTeller07© "Don't be silly dear you have to stay the weekend. I've planned some naughty games, especially for you," Irene rebuked her. It was adorable, the way this mature woman, had sunk into such a subservient role. 
+ 
+
+===
+
+"Don't be silly dear you have to stay the weekend. I've planned some naughty games, especially for you," Irene rebuked her. It was adorable, the way this mature woman, had sunk into such a subservient role. 
 
  "But mistress, I can't stay. All this trouble has got to me," Tracy said, with a sob. "I need to get away somewhere quiet, to recuperate. I need somewhere peaceful and calm, somewhere to recover from all these bad things I've done. I've become a pathetic little slut. If I stay here I'll sink into the abyss," Tracy meaningfully pleaded. 
 
@@ -828,7 +850,11 @@
 
  
 
- ****** Humiliated Ch. 04 ****** byStoryTeller07© Chapter 04 
+ 
+
+===
+
+Chapter 04 
 
  Tracy is swopped for a painting 
 
@@ -1056,7 +1082,11 @@
 
  
 
- ****** Humiliated Ch. 04 ****** byStoryTeller07© Meekly she followed him to a bedroom, his bedroom. His twisted mind had created those despicable devices, and more, so what was she in for next? In trepidation she watched him lay a large towel over the bed. This didn't bode well. 
+ 
+
+===
+
+Meekly she followed him to a bedroom, his bedroom. His twisted mind had created those despicable devices, and more, so what was she in for next? In trepidation she watched him lay a large towel over the bed. This didn't bode well. 
 
  "Lie face down," he ordered. 
 
@@ -1134,7 +1164,11 @@
 
  
 
- ****** Humiliated Ch. 05 ****** byStoryTeller07© Tracy on Show in an Art Gallery 
+ 
+
+===
+
+Tracy on Show in an Art Gallery 
 
  
 
@@ -1326,7 +1360,11 @@
 
  
 
- ****** Humiliated Ch. 05 ****** byStoryTeller07© "I wondered what all the fuss was about. How does it work?" Richard asked. 
+ 
+
+===
+
+"I wondered what all the fuss was about. How does it work?" Richard asked. 
 
  Her husband was fiddling with her sex before a crowd of awful people. He didn't know who she was. He thought she was just a novelty object, owned by Maurice. She was no longer a wife and stepmother, she was a work of art displayed in a gallery. Her body was there to be used and commented upon by critics. 
 

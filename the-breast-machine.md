@@ -1,8 +1,14 @@
+The Breast Machine
+==================
 #1 
 
  
 
- ****** The Breast Machine ****** byStoryTeller07© Experimental device with side affects 
+ 
+
+===
+
+Experimental device with side affects 
 
  Sabrina was searching for the cigarettes her mother kept hidden. Her boyfriend was becoming agitated, and she needed to complete an essay so borrowing a couple from the secret stash wouldn't hurt. To keep him quiet she decided to push him off the wagon. 
 
@@ -246,7 +252,11 @@
 
  
 
- ****** The Breast Machine ****** byStoryTeller07© She was scratching his side. It became urgent, shaking him from a trance. He looked to his side to find her mother digging her nails into him. 
+ 
+
+===
+
+She was scratching his side. It became urgent, shaking him from a trance. He looked to his side to find her mother digging her nails into him. 
 
  "Please!" she uttered, just the one word. 
 
@@ -288,7 +298,11 @@
 
  
 
- ****** The Breast Machine Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Waking up to the Consequences 
 
@@ -542,7 +556,11 @@
 
  
 
- ****** The Breast Machine Ch. 02 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  At the same time John too was on the internet. He signed in to Jane's intranet, using her password. Sabrina had used it when they were searching for information for a science project. It hadn't been changed, so he was in to the corporate information system. Now what should he do? What was the damn thing called? 
 
@@ -614,7 +632,11 @@
 
  
 
- ****** The Breast Machine Ch. 03 ****** byStoryTeller07© John walked in to Sabrina's bedroom, expecting an all-mighty row. At the very least he would receive the silent treatment, until she decided he had suffered enough. Instead she smiled at him, and patted the bed for him to sit. 
+ 
+
+===
+
+John walked in to Sabrina's bedroom, expecting an all-mighty row. At the very least he would receive the silent treatment, until she decided he had suffered enough. Instead she smiled at him, and patted the bed for him to sit. 
 
  "I'm sorry John, it's all my fault. I gave you that damn control thing. I didn't realise it would . . . Well, you know," she sheepishly spoke. 
 
@@ -880,7 +902,11 @@
 
  
 
- ****** The Breast Machine Ch. 03 ****** byStoryTeller07© "I can manage. I mean," John offered, then he too found it too difficult to continue. 
+ 
+
+===
+
+"I can manage. I mean," John offered, then he too found it too difficult to continue. 
 
  "Mom means we need to spread out your work load," Sabrina giggled. The sound was from embarrassment rather than amusement. 
 
@@ -914,7 +940,11 @@
 
  
 
- ****** The Breast Machine Ch. 04 ****** byStoryTeller07© "Please John, you know what I need," Jane beseeched her daughter's boyfriend. 
+ 
+
+===
+
+"Please John, you know what I need," Jane beseeched her daughter's boyfriend. 
 
  "Sorry, Jane, I really am. You both need me at once, so I need time to recover. If you can wait, we can spread out the cycle," John explained. 
 
@@ -1122,7 +1152,11 @@
 
  
 
- ****** The Breast Machine Ch. 04 ****** byStoryTeller07© Jane's bottom was bare with the panties tightly wrapped around her ankles. 
+ 
+
+===
+
+Jane's bottom was bare with the panties tightly wrapped around her ankles. 
 
  "Did you count the strokes your daughter received?" he asked, because he hadn't. 
 
@@ -1188,7 +1222,11 @@
 
  
 
- ****** The Breast Machine Ch. 05 ****** byStoryTeller07© Chapter 05 
+ 
+
+===
+
+Chapter 05 
 
  John plays with mother and daughter 
 
@@ -1428,7 +1466,11 @@
 
  
 
- ****** The Breast Machine Ch. 05 ****** byStoryTeller07© Both women sighed their satisfaction in harmony. John's weight pushed them closer into a tight embrace. He rolled them apart, and moved between them. He felt their arms wrap around him to sandwich him in a comforting cuddle. 
+ 
+
+===
+
+Both women sighed their satisfaction in harmony. John's weight pushed them closer into a tight embrace. He rolled them apart, and moved between them. He felt their arms wrap around him to sandwich him in a comforting cuddle. 
 
  *** 
 
@@ -1560,7 +1602,11 @@
 
  
 
- ****** The Breast Machine Ch. 06 ****** byStoryTeller07© John was bored. The last week of high school held little interest. He couldn't wait to get away to college, and away from the apartment. The four walls seemed to be a cage. He switched off the television, and aimlessly looked around, wondering what to do. 
+ 
+
+===
+
+John was bored. The last week of high school held little interest. He couldn't wait to get away to college, and away from the apartment. The four walls seemed to be a cage. He switched off the television, and aimlessly looked around, wondering what to do. 
 
  Thoughts naturally returned to Sabrina and her mother. It had been a fabulous two weeks of sexual adventure, which only ended a few days ago. Their demands for sex had worn him out! He grinned at the thought. If it had gone on any longer he would have tried out ever more kinky ideas with them. There were plenty of ideas to be picked up on the internet. 
 
@@ -1886,7 +1932,11 @@
 
  
 
- ****** The Breast Machine Ch. 06 ****** byStoryTeller07© 'OK, no problem, I'll get the spare bedroom ready,' John said, and put the phone down. 
+ 
+
+===
+
+'OK, no problem, I'll get the spare bedroom ready,' John said, and put the phone down. 
 
  'Fuck!' he strongly complained. 
 
@@ -2112,7 +2162,11 @@
 
  
 
- ****** The Breast Machine Ch. 07 ****** byStoryTeller07© John goes to college 
+ 
+
+===
+
+John goes to college 
 
  Muriel didn't feel so good. It was a hot day, and symptoms of dehydration were evident. Having a dry mouth and a dull headache, wasn't so good for a lecturer. Fortunately she'd spent the afternoon in her small office, tutoring students. At the end of the session she quickly escaped, to return with a cool bottle of water. 
 
@@ -2480,7 +2534,11 @@
 
  
 
- ****** The Breast Machine Ch. 07 ****** byStoryTeller07© In the kitchen she smelt coffee, and he was cooking breakfast. 
+ 
+
+===
+
+In the kitchen she smelt coffee, and he was cooking breakfast. 
 
  'Well, this is a surprise, and you mastered that old French coffee pot,' she smiled. 
 

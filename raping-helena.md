@@ -1,8 +1,14 @@
+Raping Helena
+=============
 #1 
 
  
 
- ****** Raping Helena ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may by posted as part of a review or posted to free-access, non-commercial archive sights. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may by posted as part of a review or posted to free-access, non-commercial archive sights. 
 
  Please! Give me comments. 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** Raping Helena ****** byE.Z.Riter© It did not even sound like me. It was the voice of a lust-filled madman. I watched the delightful sway of her ass as she crawled toward the bed, relishing her subjugation and surrender as much as anything sexual I had ever done. As she crawled onto the bed, I pinned her with a harsh hand on the back of her neck holding her against the mattress. My free hand dropped between her legs to pull at the dark tuft, caress the curve of her ass, as she lay, half-on, half- off, the bed with one knee and an extended foot supporting her weight. 
+ 
+
+===
+
+It did not even sound like me. It was the voice of a lust-filled madman. I watched the delightful sway of her ass as she crawled toward the bed, relishing her subjugation and surrender as much as anything sexual I had ever done. As she crawled onto the bed, I pinned her with a harsh hand on the back of her neck holding her against the mattress. My free hand dropped between her legs to pull at the dark tuft, caress the curve of her ass, as she lay, half-on, half- off, the bed with one knee and an extended foot supporting her weight. 
 
  When I released her, she moved again to lie in the center. I watched as she lay face down, then, rolled over to look at me, her lower body still twisted, vainly seeking protection from that which was to follow. 
 

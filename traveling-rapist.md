@@ -1,8 +1,14 @@
+Traveling Rapist - Lilly
+========================
 #1 
 
  
 
- ****** Traveling Rapist - Lilly ****** bydickpounder73© One night while wandering around on line, I was browsing one of my favorite websites that caters to forced sex using my usual nickname 'Traveling Rapist'. Believe it or not that name gets quite a lot of attention. Most of the private messages are from men wanting me to regale them of stories, and depending on my mood I would entertain them. 
+ 
+
+===
+
+One night while wandering around on line, I was browsing one of my favorite websites that caters to forced sex using my usual nickname 'Traveling Rapist'. Believe it or not that name gets quite a lot of attention. Most of the private messages are from men wanting me to regale them of stories, and depending on my mood I would entertain them. 
 
  This night I wasn't really in the mood and politely declined until the name 'dark n alone' popped up with an IM, "Hello Sir, my name is Lilly." I introduced myself and she asked about my online name. I told her part of my story, that I retired early and enjoy traveling and forced sex and usually try to do both as often as I can. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Traveling Rapist - Lilly ****** bydickpounder73© Then I found the master bedroom, and stood in the doorway listening and I heard the rhythmic breathing of one person, the light from the streetlight gave just enough light to make out her shape under the covers. 
+ 
+
+===
+
+Then I found the master bedroom, and stood in the doorway listening and I heard the rhythmic breathing of one person, the light from the streetlight gave just enough light to make out her shape under the covers. 
 
  I surveyed the room. I noticed a sliding door on one end of the room, big four poster bed (nice for binding her), private master bath. I closed the door quietly, and walked over to the sliding glass door and unlocked it, so if need be I can make a quick exit. 
 
@@ -464,7 +474,11 @@
 
  
 
- ****** Traveling Rapist - Lilly ****** bydickpounder73© Lying on her spent and used up, I drifted off to sleep for a few minutes. When I woke she was whispering, "Oh God I needed this, I am sorry Dick, but I got the real thing tonight." 
+ 
+
+===
+
+Lying on her spent and used up, I drifted off to sleep for a few minutes. When I woke she was whispering, "Oh God I needed this, I am sorry Dick, but I got the real thing tonight." 
 
  I lay there and couldn't decide whether to tell her or not. Reaching up and stroking her hair, then pulling her face to me kissing her deep and hard our tongues dancing with the other, she was moaning into my passionate kiss." 
 
@@ -480,7 +494,11 @@
 
  
 
- ****** Traveling Rapist (The Beginning) ****** bydickpounder73© My story starts when I was a teenager, and I was always the idea guy among all my friends. You know the type, let's build this, let's do this or that and all my friends following. I was pretty independent and always had a Dominant personality. I joined the Marine Corps at 22 after college, did my 4 years, left and started my own business. 
+ 
+
+===
+
+My story starts when I was a teenager, and I was always the idea guy among all my friends. You know the type, let's build this, let's do this or that and all my friends following. I was pretty independent and always had a Dominant personality. I joined the Marine Corps at 22 after college, did my 4 years, left and started my own business. 
 
  I sold the business and retired at the age of 41. I know it was pretty young to retire, but I figured if I got bored, I could always find things to keep me busy. I wanted to travel from a motor coach so I could see this beautiful country, meet all kinds of people, and hopefully have some fun along the way. 
 
@@ -702,7 +720,11 @@
 
  
 
- ****** Traveling Rapist (The Beginning) ****** bydickpounder73© She slowly flicked her tongue over the head and down the long shaft as I brought the flogger down on her wet open pussy, she moaned and licked with a little more interest, swirling her tongue around the shaft and over the head. 
+ 
+
+===
+
+She slowly flicked her tongue over the head and down the long shaft as I brought the flogger down on her wet open pussy, she moaned and licked with a little more interest, swirling her tongue around the shaft and over the head. 
 
  Flogging her pussy in a slow rhythm, her hips raising to meet each stroke, her wet tongue going at my hard throbbing shaft now, she was getting into it. I dropped the flogger and grabbed two vibrating eggs, rubbing one over her pussy and soaking it in her cunt juice I pressed it inside her tight asshole. 
 

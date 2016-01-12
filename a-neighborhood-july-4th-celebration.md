@@ -1,8 +1,14 @@
+A Neighborhood July 4th Celebration
+===================================
 #1 
 
  
 
- ****** A Neighborhood July 4th Celebration ****** bydawn1958© Denise looked around at all of the happy faces and smiled because the party was going so well. It certainly took the stress off, as she was the one who made most of the arrangements for the large neighborhood gathering. Everyone seemed to love an Independence Day celebration and the party atmosphere spread through the entire neighborhood. Denise was over the top, as everyone came up and thanked her for the great party. 
+ 
+
+===
+
+Denise looked around at all of the happy faces and smiled because the party was going so well. It certainly took the stress off, as she was the one who made most of the arrangements for the large neighborhood gathering. Everyone seemed to love an Independence Day celebration and the party atmosphere spread through the entire neighborhood. Denise was over the top, as everyone came up and thanked her for the great party. 
 
  It seemed someone was constantly shoving a drink in her hand and it felt like the celebration would never end. One thing that no one expected or realized was the fact alcohol was readily available to not only the adults, but also to the numerous teenagers in attendance. Three of the cunning and more devious teens huddled together near a secluded area of the park, as they watched all the happenings going on in the central section. 
 
@@ -136,7 +142,11 @@
 
  
 
- ****** A Neighborhood July 4th Celebration ****** bydawn1958© Deni glared at the note and she was mad. "You little bastard! I made a mistake, but it won't happen again, you bastard," she whispered out loud. Denise normally got home at 5 o'clock yet strangely she looked at her watch to see how much time she had before the dreaded meeting. 
+ 
+
+===
+
+Deni glared at the note and she was mad. "You little bastard! I made a mistake, but it won't happen again, you bastard," she whispered out loud. Denise normally got home at 5 o'clock yet strangely she looked at her watch to see how much time she had before the dreaded meeting. 
 
  Her heart stopped when she moved the note. Vividly portrayed in a big colored photo was a naked white woman with her dainty hand wrapped around the largest black cock she had ever seen. Then she noticed one of her bare boobs being cupped by a big hand and brazenly displayed for all to see. 
 

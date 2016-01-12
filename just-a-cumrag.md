@@ -1,8 +1,14 @@
+Just A Cumrag Ch. 01
+====================
 #1 
 
  
 
- ****** Just A Cumrag Ch. 01 ****** bysex4every1© "That's it, I am kicking him out on his ear." my husband said as he walked into the kitchen, about to join me for breakfast before going to work. I could only guess he was referring to our son Malcolm, who had dropped out of college about a year ago and had been unemployed ever since. The fact that he was neither getting some other form of education nor trying very hard to land a job, was bothering my husband Jason boundlessly. 
+ 
+
+===
+
+"That's it, I am kicking him out on his ear." my husband said as he walked into the kitchen, about to join me for breakfast before going to work. I could only guess he was referring to our son Malcolm, who had dropped out of college about a year ago and had been unemployed ever since. The fact that he was neither getting some other form of education nor trying very hard to land a job, was bothering my husband Jason boundlessly. 
 
  "What did he do now?" I asked, frustrated that he was picking on our boy again. 
 
@@ -278,7 +284,11 @@
 
  
 
- ****** Just A Cumrag Ch. 01 ****** bysex4every1© The following day promised to be an interesting one, considering how far I had gotten Malcolm to go along in my perverted little game in just one day. I thought Jason would never leave for work! After he did, I impatiently waited for Malcolm to get back from his morning run. 
+ 
+
+===
+
+The following day promised to be an interesting one, considering how far I had gotten Malcolm to go along in my perverted little game in just one day. I thought Jason would never leave for work! After he did, I impatiently waited for Malcolm to get back from his morning run. 
 
  He walked in – all sweaty and panting – and took out his iPod, quickly gulping down half a bottle of water. "Morning mom." he said as he passed me by, heading towards the stairs. I was disappointed, but only for a moment... 
 
@@ -456,7 +466,11 @@
 
  
 
- ****** Just A Cumrag Ch. 02 ****** bysex4every1© A quick response to the many comments and emails I received for the first chapter in this series: 
+ 
+
+===
+
+A quick response to the many comments and emails I received for the first chapter in this series: 
 
  First_of_all: to everyone – whether you liked the story or not – who offered their opinion/criticism in a civilized manner: thank you! Your feedback is greatly appreciated and I will try to take all of your suggestions into consideration. You are the main reason I write these stories. 
 
@@ -586,7 +600,11 @@
 
  
 
- ****** Just A Cumrag Ch. 02 ****** bysex4every1© Needless to say, I was more than ready when Malcolm eventually came in through the back door; unlike the previous days he didn't seem to be transpiring... as if he hadn't been running at all. Before I could ask him anything, he handed me a black blindfold and said:"Take off your clothes and put this on, I am going to cum on your face." 
+ 
+
+===
+
+Needless to say, I was more than ready when Malcolm eventually came in through the back door; unlike the previous days he didn't seem to be transpiring... as if he hadn't been running at all. Before I could ask him anything, he handed me a black blindfold and said:"Take off your clothes and put this on, I am going to cum on your face." 
 
  Excited by his arrogance and the prospect of getting another one of his facials, I took off my night gown, tied the blindfold in front of my eyes and got down on my knees on the kitchen floor. Barely a few seconds later, I could hear his fist stroking his cock. From the air displacement, I could sense that his cock – and his fist – was just a few inches away. After a few minutes, he stepped back and I heard him fumbling with his clothes – probably taking some of them off. When he moved closer again, he started jacking off faster and more passionate than before, bumping his fist against my face several times over the next couple of minutes. Then, suddenly, a grunt... followed by volley of cum splattering against my face; it wasn't as much as I had grown accustomed to, but it was still a fair quantity. I figured he had already pumped out a load this morning and hadn't taken his pill yet. When he was done, I reached for the blindfold and took it off, catching Malcolm off guard as he said:"No, not yet..." 
 
@@ -666,7 +684,11 @@
 
  
 
- ****** Just A Cumrag Ch. 03 ****** bysex4every1© Needless to say, I had a big grin on my face all through dinner. Afterwards Jason had started watching some soccer, but fell asleep about halfway through, positively exhausted from working hard all day. I almost felt sorry for him... almost. I sat down in the other couch and changed the channels; I knew that once he was sounds asleep, he was very hard to wake up. I flipped the channels a bit, but to be honest, my mind was preoccupied with the next two days: Saturday and Sunday, as Jason was going to be home, it would be a lot more difficult for me to be at my son's beck and call. We'd have to be a lot more sneaky, which was a bit dangerous but the prospect also excited me, very much so. After glancing over to Jason who was snoring, I unbuttoned my jeans, lowered the zipper and slipped my right hand into my panties. While I kept half an eye on Jason, I played with my clit for a little bit, then wriggled two fingers up my wet cunt and started pushing them in and out. God, how I wished Malcolm was here to give me another proper fucking. After dinner he had retired to his room to play a new video game and I hadn't seen him since... no matter how much I wanted to, I couldn't go up to his room and asking for a fucking. That wasn't how our new relationship worked: as my husband was completely dependent on me for sex, so was I at the mercy of my son. The only difference was that there wasn't going to be any sex in Jason's immediate future, I smiled wickedly to myself as I wriggled my fingers a little deeper into my cunt. 
+ 
+
+===
+
+Needless to say, I had a big grin on my face all through dinner. Afterwards Jason had started watching some soccer, but fell asleep about halfway through, positively exhausted from working hard all day. I almost felt sorry for him... almost. I sat down in the other couch and changed the channels; I knew that once he was sounds asleep, he was very hard to wake up. I flipped the channels a bit, but to be honest, my mind was preoccupied with the next two days: Saturday and Sunday, as Jason was going to be home, it would be a lot more difficult for me to be at my son's beck and call. We'd have to be a lot more sneaky, which was a bit dangerous but the prospect also excited me, very much so. After glancing over to Jason who was snoring, I unbuttoned my jeans, lowered the zipper and slipped my right hand into my panties. While I kept half an eye on Jason, I played with my clit for a little bit, then wriggled two fingers up my wet cunt and started pushing them in and out. God, how I wished Malcolm was here to give me another proper fucking. After dinner he had retired to his room to play a new video game and I hadn't seen him since... no matter how much I wanted to, I couldn't go up to his room and asking for a fucking. That wasn't how our new relationship worked: as my husband was completely dependent on me for sex, so was I at the mercy of my son. The only difference was that there wasn't going to be any sex in Jason's immediate future, I smiled wickedly to myself as I wriggled my fingers a little deeper into my cunt. 
 
  The more I played with myself, the hornier I got and the more I threw caution to the wind; I slid off my jeans and panties and took off my top and bra; completely naked I reclined back into my previous position and started fingering myself again. Without the hindrance of clothes, I could now bend my knees and reach for the skies with my feet, spreading myself completely open to my fingers. I finger fucked myself for about two minutes, before a wave of ecstasy overwhelmed me and caused my cunt to start contracting violently. I quickly pulled my fingers out and watched as my cunt squirted onto the rug; when the squirting subsides, I plunged my fingers back in and clawed at my pussy walls till I felt another set of contractions coming. I took out my fingers and started squirting onto the rug again, wildly. I repeated this fingering and squirting trick over and over again, wondering what hubby would have to say about this; if he didn't like a bit of cum, how would he feel about my pussy soaking the living room rug. I continued fingering and squirting for as long as I could take it. 
 
@@ -724,7 +746,11 @@
 
  
 
- ****** Just A Cumrag Ch. 03 ****** bysex4every1© "Get up." he ordered. "The guy that works the afternoon shift will be here in an hour and I want to be done with you by the time he gets here." I got up and followed him -- like a good little slut -- into the empty store. 
+ 
+
+===
+
+"Get up." he ordered. "The guy that works the afternoon shift will be here in an hour and I want to be done with you by the time he gets here." I got up and followed him -- like a good little slut -- into the empty store. 
 
  "Wait here." he said as he walked to the front door, turned the 'OPEN/CLOSED' sign and bolted the door in two places. For a second I thought he was going to fuck me right in the middle of the store, but no such luck! Instead, he led me to the back of the store, where we entered a narrow, dark hallway; at the end of which we took a left. 
 
@@ -756,7 +782,11 @@
 
  
 
- ****** Just A Cumrag Ch. 04 ****** bysex4every1© My sister called me late Saturday night: one of her best friends' husband had been in a car accident and she wanted to drive over, to provide some moral support. As she didn't want to leave her husband Jason and her son alone for too long, she asked if I could 'babysit' Malcolm. I thought it was odd for a 19-year old boy to have a sleepover at his aunt's house, but I knew Malcolm and his father didn't see eye to eye, to say the least. Besides, it was none of my business. I was single, so I didn't have anything that I couldn't get out of; I agreed to pick up Malcolm Sunday morning and promised that he could stay as long as necessary. When I got there around 9am, Malcolm was all set to go; my sister had already left, so it was just him and his dad. Out of courtesy, Jason invited me in for a minute, but since I could feel the tension between them, I decided against it. After quick goodbye, Malcolm put his luggage in the trunk and we drove off. Although there was room next to me in the passenger seat, he apparently preferred to sit in the back seat, so I let him. He looked like your typical teenager: baggy clothes, iPod in his ears and silent as the dead. It was a long drive back to my house, so I welcomed the initial peace and quiet. 
+ 
+
+===
+
+My sister called me late Saturday night: one of her best friends' husband had been in a car accident and she wanted to drive over, to provide some moral support. As she didn't want to leave her husband Jason and her son alone for too long, she asked if I could 'babysit' Malcolm. I thought it was odd for a 19-year old boy to have a sleepover at his aunt's house, but I knew Malcolm and his father didn't see eye to eye, to say the least. Besides, it was none of my business. I was single, so I didn't have anything that I couldn't get out of; I agreed to pick up Malcolm Sunday morning and promised that he could stay as long as necessary. When I got there around 9am, Malcolm was all set to go; my sister had already left, so it was just him and his dad. Out of courtesy, Jason invited me in for a minute, but since I could feel the tension between them, I decided against it. After quick goodbye, Malcolm put his luggage in the trunk and we drove off. Although there was room next to me in the passenger seat, he apparently preferred to sit in the back seat, so I let him. He looked like your typical teenager: baggy clothes, iPod in his ears and silent as the dead. It was a long drive back to my house, so I welcomed the initial peace and quiet. 
 
  There was very little traffic and the car stereo wasn't on, so except for the humming of the engine, the car was pretty quiet. Suddenly I heard a familiar whooshing sound, like skin rubbing against skin. I looked back in the mirror, but all I could see was Malcolm staring out of his window, at first. Upon closer examination I noticed that his whole body was gently rocking back and forth. At the same moment, I heard his breathing getting louder and more erratic. Surely he wasn't... I thought to myself as I quickly glanced at the back seat – after making sure the road was clear. What I saw left no room for interpretation: Malcolm had taken his huge, swollen cock out and was wanking it in a steady pace. 
 
@@ -862,7 +892,11 @@
 
  
 
- ****** Just A Cumrag Ch. 04 ****** bysex4every1© "God damned Malcolm." I said as I grabbed a paper towel nearby and wiped his juicy cum rope off my skirt; the little bastard had blatantly violated the only restriction I had imposed. On top of that, he vanished as soon as he had gathered his clothes; so it was up to me to clean up all of his cum, which took me nearly ten minutes and about as many paper towels. 
+ 
+
+===
+
+"God damned Malcolm." I said as I grabbed a paper towel nearby and wiped his juicy cum rope off my skirt; the little bastard had blatantly violated the only restriction I had imposed. On top of that, he vanished as soon as he had gathered his clothes; so it was up to me to clean up all of his cum, which took me nearly ten minutes and about as many paper towels. 
 
  At least he had the common sense to stay in his room for another couple of hours. In fact, I didn't see him again until I called him down for dinner. He took his sweet time coming down and as a result I was already sitting down, eating, when he walked into the kitchen. When he eventually walked in, I was hardly surprised to see his large, swollen cock hanging obscenely over the waistband of his boxers. Just like before, the poor thing looked like he had been beating it for quite some time. I sipped from my red wine as I glanced at it. God, just the sight of it made me horny as hell. He walked up to me, jacking off furiously, aiming his swollen cock at my bare left arm. 
 
@@ -926,7 +960,11 @@
 
  
 
- ****** Just A Cumrag Ch. 04 ****** bysex4every1© "Erin, you're such a whore!" I thought to myself as I looked down at my naked body, still in the same lewd position he had fucked me in and had emptied his balls into. After about twenty seconds, I finally snapped out of it and sat up, using his boxers to clean myself up down there. I got dressed again, grabbed a soda and a snack and sat back down on the couch, trying to pick up where I had left off in my book. Needless to say, I didn't have my full attention on the story anymore and my mind wandered off more than once. Being distracted as I was, I barely managed to read two chapters in the next hour. Having lost all interest in the story, I nodded off to sleep. When I woke up about an hour and a half later, I needed to take a leak. After passing by the kitchen to put my dirty glass and plate in the sink, I headed for the toilet. When I was done, I walked back into the living room, as the interest in my book had returned and I was planning on reading another couple of chapters before having to start dinner. But there was Malcolm, stark naked again, standing in the living room browsing through the book I had been reading. 
+ 
+
+===
+
+"Erin, you're such a whore!" I thought to myself as I looked down at my naked body, still in the same lewd position he had fucked me in and had emptied his balls into. After about twenty seconds, I finally snapped out of it and sat up, using his boxers to clean myself up down there. I got dressed again, grabbed a soda and a snack and sat back down on the couch, trying to pick up where I had left off in my book. Needless to say, I didn't have my full attention on the story anymore and my mind wandered off more than once. Being distracted as I was, I barely managed to read two chapters in the next hour. Having lost all interest in the story, I nodded off to sleep. When I woke up about an hour and a half later, I needed to take a leak. After passing by the kitchen to put my dirty glass and plate in the sink, I headed for the toilet. When I was done, I walked back into the living room, as the interest in my book had returned and I was planning on reading another couple of chapters before having to start dinner. But there was Malcolm, stark naked again, standing in the living room browsing through the book I had been reading. 
 
  When he noticed me walking in, he looked up and asked:"Is this your favorite genre?" 
 
@@ -946,7 +984,11 @@
 
  
 
- ****** Just A Cumrag Ch. 05 ****** bysex4every1© My life flashed before my eyes. What had I done? How was I going to explain this? I wouldn't be able to; I mean, my nephew had his cock balls deep lodged in my slut ass and I was moaning like a bitch in heat. Not with twenty of the best lawyers would I be able to talk myself out of this one. In the blink of an eye I could see this incident ruining my entire life; being branded a pervert and an incestual slut, my family and friends would turn away, if word got out I could lose my job. I tried to get up, causing Malcolm's cock to slip out of my ass briefly. He seemed to be unaware of her presence or he just didn't give a fuck, because he put his hand on my torso, pushed me back down and reinserted his dick back into my ass and started fucking me with renewed vigor. I wasn't planning on just letting him fuck me with my sister watching us - and probably about to kill me - but once he started slamming his hard cock into my ass again, there was little else I could do but lay there, moan and brace for the next impact. 
+ 
+
+===
+
+My life flashed before my eyes. What had I done? How was I going to explain this? I wouldn't be able to; I mean, my nephew had his cock balls deep lodged in my slut ass and I was moaning like a bitch in heat. Not with twenty of the best lawyers would I be able to talk myself out of this one. In the blink of an eye I could see this incident ruining my entire life; being branded a pervert and an incestual slut, my family and friends would turn away, if word got out I could lose my job. I tried to get up, causing Malcolm's cock to slip out of my ass briefly. He seemed to be unaware of her presence or he just didn't give a fuck, because he put his hand on my torso, pushed me back down and reinserted his dick back into my ass and started fucking me with renewed vigor. I wasn't planning on just letting him fuck me with my sister watching us - and probably about to kill me - but once he started slamming his hard cock into my ass again, there was little else I could do but lay there, moan and brace for the next impact. 
 
  "Malcolm, what the fuck?" Casey shouted. Malcolm, who had his back to her, now turned his head in surprise, confirming my suspicion that he simply hadn't heard her the first time. Once he laid eyes on her, I could actually feel his dick getting even harder in my ass, stretching me, even though he wasn't moving anymore. Casey, who was wearing a very short, red skirt and a black top - revealing several inches of her tummy - kept looking for a few seconds, glancing at her son and me alternately before turning away in disgust and storming out of the room. Malcolm turned to follow her and pulled his dick out of my slut ass in the process; with his fat, throbbing cock leading the way, he headed for the living room, leaving me there, with my ass spread lewdly open. I quickly closed my legs and hopped off the table as I watched Malcolm disappear; once he was out of sight, I heard some minor struggling and some angry whispering coming from my sister, followed by some whispering coming from Malcolm. I looked around for my clothes, remembering that Malcolm had taken them off into the living room. Realizing I was as much to blame as Malcolm, I wanted to go after him. I didn't want him taking the fall for this alone. 
 
@@ -1070,7 +1112,11 @@
 
  
 
- ****** Just A Cumrag Ch. 05 ****** bysex4every1© Malcolm groaned as he deliberately refrained from grabbing his cock and jacking the shit of it; Casey and I glanced at each other and shared a wicked smile as we realized that he was denying himself a proper climax. His cock helplessly veered up and down, as if it was reaching out to be touched, but Casey and I simply looked at it, unsympathetically, and - not so - secretly enjoyed its suffering. 
+ 
+
+===
+
+Malcolm groaned as he deliberately refrained from grabbing his cock and jacking the shit of it; Casey and I glanced at each other and shared a wicked smile as we realized that he was denying himself a proper climax. His cock helplessly veered up and down, as if it was reaching out to be touched, but Casey and I simply looked at it, unsympathetically, and - not so - secretly enjoyed its suffering. 
 
  It wasn't until every drop of sperm had left his cock that Casey suddenly wrapped her mouth around it and started cleaning her son's pipe thoroughly. As Malcolm moaned, clearly enjoying his mom's tongue bath, I couldn't help but be amazed at how sexy she looked. When she had had her fun, we all put our clothes back on, which resulted in quite an unusual sight: Casey was missing a skirt, I was missing a top and Malcolm, well... Malcolm was wearing nothing but boxers. During dinner, we all talked and shared some more secrets and Malcolm provided me with some more explicit details of what he had done to his mom since their affair had started. Off course, he returned the favor, providing Casey with some intimate and nasty details about me. Luckily, since he'd only been boinking me for three days, there was less material to go through. On the question of where this little ménage a trois was going, he had no clear answer. 
 

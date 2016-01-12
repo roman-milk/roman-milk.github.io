@@ -1,8 +1,14 @@
+Heaven Ch. 01
+=============
 #1 
 
  
 
- ****** Heaven Ch. 01 ****** bysex4every1© Warning! The sex described in this story is extremely casual. There are also a lot of incestuous encounters. If any of this bothers you, I advise you to read another story. If not, enjoy! 
+ 
+
+===
+
+Warning! The sex described in this story is extremely casual. There are also a lot of incestuous encounters. If any of this bothers you, I advise you to read another story. If not, enjoy! 
 
  ***** 
 
@@ -194,7 +200,11 @@
 
  
 
- ****** Heaven Ch. 01 ****** bysex4every1© About an hour later, as we were getting ready to leave, two young girls with halter tops and jeans cut-offs walked in and headed straight for the bar. John gawked at their naked legs and their gorgeous figures and was clearly getting aroused. After pouring down what was left of his drink, he whispered - his eyes still on the girls, "Can you pay? I've gotta go jack off," and stood up, walking out of the diner. Now, I wasn't particularly horny, but I would have sucked and fucked him if he'd bothered to ask, and he probably knew that, so I figured he had good reasons for wanting to jack off by himself. I finished my drink and watched as the unattached men in the diner started swarming around the two young harlots, who were clearly after some male companionship. Some of the men even started hitting on me, now that I was sitting alone. After turning them down kindly and paying for dinner and the drinks, I walked out. 
+ 
+
+===
+
+About an hour later, as we were getting ready to leave, two young girls with halter tops and jeans cut-offs walked in and headed straight for the bar. John gawked at their naked legs and their gorgeous figures and was clearly getting aroused. After pouring down what was left of his drink, he whispered - his eyes still on the girls, "Can you pay? I've gotta go jack off," and stood up, walking out of the diner. Now, I wasn't particularly horny, but I would have sucked and fucked him if he'd bothered to ask, and he probably knew that, so I figured he had good reasons for wanting to jack off by himself. I finished my drink and watched as the unattached men in the diner started swarming around the two young harlots, who were clearly after some male companionship. Some of the men even started hitting on me, now that I was sitting alone. After turning them down kindly and paying for dinner and the drinks, I walked out. 
 
  It was already dark outside, so I made my way to the bus very carefully. Seeing the rear door of the bus was closed, I walked up to the front and was about to step on, when I noticed John sitting on his knees on top of the bus stairs, jacking his swollen cock. I smiled and said, "Oh sorry, I thought you'd be done by now." 
 
@@ -292,7 +302,11 @@
 
  
 
- ****** Heaven Ch. 02 ****** bysex4every1© Note_from_the_author 
+ 
+
+===
+
+Note_from_the_author 
 
  I've received lots of feedback regarding the lack of character development in the first chapter; the sex depicted was allegedly indiscriminate, without reason and without emotion. Well, that was intentional, and here is why: it is the opinion of this humble writer that in the whole wide world of porn, with all its preferences, fetishes and perversities, not enough attention is given to the specific niche of casual sex. Sex without seduction, without any feelings at all. Sex as an act as common as breathing or eating, where boundaries such as gender, family ties, social status, marital status play no part. 
 
@@ -446,7 +460,11 @@
 
  
 
- ****** Heaven Ch. 02 ****** bysex4every1© Just as she was about to holler out for Jason, we heard muffled screams coming from upstairs. Cindy looked at me, smiled, and headed up the stairs. After taking off my coat as well, I followed her. When we got to what I assumed was his room, she put her ear against the door, although from this distance, the fucking noises were pretty unmistakable. She waited for me to catch up with her and then opened the door. As we poked our heads in, we saw Jason - completely naked and on his knees - fucking the shit out of Miranda, one of Cindy's best friends, who was on all fours, squealing like a pig. 
+ 
+
+===
+
+Just as she was about to holler out for Jason, we heard muffled screams coming from upstairs. Cindy looked at me, smiled, and headed up the stairs. After taking off my coat as well, I followed her. When we got to what I assumed was his room, she put her ear against the door, although from this distance, the fucking noises were pretty unmistakable. She waited for me to catch up with her and then opened the door. As we poked our heads in, we saw Jason - completely naked and on his knees - fucking the shit out of Miranda, one of Cindy's best friends, who was on all fours, squealing like a pig. 
 
  Although they turned their heads towards the door for a second, they never stopped fucking. In fact, our interruption didn't even seem to slow them down at all. After a few seconds of gawking at them, Cindy said, "Sorry," and simply closed the door. Unperturbed and as happy as before, my sister looked at me and said, "So, why don't I give you a tour of the house." 
 
@@ -630,7 +648,11 @@
 
  
 
- ****** Heaven Ch. 02 ****** bysex4every1© I rode him for about eight minutes, came hard once myself, before feeling him tense up and shoot inside of me. 
+ 
+
+===
+
+I rode him for about eight minutes, came hard once myself, before feeling him tense up and shoot inside of me. 
 
  I dismounted him and got up with a big grin on my face. However, his cock was still fully erect. 
 
@@ -660,7 +682,11 @@
 
  
 
- ****** Heaven Ch. 03 ****** bysex4every1© Warning! The sex described in this story is extremely casual. There are also a lot of incestuous encounters. If any of this bothers you, I advise you to read another story. If not, enjoy! 
+ 
+
+===
+
+Warning! The sex described in this story is extremely casual. There are also a lot of incestuous encounters. If any of this bothers you, I advise you to read another story. If not, enjoy! 
 
  Who-is-who: (returning characters) 
 
@@ -914,7 +940,11 @@
 
  
 
- ****** Heaven Ch. 03 ****** bysex4every1© After peeking from behind the door blinds, Al himself unchained the door, opened it and said, "Well well well, the sisters McAlloway, I don't think I've ever seen you girls in here so early. Are you sure you girls are in the right place?" 
+ 
+
+===
+
+After peeking from behind the door blinds, Al himself unchained the door, opened it and said, "Well well well, the sisters McAlloway, I don't think I've ever seen you girls in here so early. Are you sure you girls are in the right place?" 
 
  Cindy reached for her id in her purse, but All put his hand up, indicating it wasn't necessary and said, "If I didn't know for sure you were over eighteen, I wouldn't even have opened the door, I just wanted to give you girls a friendly warning." 
 
@@ -1054,7 +1084,11 @@
 
  
 
- ****** Heaven Ch. 03 ****** bysex4every1© As he kneeled down behind me, I looked back over my shoulder and asked, slightly frustrated, "Oh dad, really?" 
+ 
+
+===
+
+As he kneeled down behind me, I looked back over my shoulder and asked, slightly frustrated, "Oh dad, really?" 
 
  "Sorry pumpkin, can't be helped," he said as he nudged his big tip against my entrance. 
 

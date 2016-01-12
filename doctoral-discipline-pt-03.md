@@ -1,8 +1,14 @@
+Doctoral Discipline Pt. 03
+==========================
 #1 
 
  
 
- ****** Doctoral Discipline Pt. 03 ****** bytom6432© Co-Authors: subbie1982 and tom6432 
+ 
+
+===
+
+Co-Authors: subbie1982 and tom6432 
 
  (This is a fantasy written by subbie1982 and myself for fun. All errors in spelling, punctuation and grammar are my responsibility. It contains spanking, humiliation and fetish; if this bothers you please seek other authors. All characters are 25 year old or older.) 
 
@@ -138,7 +144,11 @@
 
  
 
- ****** Doctoral Discipline Pt. 03 ****** bytom6432© I licked along the length of his cock, and after it was soaking wet from my tongue inspection I moved my head back slightly and looked up at him. I watched him nod and placed my head at his cock. I took his entire cock into my mouth.... slowly... he was directing me with his hands on my hair, his fingers wrapped in my hair. My lips squeezed tightly around his cock. 
+ 
+
+===
+
+I licked along the length of his cock, and after it was soaking wet from my tongue inspection I moved my head back slightly and looked up at him. I watched him nod and placed my head at his cock. I took his entire cock into my mouth.... slowly... he was directing me with his hands on my hair, his fingers wrapped in my hair. My lips squeezed tightly around his cock. 
 
  I continued until his cock-head was touching the back of my throat. He held me in this position, controlling my every movement. I stayed like this, my mouth stuffed with his hardness, sucking and slurping loudly but not moving. After a while he began to move my head up and down along his shaft as slowly as possible. I began to suck as he increased the tempo and began rocking his hips back and forth. 
 

@@ -1,10 +1,16 @@
+Teacher Undressed Ch. 01
+========================
 #1  
 
  
 
  
 
-  ****** Teacher Undressed Ch. 01 ****** byStoryTeller07© During the summer William worked with his uncle, helping out with a stage act. Uncle Samuel was a hypnotist, and he was pleased to see William had a natural talent. Back in school William made a presentation to the class, as a part of an English Language lesson. He had been the only one to volunteer, so he nervously introduced the subject of hypnotherapy.  
+  
+
+===
+
+During the summer William worked with his uncle, helping out with a stage act. Uncle Samuel was a hypnotist, and he was pleased to see William had a natural talent. Back in school William made a presentation to the class, as a part of an English Language lesson. He had been the only one to volunteer, so he nervously introduced the subject of hypnotherapy.  
 
   The teacher was reluctant to joined in, for obvious reasons. He promised not to make her do anything silly, and assured her it was a scientific demonstration to show how the subconscious worked. He avoided telling her anything about the stage act, and that it was a bawdy men's show. When the class encouraged her with promises to work hard, she agreed.  
 
@@ -236,7 +242,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 01 ****** byStoryTeller07© At each desk she stopped to lean over a student's work. She gave them a big smile and accidently rubbed her breast against a cheek. She also wiggled her ass, and jiggled her beasts. It was a small step forward, but he needed to be sure she was comfortable with being undressed, and showing off her breasts.  
+  
+
+===
+
+At each desk she stopped to lean over a student's work. She gave them a big smile and accidently rubbed her breast against a cheek. She also wiggled her ass, and jiggled her beasts. It was a small step forward, but he needed to be sure she was comfortable with being undressed, and showing off her breasts.  
 
   Brian was so tempted to grab a hold of her tits, it took all his willpower to resist. He knew how to psych himself up for a football game, but this was so different.  
 
@@ -434,7 +444,11 @@
 
  
 
- ****** Teacher Undressed Ch. 01 ****** byStoryTeller07© During the summer William worked with his uncle, helping out with a stage act. Uncle Samuel was a hypnotist, and he was pleased to see William had a natural talent. Back in school William made a presentation to the class, as a part of an English Language lesson. He had been the only one to volunteer, so he nervously introduced the subject of hypnotherapy. 
+ 
+
+===
+
+During the summer William worked with his uncle, helping out with a stage act. Uncle Samuel was a hypnotist, and he was pleased to see William had a natural talent. Back in school William made a presentation to the class, as a part of an English Language lesson. He had been the only one to volunteer, so he nervously introduced the subject of hypnotherapy. 
 
  The teacher was reluctant to joined in, for obvious reasons. He promised not to make her do anything silly, and assured her it was a scientific demonstration to show how the subconscious worked. He avoided telling her anything about the stage act, and that it was a bawdy men's show. When the class encouraged her with promises to work hard, she agreed. 
 
@@ -664,7 +678,11 @@
 
  
 
- ****** Teacher Undressed Ch. 01 ****** byStoryTeller07© At each desk she stopped to lean over a student's work. She gave them a big smile and accidently rubbed her breast against a cheek. She also wiggled her ass, and jiggled her beasts. It was a small step forward, but he needed to be sure she was comfortable with being undressed, and showing off her breasts. 
+ 
+
+===
+
+At each desk she stopped to lean over a student's work. She gave them a big smile and accidently rubbed her breast against a cheek. She also wiggled her ass, and jiggled her beasts. It was a small step forward, but he needed to be sure she was comfortable with being undressed, and showing off her breasts. 
 
  Brian was so tempted to grab a hold of her tits, it took all his willpower to resist. He knew how to psych himself up for a football game, but this was so different. 
 
@@ -862,7 +880,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 02 ****** byStoryTeller07© Chapter 02  
+  
+
+===
+
+Chapter 02  
 
   Miss Grant relaxes at home  
 
@@ -1056,7 +1078,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 02 ****** byStoryTeller07© Of its own volition a finger entered her vagina. On hearing a gasp, he thought he had gone too far.  
+  
+
+===
+
+Of its own volition a finger entered her vagina. On hearing a gasp, he thought he had gone too far.  
 
   "Sorry, Miss, did I hurt you?" he asked. His finger held quit still, afraid that movement would cause more discomfort.  
 
@@ -1142,7 +1168,11 @@
 
  
 
- ****** Teacher Undressed Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Miss Grant relaxes at home 
 
@@ -1334,7 +1364,11 @@
 
  
 
- ****** Teacher Undressed Ch. 02 ****** byStoryTeller07© Of its own volition a finger entered her vagina. On hearing a gasp, he thought he had gone too far. 
+ 
+
+===
+
+Of its own volition a finger entered her vagina. On hearing a gasp, he thought he had gone too far. 
 
  "Sorry, Miss, did I hurt you?" he asked. His finger held quit still, afraid that movement would cause more discomfort. 
 
@@ -1422,7 +1456,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 03 ****** byStoryTeller07© William was up early ready to visit his teacher, Miss Grant. Unusually for him impatience kept him looking at the clock, then his watch. Pacing around the bedroom, he wondered if there was something to do as a distraction. Fidgeting in front of the computer, he found it was useless as a distraction. Time usually went quickly when playing a game, only in was impossible to concentrate on anything, except the more pressing appointment.  
+  
+
+===
+
+William was up early ready to visit his teacher, Miss Grant. Unusually for him impatience kept him looking at the clock, then his watch. Pacing around the bedroom, he wondered if there was something to do as a distraction. Fidgeting in front of the computer, he found it was useless as a distraction. Time usually went quickly when playing a game, only in was impossible to concentrate on anything, except the more pressing appointment.  
 
   He looked through the assignment yet again. The pertinent paragraphs had been re-written a few times, until they seemed foolproof. Previous instructions hadn't been specific enough, so that they spilled over into her private life outside of school.  
 
@@ -1664,7 +1702,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 03 ****** byStoryTeller07© "Are you a hot bitch on heat? Do you want your reward now?" he teased.  
+  
+
+===
+
+"Are you a hot bitch on heat? Do you want your reward now?" he teased.  
 
   The way he spoke to his teacher was outrageous! His confidence with her had soared. It was said without considering that she was a grown woman, and he was just an eighteen year old student.  
 
@@ -1766,7 +1808,11 @@
 
  
 
- ****** Teacher Undressed Ch. 03 ****** byStoryTeller07© William was up early ready to visit his teacher, Miss Grant. Unusually for him impatience kept him looking at the clock, then his watch. Pacing around the bedroom, he wondered if there was something to do as a distraction. Fidgeting in front of the computer, he found it was useless as a distraction. Time usually went quickly when playing a game, only in was impossible to concentrate on anything, except the more pressing appointment. 
+ 
+
+===
+
+William was up early ready to visit his teacher, Miss Grant. Unusually for him impatience kept him looking at the clock, then his watch. Pacing around the bedroom, he wondered if there was something to do as a distraction. Fidgeting in front of the computer, he found it was useless as a distraction. Time usually went quickly when playing a game, only in was impossible to concentrate on anything, except the more pressing appointment. 
 
  He looked through the assignment yet again. The pertinent paragraphs had been re-written a few times, until they seemed foolproof. Previous instructions hadn't been specific enough, so that they spilled over into her private life outside of school. 
 
@@ -2006,7 +2052,11 @@
 
  
 
- ****** Teacher Undressed Ch. 03 ****** byStoryTeller07© "Are you a hot bitch on heat? Do you want your reward now?" he teased. 
+ 
+
+===
+
+"Are you a hot bitch on heat? Do you want your reward now?" he teased. 
 
  The way he spoke to his teacher was outrageous! His confidence with her had soared. It was said without considering that she was a grown woman, and he was just an eighteen year old student. 
 
@@ -2110,7 +2160,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 04 ****** byStoryTeller07© Miss Grant woke up Monday morning feeling wonderful. The doubts and worries of the last weeks had vanished. Waiting for the alarm to sound, she stretched out in bed feeling refreshed from a good nights' sleep. An image of one of her students, with his face in her pussy, flashed through her mind. A hand darted to her crotch and clasped it tight, as though trying to protect herself.  
+  
+
+===
+
+Miss Grant woke up Monday morning feeling wonderful. The doubts and worries of the last weeks had vanished. Waiting for the alarm to sound, she stretched out in bed feeling refreshed from a good nights' sleep. An image of one of her students, with his face in her pussy, flashed through her mind. A hand darted to her crotch and clasped it tight, as though trying to protect herself.  
 
   "My god! That was a powerful dream last night," she mused.  
 
@@ -2350,7 +2404,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 04 ****** byStoryTeller07© Crossed fingers, and a touch on wood was called for. He took a deep breath before the next stage of the subterfuge.  
+  
+
+===
+
+Crossed fingers, and a touch on wood was called for. He took a deep breath before the next stage of the subterfuge.  
 
   "Miss Grant, I'm pleased to help you in any way I can," he said.  
 
@@ -2524,7 +2582,11 @@
 
  
 
- ****** Teacher Undressed Ch. 04 ****** byStoryTeller07© Miss Grant woke up Monday morning feeling wonderful. The doubts and worries of the last weeks had vanished. Waiting for the alarm to sound, she stretched out in bed feeling refreshed from a good nights' sleep. An image of one of her students, with his face in her pussy, flashed through her mind. A hand darted to her crotch and clasped it tight, as though trying to protect herself. 
+ 
+
+===
+
+Miss Grant woke up Monday morning feeling wonderful. The doubts and worries of the last weeks had vanished. Waiting for the alarm to sound, she stretched out in bed feeling refreshed from a good nights' sleep. An image of one of her students, with his face in her pussy, flashed through her mind. A hand darted to her crotch and clasped it tight, as though trying to protect herself. 
 
  "My god! That was a powerful dream last night," she mused. 
 
@@ -2760,7 +2822,11 @@
 
  
 
- ****** Teacher Undressed Ch. 04 ****** byStoryTeller07© Crossed fingers, and a touch on wood was called for. He took a deep breath before the next stage of the subterfuge. 
+ 
+
+===
+
+Crossed fingers, and a touch on wood was called for. He took a deep breath before the next stage of the subterfuge. 
 
  "Miss Grant, I'm pleased to help you in any way I can," he said. 
 
@@ -2934,7 +3000,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 05 ****** byStoryTeller07© Two teachers undressed in class  
+  
+
+===
+
+Two teachers undressed in class  
 
   Miss Grant woke up physically refreshed, with a feeling that all her troubles were in the past. Still in a half-awake state, she stretched her limbs, and froze. Someone was in the bed! Her leg rubbed against naked flesh. She frantically tried to recall where she had been last night, but of course, it had been the usual evening in.  
 
@@ -3210,7 +3280,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 05 ****** byStoryTeller07© Miss Bourbon took a deep breath, heaving her large breasts in Williams face. 'Thank you William for helping me,' she said, and gave him a big smile of gratitude.  
+  
+
+===
+
+Miss Bourbon took a deep breath, heaving her large breasts in Williams face. 'Thank you William for helping me,' she said, and gave him a big smile of gratitude.  
 
   Brian kept a watch on Julian, ready to grab his wandering hands if he made an indecent grab at Miss Grant. Everyone else was taking in Miss Bourbon's peachy ass, exposed over William's desk.  
 
@@ -3404,7 +3478,11 @@
 
  
 
- ****** Teacher Undressed Ch. 05 ****** byStoryTeller07© Two teachers undressed in class 
+ 
+
+===
+
+Two teachers undressed in class 
 
  Miss Grant woke up physically refreshed, with a feeling that all her troubles were in the past. Still in a half-awake state, she stretched her limbs, and froze. Someone was in the bed! Her leg rubbed against naked flesh. She frantically tried to recall where she had been last night, but of course, it had been the usual evening in. 
 
@@ -3678,7 +3756,11 @@
 
  
 
- ****** Teacher Undressed Ch. 05 ****** byStoryTeller07© Miss Bourbon took a deep breath, heaving her large breasts in Williams face. 'Thank you William for helping me,' she said, and gave him a big smile of gratitude. 
+ 
+
+===
+
+Miss Bourbon took a deep breath, heaving her large breasts in Williams face. 'Thank you William for helping me,' she said, and gave him a big smile of gratitude. 
 
  Brian kept a watch on Julian, ready to grab his wandering hands if he made an indecent grab at Miss Grant. Everyone else was taking in Miss Bourbon's peachy ass, exposed over William's desk. 
 
@@ -3874,7 +3956,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 06 ****** byStoryTeller07© Two teachers one student  
+  
+
+===
+
+Two teachers one student  
 
   His two teachers were fussing around as though he were someone important, rather than their student. They wore baby-doll night dresses, which revealed more than they should. May was advising Vicky how he liked his eggs, over easy, and not to overcook the bacon. May wasn't a good cook, so it was convenient having Vicky around.  
 
@@ -4160,7 +4246,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 06 ****** byStoryTeller07© 'Yes, I guess so, Miss Grant,' he nodded.  
+  
+
+===
+
+'Yes, I guess so, Miss Grant,' he nodded.  
 
   'That makes sense. I shouldn't say this, any of this, but, well, I can rely on you. Can't I William? Good, thank you,' she smiled at him. 'Every time I think of you, a feeling comes over me, that I want you to make all my troubles melt away. When you walked in I wanted you to call me May, instead of Miss Grant,' she said. She let out a little nervously laughed.  
 
@@ -4400,7 +4490,11 @@
 
  
 
- ****** Teacher Undressed Ch. 06 ****** byStoryTeller07© Two teachers one student 
+ 
+
+===
+
+Two teachers one student 
 
  His two teachers were fussing around as though he were someone important, rather than their student. They wore baby-doll night dresses, which revealed more than they should. May was advising Vicky how he liked his eggs, over easy, and not to overcook the bacon. May wasn't a good cook, so it was convenient having Vicky around. 
 
@@ -4684,7 +4778,11 @@
 
  
 
- ****** Teacher Undressed Ch. 06 ****** byStoryTeller07© 'Yes, I guess so, Miss Grant,' he nodded. 
+ 
+
+===
+
+'Yes, I guess so, Miss Grant,' he nodded. 
 
  'That makes sense. I shouldn't say this, any of this, but, well, I can rely on you. Can't I William? Good, thank you,' she smiled at him. 'Every time I think of you, a feeling comes over me, that I want you to make all my troubles melt away. When you walked in I wanted you to call me May, instead of Miss Grant,' she said. She let out a little nervously laughed. 
 
@@ -4926,7 +5024,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 07 ****** byStoryTeller07© After dinner William had to decide what to do with them. Of course he wanted to play with his two teachers, but there were long term plans to be made. The teaches were buying expensive sexy clothes, under his hypnotic instructions. Unable to afford them, they were getting into financial trouble. That problem had been solved by getting Vicky to move in with May, to share their expenses.  
+  
+
+===
+
+After dinner William had to decide what to do with them. Of course he wanted to play with his two teachers, but there were long term plans to be made. The teaches were buying expensive sexy clothes, under his hypnotic instructions. Unable to afford them, they were getting into financial trouble. That problem had been solved by getting Vicky to move in with May, to share their expenses.  
 
   It showed how careful he had to be when instructing them, as there always seemed to be unforeseen consequences. In class this evening they had both let the guys finger them to an orgasm. For William it was a nasty reminder to be careful how he directed them to behave. It was import to tell them what NOT to do, as well as what to do. He was supposed to look after them, yet he let them down. The weekend had arrived so he could spend time setting the rules on how they should behave.  
 
@@ -5160,7 +5262,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 07 ****** byStoryTeller07© 'Alright, I believe you, go on,' he said.  
+  
+
+===
+
+'Alright, I believe you, go on,' he said.  
 
   'I started to notice men were paying me attention, even staring at me. Looking into a stores window display, I could see straight through the dress. I ran in to the store and grabbed a pair of panties. I intended to go to the changing room, but a couple of girls from my class were there, looking at clothes. Before they spotted me I ran out, still clutching the panties, straight into a security guy,' Vicky said, with a dazed expression on her face.  
 
@@ -5368,7 +5474,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 07 ****** byStoryTeller07© May knew it would be harder for William to screw her, with Vicky's weight on his hips. Vicky was going to have to do all the work. Not only that, May hoped the feeling of being so deeply penetrated would spur her on to a quick orgasm.  
+  
+
+===
+
+May knew it would be harder for William to screw her, with Vicky's weight on his hips. Vicky was going to have to do all the work. Not only that, May hoped the feeling of being so deeply penetrated would spur her on to a quick orgasm.  
 
   May kneeled behind her pulling on her nipples, which were already taught and engorged. Vicky leant forward from pain and encouragement. May already knew the woman liked her nipples roughly treated, from a previous session. Both hands cupped her breasts, pulling her backward. The message got through to a primitive part of her brain, and Vicky began to rock back and forth on his cock.  
 
@@ -5438,7 +5548,11 @@
 
  
 
- ****** Teacher Undressed Ch. 07 ****** byStoryTeller07© After dinner William had to decide what to do with them. Of course he wanted to play with his two teachers, but there were long term plans to be made. The teaches were buying expensive sexy clothes, under his hypnotic instructions. Unable to afford them, they were getting into financial trouble. That problem had been solved by getting Vicky to move in with May, to share their expenses. 
+ 
+
+===
+
+After dinner William had to decide what to do with them. Of course he wanted to play with his two teachers, but there were long term plans to be made. The teaches were buying expensive sexy clothes, under his hypnotic instructions. Unable to afford them, they were getting into financial trouble. That problem had been solved by getting Vicky to move in with May, to share their expenses. 
 
  It showed how careful he had to be when instructing them, as there always seemed to be unforeseen consequences. In class this evening they had both let the guys finger them to an orgasm. For William it was a nasty reminder to be careful how he directed them to behave. It was import to tell them what NOT to do, as well as what to do. He was supposed to look after them, yet he let them down. The weekend had arrived so he could spend time setting the rules on how they should behave. 
 
@@ -5670,7 +5784,11 @@
 
  
 
- ****** Teacher Undressed Ch. 07 ****** byStoryTeller07© 'Alright, I believe you, go on,' he said. 
+ 
+
+===
+
+'Alright, I believe you, go on,' he said. 
 
  'I started to notice men were paying me attention, even staring at me. Looking into a stores window display, I could see straight through the dress. I ran in to the store and grabbed a pair of panties. I intended to go to the changing room, but a couple of girls from my class were there, looking at clothes. Before they spotted me I ran out, still clutching the panties, straight into a security guy,' Vicky said, with a dazed expression on her face. 
 
@@ -5876,7 +5994,11 @@
 
  
 
- ****** Teacher Undressed Ch. 07 ****** byStoryTeller07© May knew it would be harder for William to screw her, with Vicky's weight on his hips. Vicky was going to have to do all the work. Not only that, May hoped the feeling of being so deeply penetrated would spur her on to a quick orgasm. 
+ 
+
+===
+
+May knew it would be harder for William to screw her, with Vicky's weight on his hips. Vicky was going to have to do all the work. Not only that, May hoped the feeling of being so deeply penetrated would spur her on to a quick orgasm. 
 
  May kneeled behind her pulling on her nipples, which were already taught and engorged. Vicky leant forward from pain and encouragement. May already knew the woman liked her nipples roughly treated, from a previous session. Both hands cupped her breasts, pulling her backward. The message got through to a primitive part of her brain, and Vicky began to rock back and forth on his cock. 
 
@@ -5948,7 +6070,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© Miss Grant discovers the truth  
+  
+
+===
+
+Miss Grant discovers the truth  
 
   A few days ago Miss Grant woke up in bed with William, as his teacher, which was a shock for her. After that he was careful to instruct her to remain as May, his hypnotised playmate, when she woke up. He did the same to Vicky, another of his teachers.  
 
@@ -6232,7 +6358,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© He tightened his arms around her, feeling his cock pushing at her sex, and hearing her moan. She was certainly hot, and would have welcomed him when hypnotised as May. As his teacher she was naturally upset over the prospect of being entered by a student.  
+  
+
+===
+
+He tightened his arms around her, feeling his cock pushing at her sex, and hearing her moan. She was certainly hot, and would have welcomed him when hypnotised as May. As his teacher she was naturally upset over the prospect of being entered by a student.  
 
   He felt his cock pushing between her lips, and she let out a squeak of anguish. He shoved her up the bed, despite a strong temptation to impale her.  
 
@@ -6552,7 +6682,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© There was a large pile of clothes, obviously too much to go into the wardrobe.  
+  
+
+===
+
+There was a large pile of clothes, obviously too much to go into the wardrobe.  
 
   'Some will have to go to a charity shop,' he said.  
 
@@ -6840,7 +6974,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© 'You really must wear panties, Miss Bourbon, especially to school,' William firmly said.  
+  
+
+===
+
+'You really must wear panties, Miss Bourbon, especially to school,' William firmly said.  
 
   She had revealed she'd not worn panties for a time in college. She must have started leaving them off again since the hypnosis. Her moral decency had certainly taken a tumble with him in May's apartment. It was his fault, and he would have to do something about it.  
 
@@ -7000,7 +7138,11 @@
 
  
 
- ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© Miss Grant discovers the truth 
+ 
+
+===
+
+Miss Grant discovers the truth 
 
  A few days ago Miss Grant woke up in bed with William, as his teacher, which was a shock for her. After that he was careful to instruct her to remain as May, his hypnotised playmate, when she woke up. He did the same to Vicky, another of his teachers. 
 
@@ -7282,7 +7424,11 @@
 
  
 
- ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© He tightened his arms around her, feeling his cock pushing at her sex, and hearing her moan. She was certainly hot, and would have welcomed him when hypnotised as May. As his teacher she was naturally upset over the prospect of being entered by a student. 
+ 
+
+===
+
+He tightened his arms around her, feeling his cock pushing at her sex, and hearing her moan. She was certainly hot, and would have welcomed him when hypnotised as May. As his teacher she was naturally upset over the prospect of being entered by a student. 
 
  He felt his cock pushing between her lips, and she let out a squeak of anguish. He shoved her up the bed, despite a strong temptation to impale her. 
 
@@ -7600,7 +7746,11 @@
 
  
 
- ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© There was a large pile of clothes, obviously too much to go into the wardrobe. 
+ 
+
+===
+
+There was a large pile of clothes, obviously too much to go into the wardrobe. 
 
  'Some will have to go to a charity shop,' he said. 
 
@@ -7884,7 +8034,11 @@
 
  
 
- ****** Teacher Undressed Ch. 08 ****** byStoryTeller07© 'You really must wear panties, Miss Bourbon, especially to school,' William firmly said. 
+ 
+
+===
+
+'You really must wear panties, Miss Bourbon, especially to school,' William firmly said. 
 
  She had revealed she'd not worn panties for a time in college. She must have started leaving them off again since the hypnosis. Her moral decency had certainly taken a tumble with him in May's apartment. It was his fault, and he would have to do something about it. 
 
@@ -8046,7 +8200,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 09 ****** byStoryTeller07© A steamy kiss from his teacher  
+  
+
+===
+
+A steamy kiss from his teacher  
 
   'Hi Miss, Grant,' William said.  
 
@@ -8350,7 +8508,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 09 ****** byStoryTeller07© Her body took over, with instinct driving her up and down his hardness. Her vagina was sensitive to every movement. This was no lovemaking, it was animal rutting, for her at least.  
+  
+
+===
+
+Her body took over, with instinct driving her up and down his hardness. Her vagina was sensitive to every movement. This was no lovemaking, it was animal rutting, for her at least.  
 
   William felt voyeuristic, as though he were watching someone else having sex. His teacher, not Vicky, was pounding up and down the length of his cock. She was fucking herself, without his help. He wasn't needed. He lay there watching her tits bounce around, and his cock being absorbed over and over again. He hoped he could keep an erection long enough to satisfy her. The way she was gripping it so tight, and thrusting hard, she might wear it down to nothing.  
 
@@ -8700,7 +8862,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 09 ****** byStoryTeller07© 'Hi William. You went too quickly for me to have a word last night. I just wanted to clear things up with you,' she said, looking serious for a change.  
+  
+
+===
+
+'Hi William. You went too quickly for me to have a word last night. I just wanted to clear things up with you,' she said, looking serious for a change.  
 
   'Sure, Miss Bourbon,' he sighed, wondering what was coming next.  
 
@@ -8892,7 +9058,11 @@
 
  
 
- ****** Teacher Undressed Ch. 09 ****** byStoryTeller07© A steamy kiss from his teacher 
+ 
+
+===
+
+A steamy kiss from his teacher 
 
  'Hi Miss, Grant,' William said. 
 
@@ -9194,7 +9364,11 @@
 
  
 
- ****** Teacher Undressed Ch. 09 ****** byStoryTeller07© Her body took over, with instinct driving her up and down his hardness. Her vagina was sensitive to every movement. This was no lovemaking, it was animal rutting, for her at least. 
+ 
+
+===
+
+Her body took over, with instinct driving her up and down his hardness. Her vagina was sensitive to every movement. This was no lovemaking, it was animal rutting, for her at least. 
 
  William felt voyeuristic, as though he were watching someone else having sex. His teacher, not Vicky, was pounding up and down the length of his cock. She was fucking herself, without his help. He wasn't needed. He lay there watching her tits bounce around, and his cock being absorbed over and over again. He hoped he could keep an erection long enough to satisfy her. The way she was gripping it so tight, and thrusting hard, she might wear it down to nothing. 
 
@@ -9540,7 +9714,11 @@
 
  
 
- ****** Teacher Undressed Ch. 09 ****** byStoryTeller07© 'Hi William. You went too quickly for me to have a word last night. I just wanted to clear things up with you,' she said, looking serious for a change. 
+ 
+
+===
+
+'Hi William. You went too quickly for me to have a word last night. I just wanted to clear things up with you,' she said, looking serious for a change. 
 
  'Sure, Miss Bourbon,' he sighed, wondering what was coming next. 
 
@@ -9734,7 +9912,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© The teachers realise they've been hypnotized  
+  
+
+===
+
+The teachers realise they've been hypnotized  
 
   May arrived home from a hard day at school feeling washed out. Vicky, her apartment sharer, was lively and full of pep. Even more than usual. They changed into something more casual, and came together for a coffee in the kitchen.  
 
@@ -9988,7 +10170,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© 'Yes! Fuck me hard,' she encouraged, on a long low whisper of breath.  
+  
+
+===
+
+'Yes! Fuck me hard,' she encouraged, on a long low whisper of breath.  
 
   He'd heard this demand from her before, so knew what to do. He rode her hard. The pillow under her hips was squashed flat into the soft bed covers. Her heavy gasps for breath matched his, as their thrusts harmonized. Like a machine they fucked in unison, as though joined at the hip, face to face.  
 
@@ -10310,7 +10496,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© 'I'm not sure if a teacher should be letting a student decide what to put in her vagina. Checking a teacher's pussy in class isn't covered in the rules, so I guess it's ok, this once,' she firmly stated.  
+  
+
+===
+
+'I'm not sure if a teacher should be letting a student decide what to put in her vagina. Checking a teacher's pussy in class isn't covered in the rules, so I guess it's ok, this once,' she firmly stated.  
 
   'You're not just my teacher, you're my teacher slut, and have to do as your told. Remember that!' he warned her.  
 
@@ -10528,7 +10718,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© Were these the phrases that put them into a hypnotic trance? If so he could take control of these two teachers, whenever he wanted to. He looked across to where his two friends were moving in on Miss Bourbon. She was an attractive woman, young and sexy, even when not so lewdly displaying her body. While the others enjoyed the teachers favours, he sat imagining what he might do with two sexy women.  
+  
+
+===
+
+Were these the phrases that put them into a hypnotic trance? If so he could take control of these two teachers, whenever he wanted to. He looked across to where his two friends were moving in on Miss Bourbon. She was an attractive woman, young and sexy, even when not so lewdly displaying her body. While the others enjoyed the teachers favours, he sat imagining what he might do with two sexy women.  
 
   Miss Grant walked over to Brian, with a warm smile on her face. 'You've done exceptionally well, Brian. I'm sure you will pass the exam next week,' she said.  
 
@@ -10592,7 +10786,11 @@
 
  
 
- ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© The teachers realise they've been hypnotized 
+ 
+
+===
+
+The teachers realise they've been hypnotized 
 
  May arrived home from a hard day at school feeling washed out. Vicky, her apartment sharer, was lively and full of pep. Even more than usual. They changed into something more casual, and came together for a coffee in the kitchen. 
 
@@ -10844,7 +11042,11 @@
 
  
 
- ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© 'Yes! Fuck me hard,' she encouraged, on a long low whisper of breath. 
+ 
+
+===
+
+'Yes! Fuck me hard,' she encouraged, on a long low whisper of breath. 
 
  He'd heard this demand from her before, so knew what to do. He rode her hard. The pillow under her hips was squashed flat into the soft bed covers. Her heavy gasps for breath matched his, as their thrusts harmonized. Like a machine they fucked in unison, as though joined at the hip, face to face. 
 
@@ -11164,7 +11366,11 @@
 
  
 
- ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© 'I'm not sure if a teacher should be letting a student decide what to put in her vagina. Checking a teacher's pussy in class isn't covered in the rules, so I guess it's ok, this once,' she firmly stated. 
+ 
+
+===
+
+'I'm not sure if a teacher should be letting a student decide what to put in her vagina. Checking a teacher's pussy in class isn't covered in the rules, so I guess it's ok, this once,' she firmly stated. 
 
  'You're not just my teacher, you're my teacher slut, and have to do as your told. Remember that!' he warned her. 
 
@@ -11380,7 +11586,11 @@
 
  
 
- ****** Teacher Undressed Ch. 10 ****** byStoryTeller07© Were these the phrases that put them into a hypnotic trance? If so he could take control of these two teachers, whenever he wanted to. He looked across to where his two friends were moving in on Miss Bourbon. She was an attractive woman, young and sexy, even when not so lewdly displaying her body. While the others enjoyed the teachers favours, he sat imagining what he might do with two sexy women. 
+ 
+
+===
+
+Were these the phrases that put them into a hypnotic trance? If so he could take control of these two teachers, whenever he wanted to. He looked across to where his two friends were moving in on Miss Bourbon. She was an attractive woman, young and sexy, even when not so lewdly displaying her body. While the others enjoyed the teachers favours, he sat imagining what he might do with two sexy women. 
 
  Miss Grant walked over to Brian, with a warm smile on her face. 'You've done exceptionally well, Brian. I'm sure you will pass the exam next week,' she said. 
 
@@ -11446,7 +11656,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 11 ****** byStoryTeller07© All is revealed  
+  
+
+===
+
+All is revealed  
 
   'I can't believe you could do that to me, William! How could you!' Miss Grant quietly spoke, with suppressed anger.  
 
@@ -11718,7 +11932,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 11 ****** byStoryTeller07© Miss Bourbon cleared her throat, for attention. Miss Grant looked at William, trying to summon up the courage to continue. William looked at her, and smiled. A silent message was transmitted between the two of them. Whatever they decided, he would support them. He was there to look out for them.  
+  
+
+===
+
+Miss Bourbon cleared her throat, for attention. Miss Grant looked at William, trying to summon up the courage to continue. William looked at her, and smiled. A silent message was transmitted between the two of them. Whatever they decided, he would support them. He was there to look out for them.  
 
   Together they slowly unbuttoned the dresses, taking their time in a tantalising strip show. For a moment he thought Miss Grant wouldn't go through with it. The ordinary looking dresses were split down the front, revealing a touch of red underwear.  
 
@@ -11910,7 +12128,11 @@
 
  
 
-  ****** Teacher Undressed Ch. 11 ****** byStoryTeller07© 'Yes, it was wrong. But, it's all worked out well, sort of,' May said, looking unsure.  
+  
+
+===
+
+'Yes, it was wrong. But, it's all worked out well, sort of,' May said, looking unsure.  
 
   'I still want to play, William. I want to play games with you. I've never felt so free and happy. Don't leave me. I'll be good, and please you, I promise. Just tell me what you want me to do,' Vicky plaintively spoke.  
 
@@ -11970,7 +12192,11 @@
 
  
 
- ****** Teacher Undressed Ch. 11 ****** byStoryTeller07© All is revealed 
+ 
+
+===
+
+All is revealed 
 
  'I can't believe you could do that to me, William! How could you!' Miss Grant quietly spoke, with suppressed anger. 
 
@@ -12240,7 +12466,11 @@
 
  
 
- ****** Teacher Undressed Ch. 11 ****** byStoryTeller07© Miss Bourbon cleared her throat, for attention. Miss Grant looked at William, trying to summon up the courage to continue. William looked at her, and smiled. A silent message was transmitted between the two of them. Whatever they decided, he would support them. He was there to look out for them. 
+ 
+
+===
+
+Miss Bourbon cleared her throat, for attention. Miss Grant looked at William, trying to summon up the courage to continue. William looked at her, and smiled. A silent message was transmitted between the two of them. Whatever they decided, he would support them. He was there to look out for them. 
 
  Together they slowly unbuttoned the dresses, taking their time in a tantalising strip show. For a moment he thought Miss Grant wouldn't go through with it. The ordinary looking dresses were split down the front, revealing a touch of red underwear. 
 
@@ -12430,7 +12660,11 @@
 
  
 
- ****** Teacher Undressed Ch. 11 ****** byStoryTeller07© 'Yes, it was wrong. But, it's all worked out well, sort of,' May said, looking unsure. 
+ 
+
+===
+
+'Yes, it was wrong. But, it's all worked out well, sort of,' May said, looking unsure. 
 
  'I still want to play, William. I want to play games with you. I've never felt so free and happy. Don't leave me. I'll be good, and please you, I promise. Just tell me what you want me to do,' Vicky plaintively spoke. 
 

@@ -1,8 +1,14 @@
+Teacher's Trip Ch. 01
+=====================
 #1 
 
  
 
- ****** Teacher's Trip Ch. 01 ****** byStoryTeller07© Lara completed teachers training and had been accepted by a small college. She had a job! She had been warned by her father that a failure in this career meant the allowance would be stopped and returning home to work in the family bank. The spoilt twenty-eight year old rich girl firmed her resolve to keep the job what ever it took. 
+ 
+
+===
+
+Lara completed teachers training and had been accepted by a small college. She had a job! She had been warned by her father that a failure in this career meant the allowance would be stopped and returning home to work in the family bank. The spoilt twenty-eight year old rich girl firmed her resolve to keep the job what ever it took. 
 
  The college is closing up for the summer but Lara had been volunteered to take a group of students to an adventure camp for a week. "It will be a good opportunity for you Lara. You can hone your skills in a less formal environment and get to know some of the pupils that will be in your class next term." The principle assured her. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Teacher's Trip Ch. 01 ****** byStoryTeller07© "Maybe they have her hypnotised or something. I don't know." 
+ 
+
+===
+
+"Maybe they have her hypnotised or something. I don't know." 
 
  "Well let's go over there and find out. We can look through the window and check it out. It might be some kind of trick though, so, be careful guys." 
 
@@ -226,7 +236,11 @@
 
  
 
- ****** Teacher's Trip Ch. 02 ****** byStoryTeller07© Lara squinted into the shadows wondering where Brian was. For a moment she thought her group of students were wearing masks unable to see them properly. One of them came closer and she saw it wasn't John; it wasn't someone from her group at all. 
+ 
+
+===
+
+Lara squinted into the shadows wondering where Brian was. For a moment she thought her group of students were wearing masks unable to see them properly. One of them came closer and she saw it wasn't John; it wasn't someone from her group at all. 
 
  "What are you doing?" She shouted. "You'll get into trouble for this. Untie me and I'll tell no one. Just untie me now! What's the name of your principle?" She shouted in outrage. A little part of her wanted to break down in hysterical laughter at the ridiculousness of being tied up twice in one night. 
 
@@ -432,7 +446,11 @@
 
  
 
- ****** Teacher's Trip Ch. 02 ****** byStoryTeller07© Through her mind the ordeal of those animals teasing her froze every muscle in her body. "Do it Brian. Ride me my hero. Ride me with all your strength. Pound my little pussy, faster my hero." She shouted. She held on to him and raised her legs to receive more of him. 
+ 
+
+===
+
+Through her mind the ordeal of those animals teasing her froze every muscle in her body. "Do it Brian. Ride me my hero. Ride me with all your strength. Pound my little pussy, faster my hero." She shouted. She held on to him and raised her legs to receive more of him. 
 
  "Did you see them tease your teacher? Did you see your teacher being abused? Tell me Brian. Tell me you wanted me then. Did you see that brute nearly fuck my face? Did you want to do that to me too? Tell me Brian. Did you want to fuck my tight little teacher's pussy? Tell me you hate me." Lara ranted at him, the word flowing in a hateful torrent. 
 
@@ -458,7 +476,11 @@
 
  
 
- ****** Teacher's Trip Ch. 03 ****** byStoryTeller07© Lara and Brian walked hand in hand following the trail through the forest back to their cabin. Lara shivered, not from the nakedness but from all that she had been through that day. She had been reduced from the teacher in charge of a college group to a sex object by a calculating bunch of youths. 
+ 
+
+===
+
+Lara and Brian walked hand in hand following the trail through the forest back to their cabin. Lara shivered, not from the nakedness but from all that she had been through that day. She had been reduced from the teacher in charge of a college group to a sex object by a calculating bunch of youths. 
 
  She had let Brian make love to her as a reward for rescuing her as well as a means to rid her mind of those young savages molesting her body. She didn't want to think about the idea of becoming sexually excited by the assault and the sordid treatment while at their mercy. She shivered again, her whole body quaking at the horrid memories. 
 
@@ -652,7 +674,11 @@
 
  
 
- ****** Teacher's Trip Ch. 03 ****** byStoryTeller07© She wondered why they were so still until a dreadful idea reawakened her senses. She had tried to switch off as though it were happening in a nightmare. The last of them was maneuvering between her legs from above moving closer into position. 
+ 
+
+===
+
+She wondered why they were so still until a dreadful idea reawakened her senses. She had tried to switch off as though it were happening in a nightmare. The last of them was maneuvering between her legs from above moving closer into position. 
 
  "No!" She screamed. They were waiting for him to get into position, the most demeaning act she could imagine. 
 
@@ -842,7 +868,11 @@
 
  
 
- ****** Teacher's Trip Ch. 03 ****** byStoryTeller07© "Is this right Miss?" He asked innocently. 
+ 
+
+===
+
+"Is this right Miss?" He asked innocently. 
 
  She read from a piece of paper on his desk. 'You have my sperm in your hair. Bend over and I'll pull it out! Just do it!' She trembled with panic wondering if anyone had noticed it. She bent forward over the papers on his desk as ordered. 
 
@@ -1036,7 +1066,11 @@
 
  
 
- ****** Teacher's Trip Ch. 03 ****** byStoryTeller07© She had been kidnapped, stripped of her clothes, and driven naked across town with no idea where she was. How could she run around without clothes even if there were the chance to escape? 
+ 
+
+===
+
+She had been kidnapped, stripped of her clothes, and driven naked across town with no idea where she was. How could she run around without clothes even if there were the chance to escape? 
 
  They led her by the rope around her neck up the steps into the building. "No! Please cover me up. You can't let those lads see me like this." She protested. Digging in her heels she tried to stop them taking her further into the warehouse. 
 

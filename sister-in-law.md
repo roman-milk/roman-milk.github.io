@@ -1,8 +1,14 @@
+Sister in Law Ch. 01
+====================
 #1 
 
  
 
- ****** Sister in Law Ch. 01 ****** byStoryTeller07© Brenda looked at her friend, Susan, in dismay. Susan's sister-in-law had walked into the kitchen ignoring her as though she weren't there. She had given Susan a lecture on how to make a 'proper' salad dressing as though talking to a child. Susan was a twenty-five year old married woman not some newly wed needing advice. Besides how dare the woman embarrass Susan in front of a friend like that? 
+ 
+
+===
+
+Brenda looked at her friend, Susan, in dismay. Susan's sister-in-law had walked into the kitchen ignoring her as though she weren't there. She had given Susan a lecture on how to make a 'proper' salad dressing as though talking to a child. Susan was a twenty-five year old married woman not some newly wed needing advice. Besides how dare the woman embarrass Susan in front of a friend like that? 
 
  "Who does she think she is?" Brenda spluttered indignantly. "Why didn't you say something, Sue?" 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Sister in Law Ch. 01 ****** byStoryTeller07© "Your ready for a blast on the town. Don't fidget with that top." Brenda told her with a giggle. The woman's breasts were struggling to escape. Fortunately they had found one with plenty of support. 
+ 
+
+===
+
+"Your ready for a blast on the town. Don't fidget with that top." Brenda told her with a giggle. The woman's breasts were struggling to escape. Fortunately they had found one with plenty of support. 
 
  Brenda led them to the first port of call. For the first drink it was a busy pub with a pool table in the back bar. The young lads stopped on seeing the three women totter in on high heels. One of them started to protest that it was for men playing pool only, but his friend nudged him meanly. 
 

@@ -1,8 +1,14 @@
+Babysitting Ch. 01
+==================
 #1 
 
  
 
- ****** Babysitting Ch. 01 ****** byStoryTeller07© Lara needed a place to stay while back in the country after completing a contract teaching English in Germany. Aunt Beth was going into hospital so she volunteered to baby-sit Beth's house and her cousin. 
+ 
+
+===
+
+Lara needed a place to stay while back in the country after completing a contract teaching English in Germany. Aunt Beth was going into hospital so she volunteered to baby-sit Beth's house and her cousin. 
 
  "Just keep an eye on him. He won't be any trouble." Beth said, on the phone. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** Babysitting Ch. 01 ****** byStoryTeller07© She pulled it over her head no longer caring they watched every movement. It all seemed to be a joke to them. They were going to have to be made aware how serious it was. 
+ 
+
+===
+
+She pulled it over her head no longer caring they watched every movement. It all seemed to be a joke to them. They were going to have to be made aware how serious it was. 
 
  "So what else?" She demanded. 
 
@@ -290,7 +300,11 @@
 
  
 
- ****** Babysitting Ch. 02 ****** byStoryTeller07© Lara decided to leave Aunt Beth's house. It was no good staying there after what happened last night even though it would let her aunt down. She felt so degraded it would be impossible to recover while living in the same house as those two bullies. 
+ 
+
+===
+
+Lara decided to leave Aunt Beth's house. It was no good staying there after what happened last night even though it would let her aunt down. She felt so degraded it would be impossible to recover while living in the same house as those two bullies. 
 
  She was feeling so low after being violated last night the resolve to wrest back authority over them had crumbled to nothing. She felt numb unable regain her composure with all her usual confidence lost. 
 
@@ -518,7 +532,11 @@
 
  
 
- ****** Babysitting Ch. 02 ****** byStoryTeller07© It wouldn't let her go! 
+ 
+
+===
+
+It wouldn't let her go! 
 
  The vibrators subsided after what seemed an age of blissful torture. In relief her body flopped like a rag doll into the soft bed, sated. 
 
@@ -554,7 +572,11 @@
 
  
 
- ****** Babysitting Ch. 03 ****** byStoryTeller07© Bobby ran upstairs to see how Lara was surviving while Timmy parked the car in the garage. She was a mess of sweat and between her legs was the sticky goo of her own cum. He undid the straps and eased out the vibrators while she was still in a bewildered state unaware of what was going on around her. 
+ 
+
+===
+
+Bobby ran upstairs to see how Lara was surviving while Timmy parked the car in the garage. She was a mess of sweat and between her legs was the sticky goo of her own cum. He undid the straps and eased out the vibrators while she was still in a bewildered state unaware of what was going on around her. 
 
  He hesitated for a moment wondering if the little metal clicker in his hand would work. 
 
@@ -734,7 +756,11 @@
 
  
 
- ****** Babysitting Ch. 03 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  "OK its time for bed. You go with Timmy until he is finished with you then join me for a night cap." He smiled then yawned loudly. 
 

@@ -260,8 +260,6 @@ Summary: A white teacher succumbs to her long resisted black submission fantasy.
 
 ===
 
-
-
  3. PAM GETS JEALOUS 
 
  On Monday, the first words out of Alicia's mouth were, "Did you do it?" 

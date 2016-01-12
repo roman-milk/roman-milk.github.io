@@ -1,8 +1,14 @@
+Meeting Master -The Airplane
+============================
 #1 
 
  
 
- ****** Meeting Master -The Airplane ****** bytom6432© This is a fantasy written by me for fun. It contains humiliation and spanking so be warned. All characters are over the age of 25. 
+ 
+
+===
+
+This is a fantasy written by me for fun. It contains humiliation and spanking so be warned. All characters are over the age of 25. 
 
  ***** 
 
@@ -184,7 +190,11 @@
 
  
 
- ****** Meeting Master -The Airplane ****** bytom6432© "How dare you try to fool your Master, Missy, wearing two pairs of panties," he says. I can hear a loud series of skin hitting skin. Emily is being spanked as if she were a child. The loud hand slaps on her bare backside make her start to sob. She promises to behave crying with loud sobs. Her breath starts to gasp and she is now hiccupping as she swallows air. "Don't ever try to fool your Master," I hear him say as he finishes her off with three hard spanks. 
+ 
+
+===
+
+"How dare you try to fool your Master, Missy, wearing two pairs of panties," he says. I can hear a loud series of skin hitting skin. Emily is being spanked as if she were a child. The loud hand slaps on her bare backside make her start to sob. She promises to behave crying with loud sobs. Her breath starts to gasp and she is now hiccupping as she swallows air. "Don't ever try to fool your Master," I hear him say as he finishes her off with three hard spanks. 
 
  "Get up off my knee and follow me over to these two young ladies I am going to give you a job to do," he says as he position's Emily in front of me. 
 

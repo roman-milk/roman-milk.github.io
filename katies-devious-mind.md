@@ -1,8 +1,14 @@
+Katie's Devious Mind
+====================
 #1 
 
  
 
- ****** Katie's Devious Mind ****** bysadkins116© This story will start off a little slow as I give some background. It will pick up in later chapters. I would like to thank volunteer editors Neng Bora and Honorable Rogue who helped with the story line and editing. Please keep in mind that this is fantasy and as such some things might not work in real life. I welcome all comments good and bad. I have more chapters finished but will wait to see the responses before I submit them. 
+ 
+
+===
+
+This story will start off a little slow as I give some background. It will pick up in later chapters. I would like to thank volunteer editors Neng Bora and Honorable Rogue who helped with the story line and editing. Please keep in mind that this is fantasy and as such some things might not work in real life. I welcome all comments good and bad. I have more chapters finished but will wait to see the responses before I submit them. 
 
  Katie's Devious Mind 
 
@@ -108,7 +114,11 @@
 
  
 
- ****** Katie's Devious Mind ****** bysadkins116© Katie looked at her and smiled. "That and a few other things I can think of." She answered. 
+ 
+
+===
+
+Katie looked at her and smiled. "That and a few other things I can think of." She answered. 
 
  Jackie moaned and for a moment hesitated but then walked to the sink to get a drink of water. "What brings you home Katie?" 
 
@@ -270,7 +280,11 @@
 
  
 
- ****** Katie's Devious Mind ****** bysadkins116© Jackie gasped as she was now sitting in a restaurant with her cunt exposed, her tits hanging out and her daughter dominating her. Her mind was flashing back to when Bill had done this exact thing to her before he died. She knew she should refuse, but after everything that had happened during their shopping she simply nodded and looked down at the table. 
+ 
+
+===
+
+Jackie gasped as she was now sitting in a restaurant with her cunt exposed, her tits hanging out and her daughter dominating her. Her mind was flashing back to when Bill had done this exact thing to her before he died. She knew she should refuse, but after everything that had happened during their shopping she simply nodded and looked down at the table. 
 
  When the waitress arrived, the first thing she noticed was Jackie attire. She wasn't sure what was going on but she was glad that they were in the back of the room and no one else was near. 
 
@@ -358,7 +372,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 02 ****** bysadkins116© I would like to thank the volunteer editors that helped me with this story. I would also like to thank all of you who responded to the first chapter. I hope this chapter meets your expectations. 
+ 
+
+===
+
+I would like to thank the volunteer editors that helped me with this story. I would also like to thank all of you who responded to the first chapter. I hope this chapter meets your expectations. 
 
  ***** 
 
@@ -526,7 +544,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 02 ****** bysadkins116© "No master, the only hose is in the back." 
+ 
+
+===
+
+"No master, the only hose is in the back." 
 
  "Well then use the hidden key and go in the front door. Go to your room and go to bed. Do not shower or clean up any mud you track in till after Sarah is up. When you hear her up, take a shower and put on a shear night gown. Then go down and fix breakfast for her, serve it to her on the patio and make sure she can see where you hid in the garden." 
 
@@ -660,7 +682,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 02 ****** bysadkins116© "Now put the clips on your nipples nice and tight. I want it to hurt, and then cuff your wrists behind your back." 
+ 
+
+===
+
+"Now put the clips on your nipples nice and tight. I want it to hurt, and then cuff your wrists behind your back." 
 
  "Master, I can't do that. With the keys locked away I won't be able to free myself. I can't sit around naked and cuffed. What would happen if someone comes by?" Jackie asked 
 
@@ -734,7 +760,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 03 ****** bysadkins116© I want to thank everyone who has commented. Without your feedback both positive and negative I wouldn't be able to improve. The suggestions also help with the story line. This chapter has Jackie and Sarah discovering they are both slaves to the same master. The next chapter has them submitting to their friends. I'm working on chapter 5 with them at school for the first time as slaves. However I'm having trouble figuring out the details. I am sending chapter 4 to the editors and will submit it when it is returned. Suggestions are welcome. 
+ 
+
+===
+
+I want to thank everyone who has commented. Without your feedback both positive and negative I wouldn't be able to improve. The suggestions also help with the story line. This chapter has Jackie and Sarah discovering they are both slaves to the same master. The next chapter has them submitting to their friends. I'm working on chapter 5 with them at school for the first time as slaves. However I'm having trouble figuring out the details. I am sending chapter 4 to the editors and will submit it when it is returned. Suggestions are welcome. 
 
  
 
@@ -914,7 +944,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 03 ****** bysadkins116© "On one condition I will suspend your punishment. But first you have to get up and lick your daughter's ass and eat her till l tell you to stop and I will suspend the paddling. However if you hesitate, question, refuse, or displease me in any way, the punishment will continue from the beginning and you will take the entire 20 swats. Do you understand slut?" 
+ 
+
+===
+
+"On one condition I will suspend your punishment. But first you have to get up and lick your daughter's ass and eat her till l tell you to stop and I will suspend the paddling. However if you hesitate, question, refuse, or displease me in any way, the punishment will continue from the beginning and you will take the entire 20 swats. Do you understand slut?" 
 
  "Oh yes master, I understand as Jackie crawled over to her daughter's naked ass and shoved her tongue up and down the crack. 
 
@@ -1052,7 +1086,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 03 ****** bysadkins116© "Stop Slut, don't make her cum or it will be the paddle again." Katie demanded. 
+ 
+
+===
+
+"Stop Slut, don't make her cum or it will be the paddle again." Katie demanded. 
 
  Jackie quickly pulled her mouth from Sarah's cunt and licked her lips. Her face now covered in her juices. 
 
@@ -1068,7 +1106,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 04 ****** bysadkins116© Devious Mind 
+ 
+
+===
+
+Devious Mind 
 
  Synopsis: Jackie Meyer is a high school English teacher that was a submissive to her husband/master. She has a 24 year old step daughter, Katie, and an 18 year old daughter just finishing her senior year at high school. Her husband died several years ago and as time passed Jackie longed for the control he had exerted over her. Katie came home unexpectedly one night and discovered her mother masturbating and watching BDSM porn. She has since used technology to take control over her step mother and step sister. She has just exposed their submission to each other and forced them into incestuous sex. They are now on the way to Sarah's best friend house as slaves. 
 
@@ -1190,7 +1232,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 04 ****** bysadkins116© As Marsha's orgasm coursed throughout her body she released Jackie's head allowing her to again breathe, but instead of pulling away, she attacked with renewed vigor working to please her mistress. Marsha screamed as her climax reached new heights and her body quivered and trembled with pleasure. Unable to take any more, she roughly pushed her slave away as her clit was too sensitive to be touched any longer. Jackie sat on the floor panting as she licked cum from her fingers waiting for her next command. 
+ 
+
+===
+
+As Marsha's orgasm coursed throughout her body she released Jackie's head allowing her to again breathe, but instead of pulling away, she attacked with renewed vigor working to please her mistress. Marsha screamed as her climax reached new heights and her body quivered and trembled with pleasure. Unable to take any more, she roughly pushed her slave away as her clit was too sensitive to be touched any longer. Jackie sat on the floor panting as she licked cum from her fingers waiting for her next command. 
 
  When Marsha regained her senses, she rolled over and looked down at the submissive slut kneeling on the floor. "I could get used to this. You have a very talented tongue slut. Go into the bathroom and draw me a bath and be quick about it." Jackie quickly got up and rushed please her mistress. 
 
@@ -1292,7 +1338,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 05 ****** bysadkins116© Karen smiled as she looked down at her helpless mother. Her head was buried in the cushions of the couch and her ass draped over the back. Her hands cuffed behind her back and now her skirt was up around her waist. With her left hand holding Marsha in place, she brought her right hand back with the doubled belt and with all her strength she brought the belt down on her exposed ass. Marsha screamed as the pain shot through her ass and straight to her brain. She immediately started to beg her daughter to have mercy. "Oh my god, Karen please don't do this, oh god it hurts, please, please, please don't punish me." Marsha begged. But her mother's cries fell on deaf ears as Karen again swung the belt down on the helpless mother in front of her. Marsha squirmed trying to get away but with no leverage she only managed to spread her legs further and exposed her sphincter and opened her lips. As the blows continued to rain down, Marsha quit struggling and was soon begging to serve her mistress daughter. "Oh please mistress, please mistress have mercy on me. I will obey your commands. Please let this slave serve you." Marsha said hoping that promising to submit that the punishment would stop. In spite of the pain, something in Marsha's brain clicked. After dominating her friend and watching her accept her slavery, Marsha's mind was filled with submissive fantasies. Now being punished by her daughter was bringing those fantasies to life. The result was her arousal was now skyrocketing and her pussy was soaked. When Karen changed position and brought the belt down the center of her ass and the end smacked her dripping pussy, Marsha screamed as her body exploded sending pain and pleasure throughout her extremities. Karen stopped and watched her mother convulsing as her entire body was consumed with sensations. She dropped the belt and slid her hand over Marsha's hips stopping at her rear passage. She took a few seconds to lightly push on her anal ring before continuing down to her gaping and dripping slit. Marsha was no longer in control and gasped as the touch increased the pleasure to new heights. 
+ 
+
+===
+
+Karen smiled as she looked down at her helpless mother. Her head was buried in the cushions of the couch and her ass draped over the back. Her hands cuffed behind her back and now her skirt was up around her waist. With her left hand holding Marsha in place, she brought her right hand back with the doubled belt and with all her strength she brought the belt down on her exposed ass. Marsha screamed as the pain shot through her ass and straight to her brain. She immediately started to beg her daughter to have mercy. "Oh my god, Karen please don't do this, oh god it hurts, please, please, please don't punish me." Marsha begged. But her mother's cries fell on deaf ears as Karen again swung the belt down on the helpless mother in front of her. Marsha squirmed trying to get away but with no leverage she only managed to spread her legs further and exposed her sphincter and opened her lips. As the blows continued to rain down, Marsha quit struggling and was soon begging to serve her mistress daughter. "Oh please mistress, please mistress have mercy on me. I will obey your commands. Please let this slave serve you." Marsha said hoping that promising to submit that the punishment would stop. In spite of the pain, something in Marsha's brain clicked. After dominating her friend and watching her accept her slavery, Marsha's mind was filled with submissive fantasies. Now being punished by her daughter was bringing those fantasies to life. The result was her arousal was now skyrocketing and her pussy was soaked. When Karen changed position and brought the belt down the center of her ass and the end smacked her dripping pussy, Marsha screamed as her body exploded sending pain and pleasure throughout her extremities. Karen stopped and watched her mother convulsing as her entire body was consumed with sensations. She dropped the belt and slid her hand over Marsha's hips stopping at her rear passage. She took a few seconds to lightly push on her anal ring before continuing down to her gaping and dripping slit. Marsha was no longer in control and gasped as the touch increased the pleasure to new heights. 
 
  "Oh god" was all she could say as her body exploded in another orgasm. Karen smiled as she bent over, keeping her hand on her mother's pussy, and whispered into her ear, "Who owns you slut?" 
 
@@ -1422,7 +1472,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 05 ****** bysadkins116© Marsha did the same to Jackie and the twins were now identical except for the tats. "OK slaves; are you ready for some fun? Let the party begin. Both of you get in the car we're late." Karen shouted. 
+ 
+
+===
+
+Marsha did the same to Jackie and the twins were now identical except for the tats. "OK slaves; are you ready for some fun? Let the party begin. Both of you get in the car we're late." Karen shouted. 
 
  Marsha jumped into the driver's seat while Karen sat in the passenger seat. Ten minutes later they were driving down the freeway heading to the outskirts of town. After several turns designed to confuse the blinded slaves, Marsha headed back to their house. When Jackie felt the car slowing down she started to shake. Her body still being vibrated and being shackled and blind was causing her mind to explode with so many emotions; fear, submission, excitement, arousal, and humiliation all rolled into a jumbled mess. When the car stopped both slaves moaned afraid of what was in store for them. 
 
@@ -1476,7 +1530,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 06 ****** bysadkins116© Karen watched as the two slaves lay on the garage floor expecting them to panic after she exposed them as submissive slut slaves. However both naked, shackled, and cum covered women simply had a look of contentment on their faces. It appeared that they were actually relieved and accepted their status. Karen looked at the men standing around the slaves. Only three of them had actually gotten off but the slaves were hardly functioning. She leaned over and grabbed the slave's leashes and pulled them towards the door to the house. Marsha standing behind her mistress daughter wondered what was going to happen when she heard Karen speak. 
+ 
+
+===
+
+Karen watched as the two slaves lay on the garage floor expecting them to panic after she exposed them as submissive slut slaves. However both naked, shackled, and cum covered women simply had a look of contentment on their faces. It appeared that they were actually relieved and accepted their status. Karen looked at the men standing around the slaves. Only three of them had actually gotten off but the slaves were hardly functioning. She leaned over and grabbed the slave's leashes and pulled them towards the door to the house. Marsha standing behind her mistress daughter wondered what was going to happen when she heard Karen speak. 
 
  "Mommy slut, it looks like the slaves are done for the day. Drop to your knees and finish off your friends and send them home. Come inside when you finish. I'm sure their master is wondering what we did to our slaves." 
 
@@ -1606,7 +1664,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 06 ****** bysadkins116© Katie stood on front of her mother and sister. "OK, open your eyes." 
+ 
+
+===
+
+Katie stood on front of her mother and sister. "OK, open your eyes." 
 
  Both slaves opened their eyes and blinked trying to focus. When they looked up both women gasped as they saw Katie. 
 
@@ -1614,7 +1676,11 @@
 
  
 
- ****** Katie's Devious Mind Ch. 07 ****** bysadkins116© Katie knelt down in front of Sarah and carefully removed each contact. Sarah obeyed and closed her eyes. She moved in front of Jackie and did the same. Katie stood and paced for a minute before she spoke again. 
+ 
+
+===
+
+Katie knelt down in front of Sarah and carefully removed each contact. Sarah obeyed and closed her eyes. She moved in front of Jackie and did the same. Katie stood and paced for a minute before she spoke again. 
 
  "I want you to know that I never wanted you to be outed to the world. I made a huge mistake trusting those two women. I will make it up to you. When I tell you, I want you to open your eyes. I'll then explain everything to you." 
 

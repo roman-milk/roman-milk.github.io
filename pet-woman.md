@@ -1,8 +1,14 @@
+Pet Woman
+=========
 #1 
 
  
 
- ****** Pet Woman ****** byStoryTeller07© Penelope was getting used to living alone since the divorce. She put the house up for sale, and was just waiting for confirmation of the moving date. She couldn't wait to escape to a new life in the country. In the meantime she was concentrating on dieting and fitness, ready to enjoy that new life to the full. 
+ 
+
+===
+
+Penelope was getting used to living alone since the divorce. She put the house up for sale, and was just waiting for confirmation of the moving date. She couldn't wait to escape to a new life in the country. In the meantime she was concentrating on dieting and fitness, ready to enjoy that new life to the full. 
 
  A new regime had worked well, as the pounds melted away, and her body became toned. Most significantly, it was without the usual boring effort that usually defeated her efforts. It made her feel a little sensitive at first, though she became used to the extra attention. Whether parking, shopping, or anywhere else she went, men were being so helpful. At thirty-four she had felt old. With the reshaped body, came a new vigour bounding into her life. 
 
@@ -212,7 +218,11 @@
 
  
 
- ****** Pet Woman ****** byStoryTeller07© "Stop that, down, sit!" he shouted at her. 
+ 
+
+===
+
+"Stop that, down, sit!" he shouted at her. 
 
  Penelope came round from the intense arousal, still feeling it tugging at her, yet somewhat in control. Damn! She had lost it for awhile. A demand to please him, and pleasure herself, had taken over. This was much worse than being his puppy. She was his bitch, a bitch in heat he called her! 
 

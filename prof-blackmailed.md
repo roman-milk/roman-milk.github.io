@@ -1,8 +1,14 @@
+A Professor Is Blackmailed
+==========================
 #1 
 
  
 
- ****** A Professor Is Blackmailed ****** bydawn1958© Please email me with your comments and suggestions. This is a repost of a story I wrote for a reader who sent me some fantasies. I hope this erotic tale does justice to her fantasy and that other readers enjoy the story. 
+ 
+
+===
+
+Please email me with your comments and suggestions. This is a repost of a story I wrote for a reader who sent me some fantasies. I hope this erotic tale does justice to her fantasy and that other readers enjoy the story. 
 
  
 
@@ -106,7 +112,11 @@
 
  
 
- ****** A Professor Is Blackmailed ****** bydawn1958© The drive to work was uneventful and she arrived at the college in good spirits. She went immediately to her homeroom and found a small package lying on the floor when she opened the door. Kerri noticed her name plainly printed on the front. She slowly picked it up but was reluctant to actually open the package. Moving to her desk, she sat and gingerly unwrapped the fancy looking box. It turned out to be a small case from a noted jeweler in the city and inside were two dainty, gold rings. 
+ 
+
+===
+
+The drive to work was uneventful and she arrived at the college in good spirits. She went immediately to her homeroom and found a small package lying on the floor when she opened the door. Kerri noticed her name plainly printed on the front. She slowly picked it up but was reluctant to actually open the package. Moving to her desk, she sat and gingerly unwrapped the fancy looking box. It turned out to be a small case from a noted jeweler in the city and inside were two dainty, gold rings. 
 
  Kerri noticed a tiny note taped to the box. 'Today is the first day of the rest of your life so don't disappoint me,' she read. 'I really don't want to show people your pictures and movies, so I hope you wore that beautiful red blouse today.' 
 
@@ -224,7 +234,11 @@
 
  
 
- ****** A Professor Is Blackmailed ****** bydawn1958© Lu stared at the wetness. His damning fingers pulled the clit so hard that Kerri let out a big gasp of air when he pinched the bud between his fingertips. Then he twirled the clitty around and around so fast that it filled the room with a lewd swishing sound. All of the willpower in the world could not stop the volcanic eruption and the juices flowed like molten lava. Lu hadn't witnessed anything so erotic in all his years of doing tattoos and piercings as the honey soaked his fingers. 
+ 
+
+===
+
+Lu stared at the wetness. His damning fingers pulled the clit so hard that Kerri let out a big gasp of air when he pinched the bud between his fingertips. Then he twirled the clitty around and around so fast that it filled the room with a lewd swishing sound. All of the willpower in the world could not stop the volcanic eruption and the juices flowed like molten lava. Lu hadn't witnessed anything so erotic in all his years of doing tattoos and piercings as the honey soaked his fingers. 
 
  His heart beat fast and he had to steady himself so he could move onto the next stage. Lu sterilized the gold ring and it glistened when he held it up for Kerri to see. "This very pretty on clit," he explained and set the ring on a metal tray. 
 
@@ -332,7 +346,11 @@
 
  
 
- ****** A Professor Is Blackmailed ****** bydawn1958© Kerri's first reaction was one of rage, but she managed to only think about having an outburst. 'No, you fucking jerk. I only did that last night because someone was blackmailing me,' she thought and bit her tongue. 
+ 
+
+===
+
+Kerri's first reaction was one of rage, but she managed to only think about having an outburst. 'No, you fucking jerk. I only did that last night because someone was blackmailing me,' she thought and bit her tongue. 
 
  She looked him in the eye to speak and felt a quiver run through her midsection. Then for some ungodly reason, Kerri looked him up and down and felt the flames of desire run through her body. She sensed a need for more of Jim's caresses and to have him kiss her rings once again. Kerri realized that her student teacher was a sincere individual and that Jim was trying to be nice to her. "Why I would love to," she responded and motioned to her car. "Sure, why not, as I don't have anything planned. You can come with me." 
 
@@ -396,7 +414,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 02 ****** bydawn1958© Please send your comments and suggestions, as the feedback is always appreciated. This story is revised and reposted so hopefully it gives readers a better experience. The story was written at the request of a reader and I hope I do his fantasy justice. 
+ 
+
+===
+
+Please send your comments and suggestions, as the feedback is always appreciated. This story is revised and reposted so hopefully it gives readers a better experience. The story was written at the request of a reader and I hope I do his fantasy justice. 
 
  CHAPTER TWO - MISTAKEN IDENTITY 
 
@@ -510,7 +532,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 02 ****** bydawn1958© Kerri let out a big sigh when the final bell sounded and it was time to go home. As she exited the school, Ward met her at the door and she could tell the student was trouble. His hungry eyes devoured the open space in her suit jacket and Kerri could tell he was trying to ogle her again just like he did in the classroom. She quickly pulled the jacket closed and then tried to squeeze past his tall muscular body. 
+ 
+
+===
+
+Kerri let out a big sigh when the final bell sounded and it was time to go home. As she exited the school, Ward met her at the door and she could tell the student was trouble. His hungry eyes devoured the open space in her suit jacket and Kerri could tell he was trying to ogle her again just like he did in the classroom. She quickly pulled the jacket closed and then tried to squeeze past his tall muscular body. 
 
  Ward said some very explicit things about her looks and what he wanted to do to her and they made her blush, as she tried to hurry away. Kerri probably looked fairly pathetic when she rushed across the parking lot and frantically fumbled for her car keys. It took several attempts to get the door open and then jump in the car for safety. 
 
@@ -628,7 +654,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 02 ****** bydawn1958© "Geez, woman those are the nicest tits I've seen and I bet they taste just as good," he told Kerri without stopping his assault. He began undoing the skirt and soon it was hanging loosely around her waist, waiting for a tiny assist before the garment fell. The striptease happened in slow-motion, as Kerri watched the woolen fabric drape around her flared hips and then slowly slide down the silky path to the floor. 
+ 
+
+===
+
+"Geez, woman those are the nicest tits I've seen and I bet they taste just as good," he told Kerri without stopping his assault. He began undoing the skirt and soon it was hanging loosely around her waist, waiting for a tiny assist before the garment fell. The striptease happened in slow-motion, as Kerri watched the woolen fabric drape around her flared hips and then slowly slide down the silky path to the floor. 
 
  Kerri couldn't believe she had worn a garter belt and stockings today of all days because they made her appear sexier. She reasoned it was a practical way to dress, as she could wear nylons and still not have the tight constraints of pantyhose. Ward took a pace back to admire the most adorable sight and he marveled at how erotic the garters made his teach look. His pause was brief. "You are the sexiest professor in the college... in any college. How would you like for this student to fuck your little pussy," he asked? 
 
@@ -750,7 +780,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 02 ****** bydawn1958© Further shame washed over the guilt-ridden teacher. "No, no... no." 
+ 
+
+===
+
+Further shame washed over the guilt-ridden teacher. "No, no... no." 
 
  "It may take a week to get another hardon," Ward said and laughed out loud. Without any regard for Kerri's feelings, he moved away and allowed her to slump onto the carpet. 
 
@@ -860,7 +894,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 02 ****** bydawn1958© Kerri's arms came up to protect herself and she paused when she felt Wendy's fingers dig into her shoulders. Robin tenderly brushed the hands to the sides and gingerly reached for the jacket buttons. Her hands were shaking like a leaf, but Robin managed to undo the buttons one at a time. Every time Kerri moved to protest, either Robin pushed her hands away or Wendy put more pressure on her shoulder. 
+ 
+
+===
+
+Kerri's arms came up to protect herself and she paused when she felt Wendy's fingers dig into her shoulders. Robin tenderly brushed the hands to the sides and gingerly reached for the jacket buttons. Her hands were shaking like a leaf, but Robin managed to undo the buttons one at a time. Every time Kerri moved to protest, either Robin pushed her hands away or Wendy put more pressure on her shoulder. 
 
  Wendy had stressed the need to be aggressive and domineering and Robin did her best to obey the orders. She found the teacher's apparent struggle and protest to be exactly what Wendy described and assumed it was because Kerri possessed a great acting ability. When the jacket was completely undone, Robin quickly stripped the garment to reveal a designer silk blouse. It took her less than a minute to unbutton the blouse and virtually rip it off the bewildered teacher. 
 
@@ -966,7 +1004,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 02 ****** bydawn1958© The sucking and fucking resulted in loud crude sounds that echoed around the room. Robin ate her teacher with a profound skill, which was the envy of those watching. The combination of cunnilingus, finger-fucking and anal sex all at the same time turned Kerri into a wild woman filled with perverted passion. Every muscle in her abused body tensed in an attempt to stop the impending orgasm, but her student felt no pity and never slowed down or letup. 
+ 
+
+===
+
+The sucking and fucking resulted in loud crude sounds that echoed around the room. Robin ate her teacher with a profound skill, which was the envy of those watching. The combination of cunnilingus, finger-fucking and anal sex all at the same time turned Kerri into a wild woman filled with perverted passion. Every muscle in her abused body tensed in an attempt to stop the impending orgasm, but her student felt no pity and never slowed down or letup. 
 
  Robin rolled the clit around and around and she tried to slap the bud with her tongue. She kept jamming her fingers into the tight holes and ramming her hard knuckles into the soaked crotch until Kerri's body jerked out of control. When Kerri heard the loud cheers, she realized the end was near. An extreme spasm rocked her body and then the rest of the royal membership sensed the Grande Finale. 
 
@@ -984,7 +1026,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 03 ****** bydawn1958© Please email me with your suggestions or comments. This chapter was written for a special reader who gave me ideas of what she would like to see happen to Kerri. 
+ 
+
+===
+
+Please email me with your suggestions or comments. This chapter was written for a special reader who gave me ideas of what she would like to see happen to Kerri. 
 
  A TEACHER'S PAST - PUNISHMENT CAN BE SEVERE 
 
@@ -1106,7 +1152,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 03 ****** bydawn1958© Kerri felt like crawling into a dark hole to escape the girl's domination. When Sally moved in a threatening manner, as if to give Kerri another spanking, the confession came out freely. "Yes... yes," she whispered and the whole gang suddenly got extremely quiet. She felt a quick jab in the ribs and knew Sally wanted more. "I did it with... with Jim K.," Kerri said, shuddering with disgust when the startling revelation came out. 
+ 
+
+===
+
+Kerri felt like crawling into a dark hole to escape the girl's domination. When Sally moved in a threatening manner, as if to give Kerri another spanking, the confession came out freely. "Yes... yes," she whispered and the whole gang suddenly got extremely quiet. She felt a quick jab in the ribs and knew Sally wanted more. "I did it with... with Jim K.," Kerri said, shuddering with disgust when the startling revelation came out. 
 
  "Geez, holy fuck, you did it with that geek?" Sally laughed out loud and everyone laughed with her. "How many times? How many times did you fuck Jim?" 
 
@@ -1232,7 +1282,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 03 ****** bydawn1958© Sally didn't know what had come over her when the earth-shaking orgasm was pulled from the nucleus of her womanhood. For some unexplained reason she gazed at Cory for his assistance, as she was unfamiliar with such strong convulsions which were consuming her inner regions. Explosions rocked her sexy body and the spasms seemed to go on forever. Even when having sex with Cory, she would keep a measure of self-control and never totally released her emotions. This time Sally was lost in lust and overwhelmed by the intense fervor. 
+ 
+
+===
+
+Sally didn't know what had come over her when the earth-shaking orgasm was pulled from the nucleus of her womanhood. For some unexplained reason she gazed at Cory for his assistance, as she was unfamiliar with such strong convulsions which were consuming her inner regions. Explosions rocked her sexy body and the spasms seemed to go on forever. Even when having sex with Cory, she would keep a measure of self-control and never totally released her emotions. This time Sally was lost in lust and overwhelmed by the intense fervor. 
 
  Cory was unaware of Sally's dilemma because his sole awareness was on what Kerri was doing to his girlfriend. Watching the dainty fingers roll the exposed clit so fast they were just a blur was turning his cock into steel. He had to admit that Sally was crying for something and he was oblivious to the fact his girlfriend was experiencing the most explosive orgasm of her life. It most likely was the strange situation and circumstances that caused the climax to be so intense, but his male ego would never understand it. 
 
@@ -1338,7 +1392,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 03 ****** bydawn1958© Keith was so enthralled with what was happening and never listened to a word. "It's okay, honey. Do it for me... for me. You know how much I've wanted to watch you," he said and kissed Lori hard. 
+ 
+
+===
+
+Keith was so enthralled with what was happening and never listened to a word. "It's okay, honey. Do it for me... for me. You know how much I've wanted to watch you," he said and kissed Lori hard. 
 
  Lori felt a million fingers on her burning flesh and then her legs were pushed apart. She desperately broke the heated kiss and tilted her head back so she could see her boyfriend's face. "No, honey no, don't let her touch me... not down there," she moaned. 
 
@@ -1474,7 +1532,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 03 ****** bydawn1958© With the last blasts of cum from the big cock, Keith collapsed over Kerri's rear end, bringing his hands forward to rest on her bare shoulders. The extra weight of her boyfriend's torso forced Lori to abandon her kiss so she concentrated on the pussy assault. The debasing pain was gone and Kerri became aware of her genitals being caressed in what felt like a rewarding manner. When the heavy burden was lifted off her back and Keith rolled onto an empty section of the sofa, Kerri breathed a big sigh. 
+ 
+
+===
+
+With the last blasts of cum from the big cock, Keith collapsed over Kerri's rear end, bringing his hands forward to rest on her bare shoulders. The extra weight of her boyfriend's torso forced Lori to abandon her kiss so she concentrated on the pussy assault. The debasing pain was gone and Kerri became aware of her genitals being caressed in what felt like a rewarding manner. When the heavy burden was lifted off her back and Keith rolled onto an empty section of the sofa, Kerri breathed a big sigh. 
 
  Lori had more freedom and she molested Kerri's imprisoned body, ignoring the childlike whimpering. Kerri's stomach churned and she tried lifting her chest to lessen the rough pinching and squeezing on her aching nipples, but nothing helped. The swollen buds throbbed and much to her amazement, the long slender fingers eroded her resistance to a mere trickle, as Lori performed magic on her pussy. 
 
@@ -1520,7 +1582,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 04 ****** bydawn1958© Please email me with your suggestions or comments. This episode turned out to be long and I will post two chapters to cover the entire storyline. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
+ 
+
+===
+
+Please email me with your suggestions or comments. This episode turned out to be long and I will post two chapters to cover the entire storyline. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
 
  A TEACHER'S PAST - A Parent's Revenge 
 
@@ -1630,7 +1696,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 04 ****** bydawn1958© Both women were silent while their minds raced in entirely different directions. Kerri was unable to think of a solution that would make the woman stop and she reluctantly submitted to the degrading demands. She filled with horror when Laura's face came closer until the woman's lips brushed across her cheek, making her feel like a little girl on her first date. 
+ 
+
+===
+
+Both women were silent while their minds raced in entirely different directions. Kerri was unable to think of a solution that would make the woman stop and she reluctantly submitted to the degrading demands. She filled with horror when Laura's face came closer until the woman's lips brushed across her cheek, making her feel like a little girl on her first date. 
 
  Kerri knew the mother was going to kiss her. She recognized it was time to run and bolt from the place, but her feet were frozen on the floor. The hot burning lips traveled across her face, stopping at one ear before leaving a wet trail to the ultimate goal. Kerri's eyes shut and the lips found her mouth, which made her heart beat faster with anticipation. 
 
@@ -1750,7 +1820,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 04 ****** bydawn1958© Ward made the bold statement and turned towards the classroom door, pretending to leave for the Dean's office. "If I don't hear the truth... I'll tell everything. Your reputation will be ruined!" 
+ 
+
+===
+
+Ward made the bold statement and turned towards the classroom door, pretending to leave for the Dean's office. "If I don't hear the truth... I'll tell everything. Your reputation will be ruined!" 
 
  Kerri blurted it out without thinking, as self-preservation was foremost on her mind. "She... Mrs. Perkins forced me... had sex with me. It was so awful and I couldn't stop her," she said, but the confession didn't stop. "Her son... Jim told her..." Kerri paused and realized immediately that she had made another mistake. 
 
@@ -1854,7 +1928,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 04 ****** bydawn1958© Ward was thoroughly amazed by the intense lust displayed by both women and his cock jerked madly expecting a rematch. He watched the rounded butt cheeks tighten and ram the strap-on cock to the hilt; then relax enough to withdraw a few inches from the womanly grotto. His heart rate matched the two women's even exceeding their numbers near the end of the dramatic climax because he anticipated what was next. 
+ 
+
+===
+
+Ward was thoroughly amazed by the intense lust displayed by both women and his cock jerked madly expecting a rematch. He watched the rounded butt cheeks tighten and ram the strap-on cock to the hilt; then relax enough to withdraw a few inches from the womanly grotto. His heart rate matched the two women's even exceeding their numbers near the end of the dramatic climax because he anticipated what was next. 
 
  When the spasms and explosions slowly dwindled and Kerri's orgasm came down to a plateau where she could resume breathing, Ward attacked. He grabbed both women by the hand and jerked them to their feet. "Let's find a bed. We need a nice big bed... with lots of room to fuck," he stated and followed Laura down a hallway to her bedroom. They walked across the room and the first thing Ward did was shove Laura face first onto the bed. 
 
@@ -1966,7 +2044,11 @@
 
  
 
- ****** A Professor Is Blackmailed Ch. 04 ****** bydawn1958© Jim mistook Wendy for a naïve, young student who could be outsmarted easily by someone like him. From the first day of classes, he realized the girl was a leader and several of the other girls followed her around the school like loyal servants. His main concern was befriending the girl and becoming someone she trusted. Everything went well with their relationship and once he confirmed his acceptance of her sexuality, their friendship bosomed. 
+ 
+
+===
+
+Jim mistook Wendy for a naïve, young student who could be outsmarted easily by someone like him. From the first day of classes, he realized the girl was a leader and several of the other girls followed her around the school like loyal servants. His main concern was befriending the girl and becoming someone she trusted. Everything went well with their relationship and once he confirmed his acceptance of her sexuality, their friendship bosomed. 
 
  After he heard Wendy talking about Kerri, Jim decided to trust the girl. He got Wendy aside one afternoon and brought up the time he noticed her coming out of the staff washroom, which seemed odd at the time. Jim guessed from the radiant flush on the teacher's face when she exited the washroom that something provocative and sexual had occurred. "Last Wednesday you and Kerri were in the washroom... the staff washroom together," he blurted out. 
 
@@ -2062,7 +2144,11 @@
 
  
 
- ****** A Professor is Blackmailed Ch. 05 ****** bydawn1958© Please email me with your suggestions or comments. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
+ 
+
+===
+
+Please email me with your suggestions or comments. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
 
  A Teacher's Past - A DIVERSION FOR KERRI 
 
@@ -2170,7 +2256,11 @@
 
  
 
- ****** A Professor is Blackmailed Ch. 05 ****** bydawn1958© To survive, Kerri willed her brain into another universe and watched the action unfold as if she were someone else. She must resist; she must halt the session before something drastic occurred and Kerri shut her eyes tightly. Rolling her head back so her face tilted away from the ugly teacher, she welcomed the loss of sight. 
+ 
+
+===
+
+To survive, Kerri willed her brain into another universe and watched the action unfold as if she were someone else. She must resist; she must halt the session before something drastic occurred and Kerri shut her eyes tightly. Rolling her head back so her face tilted away from the ugly teacher, she welcomed the loss of sight. 
 
  There was a major problem with her strategy. Mr. Tovell devoured the raw clitoris and sucked as hard as he could. All of a sudden a short, fat finger pierced her quiet sphere. He pumped it like a madman and allowed the fingernail to rake over the tender, vaginal walls. "Oh gawd, no... no... don't, oh don't," she cried. Kerri wasn't begging the vile man to stop; she was pleading for her soul to remain strong. 
 
@@ -2270,7 +2360,11 @@
 
  
 
- ****** A Professor is Blackmailed Ch. 05 ****** bydawn1958© Harv and BJ watched from the booth, as Dean hit the dance floor. They could see their buddy's hands roaming over Kerri's body and it was evident that she struggled to keep Dean at bay. It was hard to see exactly what was happening, as the floor was very crowded and the lighting was quite dim, but they were positive that the groping exposed some pearly white skin. 
+ 
+
+===
+
+Harv and BJ watched from the booth, as Dean hit the dance floor. They could see their buddy's hands roaming over Kerri's body and it was evident that she struggled to keep Dean at bay. It was hard to see exactly what was happening, as the floor was very crowded and the lighting was quite dim, but they were positive that the groping exposed some pearly white skin. 
 
  Both onlookers noticed an instance or two where there appeared to be more skin than dress covering Kerri's sexy body, but the men really weren't sure of what they saw. The teacher was upset by Dean's offensive fondling right on the darkened dance floor and couldn't wait for the song to end. In a futile attempt to escape, Kerri headed for the relative safety of the booth, but Dean wouldn't allow her to leave the floor. 
 
@@ -2394,7 +2488,11 @@
 
  
 
- ****** A Professor is Blackmailed Ch. 05 ****** bydawn1958© Why she obeyed would always haunt her. Kerri hated men who acted like Dean and ones that treated women without respect yet she complied by spreading her legs. There was a strange mystery in front of her and she begged to discover how her mind would react to the repulsive actions from Dean. Kerri knew she would regret the next few minutes of her life, yet she was unable to extinguish her inquisitive emotions. 
+ 
+
+===
+
+Why she obeyed would always haunt her. Kerri hated men who acted like Dean and ones that treated women without respect yet she complied by spreading her legs. There was a strange mystery in front of her and she begged to discover how her mind would react to the repulsive actions from Dean. Kerri knew she would regret the next few minutes of her life, yet she was unable to extinguish her inquisitive emotions. 
 
  It was a 30-second Rocky-Horror picture show. The shock of what was happening in the backseat of the automobile hit Kerri with a bang. She was lying on her back and pushed into the corner of the backseat while two almost naked men were assaulting her. Harv's brazen nakedness was to her left and he sat on the floor, squished between the seats. His big hands reached for her body and fondled her at will, as he paid particular attention to her boobs. 
 
@@ -2506,7 +2604,11 @@
 
  
 
- ****** A Professor is Blackmailed Ch. 05 ****** bydawn1958© "Whaaa... whaaa," Kerri mumbled. 
+ 
+
+===
+
+"Whaaa... whaaa," Kerri mumbled. 
 
  "I went along with the ruse just for the sex... that's all," Mr. Tovell stated. 
 

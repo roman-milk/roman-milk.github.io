@@ -1,8 +1,14 @@
+How Hannah and I Got Together
+=============================
 #1 
 
  
 
- ****** How Hannah and I Got Together ****** bysex4every1© All persons in this story are at least 18 years of age. 
+ 
+
+===
+
+All persons in this story are at least 18 years of age. 
 
  * 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** How Hannah and I Got Together ****** bysex4every1© "I'd rather just talk if that's okay." she said as she tapped on the bed, inviting me to take a seat next to her. 
+ 
+
+===
+
+"I'd rather just talk if that's okay." she said as she tapped on the bed, inviting me to take a seat next to her. 
 
  Hannah started talking about minor and slightly bigger problems at college; typical stuff for girls her age, I guess. 
 
@@ -410,7 +420,11 @@
 
  
 
- ****** How Hannah and I Got Together ****** bysex4every1© "Hey no problem, if she needs help she needs help... it's not her fault she's been sick, right!" I reassured her. 
+ 
+
+===
+
+"Hey no problem, if she needs help she needs help... it's not her fault she's been sick, right!" I reassured her. 
 
  "I just hope you're not too bored." 
 
@@ -560,7 +574,11 @@
 
  
 
- ****** How Hannah and I Got Together ****** bysex4every1© I clenched my eyes shut and climaxed, whispering:"Goooddd yessss!" 
+ 
+
+===
+
+I clenched my eyes shut and climaxed, whispering:"Goooddd yessss!" 
 
  When I opened my eyes again and looked at her, she was gawking at my cum- spewing dick and smiling widely. She noticed me staring at her and, smiling kind of shyly, gently ran her hand through my hair. Her touch, especially in these circumstances, sent powerful shivers up my spine, making me convulse and groan all over again. Seconds later, Hannah's mom called out:"Let's go Hannah, the bus won't wait!" 
 
@@ -584,7 +602,11 @@
 
  
 
- ****** How Hannah and I Got Together Ch. 02 ****** bysex4every1© And boy, did I have fun with it! 
+ 
+
+===
+
+And boy, did I have fun with it! 
 
  Knowing she'd had given me one of her most intimate pieces of clothing, knowing fully well what I'd be doing with it! It was exhilarating to touch the fabric that had held her beautiful breasts and perky nipples. 
 
@@ -722,7 +744,11 @@
 
  
 
- ****** How Hannah and I Got Together Ch. 02 ****** bysex4every1© After a little while, we got onto the bed and snuggled against each other, talking for a while, before drifting off to sleep in each other's arms. We were awoken by Hannah's mom's voice calling us down some time later. We picked up our clothes and restored everything in the room to its previous position, snuck out and pretended to walk out of Hannah's room as if we'd been up there the whole time. 
+ 
+
+===
+
+After a little while, we got onto the bed and snuggled against each other, talking for a while, before drifting off to sleep in each other's arms. We were awoken by Hannah's mom's voice calling us down some time later. We picked up our clothes and restored everything in the room to its previous position, snuck out and pretended to walk out of Hannah's room as if we'd been up there the whole time. 
 
  We joined our moms downstairs and said our goodbyes. 
 

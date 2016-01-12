@@ -1,8 +1,14 @@
+V Day
+=====
 #1 
 
  
 
- ****** V Day ****** byE.Z.Riter© This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre- approved archives. 
+ 
+
+===
+
+This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre- approved archives. 
 
  Copyright 2000, 2002 by E. Z. Riter 
 
@@ -320,7 +326,11 @@
 
  
 
- ****** V Day ****** byE.Z.Riter© I saw her apprehension as one hand daintily found Veronica's pussy and her other hand touched my cock. I so wished I could have seen Barbara's face, but it disappeared beneath me as she put my cock head against Veronica's pussy. 
+ 
+
+===
+
+I saw her apprehension as one hand daintily found Veronica's pussy and her other hand touched my cock. I so wished I could have seen Barbara's face, but it disappeared beneath me as she put my cock head against Veronica's pussy. 
 
  I did feel Barbara's presence. Her nails dug viciously into the tender inside of my thigh and I sharply called her name. I heard her sob when Veronica moaned from my initial penetration. Later, I felt Barbara's touches on my legs, her stroking of my perineum, scraping my ass with her fingernails. 
 

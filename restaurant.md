@@ -1,8 +1,14 @@
+Restaurant Ch. 02
+=================
 #1 
 
  
 
- ****** Restaurant Ch. 02 ****** byStoryTeller07© Restaurant 2 
+ 
+
+===
+
+Restaurant 2 
 
  Fruity surprise! 
 

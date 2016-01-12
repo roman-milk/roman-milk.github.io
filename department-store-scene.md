@@ -1,8 +1,14 @@
+Department Store Scene
+======================
 #1 
 
  
 
- ****** Department Store Scene ****** bytom6432© (I wrote this fantasy just for fun. All characters over 18. I could have placed this story under the category exhibitionist & voyeur, but seleected BDSM. It contains humiliation and sex. Please enjoy.) 
+ 
+
+===
+
+(I wrote this fantasy just for fun. All characters over 18. I could have placed this story under the category exhibitionist & voyeur, but seleected BDSM. It contains humiliation and sex. Please enjoy.) 
 
  
 

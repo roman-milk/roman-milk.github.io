@@ -1,8 +1,14 @@
+Office Girls Ch. 01
+===================
 #1 
 
  
 
- ****** Office Girls Ch. 01 ****** byStoryTeller07© "No! Damn!" Katrina exclaimed. Hitting keys at random on the laptop didn't unfreeze it. At least there didn't appear to be any damage to the keyboard. "What am I going to do now?" She said sinking back onto the chair. This was the tenth time of switching it on and off; the damn machine still wouldn't work. 
+ 
+
+===
+
+"No! Damn!" Katrina exclaimed. Hitting keys at random on the laptop didn't unfreeze it. At least there didn't appear to be any damage to the keyboard. "What am I going to do now?" She said sinking back onto the chair. This was the tenth time of switching it on and off; the damn machine still wouldn't work. 
 
  "Bloody men. They made the damn things that's why they're so complicated." She complained. The phone rang startling her from thoughts of what she was going to tell Margaret about the computer. 
 
@@ -200,7 +206,11 @@
 
  
 
- ****** Office Girls Ch. 01 ****** byStoryTeller07© Jason pulled one then the other from the sofa to look down at them on hands and knees below him. "What do you say? Thank you sir." He prompted. 
+ 
+
+===
+
+Jason pulled one then the other from the sofa to look down at them on hands and knees below him. "What do you say? Thank you sir." He prompted. 
 
  In unison they said the words surprised at how much they meant it. 
 
@@ -236,7 +246,11 @@
 
  
 
- ****** Office Girls Ch. 02 ****** byStoryTeller07© Katrina wondered how Margaret would feel tomorrow knowing she would suffer after everything went so badly this evening when the situation had gone way beyond their control. It was admittedly her fault to begin with and as soon as Jason entered her home this evening she had capitulated to him leaving Margaret to stand up to his demands. When she too had given in they were reduced to a couple of kittens purring at his feet. 
+ 
+
+===
+
+Katrina wondered how Margaret would feel tomorrow knowing she would suffer after everything went so badly this evening when the situation had gone way beyond their control. It was admittedly her fault to begin with and as soon as Jason entered her home this evening she had capitulated to him leaving Margaret to stand up to his demands. When she too had given in they were reduced to a couple of kittens purring at his feet. 
 
  They needed help desperately. They had hoped to settle the problem without telling the other two friends but they would have to be told now and in any case they were involved as much as she was. He had naughty photographs of them too. Carol wouldn't be much help whereas June was an older woman, their office supervisor, with a greater experience of life. She wasn't the type to take any nonsense from Jason. 
 
@@ -386,7 +400,11 @@
 
  
 
- ****** Office Girls Ch. 02 ****** byStoryTeller07© June tried to fight it until his tongue began to wriggle between her lips when her body gave in the struggle. Feeling her pussy opening up to him like a flower in bloom she flopped back on the floor a little more aware of how he had achieved her friends submission. The little groans of satisfaction as he hit the right spot were thankfully muffled and distorted. 
+ 
+
+===
+
+June tried to fight it until his tongue began to wriggle between her lips when her body gave in the struggle. Feeling her pussy opening up to him like a flower in bloom she flopped back on the floor a little more aware of how he had achieved her friends submission. The little groans of satisfaction as he hit the right spot were thankfully muffled and distorted. 
 
  Pulling Margaret into position he directed her to suckle on her friends pussy. With the leash he guided Carol between Margaret's legs. Close to her friends bare pussy Carol watched with wide-open eyes the young man sucking on the lips only inches from her face. 
 
@@ -416,7 +434,11 @@
 
  
 
- ****** Office Girls Ch. 03 ****** byStoryTeller07© The four women knelt upon the carpet with heads bowed before the young man, each in turn taking his cock in their mouths in a demonstration of their position of fealty to him. Margaret enjoyed the sexual contact making the most of it so that he had to pull away from her. Katrina's embarrassment became obvious as her cheeks blushed and he watched the flush spread down her neck to her bare breasts. Carol's eyes were shut tight as he pierced her lips using her compliant mouth for just one slow stroke. 
+ 
+
+===
+
+The four women knelt upon the carpet with heads bowed before the young man, each in turn taking his cock in their mouths in a demonstration of their position of fealty to him. Margaret enjoyed the sexual contact making the most of it so that he had to pull away from her. Katrina's embarrassment became obvious as her cheeks blushed and he watched the flush spread down her neck to her bare breasts. Carol's eyes were shut tight as he pierced her lips using her compliant mouth for just one slow stroke. 
 
  June watched her friends abuse with astonishment; it was their submission to this humiliation as much as the audacious act they were being forced to perform that shocked her. She was struggling to gather the words to admonish this stranger who had invaded her home and her body. The words came to mind too late as his deflated member was quickly pushed into her open mouth. When she found herself sucking it like a comforter, consternation reigned in her mind. The feelings of sexual gratification were kindled again overcoming her natural reluctance to submit to this arrogant young man. 
 
@@ -542,7 +564,11 @@
 
  
 
- ****** Office Girls Ch. 03 ****** byStoryTeller07© From their last encounter Katrina knew exactly what to do. She lifted his flagging penis in one hand while cupping his balls with the other. A first tentative kiss to its eye followed by a lick along its length and back, then with a gentle suction it disappeared between her lips into her mouth. All the while she tenderly pumped his balls. She wasn't used to so much physical stimulation, none of them were, but Katrina found it impossible to resist however hard she tried to maintain a detached aloofness. 
+ 
+
+===
+
+From their last encounter Katrina knew exactly what to do. She lifted his flagging penis in one hand while cupping his balls with the other. A first tentative kiss to its eye followed by a lick along its length and back, then with a gentle suction it disappeared between her lips into her mouth. All the while she tenderly pumped his balls. She wasn't used to so much physical stimulation, none of them were, but Katrina found it impossible to resist however hard she tried to maintain a detached aloofness. 
 
  After a short moment he pulled back and moved sideways to stand before June. She repeated the action as mechanically as Katrina had. She had enjoyed him from the very first perhaps because she hadn't had sex for so long. On occasion he caught her staring at his penis with a look of lust in her eyes. She wanted to let go of her inhibitions and pull him on top of her but all the time held back before her friends not wanting to let them down. 
 
@@ -556,7 +582,11 @@
 
  
 
- ****** Office Girls Ch. 04 ****** byStoryTeller07© The four friends met early at June's house desperate to discuss their predicament. Giving into a young man's blackmail was leading to ever more degrading sexual acts. With the drinks poured they sat back on the sofa and easy chairs ready for a difficult decision. 
+ 
+
+===
+
+The four friends met early at June's house desperate to discuss their predicament. Giving into a young man's blackmail was leading to ever more degrading sexual acts. With the drinks poured they sat back on the sofa and easy chairs ready for a difficult decision. 
 
  "We have got to do something about this. I was going to say 'before it goes too far' but it already has. Maybe we could simply refuse to play his games and see what happens." June said. 
 
@@ -676,7 +706,11 @@
 
  
 
- ****** Office Girls Ch. 04 ****** byStoryTeller07© It sped off from a gathering crowd before the celebrating crowd could gain confidence enough to close in. Ten minutes wasn't enough to get their breath back but they had to alight, ushered out by Jason. Fortunately there were no stairs to negotiate in the high heels. Straight along a ground floor corridor into a large lounge. 
+ 
+
+===
+
+It sped off from a gathering crowd before the celebrating crowd could gain confidence enough to close in. Ten minutes wasn't enough to get their breath back but they had to alight, ushered out by Jason. Fortunately there were no stairs to negotiate in the high heels. Straight along a ground floor corridor into a large lounge. 
 
  The house was as large as June's with a more modern décor. Posters of bands and one of Che Guevara lined the walls down the corridor. The lounge had four large sofas around a Persian rug with sets of four watercolours on each wall, by modern artists. The house wasn't exactly minimalist, it was comfortable. 
 

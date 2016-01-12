@@ -1,8 +1,14 @@
+Suzanne Ch. 01
+==============
 #1 
 
  
 
- ****** Suzanne Ch. 01 ****** byStoryTeller07© Chapter 01 
+ 
+
+===
+
+Chapter 01 
 
  A young woman is spanked 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Suzanne Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  The friend takes over 
 
@@ -400,6 +410,10 @@
 
  
 
- ****** Suzanne Ch. 02 ****** byStoryTeller07© "Yes!" he gasped, still breathing heavily, sucking in air. "You're my, lovely little, slut. I want, you," he gasped. 
+ 
+
+===
+
+"Yes!" he gasped, still breathing heavily, sucking in air. "You're my, lovely little, slut. I want, you," he gasped. 
 
  "Oh! Thank you, sir. I want to be yours, I want to be your lovely little slut," she mewed, with an all consuming pleasure. Report_Story 

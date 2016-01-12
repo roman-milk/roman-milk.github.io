@@ -1,8 +1,14 @@
+Doctoral Discipline Pt. 02
+==========================
 #1 
 
  
 
- ****** Doctoral Discipline Pt. 02 ****** bytom6432© Co-Authors: subbie1982 and tom6432 
+ 
+
+===
+
+Co-Authors: subbie1982 and tom6432 
 
  This is a fantasy written by subbie1982 and myself for fun. All errors in spelling, punctuation and grammar are my responsibility. It contains spanking, humiliation and fetish; if this bothers you please seek other authors. All characters are 25 year old or older. 
 
@@ -106,7 +112,11 @@
 
  
 
- ****** Doctoral Discipline Pt. 02 ****** bytom6432© We reached my new room and the Professor lead me to my desk, which I noticed was about the size of a child's desk with a small chair. "I can't sit on that chair and study Professor." I said. "Oh yes you can and you will young lady not only that but your panties will be at your ankles so that you will sit on your bare bottom". 
+ 
+
+===
+
+We reached my new room and the Professor lead me to my desk, which I noticed was about the size of a child's desk with a small chair. "I can't sit on that chair and study Professor." I said. "Oh yes you can and you will young lady not only that but your panties will be at your ankles so that you will sit on your bare bottom". 
 
  "Now SIT!" He ordered. 
 

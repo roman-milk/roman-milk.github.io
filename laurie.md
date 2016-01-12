@@ -1,8 +1,14 @@
+Laurie
+======
 #1 
 
  
 
- ****** Laurie ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
 
  Copyright 1999 by E. Z. Riter. 
 

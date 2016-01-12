@@ -1,8 +1,14 @@
+Human Doll
+==========
 #1 
 
  
 
- ****** Human Doll ****** byStoryTeller07© "What have you done to me?" Rose squeaked, in a long out-breath. Her voice sounded like a windup dolls as though a string had been pulled from her back. "What have you done to me?" she squeaked again, confirming the impression a string had been pulled. 
+ 
+
+===
+
+"What have you done to me?" Rose squeaked, in a long out-breath. Her voice sounded like a windup dolls as though a string had been pulled from her back. "What have you done to me?" she squeaked again, confirming the impression a string had been pulled. 
 
  It wasn't her voice that worried her it was the body she had woken up with. She was a young attractive woman with a super ego to match, or at least she had been a few days ago. 
 
@@ -172,7 +178,11 @@
 
  
 
- ****** Human Doll Ch. 02 ****** byStoryTeller07© Rose had been in shock the whole weekend; not getting up till late and then just wandering around the house in a daze unable to answer the phone not wanting to see or talk to anyone. Forcing down some toast she retched on the idea that an android couldn't eat, for it reminded her too clearly of how she had felt. 
+ 
+
+===
+
+Rose had been in shock the whole weekend; not getting up till late and then just wandering around the house in a daze unable to answer the phone not wanting to see or talk to anyone. Forcing down some toast she retched on the idea that an android couldn't eat, for it reminded her too clearly of how she had felt. 
 
  He had apologised profusely explaining it was all in her mind and she hadn't been turned into an android at all. It had been so real! 
 
@@ -344,7 +354,11 @@
 
  
 
- ****** Human Doll Ch. 02 ****** byStoryTeller07© Randall walked in with a rehearsed indifference to the young woman. "Hello John, hope you've had a nice evening. My meeting completed early and I had nowhere to go. Felt too tired to visit the club, so here I am," he explained. 
+ 
+
+===
+
+Randall walked in with a rehearsed indifference to the young woman. "Hello John, hope you've had a nice evening. My meeting completed early and I had nowhere to go. Felt too tired to visit the club, so here I am," he explained. 
 
  He made no comment or move that might spoil their game hoping John would keep to the plan. He plonked himself down in a large wingback chair trying to seem relaxed. 
 
@@ -514,7 +528,11 @@
 
  
 
- ****** Human Doll Ch. 03 ****** byStoryTeller07© Rose was sitting at his feet while he watched a football game on television. She was his doll for the weekend and had determined to play out the fantasy role to perfection. It satisfied an inner feeling of being controlled and he played his part as her owner so well it gave her a warm inner feeling. It gave her such a constant buzz of arousal she became willing to do anything to satisfy him. 
+ 
+
+===
+
+Rose was sitting at his feet while he watched a football game on television. She was his doll for the weekend and had determined to play out the fantasy role to perfection. It satisfied an inner feeling of being controlled and he played his part as her owner so well it gave her a warm inner feeling. It gave her such a constant buzz of arousal she became willing to do anything to satisfy him. 
 
  "Lay back on the rug, doll," Randall told her. He hadn't been able to concentrate for a single moment with a delicious female at his feet but had to play his part. He could feel the sexual tension in her vibrating out like sound waves hitting his consciousness with a message of need. 
 
@@ -708,7 +726,11 @@
 
  
 
- ****** Human Doll Ch. 03 ****** byStoryTeller07© The more he read the more he wondered how involved she had been. Had she tried it on or just seen it demonstrated? Either way it could have brought out something from her subconscious that needed expressing. He wondered if she needed to be a doll like the one propped up on the sofa last night or was the need more generalised. 
+ 
+
+===
+
+The more he read the more he wondered how involved she had been. Had she tried it on or just seen it demonstrated? Either way it could have brought out something from her subconscious that needed expressing. He wondered if she needed to be a doll like the one propped up on the sofa last night or was the need more generalised. 
 
  He would soon find out when she prepared herself for him and came downstairs. 
 
@@ -802,7 +824,11 @@
 
  
 
- ****** Human Doll Ch. 04 ****** byStoryTeller07© Bill hadn't seen Rose for some months. At a fund raising dinner they bumped into each other. He hardly recognised her. She looked as attractive as ever, and gave him a big smile. 
+ 
+
+===
+
+Bill hadn't seen Rose for some months. At a fund raising dinner they bumped into each other. He hardly recognised her. She looked as attractive as ever, and gave him a big smile. 
 
  "Hello, sir," she demurely said. 
 
@@ -1042,7 +1068,11 @@
 
  
 
- ****** Human Doll Ch. 04 ****** byStoryTeller07© "A demonstration model is always sent out when a new version is released. You will be that demo model. You will be on display, around the country. Don't worry. I'll be with you, looking after your bodily functions. I'll make sure you're fed and watered, as it were," Nobel said. 
+ 
+
+===
+
+"A demonstration model is always sent out when a new version is released. You will be that demo model. You will be on display, around the country. Don't worry. I'll be with you, looking after your bodily functions. I'll make sure you're fed and watered, as it were," Nobel said. 
 
  "A douche and enema will keep you clean. You will need loosening up, as the stores like to make full use of a demo model. Their regular customers get a preview of the new models skills," he explained. 
 

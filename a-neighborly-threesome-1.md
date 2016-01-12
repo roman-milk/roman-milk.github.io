@@ -1,8 +1,14 @@
+A Neighborly Threesome
+======================
 #1 
 
  
 
- ****** A Neighborly Threesome ****** bydawn1958© Please send your comments and feedback, as I'm always interested to know what readers think of my story. 
+ 
+
+===
+
+Please send your comments and feedback, as I'm always interested to know what readers think of my story. 
 
  The golf club women's championship was drawing to a close and Lori and Susan were in the last group of the day. They were both on cloud nine because their scores were the lowest of the three-day championship, which meant both would represent their club at the state championships. Lori sank her last putt and stood at the edge of the green, waiting for Susan to finish. 
 
@@ -142,7 +148,11 @@
 
  
 
- ****** A Neighborly Threesome ****** bydawn1958© "Well actually... really, all I need is rest... a little rest," Lori mumbled. 
+ 
+
+===
+
+"Well actually... really, all I need is rest... a little rest," Lori mumbled. 
 
  "Don't be silly. We have to do well tomorrow and you'll feel like one-hundred percent once Jim is finished with you," Sue stated. 
 
@@ -362,7 +372,11 @@
 
  
 
- ****** A Neighborly Threesome ****** bydawn1958© Jim held his cock still and let the blood surge through the lengthy shaft, as it pulsed deep inside the overheated inferno. The pain was intense yet it didn't compare to the humiliation of having extramarital intercourse. Lori tried to breath, but it took time for the short gasps of air to satisfy her needs. Then any chance of her regaining control disappeared when Jim started slowly pumping his swollen cock in and out of the heated cavity. 
+ 
+
+===
+
+Jim held his cock still and let the blood surge through the lengthy shaft, as it pulsed deep inside the overheated inferno. The pain was intense yet it didn't compare to the humiliation of having extramarital intercourse. Lori tried to breath, but it took time for the short gasps of air to satisfy her needs. Then any chance of her regaining control disappeared when Jim started slowly pumping his swollen cock in and out of the heated cavity. 
 
  Susan relished the power and glory of being in control. She wanted to be the supreme mistress just like she and Jim had talked about during their romantic fantasies. The couple had discussed and used their sexual dreams to achieve phenomenal orgasms over the past months, as they schemed of making Lori their slave. Sue had described her desires with Jim and he readily agreed that his wife would be the dominating woman in the relationship, as they made their friend a sex-slave. 
 
@@ -568,7 +582,11 @@
 
  
 
- ****** A Neighborly Threesome ****** bydawn1958© Lori made whimpering noises and a million shivers went through her body. "Huuummm, huuummm." 
+ 
+
+===
+
+Lori made whimpering noises and a million shivers went through her body. "Huuummm, huuummm." 
 
  "Good girl... yes, pinch your little clit." 
 

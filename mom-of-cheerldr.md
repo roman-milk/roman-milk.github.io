@@ -1,8 +1,14 @@
+Mother of a Cheerleader
+=======================
 #1 
 
  
 
- ****** Mother of a Cheerleader ****** bydawn1958© A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. 
+ 
+
+===
+
+A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. 
 
  Chapter 1 
 
@@ -128,7 +134,11 @@
 
  
 
- ****** Mother of a Cheerleader ****** bydawn1958© Ken had dimmed the lights and made the living room appear quite alluring. He handed Dani her unfinished cooler from earlier and she immediately drank a good portion to calm her nerves. "I can see that you love your daughter very much and will do anything for her," Ken declared. "I will make it happen as long as you make me happy." 
+ 
+
+===
+
+Ken had dimmed the lights and made the living room appear quite alluring. He handed Dani her unfinished cooler from earlier and she immediately drank a good portion to calm her nerves. "I can see that you love your daughter very much and will do anything for her," Ken declared. "I will make it happen as long as you make me happy." 
 
  The implications were tremendous and Dani's heart pounded, as she wondered if she was doing the right thing. All of a sudden the man stated his evil intentions. "You can show me what a gorgeous cheerleader really looks like," Ken said, as he handed Dani a replica of the school's cheerleader's outfit. "Put this on so I can see if you look good enough to be a real cheerleader." 
 
@@ -278,7 +288,11 @@
 
  
 
- ****** Mother of a Cheerleader ****** bydawn1958© "That's it baby. Keep moving that sexy ass. It's time to see how much you want your daughter to be a cheerleader," he whispered. "Sweet fuck, slut. You're hot... burning my fucking cock." 
+ 
+
+===
+
+"That's it baby. Keep moving that sexy ass. It's time to see how much you want your daughter to be a cheerleader," he whispered. "Sweet fuck, slut. You're hot... burning my fucking cock." 
 
  Dani wanted to yell at the man and tell him how much she hated everything about him. Suddenly he reached under her trembling hips with both hands and grabbed the cheeks of her ass. Ken squeezed and dug his fingers into the soft, creamy flesh. Then he pulled up with his hands and lunged downward with his hips. When several inches of the ramrod surged into her womanly domain, Dani stopped breathing. 
 
@@ -402,7 +416,11 @@
 
  
 
- ****** Mother of a Cheerleader ****** bydawn1958© When Julie walked across the parking lot, she felt Sarah's eyes following her every step. The silence in the car was deafening, as she opened the passenger door and leaned into the front seat. Julie noticed the stunned look on her mother's face and almost lost her nerve. "I... I can't go home now. I have to do some extra work with Coach Sarah," she said. 
+ 
+
+===
+
+When Julie walked across the parking lot, she felt Sarah's eyes following her every step. The silence in the car was deafening, as she opened the passenger door and leaned into the front seat. Julie noticed the stunned look on her mother's face and almost lost her nerve. "I... I can't go home now. I have to do some extra work with Coach Sarah," she said. 
 
  "Darling, she kissed you... kissed you on the lips!" Dani looked at her daughter and didn't know what else to say about what she witnessed. 
 
@@ -512,7 +530,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 02 ****** bydawn1958© A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
+ 
+
+===
+
+A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
 
  Chapter 2 
 
@@ -682,7 +704,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 02 ****** bydawn1958© Dani listened to the statement and her stomach trembled both from the realization she made a big mistake and also because her clitoris felt like it had grown in size. Her bottom lip quivered rapidly and she desperately wanted the young woman to stop molesting her. "Mistress, please, you have to stop, please stop." 
+ 
+
+===
+
+Dani listened to the statement and her stomach trembled both from the realization she made a big mistake and also because her clitoris felt like it had grown in size. Her bottom lip quivered rapidly and she desperately wanted the young woman to stop molesting her. "Mistress, please, you have to stop, please stop." 
 
  When the fingers stopped rolling her clit, Dani breathed a big sigh of relief, but then she realized Sarah continued to squeeze. The pressure on her delicate bud was unbearable yet she was afraid to protest anymore. "I want to hear you say it. Say you had sex with Mr. Kristy," Sarah whispered. 
 
@@ -830,7 +856,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 02 ****** bydawn1958© "Good girl," Sarah whispered to Julie 
+ 
+
+===
+
+"Good girl," Sarah whispered to Julie 
 
  "Yes, Mistress," the girl replied, just before she devoured a hardened nipple. 
 
@@ -988,7 +1018,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 02 ****** bydawn1958© Katie pulled the whimpering mother to her feet. "I think we should show the two onlookers what mommy will do for her mistress," she whispered, as she slipped a black leather, dog collar around Dani's neck. Katie hooked a short leash onto a silver ring and jerked the collar a few times for affect. "Come, my dear pet, let's walk around the room like a good doggie." 
+ 
+
+===
+
+Katie pulled the whimpering mother to her feet. "I think we should show the two onlookers what mommy will do for her mistress," she whispered, as she slipped a black leather, dog collar around Dani's neck. Katie hooked a short leash onto a silver ring and jerked the collar a few times for affect. "Come, my dear pet, let's walk around the room like a good doggie." 
 
  Katie used the leash to escort the obedient woman, as they circled the room a couple of times. Then they stopped and it was very apparent that someone was right in front of her, as Dani could hear heavy breathing. "Soon you're going to get down on your hands and knees for me and be a very obedient doggie. First though, we need someone to kiss your sore boobie and make it better." 
 
@@ -1130,7 +1164,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 02 ****** bydawn1958© The cock-head and shaft had been thoroughly greased and the lubrication made it quite easy for Katie to ram some of the cock into the mother's ass. Dani was still gasping and crying when Jill shamelessly grabbed her clit. The girls forced Dani to lean backwards a little, which enabled them to systematically molest her. 
+ 
+
+===
+
+The cock-head and shaft had been thoroughly greased and the lubrication made it quite easy for Katie to ram some of the cock into the mother's ass. Dani was still gasping and crying when Jill shamelessly grabbed her clit. The girls forced Dani to lean backwards a little, which enabled them to systematically molest her. 
 
  Katie had her strong fingers wrapped around Dani's slim waist and she yanked downward, as she thrust up with her powerful hips. Dani once thought it was impossible to achieve an orgasm with something buried in her ass. Suddenly she glared down the front of her sweaty torso and watched Jill manipulate her inflamed clitoris. The girl stretched the clit until the bud was fully exposed and then she rolled it around vigorously between her skilled fingertips. 
 
@@ -1174,7 +1212,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 03 ****** bydawn1958© A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
+ 
+
+===
+
+A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
 
  Chapter 3 
 
@@ -1304,7 +1346,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 03 ****** bydawn1958© Getting gangbanged by numerous strangers was far too daunting to comprehend and Dani was determined to ensure it didn't happen. She squeezed her eyes closed and gritted her teeth, as her fingers molested her clitoris. When the first spasm shot through her belly, she welcomed the relief. Dani considered faking an orgasm, but then realized the consequences of getting caught by Ken would be far too harsh. 
+ 
+
+===
+
+Getting gangbanged by numerous strangers was far too daunting to comprehend and Dani was determined to ensure it didn't happen. She squeezed her eyes closed and gritted her teeth, as her fingers molested her clitoris. When the first spasm shot through her belly, she welcomed the relief. Dani considered faking an orgasm, but then realized the consequences of getting caught by Ken would be far too harsh. 
 
  Ken was in his glory. His buddies cheered and encouraged him onward, as he tried to control the thrashing hips riding his illustrious hardon. "You're fantastic... the best slut. Every guy here wants to fuck you, but I promised," he uttered, as an orgasm ripped through his loins. "Now you can prove you're willing to make the ultimate sacrifice to keep me quiet." 
 
@@ -1440,7 +1486,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 03 ****** bydawn1958© They departed and Dani drove to the mall. "First we'll buy you some underwear. I don't want my beloved slave walking around the city dressed like a cheap tramp," Sarah said in a very mocking tone. 
+ 
+
+===
+
+They departed and Dani drove to the mall. "First we'll buy you some underwear. I don't want my beloved slave walking around the city dressed like a cheap tramp," Sarah said in a very mocking tone. 
 
  "Yes, Mistress." Dani drove to the exact spot indicated by Sarah and parked. When they walked across the parking lot to the first store, Dani had to keep adjusting the short skirt, as the hem kept riding up to her crotch. 
 
@@ -1646,7 +1696,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 03 ****** bydawn1958© The final scenes at the parlor would be etched in Dani's head for a long time. She was dazed after the intense climax and somehow fumbled around to find all of her clothes. She dressed and hoped the ordeal was over, but there was still plenty of shame in store for her. Jeff handed her a receipt for the artwork and she felt totally embarrassed knowing she paid for the humiliation with her own money. 
+ 
+
+===
+
+The final scenes at the parlor would be etched in Dani's head for a long time. She was dazed after the intense climax and somehow fumbled around to find all of her clothes. She dressed and hoped the ordeal was over, but there was still plenty of shame in store for her. Jeff handed her a receipt for the artwork and she felt totally embarrassed knowing she paid for the humiliation with her own money. 
 
  To make matters worse, Sarah had made arrangements for Julie to pick them up and drive them home. When Dani noticed Jeff go to the front door of the parlor and open it for a visitor, her heart stopped. "Mother! Now dad can see what a slut you are," Julie said, as she entered. "When he sees what you've done, he's going to know you're a slut." 
 
@@ -1684,7 +1738,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 04 ****** bydawn1958© A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
+ 
+
+===
+
+A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
 
  Chapter 4 
 
@@ -1922,7 +1980,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 04 ****** bydawn1958© Explaining the tattoos to her husband wasn't easy and when he saw the pierced nipples, Dani thought he would explode. Once the initial shock wore off, he accepted her explanation that she got the piercing and tattoos on a whim and he actually complimented her on how sexy they looked. As with many marriages, their sex-life got much hotter and the intercourse resembled what it used to be when they got married. 
+ 
+
+===
+
+Explaining the tattoos to her husband wasn't easy and when he saw the pierced nipples, Dani thought he would explode. Once the initial shock wore off, he accepted her explanation that she got the piercing and tattoos on a whim and he actually complimented her on how sexy they looked. As with many marriages, their sex-life got much hotter and the intercourse resembled what it used to be when they got married. 
 
  Dani retained the demoralizing feelings of guilt for having sex with Sarah, Jeff and Julie and she was determined to keep the secret from her husband for as long as she lived. She came home from work on a Friday and was confronted by her daughter when she entered the front door. "Mother, Sarah is on her way over. She has setup a meeting with two students," Julie said to her stunned mother. "Don't worry, they're old enough and you won't get accused of robbing the cradle." 
 
@@ -2110,7 +2172,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 04 ****** bydawn1958© The young cheerleader boldly told the adorable coach that she was overly confused by her inner sexuality. Strangely the girl had no difficulty telling the university coach that she was gay and how she was extremely attracted to timid or submissive older women. Although Sarah found the girl's attention crude and immature, she also felt good because it took a lot of courage for the girl to confide in her. 
+ 
+
+===
+
+The young cheerleader boldly told the adorable coach that she was overly confused by her inner sexuality. Strangely the girl had no difficulty telling the university coach that she was gay and how she was extremely attracted to timid or submissive older women. Although Sarah found the girl's attention crude and immature, she also felt good because it took a lot of courage for the girl to confide in her. 
 
  When Sarah heard the girl's confession, her mind went into overdrive. She pondered numerous dominatrix possibilities for the talented and beautiful high school cheerleader and wasn't happy until a good solution was reached. It seemed the two were together during all of the breaks and near the end of the weekend session Sarah decided to make her move. "I know someone you would fall in love with. She's older... she's absolutely gorgeous... and she's totally submissive," Sarah told the teenager. 
 
@@ -2258,7 +2324,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 05 ****** bydawn1958© A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
+ 
+
+===
+
+A reader suggested this story and I decided to write it because the storyline sounded so dynamic and realistic. I do appreciate feedback so please feel free to send me your comments. 
 
  * 
 
@@ -2426,7 +2496,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 05 ****** bydawn1958© Dani jumped to her feet and then sat back down when Sarah and Julie entered the room. "The girls think you're a very sexy woman... the sexiest mother. When Sarah and I found out that Lara had a crush on you... that she was a lesbian, we came up with a brilliant plan," Julie told her mother and waited a deathly minute before continuing. "And mother... the girl's a sex maniac!" 
+ 
+
+===
+
+Dani jumped to her feet and then sat back down when Sarah and Julie entered the room. "The girls think you're a very sexy woman... the sexiest mother. When Sarah and I found out that Lara had a crush on you... that she was a lesbian, we came up with a brilliant plan," Julie told her mother and waited a deathly minute before continuing. "And mother... the girl's a sex maniac!" 
 
  The shocked look on Dani's face made Sarah smile with satisfaction. "We mentioned the initiations that the team is holding this evening when we left you this morning," she stated. Then she went on to explain the whole hazing scenario to Dani who listened intently to the coach, while her heart pounded out of control. "We've selected you to be Lara's partner during the hazing blackout." 
 
@@ -2578,7 +2652,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 05 ****** bydawn1958© Dani could barely stand the pain, as her nipples were on fire. She glanced down and noticed the menacing jaws around the base of her aching nipples and the entire bud was exposed and throbbing like crazy. The girl was out of control. Lara's hips moved deliberately up and down, as she fucked her slave. There was a silver chain attached to each nipple clamp and Lara had it between her teeth. Each time she lifted her head just slightly, the chain tightened and pulled Dani's tits in the air. 
+ 
+
+===
+
+Dani could barely stand the pain, as her nipples were on fire. She glanced down and noticed the menacing jaws around the base of her aching nipples and the entire bud was exposed and throbbing like crazy. The girl was out of control. Lara's hips moved deliberately up and down, as she fucked her slave. There was a silver chain attached to each nipple clamp and Lara had it between her teeth. Each time she lifted her head just slightly, the chain tightened and pulled Dani's tits in the air. 
 
  Dani's heart beat furiously and she was positive her blood was boiling. "Dear gawd, I'll cum... anything... I'll do anything, please don't hurt me any more." 
 
@@ -2726,7 +2804,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 05 ****** bydawn1958© Dani didn't have to look, as she caught the frantic movement out of the corner of her eye, and she wondered what ever possessed her daughter to undress. She returned the woman's stare and tried to endure the intense dominating attempt. "Don't worry, my love. You're next, but first I want to make sure you understand," she whispered and left the impression that she demanded an answer. 
+ 
+
+===
+
+Dani didn't have to look, as she caught the frantic movement out of the corner of her eye, and she wondered what ever possessed her daughter to undress. She returned the woman's stare and tried to endure the intense dominating attempt. "Don't worry, my love. You're next, but first I want to make sure you understand," she whispered and left the impression that she demanded an answer. 
 
  "Understand? But what," Dani replied and then noticed a questioning look on the woman's face. "Understand what, Mistress?" 
 
@@ -2930,7 +3012,11 @@
 
  
 
- ****** Mother of a Cheerleader Ch. 05 ****** bydawn1958© Julie cupped Andy's balls with one hand and molested her mother's pussy with the other. "She's... yes, she's moving. Oh geez, I think she's cumming," she whispered. 
+ 
+
+===
+
+Julie cupped Andy's balls with one hand and molested her mother's pussy with the other. "She's... yes, she's moving. Oh geez, I think she's cumming," she whispered. 
 
  Dani couldn't look anymore, as the woman shamelessly exposed her entire breasts. Wendy pulled down the leather bra and fearlessly rubbed her bare boobs in Dani's face. The journey was the longest of her life and all of a sudden Dani felt the man's hips go out of control. She knew Andy was climaxing and all hope was lost. "No, gawd no, no." 
 

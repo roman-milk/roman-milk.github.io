@@ -1,8 +1,14 @@
+Housewife Bimbo Ch. 01
+======================
 #1 
 
  
 
- ****** Housewife Bimbo Ch. 01 ****** byStoryTeller07© Chapter 01 
+ 
+
+===
+
+Chapter 01 
 
  A naughty game goes wrong 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 01 ****** byStoryTeller07© "Like, yuk, I can't just sit here doing nothing. I'm bored!" Bimbo exclaimed. Florence had told the bimbo to hurry Jack along, and tried to get her to go home. Instead the stupid thing had declared she was bored. 
+ 
+
+===
+
+"Like, yuk, I can't just sit here doing nothing. I'm bored!" Bimbo exclaimed. Florence had told the bimbo to hurry Jack along, and tried to get her to go home. Instead the stupid thing had declared she was bored. 
 
  "Here, chew this gum," he absently told her. 
 
@@ -508,7 +518,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 01 ****** byStoryTeller07© "You've done very well, lovely bimbo. Candy is such a sweet delight. Here's your reward for being such an obedient little slut," Tommy whispered in her ear. 
+ 
+
+===
+
+"You've done very well, lovely bimbo. Candy is such a sweet delight. Here's your reward for being such an obedient little slut," Tommy whispered in her ear. 
 
  "Oh! Sir! What are you doing? That is so good!" she yelped. 
 
@@ -576,7 +590,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Florence is in desperate trouble 
 
@@ -774,7 +792,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  Sent Home 
 
@@ -1010,7 +1032,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 03 ****** byStoryTeller07© He sat up straight, listening intently. Hearing Bernard's voice meant he was talking to his son. He just hoped Florence had gone back to the spare room. Hearing harsh words had him leaping out of the chair, hurrying to the basement. 
+ 
+
+===
+
+He sat up straight, listening intently. Hearing Bernard's voice meant he was talking to his son. He just hoped Florence had gone back to the spare room. Hearing harsh words had him leaping out of the chair, hurrying to the basement. 
 
  
 
@@ -1078,7 +1104,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 04 ****** byStoryTeller07© The car stereo played a tune that caught Florence's attention - 'Why must I be a teenager in love?'. It was an old song bringing back memories. The plaintive tone moved her emotions down a notch, to where she felt sorry for herself. Why, oh, why was she forced to endure being a teenager for a second time. Had she offended Aphrodite? 
+ 
+
+===
+
+The car stereo played a tune that caught Florence's attention - 'Why must I be a teenager in love?'. It was an old song bringing back memories. The plaintive tone moved her emotions down a notch, to where she felt sorry for herself. Why, oh, why was she forced to endure being a teenager for a second time. Had she offended Aphrodite? 
 
  Under hypnosis she was taking on the role of a stupid adolescent girl, which was frustrating for a mature, married woman. As Candy she was playing up to Damien, in a gauche and obvious way. She wanted him to be her boyfriend, and would do anything to capture his attention. 
 
@@ -1336,7 +1366,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 04 ****** byStoryTeller07© "You are over eighteen aren't you?" he asked. 
+ 
+
+===
+
+"You are over eighteen aren't you?" he asked. 
 
  "Of course silly," Candy replied, as she managed to unhook the bra. 
 
@@ -1466,7 +1500,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 05 ****** byStoryTeller07© Florence skipped into the lounge looking forward to a shopping trip for clothes with her new mother figure. 
+ 
+
+===
+
+Florence skipped into the lounge looking forward to a shopping trip for clothes with her new mother figure. 
 
  The game of being hypnotised as a young carefree air-head, had spiralled out of control, leaving her helpless in its powerful grip. She gave up struggling with her alter ego, named Candy, to simply accept her. Being taken shopping for clothes excited Candy, and so she too became enthusiastic. 
 
@@ -1686,7 +1724,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 05 ****** byStoryTeller07© "Do you like my new outfit?" she softly asked. The pouting lips were so seductive, he wanted to jump onto the bed and caress them. He knew better than that. He would have to take his time to seduce her. In the end they would both be ravenous for each other, so it was worth holding back. She had taught him this when they first met. 
+ 
+
+===
+
+"Do you like my new outfit?" she softly asked. The pouting lips were so seductive, he wanted to jump onto the bed and caress them. He knew better than that. He would have to take his time to seduce her. In the end they would both be ravenous for each other, so it was worth holding back. She had taught him this when they first met. 
 
  The kids were on the other side of the house, so they could make as much noise as they liked. 
 
@@ -1794,7 +1836,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 06 ****** byStoryTeller07© Chapter 06 
+ 
+
+===
+
+Chapter 06 
 
  Florence escapes the family life 
 
@@ -2074,7 +2120,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 06 ****** byStoryTeller07© "Hi Craig," Catherine beamed at her brother. 
+ 
+
+===
+
+"Hi Craig," Catherine beamed at her brother. 
 
  "What do you want?" Craig suspiciously asked. 
 
@@ -2190,7 +2240,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 07 ****** byStoryTeller07© Florence is passed to another randy guy 
+ 
+
+===
+
+Florence is passed to another randy guy 
 
  Florence was hypnotised to be a stupid blond bimbo, called Candy. It started out as a fun game with her husband, only it all went wrong while he wasn't around to protect her. Being hypnotised for several weeks deepened the influence, until Florence lost all control of the bimbo persona. Candy was stupidly doing whatever she was told to do, and Florence had to withstand the consequences. 
 
@@ -2462,7 +2516,11 @@
 
  
 
- ****** Housewife Bimbo Ch. 07 ****** byStoryTeller07© Florence couldn't do anything about it, so retreated to a corner of her mind, leaving Candy in control of her body. How much more trouble could she get into, after all they had been through. Letting young guys molest her, and screw her, had become a normal part of her life. 
+ 
+
+===
+
+Florence couldn't do anything about it, so retreated to a corner of her mind, leaving Candy in control of her body. How much more trouble could she get into, after all they had been through. Letting young guys molest her, and screw her, had become a normal part of her life. 
 
  They moved on, with a promise to visit the store tomorrow. 
 

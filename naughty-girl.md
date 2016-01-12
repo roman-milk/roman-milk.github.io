@@ -1,8 +1,14 @@
+Naughty Girl Ch. 01
+===================
 #1 
 
  
 
- ****** Naughty Girl Ch. 01 ****** byStoryTeller07© Bernice was willing to indulge her husband, as it was a naughty fantasy of hers too. She took off her coat and threw it into the car, together with the keys. Unable to get back into the car, now meant it was impossible to back out of the game. This gave her an added thrill. She was committed to walking across the park, to meet her husband. 
+ 
+
+===
+
+Bernice was willing to indulge her husband, as it was a naughty fantasy of hers too. She took off her coat and threw it into the car, together with the keys. Unable to get back into the car, now meant it was impossible to back out of the game. This gave her an added thrill. She was committed to walking across the park, to meet her husband. 
 
  She was dressed in a schoolgirl uniform, feeling very naughty and sexy. She was more than ready, for her husband to pick her up. She was prepared to flirt with him, and just maybe, they might go that little bit further, if the situation was right. 
 
@@ -210,7 +216,11 @@
 
  
 
- ****** Naughty Girl Ch. 01 ****** byStoryTeller07© "That's it pervert, let go of her right now!" Harry exclaimed. 
+ 
+
+===
+
+"That's it pervert, let go of her right now!" Harry exclaimed. 
 
  Bernice wanted to explain it was the young guy hurting her wrist, not her husband. She yelped in pain instead, while caught between the two of them, in a tug of war. 
 
@@ -290,7 +300,11 @@
 
  
 
- ****** Naughty Girl Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  In the woods with the guys 
 
@@ -518,7 +532,11 @@
 
  
 
- ****** Naughty Girl Ch. 02 ****** byStoryTeller07© She must be desperate, to be aroused by such an unlikely specimen of manhood. Standing next to harry, the poor fellow didn't have a chance in hell. 
+ 
+
+===
+
+She must be desperate, to be aroused by such an unlikely specimen of manhood. Standing next to harry, the poor fellow didn't have a chance in hell. 
 
  She knew better than to tease them, for it was too dangerous. She was behaving like a sexy slut, and the more they responded, the more it dragged her into the role. The game had often been played, with her husband, in the safety of their bedroom. Here, in public, it was so very wrong. Being dressed like a stupid slut, and treated like one, shouldn't have made her into one. It seemed her husband was right. When aroused past a certain point, she lost control. 
 
@@ -612,7 +630,11 @@
 
  
 
- ****** Naughty Girl Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  Bernice is ensnared 
 
@@ -840,7 +862,11 @@
 
  
 
- ****** Naughty Girl Ch. 03 ****** byStoryTeller07© "Yes, sir, thank you sir," she demurely answered. 
+ 
+
+===
+
+"Yes, sir, thank you sir," she demurely answered. 
 
  "Run along then. Keep that thing between your legs covered in future. It isn't supposed to be given away so cheaply," he admonished her. 
 
@@ -986,7 +1012,11 @@
 
  
 
- ****** Naughty Girl Ch. 04 ****** byStoryTeller07© Chapter 04 
+ 
+
+===
+
+Chapter 04 
 
  Bernice is sent back to school 
 
@@ -1194,7 +1224,11 @@
 
  
 
- ****** Naughty Girl Ch. 04 ****** byStoryTeller07© She just couldn't help rubbing it in. She was busy thinking up ways of embarrassing Bernice later, when picking her up from school. It was so much fun playing the over caring mother; playing at being her own mother. 
+ 
+
+===
+
+She just couldn't help rubbing it in. She was busy thinking up ways of embarrassing Bernice later, when picking her up from school. It was so much fun playing the over caring mother; playing at being her own mother. 
 
  Bernice wanted to cry, only just managing to hold back the tears. Watching Susan clack away in high heels on a hardwood floor, she felt a pang of fear rise from the past. It was as though her mother was abandoning her. She felt as though she were a young girl again, in a strange world full of hurdles. 
 
@@ -1408,13 +1442,21 @@
 
  
 
- ****** Naughty Girl Ch. 04 ****** byStoryTeller07© The way she reacted with Miss Perez was worrying. Her sex had been wet! Was she a lesbian, or bisexual? What would her guardian say when she arrived home without the school uniform! 
+ 
+
+===
+
+The way she reacted with Miss Perez was worrying. Her sex had been wet! Was she a lesbian, or bisexual? What would her guardian say when she arrived home without the school uniform! 
 
  The immediate worry was facing her class teacher. What excuse could she come up with for being late? The many doubts and nervousness occupied her thoughts, clouding her judgement. She had to cope with being a naughty schoolgirl, rather than being a mature woman, and an adult.  
 
  
 
- ****** Naughty Girl Ch. 05 ****** byStoryTeller07© Bernice was picked up after school by Susan, her so called aunt. Susan was Paul's niece and only eighteen, but made up to look like an older woman. She had done a good job on the disguise. The sophisticated make-up, nails, hair, and clothes, let Susan get away with the charade. 
+ 
+
+===
+
+Bernice was picked up after school by Susan, her so called aunt. Susan was Paul's niece and only eighteen, but made up to look like an older woman. She had done a good job on the disguise. The sophisticated make-up, nails, hair, and clothes, let Susan get away with the charade. 
 
  Bernice on the other hand, was pretending to be an eighteen year old. It was embarrassing for a mature, married woman having to act like an adolescent, and especially so, with this young girl bossing her around. 
 
@@ -1664,7 +1706,11 @@
 
  
 
- ****** Naughty Girl Ch. 05 ****** byStoryTeller07© He took his hand away and smoothed down her skirt. 
+ 
+
+===
+
+He took his hand away and smoothed down her skirt. 
 
  Looking at the expression of dismay and love on his face left her feeling ashamed. 
 
@@ -1916,7 +1962,11 @@
 
  
 
- ****** Naughty Girl Ch. 06 ****** byStoryTeller07© Susan took a glass of milk and a cookies to Bernice's room. Though she was being ignored, Susan sat next to her on the bed. It wasn't unexpected to find the woman reading a glossy teen magazine, after all, that was all there was in her room. She was small and light boned, looking fragile and hurt. She looked sorry for herself, which was understandable. 
+ 
+
+===
+
+Susan took a glass of milk and a cookies to Bernice's room. Though she was being ignored, Susan sat next to her on the bed. It wasn't unexpected to find the woman reading a glossy teen magazine, after all, that was all there was in her room. She was small and light boned, looking fragile and hurt. She looked sorry for herself, which was understandable. 
 
  "Don't worry, I won't tell Paul," Susan smiled. 
 
@@ -2158,7 +2208,11 @@
 
  
 
- ****** Naughty Girl Ch. 06 ****** byStoryTeller07© Getting undressed with them was daunting. She had lost the protection and respect afforded to an adult. She was just another adolescent to them, open to teasing and bullying. The dreadful time she experienced in high school was fully upon her again. 
+ 
+
+===
+
+Getting undressed with them was daunting. She had lost the protection and respect afforded to an adult. She was just another adolescent to them, open to teasing and bullying. The dreadful time she experienced in high school was fully upon her again. 
 
  "Come on, girl. Get those things off, quickly," the teacher shouted at her. "The rest of you get moving," she added. 
 
@@ -2312,7 +2366,11 @@
 
  
 
- ****** Naughty Girl Ch. 07 ****** byStoryTeller07© Chapter 07 
+ 
+
+===
+
+Chapter 07 
 
  Bernice is manipulated by Carol 
 
@@ -2568,7 +2626,11 @@
 
  
 
- ****** Naughty Girl Ch. 07 ****** byStoryTeller07© It was so very naughty sitting at her desk in the short skirt, without panties. Wriggling and pulling at the hem was an automatic movement, which she tried to hide in case she was noticed. The teacher hardly noticed anyone, unless they were too boisterous. He relentlessly carried on with a droning lecture, whether anyone took any notice or not. 
+ 
+
+===
+
+It was so very naughty sitting at her desk in the short skirt, without panties. Wriggling and pulling at the hem was an automatic movement, which she tried to hide in case she was noticed. The teacher hardly noticed anyone, unless they were too boisterous. He relentlessly carried on with a droning lecture, whether anyone took any notice or not. 
 
  At last the lesson finished and it was time for home. Jim had swapped his locker with someone so as to be near hers, so they would meet up between classes. Jim took her hand once they were outside, directing her back toward the storeroom. 
 
@@ -2732,7 +2794,11 @@
 
  
 
- ****** Naughty Girl Ch. 08 ****** byStoryTeller07© Paul returns home 
+ 
+
+===
+
+Paul returns home 
 
  Susan dropped Bernice and Jim at school. She watched them walk hand-in-hand through the school security gate, and couldn't help laughing. If she hadn't known Bernice was a twenty-four year old, married woman, it was possible to believe she was around nineteen years old. That Bernice was smitten with an eighteen year old boy, showed how acutely the woman had taken on the role. 
 
@@ -3012,7 +3078,11 @@
 
  
 
- ****** Naughty Girl Ch. 08 ****** byStoryTeller07© 'She has a boyfriend, and that seems to keep her out of trouble,' Susan said. 
+ 
+
+===
+
+'She has a boyfriend, and that seems to keep her out of trouble,' Susan said. 
 
  'What do you mean?' he asked. 
 
@@ -3094,7 +3164,11 @@
 
  
 
- ****** Naughty Girl Ch. 09 ****** byStoryTeller07© Bernice couldn't face up to a series of traumatic events that occurred over the last few weeks. She'd been caught having sex with a group of boys, lost her job, her husband had sold the house, and he ran off with his lover. 
+ 
+
+===
+
+Bernice couldn't face up to a series of traumatic events that occurred over the last few weeks. She'd been caught having sex with a group of boys, lost her job, her husband had sold the house, and he ran off with his lover. 
 
  When mistaken for an adolescent, she continued the pretence to escape the consequences of her misbehaviour, and the trauma of events. She hadn't anticipated being trapped in the role, or being sent back to school. Although she was twenty-four, it was easy to act like an adolescent with fellow students to mimic. She sank into a familiar role in the classroom, acting like a schoolgirl, which had been natural enough a few years ago. 
 
@@ -3380,7 +3454,11 @@
 
  
 
- ****** Naughty Girl Ch. 09 ****** byStoryTeller07© 'Aww, mom,' she grimaced, then laughed. 
+ 
+
+===
+
+'Aww, mom,' she grimaced, then laughed. 
 
  'Don't be a naughty girl though, or I'll spank you when you get home,' Susan warned, with a mock sternness. 
 
@@ -3690,7 +3768,11 @@
 
  
 
- ****** Naughty Girl Ch. 09 ****** byStoryTeller07© She couldn't help it. Painful memories kept surfacing. The way her husband left her, and sold the house. How he had led her along, letting her think she was saving their marriage, while he played around with another woman. It was agonizing, yet it unwillingly surfaced. 
+ 
+
+===
+
+She couldn't help it. Painful memories kept surfacing. The way her husband left her, and sold the house. How he had led her along, letting her think she was saving their marriage, while he played around with another woman. It was agonizing, yet it unwillingly surfaced. 
 
  She was a married woman, an adult, pretending to be an adolescent. She was going to high school, and had an eighteen year old, schoolboy lover. A nineteen year old girl was making all the decisions for her. Now it seemed they were going to take complete control of her, through adoption. The school thought she was seventeen, so that meant she would be under Susan's control for the next four years, until she was supposedly twenty-one. 
 

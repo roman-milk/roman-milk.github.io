@@ -1,8 +1,14 @@
+A Teacher's Past Ch. 01
+=======================
 #1 
 
  
 
- ****** A Teacher's Past Ch. 01 ****** bydawn1958© Please email me with your comments and suggestions. This is a repost of a story I wrote for a reader who sent me some fantasies. I hope this erotic tale does justice to their fantasy and that other readers enjoy the story. 
+ 
+
+===
+
+Please email me with your comments and suggestions. This is a repost of a story I wrote for a reader who sent me some fantasies. I hope this erotic tale does justice to their fantasy and that other readers enjoy the story. 
 
  Chapter 01 - Kerri Is Blackmailed 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** A Teacher's Past Ch. 01 ****** bydawn1958© The drive to work was uneventful and she arrived at the college in good spirits. She went immediately to her homeroom and found a small package lying on the floor when she opened the door. Kerri noticed her name plainly printed on the front. She slowly picked it up but was reluctant to actually open the package. Moving to her desk, she sat and gingerly unwrapped the fancy looking box. It turned out to be a small case from a noted jeweler in the city and inside were two dainty, gold rings. 
+ 
+
+===
+
+The drive to work was uneventful and she arrived at the college in good spirits. She went immediately to her homeroom and found a small package lying on the floor when she opened the door. Kerri noticed her name plainly printed on the front. She slowly picked it up but was reluctant to actually open the package. Moving to her desk, she sat and gingerly unwrapped the fancy looking box. It turned out to be a small case from a noted jeweler in the city and inside were two dainty, gold rings. 
 
  Kerri noticed a tiny note taped to the box. 'Today is the first day of the rest of your life so don't disappoint me,' she read. 'I really don't want to show people your pictures and movies, so I hope you wore that beautiful red blouse today.' 
 
@@ -220,7 +230,11 @@
 
  
 
- ****** A Teacher's Past Ch. 01 ****** bydawn1958© Lu stared at the wetness. His damning fingers pulled the clit so hard that Kerri let out a big gasp of air when he pinched the bud between his fingertips. Then he twirled the clitty around and around so fast that it filled the room with a lewd swishing sound. All of the willpower in the world could not stop the volcanic eruption and the juices flowed like molten lava. Lu hadn't witnessed anything so erotic in all his years of doing tattoos and piercings as the honey soaked his fingers. 
+ 
+
+===
+
+Lu stared at the wetness. His damning fingers pulled the clit so hard that Kerri let out a big gasp of air when he pinched the bud between his fingertips. Then he twirled the clitty around and around so fast that it filled the room with a lewd swishing sound. All of the willpower in the world could not stop the volcanic eruption and the juices flowed like molten lava. Lu hadn't witnessed anything so erotic in all his years of doing tattoos and piercings as the honey soaked his fingers. 
 
  His heart beat fast and he had to steady himself so he could move onto the next stage. Lu sterilized the gold ring and it glistened when he held it up for Kerri to see. "This very pretty on clit," he explained and set the ring on a metal tray. 
 
@@ -328,7 +342,11 @@
 
  
 
- ****** A Teacher's Past Ch. 01 ****** bydawn1958© Kerri's first reaction was one of rage, but she managed to only think about having an outburst. 'No, you fucking jerk. I only did that last night because someone was blackmailing me,' she thought and bit her tongue. 
+ 
+
+===
+
+Kerri's first reaction was one of rage, but she managed to only think about having an outburst. 'No, you fucking jerk. I only did that last night because someone was blackmailing me,' she thought and bit her tongue. 
 
  She looked him in the eye to speak and felt a quiver run through her midsection. Then for some ungodly reason, Kerri looked him up and down and felt the flames of desire run through her body. She sensed a need for more of Jim's caresses and to have him kiss her rings once again. Kerri realized that her student teacher was a sincere individual and that Jim was trying to be nice to her. "Why I would love to," she responded and motioned to her car. "Sure, why not, as I don't have anything planned. You can come with me." 
 
@@ -392,7 +410,11 @@
 
  
 
- ****** A Teacher's Past Ch. 02 ****** bydawn1958© Please send your comments and suggestions, as the feedback is always appreciated. This story is written at the request of a reader and I hope I do his fantasy justice. 
+ 
+
+===
+
+Please send your comments and suggestions, as the feedback is always appreciated. This story is written at the request of a reader and I hope I do his fantasy justice. 
 
  Chapter 02 - Mistaken Identity 
 
@@ -506,7 +528,11 @@
 
  
 
- ****** A Teacher's Past Ch. 02 ****** bydawn1958© Kerri let out a big sigh when the final bell sounded and it was time to go home. As she exited the school, Ward met her at the door and she could tell the student was trouble. His hungry eyes devoured the open space in her suit jacket and Kerri could tell he was trying to ogle her again just like he did in the classroom. She quickly pulled the jacket closed and then tried to squeeze past his tall muscular body. 
+ 
+
+===
+
+Kerri let out a big sigh when the final bell sounded and it was time to go home. As she exited the school, Ward met her at the door and she could tell the student was trouble. His hungry eyes devoured the open space in her suit jacket and Kerri could tell he was trying to ogle her again just like he did in the classroom. She quickly pulled the jacket closed and then tried to squeeze past his tall muscular body. 
 
  Ward said some very explicit things about her looks and what he wanted to do to her and they made her blush, as she tried to hurry away. Kerri probably looked fairly pathetic when she rushed across the parking lot and frantically fumbled for her car keys. It took several attempts to get the door open and then jump in the car for safety. 
 
@@ -624,7 +650,11 @@
 
  
 
- ****** A Teacher's Past Ch. 02 ****** bydawn1958© "Geez, woman those are the nicest tits I've seen and I bet they taste just as good," he told Kerri without stopping his assault. He began undoing the skirt and soon it was hanging loosely around her waist, waiting for a tiny assist before the garment fell. The striptease happened in slow-motion, as Kerri watched the woolen fabric drape around her flared hips and then slowly slide down the silky path to the floor. 
+ 
+
+===
+
+"Geez, woman those are the nicest tits I've seen and I bet they taste just as good," he told Kerri without stopping his assault. He began undoing the skirt and soon it was hanging loosely around her waist, waiting for a tiny assist before the garment fell. The striptease happened in slow-motion, as Kerri watched the woolen fabric drape around her flared hips and then slowly slide down the silky path to the floor. 
 
  Kerri couldn't believe she had worn a garter belt and stockings today of all days because they made her appear sexier. She reasoned it was a practical way to dress, as she could wear nylons and still not have the tight constraints of pantyhose. Ward took a pace back to admire the most adorable sight and he marveled at how erotic the garters made his teach look. His pause was brief. "You are the sexiest professor in the college... in any college. How would you like for this student to fuck your little pussy," he asked? 
 
@@ -746,7 +776,11 @@
 
  
 
- ****** A Teacher's Past Ch. 02 ****** bydawn1958© Further shame washed over the guilt-ridden teacher. "No, no... no." 
+ 
+
+===
+
+Further shame washed over the guilt-ridden teacher. "No, no... no." 
 
  "It may take a week to get another hardon," Ward said and laughed out loud. Without any regard for Kerri's feelings, he moved away and allowed her to slump onto the carpet. 
 
@@ -856,7 +890,11 @@
 
  
 
- ****** A Teacher's Past Ch. 02 ****** bydawn1958© Kerri's arms came up to protect herself and she paused when she felt Wendy's fingers dig into her shoulders. Robin tenderly brushed the hands to the sides and gingerly reached for the jacket buttons. Her hands were shaking like a leaf, but Robin managed to undo the buttons one at a time. Every time Kerri moved to protest, either Robin pushed her hands away or Wendy put more pressure on her shoulder. 
+ 
+
+===
+
+Kerri's arms came up to protect herself and she paused when she felt Wendy's fingers dig into her shoulders. Robin tenderly brushed the hands to the sides and gingerly reached for the jacket buttons. Her hands were shaking like a leaf, but Robin managed to undo the buttons one at a time. Every time Kerri moved to protest, either Robin pushed her hands away or Wendy put more pressure on her shoulder. 
 
  Wendy had stressed the need to be aggressive and domineering and Robin did her best to obey the orders. She found the teacher's apparent struggle and protest to be exactly what Wendy described and assumed it was because Kerri possessed a great acting ability. When the jacket was completely undone, Robin quickly stripped the garment to reveal a designer silk blouse. It took her less than a minute to unbutton the blouse and virtually rip it off the bewildered teacher. 
 
@@ -962,7 +1000,11 @@
 
  
 
- ****** A Teacher's Past Ch. 02 ****** bydawn1958© The sucking and fucking resulted in loud crude sounds that echoed around the room. Robin ate her teacher with a profound skill, which was the envy of those watching. The combination of cunnilingus, finger-fucking and anal sex all at the same time turned Kerri into a wild woman filled with perverted passion. Every muscle in her abused body tensed in an attempt to stop the impending orgasm, but her student felt no pity and never slowed down or letup. 
+ 
+
+===
+
+The sucking and fucking resulted in loud crude sounds that echoed around the room. Robin ate her teacher with a profound skill, which was the envy of those watching. The combination of cunnilingus, finger-fucking and anal sex all at the same time turned Kerri into a wild woman filled with perverted passion. Every muscle in her abused body tensed in an attempt to stop the impending orgasm, but her student felt no pity and never slowed down or letup. 
 
  Robin rolled the clit around and around and she tried to slap the bud with her tongue. She kept jamming her fingers into the tight holes and ramming her hard knuckles into the soaked crotch until Kerri's body jerked out of control. When Kerri heard the loud cheers, she realized the end was near. An extreme spasm rocked her body and then the rest of the royal membership sensed the Grande Finale. 
 
@@ -980,7 +1022,11 @@
 
  
 
- ****** A Teacher's Past Ch. 03 ****** bydawn1958© Please email me with your suggestions or comments. This chapter was written for a special reader who gave me ideas of what she would like to see happen to Kerri. 
+ 
+
+===
+
+Please email me with your suggestions or comments. This chapter was written for a special reader who gave me ideas of what she would like to see happen to Kerri. 
 
  A TEACHER'S PAST - PUNISHMENT CAN BE SEVERE 
 
@@ -1096,7 +1142,11 @@
 
  
 
- ****** A Teacher's Past Ch. 03 ****** bydawn1958© "You did what with butch Wendy? She's the biggest dyke in the school!" Sally proclaimed and it only took a threatening move to make Kerri talk. "Wendy took me into the staff washroom and she, she, she," Kerri whispered but didn't know how to admit the sins. 
+ 
+
+===
+
+"You did what with butch Wendy? She's the biggest dyke in the school!" Sally proclaimed and it only took a threatening move to make Kerri talk. "Wendy took me into the staff washroom and she, she, she," Kerri whispered but didn't know how to admit the sins. 
 
  A quick glance at Sally's stern face was all Kerri needed and she spoke in a soft, meek voice as she couldn't take another spanking. "She took my panties off and fingered me right there in the washroom," she said and looked for approval. Seeing that Sally was not satisfied and wanted more sordid details, Kerri added. "She finger fucked me and pulled my clitty until I orgasmed. Oh it made me feel so guilty as I should never have let her do that to me," the distraught woman whispered and they all heard. 
 
@@ -1194,7 +1244,11 @@
 
  
 
- ****** A Teacher's Past Ch. 03 ****** bydawn1958© Cory was so possessed with lust that his mind was not working smoothly and he was determined to fuck Kerri right where she was. The fear written all over her face was fuel for his desire and Gary was voicing his encouragement. "Fuck the slut," he whispered to his friend and even moved in closer to assist Cory. 
+ 
+
+===
+
+Cory was so possessed with lust that his mind was not working smoothly and he was determined to fuck Kerri right where she was. The fear written all over her face was fuel for his desire and Gary was voicing his encouragement. "Fuck the slut," he whispered to his friend and even moved in closer to assist Cory. 
 
  Sally realized that Cory was about to fuck the woman while she herself was right there. It was degrading and inconsiderate but still she lay absolutely motionless, letting Cory do as he pleased. Recovering somewhat from the unexpected orgasm, Sally whispered to her beau, "I want to see you put your big cock in her and make her sorry for what she did to you this afternoon." 
 
@@ -1290,7 +1344,11 @@
 
  
 
- ****** A Teacher's Past Ch. 03 ****** bydawn1958© Before Kerri had a chance to escape, Gary moved behind the vulnerable woman as she took her student over the crest of ecstasy. Kerri sensed movement to her rear and felt strong fingers suddenly grip her soft, rounded hips. Sally bent over to ensure there was no misconception about what was going to happen next. 
+ 
+
+===
+
+Before Kerri had a chance to escape, Gary moved behind the vulnerable woman as she took her student over the crest of ecstasy. Kerri sensed movement to her rear and felt strong fingers suddenly grip her soft, rounded hips. Sally bent over to ensure there was no misconception about what was going to happen next. 
 
  "You are going to get fucked by one of your students and you better ask him politely to fill your cunt with spunk," Sally whispered. Kerry let out a few gasps of frustration as she felt the groping between her thighs. It was fruitless but never the less she attempted one last plea for pity. "Oh Master, please not like this. Don't let him do it right here in front of everyone," she begged but knew her plight was hopeless. 
 
@@ -1382,7 +1440,11 @@
 
  
 
- ****** A Teacher's Past Ch. 04 ****** bydawn1958© Please email me with your suggestions or comments. This episode turned out to be long so I will post two chapters so look for chapters 4 and 5. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
+ 
+
+===
+
+Please email me with your suggestions or comments. This episode turned out to be long so I will post two chapters so look for chapters 4 and 5. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
 
  A TEACHER'S PAST - A Parent's Revenge 
 
@@ -1490,7 +1552,11 @@
 
  
 
- ****** A Teacher's Past Ch. 04 ****** bydawn1958© Mrs. Perkins beamed with satisfaction from attaining all the incriminating details and knew she had complete control over the beaten professor. There was no way Kerri could afford to have the particulars made public and Laura pressed in for the kill. 
+ 
+
+===
+
+Mrs. Perkins beamed with satisfaction from attaining all the incriminating details and knew she had complete control over the beaten professor. There was no way Kerri could afford to have the particulars made public and Laura pressed in for the kill. 
 
  "I want your little ass naked and you down on your hands and knees in one minute," she said with a deadly serious tone. Laura had fantasized for years of dominating another woman and actually had a close girlfriend who taught her what to do. Her stomach was doing cartwheels in anticipation as she watched the teacher's willpower slowly dwindle until there was nothing left but strict obedience. 
 
@@ -1594,7 +1660,11 @@
 
  
 
- ****** A Teacher's Past Ch. 04 ****** bydawn1958© Ward could see that nothing was going to happen unless he took charge so he purged ahead. "I know what happened between you two and I am positive that you wouldn't want people knowing that the college professor is fucking around with a beautiful, sexy mom of one of her students. His reference turned Laura's face a bright red as although she tried to look her best, it made her feel embarrassed when someone actually gave her a compliment. 
+ 
+
+===
+
+Ward could see that nothing was going to happen unless he took charge so he purged ahead. "I know what happened between you two and I am positive that you wouldn't want people knowing that the college professor is fucking around with a beautiful, sexy mom of one of her students. His reference turned Laura's face a bright red as although she tried to look her best, it made her feel embarrassed when someone actually gave her a compliment. 
 
  Ward planned to attack the naïve side of both women. He stared in wonderment at the tall, lanky mother and marveled at how luscious her body was even though she had to be in her late thirty's. He noticed the two glorious mounds barely held in place by only the shear material of her blouse and swore he could see dark colored nipples. The mother seemed to be almost quaking in her seat and Ward felt aroused seeing her dressed in tight leather pants, which made her legs look overly long. Laura appeared to have a lost look in her eyes and Ward could see that she was looking his body up and down intently. 
 
@@ -1686,7 +1756,11 @@
 
  
 
- ****** A Teacher's Past Ch. 04 ****** bydawn1958© Suddenly two hands felt the magnetic pull from the ends of Kerri's boobs and fingers reached to surround the hard buds. The teacher noticed what was happening and her heart rate quickened. Rough, calloused fingers pulled one nipple out from her chest and long, dainty fingers caressed the other. Kerri had worked herself into a frenzy watching the two, passionate lovers perform erotic rituals just seconds ago and her emotions were still sky high. 
+ 
+
+===
+
+Suddenly two hands felt the magnetic pull from the ends of Kerri's boobs and fingers reached to surround the hard buds. The teacher noticed what was happening and her heart rate quickened. Rough, calloused fingers pulled one nipple out from her chest and long, dainty fingers caressed the other. Kerri had worked herself into a frenzy watching the two, passionate lovers perform erotic rituals just seconds ago and her emotions were still sky high. 
 
  Kerri was amazed when the first to react was the woman and Laura rolled out from under the young man. She slinked over to Kerri and began an animated kiss immediately on contact. Kerri shivered but still allowed Laura complete freedom to molest her in whatever method the woman desired. The teacher was long past the point where it mattered who touched or caressed her body. She needed fulfillment and in desperation, moved so that she was stuck between the sweaty bodies of Laura and Ward. 
 
@@ -1788,7 +1862,11 @@
 
  
 
- ****** A Teacher's Past Ch. 04 ****** bydawn1958© Her fingers had been shaky when Kerri removed her clothing in preparation for the dreaded event. It had not taken long to put on Sky's skimpy clothes and once dressed, she had looked at her reflection in the bedroom mirror. Instant horror had crossed her pretty face as she pondered the thought of dressing in the expected manner and being seen in public. 
+ 
+
+===
+
+Her fingers had been shaky when Kerri removed her clothing in preparation for the dreaded event. It had not taken long to put on Sky's skimpy clothes and once dressed, she had looked at her reflection in the bedroom mirror. Instant horror had crossed her pretty face as she pondered the thought of dressing in the expected manner and being seen in public. 
 
  The tight leotards stretching into the delicate crevice between her legs had given her an immense feeling of embarrassment. Try as she may, there was no way of keeping the material from cutting into her flesh after a few seconds. She had arranged the crotch so it didn't reveal her puffy labia but the obscene sight would only remain obscure for two or three steps. The stretchy material would inevitably press into her wetness and her cherished womanhood would be openly displayed for all to witness. 
 
@@ -1820,7 +1898,11 @@
 
  
 
- ****** A Teacher's Past Ch. 05 ****** bydawn1958© Please email me with your suggestions or comments. This episode turned out to be long so I am posting two chapters. Look for chapters 4 and 5. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
+ 
+
+===
+
+Please email me with your suggestions or comments. This episode turned out to be long so I am posting two chapters. Look for chapters 4 and 5. I am writing this story for a special reader who has given me ideas of what should happen to Kerri and I hope they like what I have written. 
 
  A TEACHER'S PAST - A DIVERSION FOR KERRI 
 
@@ -1916,7 +1998,11 @@
 
  
 
- ****** A Teacher's Past Ch. 05 ****** bydawn1958© A lick, another stroke and she felt her tummy quivering on life support. Her throbbing clit must have been in the back of his hungry throat when the sound of a loud, passionate moan filled the classroom. Fake it, fake it kept running through her distraught brain when an orgasm erupted so powerful it shook the desk. Every muscle in her lithe midsection tightened in a futile attempt to stave off defeat but the cream filled the man's mouth much to his delight. Kerri could hear slurping noises and knew he was drinking with a newfound thirst and she gave up the fight. 
+ 
+
+===
+
+A lick, another stroke and she felt her tummy quivering on life support. Her throbbing clit must have been in the back of his hungry throat when the sound of a loud, passionate moan filled the classroom. Fake it, fake it kept running through her distraught brain when an orgasm erupted so powerful it shook the desk. Every muscle in her lithe midsection tightened in a futile attempt to stave off defeat but the cream filled the man's mouth much to his delight. Kerri could hear slurping noises and knew he was drinking with a newfound thirst and she gave up the fight. 
 
  She made noises much like a wild animal and was unable to prevent her hips from thrusting upward towards the man. With the most evil of intentions, he rammed a finger into a vacant hole and it made Kerri moan in disgust. She remembered thinking, "Fatso is fucking me like a real man and making me come like a slut, a lost woman without any control." 
 
@@ -2012,7 +2098,11 @@
 
  
 
- ****** A Teacher's Past Ch. 05 ****** bydawn1958© "Fuck man, she don't wear panties or a bra and she let me feel her wet pussy right on the floor," Dean informed his buddy. "I swear to God, no panties and I'm sure she shaves as I didn't feel any fucking curly Q's. Man I had my finger right on her slit. Let's get 'er in the car and fuck her man," he said almost pleading with his buddy to cooperate. 
+ 
+
+===
+
+"Fuck man, she don't wear panties or a bra and she let me feel her wet pussy right on the floor," Dean informed his buddy. "I swear to God, no panties and I'm sure she shaves as I didn't feel any fucking curly Q's. Man I had my finger right on her slit. Let's get 'er in the car and fuck her man," he said almost pleading with his buddy to cooperate. 
 
  Harv was hesitant. He had listened to his pal brag about women and tell tales of erotic adventures before without any real evidence of truth. But he remembered the scenes of the dancing couple and how it seemed the woman kept her sexy body against Dean's letting him feel her up. 
 
@@ -2116,7 +2206,11 @@
 
  
 
- ****** A Teacher's Past Ch. 05 ****** bydawn1958© He opened his eyes to see the adorable pussy for the first time and marveled at the shaved beauty. The two long, distended lips ran from the raised pelvis to the narrow barrier separating the two enchanting entrances. He rolled the swollen clit in abundant juices and held the protective hood wide with his fingers to fully expose the tender bud. Encouraged by Kerri's reactions, Dean swooped down and flicked his tongue out to barely graze the pink flesh. He gave the fragile bud three or four quick strokes and felt the powerful hips respond. 
+ 
+
+===
+
+He opened his eyes to see the adorable pussy for the first time and marveled at the shaved beauty. The two long, distended lips ran from the raised pelvis to the narrow barrier separating the two enchanting entrances. He rolled the swollen clit in abundant juices and held the protective hood wide with his fingers to fully expose the tender bud. Encouraged by Kerri's reactions, Dean swooped down and flicked his tongue out to barely graze the pink flesh. He gave the fragile bud three or four quick strokes and felt the powerful hips respond. 
 
  Maybe it was the scene, maybe it was the location, or maybe it was just the feeling of not having any choice in what happened, but Kerri sensed unusual sensations deep in her epicenter. Suddenly, Dean's sharp teeth closed on her universe and she screamed out loud. Was it pain? If it was pain, it was very short lived. Kerri was confused and not sure what was happening. Things were traversing so rapidly and the villain nibbled on her tender clitoris without the slightest hesitation. 
 

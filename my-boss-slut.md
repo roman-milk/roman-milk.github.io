@@ -1,8 +1,14 @@
+My Boss' Slut Ch. 01
+====================
 #1 
 
  
 
- ****** My Boss' Slut Ch. 01 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sights. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sights. 
 
  Copyright 1998 by E. Z. Riter. 
 
@@ -270,7 +276,11 @@
 
  
 
- ****** My Boss' Slut Ch. 01 ****** byE.Z.Riter© "Did you orgasm?" I asked. She kissed me gently. 
+ 
+
+===
+
+"Did you orgasm?" I asked. She kissed me gently. 
 
  "Bobby, I probably don't orgasm from you fucking me one time in ten. That is the reason I like you to eat me. And, it is one of the reasons I want Mr. Williams' monster cock. I orgasmed over and over on his cock, Bobby. Now, please eat me, baby. I want to cum, too." 
 
@@ -398,7 +408,11 @@
 
  
 
- ****** My Boss' Slut Ch. 02 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
 
  Copyright 1998, 1999 by E. Z. Riter. 
 
@@ -538,7 +552,11 @@
 
  
 
- ****** My Boss' Slut Ch. 03 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
 
  Copyright 1998, 1999 by E. Z. Riter. 
 
@@ -782,7 +800,11 @@
 
  
 
- ****** My Boss' Slut Ch. 04 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. Copyright 1998 by E. Z. Riter. Please! Give me your comments 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. Copyright 1998 by E. Z. Riter. Please! Give me your comments 
 
  ***** 
 
@@ -1026,7 +1048,11 @@
 
  
 
- ****** My Boss' Slut Ch. 04 ****** byE.Z.Riter© He handed me another piece of paper. It was a detailed plan. I was stunned when I read it. I could not believe this was going to happen to my wife, to my Becky. It would be worse than the whipping. I guess he could read my face. 
+ 
+
+===
+
+He handed me another piece of paper. It was a detailed plan. I was stunned when I read it. I could not believe this was going to happen to my wife, to my Becky. It would be worse than the whipping. I guess he could read my face. 
 
  "Don't worry. She'll love it. I'll explain just to make sure you understand. Each morning before you go to work, attach her wrist restraints to the corner of your bed, to spread her arms and keep her from escaping. Her legs won't be bound. Use the heavy chain in this box to bind her wrists to the headboard. Then, with these small gold chains and clamps, attach her nipples to her wrist restraints. That way, every movement she makes will pull on her nipples. Lubricate the butt plug and stick it up her ass. Insert the vibrator and turn it to high. Finally, put the leathers around her to hold the vibrator and butt plug in place." 
 
@@ -1074,7 +1100,11 @@
 
  
 
- ****** My Boss' Slut Ch. 05 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. Copyright 1998 by E. Z. Riter. Please! Give me your comments. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. Copyright 1998 by E. Z. Riter. Please! Give me your comments. 
 
  I couldn't believe it! My slut wife was in the hospital on that Monday. She had surgery to change her body like Mr. Williams, my boss, wanted it. After all, she was my wife, but she was primarily his slut. But what I really could not believe was he gave me his other slut, Trudy, his secretary, to use while he was out of town for the week. Not only could I use her, but I was helping him train her, too. I was very honored Mr. Williams was trusting me with such an important job. I had never trained a slut before. In fact, I had never fucked a woman except Becky. Now, I was going to get Trudy, to fuck and to train. I was very excited when I got to Trudy's apartment after work. I had the riding crop Mr. Williams gave me hidden under my coat. I knocked hard on the door. Trudy, wearing a bathrobe, had a wild, sexy smile when she opened the door. 
 
@@ -1094,7 +1124,11 @@
 
  
 
- ****** My Boss' Slut Ch. 05 ****** byE.Z.Riter© So, I said it. 'You don't need to tie me up. I'll hold still for my whipping.' Well, Bobby, they stopped playing cards and laid me face down across the table. I reached across the grab the table edge in my hands. I knew I was going to have to hang on no matter what they did to me. Mr. Williams told me to spread my legs and hold still. 'Becky,' he said. 'You can scream and cry, but you better not move your hands or feet.' I started to answer, but I got the first lick from a willow branch right across my ass. God, it hurt. It hurt more than the piercings. I screamed at the top of my lungs. But I didn't let go of that table. You remember seeing the marks when I came home. They gave me ten. Mr. Jones, who insisted I be whipped, was the mildest in his strokes. I was sobbing and my ass was burning. The heat was going all through me. I needed to be fucked so badly, Bobby. God, I needed it. That whipping made me feel so slutty and so horny I thought I would die if I did not get fucked. They were all standing around looking at me and every cock I could see was rock hard. 'Come on, you studs,' I said. 'I need to be fucked now!' That started it, Bobby. All six of them fucked me every way they could until none of them could get it up. Bobby, it was my first three at one time. It took a little maneuvering, but I did it. And I ate every drop of cum I could find, even the cum that oozed out of my ass hole. It tasted different than the other cum, I must say. They fucked me on the table and on the floor and one fucked me while the others held me in mid air. Fucking and fucking and fucking. I was just floating with orgasm after orgasm. God, I was in heaven! Bobby, I'm really horny. I can't fuck, but you are the best pussy eater in the world. Would you, please?" "I'd like to eat you, Becky. Why don't you turn so you face my feet and work on my cock with your mouth?" "How about a titty fuck? My tits are not as sore as the rest of me. I was wondering, Bobby. Why didn't Mr. Williams have my nipples pierced?" "He told me that. You're going to be nursing babies and Mr. Williams said he'll take the milk the baby doesn't need." "Oh, Bobby. Just think about it! A tiny, precious, baby, my baby. No, our baby, Bobby. It'll be ours even though another man gets me pregnant. A real man with real sperm. Yes. Our baby nursing on these big tits. I bet my tits get even bigger when my milk comes in. Wow. I'll really be huge. They are DD now, you know. I wonder how big they'll get?" "Real big. Now, wrap those big tits around my cock, slut!" "Oh, Bobby. I love it when you talk that way." Becky jammed her pussy down over my mouth. I felt her suck my cock to get him wet and then slip it between those tits of hers. It was strange feeling the rings of each side of her pussy against my cheeks. But her pussy was a sweet tasting and good smelling as ever. I sucked and licked. Becky started bouncing up and down. "Come on, pussy eater! Come on! I'm so close!" It was so good to hear her scream when she orgasmed. Her pussy was jammed down hard over my mouth with my tongue stuck up her as far as it would go. I love eating Becky's pussy. I felt her relax and rest. Then she started moving again, rubbing my cock between those big tits of hers. When she felt me tighten like I always do before I cum, she took my cock in her mouth and sucked. That brad was wild on the underside of my cock. I loved cumming in her mouth. We both drifted off to sleep with my sweet Becky's hot and pierced pussy in my face and my cock in her mouth. To be continued . . . . 
+ 
+
+===
+
+So, I said it. 'You don't need to tie me up. I'll hold still for my whipping.' Well, Bobby, they stopped playing cards and laid me face down across the table. I reached across the grab the table edge in my hands. I knew I was going to have to hang on no matter what they did to me. Mr. Williams told me to spread my legs and hold still. 'Becky,' he said. 'You can scream and cry, but you better not move your hands or feet.' I started to answer, but I got the first lick from a willow branch right across my ass. God, it hurt. It hurt more than the piercings. I screamed at the top of my lungs. But I didn't let go of that table. You remember seeing the marks when I came home. They gave me ten. Mr. Jones, who insisted I be whipped, was the mildest in his strokes. I was sobbing and my ass was burning. The heat was going all through me. I needed to be fucked so badly, Bobby. God, I needed it. That whipping made me feel so slutty and so horny I thought I would die if I did not get fucked. They were all standing around looking at me and every cock I could see was rock hard. 'Come on, you studs,' I said. 'I need to be fucked now!' That started it, Bobby. All six of them fucked me every way they could until none of them could get it up. Bobby, it was my first three at one time. It took a little maneuvering, but I did it. And I ate every drop of cum I could find, even the cum that oozed out of my ass hole. It tasted different than the other cum, I must say. They fucked me on the table and on the floor and one fucked me while the others held me in mid air. Fucking and fucking and fucking. I was just floating with orgasm after orgasm. God, I was in heaven! Bobby, I'm really horny. I can't fuck, but you are the best pussy eater in the world. Would you, please?" "I'd like to eat you, Becky. Why don't you turn so you face my feet and work on my cock with your mouth?" "How about a titty fuck? My tits are not as sore as the rest of me. I was wondering, Bobby. Why didn't Mr. Williams have my nipples pierced?" "He told me that. You're going to be nursing babies and Mr. Williams said he'll take the milk the baby doesn't need." "Oh, Bobby. Just think about it! A tiny, precious, baby, my baby. No, our baby, Bobby. It'll be ours even though another man gets me pregnant. A real man with real sperm. Yes. Our baby nursing on these big tits. I bet my tits get even bigger when my milk comes in. Wow. I'll really be huge. They are DD now, you know. I wonder how big they'll get?" "Real big. Now, wrap those big tits around my cock, slut!" "Oh, Bobby. I love it when you talk that way." Becky jammed her pussy down over my mouth. I felt her suck my cock to get him wet and then slip it between those tits of hers. It was strange feeling the rings of each side of her pussy against my cheeks. But her pussy was a sweet tasting and good smelling as ever. I sucked and licked. Becky started bouncing up and down. "Come on, pussy eater! Come on! I'm so close!" It was so good to hear her scream when she orgasmed. Her pussy was jammed down hard over my mouth with my tongue stuck up her as far as it would go. I love eating Becky's pussy. I felt her relax and rest. Then she started moving again, rubbing my cock between those big tits of hers. When she felt me tighten like I always do before I cum, she took my cock in her mouth and sucked. That brad was wild on the underside of my cock. I loved cumming in her mouth. We both drifted off to sleep with my sweet Becky's hot and pierced pussy in my face and my cock in her mouth. To be continued . . . . 
 
  Comments? 
 
@@ -1296,7 +1330,11 @@
 
  
 
- ****** My Boss' Slut Ch. 05 ****** byE.Z.Riter© Oh, Bobby, I love how hard you are. Want to come in my hand?" 
+ 
+
+===
+
+Oh, Bobby, I love how hard you are. Want to come in my hand?" 
 
  "Your mouth." 
 
@@ -1480,7 +1518,11 @@
 
  
 
- ****** My Boss' Slut Ch. 06 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
 
  Copyright 1998 by E. Z. Riter. 
 
@@ -1794,7 +1836,11 @@
 
  
 
- ****** My Boss' Slut Ch. 06 ****** byE.Z.Riter© "Yes, sir." 
+ 
+
+===
+
+"Yes, sir." 
 
  "One other thing. Fuck Trudy in your bed with Becky bound and lying right beside you. Tell Trudy to make a lot of noise when she cums. Last and certainly not least, after you cum in Trudy, have her squat over Becky and make Becky eat your cum from Trudy's pussy. Come to think of it, as much as Becky loves cum, tell Becky that's a reward because you really love her." 
 
@@ -1944,7 +1990,11 @@
 
  
 
- ****** My Boss' Slut Ch. 07 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sites. 
 
  Copyright 1998 by E. Z. Riter. 
 
@@ -2204,7 +2254,11 @@
 
  
 
- ****** My Boss' Slut Ch. 07 ****** byE.Z.Riter© "Think about it! We'll be financially secure in just a few years. We can invest all that money for our future, Bobby, yours and mine. And the children. The children's future, too." 
+ 
+
+===
+
+"Think about it! We'll be financially secure in just a few years. We can invest all that money for our future, Bobby, yours and mine. And the children. The children's future, too." 
 
  Becky leaned into me and pushed me on my back. She straddled me, resting her pussy on my chest. 
 
@@ -2362,7 +2416,11 @@
 
  
 
- ****** My Boss' Slut Ch. 8 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sites. 
 
  Copyright 1998 by E. Z. Riter. 
 
@@ -2584,7 +2642,11 @@
 
  
 
- ****** My Boss' Slut Ch. 8 ****** byE.Z.Riter© Becky put her arm around Trudy's shoulder to guide her back into the bedroom. Trudy was naked, having just gotten out of bed when Becky came home. I thought it was very sweet of Becky to be so kind and gentle to Trudy. Then I realized it was Becky's first time with another woman, too. 
+ 
+
+===
+
+Becky put her arm around Trudy's shoulder to guide her back into the bedroom. Trudy was naked, having just gotten out of bed when Becky came home. I thought it was very sweet of Becky to be so kind and gentle to Trudy. Then I realized it was Becky's first time with another woman, too. 
 
  But this was Becky's idea. Trudy watched as Becky undressed which took a second. Besides not wearing much, Becky was becoming very adept at dressing and undressing quickly. I sat in the straight chair I pulled beside the bed to watch. 
 
@@ -2636,7 +2698,11 @@
 
  
 
- ****** My Boss' Slut Ch. 9 ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, non-commercial archive sites. 
 
  Copyright 1998 by E. Z. Riter. 
 
@@ -2880,7 +2946,11 @@
 
  
 
- ****** My Boss' Slut Ch. 9 ****** byE.Z.Riter© As always when she nursed, Becky was naked except for the diaper used as a wiping cloth which was across her shoulder. Becky and Trudy looked up at Mrs. Williams. For a second, they both look frightened and gave Mr. Williams and me a questioning look. Since Mr. Williams appeared unconcerned, so was I. He had been right about a lot of things so far. I suspected he knew his wife. 
+ 
+
+===
+
+As always when she nursed, Becky was naked except for the diaper used as a wiping cloth which was across her shoulder. Becky and Trudy looked up at Mrs. Williams. For a second, they both look frightened and gave Mr. Williams and me a questioning look. Since Mr. Williams appeared unconcerned, so was I. He had been right about a lot of things so far. I suspected he knew his wife. 
 
  "May I sit down?" Mrs. Williams asked. Becky nodded. 
 

@@ -1,8 +1,14 @@
+A Story for Carin
+=================
 #1 
 
  
 
- ****** A Story for Carin ****** bydawn1958© This story is a request from Carin. For many years she was not happy with what she was or who she was, but today Carin wants the world to know she is very content with the young woman she has become. 
+ 
+
+===
+
+This story is a request from Carin. For many years she was not happy with what she was or who she was, but today Carin wants the world to know she is very content with the young woman she has become. 
 
  * 
 
@@ -152,7 +158,11 @@
 
  
 
- ****** A Story for Carin ****** bydawn1958© Sandra begged her for more so Cari complied. No experience was necessary, as Cari thrust her dainty forefinger of her other hand into the neglected hole. When the tip of her finger brushed across the puckered entrance, Sandra screamed loud enough to wake the baby. It was incredible how the woman's orgasm flourished with the dual finger-fucking. Luckily Cari's forefinger was lubricated from the vast amount of juices and it easily went into Sandra's asshole. 
+ 
+
+===
+
+Sandra begged her for more so Cari complied. No experience was necessary, as Cari thrust her dainty forefinger of her other hand into the neglected hole. When the tip of her finger brushed across the puckered entrance, Sandra screamed loud enough to wake the baby. It was incredible how the woman's orgasm flourished with the dual finger-fucking. Luckily Cari's forefinger was lubricated from the vast amount of juices and it easily went into Sandra's asshole. 
 
  The encounter ended with both women covered in sweat. They virtually collapsed on the sofa, totally exhausted. Cari put her arms around Sandra's shapely hips in a loving embrace and she relished being submissive to such a strong mistress. "I don't want to chase you away, but my husband might be home soon. These storms can be unpredictable," Sandra whispered. "You should go before he gets home, or you'll experience another first." 
 
@@ -314,7 +324,11 @@
 
  
 
- ****** A Story for Carin ****** bydawn1958© Three inflamed women in a change-room designed for one created an overheated situation. Sweat coated the nakedness and each panted heavily from being overly aroused. 
+ 
+
+===
+
+Three inflamed women in a change-room designed for one created an overheated situation. Sweat coated the nakedness and each panted heavily from being overly aroused. 
 
  ***In store activities 
 
@@ -480,7 +494,11 @@
 
  
 
- ****** A Story for Carin Ch. 02 ****** bydawn1958© This story is a request from Carin. For many years she was not happy with what she was or who she was, but today Carin wants the world to know she is very content with the young woman she has become. 
+ 
+
+===
+
+This story is a request from Carin. For many years she was not happy with what she was or who she was, but today Carin wants the world to know she is very content with the young woman she has become. 
 
  * 
 
@@ -652,7 +670,11 @@
 
  
 
- ****** A Story for Carin Ch. 02 ****** bydawn1958© It seemed the natural progression to start kissing her way downward, bringing as much joy to her lover as possible. Dawn discovered that a woman's body tasted and felt much better than a man's. The lack of any hair was profound. Her tongue circled the small bellybutton a few times before darting in and out of the indent with a quick fucking motion. Then she moved downward and was amazed at how carried away Cari acted when her bald pelvis was licked. 
+ 
+
+===
+
+It seemed the natural progression to start kissing her way downward, bringing as much joy to her lover as possible. Dawn discovered that a woman's body tasted and felt much better than a man's. The lack of any hair was profound. Her tongue circled the small bellybutton a few times before darting in and out of the indent with a quick fucking motion. Then she moved downward and was amazed at how carried away Cari acted when her bald pelvis was licked. 
 
  Dawn always imagined the sight and smell of a woman's private treasures would be offensive, but that was not the case. Her face neared Cari's crotch and Dawn saw the womanly beauty between the soft, velvety thighs. Strangely the light colored freckles all over the young woman's tummy, shapely hips and legs seemed to add to Cari's picturesque beauty. Dawn breathed in deeply and the aroma seemed to be an aphrodisiac, as her head started spinning madly from the combination of lust mixed with alcohol. Her tongue hit the rosy pussy-lips and it was magic when they parted allowing her to taste the real love-potion. 
 
@@ -796,7 +818,11 @@
 
  
 
- ****** A Story for Carin Ch. 02 ****** bydawn1958© Cari moved onto the next turn as if nothing happened. "I've decided that we should start the Dares," she said. "I'll be a good sport... a good birthday girl and select the first Dare." Everyone watched the sneaky Cari slowly open the folded piece of paper and the biggest smile appeared on her face. "It dares me to kiss someone on the lips for one whole minute." 
+ 
+
+===
+
+Cari moved onto the next turn as if nothing happened. "I've decided that we should start the Dares," she said. "I'll be a good sport... a good birthday girl and select the first Dare." Everyone watched the sneaky Cari slowly open the folded piece of paper and the biggest smile appeared on her face. "It dares me to kiss someone on the lips for one whole minute." 
 
  The two young men already knew about Cari's selection, as she had informed them about her shrewd addition to the list of Dares. They watched with great elation when Cari slowly moved towards Dawn who instantly went into a fit. Dawn's entire body shuddered and she desperately wanted to forbid the Dare, yet she didn't want to be a party pooper and spoil the fun. She merely shook her head back and forth to indicate her refusal, but it didn't stop Cari from advancing. 
 
@@ -958,7 +984,11 @@
 
  
 
- ****** A Story for Carin Ch. 02 ****** bydawn1958© Even though the memory was hazy and patchy, at the time Dawn thought it was her wifely duty to make it gratifying for her husband. She stared in disbelief, as it appeared she tried to enhance the young man's pleasure by hugging him and wrapping her legs around him. "Please, Cari, I can't watch anymore. Please, turn it off." 
+ 
+
+===
+
+Even though the memory was hazy and patchy, at the time Dawn thought it was her wifely duty to make it gratifying for her husband. She stared in disbelief, as it appeared she tried to enhance the young man's pleasure by hugging him and wrapping her legs around him. "Please, Cari, I can't watch anymore. Please, turn it off." 
 
  "No, not yet. This is the best part. You thought Brad was your husband!" 
 
@@ -1024,7 +1054,11 @@
 
  
 
- ****** A Story for Carin Ch. 03 ****** bydawn1958© This story is a request from Carin. For many years she was not happy with what she was or who she was, but today Carin wants the world to know she is very content with the young woman she has become. 
+ 
+
+===
+
+This story is a request from Carin. For many years she was not happy with what she was or who she was, but today Carin wants the world to know she is very content with the young woman she has become. 
 
  A Story For Carin - Chapter Three 
 
@@ -1208,7 +1242,11 @@
 
  
 
- ****** A Story for Carin Ch. 03 ****** bydawn1958© Dawn was glad it was wine, as she preferred wine to hard liquor. She sipped on the sweet nectar and wondered if she was making a big mistake. It wasn't long before Sandra coaxed the two women into the comfortable confines of the basement rec room. The room was very dimly lit and Dawn got a bad feeling when she noticed the pool table. There were a few pillows strewn on the top, which was definitely out of the ordinary, and the uneasiness grew in her stomach. 
+ 
+
+===
+
+Dawn was glad it was wine, as she preferred wine to hard liquor. She sipped on the sweet nectar and wondered if she was making a big mistake. It wasn't long before Sandra coaxed the two women into the comfortable confines of the basement rec room. The room was very dimly lit and Dawn got a bad feeling when she noticed the pool table. There were a few pillows strewn on the top, which was definitely out of the ordinary, and the uneasiness grew in her stomach. 
 
  Sandra innocently put on some dancing music before letting Cari and Dawn know her intentions. She faced the two women and refilled their drinks. "If it were guys having a party, they would probably watch some porno movies. Since it is just us three girls, I have arranged for something even better." 
 
@@ -1372,7 +1410,11 @@
 
  
 
- ****** A Story for Carin Ch. 03 ****** bydawn1958© "Feel that?" Sandra whispered to Jeffery. 
+ 
+
+===
+
+"Feel that?" Sandra whispered to Jeffery. 
 
  "Holy fuck, yes!" 
 
@@ -1514,7 +1556,11 @@
 
  
 
- ****** A Story for Carin Ch. 03 ****** bydawn1958© Sandra licked the side of Dawn's flushed face, as she continued the harsh punishment. "Maybe next time I'll get a younger teen. I wanted a teenager about 16... maybe even younger." She licked Dawn's face again letting her know she wasn't finished. "Let's get three or four teenagers and you can fuck them all." 
+ 
+
+===
+
+Sandra licked the side of Dawn's flushed face, as she continued the harsh punishment. "Maybe next time I'll get a younger teen. I wanted a teenager about 16... maybe even younger." She licked Dawn's face again letting her know she wasn't finished. "Let's get three or four teenagers and you can fuck them all." 
 
  Mysteriously something so sinful and immoral wasn't a turnoff. Dawn felt the teen's hands leave her hips and circle her tummy. Jeffery's hands caressed her stomach, as he pounded her mercilessly, driving his ramrod to the hilt with every vicious thrust. Again the tongue was on her cheek and teeth nibbled her ear. "You're still cumming and so is Jeffery. Oh my gawd, you love teenagers and I love watching you fuck them. Yes, next time I'll get Jeffery to bring along a couple of his younger friends." 
 

@@ -1,8 +1,14 @@
+At The Movies: The First Hour
+=============================
 #1 
 
  
 
- ****** At The Movies: The First Hour ****** bydawn1958© Diane and her husband, John had gone out to dinner at Luigies and decided to take in a movie as it was still early. The movies now playing didn't sound too good and they couldn't pick one that they both wanted to see. Seeing the movies listed that were playing at the X rated theater, they laughed at each other saying that the one playing at the Red Cat looked interesting. A couple of their friends had gone a few times and said the theater was actually quite good and most of the movies were worth seeing. They decided to take a chance and go one time just to see what all the fuss was about. 
+ 
+
+===
+
+Diane and her husband, John had gone out to dinner at Luigies and decided to take in a movie as it was still early. The movies now playing didn't sound too good and they couldn't pick one that they both wanted to see. Seeing the movies listed that were playing at the X rated theater, they laughed at each other saying that the one playing at the Red Cat looked interesting. A couple of their friends had gone a few times and said the theater was actually quite good and most of the movies were worth seeing. They decided to take a chance and go one time just to see what all the fuss was about. 
 
  Paying the cashier, they entered the dimly lit seating area, which had people pretty well spread out all over. Once their eyes were accustomed to the dark, they could see two or three other couples sitting in the center section about the halfway point. The rest of the crowd seemed to be men with only one pair of girls sitting together in one of the side wings. There seemed to be a small area near the back, which was not occupied and didn't have anyone within three or four rows. Carefully, they fumbled threw the dark to a pair of seats and slumped into the plush cushions. 
 
@@ -86,7 +92,11 @@
 
  
 
- ****** At The Movies: The First Hour ****** bydawn1958© Anyone watching could see a sensual woman being taken by two lovers and enjoying every second. Deep inside her womanhood, the explosions caused Diane's hips to thrust madly to the demanding mouth. Jed kissed her deeply so as to keep any sounds or moans from escaping her lips. No need to alert all the others in the theater. As it was, some of the other patrons were enjoying the erotic show unfolding a few feet away from their seats. 
+ 
+
+===
+
+Anyone watching could see a sensual woman being taken by two lovers and enjoying every second. Deep inside her womanhood, the explosions caused Diane's hips to thrust madly to the demanding mouth. Jed kissed her deeply so as to keep any sounds or moans from escaping her lips. No need to alert all the others in the theater. As it was, some of the other patrons were enjoying the erotic show unfolding a few feet away from their seats. 
 
  The orgasm filled Diane's body and these vultures devoured any dignity she may have retained. Never had she experienced multiple orgasms in such a short period of time. Milking every bit of sexual satisfaction from her aroused body, one sucked hard on her exploding cunt. The other kissed her lips while his big, rough hands caressed her silky breasts. Over the top they took their captured prey, and she no longer presented any resistance to their demands. Diane's juices flowed like a fountain and the hungry mouth drank the nectar, swallowing every ounce as if in a desert. 
 
@@ -106,7 +116,11 @@
 
  
 
- ****** At The Movies: The Second Hour ****** bydawn1958© The Climax done, Jed told Ron to stay with Diane and he would go see how things were going in the restroom. This made her wonder, what was going on and were they doing anything to her husband, John? That would make sense. Although Diane had given in to these two creatures with the belief that John had asked them to force her to have sex with them, she started to wonder if they had not tricked her. Looking to the rear, she noticed Jed disappear into the lobby. Turning back to face the front, she heard the sounds of Ron putting his pants back on. Blushing, the memory of the last few minutes passed through her mind. How willingly she sucked his cock and gave him the satisfaction he dearly wanted. Shame and guilt followed and Diane just had to get out of this place. 
+ 
+
+===
+
+The Climax done, Jed told Ron to stay with Diane and he would go see how things were going in the restroom. This made her wonder, what was going on and were they doing anything to her husband, John? That would make sense. Although Diane had given in to these two creatures with the belief that John had asked them to force her to have sex with them, she started to wonder if they had not tricked her. Looking to the rear, she noticed Jed disappear into the lobby. Turning back to face the front, she heard the sounds of Ron putting his pants back on. Blushing, the memory of the last few minutes passed through her mind. How willingly she sucked his cock and gave him the satisfaction he dearly wanted. Shame and guilt followed and Diane just had to get out of this place. 
 
  Now was her chance, Sally, one of the two lesbians sitting in the wing off to the right, saw what she believed was Diane's husband going into the lobby? The girls had noticed them enter the theater and couldn't take their eyes off her luscious body, which was probably the reason for mistaking Jed for her husband. When they saw the second man enter the theater and join the erotic couple, it gave Sally reason to peruse her fantasy. She asked her friend, "She is doing it with two guys, why not two girls?" What she wouldn't give to feel that body raced through Sally's mind and she whispered more thoughts to her girlfriend. Seizing the opportunity, she rushed to the lobby and caught Jed just as he was going to enter the restroom. 
 
@@ -188,7 +202,11 @@
 
  
 
- ****** At The Movies: After The Show ****** bydawn1958© This is the third chapter in this 'At The Movies' series and the other two were titled 'The First Hour' and 'The Second Hour'. This chapter was very hard to set up so I hope it flows smoothly and you can get excitement from reading it. Please email me with your comments and suggestions. 
+ 
+
+===
+
+This is the third chapter in this 'At The Movies' series and the other two were titled 'The First Hour' and 'The Second Hour'. This chapter was very hard to set up so I hope it flows smoothly and you can get excitement from reading it. Please email me with your comments and suggestions. 
 
  * * * * * 
 
@@ -294,7 +312,11 @@
 
  
 
- ****** At The Movies: After The Show ****** bydawn1958© Jed had taken a straight back chair and motioned for Diane to join him. Motioning with his hand, he wanted her to sit in his lap. Looking furlong at John, she didn't know what to do. With a shrug of his shoulders, John indicated that she should co-operate with them and maybe they would leave soon. 
+ 
+
+===
+
+Jed had taken a straight back chair and motioned for Diane to join him. Motioning with his hand, he wanted her to sit in his lap. Looking furlong at John, she didn't know what to do. With a shrug of his shoulders, John indicated that she should co-operate with them and maybe they would leave soon. 
 
  Reluctantly, Diane went over to Jed and he immediately grabbed her arms. He turned her around and guided her into his lap where she was suddenly struck by realizing she had made a big mistake. His large, hard cock was pushing into her ass and she found it unbearable. She tried to get up but Jed held her firmly. "Just sit and be a good girl and we will watch the lovebirds fuck each other," he whispered in her ear from behind. 
 

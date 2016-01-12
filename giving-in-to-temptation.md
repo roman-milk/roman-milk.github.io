@@ -1,8 +1,14 @@
+Giving in to Temptation
+=======================
 #1 
 
  
 
- ****** Giving in to Temptation ****** byStoryTeller07© Any comments gratefully received. A generous score would also be encouraging. 
+ 
+
+===
+
+Any comments gratefully received. A generous score would also be encouraging. 
 
  * 
 
@@ -94,7 +100,11 @@
 
  
 
- ****** Giving in to Temptation ****** byStoryTeller07© "OK! I admit it. That was good. You can release me now. I didn't know it could be like that. All the time I just wanted to grab hold of you. It was so frustrating. Nice though!" She admitted sex could be better than fantastic so from then on she let him take the lead. 
+ 
+
+===
+
+"OK! I admit it. That was good. You can release me now. I didn't know it could be like that. All the time I just wanted to grab hold of you. It was so frustrating. Nice though!" She admitted sex could be better than fantastic so from then on she let him take the lead. 
 
  With each visit he takes greater control of the sexy games played out in their private room. It was after the sixth of such sessions that he managed to convince her to journey from their private room out into the lounge. He led her on hands and knees around the lounge as a slave displaying her openly to others. It wasn't such a big step from when they had toured around sharing a drink with other members only now she is being presented more blatantly. The dress had been replaced long ago, by a tight corset that pushed her breasts up and out, leaving everything on open display. "Have you met my sex doll? She's always ready and willing for me to play with." He said while gently stroking her backside protected by nothing but a thong cupping her sex. 
 
@@ -172,7 +182,11 @@
 
  
 
- ****** Giving in to Temptation ****** byStoryTeller07© "Lets begin then shall we." He said. "I'm afraid, 'the sooner we start the sooner we finish', doesn't apply." He teased her. Chuckling to himself he clipped nipple clamps upon her hanging breasts. Bent over as she was they were a perfect target. Clenching her teeth she managed not to cry out, not that it would have mattered in the dungeon. In anguish she watched him fitting a weight to the light chain hanging from her breast. Another to the left breast caused equal torment. The nipples were elongated straining under the weight. She watched them swelling unable to move her head away unable to close her eyes for fear of what torment was to be next. Not wanting to see yet needing some warning of the pain sure to come. 
+ 
+
+===
+
+"Lets begin then shall we." He said. "I'm afraid, 'the sooner we start the sooner we finish', doesn't apply." He teased her. Chuckling to himself he clipped nipple clamps upon her hanging breasts. Bent over as she was they were a perfect target. Clenching her teeth she managed not to cry out, not that it would have mattered in the dungeon. In anguish she watched him fitting a weight to the light chain hanging from her breast. Another to the left breast caused equal torment. The nipples were elongated straining under the weight. She watched them swelling unable to move her head away unable to close her eyes for fear of what torment was to be next. Not wanting to see yet needing some warning of the pain sure to come. 
 
  Now behind her out of sight she was startled by a slap to her rump. Over her shoulder a riding crop flicked her long blond hair. "Just to let you know what's next." He said. The tip of it slapped her buttock. Firm but not hard, just enough to sting. She remembered his stocky build and the hard muscles in his arms and began breathing hard in fear of a certainty that dreadful pain was to come. A few stinging swipes led her to believe he was teasing her, that he was preparing for a dreadful retribution. A very different touch shocked her as something entered her anus. 
 

@@ -1,8 +1,14 @@
+Team Chemistry Ch. 01
+=====================
 #1 
 
  
 
- ****** Team Chemistry Ch. 01 ****** bydawn1958© Please email me your comments or suggestions as they always help a writer. Hopefully I do not offend any basketball teams or coaches, as this is purely a fantasy story. I have tried to use generic names for places and teams so they do not refer to any specific locations. 
+ 
+
+===
+
+Please email me your comments or suggestions as they always help a writer. Hopefully I do not offend any basketball teams or coaches, as this is purely a fantasy story. I have tried to use generic names for places and teams so they do not refer to any specific locations. 
 
  CHAPTER ONE 
 
@@ -96,7 +102,11 @@
 
  
 
- ****** Team Chemistry Ch. 01 ****** bydawn1958© The time was getting late and it was bedtime so Vicki excused herself to make a washroom break before retiring. Leanne switched out all the lights except for the one by Vicki's bed and crawled under the covers, snuggling in for a comfortable sleep. This left the room dimly lit and gave it a surreal appearance. 
+ 
+
+===
+
+The time was getting late and it was bedtime so Vicki excused herself to make a washroom break before retiring. Leanne switched out all the lights except for the one by Vicki's bed and crawled under the covers, snuggling in for a comfortable sleep. This left the room dimly lit and gave it a surreal appearance. 
 
  When Vicki came back into the room, she went directly to the side of Leanne's bed and crouched down. In the faintly lit room, the sudden move shocked Leanne and she brought her head up slightly to look at the girl. "I am so sorry to be such a big baby but I just hate sleeping alone. Would you mind if we slept together in your bed as I get so scared all by myself?" she asked her stunned coach. 
 
@@ -196,7 +206,11 @@
 
  
 
- ****** Team Chemistry Ch. 01 ****** bydawn1958© Vicki sucked the swollen clitoris like a true veteran and her long, powerful fingers slipped under the rounded hips to squeeze the susceptible butt. The harder she squeezed the cheeks, the louder Leanne moaned, as her emotions were higher than she could endure. Anyone else in the room would have wondered at the sound of beasts during mating season, as there was no pretenses, only pure uninhibited ecstasy. 
+ 
+
+===
+
+Vicki sucked the swollen clitoris like a true veteran and her long, powerful fingers slipped under the rounded hips to squeeze the susceptible butt. The harder she squeezed the cheeks, the louder Leanne moaned, as her emotions were higher than she could endure. Anyone else in the room would have wondered at the sound of beasts during mating season, as there was no pretenses, only pure uninhibited ecstasy. 
 
  Leanne had fantasized about sex between two women but never dreamed that it would ever happen to her. The plateau that her mind was swirling through felt like the third dimension as it was in another world. When her hips finally quieted and the eruption ran dry, Vicki slowly caressed her flushed body. Her mouth left the volcano and kissed its way up the burning flesh, leaving a wet trail along the way. Every peck of her lips, every lick of her tongue was a tender, affectionate caress and it made Leanne feel loved. Many times after sex she wished Rod would hold or cuddle with her while the deep, burning desires slowly died away. 
 
@@ -268,7 +282,11 @@
 
  
 
- ****** Team Chemistry Ch. 02 ****** bydawn1958© Please email me your comments or suggestions as they are always appreciated. Please be assured that this story is a fantasy and does not refer to any specific location or place. I do not agree with many hazing practices and this particular story is merely one for the reader to enjoy, keeping in mind it is erotic literature. 
+ 
+
+===
+
+Please email me your comments or suggestions as they are always appreciated. Please be assured that this story is a fantasy and does not refer to any specific location or place. I do not agree with many hazing practices and this particular story is merely one for the reader to enjoy, keeping in mind it is erotic literature. 
 
  * 
 
@@ -364,7 +382,11 @@
 
  
 
- ****** Team Chemistry Ch. 02 ****** bydawn1958© Leanne's stomach quivered like mad and her emotions soared to the highest peak, as the thought of being shaved in public was earth shaking. Carefully, the razor caressed her skin like the fingers of many tiny daggers and she hoped with all her might that no one would notice. In reality, all eyes were glued to the erotic scene and it was quite evident that she was being aroused by the uncertainty of the ritual. 
+ 
+
+===
+
+Leanne's stomach quivered like mad and her emotions soared to the highest peak, as the thought of being shaved in public was earth shaking. Carefully, the razor caressed her skin like the fingers of many tiny daggers and she hoped with all her might that no one would notice. In reality, all eyes were glued to the erotic scene and it was quite evident that she was being aroused by the uncertainty of the ritual. 
 
  A giggle could be heard coming from one of the girls as a tantalizing finger dipped into a forbidden crevice and Leanne's hips jerked in response. Cindy knew this wasn't part of the ritual but seeing the puffy lips spread to reveal the tender morsel was truly enchanting. She knew that Leanne would be at her mercy as the instructions prevented her from resisting anything that happened. The shapely hips jerked wildly as Cindy gave the exposed bud a tiny squeeze before setting her free. Everyone could see that their coach was truly a sexy vixen and her body would be a wonderful prize for the girl that won the draw for phase two. 
 
@@ -458,7 +480,11 @@
 
  
 
- ****** Team Chemistry Ch. 02 ****** bydawn1958© Leanne could see the tears running down the rosy cheeks of her captain but didn't know the reason. She continued to stare at Vicki as the two girls guided her towards the empty bed and she moved on legs that felt like rubber. Leanne did put up a few futile struggles but in a matter of seconds, the two slipped ties around her wrists. Then Jenny gave Leanne a strong push, which made her fall onto the bed and she landed on her back with a thud. Each girl grabbed a binding and tied it to a bedpost in a split second before Leanne had a chance to escape. She was unaware of what their intensions were and begged them to stop at once. Her pleas went unheeded and Jenny and Rose merely continued by typing Leanne's legs so she was spread-eagled like Vicki. 
+ 
+
+===
+
+Leanne could see the tears running down the rosy cheeks of her captain but didn't know the reason. She continued to stare at Vicki as the two girls guided her towards the empty bed and she moved on legs that felt like rubber. Leanne did put up a few futile struggles but in a matter of seconds, the two slipped ties around her wrists. Then Jenny gave Leanne a strong push, which made her fall onto the bed and she landed on her back with a thud. Each girl grabbed a binding and tied it to a bedpost in a split second before Leanne had a chance to escape. She was unaware of what their intensions were and begged them to stop at once. Her pleas went unheeded and Jenny and Rose merely continued by typing Leanne's legs so she was spread-eagled like Vicki. 
 
  Each bound girl now rolled their head to the side and saw how helpless the other was. "Enjoy the fucking picture show honey as we are going to fuck your brains out with the biggest cock of your life," came the warning into Vicki's ear. Jenny was the one chosen to christen her one time lover while Rose would show Leanne the delights of a lesbian dildo. 
 
@@ -548,7 +574,11 @@
 
  
 
- ****** Team Chemistry Ch. 02 ****** bydawn1958© "Listen! I think Vicki has something to say to you," Jenny said to Leanne in a taunting manner so that all could hear. Then Jenny stared at her victim who was spread out on the other bed and she wrinkled her eyebrow indicating that Vicki was to comply with her earlier demands. 
+ 
+
+===
+
+"Listen! I think Vicki has something to say to you," Jenny said to Leanne in a taunting manner so that all could hear. Then Jenny stared at her victim who was spread out on the other bed and she wrinkled her eyebrow indicating that Vicki was to comply with her earlier demands. 
 
  Unable to find a worthy alternative solution, Vicki shuddered as her heart rate rose to give her a flushed look. Jenny's stare brought the intended results and intimidated the captain which made her respond, fulfilling her wishes. "Leanne, I need you to make love to my body, please," Vicki whispered in a soft voice, almost not audible from the opposite bed. 
 

@@ -1,8 +1,14 @@
+Robot Whore Ch. 01
+==================
 #1 
 
  
 
- ****** Robot Whore Ch. 01 ****** byStoryTeller07© Peering out of the shower cubicle Bridget made sure the changing room was clear, not wanting to be caught naked by the maintenance men. That's all she needed was for rude jokes to go round the company about the 'new girl'. Not that she was ashamed of her figure. It was usual for men to give her a second glance but where she came from habits were a little old fashioned when it came to nudity. 
+ 
+
+===
+
+Peering out of the shower cubicle Bridget made sure the changing room was clear, not wanting to be caught naked by the maintenance men. That's all she needed was for rude jokes to go round the company about the 'new girl'. Not that she was ashamed of her figure. It was usual for men to give her a second glance but where she came from habits were a little old fashioned when it came to nudity. 
 
  *** 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Robot Whore Ch. 01 ****** byStoryTeller07© Like the miners Bob hadn't seen a real living-breathing woman in a long time, though he had come close he had never succumbed to using one of his own products. Mostly he wanted to simply sleep; too tired from working all hours. The miners worked shifts so the place was kept busy throughout the day and night. 
+ 
+
+===
+
+Like the miners Bob hadn't seen a real living-breathing woman in a long time, though he had come close he had never succumbed to using one of his own products. Mostly he wanted to simply sleep; too tired from working all hours. The miners worked shifts so the place was kept busy throughout the day and night. 
 
  "Well, let's take a look at the figures." He said to himself through a yawn. "I'm not surprised." The model named Angel was below average in strength so the safety angle was covered, it wouldn't crush someone in a death grip. Or worse, crush a customer's penis. "I'll authorise the induction course for them all and see what happens. Time for bed and luxurious sleep." 
 

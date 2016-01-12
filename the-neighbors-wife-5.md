@@ -1,8 +1,14 @@
+The Neighbor's Wife
+===================
 #1 
 
  
 
- ****** The Neighbor's Wife ****** byE.Z.Riter© On my first day home for the summer from law school, my aunts informed me I was escorting them to an open house being held by the Parkers, our new next-door neighbors. I would have much preferred to sleep because I hadn't done a lot of it lately, but my not-so-discreet protestations were summarily ignored. So, at six p.m. on Friday evening, I was dressed in charcoal gray slacks, blue blazer, white, button-down shirt, and a silk Brooks Brothers tie. My stubble had been banished. My black loafers gleamed. 
+ 
+
+===
+
+On my first day home for the summer from law school, my aunts informed me I was escorting them to an open house being held by the Parkers, our new next-door neighbors. I would have much preferred to sleep because I hadn't done a lot of it lately, but my not-so-discreet protestations were summarily ignored. So, at six p.m. on Friday evening, I was dressed in charcoal gray slacks, blue blazer, white, button-down shirt, and a silk Brooks Brothers tie. My stubble had been banished. My black loafers gleamed. 
 
  "You do clean up nicely, Jimmy," Aunt Dorothy said admiringly as she looked me up and down. 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** The Neighbor's Wife ****** byE.Z.Riter© "Beauty pageants?" I asked. 
+ 
+
+===
+
+"Beauty pageants?" I asked. 
 
  "Why, yes. Both the Miss America and Miss USA, but I didn't win." 
 
@@ -506,7 +516,11 @@
 
  
 
- ****** The Neighbor's Wife ****** byE.Z.Riter© Always, we talked. We talked about school and life and kids, and about politics and society and philosophy. We asked questions, and there was no lying. The questions might be funny but the situation was too serious to lie. 
+ 
+
+===
+
+Always, we talked. We talked about school and life and kids, and about politics and society and philosophy. We asked questions, and there was no lying. The questions might be funny but the situation was too serious to lie. 
 
  Like the time I asked, "What are your measurements?" 
 

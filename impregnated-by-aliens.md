@@ -1,8 +1,14 @@
+Impregnated by Aliens
+=====================
 #1 
 
  
 
- ****** Impregnated by Aliens ****** byStoryTeller07© (This is another short story that has been hanging around for a long while. It needed to be got it out of the way, so as to concentrate on a series.) 
+ 
+
+===
+
+(This is another short story that has been hanging around for a long while. It needed to be got it out of the way, so as to concentrate on a series.) 
 
  
 
@@ -262,7 +268,11 @@
 
  
 
- ****** Impregnated by Aliens ****** byStoryTeller07© "Meeting," she said. The map showed the place. "Time," she said. Digits appeared at the meeting place, and where she was. "Nice gadget," she said. It had been tuned to her language. The computer seemed more capable than these scientists were at using her language. Just so long as she kept it simple. 
+ 
+
+===
+
+"Meeting," she said. The map showed the place. "Time," she said. Digits appeared at the meeting place, and where she was. "Nice gadget," she said. It had been tuned to her language. The computer seemed more capable than these scientists were at using her language. Just so long as she kept it simple. 
 
  The meeting didn't go well. She felt too tired, unable to find the energy to break in to their conversations. They showed little interest in her, so she left feeling disappointed. 
 

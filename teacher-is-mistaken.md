@@ -1,10 +1,16 @@
+Teacher Is Mistaken
+===================
 #1  
 
  
 
  
 
-  ****** Teacher Is Mistaken ****** byStoryTeller07© Monday morning Hollie sat at the desk, with a hand supporting her forehead. She pretended to be examining an essay, while the class got on with an assignment. The stupid incident that happened Friday, left her with plenty to think about. It was untypical of her, to analyse where something had gone wrong, or to mull over things for ages afterward.  
+  
+
+===
+
+Monday morning Hollie sat at the desk, with a hand supporting her forehead. She pretended to be examining an essay, while the class got on with an assignment. The stupid incident that happened Friday, left her with plenty to think about. It was untypical of her, to analyse where something had gone wrong, or to mull over things for ages afterward.  
 
   This time, she couldn't just shrug it off, as a stupid accident. It all started in class, innocently enough, though later it got way out of hand.  
 
@@ -176,7 +182,11 @@
 
  
 
- ****** Teacher Is Mistaken ****** byStoryTeller07© Monday morning Hollie sat at the desk, with a hand supporting her forehead. She pretended to be examining an essay, while the class got on with an assignment. The stupid incident that happened Friday, left her with plenty to think about. It was untypical of her, to analyse where something had gone wrong, or to mull over things for ages afterward. 
+ 
+
+===
+
+Monday morning Hollie sat at the desk, with a hand supporting her forehead. She pretended to be examining an essay, while the class got on with an assignment. The stupid incident that happened Friday, left her with plenty to think about. It was untypical of her, to analyse where something had gone wrong, or to mull over things for ages afterward. 
 
  This time, she couldn't just shrug it off, as a stupid accident. It all started in class, innocently enough, though later it got way out of hand. 
 
@@ -350,7 +360,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 02 ****** byStoryTeller07© Chapter 02  
+  
+
+===
+
+Chapter 02  
 
   Hollie gets carried away  
 
@@ -606,7 +620,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Hollie gets carried away 
 
@@ -862,7 +880,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 03 ****** byStoryTeller07© Chapter 03  
+  
+
+===
+
+Chapter 03  
 
   A whole weekend together  
 
@@ -1102,7 +1124,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 03 ****** byStoryTeller07© It had an effect upon him too. Spanking his teacher was a marvellous new experience. This would be a revolutionary practice in class. Whenever a teacher upset the class, she could be put over her desk for a humiliating spanking. Students would certainly be treated with respect then!  
+  
+
+===
+
+It had an effect upon him too. Spanking his teacher was a marvellous new experience. This would be a revolutionary practice in class. Whenever a teacher upset the class, she could be put over her desk for a humiliating spanking. Students would certainly be treated with respect then!  
 
   One more slap stopped the thrashing around. His teacher was breathing heavily, pressing her thighs together. He could see the puffy lips protruding lewdly between them. The desire to just take her was pulling at him, but he had to see how far he could go.  
 
@@ -1178,7 +1204,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  A whole weekend together 
 
@@ -1416,7 +1446,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 03 ****** byStoryTeller07© It had an effect upon him too. Spanking his teacher was a marvellous new experience. This would be a revolutionary practice in class. Whenever a teacher upset the class, she could be put over her desk for a humiliating spanking. Students would certainly be treated with respect then! 
+ 
+
+===
+
+It had an effect upon him too. Spanking his teacher was a marvellous new experience. This would be a revolutionary practice in class. Whenever a teacher upset the class, she could be put over her desk for a humiliating spanking. Students would certainly be treated with respect then! 
 
  One more slap stopped the thrashing around. His teacher was breathing heavily, pressing her thighs together. He could see the puffy lips protruding lewdly between them. The desire to just take her was pulling at him, but he had to see how far he could go. 
 
@@ -1494,7 +1528,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 04 ****** byStoryTeller07© Chapter 04  
+  
+
+===
+
+Chapter 04  
 
   Embarrassed in School  
 
@@ -1704,7 +1742,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 04 ****** byStoryTeller07© "Thank you for making me cum. Please let go of my pussy, Roger," she begged.  
+  
+
+===
+
+"Thank you for making me cum. Please let go of my pussy, Roger," she begged.  
 
   Knowing him so well the words had to be said, otherwise he would leave it to the last minute, before the next class entered. He knew such words shamed her and enjoyed the sound of his teacher talking dirty to him. It was the price she had to pay. Pleading for a student to remove his fingers from her vagina was the most humbling situation imaginable. That it was in her classroom, where she should rule, was perverse and arousing.  
 
@@ -1718,7 +1760,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 04 ****** byStoryTeller07© Chapter 04 
+ 
+
+===
+
+Chapter 04 
 
  Embarrassed in School 
 
@@ -1924,7 +1970,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 04 ****** byStoryTeller07© "Thank you for making me cum. Please let go of my pussy, Roger," she begged. 
+ 
+
+===
+
+"Thank you for making me cum. Please let go of my pussy, Roger," she begged. 
 
  Knowing him so well the words had to be said, otherwise he would leave it to the last minute, before the next class entered. He knew such words shamed her and enjoyed the sound of his teacher talking dirty to him. It was the price she had to pay. Pleading for a student to remove his fingers from her vagina was the most humbling situation imaginable. That it was in her classroom, where she should rule, was perverse and arousing. 
 
@@ -1940,7 +1990,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 05 ****** byStoryTeller07© All week Roger visited Hollie, keeping her happy and enjoying her body. She spent the time hopelessly trying to fend him off, but 'No!' meant nothing to him. What ever she tried, he ended up ravishing her. By the end of the week she gave up, and decided to wait until he became bored with her.  
+  
+
+===
+
+All week Roger visited Hollie, keeping her happy and enjoying her body. She spent the time hopelessly trying to fend him off, but 'No!' meant nothing to him. What ever she tried, he ended up ravishing her. By the end of the week she gave up, and decided to wait until he became bored with her.  
 
   Surely he would find a young girl his own age to play with. He was treating her like a new toy; learning to play with her body. The thought of losing him to a younger girl left her feeling gloomy. The idea should have been a relief, but she had grown used to the intense attention and would miss it.  
 
@@ -2170,7 +2224,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 05 ****** byStoryTeller07© "Yes sir. Err, can I get changed, sir?" she asked. The humble sound of voice betrayed how humble she felt, as much as the words used.  
+  
+
+===
+
+"Yes sir. Err, can I get changed, sir?" she asked. The humble sound of voice betrayed how humble she felt, as much as the words used.  
 
   "No! Get undressed. I want to see your lovely body," he demanded.  
 
@@ -2270,7 +2328,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 05 ****** byStoryTeller07© All week Roger visited Hollie, keeping her happy and enjoying her body. She spent the time hopelessly trying to fend him off, but 'No!' meant nothing to him. What ever she tried, he ended up ravishing her. By the end of the week she gave up, and decided to wait until he became bored with her. 
+ 
+
+===
+
+All week Roger visited Hollie, keeping her happy and enjoying her body. She spent the time hopelessly trying to fend him off, but 'No!' meant nothing to him. What ever she tried, he ended up ravishing her. By the end of the week she gave up, and decided to wait until he became bored with her. 
 
  Surely he would find a young girl his own age to play with. He was treating her like a new toy; learning to play with her body. The thought of losing him to a younger girl left her feeling gloomy. The idea should have been a relief, but she had grown used to the intense attention and would miss it. 
 
@@ -2498,7 +2560,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 05 ****** byStoryTeller07© "Yes sir. Err, can I get changed, sir?" she asked. The humble sound of voice betrayed how humble she felt, as much as the words used. 
+ 
+
+===
+
+"Yes sir. Err, can I get changed, sir?" she asked. The humble sound of voice betrayed how humble she felt, as much as the words used. 
 
  "No! Get undressed. I want to see your lovely body," he demanded. 
 
@@ -2600,7 +2666,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 06 ****** byStoryTeller07© Early next morning Hollie slipped out of bed leaving Roger undisturbed. She looked at the young man, her student, sleeping peacefully. She smiled broadly with contentment. The wicked things he was doing to her were both disturbing and exciting. It was impossible to escape the conclusion this was the most wonderful relationship she had ever experienced.  
+  
+
+===
+
+Early next morning Hollie slipped out of bed leaving Roger undisturbed. She looked at the young man, her student, sleeping peacefully. She smiled broadly with contentment. The wicked things he was doing to her were both disturbing and exciting. It was impossible to escape the conclusion this was the most wonderful relationship she had ever experienced.  
 
   It was wrong to be sharing her bed with a student, but the excitement of an illicit affair was too strong to resist. Roger was too strong to resist. He had forced her to submit, yet how could she complain after receiving such intimate attention. He was demanding and caring, all at the same time.  
 
@@ -2828,7 +2898,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 06 ****** byStoryTeller07© He led her around the pool and down a path, to a secluded area of the impressive grounds, all the time she wondered if it was the intention to impress, or something more serious was planned. She hoped to be allowed home once they had seen everything.  
+  
+
+===
+
+He led her around the pool and down a path, to a secluded area of the impressive grounds, all the time she wondered if it was the intention to impress, or something more serious was planned. She hoped to be allowed home once they had seen everything.  
 
   Among the trees was a quaint looking cottage, perhaps something for servants or visitors.  
 
@@ -3028,7 +3102,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 06 ****** byStoryTeller07© Early next morning Hollie slipped out of bed leaving Roger undisturbed. She looked at the young man, her student, sleeping peacefully. She smiled broadly with contentment. The wicked things he was doing to her were both disturbing and exciting. It was impossible to escape the conclusion this was the most wonderful relationship she had ever experienced. 
+ 
+
+===
+
+Early next morning Hollie slipped out of bed leaving Roger undisturbed. She looked at the young man, her student, sleeping peacefully. She smiled broadly with contentment. The wicked things he was doing to her were both disturbing and exciting. It was impossible to escape the conclusion this was the most wonderful relationship she had ever experienced. 
 
  It was wrong to be sharing her bed with a student, but the excitement of an illicit affair was too strong to resist. Roger was too strong to resist. He had forced her to submit, yet how could she complain after receiving such intimate attention. He was demanding and caring, all at the same time. 
 
@@ -3254,7 +3332,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 06 ****** byStoryTeller07© He led her around the pool and down a path, to a secluded area of the impressive grounds, all the time she wondered if it was the intention to impress, or something more serious was planned. She hoped to be allowed home once they had seen everything. 
+ 
+
+===
+
+He led her around the pool and down a path, to a secluded area of the impressive grounds, all the time she wondered if it was the intention to impress, or something more serious was planned. She hoped to be allowed home once they had seen everything. 
 
  Among the trees was a quaint looking cottage, perhaps something for servants or visitors. 
 
@@ -3454,7 +3536,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 07 ****** byStoryTeller07© In class Hollie was quiet and the students quickly caught onto her mood. Earlier in the year she had asserted her authority, so now they were glad to just get on with their work without much supervision. Besides, it was near the end term so they had the party to think about, and were winding down for the summer break.  
+  
+
+===
+
+In class Hollie was quiet and the students quickly caught onto her mood. Earlier in the year she had asserted her authority, so now they were glad to just get on with their work without much supervision. Besides, it was near the end term so they had the party to think about, and were winding down for the summer break.  
 
   Lunchtime came around too slowly, and as anticipated Roger appeared as soon as the students left her class. She needed her master to remove the butt plug, so she would have to submit to him, even here in what should have been her domain.  
 
@@ -3668,7 +3754,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 07 ****** byStoryTeller07© "You went out of the classroom this afternoon. I assume you went to the restroom. What did you do there?" he asked.  
+  
+
+===
+
+"You went out of the classroom this afternoon. I assume you went to the restroom. What did you do there?" he asked.  
 
   "I had to relieve myself master," she answered.  
 
@@ -3914,7 +4004,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 07 ****** byStoryTeller07© She felt him spurt young virile sperm deep inside her vagina, and climaxed. Her pussy quivered, gripping him tighter. She hooked her legs around him, and dug both heels into his cheeks. Not wanting to be left empty, she held on tight, as though squeezing every last drop of sperm from his body.  
+  
+
+===
+
+She felt him spurt young virile sperm deep inside her vagina, and climaxed. Her pussy quivered, gripping him tighter. She hooked her legs around him, and dug both heels into his cheeks. Not wanting to be left empty, she held on tight, as though squeezing every last drop of sperm from his body.  
 
   The feeling of being filled by her young lover's sperm, her master, was so gratifying, she cried out a howl of joy. The animal like response was joined by him, when he groaned loudly. He collapsed upon her, sated.  
 
@@ -3926,7 +4020,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 07 ****** byStoryTeller07© In class Hollie was quiet and the students quickly caught onto her mood. Earlier in the year she had asserted her authority, so now they were glad to just get on with their work without much supervision. Besides, it was near the end term so they had the party to think about, and were winding down for the summer break. 
+ 
+
+===
+
+In class Hollie was quiet and the students quickly caught onto her mood. Earlier in the year she had asserted her authority, so now they were glad to just get on with their work without much supervision. Besides, it was near the end term so they had the party to think about, and were winding down for the summer break. 
 
  Lunchtime came around too slowly, and as anticipated Roger appeared as soon as the students left her class. She needed her master to remove the butt plug, so she would have to submit to him, even here in what should have been her domain. 
 
@@ -4136,7 +4234,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 07 ****** byStoryTeller07© "You went out of the classroom this afternoon. I assume you went to the restroom. What did you do there?" he asked. 
+ 
+
+===
+
+"You went out of the classroom this afternoon. I assume you went to the restroom. What did you do there?" he asked. 
 
  "I had to relieve myself master," she answered. 
 
@@ -4380,7 +4482,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 07 ****** byStoryTeller07© She felt him spurt young virile sperm deep inside her vagina, and climaxed. Her pussy quivered, gripping him tighter. She hooked her legs around him, and dug both heels into his cheeks. Not wanting to be left empty, she held on tight, as though squeezing every last drop of sperm from his body. 
+ 
+
+===
+
+She felt him spurt young virile sperm deep inside her vagina, and climaxed. Her pussy quivered, gripping him tighter. She hooked her legs around him, and dug both heels into his cheeks. Not wanting to be left empty, she held on tight, as though squeezing every last drop of sperm from his body. 
 
  The feeling of being filled by her young lover's sperm, her master, was so gratifying, she cried out a howl of joy. The animal like response was joined by him, when he groaned loudly. He collapsed upon her, sated. 
 
@@ -4394,7 +4500,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 08 ****** byStoryTeller07© Chapter 08  
+  
+
+===
+
+Chapter 08  
 
   Hollie sinks deeper into slavery  
 
@@ -4592,7 +4702,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 08 ****** byStoryTeller07© Surely this young girl didn't know about such things! Her master did, and like her he was only eighteen. Perhaps it was just that she had been naive, with her parents sheltering her too much.  
+  
+
+===
+
+Surely this young girl didn't know about such things! Her master did, and like her he was only eighteen. Perhaps it was just that she had been naive, with her parents sheltering her too much.  
 
   "Please, let me go," Hollie pleaded. This time she meant it.  
 
@@ -4826,7 +4940,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 08 ****** byStoryTeller07© She felt the catch pushed onto the loop, and heard it snap shut on her collar. It was her slave collar, displaying her new slave name, for all to see.  
+  
+
+===
+
+She felt the catch pushed onto the loop, and heard it snap shut on her collar. It was her slave collar, displaying her new slave name, for all to see.  
 
   A drastic change was washing over her, from head to toe. It was as though she were being bathed in warm cleansing water. She felt as though she were being reborn. She now had a master, a man who owned her, to look after her, to control her. She no longer had to think about life and its troubles; she had a wonderful master to decide everything, to make all decisions for her.  
 
@@ -4846,7 +4964,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 08 ****** byStoryTeller07© Chapter 08 
+ 
+
+===
+
+Chapter 08 
 
  Hollie sinks deeper into slavery 
 
@@ -5042,7 +5164,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 08 ****** byStoryTeller07© Surely this young girl didn't know about such things! Her master did, and like her he was only eighteen. Perhaps it was just that she had been naive, with her parents sheltering her too much. 
+ 
+
+===
+
+Surely this young girl didn't know about such things! Her master did, and like her he was only eighteen. Perhaps it was just that she had been naive, with her parents sheltering her too much. 
 
  "Please, let me go," Hollie pleaded. This time she meant it. 
 
@@ -5272,7 +5398,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 08 ****** byStoryTeller07© She felt the catch pushed onto the loop, and heard it snap shut on her collar. It was her slave collar, displaying her new slave name, for all to see. 
+ 
+
+===
+
+She felt the catch pushed onto the loop, and heard it snap shut on her collar. It was her slave collar, displaying her new slave name, for all to see. 
 
  A drastic change was washing over her, from head to toe. It was as though she were being bathed in warm cleansing water. She felt as though she were being reborn. She now had a master, a man who owned her, to look after her, to control her. She no longer had to think about life and its troubles; she had a wonderful master to decide everything, to make all decisions for her. 
 
@@ -5294,7 +5424,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 09 ****** byStoryTeller07© (I've taken a readers comment as a bit of a challenge -- about keeping it real in class, and not dressing her in slutty clothes. Hope this works!)  
+  
+
+===
+
+(I've taken a readers comment as a bit of a challenge -- about keeping it real in class, and not dressing her in slutty clothes. Hope this works!)  
 
   Last day of school  
 
@@ -5464,7 +5598,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 09 ****** byStoryTeller07© "I'll leave first," he said. "See you in class," he smiled back at her.  
+  
+
+===
+
+"I'll leave first," he said. "See you in class," he smiled back at her.  
 
   Hollie felt like a salmon swimming up stream, against the flow. Students were streaming down the corridor leaving early. Inevitably some bumped into her and their eyes grew wide with awe.  
 
@@ -5664,7 +5802,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 09 ****** byStoryTeller07© He was enjoying himself, having never been this far before. He had played with a girl a little, but his teacher just stood there, letting him do whatever he liked.  
+  
+
+===
+
+He was enjoying himself, having never been this far before. He had played with a girl a little, but his teacher just stood there, letting him do whatever he liked.  
 
   It surprised everyone when Anne shouted. They didn't hear what she said. She was suddenly there, blocking the view. She grabbed hold of their teacher's hair, pulling her backward, with Hollie staggering on the high heels. They came off, clattering under the desks.  
 
@@ -5752,7 +5894,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 09 ****** byStoryTeller07© (I've taken a readers comment as a bit of a challenge -- about keeping it real in class, and not dressing her in slutty clothes. Hope this works!) 
+ 
+
+===
+
+(I've taken a readers comment as a bit of a challenge -- about keeping it real in class, and not dressing her in slutty clothes. Hope this works!) 
 
  Last day of school 
 
@@ -5920,7 +6066,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 09 ****** byStoryTeller07© "I'll leave first," he said. "See you in class," he smiled back at her. 
+ 
+
+===
+
+"I'll leave first," he said. "See you in class," he smiled back at her. 
 
  Hollie felt like a salmon swimming up stream, against the flow. Students were streaming down the corridor leaving early. Inevitably some bumped into her and their eyes grew wide with awe. 
 
@@ -6118,7 +6268,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 09 ****** byStoryTeller07© He was enjoying himself, having never been this far before. He had played with a girl a little, but his teacher just stood there, letting him do whatever he liked. 
+ 
+
+===
+
+He was enjoying himself, having never been this far before. He had played with a girl a little, but his teacher just stood there, letting him do whatever he liked. 
 
  It surprised everyone when Anne shouted. They didn't hear what she said. She was suddenly there, blocking the view. She grabbed hold of their teacher's hair, pulling her backward, with Hollie staggering on the high heels. They came off, clattering under the desks. 
 
@@ -6208,7 +6362,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 10 ****** byStoryTeller07© "Stop playing with yourself, Cindy. You're such a slut, you can't leave it alone," Roger complained.  
+  
+
+===
+
+"Stop playing with yourself, Cindy. You're such a slut, you can't leave it alone," Roger complained.  
 
   "Sorry master," Hollie sheepishly replied.  
 
@@ -6412,7 +6570,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 10 ****** byStoryTeller07© Looking at the quivering helpless mess that had been his teacher, he wondered if it had gone too far, too quickly. With little experience he had relied on what could be discovered on the Internet, not dreaming of results as devastating as this.  
+  
+
+===
+
+Looking at the quivering helpless mess that had been his teacher, he wondered if it had gone too far, too quickly. With little experience he had relied on what could be discovered on the Internet, not dreaming of results as devastating as this.  
 
   The hesitation lasted a second, although it seemed an age for both of them, for different reasons. He decided to take things a little further. While like this she might agree to anything.  
 
@@ -6630,7 +6792,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 10 ****** byStoryTeller07© Before she got much of a chance to examine it he pulled her out of the cubicle. "Come along, slave Cindy. Your master wants to look at you," Roger commanded.  
+  
+
+===
+
+Before she got much of a chance to examine it he pulled her out of the cubicle. "Come along, slave Cindy. Your master wants to look at you," Roger commanded.  
 
   In a mirror she caught sight of herself. Perhaps this was why there was no mirror in the changing room; she had thought it strange. If she had seen herself she would have put up a fight before being dragged out.  
 
@@ -6754,7 +6920,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 10 ****** byStoryTeller07© "Stop playing with yourself, Cindy. You're such a slut, you can't leave it alone," Roger complained. 
+ 
+
+===
+
+"Stop playing with yourself, Cindy. You're such a slut, you can't leave it alone," Roger complained. 
 
  "Sorry master," Hollie sheepishly replied. 
 
@@ -6956,7 +7126,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 10 ****** byStoryTeller07© Looking at the quivering helpless mess that had been his teacher, he wondered if it had gone too far, too quickly. With little experience he had relied on what could be discovered on the Internet, not dreaming of results as devastating as this. 
+ 
+
+===
+
+Looking at the quivering helpless mess that had been his teacher, he wondered if it had gone too far, too quickly. With little experience he had relied on what could be discovered on the Internet, not dreaming of results as devastating as this. 
 
  The hesitation lasted a second, although it seemed an age for both of them, for different reasons. He decided to take things a little further. While like this she might agree to anything. 
 
@@ -7172,7 +7346,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 10 ****** byStoryTeller07© Before she got much of a chance to examine it he pulled her out of the cubicle. "Come along, slave Cindy. Your master wants to look at you," Roger commanded. 
+ 
+
+===
+
+Before she got much of a chance to examine it he pulled her out of the cubicle. "Come along, slave Cindy. Your master wants to look at you," Roger commanded. 
 
  In a mirror she caught sight of herself. Perhaps this was why there was no mirror in the changing room; she had thought it strange. If she had seen herself she would have put up a fight before being dragged out. 
 
@@ -7298,7 +7476,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 11 ****** byStoryTeller07© Chapter 11  
+  
+
+===
+
+Chapter 11  
 
   The Student Party  
 
@@ -7514,7 +7696,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 11 ****** byStoryTeller07© "Please, sir, you don't know what you're doing. Stop it, please," she whimpered.  
+  
+
+===
+
+"Please, sir, you don't know what you're doing. Stop it, please," she whimpered.  
 
   "You're a harem slave-girl, so behave your self, or I'll whip you," he whispered in her ear.  
 
@@ -7718,7 +7904,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 11 ****** byStoryTeller07© Chapter 11 
+ 
+
+===
+
+Chapter 11 
 
  The Student Party 
 
@@ -7932,7 +8122,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 11 ****** byStoryTeller07© "Please, sir, you don't know what you're doing. Stop it, please," she whimpered. 
+ 
+
+===
+
+"Please, sir, you don't know what you're doing. Stop it, please," she whimpered. 
 
  "You're a harem slave-girl, so behave your self, or I'll whip you," he whispered in her ear. 
 
@@ -8136,7 +8330,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 12 ****** byStoryTeller07© After the party  
+  
+
+===
+
+After the party  
 
   Hollie got up early with time alone to think. Last night Roger made tender love to her, leaving her feeling like a princess rather than a slave. Perhaps not a princess, as she was wearing chains. The love making had been deeply satisfying, and dirty. She remembered screaming obscenities at one point, which were certainly not lady like.  
 
@@ -8360,7 +8558,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 12 ****** byStoryTeller07© Hollie had already lost the influence of adulthood, and the respect it brought. She felt as though she were small and powerless. She was becoming just a kid, dependant on parents for everything, except it was her master who controlled her.  
+  
+
+===
+
+Hollie had already lost the influence of adulthood, and the respect it brought. She felt as though she were small and powerless. She was becoming just a kid, dependant on parents for everything, except it was her master who controlled her.  
 
   He bought her clothes, decided what she was to wear, and if she could wear anything at all. She was sitting in a public place without panties, wearing chains because her master had ordained it. Her master decided every detail of her life, when she went to bed, what she ate, how to fix her hair and make-up.  
 
@@ -8588,7 +8790,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 12 ****** byStoryTeller07© When he slid off the sofa, naked, she knew he was going to make love to her. It wasn't just sex, something needed to satisfy their lust. It was going to be a bringing close of two bodies, trying to meld into one. A soft keening noise vibrated from deep in her throat. Her whole body craved to be in his arms.  
+  
+
+===
+
+When he slid off the sofa, naked, she knew he was going to make love to her. It wasn't just sex, something needed to satisfy their lust. It was going to be a bringing close of two bodies, trying to meld into one. A soft keening noise vibrated from deep in her throat. Her whole body craved to be in his arms.  
 
   He held onto her, kissing her face, not letting her touch him. He worked his way down her chest to her nipples and pulled on them with his lips. The piecing rings and as much of her breast as possible was sucked into his mouth. She pushed her head back and groaned a low, long sound of anticipation.  
 
@@ -8688,7 +8894,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 12 ****** byStoryTeller07© After the party 
+ 
+
+===
+
+After the party 
 
  Hollie got up early with time alone to think. Last night Roger made tender love to her, leaving her feeling like a princess rather than a slave. Perhaps not a princess, as she was wearing chains. The love making had been deeply satisfying, and dirty. She remembered screaming obscenities at one point, which were certainly not lady like. 
 
@@ -8906,7 +9116,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 12 ****** byStoryTeller07© Hollie had already lost the influence of adulthood, and the respect it brought. She felt as though she were small and powerless. She was becoming just a kid, dependant on parents for everything, except it was her master who controlled her. 
+ 
+
+===
+
+Hollie had already lost the influence of adulthood, and the respect it brought. She felt as though she were small and powerless. She was becoming just a kid, dependant on parents for everything, except it was her master who controlled her. 
 
  He bought her clothes, decided what she was to wear, and if she could wear anything at all. She was sitting in a public place without panties, wearing chains because her master had ordained it. Her master decided every detail of her life, when she went to bed, what she ate, how to fix her hair and make-up. 
 
@@ -9128,7 +9342,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 12 ****** byStoryTeller07© When he slid off the sofa, naked, she knew he was going to make love to her. It wasn't just sex, something needed to satisfy their lust. It was going to be a bringing close of two bodies, trying to meld into one. A soft keening noise vibrated from deep in her throat. Her whole body craved to be in his arms. 
+ 
+
+===
+
+When he slid off the sofa, naked, she knew he was going to make love to her. It wasn't just sex, something needed to satisfy their lust. It was going to be a bringing close of two bodies, trying to meld into one. A soft keening noise vibrated from deep in her throat. Her whole body craved to be in his arms. 
 
  He held onto her, kissing her face, not letting her touch him. He worked his way down her chest to her nipples and pulled on them with his lips. The piecing rings and as much of her breast as possible was sucked into his mouth. She pushed her head back and groaned a low, long sound of anticipation. 
 
@@ -9226,7 +9444,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 13 ****** byStoryTeller07© Angela  
+  
+
+===
+
+Angela  
 
   "Angela? What are you doing here?" Hollie asked. The initial shock from being suddenly confronted by the girl was wearing off. This student recognised her slave collar in school, and took advantage in an embarrassing way. Her father was in the master and slave scene, which explained why the young girl recognised the slave collar.  
 
@@ -9452,7 +9674,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 13 ****** byStoryTeller07© The head of the dildo eased in. Angela felt it tightly gripped by the woman's vagina. She hesitated then pushed hard. Watching it disappear into the woman's body was fascinating. She wondered if she too had a screwed up sex face like this slaves. The slave was obviously close to an orgasm, so she would have to stop it.  
+  
+
+===
+
+The head of the dildo eased in. Angela felt it tightly gripped by the woman's vagina. She hesitated then pushed hard. Watching it disappear into the woman's body was fascinating. She wondered if she too had a screwed up sex face like this slaves. The slave was obviously close to an orgasm, so she would have to stop it.  
 
   She took her hand away leaving the dildo in place. It was a surprise to hear the slave speak.  
 
@@ -9670,7 +9896,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 13 ****** byStoryTeller07© The woman's legs trembled, with both knees threatening to give way. She moaned a little and sighed. Not much of an orgasm, but maybe that was usual.  
+  
+
+===
+
+The woman's legs trembled, with both knees threatening to give way. She moaned a little and sighed. Not much of an orgasm, but maybe that was usual.  
 
   "Thank you dear, that was nice," Bridget thanked her daughter, and air-kissed her across the kitchen. She completely ignored Hollie, who was wiping her face with a dishcloth.  
 
@@ -9714,7 +9944,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 13 ****** byStoryTeller07© Angela 
+ 
+
+===
+
+Angela 
 
  "Angela? What are you doing here?" Hollie asked. The initial shock from being suddenly confronted by the girl was wearing off. This student recognised her slave collar in school, and took advantage in an embarrassing way. Her father was in the master and slave scene, which explained why the young girl recognised the slave collar. 
 
@@ -9938,7 +10172,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 13 ****** byStoryTeller07© The head of the dildo eased in. Angela felt it tightly gripped by the woman's vagina. She hesitated then pushed hard. Watching it disappear into the woman's body was fascinating. She wondered if she too had a screwed up sex face like this slaves. The slave was obviously close to an orgasm, so she would have to stop it. 
+ 
+
+===
+
+The head of the dildo eased in. Angela felt it tightly gripped by the woman's vagina. She hesitated then pushed hard. Watching it disappear into the woman's body was fascinating. She wondered if she too had a screwed up sex face like this slaves. The slave was obviously close to an orgasm, so she would have to stop it. 
 
  She took her hand away leaving the dildo in place. It was a surprise to hear the slave speak. 
 
@@ -10154,7 +10392,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 13 ****** byStoryTeller07© The woman's legs trembled, with both knees threatening to give way. She moaned a little and sighed. Not much of an orgasm, but maybe that was usual. 
+ 
+
+===
+
+The woman's legs trembled, with both knees threatening to give way. She moaned a little and sighed. Not much of an orgasm, but maybe that was usual. 
 
  "Thank you dear, that was nice," Bridget thanked her daughter, and air-kissed her across the kitchen. She completely ignored Hollie, who was wiping her face with a dishcloth. 
 
@@ -10200,7 +10442,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 14 ****** byStoryTeller07© Chapter 14  
+  
+
+===
+
+Chapter 14  
 
   Private Party  
 
@@ -10378,7 +10624,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 14 ****** byStoryTeller07© Hollie couldn't speak even when the gag was removed. She was exhausted, unable to think about freedom, or anything else.  
+  
+
+===
+
+Hollie couldn't speak even when the gag was removed. She was exhausted, unable to think about freedom, or anything else.  
 
   Her face revealed her plight. Her mistress gave her a look of recognition, knowing she was now completely helpless.  
 
@@ -10610,7 +10860,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 14 ****** byStoryTeller07© Francis was an old family friend, making it all the more outrageous for this eighteen year old boy to be pushing his fingers between her legs. She clamped her thighs together, trying to give him a clear message. Unfortunately she was too late, as his hand slid up the soft black leather hitting her between the lips.  
+  
+
+===
+
+Francis was an old family friend, making it all the more outrageous for this eighteen year old boy to be pushing his fingers between her legs. She clamped her thighs together, trying to give him a clear message. Unfortunately she was too late, as his hand slid up the soft black leather hitting her between the lips.  
 
   Her gasp of pain went unnoticed, as everyone's attention was on Hollie. His fingers were wriggling between her lips, protruding in what looked like leather flaps. Certainly it must have been overwhelmingly tempting for a young guy, but she was a married woman and her daughter was sitting in the same room.  
 
@@ -10752,7 +11006,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 14 ****** byStoryTeller07© Chapter 14 
+ 
+
+===
+
+Chapter 14 
 
  Private Party 
 
@@ -10928,7 +11186,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 14 ****** byStoryTeller07© Hollie couldn't speak even when the gag was removed. She was exhausted, unable to think about freedom, or anything else. 
+ 
+
+===
+
+Hollie couldn't speak even when the gag was removed. She was exhausted, unable to think about freedom, or anything else. 
 
  Her face revealed her plight. Her mistress gave her a look of recognition, knowing she was now completely helpless. 
 
@@ -11158,7 +11420,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 14 ****** byStoryTeller07© Francis was an old family friend, making it all the more outrageous for this eighteen year old boy to be pushing his fingers between her legs. She clamped her thighs together, trying to give him a clear message. Unfortunately she was too late, as his hand slid up the soft black leather hitting her between the lips. 
+ 
+
+===
+
+Francis was an old family friend, making it all the more outrageous for this eighteen year old boy to be pushing his fingers between her legs. She clamped her thighs together, trying to give him a clear message. Unfortunately she was too late, as his hand slid up the soft black leather hitting her between the lips. 
 
  Her gasp of pain went unnoticed, as everyone's attention was on Hollie. His fingers were wriggling between her lips, protruding in what looked like leather flaps. Certainly it must have been overwhelmingly tempting for a young guy, but she was a married woman and her daughter was sitting in the same room. 
 
@@ -11302,7 +11568,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Angela shuffled back to her room after muted goodbyes to her friends. Each of them was happy and embarrassed for different reasons. All she could think about was those two young guys taking her mother. While in a state of rapturous pleasure, she hadn't been able to prevent it, though she would still be in real trouble for letting it happen, when her father returned home.  
+  
+
+===
+
+Angela shuffled back to her room after muted goodbyes to her friends. Each of them was happy and embarrassed for different reasons. All she could think about was those two young guys taking her mother. While in a state of rapturous pleasure, she hadn't been able to prevent it, though she would still be in real trouble for letting it happen, when her father returned home.  
 
   By the time she noticed the two of them using her helpless mother, it was too late. They hadn't realised who it was they were using like a common whore. What could she have done? Shouted at her friends to stop fucking her mother? Should she have pleaded with them to pull their cocks from her mother's mouth and pussy?  
 
@@ -11478,7 +11748,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Hearing the woman being led away, she quickly shoved the papers back into the wall safe. Bundling both lots of slave papers into the same large brown envelope, she went to find the men. Standing at the door, she watched the mother being guided into the back of an ordinary looking white van.  
+  
+
+===
+
+Hearing the woman being led away, she quickly shoved the papers back into the wall safe. Bundling both lots of slave papers into the same large brown envelope, she went to find the men. Standing at the door, she watched the mother being guided into the back of an ordinary looking white van.  
 
   She must have noticed her daughter in there, as her whole body stiffened, and she pushed back with her feet. The two men guiding her, shoved the woman inside. They climbed in after her, and bent over the woman, now lying flat out on the van's floor.  
 
@@ -11650,7 +11924,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Hollie forgot all about running away. She was now happy at her master's feet, with a familiar growing need. The heat was becoming more intense, while recounting the humiliating period, subject to Angela's vile treatment.  
+  
+
+===
+
+Hollie forgot all about running away. She was now happy at her master's feet, with a familiar growing need. The heat was becoming more intense, while recounting the humiliating period, subject to Angela's vile treatment.  
 
   She had been forced to submit, as a young girl's slave, which was undignified and infuriating. Becoming her willing plaything was degrading, especially so, when paraded naked before the girl's school friends. She had been a teacher at the school, so having to serve those adolescents as a humble menial was terrible. It was worse still when one of the students recognised her, and audaciously fucked her.  
 
@@ -11886,7 +12164,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Neither of them noticed two girls walk in. They were what Hollie was pretending to be, though her actions proved she was a young slut, whereas they just looked it. They were both eighteen and inexperienced. They stared at the woman bobbing her head up and down in the guys lap. They sidled behind a rack of shoes, mesmerised by the audacity of what was happening. They gripped each other's arms, with grins plastered on their faces.  
+  
+
+===
+
+Neither of them noticed two girls walk in. They were what Hollie was pretending to be, though her actions proved she was a young slut, whereas they just looked it. They were both eighteen and inexperienced. They stared at the woman bobbing her head up and down in the guys lap. They sidled behind a rack of shoes, mesmerised by the audacity of what was happening. They gripped each other's arms, with grins plastered on their faces.  
 
   Hollie meant to catch his cum in her mouth, save making a mess. Instead he leaned back in the chair groaning. His sperm splashed in her face and hair. As usual she wiped and licked it from her hand. She sucked his deflating cock, cleaning him up, and shoved it back into his pants.  
 
@@ -12010,7 +12292,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Angela shuffled back to her room after muted goodbyes to her friends. Each of them was happy and embarrassed for different reasons. All she could think about was those two young guys taking her mother. While in a state of rapturous pleasure, she hadn't been able to prevent it, though she would still be in real trouble for letting it happen, when her father returned home. 
+ 
+
+===
+
+Angela shuffled back to her room after muted goodbyes to her friends. Each of them was happy and embarrassed for different reasons. All she could think about was those two young guys taking her mother. While in a state of rapturous pleasure, she hadn't been able to prevent it, though she would still be in real trouble for letting it happen, when her father returned home. 
 
  By the time she noticed the two of them using her helpless mother, it was too late. They hadn't realised who it was they were using like a common whore. What could she have done? Shouted at her friends to stop fucking her mother? Should she have pleaded with them to pull their cocks from her mother's mouth and pussy? 
 
@@ -12182,7 +12468,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Hearing the woman being led away, she quickly shoved the papers back into the wall safe. Bundling both lots of slave papers into the same large brown envelope, she went to find the men. Standing at the door, she watched the mother being guided into the back of an ordinary looking white van. 
+ 
+
+===
+
+Hearing the woman being led away, she quickly shoved the papers back into the wall safe. Bundling both lots of slave papers into the same large brown envelope, she went to find the men. Standing at the door, she watched the mother being guided into the back of an ordinary looking white van. 
 
  She must have noticed her daughter in there, as her whole body stiffened, and she pushed back with her feet. The two men guiding her, shoved the woman inside. They climbed in after her, and bent over the woman, now lying flat out on the van's floor. 
 
@@ -12352,7 +12642,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Hollie forgot all about running away. She was now happy at her master's feet, with a familiar growing need. The heat was becoming more intense, while recounting the humiliating period, subject to Angela's vile treatment. 
+ 
+
+===
+
+Hollie forgot all about running away. She was now happy at her master's feet, with a familiar growing need. The heat was becoming more intense, while recounting the humiliating period, subject to Angela's vile treatment. 
 
  She had been forced to submit, as a young girl's slave, which was undignified and infuriating. Becoming her willing plaything was degrading, especially so, when paraded naked before the girl's school friends. She had been a teacher at the school, so having to serve those adolescents as a humble menial was terrible. It was worse still when one of the students recognised her, and audaciously fucked her. 
 
@@ -12586,7 +12880,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 15 ****** byStoryTeller07© Neither of them noticed two girls walk in. They were what Hollie was pretending to be, though her actions proved she was a young slut, whereas they just looked it. They were both eighteen and inexperienced. They stared at the woman bobbing her head up and down in the guys lap. They sidled behind a rack of shoes, mesmerised by the audacity of what was happening. They gripped each other's arms, with grins plastered on their faces. 
+ 
+
+===
+
+Neither of them noticed two girls walk in. They were what Hollie was pretending to be, though her actions proved she was a young slut, whereas they just looked it. They were both eighteen and inexperienced. They stared at the woman bobbing her head up and down in the guys lap. They sidled behind a rack of shoes, mesmerised by the audacity of what was happening. They gripped each other's arms, with grins plastered on their faces. 
 
  Hollie meant to catch his cum in her mouth, save making a mess. Instead he leaned back in the chair groaning. His sperm splashed in her face and hair. As usual she wiped and licked it from her hand. She sucked his deflating cock, cleaning him up, and shoved it back into his pants. 
 
@@ -12710,7 +13008,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 16 ****** byStoryTeller07© (Please note, the previous chapter needs to be read to make sense of this one.)  
+  
+
+===
+
+(Please note, the previous chapter needs to be read to make sense of this one.)  
 
   Conclusion  
 
@@ -12890,7 +13192,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 16 ****** byStoryTeller07© "Oh please daddy, come and get me. Take me away from this hell!" she whispered.  
+  
+
+===
+
+"Oh please daddy, come and get me. Take me away from this hell!" she whispered.  
 
   ***  
 
@@ -13102,7 +13408,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 16 ****** byStoryTeller07© Bill crumpled to the ground, cursing. Hollie pulled Mark back, as Bill made a grab for him. Clawing at the air, he fell forward onto his face. On his elbows he shouted at the pair, as they ran off. Mark hobbled a few steps, with Hollie supporting him. She kicked off her heels enabling her to move faster.  
+  
+
+===
+
+Bill crumpled to the ground, cursing. Hollie pulled Mark back, as Bill made a grab for him. Clawing at the air, he fell forward onto his face. On his elbows he shouted at the pair, as they ran off. Mark hobbled a few steps, with Hollie supporting him. She kicked off her heels enabling her to move faster.  
 
   "This way," he panted. The adrenaline was running high, helping to hide the pain in his foot. He searched his pockets for the keys; trousers, jacket, trousers again, frantically delving in, and furiously patting his clothes. He found them in the trouser pocket first searched.  
 
@@ -13260,7 +13570,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 16 ****** byStoryTeller07© (Please note, the previous chapter needs to be read to make sense of this one.) 
+ 
+
+===
+
+(Please note, the previous chapter needs to be read to make sense of this one.) 
 
  Conclusion 
 
@@ -13436,7 +13750,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 16 ****** byStoryTeller07© "Oh please daddy, come and get me. Take me away from this hell!" she whispered. 
+ 
+
+===
+
+"Oh please daddy, come and get me. Take me away from this hell!" she whispered. 
 
  *** 
 
@@ -13646,7 +13964,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 16 ****** byStoryTeller07© Bill crumpled to the ground, cursing. Hollie pulled Mark back, as Bill made a grab for him. Clawing at the air, he fell forward onto his face. On his elbows he shouted at the pair, as they ran off. Mark hobbled a few steps, with Hollie supporting him. She kicked off her heels enabling her to move faster. 
+ 
+
+===
+
+Bill crumpled to the ground, cursing. Hollie pulled Mark back, as Bill made a grab for him. Clawing at the air, he fell forward onto his face. On his elbows he shouted at the pair, as they ran off. Mark hobbled a few steps, with Hollie supporting him. She kicked off her heels enabling her to move faster. 
 
  "This way," he panted. The adrenaline was running high, helping to hide the pain in his foot. He searched his pockets for the keys; trousers, jacket, trousers again, frantically delving in, and furiously patting his clothes. He found them in the trouser pocket first searched. 
 
@@ -13804,7 +14126,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 17 ****** byStoryTeller07© Chapter 17  
+  
+
+===
+
+Chapter 17  
 
   California Dreaming  
 
@@ -14020,7 +14346,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 17 ****** byStoryTeller07© Another time she had worn a hookers outfit, to walk among them in the late evening. She of course declined the offers. Someone she vaguely recognised had her pulse racing. The punter didn't recognise her, as he was too busy looking down the deep cleavage. Of course, he didn't expect a respectable teacher to be out on the prowl.  
+  
+
+===
+
+Another time she had worn a hookers outfit, to walk among them in the late evening. She of course declined the offers. Someone she vaguely recognised had her pulse racing. The punter didn't recognise her, as he was too busy looking down the deep cleavage. Of course, he didn't expect a respectable teacher to be out on the prowl.  
 
   A few sessions at home under his instructions, had her panting for a climax. While tied to the bed blindfolded, a session nearly ended in disaster. She panicked when a key to the cuffs fell on the floor. She writhed and struggled, until she began to moan and groan. The camera was rolling, capturing her writhing naked body.  
 
@@ -14214,7 +14544,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 17 ****** byStoryTeller07© "We're, here," the girl repeated, and nudged her.  
+  
+
+===
+
+"We're, here," the girl repeated, and nudged her.  
 
   Hollie came to from a daydream realizing the car had pulled up. She followed them into an old warehouse, assuming it was where they lived. She had heard about these expensive modern apartments.  
 
@@ -14282,7 +14616,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 17 ****** byStoryTeller07© Chapter 17 
+ 
+
+===
+
+Chapter 17 
 
  California Dreaming 
 
@@ -14496,7 +14834,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 17 ****** byStoryTeller07© Another time she had worn a hookers outfit, to walk among them in the late evening. She of course declined the offers. Someone she vaguely recognised had her pulse racing. The punter didn't recognise her, as he was too busy looking down the deep cleavage. Of course, he didn't expect a respectable teacher to be out on the prowl. 
+ 
+
+===
+
+Another time she had worn a hookers outfit, to walk among them in the late evening. She of course declined the offers. Someone she vaguely recognised had her pulse racing. The punter didn't recognise her, as he was too busy looking down the deep cleavage. Of course, he didn't expect a respectable teacher to be out on the prowl. 
 
  A few sessions at home under his instructions, had her panting for a climax. While tied to the bed blindfolded, a session nearly ended in disaster. She panicked when a key to the cuffs fell on the floor. She writhed and struggled, until she began to moan and groan. The camera was rolling, capturing her writhing naked body. 
 
@@ -14686,7 +15028,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 17 ****** byStoryTeller07© "We're, here," the girl repeated, and nudged her. 
+ 
+
+===
+
+"We're, here," the girl repeated, and nudged her. 
 
  Hollie came to from a daydream realizing the car had pulled up. She followed them into an old warehouse, assuming it was where they lived. She had heard about these expensive modern apartments. 
 
@@ -14756,7 +15102,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 18 ****** byStoryTeller07© Roger was pleased with himself. Rachael was a friend of his parents and she hadn't recognised him, which was perfect under the circumstances. The woman was playing at being a slave in Nathanial's home, and Roger had been asked to look after her. Before leaving Nathanial instructed her to obey Roger, and she had certainly played the part well as his slave. Rachael gave him a blowjob, followed by a hot sex session on the lounge carpet.  
+  
+
+===
+
+Roger was pleased with himself. Rachael was a friend of his parents and she hadn't recognised him, which was perfect under the circumstances. The woman was playing at being a slave in Nathanial's home, and Roger had been asked to look after her. Before leaving Nathanial instructed her to obey Roger, and she had certainly played the part well as his slave. Rachael gave him a blowjob, followed by a hot sex session on the lounge carpet.  
 
   Rachael was on hands and knees cleaning up the mess they made on the antique Persian rug. He lounged back in an easy chair watching her bare ass wiggling seductively. She didn't have permission to get dressed yet, so remained naked. The older woman was tall with a trim figure, which was kept in good shape with regular exercise. Although she was Roger's parents age, she was attractive and would soon have him aroused, even after the earlier intense performance.  
 
@@ -14934,7 +15284,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 18 ****** byStoryTeller07© "I've not started yet! Calm down pathetic slave-girl," he told her.  
+  
+
+===
+
+"I've not started yet! Calm down pathetic slave-girl," he told her.  
 
   Hollie no longer cared what she was called, or what he thought of her. All she could think about was the pain. Again it eventually dulled to an aching throb. This time she watched her torturer bringing over a range of dildo's. With her legs spread so effectively, there was nothing that could be done to avoid their use. She just hoped her bottom would be spared.  
 
@@ -15066,7 +15420,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 18 ****** byStoryTeller07© Roger was pleased with himself. Rachael was a friend of his parents and she hadn't recognised him, which was perfect under the circumstances. The woman was playing at being a slave in Nathanial's home, and Roger had been asked to look after her. Before leaving Nathanial instructed her to obey Roger, and she had certainly played the part well as his slave. Rachael gave him a blowjob, followed by a hot sex session on the lounge carpet. 
+ 
+
+===
+
+Roger was pleased with himself. Rachael was a friend of his parents and she hadn't recognised him, which was perfect under the circumstances. The woman was playing at being a slave in Nathanial's home, and Roger had been asked to look after her. Before leaving Nathanial instructed her to obey Roger, and she had certainly played the part well as his slave. Rachael gave him a blowjob, followed by a hot sex session on the lounge carpet. 
 
  Rachael was on hands and knees cleaning up the mess they made on the antique Persian rug. He lounged back in an easy chair watching her bare ass wiggling seductively. She didn't have permission to get dressed yet, so remained naked. The older woman was tall with a trim figure, which was kept in good shape with regular exercise. Although she was Roger's parents age, she was attractive and would soon have him aroused, even after the earlier intense performance. 
 
@@ -15240,7 +15598,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 18 ****** byStoryTeller07© "I've not started yet! Calm down pathetic slave-girl," he told her. 
+ 
+
+===
+
+"I've not started yet! Calm down pathetic slave-girl," he told her. 
 
  Hollie no longer cared what she was called, or what he thought of her. All she could think about was the pain. Again it eventually dulled to an aching throb. This time she watched her torturer bringing over a range of dildo's. With her legs spread so effectively, there was nothing that could be done to avoid their use. She just hoped her bottom would be spared. 
 
@@ -15372,7 +15734,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 19 ****** byStoryTeller07© Chapter 19  
+  
+
+===
+
+Chapter 19  
 
   A new master for the teacher  
 
@@ -15566,7 +15932,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 19 ****** byStoryTeller07© Arriving home late, Hollie slipped off the dress and hung it up on the coat rack by the front door. The dress would be to hand if she had to answer the door. She shed the panties, meaning to throw them in the utility room from the kitchen. Hearing her master in the kitchen she walked in to assume a submissive pose.  
+  
+
+===
+
+Arriving home late, Hollie slipped off the dress and hung it up on the coat rack by the front door. The dress would be to hand if she had to answer the door. She shed the panties, meaning to throw them in the utility room from the kitchen. Hearing her master in the kitchen she walked in to assume a submissive pose.  
 
   "Your slave is home master, ready to serve your every wish," she sincerely said.  
 
@@ -15732,7 +16102,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 19 ****** byStoryTeller07© Chapter 19 
+ 
+
+===
+
+Chapter 19 
 
  A new master for the teacher 
 
@@ -15924,7 +16298,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 19 ****** byStoryTeller07© Arriving home late, Hollie slipped off the dress and hung it up on the coat rack by the front door. The dress would be to hand if she had to answer the door. She shed the panties, meaning to throw them in the utility room from the kitchen. Hearing her master in the kitchen she walked in to assume a submissive pose. 
+ 
+
+===
+
+Arriving home late, Hollie slipped off the dress and hung it up on the coat rack by the front door. The dress would be to hand if she had to answer the door. She shed the panties, meaning to throw them in the utility room from the kitchen. Hearing her master in the kitchen she walked in to assume a submissive pose. 
 
  "Your slave is home master, ready to serve your every wish," she sincerely said. 
 
@@ -16092,7 +16470,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 20 ****** byStoryTeller07© Chapter 20  
+  
+
+===
+
+Chapter 20  
 
   Hollie is moved on  
 
@@ -16296,7 +16678,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 20 ****** byStoryTeller07© She wanted to shout and struggle, only just holding back the impulse.  
+  
+
+===
+
+She wanted to shout and struggle, only just holding back the impulse.  
 
   He pulled her mouth open, and she compliantly let him gag her. A blindfold completed her physical subjugation. Was he at last revealing a wild side? Was this what he wanted to do to her all along? He pulled her slowly along the carpet so as not to burn her naked flesh.  
 
@@ -16504,7 +16890,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 20 ****** byStoryTeller07© Rachael wore expensive designer dresses to society balls, charity events, and official government events entertaining foreign dignitaries. Dressed as a whore for this young man was both humiliating and exciting. She was standing before him, buzzing with sexual tension.  
+  
+
+===
+
+Rachael wore expensive designer dresses to society balls, charity events, and official government events entertaining foreign dignitaries. Dressed as a whore for this young man was both humiliating and exciting. She was standing before him, buzzing with sexual tension.  
 
   She could see she had his full attention. He was looking her over, deciding what to do with her. She was prepared to do anything her master cared to demand. However demeaning and disgusting, she would submit to his demands. She needed to feel his cock inside her, so hoped he would eventually fuck her.  
 
@@ -16592,7 +16982,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 20 ****** byStoryTeller07© Chapter 20 
+ 
+
+===
+
+Chapter 20 
 
  Hollie is moved on 
 
@@ -16792,7 +17186,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 20 ****** byStoryTeller07© She wanted to shout and struggle, only just holding back the impulse. 
+ 
+
+===
+
+She wanted to shout and struggle, only just holding back the impulse. 
 
  He pulled her mouth open, and she compliantly let him gag her. A blindfold completed her physical subjugation. Was he at last revealing a wild side? Was this what he wanted to do to her all along? He pulled her slowly along the carpet so as not to burn her naked flesh. 
 
@@ -16998,7 +17396,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 20 ****** byStoryTeller07© Rachael wore expensive designer dresses to society balls, charity events, and official government events entertaining foreign dignitaries. Dressed as a whore for this young man was both humiliating and exciting. She was standing before him, buzzing with sexual tension. 
+ 
+
+===
+
+Rachael wore expensive designer dresses to society balls, charity events, and official government events entertaining foreign dignitaries. Dressed as a whore for this young man was both humiliating and exciting. She was standing before him, buzzing with sexual tension. 
 
  She could see she had his full attention. He was looking her over, deciding what to do with her. She was prepared to do anything her master cared to demand. However demeaning and disgusting, she would submit to his demands. She needed to feel his cock inside her, so hoped he would eventually fuck her. 
 
@@ -17088,7 +17490,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 21 ****** byStoryTeller07© Chapter 21  
+  
+
+===
+
+Chapter 21  
 
   Hollie is rescued  
 
@@ -17292,7 +17698,11 @@
 
  
 
-  ****** Teacher Is Mistaken Ch. 21 ****** byStoryTeller07© He examined the new trainee thoroughly. Once satisfied she had been set up for the machine, he stepped out of the cage, and locked the door behind him. A control panel was flipped open to make the settings live. Now all he had to do was let the machine take over.  
+  
+
+===
+
+He examined the new trainee thoroughly. Once satisfied she had been set up for the machine, he stepped out of the cage, and locked the door behind him. A control panel was flipped open to make the settings live. Now all he had to do was let the machine take over.  
 
   It had taken a long time to build the machinery. A gradual accumulation of experience and parts was needed, until he had a full working training machine. The hum of idle machinery was a pleasant background noise. In the dark cellar he waited for the machine to wake the trainee.  
 
@@ -17366,7 +17776,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 21 ****** byStoryTeller07© Chapter 21 
+ 
+
+===
+
+Chapter 21 
 
  Hollie is rescued 
 
@@ -17568,7 +17982,11 @@
 
  
 
- ****** Teacher Is Mistaken Ch. 21 ****** byStoryTeller07© He examined the new trainee thoroughly. Once satisfied she had been set up for the machine, he stepped out of the cage, and locked the door behind him. A control panel was flipped open to make the settings live. Now all he had to do was let the machine take over. 
+ 
+
+===
+
+He examined the new trainee thoroughly. Once satisfied she had been set up for the machine, he stepped out of the cage, and locked the door behind him. A control panel was flipped open to make the settings live. Now all he had to do was let the machine take over. 
 
  It had taken a long time to build the machinery. A gradual accumulation of experience and parts was needed, until he had a full working training machine. The hum of idle machinery was a pleasant background noise. In the dark cellar he waited for the machine to wake the trainee. 
 

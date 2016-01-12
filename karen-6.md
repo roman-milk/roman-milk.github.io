@@ -1,8 +1,14 @@
+Karen
+=====
 #1 
 
  
 
- ****** Karen ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
 
  Copyright 1999,2000 by E. Z. Riter. Please! Give me your comments! 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** Karen ****** byE.Z.Riter© "Don't fight me. I'll leave you and George homeless and penniless unless you do exactly as I want. Karen, I want you on your knees. I want your obedience. I want your surrender." 
+ 
+
+===
+
+"Don't fight me. I'll leave you and George homeless and penniless unless you do exactly as I want. Karen, I want you on your knees. I want your obedience. I want your surrender." 
 
  "George would rather lose everything then have me give myself to you," I said weakly. George's words rang in my ears. 'Give Eric whatever he wants,' he'd said. Did George know that meant me? Was he trading me for his financial future? No. He couldn't mean that. Could he see I wanted Eric? Was he giving me permission to have an affair? Why had he told me to dress in something nicer? Did he know? 
 
@@ -438,7 +448,11 @@
 
  
 
- ****** Karen ****** byE.Z.Riter© You know he'll win, why are you fighting? The voice inside my head said. Yes, I know it. I want him to take me. I want to surrender. Why am I resisting? 
+ 
+
+===
+
+You know he'll win, why are you fighting? The voice inside my head said. Yes, I know it. I want him to take me. I want to surrender. Why am I resisting? 
 
  "Eric, please," I begged, my tear filled eyes on him. 
 

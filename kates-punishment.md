@@ -1,8 +1,14 @@
+Kate's Punishment Ch. 01
+========================
 #1 
 
  
 
- ****** Kate's Punishment Ch. 01 ****** bytom6432© (This is a fantasy. All characters over the age of 18. The story was an idea from a friend, who asked if I would write it. She helped develop the story and edited it; however, any mistakes are my responsibility. The story contains spanking, humiliation and diapers, if this does not interest you please do not read it.) 
+ 
+
+===
+
+(This is a fantasy. All characters over the age of 18. The story was an idea from a friend, who asked if I would write it. She helped develop the story and edited it; however, any mistakes are my responsibility. The story contains spanking, humiliation and diapers, if this does not interest you please do not read it.) 
 
  =================================== 
 

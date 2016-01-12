@@ -1,8 +1,14 @@
+Sister Mary
+===========
 #1 
 
  
 
- ****** Sister Mary ****** byStoryTeller07© "Reverend mother, do you think Sister Mary is the right one to teach the boys in that class?" Sister Teresa asked. 
+ 
+
+===
+
+"Reverend mother, do you think Sister Mary is the right one to teach the boys in that class?" Sister Teresa asked. 
 
  "If you mean is she qualified, the answer would have to be no. Did you have anyone else in mind?" Reverend mother asked. 
 
@@ -268,7 +274,11 @@
 
  
 
- ****** Sister Mary ****** byStoryTeller07© "Is it working?" she asked. 
+ 
+
+===
+
+"Is it working?" she asked. 
 
  "Yes," he hoarsely answered. "I think so. Shall I rub the lips harder?" he asked. 
 
@@ -364,7 +374,11 @@
 
  
 
- ****** Sister Mary Ch. 02 ****** byStoryTeller07© Learning about sex 
+ 
+
+===
+
+Learning about sex 
 
  Sister Mary stopped one of her students, and said, 'James, I wonder if you could help me. It's about the lesson this afternoon.' 
 
@@ -606,7 +620,11 @@
 
  
 
- ****** Sister Mary Ch. 02 ****** byStoryTeller07© A stern look at each of them was meant to drive the point home. 
+ 
+
+===
+
+A stern look at each of them was meant to drive the point home. 
 
  'What is this important part here?' she asked. 
 

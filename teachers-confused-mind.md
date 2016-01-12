@@ -1,8 +1,14 @@
+Teacher's Confused Mind Ch. 01
+==============================
 #1 
 
  
 
- ****** Teacher's Confused Mind Ch. 01 ****** bysadkins116© Thanks for taking the time to read this story. It is a fabrication of my mind and is strictly fantasy and should be treated as such. All persons portrayed are above the age of 18. I want to thank the editor Scorpius1945 who worked hard to clean up my scribblings. As usual feedback is welcomed both positive and negative. Please if anything offends you please move on. I have completed the first 12 chapters and expect to complete it in 14. I will continue to post new chapters every few days unless it is not received well and then it doesn't matter. 
+ 
+
+===
+
+Thanks for taking the time to read this story. It is a fabrication of my mind and is strictly fantasy and should be treated as such. All persons portrayed are above the age of 18. I want to thank the editor Scorpius1945 who worked hard to clean up my scribblings. As usual feedback is welcomed both positive and negative. Please if anything offends you please move on. I have completed the first 12 chapters and expect to complete it in 14. I will continue to post new chapters every few days unless it is not received well and then it doesn't matter. 
 
  ***** 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 02 ****** bysadkins116© This is a continuing story about two teachers that are being subject to a cruel revenge from an old friend that is seeking revenge. You should probably read chapter one to understand the plot and characters. But it isn't necessary. All persons depicted in here are over the age of 18 and any similarity to anyone is purely accidental. This is a work of fantasy and should be treated as such. I would like to thank my editor who keeps trying to teach me English. Maybe by this time next year I'll finally get it. Please give me feedback. I can't get better if I don't know what I'm doing wrong or right for that matter. 
+ 
+
+===
+
+This is a continuing story about two teachers that are being subject to a cruel revenge from an old friend that is seeking revenge. You should probably read chapter one to understand the plot and characters. But it isn't necessary. All persons depicted in here are over the age of 18 and any similarity to anyone is purely accidental. This is a work of fantasy and should be treated as such. I would like to thank my editor who keeps trying to teach me English. Maybe by this time next year I'll finally get it. Please give me feedback. I can't get better if I don't know what I'm doing wrong or right for that matter. 
 
  ***** 
 
@@ -334,7 +344,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 03 ****** bysadkins116© Beth sat in the cab, her mind confused. She had no idea on how she was going to survive. Susan had total control over her body and now her mind was following wanting to beg her enemy for release. When they arrived at the hotel, the women piled out and walked into the lobby. Beth was clutching her body trying to cover as much as she could. The dress left little to the imagination. Susan looked over at her and moaned as she said, "Slut, put your hands down. You need to show off that pretty dress, and stand up straight. Push out those tits. If you're going to show them be proud about it." 
+ 
+
+===
+
+Beth sat in the cab, her mind confused. She had no idea on how she was going to survive. Susan had total control over her body and now her mind was following wanting to beg her enemy for release. When they arrived at the hotel, the women piled out and walked into the lobby. Beth was clutching her body trying to cover as much as she could. The dress left little to the imagination. Susan looked over at her and moaned as she said, "Slut, put your hands down. You need to show off that pretty dress, and stand up straight. Push out those tits. If you're going to show them be proud about it." 
 
  Beth's eyes grew wide as her hands dropped immediately and she stood up straight and proudly displayed her tits. Once again two more pulses flashed out from her cunt and again she sprayed more fluids down her legs. Her shoes were now soaked with her pussy juice. 
 
@@ -454,7 +468,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 03 ****** bysadkins116© Beth woke up in a darken theater not really sure where she was. Her body, especially her mouth and throat, were sore, as were her knees. But she was no longer aroused. Her mind was clear and she felt in control again. As she sat up from the floor, she looked around her in the dim light. She was covered in cum and sitting in a puddle of god knows what. She tried to remember where her clothes were as she tried to stand. When she looked at the seats she remembered where she was and what she just did. However she didn't cry. She made the decision to do this and she now had relief. She slowly walked up the isle towards the door. There was one last task she had to do before she could leave. 
+ 
+
+===
+
+Beth woke up in a darken theater not really sure where she was. Her body, especially her mouth and throat, were sore, as were her knees. But she was no longer aroused. Her mind was clear and she felt in control again. As she sat up from the floor, she looked around her in the dim light. She was covered in cum and sitting in a puddle of god knows what. She tried to remember where her clothes were as she tried to stand. When she looked at the seats she remembered where she was and what she just did. However she didn't cry. She made the decision to do this and she now had relief. She slowly walked up the isle towards the door. There was one last task she had to do before she could leave. 
 
  
 
@@ -488,7 +506,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 04-05 ****** bysadkins116© Mary arrived about 30 minutes after Beth called. When she saw Beth she couldn't believe how bad she looked. She was completely covered in cum. Her hair was plastered to her face. Her make-up was smeared and she could hardly walk, she looked like she had something shoved up her ass. What was surprising was she wasn't crying. Her head hung low and her shoulders slumped. She opened the door and gingerly sat down. 
+ 
+
+===
+
+Mary arrived about 30 minutes after Beth called. When she saw Beth she couldn't believe how bad she looked. She was completely covered in cum. Her hair was plastered to her face. Her make-up was smeared and she could hardly walk, she looked like she had something shoved up her ass. What was surprising was she wasn't crying. Her head hung low and her shoulders slumped. She opened the door and gingerly sat down. 
 
  "Are you Ok?" Mary looked at the defeated woman sitting beside her. 
 
@@ -642,7 +664,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 04-05 ****** bysadkins116© What Beth didn't see, was the large black man that pissed on her face walked up between her legs, his massive cock jutting out from him like a sword, bouncing back and forth. Even Susan gasped at the size of his organ. She watched as he lined it up at her abused cunt and shoved it in. Beth's entire body went rigid as the massive cock felt like someone had inserted a baseball bat deep in her body. As he slowly pulled it back and pushed it in each time a little further, till it pushed to her cervix bumping it each time. Beth screamed on the cock in her mouth as the pain from deep within her pushed out to her brain. As the massive man started to stroke his cock faster and faster the pain lessened and the pleasure increased as Beth was now fucking the massive cock deeper and deeper inside her body. She needed it to fuck her like no other cock had before. When he finally let loose and his cum exploded inside her Beth collapsed on the bench totally drained. Her strength drained but still needing one more fuck. 
+ 
+
+===
+
+What Beth didn't see, was the large black man that pissed on her face walked up between her legs, his massive cock jutting out from him like a sword, bouncing back and forth. Even Susan gasped at the size of his organ. She watched as he lined it up at her abused cunt and shoved it in. Beth's entire body went rigid as the massive cock felt like someone had inserted a baseball bat deep in her body. As he slowly pulled it back and pushed it in each time a little further, till it pushed to her cervix bumping it each time. Beth screamed on the cock in her mouth as the pain from deep within her pushed out to her brain. As the massive man started to stroke his cock faster and faster the pain lessened and the pleasure increased as Beth was now fucking the massive cock deeper and deeper inside her body. She needed it to fuck her like no other cock had before. When he finally let loose and his cum exploded inside her Beth collapsed on the bench totally drained. Her strength drained but still needing one more fuck. 
 
  When the cock in her mouth released its load down her throat and pulled out, Beth weakly begged, "Please someone fuck my ass. I just need one more fuck to cum." 
 
@@ -812,7 +838,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 04-05 ****** bysadkins116© Trish walked down the hallway towards her classroom. Her body much calmer but still very aroused. The session with Beth helped a lot but didn't totally make the craving go away. When she walked in most of the students didn't even look twice at her, except Josh Franklin. He was watching her closely. "She remembered seeing him as she headed to Beth's room, did he suspect anything?" 
+ 
+
+===
+
+Trish walked down the hallway towards her classroom. Her body much calmer but still very aroused. The session with Beth helped a lot but didn't totally make the craving go away. When she walked in most of the students didn't even look twice at her, except Josh Franklin. He was watching her closely. "She remembered seeing him as she headed to Beth's room, did he suspect anything?" 
 
  As soon as she started class, she watched Josh open his laptop and it looked like he was taking notes, but when he choked she looked at him and he smiled a wicked smile at her. Trish cringed at the thought of Josh discovering what she and Beth did over lunch. 
 
@@ -866,7 +896,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 06-07 ****** bysadkins116© Josh left school and rushed home as fast as he could. He ran past his mom with barely a hello. When he got to his room he booted up the laptop and cued up the video. It took a minute for the video to start but when it did he almost came in his pants. There in hi-def and living color was his history teacher on her knees sucking a guy's cock. Not only that but she was totally naked. As soon as she finished the first man a second replaced him. Soon she was jacking off two other guys while still sucking a third. This went on and on till the object of his desire was covered in cum and writhing on the floor in an orgasm. He was about to turn it off when the video changed. There was Ms Martin begging a man to fuck her ass for her clothes. Josh watched with rapt attention as she finished and sucked the same guy for some change to make a telephone call. By now Josh had his cock out and was finishing up on his third climax. He sat there thinking of all the things he was going to make her do when the video changed again. 
+ 
+
+===
+
+Josh left school and rushed home as fast as he could. He ran past his mom with barely a hello. When he got to his room he booted up the laptop and cued up the video. It took a minute for the video to start but when it did he almost came in his pants. There in hi-def and living color was his history teacher on her knees sucking a guy's cock. Not only that but she was totally naked. As soon as she finished the first man a second replaced him. Soon she was jacking off two other guys while still sucking a third. This went on and on till the object of his desire was covered in cum and writhing on the floor in an orgasm. He was about to turn it off when the video changed. There was Ms Martin begging a man to fuck her ass for her clothes. Josh watched with rapt attention as she finished and sucked the same guy for some change to make a telephone call. By now Josh had his cock out and was finishing up on his third climax. He sat there thinking of all the things he was going to make her do when the video changed again. 
 
  This time it was Ms Collins and Ms Martin, both were naked lying on a large bed, with Ms Martin's face buried in Ms Collins crotch. Both women were moaning as Ms Collins hands were on the back of Ms Martins head, forcing her face deep into her cunt. Josh watched with rapt attention as his cock was again hard as a rock. After about 15 minutes and what appeared to be at least 3 orgasms, Ms Collins released Ms Martin's head and shoved her away. Ms Martin rolled over and crawled off the bed. As she walked past the camera, Josh got a good view of her face, with cum and saliva dripping from her chin and her face was glistening with Ms Collins fluids. 
 
@@ -1018,7 +1052,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 06-07 ****** bysadkins116© Josh sat in English class as Ms Collins broke down today's assignment. Josh noticed that her dress was wrinkled and there was a small wet spot on the back. If you looked closely you could just see her nipples poking through the thin material. He watched as she scanned the room looking to see if anyone could be their blackmailer. He was careful not to stare and only stole glances and never looked in her eyes. 
+ 
+
+===
+
+Josh sat in English class as Ms Collins broke down today's assignment. Josh noticed that her dress was wrinkled and there was a small wet spot on the back. If you looked closely you could just see her nipples poking through the thin material. He watched as she scanned the room looking to see if anyone could be their blackmailer. He was careful not to stare and only stole glances and never looked in her eyes. 
 
  Josh called Susan as soon as school ended for the day and reported his observations. He even included the video of the teachers fucking in their classroom. Susan was impressed with his computer savvy and thanked him for sharing. 
 
@@ -1180,7 +1218,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 06-07 ****** bysadkins116© As soon as the bell rang to end class, Beth shooed the kids out and waited for Trish to show up. Checking to make sure the door was closed; she went to her desk and unbuttoned her blouse. Just as she dropped it on her desk and opened her bra, the door opened and who Beth thought was Trish was instead Miss Jenkins from next door. 
+ 
+
+===
+
+As soon as the bell rang to end class, Beth shooed the kids out and waited for Trish to show up. Checking to make sure the door was closed; she went to her desk and unbuttoned her blouse. Just as she dropped it on her desk and opened her bra, the door opened and who Beth thought was Trish was instead Miss Jenkins from next door. 
 
  "Oh God, I'm sorry!" Miss Jenkins called when she saw Beth almost topless. Beth gasped as she dropped her bra and stood bare chested in front of another member of the faculty. As Miss Jenkins turned to leave, Beth called out, "Wait, I'm sorry but my bra was hurting and I needed to take it off. Please, I'm sorry, what do you want, Miss Jenkins?" Beth asked as she slipped her blouse back on. 
 
@@ -1212,7 +1254,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 08-09 ****** bysadkins116© I want to thank all of you for reading my latest story. I hope you enjoy the rest of the story. Please keep in mind that this is fantasy and should not happen in real life. If this isn't your cup of tea, so to speak, please move on. As with all amateur writers on this site, I welcome any feedback and comments. However, if you can't offer constructive criticism don't bother. All characters in this story are above the age of 18. 
+ 
+
+===
+
+I want to thank all of you for reading my latest story. I hope you enjoy the rest of the story. Please keep in mind that this is fantasy and should not happen in real life. If this isn't your cup of tea, so to speak, please move on. As with all amateur writers on this site, I welcome any feedback and comments. However, if you can't offer constructive criticism don't bother. All characters in this story are above the age of 18. 
 
  I would also like to thank Scorpius 1945 for his excellent job of editing. He is making me a better writer. 
 
@@ -1366,7 +1412,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 08-09 ****** bysadkins116© As Beth finished her third drink, she slipped off into an uneasy sleep again filled with erotic dreams. Before she knew it, she heard the doorbell ring and jumped off the couch. Her head a little woozy from the alcohol and still in her thin robe. "Oh no Linda is here and I'm not ready," she said out loud. The knock was louder now and Beth knew she couldn't delay answering the door. She walked over and opened it to a surprised Linda Jenkins. 
+ 
+
+===
+
+As Beth finished her third drink, she slipped off into an uneasy sleep again filled with erotic dreams. Before she knew it, she heard the doorbell ring and jumped off the couch. Her head a little woozy from the alcohol and still in her thin robe. "Oh no Linda is here and I'm not ready," she said out loud. The knock was louder now and Beth knew she couldn't delay answering the door. She walked over and opened it to a surprised Linda Jenkins. 
 
  "Oh I see you dressed for our meeting. Do you always greet guests almost naked?" Linda asked. 
 
@@ -1554,7 +1604,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 08-09 ****** bysadkins116© Susan, working quickly put Beth under and instructed her to answer all questions truthfully and with only yes or no answers. 
+ 
+
+===
+
+Susan, working quickly put Beth under and instructed her to answer all questions truthfully and with only yes or no answers. 
 
  "Is there someone else in the room with you and Trish?" 
 
@@ -1754,7 +1808,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 10-11 ****** bysadkins116© Trish made it home in record time, her body now calm and not aroused. She got her purse back, and it seemed like Susan was keeping the blackmailer at least a little under control. She tossed her keys on the counter and headed for the bathroom. She needed a bubble bath and a good night's sleep. 
+ 
+
+===
+
+Trish made it home in record time, her body now calm and not aroused. She got her purse back, and it seemed like Susan was keeping the blackmailer at least a little under control. She tossed her keys on the counter and headed for the bathroom. She needed a bubble bath and a good night's sleep. 
 
  Josh arrived at his house just after 11. Karen had drug him to her house and fucked him over and over. He was dead tired but all his thoughts were about tomorrow. His parents yelled a little but he managed to calm them down. Soon he was in his room memorizing his line. He wanted to make sure he got it right. Suddenly his cell beeped, it was a message from Susan, 'Call me.' 
 
@@ -1914,7 +1972,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 10-11 ****** bysadkins116© "Very nice Ms Collins, now bring me your dress, I have a question." The voice called again. 
+ 
+
+===
+
+"Very nice Ms Collins, now bring me your dress, I have a question." The voice called again. 
 
  Trish knelt down and picked up her dress and walked down the aisle towards the boy in the back. As she walked past each student, they took advantage of the opportunity to touch her body. Each touch stoked her arousal till by the time she made it back to him she was on the edge of an orgasm. 
 
@@ -2084,7 +2146,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 10-11 ****** bysadkins116© This time she didn't hear anything below or above her, when she slowly opened the door. Peeking around the door, she saw a girl sitting at a table by herself. But she was facing the other way and her head buried in a book. No seeing anyone else, she slipped through the door and rushed over to the bookshelves and out of sight of the girl. When she was out of sight she calmed down a little, but with the girl sitting where she was, she needed to find somewhere she could take a picture showing her on the floor. Looking at the back of the room, she saw some darkened offices. Hoping that one of them indicated the third floor, she made the long trip to the back of the room. Unfortunately the further she went back, the more people she saw. It was getting harder and harder to stay unseen. When she finally made it to the back wall there was an emergency exit plan posted between the offices. Beth breathed a sigh and quickly set up the camera and snapped her picture. Not wanting to wait any longer, she ran back to the front and rushed out the door to the stairs. 
+ 
+
+===
+
+This time she didn't hear anything below or above her, when she slowly opened the door. Peeking around the door, she saw a girl sitting at a table by herself. But she was facing the other way and her head buried in a book. No seeing anyone else, she slipped through the door and rushed over to the bookshelves and out of sight of the girl. When she was out of sight she calmed down a little, but with the girl sitting where she was, she needed to find somewhere she could take a picture showing her on the floor. Looking at the back of the room, she saw some darkened offices. Hoping that one of them indicated the third floor, she made the long trip to the back of the room. Unfortunately the further she went back, the more people she saw. It was getting harder and harder to stay unseen. When she finally made it to the back wall there was an emergency exit plan posted between the offices. Beth breathed a sigh and quickly set up the camera and snapped her picture. Not wanting to wait any longer, she ran back to the front and rushed out the door to the stairs. 
 
  When she dashed down the first flight and made the turn for the first floor, she ran into two young women and a man. She stopped in her tracks and stuttered, "E...E...Excuse me, I'm sorry," and she tried to rush past. 
 
@@ -2144,7 +2210,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 12-13 ****** bysadkins116© We are coming down the home stretch as there are only two more chapter to the end. I want to thank all of you who have sent me feedback. All of it has been positive and that is unusual. Normally there is a hater or two. I want to thank Scorpious1945 for his help in editing. He has made me a better writer. I welcome any comments and criticisms. Hopefully you will enjoy the latest installment to the confused teacher's journey. 
+ 
+
+===
+
+We are coming down the home stretch as there are only two more chapter to the end. I want to thank all of you who have sent me feedback. All of it has been positive and that is unusual. Normally there is a hater or two. I want to thank Scorpious1945 for his help in editing. He has made me a better writer. I welcome any comments and criticisms. Hopefully you will enjoy the latest installment to the confused teacher's journey. 
 
  ***** 
 
@@ -2350,7 +2420,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 12-13 ****** bysadkins116© Beth started to complain, but her desire for relief over rode her voice. She grabbed the egg and slid it easily into her core. 
+ 
+
+===
+
+Beth started to complain, but her desire for relief over rode her voice. She grabbed the egg and slid it easily into her core. 
 
  Josh continued, "Then I want you to go to Spencer's Gifts and browse around the store for at least ten minutes. Then I want you to buy the biggest sex toy you can find and carry it out without a bag. If you do this I will guarantee you some relief." 
 
@@ -2496,7 +2570,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 12-13 ****** bysadkins116© "Thanks, that's a good idea. But I don't think she brought one in." 
+ 
+
+===
+
+"Thanks, that's a good idea. But I don't think she brought one in." 
 
  "I have an idea, how about these." She raised her dress and shimmied out of her panties. 
 
@@ -2606,7 +2684,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 14-15 ****** bysadkins116© I want to thank all who commented and sent me feedback on this series. I really didn't receive any negative comments. These are the last chapters and I hope you enjoy them. I want to again thank Scorpious1945 for his editing prowess. He really help me become a better writer. Keep in mind that this story is just a fantasy. Not only are the characters not based on any real persons, but women or men for that matter should never be subjected to such humiliations. 
+ 
+
+===
+
+I want to thank all who commented and sent me feedback on this series. I really didn't receive any negative comments. These are the last chapters and I hope you enjoy them. I want to again thank Scorpious1945 for his editing prowess. He really help me become a better writer. Keep in mind that this story is just a fantasy. Not only are the characters not based on any real persons, but women or men for that matter should never be subjected to such humiliations. 
 
  ***** 
 
@@ -2758,7 +2840,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 14-15 ****** bysadkins116© Soon all three slaves were standing in the middle of the room. Each had their left hand held above their head. They could move around a little but couldn't move away from the other two. 
+ 
+
+===
+
+Soon all three slaves were standing in the middle of the room. Each had their left hand held above their head. They could move around a little but couldn't move away from the other two. 
 
  Linda and Beth were very nervous, their Master and Mistresses hadn't really beat them much, only a little spanking. Trish on the other hand was excited. Her training had been nothing but pain, so much so, she knew that she would win this. Already her cunt was pulsing and her nipples were hard as rocks. She wanted to get started. 
 
@@ -2914,7 +3000,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 14-15 ****** bysadkins116© Linda screamed when her body convulsed as waves after waves of pleasure coursed to her extremities. Her arms and legs lying limply beside her, her strength sapped from the effort and orgasm. 
+ 
+
+===
+
+Linda screamed when her body convulsed as waves after waves of pleasure coursed to her extremities. Her arms and legs lying limply beside her, her strength sapped from the effort and orgasm. 
 
  Beth rolled off her friends, she looked over at Josh and beamed, "Did I please you Master?" 
 
@@ -3102,7 +3192,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 14-15 ****** bysadkins116© "That would be perfect," Linda answered with a big smile. 
+ 
+
+===
+
+"That would be perfect," Linda answered with a big smile. 
 
  Susan put Linda back under and brought Trish around the same way as Linda. 
 
@@ -3306,7 +3400,11 @@
 
  
 
- ****** Teacher's Confused Mind Ch. 14-15 ****** bysadkins116© Karen and Trish worked out the rules and Trish was happily serving her Mistress as her pain slut, but now Karen was deeply in love with her. No longer was it just pain, but there was a healthy dose of love. 
+ 
+
+===
+
+Karen and Trish worked out the rules and Trish was happily serving her Mistress as her pain slut, but now Karen was deeply in love with her. No longer was it just pain, but there was a healthy dose of love. 
 
  Shortly after Brenda and Linda parted ways, Karen introduced Linda to Trish's neighbor Amber. Amber had been a regular visitor across the hall after that first meeting on the stairs. Karen and Amber enjoyed many evenings playing with Trish. But while Karen loved having Amber over, she knew Trish wasn't enough to satisfy both of them. When Karen learned that Linda was alone, she invited her over to Trish's apartment and introduced them. It took only a couple of weeks till Linda was a full time slave serving Amber. Now the two Mistresses enjoyed playing with their two slaves. 
 

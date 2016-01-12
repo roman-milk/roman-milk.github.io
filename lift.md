@@ -1,8 +1,14 @@
+Lift
+====
 #1 
 
  
 
- ****** Lift ****** byStoryTeller07© "Damn! I'm on holiday I can't spend valuable time stuck in a lift," James exclaimed. 
+ 
+
+===
+
+"Damn! I'm on holiday I can't spend valuable time stuck in a lift," James exclaimed. 
 
  "You're wrong young man," Nora stated. "One, you're on vacation not on holiday. Two, this is an elevator not a lift. Three, WE are stuck not just you. We are definitely stuck," she sighed, counting his errors on three fingers. 
 
@@ -220,7 +226,11 @@
 
  
 
- ****** Lift ****** byStoryTeller07© "Get dressed quick!" she told him while pulling on her clothes. "How do I look?" she asked. 
+ 
+
+===
+
+"Get dressed quick!" she told him while pulling on her clothes. "How do I look?" she asked. 
 
  "Wonderful!" he beamed. 
 

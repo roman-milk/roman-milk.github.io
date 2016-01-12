@@ -1,8 +1,14 @@
+Pet Girl Detective Ch. 01
+=========================
 #1 
 
  
 
- ****** Pet Girl Detective Ch. 01 ****** byStoryTeller07© Chapter 01 
+ 
+
+===
+
+Chapter 01 
 
  Angela is trapped 
 
@@ -180,7 +186,11 @@
 
  
 
- ****** Pet Girl Detective Ch. 01 ****** byStoryTeller07© "I'll teach my new pet to perform tricks," he whispered, in her ear. 
+ 
+
+===
+
+"I'll teach my new pet to perform tricks," he whispered, in her ear. 
 
  He described some of the little tricks he would teach her. Silly harmless pet tricks to demonstrate her new position in life, that she was just a silly little dumb pet. She didn't want to believe this either, though of course, when she became an obedient pet, completely submissive, she would be performing any thing he wanted. 
 
@@ -188,7 +198,11 @@
 
  
 
- ****** Pet Girl Detective Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  Forced into a Cage 
 
@@ -408,7 +422,11 @@
 
  
 
- ****** Pet Girl Detective Ch. 02 ****** byStoryTeller07© He patted her head. She looked over her shoulder at him, with smoldering half closed eyes. She swayed her hips, wagging her tail. He stood up with the leash dangling loosely in his hand. The look of dismay on her face told him all he needed to know. She wasn't going to be as much of a challenge as he first thought. 
+ 
+
+===
+
+He patted her head. She looked over her shoulder at him, with smoldering half closed eyes. She swayed her hips, wagging her tail. He stood up with the leash dangling loosely in his hand. The look of dismay on her face told him all he needed to know. She wasn't going to be as much of a challenge as he first thought. 
 
  He tugged on the leash for her to reluctantly follow. This time there was no verbal protest, even though she was being led back to her cage. 
 

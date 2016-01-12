@@ -1,8 +1,14 @@
+Jenny Ch. 01
+============
 #1 
 
  
 
- ****** Jenny Ch. 01 ****** byStoryTeller07© Brian was staying in his son's house, lying low from a money lender, but it hadn't been such an easy option as imagined. Jim, his son, had left on a business trip, touring sub-offices of the bank he worked for, leaving his daughter-in-law to nag him. Knowing Jim would be away for awhile, Brian decided to try and get Jenny to stop the constant backbiting. 
+ 
+
+===
+
+Brian was staying in his son's house, lying low from a money lender, but it hadn't been such an easy option as imagined. Jim, his son, had left on a business trip, touring sub-offices of the bank he worked for, leaving his daughter-in-law to nag him. Knowing Jim would be away for awhile, Brian decided to try and get Jenny to stop the constant backbiting. 
 
  Brian got up early, unpacking some groceries, purchased in town the day before. He wondered if his prissy daughter-in-law would remain so stuck up, giving him a hard time, after a special breakfast. 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** Jenny Ch. 01 ****** byStoryTeller07© Brian was enjoying the look of consternation on her face. She looked like a frightened creature not knowing which way to turn. Like a cat, he would play with his prey a little longer, before putting it out of its misery. By her reactions, he surmised she was only now finding out how sexy the underwear was. 
+ 
+
+===
+
+Brian was enjoying the look of consternation on her face. She looked like a frightened creature not knowing which way to turn. Like a cat, he would play with his prey a little longer, before putting it out of its misery. By her reactions, he surmised she was only now finding out how sexy the underwear was. 
 
  "Nice! Very nice, girl! At last you're dressing like an attractive young girl, rather than an old frump. You've got a great figure, so don't hide it, you'll enjoy dressing up," Brian told her. He watched her face change from embarrassment to appreciation. She seemed to lap up the compliments, reacting as though he were rewarding her. 
 
@@ -418,7 +428,11 @@
 
  
 
- ****** Jenny Ch. 01 ****** byStoryTeller07© She felt his cock move up across her lips to prod her stomach, away from where she needed it to be. "No! No! I didn't mean it. Fuck me, please fuck me. Fill me with your lovely big cock! Oh! Please fuck me, I do want you inside me," she wailed. 
+ 
+
+===
+
+She felt his cock move up across her lips to prod her stomach, away from where she needed it to be. "No! No! I didn't mean it. Fuck me, please fuck me. Fill me with your lovely big cock! Oh! Please fuck me, I do want you inside me," she wailed. 
 
  A sudden thrust between her inner lips, into her vagina, felt as though her whole world was being made whole. "Yes! Ride me, make me cum! Ride me you bastard. Fuck my brains out you shit!" she yelled. 
 

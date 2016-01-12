@@ -1,8 +1,14 @@
+Student Teacher Ch. 01
+======================
 #1 
 
  
 
- ****** Student Teacher Ch. 01 ****** byStoryTeller07© (Edited more thoroughly -- but I still need an editor!) 
+ 
+
+===
+
+(Edited more thoroughly -- but I still need an editor!) 
 
  * 
 
@@ -164,7 +170,11 @@
 
  
 
- ****** Student Teacher Ch. 01 ****** byStoryTeller07© Graham pretended to cane Paula and she had squealed, playing at being frightened. The act had been exciting and Jenny had thought about it a lot since then. Last time Graham made love to her he had playfully caught her in a net and for some reason she couldn't fathom, it turned into a wild session. Some of that feeling had returned watching him cane Paula. 
+ 
+
+===
+
+Graham pretended to cane Paula and she had squealed, playing at being frightened. The act had been exciting and Jenny had thought about it a lot since then. Last time Graham made love to her he had playfully caught her in a net and for some reason she couldn't fathom, it turned into a wild session. Some of that feeling had returned watching him cane Paula. 
 
  Mister Chapman looked at her bottom in the tight skirt swaying back and forth, only just able to keep his hands away from the tight buns. "I have time my dear, don't worry," he said, after clearing a dry throat. 
 
@@ -350,7 +360,11 @@
 
  
 
- ****** Student Teacher Ch. 01 ****** byStoryTeller07© "OK! It's a deal. You, do as you are told," she said to Jessie. She was still wary of Paula wondering what she was up to and what she was getting out of it. Perhaps Paula was more of a friend than she thought. A lot of the class surprised her with their support. 
+ 
+
+===
+
+"OK! It's a deal. You, do as you are told," she said to Jessie. She was still wary of Paula wondering what she was up to and what she was getting out of it. Perhaps Paula was more of a friend than she thought. A lot of the class surprised her with their support. 
 
  "Graham, you go along with them. Keep an eye on them both, make sure this one doesn't slip away," she told him, while pointing at Jessie. 
 
@@ -358,7 +372,11 @@
 
  
 
- ****** Student Teacher Ch. 02 ****** byStoryTeller07© Chapter 2 
+ 
+
+===
+
+Chapter 2 
 
  Dressed as a slut by a student 
 
@@ -526,7 +544,11 @@
 
  
 
- ****** Student Teacher Ch. 02 ****** byStoryTeller07© She smiled to herself on seeing the smallest of damp patches besmirch the new pristine panties. Graham's reaction pleased her more. 
+ 
+
+===
+
+She smiled to herself on seeing the smallest of damp patches besmirch the new pristine panties. Graham's reaction pleased her more. 
 
  Before letting the curtain drop on the opening show she let him take a last look at the developing nipples. "The assistant underestimated her age," Paula lied, as it was she who specified the clothes, letting the assistant run around fetching the right size. 
 
@@ -696,7 +718,11 @@
 
  
 
- ****** Student Teacher Ch. 02 ****** byStoryTeller07© Without Paula's help there was no way she could get the little top back in place. She shrugged her shoulders. Already trampled underfoot she was left without the will to defy her tormentor. "OK! Please, I agree. I'll obey you, I'll be your doll," Jessie murmured. 
+ 
+
+===
+
+Without Paula's help there was no way she could get the little top back in place. She shrugged her shoulders. Already trampled underfoot she was left without the will to defy her tormentor. "OK! Please, I agree. I'll obey you, I'll be your doll," Jessie murmured. 
 
  Paula smiled without the slightest hint of menace and clapped her hands with obvious glee. 
 
@@ -880,7 +906,11 @@
 
  
 
- ****** Student Teacher Ch. 02 ****** byStoryTeller07© "Sweet dreams both," she smiled. The picture upon the dolls face was wonderful. It held a desperate pleading look not to be left alone with him. Yet the eyes glowed bright in anticipation. 
+ 
+
+===
+
+"Sweet dreams both," she smiled. The picture upon the dolls face was wonderful. It held a desperate pleading look not to be left alone with him. Yet the eyes glowed bright in anticipation. 
 
  She dare not speak. She turned away from him drawing up her legs in a protective posture. On doing so she felt a hardness press against her bottom. The thin silk at her crotch protected nothing and it felt as though she were presenting her ass to him. It was the tip of his penis that touched her. The shock was enough to turn her onto her back. 
 
@@ -934,7 +964,11 @@
 
  
 
- ****** Student Teacher Ch. 03 ****** byStoryTeller07© How much more can she take? 
+ 
+
+===
+
+How much more can she take? 
 
  Jessie awoke from an insistent prodding to a shoulder. She opened her eyes to see Paula looking at her smiling brightly. Graham had slid out of bed earlier, not by much as his side of the bed was still warm. It had been a disturbing night, for every time he moved she half woke and even when quickly falling off again sleep was troubled by disturbing dreams. 
 
@@ -1072,7 +1106,11 @@
 
  
 
- ****** Student Teacher Ch. 03 ****** byStoryTeller07© It was ironic being in this position, being told the very thing she might say as a teacher to a naughty student, yet she was the one having to accept it. "I'm so sorry miss. I really am, you can punish me for it but I can't undo it, I wish I could," Jessie said in all sincerity. 
+ 
+
+===
+
+It was ironic being in this position, being told the very thing she might say as a teacher to a naughty student, yet she was the one having to accept it. "I'm so sorry miss. I really am, you can punish me for it but I can't undo it, I wish I could," Jessie said in all sincerity. 
 
  Jessie had stopped wriggling her bottom. The class went very still, quietly straining to hear what was being so earnestly said between teacher and pupil, where it was the teacher obviously apologizing. 
 
@@ -1236,7 +1274,11 @@
 
  
 
- ****** Student Teacher Ch. 03 ****** byStoryTeller07© "I can't reach them and I can't go out there like this! Please, I know it's awful to ask, I hate to ask you, can you, please, pull up my panties," she stammered. She closed her eyes unable to look him in the face for he had a gleam in his eyes that spread to his face giving it the look of a small boy in a sweet shop. 
+ 
+
+===
+
+"I can't reach them and I can't go out there like this! Please, I know it's awful to ask, I hate to ask you, can you, please, pull up my panties," she stammered. She closed her eyes unable to look him in the face for he had a gleam in his eyes that spread to his face giving it the look of a small boy in a sweet shop. 
 
  She would have laughed out loud and broken the spell in one moment longer if she hadn't closed her eyes. He fumbled at holding her skirt up, unable to tackle the two tasks at once. "Here, let me help, give me the hem and I'll hold it up," she said, with a sound to her voice as though it were an every day task. 
 
@@ -1314,7 +1356,11 @@
 
  
 
- ****** Student Teacher Ch. 04 ****** byStoryTeller07© Part One -- a bully picks on the teacher. 
+ 
+
+===
+
+Part One -- a bully picks on the teacher. 
 
  Jenny looked after the class while Jessie sat throughout the period up to lunchtime with her head slumped on a desk. She needed to sleep, to clear her head, but that was impossible with so many dark thoughts clouding her mind. 
 
@@ -1484,7 +1530,11 @@
 
  
 
- ****** Student Teacher Ch. 04 ****** byStoryTeller07© Jenny opened the door and pulled Jessie up off the cardboard the teacher had been laying on. Nothing was said. Paula took her hand and guided her out of the school to the car park. Almost all the cars had driven off home but Jessie didn't notice as she hid her face in long hair. 
+ 
+
+===
+
+Jenny opened the door and pulled Jessie up off the cardboard the teacher had been laying on. Nothing was said. Paula took her hand and guided her out of the school to the car park. Almost all the cars had driven off home but Jessie didn't notice as she hid her face in long hair. 
 
  Paula drove as before with Ben in the front seat looking back keeping an eye on Jessie. 
 
@@ -1616,7 +1666,11 @@
 
  
 
- ****** Student Teacher Ch. 05 ****** byStoryTeller07© Chapter 05 
+ 
+
+===
+
+Chapter 05 
 
  Teacher is humiliated into submission 
 
@@ -1834,7 +1888,11 @@
 
  
 
- ****** Student Teacher Ch. 05 ****** byStoryTeller07© "Get up here, on top," he ordered. 
+ 
+
+===
+
+"Get up here, on top," he ordered. 
 
  With an eagerness, that blatantly revealed how desperate she was, Jessie manoeuvred her sex over him. 
 

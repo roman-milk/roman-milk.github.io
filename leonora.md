@@ -1,8 +1,14 @@
+Leonora Ch. 01
+==============
 #1 
 
  
 
- ****** Leonora Ch. 01 ****** byStoryTeller07© It was the usual Monday morning with Leonora feeling washed out. It was difficult to think straight, though this would soon pass after a second coffee. She looked at the tired eyes staring back at her in the restroom mirror. She made funny faces, stretching the facial muscles in an attempt to ease the signs of weariness. 
+ 
+
+===
+
+It was the usual Monday morning with Leonora feeling washed out. It was difficult to think straight, though this would soon pass after a second coffee. She looked at the tired eyes staring back at her in the restroom mirror. She made funny faces, stretching the facial muscles in an attempt to ease the signs of weariness. 
 
  Standing up straight on tiptoe, pushing back her shoulders in an exaggerated pose a pair of ample breasts were impressively emphasised. Critically examining the image she felt pleased at how trim her figure had become over the past few months. Somehow it had been possible to keep to yet another diet. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Leonora Ch. 01 ****** byStoryTeller07© The woman preparing the drinks was dressed in a corset with suspenders holding sheer black stockings. Her breasts balanced over the top of the corset and her ass was bare. When she bent over Leonora noticed she wasn't wearing panties so felt properly dressed in comparison. 
+ 
+
+===
+
+The woman preparing the drinks was dressed in a corset with suspenders holding sheer black stockings. Her breasts balanced over the top of the corset and her ass was bare. When she bent over Leonora noticed she wasn't wearing panties so felt properly dressed in comparison. 
 
  Nervously she walked back with the tray hoping not to spill the two brandies and two whiskeys. While concentrating hard on keeping the tray balanced she didn't notice the man approach until he spoke. Everyone else was in a huddle around some woman as scantily dressed as she was. 
 
@@ -276,7 +286,11 @@
 
  
 
- ****** Leonora Ch. 02 ****** byStoryTeller07© Rising late Leonora helped the other pets, some younger and some older, prepare for Saturday evening. Leonora hadn't the slightest recollection of serving her group of guests, again and again into the early hours of Saturday morning. 
+ 
+
+===
+
+Rising late Leonora helped the other pets, some younger and some older, prepare for Saturday evening. Leonora hadn't the slightest recollection of serving her group of guests, again and again into the early hours of Saturday morning. 
 
  Jonathan took her to one side preparing her for a guest with particular requirements. After six months of deeply embedded instruction it was simply a matter of telling her the role she was to play. 
 
@@ -486,7 +500,11 @@
 
  
 
- ****** Leonora Ch. 02 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  Still in a daze she let the old man lead her back to the room. He handed her an envelope. She sat on a comfortable chair looking the tray of food. She didn't feel hungry but knew it would help. Propping up the envelope she stared at it while chewing on a fresh date and poured a cup of thick dark coffee. A glass of ice water scented with lemon juice was welcome too. 
 
@@ -526,7 +544,11 @@
 
  
 
- ****** Leonora Ch. 03 ****** byStoryTeller07© Leonora 3 
+ 
+
+===
+
+Leonora 3 
 
  Life as a slave begins 
 

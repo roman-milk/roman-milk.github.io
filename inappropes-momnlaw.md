@@ -1,8 +1,14 @@
+Inappropriate
+=============
 #1 
 
  
 
- ****** Inappropriate ****** bysex4every1© My name is John, I am 38 and happily married for nearly three years now to my lovely wife Susan, who is 32. I am a doctor and have my own practice at home. My wife is an interior decorator, so connections are very important in her line of business. For this reason we host a number of parties every year. This story is about something that happened during one of those parties. 
+ 
+
+===
+
+My name is John, I am 38 and happily married for nearly three years now to my lovely wife Susan, who is 32. I am a doctor and have my own practice at home. My wife is an interior decorator, so connections are very important in her line of business. For this reason we host a number of parties every year. This story is about something that happened during one of those parties. 
 
  My in-laws live close by -- twenty minutes by car -- and are prominent members of the local social society, and so they attend almost every party. Except for the basic pleasantries and chitchat, I had never really talked to my in-laws, Bill and Chrystal. Being a physician, I was barely good enough for their daughter, as they had made clear on several occasions; needless to say that their social status had made them arrogant and condescending. Especially Chrystal who had only one word for everything she disapproved of: inappropriate, whether someone was late for an appointment or they bumped into her without apologizing, everything and everyone was always inappropriate. Since they had their own physician, I didn't see them professionally either, which was fine by me... after all, who wants to see their in-laws naked? 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** Inappropriate Ch. 02 ****** bysex4every1© Nearly two years had passed since the incident with Susan's mom. For the first few weeks after it happened, the incident fueled my lust and my fantasies, but after that it soon faded into a distant memory. As weeks turned into months, it all became a blur and there were times that I asked myself if it had really happened at all. Chrystal had gone back to being a complete bitch within minutes after what happened and had remained that way ever since. I had made no further attempt to be alone with her or make any moves on her. 
+ 
+
+===
+
+Nearly two years had passed since the incident with Susan's mom. For the first few weeks after it happened, the incident fueled my lust and my fantasies, but after that it soon faded into a distant memory. As weeks turned into months, it all became a blur and there were times that I asked myself if it had really happened at all. Chrystal had gone back to being a complete bitch within minutes after what happened and had remained that way ever since. I had made no further attempt to be alone with her or make any moves on her. 
 
  Then, suddenly, out of the blue, Bill and Chrystal invited us to join them in their brand new summer vacation villa to celebrate our wedding anniversary. Susan and I had planned a small party with some friends, but her parents decided that the party would just have to wait until we'd spent some time at their luxurious mansion. Susan agreed off course and jumped at the opportunity to revel in the ridiculous luxury I was unable to provide. The mansion housed six bathrooms, fourteen bedrooms, five dining rooms, a pool, a billiards room and several sitting areas that did not have any clear function, other than to flaunt some obscure art. After looking over the pictures, I realized that it wouldn't be too difficult to avoid my in-laws in that big of an environment. I played hard-ball with my wife however and feigned severe reluctance to increase her gratitude when I eventually did say yes, and it worked: as a token of her gratitude she spent the next twenty minutes on her knees sucking the cum out of my balls. 
 
@@ -166,7 +176,11 @@
 
  
 
- ****** Inappropriate Ch. 02 ****** bysex4every1© As I approached the kitchen, I noticed Chrystal standing at the kitchen island waiting for her toast to pop. She was wearing a purple bikini set and a white, vintage, crochet bolero jacket. Glancing through one of the windows in the hallway, leading up to the kitchen, I noticed Susan and her father sitting outside, having breakfast. Apparently I was the last one to wake up. When she saw me heading towards the kitchen, Chrystal quickly put her plate down and walked around the island towards me. Just before I was about to step into view of Susan and her father, the bitch cupped my crotch as she passed me by. 
+ 
+
+===
+
+As I approached the kitchen, I noticed Chrystal standing at the kitchen island waiting for her toast to pop. She was wearing a purple bikini set and a white, vintage, crochet bolero jacket. Glancing through one of the windows in the hallway, leading up to the kitchen, I noticed Susan and her father sitting outside, having breakfast. Apparently I was the last one to wake up. When she saw me heading towards the kitchen, Chrystal quickly put her plate down and walked around the island towards me. Just before I was about to step into view of Susan and her father, the bitch cupped my crotch as she passed me by. 
 
  "Good morning," I whispered, pleasantly surprised. 
 
@@ -272,7 +286,11 @@
 
  
 
- ****** Inappropriate Ch. 02 ****** bysex4every1© Suddenly, without any warning, Chrystal leaned towards the door and opened it. Still not speaking to me, she squirmed and wriggled out from between me and the wall and stumbled out. Curious as to what she was up to now, I wiped my mouth with my hand and staggered to my feet, stuffing my hard dick back in my boxers. After closing the closet behind us, leaving her bra, panties and high heels behind, she led me through several more rooms and corridors, towards a more familiar part of the mansion: the guest room where Susan and I slept. As we heard Susan and her father calling out to us in the distance, far enough to be safe for quite a while, Chrystal laid down on top of the bed, spreading her legs high and wide as she looked at me. Normally, I would have jumped her and fucked the shit of her without hesitation, but the fact that she was lying where my wife and I slept, caused some minor uneasiness. 
+ 
+
+===
+
+Suddenly, without any warning, Chrystal leaned towards the door and opened it. Still not speaking to me, she squirmed and wriggled out from between me and the wall and stumbled out. Curious as to what she was up to now, I wiped my mouth with my hand and staggered to my feet, stuffing my hard dick back in my boxers. After closing the closet behind us, leaving her bra, panties and high heels behind, she led me through several more rooms and corridors, towards a more familiar part of the mansion: the guest room where Susan and I slept. As we heard Susan and her father calling out to us in the distance, far enough to be safe for quite a while, Chrystal laid down on top of the bed, spreading her legs high and wide as she looked at me. Normally, I would have jumped her and fucked the shit of her without hesitation, but the fact that she was lying where my wife and I slept, caused some minor uneasiness. 
 
  Chrystal, apparently in a hurry, became slightly annoyed by my - three seconds of - inaction and jumped up from the bed, walking into the adjoining bathroom. After rummaging through our pile of dirty laundry for a few moments, she walked back out, holding a pair of my wife's panties and a bra and started putting them on. I couldn't believe what I was seeing: god, she was such a whore! So desperate for another fuck that she put on her daughter's worn underwear. I loved it! 
 

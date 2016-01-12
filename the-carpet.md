@@ -1,8 +1,14 @@
+The Carpet
+==========
 #1 
 
  
 
- ****** The Carpet ****** bysex4every1© A while ago, one of my female readers dared me to do a story involving an everyday inanimate object - other than 'the wall' depicted in 'The Hole' series. I was so intrigued by her proposal that I accepted. It was far from easy and required me to access the most perverted areas of my brain. Take this as a warning: if you're not into this sort of thing, please read something else. This is not for the faint-hearted! 
+ 
+
+===
+
+A while ago, one of my female readers dared me to do a story involving an everyday inanimate object - other than 'the wall' depicted in 'The Hole' series. I was so intrigued by her proposal that I accepted. It was far from easy and required me to access the most perverted areas of my brain. Take this as a warning: if you're not into this sort of thing, please read something else. This is not for the faint-hearted! 
 
  ***** 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** The Carpet ****** bysex4every1© Realizing I had to put an end to this before someone with a camera or cell phone walked by, I put my hands next to my body on the concrete, pressing down hard, forcing myself to stop what I was doing and thinking. 
+ 
+
+===
+
+Realizing I had to put an end to this before someone with a camera or cell phone walked by, I put my hands next to my body on the concrete, pressing down hard, forcing myself to stop what I was doing and thinking. 
 
  After composing myself for about ten seconds, I opened my eyes as far as I could - with all that sperm on my stupid face - and whispered, "Let's get cleaned up and find ourselves a motel room." 
 
@@ -250,7 +260,11 @@
 
  
 
- ****** The Carpet ****** bysex4every1© After taking a few minutes to rest, I used the carpet's convenient 'sucking function' again to clean my clothes, my face, hair and my car seat. Although I was now completely cum free, I still looked like a mess, my hair all entangled, my clothes wrinkled and all my makeup gone. I patiently rode out the rest of the traffic jam, which lasted another hour and a half and continued my route home. Instead of mid-afternoon, I arrived at the factory at around half past six. Everyone had already left, which suited me just fine. 
+ 
+
+===
+
+After taking a few minutes to rest, I used the carpet's convenient 'sucking function' again to clean my clothes, my face, hair and my car seat. Although I was now completely cum free, I still looked like a mess, my hair all entangled, my clothes wrinkled and all my makeup gone. I patiently rode out the rest of the traffic jam, which lasted another hour and a half and continued my route home. Instead of mid-afternoon, I arrived at the factory at around half past six. Everyone had already left, which suited me just fine. 
 
  I made my way to the locker room, where all employees showered and changed clothes every morning and evening. I placed the pink, perverted carpet right there on the floor and walked back out, with a huge smile on my face. I knew the carpet would manipulate all of the factory workers into getting on their knees and whacking out a load as soon as it could get them alone. It needed no more than two weeks to accomplish that task, and as an added bonus, it learned all of their names too. So now, whenever I head down to the locker room at night, I can simply choose which employee's load I want to swallow or get a facial from. 
 

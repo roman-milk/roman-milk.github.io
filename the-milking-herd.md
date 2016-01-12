@@ -1,8 +1,14 @@
+The Milking Herd
+================
 #1 
 
  
 
- ****** The Milking Herd ****** byStoryTeller07© (Just a quick one to get it out of the way, clearing my mind for a new series, sorry it is so short.) 
+ 
+
+===
+
+(Just a quick one to get it out of the way, clearing my mind for a new series, sorry it is so short.) 
 
  A woman joins the herd 
 
@@ -134,7 +140,11 @@
 
  
 
- ****** The Milking Herd Ch. 02 ****** byStoryTeller07© Betty felt a great loss when her father died, and regretted not asking why he left her mother. A few months later Lauren, her step mother died, leaving her feeling devastated and alone. Now Lauren was gone she needn't feel guilty over searching for her mother. Trawling through a pile of photos and documents revealed where she lived, which further stimulated a growing curiosity. 
+ 
+
+===
+
+Betty felt a great loss when her father died, and regretted not asking why he left her mother. A few months later Lauren, her step mother died, leaving her feeling devastated and alone. Now Lauren was gone she needn't feel guilty over searching for her mother. Trawling through a pile of photos and documents revealed where she lived, which further stimulated a growing curiosity. 
 
  She found her mother had died in their home town five years earlier. It shook her to discover she had an older sister. Her mother's recurrent illness was the reason she, as the younger sister, had left with her father. At thirty-three her sister was seven years older. 
 
@@ -334,7 +344,11 @@
 
  
 
- ****** The Milking Herd Ch. 02 ****** byStoryTeller07© He was right, she needed milking. Her nipples felt sensational! They were deliciously alive. Both breasts felt full and productive. The rhythm was getting to her. The relentless sucking of her nipples was sensitising her whole body. She fidgeted, parting her legs slightly. She was getting creamy down there. She pulled her thighs together, crushing her sex. 
+ 
+
+===
+
+He was right, she needed milking. Her nipples felt sensational! They were deliciously alive. Both breasts felt full and productive. The rhythm was getting to her. The relentless sucking of her nipples was sensitising her whole body. She fidgeted, parting her legs slightly. She was getting creamy down there. She pulled her thighs together, crushing her sex. 
 
  She began to rub her legs together, as though making fire. She was soon ignited, only to suffer from frustration, without something to quench the heat. She couldn't reach past the frame she was leaning on, or the cups milking her. 
 
@@ -522,7 +536,11 @@
 
  
 
- ****** The Milking Herd Ch. 03 ****** byStoryTeller07© Dairy Farm 
+ 
+
+===
+
+Dairy Farm 
 
  Farms were rapidly going out of business, and those left looked dilapidated, without the profits to maintain them. The inspector was impressed on how up-to- date the equipment was at this farm, and how healthy the cattle were. She was pleased to give them five stars for every aspect of dairy farming, from health and safety, to high cleanliness standards. 
 
@@ -738,7 +756,11 @@
 
  
 
- ****** The Milking Herd Ch. 04 ****** byStoryTeller07© A new recruit 
+ 
+
+===
+
+A new recruit 
 
  Janet had little alternative. She had to sign on at an employment agency, as the government no longer paid benefits. She had no skills, apart from being able to look after aging parents. She was just twenty, and they had passed away a few months ago. Money was needed to pay the mortgage arrears, and other bills. 
 
@@ -936,7 +958,11 @@
 
  
 
- ****** The Milking Herd Ch. 04 ****** byStoryTeller07© Feeling something behind her, invading her vagina, she lifted her head to protest. The thing in her mouth prevented any sounds that could be heard above the cow women's crooning, and pleasurable moaning. 
+ 
+
+===
+
+Feeling something behind her, invading her vagina, she lifted her head to protest. The thing in her mouth prevented any sounds that could be heard above the cow women's crooning, and pleasurable moaning. 
 
  Joshua greased her asshole and eased it open. Her whole body was relaxed from the drug, so the long rubber nozzle was soon eased in. The other shorter, fatter nozzle, was already inside her vagina. 
 

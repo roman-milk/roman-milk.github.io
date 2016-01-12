@@ -1,8 +1,14 @@
+Wanda
+=====
 #1 
 
  
 
- ****** Wanda ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations where it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations where it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sites. 
 
  Please! Give me your comments! 
 

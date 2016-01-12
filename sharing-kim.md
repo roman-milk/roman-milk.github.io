@@ -1,8 +1,14 @@
+Sharing Kim
+===========
 #1 
 
  
 
- ****** Sharing Kim ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
 
  Please! Give me your comments! 
 
@@ -424,7 +430,11 @@
 
  
 
- ****** Sharing Kim ****** byE.Z.Riter© While Dave and Emily were comfortably dressed, Kim and I hadn't changed from our travel clothes. I was about to suggest changing when Lana sat up and stretched. She arched her back. Her high, firm breasts stuck straight out. Her nipples, like dusky pointers, aimed directly at Kim. Kim froze and her eyes widened. 
+ 
+
+===
+
+While Dave and Emily were comfortably dressed, Kim and I hadn't changed from our travel clothes. I was about to suggest changing when Lana sat up and stretched. She arched her back. Her high, firm breasts stuck straight out. Her nipples, like dusky pointers, aimed directly at Kim. Kim froze and her eyes widened. 
 
  "You're both good looking. Do you like sex?" Lana asked in her heavy accent. 
 
@@ -748,7 +758,11 @@
 
  
 
- ****** Sharing Kim ****** byE.Z.Riter© "Wait a minute," Dave said. "Where're you going?" 
+ 
+
+===
+
+"Wait a minute," Dave said. "Where're you going?" 
 
  They stopped and stared at him. 
 

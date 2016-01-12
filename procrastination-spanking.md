@@ -1,8 +1,14 @@
+Procrastination Spanking
+========================
 #1 
 
  
 
- ****** Procrastination Spanking ****** bytom6432© Standing in her shame corner wearing her knee-length sky blue summer sundress my naughty wife, Melissa, is being punished. I am sitting comfortably in the living room reading my newspaper glancing casually over the top edge at Melissa, making sure she stands perfectly still, nose touching the wall. 
+ 
+
+===
+
+Standing in her shame corner wearing her knee-length sky blue summer sundress my naughty wife, Melissa, is being punished. I am sitting comfortably in the living room reading my newspaper glancing casually over the top edge at Melissa, making sure she stands perfectly still, nose touching the wall. 
 
  'Melissa Elizabeth raise your sundress nice and high for me,' I say. 
 

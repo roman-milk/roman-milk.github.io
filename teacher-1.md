@@ -1,8 +1,14 @@
+Teacher Ch. 01
+==============
 #1 
 
  
 
- ****** Teacher Ch. 01 ****** byStoryTeller07© This first chapter is not so exhibitionist as the second chapter – it was just difficult to know which category to place it in. 
+ 
+
+===
+
+This first chapter is not so exhibitionist as the second chapter – it was just difficult to know which category to place it in. 
 
  
 
@@ -230,7 +236,11 @@
 
  
 
- ****** Teacher Ch. 01 ****** byStoryTeller07© She opened her eyes to see him watching her. The intensity of the stare was overpowering. 
+ 
+
+===
+
+She opened her eyes to see him watching her. The intensity of the stare was overpowering. 
 
  "I've been talking to you," he said. "I was worried I'd hurt you." 
 
@@ -314,7 +324,11 @@
 
  
 
- ****** Teacher Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  His teacher is humiliated 
 
@@ -544,7 +558,11 @@
 
  
 
- ****** Teacher Ch. 02 ****** byStoryTeller07© 'Damn you shithead,' she thought, but smiled sweetly at him as the ball nudged the edge of the pocket and twisted in. 
+ 
+
+===
+
+'Damn you shithead,' she thought, but smiled sweetly at him as the ball nudged the edge of the pocket and twisted in. 
 
  "Yea, Hank, you could learn something from the Cindy doll," Mac laughed. 
 

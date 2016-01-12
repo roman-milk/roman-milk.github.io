@@ -1,8 +1,14 @@
+Ally - Born To Dominate Ch. 01-02
+=================================
 #1 
 
  
 
- ****** Ally - Born To Dominate Ch. 01-02 ****** bysex4every1© This story contains scenes of –incestual- consensual domination, submission and humiliation. If any of this bothers you in any way, please stop reading now. Otherwise have fun... 
+ 
+
+===
+
+This story contains scenes of –incestual- consensual domination, submission and humiliation. If any of this bothers you in any way, please stop reading now. Otherwise have fun... 
 
  Ally is 24 and extremely sexually dominant by nature. Her frequent need to dominate and humiliate other people, especially her loved ones, is a fundamental part of who she is. Rather than fighting her genetic disposition, no matter how unusual and uncomfortable, her loved ones have accepted and embraced her condition. After several years of practice, they've even become quite adept at accommodating her when the mood strikes her. These are some of her adventures. 
 
@@ -470,7 +476,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 01-02 ****** bysex4every1© "What's gotten into me? You mean aside from James' fat cock, over and over again?" 
+ 
+
+===
+
+"What's gotten into me? You mean aside from James' fat cock, over and over again?" 
 
  Having just taken off his last piece of clothing – his boxers – Roger grabs his cock, energized by Ally's nasty words and whispers:"Jesus Christ!" as he starts wanking off like crazy. After using his left hand to open his door and feeling the chilly breeze on his naked skin, he says:"It's cold outside..." 
 
@@ -508,7 +518,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 03-04 ****** bysex4every1© This story contains scenes of – incestual – consensual domination, submission and humiliation. If any of this bothers you in any way, please stop reading now. Otherwise have fun... 
+ 
+
+===
+
+This story contains scenes of – incestual – consensual domination, submission and humiliation. If any of this bothers you in any way, please stop reading now. Otherwise have fun... 
 
  Part 3: Ally humiliates her mom in front of a store clerk. 
 
@@ -664,7 +678,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 03-04 ****** bysex4every1© After she let go of the cock, the guy redrew his little cock and replaced it with his arm, roughly grabbed her tit. Judging from Ally's reaction, this was not part of the deal as she put both hands on his to push him away... however, when she saw Roger panicking and getting ready to jump up and come to her aid, her facial expression changed and so did her body language. Instead of trying to break away, her hands stopped trying to fight off the intruder and slowly relaxed, guiding the stranger's hand all over her rack and even into her cleavage, all the way into her bra. As his hand roughly started manhandling her breast, Roger's cock would no longer be denied: he wrapped his hand around his fat tube once again and started beating off. Ally meanwhile completely surrendered to the stranger's touch and took her hands away, leaning back on them, squirming and twisting her willing body against the intruder's touch. Even when he started tugging at her dress and her bra to expose her breasts, Ally just glanced down but did nothing to stop him. Five seconds later, the inevitable happened: her dress ripped at her cleavage as her left breast was pulled out of her bra, out into the open, hanging obscenely over her torn dress. Roger was besides himself as he saw a stranger's fingers squeezing his girlfriend's breast and tugging at her nipple. After conquering her tits, the pervert wanted more and he slid his hand down as far as he could, running aground at her stomach because his arm wasn't long enough to reach down further. Then Ally did the next unspeakable thing: she got up and turned towards the glory hole, lifting her dress with both hands as she pushed her crotch against the stranger's arm, fully aware of where this was leading to. As he put his hand between her legs, Ally turned slightly towards Roger – making sure he had a clear view of what she was letting this perfect stranger do to her. Continuing to use both hands to keep her dress up, she squirmed as she felt the stranger push her panties aside and then roughly push two fingers inside of her. Roger couldn't believe his eyes and splattered his massive load against the glass as he banged his other hand – in the form of a fist – against it, declaring his frustration and disagreement with what was going on in there. He sank to his knees and watched his girlfriend getting molested by a some pervert. 
+ 
+
+===
+
+After she let go of the cock, the guy redrew his little cock and replaced it with his arm, roughly grabbed her tit. Judging from Ally's reaction, this was not part of the deal as she put both hands on his to push him away... however, when she saw Roger panicking and getting ready to jump up and come to her aid, her facial expression changed and so did her body language. Instead of trying to break away, her hands stopped trying to fight off the intruder and slowly relaxed, guiding the stranger's hand all over her rack and even into her cleavage, all the way into her bra. As his hand roughly started manhandling her breast, Roger's cock would no longer be denied: he wrapped his hand around his fat tube once again and started beating off. Ally meanwhile completely surrendered to the stranger's touch and took her hands away, leaning back on them, squirming and twisting her willing body against the intruder's touch. Even when he started tugging at her dress and her bra to expose her breasts, Ally just glanced down but did nothing to stop him. Five seconds later, the inevitable happened: her dress ripped at her cleavage as her left breast was pulled out of her bra, out into the open, hanging obscenely over her torn dress. Roger was besides himself as he saw a stranger's fingers squeezing his girlfriend's breast and tugging at her nipple. After conquering her tits, the pervert wanted more and he slid his hand down as far as he could, running aground at her stomach because his arm wasn't long enough to reach down further. Then Ally did the next unspeakable thing: she got up and turned towards the glory hole, lifting her dress with both hands as she pushed her crotch against the stranger's arm, fully aware of where this was leading to. As he put his hand between her legs, Ally turned slightly towards Roger – making sure he had a clear view of what she was letting this perfect stranger do to her. Continuing to use both hands to keep her dress up, she squirmed as she felt the stranger push her panties aside and then roughly push two fingers inside of her. Roger couldn't believe his eyes and splattered his massive load against the glass as he banged his other hand – in the form of a fist – against it, declaring his frustration and disagreement with what was going on in there. He sank to his knees and watched his girlfriend getting molested by a some pervert. 
 
  Even after Roger had blown his load and his cock had gone limp, Ally continued to allow her assailant to jam his fingers in and out of her cunt; proof that she was doing this to humiliate Roger, and not to make him cum! Ally continued to take the abuse for several more minutes until finally the stranger got tired of her; having done as much damage as he could – cumming on her and mauling her tits and her cunt – he quickly lost interest and redrew his arm from the hole. Smiling wickedly Ally got on her knees and crawled over to the glass – separating her from her boyfriend – he watched as she started licking the glass where he'd blown his load, only the wrong side, tormenting him even more; angry and fed up with her behavior, he banged both fists on the thick glass. Confident that he couldn't get to her, Ally just laughed at him as she continued to lick the glass, driving him to the brink of insanity. Suddenly she got up and stepped away from the glass; after licking her lips and running her hands through her hair while looking at him, she backed up a little further and opened the door to her booth without taking her eyes off him. Roger – still furious – jumped up and stormed out of his booth, marching into Ally's booth a few seconds later; in the mean time, she moved to lean against the glass, facing the door, awaiting him fearlessly. Once inside, Roger forced himself to calmness and hissed"I should beat the crap out of you for what you just did, you fucking slut!" 
 
@@ -792,7 +810,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 05 ****** bysex4every1© This story contains scenes of – incestual – consensual domination, submission and humiliation. If any of this bothers you in any way, please stop reading now. Otherwise have fun... 
+ 
+
+===
+
+This story contains scenes of – incestual – consensual domination, submission and humiliation. If any of this bothers you in any way, please stop reading now. Otherwise have fun... 
 
  
 
@@ -902,7 +924,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 05 ****** bysex4every1© Suddenly she clenched her legs around my head, not to suffocate me but to prevent me from hearing what she was saying as I could hear her mumble. I kept licking and tongue-fucking her until suddenly I felt two hands on my back; instinctively I tried to wriggle free to see what was going on, but Ally increased the pressure she exerted with her legs, keeping me right there. I really didn't need to look: I knew there was only one other person in the room and it didn't take a genius to realize that me licking and tongue fucking my daughter's twat had made young Rick horny again. A few seconds later, I felt his massive cock against my entrance again and he shoved it in. I moaned, paused for a few seconds and then started doing my duty again. Although she let up a little bit on the strength with which she was clenching my head, she kept her thighs pressed up against both sides of my head. Half a minute later, I heard her say something though I couldn't quite make out what, but I soon found out. Rick slowly pulled out and placed the tip of his huge dong a little higher, tickling my asshole. 
+ 
+
+===
+
+Suddenly she clenched her legs around my head, not to suffocate me but to prevent me from hearing what she was saying as I could hear her mumble. I kept licking and tongue-fucking her until suddenly I felt two hands on my back; instinctively I tried to wriggle free to see what was going on, but Ally increased the pressure she exerted with her legs, keeping me right there. I really didn't need to look: I knew there was only one other person in the room and it didn't take a genius to realize that me licking and tongue fucking my daughter's twat had made young Rick horny again. A few seconds later, I felt his massive cock against my entrance again and he shoved it in. I moaned, paused for a few seconds and then started doing my duty again. Although she let up a little bit on the strength with which she was clenching my head, she kept her thighs pressed up against both sides of my head. Half a minute later, I heard her say something though I couldn't quite make out what, but I soon found out. Rick slowly pulled out and placed the tip of his huge dong a little higher, tickling my asshole. 
 
  I panicked, stopped what I was doing and shouted:"No, Ally... not my ass." as I felt her legs clenching me more tightly. 
 
@@ -994,7 +1020,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 06 ****** bysex4every1© A lot of readers wanted to know what it's like to be Ally's boyfriend. 
+ 
+
+===
+
+A lot of readers wanted to know what it's like to be Ally's boyfriend. 
 
  Well, my name is Roger and I am here to tell you all about it. I'll first give you an overview of what my (sex) life was like before I met Ally, then I'll share with you a very special story from the very beginning of our relationship. 
 
@@ -1086,7 +1116,11 @@
 
  
 
- ****** Ally - Born To Dominate Ch. 06 ****** bysex4every1© "I'll join you; I need to wash my hands anyway." Nick said as the two of them walked into the hallway and then into the bathroom. After a few minutes, it was clear that Nick was doing more in there then just washing his hands, so I started clearing the table and cleaning up all the spilled casserole, cleaning up the kitchen and doing the dishes. Nearly an hour and a half had passed when I sat down on the couch and started watching TV. Although I was still horny and curious as to what the hell they were doing in there for so long, the thought never entered my mind to actually go and have a look. 
+ 
+
+===
+
+"I'll join you; I need to wash my hands anyway." Nick said as the two of them walked into the hallway and then into the bathroom. After a few minutes, it was clear that Nick was doing more in there then just washing his hands, so I started clearing the table and cleaning up all the spilled casserole, cleaning up the kitchen and doing the dishes. Nearly an hour and a half had passed when I sat down on the couch and started watching TV. Although I was still horny and curious as to what the hell they were doing in there for so long, the thought never entered my mind to actually go and have a look. 
 
  Another twenty minutes or so later, I heard them barging out of the bathroom and storming into the master bedroom across the hall. I heard the door slam shut and barely a minute later I started hearing moaning and slapping noises, as Nick was probably fucking her again. About ten minutes later, I heard Ally howl and scream. I whipped out my cock and started jacking once again. Then it was silent for a few minutes, since I hadn't heard Nick cum I could only assume they were still at it - maybe giving him a handjob or a blowjob. Another couple of minutes later, the body slapping started up again. This time, at the end, it was Nick who screamed and orgasmed. Figuring they were done, at least for a while, I was contemplating my next move - either letting go of my cock or masturbating to a finish right there on the couch - when I heard the bedroom door open and noticed Ally sneaking into the living room in her white cotton panties and ditto bra. As I could hardly imagine Nick fucking her with her underwear on, I realized she had put it back on for my 'benefit'. 
 

@@ -1,8 +1,14 @@
+Punishment Weekend Ch. 01
+=========================
 #1 
 
  
 
- ****** Punishment Weekend Ch. 01 ****** bytom6432© (A fantasy written by me for fun. It contains spanking and humiliation so beware. All characters are over 18) 
+ 
+
+===
+
+(A fantasy written by me for fun. It contains spanking and humiliation so beware. All characters are over 18) 
 
  Punishment Weekend -Friday Evening 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** Punishment Weekend Ch. 02 ****** bytom6432© (A fantasy written by me for fun. It contains spanking and humiliation, so beware. All characters are 18 or older.) 
+ 
+
+===
+
+(A fantasy written by me for fun. It contains spanking and humiliation, so beware. All characters are 18 or older.) 
 
  Punishment Weekend – Friday Night 
 
@@ -270,7 +280,11 @@
 
  
 
- ****** Punishment Weekend Ch. 03 ****** bytom6432© Chapter 03- Friday Evening 
+ 
+
+===
+
+Chapter 03- Friday Evening 
 
  (This is a fantasy written for fun. It has humiliation and spanking as a theme, if you do not enjoy that type of story be warned. All characters are over 18) 
 
@@ -462,13 +476,21 @@
 
  
 
- ****** Punishment Weekend Ch. 03 ****** bytom6432© 'Y-yesss S-irrrr OOOOwwww Oooouuuccch!' She cried. 
+ 
+
+===
+
+'Y-yesss S-irrrr OOOOwwww Oooouuuccch!' She cried. 
 
  'Good, now get yourself into the kitchen and do as you are told,' Barbara nodded her head, got off my lap and made her way to the kitchen rubbing her bottom, tears trickling down her cheeks, her panties and girdle still at her knees making it difficult to walk.  
 
  
 
- ****** Punishment Weekend Ch. 04 ****** bytom6432© -Punishment Weekend 4 -Friday Evening 
+ 
+
+===
+
+-Punishment Weekend 4 -Friday Evening 
 
  (This is a fantasy written for fun. It contains spanking and humiliation of mature young ladies. If this is not your thing please skip. All characters are over 18) 
 
@@ -558,7 +580,11 @@
 
  
 
- ****** Punishment Weekend Ch. 05 ****** bytom6432© Punishment Weekend –Chapter 5 
+ 
+
+===
+
+Punishment Weekend –Chapter 5 
 
  (This story is fantasy, which has nothing to do with reality. It could not happen so it was written for fun. If spanking and humiliation bother you please skip this story. All characters are over 18) 
 

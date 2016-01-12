@@ -1,8 +1,14 @@
+Teacher's Surgery
+=================
 #1 
 
  
 
- ****** Teacher's Surgery ****** byStoryTeller07© Evelyn moved into town taking over a class while the teacher was away having a baby. No one knew her and she would be moving on at the end of the year so she felt confident consulting a local surgeon for cosmetic surgery after dreaming for some time of having her small breasts enlarged. 
+ 
+
+===
+
+Evelyn moved into town taking over a class while the teacher was away having a baby. No one knew her and she would be moving on at the end of the year so she felt confident consulting a local surgeon for cosmetic surgery after dreaming for some time of having her small breasts enlarged. 
 
  Every onerous task had been completed at the end of the school year so from now on every hour would be her own time or so she thought. 
 
@@ -246,7 +252,11 @@
 
  
 
- ****** Teacher's Surgery ****** byStoryTeller07© Her body collapsed on the bed, replete once more. 
+ 
+
+===
+
+Her body collapsed on the bed, replete once more. 
 
  Knowing it wasn't her desire driving this vulgar behavior was both a relief and a terrible shock, especially with that lewd demonstration; it brought it home how deeply she was out of control. Feeling him remove the dildo from both her orifices she looked startled at what she had done to herself. 
 

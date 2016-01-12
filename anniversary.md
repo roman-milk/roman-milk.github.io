@@ -1,8 +1,14 @@
+Anniversary
+===========
 #1 
 
  
 
- ****** Anniversary ****** byStoryTeller07© Aurora knew Bob had forgotten the seventh anniversary of their first date. It didn't matter, as husbands weren't supposed too, nevertheless she had decided to make it a surprise evening, something for him to remember. She had been twenty-one and eager to learn what he wanted but for the last few years he had neglected his role as teacher. Some weeks ago she decided to make it a special night just for him. Giving up smoking had been difficult but worth it. Now it was going to provide the means of a surprise. He was always home for six on a Friday, then out to the squash club. This Friday he would stay in. 
+ 
+
+===
+
+Aurora knew Bob had forgotten the seventh anniversary of their first date. It didn't matter, as husbands weren't supposed too, nevertheless she had decided to make it a surprise evening, something for him to remember. She had been twenty-one and eager to learn what he wanted but for the last few years he had neglected his role as teacher. Some weeks ago she decided to make it a special night just for him. Giving up smoking had been difficult but worth it. Now it was going to provide the means of a surprise. He was always home for six on a Friday, then out to the squash club. This Friday he would stay in. 
 
  The hypnotist had been reluctant at first but eventually relented to her insistent request that had become a nagging demand. Over the past three weeks an intensive course of hypnosis had concentrated not on smoking, but on another form of control. She was planning to give her husband complete control of her body for what ever he wanted of it. When hypnotised she would be completely helpless to resist whatever he wanted to do with her. Over the weeks the suggestion went deeper, becoming stronger at each session. Eventually it overcame her inhibitions to leave her completely available to him. The therapist reminded her again that she was very vulnerable in this state and should take great care to whom she gave such power. 
 
@@ -56,7 +62,11 @@
 
  
 
- ****** Anniversary ****** byStoryTeller07© In the dark she walked down a hallway toward a light. Turning into the room a bright light shone in her eyes. "Put your hands to your sides." A voice spoke out of the blackness. Unable to see a face not even a shape she nevertheless obeyed. "Turn around, let me see what I have paid for. Take those clothes off and wash yourself. In the corner to your right." He said. She stumbled off with the light following her every movement. Completely naked she washed off customer's orders from the naked note pad. Without being told she dropped the towel and shuffled following the light. In the dark the man sat examining her. "On the chair is a tube. Pick it up. Bend over the chair. Spread your legs." He ordered. The light was trained directly upon her rear with him watching every movement. "Put the tube into you arse, and squeeze it." Came the voice. "No!" She thought, "I can't do this." Yet her hands continued of their own volition and she felt the cold sensation rise up inside. "Put your hands in the loops." The voice commanded. Wriggling she managed to squeeze both hands between the hard leather straps. "Pull on them." The voice said and the straps closed tight about her wrists. Bent over the chair with legs spread she bit her lip so as not to cry out as the stranger approached. 
+ 
+
+===
+
+In the dark she walked down a hallway toward a light. Turning into the room a bright light shone in her eyes. "Put your hands to your sides." A voice spoke out of the blackness. Unable to see a face not even a shape she nevertheless obeyed. "Turn around, let me see what I have paid for. Take those clothes off and wash yourself. In the corner to your right." He said. She stumbled off with the light following her every movement. Completely naked she washed off customer's orders from the naked note pad. Without being told she dropped the towel and shuffled following the light. In the dark the man sat examining her. "On the chair is a tube. Pick it up. Bend over the chair. Spread your legs." He ordered. The light was trained directly upon her rear with him watching every movement. "Put the tube into you arse, and squeeze it." Came the voice. "No!" She thought, "I can't do this." Yet her hands continued of their own volition and she felt the cold sensation rise up inside. "Put your hands in the loops." The voice commanded. Wriggling she managed to squeeze both hands between the hard leather straps. "Pull on them." The voice said and the straps closed tight about her wrists. Bent over the chair with legs spread she bit her lip so as not to cry out as the stranger approached. 
 
  She wanted to scream out, "Not there. I need it in my pussy. I want to feel your come in my pussy." Yet all she could manage was a moan. A pair of hands gripped her hips and a man's hardness nuzzled her greased arse. Slowly it rubbed between her cheeks until with a gentle thrust its head penetrated. She tried to thrust back onto him but he grabbed her hair as she arched her back so there was no movement possible but to close her legs which wasn't going to happen with him there. 
 
@@ -74,7 +84,11 @@
 
  
 
- ****** Anniversary Ch. 02 ****** byStoryTeller07© You might like to read Anniversary before this. Thanks for the comments they give as incentive to continue. 
+ 
+
+===
+
+You might like to read Anniversary before this. Thanks for the comments they give as incentive to continue. 
 
  . 
 
@@ -126,7 +140,11 @@
 
  
 
- ****** Anniversary Ch. 02 ****** byStoryTeller07© Walking back down the isle in shame she no longer wiggled her arse at him rather she tried to minimise the sensations only the small plug up her bottom and the rubbing of the bobbles was even more effective. Her extended nipples and lips were still sensitive, still in the grip of the latex suit, which gripped and massaged every part of her body as she moved. Standing before this stranger was so humiliating she dare not look him in the eye. It was not that he had touched her but she had responded so wantonly. At least he had the good grace to make no comment yet his smile said it all. "I see you've sold another." Aurora jumped at the sound of Tommy's voice. How long had he been back, had he witnessed her sordid performance? He, like the customer, made no comment but she wondered if his smile was from thinking about the commission or what he had just witnessed. It occurred to her that just maybe the store was closed and this was a set up planned by her husband and Tommy's brother. Trying to believe this she began to relax a little trying to think of some way to tease it out of him without revealing the game she was trapped in. Before the conversation could begin a young exuberant woman burst through the door. "Hi." She said in a strong confidant voice. 
+ 
+
+===
+
+Walking back down the isle in shame she no longer wiggled her arse at him rather she tried to minimise the sensations only the small plug up her bottom and the rubbing of the bobbles was even more effective. Her extended nipples and lips were still sensitive, still in the grip of the latex suit, which gripped and massaged every part of her body as she moved. Standing before this stranger was so humiliating she dare not look him in the eye. It was not that he had touched her but she had responded so wantonly. At least he had the good grace to make no comment yet his smile said it all. "I see you've sold another." Aurora jumped at the sound of Tommy's voice. How long had he been back, had he witnessed her sordid performance? He, like the customer, made no comment but she wondered if his smile was from thinking about the commission or what he had just witnessed. It occurred to her that just maybe the store was closed and this was a set up planned by her husband and Tommy's brother. Trying to believe this she began to relax a little trying to think of some way to tease it out of him without revealing the game she was trapped in. Before the conversation could begin a young exuberant woman burst through the door. "Hi." She said in a strong confidant voice. 
 
  Without the slightest break in her approach to the counter she took in the sight of Aurora looking obviously flustered, still warm from her orgasm. "I'm looking for something but I don't know what. I'm hot to trot baby." She smiled at Aurora ignoring Tommy. "We have a special discount on some fashion stuff." Tommy said, trying to break in between the two women. "This outfit." He began. She screwed up her face in disgust. "That is so disgusting. You look like some plastic doll ready for some dirty old man to use." She said, looking Aurora up and down. "Have you got something feminine?" She asked. Aurora was mortified feeling her face redden as though slapped hard by this young woman. What was worse she had been very nearly right. She felt like telling her something feminine would be wasted on her. She was dressed in boots, baggy jeans and a soft flannel shirt, the only thing about her that looked soft, though hardly feminine. 
 
@@ -164,7 +182,11 @@
 
  
 
- ****** Anniversary Ch. 03 ****** byStoryTeller07© The continuing story of Aurora - hypnotised ready for humiliation. If you want more, please leave a comment. 
+ 
+
+===
+
+The continuing story of Aurora - hypnotised ready for humiliation. If you want more, please leave a comment. 
 
  * 
 
@@ -288,7 +310,11 @@
 
  
 
- ****** Anniversary Ch. 03 ****** byStoryTeller07© 'Too late, damn him!' She thought. This wouldn't have happened a few weeks ago, where now she was thoroughly indoctrinated into obeying any sort of command. Not only that, she had accepted the attention of strangers too often, so now she responded with ever deepening submission. Resigned to it she moved more freely with the music as her inhibitions dropped away with the clothing. Turning to face them she revealed her breasts swinging the bra at Charlie. 
+ 
+
+===
+
+'Too late, damn him!' She thought. This wouldn't have happened a few weeks ago, where now she was thoroughly indoctrinated into obeying any sort of command. Not only that, she had accepted the attention of strangers too often, so now she responded with ever deepening submission. Resigned to it she moved more freely with the music as her inhibitions dropped away with the clothing. Turning to face them she revealed her breasts swinging the bra at Charlie. 
 
  With careful movements she gyrated her breasts to distract them while she undid the suspenders then slid a stocking down a long slender leg. Flicking the shoe off dislodged the stocking from her foot for it to flutter over Reginald. Only the panties remained. Wiggling her arse before each of them in turn she silently begged for the music to stop before she revealed too much. 
 
@@ -328,7 +354,11 @@
 
  
 
- ****** Anniversary Ch. 04 ****** byStoryTeller07© Comments are welcome. Helpful criticism especially so. If you want another episode let me know by adding your comments. 
+ 
+
+===
+
+Comments are welcome. Helpful criticism especially so. If you want another episode let me know by adding your comments. 
 
  The story makes more sense if you read the precious chapters. 
 
@@ -426,7 +456,11 @@
 
  
 
- ****** Anniversary Ch. 04 ****** byStoryTeller07© His hands were all over her patting and stroking, even squeezing her nipples through the coarse fabric. "You had better have a drink and another treat." Although she drank from a bowl on the floor it was good to wash the taste of those doggy treats from her mouth. It had only been an hour and a half since she had entered the house yet it seemed like days she had endured being this man's pet. It was hard to imagine how scampering after a ball dressed as a puppy could bring the slightest sexual gratification to anyone but it seemed she had a lot to learn. 
+ 
+
+===
+
+His hands were all over her patting and stroking, even squeezing her nipples through the coarse fabric. "You had better have a drink and another treat." Although she drank from a bowl on the floor it was good to wash the taste of those doggy treats from her mouth. It had only been an hour and a half since she had entered the house yet it seemed like days she had endured being this man's pet. It was hard to imagine how scampering after a ball dressed as a puppy could bring the slightest sexual gratification to anyone but it seemed she had a lot to learn. 
 
  She whimpered at him frustrated that she couldn't speak to make such a simple request. As though in defiance she stopped the tour of the room pulling back upon the leash. No longer able to hold on she squatted on the floor and let go. The relief was enormous as much as the humiliation was grim. "You naughty puppy!" He said, though the tone of his voice betrayed him. It was now obvious what the dry treats and water had been all about. "You've disgraced yourself. You naughty bitch." He told her. Rubbing her nose in the wet patch on the floor she did indeed feel ashamed. The sting of the leash upon her backside was a surprise. He whipped her bottom once more and she whimpered in abject shame. A flood of images crowded her mind reminding her of a puppy she had as a child messing upon the floor. In abject shame at being reduced to this wretched state she sprang to heel needing to prove her worth as his pet. Waggling her tail in an attempt to get back into good favour she determined to win him over. 
 
@@ -442,7 +476,11 @@
 
  
 
- ****** Anniversary Ch. 05 ****** byStoryTeller07© This story may make more sense after reading previous chapters. The story was only meant to be the one chapter and therefore suffers from a lack of a plan. I hope the style has improved in each chapter and so the next story will be better, let me know if you disagree. All comments are appreciative and encouraging, even when not meant to be. Thanks for reading. 
+ 
+
+===
+
+This story may make more sense after reading previous chapters. The story was only meant to be the one chapter and therefore suffers from a lack of a plan. I hope the style has improved in each chapter and so the next story will be better, let me know if you disagree. All comments are appreciative and encouraging, even when not meant to be. Thanks for reading. 
 
  * 
 
@@ -564,7 +602,11 @@
 
  
 
- ****** Anniversary Ch. 05 ****** byStoryTeller07© Driving over to the house he prepared Aurora for another session, which seemed to go as well as the first. With Aurora safely out of the way upstairs the two men talked business. Hubert drove home not convinced Daren would deliver on the deal, still wondering how he could possibly accomplish such an outrageous and daring arrangement. 
+ 
+
+===
+
+Driving over to the house he prepared Aurora for another session, which seemed to go as well as the first. With Aurora safely out of the way upstairs the two men talked business. Hubert drove home not convinced Daren would deliver on the deal, still wondering how he could possibly accomplish such an outrageous and daring arrangement. 
 
  Sharon arrived for her payment grateful for not having to pander to the 'dog man's' needs willing to at least listen to Daren's idea. "Sharon, your not really suited to taking a submissive role." Daren began. 
 
@@ -684,11 +726,19 @@
 
  
 
- ****** Anniversary Ch. 05 ****** byStoryTeller07© She laughed a throaty sound that was most pleasant. He wondered what kind of trouble he had stirred up this time and if there was someway of changing his career by getting into something safe like snake charming.  
+ 
+
+===
+
+She laughed a throaty sound that was most pleasant. He wondered what kind of trouble he had stirred up this time and if there was someway of changing his career by getting into something safe like snake charming.  
 
  
 
- ****** Anniversary Ch. 06 ****** byStoryTeller07© Chapter 06 
+ 
+
+===
+
+Chapter 06 
 
  Revenge on the bankers 
 

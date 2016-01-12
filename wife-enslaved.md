@@ -1,8 +1,14 @@
+Wife Enslaved Ch. 01
+====================
 #1 
 
  
 
- ****** Wife Enslaved Ch. 01 ****** byStoryTeller07© Mistaken for a slave 
+ 
+
+===
+
+Mistaken for a slave 
 
  Riana put on the outfit, and tried not to laugh. It was meant to impress her husband, or at least show willingness to play at satisfying him. He'd recently bought a slave girl, meaning their fragile relationship had finally broken. She decided to do something to save their marriage, by convincing him he didn't need the damn girl. 
 
@@ -240,7 +246,11 @@
 
  
 
- ****** Wife Enslaved Ch. 01 ****** byStoryTeller07© The small, sparsely decorated room, contained an uncomfortable looking bed. A well worn rug lay over wooden floorboards. This is all she now deserved, as a humble slave girl. A shower cubicle was built into a corner of the room, so there was nowhere to undress. 
+ 
+
+===
+
+The small, sparsely decorated room, contained an uncomfortable looking bed. A well worn rug lay over wooden floorboards. This is all she now deserved, as a humble slave girl. A shower cubicle was built into a corner of the room, so there was nowhere to undress. 
 
  'Hurry up, I've got things to do,' he chided her. 
 
@@ -478,7 +488,11 @@
 
  
 
- ****** Wife Enslaved Ch. 01 ****** byStoryTeller07© All this pain was for nothing. She would phone her husband and demand he collect her. It no longer mattered about the shame of being discovered, not after this indignity. 
+ 
+
+===
+
+All this pain was for nothing. She would phone her husband and demand he collect her. It no longer mattered about the shame of being discovered, not after this indignity. 
 
  'The chip is permanently in place now. The slave will be fully registered in a few minutes. It won't be able to run then. The police detect slaves if they're away from the registered abode without permission. You must remember that too. Don't take it out, without entering the destination into the government system,' he reminded Jimmy. 
 
@@ -534,7 +548,11 @@
 
  
 
- ****** Wife Enslaved Ch. 02 ****** byStoryTeller07© Recovering his wife 
+ 
+
+===
+
+Recovering his wife 
 
  As Riana expected, her husband phoned Jimmy that morning. Adrian would sort out this dire problem and take her home, before Jimmy found out she wasn't a household slave. It would cause all kinds of unpleasantness, if he found out she was Adrian's wife. He could use it to re-negotiate the loan Adrian arranged for him. Much worse for her, would be the social indignity of being a slave, even for just a day. 
 
@@ -740,7 +758,11 @@
 
  
 
- ****** Wife Enslaved Ch. 02 ****** byStoryTeller07© He looked down, and coaxed her, 'Come on, slave, get on with your duty.' 
+ 
+
+===
+
+He looked down, and coaxed her, 'Come on, slave, get on with your duty.' 
 
  'Yes, master,' she murmured. 
 
@@ -958,7 +980,11 @@
 
  
 
- ****** Wife Enslaved Ch. 02 ****** byStoryTeller07© Jimmy kissed and licked his way down her body. Over her tummy, down to her sex, he smoothly caressed her bare flesh. Finger tip touches to her thighs were light and sensitive. He licked her lips, and nipped her engorged bud. When she felt his tongue push into her, she yelped with ecstasy. It flicked inside her, rolling around, exploring. 
+ 
+
+===
+
+Jimmy kissed and licked his way down her body. Over her tummy, down to her sex, he smoothly caressed her bare flesh. Finger tip touches to her thighs were light and sensitive. He licked her lips, and nipped her engorged bud. When she felt his tongue push into her, she yelped with ecstasy. It flicked inside her, rolling around, exploring. 
 
  She arched her back, wanting more, needing more. This time they were making love. At least so far he was making love to her. Her hands grabbed his broad shoulders and pulled. She wanted him and must have him now. The journey up her body was swift. In one steady movement he was on top of her, and his cock penetrated. 
 
@@ -1226,7 +1252,11 @@
 
  
 
- ****** Wife Enslaved Ch. 03 ****** byStoryTeller07© On reflection he shouldn't have been so brusque with his wife, Riana, as they parted on bad terms. Of course he was angry with his wife, and said things he shouldn't have. She'd been acting like a fool, pretending to be a slave at that boy's house. Didn't she realise what a fool he would look, if anyone found out she'd been mistaken for a slave? For the sake of what friends would say, he needed to get her back without revealing she was his wife. 
+ 
+
+===
+
+On reflection he shouldn't have been so brusque with his wife, Riana, as they parted on bad terms. Of course he was angry with his wife, and said things he shouldn't have. She'd been acting like a fool, pretending to be a slave at that boy's house. Didn't she realise what a fool he would look, if anyone found out she'd been mistaken for a slave? For the sake of what friends would say, he needed to get her back without revealing she was his wife. 
 
  On the way home he prepared an apology, only to find she wasn't there. 
 
@@ -1438,7 +1468,11 @@
 
  
 
- ****** Wife Enslaved Ch. 03 ****** byStoryTeller07© 'One more thing. Open wide,' Beatrice commanded. 
+ 
+
+===
+
+'One more thing. Open wide,' Beatrice commanded. 
 
  Distracted by nerves she opened her mouth, not thinking why. She choked, and coughed, trying to clear her throat. 
 
@@ -1678,4 +1712,8 @@
 
  
 
- ****** Wife Enslaved Ch. 03 ****** byStoryTeller07© She smiled at him with a look of adoration. Her master was wonderful and more than a slave could hope for. A young man was making her happy, so why spoil this wonderful adventure? Riana put aside her previous life of problems, to put all her effort into keeping hold of this new life as a slave. Report_Story 
+ 
+
+===
+
+She smiled at him with a look of adoration. Her master was wonderful and more than a slave could hope for. A young man was making her happy, so why spoil this wonderful adventure? Riana put aside her previous life of problems, to put all her effort into keeping hold of this new life as a slave. Report_Story 

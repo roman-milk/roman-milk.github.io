@@ -1,8 +1,14 @@
+Mother-in-Law is Disciplined Ch. 01
+===================================
 #1 
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 01 ****** bytom6432© (This is a fantasy written for fun. All characters are age 18 and over. If you do not enjoy spanking, humiliation and some fetish please do not read, as you will not enjoy the story. Thank you.) 
+ 
+
+===
+
+(This is a fantasy written for fun. All characters are age 18 and over. If you do not enjoy spanking, humiliation and some fetish please do not read, as you will not enjoy the story. Thank you.) 
 
  * 
 
@@ -178,7 +184,11 @@
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 01 ****** bytom6432© The still-coughing Katherine turned and half tripping because of her underclothes walked slowly to the nearest corner. The mouth-soaping had taken all resistance out of Katherine, as she hobbled past me. She looked like she was foaming at the mouth, and the front of her blouse was all wet. She couldn't even speak the taste of soap was still overpowering. She began crying and that made it worse. 
+ 
+
+===
+
+The still-coughing Katherine turned and half tripping because of her underclothes walked slowly to the nearest corner. The mouth-soaping had taken all resistance out of Katherine, as she hobbled past me. She looked like she was foaming at the mouth, and the front of her blouse was all wet. She couldn't even speak the taste of soap was still overpowering. She began crying and that made it worse. 
 
  Once she reached the corner I took the bar of Ivory and pinching her nose to have her open her mouth. I inserted the soap into her mouth. I knew we had two very sorry girls. One with a red bottom bent over her spanking stool, pj's on, bare bottom up, panties over her head. The other one was in the corner with a bar of soap in her mouth. 
 
@@ -186,7 +196,11 @@
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 02 ****** bytom6432© (This is a fantasy written for fun. All characters are age 18 and over. If you do not enjoy spanking, humiliation and some fetish please do not read, as you will not enjoy the story. Thank you.) 
+ 
+
+===
+
+(This is a fantasy written for fun. All characters are age 18 and over. If you do not enjoy spanking, humiliation and some fetish please do not read, as you will not enjoy the story. Thank you.) 
 
  
 
@@ -340,7 +354,11 @@
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 03 ****** bytom6432© (This story is fantasy written by me for fun. It contains spanking and humiliation. Please do not read if this bothers you. All characters are 18 or older) 
+ 
+
+===
+
+(This story is fantasy written by me for fun. It contains spanking and humiliation. Please do not read if this bothers you. All characters are 18 or older) 
 
  
 
@@ -460,7 +478,11 @@
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 04 ****** bytom6432© (This is a total fantasy written by me for fun. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older.) 
+ 
+
+===
+
+(This is a total fantasy written by me for fun. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older.) 
 
  ============= 
 
@@ -610,7 +632,11 @@
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 04 ****** bytom6432© "No Sir she said I was too old," she answers. 
+ 
+
+===
+
+"No Sir she said I was too old," she answers. 
 
  "What about you're Daddy?" 
 
@@ -744,7 +770,11 @@
 
  
 
- ****** Mother-in-Law is Disciplined Ch. 05 ****** bytom6432© This is a total fantasy written by me for fun. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older. 
+ 
+
+===
+
+This is a total fantasy written by me for fun. It contains spanking, humiliation and other fetish. Please do not read if this bothers you. All characters are 25 year old or older. 
 
  ====== 
 

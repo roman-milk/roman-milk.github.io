@@ -1,8 +1,14 @@
+Mistaken Identity Ch. 01
+========================
 #1 
 
  
 
- ****** Mistaken Identity Ch. 01 ****** byStoryTeller07© Janice is treated like a teen 
+ 
+
+===
+
+Janice is treated like a teen 
 
  'Welcome everyone, to our Assertiveness Workshop. This is Janice, a new member. Would you like to say why you're here?' Charles asked. 
 
@@ -246,7 +252,11 @@
 
  
 
- ****** Mistaken Identity Ch. 01 ****** byStoryTeller07© Instead, they'd made her feel small and insignificant. 
+ 
+
+===
+
+Instead, they'd made her feel small and insignificant. 
 
  'Like, a great look, yea?' the girls fished for compliments. 'You look just like that girl, Candy, on TV!' they told her. 
 
@@ -542,7 +552,11 @@
 
  
 
- ****** Mistaken Identity Ch. 01 ****** byStoryTeller07© 'I'm with Roy,' Janice nervously spoke. 
+ 
+
+===
+
+'I'm with Roy,' Janice nervously spoke. 
 
  The young guy was tall and mean looking. She would have the confidence to see him off, when dressed in a business suit, with make-up and high heels. Dressed like a teen, in flats, she felt small and vulnerable. She wrapped an arm around Roy, pulling him tight. Roy flinched, as though wanting nothing to do with her. 
 
@@ -732,7 +746,11 @@
 
  
 
- ****** Mistaken Identity Ch. 02 ****** byStoryTeller07© Janice becomes assertive, at last 
+ 
+
+===
+
+Janice becomes assertive, at last 
 
  Next morning Janice nursed a sore head. She was surprised to see Roy handing over a glass of orange juice, yet gratefully accepted it, and downed it in one. At least this time it was lacking vodka. He leaned forward and wrapped his arms around her. 
 
@@ -956,7 +974,11 @@
 
  
 
- ****** Mistaken Identity Ch. 02 ****** byStoryTeller07© Bernard and Sandra had speedily reached the room, torn their clothes off, and were writhing on the bed. Bernard was amazed at the way she freely sucked his cock into her mouth, and swallowed it. He only just held back from spurting his load into her belly. 
+ 
+
+===
+
+Bernard and Sandra had speedily reached the room, torn their clothes off, and were writhing on the bed. Bernard was amazed at the way she freely sucked his cock into her mouth, and swallowed it. He only just held back from spurting his load into her belly. 
 
  She came up for air, and smiled at him. 'I know you want to. I'll revive you for my turn if you do,' she said, with a look of devilment in her eyes. 
 
@@ -1180,7 +1202,11 @@
 
  
 
- ****** Mistaken Identity Ch. 02 ****** byStoryTeller07© 'Step back, in there,' she urgently breathed into his ear. Through the thin screen of bushes, she could see her husband, but didn't care. She hoisted the front of the t-shirt dress, and pulled her panties to one side. 
+ 
+
+===
+
+'Step back, in there,' she urgently breathed into his ear. Through the thin screen of bushes, she could see her husband, but didn't care. She hoisted the front of the t-shirt dress, and pulled her panties to one side. 
 
  'We've not done it outside today,' she said, with a naughty grin. 
 
@@ -1448,7 +1474,11 @@
 
  
 
- ****** Mistaken Identity Ch. 02 ****** byStoryTeller07© He took a step toward her looking menacing. In the past she would have backed down. Not now. She held her position, determined to stare him out. Another step closer, and she was pleased to see a slight doubt creep across his face. 
+ 
+
+===
+
+He took a step toward her looking menacing. In the past she would have backed down. Not now. She held her position, determined to stare him out. Another step closer, and she was pleased to see a slight doubt creep across his face. 
 
  For all the past times he had overruled her opinions, and made her feel small, she lashed out. A slow long swing of a small fist would have been easy to avoid, except it wasn't anticipated. Not even considered. The slight woman didn't have much power behind her, but the swing had momentum. 
 

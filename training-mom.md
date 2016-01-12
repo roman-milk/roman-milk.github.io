@@ -1,8 +1,14 @@
+Training Mom
+============
 #1 
 
  
 
- ****** Training Mom ****** byStoryTeller07© All criticism is welcome. Hope you enjoy! 
+ 
+
+===
+
+All criticism is welcome. Hope you enjoy! 
 
  * 
 
@@ -94,7 +100,11 @@
 
  
 
- ****** Training Mom ****** byStoryTeller07© "I like that gown. It's pure silk isn't it? Take it off. The underwear too." Libby felt she was towering over the woman hunched over subdued, seeming to shrink down all the more at being naked. Casually looking through the wardrobe she tried to think what would be suitable for this humble servant. Something demeaning was needed to keep her in place. It suddenly occurred to her. "Of course, what you need, its obvious, a cheap nylon maids uniform. "Follow me." On the floor above were attic rooms furnished for the maid but at the foot of the stairs she stopped. The young woman strode purposefully back to her room with Sophie scurrying behind anxious to have something to cover her naked body. Disappearing into her own walk in wardrobe she began rummaging for something. With a grin spread across her face Libby found it abandoned and forgotten, emerging triumphant with a crumpled piece of material. "This will do for you." She said, dropping it at Sophie's feet. 
+ 
+
+===
+
+"I like that gown. It's pure silk isn't it? Take it off. The underwear too." Libby felt she was towering over the woman hunched over subdued, seeming to shrink down all the more at being naked. Casually looking through the wardrobe she tried to think what would be suitable for this humble servant. Something demeaning was needed to keep her in place. It suddenly occurred to her. "Of course, what you need, its obvious, a cheap nylon maids uniform. "Follow me." On the floor above were attic rooms furnished for the maid but at the foot of the stairs she stopped. The young woman strode purposefully back to her room with Sophie scurrying behind anxious to have something to cover her naked body. Disappearing into her own walk in wardrobe she began rummaging for something. With a grin spread across her face Libby found it abandoned and forgotten, emerging triumphant with a crumpled piece of material. "This will do for you." She said, dropping it at Sophie's feet. 
 
  Pulling it into shape she found it was a child's nurse's outfit consisting of a cotton dress with a little cap and apron. Libby was busy cutting off a red cross from the apron and cap. The dress was a tight fit but she had lost some weight while away and managed to squeeze into it. The material was thin but gave a little. While she tied on the apron and fitted the cap into her hair Libby rummaged for something else. Black stockings were an obvious accessory and a pair of little girls' frilly white knickers too. Attempting to roll the tight dress up her thighs to get the knickers on Libby became impatient. "Stop it you'll split the dress. They'll show through anyway. I can't wait all day. Come on I want my breakfast." The dress would have been difficult to walk in with it hugging her body like a sheath but it was so short it hardly covered her thighs. As much as it hugged her bottom so to her breasts were tightly embraced, squashed up into a deep cleavage ready to pop out. There didn't seem to be room for underwear and none was offered anyway. 
 
@@ -184,7 +194,11 @@
 
  
 
- ****** Training Mom ****** byStoryTeller07© Taking a closer look at the surroundings she let out a whimper. "No! You evil devils!" On both sides of the street were hookers parading, trawling for men. Before she could move back into the shadows she was dazzled when caught in the glaring headlights of a cruising car. Not seeing them but hearing the raucous shouts it was obviously a bawdy group of men, out on the town worse for wear, even this early in the evening. From the comments she learnt that not only had her daughter betrayed her but so had her body. The body paint had been applied well but her labia had opened up to display a clearly contrasting pink colour. The nipples had grown out through the paint with a matching redness commented on by the rough men in embarrassing detail. She watched as though it were a movie unable to comprehend the appalling reality of these strangers leaning from the convertible meaning to haul her aboard. They thought she was just another hooker audaciously naked, obviously ready for anything. 
+ 
+
+===
+
+Taking a closer look at the surroundings she let out a whimper. "No! You evil devils!" On both sides of the street were hookers parading, trawling for men. Before she could move back into the shadows she was dazzled when caught in the glaring headlights of a cruising car. Not seeing them but hearing the raucous shouts it was obviously a bawdy group of men, out on the town worse for wear, even this early in the evening. From the comments she learnt that not only had her daughter betrayed her but so had her body. The body paint had been applied well but her labia had opened up to display a clearly contrasting pink colour. The nipples had grown out through the paint with a matching redness commented on by the rough men in embarrassing detail. She watched as though it were a movie unable to comprehend the appalling reality of these strangers leaning from the convertible meaning to haul her aboard. They thought she was just another hooker audaciously naked, obviously ready for anything. 
 
  The two young men grabbed her arms and swung her away into their car idling behind the convertible, where she fell arse up onto the back seat. Teased all day, sacrificed to strangers, until at the last moment her tormentors had saved her, she collapsed from the overpowering torrent of emotion. It was a shock that the building sexual tension had left her wanting to be taken away by those strangers. 
 
@@ -306,7 +320,11 @@
 
  
 
- ****** Training Mom ****** byStoryTeller07© Libby was willing to agree to anything. Still not sure what was going on she slowly came round to the idea she had been outsmarted for a change. "Yes." She said. The images of her mom being sold into slavery were becoming slightly ridiculous. 
+ 
+
+===
+
+Libby was willing to agree to anything. Still not sure what was going on she slowly came round to the idea she had been outsmarted for a change. "Yes." She said. The images of her mom being sold into slavery were becoming slightly ridiculous. 
 
  "That's a nice smile. You can both rest up here until your relationship is repaired. She has become a passable cook and you can keep the place clean. And, at last I can go fishing. When your both ready we can talk about something more permanent. If you want to stay, that is." He said, his last words trailing off. 
 

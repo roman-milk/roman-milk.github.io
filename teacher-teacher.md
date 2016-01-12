@@ -1,8 +1,14 @@
+Teacher Teacher
+===============
 #1 
 
  
 
- ****** Teacher Teacher ****** bysadkins116© This is my first attempt at writing a erotic story. I would appreciate any feedback you could provide. I would like to thank HMAuthor for her help in editing and making the story readable. I have other chapters but will wait till I get some feedback before submitting them. 
+ 
+
+===
+
+This is my first attempt at writing a erotic story. I would appreciate any feedback you could provide. I would like to thank HMAuthor for her help in editing and making the story readable. I have other chapters but will wait till I get some feedback before submitting them. 
 
  Chapter 1: The Condo 
 
@@ -100,7 +106,11 @@
 
  
 
- ****** Teacher Teacher ****** bysadkins116© Sandy continued to lick Monica shoes and didn't notice Heather gathering up her discarded clothes and putting them in her backpack. After about ten minutes Sandy moved over to Heather who was now sitting at Sandy's desk. As Sandy approached, Heather raised her foot and placed the sole directly on Sandy's face. "Better do a good job slut!" 
+ 
+
+===
+
+Sandy continued to lick Monica shoes and didn't notice Heather gathering up her discarded clothes and putting them in her backpack. After about ten minutes Sandy moved over to Heather who was now sitting at Sandy's desk. As Sandy approached, Heather raised her foot and placed the sole directly on Sandy's face. "Better do a good job slut!" 
 
  Sandy couldn't believe what was happening. Here she was naked, licking the shoes of her students. But what was confusing her more was her body. She was aroused, not just slightly aroused but her whole body was excited. Her nipples we hard and sticking out from her tits like bullets. Her pussy was drenched and her juices were starting to drip down on the floor. Beneath her, below her pussy there was an ever-growing puddle. Monica standing behind the naked teacher noticed the puddle and called out to her accomplice, "this slut is getting off on licking our shoes. She's dripping all over the floor!" 
 
@@ -196,7 +206,11 @@
 
  
 
- ****** Teacher Teacher ****** bysadkins116© Hector Martinez grabbed Sandy's leash and pulled her over to where she was kneeling at his feet. He then told her, "Slut, you have two choices. One, you can beg to do whatever we want and go home soon, or two, crawl back to the cell and be transferred down to the state prison and spend the next several years in jail. It's your choice. What's it going to be slut?" 
+ 
+
+===
+
+Hector Martinez grabbed Sandy's leash and pulled her over to where she was kneeling at his feet. He then told her, "Slut, you have two choices. One, you can beg to do whatever we want and go home soon, or two, crawl back to the cell and be transferred down to the state prison and spend the next several years in jail. It's your choice. What's it going to be slut?" 
 
  Sandy gasped. What choice was that? She slowly lowered her head and whispered, "Please use me as you wish." 
 
@@ -240,7 +254,11 @@
 
  
 
- ****** Teacher Teacher Ch. 02 ****** bysadkins116© Thanks for all the comments and suggestions for the upcoming chapters. If you didn't read the first chapter I would suggest it as it gives some background that would explain where we are. Thanks again to HMAuthor for her excellent job editing and making this story somewhat readable. As always feedback is encouraged. 
+ 
+
+===
+
+Thanks for all the comments and suggestions for the upcoming chapters. If you didn't read the first chapter I would suggest it as it gives some background that would explain where we are. Thanks again to HMAuthor for her excellent job editing and making this story somewhat readable. As always feedback is encouraged. 
 
  Back Home. 
 
@@ -346,7 +364,11 @@
 
  
 
- ****** Teacher Teacher Ch. 02 ****** bysadkins116© As Sandy was packing to leave school earlier that evening, Anita and Susanna had left Miss Hauser's room and walked down the hall to Miss Reynolds' room. Just as they arrived Miss Reynolds was just about to exit. When she saw the twins she wondered why they would be coming to see her. They were not in any of her classes, although they had been in her class last year. Dawn knew that these young women were very powerful in the social structure not only in school, but in town because of their parents. 
+ 
+
+===
+
+As Sandy was packing to leave school earlier that evening, Anita and Susanna had left Miss Hauser's room and walked down the hall to Miss Reynolds' room. Just as they arrived Miss Reynolds was just about to exit. When she saw the twins she wondered why they would be coming to see her. They were not in any of her classes, although they had been in her class last year. Dawn knew that these young women were very powerful in the social structure not only in school, but in town because of their parents. 
 
  "Hi girls, what brings you down here?" Dawn asked cheerfully. Susanna smiled and looked down at the petite teacher and said "Mom told us you two came back from Mexico early. Did something go wrong? Is there something we should know about?" 
 
@@ -468,7 +490,11 @@
 
  
 
- ****** Teacher Teacher Ch. 02 ****** bysadkins116© The toys were an anal plug that was about a one and a half inch in diameter at the widest point, tapering down to about three quarters of an inch at the base. It was about four inches in length. The other toy was a set of Ben-Wa balls. Sandy had put things in her ass before, but nothing this large, and the balls were larger than she had seen before as they were about two inches in diameter each. 
+ 
+
+===
+
+The toys were an anal plug that was about a one and a half inch in diameter at the widest point, tapering down to about three quarters of an inch at the base. It was about four inches in length. The other toy was a set of Ben-Wa balls. Sandy had put things in her ass before, but nothing this large, and the balls were larger than she had seen before as they were about two inches in diameter each. 
 
  Sandy walked over to her desk, inserted the plug in her mouth and looked in her purse for some kind of lubricant to use on her ass. At the bottom of a side pocket she found a travel bottle on hand lotion. She quickly pulled up the dress and squirted the lotion down her crack. She then took her fingers and started to work the lotion up her ass, working first one then two fingers past her rosebud and into her ass. 
 
@@ -550,7 +576,11 @@
 
  
 
- ****** Teacher Teacher Ch. 02 ****** bysadkins116© Sandy jumped and quickly removed her clothes and apologized to the dominating young Mistresses. Anita then walked over to Sandy and stroked her ass, admiring the red splotches still marking the white skin. Sandy cringed as any touch sent pain through her ass and straight to her cunt. Susanna then sat at Sandy's desk and ordered the slut to crawl over and lick her cunt as she was given her instructions. 
+ 
+
+===
+
+Sandy jumped and quickly removed her clothes and apologized to the dominating young Mistresses. Anita then walked over to Sandy and stroked her ass, admiring the red splotches still marking the white skin. Sandy cringed as any touch sent pain through her ass and straight to her cunt. Susanna then sat at Sandy's desk and ordered the slut to crawl over and lick her cunt as she was given her instructions. 
 
  Sandy quickly dropped to her knees and crawled between the young woman's legs to pleasure her. As Sandy started to lick Susanna cunt, she pushed her tongue into her ass and probed her depths. When she moved up to flick her tongue over her clit Susanna started to moan as Sandy's tongue was working its magic. Anita meanwhile pulled a thin Rain and shine coat out of her book bag. The coat had all of the buttons removed but had a belt to hold it together and tossed if on Sandy's desk. Susanna was now very aroused as her orgasm was approaching. She grabbed Sandy's head and ground her face into her cunt. Soon she gasped as the climax overwhelmed her senses. Sandy sat back on her haunches and waited for further instructions. 
 
@@ -560,7 +590,11 @@
 
  
 
- ****** Teacher Teacher Ch. 03 ****** bysadkins116© Chapter 3 "Their training begins" 
+ 
+
+===
+
+Chapter 3 "Their training begins" 
 
  Sandy was now finished pleasuring her two Mistresses. Her tongue and jaw were sore and her face and chest was covered with cum. Anita looked down at her slave and told her to go home. There would be instructions when she got there. Standing she grabbed the coat and wrapped it around her body. With no buttons the only thing keeping her covered was the belt. However when she walked her legs pushed the sides open and exposed everything below her waist. She wondered how she was going to get out to her car without getting caught. As she slipped into the hall she quickly ran to the nearest exit and then to her car. When she sat down behind the wheel, she felt she might make it home. She started her car and pulled out of the parking lot and drove home. 
 
@@ -646,7 +680,11 @@
 
  
 
- ****** Teacher Teacher Ch. 03 ****** bysadkins116© 2. Punish them severely early in their training when they disobey even the smallest error. 
+ 
+
+===
+
+2. Punish them severely early in their training when they disobey even the smallest error. 
 
  3. Keep the slave constantly aroused. 
 
@@ -696,7 +734,11 @@
 
  
 
- ****** Teacher Teacher Ch. 04 ****** bysadkins116© I had the story edited by HMAuthor. 
+ 
+
+===
+
+I had the story edited by HMAuthor. 
 
  Dawn crawled after her mistress into the kitchen to the bowls sitting on the floor. "Eat up slut; it might be awhile before you eat again." She dropped her head down to the bowl of kibbles and started to eat. It was dry and tasteless especially after sitting out all night. After finishing all the food she moved over to the water dish and drank her fill. For the first time in what seemed like days her belly was full, she looked up at her mistress and said, "Thank you for the food, Mistress." 
 
@@ -812,7 +854,11 @@
 
  
 
- ****** Teacher Teacher Ch. 04 ****** bysadkins116© Anita and Susanna learned a lot that weekend. Finding out that their parents literally controlled most of the cities government as well as the school board and the chief of police as well as their spouses. That meant that no matter what the twins did they would never get in trouble. The two sisters used that knowledge and abused whomever they wanted and now they have been given their very own teacher slaves. 
+ 
+
+===
+
+Anita and Susanna learned a lot that weekend. Finding out that their parents literally controlled most of the cities government as well as the school board and the chief of police as well as their spouses. That meant that no matter what the twins did they would never get in trouble. The two sisters used that knowledge and abused whomever they wanted and now they have been given their very own teacher slaves. 
 
  Sandy lay on her bed wondering what was to become of her and Dawn. She saw no way out of their predicament. As she lay there her thought went back to all that had happened over the last day or so as her hand made its way down her stomach to her cunt. She didn't even realize what she was doing until Anita looked in on her and screamed "What are you doing, slut! You better not be getting yourself off." Sandy quickly jerked her hand away from her cunt. "This slut is sorry, Mistress. I wasn't paying attention to my slut hands. Please don't punish me, Mistress. I won't let it happen again." 
 
@@ -842,7 +888,11 @@
 
  
 
- ****** Teacher Teacher Ch. 05 ****** bysadkins116© Synopsis: Two high school teachers just two years out of college fall victim to a rich married couple who enjoy dominating anyone they can. Using their power and money they have gained control over several powerful people in the local government including the Mayor, Police Chief, their spouses, school board members, and even the principal of the high school. Using their considerable resources they plan and execute a trap for the two young beautiful teachers by having them arrested in Mexico for child molestation while vacationing at their condo. 
+ 
+
+===
+
+Synopsis: Two high school teachers just two years out of college fall victim to a rich married couple who enjoy dominating anyone they can. Using their power and money they have gained control over several powerful people in the local government including the Mayor, Police Chief, their spouses, school board members, and even the principal of the high school. Using their considerable resources they plan and execute a trap for the two young beautiful teachers by having them arrested in Mexico for child molestation while vacationing at their condo. 
 
  They then give them to their twin daughters for their eighteenth birthday present. The trap was sprung on the second day of the new school year as the two teachers surrendered their freedom to keep from being sent back to Mexico to face charges. Three days later each of the teachers through different paths has now accepted their fate and are starting to embrace their servitude. Although you can read this as a standalone story, to get a better idea of how they got here you should read the previous chapters. 
 
@@ -964,7 +1014,11 @@
 
  
 
- ****** Teacher Teacher Ch. 05 ****** bysadkins116© Anita parked the car and ordered her slave out of the car. Sandy stood by the door not knowing what to do. Anita reached into her pocket and pulled out two nipple clamps and quickly clamped them on the slut's nipples. Then she grabbed the leash and led her inside the door. Once inside she turned to her and said, "On your knees, you are not to walk again unless instructed." Sandy quickly dropped down and followed her mistress down the hall and through a door at the end. 
+ 
+
+===
+
+Anita parked the car and ordered her slave out of the car. Sandy stood by the door not knowing what to do. Anita reached into her pocket and pulled out two nipple clamps and quickly clamped them on the slut's nipples. Then she grabbed the leash and led her inside the door. Once inside she turned to her and said, "On your knees, you are not to walk again unless instructed." Sandy quickly dropped down and followed her mistress down the hall and through a door at the end. 
 
  Sandy looked up as she entered the room. Looking around she saw Christina Martinez sitting on a love seat wearing a silk light blue dressing gown. Dawn blushed as this was the first time she was being exposed to someone who knew who she was. 
 
@@ -1076,7 +1130,11 @@
 
  
 
- ****** Teacher Teacher Ch. 05 ****** bysadkins116© Sandy woke from her stupor and struggled to grasp her surroundings, momentarily forgetting where she was. As her head cleared she realized that she was totally exposed and helpless to prevent the men from using her body anyway they desired. Instead of fear or dread it was a craving that filled her body and mind. Her cunt still drenched from her earlier climaxes pulsed with anticipation of what was about to happen. As she looked at the men approaching her, her mind anticipated what was about to happen and produced massive amount of endorphins increasing her cravings and causing her body to tremble with excitement. 
+ 
+
+===
+
+Sandy woke from her stupor and struggled to grasp her surroundings, momentarily forgetting where she was. As her head cleared she realized that she was totally exposed and helpless to prevent the men from using her body anyway they desired. Instead of fear or dread it was a craving that filled her body and mind. Her cunt still drenched from her earlier climaxes pulsed with anticipation of what was about to happen. As she looked at the men approaching her, her mind anticipated what was about to happen and produced massive amount of endorphins increasing her cravings and causing her body to tremble with excitement. 
 
  Juan was standing between Sandy's legs looking down at her exposed cunt and plugged ass. Looking over at Dawn as she was finishing cleaning the cum from her fingers. "Get over here slut." He grabbed the plug and pulled it out of Sandy's ass. 
 
@@ -1170,7 +1228,11 @@
 
  
 
- ****** Teacher Teacher Ch. 06 ****** bysadkins116© Just a word to the readers: 
+ 
+
+===
+
+Just a word to the readers: 
 
  First let me apologize for taking so long to get this chapter submitted. I know where I want to go with the story line and how I want to finish it. But getting there from here will take a little while. I want to thank those of you who commented and suggestions help, even the negative ones. I want to hear from you. However if this fantasy is not for you, move on. There are much better authors and certainly every type of story and or fantasy on this website. 
 
@@ -1298,7 +1360,11 @@
 
  
 
- ****** Teacher Teacher Ch. 06 ****** bysadkins116© Sandy panicked and yelled, "Let me go!" and pushed past the two shocked students. Before they could react, she ran down the hallway and up the stairs toward her classroom. Once inside, she quickly stripped off the dress and knelt by the door and waited for her mistress. Her mind was a total jumble of everything that had happened to her in the last hour. Her cunt was soaked and dripping on the floor between her legs. The run to her room had caused the balls to bounce inside her pussy till it was all she could do to stave off another orgasm. 
+ 
+
+===
+
+Sandy panicked and yelled, "Let me go!" and pushed past the two shocked students. Before they could react, she ran down the hallway and up the stairs toward her classroom. Once inside, she quickly stripped off the dress and knelt by the door and waited for her mistress. Her mind was a total jumble of everything that had happened to her in the last hour. Her cunt was soaked and dripping on the floor between her legs. The run to her room had caused the balls to bounce inside her pussy till it was all she could do to stave off another orgasm. 
 
  As she breathed deeply to calm her body down, Sandy was glad that now all she had to think of was to wait for her mistress and do as commanded. With all hope lost, her salvation was that her mistress would take care of her. 
 
@@ -1478,7 +1544,11 @@
 
  
 
- ****** Teacher Teacher Ch. 06 ****** bysadkins116© Dawn gasped as the vibrations coursed through her ass and straight to her cunt. Already aroused she was quickly climbing to an orgasm. Not knowing what to do, she stood up and looked at her class. Her nipples, now so hard they hurt, clearly showed through the tight top accentuating the rings and chains going down to her cunt. The vibrations stopped when she stood and gave her some relief. Humiliated but trying to remain composed, Dawn started to take roll, calling out names and marking attendance. 
+ 
+
+===
+
+Dawn gasped as the vibrations coursed through her ass and straight to her cunt. Already aroused she was quickly climbing to an orgasm. Not knowing what to do, she stood up and looked at her class. Her nipples, now so hard they hurt, clearly showed through the tight top accentuating the rings and chains going down to her cunt. The vibrations stopped when she stood and gave her some relief. Humiliated but trying to remain composed, Dawn started to take roll, calling out names and marking attendance. 
 
  Nothing more happened and she ignored the whispers as she finished taking roll and the bell rang to signal the end of homeroom. The students quickly got up and exited the room but several of the boys made sure they walked by to get a better look at the exposed teacher blushing at the front of the class. 
 
@@ -1654,7 +1724,11 @@
 
  
 
- ****** Teacher Teacher Ch. 06 ****** bysadkins116© Julie sat panting for a couple of minutes collecting herself before giving Dawn the orders from her mistress. 
+ 
+
+===
+
+Julie sat panting for a couple of minutes collecting herself before giving Dawn the orders from her mistress. 
 
  "OK slut, you are not to go home. You are to go to this address and ask for Jack," she said as she handed a note with the address to the slut. "You will follow his instructions till he tells you to leave. You will then return to school and report to your room. Once there you will strip and wait till Miss Susanna arrives. Do you understand slut?" 
 
@@ -1768,7 +1842,11 @@
 
  
 
- ****** Teacher Teacher Ch. 06 ****** bysadkins116© Jack looked at the defeated slave holding onto him and felt a moment of sympathy. He held her closely to his body and comforted her as best he could. "Remember slave, your mistress will take care of you. If you do as you are told, hopefully she will not expose you. If you disobey her, I will guarantee you will be exposed to the world. After I bandage your tats get dressed, it's now 3:40 and you need to get back to school." 
+ 
+
+===
+
+Jack looked at the defeated slave holding onto him and felt a moment of sympathy. He held her closely to his body and comforted her as best he could. "Remember slave, your mistress will take care of you. If you do as you are told, hopefully she will not expose you. If you disobey her, I will guarantee you will be exposed to the world. After I bandage your tats get dressed, it's now 3:40 and you need to get back to school." 
 
  A few minutes later Dawn slowly walked out of the room and to the lobby. She picked up her clothes and dressed. She knew her skirt wasn't covering her new tat on her back but at least it was covered by the bandage. She walked out the door and to her car. 
 
@@ -1832,7 +1910,11 @@
 
  
 
- ****** Teacher Teacher Ch. 07 ****** bysadkins116© Thank to all for the feedback. I am incorporating some of the suggestions. Yes this is fantasy; there is no way anyone could get away with this in real life. I want to again thank the editors for all their help. I have finished chapter 8 and working on chapter 9. I am hoping to wrap this up and finish everything by chapter 11 or 12. Stay tuned as the end starts now. 
+ 
+
+===
+
+Thank to all for the feedback. I am incorporating some of the suggestions. Yes this is fantasy; there is no way anyone could get away with this in real life. I want to again thank the editors for all their help. I have finished chapter 8 and working on chapter 9. I am hoping to wrap this up and finish everything by chapter 11 or 12. Stay tuned as the end starts now. 
 
  ***** 
 
@@ -1960,7 +2042,11 @@
 
  
 
- ****** Teacher Teacher Ch. 07 ****** bysadkins116© Susan saw how flushed Cindy's face and upper body was and told her, "Start playing with your cunt slut. I want you to make yourself cum. Just make sure you ask for permission before you do." 
+ 
+
+===
+
+Susan saw how flushed Cindy's face and upper body was and told her, "Start playing with your cunt slut. I want you to make yourself cum. Just make sure you ask for permission before you do." 
 
  Cindy's hands flew to her pussy and she started to stroke her clit. All she could think of was eating Susan's pussy and getting herself off. 
 
@@ -2102,13 +2188,21 @@
 
  
 
- ****** Teacher Teacher Ch. 07 ****** bysadkins116© "Put the plug in and leave it there until I tell you to remove it. If you need to go to the bathroom first go ahead, but only wear a tee shirt. I also want you to wear this choker to remind you that you belong to me." She then leaned over and released her hands. 
+ 
+
+===
+
+"Put the plug in and leave it there until I tell you to remove it. If you need to go to the bathroom first go ahead, but only wear a tee shirt. I also want you to wear this choker to remind you that you belong to me." She then leaned over and released her hands. 
 
  Cindy grabbed the items, picked up a tee shirt, slipped it on and walked out the door. She had a tingle down below and her cunt was once again wet. She had never been this aroused for so long before in her life.  
 
  
 
- ****** Teacher Teacher Ch. 08 ****** bysadkins116© Dawn rode in the backseat with the twins in front. Her coat was open and all she could see was the word SLUT emblazoned just about her cunt. As soon as the school was out of sight her mind went back to the slave mode. Her arousal was climbing, and her hand was drifting down to where her legs met. She smiled as her fingers found her clit and began to lightly massage it. She looked at her mistress driving and wondered what adventures she was planning for her. 
+ 
+
+===
+
+Dawn rode in the backseat with the twins in front. Her coat was open and all she could see was the word SLUT emblazoned just about her cunt. As soon as the school was out of sight her mind went back to the slave mode. Her arousal was climbing, and her hand was drifting down to where her legs met. She smiled as her fingers found her clit and began to lightly massage it. She looked at her mistress driving and wondered what adventures she was planning for her. 
 
  Susanna looked in the mirror at her slave sitting in the backseat; her coat wide open and her hand between her legs. "You better not cum slut." 
 
@@ -2298,7 +2392,11 @@
 
  
 
- ****** Teacher Teacher Ch. 08 ****** bysadkins116© "OK slut, we are going to do an attitude adjustment. I want you to spread your legs wide and spank your cunt with the spoon. If you don't do it hard enough we will have your son do it. Which means we will have to tell him why you are now our slave, understand?" 
+ 
+
+===
+
+"OK slut, we are going to do an attitude adjustment. I want you to spread your legs wide and spank your cunt with the spoon. If you don't do it hard enough we will have your son do it. Which means we will have to tell him why you are now our slave, understand?" 
 
  "Oh my god, you wouldn't?" 
 
@@ -2468,7 +2566,11 @@
 
  
 
- ****** Teacher Teacher Ch. 08 ****** bysadkins116© Sandy arrived at Miss Julie's office and knocked. "Who is it?" Was Julie's reply. 
+ 
+
+===
+
+Sandy arrived at Miss Julie's office and knocked. "Who is it?" Was Julie's reply. 
 
  "It's slave Sandy Hauser." 
 
@@ -2596,7 +2698,11 @@
 
  
 
- ****** Teacher Teacher Ch. 09 ****** bysadkins116© I want to thank you for all the comments on this story. They have all helped, even the negative ones. I am working towards the end and will have probably only one more chapter. Thanks again for all the help I get from the volunteer editors. Please remember that this is fantasy, if you don't like it move on, if you do like it vote. All comments are welcome; it brightens my day when I see someone has taken the time to tell me what they think. 
+ 
+
+===
+
+I want to thank you for all the comments on this story. They have all helped, even the negative ones. I am working towards the end and will have probably only one more chapter. Thanks again for all the help I get from the volunteer editors. Please remember that this is fantasy, if you don't like it move on, if you do like it vote. All comments are welcome; it brightens my day when I see someone has taken the time to tell me what they think. 
 
  Julie lay in bed, she was tied spread eagle and naked. She was gagged, blindfolded and had a headset covering her ears. Her mistress had placed clips on her nipples and labia. She had also inserted something in her pussy. Now the headset started to play some music. But Julie heard something in the background. She strained to hear what it was. As she listened intently she realized it was a voice. It was telling her things. 
 
@@ -2722,7 +2828,11 @@
 
  
 
- ****** Teacher Teacher Ch. 09 ****** bysadkins116© Sandy had no idea how long she was there. When all the men had finished she lay on the bench unable to move. Her cunt and ass were gaping and there was an enormous puddle beneath her ass on the tray. The manager walked to the back room and smiled at the comatose slut lying on the bench, her cup, just barely half full, sitting on the floor beside bench. He knew she was in no shape to drive home. He turned to a couple of men loitering in the shop, "Help me get this slut into a car and drive her home. One of you will have to follow in her car. I don't want it sitting in my parking lot all night." 
+ 
+
+===
+
+Sandy had no idea how long she was there. When all the men had finished she lay on the bench unable to move. Her cunt and ass were gaping and there was an enormous puddle beneath her ass on the tray. The manager walked to the back room and smiled at the comatose slut lying on the bench, her cup, just barely half full, sitting on the floor beside bench. He knew she was in no shape to drive home. He turned to a couple of men loitering in the shop, "Help me get this slut into a car and drive her home. One of you will have to follow in her car. I don't want it sitting in my parking lot all night." 
 
  The three of them picked up Sandy, carried her out to a car, and deposited her into the back seat. They didn't bother putting on her coat. They just tossed it on the floor beside her. 
 
@@ -2862,7 +2972,11 @@
 
  
 
- ****** Teacher Teacher Ch. 09 ****** bysadkins116© Anita arrived just after nine; she looked down at her slave and smiled. She noticed how pretty she was, as she thought, "When I sell her she will fetch a good price." 
+ 
+
+===
+
+Anita arrived just after nine; she looked down at her slave and smiled. She noticed how pretty she was, as she thought, "When I sell her she will fetch a good price." 
 
  "Well done slut. Today we are going to go on a ride to a shop I know. We are going to decorate your body." 
 
@@ -3044,7 +3158,11 @@
 
  
 
- ****** Teacher Teacher Ch. 09 ****** bysadkins116© Cindy looked into Susan's eyes and understood that even though just a couple of days ago, she was a normal straight young woman, Susan had opened her eyes to a whole new world and she wanted to experience that world. "I trust you Susan, I want this to go further, but I can't do this under a threat. You are going to have to trust me that I will obey you. But you must respect my boundaries. What those boundaries are I'm not sure, but I want to explore them with you." 
+ 
+
+===
+
+Cindy looked into Susan's eyes and understood that even though just a couple of days ago, she was a normal straight young woman, Susan had opened her eyes to a whole new world and she wanted to experience that world. "I trust you Susan, I want this to go further, but I can't do this under a threat. You are going to have to trust me that I will obey you. But you must respect my boundaries. What those boundaries are I'm not sure, but I want to explore them with you." 
 
  Both women started to cry and were soon in an emotional embrace. The closeness both felt solidified their relationship and cemented their friendship. They both lay on the bed and cried for a long time. When they had calmed down both fell into a restful sleep and didn't wake for several hours. 
 
@@ -3170,7 +3288,11 @@
 
  
 
- ****** Teacher Teacher Ch. 10 ****** bysadkins116© I want to thank everyone for their comments and suggestions. They have helped even if the suggestions are not included. As I have said before, this is my first attempt at writing anything let alone an erotic story. Posting this and getting the comments make my day. Even the negative ones, as this means at least someone has read my story. Many thanks for the volunteer editors helping me get through this. 
+ 
+
+===
+
+I want to thank everyone for their comments and suggestions. They have helped even if the suggestions are not included. As I have said before, this is my first attempt at writing anything let alone an erotic story. Posting this and getting the comments make my day. Even the negative ones, as this means at least someone has read my story. Many thanks for the volunteer editors helping me get through this. 
 
  
 
@@ -3330,7 +3452,11 @@
 
  
 
- ****** Teacher Teacher Ch. 10 ****** bysadkins116© Susanna was watching closely in case anyone would leave the staff door. Even though having Julie discovered would eventually happen, she wanted to wait till the right time. Susanna wanted to make her coming out an event, not an accident. "OK slut, you did well, now get up and follow me to Slave Dawn's apartment." 
+ 
+
+===
+
+Susanna was watching closely in case anyone would leave the staff door. Even though having Julie discovered would eventually happen, she wanted to wait till the right time. Susanna wanted to make her coming out an event, not an accident. "OK slut, you did well, now get up and follow me to Slave Dawn's apartment." 
 
  Julie practically jumped up off the pavement and jumped into her car, and not a minute too soon as several teachers and support staff walked out the door. Julie was parked very close to the door as she had arrived so early this morning. She was only about fifty feet or so from the teachers heading for their cars. She looked up at her mistress with pleading eyes. 
 
@@ -3522,7 +3648,11 @@
 
  
 
- ****** Teacher Teacher Ch. 10 ****** bysadkins116© Julie looked around the room, she was very confused. She didn't remember that the call was bogus as well as everything from this afternoon. "Yes mistress your slave will do what you want." 
+ 
+
+===
+
+Julie looked around the room, she was very confused. She didn't remember that the call was bogus as well as everything from this afternoon. "Yes mistress your slave will do what you want." 
 
  "Good, get your shit together and follow me to the other room." Anita continued as she released the slave from her restraints. 
 
@@ -3746,7 +3876,11 @@
 
  
 
- ****** Teacher Teacher Ch. 10 ****** bysadkins116© "Three drinks? Why three drinks? There are only two of us." Carrie questioned. 
+ 
+
+===
+
+"Three drinks? Why three drinks? There are only two of us." Carrie questioned. 
 
  "One of them is for me," Julie answered. 
 
@@ -3976,7 +4110,11 @@
 
  
 
- ****** Teacher Teacher Ch. 11 ****** bysadkins116© I want to thank everyone who has commented on the previous chapters. As you can tell I am finishing this series. You can only go so long before it is redundant and boring. This story is a fantasy; this should not and would not happen in real life. Being as this is fantasy several things included are not even possible. There is no such thing as a Mind Bender, and women would not put themselves in such a position. However, I am working to bring this story to as logical conclusion as possible. I expect that chapter 12 will end this adventure. I welcome your comments, both positive and negative. As this was my first foray into writing, I have learned a lot. I'm not sure if I will continue with another series or not. I am thinking of a few ideas but nothing concrete as yet. 
+ 
+
+===
+
+I want to thank everyone who has commented on the previous chapters. As you can tell I am finishing this series. You can only go so long before it is redundant and boring. This story is a fantasy; this should not and would not happen in real life. Being as this is fantasy several things included are not even possible. There is no such thing as a Mind Bender, and women would not put themselves in such a position. However, I am working to bring this story to as logical conclusion as possible. I expect that chapter 12 will end this adventure. I welcome your comments, both positive and negative. As this was my first foray into writing, I have learned a lot. I'm not sure if I will continue with another series or not. I am thinking of a few ideas but nothing concrete as yet. 
 
  I want to thank HMauthor for her help in editing this story. Her advice and editing really helped me. 
 
@@ -4136,7 +4274,11 @@
 
  
 
- ****** Teacher Teacher Ch. 11 ****** bysadkins116© "How long will it take?" Susanna asked. 
+ 
+
+===
+
+"How long will it take?" Susanna asked. 
 
  "I'm not sure, three, maybe four hours at least. We'll leave them here while we pick up their outfits. We can't stop the programming once it starts. I don't know what would happen if we did." 
 
@@ -4292,7 +4434,11 @@
 
  
 
- ****** Teacher Teacher Ch. 11 ****** bysadkins116© Alex, Cindy and Susan moaned, as all the hard work seemed to be for nothing. All three of them were exhausted from forcing Julie to orgasm. Now, just when it seemed they had brought her back she returned to her slave self. 
+ 
+
+===
+
+Alex, Cindy and Susan moaned, as all the hard work seemed to be for nothing. All three of them were exhausted from forcing Julie to orgasm. Now, just when it seemed they had brought her back she returned to her slave self. 
 
  "Mom, you have control, you are not a slave, and you control your body and mind. You have been brainwashed by those evil twins. You don't want me to take you; it's the programming that's talking." 
 
@@ -4470,7 +4616,11 @@
 
  
 
- ****** Teacher Teacher Ch. 11 ****** bysadkins116© Julie was near unconsciousness from lack of oxygen; fell back on her ass gasping for air. No sooner than she started to become aware of her surroundings when the second thug grabbed the hair on top of her head and pulled her to his exposed cock. 
+ 
+
+===
+
+Julie was near unconsciousness from lack of oxygen; fell back on her ass gasping for air. No sooner than she started to become aware of her surroundings when the second thug grabbed the hair on top of her head and pulled her to his exposed cock. 
 
  "What have you got to say slut?" he bellowed. 
 
@@ -4524,7 +4674,11 @@
 
  
 
- ****** Teacher Teacher Ch. 12 ****** bysadkins116© This is the final chapter of the teacher's adventure. I hope you enjoyed the series. I am not sure if I will do this again. I have for now, satisfied my urges to write. I am interested in your comments on the ending. Please let me know what you think. 
+ 
+
+===
+
+This is the final chapter of the teacher's adventure. I hope you enjoyed the series. I am not sure if I will do this again. I have for now, satisfied my urges to write. I am interested in your comments on the ending. Please let me know what you think. 
 
  I want to thank HMAuthor for her assistance in editing all the chapters. She really make this story readable. Please vote. 
 
@@ -4654,7 +4808,11 @@
 
  
 
- ****** Teacher Teacher Ch. 12 ****** bysadkins116© Alex's mind was broken. He no longer resisted the commands. He relished seeing cocks and prayed that he would never see another woman. The visor once again opened and in front of his eyes were a dozen erect cocks. Without any stimulus from the contraption he climaxed, spewing what little come remaining in his abused nuts onto his stomach. 
+ 
+
+===
+
+Alex's mind was broken. He no longer resisted the commands. He relished seeing cocks and prayed that he would never see another woman. The visor once again opened and in front of his eyes were a dozen erect cocks. Without any stimulus from the contraption he climaxed, spewing what little come remaining in his abused nuts onto his stomach. 
 
  Just before he passed out again, he heard a loud bang. 
 
@@ -4800,7 +4958,11 @@
 
  
 
- ****** Teacher Teacher Ch. 12 ****** bysadkins116© Susanna body again jumped and a scream escaped out around the gag only to be replaced with a moan from deep within her chest; as Anita followed the blow with another caress on her clit. 
+ 
+
+===
+
+Susanna body again jumped and a scream escaped out around the gag only to be replaced with a moan from deep within her chest; as Anita followed the blow with another caress on her clit. 
 
  Back and forth Anita took her sister, pain followed by pleasure, followed by pain. Never giving her any break; always keeping her guessing what she was going to do next. Always keeping her at the brink of a massive orgasm but never providing enough stimuli to take her over the top. 
 
@@ -4982,7 +5144,11 @@
 
  
 
- ****** Teacher Teacher Ch. 12 ****** bysadkins116© "Sally! You are evil and I love it. OK slaves you heard her, get into the shower, now!" 
+ 
+
+===
+
+"Sally! You are evil and I love it. OK slaves you heard her, get into the shower, now!" 
 
  Sandy, Dawn, and Julie, having trouble standing up straight with the large plugs in their asses slowly moved in unison to the shower, with each slave's movements shooting pain out from their nipples and clits. Soon all three were kneeling in the shower with Julie's mouth open waiting on the first girl to pee. 
 

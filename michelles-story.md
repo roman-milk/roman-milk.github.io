@@ -1,8 +1,14 @@
+Michelle's Story Ch. 01
+=======================
 #1 
 
  
 
- ****** Michelle's Story Ch. 01 ****** bydawn1958© Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
 
  I receive many requests from loyal readers to do stories for them but it takes me weeks to do a story properly. After receiving this request from Michelle, I decided to try doing a real short story for her and see if it comes off okay. See what you think. 
 
@@ -108,7 +114,11 @@
 
  
 
- ****** Michelle's Story Ch. 01 ****** bydawn1958© Once the blouse hung open, Sarge grabbed the loose front, rotating the material over her shoulders until they fell to the floor behind her. The cool air hit her breasts and Michelle knew what that did to her enlarged nipples. She held her breath, as long as possible, but suddenly her chest started to heave. 
+ 
+
+===
+
+Once the blouse hung open, Sarge grabbed the loose front, rotating the material over her shoulders until they fell to the floor behind her. The cool air hit her breasts and Michelle knew what that did to her enlarged nipples. She held her breath, as long as possible, but suddenly her chest started to heave. 
 
  Sarge swiftly moved his hands so that his fingers brushed both hard nipples. He grinned at the agony etched on Michelle's pretty face when he skillfully teased her rosebuds without the slightest retaliation. Her arms remained down at her sides and Sarge knew his blackmail had worked magic. He admired the swollen nipples and noticed how her chest heaved every time his daring fingers brushed across the extraordinary buds. 
 
@@ -216,7 +226,11 @@
 
  
 
- ****** Michelle's Story Ch. 01 ****** bydawn1958© It seemed that every time she acted worried or distraught, she conveyed sheer passion and desire. All of a sudden a spasm shot through her insides, and then another more powerful than the first. She could only imagine what it looked like from the other side of the mirror. Suddenly Sarge nibbled on her ear, which resulted in another spasm so strong it rocked her fragile confidence. 
+ 
+
+===
+
+It seemed that every time she acted worried or distraught, she conveyed sheer passion and desire. All of a sudden a spasm shot through her insides, and then another more powerful than the first. She could only imagine what it looked like from the other side of the mirror. Suddenly Sarge nibbled on her ear, which resulted in another spasm so strong it rocked her fragile confidence. 
 
  Sarge kept his mouth at her ear. "You very sexy. You like black cock... don't you?" He kept her face pointed directly at the mirror so she couldn't hide her despair. "You pay. The price for husband's freedom is... one more orgasm. You cum or else Sarge fuck ass... fuck ass with his big... black... cock!" 
 
@@ -320,7 +334,11 @@
 
  
 
- ****** Michelle's Story Ch. 01 ****** bydawn1958© Sarge smiled at his hapless guest, secure in the knowledge that the junta would reward him richly for securing Rodney's certification that the elections were properly carried out. What Sarge hadn't expected was Michelle being such an extraordinary woman, which turned out to be a fantastic bonus. 
+ 
+
+===
+
+Sarge smiled at his hapless guest, secure in the knowledge that the junta would reward him richly for securing Rodney's certification that the elections were properly carried out. What Sarge hadn't expected was Michelle being such an extraordinary woman, which turned out to be a fantastic bonus. 
 
  Rodney would never forget Sarge's parting words. "I never met white woman who fuck like that. Your wife... she squirms on big black cocks, no? She make good Blackman whore." Sarge leaned forward grinning broadly at the hapless husband. "We not hurt her, just fuck her," he whispered in a sure, steady voice. "Whore likes big black cock. Whore wants belly full of black cum." Sarge patted his belly and roared, "Sarge can hardly wait for her belly to swell; Sarge love getting white woman pregnant!" 
 
@@ -338,7 +356,11 @@
 
  
 
- ****** Michelle's Story Ch. 02 ****** bydawn1958© Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
 
  I receive many requests from loyal readers to do stories for them but it takes me weeks to do a story properly. After receiving this request from Michelle, I decided to try doing a real short story for her and see if it comes off okay. See what you think. 
 
@@ -448,7 +470,11 @@
 
  
 
- ****** Michelle's Story Ch. 02 ****** bydawn1958© Suddenly the three girls walked over to Michelle and their brother followed them. One by one they reached over to give her a hasty kiss before rushing across the room to their assigned beds. Kato was more deliberate than his sisters and he reached over giving his frightened idol a goodnight kiss. The brazen boy brushed up against Michelle's tempting body and he purposely pushed his hips at her, as if he was humping her leg. 
+ 
+
+===
+
+Suddenly the three girls walked over to Michelle and their brother followed them. One by one they reached over to give her a hasty kiss before rushing across the room to their assigned beds. Kato was more deliberate than his sisters and he reached over giving his frightened idol a goodnight kiss. The brazen boy brushed up against Michelle's tempting body and he purposely pushed his hips at her, as if he was humping her leg. 
 
  Michelle didn't want to make a scene, but she felt like dying when the boy poked her. He seemed to hold the pose for the longest time before going to his bed. Michelle literally shook from Kato's demoralizing strategy and she tried hard to shrug off the boy's tactics, as nothing but a childish prank. 
 
@@ -568,7 +594,11 @@
 
  
 
- ****** Michelle's Story Ch. 02 ****** bydawn1958© She danced three songs in a row with Buru and his hands got bolder and bolder with each dance. By the third, his right hand was securely around her back holding her tight against the front of his body. His hand rested directly on her ass like it was his private play-toy and Michelle felt totally embarrassed at not being able to stop Buru's crude groping. The look on Rodney's face grew more desperate by the minute, as the military leader danced with his wife. 
+ 
+
+===
+
+She danced three songs in a row with Buru and his hands got bolder and bolder with each dance. By the third, his right hand was securely around her back holding her tight against the front of his body. His hand rested directly on her ass like it was his private play-toy and Michelle felt totally embarrassed at not being able to stop Buru's crude groping. The look on Rodney's face grew more desperate by the minute, as the military leader danced with his wife. 
 
  Michelle could see the knowing looks on everyone's face and she realized it was inevitable that Buru would get her alone. All of a sudden the man spoke in his native tongue to Sarge who mysteriously appeared beside them. "We go now. I take white beauty to room... room you say I can use," he whispered to Sarge. "I see if she good... good for sucking like you promise. I hard already!" 
 
@@ -676,7 +706,11 @@
 
  
 
- ****** Michelle's Story Ch. 02 ****** bydawn1958© Sarge grabbed her dainty wrists and yanked her back to her feet. He pinned her arms at her sides and voiced instructions to his son in his native tongue. "Kato... take off dress. Strip her son. Take all clothes off so we can see... naked body," he whispered. "She's a fighter tonight, son... but she fuck. She good ass son... and she have orgasm with your big cock inside belly." 
+ 
+
+===
+
+Sarge grabbed her dainty wrists and yanked her back to her feet. He pinned her arms at her sides and voiced instructions to his son in his native tongue. "Kato... take off dress. Strip her son. Take all clothes off so we can see... naked body," he whispered. "She's a fighter tonight, son... but she fuck. She good ass son... and she have orgasm with your big cock inside belly." 
 
  Her jaw hurt like mad and her head was very dizzy. She was aware that Kato was now behind her and his hands were a blur, as he followed his father's directions. She was completely naked within moments and then Sarge let go of her arms. 
 
@@ -806,7 +840,11 @@
 
  
 
- ****** Michelle's Story Ch. 02 ****** bydawn1958© Michelle actually thought her turmoil was over for the evening after she had succumbed to Buru's degrading demands, but she was sadly mistaken. Once the party guests left, she was forced to go with Sarge and his son to a private bedroom. Michelle lay on the bed feeling immensely guilty for what happened, but she was also thoroughly embarrassed for the way she surrendered to Sarge's sexual demands. Then the images of a mature, experienced woman falling under the control of a mere teenager flashed through her head. Despite her resolve not to let her emotions get carried away, the boy made her orgasm like a little schoolgirl. 
+ 
+
+===
+
+Michelle actually thought her turmoil was over for the evening after she had succumbed to Buru's degrading demands, but she was sadly mistaken. Once the party guests left, she was forced to go with Sarge and his son to a private bedroom. Michelle lay on the bed feeling immensely guilty for what happened, but she was also thoroughly embarrassed for the way she surrendered to Sarge's sexual demands. Then the images of a mature, experienced woman falling under the control of a mere teenager flashed through her head. Despite her resolve not to let her emotions get carried away, the boy made her orgasm like a little schoolgirl. 
 
  Then the drastic visualization of Sarge making Michelle his personal slave materialized. Michelle remembered how she talked dirty to the man and how she willingly climaxed with Sarge's dangerous pecker buried deep in her inner being. She shivered realizing that she did not hesitate or struggle when Sarge detailed the entire night to her. The man scripted what she would do with his son and she freely cooperated. 
 
@@ -838,7 +876,11 @@
 
  
 
- ****** Michelle's Story Ch. 03 ****** bydawn1958© Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions, as I appreciate readers when they take the time to email. This short story was written for a special person and I hope these fantasies excite and satisfy her. 
 
  I receive many requests from loyal readers to do stories for them but it takes me weeks to do a story properly. After receiving this request from Michelle, I decided to try doing a real short story for her and see if it comes off okay. See what you think. 
 
@@ -936,7 +978,11 @@
 
  
 
- ****** Michelle's Story Ch. 03 ****** bydawn1958© *** 
+ 
+
+===
+
+*** 
 
  Thema was excited yet still apprehensive about leaving her childhood behind and entering the new chapter of her life. She was in the next room when all the senior warriors ravaged the white woman and she managed to peek into the room a few times. Every time she saw Michelle's nakedness, it sent a shiver of anxiety through her lithe body. Thema wasn't sure what it meant, but one thing she did know, she felt sympathy for Michelle. 
 
@@ -1034,7 +1080,11 @@
 
  
 
- ****** Michelle's Story Ch. 03 ****** bydawn1958© Michelle's heart stopped and she stared into the girl's dark, steely eyes. Nia didn't blink and the older woman quickly realized the strong, hypnotic power that the young African girl possessed. Michelle had no idea that Nia had attended missionary camps and although she didn't know perfect English, the girl did learn enough to get her point across. 
+ 
+
+===
+
+Michelle's heart stopped and she stared into the girl's dark, steely eyes. Nia didn't blink and the older woman quickly realized the strong, hypnotic power that the young African girl possessed. Michelle had no idea that Nia had attended missionary camps and although she didn't know perfect English, the girl did learn enough to get her point across. 
 
  Nia's face slowly came forward and Michelle knew what was going to happen. She sat frozen when Nia's lips touched her own and didn't resist when the girl's tongue gave her a jolt of electricity. Suddenly Nia broke the kiss. "You drink... watch wedding. Then you be mine," she said sending shivers of doubt through Michelle's brain. 
 
@@ -1142,7 +1192,11 @@
 
  
 
- ****** Michelle's Story Ch. 03 ****** bydawn1958© Suddenly the girl was overcome with bemoaning anguish. Thema also fell to her knees and kissed the woman directly on the lips. It was instantaneous. Both hearts beat so fact that each woman felt fully flushed and heated. Michelle's head no longer pounded. Now it throbbed with a familiar desire. 
+ 
+
+===
+
+Suddenly the girl was overcome with bemoaning anguish. Thema also fell to her knees and kissed the woman directly on the lips. It was instantaneous. Both hearts beat so fact that each woman felt fully flushed and heated. Michelle's head no longer pounded. Now it throbbed with a familiar desire. 
 
  Thema's hands were all over Michelle, caressing her back, her shoulders and her ass. Michelle's hands felt Thema's clothing and she could feel the girl's firm body getting hotter and hotter. They clung to each other in the most desperate show of passion. 
 
@@ -1248,7 +1302,11 @@
 
  
 
- ****** Michelle's Story Ch. 03 ****** bydawn1958© Nia never moved and she felt the bed sink from Thema's weight. Thema's arm brushed against her sister's heated flesh and Nia did not move away. Everything remained absolutely motionless for many moments with each one's mind dreaming of the future. All of a sudden the three were sitting up on the bed and each put an arm around another. 
+ 
+
+===
+
+Nia never moved and she felt the bed sink from Thema's weight. Thema's arm brushed against her sister's heated flesh and Nia did not move away. Everything remained absolutely motionless for many moments with each one's mind dreaming of the future. All of a sudden the three were sitting up on the bed and each put an arm around another. 
 
  Suddenly someone was giving her a kiss on the lips and Michelle welcomed the loving embrace. Then the kiss broke and lips were running up and down her nakedness. Michelle's head was filled with so many emotions that her mind was confused. All of a sudden she was aware that the sisters were kissing. Michelle stared at the amazing sight and watched Thema brush the hair back from Nia's pretty face, as the kiss lingered. It was one of those loving kisses that lasted a long time yet was merely a pretense for something else. 
 

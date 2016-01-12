@@ -1,8 +1,14 @@
+Jess Ch. 01
+===========
 #1 
 
  
 
- ****** Jess Ch. 01 ****** byStoryTeller07© Jess looked down at the paperwork, away from the door, on the first glimpse of Alan striding through it. He was born and bred in Hong Kong and looked as though he owned the place. The girls in the office forgave any hint of arrogance seeing it as his right to a confidence he deserved. His shoulders tapered down to a slim waist and a nice muscular bottom. 
+ 
+
+===
+
+Jess looked down at the paperwork, away from the door, on the first glimpse of Alan striding through it. He was born and bred in Hong Kong and looked as though he owned the place. The girls in the office forgave any hint of arrogance seeing it as his right to a confidence he deserved. His shoulders tapered down to a slim waist and a nice muscular bottom. 
 
  Jess didn't have to look to know this for she had seen him often enough and the girls would soon chatter about what he was wearing. It wasn't just his body that was impressive his mind was sharp too. Hence promotion to office manager while only twenty-five. 
 
@@ -186,7 +192,11 @@
 
  
 
- ****** Jess Ch. 01 ****** byStoryTeller07© Jess looked up at him past the huge cock that dominated her view. She felt frail and subdued by it. 
+ 
+
+===
+
+Jess looked up at him past the huge cock that dominated her view. She felt frail and subdued by it. 
 
  "Turn over," he told her. The firm tone of voice was enough but he pulled the coverlet from under her body spinning her body round. He rolled the cold can over her cheeks and she squealed with feigned protests. He held her down with a hand on her back while she kicked out. She was laughing and cavorting trying to get away. 
 
@@ -356,7 +366,11 @@
 
  
 
- ****** Jess Ch. 02 ****** byStoryTeller07© (This chapter is particularly perverse and nasty, so be warned!) 
+ 
+
+===
+
+(This chapter is particularly perverse and nasty, so be warned!) 
 
  
 
@@ -554,7 +568,11 @@
 
  
 
- ****** Jess Ch. 02 ****** byStoryTeller07© She choked off a groan of passion, trying to keep silent, as their presence pushed her further into the throws of a violent orgasm. Instead of shutting off the passion, the danger inspired her. She wriggled her ass around his cock, pushing back onto him, wanting him to cum needing him to fill her tight vagina with hot sperm. 
+ 
+
+===
+
+She choked off a groan of passion, trying to keep silent, as their presence pushed her further into the throws of a violent orgasm. Instead of shutting off the passion, the danger inspired her. She wriggled her ass around his cock, pushing back onto him, wanting him to cum needing him to fill her tight vagina with hot sperm. 
 
  It was not to be. He instead withdrew and spurted over her panties. Her stomach cramped, with tingling sensations pulsing outward, throughout her body. It left her trembling. She continued to watch her friends, knowing they could look down at her at any moment. She was helplessly standing there unable to move. 
 

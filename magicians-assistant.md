@@ -1,8 +1,14 @@
+Magician's Assistant Ch. 01
+===========================
 #1 
 
  
 
- ****** Magician's Assistant Ch. 01 ****** byStoryTeller07© Alice was humming a cheerful little tune while cleaning the house, pleased to be adrift in the usual routine of household chores. While vacuuming the bedroom the machine bumped something under the bed and to her surprise it was a sex manual. It was obvious who had left it there and the thought of him, as though she could forget for one moment, brought a sly grin to her face. "My young lover." She murmured happily. 
+ 
+
+===
+
+Alice was humming a cheerful little tune while cleaning the house, pleased to be adrift in the usual routine of household chores. While vacuuming the bedroom the machine bumped something under the bed and to her surprise it was a sex manual. It was obvious who had left it there and the thought of him, as though she could forget for one moment, brought a sly grin to her face. "My young lover." She murmured happily. 
 
  Across the bedroom was a gilt framed mirror reflecting a full-length image of a pretty young housewife in a short flared dress. Such a luxurious home should have a maid she thought, "and I'm it. Perhaps I should get a naughty uniform." She giggled out loud. Bending slightly revealed stocking tops with a glimpse of suspenders just as he liked them. It sent a thrill through her knowing she was dressing just for him. 
 
@@ -134,7 +140,11 @@
 
  
 
- ****** Magician's Assistant Ch. 01 ****** byStoryTeller07© He looked worried so perhaps he was there for reassurance that there wouldn't be repercussions. He needed to know that she was unaware of what had happened. In ignorance he didn't realised a man couldn't take a woman without her knowing, from the results of his passion if nothing else. Even if she had been ordered to forget, which he had neglected to do! 
+ 
+
+===
+
+He looked worried so perhaps he was there for reassurance that there wouldn't be repercussions. He needed to know that she was unaware of what had happened. In ignorance he didn't realised a man couldn't take a woman without her knowing, from the results of his passion if nothing else. Even if she had been ordered to forget, which he had neglected to do! 
 
  "Your brother was here earlier but we couldn't practise tonight. He's probably at home now." She said, hoping he would just go. Embarrassment was one of the emotions she felt strongly. How would it be visiting her neighbour, seeing him there knowing what they had done together unable to acknowledge it. Like now it felt awkward. So intimate yet so distant. 
 
@@ -174,7 +184,11 @@
 
  
 
- ****** Magician's Assistant Ch. 02 ****** byStoryTeller07© Rocking gently on the sofa she wondered at how stupid she had been to allow it to continue. Enthusiastically she had thrown herself into a state of hypnosis for Robert to take control. All right she hadn't guessed she was actually hypnotised at the time but later. Later she did know and simply gave in. After several weeks of hypnosis it had been too easy for James to take advantage of her in this vulnerable state, and in any case, some part of her had wanted it. Letting it continue, letting it grow more powerful, until now it seemed she was lost, utterly lost to the need that kept her trapped. 
+ 
+
+===
+
+Rocking gently on the sofa she wondered at how stupid she had been to allow it to continue. Enthusiastically she had thrown herself into a state of hypnosis for Robert to take control. All right she hadn't guessed she was actually hypnotised at the time but later. Later she did know and simply gave in. After several weeks of hypnosis it had been too easy for James to take advantage of her in this vulnerable state, and in any case, some part of her had wanted it. Letting it continue, letting it grow more powerful, until now it seemed she was lost, utterly lost to the need that kept her trapped. 
 
  Alice remembered how every evening James played with her, becoming bolder, trying something new each session. Each day she would anticipate with a little thrill of excitement what she might have to do next to please him. The very thought that he was using her like some plaything had been exciting and knowing she was hooked on his visits wanting them to continue failed to frighten any longer. She had no responsibility for what happened since becoming this young mans experimental doll to be played with, enforced to do just whatever he wanted. 
 
@@ -334,7 +348,11 @@
 
  
 
- ****** Magician's Assistant Ch. 03 ****** byStoryTeller07© Alice felt safe once the door was shut on the short scurry from the car to her home. It would have been terribly embarrassing if the neighbours saw her wearing the short see through dress. It wouldn't have been fatal but just the thought of how they would gossip about her would have been hard to endure. 
+ 
+
+===
+
+Alice felt safe once the door was shut on the short scurry from the car to her home. It would have been terribly embarrassing if the neighbours saw her wearing the short see through dress. It wouldn't have been fatal but just the thought of how they would gossip about her would have been hard to endure. 
 
  With Daren she felt comforted even though she had just met him. For a fleeting moment she wondered why he had followed in his car but filed the question away, for the moment content to trust her instinct about him. He was a caring individual, which seemed out of keeping with his working in a sex store, or at least, with the image of such a place being sleazy for devious people. 
 
@@ -426,7 +444,11 @@
 
  
 
- ****** Magician's Assistant Ch. 04 ****** byStoryTeller07© James arrived on time with Alice waiting patiently. Only a few days ago she had been worried what he might do to her next as each visit meant ever greater humiliations. He was demanding ever more outrageous sexual acts far beyond anything she had ever experienced. 
+ 
+
+===
+
+James arrived on time with Alice waiting patiently. Only a few days ago she had been worried what he might do to her next as each visit meant ever greater humiliations. He was demanding ever more outrageous sexual acts far beyond anything she had ever experienced. 
 
  When he told her casually to obey him with pleasure, she was committed to do just that. It was a casual remark for him but devastating to her. Being hypnotised so deeply for so long the suggestion would now be impossible to resist. So now she had the indignity of waiting upon him, for whatever awful act he intended, with pleasurable enthusiasm. 
 
@@ -586,7 +608,11 @@
 
  
 
- ****** Magician's Assistant Ch. 05 ****** byStoryTeller07© Alice awoke with more than a dirty taste in her mouth. She had a stranger's flaccid cock there and she was sucking on it. Not by choice for she had always been a bit of a quiet prude. Her husband, when he was alive, had given up encouraging her to try something different and even then he hadn't asked for anything too out of the ordinary. 
+ 
+
+===
+
+Alice awoke with more than a dirty taste in her mouth. She had a stranger's flaccid cock there and she was sucking on it. Not by choice for she had always been a bit of a quiet prude. Her husband, when he was alive, had given up encouraging her to try something different and even then he hadn't asked for anything too out of the ordinary. 
 
  She laid there hoping George would soon wake and free her of the command to do just as she was doing: suckling his cock like a dummy. Being so heavily hypnotised she would have to do just as he had ordered. He had no idea she was hypnotised. He thought she was just some kinky housewife getting a thrill from being submissive to a man, any man. 
 
@@ -806,7 +832,11 @@
 
  
 
- ****** Magician's Assistant Ch. 05 ****** byStoryTeller07© The man skirted round his boss who stood there huffing and puffing in anger. His red face gave him the appearance of a boiler about to explode. His hands clenched and unclenched. "What the hell do you think your doing?" He shouted at her. 
+ 
+
+===
+
+The man skirted round his boss who stood there huffing and puffing in anger. His red face gave him the appearance of a boiler about to explode. His hands clenched and unclenched. "What the hell do you think your doing?" He shouted at her. 
 
  "I'm paying for the groceries." She replied. The answer shook her. She was stripping for food. How low could she get. The awareness of how degraded her morals were shattered her self-worth. 
 

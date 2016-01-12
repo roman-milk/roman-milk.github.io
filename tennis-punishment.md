@@ -1,8 +1,14 @@
+Tennis Punishment
+=================
 #1 
 
  
 
- ****** Tennis Punishment ****** bytom6432© Swat! Swat! Swat! I had my nineteen year old step daughter over my knees, her short tennis skirt lifted, and her white tennis panties dangling at her ankles. 'When I tell you I want you home at a certain hour, I want you home!' I continued to spank her firm buttocks, her long, tanned legs were to my right and her head and hands were touching the ground to my left. I sat on a straight-backed chair in the living room, swinging my right palm up and down, first one cheek than the other. Whack! Whack! Whack! 
+ 
+
+===
+
+Swat! Swat! Swat! I had my nineteen year old step daughter over my knees, her short tennis skirt lifted, and her white tennis panties dangling at her ankles. 'When I tell you I want you home at a certain hour, I want you home!' I continued to spank her firm buttocks, her long, tanned legs were to my right and her head and hands were touching the ground to my left. I sat on a straight-backed chair in the living room, swinging my right palm up and down, first one cheek than the other. Whack! Whack! Whack! 
 
  'I told you that you were grounded for coming home after your curfew, did I not, Missy?' I continued to spank her 10 on one cheek then 10 on the other. 'No, Daddy, please, I'll be good. I was playing tennis with Mommy.' She sounded and was acting like an 6 year old. 
 

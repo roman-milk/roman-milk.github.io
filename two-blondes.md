@@ -1,8 +1,14 @@
+Two Blondes
+===========
 #1 
 
  
 
- ****** Two Blondes ****** byStoryTeller07© He had noticed Sandra in the office building, once or twice. It would be difficult not to. She seemed to be all tits and ass, with a little brain. The kind Jeff hated. She looked like the sort of arrogant woman who expects all men to swoon at her feet just for a smile. 
+ 
+
+===
+
+He had noticed Sandra in the office building, once or twice. It would be difficult not to. She seemed to be all tits and ass, with a little brain. The kind Jeff hated. She looked like the sort of arrogant woman who expects all men to swoon at her feet just for a smile. 
 
  Jeff found himself in one of the elevators with her, and to his amazement she started a conversation. 
 
@@ -216,7 +222,11 @@
 
  
 
- ****** Two Blondes ****** byStoryTeller07© She relented, letting him explore her mouth, being passive, not wanting to start all over again just then. They needed to talk. She was pleasantly surprised that he quickly got the message, and slid back from her to lie smiling broadly at her. 
+ 
+
+===
+
+She relented, letting him explore her mouth, being passive, not wanting to start all over again just then. They needed to talk. She was pleasantly surprised that he quickly got the message, and slid back from her to lie smiling broadly at her. 
 
  "Do you always take women home, to seduce them on a first date?" she asked, trying to sound innocent. 
 
@@ -428,7 +438,11 @@
 
  
 
- ****** Two Blondes Ch. 02 ****** byStoryTeller07© Jeff kept smiling to himself. His arm had a couple of bruises where he had pinched it. He tried to show the two girls he was cool with the idea of sharing their lives, and that he could handle it. 'Just see where it goes' Sandra had told him. This had been Sandra's idea and Louise, the younger of the two, went along with it. So far it had gone very well, for him, and they looked happy enough. It was going so damn well, he was on a constant high, trying to calm down. 
+ 
+
+===
+
+Jeff kept smiling to himself. His arm had a couple of bruises where he had pinched it. He tried to show the two girls he was cool with the idea of sharing their lives, and that he could handle it. 'Just see where it goes' Sandra had told him. This had been Sandra's idea and Louise, the younger of the two, went along with it. So far it had gone very well, for him, and they looked happy enough. It was going so damn well, he was on a constant high, trying to calm down. 
 
  Every time he looked at them he wanted to punch the air and shout out loud. He was thirty-two and kept slim from working out, though he didn't consider himself a muscular hunk. Sandra was mature for her age at twenty-two yet her youthfulness often showed. So how had it happened that he was getting to know two attractive young blondes? 
 
@@ -636,7 +650,11 @@
 
  
 
- ****** Two Blondes Ch. 02 ****** byStoryTeller07© "It's his choice, something nice and frilly," Louise stated, and giggled too. 
+ 
+
+===
+
+"It's his choice, something nice and frilly," Louise stated, and giggled too. 
 
  "Our lovely man wants to buy us some treats, something naughty to wear for him," Sandra added. 
 

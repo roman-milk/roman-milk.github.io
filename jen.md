@@ -1,8 +1,14 @@
+Jen Ch. 01
+==========
 #1 
 
  
 
- ****** Jen Ch. 01 ****** byStoryTeller07© "You fit to be seen DM?" Morris asked with the door open a crack. He walked in on hearing a grunt of consent. Jen barely lifted her head to nod at him. "Know what its like, been there a few times, so I won't shout at you," he told her. 
+ 
+
+===
+
+"You fit to be seen DM?" Morris asked with the door open a crack. He walked in on hearing a grunt of consent. Jen barely lifted her head to nod at him. "Know what its like, been there a few times, so I won't shout at you," he told her. 
 
  Jen sat on the edge of the bed, only making it that far, while nursing a sore head in both hands. She wore a pair of slept-in panties and a t-shirt, smelling like a next morning bar room. "Unlike you not to take advantage and you might as well, my parents will. I'll be grounded for the next six months. Mother won't let me out of her sight." Jen murmured. 
 
@@ -156,7 +162,11 @@
 
  
 
- ****** Jen Ch. 01 ****** byStoryTeller07© Morris contemplated what had gone wrong. Telling that harridan the precious daughter wasn't so perfect and getting Jen out of his hair had been a perfect idea only it all went wrong. He ended up spanking his niece, which wouldn't have been such a big deal except she was twenty-two and a very desirable young woman. 
+ 
+
+===
+
+Morris contemplated what had gone wrong. Telling that harridan the precious daughter wasn't so perfect and getting Jen out of his hair had been a perfect idea only it all went wrong. He ended up spanking his niece, which wouldn't have been such a big deal except she was twenty-two and a very desirable young woman. 
 
  The way she said she would do whatever he wanted was so tempting he just couldn't resist teaching her a lesson. Never take it for granted someone will play fair and not take advantage. He thought she would have protested and not given in so easily, so he could claim a victory and continue with the plan of telling her mother. After spanking her he dare not tell anyone. 
 
@@ -344,7 +354,11 @@
 
  
 
- ****** Jen Ch. 01 ****** byStoryTeller07© He lifted her up and bent her over the bath. With legs outstretched he finished the job removing every last hair, denuding her completely. Nothing was hidden between her legs or between her cheeks. 
+ 
+
+===
+
+He lifted her up and bent her over the bath. With legs outstretched he finished the job removing every last hair, denuding her completely. Nothing was hidden between her legs or between her cheeks. 
 
  Jen stood before him holding up the dress while he examined her. She bent over and pulled her cheeks apart feeling reduced to an object unworthy of his attention. 
 

@@ -1,8 +1,14 @@
+Caught and Exposed
+==================
 #1 
 
  
 
- ****** Caught and Exposed ****** byStoryTeller07© My usual style is to rush through a story at as quick a pace as possible. For some it is too hurried. So this time atmosphere has been built, slowly. If like me you like to 'get at it' then skip the first twenty or so paragraphs. 
+ 
+
+===
+
+My usual style is to rush through a story at as quick a pace as possible. For some it is too hurried. So this time atmosphere has been built, slowly. If like me you like to 'get at it' then skip the first twenty or so paragraphs. 
 
  * 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Caught and Exposed ****** byStoryTeller07© With a smirk on her face she chewed the gum even more vigorously. 
+ 
+
+===
+
+With a smirk on her face she chewed the gum even more vigorously. 
 
  Deirdre stood there like a startled rabbit in the full beamed brightness of the girls smirk. There were a few more customers in now and they were staring at her. It was bad enough being dressed in charity shop rejects but having everyone think she couldn't afford a pair of cheap panties was appalling. 
 
@@ -256,7 +266,11 @@
 
  
 
- ****** Caught and Exposed Ch. 02 ****** byStoryTeller07© I'm sorry this chapter has taken so long to publish but I have been ill, the only thing that could possibly stop me writing. I hope you enjoy this chapter and in some small way it has been worth waiting for. 
+ 
+
+===
+
+I'm sorry this chapter has taken so long to publish but I have been ill, the only thing that could possibly stop me writing. I hope you enjoy this chapter and in some small way it has been worth waiting for. 
 
  * 
 
@@ -446,7 +460,11 @@
 
  
 
- ****** Caught and Exposed Ch. 02 ****** byStoryTeller07© Feigning interest in the document she concentrated, not on it, but on not laughing. She lent to her left sliding her left leg outward dragging her knees apart as though unaware of what she was doing. The two men had squashed themselves lower in the sofa anticipating the delightful sight of her panties like mischievous school boys with all attempts at conversation abandoned. 
+ 
+
+===
+
+Feigning interest in the document she concentrated, not on it, but on not laughing. She lent to her left sliding her left leg outward dragging her knees apart as though unaware of what she was doing. The two men had squashed themselves lower in the sofa anticipating the delightful sight of her panties like mischievous school boys with all attempts at conversation abandoned. 
 
  With the cup balanced in its saucer she held the pose for a moment attempting to catch her personal waiter's eye. She needn't have waited he was studying her with keen interests. A nod of her head was all he needed to bring over a refill. 
 
@@ -472,7 +490,11 @@
 
  
 
- ****** Caught and Exposed Ch. 03 ****** byStoryTeller07© The instructions were received and understood. There was no choice but accept the next challenge. Each had been allusive as to meaning, and this was no exception, though more dangerous. Mister Smith had reminded her to use all that she had learnt so far about herself and others. Good advice if she could just work out what that was. 
+ 
+
+===
+
+The instructions were received and understood. There was no choice but accept the next challenge. Each had been allusive as to meaning, and this was no exception, though more dangerous. Mister Smith had reminded her to use all that she had learnt so far about herself and others. Good advice if she could just work out what that was. 
 
  Walking into the exclusive hotel wasn't such an ordeal it was the exacting challenge that was daunting. Deirdre's gait was less strident showing how less self-assured she was. She let the hem of the skirt ride up as she sat down. She looked around as though expecting someone, at the same time looking over the customers in the bar. 
 
@@ -652,7 +674,11 @@
 
  
 
- ****** Caught and Exposed Ch. 03 ****** byStoryTeller07© "Yea, sure, know what you mean, but they're in the process, can't help." The woman droned. 
+ 
+
+===
+
+"Yea, sure, know what you mean, but they're in the process, can't help." The woman droned. 
 
  Deirdre dropped the phone. She wrapped her arms about her body, hugging herself for protection. A sharp knock on the door awakened her from the nightmare. She had been standing in the middle of the room, completely naked, rocking slightly. 
 

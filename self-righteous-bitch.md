@@ -1,8 +1,14 @@
+Self-Righteous Bitch
+====================
 #1 
 
  
 
- ****** Self-Righteous Bitch ****** bydickpounder73© This story is purely fictional and all representations of real people are purely your imagination. 
+ 
+
+===
+
+This story is purely fictional and all representations of real people are purely your imagination. 
 
  ***** 
 

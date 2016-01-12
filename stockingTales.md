@@ -1424,8 +1424,6 @@ Was I ready to be in a relationship with a woman? Would it be an actual relation
 
 ===
 
-
-
  bosss-pet40.jpg] 
 
  She laughed, "That is even more adorable than I anticipated." 
@@ -3553,8 +3551,6 @@ Summary: A teacher and an ex-student fall for each other.
  
 
 ===
-
-
 
  face-full-of-cum18.jpg] 
 

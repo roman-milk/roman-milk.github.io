@@ -1,8 +1,14 @@
+Making Mother My slut
+=====================
 #1 
 
  
 
- ****** Making Mother My slut ****** bydickpounder73© It all started when I was 18 and a senior in High School playing football. It was a Saturday practice after a big win on Friday night, and our coach gave us half practice off. 
+ 
+
+===
+
+It all started when I was 18 and a senior in High School playing football. It was a Saturday practice after a big win on Friday night, and our coach gave us half practice off. 
 
  I came home a couple hours early. Mom was doing her usual shopping on a Saturday with the girls, which usually took most of the day. Dad was home with my older sister Kip who was off work today. 
 
@@ -184,7 +190,11 @@
 
  
 
- ****** Making Mother My slut ****** bydickpounder73© It didn't take her long..."In mothers cunt...please put this beautiful cock in my pussy Dicky... please fuck your mother baby... I want it so baddddddd". 
+ 
+
+===
+
+It didn't take her long..."In mothers cunt...please put this beautiful cock in my pussy Dicky... please fuck your mother baby... I want it so baddddddd". 
 
  I lifted her like a little girl in my arms...kissing her like a lover would, our tongues dancing over each other, both of us moaning in each others mouth, and I lay her down on my bed (the bed mom tucked me in all my life.) 
 
@@ -272,7 +282,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 02 ****** bydickpounder73© I watched my new slut, my new sub walk out of my room. That sweet ass glistening in the light from our cum, and I smiled at myself, so proud of my new property, my mother, MY submissive slut. 
+ 
+
+===
+
+I watched my new slut, my new sub walk out of my room. That sweet ass glistening in the light from our cum, and I smiled at myself, so proud of my new property, my mother, MY submissive slut. 
 
  Laughing to myself, "I need to rethink this leaving when I graduate, now that I have an entirely different mom." 
 
@@ -492,7 +506,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 02 ****** bydickpounder73© Kim, bucked and started cumming at mom's words, "Ohhh fuck yes, GODddddddddddd I want Johnny to do that to me so fucking baddddddd, Ohhhhhh fuckkkkkkkkkkkkkkkkkkkkkkkkk." 
+ 
+
+===
+
+Kim, bucked and started cumming at mom's words, "Ohhh fuck yes, GODddddddddddd I want Johnny to do that to me so fucking baddddddd, Ohhhhhh fuckkkkkkkkkkkkkkkkkkkkkkkkk." 
 
  Mom pushed her face back to Kim's pussy, drinking her cum, licking noisily on her clit and down to her asshole, moaning as I slowly drove my cock deep and hard, a long slow rythym at first, feeling her pussy constrict around my dick, milking me. 
 
@@ -640,7 +658,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 03 ****** bydickpounder73© I came in from Football practice, knowing that I would be alone with my sister Kip. Dad was in San Diego on business, and since Mother took Columbus Day off to be with me, she had to work late showing houses. 
+ 
+
+===
+
+I came in from Football practice, knowing that I would be alone with my sister Kip. Dad was in San Diego on business, and since Mother took Columbus Day off to be with me, she had to work late showing houses. 
 
  Today I skipped hanging out with my friends at the burger joint, because I wanted to have a little chat with my sister. When I got home I didn't see my sister, so I thought she may be downstairs in her room. I opened the door to the basement and headed down stairs. The closer I got to my sisters room the louder I heard what sounded like a movie, and I surmised it was an x rated movie, (You can always tell because the music is cheesy and loud.) 
 
@@ -838,7 +860,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 03 ****** bydickpounder73© Slowly ever so slowly working her way to mom's ass. Using the heels of her palms, Kip was moving in slow circles on her waist, then slowly started massaging mothers ass cheeks. Both hands gripping them while rolling her thumbs in hard circles. 
+ 
+
+===
+
+Slowly ever so slowly working her way to mom's ass. Using the heels of her palms, Kip was moving in slow circles on her waist, then slowly started massaging mothers ass cheeks. Both hands gripping them while rolling her thumbs in hard circles. 
 
  Mom moved her ass into Kips hands, moaned and said, "Oh Kippy that feels so good baby girl, you know what mommy needs." 
 
@@ -1032,7 +1058,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 04 ****** bydickpounder73© After all the family secrets were revealed, life settled in to Kip talking care of Dad, and me taking care of Mom's needs. Occasionally the entire family would play together and those were some wonderful times. 
+ 
+
+===
+
+After all the family secrets were revealed, life settled in to Kip talking care of Dad, and me taking care of Mom's needs. Occasionally the entire family would play together and those were some wonderful times. 
 
  I don't think Dad ever cum so hard as he did, with my sister sucking his cock, mother sucking mine and he sucking my cum from my mothers dripping wet cunt. 
 
@@ -1264,7 +1294,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 04 ****** bydickpounder73© She looked so fucking sultry, her hair was now down and her dress opened a little more, exposing more of her big tits. 
+ 
+
+===
+
+She looked so fucking sultry, her hair was now down and her dress opened a little more, exposing more of her big tits. 
 
  Johnny must have seen her and pulled the throw off his lap exposing his big hard cock. It was the first time I actually saw his dick. He was maybe 9 inches and very thick. He was stroking it long and slow, looking over at his mother now. 
 
@@ -1554,7 +1588,11 @@
 
  
 
- ****** Making Mother My Slut Pt. 04 ****** bydickpounder73© He was staring down her blouse at her firm tits, he could see all of them and I swear, he moaned as he saw her beautiful tits and hard nipples. 
+ 
+
+===
+
+He was staring down her blouse at her firm tits, he could see all of them and I swear, he moaned as he saw her beautiful tits and hard nipples. 
 
  Suzi looked up as she was leaning over and saw him looking down her blouse, he looked up embarrassed knowing he was busted, but Suzi just smiled at him, "Can I do anything else for you Daddy?" 
 

@@ -1,8 +1,14 @@
+Baby Sit the Wife Ch. 01
+========================
 #1 
 
  
 
- ****** Baby Sit the Wife Ch. 01 ****** byStoryTeller07© Both Nadine and her husband were getting ready to go out, looking forward to escaping from the hard work of moving home. Nadine was standing naked in what was to become their bedroom, given a chance organise it, searching for something to wear. Standing only five foot two in bare feet made it difficult to reach on top of the wardrobe. "Oh! Damn It! Why did we have to move?" Nadine shouted. 
+ 
+
+===
+
+Both Nadine and her husband were getting ready to go out, looking forward to escaping from the hard work of moving home. Nadine was standing naked in what was to become their bedroom, given a chance organise it, searching for something to wear. Standing only five foot two in bare feet made it difficult to reach on top of the wardrobe. "Oh! Damn It! Why did we have to move?" Nadine shouted. 
 
  "Because this is closer to my office and you did agree, you do like this house, don't you? Your work at your fathers place is nearly finished where mine is just starting. You know that." John complained right back at her. They were overtired and began to tease each other only there was a sharp edge to the words being thrown around. 
 
@@ -174,7 +180,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 01 ****** byStoryTeller07© "I'll have to do something about this top before I go home. I know what my brothers will think I've been up to if they see it torn and what they will say to mum. When's this aunt of yours getting back?" 
+ 
+
+===
+
+"I'll have to do something about this top before I go home. I know what my brothers will think I've been up to if they see it torn and what they will say to mum. When's this aunt of yours getting back?" 
 
  Nadine was silent standing bowed before them trying to come to terms with the shame of being stretched bare assed over this young mans lap. The humiliation of being spanked by a stranger was awful. 
 
@@ -196,7 +206,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 02 ****** byStoryTeller07© Nadine waited for her husband to clear the house before rising unable to face him or anyone else. Fortunately he slept in the spare room too cautious to wake her and slunk out early this morning for a round of golf. 
+ 
+
+===
+
+Nadine waited for her husband to clear the house before rising unable to face him or anyone else. Fortunately he slept in the spare room too cautious to wake her and slunk out early this morning for a round of golf. 
 
  She was lingering over a cup of coffee wondering if it would be wiser to give him a hard time over being left with the neighbours daughter or keep silent, as she would rather forget the whole sordid episode, but he would expect her to say something. Again she thought silence might just work or was it wishful thinking for she didn't trust herself to be able to carry on a convincing argument when she felt so guilty. 
 
@@ -330,7 +344,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 03 ****** byStoryTeller07© "You look gorgeous in white." Daren told her. Nadine looked away from the young man embarrassed at being reminded how she was undressed. "Just stand there and let me take you all in." He sat on a low sofa looking up at her while she stood awkwardly, embarrassed, fingers twitching. She was finding it difficult to know what to do with her hands not wanting to touch bare flesh or the lacy underwear. The bra was comfortable and it made the most of small breasts. The panties were high cut over the hips with a suspender belt biting beneath them. The thin straps holding the sheer stockings wrapping tight her legs clung into hollow thighs. 
+ 
+
+===
+
+"You look gorgeous in white." Daren told her. Nadine looked away from the young man embarrassed at being reminded how she was undressed. "Just stand there and let me take you all in." He sat on a low sofa looking up at her while she stood awkwardly, embarrassed, fingers twitching. She was finding it difficult to know what to do with her hands not wanting to touch bare flesh or the lacy underwear. The bra was comfortable and it made the most of small breasts. The panties were high cut over the hips with a suspender belt biting beneath them. The thin straps holding the sheer stockings wrapping tight her legs clung into hollow thighs. 
 
  It was difficult to decide if the rear view was better than the front. The white silk pursed generous lips outlining them delicately. The suspender belt framed a tight round bottom and with a slight forward bend a glimpse of the silk clad lips was delightful. 
 
@@ -484,7 +502,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 03 ****** byStoryTeller07© This time no prompting was needed as the woman was in automatic drive taking no notice of what she was doing yet in perfect control of the stiff member. All the right moves at the right time were performed until he too came. She watched in fascination the open mouth displaying a load. Gloria had videoed the whole chore wondering what was going on with Daren for her to act like this. Surely she should have put up a bit of a fight and not given in so easily. 
+ 
+
+===
+
+This time no prompting was needed as the woman was in automatic drive taking no notice of what she was doing yet in perfect control of the stiff member. All the right moves at the right time were performed until he too came. She watched in fascination the open mouth displaying a load. Gloria had videoed the whole chore wondering what was going on with Daren for her to act like this. Surely she should have put up a bit of a fight and not given in so easily. 
 
  **** 
 
@@ -502,7 +524,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 04 ****** byStoryTeller07© Chapter 4 
+ 
+
+===
+
+Chapter 4 
 
  Freedom at last! 
 
@@ -676,7 +702,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 04 ****** byStoryTeller07© She had inadvertently pressed herself against them and every wriggle sent a shiver up her spine. "No! Stop it, please," she moaned around his tongue. His kisses had turned her on then the nipple squeeze heated her up. His fingers were pressed against her clitoris with the slightest movement sending demanding messages to her brain. She should unwrap her legs from around his hand but hadn't the will power. 
+ 
+
+===
+
+She had inadvertently pressed herself against them and every wriggle sent a shiver up her spine. "No! Stop it, please," she moaned around his tongue. His kisses had turned her on then the nipple squeeze heated her up. His fingers were pressed against her clitoris with the slightest movement sending demanding messages to her brain. She should unwrap her legs from around his hand but hadn't the will power. 
 
  She was a mature experienced woman yet this young kid had her panting for more. It was worryingly embarrassing. A hand easily pushed up the top to find a nipple and the skirt was too short to fend off the most casual attempt. More than that the skirt was a temptation to any hand and his was well up there playing her sensitive bits like a musical instrument. Any moment she would begin to sing in tune to his fiddle. 
 
@@ -842,7 +872,11 @@
 
  
 
- ****** Baby Sit the Wife Ch. 04 ****** byStoryTeller07© She held her breath willing him to keep his eyes closed, not daring to move. He lowered her into his lap a little further. She felt the head of his cock touch. Her mouth opened to scream but she bit her lip and looked up at the stars. Her eyes glistened with tears. 
+ 
+
+===
+
+She held her breath willing him to keep his eyes closed, not daring to move. He lowered her into his lap a little further. She felt the head of his cock touch. Her mouth opened to scream but she bit her lip and looked up at the stars. Her eyes glistened with tears. 
 
  She was a rich powerful woman but right now she was helpless to stop this man from driving his cock into her and fucking her. After so much stimulation from his son and having the usual spanking from a dominant she was too aroused to want to stop. She felt his cock push against her inner lips its head pushing at her vagina. Her mind reeled at the touch, wanting it but hating that it had to be him. 
 

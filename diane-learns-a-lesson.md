@@ -1,8 +1,14 @@
+Diane Learns a Lesson
+=====================
 #1 
 
  
 
- ****** Diane Learns a Lesson ****** bydawn1958© This is a story written about a reader's fantasy, but please don't consider it as reality. He knows it is wrong to rape someone but it still doesn't stop his dreaming about it. 
+ 
+
+===
+
+This is a story written about a reader's fantasy, but please don't consider it as reality. He knows it is wrong to rape someone but it still doesn't stop his dreaming about it. 
 
  * 
 
@@ -120,7 +126,11 @@
 
  
 
- ****** Diane Learns a Lesson ****** bydawn1958© The teen looked straight into her eyes. "Let's watch the movie... then you'll change your tune," Jeff said. "Try to remember last night. What you did... what we did." 
+ 
+
+===
+
+The teen looked straight into her eyes. "Let's watch the movie... then you'll change your tune," Jeff said. "Try to remember last night. What you did... what we did." 
 
  Diane thought back. The last thing she remembered clearly from her daydream was returning to her condo with these two teenagers. She could not understand why she was with the dimwitted kid who she thought had the brains of an idiot. Then she recalled being in her bedroom and it was very, very quiet as her clothes were slowly stripped from her body. All of a sudden a fresh image flashed through her brain. She was completely naked and having sex with someone other than her devoted husband. Diane shuddered and quickly blocked out the raunchy illustrations of riding the penis of a stranger. 
 
@@ -310,7 +320,11 @@
 
  
 
- ****** Diane Learns a Lesson ****** bydawn1958© Jeff lifted her higher and felt her legs thrash around trying to stop the intense fucking. He yanked her hair hard and jerked her head backwards so she stared straight at the ceiling. "Not yet... wait. Wait for it... I want to fill your snatch with baby-cum!" 
+ 
+
+===
+
+Jeff lifted her higher and felt her legs thrash around trying to stop the intense fucking. He yanked her hair hard and jerked her head backwards so she stared straight at the ceiling. "Not yet... wait. Wait for it... I want to fill your snatch with baby-cum!" 
 
  Her stomach heaved and went into severe convulsions. For the first time in her life, she lost complete control, but suddenly it didn't matter. There was no reason for morality or any kind of decency. Her womanly juices coated the big cock and Diane knew the orgasm would haunt her forever. She was consumed by the daunting lust and nothing else mattered. "Gawd, I can't... can't... oh gawd, I'm cumming. I can't stop." 
 
@@ -476,7 +490,11 @@
 
  
 
- ****** Diane Learns a Lesson ****** bydawn1958© It was the perfect position. Diane closed her eyes and imagined her husband behind her. They often had sex in this position and it brought back wonderful memories, as she dreamed about her husband. She was too tired to move and relished the chance to simply remain still. Jeremy tucked his arm under Diane's head and tightened his embrace, as his hand cupped a boob. He reached around her chest with his other arm and hugged her tighter into his chest. 
+ 
+
+===
+
+It was the perfect position. Diane closed her eyes and imagined her husband behind her. They often had sex in this position and it brought back wonderful memories, as she dreamed about her husband. She was too tired to move and relished the chance to simply remain still. Jeremy tucked his arm under Diane's head and tightened his embrace, as his hand cupped a boob. He reached around her chest with his other arm and hugged her tighter into his chest. 
 
  Diane was in dreamland; the teenager was tender. His loving caress felt marvelous on first one breast and then the other until both nipples were rock- hard and throbbing. She was going to ask Jeremy to stop, but wanted to delay it for just a moment or two. Then he fondled one boob and his other hand went to her chin, tilting her head up slightly so his lips could reach her ear. 
 
@@ -654,7 +672,11 @@
 
  
 
- ****** Diane Learns a Lesson ****** bydawn1958© Nothing was said after Danny's climax and the teenagers quickly got dressed. Diane sat up and watched. She felt used and kind of dirty yet the feeling wasn't as upsetting as she imagined. She was almost in a dreamlike state. Her finger slowly wiped something off her chin and slipped up to her lips, as her tongue lashed out to clean her finger. The bitter taste was surprising and not revolting like she thought. Then her other hand slipped down and into her sweaty crotch. 
+ 
+
+===
+
+Nothing was said after Danny's climax and the teenagers quickly got dressed. Diane sat up and watched. She felt used and kind of dirty yet the feeling wasn't as upsetting as she imagined. She was almost in a dreamlike state. Her finger slowly wiped something off her chin and slipped up to her lips, as her tongue lashed out to clean her finger. The bitter taste was surprising and not revolting like she thought. Then her other hand slipped down and into her sweaty crotch. 
 
  Diane felt the immense wetness. Her fingers swiped across her puffed up labia and got coated with the leaking cum, as her mind raced backwards to the extremely dangerous encounter with the teenager. When her finger dipped into the vast wetness, all she thought of was what happened to her body. An unfamiliar orgasm of a lifetime washed over her delicate soul. Even having vowed not to succumb to any raging desire, her willpower hadn't been strong enough. 
 

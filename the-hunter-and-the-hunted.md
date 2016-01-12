@@ -1,8 +1,14 @@
+The Hunter and The Hunted Ch. 01
+================================
 #1 
 
  
 
- ****** The Hunter and The Hunted Ch. 01 ****** bydickpounder73© Our story starts back in the spring of 2014. This story comes from the perspective of the "Hunted" Bonnie and the "Hunter" me. 
+ 
+
+===
+
+Our story starts back in the spring of 2014. This story comes from the perspective of the "Hunted" Bonnie and the "Hunter" me. 
 
  Let me describe Bonnie, she looks to be in her 30's, 5'-6" beautiful soft skin, nice D cup firm tits, wavy light brown hair and green eyes. Bonnie confessed to me the only cock she ever had was no larger than 6 inches. 
 
@@ -214,7 +220,11 @@
 
  
 
- ****** The Hunter and The Hunted Ch. 01 ****** bydickpounder73© You groan as I turn the eggs down and slow the flogging on your clit and cunt lips. You calm down a bit, maintaining some control of your emotions. "Feels good doesn't it bitch. How does it feel to not be in control of the most basic personal emotion?" 
+ 
+
+===
+
+You groan as I turn the eggs down and slow the flogging on your clit and cunt lips. You calm down a bit, maintaining some control of your emotions. "Feels good doesn't it bitch. How does it feel to not be in control of the most basic personal emotion?" 
 
  Your breathing so heavy, you can't answer, as I ramp up the intensity on your cunt, the flogger coming down harder, the egg vibrating faster in your pussy and asshole. 
 

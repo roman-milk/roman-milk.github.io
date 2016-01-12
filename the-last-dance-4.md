@@ -1,8 +1,14 @@
+The Last Dance
+==============
 #1 
 
  
 
- ****** The Last Dance ****** bydawn1958© I wrote this story as a request from a reader so hope you like it. I have added a longer ending to this version as I sort of left the original hanging. At the time it sounded like a good idea but maybe it wasn't. 
+ 
+
+===
+
+I wrote this story as a request from a reader so hope you like it. I have added a longer ending to this version as I sort of left the original hanging. At the time it sounded like a good idea but maybe it wasn't. 
 
  Please email me with your comments or suggestions. 
 
@@ -94,7 +100,11 @@
 
  
 
- ****** The Last Dance ****** bydawn1958© It seemed to get much hotter in the small room and Doris was becoming crazed when her temp rose to an unbearable level. Guilt and shame filled her completely, as she was unable to stop the rising tidal wave of desire. Another powerful orgasm washed over her entire being and her pussy convulsed out of control over the thick shaft of the unknown man. There were loud slapping sounds, as the bare skin of the man's pelvis slapped against the burning flesh of Doris' ass. All ears in the room were in tune with it and the men were totally aroused by the unbridled lust. 
+ 
+
+===
+
+It seemed to get much hotter in the small room and Doris was becoming crazed when her temp rose to an unbearable level. Guilt and shame filled her completely, as she was unable to stop the rising tidal wave of desire. Another powerful orgasm washed over her entire being and her pussy convulsed out of control over the thick shaft of the unknown man. There were loud slapping sounds, as the bare skin of the man's pelvis slapped against the burning flesh of Doris' ass. All ears in the room were in tune with it and the men were totally aroused by the unbridled lust. 
 
  The orgasm quickly reached a feverish peak and Doris arched her back severely, as every muscle in her body tensed. When the hot lava struck her cervix and inner reaches, she almost collapsed. The second mind-blowing orgasm in the last few minutes rushed over the apex and the lucky man was blown away by her intense ecstasy. Unable to prolong the climax, he blew his immense load of searing cum deep into Doris' cunt. His powerful thrusts lifted her slender body off the restroom floor every time he pushed forward and the others were mesmerized by the fiery passion. 
 

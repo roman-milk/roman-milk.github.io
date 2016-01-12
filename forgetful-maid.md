@@ -1,8 +1,14 @@
+Forgetful Maid
+==============
 #1 
 
  
 
- ****** Forgetful Maid ****** byStoryTeller07© It was Helen's turn to drive to the party and she was telling him about several weeks of hypnotherapy that helped her stop smoking. It had been a complete cure and thought he would be pleased. It had been a mistake telling her husband though. 
+ 
+
+===
+
+It was Helen's turn to drive to the party and she was telling him about several weeks of hypnotherapy that helped her stop smoking. It had been a complete cure and thought he would be pleased. It had been a mistake telling her husband though. 
 
  Nigel became angry seeing it as deceit. He thought it was a deceit but it certainly wasn't her opinion of the situation. It was just his pride that had been dented. He already resented her position as managing director of her late fathers company and this revelation was yet another slight to his pride. 
 
@@ -204,7 +210,11 @@
 
  
 
- ****** Forgetful Maid ****** byStoryTeller07© The full treatment was a wise choice as she felt so relaxed. After a massage and a waxing she sat enjoying the attention, having her nails and hair attended to. She sat there blissfully unaware of the world around her letting them get on with it. 
+ 
+
+===
+
+The full treatment was a wise choice as she felt so relaxed. After a massage and a waxing she sat enjoying the attention, having her nails and hair attended to. She sat there blissfully unaware of the world around her letting them get on with it. 
 
  Her blond hair was being teased into something a bimbo would be proud of. The extensions to her nails were a little gaudy but they did suit the new look. Walking out she took a deep breath in an attempt to shift the absent-minded state she had fallen into after the luxurious pampering. 
 
@@ -444,7 +454,11 @@
 
  
 
- ****** Forgetful Maid ****** byStoryTeller07© One violent thrust of her hips was all she managed before every muscle quaked in a racking judder. Her legs lifted high and wide to capture all of him then wrapped them around his waist pulling tight to keep it penetrating deep as possible. 
+ 
+
+===
+
+One violent thrust of her hips was all she managed before every muscle quaked in a racking judder. Her legs lifted high and wide to capture all of him then wrapped them around his waist pulling tight to keep it penetrating deep as possible. 
 
  She was completely dependent upon his thrusts for she couldn't move. He pushed home one final thrust before spurting into her. Another orgasm spread from her clenched belly following heated nerves to curl her toes and hands clenched tight. 
 
@@ -452,7 +466,11 @@
 
  
 
- ****** Forgetful Maid Ch. 02 ****** byStoryTeller07© "That meeting this morning, I've got the promotion!" Nigel declared. He didn't ask how she was or where she had been he just launched into what it meant to him and what he was going to do next. 
+ 
+
+===
+
+"That meeting this morning, I've got the promotion!" Nigel declared. He didn't ask how she was or where she had been he just launched into what it meant to him and what he was going to do next. 
 
  Helen put down the shopping bags and smiled. "That is just wonderful darling. So when are you jetting off on a tour of your empire?" 
 
@@ -640,7 +658,11 @@
 
  
 
- ****** Forgetful Maid Ch. 02 ****** byStoryTeller07© After a cuddle and snuggling close they eventually pulled apart to pull themselves together. They showered together with the hot tumult of water reviving somewhat their exhausted bodies. Once dressed in her baggy jeans and t-shirt he sent her home with fresh instructions. 
+ 
+
+===
+
+After a cuddle and snuggling close they eventually pulled apart to pull themselves together. They showered together with the hot tumult of water reviving somewhat their exhausted bodies. Once dressed in her baggy jeans and t-shirt he sent her home with fresh instructions. 
 
  He collapsed in a comfortable chair recovering with a favourite cognac. He would have to stop fucking her on the carpet as he had sore carpet burns to knees and elbows. He wondered what the reaction would be if he instructed her to remember these sessions; would it be utter humiliation or would she turn up anyway. 'This evening she had begged me to fuck her.' He reflected. 
 
@@ -810,7 +832,11 @@
 
  
 
- ****** Forgetful Maid Ch. 02 ****** byStoryTeller07© "Joe! A word please." Liz said gruffly. The customer stood holding onto the chair while she dragged him out of the cubicle by an elbow. "What do you think you are doing you big lug?" She could see how carried away he was. "Rule number, one never get caught up in a customers stupid games it is too dangerous. When she gets home and snaps out of the fantasy and calls the police accusing you of rape, trouble! You are looking at trouble with a big 'T', bigger than her tits." 
+ 
+
+===
+
+"Joe! A word please." Liz said gruffly. The customer stood holding onto the chair while she dragged him out of the cubicle by an elbow. "What do you think you are doing you big lug?" She could see how carried away he was. "Rule number, one never get caught up in a customers stupid games it is too dangerous. When she gets home and snaps out of the fantasy and calls the police accusing you of rape, trouble! You are looking at trouble with a big 'T', bigger than her tits." 
 
  "Go make the coffee and I'll take care of the bitch." She saw the look of pain in his eyes knowing how much his penis had taken over the thinking. She grabbed his penis bulging in his jeans. "I'll take care of this for you too. I can do a better job than she ever could. Go make the coffee." She told him with a shove to his back. 
 

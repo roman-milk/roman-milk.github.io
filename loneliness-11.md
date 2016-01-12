@@ -1,8 +1,14 @@
+Loneliness
+==========
 #1 
 
  
 
- ****** Loneliness ****** byE.Z.Riter© Hello, Literotica reader, There are many kinds of loving wives tales. This is one where the husband did not condone or approve of the wife's extramarital loving. A short little tale. A dark tale. Very dark. 
+ 
+
+===
+
+Hello, Literotica reader, There are many kinds of loving wives tales. This is one where the husband did not condone or approve of the wife's extramarital loving. A short little tale. A dark tale. Very dark. 
 
  I love hearing from readers. So please write me and please vote. 
 

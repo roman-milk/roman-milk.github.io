@@ -1,8 +1,14 @@
+Brooke Ch. 01
+=============
 #1 
 
  
 
- ****** Brooke Ch. 01 ****** byStoryTeller07© "Hi! Carlene!" Brooke waved across the crowded mall at her friend. It was Saturday morning and Brooke had a lot to do in preparation for college on Monday. First she wanted a pair of sunglasses to go with the Honda she was picking up from the dealership this afternoon. 
+ 
+
+===
+
+"Hi! Carlene!" Brooke waved across the crowded mall at her friend. It was Saturday morning and Brooke had a lot to do in preparation for college on Monday. First she wanted a pair of sunglasses to go with the Honda she was picking up from the dealership this afternoon. 
 
  She watched her long time friend stride toward her. Except that they were both nineteen and had shared a friendship for many years they were very different. The crowd parted for her without thought, which people just didn't do for Brooke. It was Carlene's dominant attitude and Brooke's submissive nature that made the difference. 
 
@@ -222,7 +228,11 @@
 
  
 
- ****** Brooke Ch. 01 ****** byStoryTeller07© Marcia helped herself to a tray and handed it to the prey. Just sit there and see what you like the look of. I'll find out how much it costs." Marcia told her. 
+ 
+
+===
+
+Marcia helped herself to a tray and handed it to the prey. Just sit there and see what you like the look of. I'll find out how much it costs." Marcia told her. 
 
  Marcia dragged Joe over where he went over the different styles with Marcia butting in with suggestions. Without realising Brooke had agreed with a choice of two that looked small and the least intrusive. She hadn't agreed to have them pierced, or so she thought. 
 
@@ -412,7 +422,11 @@
 
  
 
- ****** Brooke Ch. 02 ****** byStoryTeller07© Brooke was black and beautiful with a body men craved to see and touch. She didn't mind them looking in fact she went out of her way to flaunt her body especially if it got her what she wanted. 
+ 
+
+===
+
+Brooke was black and beautiful with a body men craved to see and touch. She didn't mind them looking in fact she went out of her way to flaunt her body especially if it got her what she wanted. 
 
  It was Saturday and as usual she met up with her friend Carlene to cruise the mall for clothes or just to see what might happen. Excitement and the thrill of walking into the unknown is what kept her high. 
 
@@ -636,7 +650,11 @@
 
  
 
- ****** Brooke Ch. 02 ****** byStoryTeller07© Brooke would have laughed if the woman had revealed she thought of this as a kidnapping. The two young women simply thought this rich bitch wanted an adventure, a distraction in her mundane shopping life, a bit of rough play. 
+ 
+
+===
+
+Brooke would have laughed if the woman had revealed she thought of this as a kidnapping. The two young women simply thought this rich bitch wanted an adventure, a distraction in her mundane shopping life, a bit of rough play. 
 
  "Now crawl over here and lick my fingers." Brooke told her. She nodded at Carlene who was waiting eagerly behind the woman. She crawled over to Brooke and started to lick the hand that was shoved into her face. Brooke sat with the dress up around her waist, legs open in anticipation. 
 
@@ -816,7 +834,11 @@
 
  
 
- ****** Brooke Ch. 02 ****** byStoryTeller07© "Well I think that's enough, for now." The Boss told her. "You had better thank these, gentleman for your punishment." 
+ 
+
+===
+
+"Well I think that's enough, for now." The Boss told her. "You had better thank these, gentleman for your punishment." 
 
  Number one suit stood in front of her and lifted her head by the hair and she managed to speak. "Thank you for thrashing me." She sobbed. 
 
@@ -854,7 +876,11 @@
 
  
 
- ****** Brooke Ch. 03 ****** byStoryTeller07© The first card turns up- she receives her first task master. (It might be better to read the previous chapter to make sense of this chapter.) 
+ 
+
+===
+
+The first card turns up- she receives her first task master. (It might be better to read the previous chapter to make sense of this chapter.) 
 
  * 
 
@@ -1030,7 +1056,11 @@
 
  
 
- ****** Brooke Ch. 04 ****** byStoryTeller07© Chapter 04 
+ 
+
+===
+
+Chapter 04 
 
  The Rescue 
 
@@ -1220,7 +1250,11 @@
 
  
 
- ****** Brooke Ch. 04 ****** byStoryTeller07© "No! Maybe! I don't know. I'm being punished by him!" Brooke spat at her. 
+ 
+
+===
+
+"No! Maybe! I don't know. I'm being punished by him!" Brooke spat at her. 
 
  For no good reason, except she had a captive audience and needed to talk, she told the woman the whole sorry tale from beginning to end. Dorothy didn't interrupt but took everything in. 
 

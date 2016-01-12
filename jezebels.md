@@ -1,8 +1,14 @@
+Jezebels
+========
 #1 
 
  
 
- ****** Jezebels ****** byE.Z.Riter© This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre-approved archives. 
+ 
+
+===
+
+This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre-approved archives. 
 
  Please! Give me your comments! 
 
@@ -280,7 +286,11 @@
 
  
 
- ****** Jezebels ****** byE.Z.Riter© I kissed her and pulled her to a sitting position to unzip her dress, which she helped me remove. She lay back on the couch wearing only a garter belt and stockings. It was the first time I'd seen her body in the light. She had a small pooch of a stomach, a trimmed bush, and a shape that made a man want to mount her. 
+ 
+
+===
+
+I kissed her and pulled her to a sitting position to unzip her dress, which she helped me remove. She lay back on the couch wearing only a garter belt and stockings. It was the first time I'd seen her body in the light. She had a small pooch of a stomach, a trimmed bush, and a shape that made a man want to mount her. 
 
  The surprise was a tattoo the size of a quarter half-way between her belly button and pubic bone. It was an inverted blue triangle with a red block letter "J" in the center. 
 
@@ -574,7 +584,11 @@
 
  
 
- ****** Jezebels ****** byE.Z.Riter© "I'm going to bed," Mary announced. She kissed me and whispered in my ear, "You fucked me out last night. I'm beat." She and Jimmy disappeared down the hall. 
+ 
+
+===
+
+"I'm going to bed," Mary announced. She kissed me and whispered in my ear, "You fucked me out last night. I'm beat." She and Jimmy disappeared down the hall. 
 
  "Good night, Mr. Williams. Thank you for playing with me," Veronica said. She kissed me sweetly on the cheek. 
 
@@ -628,7 +642,11 @@
 
  
 
- ****** Jezebels Ch. 2 ****** byE.Z.Riter© This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre-approved archives. 
+ 
+
+===
+
+This is fiction intended for legal adults readers. If it is not legal, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to my pre-approved archives. 
 
  Please! Give me your comments! 
 
@@ -998,7 +1016,11 @@
 
  
 
- ****** Jezebels Ch. 2 ****** byE.Z.Riter© "Okay. It's been a lot of fun. Well, hell, it's been the best time I've ever had, but what's so special about the weekend?" I asked. 
+ 
+
+===
+
+"Okay. It's been a lot of fun. Well, hell, it's been the best time I've ever had, but what's so special about the weekend?" I asked. 
 
  "It was going to be a surprise, but since you insist on knowing. We reserved a cabin at The Cedars." 
 
@@ -1376,7 +1398,11 @@
 
  
 
- ****** Jezebels Ch. 3 ****** byE.Z.Riter© I led Mary into the bedroom and shut the door behind us. I sat in a straight chair, but didn't tell Mary what to do. She pushed my knees apart and knelt there. She looked happy and ready to begin. 
+ 
+
+===
+
+I led Mary into the bedroom and shut the door behind us. I sat in a straight chair, but didn't tell Mary what to do. She pushed my knees apart and knelt there. She looked happy and ready to begin. 
 
  "I'm going to ask you some questions. Answer them honestly." 
 
@@ -1682,7 +1708,11 @@
 
  
 
- ****** Jezebels Ch. 3 ****** byE.Z.Riter© She turned her back to me, wiggled her ass to snug my cock between her thighs, and sighed. She was asleep in seconds. I felt breasts against my back and reassuring hands. Becky's arm went over my waist. 
+ 
+
+===
+
+She turned her back to me, wiggled her ass to snug my cock between her thighs, and sighed. She was asleep in seconds. I felt breasts against my back and reassuring hands. Becky's arm went over my waist. 
 
  Light was filtering through the drapes when I felt the bed move. I feigned sleep as all three of them arose. I heard whispering and giggling, doors opening and closing. 
 
@@ -2084,7 +2114,11 @@
 
  
 
- ****** Jezebels Ch. 3 ****** byE.Z.Riter© "Jack," Becky said. "You've got to let us wait on you." 
+ 
+
+===
+
+"Jack," Becky said. "You've got to let us wait on you." 
 
  "I'll get spoiled," I said. 
 

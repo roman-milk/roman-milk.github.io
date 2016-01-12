@@ -1,8 +1,14 @@
+Polly Dares
+===========
 #1 
 
  
 
- ****** Polly Dares ****** byStoryTeller07© "Well?" Samantha asked. "Do you dare take the challenge?" She laughed lightly willing Polly to agree. 
+ 
+
+===
+
+"Well?" Samantha asked. "Do you dare take the challenge?" She laughed lightly willing Polly to agree. 
 
  Polly looked at her friend wavering from the challenge obviously looking for a way out without losing face. "I'm not into that sort of thing. Surely you can pick something else less risky than some sleazy club." 
 
@@ -184,7 +190,11 @@
 
  
 
- ****** Polly Dares ****** byStoryTeller07© Joanne kept it teasingly still for a moment forcing her to work hard on it. Small murmurs of pleasure turned to grunts of exertion then moans of pleasure took over. She wriggled her bottom working it everywhere inside the vagina then thrust back for a deeper penetration. 
+ 
+
+===
+
+Joanne kept it teasingly still for a moment forcing her to work hard on it. Small murmurs of pleasure turned to grunts of exertion then moans of pleasure took over. She wriggled her bottom working it everywhere inside the vagina then thrust back for a deeper penetration. 
 
  Polly lifted her head and screamed a deep-throated sound tailing off to a long low wail. Everyone applauded the show but Poly didn't hear. She slumped to the floor completely sated. 
 

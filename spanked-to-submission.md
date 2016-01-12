@@ -1018,8 +1018,6 @@ I got to work, trepidation filling me as I wondered what Ms. Audree might have i
 
 ===
 
-
-
  Now here was the moment that I could have had stopped it all. I could have said 'please stop', but my head was spinning, her magical fingers having done a spell on me, and all I could think about was coming. So although I could hear my conscience screaming 'No ,no, no,', the words that came out of my mouth were the eager desperate words "Please don't stop, Ms. Audree." 
 
  

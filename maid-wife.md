@@ -1,8 +1,7 @@
-#1 
-
+Maid Wife
+=========
  
-
- ****** Maid Wife ****** byStoryTeller07© "Apart from that she wouldn't wear stockings and suspenders." Jim complained to Angus, a colleague in the office. It was one of a list of criticisms he voiced in complaint since she had phoned telling him she was leaving. The trip to the sub office was going well and Jim would soon be returning home, only to an empty apartment, which he wasn't looking forward to. 
+"Apart from that she wouldn't wear stockings and suspenders." Jim complained to Angus, a colleague in the office. It was one of a list of criticisms he voiced in complaint since she had phoned telling him she was leaving. The trip to the sub office was going well and Jim would soon be returning home, only to an empty apartment, which he wasn't looking forward to. 
 
  Angus had patiently half listened to the moaning while they worked. With a smile on his face he told Jim. "My wife wears what ever I want her to. Last year she went to a hypnotist to help give up smoking. To save him hypnotising her from scratch each session he used a phrase to put her into a hypnotic state. He calls it a password. I found it out and have been using it to add my own instructions." Feeling he had revealed too much of a personal, perhaps even sordid, tale he shut up to concentrate on preparing the report for Jim. 
 
@@ -118,7 +117,11 @@
 
  
 
- ****** Maid Wife Ch. 02 ****** byStoryTeller07© Jim gently replaced the phone with a shaking hand. Angus had told him he would be at the hospital for some time and why, though Jim had only heard he was to look after Melody. Perhaps Angus didn't realise how deeply she had been hypnotised or was relying on the password protecting her from Jim giving direct commands. After all she had never been left with someone else or even been in the presence of someone while hypnotised. 
+ 
+
+===
+
+Jim gently replaced the phone with a shaking hand. Angus had told him he would be at the hospital for some time and why, though Jim had only heard he was to look after Melody. Perhaps Angus didn't realise how deeply she had been hypnotised or was relying on the password protecting her from Jim giving direct commands. After all she had never been left with someone else or even been in the presence of someone while hypnotised. 
 
  Melody heard Jim talking to her husband on the phone wanting to shout for help, wishing for him to speed back to her rescue. Why had she been left like this at a stranger's mercy? If it were a game it was devilishly cruel. He hadn't actually touched her nonetheless she had never been so humiliated, bending over displaying her body so rudely. In her own lounge she had been put into this degrading situation with a complete stranger. Anger left her shaking. 
 
@@ -216,7 +219,11 @@
 
  
 
- ****** Maid Wife Ch. 03 ****** byStoryTeller07© Arriving at his work mates' home Jim wondered if he should just keep on driving past but somehow managed to walk to the door and ring the bell. 
+ 
+
+===
+
+Arriving at his work mates' home Jim wondered if he should just keep on driving past but somehow managed to walk to the door and ring the bell. 
 
  "Hi Jim, glad you could make it." The large man shook his hand in a warm grip obviously unaware that Jim had taken his wife a few days ago. 
 
@@ -376,7 +383,11 @@
 
  
 
- ****** Maid Wife Ch. 03 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  "I was thinking of those outfits at the back of your wardrobe. We'll try them out and see which one is the sexiest." Jim told her. 
 
@@ -394,7 +405,11 @@
 
  
 
- ****** Maid Wife Ch. 04 ****** byStoryTeller07© The doorbell rang. Melody wiped her hands on a towel and padded on bare feet from the kitchen. With her mind still in turmoil over what had happened at the weekend she answered the door. The next-door neighbour, Howard, was standing there. In a flash her mind cleared to the present. 
+ 
+
+===
+
+The doorbell rang. Melody wiped her hands on a towel and padded on bare feet from the kitchen. With her mind still in turmoil over what had happened at the weekend she answered the door. The next-door neighbour, Howard, was standing there. In a flash her mind cleared to the present. 
 
  This lecherous neighbour had watched her make love to Jim from his house next door. Jim hadn't thought to close the curtains and being hypnotised she hadn't been able to. She had simply carried out his instructions although if she was honest she had been too excited to think straight anyway. 
 
@@ -476,7 +491,11 @@
 
  
 
- ****** Maid Wife Ch. 05 ****** byStoryTeller07© It was nearly five and Jim would be home soon so Melody changed into a maid outfit for him as ordered. The outfit was a low cut dress flared out to reveal stocking tops and white ruffles of petticoats. For once she didn't admire herself in the mirror, being too preoccupied to care what she looked like. 
+ 
+
+===
+
+It was nearly five and Jim would be home soon so Melody changed into a maid outfit for him as ordered. The outfit was a low cut dress flared out to reveal stocking tops and white ruffles of petticoats. For once she didn't admire herself in the mirror, being too preoccupied to care what she looked like. 
 
  Could she tell Jim what happened this morning even if he brought her out of the hypnotic state? At the moment she was powerless to say anything but answer his questions and obey him. It was all her fault it had gone so terribly wrong. If she hadn't let her husband hypnotise her so often its power over her wouldn't be so strong. 
 
@@ -666,7 +685,11 @@
 
  
 
- ****** Maid Wife Ch. 05 ****** byStoryTeller07© "Not here. It's too embarrassing." She was about to say she was no slut but the word just couldn't be said. Was it that she couldn't deny what she had become? Her hands went to the hem of the dress obeying the command. She looked around in panic but thankfully there was no one to see her shame. She couldn't say anything to prevent what he ordered so kept her mouth shut. 
+ 
+
+===
+
+"Not here. It's too embarrassing." She was about to say she was no slut but the word just couldn't be said. Was it that she couldn't deny what she had become? Her hands went to the hem of the dress obeying the command. She looked around in panic but thankfully there was no one to see her shame. She couldn't say anything to prevent what he ordered so kept her mouth shut. 
 
  He looked down at her legs encased in the sheer silk stockings that Angus had bought her. "Higher. I want to see the suspenders." He told her. "The lights better in here. Follow me." 
 
@@ -730,7 +753,11 @@
 
  
 
- ****** Maid Wife Ch. 06 ****** byStoryTeller07© Chapter 06 
+ 
+
+===
+
+Chapter 06 
 
  Melody and Jim visit a Casino 
 
@@ -906,7 +933,11 @@
 
  
 
- ****** Maid Wife Ch. 06 ****** byStoryTeller07© "I need to talk to you for a moment. Come this way." He took a hold of her elbow and steered her to a door marked 'staff only'. It was an order to follow him so there was no chance to decline. Melody figured that was the end of her credit and they would process the card. 
+ 
+
+===
+
+"I need to talk to you for a moment. Come this way." He took a hold of her elbow and steered her to a door marked 'staff only'. It was an order to follow him so there was no chance to decline. Melody figured that was the end of her credit and they would process the card. 
 
  In a plush office she was greeted by another smart suited man seated behind a large desk. There was nothing on it except a leather bound blotter pad and she wondered if anyone used real ink pens anymore. He didn't look like a clerk, more like a senior executive. 
 
@@ -1084,7 +1115,11 @@
 
  
 
- ****** Maid Wife Ch. 06 ****** byStoryTeller07© *** 
+ 
+
+===
+
+*** 
 
  Jim was wired with coffee when the second hour passed and the troop of staff to the elevator had slowed to a trickle then stopped. No one had exited the door for twenty minutes. It was easy to tell they were staff for without exception the waitresses from the exclusive area were beautiful even in scruffy jeans, though most wore expensive outfits testifying to the level of tips they earned. Not one of them distracted him from his anxious vigil. He felt too responsible, too guilty and too frightened for her. 
 

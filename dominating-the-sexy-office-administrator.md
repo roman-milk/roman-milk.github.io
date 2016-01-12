@@ -1,8 +1,14 @@
+Dominating the Sexy Office Administrator
+========================================
 #1 
 
  
 
- ****** Dominating the Sexy Office Administrator ****** bydawn1958© Please feel free to send feedback, as I am always interested to hear comments and suggestions from readers. 
+ 
+
+===
+
+Please feel free to send feedback, as I am always interested to hear comments and suggestions from readers. 
 
  There was a group of three young women who started work at the local factory that summer. Sarah was 25, but she looked a lot younger so when she was with her two best friends who were only 20, they all looked the same age. Ana and Carla were just starting their first jobs and the two young, innocent women were willing subs for the dominating and controlling Sarah. 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** Dominating the Sexy Office Administrator ****** bydawn1958© Dawn's head was swimming around with great uncertainty and the lingering effects of too much alcohol didn't help, as the three girls easily escorted her across the room to the bed. She glanced around and noticed all three were naked and they were all grinning from ear to ear. When Sarah wrapped her arms around her torso and embraced her in a loving fashion, Dawn merely let it happen. 
+ 
+
+===
+
+Dawn's head was swimming around with great uncertainty and the lingering effects of too much alcohol didn't help, as the three girls easily escorted her across the room to the bed. She glanced around and noticed all three were naked and they were all grinning from ear to ear. When Sarah wrapped her arms around her torso and embraced her in a loving fashion, Dawn merely let it happen. 
 
  They stood beside the bed and Dawn felt totally surrounded and overwhelmed. Sarah stood in front and hugged her, leaning in to kiss her neck and the side of her face. Ana was directly behind and her hands caressed and fondled every inch of her heated flesh. Carla was on one side and her hands busily groped and fondled the exposed womanly parts. She cupped one boob and squeezed one of Dawn's luscious ass-cheeks, trying to get as much satisfaction as possible with her hands. 
 
@@ -360,7 +370,11 @@
 
  
 
- ****** Dominating the Sexy Office Administrator ****** bydawn1958© It took the rest of the day to overcome the helplessness of being promiscuous at work. Dawn thought she had recovered, but her positive outlook disappeared when Sarah showed up at her office door the next morning. She merely tried to put a smile on her face, as the girl entered her office. Sarah's second session was even more traumatic than the first because it reaffirmed the girl's dominance once and for all. She had a definite plan of not only having sex with Dawn, but also wanted to add immense humiliation. 
+ 
+
+===
+
+It took the rest of the day to overcome the helplessness of being promiscuous at work. Dawn thought she had recovered, but her positive outlook disappeared when Sarah showed up at her office door the next morning. She merely tried to put a smile on her face, as the girl entered her office. Sarah's second session was even more traumatic than the first because it reaffirmed the girl's dominance once and for all. She had a definite plan of not only having sex with Dawn, but also wanted to add immense humiliation. 
 
  When Sarah entered and closed the office door, she immediately setup a camera in front of the big desk. Dawn knew the ordeal would not be pleasant and she tried to control her pounding heart. "We want to watch you perform... be able to watch our slave act like a loyal slut," Sarah stated in a low steady voice. 
 

@@ -1,8 +1,14 @@
+Ride Home
+=========
 #1 
 
  
 
- ****** Ride Home ****** byStoryTeller07© A moment of madness 
+ 
+
+===
+
+A moment of madness 
 
  Hearing the front door close quietly behind Jim, Susan sighed heavily. Jim had been her boyfriend for nine years and they had been living together in this same flat for four. He had sneaked off to the club avoiding an argument, the same one they had hashed over for the last six months. Where was the relationship going? She would ask and he would just shrug his shoulders not wanting the discussion, not wanting to understand her needs. 
 

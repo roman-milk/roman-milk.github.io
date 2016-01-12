@@ -1,8 +1,14 @@
+Leelee Ch. 01
+=============
 #1 
 
  
 
- ****** Leelee Ch. 01 ****** byStoryTeller07© While out shopping Lee Ann tried on a loose top in a changing room. The one she was wearing was too tight, after having her nipple's pierced. 
+ 
+
+===
+
+While out shopping Lee Ann tried on a loose top in a changing room. The one she was wearing was too tight, after having her nipple's pierced. 
 
  The idea was to de-sensitize them, and she really hoped it would work. The woman in a magazine article had found it a great relief, after years of discomfort. Hoping it would help her too, she made the daunting visit to a tattoo parlor. Twice she had walked passed, unable to enter the small store, eventually plucking up courage to enter. 
 
@@ -264,7 +270,11 @@
 
  
 
- ****** Leelee Ch. 01 ****** byStoryTeller07© "In further, I can see your ass," Maria instructed. Lee Ann pushed into the corner, to find the inside of an empty packing case. She was pleased to crawl in, feeling hidden and safe, as though it were a childhood den. 
+ 
+
+===
+
+"In further, I can see your ass," Maria instructed. Lee Ann pushed into the corner, to find the inside of an empty packing case. She was pleased to crawl in, feeling hidden and safe, as though it were a childhood den. 
 
  "Careful, I'll drop the lid to hide you better," Maria warned, making Lee Ann squeeze up. 
 
@@ -478,7 +488,11 @@
 
  
 
- ****** Leelee Ch. 01 ****** byStoryTeller07© "Sorry, mistress," Leelee quickly responded. 
+ 
+
+===
+
+"Sorry, mistress," Leelee quickly responded. 
 
  In the small store, she had to get on hands and knees, to crawl backwards into a pet cage. She looked up at the guy and her mistress, looking pathetic, behind a mesh door. When it was purchased the guy kept making mistakes with the bill. Her mistress didn't make it a secret that the collar, leash, and cage, were for her new pet, Leelee. 
 
@@ -612,7 +626,11 @@
 
  
 
- ****** Leelee Ch. 02 ****** byStoryTeller07© Chapter 02 
+ 
+
+===
+
+Chapter 02 
 
  The woman is caged 
 
@@ -848,7 +866,11 @@
 
  
 
- ****** Leelee Ch. 02 ****** byStoryTeller07© "Bite my lips, you sexy bitch! Fucking push that tongue in, bitch!" Gemma demanded. 
+ 
+
+===
+
+"Bite my lips, you sexy bitch! Fucking push that tongue in, bitch!" Gemma demanded. 
 
  Maria was enjoying manipulating her friend through the pet. A vigorous stroke and pinch of pet's clit had her enthusiastically sucking upon Gemma's clit. Every movement of her hands, had a reciprocal movement of pet's mouth on her friends pussy. 
 
@@ -876,7 +898,11 @@
 
  
 
- ****** Leelee Ch. 03 ****** byStoryTeller07© Chapter 03 
+ 
+
+===
+
+Chapter 03 
 
  Pierced and Branded 
 
@@ -1094,7 +1120,11 @@
 
  
 
- ****** Leelee Ch. 03 ****** byStoryTeller07© At that moment she caught sight of a young guy ogling her. He looked down in embarrassment, at the same time she did. knowing had seen it all was a dire humiliation, yet it fed her libido. She looked at him, licking her pouting lips, daring him to flirt with her. 
+ 
+
+===
+
+At that moment she caught sight of a young guy ogling her. He looked down in embarrassment, at the same time she did. knowing had seen it all was a dire humiliation, yet it fed her libido. She looked at him, licking her pouting lips, daring him to flirt with her. 
 
  Hand in hand they walked from the torture chamber. Lee Ann took small steps, feeling her sensitive pussy lips rubbing something hard and foreign. She guessed they had been pierced, and wondered what that young guy thought of her. The only way it could be coped with, was by telling herself she was pleasing her mistress. 
 
@@ -1164,7 +1194,11 @@
 
  
 
- ****** Leelee Ch. 04 ****** byStoryTeller07© Chapter 04 
+ 
+
+===
+
+Chapter 04 
 
  The Slave Ceremony 
 
@@ -1390,7 +1424,11 @@
 
  
 
- ****** Leelee Ch. 04 ****** byStoryTeller07© "Leelee slave is sorry mistress," Lee Ann added. 
+ 
+
+===
+
+"Leelee slave is sorry mistress," Lee Ann added. 
 
  "I could buy you from Maria out of my allowance. I'd make sure you made up for it then," Patty grinned at the pet. She dug a sharp fingernail into pet's chin, holding the woman's head up. 
 

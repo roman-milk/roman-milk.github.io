@@ -1,8 +1,14 @@
+Sofa
+====
 #1 
 
  
 
- ****** Sofa ****** byStoryTeller07© On the sofa Sylvia sat comfortably with a smile upon her face listening to the warm encouraging words, her words. On the tape her voice was encouraging her to listen and obey. 
+ 
+
+===
+
+On the sofa Sylvia sat comfortably with a smile upon her face listening to the warm encouraging words, her words. On the tape her voice was encouraging her to listen and obey. 
 
  Every evening Sylvia had played the tape to herself before going down to the apartment's basement gym to hit the machines for an enthusiastic work out. The tape was an effective technique using suggestion to enhance what little enthusiasm there was to start with and to maintain it each day. 
 
@@ -208,7 +214,11 @@
 
  
 
- ****** Sofa ****** byStoryTeller07© The woman had a good firm figure showing it was true that she used the gym in a regular routine. She was about forty but looked younger. Maybe it was the devilish glint in her eye she had when he saw her upstairs. Now like Sylvia she wore a blank look. 
+ 
+
+===
+
+The woman had a good firm figure showing it was true that she used the gym in a regular routine. She was about forty but looked younger. Maybe it was the devilish glint in her eye she had when he saw her upstairs. Now like Sylvia she wore a blank look. 
 
  It was interesting how her breasts moved in the leotard. The same motion as Sylvia only hers were larger. 
 

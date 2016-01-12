@@ -1,8 +1,14 @@
+A Story of Forbidden Desire
+===========================
 #1 
 
  
 
- ****** A Story of Forbidden Desire ****** bydawn1958© This is a request from Debbie and hopefully I do justice to her story. Please feel free to send your feedback, as I am always interested in what readers think of my erotic tales. 
+ 
+
+===
+
+This is a request from Debbie and hopefully I do justice to her story. Please feel free to send your feedback, as I am always interested in what readers think of my erotic tales. 
 
  * 
 
@@ -150,7 +156,11 @@
 
  
 
- ****** A Story of Forbidden Desire ****** bydawn1958© "You're not a virgin anymore, my love. Your snatch belongs to Ronny and you'll love being his sex-slave. Whenever he gets horny, I'm going to make sure you satisfy his needs." 
+ 
+
+===
+
+"You're not a virgin anymore, my love. Your snatch belongs to Ronny and you'll love being his sex-slave. Whenever he gets horny, I'm going to make sure you satisfy his needs." 
 
  "God, it hurts, sooooo bad... so bad." 
 
@@ -352,7 +362,11 @@
 
  
 
- ****** A Story of Forbidden Desire ****** bydawn1958© "What are you doing? What are you doing to me?" 
+ 
+
+===
+
+"What are you doing? What are you doing to me?" 
 
  In the quickest heartbeat, Kelly sat on one of the arms of the chair. She leaned close to Linda until their faces were inches apart. "I've wanted to see you on your hands and knees from the first time we met. Watch you get that delicious ass fucked by a big cock," she said. "I love role-playing; don't you?" 
 
@@ -558,7 +572,11 @@
 
  
 
- ****** A Story of Forbidden Desire ****** bydawn1958© Her clitoris was on fire and the bud was stretched to profound lengths, as Deb yanked it out of the secret hideaway. "Debbie, oh my, please don't... don't do that," she pleaded. "I'm not ready." 
+ 
+
+===
+
+Her clitoris was on fire and the bud was stretched to profound lengths, as Deb yanked it out of the secret hideaway. "Debbie, oh my, please don't... don't do that," she pleaded. "I'm not ready." 
 
  Deb released the swollen clit and rammed her long middle finger into the steamy hole. She cupped the bony pelvis with the palm of her hand and tried to keep pressure on the squished clitty, as she arched her back to stare into the teary eyes. "I need you... want you. I want you to be my lover," Deb whispered and swirled her finger around and around as she kept raking the most sensitive g- spot with her fingertip. "I love when you're mine... all mine." 
 

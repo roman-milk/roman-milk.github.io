@@ -1,8 +1,7 @@
-#1 
-
+Yoga
+====
  
-
- ****** Yoga ****** byStoryTeller07© Lorain was attempting, yet again, what was for her an impossible yoga position. With both ankles wrapped around the neck she slipped. The success was short lived as she slowly rolled backwards trapping both arms under her legs. She was trapped in place by her own weight. In this indelicate position she would remain until someone came to the rescue and she knew exactly who that would be. 
+ Lorain was attempting, yet again, what was for her an impossible yoga position. With both ankles wrapped around the neck she slipped. The success was short lived as she slowly rolled backwards trapping both arms under her legs. She was trapped in place by her own weight. In this indelicate position she would remain until someone came to the rescue and she knew exactly who that would be. 
 
  
 
@@ -112,7 +111,11 @@
 
  
 
- ****** Yoga Ch. 02 ****** byStoryTeller07© Lorain let out a long breath in relief on hearing the front door slam shut. The noise of a bunch of lads enjoying themselves receded leaving the apartment quiet and empty. She was still trapped in the uncomfortable yoga position but at least the threat from a bunch of young men finding her helpless and naked had tumbled out of the apartment. 
+ 
+
+===
+
+Lorain let out a long breath in relief on hearing the front door slam shut. The noise of a bunch of lads enjoying themselves receded leaving the apartment quiet and empty. She was still trapped in the uncomfortable yoga position but at least the threat from a bunch of young men finding her helpless and naked had tumbled out of the apartment. 
 
  It was the first time she had managed this yoga position, a front bend, and had disastrously rolled back trapping her body in this indelicate position. Her legs became clamped behind her head with her arms twisted around them leaving her trapped displaying everything. When Peter's friends arrived unexpectedly he quickly hid her out of the way behind the sofa, trapping her limbs tighter still. Feeling them stiffen she knew it was now entirely up to Peter to free her. 
 
@@ -224,7 +227,11 @@
 
  
 
- ****** Yoga Ch. 03 ****** byStoryTeller07© Arthur was dumbfounded. If he hadn't just happened upon the box he would have suspected a trick of some kind. The woman was no student playing a stunt, as from what he could see of her she was about thirty maybe thirty-three, tops. At forty-five next birthday, to him she was a beautiful young woman. 
+ 
+
+===
+
+Arthur was dumbfounded. If he hadn't just happened upon the box he would have suspected a trick of some kind. The woman was no student playing a stunt, as from what he could see of her she was about thirty maybe thirty-three, tops. At forty-five next birthday, to him she was a beautiful young woman. 
 
  In this small box sitting upon his bed she was helpless unable to defend her self from whatever he wanted to do to her. His cock had stiffened to attention demanding attention, demanding some action. Dare he take advantage of her? 
 

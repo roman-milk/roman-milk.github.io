@@ -1,8 +1,14 @@
+Olivia Ch. 01
+=============
 #1 
 
  
 
- ****** Olivia Ch. 01 ****** byStoryTeller07© Chapter 01 
+ 
+
+===
+
+Chapter 01 
 
  A Rich Bitch Arrives 
 
@@ -230,7 +236,11 @@
 
  
 
- ****** Olivia Ch. 01 ****** byStoryTeller07© Mark leaned back against the breakfast counter pushing the blade of the flick knife back into its sheath then pocketed it. Olivia was lying over the table in shock. He laid a hand on her back taking in the delicious sight of white lace panties. "You are a teasing bitch. You deserved that you know," he said quietly. 
+ 
+
+===
+
+Mark leaned back against the breakfast counter pushing the blade of the flick knife back into its sheath then pocketed it. Olivia was lying over the table in shock. He laid a hand on her back taking in the delicious sight of white lace panties. "You are a teasing bitch. You deserved that you know," he said quietly. 
 
  His cock ached in his jeans and he wondered if he dare take it out and fuck her. All he had to do was pull the crotch of those expensive panties to one side. He could see her shoulders shaking from silently sobbing, probably feeling sorry for herself. 
 
@@ -244,7 +254,11 @@
 
  
 
- ****** Olivia Ch. 02 ****** byStoryTeller07© Monday morning came around too quickly. Olivia wondered briefly if her sports car was safe in the parking lot in such a rough neighbourhood. With a shrug she left it to march into the large shabby building that housed the indoor pool. 
+ 
+
+===
+
+Monday morning came around too quickly. Olivia wondered briefly if her sports car was safe in the parking lot in such a rough neighbourhood. With a shrug she left it to march into the large shabby building that housed the indoor pool. 
 
  In the small shabby office she met the superintendant. With the usual greetings over he showed her the changing room and where to get a costume. 
 
@@ -464,7 +478,11 @@
 
  
 
- ****** Olivia Ch. 02 ****** byStoryTeller07© "My huge black dick too big for you?" he laughed. 
+ 
+
+===
+
+"My huge black dick too big for you?" he laughed. 
 
  Not until the stranger behind her pushed at her anus was she aware of why he was there. "Not that, no, no, no. Stop it, please stop. Please sir, make him stop. Not that! Not my bottom," she screamed. 
 
@@ -488,7 +506,11 @@
 
  
 
- ****** Olivia Ch. 03 ****** byStoryTeller07© The sight of their friends fucking the beautiful female body was too much for them, they needed to relieve the ache. It didn't mater who or what she was they just needed her. They pulled Olivia to her knees, positioning her stiff body on all fours. One of them lay next to her then pulled her on top. 
+ 
+
+===
+
+The sight of their friends fucking the beautiful female body was too much for them, they needed to relieve the ache. It didn't mater who or what she was they just needed her. They pulled Olivia to her knees, positioning her stiff body on all fours. One of them lay next to her then pulled her on top. 
 
  He felt her collapse upon him with her breasts squashed against his chest. 
 
@@ -644,7 +666,11 @@
 
  
 
- ****** Olivia Ch. 04 ****** byStoryTeller07© Walking through the mall between them with head down, she suddenly froze. They bumped into her and she almost fell. Her father's office was here. Surely they weren't going to deliver her looking like this? How could they know he was here? Mathew slapped her ass hard and she tottered on weak legs that threatened to collapse. 
+ 
+
+===
+
+Walking through the mall between them with head down, she suddenly froze. They bumped into her and she almost fell. Her father's office was here. Surely they weren't going to deliver her looking like this? How could they know he was here? Mathew slapped her ass hard and she tottered on weak legs that threatened to collapse. 
 
  Olivia was prepared to suffer even that vile degradation to escape. Daddy owned the building towering above them. His personal office suite was a whole wing of the building on the top floor. She imagined being trooped in by these street urchins, if it were possible to get past security. 
 
@@ -850,13 +876,21 @@
 
  
 
- ****** Olivia Ch. 04 ****** byStoryTeller07© A hard look crossed her features and Olivia had to look away. If this was the life ahead of her then maybe it should be ended right now. Surely they couldn't break her so completely as that. On the ride here she had been so overwhelmed by what had happened earlier she had already become completely submissive to them. 
+ 
+
+===
+
+A hard look crossed her features and Olivia had to look away. If this was the life ahead of her then maybe it should be ended right now. Surely they couldn't break her so completely as that. On the ride here she had been so overwhelmed by what had happened earlier she had already become completely submissive to them. 
 
  Olivia dreaded what might happen to her over a couple of months with these callous men using her as a sex object. Olivia looked at the young woman in the cage, agonizing over what might happen. She had a wealthy pampered upbringing, so would she still be as sane as that young woman in a year's time?  
 
  
 
- ****** Olivia Ch. 05 ****** byStoryTeller07© Chapter 05 
+ 
+
+===
+
+Chapter 05 
 
  The gang slut is sold on 
 
@@ -1056,7 +1090,11 @@
 
  
 
- ****** Olivia Ch. 05 ****** byStoryTeller07© "Here's your room," he told her. 
+ 
+
+===
+
+"Here's your room," he told her. 
 
  "Where is my cage, master?" Olivia asked. 
 

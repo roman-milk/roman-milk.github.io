@@ -1,8 +1,14 @@
+Jane is Trained to Submit Ch. 01
+================================
 #1 
 
  
 
- ****** Jane is Trained to Submit Ch. 01 ****** byStoryTeller07© Prologue 
+ 
+
+===
+
+Prologue 
 
  'Mr McKenzie you are a bully, and I will not be dissuaded by such tactics.' Jane acidly stated. 
 
@@ -168,7 +174,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 01 ****** byStoryTeller07© Using an awkward gait, she headed for the private bathroom. She knew it would be there, following the layout of her own house. It was too late. With a touch of disgust, and dismay, she dropped the soaked panties down the bowl, and flushed. A yelp of panic was only just stifled, from turning into a loud wail of distress. It was now even more imperative not to attract attention. 
+ 
+
+===
+
+Using an awkward gait, she headed for the private bathroom. She knew it would be there, following the layout of her own house. It was too late. With a touch of disgust, and dismay, she dropped the soaked panties down the bowl, and flushed. A yelp of panic was only just stifled, from turning into a loud wail of distress. It was now even more imperative not to attract attention. 
 
  The skirt was too short not to be wearing panties. Especially after what happened on the dance floor. The idea had been to look out for her daughter, yet she was the one falling deeper into trouble. 
 
@@ -404,7 +414,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 01 ****** byStoryTeller07© 'Yes, yes!' Jane exclaimed, picking up on Margaret's buoyant remedy. The thought of going to the local doctor, and pharmacy, flattened the momentary euphoria. It was against the rules, but it wouldn't stop that girl in the pharmacy from gossiping about her. She knew her daughter was on the pill, so Louise couldn't be the one needing it. The assistant would spread it around that she needed to solve the problem of a one night stand. 
+ 
+
+===
+
+'Yes, yes!' Jane exclaimed, picking up on Margaret's buoyant remedy. The thought of going to the local doctor, and pharmacy, flattened the momentary euphoria. It was against the rules, but it wouldn't stop that girl in the pharmacy from gossiping about her. She knew her daughter was on the pill, so Louise couldn't be the one needing it. The assistant would spread it around that she needed to solve the problem of a one night stand. 
 
  'Where will I get it? I can't go to my doctor!' Jane complained. 
 
@@ -516,7 +530,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 02 ****** byStoryTeller07© The Clients 
+ 
+
+===
+
+The Clients 
 
  She stood almost to attention in Margaret's kitchen, as though she were a dutiful and innocent girl-scout. 
 
@@ -712,7 +730,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 02 ****** byStoryTeller07© How stupid was she to expect anything from a stranger. To him she was just a one-night stand, or maybe something worse. Margaret had used her to entertain him, like a hired escort. A nice way of calling her a whore. 
+ 
+
+===
+
+How stupid was she to expect anything from a stranger. To him she was just a one-night stand, or maybe something worse. Margaret had used her to entertain him, like a hired escort. A nice way of calling her a whore. 
 
  Staring at her bare feet, with shoulders slumped, she reflected on all the appalling acts committed in this house. The list of sins Margaret held over her was disgraceful, and growing each day. She needed to escape the tormentor, and get away from this house. 
 
@@ -928,7 +950,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 02 ****** byStoryTeller07© Margaret had always power-dressed. "Dressed to kill", she always told herself before a meeting. She looked good, sexy, though in a dark haired and sophisticated fashion, compared to Jane. Jane had a look of innocence. A blond bombshell, yet managing to look naive. Well she was, or had been up until Margaret took charge of her. 
+ 
+
+===
+
+Margaret had always power-dressed. "Dressed to kill", she always told herself before a meeting. She looked good, sexy, though in a dark haired and sophisticated fashion, compared to Jane. Jane had a look of innocence. A blond bombshell, yet managing to look naive. Well she was, or had been up until Margaret took charge of her. 
 
  'Stand up straight, chest out, stand proud,' Margaret exhorted. 'Men will find you attractive. They won't be able to keep their eyes off you. They will be enthralled by you, fascinated, wanting to know you, worship you,' Margaret purred in her ear. 
 
@@ -1142,7 +1168,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 02 ****** byStoryTeller07© 'I wish he would go. He's off in a couple of months. I admit, I'll miss him,' Margaret sighed. Both women looked into the distance, musing over the past. 
+ 
+
+===
+
+'I wish he would go. He's off in a couple of months. I admit, I'll miss him,' Margaret sighed. Both women looked into the distance, musing over the past. 
 
  'Maid!' Margaret sharply said. 'Get us both a drink, then sit down here with me,' she said, patting the sofa. Louise had done her a favour. With the daughter out of the way, she had full reign over the mother. 
 
@@ -1180,7 +1210,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 03 ****** byStoryTeller07© The Son - Day One 
+ 
+
+===
+
+The Son - Day One 
 
  'Mark, just sit there and keep quiet,' Margaret told her son. 
 
@@ -1378,7 +1412,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 03 ****** byStoryTeller07© 'Nice. You're breasts look so nice and soft in the corset,' he commented. 
+ 
+
+===
+
+'Nice. You're breasts look so nice and soft in the corset,' he commented. 
 
  There was neither a leer on his face, nor condemnation in his tone of voice. It was merely an observation. It left her feeling all the more like a mere toy, playing dress-up. It was both frustrating and galling, from being turned on while he casually played with her. He said she was a beautiful woman, either completely naked, or dressed sexily for his benefit. Yet he seemed indifferent to her charms. 
 
@@ -1604,7 +1642,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 03 ****** byStoryTeller07© 'So, you're now just an attachment to my cock, are you?' he asked. 
+ 
+
+===
+
+'So, you're now just an attachment to my cock, are you?' he asked. 
 
  Jane nearly let go of his penis to answer. Unable to reply to such a denigrating question she kept a hold of him. It was a disgraceful confirmation of his opinion, that she was merely an appendage to his cock. 
 
@@ -1642,7 +1684,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 04 ****** byStoryTeller07© The Son - Day Two 
+ 
+
+===
+
+The Son - Day Two 
 
  Mark walked into her room and her heart started pounding. She wondered what calamity this new day would bring. 
 
@@ -1976,7 +2022,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 04 ****** byStoryTeller07© On his knees he massaged her calves. 
+ 
+
+===
+
+On his knees he massaged her calves. 
 
  'Thank you, sir,' she trotted out as usual. A great deal of emotion escaped into those words. 
 
@@ -2232,7 +2282,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 04 ****** byStoryTeller07© It was hard to believe this was the same woman. He just couldn't help testing how far she would fall in this downward spiral of debauchery. 
+ 
+
+===
+
+It was hard to believe this was the same woman. He just couldn't help testing how far she would fall in this downward spiral of debauchery. 
 
  'Are you keeping it ready for me?' he demanded to know. 
 
@@ -2354,7 +2408,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 05 ****** byStoryTeller07© Moving In 
+ 
+
+===
+
+Moving In 
 
  Jane was pleased to be wearing a dress with a hem almost to the knees. The gratitude she felt toward Mark for letting her wear it, was misplaced. He was just an adolescent, yet it was taken for granted that he chose her clothing, even deciding if she could wear underwear. It was a sign of how downtrodden she had become, where everything she now did was under his supervision. 
 
@@ -2582,7 +2640,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 05 ****** byStoryTeller07© 'Be rest assured, it's no trick. It's all part of the process to see if I can trust you, and should tell your boss or not,' he smiled, trying to be reassuring. 
+ 
+
+===
+
+'Be rest assured, it's no trick. It's all part of the process to see if I can trust you, and should tell your boss or not,' he smiled, trying to be reassuring. 
 
  Jane wondered how he could possibly think anyone was so stupid. Margaret had often pointed out that men would believe anything, from the hope of getting what they wanted. Jane believed it, as the evidence was right here. 
 
@@ -2816,7 +2878,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 05 ****** byStoryTeller07© Jane was thankful he was going to use his hand, for that meant it wouldn't be so bad. A slap hurt her pride more than anything, which was its purpose. A warm feeling emanated from her bottom, but more injurious was the warm feeling in her tummy. The familiar feeling of arousal was making its way through her body to her mind. Sexual stimulation came in a myriad of forms these days. It was as though the slut in her had been let loose. From humiliation she became a sexed up bitch, and from having no choice except to submit, she was free of responsibility and ready for anything. 
+ 
+
+===
+
+Jane was thankful he was going to use his hand, for that meant it wouldn't be so bad. A slap hurt her pride more than anything, which was its purpose. A warm feeling emanated from her bottom, but more injurious was the warm feeling in her tummy. The familiar feeling of arousal was making its way through her body to her mind. Sexual stimulation came in a myriad of forms these days. It was as though the slut in her had been let loose. From humiliation she became a sexed up bitch, and from having no choice except to submit, she was free of responsibility and ready for anything. 
 
  Mark slapped her bare cheeks, reddening them, noting her lips swelling in reaction to the rough handling. He had discovered she became sexed up from being humiliated, and controlled. So now he took every opportunity to ensure he had a hot sex pet, ready to pander to his whims. 
 
@@ -2860,7 +2926,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 06 ****** byStoryTeller07© 'So what's Mr Frederickson like?' Margaret asked the receptionist. The woman was smartly dressed and handled herself with unusual professionalism, so Margaret didn't expect much of use to be revealed. 
+ 
+
+===
+
+'So what's Mr Frederickson like?' Margaret asked the receptionist. The woman was smartly dressed and handled herself with unusual professionalism, so Margaret didn't expect much of use to be revealed. 
 
  'He's a nice man, at least as far as a purchasing CEO goes,' she dryly commented. 
 
@@ -3060,7 +3130,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 06 ****** byStoryTeller07© Annie silently gasped at the prospect of having to serve these high school eighteen year olds. Like everyone else, she had worked out they had clubbed together to raise the money. She was hardly older than them, but at her age a year meant a lot. Even if they kept to the rules, it would be highly embarrassing to take orders from them, especially as they weren't in her social league. She looked imploringly at the family friend, as the countdown started. 
+ 
+
+===
+
+Annie silently gasped at the prospect of having to serve these high school eighteen year olds. Like everyone else, she had worked out they had clubbed together to raise the money. She was hardly older than them, but at her age a year meant a lot. Even if they kept to the rules, it would be highly embarrassing to take orders from them, especially as they weren't in her social league. She looked imploringly at the family friend, as the countdown started. 
 
  'Going once, going to the noisy guys, twice.' 
 
@@ -3260,7 +3334,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 06 ****** byStoryTeller07© On one knee he took hold of her ankle. 'Sorry. Does it hurt?' he asked. 
+ 
+
+===
+
+On one knee he took hold of her ankle. 'Sorry. Does it hurt?' he asked. 
 
  'No, I'm OK, really,' she said, a little too loudly. 
 
@@ -3408,7 +3486,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 07 ****** byStoryTeller07© Jane was standing in a room, in a house, she knew not where. The journey had taken some time, though it was difficult to calculate how long, as her mind had switched off. It had been the only way to cope with the demeaning position of being sold as a slave. It was only for the weekend, she told herself, yet again. 
+ 
+
+===
+
+Jane was standing in a room, in a house, she knew not where. The journey had taken some time, though it was difficult to calculate how long, as her mind had switched off. It had been the only way to cope with the demeaning position of being sold as a slave. It was only for the weekend, she told herself, yet again. 
 
  'Only for a weekend!' she laughed, and caught hold of it, before she became hysterical. 
 
@@ -3604,7 +3686,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 07 ****** byStoryTeller07© He hadn't made love for some time, though maybe he wasn't now. She was using his cock for her own pleasure. Not that he was complaining, and she did seem desperate for satisfaction. She began to ride him to her own measured pace. He smiled at her, though she didn't see. Her eyes were tightly shut, with lips pursed, and face screwed up with intense concentration. 
+ 
+
+===
+
+He hadn't made love for some time, though maybe he wasn't now. She was using his cock for her own pleasure. Not that he was complaining, and she did seem desperate for satisfaction. She began to ride him to her own measured pace. He smiled at her, though she didn't see. Her eyes were tightly shut, with lips pursed, and face screwed up with intense concentration. 
 
  Bob was deliriously happy. He thought his body had given up on sex. It seemed he could hold back forever, enjoying the sensations, watching her work hard toward an orgasm. She seemed to reach a peak, then it flattened out. She was breathing heavily, sweating, and muttering something, while pushing hard onto his cock. 
 
@@ -3850,7 +3936,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 07 ****** byStoryTeller07© Jane walked into the room and stood beside him. She was used to this from when she served Margaret. He turned to face her, looking stern. It was imperative she please him, from fear of being sent back to Margaret, or sent away without anywhere to go. Worse still, he might sell her to a stranger. She could end up anywhere, with anyone! He was a decent man, prepared to look after her, whereas another master might mistreat her. 
+ 
+
+===
+
+Jane walked into the room and stood beside him. She was used to this from when she served Margaret. He turned to face her, looking stern. It was imperative she please him, from fear of being sent back to Margaret, or sent away without anywhere to go. Worse still, he might sell her to a stranger. She could end up anywhere, with anyone! He was a decent man, prepared to look after her, whereas another master might mistreat her. 
 
  She tried to dismiss the improbable idea, especially as it was stoking her up. She realised her arousal was the reason she was considering the preposterous idea of being sold as a slave. She just couldn't help it. It had been a favourite fantasy, and here she was living the bath-time dream. Though it wasn't quite like her daydreams, it was real. 
 
@@ -3948,7 +4038,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 08 ****** byStoryTeller07© Margaret was fuming. All morning she ran to the phone as soon as it rang. The agreement was to bring Jane back Monday morning, and it was one in the afternoon. 
+ 
+
+===
+
+Margaret was fuming. All morning she ran to the phone as soon as it rang. The agreement was to bring Jane back Monday morning, and it was one in the afternoon. 
 
  She hadn't seen who it was that won Jane at the auction, and the cheque hadn't revealed who it was either. It was a business cheque, and the business was a new set-up. She phoned the bank first thing, to find it could be cashed. That wasn't the point. She was worrying over not knowing who had her, and even more worried over what they were doing with her. The stupid woman was now so submissive, and became so easily aroused, she would do anything a man wanted. 
 
@@ -4214,7 +4308,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 08 ****** byStoryTeller07© She gave her a push in the middle of the back, out of the storeroom. 
+ 
+
+===
+
+She gave her a push in the middle of the back, out of the storeroom. 
 
  'Just here will do, it's close to the store room, where a prospective customer can try you out in privacy. I'll try and get back here at five, when the local gang comes in to play on the games consoles. They can be a nuisance. They try out the slaves, and I have to wash off the sticky mess. I was busy yesterday, and by the time I got here, the slave on show was leaking sperm from every orifice,' the woman explained. 
 
@@ -4496,7 +4594,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 08 ****** byStoryTeller07© 'What have you done, slave?' Bob demanded. 
+ 
+
+===
+
+'What have you done, slave?' Bob demanded. 
 
  'Sorry, Master. Your slave has been clumsy,' she said. 
 
@@ -4578,7 +4680,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 09 ****** byStoryTeller07© Lost in a card game 
+ 
+
+===
+
+Lost in a card game 
 
  'Your master has decided on a trip to Las Vegas,' Bob said. 
 
@@ -4818,7 +4924,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 09 ****** byStoryTeller07© 'Later, you naught sexy slut,' he told her. 
+ 
+
+===
+
+'Later, you naught sexy slut,' he told her. 
 
  She giggled and chortled, full of happiness. 
 
@@ -5044,7 +5154,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 09 ****** byStoryTeller07© Richard shoved thumb up her ass, and managed to finger her clit at the same time. Whenever it was someone else's turn to deal, he touched her up, so he knew how wet she was. Her pussy was really flowing now. The bitch was the dirtiest slut he had ever met. He was working her like a glove puppet, enjoying the way she squirmed. 
+ 
+
+===
+
+Richard shoved thumb up her ass, and managed to finger her clit at the same time. Whenever it was someone else's turn to deal, he touched her up, so he knew how wet she was. Her pussy was really flowing now. The bitch was the dirtiest slut he had ever met. He was working her like a glove puppet, enjoying the way she squirmed. 
 
  Bob was accumulating chips. The game was rolling high, and all three opponents seemed to have lost their common sense. He didn't realise two of them were trying to help him out. Richard was more concerned with playing with his new toy. Soon he would have to put the contract on the table, as his pile of chips ran low. 
 
@@ -5172,7 +5286,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 10 ****** byStoryTeller07© A Visitor Takes Her 
+ 
+
+===
+
+A Visitor Takes Her 
 
  Bob worked hard to make Jane feel safe at home. The slave fantasy held her in a powerful addictive grip, like drugs or alcohol. She wasn't addicted to sex, at least not to that alone. She had become hooked on humiliation, which left her so aroused, all normal inhibitions were discarded. He at least worked that out. What do with her to break the spell was more difficult to grasp. 
 
@@ -5414,7 +5532,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 10 ****** byStoryTeller07© 'No, no wife, or even a girlfriend,' he said. 'No one will put up with the odd hours I work. Building up a business is hard work. What did you do before you came here?' he asked. 
+ 
+
+===
+
+'No, no wife, or even a girlfriend,' he said. 'No one will put up with the odd hours I work. Building up a business is hard work. What did you do before you came here?' he asked. 
 
  'A personal assistant, or secretary really. I used to travel with the boss to clients,' she said, purposely missing out the details. 'She was a demanding boss,' Jane added, to clear up what he was obviously thinking, that it was a demanding male boss. His face cleared so she added, 'She was a very beautiful woman, and a tease. I might have slept with her,' she joked. 
 
@@ -5656,7 +5778,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 11 ****** byStoryTeller07© Bob hadn't thought through how he was going to introduce Jane to his daughter. Leaving it to the last moment, in hope of it sorting itself out, wasn't the kind of strategy he would use in business. In personal relations it was the usual strategy. 
+ 
+
+===
+
+Bob hadn't thought through how he was going to introduce Jane to his daughter. Leaving it to the last moment, in hope of it sorting itself out, wasn't the kind of strategy he would use in business. In personal relations it was the usual strategy. 
 
  They virtually introduced themselves, briefly, and Jane disappeared to the kitchen to prepare a snack for their guest. Bob went through to the kitchen and announced he was off to the airport. Jane was mortified, not knowing how she stood. 
 
@@ -5942,7 +6068,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 11 ****** byStoryTeller07© 'How does a mistress punish you, slave?' she asked, with the idea of finding out how she could be controlled. It might be a clue as to how the woman became so submissive. 
+ 
+
+===
+
+'How does a mistress punish you, slave?' she asked, with the idea of finding out how she could be controlled. It might be a clue as to how the woman became so submissive. 
 
  'Your slave is spanked, mistress,' Jane grudgingly said. 
 
@@ -6214,7 +6344,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 11 ****** byStoryTeller07© Jane carefully reached for her mistresses sex. It looked as though someone else's hand was between her mistresses thighs. It was even weirder watching her hand playing between the lips, watching the clit emerge. 
+ 
+
+===
+
+Jane carefully reached for her mistresses sex. It looked as though someone else's hand was between her mistresses thighs. It was even weirder watching her hand playing between the lips, watching the clit emerge. 
 
  'Your lips still aren't as big as mine,' Jane worriedly spoke. 
 
@@ -6392,7 +6526,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 12 ****** byStoryTeller07© Collared Slave 
+ 
+
+===
+
+Collared Slave 
 
  Over a few days they settled into their relationship. Jane had learnt to think of herself as a slave, or maybe brainwashed herself into the role, long before Elizabeth turned up. Having given up fighting it, Elizabeth learnt to be a mistress, owning a slave, and all that entailed. A natural exuberance carried her along, to fully embrace the relationship. 
 
@@ -6638,7 +6776,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 12 ****** byStoryTeller07© 'Before you leave, a thank you present,' Clarissa said. 
+ 
+
+===
+
+'Before you leave, a thank you present,' Clarissa said. 
 
  She fitted dangly loop earrings into Jane's ear lobes, unable to resist polishing the glittery image of two stupid girls out on a trawl for men. Ironically they weren't interested in men. Elizabeth relented, with ill grace. It was just one more embarrassing embellishment to their outfits to be endured. 
 
@@ -6894,7 +7036,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 12 ****** byStoryTeller07© 'I'm used to the heat, enjoy it,' she said, while wondering what was happening between them. 
+ 
+
+===
+
+'I'm used to the heat, enjoy it,' she said, while wondering what was happening between them. 
 
  'It's cold outside, you'll need coats just to get to your vehicle,' he said, nodding at their skimpy outfits. 
 
@@ -7050,7 +7196,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 13 ****** byStoryTeller07© Chapter 13 
+ 
+
+===
+
+Chapter 13 
 
  Kidnapped 
 
@@ -7338,7 +7488,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 13 ****** byStoryTeller07© Looking out the door, Jane could see miles of farm land. They had turned off the highway onto a county road, miles from anywhere. She watched him rinse the bowl with bottled water, and stow it somewhere out of her line of sight. Another bottle of water was thrown into the cage, together with a pack of sandwiches. 
+ 
+
+===
+
+Looking out the door, Jane could see miles of farm land. They had turned off the highway onto a county road, miles from anywhere. She watched him rinse the bowl with bottled water, and stow it somewhere out of her line of sight. Another bottle of water was thrown into the cage, together with a pack of sandwiches. 
 
  Without another word spoken, the door was slammed shut, and they were soon on the road again. Jane sat hunched up in the corner of the cage. She was wondering if she had made a big mistake. 
 
@@ -7676,7 +7830,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 13 ****** byStoryTeller07© 'Back home of course, to my, err, master. I have nowhere else to go,' she said. 
+ 
+
+===
+
+'Back home of course, to my, err, master. I have nowhere else to go,' she said. 
 
  
 
@@ -7756,7 +7914,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 14 ****** byStoryTeller07© The Casino 
+ 
+
+===
+
+The Casino 
 
  Bob was discharged from hospital, more from wanting to go home than being fully fit. He was a tough old guy, and was worried about Jane and his daughter. He had rung home several times, without a reply. 
 
@@ -7996,7 +8158,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 14 ****** byStoryTeller07© 'Elizabeth probably wasn't brow beaten down into submission - yet. Given time she might have turned out like the other one,' he said, looking angry. 
+ 
+
+===
+
+'Elizabeth probably wasn't brow beaten down into submission - yet. Given time she might have turned out like the other one,' he said, looking angry. 
 
  'OK! This time you did good,' Diane grimaced. 
 
@@ -8242,7 +8408,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 14 ****** byStoryTeller07© He walked close to the staff door, and Jane gave him a nod. He slipped through the door, and into a restroom. It was a female toilet, no urinals. He went into the furthest of three cubicles and stood on the seat. It was like being back in school, waiting to play a trick on someone. The excitement was building. With a raging hard on all evening, he was willing to do anything to get laid. 
+ 
+
+===
+
+He walked close to the staff door, and Jane gave him a nod. He slipped through the door, and into a restroom. It was a female toilet, no urinals. He went into the furthest of three cubicles and stood on the seat. It was like being back in school, waiting to play a trick on someone. The excitement was building. With a raging hard on all evening, he was willing to do anything to get laid. 
 
  Hearing Jane talking to the security guy, he peeped out the door. 
 
@@ -8318,7 +8488,11 @@
 
  
 
- ****** Jane is Trained to Submit Ch. 15 ****** byStoryTeller07© The Slaves are Rescued 
+ 
+
+===
+
+The Slaves are Rescued 
 
  Elizabeth had tried not to hear the sounds of their love making. Jane's keening sounds, and his grunting, were all too clear. Already excited and wound up, her inner tension broke. She had to have a man, and it didn't matter who it was, so long as he satisfied the overwhelming urges. The heavy breathing subsided, and all was quiet. Unable to hold back any longer she ran into the bedroom. 
 

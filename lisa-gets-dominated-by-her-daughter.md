@@ -1,8 +1,14 @@
+Lisa Gets Dominated by Her Daughter
+===================================
 #1 
 
  
 
- ****** Lisa Gets Dominated by Her Daughter ****** bydawn1958© Lisa was a single mom who would do anything in the world for her daughter. She was a very hard working professional who lost her husband when Lynzee was only six. Although it was a struggle raising a child being a single parent, Lisa managed to make all of the necessary sacrifices to ensure her daughter had a good childhood. It wasn't until lately that the relationship with her daughter became very strained and Lisa felt bad because it seemed they were fighting almost all of the time. 
+ 
+
+===
+
+Lisa was a single mom who would do anything in the world for her daughter. She was a very hard working professional who lost her husband when Lynzee was only six. Although it was a struggle raising a child being a single parent, Lisa managed to make all of the necessary sacrifices to ensure her daughter had a good childhood. It wasn't until lately that the relationship with her daughter became very strained and Lisa felt bad because it seemed they were fighting almost all of the time. 
 
  The two had different ideas about what a nineteen-year-old girl living at home should have the freedom to do. Lynzee felt she didn't need any parenting advice from her mother and Lisa believed her daughter wouldn't grow up properly unless she listened to her advice. What bothered Lisa the most was how readily and easily Lynzee acquired new boyfriends, as it seemed she was dating a different boy every month. 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** Lisa Gets Dominated by Her Daughter ****** bydawn1958© When the paddle struck the bare flesh, the sound caused everyone to gasp out loud. Lynzee watched the velvety skin turn pink and then a brilliant red before she paused. "Maybe you think I'm not serious? When I said Jeff and I talked about bondage and discipline, I meant we talked about you... having sex with you," Lynzee whispered in her mother's ear. "Are you going to be our good little girl?" 
+ 
+
+===
+
+When the paddle struck the bare flesh, the sound caused everyone to gasp out loud. Lynzee watched the velvety skin turn pink and then a brilliant red before she paused. "Maybe you think I'm not serious? When I said Jeff and I talked about bondage and discipline, I meant we talked about you... having sex with you," Lynzee whispered in her mother's ear. "Are you going to be our good little girl?" 
 
  Lisa's hearing was acute and the comments sent shudders all through her body. She was totally overwhelmed by what was happening and remained silent because she just couldn't grasp the dire situation. Then another powerful smack struck her aching buttocks and she sobbed. "Yes... yes... oh yes, anything, please stop... stop spanking. No more!" 
 
@@ -406,7 +416,11 @@
 
  
 
- ****** Lisa Gets Dominated by Her Daughter ****** bydawn1958© "Huuuummmm, huuuummmm." 
+ 
+
+===
+
+"Huuuummmm, huuuummmm." 
 
  "Was dad as big as Jeffery?" 
 
@@ -604,7 +618,11 @@
 
  
 
- ****** Lisa Gets Dominated by Her Daughter ****** bydawn1958© "No, please stop... stop." 
+ 
+
+===
+
+"No, please stop... stop." 
 
  "You look ready." 
 

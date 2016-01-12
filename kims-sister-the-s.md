@@ -1,8 +1,14 @@
+Kim's Sister the Slut
+=====================
 #1 
 
  
 
- ****** Kim's Sister the Slut ****** byincrediblehunk7© My girlfriend Kim and I have been going out for about 5 months. She is 23, about 5'4", with auburn wavy hair and bright green eyes. Her skin is a little pale, and she has a hint of freckles on her face and shoulders. Kim has a thin build, with perky B cups and a tight apple ass. The first time I saw her walk away from me in tight little panties, slightly sucked up between her hard cheeks, I was hooked. I am three years older, 6' even, muscular but not huge. Kim likes when I have a beard, so I keep a trimmed one that matches my short brown hair. 
+ 
+
+===
+
+My girlfriend Kim and I have been going out for about 5 months. She is 23, about 5'4", with auburn wavy hair and bright green eyes. Her skin is a little pale, and she has a hint of freckles on her face and shoulders. Kim has a thin build, with perky B cups and a tight apple ass. The first time I saw her walk away from me in tight little panties, slightly sucked up between her hard cheeks, I was hooked. I am three years older, 6' even, muscular but not huge. Kim likes when I have a beard, so I keep a trimmed one that matches my short brown hair. 
 
  Kim's little sister Katie has fallen on hard times. Frankly, she's a bitch. I don't often use that term, but she really is. Drugs, skipping school, sexting, all before she even came close to graduating high school. She got kicked out when she tried to seduce a teacher for an A. Once Katie hit 18, her parents kicked her out, and now she is living on Kim's couch. Now she is causing Kim stress. Now she is causing me not to get laid. 
 
@@ -144,7 +150,11 @@
 
  
 
- ****** Kim's Sister the Slut ****** byincrediblehunk7© "Suck his cock you little fucking whore! Get that cum and share it with your slut sister!" Kim has such a dirty mouth. My balls swelled up, my body stiffened, and I started to cum in a huge wave. I stared at Kim, her mouth covered by her sister's juices. I smelled Katie's panties. Mostly, I felt that hot, young mouth as I shot rope after rope of hot cum in Katie's mouth. She could not hold it all, and as she stood up it dripped on her tits. 
+ 
+
+===
+
+"Suck his cock you little fucking whore! Get that cum and share it with your slut sister!" Kim has such a dirty mouth. My balls swelled up, my body stiffened, and I started to cum in a huge wave. I stared at Kim, her mouth covered by her sister's juices. I smelled Katie's panties. Mostly, I felt that hot, young mouth as I shot rope after rope of hot cum in Katie's mouth. She could not hold it all, and as she stood up it dripped on her tits. 
 
  Kim was over in a heartbeat, her mouth licking her sisters firm D cups titties and lapping up my cum. They shared a dirty, cum filled kiss, tits pressed together as they grabbed and groped each other like sluts on a rampage. As I began to recover, I watched to two sisters suck on each other's tits in a 69. They started sliding down each other's bodies, Katie's big tits on top scraping down Kim's stomach as she kissed towards that sweet little pussy that I love to eat. 
 
@@ -152,7 +162,11 @@
 
  
 
- ****** Kim's Sister the Slut Pt. 02 ****** byincrediblehunk7© I sat back on one leg of the sofa, recovering from the most intense orgasm of my life. Just moments earlier, I erupted inside of my girlfriend's little sister, my cum filling her 18 year old mouth and spilling out of the corners. I had watched as my girlfriend, Kim, and her sister, Katie, shared a cum-filled kiss. I felt paralyzed as I watched them grope at each other wildly, Katie fully naked and Kim wearing her usual tight cotton panties. 
+ 
+
+===
+
+I sat back on one leg of the sofa, recovering from the most intense orgasm of my life. Just moments earlier, I erupted inside of my girlfriend's little sister, my cum filling her 18 year old mouth and spilling out of the corners. I had watched as my girlfriend, Kim, and her sister, Katie, shared a cum-filled kiss. I felt paralyzed as I watched them grope at each other wildly, Katie fully naked and Kim wearing her usual tight cotton panties. 
 
  As they settled down into a sort of nipple sucking 69, my head cleared enough to take in the scene before me. Kim's legs were resting at a 90-degree angle on mine, her knees wide, exposing the damp crotch of her panties. I always loved the way her panties seem to be a ½ size too small, clinging to her folds and leaving just enough to the imagination to make me shudder. Her thighs are creamy white, smooth, and probably not quite thin enough for a runway model. They lead up to womanly hips that give her the hourglass silhouette. Kim still has a cute gap that I can see when she stands. Her ass is probably her best asset, at least the best one viewable with clothes. It's tight, apple shaped, and just begging to be spread. 
 
@@ -286,7 +300,11 @@
 
  
 
- ****** Kim's Sister the Slut Pt. 02 ****** byincrediblehunk7© I need to think of a way to make sure this keeps going. Already, I see a bit less of the chaotic energy that engulfed them when they shared my cum, and a bit more of a slow-burn make-out session (albeit almost naked, and with double tit-sucking, but still). Think, think. What could make them lose control and devour each other? 
+ 
+
+===
+
+I need to think of a way to make sure this keeps going. Already, I see a bit less of the chaotic energy that engulfed them when they shared my cum, and a bit more of a slow-burn make-out session (albeit almost naked, and with double tit-sucking, but still). Think, think. What could make them lose control and devour each other? 
 
  "Kim, you love sucking on your little sister's titties, don't you? Those eighteen year old tits squeezing your face?" I see Kim squeeze her thighs slightly, her butt lift up just a tad. "Your slutty sister's pussy was just dripping all over your face, wasn't it? You like that taste?" 
 

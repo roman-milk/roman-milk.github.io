@@ -1,8 +1,14 @@
+Jane's Story
+============
 #1 
 
  
 
- ****** Jane's Story ****** bydawn1958© Please email me your comments or suggestions, as I appreciate hearing from readers who take the time to give feedback. This story is written for a special reader who has given me the inspiration to write about her life, or fantasy. 
+ 
+
+===
+
+Please email me your comments or suggestions, as I appreciate hearing from readers who take the time to give feedback. This story is written for a special reader who has given me the inspiration to write about her life, or fantasy. 
 
  JANE'S STORY 
 
@@ -104,7 +110,11 @@
 
  
 
- ****** Jane's Story ****** bydawn1958© The 18th day of September would forever be engrained in her memory. "Give me your hand," Josh whispered. He simply grabbed her dainty hand, acting like it was the most compassionate and caring thing he had ever done. Jane expected the young man to apologize and then leave, but to her profound amazement that never happened. Josh stared at her and his dark, mesmerizing eyes turned her stomach to quicksand. 
+ 
+
+===
+
+The 18th day of September would forever be engrained in her memory. "Give me your hand," Josh whispered. He simply grabbed her dainty hand, acting like it was the most compassionate and caring thing he had ever done. Jane expected the young man to apologize and then leave, but to her profound amazement that never happened. Josh stared at her and his dark, mesmerizing eyes turned her stomach to quicksand. 
 
  In one swift and shrewd move, Josh shoved her hand into his pants. One second Jane expected an end to the sudden affair and the next second her hand rested directly on top of something long, hard and pulsing. She was positive her legs collapsed involuntarily, as the next thing she was aware of was being in the arms of an overpowering young man. Her hand twisted slightly, which enabled her fingers to wrap around the throbbing penis, and every heartbeat radiated straight up her arm. 
 
@@ -262,7 +272,11 @@
 
  
 
- ****** Jane's Story ****** bydawn1958© "Whenever I'm with you, I feel good," Josh whispered. Jane remained still and stared straight ahead, but her eyes may as well have been closed. His lips were against her ear and his voice was merely a faint whisper. "I've never felt this way... about anyone!" 
+ 
+
+===
+
+"Whenever I'm with you, I feel good," Josh whispered. Jane remained still and stared straight ahead, but her eyes may as well have been closed. His lips were against her ear and his voice was merely a faint whisper. "I've never felt this way... about anyone!" 
 
  "No! Dear gawd, no. I'm not that kind of woman... I'm married," she moaned. "It's my fault for leading you on. I should never have done that." 
 
@@ -396,7 +410,11 @@
 
  
 
- ****** Jane's Story ****** bydawn1958© *** 
+ 
+
+===
+
+*** 
 
  Jane collapsed, as her legs were no longer strong enough for her to remain standing. She wound up on Brad's bed and there was no way to comprehend what had just transpired in a stranger's bedroom. It took some time for her breathing to return to a normal state and by that time Brad was thoroughly aroused. The sexy, naked woman lay stretched out on his bed and there was one thing paramount in his mind. "The night is young. I believe that I have enough incriminating evidence against you to keep you here all night," he informed her. 
 
@@ -586,7 +604,11 @@
 
  
 
- ****** Jane's Story ****** bydawn1958© Jane had to be alone. When Josh pulled into the driveway, the guilt quickly became suffocating. She knew not to make any excuses, yet she did anyway. "Best I go in right away... I need to be alone. Thanks again and I'll see you at school." 
+ 
+
+===
+
+Jane had to be alone. When Josh pulled into the driveway, the guilt quickly became suffocating. She knew not to make any excuses, yet she did anyway. "Best I go in right away... I need to be alone. Thanks again and I'll see you at school." 
 
  Josh faced her and looked into her eyes, which were still teary. "I realized that you were special the first time I saw you in class," he whispered. "That's when I fell in love with you." 
 
@@ -724,7 +746,11 @@
 
  
 
- ****** Jane's Story ****** bydawn1958© Even though it was late, Jane hesitated going home. It was definitely late, but the lovemaking was too profound for any rational thinking. It was Josh who came to his senses after the third earth-shattering climax. "I will take you home. I wish we could stay like this all night, but we can't." 
+ 
+
+===
+
+Even though it was late, Jane hesitated going home. It was definitely late, but the lovemaking was too profound for any rational thinking. It was Josh who came to his senses after the third earth-shattering climax. "I will take you home. I wish we could stay like this all night, but we can't." 
 
  "Yes, you're right. I don't usually stay out his late," she whispered. "My husband will think I've had too much to drink." 
 

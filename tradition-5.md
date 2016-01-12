@@ -1,8 +1,14 @@
+Tradition
+=========
 #1 
 
  
 
- ****** Tradition ****** bysex4every1© I had just divorced my husband after twenty-two years of marriage. It wasn't anyone's fault, there just was no more love, let alone lust, between us. We had decided to dispense with lawyers and all the red tape and to just part amicably; it helped off course that we were very wealthy and I was offered a very reasonable settlement. For that amount, I was able to buy a house at the beach, which had been a dream of mine for many years. My husband loved the busy city life while I was more of a country or sea side girl. I swiftly came across a fixer-upper which had been deserted for years, mainly because of the steep asking price. As money was not an issue and because I didn't mind the prospect of a long-term renovation, I didn't need a lot of time to make up my mind. Although the place was an absolute dump, I insisted on moving in as soon as possible, before any of the repairs or modifications had even started. 
+ 
+
+===
+
+I had just divorced my husband after twenty-two years of marriage. It wasn't anyone's fault, there just was no more love, let alone lust, between us. We had decided to dispense with lawyers and all the red tape and to just part amicably; it helped off course that we were very wealthy and I was offered a very reasonable settlement. For that amount, I was able to buy a house at the beach, which had been a dream of mine for many years. My husband loved the busy city life while I was more of a country or sea side girl. I swiftly came across a fixer-upper which had been deserted for years, mainly because of the steep asking price. As money was not an issue and because I didn't mind the prospect of a long-term renovation, I didn't need a lot of time to make up my mind. Although the place was an absolute dump, I insisted on moving in as soon as possible, before any of the repairs or modifications had even started. 
 
  One of the most appealing features of the house was a giant porch overlooking the coastline; at the left side of the house the porch ended in a wooden stair case, providing direct access to the beach below. From the very first day, that porch was my favorite part of the whole house. As I was sitting there on my porch that first evening, looking at the setting sun and listening to the ocean sounds, I began to unwind for the first time in many months (maybe even years) and an almost intoxicating tranquility took over my mind and body. I can't remember how long I just sat there, enjoying the serenity, but suddenly my attention was drawn to a man walking up to the house. He had a very confused look on his face – and the closer he came, the more puzzled he seemed to get – until he was right in front the house, looking up at me. I nodded and smiled, greeting him and asked, "Can I help you with something?" 
 
@@ -170,7 +176,11 @@
 
  
 
- ****** Tradition ****** bysex4every1© After gawking at me for a few more seconds, clearly aroused, Richard snapped out of it and said, "Well uh, same time tomorrow?" 
+ 
+
+===
+
+After gawking at me for a few more seconds, clearly aroused, Richard snapped out of it and said, "Well uh, same time tomorrow?" 
 
  I nodded and smiled as we both felt like we'd gotten everything out of tonight we were comfortable with – for now. I sat up straight and sipped from my tea as he picked up his clothes and walked towards the stairs. Instead of heading down, he turned and asked, "I was wondering... if perhaps, I mean if you're not busy, if you would like to accompany me to the opera, this Saturday?" 
 

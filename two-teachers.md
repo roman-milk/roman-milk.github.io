@@ -1,8 +1,14 @@
+Two Teachers Ch. 01
+===================
 #1 
 
  
 
- ****** Two Teachers Ch. 01 ****** byStoryTeller07© "Where are you off to tonight," Adele asked her friend. 
+ 
+
+===
+
+"Where are you off to tonight," Adele asked her friend. 
 
  "Nowhere really," Silvia replied. 
 
@@ -234,7 +240,11 @@
 
  
 
- ****** Two Teachers Ch. 01 ****** byStoryTeller07© "No! I can't. Adele wouldn't," she complained. 
+ 
+
+===
+
+"No! I can't. Adele wouldn't," she complained. 
 
  He wanted to tell her she already had, though that would spoil the ruse. "Go on then. They are all in there, at the meeting. I'll get Adele too," he said, rising to go. 
 
@@ -308,7 +318,11 @@
 
  
 
- ****** Two Teachers Ch. 02 ****** byStoryTeller07© "I want a word with you, James," Adele firmly said. She didn't feel as confident as she pretended. For an agonising hour, since he had walked into her class, she pretended not to know the young man. At last the classroom was emptying for lunch. As the last of her students rushed out, he stood before her. 
+ 
+
+===
+
+"I want a word with you, James," Adele firmly said. She didn't feel as confident as she pretended. For an agonising hour, since he had walked into her class, she pretended not to know the young man. At last the classroom was emptying for lunch. As the last of her students rushed out, he stood before her. 
 
  "What the hell do you think you're playing at? This is my job, you stupid boy. Just think what you are doing and take responsibility for your actions. You can't go around ruining people's lives to satisfy your. . ." Adele cut off the tirade, on realising she was about to say, 'to satisfy your lust'. 
 
@@ -494,7 +508,11 @@
 
  
 
- ****** Two Teachers Ch. 02 ****** byStoryTeller07© Strolling to the classroom, swinging her hips, Sylvia couldn't help smiling to herself. Perhaps she could improve her student's grades, if she promised to blow the highest achievers. Two of the girls in class would welcome their teacher, between their legs. She sat giggling in the empty classroom, feeling unusually rude and frivolous. 
+ 
+
+===
+
+Strolling to the classroom, swinging her hips, Sylvia couldn't help smiling to herself. Perhaps she could improve her student's grades, if she promised to blow the highest achievers. Two of the girls in class would welcome their teacher, between their legs. She sat giggling in the empty classroom, feeling unusually rude and frivolous. 
 
  The wet panties, kept reminding her, of the naughty lunchtime escapade. She had been a dull girl at high school, missing out on all the fun. Even when she left, the two boyfriends had been dull, and she now realised, they had been useless in bed. Now she had the attention of the school hunk, with exciting, illicit sex to contemplate. It was no wonder her head was spinning. 
 

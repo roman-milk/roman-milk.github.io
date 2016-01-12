@@ -1,8 +1,14 @@
+Lonely Womans Fantasy Ch. 01
+============================
 #1 
 
  
 
- ****** Lonely Womans Fantasy Ch. 01 ****** byStoryTeller07© Taking on the new management appointment at head office brought with it certain drawbacks Janet hadn't considered. It seemed a good opportunity, starting a new life away from the small town she had grown up in, but the loneliness of a large city was one of the things she was finding hard to get used to. 
+ 
+
+===
+
+Taking on the new management appointment at head office brought with it certain drawbacks Janet hadn't considered. It seemed a good opportunity, starting a new life away from the small town she had grown up in, but the loneliness of a large city was one of the things she was finding hard to get used to. 
 
  While unpacking she found a box of her ex-husbands and instead of throwing it out unpacked it, placing things in the bedroom and bathroom as though she had a man in the lonely apartment. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Lonely Womans Fantasy Ch. 01 ****** byStoryTeller07© They nodded their heads quietly thinking their own thoughts that were being transmitted though the stiff aerials in their jeans. 
+ 
+
+===
+
+They nodded their heads quietly thinking their own thoughts that were being transmitted though the stiff aerials in their jeans. 
 
  Determined to tease them to the limit she continued. "With this new game can both you nice men have me together? I don't want to come between two friends. I don't mind if you both do it to me together but not play with me one at a time," she said, getting into the accent with a flourish. 
 
@@ -240,7 +250,11 @@
 
  
 
- ****** Lonely Womans Fantasy Ch. 02 ****** byStoryTeller07© Janet had told the two young men they could only stay a little while as her master would be home soon. If he caught them here she would be punished, perhaps spanked. 
+ 
+
+===
+
+Janet had told the two young men they could only stay a little while as her master would be home soon. If he caught them here she would be punished, perhaps spanked. 
 
  The outraged looks on their faces were amusing. How improbable a story from the novel seemed, yet they accepted it. After a little more teasing she would have an excuse to shoo them out if they became a bother. 
 

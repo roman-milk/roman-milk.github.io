@@ -1,8 +1,14 @@
+Susan's Request
+===============
 #1 
 
  
 
- ****** Susan's Request ****** bydawn1958© This story was written for a special reader in hopes she likes it. Please send any comments or suggestions to me, as it is nice to hear from readers. I am fairly new at erotic writing and your comments are appreciated. 
+ 
+
+===
+
+This story was written for a special reader in hopes she likes it. Please send any comments or suggestions to me, as it is nice to hear from readers. I am fairly new at erotic writing and your comments are appreciated. 
 
  CHAPTER ONE 
 
@@ -124,7 +130,11 @@
 
  
 
- ****** Susan's Request ****** bydawn1958© Still looking into her eyes, he said in a stern voice, "Open your legs as I want to feel your beautifully shaved pussy." His eyes told Susan that he meant what he said and then he gave a little twist with his upper hand, which was on the front of Susan's blouse. 
+ 
+
+===
+
+Still looking into her eyes, he said in a stern voice, "Open your legs as I want to feel your beautifully shaved pussy." His eyes told Susan that he meant what he said and then he gave a little twist with his upper hand, which was on the front of Susan's blouse. 
 
  Like the obedient slave, Susan slowly spread her legs to allow his strong hand to slip between them. Instantly, his fingers lifted the small, silky patch and dove into the promised land below. The thong offered no protection and his skillful fingers found the target at once. Closing on the throbbing bud, he pinched it with determined passion. 
 
@@ -240,7 +250,11 @@
 
  
 
- ****** Susan's Request Ch. 02 ****** bydawn1958© This is a story about Susan, a teacher at Randall College who has lived an impeccable life and she placed a high value on her job. She would be considered conservative and dressed that way so as to present a professional appearance to her students. In chapter one, she let her guard down and now a student is determined to make her pay a price for her mistake. 
+ 
+
+===
+
+This is a story about Susan, a teacher at Randall College who has lived an impeccable life and she placed a high value on her job. She would be considered conservative and dressed that way so as to present a professional appearance to her students. In chapter one, she let her guard down and now a student is determined to make her pay a price for her mistake. 
 
  CHAPTER TWO 
 
@@ -352,7 +366,11 @@
 
  
 
- ****** Susan's Request Ch. 02 ****** bydawn1958© Susan felt his need and desperation and for some unknown reason, wanted to satisfy her attacker. She screamed for fulfillment and it was not long coming. The skilled fingers pinched harder and her clit exploded, causing her juices to flow. Vanya fucked the virgin ass with all the passion and might he possessed. He felt the violent spasms go through her body and he drove his missile to the max. For the very first time, Susan's forbidden entrance was filled with cum and she felt another earth shattering orgasm consume her body. 
+ 
+
+===
+
+Susan felt his need and desperation and for some unknown reason, wanted to satisfy her attacker. She screamed for fulfillment and it was not long coming. The skilled fingers pinched harder and her clit exploded, causing her juices to flow. Vanya fucked the virgin ass with all the passion and might he possessed. He felt the violent spasms go through her body and he drove his missile to the max. For the very first time, Susan's forbidden entrance was filled with cum and she felt another earth shattering orgasm consume her body. 
 
  No sooner had the last spasm rocketed through her sweaty body, when Kaz and Ivan began carrying out the next phase of the plan to turn the sexy teacher into their slut. Forcing Susan to get into a kneeling position with her head over Vanya's midsection, Kaz gave her the next order. "I want you to clean Vanya and suck all the juices from his cock," he told her. Susan didn't understand what he had said at first and remained motionless. Then he said in a very stern voice, "Susan, get down and suck Vanya's cock and clean it right now. Do you understand?" 
 
@@ -396,7 +414,11 @@
 
  
 
- ****** Susan's Request Ch. 03 ****** bydawn1958© This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
+ 
+
+===
+
+This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
 
  CHAPTER THREE - A TATTOO FOREVER 
 
@@ -502,7 +524,11 @@
 
  
 
- ****** Susan's Request Ch. 03 ****** bydawn1958© "I am glad you are co-operating and being such a good girl so I won't have to punish you," Kaz whispered. Then he nibbled her ear and kissed the side of her face in a loving fashion. The show of tenderness made Susan happy even though she was being forced to do what he ordered. In a last frantic attempt, Susan pleaded with Kaz to help her. "Kaz, please don't let this happen, please," she begged him. "Please, I'll do anything you ask, just don't let him touch me," she made a last desperate plea. 
+ 
+
+===
+
+"I am glad you are co-operating and being such a good girl so I won't have to punish you," Kaz whispered. Then he nibbled her ear and kissed the side of her face in a loving fashion. The show of tenderness made Susan happy even though she was being forced to do what he ordered. In a last frantic attempt, Susan pleaded with Kaz to help her. "Kaz, please don't let this happen, please," she begged him. "Please, I'll do anything you ask, just don't let him touch me," she made a last desperate plea. 
 
  Suddenly, Susan universe was opened wide as Jim put his fingertips to the puffy lips and spread them apart. The electric shock almost caused her to faint and she knew her treasures were exposed to the villain. "Kaz, he...he...he, oh no, please don't," but it was too late. When his hot, hungry mouth hit the clitoris, her world was taken against her wishes but she was unable to stop her hips from thrusting upwards. 
 
@@ -600,7 +626,11 @@
 
  
 
- ****** Susan's Request Ch. 04 ****** bydawn1958© This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
+ 
+
+===
+
+This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
 
  You may need to read the previous 3 chapters to understand some of the events written in this chapter. 
 
@@ -704,7 +734,11 @@
 
  
 
- ****** Susan's Request Ch. 04 ****** bydawn1958© Julie was way too aroused and excited to act normally and she had absolutely no fear of rejection. She reasoned, what woman would not cooperate after openly fondling a man in a movie theater and then making enough noise to alert everyone in the place when her pussy was eaten. Besides she would have screamed bloody murder when Ron offered his wife as a lover if she wasn't going to stay. Julie felt sure of herself and her mind was filled with the utmost confidence. 
+ 
+
+===
+
+Julie was way too aroused and excited to act normally and she had absolutely no fear of rejection. She reasoned, what woman would not cooperate after openly fondling a man in a movie theater and then making enough noise to alert everyone in the place when her pussy was eaten. Besides she would have screamed bloody murder when Ron offered his wife as a lover if she wasn't going to stay. Julie felt sure of herself and her mind was filled with the utmost confidence. 
 
  Ron and Julie had noticed Kaz and Susan enter the theater and Ron mentioned to Julie that Susan looked extremely seductive. They noted that her outfit made her look like she came right from school and they hoped she was over the age of consent. "Maybe you should approach her and see if she is interested in lesbian sex," he whispered to his wife hoping she would take the bait. After all, they had discussed her having sex with another woman for months now but the opportunity never presented itself, well that was until today. At 21, they had been married for two years and neither had any sexual experience, as they had been childhood sweethearts before getting hitched. 
 
@@ -804,7 +838,11 @@
 
  
 
- ****** Susan's Request Ch. 04 ****** bydawn1958© The lust quickly fuelled Julie's mind and she could not wait any longer. Her quick movement shocked Susan out of her trance and she pressed back in the seat in an attempt to get away from what she knew was next. Julie was small and wiry and easily slipped between Susan's legs, spreading them wide. Hurriedly, she brushed the skirt up and out of the way so she came face to face with utopia. The sight of another woman's shaved cunt was earth shattering and she informed everyone else of the beautiful sight. "Ron, she has shaved her pussy and the lips look so wet and puffy," she said which brought an instant moan from her husband. "I have my fingers on her clitoris and her hips rock every time I pinch it," Julie added and kept up the punishment. 
+ 
+
+===
+
+The lust quickly fuelled Julie's mind and she could not wait any longer. Her quick movement shocked Susan out of her trance and she pressed back in the seat in an attempt to get away from what she knew was next. Julie was small and wiry and easily slipped between Susan's legs, spreading them wide. Hurriedly, she brushed the skirt up and out of the way so she came face to face with utopia. The sight of another woman's shaved cunt was earth shattering and she informed everyone else of the beautiful sight. "Ron, she has shaved her pussy and the lips look so wet and puffy," she said which brought an instant moan from her husband. "I have my fingers on her clitoris and her hips rock every time I pinch it," Julie added and kept up the punishment. 
 
  No, this can't be happening, Susan thought, as she would not have imagined this in her wildest dreams. Feeling the guilt of not resisting, she held her arms to the sides according to her master's wishes. Julie had never seen another pussy up close, only in a girl's shower room and there it was hard to tell what one really looked like. All that Julie could think was that she could hardly wait to get home so she too could shave her pussy. The hairless lips and surrounding area looked so erotic that she forgot where she was. 
 
@@ -840,7 +878,11 @@
 
  
 
- ****** Susan's Request Ch. 05 ****** bydawn1958© Please email me with your comments or suggestions as I appreciate readers when they take the time to email. This was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions as I appreciate readers when they take the time to email. This was written for a special person and I hope these fantasies excite and satisfy her. 
 
  Susan's Request - A Teacher's Rendezvous 
 
@@ -950,7 +992,11 @@
 
  
 
- ****** Susan's Request Ch. 05 ****** bydawn1958© The day went smoothly and before she realized it, it was the last class of the day. Sandy had been in her previous class and she had stopped for some fresh, light chatting during the break after her class. She seemed like a real pleasant, friendly girl and Susan did feel like she could trust her. 
+ 
+
+===
+
+The day went smoothly and before she realized it, it was the last class of the day. Sandy had been in her previous class and she had stopped for some fresh, light chatting during the break after her class. She seemed like a real pleasant, friendly girl and Susan did feel like she could trust her. 
 
  Unknown to Susan, Sandy was just setting the stage for future developments as she dreamed of being intimate with her lovely teacher. Sandy had masturbated so many times last night that she was afraid she wouldn't have anything left for this afternoon. Seeing her teacher in class eliminated that fear as her loins felt overpowering lust surge threw them. Susan's sexy body renewed the flames of desire in Sandy once again and her heart and breathing quickened during the short time they were together. She had a hard time holding her tongue still as she could feel it thrusting and plunging into Susan's hot, steamy pussy. 
 
@@ -1056,7 +1102,11 @@
 
  
 
- ****** Susan's Request Ch. 05 ****** bydawn1958© Susan felt the strong, erotic passion devour Sandy and hugged her hips tightly as she rolled down the far side. With a newfound hunger unknown to her, Susan drank the juices and licked the enlarged clitoris like a true veteran. Julie was shocked as Sandy uttered, "No, no, don't eat my cunt you fucking bitch." There was no way either woman was going to stop and the juices flowed like a river. 
+ 
+
+===
+
+Susan felt the strong, erotic passion devour Sandy and hugged her hips tightly as she rolled down the far side. With a newfound hunger unknown to her, Susan drank the juices and licked the enlarged clitoris like a true veteran. Julie was shocked as Sandy uttered, "No, no, don't eat my cunt you fucking bitch." There was no way either woman was going to stop and the juices flowed like a river. 
 
  The last powerful explosion left her reeling and she felt dismayed by what had just happened. No woman had ever taken advantage of her like that and now it was time to regain control of the much smaller, weaker teacher. She would give the others their money's worth and subtly reached for her carrying bag, which she left by the sofa. The men were so obsessed by the naked bodies they didn't even notice the large, rubber cock as Sandy slipped it out of the bag. Julie didn't miss a thing as her heart stopped in anticipation. 
 
@@ -1170,7 +1220,11 @@
 
  
 
- ****** Susan's Request Ch. 05 ****** bydawn1958© Susan felt the fiery cum coat her inner reaches and a violent explosion in her loins set off a series of spasms, which rocked her body. Her mind went solely to the present orgasm and she forgot about the guilt of being unfaithful. She thrust her hips madly at the young student and demanded he fill her with fucking cum. 
+ 
+
+===
+
+Susan felt the fiery cum coat her inner reaches and a violent explosion in her loins set off a series of spasms, which rocked her body. Her mind went solely to the present orgasm and she forgot about the guilt of being unfaithful. She thrust her hips madly at the young student and demanded he fill her with fucking cum. 
 
  Ivan felt sheer contentment as her womanly cream ran over his thick cock and she was consumed by the intense orgasm. Crying and moaning with animal like sounds, Susan's climax roared to the mountainous peak and she became oblivious to anything around her. 
 
@@ -1286,7 +1340,11 @@
 
  
 
- ****** Susan's Request Ch. 05 ****** bydawn1958© Susan shrugged her slender shoulders and relented, allowing Sandy to guide her body over her own. With sudden shame, Susan felt her breasts push into the firm boobs below her and with great skill, Sandy lined up the hardened tips. Relaxing into the tenderness, Susan hugged her master tightly and the tits melted together much to the delight of the men. 
+ 
+
+===
+
+Susan shrugged her slender shoulders and relented, allowing Sandy to guide her body over her own. With sudden shame, Susan felt her breasts push into the firm boobs below her and with great skill, Sandy lined up the hardened tips. Relaxing into the tenderness, Susan hugged her master tightly and the tits melted together much to the delight of the men. 
 
  Julie hovered over the delicious pussy like it was a virgin. She held the large shaft in her fist and touched the wide knob against the wet cunt, which was exposed so vulgarly. Susan flinched wildly but did not make any attempt to escape. Both women had resigned themselves to the fact this much smaller woman was a tiger and she commanded their obedience. 
 
@@ -1398,7 +1456,11 @@
 
  
 
- ****** Susan's Request Ch. 05 ****** bydawn1958© "Then she put her hand on my pussy and pinched my clitoris with her fingers. And you know what that does to me when you pinch my clit? Well she did that and it started to build a fire deep inside of me," she explained. 
+ 
+
+===
+
+"Then she put her hand on my pussy and pinched my clitoris with her fingers. And you know what that does to me when you pinch my clit? Well she did that and it started to build a fire deep inside of me," she explained. 
 
  "I thought she was going to make me cum right there, sitting on the sofa in front of all the others. It was so embarrassing! Just as I was going to do it, she stopped and got up to take the rest of her clothes off," she told Jay. He suddenly had the urge to see the attractive woman for himself, but that could come some other time. 
 

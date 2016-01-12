@@ -1,8 +1,14 @@
+Miranda and Geraldine Ch. 01
+============================
 #1 
 
  
 
- ****** Miranda and Geraldine Ch. 01 ****** byStoryTeller07© A wealthy woman becomes a girl's pet 
+ 
+
+===
+
+A wealthy woman becomes a girl's pet 
 
  * 
 
@@ -260,7 +266,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 01 ****** byStoryTeller07© Miranda rubbed the wet dildo over the woman's dry lips. She spat on her fingers and found the woman's clit. It was hard work but she was relentless. 
+ 
+
+===
+
+Miranda rubbed the wet dildo over the woman's dry lips. She spat on her fingers and found the woman's clit. It was hard work but she was relentless. 
 
  "Come on bitch, open up for your mistress," she whispered in the woman's ear. A hard push got the head of the dildo into her dry hole. The lips were hardly open and they didn't like responding to this ill treatment. "Think of that gardener watching you then roughly taking you." 
 
@@ -284,7 +294,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 02 ****** byStoryTeller07© Miranda led her new pet into the kitchen feeling very pleased with her progress after only a few hours of training. She had spent the past week searching the internet for ideas on how to humiliate the stuck up bitch when she accidentally came upon a pet-girl site. 
+ 
+
+===
+
+Miranda led her new pet into the kitchen feeling very pleased with her progress after only a few hours of training. She had spent the past week searching the internet for ideas on how to humiliate the stuck up bitch when she accidentally came upon a pet-girl site. 
 
  She loved the idea of blackmailing the wealthy woman into this humiliating role but hadn't believed it possible. When Geraldine capitulated so easily, Miranda decided to see how far she could push the woman. Submitting her to humiliating acts was not only entertaining, but was providing even more film to blackmail her with. 
 
@@ -442,7 +456,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 02 ****** byStoryTeller07© This time Geraldine energetically lapped at her mistress's pussy lips, sucking, rubbing, and eventually entering the wet tunnel with an enthusiastic wriggling of her tongue. She used both hands too. 
+ 
+
+===
+
+This time Geraldine energetically lapped at her mistress's pussy lips, sucking, rubbing, and eventually entering the wet tunnel with an enthusiastic wriggling of her tongue. She used both hands too. 
 
  She was furious, using the anger to drive her on. It looked to Miranda as though she were pleased to be allowed to pleasure her mistress. Geraldine was going at it with great fervor while hoping to distract the blackmailer from even thinking about telling her husband. 
 
@@ -478,7 +496,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 03 ****** byStoryTeller07© Miranda parked up and had to pull Geraldine out of the car. Miranda whipped her ass once with a leash. "You will do as you are told, you naughty pet, or I'll have to clip this leash to you're collar and drag you around the mall. Got that, Susie, pet?" Miranda asked, while looking fiercely into her pet's eyes. 
+ 
+
+===
+
+Miranda parked up and had to pull Geraldine out of the car. Miranda whipped her ass once with a leash. "You will do as you are told, you naughty pet, or I'll have to clip this leash to you're collar and drag you around the mall. Got that, Susie, pet?" Miranda asked, while looking fiercely into her pet's eyes. 
 
  Geraldine fingered the collar on being reminded of it. It belonged to a pet that died last year, and now she wore it as a stark reminder of the dire relationship enforced upon her, by the damn girl. It still had the pet name on the front, Susie, so that's what Miranda called her. 
 
@@ -670,7 +692,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 03 ****** byStoryTeller07© To be bought by a stranger, what would that be like? Miranda wondered how much a fully trained pet-girl was worth. 
+ 
+
+===
+
+To be bought by a stranger, what would that be like? Miranda wondered how much a fully trained pet-girl was worth. 
 
  Too soon they ran out of time, so everything was packed up, before the boss arrived. At the counter the doggy pads were handed over to be totaled up with everything else. The pet stood waiting patiently, seeming far more co-operative since their chat about slaves being sold. 
 
@@ -690,7 +716,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 04 ****** byStoryTeller07© Chapter 4 
+ 
+
+===
+
+Chapter 4 
 
  A wealthy woman submits to being a girl's pet 
 
@@ -882,7 +912,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 05 ****** byStoryTeller07© Chapter 05 
+ 
+
+===
+
+Chapter 05 
 
  The wealthy woman submits completely 
 
@@ -1110,7 +1144,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 05 ****** byStoryTeller07© Miranda ran to the study and switched to the security view, on the computer. A couple of clicks had the gym camera on screen. She swivelled the camera remotely until they were both centred. Zooming in she could see him being intimate with the woman, now Miranda had left the room. 
+ 
+
+===
+
+Miranda ran to the study and switched to the security view, on the computer. A couple of clicks had the gym camera on screen. She swivelled the camera remotely until they were both centred. Zooming in she could see him being intimate with the woman, now Miranda had left the room. 
 
  The expression on the pet's face was familiar enough. From the humiliation of having a lowly gardener touching her, she was becoming aroused! One hand massaged a breast, while the other was busy between her legs. Geraldine looked as though she were breathing hard, the way her chest was rising and falling. She had better get back. 
 
@@ -1254,7 +1292,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 06 ****** byStoryTeller07© Chapter 6 
+ 
+
+===
+
+Chapter 6 
 
  A slave-girl joins the fun 
 
@@ -1456,7 +1498,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 06 ****** byStoryTeller07© Miranda guided her slave's mouth over pet's breasts, where she licked and sucked. She had to pull her away, with a sucking noise, from a nipple. She guided the slave further down pets' body, over a flexing tummy. Miranda pushed the slaves' lips upon an open, wet, expectant sex. 
+ 
+
+===
+
+Miranda guided her slave's mouth over pet's breasts, where she licked and sucked. She had to pull her away, with a sucking noise, from a nipple. She guided the slave further down pets' body, over a flexing tummy. Miranda pushed the slaves' lips upon an open, wet, expectant sex. 
 
  "Oh! Mistress, pet-girl needs to cum, please!" she exclaimed. 
 
@@ -1490,7 +1536,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 07 ****** byStoryTeller07© Miranda sat listening to music feeling bored. She dare not invite so-called friends over, after what happened last time, so she had to content herself with playing with her two slaves. Feebie, a school friend from the past had joined her and pet-girl, after the party, so it hadn't been all bad. 
+ 
+
+===
+
+Miranda sat listening to music feeling bored. She dare not invite so-called friends over, after what happened last time, so she had to content herself with playing with her two slaves. Feebie, a school friend from the past had joined her and pet-girl, after the party, so it hadn't been all bad. 
 
  The added responsibility of caring for her was easy enough, for she was a natural submissive. The two of them came into the lounge taking up their positions, at her feet, indicating they had completed the household chores. Miranda ignored them, trying to think of a game to play. Partly to keep them occupied, as well as a pleasant distraction for her. 
 
@@ -1702,7 +1752,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 07 ****** byStoryTeller07© "Have you read and agreed with the conditions? Oh! You've signed them. You should have waited till I could witness them," the supervisor pointed out. With plenty to do the woman counter signed them anyway and moved on. 
+ 
+
+===
+
+"Have you read and agreed with the conditions? Oh! You've signed them. You should have waited till I could witness them," the supervisor pointed out. With plenty to do the woman counter signed them anyway and moved on. 
 
  "This one yours too? Let's see you sign the papers. Good!" the assistant said, and quickly gathered up the paperwork. 
 
@@ -1762,7 +1816,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 08 ****** byStoryTeller07© (During the auction scene I got carried away, and diverted to another character. This was after attending such an auction in Los Angeles. There will be more about this scene in the future. Another series is in the planning stage, called 'Auction House'.) 
+ 
+
+===
+
+(During the auction scene I got carried away, and diverted to another character. This was after attending such an auction in Los Angeles. There will be more about this scene in the future. Another series is in the planning stage, called 'Auction House'.) 
 
  
 
@@ -1930,7 +1988,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 08 ****** byStoryTeller07© Unable to see her husband, past the lights glaring at her, she looked worried. The expression added to the natural look of innocence she wore. Although naked, she struck a demure pose. The overall effect was of someone most would want to buy, and take home, to cherish. 
+ 
+
+===
+
+Unable to see her husband, past the lights glaring at her, she looked worried. The expression added to the natural look of innocence she wore. Although naked, she struck a demure pose. The overall effect was of someone most would want to buy, and take home, to cherish. 
 
  Even the severe lighting, couldn't harden her soft features. The womanly curves of her body were voluptuous, promising much, once past the barrier of innocence. It left the connoisseur wanting to pluck this ripe fruit, to enjoy its delights, with the prospect of releasing a hidden passion. 
 
@@ -2000,7 +2062,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 09 ****** byStoryTeller07© Chapter 09 
+ 
+
+===
+
+Chapter 09 
 
  Miranda is to be trained until broken 
 
@@ -2204,7 +2270,11 @@
 
  
 
- ****** Miranda and Geraldine Ch. 09 ****** byStoryTeller07© Thinking of the girls and what this woman had put them through, fired his anger. He walked outside and whistled. The three of them walked in; John was the most confident. He was a big guy, able to look after himself, and others. 
+ 
+
+===
+
+Thinking of the girls and what this woman had put them through, fired his anger. He walked outside and whistled. The three of them walked in; John was the most confident. He was a big guy, able to look after himself, and others. 
 
  Bill opened the door on the security control box. "It's off," he said. 
 

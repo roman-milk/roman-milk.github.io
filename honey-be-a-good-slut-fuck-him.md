@@ -8,8 +8,6 @@ Honey, Be A Good Slut, Fuck Him!
 
 ===
 
-
-
  your dream, ideal marriage -- if you have an insatiable hunger burning between your thighs that you'd love a husband to stoke and satisfy -- then by god, send me an email for feedback, why aren't you and I dating yet?] 
 
  

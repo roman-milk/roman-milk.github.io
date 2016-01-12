@@ -1,8 +1,14 @@
+Doctoral Discipline Pt. 01
+==========================
 #1 
 
  
 
- ****** Doctoral Discipline Pt. 01 ****** bytom6432© Co-Authors: subbie1982 and tom6432 
+ 
+
+===
+
+Co-Authors: subbie1982 and tom6432 
 
  This is a fantasy written by subbie1982 and myself for fun. All errors in spelling, punctuation and grammar are my responsibility. It contains spanking, humiliation and fetish, if this bothers you please seek other authors. All characters are 25 year old or older. 
 
@@ -94,7 +100,11 @@
 
  
 
- ****** Doctoral Discipline Pt. 01 ****** bytom6432© He smiled that evil smile of his and said "No young lady, if I had wanted you to get changed I would have told you to do so. You are to wear this outfit for the rest of the evening until you get yourself ready for bed. Is that clear Miss McLean?" I nodded and said "Yes Sir". It took me a couple of minutes to pack up my books and place my regular clothes into my backpack. As I was just about finished Professor Matthews cleared this throat and said: "Miss McLean, let me see your cell phone for a moment before you leave." 
+ 
+
+===
+
+He smiled that evil smile of his and said "No young lady, if I had wanted you to get changed I would have told you to do so. You are to wear this outfit for the rest of the evening until you get yourself ready for bed. Is that clear Miss McLean?" I nodded and said "Yes Sir". It took me a couple of minutes to pack up my books and place my regular clothes into my backpack. As I was just about finished Professor Matthews cleared this throat and said: "Miss McLean, let me see your cell phone for a moment before you leave." 
 
  I nodded and pulled it out of my bag to pass to him. I had no idea what he was up to, but I just wanted to get out of there as soon as possible. After a moment I saw him copying down a number, my cell number actually, and then he passed it back to me. "Don't forget Miss McLean, in bed by 8 pm, which means you better be all ready for bed before then." I looked at him and said "yes Sir," as I took back my phone and headed out of his office. 
 

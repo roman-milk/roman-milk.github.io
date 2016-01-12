@@ -1,8 +1,14 @@
+Baby
+====
 #1 
 
  
 
- ****** Baby ****** byE.Z.Riter© Mandy and I fell in love in the seventh grade. After dating through high school, we married before our freshman year in college, virgins eager to begin our lives together. We both worked and went to school, graduating in five years. I went to work for an big company in accounting and Mandy started teaching second grade. As we wanted, we were quickly blessed with two beautiful children, both girls, who we named Julienne and Jennifer. Our one major disagreement was number of children. She wanted five but I insisted we stop at two. 
+ 
+
+===
+
+Mandy and I fell in love in the seventh grade. After dating through high school, we married before our freshman year in college, virgins eager to begin our lives together. We both worked and went to school, graduating in five years. I went to work for an big company in accounting and Mandy started teaching second grade. As we wanted, we were quickly blessed with two beautiful children, both girls, who we named Julienne and Jennifer. Our one major disagreement was number of children. She wanted five but I insisted we stop at two. 
 
  Like all young marrieds, we worked hard, saved, played, loved our children and enjoyed what all Americans consider the good life. Julienne was fifteen and Jennifer almost fourteen, when Mandy and I went with friends to Las Vegas. It was an unbelievable trip. Not only did we have a wonderful time, but, I won $30,000 gambling. 
 
@@ -250,7 +256,11 @@
 
  
 
- ****** Baby ****** byE.Z.Riter© "You loved it, didn't you? You loved him fucking you?" 
+ 
+
+===
+
+"You loved it, didn't you? You loved him fucking you?" 
 
  She kissed me hard. 
 

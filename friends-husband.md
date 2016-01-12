@@ -1,8 +1,14 @@
+Friend's Husband
+================
 #1 
 
  
 
- ****** Friend's Husband ****** byStoryTeller07© Wife and friend compete for the husband 
+ 
+
+===
+
+Wife and friend compete for the husband 
 
  "Another?" Dorothy said. 
 
@@ -192,7 +198,11 @@
 
  
 
- ****** Friend's Husband ****** byStoryTeller07© Elizabeth's inner muscles flexed followed by her hips until her whole body began to quiver. "Oh! Yes!" she yelled. The sound of triumph seemed to start Dorothy off too. She pushed back on his fingers wanting more but his fingers were enough to orgasm with short stuttering gasps. 
+ 
+
+===
+
+Elizabeth's inner muscles flexed followed by her hips until her whole body began to quiver. "Oh! Yes!" she yelled. The sound of triumph seemed to start Dorothy off too. She pushed back on his fingers wanting more but his fingers were enough to orgasm with short stuttering gasps. 
 
  Tom couldn't hold back anymore he came in a flood of built up pressure. He felt every drop spurt again and again. For a moment it seemed it might continue for ever emptying his entire body of fluid leaving him a dry husk. 
 
@@ -270,7 +280,11 @@
 
  
 
- ****** Friend's Husband Ch. 02 ****** byStoryTeller07© An unexpected gift for wife and friend. This is a replacement for the badly edited first submission -- my fault -- any volunteers to be an editor! 
+ 
+
+===
+
+An unexpected gift for wife and friend. This is a replacement for the badly edited first submission -- my fault -- any volunteers to be an editor! 
 
  * 
 
@@ -494,7 +508,11 @@
 
  
 
- ****** Friend's Husband Ch. 02 ****** byStoryTeller07© "What for?" Dorothy asked, thinking her friend had to go. 
+ 
+
+===
+
+"What for?" Dorothy asked, thinking her friend had to go. 
 
  "My period, I'm late." 
 

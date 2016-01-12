@@ -1,8 +1,14 @@
+Poker Game
+==========
 #1 
 
  
 
- ****** Poker Game ****** bydickpounder73© I have four friends that get together every Friday night to drink, smoke tell lies and play poker. We alternate between the 5 of us hosting the game. 
+ 
+
+===
+
+I have four friends that get together every Friday night to drink, smoke tell lies and play poker. We alternate between the 5 of us hosting the game. 
 
  They are my closest friends and really I have no secrets from them. All of them are married, and when we first started I was as well. 
 
@@ -236,7 +242,11 @@
 
  
 
- ****** Poker Game ****** bydickpounder73© She brings me a fresh frosty mug and pours my beer, "Slut clean that cum from your thighs. You look like trailer trash." 
+ 
+
+===
+
+She brings me a fresh frosty mug and pours my beer, "Slut clean that cum from your thighs. You look like trailer trash." 
 
  Time stands still in the room as juliette places her delicate foot on the arm of my chair, her open dripping cunt in view of everyone. 
 

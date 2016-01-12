@@ -1,8 +1,14 @@
+First Kiss Ch. 01
+=================
 #1 
 
  
 
- ****** First Kiss Ch. 01 ****** byStoryTeller07© Chapter 01 
+ 
+
+===
+
+Chapter 01 
 
  A kiss goes too far 
 
@@ -254,7 +260,11 @@
 
  
 
- ****** First Kiss Ch. 01 ****** byStoryTeller07© He soaped her all over. When both his hands cupped her bottom and sex, she gave up. They were interlaced, making it impossible to break the hold on her crotch. The feeling of hands soaping between her cheeks, circling her asshole, between her lips, cupping her sex in his palm, defeated her. 
+ 
+
+===
+
+He soaped her all over. When both his hands cupped her bottom and sex, she gave up. They were interlaced, making it impossible to break the hold on her crotch. The feeling of hands soaping between her cheeks, circling her asshole, between her lips, cupping her sex in his palm, defeated her. 
 
  She flung back her head into the spray, and groaned loudly. A fitful orgasm rocked her legs. It wasn't deep, it was like the shower, all over her body, like a rainstorm. His hands carried on playing with her, front and back. He was prolonging the orgasm with fingers probing her pussy, and her asshole. 
 
@@ -300,7 +310,11 @@
 
  
 
- ****** First Kiss Ch. 02 ****** byStoryTeller07© Deeper into trouble 
+ 
+
+===
+
+Deeper into trouble 
 
  'You must promise me not to tell anyone,' Chloe calmly stated. 
 
@@ -588,7 +602,11 @@
 
  
 
- ****** First Kiss Ch. 02 ****** byStoryTeller07© Monday morning came around too quickly. Her whole life had changed over the weekend. Her husband had left her and she had acquired an ardent young lover. For the first time in her life she let go in bed, and in the kitchen too! Never before had she been so experimental and wanton, and it was down to Max. How could a young eighteen year old do that to her? 
+ 
+
+===
+
+Monday morning came around too quickly. Her whole life had changed over the weekend. Her husband had left her and she had acquired an ardent young lover. For the first time in her life she let go in bed, and in the kitchen too! Never before had she been so experimental and wanton, and it was down to Max. How could a young eighteen year old do that to her? 
 
  Max came into the kitchen looking sleepy. 
 
@@ -768,7 +786,11 @@
 
  
 
- ****** First Kiss Ch. 03 ****** byStoryTeller07© Her young lover takes over 
+ 
+
+===
+
+Her young lover takes over 
 
  Max's father was opening a new branch office and wouldn't be back for a couple of months. In the meantime, Max was left in charge of their old office, and was pleased to get the staff on his side. More importantly, he had a beautiful older woman as his lover. He felt like a conquering hero, with everything going his way. 
 
@@ -1070,7 +1092,11 @@
 
  
 
- ****** First Kiss Ch. 03 ****** byStoryTeller07© 'Eh? No! I mean my leg is caught,' she complained, in an urgent whisper. 
+ 
+
+===
+
+'Eh? No! I mean my leg is caught,' she complained, in an urgent whisper. 
 
  The waitress turned up and took their order. 
 
@@ -1254,7 +1280,11 @@
 
  
 
- ****** First Kiss Ch. 04 ****** byStoryTeller07© Chloe gets a job 
+ 
+
+===
+
+Chloe gets a job 
 
  Chloe scrambled up off the floor, when the doorbell rang. She looked worried as to who it might be. She looked at herself in the mirror, to see the recognisable signs that she'd had sex. Not loving making, this was pure sex. 
 
@@ -1486,7 +1516,11 @@
 
  
 
- ****** First Kiss Ch. 04 ****** byStoryTeller07© Leaning over the machine she felt the front of the dress pulled further into the shredder, until there was no slack. Falling away, she sank onto her knees, with the dress dragging up her body, and over her head. Flailing for a grip on it did no good. There was nothing left but a tongue of material, then that too disappeared into the sharp teeth of the shredder. She watched shreds of cotton spewing out into the bin. Her dress was shredded into strands, impossible to recover. 
+ 
+
+===
+
+Leaning over the machine she felt the front of the dress pulled further into the shredder, until there was no slack. Falling away, she sank onto her knees, with the dress dragging up her body, and over her head. Flailing for a grip on it did no good. There was nothing left but a tongue of material, then that too disappeared into the sharp teeth of the shredder. She watched shreds of cotton spewing out into the bin. Her dress was shredded into strands, impossible to recover. 
 
  'You all right?' Julie asked, then burst out laughing. 
 

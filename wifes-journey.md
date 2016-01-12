@@ -1,10 +1,7 @@
-#1 
-
- 
-
- ****** A Wife's Submissive Journey ****** bydawn1958© Please send your comments and suggestions as your feedback is always appreciated. 
-
- * 
+A Wife's Submissive Journey
+===========================
+A Wife's Submissive Journey
+===========================
 
  Susan and her family moved to the city and instantly fell in love with the friendly neighborhood. She was liked by anyone who met her and in particular the men found her overly attractive and sexy. Sue married young and virtually had no sexual experiences other than those with her childhood sweetheart, Ben, who she married. They didn't have any children and anyone who met Ben and Susan considered her a trophy wife, as she was extremely beautiful and sexy. She dressed in a very conservative manner, but always in rich and elegant clothes, which were trendy and very fashionable. 
 
@@ -140,7 +137,11 @@
 
  
 
- ****** A Wife's Submissive Journey ****** bydawn1958© Susan's chest heaved and her tits bounced up and down wildly. Nadine's left hand cupped the underside of one of her boobs and sort of offered the luscious tit to an imaginary onlooker. The young woman's fingers squeezed the prized nipple as hard as she could and felt the surging blood gush through the swollen gem. The everlasting orgasm consumed Susan's emotions and rational thinking, as she felt helpless and overly submissive, which was what Nadine wanted. 
+ 
+
+===
+
+Susan's chest heaved and her tits bounced up and down wildly. Nadine's left hand cupped the underside of one of her boobs and sort of offered the luscious tit to an imaginary onlooker. The young woman's fingers squeezed the prized nipple as hard as she could and felt the surging blood gush through the swollen gem. The everlasting orgasm consumed Susan's emotions and rational thinking, as she felt helpless and overly submissive, which was what Nadine wanted. 
 
  Sue was distraught and crushed after the mind-blowing climax. She didn't resist and wound up on the bed and in the comforting arms of the young woman who despite her diminutive stature was overpowering. Ten minutes, twenty minutes, or thirty minutes had transpired and already one memorable orgasm finished and another was on the horizon. Tender lips rained kisses all over her face, neck and arms and it was impossible to think straight. Sue lifted her head briefly, but then Nadine kissed her hard on the lips. 
 
@@ -302,7 +303,11 @@
 
  
 
- ****** A Wife's Submissive Journey ****** bydawn1958© Susan heard the disgusting comments, but something else was overly bothersome. Nadine surrounded her precious clitty with her thumb and forefinger and squeezed. Then the young woman yanked the bud out of the protective lips and swirled it around and around. Sue tried hard to hold her legs together yet nothing prevented Nadine from ravaging her defenseless clit. The young woman's laugh sent shivers up and down her spine, as Sue realized she was at the mercy of the two friends. 
+ 
+
+===
+
+Susan heard the disgusting comments, but something else was overly bothersome. Nadine surrounded her precious clitty with her thumb and forefinger and squeezed. Then the young woman yanked the bud out of the protective lips and swirled it around and around. Sue tried hard to hold her legs together yet nothing prevented Nadine from ravaging her defenseless clit. The young woman's laugh sent shivers up and down her spine, as Sue realized she was at the mercy of the two friends. 
 
  Kenny and Nadine worked together. With Nadine sprawled on the bed, it was easy for the young woman to use her knees to spread Susan's legs. Kenny slipped his foot between Susan's feet and knocked them apart about one foot. There was urgency inside of Susan that was very unfamiliar and she had a difficult time controlling her breathing and heart rate, as Kenny dipped his hips. The young man shrewdly shoved his hardon into the back of her legs and the rod sliced between her velvety upper thighs. 
 
@@ -452,7 +457,11 @@
 
  
 
- ****** A Wife's Submissive Journey ****** bydawn1958© Balanced on her hands and knees, Susan was unable to resist. A very satisfied and contented young woman grabbed her head and wanted to demonstrate who was actually in-charge. Nadine twisted Sue's head around so that the woman faced her and she glared into the teary eyes. "I know you have to go, but slut... you have to fuck Kenny one more time," she said. "Show Mistress that you are a real slave." 
+ 
+
+===
+
+Balanced on her hands and knees, Susan was unable to resist. A very satisfied and contented young woman grabbed her head and wanted to demonstrate who was actually in-charge. Nadine twisted Sue's head around so that the woman faced her and she glared into the teary eyes. "I know you have to go, but slut... you have to fuck Kenny one more time," she said. "Show Mistress that you are a real slave." 
 
  "Tell him to stop... no more," Sue begged. 
 
@@ -480,7 +489,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 02 ****** bydawn1958© Please send your comments and suggestions as your feedback is always appreciated. 
+ 
+
+===
+
+Please send your comments and suggestions as your feedback is always appreciated. 
 
  * 
 
@@ -660,7 +673,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 02 ****** bydawn1958© The twins knew what the other was thinking. Emma swiftly rolled around Sue's shivering torso and cheerfully put her hands on the rosy cheeks. She raised Sue's head and stared into the tear-filled eyes. "You can stop crying, my love," she whispered. "Are you going to cum? Be a good little girl and cum for Mistress?" 
+ 
+
+===
+
+The twins knew what the other was thinking. Emma swiftly rolled around Sue's shivering torso and cheerfully put her hands on the rosy cheeks. She raised Sue's head and stared into the tear-filled eyes. "You can stop crying, my love," she whispered. "Are you going to cum? Be a good little girl and cum for Mistress?" 
 
  Susan gazed through tears and could barely focus on the blurry girl. Shivers of despair went up and down her spine when she noticed the twin held a big black dildo in her hand. Emma rubbed the rubber cock all over her flushed face before shoving the thick head into her mouth. "I'm going to give this to Ella... so she can use it." 
 
@@ -778,7 +795,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 02 ****** bydawn1958© Ella pinned Sue's arms above her head and made sure the stretchy top remained around her neck. "Jim! There you go... feast your eyes on those luscious tits. Go ahead... help yourself." 
+ 
+
+===
+
+Ella pinned Sue's arms above her head and made sure the stretchy top remained around her neck. "Jim! There you go... feast your eyes on those luscious tits. Go ahead... help yourself." 
 
  Jim eagerly hovered over Sue's chest. He put his hands around one of the seductive boobs and squeezed it so that the boob stood proudly in the air. Sue merely whimpered when his head dropped and her delicate nipple went into his mouth. 
 
@@ -954,7 +975,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 02 ****** bydawn1958© "Huuummm, yes," Sue replied, as the respite felt extremely good. 
+ 
+
+===
+
+"Huuummm, yes," Sue replied, as the respite felt extremely good. 
 
  The initial caresses were tender and soothing, as Nadine's hand roamed freely all over Sue's chest. The young woman purposely avoided the perpetually erect nipples and constantly traced circles around the hard buds, which kept the areolas swollen. Her lips pecked the velvety cheek and lingered beside Sue's ear to whisper more telling comments. "I like the way you listen... you obey. You make Mistress very happy." 
 
@@ -1006,7 +1031,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 03 ****** bydawn1958© Please send your comments and suggestions as your feedback is always appreciated. 
+ 
+
+===
+
+Please send your comments and suggestions as your feedback is always appreciated. 
 
  * 
 
@@ -1130,7 +1159,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 03 ****** bydawn1958© Sue quickly found herself in the most compromising position. She licked the remnants of the blowjob off her chin and Jeffery obediently grabbed her around the shoulders. He jerked her fully on top of the sofa and rolled her onto her back. Darren instantly spread her legs as wide as possible. He lifted her right leg and left it resting on top of the sofa back while pushing her left off the sofa to leave Sue totally vulnerable. 
+ 
+
+===
+
+Sue quickly found herself in the most compromising position. She licked the remnants of the blowjob off her chin and Jeffery obediently grabbed her around the shoulders. He jerked her fully on top of the sofa and rolled her onto her back. Darren instantly spread her legs as wide as possible. He lifted her right leg and left it resting on top of the sofa back while pushing her left off the sofa to leave Sue totally vulnerable. 
 
  Sue experienced the funniest feeling in the world. She expected Nadine would force her to have sex with her cousin and Darren would hump her without any hesitation. Sue was fully determined to resist and not succumb to any sexual temptation despite what Nadine demanded. She had made up her mind not to experience any satisfaction or any fulfillment from intercourse with the teenager. When Darren didn't simply jump on top of her outstretched body, she was taken off guard. 
 
@@ -1292,7 +1325,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 03 ****** bydawn1958© Sue didn't think it would ever happen but early in the morning Nadine gave her permission to leave. She virtually ran all the way home and breathed the biggest sigh of relief when she got home and Ben was still out. She expected him home at any time from the stag for his best buddy and arriving home dressed in Nadine's schoolgirl outfit was definitely not what she wanted her husband to see. Sue reasoned it would be impossible to explain the outlandish costume and she rushed to the bathroom to change into something more appropriate. 
+ 
+
+===
+
+Sue didn't think it would ever happen but early in the morning Nadine gave her permission to leave. She virtually ran all the way home and breathed the biggest sigh of relief when she got home and Ben was still out. She expected him home at any time from the stag for his best buddy and arriving home dressed in Nadine's schoolgirl outfit was definitely not what she wanted her husband to see. Sue reasoned it would be impossible to explain the outlandish costume and she rushed to the bathroom to change into something more appropriate. 
 
  Although there wasn't any physical evidence of her infidelity, there was plenty of mental anguish. Sue fretted every minute until Ben's car pulled into the driveway and she prayed for the strength to keep everything inside and not let her husband know about her being unfaithful yet again. When Ben practically collapsed upon entering the house, she felt much better that he only wanted to sleep off his apparent hangover. 
 
@@ -1410,7 +1447,11 @@
 
  
 
- ****** A Wife's Submissive Journey Ch. 03 ****** bydawn1958© *** 
+ 
+
+===
+
+*** 
 
  The friendly neighborhood was likely very similar to many across the country. Everything was perfect, as far as Nadine was concerned. She convinced the couple to let her move into their home and instantly became the ruler of the roost. The two women slept together every night and the husband managed to join them on occasion although certainly not as often as he would have liked. What Ben quickly realized was that his once devoted wife was suddenly the romantic lover of a sexy young woman who was in complete control of what happened. 
 

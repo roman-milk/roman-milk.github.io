@@ -1,8 +1,14 @@
+Controlling Dawn Ch. 01
+=======================
 #1 
 
  
 
- ****** Controlling Dawn Ch. 01 ****** bydawn1958© Please email me your suggestions and comments. This story was written for a young woman who had dreams, but no way of expressing them. I hope she likes my version of her story. 
+ 
+
+===
+
+Please email me your suggestions and comments. This story was written for a young woman who had dreams, but no way of expressing them. I hope she likes my version of her story. 
 
  Chapter 1 
 
@@ -102,7 +108,11 @@
 
  
 
- ****** Controlling Dawn Ch. 01 ****** bydawn1958© Ray watched his naïve girlfriend follow his directions to a 'T'. She embraced her new friend and the heat radiating from Dawn's body instantly caused Brenda's temperature to soar. They kissed taking turns fondling and caressing each other's face and head with shaking hands. All of her life Dawn established and built a relationship before allowing anything intimate or sexual to occur. She never jumped into bed with anyone and it even took Harvey weeks to get into her pants. 
+ 
+
+===
+
+Ray watched his naïve girlfriend follow his directions to a 'T'. She embraced her new friend and the heat radiating from Dawn's body instantly caused Brenda's temperature to soar. They kissed taking turns fondling and caressing each other's face and head with shaking hands. All of her life Dawn established and built a relationship before allowing anything intimate or sexual to occur. She never jumped into bed with anyone and it even took Harvey weeks to get into her pants. 
 
  Suddenly at the age of 40, things were different. The kiss heated up and soon an intense passion was emanating from each woman. When Dawn felt Brenda's hand on her chest, instead of pulling away, she moved in an effort to push her boob into the woman's groping hand. Brenda pulled back slightly and she started slowly unbuttoning the front of Dawn's dress, without any protest from the woman. Then she pulled the straps of the dress off Dawn's shoulders and let the fabric drift to the floor. 
 
@@ -220,7 +230,11 @@
 
  
 
- ****** Controlling Dawn Ch. 01 ****** bydawn1958© Dawn felt a warm sensation float through her stomach, causing her arms and legs to become a little tingly. The alcohol seemed to put her more at ease, but the movie was still playing audaciously on the screen. It was a mixture of erotic images and animal sounds over the speakers that attracted her attention, which allowed Brenda to gain the upper hand. Dawn stared in disbelief when the scene progressed to where she thrust her leg between Brenda's legs and used her thigh to bring satisfaction to another woman. 
+ 
+
+===
+
+Dawn felt a warm sensation float through her stomach, causing her arms and legs to become a little tingly. The alcohol seemed to put her more at ease, but the movie was still playing audaciously on the screen. It was a mixture of erotic images and animal sounds over the speakers that attracted her attention, which allowed Brenda to gain the upper hand. Dawn stared in disbelief when the scene progressed to where she thrust her leg between Brenda's legs and used her thigh to bring satisfaction to another woman. 
 
  Dawn sat on the sofa feeling more helpless by the minute. It was impossible to change the past and the future seemed overwhelming to her now. Although she felt Brenda's dainty hand slip under her blouse, she kept staring at the movie. Dawn didn't move when the woman's fingers lightly caressed her heated flesh until they reached the lacy bra. She held her breath, but her eyes remained riveted on the screen, as Brenda's fingers lifted the bra and cupped her right boob. The woman didn't waste time fondling or teasing and her fingers surrounded a hardened nipple. 
 
@@ -336,7 +350,11 @@
 
  
 
- ****** Controlling Dawn Ch. 01 ****** bydawn1958© Dawn shivered feeling Brenda's despair. Ray left his girlfriend sitting beside the man and he returned to his seat beside Dawn with the biggest grin on his face. "His name's Rod and the guy already had his cock out," Ray whispered, shocking her out of dreamland. "Guess some guys don't give a shit whose watching. He swears to make sweet Brenda swallow a big load of chizz." 
+ 
+
+===
+
+Dawn shivered feeling Brenda's despair. Ray left his girlfriend sitting beside the man and he returned to his seat beside Dawn with the biggest grin on his face. "His name's Rod and the guy already had his cock out," Ray whispered, shocking her out of dreamland. "Guess some guys don't give a shit whose watching. He swears to make sweet Brenda swallow a big load of chizz." 
 
  Dawn merely glanced at Ray knowing there was nothing she could do. Then she turned and watched the stranger go to work. Much to her dismay, the man lifted Brenda's blouse and exposed her boobs. Then he slobbered all over the illustrious 34b's making enough noise to draw attention. Dawn glanced around to see many of he moviegoers were now watching the private exhibition instead of the porno movie. 
 
@@ -466,7 +484,11 @@
 
  
 
- ****** Controlling Dawn Ch. 01 ****** bydawn1958© The intense convulsions caused Dawn great agony, but it was nothing compared to the discomfort of Ray's humiliation. Her body twisted and turned and the onlookers loved the way she seemed to fight her molester. "No, dear gawd, make it stop." 
+ 
+
+===
+
+The intense convulsions caused Dawn great agony, but it was nothing compared to the discomfort of Ray's humiliation. Her body twisted and turned and the onlookers loved the way she seemed to fight her molester. "No, dear gawd, make it stop." 
 
  "I can see it. Everyone can see it. You're creaming all over Brenda's tongue and her puny cock," Ray whispered. "I love watching you climax. You did the right thing, honey. Now I won't tell your husband about your secret life." 
 
@@ -504,7 +526,11 @@
 
  
 
- ****** Controlling Dawn Ch. 02 ****** bydawn1958© Please email me your suggestions and comments. This story was written for a young woman who had dreams but no way of expressing them. I hope she likes my version. 
+ 
+
+===
+
+Please email me your suggestions and comments. This story was written for a young woman who had dreams but no way of expressing them. I hope she likes my version. 
 
  Chapter 2 - At the Tattoo Parlor! 
 
@@ -638,7 +664,11 @@
 
  
 
- ****** Controlling Dawn Ch. 02 ****** bydawn1958© Dawn couldn't remember watching anything more vulgar. It was the strangest sensation when Doug's tongue lashed out and licked the twitching clitoris. Her hips reacted a split-second later with an abrupt jerk almost like the tongue was remotely controlling them. Again and again Doug rolled the clitty back and forth with the tip of his tongue and each time Dawn's hips responded much to the delight of the onlookers. 
+ 
+
+===
+
+Dawn couldn't remember watching anything more vulgar. It was the strangest sensation when Doug's tongue lashed out and licked the twitching clitoris. Her hips reacted a split-second later with an abrupt jerk almost like the tongue was remotely controlling them. Again and again Doug rolled the clitty back and forth with the tip of his tongue and each time Dawn's hips responded much to the delight of the onlookers. 
 
  In a moment of great elation, Doug sucked her opening and devoured the entire clit into his burning mouth. Dawn's body became extremely stiff and there was no mistaking the cunnilingus had a devastating effect on her resolve, as she uttered long, low moans of sexual torture. Her body trembled but remained almost rigid, as she struggled to overcome the molestation. 
 
@@ -754,7 +784,11 @@
 
  
 
- ****** Controlling Dawn Ch. 02 ****** bydawn1958© Dawn stood on legs that trembled and threatened to collapse at any second. "Boys! Have you ever had a blowjob?" 
+ 
+
+===
+
+Dawn stood on legs that trembled and threatened to collapse at any second. "Boys! Have you ever had a blowjob?" 
 
  The teens looked away from the sexy woman as Ray spoke to them. "Yes. Well, no, not really. I had one girl who sucked my dick, but just for a minute." 
 
@@ -918,7 +952,11 @@
 
  
 
- ****** Controlling Dawn Ch. 02 ****** bydawn1958© Ray put his lips next to her ear and kept Dawn's face pointed straight ahead. "Remember one of your stories? I'm not sure which one, but the one where the heroine was forced to say it... to tell the truth about getting fucked by a big cock," he said. "How you wrote about telling hubby that the cock was much bigger than his." 
+ 
+
+===
+
+Ray put his lips next to her ear and kept Dawn's face pointed straight ahead. "Remember one of your stories? I'm not sure which one, but the one where the heroine was forced to say it... to tell the truth about getting fucked by a big cock," he said. "How you wrote about telling hubby that the cock was much bigger than his." 
 
  Dawn recalled how humiliation in her stories seemed to be overwhelming. "No, please, no more." 
 

@@ -730,8 +730,6 @@ As he pulled his saliva-covered hand out of her sore mouth, Kitty cackled that s
 
 ===
 
-
-
  line. For those squeamish readers who are comfortable in their own little worlds, you can bash all you want but it's falling on deaf ears. I would merely make this point to some of the will-be critics of this story. Perhaps the most masculine hero of horny males of all time, Hugh Hefner, has admitted to acts during some of his many orgies that might be deemed totally incompatible with the lifestyle of a virile woman's man. Bet most of you didn't know that? Sexuality takes a lot of turns when the hormones are flowing. It doesn't mean that's who you are; it just means, that's what you did at that time. So, let's cross some lines and see how it goes, shall we?] 
 
  
@@ -2510,8 +2508,6 @@ The images of the man's huge boner driving into my wife's tight, pink cunt . . .
 
 ===
 
-
-
  alone chapter. I recommend reading the parts continuously, and not jumping into it cold.] 
 
  
@@ -3172,8 +3168,6 @@ From the way Hana was leaning and the moaning Kitty heard, she figured Rick and 
 
 ===
 
-
-
  alone chapter. I recommend reading the parts continuously, and not jumping into it cold.] 
 
  
@@ -3669,8 +3663,6 @@ My hands slid under her body, groping her sexy little boobies, fondling and sque
  
 
 ===
-
-
 
  alone chapter. I recommend reading the parts continuously, and not jumping into it cold.] 
 
@@ -4271,8 +4263,6 @@ She had a second, then shortly later a third, orgasm while her boyfriend lay on 
  
 
 ===
-
-
 
  too insecure with themselves to allow their wife or girlfriend to realize her true self, and really enjoy life. So many guys think women are possessions, so when you have a hot one, other men can't and shouldn't touch her. If she's really, really a sexual creature -- and some women are, not all, but some - - then you're depriving her of fulfilling her true happiness. That doesn't make you a man, does it? So for all of you who think guys like me are pathetic wimps who should be put out of our misery -- check out the comments to the "Brian" story previously posted -- I would just say, who's the real man who's secure with himself and his lover? Huh? Is it more macho to be disgusted that your wife wants to fuck other men -- or to recognize that we're all human, we have positives and negatives, and your wife might actually have good reactions with other men but that doesn't mean she doesn't love you. Be a man, face reality, you're not perfect. No one is. That's the point of this story here.] 
 

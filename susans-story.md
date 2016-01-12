@@ -1,8 +1,14 @@
+Susan's Story
+=============
 #1 
 
  
 
- ****** Susan's Story ****** bydawn1958© This story was written for a special reader in hopes she likes it. I have re- written the story because I was not happy with the first version. Please send any comments or suggestions to me, as it is nice to hear from readers. I am fairly new at erotic writing and your comments are appreciated. 
+ 
+
+===
+
+This story was written for a special reader in hopes she likes it. I have re- written the story because I was not happy with the first version. Please send any comments or suggestions to me, as it is nice to hear from readers. I am fairly new at erotic writing and your comments are appreciated. 
 
  * 
 
@@ -132,7 +138,11 @@
 
  
 
- ****** Susan's Story ****** bydawn1958© The bathroom was eerily quiet. She was almost in a trance lathering her legs like any other occasion when she shaved but this time her hand continued until her pelvis was covered with white lotion. Her hands were shaking but she slowly put the razor to her skin. Stroke after stroke went through her bush and in measly minutes, she witnessed her cleanly shaven cunt. Susan washed the excess lather away and she saw how baby-like her pussy area looked. Oh my gawd, why did she do it, she wondered? But it was too late to undo what had been done? 
+ 
+
+===
+
+The bathroom was eerily quiet. She was almost in a trance lathering her legs like any other occasion when she shaved but this time her hand continued until her pelvis was covered with white lotion. Her hands were shaking but she slowly put the razor to her skin. Stroke after stroke went through her bush and in measly minutes, she witnessed her cleanly shaven cunt. Susan washed the excess lather away and she saw how baby-like her pussy area looked. Oh my gawd, why did she do it, she wondered? But it was too late to undo what had been done? 
 
  Suddenly her deft fingers dipped into her crotch. Skillfully, the fingers of her right hand split the red, puffy lips and grabbed the protruding clit. Pinching it, she began to roll it back and forth and realized that she was soaked with more than water. The slippery juices flooded her pussy and she was able to roll the puffy clit easily in the wetness. Quickly, the long finger of her left hand thrust into her waiting hole and Susan began pumping it in and out splashing water all over. Her hands moved faster and in seconds her passion reached a volcanic level. 
 
@@ -236,7 +246,11 @@
 
  
 
- ****** Susan's Story ****** bydawn1958© Susan wanted to scream at him. "I'm not a slut... I'm don't want to have sex with you." But then she wondered at the reason she was actually there. 
+ 
+
+===
+
+Susan wanted to scream at him. "I'm not a slut... I'm don't want to have sex with you." But then she wondered at the reason she was actually there. 
 
  He didn't give Susan a chance to escape. Without warning, he thrust his hand under her skirt. His hand sneaked between her milky thighs covering her naked crotch, as she let out a loud gasp of surprise. He immediately shoved his middle finger into her wetness with his hand cupping her entire crotch. Kaz was utterly amazed at how soaked his palm became in just a few seconds. 
 
@@ -300,7 +314,11 @@
 
  
 
- ****** Susan's Story Ch. 02 ****** bydawn1958© This is a story about Susan, a teacher at Randall College who has lived an impeccable life and she placed a high value on her job. She would be considered conservative and dressed that way so as to present a professional appearance to her students. In chapter one, she let her guard down and now a student is determined to make her pay a price for her mistake. 
+ 
+
+===
+
+This is a story about Susan, a teacher at Randall College who has lived an impeccable life and she placed a high value on her job. She would be considered conservative and dressed that way so as to present a professional appearance to her students. In chapter one, she let her guard down and now a student is determined to make her pay a price for her mistake. 
 
  I have re-written the story because I was not happy with the first version. Hopefully readers will find this rewrite a better story. 
 
@@ -422,7 +440,11 @@
 
  
 
- ****** Susan's Story Ch. 02 ****** bydawn1958© Almost in a trance, Susan rose off the couch. Her stare never left her young student and his cock was like a powerful magnet. Susan didn't have room to sit forward so she turned and backed towards the over-sized pecker. She bent over while slowly reaching between her legs until her dainty hand touched the throbbing shaft. Susan flinched at the feel of the burning meat but she wrapped her fingers around the boy's cock. Holding it straight in the air, she aimed the bulbous head at her vulnerable pussy. 
+ 
+
+===
+
+Almost in a trance, Susan rose off the couch. Her stare never left her young student and his cock was like a powerful magnet. Susan didn't have room to sit forward so she turned and backed towards the over-sized pecker. She bent over while slowly reaching between her legs until her dainty hand touched the throbbing shaft. Susan flinched at the feel of the burning meat but she wrapped her fingers around the boy's cock. Holding it straight in the air, she aimed the bulbous head at her vulnerable pussy. 
 
  Without thinking, Susan lowered her hips until the wide head pressed against her wet spot. She had never done anything like this in her entire life and a tremor of excitement shook her body. Susan had fantasized many times about having sex with a stranger, or any valiant man. Suddenly the reality of it actually happening hit her like a tidal wave of desire. 
 
@@ -532,7 +554,11 @@
 
  
 
- ****** Susan's Story Ch. 02 ****** bydawn1958© "He grabbed my hand... he put my hand right on his... his thingie. Oh gawd he was hard and he made me feel it," she said starting to cry. 
+ 
+
+===
+
+"He grabbed my hand... he put my hand right on his... his thingie. Oh gawd he was hard and he made me feel it," she said starting to cry. 
 
  Jay quickly jumped up extending his arms out to his amorous wife. "I love you sweetheart. It's okay. It's okay love. He made you do it. I love you and please don't worry." Susan fell into his arms and he hugged her with a most loving embrace. 
 
@@ -568,7 +594,11 @@
 
  
 
- ****** Susan's Story Ch. 03 ****** bydawn1958© This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
+ 
+
+===
+
+This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
 
  I have re-written the story because I was not happy with the first version so I hope readers like this one better. 
 
@@ -682,7 +712,11 @@
 
  
 
- ****** Susan's Story Ch. 03 ****** bydawn1958© Kaz agreed immediately. "Great idea... and Susan would love having it done so her husband can see what a slut she has become." Jim's eyes grew wide hearing that Susan was a married woman with a husband who was most likely cuckolded. 
+ 
+
+===
+
+Kaz agreed immediately. "Great idea... and Susan would love having it done so her husband can see what a slut she has become." Jim's eyes grew wide hearing that Susan was a married woman with a husband who was most likely cuckolded. 
 
  Frantically, Susan looked at Kaz. She didn't dare say what she felt but pleaded with her teary eyes. Little sobs of defeat escaped her mouth hoping it was all just a bad dream. 
 
@@ -788,7 +822,11 @@
 
  
 
- ****** Susan's Story Ch. 03 ****** bydawn1958© "Oh baby... sweet Jeeeesus. Your cunt is so hot... so tight," Jim moaned suddenly feeling his lust rise to mountainous levels. All of a sudden he made up his mind. He had to break the will of a real goddess, a truly refined woman and turn her into his devoted slut. "I have to see your face... watch your beautiful face when you cum all over my cock. Baby, I'm goin' to fuck your brains out." 
+ 
+
+===
+
+"Oh baby... sweet Jeeeesus. Your cunt is so hot... so tight," Jim moaned suddenly feeling his lust rise to mountainous levels. All of a sudden he made up his mind. He had to break the will of a real goddess, a truly refined woman and turn her into his devoted slut. "I have to see your face... watch your beautiful face when you cum all over my cock. Baby, I'm goin' to fuck your brains out." 
 
  Susan didn't know what was happening. She wanted to orgasm more than anything else in the world but didn't want Jim to know. Suddenly she felt the biggest reprieve when Jim stood up straight removing his scorching penis from her wetness. His big, strong hands grabbed her around the hips and easily rolled her onto her back with her butt still at the end of the tabletop. He curled her legs up in the air spreading them to their widest reaches and ordered her to hold them in the position. 
 
@@ -890,7 +928,11 @@
 
  
 
- ****** Susan's Story Ch. 04 ****** bydawn1958© This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
+ 
+
+===
+
+This is a story about Susan, a teacher at Randall College who made a very big mistake one day. She had been fantasizing for months about one of her exchange students, who at 22 was experienced in the ways of women. He now had control over her and she didn't seem to be able to find a way to stop his humiliating demands. 
 
  I have re-written the story because I was not happy with the first version so I hope readers like this one better. You may need to read the previous 3 chapters to understand some of the events written in this chapter. 
 
@@ -992,7 +1034,11 @@
 
  
 
- ****** Susan's Story Ch. 04 ****** bydawn1958© The man was in dreamland, as Susan's body eventually came to a rest in his trembling, callused hands. He had to admit that Susan was one sexy woman. A wide smile crossed his face when he thought of what his beer drinking buddies would think when he bragged about what happened. He felt a nudge from Kaz indicating it was time to go. Reluctantly, the man straightened his clothes and exited the theater in a great hurry to find his friends. 
+ 
+
+===
+
+The man was in dreamland, as Susan's body eventually came to a rest in his trembling, callused hands. He had to admit that Susan was one sexy woman. A wide smile crossed his face when he thought of what his beer drinking buddies would think when he bragged about what happened. He felt a nudge from Kaz indicating it was time to go. Reluctantly, the man straightened his clothes and exited the theater in a great hurry to find his friends. 
 
  Alone again with Kaz, Susan hands were shaking but she managed to get her blouse buttoned. Brushing her skirt down to cover herself, as best she could, she gave a sign of relief to be over the nightmare. Kaz put his arm around Susan's shoulders and hugged her to his body. "You cooperated very good Susan... now no one has to know about your naughty deeds," he whispered softly to her. Kaz felt a need to sit still for a few minutes so his emotions could quiet down before they left the movie house. 
 
@@ -1088,7 +1134,11 @@
 
  
 
- ****** Susan's Story Ch. 04 ****** bydawn1958© The time passed so slowly that it seemed the orgasm would never end. Ron watched his adorable wife experience a gigantic climax with another woman relishing the immense lust displayed by both women. Susan was a little relieved to feel Julie's body slowly start to quiet and the young woman's orgasm subside after rolling over the crest. She assumed that maybe this ordeal was over and she would be allowed to go home. 
+ 
+
+===
+
+The time passed so slowly that it seemed the orgasm would never end. Ron watched his adorable wife experience a gigantic climax with another woman relishing the immense lust displayed by both women. Susan was a little relieved to feel Julie's body slowly start to quiet and the young woman's orgasm subside after rolling over the crest. She assumed that maybe this ordeal was over and she would be allowed to go home. 
 
  With the first orgasm over, Julie regained control of her emotions. She set out to fulfill the rest of her dream of becoming a mistress with a truly devoted slave. "I have never touched a woman down there," she whispered. Julie lied but felt the fib would heighten the moment. She had lesbian affairs in high school and again in college but wanted Susan to believe she was naïve. In all her previous affairs, Julie was the one being seduced and controlled by another woman, most likely because she was diminutive. 
 
@@ -1188,7 +1238,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© Please email me with your comments or suggestions as I appreciate readers when they take the time to email. This was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions as I appreciate readers when they take the time to email. This was written for a special person and I hope these fantasies excite and satisfy her. 
 
  I have re-written the story because I was not happy with the first version so I hope readers like this one better. You may need to read the previous 4 chapters to understand some of the events written in this chapter. 
 
@@ -1296,7 +1350,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© *** 
+ 
+
+===
+
+*** 
 
  Susan worried all the way home about what was expected of her tomorrow afternoon. During supper, Jay could tell Susan was bothered by something and decided to press the issue. "You look a little worried dear?" he asked in a tone, which told her that he was there for her. "Whatever it is, I am sure I can help." He reassured her by reaching out to hold her hand in his. 
 
@@ -1412,7 +1470,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© The bright lights made it feel like an intense interrogation and Susan's temperature rose to feverish degrees. "I'm going to take my pants off... and my panties. I want you to see my shaved pussy... God, I can feel your tongue now," Sammi whispered. "When I get all my clothes off... you're going to make love to me... until I climax in your face." Her bold prediction made the bewildered teacher shudder in dismay. 
+ 
+
+===
+
+The bright lights made it feel like an intense interrogation and Susan's temperature rose to feverish degrees. "I'm going to take my pants off... and my panties. I want you to see my shaved pussy... God, I can feel your tongue now," Sammi whispered. "When I get all my clothes off... you're going to make love to me... until I climax in your face." Her bold prediction made the bewildered teacher shudder in dismay. 
 
  Suddenly Sammi lifted off her lap. Susan's eyes opened wide watching the young woman strip but she merely waited. She was unable to resist the temptation and her eyes opened wider feasting on the beautiful breasts, as the student flaunted them in front of her face. Her eyes lingered on the pronounced nipples. Susan wondered what they felt like and if they felt like her own? 
 
@@ -1522,7 +1584,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© The demoralizing kiss inflamed Susan's mind. It conveyed so much lust and passion and Susan didn't know how to resist the young woman's assault. Sammi seized the opening taking the obedient woman into unfamiliar territory. She relished being between her teachers' splayed legs waiting for the ultimate surrender of the sexiest body. 
+ 
+
+===
+
+The demoralizing kiss inflamed Susan's mind. It conveyed so much lust and passion and Susan didn't know how to resist the young woman's assault. Sammi seized the opening taking the obedient woman into unfamiliar territory. She relished being between her teachers' splayed legs waiting for the ultimate surrender of the sexiest body. 
 
  Sammi rolled her upper body slightly to the side twisting her hips at the same time. She slipped her hand between the two bodies feeling Susan's muscles flinch wildly when her sharp nails scrapped across her tummy. Slowly trying to tease and entice, Sammi's fingers inched their way downward into the cherished land. The fingertips performed magic all over the burning flesh turning poor Susan into a hand puppet. 
 
@@ -1628,7 +1694,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© Kaz's confident smile sent a shiver of fear through Sammi's body. "Have you ever been fucked by four, hard cocks in your life... Sammi?" He asked the dire question but didn't expect an answer. 
+ 
+
+===
+
+Kaz's confident smile sent a shiver of fear through Sammi's body. "Have you ever been fucked by four, hard cocks in your life... Sammi?" He asked the dire question but didn't expect an answer. 
 
  Her naked body was no match for the four, strong men. In the wink of the eye, Sammi was prone on the soft carpet. She was face down with someone shoving her panic-stricken face into the carpet making it hard for her to breathe. Three of them held her steady with her legs spread wide and Kaz settled his stocky frame between her struggling, milky thighs. Being face down, her struggles were in vain, as she couldn't kick or lash out with her arms or legs. Sammi wrestled with all her strength to get free but she was unable to stop Kaz from gaining access to her vulnerable womanhood. 
 
@@ -1732,7 +1802,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© Ron was utterly amazed when Sammi lay beneath his much smaller wife passively accepting her fortune. Julie's hips pumped so fast it was hard for Ron to imagine such a ferocious attack. Julie forced the girl to submit and Sammi's whimpering added immensely to Ron's enjoyment. 
+ 
+
+===
+
+Ron was utterly amazed when Sammi lay beneath his much smaller wife passively accepting her fortune. Julie's hips pumped so fast it was hard for Ron to imagine such a ferocious attack. Julie forced the girl to submit and Sammi's whimpering added immensely to Ron's enjoyment. 
 
  The final straw came when Julie gave the next order. "Susan! Reach your hand down and find the slave's snatch... put your fingers on her power switch." Julie spoke but at the same time she wound her fingers into the teachers hair. She twisted Susan's head so she could look into her teary eyes. "Show mistress how you can make love to the slave's clitoris... make your mistress happy... now!" 
 
@@ -1842,7 +1916,11 @@
 
  
 
- ****** Susan's Story Ch. 05 ****** bydawn1958© Susan shivered and shook all the way home. She wasn't sure if it was from all the drastic events with her blackmailing student or it was really the cool, night air. Panic set in once she parked the car in the garage. Susan stared off into space for a couple of minutes before going in to face her husband. She could not think of an easy way to explain what happened to Jay so that he would forgive her. 
+ 
+
+===
+
+Susan shivered and shook all the way home. She wasn't sure if it was from all the drastic events with her blackmailing student or it was really the cool, night air. Panic set in once she parked the car in the garage. Susan stared off into space for a couple of minutes before going in to face her husband. She could not think of an easy way to explain what happened to Jay so that he would forgive her. 
 
  THE END OF PART 5 
 
@@ -1850,7 +1928,11 @@
 
  
 
- ****** Susan's Story Ch. 06 ****** bydawn1958© Please email me with your comments or suggestions as I appreciate readers when they take the time to email. This was written for a special person and I hope these fantasies excite and satisfy her. 
+ 
+
+===
+
+Please email me with your comments or suggestions as I appreciate readers when they take the time to email. This was written for a special person and I hope these fantasies excite and satisfy her. 
 
  I have re-written the story because I was not happy with the first version so I hope readers like this one better. You may need to read the previous 5 chapters to understand some of the events written in this chapter. Most of chapter 6 is new and only the first part is revised from my earlier post of the story. 
 
@@ -1964,7 +2046,11 @@
 
  
 
- ****** Susan's Story Ch. 06 ****** bydawn1958© "I was so scared she was going to hurt me badly... but she was very careful... she took her time and before I knew it... she had the big thing all the way in... oh gawd, she had it all the way inside my pussy," Susan said with a sense of accomplishment. "She kept talking to me all the time... kept saying how she was going to make me her lover... how she was going to be my mistress." 
+ 
+
+===
+
+"I was so scared she was going to hurt me badly... but she was very careful... she took her time and before I knew it... she had the big thing all the way in... oh gawd, she had it all the way inside my pussy," Susan said with a sense of accomplishment. "She kept talking to me all the time... kept saying how she was going to make me her lover... how she was going to be my mistress." 
 
  Suddenly Susan remembered the final assault. She had no intension of telling Jay but somehow it came out. "Then she squeezed her hand down between our bodies... until her fingers spread my... my," she whispered. The dire consequences forced Susan to stop for a few seconds, as she didn't know how to tell the story. 
 
@@ -2070,7 +2156,11 @@
 
  
 
- ****** Susan's Story Ch. 06 ****** bydawn1958© Julie knew her husband well. She realized that time was of the essences so she hurried onward. "Ronny dear... please take your time... my love is not ready to cum yet... are you my love?" Julie's question was like a blow to the heart. "Ron... lift up so my slave can help... she wants to cum real bad but I think she has to help out." 
+ 
+
+===
+
+Julie knew her husband well. She realized that time was of the essences so she hurried onward. "Ronny dear... please take your time... my love is not ready to cum yet... are you my love?" Julie's question was like a blow to the heart. "Ron... lift up so my slave can help... she wants to cum real bad but I think she has to help out." 
 
  Ron shifted his body raising his torso by arching his back to give the young student space. Whether the guiding words were needed or not didn't matter, as Julie said them anyway. "Love! Get those slutty fingers down to your snatch... and see if you can show Mistress your pretty clitoris. Show mistress what you do all the time when your alone." 
 

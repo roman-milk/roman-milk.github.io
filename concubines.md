@@ -1,8 +1,14 @@
+Concubines
+==========
 #1 
 
  
 
- ****** Concubines ****** byE.Z.Riter© By Ezra Zane 
+ 
+
+===
+
+By Ezra Zane 
 
  I met Prince Mohammed, first son and heir of a sheik, my junior year when he transferred to The Petroleum Engineering School at The University of Texas. We discovered we both liked hunting, golf, fast cars, a good laugh and women, as well as the oil business. We became best friends. 
 
@@ -196,7 +202,11 @@
 
  
 
- ****** Concubines ****** byE.Z.Riter© The next day, the Sheik returned from his trip. He explained the plan he had to scam the government of the United States into supporting my owning a concubine. Of course, I readily agreed for the memory of Kamilah under me kept my blood simmering. I boarded his plane that night to take me home. I left a teary-eyed Kamilah with the promise I would return for her. 
+ 
+
+===
+
+The next day, the Sheik returned from his trip. He explained the plan he had to scam the government of the United States into supporting my owning a concubine. Of course, I readily agreed for the memory of Kamilah under me kept my blood simmering. I boarded his plane that night to take me home. I left a teary-eyed Kamilah with the promise I would return for her. 
 
  When I got home, there were phone calls from my parents, several friends, and six women. I called Nancy first, but she was out of town. I then called Estella who came over and spent the night. 
 
@@ -442,7 +452,11 @@
 
  
 
- ****** Concubines ****** byE.Z.Riter© "My demands may be severe." 
+ 
+
+===
+
+"My demands may be severe." 
 
  "Will I be bound and whipped?" 
 
@@ -682,7 +696,11 @@
 
  
 
- ****** Concubines ****** byE.Z.Riter© I lost myself in Kamilah's heat, letting her passion blow away thoughts of anything else, letting her words of joy fill my ears, until we came as one. The movement of the bed seemed unreal as I floated in the afterglow. Hands pulled me on my back. I stared into hot, angry blue eyes. 
+ 
+
+===
+
+I lost myself in Kamilah's heat, letting her passion blow away thoughts of anything else, letting her words of joy fill my ears, until we came as one. The movement of the bed seemed unreal as I floated in the afterglow. Hands pulled me on my back. I stared into hot, angry blue eyes. 
 
  "Did you have a nice trip?" Samirah asked. I couldn't respond. "I asked you a question, Mike. How was your trip?" Kneeling on the bed peering down at me, her voice was brittle with a phony lightness. 
 
@@ -908,7 +926,11 @@
 
  
 
- ****** Concubines ****** byE.Z.Riter© "Come, girl," I yelled. 
+ 
+
+===
+
+"Come, girl," I yelled. 
 
  The bathroom door opened. A shapely leg with toes pointed slowly came into view. Then a veil dangling from an arm. She stepped out of the bathroom to be behind the veil. Did I catch a glimpse of breast or was it my imagination? 
 

@@ -1,8 +1,14 @@
+Lee Ann Ch. 01
+==============
 #1 
 
  
 
- ****** Lee Ann Ch. 01 ****** byStoryTeller07© "Now girl, get down on all fours," Jim told his girlfriend. He used a harsher tone of voice than intended, because he wasn't very pleased with her. Lee Ann had persuaded him to visit a BDSM club for the first time. It was something he felt uncomfortable with, but she had nagged him all week until he gave way. He wasn't scared it just wasn't his sort of thing. 
+ 
+
+===
+
+"Now girl, get down on all fours," Jim told his girlfriend. He used a harsher tone of voice than intended, because he wasn't very pleased with her. Lee Ann had persuaded him to visit a BDSM club for the first time. It was something he felt uncomfortable with, but she had nagged him all week until he gave way. He wasn't scared it just wasn't his sort of thing. 
 
  He was hoping she would get it out of her system and return to normal. It was sure to be a disappointment and nothing like she expected. 
 
@@ -206,7 +212,11 @@
 
  
 
- ****** Lee Ann Ch. 01 ****** byStoryTeller07© Lee Ann imagined being taken by this experienced master. She would have to use her body to pleasure him or lose his interest. If that happened she would be passed on to another master, having to go through the process of learning is needs all over again. It was important to pleasure a master with all her skill and all her body otherwise she would end up being sold into a brothel. 
+ 
+
+===
+
+Lee Ann imagined being taken by this experienced master. She would have to use her body to pleasure him or lose his interest. If that happened she would be passed on to another master, having to go through the process of learning is needs all over again. It was important to pleasure a master with all her skill and all her body otherwise she would end up being sold into a brothel. 
 
  The fantasy was so strong she thought it real. These men were teasing her again, and it was working on her like a full on foreplay. 
 
@@ -412,13 +422,21 @@
 
  
 
- ****** Lee Ann Ch. 01 ****** byStoryTeller07© "Please, master, get me out of here. Please take me home," she begged. It would be necessary to spend the night in the spare room, away from Jim. Could she ever bring herself to tell him what she had done? It was bad enough being aware of it herself. 
+ 
+
+===
+
+"Please, master, get me out of here. Please take me home," she begged. It would be necessary to spend the night in the spare room, away from Jim. Could she ever bring herself to tell him what she had done? It was bad enough being aware of it herself. 
 
  Richard took a hold of her arm, guiding her to a back door. She was relieved not to go anywhere near the bar. Getting into his car, she was a little disappointed it was all over. She had never ever experienced such intense feelings before and would probably never again. She had been this mans sex slave, and revelled in the feeling of being used in such a humble role. Of course it couldn't last, it simply couldn't. It was just a game. Just a nasty game they had played in the club.  
 
  
 
- ****** Lee Ann Ch. 02 ****** byStoryTeller07© Ch. 02 Becoming a slave 
+ 
+
+===
+
+Ch. 02 Becoming a slave 
 
  
 
@@ -640,7 +658,11 @@
 
  
 
- ****** Lee Ann Ch. 02 ****** byStoryTeller07© Lee Ann was pinned down on the mat unable to cover herself, helplessly exposed to their laughter and the cheers for May. Her head was spinning from the fight, and from being so blatantly aroused before everyone. 
+ 
+
+===
+
+Lee Ann was pinned down on the mat unable to cover herself, helplessly exposed to their laughter and the cheers for May. Her head was spinning from the fight, and from being so blatantly aroused before everyone. 
 
  Someone picked the forfeit from a bag and everyone giggled then burst out laughing. May looked down at the vanquished maiden, mischievously grinning. Lee Ann looked up at her captor, worrying what was to happen next. 
 

@@ -1,8 +1,14 @@
+Anna Rides Out
+==============
 #1 
 
  
 
- ****** Anna Rides Out ****** byStoryTeller07© Anna was awake long before it was likely any of the others would stir. She walked toward the kitchen in a thin silk dressing gown clinging to her where she was still wet from a stimulating shower. It clung to her breasts, between her cheeks and rode up around her thighs. She would be mortified to be caught like this being a very private person but this was her time, alone in the quiet house. In the mirror she caught sight of a slim sensuous figure rather good for a woman approaching forty. Anna sighed at the idea of being four years from forty. Where had the time gone? At sixteen she had Ben, quickly married and devoted the rest of her life to keeping a husband and three children happy. 
+ 
+
+===
+
+Anna was awake long before it was likely any of the others would stir. She walked toward the kitchen in a thin silk dressing gown clinging to her where she was still wet from a stimulating shower. It clung to her breasts, between her cheeks and rode up around her thighs. She would be mortified to be caught like this being a very private person but this was her time, alone in the quiet house. In the mirror she caught sight of a slim sensuous figure rather good for a woman approaching forty. Anna sighed at the idea of being four years from forty. Where had the time gone? At sixteen she had Ben, quickly married and devoted the rest of her life to keeping a husband and three children happy. 
 
  She brushed at the long blond hair while padding down the corridor, quietly, so as not to disturb the others. Soon they would be up to order their breakfasts and ironing, and 'where is my tee shirt?' Always demanding attention, 'Where did you put my golf clubs?' Wanting this or that. Her husband and sons demanded attention even here supposedly away from it all. Renting a holiday cottage in the sun gave them a superb break with all the comforts of home, but not a break from the household chores. Even Ben the eldest son had turned up on his motorcycle with a friend. The young girl would be another mouth to feed with more demands to be met, which started the moment they arrived. 
 

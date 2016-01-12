@@ -1,8 +1,14 @@
+Ballbuster
+==========
 #1 
 
  
 
- ****** Ballbuster ****** byE.Z.Riter© The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
+ 
+
+===
+
+The attached work of fiction is intended to be entertainment for adults in locations in which it is legal. If it is illegal in your location, DO NOT read. This is a copyrighted work. Reposting or any other use strictly prohibited without the express, written permission of the copyright holder, except may be posted as part of a review or posted to free-access, noncommercial archive sights. 
 
  Please! Give me your comments! 
 
@@ -356,7 +362,11 @@
 
  
 
- ****** Ballbuster ****** byE.Z.Riter© "Fuck me! I'm a horny slut and I need to be fucked!" 
+ 
+
+===
+
+"Fuck me! I'm a horny slut and I need to be fucked!" 
 
  I slid her to the floor. With her hands bound behind her, her breasts and head rested on the soft carpet. I grabbed her hips and thrust in doggy style. She screamed and begged me to fuck her harder. I have no idea how many times she came before she collapsed on the floor with me on and in her. 
 
