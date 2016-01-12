@@ -1,22 +1,5 @@
 Dominican Slut: Ass Fucked
 ==========================
-#1 
-
-===
-
-Summary: Proud teen shy nerd turned into a submissive ass cum slut. 
-
-Note: This is dedicated to the real Johnathan and Elizabeth who inspired the story. The entire back story is based on real events...the plotlines themselves are real fantasies of the lovely couple. 
-
-Note 2: Thanks goamz86, Mike, Robert, and Wayne for editing this story. 
-
-Warning: Like my novella 'Deconstructing the Professor', this story will use racially inappropriate words to create the vivid, authentic_race_based_story that has been requested. If words like 'nigger' and 'spic' offend you, please don't read further. 
-
-This story is the beginning of a lengthy multi-chaptered story of a Dominican woman who, no matter how hard she tries, can't break free from the racial stereotypes that she is trying to disprove; instead, she ends up living them. 
-
-***** 
-
-Dominican Slut: Ass Fucked 
 
 As I lick white sorority girl pussy while simultaneously getting ass fucked by white frat boy cock, my big, masculine, black husband is getting pegged by an eighteen year old blonde sorority sister and sucking her white boyfriend's cock. I can't help but reflect on the long and winding journey that put me and my black husband in this predicament. 
 
@@ -4294,4 +4277,4 @@ Once, I got the coed off with my expert tongue, I watched my husband move like a
 
 And as I reminisce about our journey, rubbing my belly, I realize although our love story is twisted and appalling to many, it is our love story and neither of us would have it any other way. 
 
-THE END! Report_Story 
+THE END!
