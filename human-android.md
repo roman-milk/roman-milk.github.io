@@ -1,4 +1,4 @@
-Human Android Ch. 01
+Human Android
 ====================
 #1 
 

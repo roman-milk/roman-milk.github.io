@@ -1,4 +1,4 @@
-Who's The Boss? Ch. 01
+Who's The Boss?
 ======================
 #1 
 

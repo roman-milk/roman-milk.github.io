@@ -1,4 +1,4 @@
-After Hours Ch. 01
+After Hours
 ==================
 #1 
 

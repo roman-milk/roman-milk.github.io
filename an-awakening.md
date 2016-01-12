@@ -1,4 +1,4 @@
-An Awakening Ch. 01
+An Awakening
 ===================
 #1 
 

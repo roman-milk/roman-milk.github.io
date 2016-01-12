@@ -1,4 +1,4 @@
-Two Teachers Ch. 01
+Two Teachers
 ===================
 #1 
 

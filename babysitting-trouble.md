@@ -1,4 +1,4 @@
-Babysitting Trouble Ch. 01
+Babysitting Trouble
 ==========================
 #1  
 

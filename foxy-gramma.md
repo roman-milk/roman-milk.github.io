@@ -1,4 +1,4 @@
-Foxy Grandma Ch. 01
+Foxy Grandma
 ===================
 #1 
 

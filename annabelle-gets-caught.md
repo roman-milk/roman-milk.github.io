@@ -1,4 +1,4 @@
-Annabelle Gets Caught Ch. 01
+Annabelle Gets Caught
 ============================
 #1 
 

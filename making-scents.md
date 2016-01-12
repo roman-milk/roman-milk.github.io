@@ -1,4 +1,4 @@
-Making Scents Ch. 01
+Making Scents
 ====================
 #1 
 

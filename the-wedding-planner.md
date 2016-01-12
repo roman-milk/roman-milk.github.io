@@ -1,4 +1,4 @@
-The Wedding Planner Ch. 01
+The Wedding Planner
 ==========================
 #1 
 

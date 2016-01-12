@@ -1,4 +1,4 @@
-First Kiss Ch. 01
+First Kiss
 =================
 #1 
 

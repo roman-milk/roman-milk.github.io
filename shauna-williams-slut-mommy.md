@@ -1,4 +1,4 @@
-Shauna Williams: Slut-Mommy Ch. 01
+Shauna Williams: Slut-Mommy
 ==================================
 #1 
 

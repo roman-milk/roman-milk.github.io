@@ -1,4 +1,4 @@
-Mother's Soldier Boy Ch. 01
+Mother's Soldier Boy
 ===========================
 #1 
 

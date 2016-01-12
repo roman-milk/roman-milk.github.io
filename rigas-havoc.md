@@ -1,4 +1,4 @@
-Riga's Havoc Ch. 01
+Riga's Havoc
 ===================
 #1 
 

@@ -1,4 +1,4 @@
-Jane is Trained to Submit Ch. 01
+Jane is Trained to Submit
 ================================
 #1 
 

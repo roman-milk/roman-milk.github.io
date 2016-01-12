@@ -1,4 +1,4 @@
-Poor Annie Ch. 01
+Poor Annie
 =================
 #1 
 

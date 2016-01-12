@@ -1,4 +1,4 @@
-Pet Girl Detective Ch. 01
+Pet Girl Detective
 =========================
 #1 
 

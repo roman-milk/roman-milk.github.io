@@ -1,4 +1,4 @@
-Fucking Evolution Ch. 01
+Fucking Evolution
 ========================
 #1 
 

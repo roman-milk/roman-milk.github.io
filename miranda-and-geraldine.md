@@ -1,4 +1,4 @@
-Miranda and Geraldine Ch. 01
+Miranda and Geraldine
 ============================
 #1 
 

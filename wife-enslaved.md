@@ -1,4 +1,4 @@
-Wife Enslaved Ch. 01
+Wife Enslaved
 ====================
 #1 
 

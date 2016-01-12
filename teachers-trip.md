@@ -1,4 +1,4 @@
-Teacher's Trip Ch. 01
+Teacher's Trip
 =====================
 #1 
 

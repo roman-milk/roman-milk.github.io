@@ -1,4 +1,4 @@
-Becoming a Slut Wife: Sarah Ch. 01
+Becoming a Slut Wife: Sarah
 ==================================
 #1 
 

@@ -1,4 +1,4 @@
-The Hard Body Clerk's New Beginning Ch. 01
+The Hard Body Clerk's New Beginning
 ==========================================
 #1 
 

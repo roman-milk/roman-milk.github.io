@@ -1,4 +1,4 @@
-The Dark Trilogy Ch. 01
+The Dark Trilogy
 =======================
 #1 
 

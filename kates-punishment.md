@@ -1,4 +1,4 @@
-Kate's Punishment Ch. 01
+Kate's Punishment
 ========================
 #1 
 

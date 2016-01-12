@@ -1,4 +1,4 @@
-Maeve and Rob Ch. 01
+Maeve and Rob
 ====================
 #1 
 

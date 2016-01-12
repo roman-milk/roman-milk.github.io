@@ -1,4 +1,4 @@
-A Weird One Ch. 01
+A Weird One
 ==================
 #1 
 

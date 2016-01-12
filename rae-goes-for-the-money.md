@@ -1,4 +1,4 @@
-Rae Goes For The Money Ch. 01
+Rae Goes For The Money
 =============================
 #1 
 

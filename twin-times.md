@@ -1,4 +1,4 @@
-Twin Times Ch. 01
+Twin Times
 =================
 #1 
 

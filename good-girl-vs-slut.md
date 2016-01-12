@@ -1,4 +1,4 @@
-Good Girl vs. Slut Ch. 01
+Good Girl vs. Slut
 =========================
 #1 
 

@@ -1,4 +1,4 @@
-No Such Thing as an Ex-Slut Ch. 01
+No Such Thing as an Ex-Slut
 ==================================
 #1 
 

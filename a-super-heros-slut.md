@@ -1,4 +1,4 @@
-A Super Hero's Slut Ch. 01
+A Super Hero's Slut
 ==========================
 #1 
 

@@ -1,4 +1,4 @@
-Something... Talk About in Tx Ch. 01
+Something... Talk About in Tx
 ====================================
 #1 
 

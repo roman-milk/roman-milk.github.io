@@ -1,4 +1,4 @@
-Baby Sit the Wife Ch. 01
+Baby Sit the Wife
 ========================
 #1 
 

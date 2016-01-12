@@ -1,4 +1,4 @@
-Tastes Like Candy Ch. 01
+Tastes Like Candy
 ========================
 #1 
 

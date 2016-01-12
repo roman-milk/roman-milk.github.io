@@ -1,4 +1,4 @@
-Naughty Girl Ch. 01
+Naughty Girl
 ===================
 #1 
 

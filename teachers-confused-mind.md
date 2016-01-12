@@ -1,4 +1,4 @@
-Teacher's Confused Mind Ch. 01
+Teacher's Confused Mind
 ==============================
 #1 
 

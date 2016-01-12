@@ -1,4 +1,4 @@
-Victoria the Slut Ch. 01
+Victoria the Slut
 ========================
 #1 
 

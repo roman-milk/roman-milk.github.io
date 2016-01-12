@@ -1,4 +1,4 @@
-Mistaken Identity Ch. 01
+Mistaken Identity
 ========================
 #1 
 

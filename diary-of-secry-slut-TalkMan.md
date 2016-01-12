@@ -1,4 +1,4 @@
-Diary of a Secretary/Slut Ch. 01
+Diary of a Secretary/Slut
 ================================
 #1 
 

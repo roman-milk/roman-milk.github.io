@@ -1,4 +1,4 @@
-The Corruption Of Selena Ch. 01
+The Corruption Of Selena
 ===============================
 #1 
 

@@ -1,4 +1,4 @@
-Teacher's Discipline Ch. 01
+Teacher's Discipline
 ===========================
 #1 
 

@@ -1,4 +1,4 @@
-A Secretary Changed Ch. 01
+A Secretary Changed
 ==========================
 #1 
 

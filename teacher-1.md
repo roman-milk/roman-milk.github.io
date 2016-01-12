@@ -1,4 +1,4 @@
-Teacher Ch. 01
+Teacher
 ==============
 #1 
 

@@ -1,4 +1,4 @@
-The Making of a Slut Ch. 01
+The Making of a Slut
 ===========================
 #1 
 

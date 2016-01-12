@@ -1,4 +1,4 @@
-A Lady and the Student Ch. 01
+A Lady and the Student
 =============================
 #1 
 

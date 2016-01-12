@@ -1,4 +1,4 @@
-Michelle's Story Ch. 01
+Michelle's Story
 =======================
 #1 
 

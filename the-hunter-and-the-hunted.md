@@ -1,4 +1,4 @@
-The Hunter and The Hunted Ch. 01
+The Hunter and The Hunted
 ================================
 #1 
 

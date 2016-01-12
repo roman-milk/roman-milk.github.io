@@ -1,4 +1,4 @@
-Mellisa, Mary Ellen and Me Ch. 01
+Mellisa, Mary Ellen and Me
 =================================
 #1 
 

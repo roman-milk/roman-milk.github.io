@@ -1,4 +1,4 @@
-Mom Becomes A Cheating Slut Ch. 01
+Mom Becomes A Cheating Slut
 ==================================
 #1 
 

@@ -1,4 +1,4 @@
-Gamer Goddess Ch. 01
+Gamer Goddess
 ====================
 #1 
 

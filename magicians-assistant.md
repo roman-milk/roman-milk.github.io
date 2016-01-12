@@ -1,4 +1,4 @@
-Magician's Assistant Ch. 01
+Magician's Assistant
 ===========================
 #1 
 

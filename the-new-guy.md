@@ -1,4 +1,4 @@
-The New Guy Ch. 01
+The New Guy
 ==================
 #1 
 

@@ -1,4 +1,4 @@
-The Gambler Ch. 01
+The Gambler
 ==================
 #1 
 

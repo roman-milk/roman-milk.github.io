@@ -1,4 +1,4 @@
-The Phillips Family Curse Ch. 01
+The Phillips Family Curse
 ================================
 #1 
 

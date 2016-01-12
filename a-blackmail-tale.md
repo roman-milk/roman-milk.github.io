@@ -1,4 +1,4 @@
-A Blackmail Tale Ch. 01
+A Blackmail Tale
 =======================
 #1 
 

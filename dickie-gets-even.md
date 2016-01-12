@@ -1,4 +1,4 @@
-Dickie Gets Even Ch. 01
+Dickie Gets Even
 =======================
 #1 
 

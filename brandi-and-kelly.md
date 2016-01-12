@@ -1,4 +1,4 @@
-Brandi and Kelly Ch. 01
+Brandi and Kelly
 =======================
 #1 
 

@@ -1,4 +1,4 @@
-The Last Boy Scout Ch. 01
+The Last Boy Scout
 =========================
 #1 
 

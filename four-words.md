@@ -1,4 +1,4 @@
-Four Words Ch. 01
+Four Words
 =================
 #1 
 

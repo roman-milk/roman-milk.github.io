@@ -1,4 +1,4 @@
-The Feminization of Daniel Ch. 01
+The Feminization of Daniel
 =================================
 #1 
 

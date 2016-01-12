@@ -1,4 +1,4 @@
-The Helen Chronicles Ch. 01
+The Helen Chronicles
 ===========================
 #1 
 

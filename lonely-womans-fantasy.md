@@ -1,4 +1,4 @@
-Lonely Womans Fantasy Ch. 01
+Lonely Womans Fantasy
 ============================
 #1 
 

@@ -1,4 +1,4 @@
-Training Teacher Ch. 01
+Training Teacher
 =======================
 #1 
 

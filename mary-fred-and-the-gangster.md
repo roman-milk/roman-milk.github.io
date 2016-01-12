@@ -1,4 +1,4 @@
-Mary, Fred and the Gangster Ch. 01
+Mary, Fred and the Gangster
 ==================================
 #1 
 

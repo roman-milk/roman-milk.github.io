@@ -1,4 +1,4 @@
-The Denouncement Ch. 01
+The Denouncement
 =======================
 #1 
 

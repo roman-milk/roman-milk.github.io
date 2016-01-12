@@ -1,4 +1,4 @@
-Riley's Bar Ch. 01
+Riley's Bar
 ==================
 #1 
 

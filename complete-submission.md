@@ -1,4 +1,4 @@
-The Complete Submission Ch. 01
+The Complete Submission
 ==============================
 #1 
 

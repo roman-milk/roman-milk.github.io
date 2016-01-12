@@ -1,4 +1,4 @@
-My Fair Slut Ch. 01
+My Fair Slut
 ===================
 #1 
 

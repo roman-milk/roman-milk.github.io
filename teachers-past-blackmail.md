@@ -1,4 +1,4 @@
-A Teacher's Past Ch. 01
+A Teacher's Past
 =======================
 #1 
 

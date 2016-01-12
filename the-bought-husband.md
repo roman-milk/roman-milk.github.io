@@ -1,4 +1,4 @@
-The Bought Husband Ch. 01
+The Bought Husband
 =========================
 #1 
 

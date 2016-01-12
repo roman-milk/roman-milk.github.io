@@ -1,4 +1,4 @@
-Restaurant Ch. 02
+Restaurant
 =================
 #1 
 

@@ -1,4 +1,4 @@
-Student Teacher Ch. 01
+Student Teacher
 ======================
 #1 
 

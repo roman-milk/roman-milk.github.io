@@ -1,4 +1,4 @@
-The Cline's Conquer Time Ch. 01
+The Cline's Conquer Time
 ===============================
 #1 
 

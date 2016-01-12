@@ -1,4 +1,4 @@
-From Loving Wife to Slut Ch. 01
+From Loving Wife to Slut
 ===============================
 #1 
 

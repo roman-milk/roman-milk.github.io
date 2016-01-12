@@ -1,16 +1,5 @@
-A Conspiracy of Sluts Ch. 01
-============================
-#1 
-
- 
-
- 
-
-===
-
-Author's note: This is the first part of a five part novella. Each chapter will be devoted to a different category of erotica: i.e. lesbian, group, interracial, BDSM, exhibitionism/voyeur (in that order). Although the five parts constitute a complete story I have tried to write each chapter so it could be enjoyed stand-alone as well (although I prefer you read the whole thing of course). I will post each chapter about a week apart. Enjoy! 
-
- * 
+A Conspiracy of Sluts 
+=====================
 
  Twelve floors above the streets of Manhattan Paige was stalled on the cusp of escape. She fidgeted impotently with her purse while anxiously eyeing the narrowing entrance to the small, movable room. As the gap between the steel doors contracted she rocked forward on the balls of her feet to peek into the corridor. She spotted Doug. He was just outside her office, looking the other direction, towards the fire exit. She moved back a step and sighed with relief; he hadn't seen her. But, as the doors drew to within a few inches of each other, just as she was nearly free, a tiny arm thrust through the gap and broke the infrared safety beam. The doors stopped with a dull click. They began to open again. 
 

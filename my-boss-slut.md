@@ -1,4 +1,4 @@
-My Boss' Slut Ch. 01
+My Boss' Slut
 ====================
 #1 
 

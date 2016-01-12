@@ -1,4 +1,4 @@
-George and Shawna Ch. 01
+George and Shawna
 ========================
 #1 
 

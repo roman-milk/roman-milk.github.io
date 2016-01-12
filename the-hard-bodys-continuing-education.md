@@ -1,4 +1,4 @@
-The Hard Body's Continuing Education Ch. 01
+The Hard Body's Continuing Education
 ===========================================
 #1 
 

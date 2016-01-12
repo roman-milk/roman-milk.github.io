@@ -1,4 +1,4 @@
-Tom's Wife, Joe's Slut Ch. 01
+Tom's Wife, Joe's Slut
 =============================
 #1 
 

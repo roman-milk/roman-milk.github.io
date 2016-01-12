@@ -1,4 +1,4 @@
-Robot Whore Ch. 01
+Robot Whore
 ==================
 #1 
 

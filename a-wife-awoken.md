@@ -1,4 +1,4 @@
-A Wife Awoken Ch. 01
+A Wife Awoken
 ====================
 #1 
 

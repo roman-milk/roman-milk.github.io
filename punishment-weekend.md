@@ -1,4 +1,4 @@
-Punishment Weekend Ch. 01
+Punishment Weekend
 =========================
 #1 
 

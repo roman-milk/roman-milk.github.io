@@ -1,4 +1,4 @@
-Confidence Ch. 01
+Confidence
 =================
 #1  
 

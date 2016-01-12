@@ -1,4 +1,4 @@
-Becoming a Slut Wife: Darla Ch. 01
+Becoming a Slut Wife: Darla
 ==================================
 #1 
 

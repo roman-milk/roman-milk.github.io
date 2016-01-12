@@ -1,4 +1,4 @@
-The Birthday Gift Ch. 01
+The Birthday Gift
 ========================
 #1 
 

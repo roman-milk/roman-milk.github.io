@@ -1,4 +1,4 @@
-Not So Fun Games Ch. 01
+Not So Fun Games
 =======================
 #1 
 

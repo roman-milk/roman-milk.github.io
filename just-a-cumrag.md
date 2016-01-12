@@ -1,4 +1,4 @@
-Just A Cumrag Ch. 01
+Just A Cumrag
 ====================
 #1 
 

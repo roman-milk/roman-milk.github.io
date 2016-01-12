@@ -1,4 +1,4 @@
-Suzanne Ch. 01
+Suzanne
 ==============
 #1 
 

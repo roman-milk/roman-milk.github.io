@@ -1,4 +1,4 @@
-Railway Slut Adventures Ch. 01
+Railway Slut Adventures
 ==============================
 #1 
 

@@ -1,4 +1,4 @@
-Asshole Ch. 01
+Asshole
 ==============
 #1 
 

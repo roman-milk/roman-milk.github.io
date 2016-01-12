@@ -1,4 +1,4 @@
-Controlling Dawn Ch. 01
+Controlling Dawn
 =======================
 #1 
 

@@ -1,4 +1,4 @@
-Exhibitionist Wife Ch. 01
+Exhibitionist Wife
 =========================
 #1 
 

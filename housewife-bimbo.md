@@ -1,4 +1,4 @@
-Housewife Bimbo Ch. 01
+Housewife Bimbo
 ======================
 #1 
 

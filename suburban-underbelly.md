@@ -1,4 +1,4 @@
-Suburban Underbelly Ch. 01
+Suburban Underbelly
 ==========================
 #1 
 

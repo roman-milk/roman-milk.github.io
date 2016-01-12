@@ -1,4 +1,4 @@
-Bad Heather Revisited Ch. 01
+Bad Heather Revisited
 ============================
 #1 
 

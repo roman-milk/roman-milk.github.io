@@ -1,4 +1,4 @@
-Pool Payments Ch. 01
+Pool Payments
 ====================
 #1 
 

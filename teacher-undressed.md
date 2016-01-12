@@ -1,4 +1,4 @@
-Teacher Undressed Ch. 01
+Teacher Undressed
 ========================
 #1  
 

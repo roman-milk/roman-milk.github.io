@@ -1,4 +1,4 @@
-One Man's Fantasy Ch. 01
+One Man's Fantasy
 ========================
 #1 
 

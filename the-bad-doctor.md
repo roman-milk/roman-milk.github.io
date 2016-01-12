@@ -1,4 +1,4 @@
-The Bad Doctor Ch. 01
+The Bad Doctor
 =====================
 #1 
 

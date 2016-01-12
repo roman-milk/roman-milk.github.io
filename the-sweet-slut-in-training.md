@@ -1,4 +1,4 @@
-The Sweet Slut In Training Ch. 01
+The Sweet Slut In Training
 =================================
 #1 
 

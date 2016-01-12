@@ -1,4 +1,4 @@
-Leonora Ch. 01
+Leonora
 ==============
 #1 
 

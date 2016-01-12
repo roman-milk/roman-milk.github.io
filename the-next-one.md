@@ -1,4 +1,4 @@
-The Next One Ch. 01
+The Next One
 ===================
 #1 
 

@@ -1,4 +1,4 @@
-Jessica's Change Management Ch. 01
+Jessica's Change Management
 ==================================
 #1 
 

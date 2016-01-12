@@ -1,4 +1,4 @@
-Vanessa's Dissonance Ch. 01
+Vanessa's Dissonance
 ===========================
 #1 
 

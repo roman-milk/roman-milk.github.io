@@ -1,4 +1,4 @@
-The Baby Carriage Tales Ch. 01
+The Baby Carriage Tales
 ==============================
 #1 
 

@@ -1,4 +1,4 @@
-Chuck's Fantasy Ch. 01
+Chuck's Fantasy
 ======================
 #1 
 

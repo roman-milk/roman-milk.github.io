@@ -1,4 +1,4 @@
-The Sure Thing Ch. 01
+The Sure Thing
 =====================
 #1 
 

@@ -1,4 +1,4 @@
-The Set Up Ch. 01
+The Set Up
 =================
 #1 
 

@@ -1,4 +1,4 @@
-Rob and Lori Ch. 01
+Rob and Lori
 ===================
 #1 
 

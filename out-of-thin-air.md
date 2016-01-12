@@ -1,4 +1,4 @@
-Out of Thin Air Ch. 01
+Out of Thin Air
 ======================
 #1 
 
