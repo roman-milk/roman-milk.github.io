@@ -1,8 +1,5 @@
 Another Cheating Wife Story
 ===========================
-#1 
-
-===
 
 I'm Eric Jensen. I'm 39 years old. I stand 6' 2" and weigh around 210 pounds. I graduates from college with a bachelors degree in both computer science and business administration. 
 
