@@ -1,18 +1,5 @@
 Cheerleader's Mom: A Power Shift
 ================================
-#1 
-
-===
-
-Summary: Mom is caught on her daughter's bed and made a submissive. 
-
-Note 1: Thanks to < a href="https://www.literotica.com/stories/ memberpage.php?uid=2133551" target="_blank">hfernandez1983  for doing the visuals for this story and potential multi-part series. 
-
-Note 2: Thanks to Robert, goamz86, and Wayne for editing. 
-
-Cheerleader's Mom: A Power Shift 
-
-power-shift01.jpg] 
 
 Michelle walked to the laundry, bored and annoyed. 
 
