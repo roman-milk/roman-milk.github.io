@@ -2,294 +2,280 @@ Take Me Dogging With You
 ========================
 #1 
 
- 
-
- 
-
 ===
 
 Writer's note: 
 
- Another first-person female POV piece I wrote for my friend's blog, and which I thought I'd share here. 
+Another first-person female POV piece I wrote for my friend's blog, and which I thought I'd share here. 
 
- A couple get a shock while dogging in some woods in England. 
+A couple get a shock while dogging in some woods in England. 
 
- I hope you enjoy the piece. It isn't too long, just shy of 5000 words, but, as usual, I'd really appreciate feedback. Feedback can be by Public Comment below, a PM on Lit or by email. If you want a response from me then email is best – but give me an address to reply to. 
+I hope you enjoy the piece. It isn't too long, just shy of 5000 words, but, as usual, I'd really appreciate feedback. Feedback can be by Public Comment below, a PM on Lit or by email. If you want a response from me then email is best – but give me an address to reply to. 
 
- Okay. I'll let you get on with it. 
+Okay. I'll let you get on with it. 
 
- GA – Calp, Spain – 27th June 2013. 
+GA – Calp, Spain – 27th June 2013. 
 
- 
+The dressing-up and the drive out to the site there are the best moments for me. The build-up, the anticipation of what's to come in the hours before we go dogging, that's when I start to feel it. My tummy flutters whenever I stop and think about all the men and how horny they'll be for me. My heart races and that pulse throbs between my legs and I get so worked up that I'm just dying to rub myself, to slide my fingers over my little bean and finger my opening. I have to deny myself the pleasure of fucking my snarling cunt with a big dildo, holding out until I can finally let myself go with multiple men, mostly faceless, anonymous strangers, men whose cocks I suck and who I allow fuck me in some secluded spot. 
 
- 
+And I use that word deliberately – allow. I use it because although some people might consider what I do as degrading or compromising to my femininity, or even humiliating to women in general, but never let it be forgotten that I love doing it and I allow it to happen on my own terms. 
 
- 
+It doesn't matter to me if some, even most, of the men I suck and fuck are older or maybe not so traditionally aesthetically pleasing or not addicted to the gym; as long as they're polite and respectful and stick to the rules I'll probably 'do' them. I've got a pretty decent 'wanker radar', and trust me, if I get the sense that one or more of the guys that turn up are just there to take the piss, or if they give off the vibe that they're not, at heart, halfway decent, then they don't get to play. 
 
- The dressing-up and the drive out to the site there are the best moments for me. The build-up, the anticipation of what's to come in the hours before we go dogging, that's when I start to feel it. My tummy flutters whenever I stop and think about all the men and how horny they'll be for me. My heart races and that pulse throbs between my legs and I get so worked up that I'm just dying to rub myself, to slide my fingers over my little bean and finger my opening. I have to deny myself the pleasure of fucking my snarling cunt with a big dildo, holding out until I can finally let myself go with multiple men, mostly faceless, anonymous strangers, men whose cocks I suck and who I allow fuck me in some secluded spot. 
+Anyway, I digress, what was I saying? 
 
- And I use that word deliberately – allow. I use it because although some people might consider what I do as degrading or compromising to my femininity, or even humiliating to women in general, but never let it be forgotten that I love doing it and I allow it to happen on my own terms. 
+Oh yes, the anticipation, the build-up ... makes me horny as hell. 
 
- It doesn't matter to me if some, even most, of the men I suck and fuck are older or maybe not so traditionally aesthetically pleasing or not addicted to the gym; as long as they're polite and respectful and stick to the rules I'll probably 'do' them. I've got a pretty decent 'wanker radar', and trust me, if I get the sense that one or more of the guys that turn up are just there to take the piss, or if they give off the vibe that they're not, at heart, halfway decent, then they don't get to play. 
+And what made that Saturday even better was, for the first time, there was going to be another woman with me. 
 
- Anyway, I digress, what was I saying? 
+The boys would go c-razy. 
 
- Oh yes, the anticipation, the build-up ... makes me horny as hell. 
+We'd met under somewhat, for me, trying circumstances, a Saturday night several weeks before when I'd been at a well-known site with my husband. There were half-a-dozen men with us, one of whom was behind me as I bent over the bonnet of our smart Jaguar. He was pumping away at me, really pushing his big dick deep into me while I alternated my attention between the men standing to my left and right, twisting this way and that, one hand on the car for support while I slurped and slobbered over two rock hard dicks. I'd suck one cock for a few juicy slurps before turning to the other, all the time moaning and grunting around a mouthful of throbbing hard-on while occasionally working at my clit with my free hand. 
 
- And what made that Saturday even better was, for the first time, there was going to be another woman with me. 
+I was close to cumming as I stood there, knock-kneed and braced against the Jag. I was going for it, thrusting my hips back at the man fucking me. I knew he was about to pump the jonny-bag full of cum, not to mention I also sensed one of the boys alternately fucking my face was close to unloading, when a sudden cry went up from a couple of the other blokes. 
 
- The boys would go c-razy. 
+Suddenly, among the shouts of alarm and the sound of running feet our clandestine group dispersed, leaving me blinking into the headlights of what turned out to be a police car. What a sight I must have been: smudged lipstick, tits bare, skirt around my waist, a thick rope of cum glistening in my hair, my cheeks spattered with the stuff, and my cunt gaping. 
 
- We'd met under somewhat, for me, trying circumstances, a Saturday night several weeks before when I'd been at a well-known site with my husband. There were half-a-dozen men with us, one of whom was behind me as I bent over the bonnet of our smart Jaguar. He was pumping away at me, really pushing his big dick deep into me while I alternated my attention between the men standing to my left and right, twisting this way and that, one hand on the car for support while I slurped and slobbered over two rock hard dicks. I'd suck one cock for a few juicy slurps before turning to the other, all the time moaning and grunting around a mouthful of throbbing hard-on while occasionally working at my clit with my free hand. 
+Engines revved and all of a sudden it was just me, my husband and a uniformed police sergeant. 
 
- I was close to cumming as I stood there, knock-kneed and braced against the Jag. I was going for it, thrusting my hips back at the man fucking me. I knew he was about to pump the jonny-bag full of cum, not to mention I also sensed one of the boys alternately fucking my face was close to unloading, when a sudden cry went up from a couple of the other blokes. 
+*** 
 
- Suddenly, among the shouts of alarm and the sound of running feet our clandestine group dispersed, leaving me blinking into the headlights of what turned out to be a police car. What a sight I must have been: smudged lipstick, tits bare, skirt around my waist, a thick rope of cum glistening in my hair, my cheeks spattered with the stuff, and my cunt gaping. 
+Emma, not her real name, came to our house the next day. 
 
- Engines revved and all of a sudden it was just me, my husband and a uniformed police sergeant. 
+"Okay," my husband said when we were all sitting in the living room. "Just what is it you want?" 
 
- *** 
+Emma, obviously nervous, her hand trembled when she sipped her tea, threw a glance at my husband before looking at me. Her mouth opened and closed a couple of times and she shook her head, short little shakes as she muttered to herself. and it seemed to me like she was gathering her resolve, finding the guts to come out and say it. 
 
- Emma, not her real name, came to our house the next day. 
+My husband began to say something but shut up when he caught the look from me. 
 
- "Okay," my husband said when we were all sitting in the living room. "Just what is it you want?" 
+"Come on, Emma," I said in a quiet, coaxing voice. "You're obviously here in some unofficial capacity. There's something on your mind." I leaned forward and offered the most reassuring smile I could summon, hoping I had read the scene correctly. 
 
- Emma, obviously nervous, her hand trembled when she sipped her tea, threw a glance at my husband before looking at me. Her mouth opened and closed a couple of times and she shook her head, short little shakes as she muttered to herself. and it seemed to me like she was gathering her resolve, finding the guts to come out and say it. 
+Emma blinked at me and, taking a deep sigh, began to talk. 
 
- My husband began to say something but shut up when he caught the look from me. 
+"Like I told you last night, I wanted to talk to you. There's something I wanted to say." Emma shook her head. "You're right. This is unofficial. I'm not here as a copper." 
 
- "Come on, Emma," I said in a quiet, coaxing voice. "You're obviously here in some unofficial capacity. There's something on your mind." I leaned forward and offered the most reassuring smile I could summon, hoping I had read the scene correctly. 
+Now that was information that came as a huge bloody relief. I'd been worried, my imagination working overtime and conjuring up all kinds of scenarios. I mean, what business would a sergeant in the constabulary of our county have with a husband and wife dogging team? 
 
- Emma blinked at me and, taking a deep sigh, began to talk. 
+"I'm here as me, just me," Emma continued. "Forget I'm a police woman." She stared at me for a few seconds, glanced at my husband and then nodded her head at me. "Yeah?" she asked. "You get me? Understand? I'm not here as a copper." 
 
- "Like I told you last night, I wanted to talk to you. There's something I wanted to say." Emma shook her head. "You're right. This is unofficial. I'm not here as a copper." 
+I flicked a look at my husband but he just sat there, saying nothing. 
 
- Now that was information that came as a huge bloody relief. I'd been worried, my imagination working overtime and conjuring up all kinds of scenarios. I mean, what business would a sergeant in the constabulary of our county have with a husband and wife dogging team? 
+"Okay," I said, shrugging. "What exactly is it that you want from us?" 
 
- "I'm here as me, just me," Emma continued. "Forget I'm a police woman." She stared at me for a few seconds, glanced at my husband and then nodded her head at me. "Yeah?" she asked. "You get me? Understand? I'm not here as a copper." 
+I'd had the idea that, for some obscure reason of their own, my mind entertaining the wildest notions, that the police wanted us to act as bait in some ludicrous operation against dogging. The ridiculous notion had gotten into my head that there was some huge crackdown on public decency offences in the offing. In my head I'd envisioned a scene from one of those cop programmes on telly, all the pervy doggers being hauled off in handcuffs amid the chaos of strobing lights and SOCOs taking pictures of used condoms while Emma and the team gathered evidence, took statements... 
 
- I flicked a look at my husband but he just sat there, saying nothing. 
+Yeah, right, let's face it, with budgets being what they are, with bigger issues to worry about, why the hell would the Old Bill go to so much trouble – and expense – over a bit of fun in the woods? After all, our sites are chosen with an element of seclusion in mind. It isn't as though I'm taking on all- comers (no pun intended) in front of the John Lewis store in town after all. 
 
- "Okay," I said, shrugging. "What exactly is it that you want from us?" 
+What Emma actually wanted had me gawping at her, my mouth hanging open with disbelief. 
 
- I'd had the idea that, for some obscure reason of their own, my mind entertaining the wildest notions, that the police wanted us to act as bait in some ludicrous operation against dogging. The ridiculous notion had gotten into my head that there was some huge crackdown on public decency offences in the offing. In my head I'd envisioned a scene from one of those cop programmes on telly, all the pervy doggers being hauled off in handcuffs amid the chaos of strobing lights and SOCOs taking pictures of used condoms while Emma and the team gathered evidence, took statements... 
+"What?" I blurted, not quite sure I'd heard her correctly. 
 
- Yeah, right, let's face it, with budgets being what they are, with bigger issues to worry about, why the hell would the Old Bill go to so much trouble – and expense – over a bit of fun in the woods? After all, our sites are chosen with an element of seclusion in mind. It isn't as though I'm taking on all- comers (no pun intended) in front of the John Lewis store in town after all. 
+She closed her eyes and sucked in a deep breath. "I ... I want to go with you sometime. I want to do it too." 
 
- What Emma actually wanted had me gawping at her, my mouth hanging open with disbelief. 
+"Dogging?" I asked. "You?" 
 
- "What?" I blurted, not quite sure I'd heard her correctly. 
+Emma, with her eyes still closed, nodded. 
 
- She closed her eyes and sucked in a deep breath. "I ... I want to go with you sometime. I want to do it too." 
+My husband, perhaps with wild notions of entrapment of his own, interjected with, "Is this some kind of stunt, a trap?" 
 
- "Dogging?" I asked. "You?" 
+Emma snorted a laugh and rolled her eyes. "What is this – Miami Vice?" 
 
- Emma, with her eyes still closed, nodded. 
+I looked at my husband, gave him the don't be a wanker stare, and said, "It'd be a bit elaborate, not to mention costly." 
 
- My husband, perhaps with wild notions of entrapment of his own, interjected with, "Is this some kind of stunt, a trap?" 
+"It really is personal," Emma said when I, following a roll of my eyes at hubby, turned my attention to her again. She sipped the tea and grimaced. "Can I have something stronger? Then I can explain it all." 
 
- Emma snorted a laugh and rolled her eyes. "What is this – Miami Vice?" 
+*** 
 
- I looked at my husband, gave him the don't be a wanker stare, and said, "It'd be a bit elaborate, not to mention costly." 
+She took my husband bareback, kneeling on the settee to offer herself. 
 
- "It really is personal," Emma said when I, following a roll of my eyes at hubby, turned my attention to her again. She sipped the tea and grimaced. "Can I have something stronger? Then I can explain it all." 
+That was the test to prove she meant business – I took the pictures of Emma getting fucked by my husband. 
 
- *** 
+It was her idea, she'd obviously thought things through, had realised we'd have our doubts and might harbour some suspicion. 
 
- She took my husband bareback, kneeling on the settee to offer herself. 
+I gave yet another shrug when my husband looked at me after Emma made the suggestion, his eyes questioning. "You've watched me getting fucked often enough. If you fancy her, go ahead." 
 
- That was the test to prove she meant business – I took the pictures of Emma getting fucked by my husband. 
+She sat on the settee, her blouse flapping unbuttoned while my husband fucked his erection between Emma's pursed lips. It was so sexy seeing them together that I lifted the hem of my dress and yanked my knickers to one side, fingering my juicy slot while I stared, entranced. 
 
- It was her idea, she'd obviously thought things through, had realised we'd have our doubts and might harbour some suspicion. 
+I had to admit that Emma had it going for her: honey blonde hair, pretty face, big round tits. She wasn't the slimmest of women, being two and a bit decades past her twentieth birthday. She was no skinny-Minnie, but she obviously took care of herself and certainly got my husband all revved up. 
 
- I gave yet another shrug when my husband looked at me after Emma made the suggestion, his eyes questioning. "You've watched me getting fucked often enough. If you fancy her, go ahead." 
+Emma held my husband's dick down low at its root and wanked at it while she sucked the big plum between her lips. I took a few pictures of her staring right into the camera lens, her face all distorted, eyes sparkling. 
 
- She sat on the settee, her blouse flapping unbuttoned while my husband fucked his erection between Emma's pursed lips. It was so sexy seeing them together that I lifted the hem of my dress and yanked my knickers to one side, fingering my juicy slot while I stared, entranced. 
+"I don't know what it is," she gasped with her fist cranking at hubby's length. "But the idea of fucking outdoors ... A group of men, strangers ... It just gets me so worked up and so fucking horny." 
 
- I had to admit that Emma had it going for her: honey blonde hair, pretty face, big round tits. She wasn't the slimmest of women, being two and a bit decades past her twentieth birthday. She was no skinny-Minnie, but she obviously took care of herself and certainly got my husband all revved up. 
+I knew what she meant, it's the same for me; I can't tell you why I love dogging, what it is exactly that gets me so fucking worked up. It could be the sleaze, the knowledge I'm doing something illicit. I love getting ready, taking time to turn myself into this other woman, the one who's a consummate slut, the one who sucks cock and begs to be bathed in spunk. I'm free to be that woman, no longer the staid suburbanite with a decent job, the tidy home and who minds her P's and Q's. Out there, in the woods, a car park, or even a derelict warehouse I can let it all go and fuck anonymous men. I don't care about age, colour or race; all I see are hard cocks and big swinging balls. 
 
- Emma held my husband's dick down low at its root and wanked at it while she sucked the big plum between her lips. I took a few pictures of her staring right into the camera lens, her face all distorted, eyes sparkling. 
+It's a combination of factors, I suppose. Like I said, there's the build-up, that delicious, bubbling anticipation that has me sluicing into my knickers before we even leave the house. 
 
- "I don't know what it is," she gasped with her fist cranking at hubby's length. "But the idea of fucking outdoors ... A group of men, strangers ... It just gets me so worked up and so fucking horny." 
+When my husband started to moan and grunt, Emma stopped sucking his cock and knelt on the sofa. She rested her knees on the cushions and, with her forearms and elbows on top of the upright, shoved her arse towards my man. 
 
- I knew what she meant, it's the same for me; I can't tell you why I love dogging, what it is exactly that gets me so fucking worked up. It could be the sleaze, the knowledge I'm doing something illicit. I love getting ready, taking time to turn myself into this other woman, the one who's a consummate slut, the one who sucks cock and begs to be bathed in spunk. I'm free to be that woman, no longer the staid suburbanite with a decent job, the tidy home and who minds her P's and Q's. Out there, in the woods, a car park, or even a derelict warehouse I can let it all go and fuck anonymous men. I don't care about age, colour or race; all I see are hard cocks and big swinging balls. 
+"Fuck me," she sighed, reaching back with one hand to hold the cheeks of her arse open. "Stick it in that cunt." 
 
- It's a combination of factors, I suppose. Like I said, there's the build-up, that delicious, bubbling anticipation that has me sluicing into my knickers before we even leave the house. 
+Oh fuck – the c-word! Emma must have been really be horny for it. 
 
- When my husband started to moan and grunt, Emma stopped sucking his cock and knelt on the sofa. She rested her knees on the cushions and, with her forearms and elbows on top of the upright, shoved her arse towards my man. 
+I got to her first, nudging my husband out of the way with an elbow before I squatted behind Emma and slurped at her gooey pussy. I held her wide open and watched her labia peel apart with a sticky reluctance, sliding a thumb into her opening as I dabbed my tongue at the smudge of her anus. 
 
- "Fuck me," she sighed, reaching back with one hand to hold the cheeks of her arse open. "Stick it in that cunt." 
+"Oh fuck," Emma groaned as I worked at her clit and squirmed my tongue deeper into her dirty-hole. "That's so fucking filthy..." 
 
- Oh fuck – the c-word! Emma must have been really be horny for it. 
+After half-a-minute of me slobbering at her and working her cunt with my fingers, I stepped back and grabbed my husband's cock. I sucked him, cranking him with one hand while I fingered my own slit with the fingers of my free hand. Then, with Emma staring back at me over one shoulder with that hot-eyed "just stick it in and fuck me" look on her face, I slid the dome of hubby's cock-head through her sex a few times. She sighed and gasped, thrusting her hips back in an urgent signal that she really wanted my husband's dick inside her. 
 
- I got to her first, nudging my husband out of the way with an elbow before I squatted behind Emma and slurped at her gooey pussy. I held her wide open and watched her labia peel apart with a sticky reluctance, sliding a thumb into her opening as I dabbed my tongue at the smudge of her anus. 
+It was a brief yet intense fuck, with Emma's buttocks slap-slapping and trembling under the onslaught. My husband had his fingers dug into the flesh of Emma's hips, holding her firm while he bored into her body, both of them rutting away, snarling like animals. 
 
- "Oh fuck," Emma groaned as I worked at her clit and squirmed my tongue deeper into her dirty-hole. "That's so fucking filthy..." 
+"I can't hold on," my husband groaned. "I'm..." 
 
- After half-a-minute of me slobbering at her and working her cunt with my fingers, I stepped back and grabbed my husband's cock. I sucked him, cranking him with one hand while I fingered my own slit with the fingers of my free hand. Then, with Emma staring back at me over one shoulder with that hot-eyed "just stick it in and fuck me" look on her face, I slid the dome of hubby's cock-head through her sex a few times. She sighed and gasped, thrusting her hips back in an urgent signal that she really wanted my husband's dick inside her. 
+He grimaced and grunted as he thrust deep and his torso curled low over Emma's back. I knew he was pumping her full of cum as he mauled those swinging tits. 
 
- It was a brief yet intense fuck, with Emma's buttocks slap-slapping and trembling under the onslaught. My husband had his fingers dug into the flesh of Emma's hips, holding her firm while he bored into her body, both of them rutting away, snarling like animals. 
+Emma's fingers were moving between her legs, busy on her clit as she sought her own climax. I saw viscous spunk glistening like a pearl at her opening when my husband, gasping and fighting for breath, collapsed onto the sofa next to her. I crawled to her and splayed the woman's labia with my thumbs before tonguing a dollop of jizm from her body, then moving alongside her so we could kiss. 
 
- "I can't hold on," my husband groaned. "I'm..." 
+That was the start, and we made plans for Emma to join us on our next outing before we fucked my husband dry. 
 
- He grimaced and grunted as he thrust deep and his torso curled low over Emma's back. I knew he was pumping her full of cum as he mauled those swinging tits. 
+*** 
 
- Emma's fingers were moving between her legs, busy on her clit as she sought her own climax. I saw viscous spunk glistening like a pearl at her opening when my husband, gasping and fighting for breath, collapsed onto the sofa next to her. I crawled to her and splayed the woman's labia with my thumbs before tonguing a dollop of jizm from her body, then moving alongside her so we could kiss. 
+Dressing up with Emma had me raring to go hours before it was time to go. We went for the slutty look: garter-belt, stockings, mini skirt, tight blouse and impossibly high shoes. There was no way I'd ever entertain the idea of going out dressed like that, not in a normal public setting, not at my age – mutton dressed as lamb and all that – but the boys do seem to love it. Besides, when I went out dogging I slipped on the cover of my alter ego and left all my usual insecurities at home. 
 
- That was the start, and we made plans for Emma to join us on our next outing before we fucked my husband dry. 
+Hubby drove us out there while Emma and I messed around on the roomy back seat of the Jag. By the time we got to that night's rendezvous we both had our skirts bunched around our waists, with my hand busy between Emma's legs and hers between mine. My husband parked just as the light was fading. He gave the signal and soon enough there were faces peering in at me and Emma through the rear windows. 
 
- *** 
+"Fucking hell," Emma swore. "Look at them all." 
 
- Dressing up with Emma had me raring to go hours before it was time to go. We went for the slutty look: garter-belt, stockings, mini skirt, tight blouse and impossibly high shoes. There was no way I'd ever entertain the idea of going out dressed like that, not in a normal public setting, not at my age – mutton dressed as lamb and all that – but the boys do seem to love it. Besides, when I went out dogging I slipped on the cover of my alter ego and left all my usual insecurities at home. 
+As I lowered the window on my side, I replied, "And they're all here for us, girl. Every one of those horny blokes wants to fuck the arse off one of us." 
 
- Hubby drove us out there while Emma and I messed around on the roomy back seat of the Jag. By the time we got to that night's rendezvous we both had our skirts bunched around our waists, with my hand busy between Emma's legs and hers between mine. My husband parked just as the light was fading. He gave the signal and soon enough there were faces peering in at me and Emma through the rear windows. 
+I used one hand on the first hard-on that reared its head at my window, my other hand still working at the wetness between Emma's thighs. "Nervous?" I asked her. 
 
- "Fucking hell," Emma swore. "Look at them all." 
+"Like I never believed I'd be." Emma lowered the window next to her. "But I'm so turned on at the same time," she added. 
 
- As I lowered the window on my side, I replied, "And they're all here for us, girl. Every one of those horny blokes wants to fuck the arse off one of us." 
+There were more cocks at my window, all in varying stages of stiffness. I released the one I'd been wanking and took hold of another, this time twisting in my seat so I could give it a little lick. 
 
- I used one hand on the first hard-on that reared its head at my window, my other hand still working at the wetness between Emma's thighs. "Nervous?" I asked her. 
+Pretty soon I had more dick than I could deal with and, after a quick glance to make sure Emma was all right, I forgot about her and got on with it. 
 
- "Like I never believed I'd be." Emma lowered the window next to her. "But I'm so turned on at the same time," she added. 
+Men were muttering together, laughing at some quiet joke one or another had made while I manoeuvred myself to a kneeling position, my head and torso leaning out of the car as though I was selling ice creams at the seaside. I had a dick in my mouth and one in each hand, my head bobbing, hands working while someone unbuttoned my blouse and hauled my tits out. 
 
- There were more cocks at my window, all in varying stages of stiffness. I released the one I'd been wanking and took hold of another, this time twisting in my seat so I could give it a little lick. 
+The first man came after a few minutes of action, his spunk splashing across my cheek as he groaned and grunted. Then another one let go, jizm hitting me right between my boobs, more cum sliding down the door panel of the Jag. 
 
- Pretty soon I had more dick than I could deal with and, after a quick glance to make sure Emma was all right, I forgot about her and got on with it. 
+That's when I got out of the car – I mean, it's okay to make a mess of me, but watch the fuckin' motor! 
 
- Men were muttering together, laughing at some quiet joke one or another had made while I manoeuvred myself to a kneeling position, my head and torso leaning out of the car as though I was selling ice creams at the seaside. I had a dick in my mouth and one in each hand, my head bobbing, hands working while someone unbuttoned my blouse and hauled my tits out. 
+The men encircling the car on my side stepped back, their hungry stares on my tits while they jerked at their cocks. I scouted the group and fixed my gaze on a young bloke bundled into the second row. He looked about nineteen and seemed really nervous about being there. 
 
- The first man came after a few minutes of action, his spunk splashing across my cheek as he groaned and grunted. Then another one let go, jizm hitting me right between my boobs, more cum sliding down the door panel of the Jag. 
+Perfect. 
 
- That's when I got out of the car – I mean, it's okay to make a mess of me, but watch the fuckin' motor! 
+One of my personal faves – young and bricking it. 
 
- The men encircling the car on my side stepped back, their hungry stares on my tits while they jerked at their cocks. I scouted the group and fixed my gaze on a young bloke bundled into the second row. He looked about nineteen and seemed really nervous about being there. 
+"You," I said, slipping my blouse off as I spoke. "I want you to fuck me." 
 
- Perfect. 
+He hesitated, eying the huddle around him, maybe concerned someone would object. I beckoned to him with a crooked forefinger, indicating with a smile and a wink that he should come to me. 
 
- One of my personal faves – young and bricking it. 
+"Don't worry," I murmured when he eventually walked to me. "Just enjoy yourself. We're going to fuck. Would you like that?" I took hold of his slack cock, which had wilted when I'd pointed him out to the crowd. "Touch me if you want," I said in a low voice. "You can feel my tits ... You can finger my pussy." Leaning in close, my hand working his length, I breathed, "Do you want to feel my tits? Do you like them?" 
 
- "You," I said, slipping my blouse off as I spoke. "I want you to fuck me." 
+The young man nodded like an idiot, his head going up and down as he swallowed. "Oh yeah," he mumbled. "I think you're really sexy." His hands went to my boobs. "I ... I can't believe I'm doing this. I can't believe I'm going to fuck you." He glanced around at the avid stares of the assembly clustered around us, "This is fantastic." 
 
- He hesitated, eying the huddle around him, maybe concerned someone would object. I beckoned to him with a crooked forefinger, indicating with a smile and a wink that he should come to me. 
+I let out a low chuckle and caught my husband's eye a he hovered at the rear of the crowd. When I gave a toss of my head he knew what I meant and moved away. 
 
- "Don't worry," I murmured when he eventually walked to me. "Just enjoy yourself. We're going to fuck. Would you like that?" I took hold of his slack cock, which had wilted when I'd pointed him out to the crowd. "Touch me if you want," I said in a low voice. "You can feel my tits ... You can finger my pussy." Leaning in close, my hand working his length, I breathed, "Do you want to feel my tits? Do you like them?" 
+"Believe it," I whispered before I kissed the man's mouth. "We're going to fuck. And these boys are going to watch." 
 
- The young man nodded like an idiot, his head going up and down as he swallowed. "Oh yeah," he mumbled. "I think you're really sexy." His hands went to my boobs. "I ... I can't believe I'm doing this. I can't believe I'm going to fuck you." He glanced around at the avid stares of the assembly clustered around us, "This is fantastic." 
+When I held the man's hand and led him around to the back of the car, my husband, in response to my earlier signal, had been in the boot and laid out the picnic blanket. 
 
- I let out a low chuckle and caught my husband's eye a he hovered at the rear of the crowd. When I gave a toss of my head he knew what I meant and moved away. 
+I settled onto my knees in the centre of the blanket and began to suck on the young guy's long dick. He swelled in my mouth, groaning when I slurped and slobbered over his length of meat. 
 
- "Believe it," I whispered before I kissed the man's mouth. "We're going to fuck. And these boys are going to watch." 
+"Lucky bastard," I heard someone mutter. 
 
- When I held the man's hand and led him around to the back of the car, my husband, in response to my earlier signal, had been in the boot and laid out the picnic blanket. 
+"Yeah," came a reply from the crowd. "Go on, girl, suck his dick. You can suck on mine when you've finished with him." 
 
- I settled onto my knees in the centre of the blanket and began to suck on the young guy's long dick. He swelled in my mouth, groaning when I slurped and slobbered over his length of meat. 
+There were more calls for the bloke to fuck my face and spunk on my tits, lewd and obscene suggestions about what they'd like to see and what they wanted to do to me. I loved it all, really adored the attention and just being so wanton and depraved in front of so many men. I sucked on that boy's cock, really making a show of it by sighing and gasping and allowing my pursed lips to make wet sucking noises when the big plum of that cock-head popped out of my mouth. 
 
- "Lucky bastard," I heard someone mutter. 
+"You want to fuck me?" I gasped, rising to my feet. "Do you want to do it or shall I just toss you off over my tits?" 
 
- "Yeah," came a reply from the crowd. "Go on, girl, suck his dick. You can suck on mine when you've finished with him." 
+The man groaned and rolled his eyes, his tongue sliding over dry lips. "I want to fuck you," he croaked. 
 
- There were more calls for the bloke to fuck my face and spunk on my tits, lewd and obscene suggestions about what they'd like to see and what they wanted to do to me. I loved it all, really adored the attention and just being so wanton and depraved in front of so many men. I sucked on that boy's cock, really making a show of it by sighing and gasping and allowing my pursed lips to make wet sucking noises when the big plum of that cock-head popped out of my mouth. 
+Giving him time to cool down a little, knowing he was close to blowing his load, I walked across to the car and reached into the open boot. We keep a stash of condoms in there when we go out on our little soirees; the blokes are meant to bring their own but I don't trust them – the last thing I need is for some joker's sperm to find me because he thinks it's a grin to pierce the foil packet, and the rolled up condom inside, several times with a pin. The jonnys are a necessity, vital to me for my health and peace of mind. 
 
- "You want to fuck me?" I gasped, rising to my feet. "Do you want to do it or shall I just toss you off over my tits?" 
+I rolled the latex sheath over my boy's cock and then lay on the blanket, legs akimbo. "There it is," I moaned, splaying my labia with my fingers. I rubbed my clit with the tip of a forefinger and gasped at the delicious thrill. "Put it in," I breathed, my hips moving on the blanket in urgent thrusts. I was desperate to feel him inside me; I had to have that cock stuffed into my cunt. 
 
- The man groaned and rolled his eyes, his tongue sliding over dry lips. "I want to fuck you," he croaked. 
+He moved between my legs, lay over me, held his penis with one hand and nudged the tip at me. When he slid into me we both groaned, immediately finding a quick rhythm. 
 
- Giving him time to cool down a little, knowing he was close to blowing his load, I walked across to the car and reached into the open boot. We keep a stash of condoms in there when we go out on our little soirees; the blokes are meant to bring their own but I don't trust them – the last thing I need is for some joker's sperm to find me because he thinks it's a grin to pierce the foil packet, and the rolled up condom inside, several times with a pin. The jonnys are a necessity, vital to me for my health and peace of mind. 
+"Fuck me," I grunted as I pushed up to meet him, fingers working at my clit. "Come on, really bang me." 
 
- I rolled the latex sheath over my boy's cock and then lay on the blanket, legs akimbo. "There it is," I moaned, splaying my labia with my fingers. I rubbed my clit with the tip of a forefinger and gasped at the delicious thrill. "Put it in," I breathed, my hips moving on the blanket in urgent thrusts. I was desperate to feel him inside me; I had to have that cock stuffed into my cunt. 
+He didn't last long. I'd say, and don't forget I was worked up and chasing my own climax so my perception could be off, but to my estimate we were at it for no more than two minutes. I was rubbing my clitoris and jerking my hips up, loving the texture of a young guy's hard muscles as I rubbed one hand over my lover's back when he gave a bellow and his whole body stiffened. He pushed deep into me and I actually felt his dick throb. 
 
- He moved between my legs, lay over me, held his penis with one hand and nudged the tip at me. When he slid into me we both groaned, immediately finding a quick rhythm. 
+"He's cumming," I yelped. "Yes, do it, baby. Cum for me. Let it all go." 
 
- "Fuck me," I grunted as I pushed up to meet him, fingers working at my clit. "Come on, really bang me." 
+I kept on with my vigorous manipulation of my own pussy, teasing the slippery bud of my clit and fingering my now gaping opening when the boy slid out of me. 
 
- He didn't last long. I'd say, and don't forget I was worked up and chasing my own climax so my perception could be off, but to my estimate we were at it for no more than two minutes. I was rubbing my clitoris and jerking my hips up, loving the texture of a young guy's hard muscles as I rubbed one hand over my lover's back when he gave a bellow and his whole body stiffened. He pushed deep into me and I actually felt his dick throb. 
+"Give me that," I panted. 
 
- "He's cumming," I yelped. "Yes, do it, baby. Cum for me. Let it all go." 
+The bemused man gawped down at the jonny- bag, the teat, heavy with spunk dangling. 
 
- I kept on with my vigorous manipulation of my own pussy, teasing the slippery bud of my clit and fingering my now gaping opening when the boy slid out of me. 
+He pointed. "This?" 
 
- "Give me that," I panted. 
+"Don't spill any," I snarled when he began to yank the thing off his flagging dick. "Just hand it to me with all that cum inside." 
 
- The bemused man gawped down at the jonny- bag, the teat, heavy with spunk dangling. 
+The young bloke swallowed and swore with disbelief, the crowd around me gasping collectively when I took hold of the condom and tipped the contents over my chest. 
 
- He pointed. "This?" 
+"Cover me in cum, boys," I grinned. 
 
- "Don't spill any," I snarled when he began to yank the thing off his flagging dick. "Just hand it to me with all that cum inside." 
-
- The young bloke swallowed and swore with disbelief, the crowd around me gasping collectively when I took hold of the condom and tipped the contents over my chest. 
-
- "Cover me in cum, boys," I grinned. 
-
- At that point, with spunk sliding over my body, ready for another hard dick in my mouth or pussy – or more probably, both – I heard a moan, a female groan of pleasure.  
-
- 
-
- 
+At that point, with spunk sliding over my body, ready for another hard dick in my mouth or pussy – or more probably, both – I heard a moan, a female groan of pleasure.  
 
 ===
 
 Emma! I'd forgotten all about her. 
 
- When I struggled to my feet – bloody high heels snagging on that stupid blanket – I walked around to the far side of the Jag and found my husband balls deep in the police woman. They were on another blanket, a group of men surrounding them, twelve or so, a slightly larger number than had been watching me I was miffed to notice. Emma was on her hands and knees already stripped down to her stockings. Her skirt, blouse and bra were piled into a heap on the grass, her big jugs swinging while my husband held her hips and gave her the good news. 
+When I struggled to my feet – bloody high heels snagging on that stupid blanket – I walked around to the far side of the Jag and found my husband balls deep in the police woman. They were on another blanket, a group of men surrounding them, twelve or so, a slightly larger number than had been watching me I was miffed to notice. Emma was on her hands and knees already stripped down to her stockings. Her skirt, blouse and bra were piled into a heap on the grass, her big jugs swinging while my husband held her hips and gave her the good news. 
 
- It appeared to me that I'd arrived just in time to witness his finale; I knew from the noises he made and his face screwed up like a wet dishcloth that he was about to unload. 
+It appeared to me that I'd arrived just in time to witness his finale; I knew from the noises he made and his face screwed up like a wet dishcloth that he was about to unload. 
 
- "Oh shit ... Oh fuck..." hubby moaned. 
+"Oh shit ... Oh fuck..." hubby moaned. 
 
- "Are you cumming?" I heard Emma squeal. "Are you going to fill me with spunk?" 
+"Are you cumming?" I heard Emma squeal. "Are you going to fill me with spunk?" 
 
- He was bareback inside her again! He was going to squirt jizm into Emma's body. 
+He was bareback inside her again! He was going to squirt jizm into Emma's body. 
 
- The thought of it, my husband dumping his semen into another woman, had a curious effect on me. For some reason, unlike when they'd coupled in the living room at home, part of me was jealous, disturbed by the fact that another woman was going to take the seed that belonged to me. On the other hand, seeing hubby grunting and moaning as he squirted cum into the gorgeous Emma made me feel all fluttery inside. My clit throbbed and my breasts ached for a man's hands to maul at them. Besides, I could hardly voice an objection, not since I'd fucked the cum out of the young guy a few moments before. I'd wanted to get into dogging and I loved it, I could hardly complain if my husband stuck his hard-on into another woman. 
+The thought of it, my husband dumping his semen into another woman, had a curious effect on me. For some reason, unlike when they'd coupled in the living room at home, part of me was jealous, disturbed by the fact that another woman was going to take the seed that belonged to me. On the other hand, seeing hubby grunting and moaning as he squirted cum into the gorgeous Emma made me feel all fluttery inside. My clit throbbed and my breasts ached for a man's hands to maul at them. Besides, I could hardly voice an objection, not since I'd fucked the cum out of the young guy a few moments before. I'd wanted to get into dogging and I loved it, I could hardly complain if my husband stuck his hard-on into another woman. 
 
- But the bareback thing did rankle a little. It seemed worse, somehow more intimate than fucking a dozen guys with their flesh separated from mine by a thin veneer of rubber. 
+But the bareback thing did rankle a little. It seemed worse, somehow more intimate than fucking a dozen guys with their flesh separated from mine by a thin veneer of rubber. 
 
- Wallowing down the acidic jealousy that rose in my throat, I made my way to the blanket and knelt beside Emma. My husband turned to face me, his eyes glazed. 
+Wallowing down the acidic jealousy that rose in my throat, I made my way to the blanket and knelt beside Emma. My husband turned to face me, his eyes glazed. 
 
- "Give it to her," I breathed before I kissed my husband's mouth. 
+"Give it to her," I breathed before I kissed my husband's mouth. 
 
- The kiss went on for a few seconds, my tongue invading hubby's mouth while I smeared the spunk I'd poured from the jonny over my breasts. 
+The kiss went on for a few seconds, my tongue invading hubby's mouth while I smeared the spunk I'd poured from the jonny over my breasts. 
 
- When we broke apart and my husband's dick slid out of Emma's body on a rush of semen, I got behind her and lapped the stuff from her slit. After that, with me settling onto my hands and knees alongside the other woman, it got crazy. 
+When we broke apart and my husband's dick slid out of Emma's body on a rush of semen, I got behind her and lapped the stuff from her slit. After that, with me settling onto my hands and knees alongside the other woman, it got crazy. 
 
- My husband, with his jeans back on by then, dropped a handful of foil packets onto the grass next to the blanket. "If you fuck them," he called, "put one of these on," and for the next half-an-hour we had cocks thrust at us from all sides. Somehow, I don't recall exactly when, but I eventually found myself stripped down to my underwear and shoes. It was a fantastic feeling being undressed like that outdoors with all those men. 
+My husband, with his jeans back on by then, dropped a handful of foil packets onto the grass next to the blanket. "If you fuck them," he called, "put one of these on," and for the next half-an-hour we had cocks thrust at us from all sides. Somehow, I don't recall exactly when, but I eventually found myself stripped down to my underwear and shoes. It was a fantastic feeling being undressed like that outdoors with all those men. 
 
- I can't tell you how many guys fucked me and poured jizm, at my squealing instruction, over me. I sucked dick and got showered in spunk. The stuff was all over me. I could feel it dribbling down my back, drying on my shoulder and, when I pushed my fingers through my matted hair, I felt more gloop gluing the strands together. 
+I can't tell you how many guys fucked me and poured jizm, at my squealing instruction, over me. I sucked dick and got showered in spunk. The stuff was all over me. I could feel it dribbling down my back, drying on my shoulder and, when I pushed my fingers through my matted hair, I felt more gloop gluing the strands together. 
 
- I looked at Emma and saw how I must look. She was plastered with the stuff as well. It was everywhere. 
+I looked at Emma and saw how I must look. She was plastered with the stuff as well. It was everywhere. 
 
- "You slut," I grinned before crawling over towards her. 
+"You slut," I grinned before crawling over towards her. 
 
- "Says you," Emma replied, matching my grin. 
+"Says you," Emma replied, matching my grin. 
 
- By some unspoken agreement we kissed, our tongues swirling while we knelt there, our audience muttering and jerking hard cocks. I licked cum from Emma's cheek and slid my tongue back into her mouth, my palms and fingers smearing gloop over her big tits. 
+By some unspoken agreement we kissed, our tongues swirling while we knelt there, our audience muttering and jerking hard cocks. I licked cum from Emma's cheek and slid my tongue back into her mouth, my palms and fingers smearing gloop over her big tits. 
 
- When she lay back and opened her legs in invitation I leaned in, elbows on the blanket, arse high. I sucked Emma's clit and fingered her pussy while getting myself fucked from behind, taking the woman to her climax at the same time as the bloke pumping at me groaned his intention and pumped his condom full of semen. I grabbed the jonny off him and lay alongside Emma as her orgasm cooled. 
+When she lay back and opened her legs in invitation I leaned in, elbows on the blanket, arse high. I sucked Emma's clit and fingered her pussy while getting myself fucked from behind, taking the woman to her climax at the same time as the bloke pumping at me groaned his intention and pumped his condom full of semen. I grabbed the jonny off him and lay alongside Emma as her orgasm cooled. 
 
- "My turn," I sighed and tilted the filmy sac so that spunk dribbled over my pussy. "Lick my cunt," I snarled at Emma as I rubbed cum over my clit. "Lick spunk off me." 
+"My turn," I sighed and tilted the filmy sac so that spunk dribbled over my pussy. "Lick my cunt," I snarled at Emma as I rubbed cum over my clit. "Lick spunk off me." 
 
- Emma's tongue slipped over my clitoris as she pumped two fingers inside me. I held my legs open as wide as I could manage and looked up at the faces surrounding me. I wanted to give the boys the most obscene show I could manage; I wanted them to leave that scene of debauchery and remember me for a long time. 
+Emma's tongue slipped over my clitoris as she pumped two fingers inside me. I held my legs open as wide as I could manage and looked up at the faces surrounding me. I wanted to give the boys the most obscene show I could manage; I wanted them to leave that scene of debauchery and remember me for a long time. 
 
- I was snarling obscenities, spitting every filthy swear word I could recall while Emma's fingers curled inside me. I knew I was on the way to a shattering orgasm, and I could see by the number of jerking forearms in the crowd that a few of the blokes were going to get there with me. 
+I was snarling obscenities, spitting every filthy swear word I could recall while Emma's fingers curled inside me. I knew I was on the way to a shattering orgasm, and I could see by the number of jerking forearms in the crowd that a few of the blokes were going to get there with me. 
 
- As I came, groaning and grunting, my jaw clamped shut, teeth clenched and with what felt like every muscle in my body tensing with effort, I pushed Emma away and cried out that I wanted as many men as could manage it to cum on my pussy. 
+As I came, groaning and grunting, my jaw clamped shut, teeth clenched and with what felt like every muscle in my body tensing with effort, I pushed Emma away and cried out that I wanted as many men as could manage it to cum on my pussy. 
 
- My climax boiled on as two men, one kneeling and one squatting low, let fly with a rain of ejaculate. Blobs of spunk poured down on me, spattering onto my tummy, my thighs and overheated pussy. 
+My climax boiled on as two men, one kneeling and one squatting low, let fly with a rain of ejaculate. Blobs of spunk poured down on me, spattering onto my tummy, my thighs and overheated pussy. 
 
- When those two boys had finished another man gave me his load, the final spurting of the evening. 
+When those two boys had finished another man gave me his load, the final spurting of the evening. 
 
- Emma and I staggered to our feet and blinked at each other. I don't think either of us quite believed what had happened. Had we really let all those men fuck us? How many guys had there been? 
+Emma and I staggered to our feet and blinked at each other. I don't think either of us quite believed what had happened. Had we really let all those men fuck us? How many guys had there been? 
 
- Car doors slammed and engines revved. Vehicles left the car park on their sidelights, the guys astute enough to avoid full headlights until they were clear of the scene. 
+Car doors slammed and engines revved. Vehicles left the car park on their sidelights, the guys astute enough to avoid full headlights until they were clear of the scene. 
 
- Finally, after a couple of the men who had stayed behind for a chat drove away, I looked at Emma. 
+Finally, after a couple of the men who had stayed behind for a chat drove away, I looked at Emma. 
 
- "Am I covered in the stuff, too?" 
+"Am I covered in the stuff, too?" 
 
- She smirked and nodded. "Like a plasterer's radio." Emma hefted her breasts in her palms and then wiped the back of a hand over her cheek. "I can feel it drying." She pulled a face, stretching the crust on her skin. Pointing at me, she added, "Your hair is all stuck together. And look at the state of our stockings." 
+She smirked and nodded. "Like a plasterer's radio." Emma hefted her breasts in her palms and then wiped the back of a hand over her cheek. "I can feel it drying." She pulled a face, stretching the crust on her skin. Pointing at me, she added, "Your hair is all stuck together. And look at the state of our stockings." 
 
- Looking down I saw my stockings were a ruin of silvery cum, laddered to buggery. 
+Looking down I saw my stockings were a ruin of silvery cum, laddered to buggery. 
 
- "We stink of sex," I said after sliding a hand between my legs and examining my smeared fingers. 
+"We stink of sex," I said after sliding a hand between my legs and examining my smeared fingers. 
 
- Emma smirked at me and nodded. "Fucking dirty, aren't we?" She dropped an eyelid onto one cheek in a slow, lascivious wink, saying, "So, when are we doing it again?" Report_Story 
+Emma smirked at me and nodded. "Fucking dirty, aren't we?" She dropped an eyelid onto one cheek in a slow, lascivious wink, saying, "So, when are we doing it again?" Report_Story 

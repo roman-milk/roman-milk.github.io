@@ -2,140 +2,132 @@ First Time Dogging
 ==================
 #1 
 
- 
-
- 
-
 ===
 
 Just a short stroker this time. The scene sees a woman enjoying her first dogging session. I hope you enjoy it despite the brevity and female, first- person POV. It's a slight departure from my usual, the reason being it was written for someone who wanted it short and nasty. 
 
- I wouldn't mind some feedback, as usual. Apologies for any fuck-ups or typos, etc; I do check, but sometimes these things escape my notice. 
+I wouldn't mind some feedback, as usual. Apologies for any fuck-ups or typos, etc; I do check, but sometimes these things escape my notice. 
 
- OK, here it is. 
+OK, here it is. 
 
- GA – Thirsk, England – 30th April 2013. 
+GA – Thirsk, England – 30th April 2013. 
 
- 
+God, was I nervous that first time. I remember walking from the car to the bench, my stomach churning like a washing machine, legs trembling while I imagined them all staring at me. There were already six or seven cars in the secluded car park when we arrived, and one more pulled in behind me as I made that lonely walk. 
 
- 
+When I got to the bench, before I sat down, as instructed by my hubby as I got out of the car, I unbuttoned the front of the dress from the hem to my waist. I let the dress fall open and showed off my stockings when I sat down on the cold wooden slats. 
 
- God, was I nervous that first time. I remember walking from the car to the bench, my stomach churning like a washing machine, legs trembling while I imagined them all staring at me. There were already six or seven cars in the secluded car park when we arrived, and one more pulled in behind me as I made that lonely walk. 
+As I sat there, with my legs apart and my knickers packed with pussy, I felt their eyes on me. I could feel the heat of their stares and imagined those red dots you see on films and television when a sniper has a target in his sights, and I wondered how many dots would be centred on the gusset of my underwear at that very second. 
 
- When I got to the bench, before I sat down, as instructed by my hubby as I got out of the car, I unbuttoned the front of the dress from the hem to my waist. I let the dress fall open and showed off my stockings when I sat down on the cold wooden slats. 
+I leaned back against the bench and tried to appear casual, nonchalant and without a care in the world while I spread my thighs and tried to give my audience the best view I could. Despite my careless attitude, arms spread across the back of the bench, I felt elephants' feet dancing in my tummy. It was my first time and I was nervous as hell. 
 
- As I sat there, with my legs apart and my knickers packed with pussy, I felt their eyes on me. I could feel the heat of their stares and imagined those red dots you see on films and television when a sniper has a target in his sights, and I wondered how many dots would be centred on the gusset of my underwear at that very second. 
+The shock of a car door slamming made my heart leap in my chest and, realising this was it, the moment of truth, I forgot to breathe for a few moments. 
 
- I leaned back against the bench and tried to appear casual, nonchalant and without a care in the world while I spread my thighs and tried to give my audience the best view I could. Despite my careless attitude, arms spread across the back of the bench, I felt elephants' feet dancing in my tummy. It was my first time and I was nervous as hell. 
+The first one approached, his feet crunching on the gravel as I stared at him like a rabbit caught in headlights. I noticed he wasn't bad looking – probably in his forties, dark hair and with a decent physique on him, what little I could make out in his jeans and jumper anyway. 
 
- The shock of a car door slamming made my heart leap in my chest and, realising this was it, the moment of truth, I forgot to breathe for a few moments. 
+He came up to me and stopped, his eyes locked on mine. 
 
- The first one approached, his feet crunching on the gravel as I stared at him like a rabbit caught in headlights. I noticed he wasn't bad looking – probably in his forties, dark hair and with a decent physique on him, what little I could make out in his jeans and jumper anyway. 
+"Not seen you before," he said, nodding slowly. "But I like what I'm seeing." The man thrust his chin towards me, a finger pointing between my legs. "You gonna take those knickers off?" 
 
- He came up to me and stopped, his eyes locked on mine. 
+"Do you want me to?" I asked, my voice creaking like a door with rusting hinges. 
 
- "Not seen you before," he said, nodding slowly. "But I like what I'm seeing." The man thrust his chin towards me, a finger pointing between my legs. "You gonna take those knickers off?" 
+He nodded at me, eyes gleaming. "Oh yeah, let's have a look at that cunt." 
 
- "Do you want me to?" I asked, my voice creaking like a door with rusting hinges. 
+The word sent a shiver through me. It was so coarse, so dirty, and its use shocked me. But despite that shock I experienced a delicious thrill of arousal between my legs, a clenching inside and a dribble of lust that leaked into my underwear. 
 
- He nodded at me, eyes gleaming. "Oh yeah, let's have a look at that cunt." 
+I stood up, cheeks burning, and hooked the waistband of my underwear with my thumbs. Closing my eyes I to avoid that intense stare and his grin, I slid my knickers down my legs. 
 
- The word sent a shiver through me. It was so coarse, so dirty, and its use shocked me. But despite that shock I experienced a delicious thrill of arousal between my legs, a clenching inside and a dribble of lust that leaked into my underwear. 
+"Fuck, yeah," I heard the man murmur after I sat down and opened my legs for him. "Just look at you." 
 
- I stood up, cheeks burning, and hooked the waistband of my underwear with my thumbs. Closing my eyes I to avoid that intense stare and his grin, I slid my knickers down my legs. 
+My eyes snapped open when I heard the snick of another car door opening, and while the second bloke approached I saw the dark-haired man had unzipped and was slowly stroking his cock. I gasped when I saw the gnarled, veiny thing in his fist – It was so fucking thick! 
 
- "Fuck, yeah," I heard the man murmur after I sat down and opened my legs for him. "Just look at you." 
+"Big ain't it," the man said, a statement of fact, not a question. It was undeniable, he had a huge dick. "Touch it," he muttered just as the second man arrived at his side. "Go on, put your fingers around it and have a feel." 
 
- My eyes snapped open when I heard the snick of another car door opening, and while the second bloke approached I saw the dark-haired man had unzipped and was slowly stroking his cock. I gasped when I saw the gnarled, veiny thing in his fist – It was so fucking thick! 
+"Oh fuck," I groaned when, after a brief hesitation I leaned forward and took that terrible thing in hand. 
 
- "Big ain't it," the man said, a statement of fact, not a question. It was undeniable, he had a huge dick. "Touch it," he muttered just as the second man arrived at his side. "Go on, put your fingers around it and have a feel." 
+"Stroke it," the man whispered. "Wank that fucker. Feel how fucking stiff it is." 
 
- "Oh fuck," I groaned when, after a brief hesitation I leaned forward and took that terrible thing in hand. 
+The second man hauled his cock into view, eyes flicking between my face, my bare pussy and my fist cranking at the first bloke's cock. "You gonna suck it?" he asked. 
 
- "Stroke it," the man whispered. "Wank that fucker. Feel how fucking stiff it is." 
+I glanced at him, unsure. That wasn't the deal; in fact I shouldn't have even been touching a cock at all. The plan had been for me to show the boys some skin, to simply exhibit myself for their pervy pleasure and then watch them wank off while I fingered my own gooey cunt, but the excitement had overwhelmed me and I'd already lost control. My eyes moved from the second man towards my car. I could see the silhouette of my husband inside and wondered what was going through his mind. 
 
- The second man hauled his cock into view, eyes flicking between my face, my bare pussy and my fist cranking at the first bloke's cock. "You gonna suck it?" he asked. 
+Then the first man sighed, a response to my lips being wrapped around the huge dome of his cock-head as I took him into my mouth. I felt his fingers push through my hair while I slurped and slobbered at his shaft, my hand working the root of his dick close to his swinging balls. 
 
- I glanced at him, unsure. That wasn't the deal; in fact I shouldn't have even been touching a cock at all. The plan had been for me to show the boys some skin, to simply exhibit myself for their pervy pleasure and then watch them wank off while I fingered my own gooey cunt, but the excitement had overwhelmed me and I'd already lost control. My eyes moved from the second man towards my car. I could see the silhouette of my husband inside and wondered what was going through his mind. 
+I heard a whimper, a low drawn out moan coming from my own throat, muffled and indistinct since my mouth was wedged tight with gristle. I was fingering my pussy by then, rubbing my clit in an attempt to salve the burning itch between my legs. 
 
- Then the first man sighed, a response to my lips being wrapped around the huge dome of his cock-head as I took him into my mouth. I felt his fingers push through my hair while I slurped and slobbered at his shaft, my hand working the root of his dick close to his swinging balls. 
+I heard car doors closing, a sound soon followed by the crunch of feet on gravel, and when I looked up, pre-cum smeared around my lips, I saw a gathering of glassy-eyed men in a half-circle around the bench. 
 
- I heard a whimper, a low drawn out moan coming from my own throat, muffled and indistinct since my mouth was wedged tight with gristle. I was fingering my pussy by then, rubbing my clit in an attempt to salve the burning itch between my legs. 
+They were a mixed bunch, a couple of youngish blokes, some middle-aged, and one or two, in normal circumstances, I wouldn't have even dreamt of looking at twice. But these weren't normal circumstances, they were quite extraordinary to me, this was my first time out dogging and I was so fucking horny all I could see was hard cocks and I didn't give a stuff if the guy was bald and tubby. Right then, my pussy snarling, all I cared about was salving the itch between my legs, and if I had to suck and fuck every last one of those men, I would. 
 
- I heard car doors closing, a sound soon followed by the crunch of feet on gravel, and when I looked up, pre-cum smeared around my lips, I saw a gathering of glassy-eyed men in a half-circle around the bench. 
+Soon enough I had the first bloke's girth stretching my lips again, but this time I had a cock in each hand and was wanking away like a demented skier. 
 
- They were a mixed bunch, a couple of youngish blokes, some middle-aged, and one or two, in normal circumstances, I wouldn't have even dreamt of looking at twice. But these weren't normal circumstances, they were quite extraordinary to me, this was my first time out dogging and I was so fucking horny all I could see was hard cocks and I didn't give a stuff if the guy was bald and tubby. Right then, my pussy snarling, all I cared about was salving the itch between my legs, and if I had to suck and fuck every last one of those men, I would. 
+Those men treated me like I was some kind of slut, a dirty slapper for their sordid entertainment. They poked their dicks in my face and ran their hands over my body. One guy sat next to me on the bench and stroked my stockings, feeling my thighs before he slid his hand between my legs. 
 
- Soon enough I had the first bloke's girth stretching my lips again, but this time I had a cock in each hand and was wanking away like a demented skier. 
+"She's fucking soaking," I heard him gasp to the assembled group. "It's like she's pissed herself. Her cunt's so wet." 
 
- Those men treated me like I was some kind of slut, a dirty slapper for their sordid entertainment. They poked their dicks in my face and ran their hands over my body. One guy sat next to me on the bench and stroked my stockings, feeling my thighs before he slid his hand between my legs. 
+One of the men went around behind me and yanked at my coat. With someone's cock in my mouth I pulled my arms out of the sleeves while another bloke's fingers plucked at the buttons on my dress. When it gaped open fully, my bra exposed, I heard a collective gasp come from the men. 
 
- "She's fucking soaking," I heard him gasp to the assembled group. "It's like she's pissed herself. Her cunt's so wet." 
+They called me names; all kinds of filthy appellations that would have offended me deeply if I'd heard them shouted at me in the street. However, in that car park, surrounded by hard cocks and with my pussy bare, the rest of me almost naked, I was exactly what they called me. I knew I was a cock-hungry slut; I knew I was a tart for sucking strangers' dicks. I loved to hear them describing me in the most obscene terms. Hearing them talking about my cunt and my tits and about how I was so wet and horny only made me wetter and hornier. 
 
- One of the men went around behind me and yanked at my coat. With someone's cock in my mouth I pulled my arms out of the sleeves while another bloke's fingers plucked at the buttons on my dress. When it gaped open fully, my bra exposed, I heard a collective gasp come from the men. 
+And then, when he touched me on the shoulder and told me to stand up, I saw the first man, the good-looking bloke with the big cock rolling a condom over himself. 
 
- They called me names; all kinds of filthy appellations that would have offended me deeply if I'd heard them shouted at me in the street. However, in that car park, surrounded by hard cocks and with my pussy bare, the rest of me almost naked, I was exactly what they called me. I knew I was a cock-hungry slut; I knew I was a tart for sucking strangers' dicks. I loved to hear them describing me in the most obscene terms. Hearing them talking about my cunt and my tits and about how I was so wet and horny only made me wetter and hornier. 
+"Stand up and then sit on this," he grinned. "Come on; get your cunt on it. Let's see how you fuck." 
 
- And then, when he touched me on the shoulder and told me to stand up, I saw the first man, the good-looking bloke with the big cock rolling a condom over himself. 
+Not quite believing I was actually going to do it, I rose to my feet and threw a leg over the man's thighs. He held himself upright and I lowered myself towards him, splaying my dangling labia with my fingers. I took control of the man's cock while he steadied me with his hands around my waist. Lowering myself further I felt the dome nudge my body. Then, another inch or two lower and I felt him penetrate me. 
 
- "Stand up and then sit on this," he grinned. "Come on; get your cunt on it. Let's see how you fuck." 
+"Oh my God," I gasped, "we're going to fuck." Some of the men laughed at that, a ribald burst of amusement that sounded loud in the remote setting of that car park. It might have been an obvious, maybe even a silly thing, to say, but it was just so unbelievable to me; I didn't ever think I could do this, it just wasn't like me at all. 
 
- Not quite believing I was actually going to do it, I rose to my feet and threw a leg over the man's thighs. He held himself upright and I lowered myself towards him, splaying my dangling labia with my fingers. I took control of the man's cock while he steadied me with his hands around my waist. Lowering myself further I felt the dome nudge my body. Then, another inch or two lower and I felt him penetrate me. 
+But there was no denying it for there we were, right on the verge of fucking. 
 
- "Oh my God," I gasped, "we're going to fuck." Some of the men laughed at that, a ribald burst of amusement that sounded loud in the remote setting of that car park. It might have been an obvious, maybe even a silly thing, to say, but it was just so unbelievable to me; I didn't ever think I could do this, it just wasn't like me at all. 
+"Come on," I heard the man grunt. "Get that cunt around my cock, you fucking slut." 
 
- But there was no denying it for there we were, right on the verge of fucking. 
+I felt my body taking some of his length, the girth of him spreading me open. 
 
- "Come on," I heard the man grunt. "Get that cunt around my cock, you fucking slut." 
+I rose up slightly and moaned, "Oh, fuck, you're going to split me in two." And then a great groan curdled out of me as I slid down onto him and took that big fucking thing balls deep. 
 
- I felt my body taking some of his length, the girth of him spreading me open. 
+He gripped my waist and controlled me, lifting me up and then pulling me back down. I groaned and grunted and swore when that cock filled me up, but when I opened my eyes and looked out at the crowd, I saw another dick waggling at me. Reaching for it, leaning forward to grab it, I opened my mouth and sucked the big plum of the knob-end. 
 
- I rose up slightly and moaned, "Oh, fuck, you're going to split me in two." And then a great groan curdled out of me as I slid down onto him and took that big fucking thing balls deep. 
+The man came immediately, spunk splashing across my cheek when his groan alerted me to the fact he was about to blow his load and I let his dick slip from my lips. More spurts flicked from the eye of the cock, with some drops splashing against my shoulder and staining my dress. The man staggered away from me, his penis dribbling cum while the bloke fucking me eased me onto my side on the bench. 
 
- He gripped my waist and controlled me, lifting me up and then pulling me back down. I groaned and grunted and swore when that cock filled me up, but when I opened my eyes and looked out at the crowd, I saw another dick waggling at me. Reaching for it, leaning forward to grab it, I opened my mouth and sucked the big plum of the knob-end. 
+It was bloody uncomfortable like that, what with my hip forced hard against the wooden slat of the seat, one leg raised so that big cock could slide in and out of me more easily, but I soon got over it when the man began to move inside me again. 
 
- The man came immediately, spunk splashing across my cheek when his groan alerted me to the fact he was about to blow his load and I let his dick slip from my lips. More spurts flicked from the eye of the cock, with some drops splashing against my shoulder and staining my dress. The man staggered away from me, his penis dribbling cum while the bloke fucking me eased me onto my side on the bench. 
+I was groaning and moaning and fingering my clit while I took the man's cock into my body. His hands mauled at my tits, pulling them free from my bra while another man, cock in his fist, was there in front of my face. He waggled his dick in invitation, and when I opened my mouth to accommodate him, the bloke fucked into my mouth, hips jerking with his desperation. I coughed and gagged and pushed at his belly with one hand, a long strand of silvery drool hanging from my chin while yet another man aimed his cock at my face and, with a severe cranking of his fist ,sprayed me right in the face with jizm. 
 
- It was bloody uncomfortable like that, what with my hip forced hard against the wooden slat of the seat, one leg raised so that big cock could slide in and out of me more easily, but I soon got over it when the man began to move inside me again. 
+"Cover me, boys," I babbled, my finger quick against my clit. "Spunk all over me, plaster me in cum." 
 
- I was groaning and moaning and fingering my clit while I took the man's cock into my body. His hands mauled at my tits, pulling them free from my bra while another man, cock in his fist, was there in front of my face. He waggled his dick in invitation, and when I opened my mouth to accommodate him, the bloke fucked into my mouth, hips jerking with his desperation. I coughed and gagged and pushed at his belly with one hand, a long strand of silvery drool hanging from my chin while yet another man aimed his cock at my face and, with a severe cranking of his fist ,sprayed me right in the face with jizm. 
+I poked out my tongue and licked as much cum from around my mouth as I could find. 
 
- "Cover me, boys," I babbled, my finger quick against my clit. "Spunk all over me, plaster me in cum." 
+"You fucking slut," I heard someone moan. 
 
- I poked out my tongue and licked as much cum from around my mouth as I could find. 
+"I'm coming," the man fucking me grunted. He held my hips and gave several deep, hard thrusts. "I'm fucking coming ..." 
 
- "You fucking slut," I heard someone moan. 
+His pulsing cock and the insistent pressure of my own fingers on my clit got me there as well. I came and came, sobbing and gasping while my body juddered and my thighs convulsed in spasms of sheer pleasure. 
 
- "I'm coming," the man fucking me grunted. He held my hips and gave several deep, hard thrusts. "I'm fucking coming ..." 
+When the man slid his cock out of me I shoved against the bench with one arm and heaved upright. I pointed to the cum-filled condom dangling off his cock. "Give that to me," I said, between gasps for air. 
 
- His pulsing cock and the insistent pressure of my own fingers on my clit got me there as well. I came and came, sobbing and gasping while my body juddered and my thighs convulsed in spasms of sheer pleasure. 
+"This?" the man said, pointing at the giblet hanging from him. "You want the jonny?" 
 
- When the man slid his cock out of me I shoved against the bench with one arm and heaved upright. I pointed to the cum-filled condom dangling off his cock. "Give that to me," I said, between gasps for air. 
+I nodded and took it from him after he peeled it off. 
 
- "This?" the man said, pointing at the giblet hanging from him. "You want the jonny?" 
+"More spunk," I sighed, upending the opaque and shrivelled bag so the cum inside slid out and covered my breasts. 
 
- I nodded and took it from him after he peeled it off. 
+And then I saw my husband. He stared at me, eyes glazed, jaw slack while he worked his hard-on with one hand. 
 
- "More spunk," I sighed, upending the opaque and shrivelled bag so the cum inside slid out and covered my breasts. 
+"You," I said to my hubby, pointing at him. "Get behind me and fuck me," I instructed. 
 
- And then I saw my husband. He stared at me, eyes glazed, jaw slack while he worked his hard-on with one hand. 
+"She's taking him bareback," a man muttered in surprise, obviously unaware that I was now taking my husband's cock into my cunt from behind. "I wish she'd let me do her bareback," the man added. "I'd fill her cunt with cream." 
 
- "You," I said to my hubby, pointing at him. "Get behind me and fuck me," I instructed. 
+And I think I would have let him too. The way I felt right then, with my hubby holding my hips and thrusting into me, all those men staring at me while I got fucked hard, I would have taken on the whole bloody lot of them. I'd have allowed every one of those dirty, perverted fuckers to have a go at me, fucked them all and just let them use me as a cum dump. 
 
- "She's taking him bareback," a man muttered in surprise, obviously unaware that I was now taking my husband's cock into my cunt from behind. "I wish she'd let me do her bareback," the man added. "I'd fill her cunt with cream." 
+"This is so fucking dirty," I moaned, screwing my hips and thrusting back against my husband. "You dirty bastards ... look at you all ..." My head lolled forward and I groaned. "Look at you lot staring at me getting fucked. I love it. I fucking love it!" 
 
- And I think I would have let him too. The way I felt right then, with my hubby holding my hips and thrusting into me, all those men staring at me while I got fucked hard, I would have taken on the whole bloody lot of them. I'd have allowed every one of those dirty, perverted fuckers to have a go at me, fucked them all and just let them use me as a cum dump. 
+They all grouped around, watching and yanking their cocks while my hubby pounded away behind me. The sound of our fucking made it better. The slap-slap- slap of flesh on flesh mixed with my groans and sighs, while, at the same time, I could hear my pussy squelching around my husband's stiff cock. 
 
- "This is so fucking dirty," I moaned, screwing my hips and thrusting back against my husband. "You dirty bastards ... look at you all ..." My head lolled forward and I groaned. "Look at you lot staring at me getting fucked. I love it. I fucking love it!" 
+After a few minutes of frantic rutting, with me thrusting my hips back to take his cock deeper, my hubby grunted and gave a huge bellow. I felt him tense, his fingers digging into me as his cock pulsed and then pumped jizm. When I felt my husband's seed fluttering inside me it got me there again, and I groaned and moaned and snarled out that I was coming. 
 
- They all grouped around, watching and yanking their cocks while my hubby pounded away behind me. The sound of our fucking made it better. The slap-slap- slap of flesh on flesh mixed with my groans and sighs, while, at the same time, I could hear my pussy squelching around my husband's stiff cock. 
+As soon as the cock slid out of me I walked around to the front of the bench, discarding my dress as I went. Next I squatted and held my flaps splayed with my fingertips, showing the boys the gape of my cunt as semen dribbled out of it and plopped to the gravel between my shoes. 
 
- After a few minutes of frantic rutting, with me thrusting my hips back to take his cock deeper, my hubby grunted and gave a huge bellow. I felt him tense, his fingers digging into me as his cock pulsed and then pumped jizm. When I felt my husband's seed fluttering inside me it got me there again, and I groaned and moaned and snarled out that I was coming. 
+They all came at me, pumping their dicks, thrusting cocks of all shapes and sizes into my face. I sucked and wanked them indiscriminately and felt their semen rain down onto me. There was goo on my face and more of the stuff running over my chest and tits. I let them come on my tongue, in my hair, all over me, and by the time the last guy stepped back I was covered in spunk. 
 
- As soon as the cock slid out of me I walked around to the front of the bench, discarding my dress as I went. Next I squatted and held my flaps splayed with my fingertips, showing the boys the gape of my cunt as semen dribbled out of it and plopped to the gravel between my shoes. 
+The drive home saw me sitting next to my husband, my dress plastered to my body where it stuck to all the cum I'd been bathed with. I could feel the stuff going all stiff in my hair and I could smell it coming off me. 
 
- They all came at me, pumping their dicks, thrusting cocks of all shapes and sizes into my face. I sucked and wanked them indiscriminately and felt their semen rain down onto me. There was goo on my face and more of the stuff running over my chest and tits. I let them come on my tongue, in my hair, all over me, and by the time the last guy stepped back I was covered in spunk. 
-
- The drive home saw me sitting next to my husband, my dress plastered to my body where it stuck to all the cum I'd been bathed with. I could feel the stuff going all stiff in my hair and I could smell it coming off me. 
-
- I fingered my gooey cunt and came as we motored along the road towards home, already thinking about my next dogging encounter. Report_Story 
+I fingered my gooey cunt and came as we motored along the road towards home, already thinking about my next dogging encounter. Report_Story 

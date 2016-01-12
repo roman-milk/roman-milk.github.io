@@ -2,980 +2,924 @@ New Family Tradition: Lezmas Eve
 ================================
 #1 
 
- 
-
- 
-
 ===
 
 Summary: Cousins learn of their moms' incestuous past... and present. 
 
- Thanks to Rebecca the famous artist whose artwork inspired and was used for this new series. Especially her series 'Housewives at Play', 'Teens at Play' and 'Hot Moms'. Thank you for access to your entire book catalogue as well as your website for this massive series. Also, thanks for the dialogue from an older comic of Rebecca's that is used as the basis of the plot for the final encounter. 
+Thanks to Rebecca the famous artist whose artwork inspired and was used for this new series. Especially her series 'Housewives at Play', 'Teens at Play' and 'Hot Moms'. Thank you for access to your entire book catalogue as well as your website for this massive series. Also, thanks for the dialogue from an older comic of Rebecca's that is used as the basis of the plot for the final encounter. 
 
- Note 1: This is a Christmas 2015 Contest Story so please vote. 
+Note 1: This is a Christmas 2015 Contest Story so please vote. 
 
- Note 2: Thanks to Robert, Wayne and goamz86. 
+Note 2: Thanks to Robert, Wayne and goamz86. 
 
- New Family Tradition: Lezmas Eve 
+New Family Tradition: Lezmas Eve 
 
- Every year since I can remember we have taken pictures as a family in Christmas costumes. We have done everything imaginable, from baby Jesus, to characters from the movie Elf, to awkward reindeer costumes, to ugly Christmas sweaters... just to name a few. 
+Every year since I can remember we have taken pictures as a family in Christmas costumes. We have done everything imaginable, from baby Jesus, to characters from the movie Elf, to awkward reindeer costumes, to ugly Christmas sweaters... just to name a few. 
 
- It was usually the three of us, Mom, Dad and I (me being the only child), but this year due to a snow storm my dad was stranded in Buffalo, having visited my great-nana before Christmas as we were heading for Hawaii the day after Christmas (when flights dropped drastically in price). 
+It was usually the three of us, Mom, Dad and I (me being the only child), but this year due to a snow storm my dad was stranded in Buffalo, having visited my great-nana before Christmas as we were heading for Hawaii the day after Christmas (when flights dropped drastically in price). 
 
- So Mom invited my cousin, Tara, who was literally the sister I never had over for the Christmas Eve tradition. I was three weeks older than Tara, although most thought she was older than me. 
+So Mom invited my cousin, Tara, who was literally the sister I never had over for the Christmas Eve tradition. I was three weeks older than Tara, although most thought she was older than me. 
 
- Mom came into my bedroom carrying bags and said, "Here are the costumes." 
+Mom came into my bedroom carrying bags and said, "Here are the costumes." 
 
- "What are we this year?" I asked, Mom always keeping the costumes under wraps (hahaha pun intended). 
+"What are we this year?" I asked, Mom always keeping the costumes under wraps (hahaha pun intended). 
 
- "Oh, I thought outside the box," she smiled. 
+"Oh, I thought outside the box," she smiled. 
 
- "Then why are you carrying bags?" I joked. 
+"Then why are you carrying bags?" I joked. 
 
- "Kylie," she sighed, "you are always trying to be funny." 
+"Kylie," she sighed, "you are always trying to be funny." 
 
- "I try," I shrugged. 
+"I try," I shrugged. 
 
- "You should stop," Mom said playfully. "Your father is the funny one." 
+"You should stop," Mom said playfully. "Your father is the funny one." 
 
- Tara quipped, "Oh, Kylie is very funny. For example, she thinks she has a love life." 
+Tara quipped, "Oh, Kylie is very funny. For example, she thinks she has a love life." 
 
- "I do," I countered, "it's the vibrator Mom bought me for my 18th birthday." 
+"I do," I countered, "it's the vibrator Mom bought me for my 18th birthday." 
 
- "I still can't believe you bought your daughter a vibrator, Aunt Sophia," Tara said, often telling me she wished her mom was as cool as mine. 
+"I still can't believe you bought your daughter a vibrator, Aunt Sophia," Tara said, often telling me she wished her mom was as cool as mine. 
 
- It was hard to argue. My mom is really cool. Besides buying me a vibrator on my 18th birthday, she was very supportive when I told her I was a lesbian. She did joke she still expected me to get pregnant and fat, because she did for me. That said, at eighteen, I had very limited experience with women. 
+It was hard to argue. My mom is really cool. Besides buying me a vibrator on my 18th birthday, she was very supportive when I told her I was a lesbian. She did joke she still expected me to get pregnant and fat, because she did for me. That said, at eighteen, I had very limited experience with women. 
 
- My first time was actually with Mrs. Waddington who I was babysitting for. She was going through a divorce, and came home quite drunk. 
+My first time was actually with Mrs. Waddington who I was babysitting for. She was going through a divorce, and came home quite drunk. 
 
- I was getting ready to leave when she said, all dramatic, "My life is pathetic." 
+I was getting ready to leave when she said, all dramatic, "My life is pathetic." 
 
- "No its not," I said, trying to be nice. 
+"No its not," I said, trying to be nice. 
 
- "I couldn't even get laid at a bar full of frat boys," she sighed. "I'm apparently ancient." 
+"I couldn't even get laid at a bar full of frat boys," she sighed. "I'm apparently ancient." 
 
- I consoled her. "No you're not. You are still a very pretty woman." Even though I wasn't sure I was a lesbian yet, I knew I was attracted to women, especially older women, and she was one of my fantasies I thought about while using my vibrator. 
+I consoled her. "No you're not. You are still a very pretty woman." Even though I wasn't sure I was a lesbian yet, I knew I was attracted to women, especially older women, and she was one of my fantasies I thought about while using my vibrator. 
 
- "You think so?" she asked, looking at me. 
+"You think so?" she asked, looking at me. 
 
- "I know so," I continued. "Boys are stupid." 
+"I know so," I continued. "Boys are stupid." 
 
- "Men are worse," she countered, moving to me. 
+"Men are worse," she countered, moving to me. 
 
- I felt a shift in the room. I felt my pussy tingle. I felt her look deep inside me. 
+I felt a shift in the room. I felt my pussy tingle. I felt her look deep inside me. 
 
- She said, "You have a crush on me, don't you?" 
+She said, "You have a crush on me, don't you?" 
 
- I could feel my cheeks go red. Yet, no words escaped my lips. 
+I could feel my cheeks go red. Yet, no words escaped my lips. 
 
- She smiled, her hand going under my skirt. "I'll take the silence and the sudden redness of your cheeks as a yes." 
+She smiled, her hand going under my skirt. "I'll take the silence and the sudden redness of your cheeks as a yes." 
 
- I moaned the instant her hand slid underneath my panties. 
+I moaned the instant her hand slid underneath my panties. 
 
- "You're quite wet," she purred as she kissed me. 
+"You're quite wet," she purred as she kissed me. 
 
- I was paralyzed with indecision. Yet, after a moment, I returned the kiss, her lips so soft and tender, unlike the few boys I had kissed. I had sucked three cocks and been fingered twice and each of those encounters had done nothing for me. 
+I was paralyzed with indecision. Yet, after a moment, I returned the kiss, her lips so soft and tender, unlike the few boys I had kissed. I had sucked three cocks and been fingered twice and each of those encounters had done nothing for me. 
 
- Yet this kiss and her finger slowly teasing my pussy lips had my knees week and my head light. 
+Yet this kiss and her finger slowly teasing my pussy lips had my knees week and my head light. 
 
- Breaking the kiss, she said, "Get undressed, Kylie, I want to see that young ripe body of yours." 
+Breaking the kiss, she said, "Get undressed, Kylie, I want to see that young ripe body of yours." 
 
- "Okay," I nodded, not hesitating at all. The kiss felt so natural and I had fantasies that went just like this. As I got undressed, Mrs. Waddington took her skirt off too... and then her panties. 
+"Okay," I nodded, not hesitating at all. The kiss felt so natural and I had fantasies that went just like this. As I got undressed, Mrs. Waddington took her skirt off too... and then her panties. 
 
- Once I was naked, she knelt in front of me and asked, "Every had your pussy licked?" 
+Once I was naked, she knelt in front of me and asked, "Every had your pussy licked?" 
 
- "No," I said, each guy saying it was gross, which was ironic because so was sucking their sweaty, dirty dicks. 
+"No," I said, each guy saying it was gross, which was ironic because so was sucking their sweaty, dirty dicks. 
 
- "Oh my," she said. "Then get ready to have your world rocked." 
+"Oh my," she said. "Then get ready to have your world rocked." 
 
- Before I could respond, she leaned in and began licking my pussy. I literally saw fireworks as one of my biggest fantasies came true and my questioning of my own sexuality made sense with one intimate kiss, one sweet lick down below. I moaned, "Oh my God." 
+Before I could respond, she leaned in and began licking my pussy. I literally saw fireworks as one of my biggest fantasies came true and my questioning of my own sexuality made sense with one intimate kiss, one sweet lick down below. I moaned, "Oh my God." 
 
- "You taste so sweet, Kylie," she purred, as she continued licking me. 
+"You taste so sweet, Kylie," she purred, as she continued licking me. 
 
- "I can't believe this is happening," I said, my orgasm building very quickly. 
+"I can't believe this is happening," I said, my orgasm building very quickly. 
 
- "Do you want me to stop?" she asked. 
+"Do you want me to stop?" she asked. 
 
- "God, no," I said with urgency. 
+"God, no," I said with urgency. 
 
- She laughed softly, as she said, "I've known you wanted me for a while, my dear. I just wasn't sure how to get you naked." 
+She laughed softly, as she said, "I've known you wanted me for a while, my dear. I just wasn't sure how to get you naked." 
 
- "You should have just asked," I joked, even as my moans increased. 
+"You should have just asked," I joked, even as my moans increased. 
 
- "May I lick your pussy, baby, until you come all over my face?" she asked. 
+"May I lick your pussy, baby, until you come all over my face?" she asked. 
 
- "God, yes," I moaned, her words and tongue getting me close to eruption in less than two minutes. 
+"God, yes," I moaned, her words and tongue getting me close to eruption in less than two minutes. 
 
- She suddenly moved to my clit and flicked it with her tongue. 
+She suddenly moved to my clit and flicked it with her tongue. 
 
- That was all it took. I barely held back a scream as the most intense orgasm of my young life flooded out of me. 
+That was all it took. I barely held back a scream as the most intense orgasm of my young life flooded out of me. 
 
- "So yummy," she purred, as she licked and licked my pussy as my cum leaked out of me. 
+"So yummy," she purred, as she licked and licked my pussy as my cum leaked out of me. 
 
- Once done, she stood up and kissed me again. 
+Once done, she stood up and kissed me again. 
 
- I apologized, "Sorry, I came faster than a guy." 
+I apologized, "Sorry, I came faster than a guy." 
 
- She shrugged, as she hopped up onto a table and spread her legs, "I doubt I'll last much longer. I've wanted your pretty face buried between my legs for a long time." 
+She shrugged, as she hopped up onto a table and spread her legs, "I doubt I'll last much longer. I've wanted your pretty face buried between my legs for a long time." 
 
- "Really?" I asked. 
+"Really?" I asked. 
 
- "Yes," she nodded. "Now come and taste my honey." 
+"Yes," she nodded. "Now come and taste my honey." 
 
- I didn't need to be told twice. I moved between her legs, dropped to my knees and stared at her completely shaved pussy. I wondered instantly if I should shave mine. I took a deep breath, surprised by the exotic scent that exuded from her pussy. 
+I didn't need to be told twice. I moved between her legs, dropped to my knees and stared at her completely shaved pussy. I wondered instantly if I should shave mine. I took a deep breath, surprised by the exotic scent that exuded from her pussy. 
 
- She purred, "Go ahead, my dear, lick my pussy." 
+She purred, "Go ahead, my dear, lick my pussy." 
 
- I said, staring at her pussy, "I can't believe we are doing this." 
+I said, staring at her pussy, "I can't believe we are doing this." 
 
- "I can't believe we have wasted all those times we both wanted to munch on each other's pussies," she replied, as she grabbed my head and guided me the last couple of inches and helped me cross the line from straight to, well, not straight. 
+"I can't believe we have wasted all those times we both wanted to munch on each other's pussies," she replied, as she grabbed my head and guided me the last couple of inches and helped me cross the line from straight to, well, not straight. 
 
- I extended my tongue and licked. 
+I extended my tongue and licked. 
 
- One lick and every last lingering doubt of whether or not I was a lesbian was answered. All my insecurities around boys and lack of attraction made sense. Her taste was perfection. 
+One lick and every last lingering doubt of whether or not I was a lesbian was answered. All my insecurities around boys and lack of attraction made sense. Her taste was perfection. 
 
- I was a lesbian. 
+I was a lesbian. 
 
- I licked tentatively at first, unsure what I was doing. 
+I licked tentatively at first, unsure what I was doing. 
 
- I explored her pussy with my focus and curiosity. I was Lara Croft: Pussy Raider and I had found my purpose in life. I was Indiana Moans and I had indeed found the arc of the cunt-venant. 
+I explored her pussy with my focus and curiosity. I was Lara Croft: Pussy Raider and I had found my purpose in life. I was Indiana Moans and I had indeed found the arc of the cunt-venant. 
 
- I took my time both because I was tentative and inexperienced, but also because I did not want this moment to end. 
+I took my time both because I was tentative and inexperienced, but also because I did not want this moment to end. 
 
- Her moans slowly increased as I licked her growing wetness, a chill going up my spine with each moan and whimper that escaped her lips. 
+Her moans slowly increased as I licked her growing wetness, a chill going up my spine with each moan and whimper that escaped her lips. 
 
- She whispered, "You're a natural pussy pleaser, Kylie." As I moved up towards her swollen clit, she added, "Now get me off. Suck on my clit like I did yours." 
+She whispered, "You're a natural pussy pleaser, Kylie." As I moved up towards her swollen clit, she added, "Now get me off. Suck on my clit like I did yours." 
 
- "Okay," I nodded, as I tried to replicate what she had done to me. 
+"Okay," I nodded, as I tried to replicate what she had done to me. 
 
- "That's it, baby, suck on my clit. Put it between those pretty lips and tug on it." 
+"That's it, baby, suck on my clit. Put it between those pretty lips and tug on it." 
 
- 
+tradition-lezmas-eve01.jpg] 
 
- tradition-lezmas-eve01.jpg] 
+I obeyed and was rewarded a little while later with an abundance of her cum. And if I thought her pussy tasted good before, well, her full flood of pussy juice was bursting with flavour and had me instantly addicted. 
 
- I obeyed and was rewarded a little while later with an abundance of her cum. And if I thought her pussy tasted good before, well, her full flood of pussy juice was bursting with flavour and had me instantly addicted. 
+From that evening on, I regularly came over to lick Mrs. Waddington. On occasion she licked me in return, but usually it was a one way street. 
 
- From that evening on, I regularly came over to lick Mrs. Waddington. On occasion she licked me in return, but usually it was a one way street. 
+Knowing I was, without a doubt, a lesbian, everything changed. At school, I slyly checked out my peers, and crushed heavily on a pretty brunette and Tara's best friend Kimberly and also tried not to drool over the cheerleaders in their short skirts. 
 
- Knowing I was, without a doubt, a lesbian, everything changed. At school, I slyly checked out my peers, and crushed heavily on a pretty brunette and Tara's best friend Kimberly and also tried not to drool over the cheerleaders in their short skirts. 
+That said, most of my naughty fantasies involved more mature women. 
 
- That said, most of my naughty fantasies involved more mature women. 
+Whether it be Mrs. Walker, my English teacher, who was so sexy and sweet and yet exuded a sexuality about her that had my panties damp every day in class. 
 
- Whether it be Mrs. Walker, my English teacher, who was so sexy and sweet and yet exuded a sexuality about her that had my panties damp every day in class. 
+tradition-lezmas-eve02.jpg] 
 
- 
+Or Mrs. Abberhammer, who was a British woman with a sexy accent for whom I babysat on occasion, and who dressed every day in dresses and heels. 
 
- tradition-lezmas-eve02.jpg] 
+tradition-lezmas-eve03.jpg] 
 
- Or Mrs. Abberhammer, who was a British woman with a sexy accent for whom I babysat on occasion, and who dressed every day in dresses and heels. 
+It got so bad that every woman I saw, I wondered what their pussy tasted like. Do they all taste alike? 
 
- 
+I spent every night rubbing myself at the thought of pleasuring pussy. Not surprisingly, I even envisioned slight bondage. Being tied up and forced to please. 
 
- tradition-lezmas-eve03.jpg] 
+tradition-lezmas-eve04.jpg] 
 
- It got so bad that every woman I saw, I wondered what their pussy tasted like. Do they all taste alike? 
+Christmas holidays had officially begun and Aunt Debbie was at my house helping wrap presents. Tara was gone for one last basketball tournament before Christmas, and Mom and Dad were at a Christmas party. 
 
- I spent every night rubbing myself at the thought of pleasuring pussy. Not surprisingly, I even envisioned slight bondage. Being tied up and forced to please. 
+I enjoyed spending time with my aunt, who was usually very blunt, unlike my rather conservative mother (other than buying me that vibrator for my eighteenth birthday... actually, ever since I'd turned eighteen Mom, had been acting different). 
 
- 
+"So, got a boyfriend?" Aunt Debbie asked. 
 
- tradition-lezmas-eve04.jpg] 
+"Not really," I answered, not wanting to tell her I was no longer interested in boys. 
 
- Christmas holidays had officially begun and Aunt Debbie was at my house helping wrap presents. Tara was gone for one last basketball tournament before Christmas, and Mom and Dad were at a Christmas party. 
+"Not really?" she questioned. "It was kind of a yes or no question." 
 
- I enjoyed spending time with my aunt, who was usually very blunt, unlike my rather conservative mother (other than buying me that vibrator for my eighteenth birthday... actually, ever since I'd turned eighteen Mom, had been acting different). 
+"Well, then no," I said. 
 
- "So, got a boyfriend?" Aunt Debbie asked. 
+"Why not?" she asked. 
 
- "Not really," I answered, not wanting to tell her I was no longer interested in boys. 
+"They're too much work," I answered, which was definitely true. 
 
- "Not really?" she questioned. "It was kind of a yes or no question." 
+"Now that is the truest thing I've ever heard," she agreed. 
 
- "Well, then no," I said. 
+I knew that Aunt Debbie had not dated a man in forever, Uncle Joey having left her a few years ago. I said, "I'm sure there are great guys out there." 
 
- "Why not?" she asked. 
+"For me?" she scoffed. 
 
- "They're too much work," I answered, which was definitely true. 
+"Of course, Auntie," I said, before adding, "you're a very beautiful woman." 
 
- "Now that is the truest thing I've ever heard," she agreed. 
+"I agree completely," she smiled, before adding, "You know I'm a lesbian, don't you?" 
 
- I knew that Aunt Debbie had not dated a man in forever, Uncle Joey having left her a few years ago. I said, "I'm sure there are great guys out there." 
+"What? No!" I said, surprised, although that would explain the fact I had never seen or heard her with another guy. I did recall her bringing a friend to a Halloween party and they were dressed as salt and salt. Suddenly, it was obvious. 
 
- "For me?" she scoffed. 
+"You're so cute in your innocence," she laughed. 
 
- "Of course, Auntie," I said, before adding, "you're a very beautiful woman." 
+"I'm not so innocent," I countered, always hating when people thought I was just a goody goody. 
 
- "I agree completely," she smiled, before adding, "You know I'm a lesbian, don't you?" 
+"Do tell," she said, looking at me with curiosity. 
 
- "What? No!" I said, surprised, although that would explain the fact I had never seen or heard her with another guy. I did recall her bringing a friend to a Halloween party and they were dressed as salt and salt. Suddenly, it was obvious. 
+I realized I had said too much. I shrugged, "You know, just the usual." 
 
- "You're so cute in your innocence," she laughed. 
+"When I was in high school, the usual was jerking guys off," she said, "and munching cunt." 
 
- "I'm not so innocent," I countered, always hating when people thought I was just a goody goody. 
+My face went beet red at Auntie's use of the 'c' word as I gasped, "Auntie!" 
 
- "Do tell," she said, looking at me with curiosity. 
+She looked at me for a minute and then bluntly asked, "Are you a lesbian, Kylie?" 
 
- I realized I had said too much. I shrugged, "You know, just the usual." 
+"Pardon?" I asked, even though I had definitely heard the question. 
 
- "When I was in high school, the usual was jerking guys off," she said, "and munching cunt." 
+"Do you munch cunt?" she bluntly asked, which was so out of character for her. 
 
- My face went beet red at Auntie's use of the 'c' word as I gasped, "Auntie!" 
+"Auntie!" I gasped again, still shocked by her question and her vulgar language. 
 
- She looked at me for a minute and then bluntly asked, "Are you a lesbian, Kylie?" 
+"Kylie," she said. "It was a simple yes or no question. Do you like girls? Pussy? Cunt?" 
 
- "Pardon?" I asked, even though I had definitely heard the question. 
+"I can't believe you're asking me this," I said. 
 
- "Do you munch cunt?" she bluntly asked, which was so out of character for her. 
+"It's okay if you are," she said. "It's also 2015 so you don't have to hide it like I did all those years. You shouldn't go around eating sausage if you prefer fish." 
 
- "Auntie!" I gasped again, still shocked by her question and her vulgar language. 
+"Oh my God, Auntie," I said, shocked by the entire conversation. 
 
- "Kylie," she said. "It was a simple yes or no question. Do you like girls? Pussy? Cunt?" 
+"So, do you like sausage or fish?" she asked. 
 
- "I can't believe you're asking me this," I said. 
+I decided to answer as vaguely as possible, while still answering, "I'm not a big fan of sausage." 
 
- "It's okay if you are," she said. "It's also 2015 so you don't have to hide it like I did all those years. You shouldn't go around eating sausage if you prefer fish." 
+"You've had sausage?" she asked. 
 
- "Oh my God, Auntie," I said, shocked by the entire conversation. 
+"A few," I admitted. "They were not to my liking." 
 
- "So, do you like sausage or fish?" she asked. 
+"And fish?" she questioned. "Have you had fish?" 
 
- I decided to answer as vaguely as possible, while still answering, "I'm not a big fan of sausage." 
+I couldn't believe I was telling my auntie this, but I nodded, "Yes, I have had fish." 
 
- "You've had sausage?" she asked. 
+"Was it good?" she questioned. 
 
- "A few," I admitted. "They were not to my liking." 
+"It is definitely my preferred choice," I answered, figuring I may as well be upfront. 
 
- "And fish?" she questioned. "Have you had fish?" 
+"I knew it," she nodded. "Come with me." 
 
- I couldn't believe I was telling my auntie this, but I nodded, "Yes, I have had fish." 
+"Where?" I asked. 
 
- "Was it good?" she questioned. 
+"Just come," she said, annoyed by my questions. 
 
- "It is definitely my preferred choice," I answered, figuring I may as well be upfront. 
+"Fine," I said, following her out of curiosity. 
 
- "I knew it," she nodded. "Come with me." 
+She led me into my room and asked, "Have you been fucked by a guy yet?" 
 
- "Where?" I asked. 
+"What?" I asked. 
 
- "Just come," she said, annoyed by my questions. 
+"Did a car park in your garage?" she asked. 
 
- "Fine," I said, following her out of curiosity. 
+"What?" I asked, confused. 
 
- She led me into my room and asked, "Have you been fucked by a guy yet?" 
+Did a penis enter your vagina?" she bluntly asked. 
 
- "What?" I asked. 
+"No," I answered. 
 
- "Did a car park in your garage?" she asked. 
+"Get undressed," she ordered. 
 
- "What?" I asked, confused. 
+"What?" I asked, stunned by her order. 
 
- Did a penis enter your vagina?" she bluntly asked. 
+"Now!" she demanded. 
 
- "No," I answered. 
+"But, I...." began to protest, but she cut me off. 
 
- "Get undressed," she ordered. 
+"Kylie Jasmine Martin," Aunt Debbie said, raising her voice just like my mom did when she was annoyed at me. 
 
- "What?" I asked, stunned by her order. 
+Before I knew it I was naked; confused, naked and kinda horny. 
 
- "Now!" she demanded. 
+"I can't have my niece going into the world of lesbianism without some practical first-hand experience," she said, as she went to my night stand and pulled out my vibrator. 
 
- "But, I...." began to protest, but she cut me off. 
+I wondered how she would even know it was there. She asked, "So the only person who has used this on you is you?" 
 
- "Kylie Jasmine Martin," Aunt Debbie said, raising her voice just like my mom did when she was annoyed at me. 
+"Of course," I nodded, thinking that was pretty obvious. 
 
- Before I knew it I was naked; confused, naked and kinda horny. 
+"Get on your knees," she ordered. 
 
- "I can't have my niece going into the world of lesbianism without some practical first-hand experience," she said, as she went to my night stand and pulled out my vibrator. 
+"Auntie this is wrong," I protested. Although my auntie was hot and definitely someone I would be sexually attracted to if she wasn't my aunt, this felt weird. 
 
- I wondered how she would even know it was there. She asked, "So the only person who has used this on you is you?" 
+"I'm just going to teach you how to pleasure a woman," she said. "It would be irresponsible to allow you to go out and about without some experience." 
 
- "Of course," I nodded, thinking that was pretty obvious. 
+"I have some experience," I pointed out. 
 
- "Get on your knees," she ordered. 
+"How many pussies have you munched on?" she asked, the sausage and fish analogy apparently over with. 
 
- "Auntie this is wrong," I protested. Although my auntie was hot and definitely someone I would be sexually attracted to if she wasn't my aunt, this felt weird. 
+"One," I answered, "but a few times." 
 
- "I'm just going to teach you how to pleasure a woman," she said. "It would be irresponsible to allow you to go out and about without some experience." 
+"Has she done you too?" Auntie asked. 
 
- "I have some experience," I pointed out. 
+"A couple times," I answered, not sure why I was being so honest in this surreal conversation or why I was standing naked in front of my aunt. 
 
- "How many pussies have you munched on?" she asked, the sausage and fish analogy apparently over with. 
+"And have you used any toys during these rendezvous?' she questioned, as she turned the vibrator on, while moving directly in front of me. 
 
- "One," I answered, "but a few times." 
+Although I was overwhelmed with the surreal situation, I could feel pussy juice actually leak slightly down my leg. 
 
- "Has she done you too?" Auntie asked. 
+"No," I admitted. 
 
- "A couple times," I answered, not sure why I was being so honest in this surreal conversation or why I was standing naked in front of my aunt. 
+"Well, a woman needs to be able to use a variety of methods to please another woman," she said. "Now get on all fours and don't make me tell you a third time." 
 
- "And have you used any toys during these rendezvous?' she questioned, as she turned the vibrator on, while moving directly in front of me. 
+I reluctantly obeyed, my mind arguing with what was happening, even as my body argued to just let go and enjoy myself. After a pause I obeyed. 
 
- Although I was overwhelmed with the surreal situation, I could feel pussy juice actually leak slightly down my leg. 
+"Good girl," she purred, her hands squeezing my ass. 
 
- "No," I admitted. 
+My body stiffened as my head was muddled with confusion. 
 
- "Well, a woman needs to be able to use a variety of methods to please another woman," she said. "Now get on all fours and don't make me tell you a third time." 
+"Your ass is as perfect as your mother's," she said, as her finger moved to my pussy. 
 
- I reluctantly obeyed, my mind arguing with what was happening, even as my body argued to just let go and enjoy myself. After a pause I obeyed. 
+My eyes went big; my body quivered; yet, I moaned. 
 
- "Good girl," she purred, her hands squeezing my ass. 
+"You know, your mom and I have been munching each other's cunts for years," she revealed, as she slid my vibrator inside me. 
 
- My body stiffened as my head was muddled with confusion. 
+"Whaaaaaat?" I asked with a loud moan. 
 
- "Your ass is as perfect as your mother's," she said, as her finger moved to my pussy. 
+"Your mom is a great pussy pleaser," Aunt Debbie continued. 
 
- My eyes went big; my body quivered; yet, I moaned. 
+"No way," I said, looking back at her, even as she began fucking me, and we both willingly committed an act of incest. 
 
- "You know, your mom and I have been munching each other's cunts for years," she revealed, as she slid my vibrator inside me. 
+tradition-lezmas-eve05.jpg] 
 
- "Whaaaaaat?" I asked with a loud moan. 
+"She was between my legs earlier today," she revealed, shock compounding shock, as she picked up the pace. 
 
- "Your mom is a great pussy pleaser," Aunt Debbie continued. 
+"Oh, God," I moaned, both from another revelation and from the intense fucking I was receiving... from my Aunt. 
 
- "No way," I said, looking back at her, even as she began fucking me, and we both willingly committed an act of incest. 
+"Come for your auntie, my dear," she purred, kissing my ass cheeks while she pumped the buzzing toy in and out of me. 
 
- 
+My breathing got heavy and I reached the quickest orgasm in my life as I screamed, "Oh shit, yes!" 
 
- tradition-lezmas-eve05.jpg] 
+As my body quaked with euphoria, Aunt Debbie pulled the toy out and said, "Let's keep this secret between you and me." 
 
- "She was between my legs earlier today," she revealed, shock compounding shock, as she picked up the pace. 
+"You and Mom really have sex?" I asked, a minute later, once my orgasm finally began to fade away. 
 
- "Oh, God," I moaned, both from another revelation and from the intense fucking I was receiving... from my Aunt. 
+"For years," she nodded. 
 
- "Come for your auntie, my dear," she purred, kissing my ass cheeks while she pumped the buzzing toy in and out of me. 
+"I can't believe it," I said. 
 
- My breathing got heavy and I reached the quickest orgasm in my life as I screamed, "Oh shit, yes!" 
+tradition-lezmas-eve06.jpg] 
 
- As my body quaked with euphoria, Aunt Debbie pulled the toy out and said, "Let's keep this secret between you and me." 
+I watched Auntie put the vibrator in her mouth as she sucked off my juice. She smiled, "Mmmmm, I may have to taste this directly from the source one day soon." 
 
- "You and Mom really have sex?" I asked, a minute later, once my orgasm finally began to fade away. 
+That one day actually happened half an hour later, after I had brought her off twice, once with my tongue and once with my vibrator. 
 
- "For years," she nodded. 
+I agreed to keep this secret, but it hadn't left my mind since. Every time I looked at my mom, I thought to myself: she eats out Auntie. Every time I talked to her, I thought to myself: she eats out Auntie. 
 
- "I can't believe it," I said. 
+Mom said, "Your mother should have bought you one, too." 
 
- 
+"She is way too much a prude for that," Tara countered. 
 
- tradition-lezmas-eve06.jpg] 
+"Oh, your mother has a lot of sides to her," Mom said, before adding, "Now put the costumes on and come downstairs." 
 
- I watched Auntie put the vibrator in her mouth as she sucked off my juice. She smiled, "Mmmmm, I may have to taste this directly from the source one day soon." 
+As I got undressed, I was again unable to push the visual out of my head. My Mom ate Auntie's pussy. I ate Auntie's pussy. Auntie had eaten mine. 
 
- That one day actually happened half an hour later, after I had brought her off twice, once with my tongue and once with my vibrator. 
+tradition-lezmas-eve07.jpg] 
 
- I agreed to keep this secret, but it hadn't left my mind since. Every time I looked at my mom, I thought to myself: she eats out Auntie. Every time I talked to her, I thought to myself: she eats out Auntie. 
+"I think my Mom is pretty black and white," Tara said, once we were alone and getting undressed. 
 
- Mom said, "Your mother should have bought you one, too." 
+I couldn't help but disagree. "Oh, I bet she has a naughty side." 
 
- "She is way too much a prude for that," Tara countered. 
+"That I would love to see," Tara scoffed, as she went to take off her shirt. 
 
- "Oh, your mother has a lot of sides to her," Mom said, before adding, "Now put the costumes on and come downstairs." 
+"Your Mom used to be eighteen too," I pointed out. 
 
- As I got undressed, I was again unable to push the visual out of my head. My Mom ate Auntie's pussy. I ate Auntie's pussy. Auntie had eaten mine. 
+"I like to think the only time she had sex was to produce pretty ole' me," she said, doing a spin now completely naked. 
 
- 
+We had seen each other naked many times, but this was the first time since I had had sex with her mother. I couldn't help but wonder what it would be like to taste her. Would she have a different taste than her mother? 
 
- tradition-lezmas-eve07.jpg] 
+"Maybe she was a wild slut like you," I quipped. "Like seriously, do you ever wear underwear?" 
 
- "I think my Mom is pretty black and white," Tara said, once we were alone and getting undressed. 
+"Once a month," she shrugged, before adding, "and what are you talking about? You're not wearing panties either." 
 
- I couldn't help but disagree. "Oh, I bet she has a naughty side." 
-
- "That I would love to see," Tara scoffed, as she went to take off her shirt. 
-
- "Your Mom used to be eighteen too," I pointed out. 
-
- "I like to think the only time she had sex was to produce pretty ole' me," she said, doing a spin now completely naked. 
-
- We had seen each other naked many times, but this was the first time since I had had sex with her mother. I couldn't help but wonder what it would be like to taste her. Would she have a different taste than her mother? 
-
- "Maybe she was a wild slut like you," I quipped. "Like seriously, do you ever wear underwear?" 
-
- "Once a month," she shrugged, before adding, "and what are you talking about? You're not wearing panties either." 
-
- I shrugged, "I'm trying to discover my own wild side."  
-
- 
-
- 
+I shrugged, "I'm trying to discover my own wild side."  
 
 ===
 
 "That I would love to see," Tara laughed as we both moved to the bag Mom had left on the bed for us. 
 
- "Uh, Kylie? What's going on?" a surprised Tara asked, as she looked in the bag. 
+"Uh, Kylie? What's going on?" a surprised Tara asked, as she looked in the bag. 
 
- 
+tradition-lezmas-eve08.jpg] 
 
- tradition-lezmas-eve08.jpg] 
+"Not much," I joked, as I looked in the bag too and found there was not much in the bag and definitely not enough to dress up. I called out, "Mom, where is the rest of the costume?" 
 
- "Not much," I joked, as I looked in the bag too and found there was not much in the bag and definitely not enough to dress up. I called out, "Mom, where is the rest of the costume?" 
+Mom called back up, "Your auntie choose those. She stressed you would know exactly why they were chosen." 
 
- Mom called back up, "Your auntie choose those. She stressed you would know exactly why they were chosen." 
+I gasped. 
 
- I gasped. 
+"What did she mean?" Tara asked. 
 
- "What did she mean?" Tara asked. 
+I shrugged, lying, "I have no idea." And truthfully, I wasn't sure. Did Auntie have a naughty purpose for us? She wouldn't be here for a couple more hours. Had Auntie and Mom talked? Did Mom know I was a lesbian? Did Mom know that Auntie and I had sex? My head was spinning, but I said, "Let's just put this on and go see what the heck our moms were thinking." 
 
- I shrugged, lying, "I have no idea." And truthfully, I wasn't sure. Did Auntie have a naughty purpose for us? She wouldn't be here for a couple more hours. Had Auntie and Mom talked? Did Mom know I was a lesbian? Did Mom know that Auntie and I had sex? My head was spinning, but I said, "Let's just put this on and go see what the heck our moms were thinking." 
+"Okay," Tara shrugged, "but there aren't even any tops for these." 
 
- "Okay," Tara shrugged, "but there aren't even any tops for these." 
+I joked, "Maybe this is a porno version of the picture." 
 
- I joked, "Maybe this is a porno version of the picture." 
+Tara put on the wig, glasses and mini skirt and said, "So if I'm Mrs. Claus, then... you're supposed to be...." 
 
- Tara put on the wig, glasses and mini skirt and said, "So if I'm Mrs. Claus, then... you're supposed to be...." 
+tradition-lezmas-eve09.jpg] 
 
- 
+"HO-HO-HO," I said, as I put on my beard and Santa hat. 
 
- tradition-lezmas-eve09.jpg] 
+tradition-lezmas-eve10.jpg] 
 
- "HO-HO-HO," I said, as I put on my beard and Santa hat. 
+Tara joked, "Oh yes, you are indeed one sexy ho." 
 
- 
+"Takes one to know one," I joked, unable to take my eyes off her perky tits. 
 
- tradition-lezmas-eve10.jpg] 
+"What the hell is your mom thinking?" Tara asked. 
 
- Tara joked, "Oh yes, you are indeed one sexy ho." 
+"I don't know," I said. "She has been acting a bit strange of late." 
 
- "Takes one to know one," I joked, unable to take my eyes off her perky tits. 
+"So has my Mom," Tara said. "Maybe they are going through menopause together." 
 
- "What the hell is your mom thinking?" Tara asked. 
+"They do seem to do a lot of things together," I said, my meaning way naughtier than Tara would ever catch on. 
 
- "I don't know," I said. "She has been acting a bit strange of late." 
+"Hurry up you two," Mom yelled. 
 
- "So has my Mom," Tara said. "Maybe they are going through menopause together." 
+"Are we really going downstairs dressed like this?" Tara asked. 
 
- "They do seem to do a lot of things together," I said, my meaning way naughtier than Tara would ever catch on. 
+I shrugged, wondering if Mom had some naughty intentions and, if so, did they include me? The idea, which a week ago would have shocked me, suddenly had me curious. "She must know we are sans upper body wear." 
 
- "Hurry up you two," Mom yelled. 
+"Okay, whatever," she shrugged. 
 
- "Are we really going downstairs dressed like this?" Tara asked. 
+We headed downstairs, and I joked, as Mom sat on her knees in front of the Christmas tree, "Uh, Mom. I think you forget to give us part of the costume." 
 
- I shrugged, wondering if Mom had some naughty intentions and, if so, did they include me? The idea, which a week ago would have shocked me, suddenly had me curious. "She must know we are sans upper body wear." 
+"That's right, I did," Mom said. 
 
- "Okay, whatever," she shrugged. 
+"I was beginning to worry you may have Alzheimer's," I joked. 
 
- We headed downstairs, and I joked, as Mom sat on her knees in front of the Christmas tree, "Uh, Mom. I think you forget to give us part of the costume." 
+"Here," Mom said, as she pulled something out of a box. 
 
- "That's right, I did," Mom said. 
+tradition-lezmas-eve11.jpg] 
 
- "I was beginning to worry you may have Alzheimer's," I joked. 
+Tara and I both gasped as we stared at the massive cock. 
 
- "Here," Mom said, as she pulled something out of a box. 
+"Mom! What is that?" I questioned, my earlier assumptions obviously correct. Auntie had told Mom about our earlier rendezvous. 
 
- 
+"Auntie!" Tara said, "What is going on?" 
 
- tradition-lezmas-eve11.jpg] 
+"This is from your Aunt," Mom said to me, before turning to Tara added, "And from your Mom for you." 
 
- Tara and I both gasped as we stared at the massive cock. 
+"I don't understand," Tara said, confused. 
 
- "Mom! What is that?" I questioned, my earlier assumptions obviously correct. Auntie had told Mom about our earlier rendezvous. 
+"This is one of your Christmas gifts," Mom said. 
 
- "Auntie!" Tara said, "What is going on?" 
+"A dildo?" Tara asked. 
 
- "This is from your Aunt," Mom said to me, before turning to Tara added, "And from your Mom for you." 
+Mom laughed, "Actually, it's a thick, long strap-on cock to fuck each other with." 
 
- "I don't understand," Tara said, confused. 
+"Delicious," I purred, understanding this was our mom's way to get us to become lovers like they were." 
 
- "This is one of your Christmas gifts," Mom said. 
+"You can't be serious," Tara asked, although I wasn't sure if it was to Mom's revelation or my reaction. 
 
- "A dildo?" Tara asked. 
+"Tara," I said, "I've wanted to munch on that sweet pussy ever since I realized I'm a lesbian." 
 
- Mom laughed, "Actually, it's a thick, long strap-on cock to fuck each other with." 
+"You're a lesbian?" she questioned, clearly shocked. 
 
- "Delicious," I purred, understanding this was our mom's way to get us to become lovers like they were." 
+"We are all lesbians," Mom announced. 
 
- "You can't be serious," Tara asked, although I wasn't sure if it was to Mom's revelation or my reaction. 
+"Huh?" both Tara and I replied at the same time. I knew I was a lesbian and that Aunt Debbie was too. 
 
- "Tara," I said, "I've wanted to munch on that sweet pussy ever since I realized I'm a lesbian." 
+tradition-lezmas-eve12.jpg] 
 
- "You're a lesbian?" she questioned, clearly shocked. 
+But Mom was bi at best and Tara had never shown any signs of being interested in girls. 
 
- "We are all lesbians," Mom announced. 
+"Girls, its time you learned the family tradition," Mom said. 
 
- "Huh?" both Tara and I replied at the same time. I knew I was a lesbian and that Aunt Debbie was too. 
+"Okay," I agreed curiously, as I glanced over to my sexy cousin and wondered if I was going to get to taste her perfect pinkness. 
 
- 
+"Debbie and I have been playing with each other for quite a while," Mom revealed. 
 
- tradition-lezmas-eve12.jpg] 
+"What?" Tara asked shocked. 
 
- But Mom was bi at best and Tara had never shown any signs of being interested in girls. 
+"How long?" I asked, curious for more details. 
 
- "Girls, its time you learned the family tradition," Mom said. 
+"Since we were your age," Mom revealed. 
 
- "Okay," I agreed curiously, as I glanced over to my sexy cousin and wondered if I was going to get to taste her perfect pinkness. 
+"What do you mean 'playing'?" I asked, being like Nancy Drew and looking for answers. 
 
- "Debbie and I have been playing with each other for quite a while," Mom revealed. 
+Mom turned to Tara and said, "Well, we eat each other's pussies and use toys like the one in my hands on each other." 
 
- "What?" Tara asked shocked. 
+"You and Mom have sex?" Tara asked, even though the answer was obvious. 
 
- "How long?" I asked, curious for more details. 
+"Every chance we get," Mom nodded. "But the tradition started on Christmas Eve when I was eighteen and Debbie was twenty." 
 
- "Since we were your age," Mom revealed. 
+"Oh my God," Tara said, clearly overwhelmed with all she was hearing. 
 
- "What do you mean 'playing'?" I asked, being like Nancy Drew and looking for answers. 
+"Truth be told, Debbie seduced me by climbing into my bed one night and saying, 'Do you want your Christmas present from me early?' I was almost asleep at the time, but before I could answer she tugged my panties down, I was in a nightie, and buried her face in my pussy before I could even think straight." 
 
- Mom turned to Tara and said, "Well, we eat each other's pussies and use toys like the one in my hands on each other." 
+"Think straight," I joked, "now that is funny." 
 
- "You and Mom have sex?" Tara asked, even though the answer was obvious. 
+"You brat," Mom smiled. 
 
- "Every chance we get," Mom nodded. "But the tradition started on Christmas Eve when I was eighteen and Debbie was twenty." 
+Tara finally asked, "So you and Mom have been having sex ever since?" 
 
- "Oh my God," Tara said, clearly overwhelmed with all she was hearing. 
+"Once we had kids it was pretty rare, but we always found time during the holiday season for a yearly night of Christmas cheer," Mom said, before adding, "but since your father left we have been a lot more frequent." 
 
- "Truth be told, Debbie seduced me by climbing into my bed one night and saying, 'Do you want your Christmas present from me early?' I was almost asleep at the time, but before I could answer she tugged my panties down, I was in a nightie, and buried her face in my pussy before I could even think straight." 
+"What does Dad think?" I asked. 
 
- "Think straight," I joked, "now that is funny." 
+"Some things are better left unsaid," Mom shrugged, standing up and walking over to me. 
 
- "You brat," Mom smiled. 
+"I guess," I said. 
 
- Tara finally asked, "So you and Mom have been having sex ever since?" 
+"No, seriously," Mom said. "I would never cheat on your dad with another man, but Debbie was before I ever met him and she provides a need he can't satisfy." 
 
- "Once we had kids it was pretty rare, but we always found time during the holiday season for a yearly night of Christmas cheer," Mom said, before adding, "but since your father left we have been a lot more frequent." 
+"What is that?" I asked. 
 
- "What does Dad think?" I asked. 
+"Real orgasms," Mom revealed. 
 
- "Some things are better left unsaid," Mom shrugged, standing up and walking over to me. 
+"TMI!" I joked. 
 
- "I guess," I said. 
+"No man can give an orgasm to a woman the way another woman can," Mom explained, as she began to put the strap-on harness on me. 
 
- "No, seriously," Mom said. "I would never cheat on your dad with another man, but Debbie was before I ever met him and she provides a need he can't satisfy." 
+"Uh, Mom? Umm... what're you," I questioned, as more pussy juice leaked out of me and slithered slowly down my leg. 
 
- "What is that?" I asked. 
+tradition-lezmas-eve13.jpg] 
 
- "Real orgasms," Mom revealed. 
+"It's time to start a new family tradition for you two," Mom said, as she tightened the harness around me. 
 
- "TMI!" I joked. 
+I glanced over to Tara who had a look of complete shock on her face, as she stared at the huge cock strapped onto me. 
 
- "No man can give an orgasm to a woman the way another woman can," Mom explained, as she began to put the strap-on harness on me. 
+Mom stood up and instructed, "Come sit on the couch, Tara." 
 
- "Uh, Mom? Umm... what're you," I questioned, as more pussy juice leaked out of me and slithered slowly down my leg. 
+I watched as Tara wordlessly obeyed. I was curious if it was because she was in shock or excitement... although I imagined both. 
 
- 
+When I turned back to look at Mom, I gasped. She was getting undressed too. 
 
- tradition-lezmas-eve13.jpg] 
+"What?" Mom asked. "Can't I be part of the new family tradition?" 
 
- "It's time to start a new family tradition for you two," Mom said, as she tightened the harness around me. 
+"I guess so," I laughed, the conversation and situation still surreal. 
 
- I glanced over to Tara who had a look of complete shock on her face, as she stared at the huge cock strapped onto me. 
+Once Mom was naked, she grabbed a bottle from the floor and handed it to me. I watched Mom join a still bewildered Tara on the couch as I glanced at the bottle to realize it was lube. 
 
- Mom stood up and instructed, "Come sit on the couch, Tara." 
+Mom said, "Tell me... is your cunny wet, Tara?" 
 
- I watched as Tara wordlessly obeyed. I was curious if it was because she was in shock or excitement... although I imagined both. 
+tradition-lezmas-eve14.jpg] 
 
- When I turned back to look at Mom, I gasped. She was getting undressed too. 
+"Yes, Mrs. Richards, it has been since we dressed like this," Tara admitted, looking up nervously. I thought it was weird she didn't call Mom auntie, but she was likely trying to keep the incest part out of the equation. 
 
- "What?" Mom asked. "Can't I be part of the new family tradition?" 
+"C'mon, open up your legs... wide," Mom instructed. 
 
- "I guess so," I laughed, the conversation and situation still surreal. 
+Tara obeyed, opening her legs and allowing her pussy to be touched by her auntie. 
 
- Once Mom was naked, she grabbed a bottle from the floor and handed it to me. I watched Mom join a still bewildered Tara on the couch as I glanced at the bottle to realize it was lube. 
+Mom purred, "Good," before she looked at me. She ordered, "Now Kylie, soak your strap-on with lots and lots of K-Y, then come here." 
 
- Mom said, "Tell me... is your cunny wet, Tara?" 
+I nodded, as I indeed generously coated the long, thick cock. 
 
- 
+Mom calmly whispered to Tara, "Easy, Angel." 
 
- tradition-lezmas-eve14.jpg] 
+I looked up to see Tara biting her lips as Mom masturbated her. 
 
- "Yes, Mrs. Richards, it has been since we dressed like this," Tara admitted, looking up nervously. I thought it was weird she didn't call Mom auntie, but she was likely trying to keep the incest part out of the equation. 
+I walked over to them, wanting to be a part of this. 
 
- "C'mon, open up your legs... wide," Mom instructed. 
+"Do you want to be fucked, Tara?" Mom asked, as her finger slid inside her niece. 
 
- Tara obeyed, opening her legs and allowing her pussy to be touched by her auntie. 
+"By that big thing?" Tara asked with a moan. 
 
- Mom purred, "Good," before she looked at me. She ordered, "Now Kylie, soak your strap-on with lots and lots of K-Y, then come here." 
+Mom laughed, "They say size matters." 
 
- I nodded, as I indeed generously coated the long, thick cock. 
+"I agree," Tara laughed too. "It will tear me apart." 
 
- Mom calmly whispered to Tara, "Easy, Angel." 
+"Just got to get your cunny nice and wet for it," Mom said, sliding a second finger in. 
 
- I looked up to see Tara biting her lips as Mom masturbated her. 
+"Okay," Tara moaned, closing her eyes. I watched Mom finger fuck my cousin as I waited my turn. I had never fucked a girl before and the idea that my first would be Tara was, for some reason, a major turn-on. 
 
- I walked over to them, wanting to be a part of this. 
+After a couple of minutes of finger fucking, Tara now moaning loudly, Mom looked up to me and asked, "Ready to fuck your cousin?" 
 
- "Do you want to be fucked, Tara?" Mom asked, as her finger slid inside her niece. 
+"Yes, Mommy," I answered, thinking using the term 'Mommy' made this hot sexy encounter even a little kinkier. 
 
- "By that big thing?" Tara asked with a moan. 
+"Yes, Mommy, what?" Mom asked, now furiously fingering Tara. 
 
- Mom laughed, "They say size matters." 
+"Oh fuck," Tara moaned, her eyes not once opening since her auntie started to pleasure her. 
 
- "I agree," Tara laughed too. "It will tear me apart." 
+"Yes, I want to fuck Tara," I said, taking the initiative and moving between Tara's legs. 
 
- "Just got to get your cunny nice and wet for it," Mom said, sliding a second finger in. 
+"Ready for big red?" Mom asked. 
 
- "Okay," Tara moaned, closing her eyes. I watched Mom finger fuck my cousin as I waited my turn. I had never fucked a girl before and the idea that my first would be Tara was, for some reason, a major turn-on. 
+"God, yes," Tara moaned, opening her eyes and looking up at me, as Mom moved her hand and I rubbed the thick cock up and down Tara's very wet pussy lips. 
 
- After a couple of minutes of finger fucking, Tara now moaning loudly, Mom looked up to me and asked, "Ready to fuck your cousin?" 
+"Beg," I demanded, somehow feeling a rush of power with a cock on me. 
 
- "Yes, Mommy," I answered, thinking using the term 'Mommy' made this hot sexy encounter even a little kinkier. 
+"Please shove that mammoth dick in my cunny," Tara moaned, looking insatiably hungry. 
 
- "Yes, Mommy, what?" Mom asked, now furiously fingering Tara. 
+I teased her more, as I ordered, "On the floor." 
 
- "Oh fuck," Tara moaned, her eyes not once opening since her auntie started to pleasure her. 
+"Okay," Tara obeyed which was quite hot, as she was definitely the one in charge in our cousin relationship. She usually chose what we did, where we went. 
 
- "Yes, I want to fuck Tara," I said, taking the initiative and moving between Tara's legs. 
+Once she was on the floor, I again got between her legs, and asked, "Ready?" 
 
- "Ready for big red?" Mom asked. 
+"Shove that massive cock in my cunny, Kylie," she demanded, lifting her ass up, trying to get the cock to slide inside her. 
 
- "God, yes," Tara moaned, opening her eyes and looking up at me, as Mom moved her hand and I rubbed the thick cock up and down Tara's very wet pussy lips. 
+I obliged her request as I slowly slid the cock inside her cunt. 
 
- "Beg," I demanded, somehow feeling a rush of power with a cock on me. 
+tradition-lezmas-eve15.jpg] 
 
- "Please shove that mammoth dick in my cunny," Tara moaned, looking insatiably hungry. 
+Her unintelligible sounds as my cock slid inside her were sexy as hell, as was her facial expression. 
 
- I teased her more, as I ordered, "On the floor." 
+"Just relax, Tara," Mom instructed, watching us from the couch as she began to slowly pleasure herself. 
 
- "Okay," Tara obeyed which was quite hot, as she was definitely the one in charge in our cousin relationship. She usually chose what we did, where we went. 
+"It's so much bigger than any of the guys I've fucked," Tara declared with a moan. 
 
- Once she was on the floor, I again got between her legs, and asked, "Ready?" 
+"And the good thing with a strap-on cock is that it lasts a lot longer than a guy," Mom said. 
 
- "Shove that massive cock in my cunny, Kylie," she demanded, lifting her ass up, trying to get the cock to slide inside her. 
+"And it can't get you pregnant," I added, as the entire cock disappeared in Tara's perfect pinkness. 
 
- I obliged her request as I slowly slid the cock inside her cunt. 
+"So fucking full," Tara moaned. 
 
- 
+"I'm going to fuck you now," I declared. 
 
- tradition-lezmas-eve15.jpg] 
+"Go slow," she said, opening her eyes and looking at me. 
 
- Her unintelligible sounds as my cock slid inside her were sexy as hell, as was her facial expression. 
+"Okay," I nodded, as I slowly began to pull out and then slide back in again. 
 
- "Just relax, Tara," Mom instructed, watching us from the couch as she began to slowly pleasure herself. 
+"Oh yes, Kylie," Tara moaned, after a few slow strokes, "That feels so good." 
 
- "It's so much bigger than any of the guys I've fucked," Tara declared with a moan. 
+"What does?" I teased. 
 
- "And the good thing with a strap-on cock is that it lasts a lot longer than a guy," Mom said. 
+"You fucking me," Tara whimpered. 
 
- "And it can't get you pregnant," I added, as the entire cock disappeared in Tara's perfect pinkness. 
+Mom added, "You two look so natural together. I wish Debbie was here to watch this." 
 
- "So fucking full," Tara moaned. 
+"Where is she?" I asked, as I continued the slow fucking. 
 
- "I'm going to fuck you now," I declared. 
+"On her way home," Mom answered. 
 
- "Go slow," she said, opening her eyes and looking at me. 
+Tara added, "She went to visit a friend in need." 
 
- "Okay," I nodded, as I slowly began to pull out and then slide back in again. 
+"Oh she was in need all right," Mom joked, her tone implying more naughtiness. 
 
- "Oh yes, Kylie," Tara moaned, after a few slow strokes, "That feels so good." 
+"Is Carol a lesbian too?" Tara asked. 
 
- "What does?" I teased. 
+"Not a lesbian," Mom said, "but definitely an eager pussy pleaser." 
 
- "You fucking me," Tara whimpered. 
+"Oh, wow," Tara said. I had no idea who Carol was and wanted to get the focus back on us. 
 
- Mom added, "You two look so natural together. I wish Debbie was here to watch this." 
+I said, "Time to really fuck you." 
 
- "Where is she?" I asked, as I continued the slow fucking. 
+Tara smiled, turning back to me, "Those are words I never envisioned you saying." 
 
- "On her way home," Mom answered. 
+I nodded, "But definitely words I plan to say to you often now." 
 
- Tara added, "She went to visit a friend in need." 
+"You better," she moaned, as I began fucking her faster. 
 
- "Oh she was in need all right," Mom joked, her tone implying more naughtiness. 
+A rush of adrenaline coursed through me as I fucked her. I reached down and cupped her breasts and said, "You're such a hot slut, Mrs. Clause." 
 
- "Is Carol a lesbian too?" Tara asked. 
+tradition-lezmas-eve16.jpg] 
 
- "Not a lesbian," Mom said, "but definitely an eager pussy pleaser." 
+"And you have such a big cock, Santa," she moaned. 
 
- "Oh, wow," Tara said. I had no idea who Carol was and wanted to get the focus back on us. 
+I repositioned her, moving her leg up and over me as I began slamming into her hard with each forward thrust. 
 
- I said, "Time to really fuck you." 
+"Fucking fuck me hard, Santa!" she screamed, beginning to buck her ass up to meet my thrusts. 
 
- Tara smiled, turning back to me, "Those are words I never envisioned you saying." 
+I fucked Tara for a couple more minutes before she screamed, "Yes, Santa, I'm coming!" 
 
- I nodded, "But definitely words I plan to say to you often now." 
+I kept fucking her throughout her orgasm, loving watching her facial expressions as she came as well as hearing her loud moans. 
 
- "You better," she moaned, as I began fucking her faster. 
+When I finally pulled out, suddenly getting a leg cramp, Mom instructed, "Put on the strap-on, Tara." 
 
- A rush of adrenaline coursed through me as I fucked her. I reached down and cupped her breasts and said, "You're such a hot slut, Mrs. Clause." 
+"With pleasure," Tara said, standing up. She almost fell as she added, "Shit, you fucked me so hard you made my entire being weak." 
 
- 
+"You should return the favour," I suggested, as I took the harness off and handed it to Tara. 
 
- tradition-lezmas-eve16.jpg] 
+Tara put it on and said, "I think I can do that." 
 
- "And you have such a big cock, Santa," she moaned. 
+Once on, Tara ordered, "On all fours." 
 
- I repositioned her, moving her leg up and over me as I began slamming into her hard with each forward thrust. 
+I joked, as I obeyed, "I see you're back to your bossy self." 
 
- "Fucking fuck me hard, Santa!" she screamed, beginning to buck her ass up to meet my thrusts. 
+"You're the submissive and I'm the boss," she said, as she moved behind me. 
 
- I fucked Tara for a couple more minutes before she screamed, "Yes, Santa, I'm coming!" 
+"Well, discipline your worker," I purred, as she moved behind me and put her hands on my hips. 
 
- I kept fucking her throughout her orgasm, loving watching her facial expressions as she came as well as hearing her loud moans. 
+"I have wanted to do this for a while," Tara declared, surprising me as she slid the cock inside my fevered cunt. 
 
- When I finally pulled out, suddenly getting a leg cramp, Mom instructed, "Put on the strap-on, Tara." 
+"What?!?" I asked with a loud moan as the cock filled me. 
 
- "With pleasure," Tara said, standing up. She almost fell as she added, "Shit, you fucked me so hard you made my entire being weak." 
+"I play basketball," she said. "What do you think we do on road trips?" 
 
- "You should return the favour," I suggested, as I took the harness off and handed it to Tara. 
+"Play basketball," I joked. 
 
- Tara put it on and said, "I think I can do that." 
+"Well, we do some of that too," Tara said, as suddenly I felt her body leaning against mine. That meant she was completely inside me. 
 
- Once on, Tara ordered, "On all fours." 
+To my surprise, I easily took the entire cock. 
 
- I joked, as I obeyed, "I see you're back to your bossy self." 
+I had never been fucked by a guy and had only been fucked once by Aunt Debbie with my vibrator. This was different. I wanted to feel her fucking me. I declared, "Now please, Tara, take my virginity." 
 
- "You're the submissive and I'm the boss," she said, as she moved behind me. 
+"What?" both Mom and Tara asked. 
 
- "Well, discipline your worker," I purred, as she moved behind me and put her hands on my hips. 
+"I've never been fucked before," I admitted. 
 
- "I have wanted to do this for a while," Tara declared, surprising me as she slid the cock inside my fevered cunt. 
+"Not even by Barry?" Tara asked. 
 
- "What?!?" I asked with a loud moan as the cock filled me. 
+I had told Tara that Barry and I had sex to make myself not look like a pathetic virgin. But the truth was I had only sucked his cock and allowed him to finger me. 
 
- "I play basketball," she said. "What do you think we do on road trips?" 
+"No, I lied," I said. 
 
- "Play basketball," I joked. 
+"Why?" Tara asked. 
 
- "Well, we do some of that too," Tara said, as suddenly I felt her body leaning against mine. That meant she was completely inside me. 
+"Because I didn't want to look pathetic," I answered, before adding, "plus I don't like boys." 
 
- To my surprise, I easily took the entire cock. 
+"You're a lesbian?" Tara asked. 
 
- I had never been fucked by a guy and had only been fucked once by Aunt Debbie with my vibrator. This was different. I wanted to feel her fucking me. I declared, "Now please, Tara, take my virginity." 
+"Well, if only liking licking cunny makes me a lesbian, then yes," I said, trying to make a joke out of it. 
 
- "What?" both Mom and Tara asked. 
+tradition-lezmas-eve17.jpg] 
 
- "I've never been fucked before," I admitted. 
+"Take my virginity, and do whatever you do on your road trips on me," I offered, wanting to be fucked now. 
 
- "Not even by Barry?" Tara asked. 
+"You sure?" Tara asked, as she remained deep in me. 
 
- I had told Tara that Barry and I had sex to make myself not look like a pathetic virgin. But the truth was I had only sucked his cock and allowed him to finger me. 
+"Definitely," I nodded, before adding, "now fuck me with that big cock." 
 
- "No, I lied," I said. 
+"As you wish," she said, as she began fucking me slowly. 
 
- "Why?" Tara asked. 
+"Ohhhhh," I moaned. 
 
- "Because I didn't want to look pathetic," I answered, before adding, "plus I don't like boys." 
+"How are you possibly taking this all?" Tara asked. 
 
- "You're a lesbian?" Tara asked. 
+"Because Aunt Debbie prepped my pussy earlier this week," I revealed. 
 
- "Well, if only liking licking cunny makes me a lesbian, then yes," I said, trying to make a joke out of it. 
+"What?" Tara asked, stopping mid stroke. 
 
- 
+"Aunt Debbie seduced me a few days ago," I said. 
 
- tradition-lezmas-eve17.jpg] 
+"Oh my God," Tara said. "How could I not know that my mom is a lesbian?" 
 
- "Take my virginity, and do whatever you do on your road trips on me," I offered, wanting to be fucked now. 
+"She has wanted to tell you forever," Mom said, interjecting for the first time in a while. 
 
- "You sure?" Tara asked, as she remained deep in me. 
+"She has?" Tara asked. 
 
- "Definitely," I nodded, before adding, "now fuck me with that big cock." 
+"Oh yes," Mom moaned, slowly rubbing herself. "We have been planning this day for a while." 
 
- "As you wish," she said, as she began fucking me slowly. 
+"Wow!" Tara said. 
 
- "Ohhhhh," I moaned. 
+"Can we get back to taking my virginity?" I questioned, as I began to bounce back on the cock, deciding to fuck myself. 
 
- "How are you possibly taking this all?" Tara asked. 
+Tara laughed, "Sorry, the revelations just keep on coming." 
 
- "Because Aunt Debbie prepped my pussy earlier this week," I revealed. 
+"As I want to too," I moaned, my orgasm building. 
 
- "What?" Tara asked, stopping mid stroke. 
+"Always playing with words," Tara scolded, as she began meeting my movements. 
 
- "Aunt Debbie seduced me a few days ago," I said. 
+"Now I just want to play with you," I quipped back. 
 
- "Oh my God," Tara said. "How could I not know that my mom is a lesbian?" 
+After a couple more minutes I knew I wasn't going to last much longer. I moaned, "So close." 
 
- "She has wanted to tell you forever," Mom said, interjecting for the first time in a while. 
+tradition-lezmas-eve18.jpg] 
 
- "She has?" Tara asked. 
+Suddenly, Tara pulled out and I whined, "What are you doing?" 
 
- "Oh yes," Mom moaned, slowly rubbing herself. "We have been planning this day for a while." 
+"What I would do on a road trip," she said, as she buried her face in my ass. 
 
- "Wow!" Tara said. 
+"Oh, my," I moaned, her tongue licking my rosebud and creating new emotions and sensations. 
 
- "Can we get back to taking my virginity?" I questioned, as I began to bounce back on the cock, deciding to fuck myself. 
+"I love eating ass," Tara declared, her tongue doing wonders. 
 
- Tara laughed, "Sorry, the revelations just keep on coming." 
+"I love having my ass eaten," I declared, an act I had never even considered a possibility until it was happening. 
 
- "As I want to too," I moaned, my orgasm building. 
+Mom said, "You two are just like your own mothers." 
 
- "Always playing with words," Tara scolded, as she began meeting my movements. 
+"How so?" I asked. 
 
- "Now I just want to play with you," I quipped back. 
+"Tara is a dominant kinky woman, just like her mother," Mom said. 
 
- After a couple more minutes I knew I wasn't going to last much longer. I moaned, "So close." 
+"And what about you and Kylie?" Tara asked, still swirling her tongue around my asshole. 
 
- 
+"And Kylie and I both look sweet and innocent, but are eager little sluts underneath that conservative look," Mom revealed. 
 
- tradition-lezmas-eve18.jpg] 
+"Like Mommy, like daughter," I moaned. 
 
- Suddenly, Tara pulled out and I whined, "What are you doing?" 
+"Does auntie take it in the ass?" Tara asked, as she rolled me onto my back. 
 
- "What I would do on a road trip," she said, as she buried her face in my ass. 
+"What?" I gasped, worried that she was considering fucking my ass. 
 
- "Oh, my," I moaned, her tongue licking my rosebud and creating new emotions and sensations. 
+"Your uncle loves pounding my asshole, as does your mother," Mom said, as she moved her fingers and slid two into her own asshole. 
 
- "I love eating ass," Tara declared, her tongue doing wonders. 
+"Holy shit," I said. 
 
- "I love having my ass eaten," I declared, an act I had never even considered a possibility until it was happening. 
+"You and your witty innuendo," Tara chuckled, as she lubed the cock again. 
 
- Mom said, "You two are just like your own mothers." 
+"You're not going to fuck my ass, are you?" I asked. 
 
- "How so?" I asked. 
+"You told me you wanted to be treated like a road trip slut," she said, as she added lube to my asshole. "And all my little basketball sluts must be willing to get fucked in all three of their holes." 
 
- "Tara is a dominant kinky woman, just like her mother," Mom said. 
+"Oh my God," I said. Now being my turn to get shocked. 
 
- "And what about you and Kylie?" Tara asked, still swirling her tongue around my asshole. 
+"Just like your mother," Mom moaned. 
 
- "And Kylie and I both look sweet and innocent, but are eager little sluts underneath that conservative look," Mom revealed. 
+"I'll go slow," Tara said. 
 
- "Like Mommy, like daughter," I moaned. 
+"Please do," I nodded, willing to get sodomized. 
 
- "Does auntie take it in the ass?" Tara asked, as she rolled me onto my back. 
+Tara joked, as she positioned the massive cock at my ass, "I'm going to take two of your virginities in one day." 
 
- "What?" I gasped, worried that she was considering fucking my ass. 
+"What a great present," I joked back, as I felt the cockhead slowly push inside my out only hole, which apparently was under new rules. 
 
- "Your uncle loves pounding my asshole, as does your mother," Mom said, as she moved her fingers and slid two into her own asshole. 
+"Merry Christmas," Tara said, smiling down at me as the cock slowly penetrated me. 
 
- "Holy shit," I said. 
+"Oh... my... God," I said through gritted teeth, a sharp pain burning through me. 
 
- "You and your witty innuendo," Tara chuckled, as she lubed the cock again. 
+"Just relax," Mom said. "The pain will go away in a bit and then a pleasure you can't even imagine will begin to take over." 
 
- "You're not going to fuck my ass, are you?" I asked. 
+"K," I nodded, only feeling pain and yet somehow enjoying the submissiveness of allowing myself to be taken in such a way. 
 
- "You told me you wanted to be treated like a road trip slut," she said, as she added lube to my asshole. "And all my little basketball sluts must be willing to get fucked in all three of their holes." 
+"I'm not going to go all in, Kylie," Tara said, before adding, "Just enough to fuck that sweet asshole of yours." 
 
- "Oh my God," I said. Now being my turn to get shocked. 
+For a few minutes Tara slowly fucked my ass. As mom promised, the pain did fade, although not going away completely, but a pleasure did slowly grow... one unlike when I used a vibrator or was licked. Not better, or worse, just different. 
 
- "Just like your mother," Mom moaned. 
+tradition-lezmas-eve19.jpg] 
 
- "I'll go slow," Tara said. 
+Slowly, I could feel my orgasm rising again. I moaned, "Faster, Tara, fuck my ass faster." 
 
- "Please do," I nodded, willing to get sodomized. 
+"You want to come from getting ass fucked?" Tara asked, as she did indeed go faster and deeper. 
 
- Tara joked, as she positioned the massive cock at my ass, "I'm going to take two of your virginities in one day." 
+A new pain hit me. 
 
- "What a great present," I joked back, as I felt the cockhead slowly push inside my out only hole, which apparently was under new rules. 
+A new pleasure hit me. 
 
- "Merry Christmas," Tara said, smiling down at me as the cock slowly penetrated me. 
+The pleasure and pain principle creating a euphoria that had my orgasm rising at an accelerated rate. "Oh yes, more," I moaned. 
 
- "Oh... my... God," I said through gritted teeth, a sharp pain burning through me. 
+"Come for me," Tara ordered, getting dominant. "Come, you little ass slut!" 
 
- "Just relax," Mom said. "The pain will go away in a bit and then a pleasure you can't even imagine will begin to take over." 
+Somehow the name calling turned me on and I moaned, "So close, yes, fuck my ass harder." 
 
- "K," I nodded, only feeling pain and yet somehow enjoying the submissiveness of allowing myself to be taken in such a way. 
+She kept fucking me, going deeper and deeper in my ass, until I erupted, "Yessssssss." 
 
- "I'm not going to go all in, Kylie," Tara said, before adding, "Just enough to fuck that sweet asshole of yours." 
+As I came, she pulled out and dove into my pussy, licking my cum. 
 
- For a few minutes Tara slowly fucked my ass. As mom promised, the pain did fade, although not going away completely, but a pleasure did slowly grow... one unlike when I used a vibrator or was licked. Not better, or worse, just different. 
+My wig had fallen off a while ago, as had Tara's too when she dove between my legs, and when she moved up to kiss me, my own juices on her lips, we were not two cousins, but two lovers. 
 
- 
-
- tradition-lezmas-eve19.jpg] 
-
- Slowly, I could feel my orgasm rising again. I moaned, "Faster, Tara, fuck my ass faster." 
-
- "You want to come from getting ass fucked?" Tara asked, as she did indeed go faster and deeper. 
-
- A new pain hit me. 
-
- A new pleasure hit me. 
-
- The pleasure and pain principle creating a euphoria that had my orgasm rising at an accelerated rate. "Oh yes, more," I moaned. 
-
- "Come for me," Tara ordered, getting dominant. "Come, you little ass slut!" 
-
- Somehow the name calling turned me on and I moaned, "So close, yes, fuck my ass harder." 
-
- She kept fucking me, going deeper and deeper in my ass, until I erupted, "Yessssssss." 
-
- As I came, she pulled out and dove into my pussy, licking my cum. 
-
- My wig had fallen off a while ago, as had Tara's too when she dove between my legs, and when she moved up to kiss me, my own juices on her lips, we were not two cousins, but two lovers. 
-
- 
-
- tradition-lezmas-eve20.jpg]  
-
- 
-
- 
+tradition-lezmas-eve20.jpg]  
 
 ===
 
 We kissed for a couple of minutes, while Tara took off the strap-on Mom asked, "So are you going to call social services on me?" 
 
- Tara broke the kiss and pulled me up off the floor. 
+Tara broke the kiss and pulled me up off the floor. 
 
- Tara put her arm around me and I did the same as we turned to see Mom standing there. Feeling the most satisfied I ever had from sex, even though I loved the few encounters I had had before today, I smiled, "Heck, no! You're the best, Mom. This is the best present I've ever gotten." 
+Tara put her arm around me and I did the same as we turned to see Mom standing there. Feeling the most satisfied I ever had from sex, even though I loved the few encounters I had had before today, I smiled, "Heck, no! You're the best, Mom. This is the best present I've ever gotten." 
 
- 
+tradition-lezmas-eve21.jpg] 
 
- tradition-lezmas-eve21.jpg] 
+Mom smiled a wicked smile as she said, "Well, I have one more gift for the both of you." 
 
- Mom smiled a wicked smile as she said, "Well, I have one more gift for the both of you." 
+Tara, all giddy with excitement, asked, "What? What is it? Can we have it now? Pretty please?" 
 
- Tara, all giddy with excitement, asked, "What? What is it? Can we have it now? Pretty please?" 
+"Oh," Mom smiled, walking towards us. "This is a gift you can have whenever you want." 
 
- "Oh," Mom smiled, walking towards us. "This is a gift you can have whenever you want." 
+"But it's already unwrapped," Tara said playfully. 
 
- "But it's already unwrapped," Tara said playfully. 
+"But it's exactly what I wanted," I added. 
 
- "But it's exactly what I wanted," I added. 
+"Both of you follow me," Mom ordered, as she led us to her bedroom. 
 
- "Both of you follow me," Mom ordered, as she led us to her bedroom. 
+We followed, both eager like puppies. 
 
- We followed, both eager like puppies. 
+Mom got onto her bed, spread her legs and smiled, "Come and continue our new family tradition." 
 
- Mom got onto her bed, spread her legs and smiled, "Come and continue our new family tradition." 
+Tara and I both got on the bed at the same time. 
 
- Tara and I both got on the bed at the same time. 
+Tara purred, "Best Christmas ever." 
 
- Tara purred, "Best Christmas ever." 
+I agreed, "Maybe the new family tradition could happen more than once a year." 
 
- I agreed, "Maybe the new family tradition could happen more than once a year." 
+"Maybe every day should be Christmas," Tara added, as she buried her face in Mom's pussy while I cursed that I didn't do it first. 
 
- "Maybe every day should be Christmas," Tara added, as she buried her face in Mom's pussy while I cursed that I didn't do it first. 
+"I couldn't agree more," Mom moaned. 
 
- "I couldn't agree more," Mom moaned. 
+After a minute, I declared, "My turn." 
 
- After a minute, I declared, "My turn." 
+"For what?" Mom asked. 
 
- "For what?" Mom asked. 
+"To munch on Mommy's pussy," I answered, liking the idea of reminding us that we were involved in the taboo act of incest. 
 
- "To munch on Mommy's pussy," I answered, liking the idea of reminding us that we were involved in the taboo act of incest. 
+"Well, then suck on Mommy's cunny, my baby girl," Mom said. 
 
- "Well, then suck on Mommy's cunny, my baby girl," Mom said. 
+Tara and I took turns licking Mom's pussy for the next few minutes. 
 
- Tara and I took turns licking Mom's pussy for the next few minutes. 
+When I licked, Tara was kissing my back and neck. 
 
- When I licked, Tara was kissing my back and neck. 
+When she licked, I replicated the sweet tenderness on her. 
 
- When she licked, I replicated the sweet tenderness on her. 
+Mom's moans were increasing when were startled by another voice. 
 
- Mom's moans were increasing when were startled by another voice. 
+"How dare you start without me!" Aunt Debbie said. 
 
- "How dare you start without me!" Aunt Debbie said. 
+We turned around and saw she was already getting undressed. 
 
- We turned around and saw she was already getting undressed. 
+Mom purred, "Oh, that was just the appetizer. Now it's time for the full meal deal." 
 
- Mom purred, "Oh, that was just the appetizer. Now it's time for the full meal deal." 
+"It better be," Aunt Debbie nodded, joining us on the bed. "It's time my daughter learned her place." 
 
- "It better be," Aunt Debbie nodded, joining us on the bed. "It's time my daughter learned her place." 
+"My place?" Tara asked. 
 
- "My place?" Tara asked. 
+"Between my legs," Aunt Debbie firmly said. "Now get between them." 
 
- "Between my legs," Aunt Debbie firmly said. "Now get between them." 
+As Tara obeyed and dove between her Mom's legs, I buried my face in my own Mom's pussy. No doubt about it, this was the best Christmas ever. 
 
- As Tara obeyed and dove between her Mom's legs, I buried my face in my own Mom's pussy. No doubt about it, this was the best Christmas ever. 
+THE END 
 
- THE END 
+tradition-lezmas-eve22.jpg] 
 
- 
+Thanks again to Rebecca for the artwork permission. 
 
- tradition-lezmas-eve22.jpg] 
+This story was inspired by Rebecca's many art collections including 'Housewives at Play', 'Teens at Play' and 'Hot Moms'. 
 
- Thanks again to Rebecca for the artwork permission. 
+Lastly, this is my fifth collaboration with Rebecca for Literotica. If you want to read my other stories with her artwork (which are not related at all to this story) please search: 
 
- This story was inspired by Rebecca's many art collections including 'Housewives at Play', 'Teens at Play' and 'Hot Moms'. 
+Straight Housewife Blackmailed 
 
- Lastly, this is my fifth collaboration with Rebecca for Literotica. If you want to read my other stories with her artwork (which are not related at all to this story) please search: 
+"Moms &amp; Daughters": A Family Affair 
 
- Straight Housewife Blackmailed 
+Summer of Slut: MILF Challenge 
 
- "Moms &amp; Daughters": A Family Affair 
+Coming out in College 
 
- Summer of Slut: MILF Challenge 
+Thanks for reading... 
 
- Coming out in College 
-
- Thanks for reading... 
-
- Jasmine November 2015 Report_Story 
+Jasmine November 2015 Report_Story 

@@ -2,6216 +2,5786 @@
 ======================================
 #1 
 
- 
-
- 
-
 ===
 
 Summary: College student is drawn into the world of sexual submission. 
 
- Note 1: This story is dedicated to Lily who requested the story and who willingly took photos of herself in a variety of positions and outfits as requested for a two month journey. 
+Note 1: This story is dedicated to Lily who requested the story and who willingly took photos of herself in a variety of positions and outfits as requested for a two month journey. 
 
- Note 2: All photographs are used with permission of the model and photographer...Lily. 
+Note 2: All photographs are used with permission of the model and photographer...Lily. 
 
- Note 3: This is an April Fool's 2015 Contest story. The theme for the contest is: humorous, surprise meetings, trick endings or themes of deception, chance or misunderstanding (happy or otherwise). This story will fit one of these...but not to wreck the ending...I'll let you decide which one when you reach it. 
+Note 3: This is an April Fool's 2015 Contest story. The theme for the contest is: humorous, surprise meetings, trick endings or themes of deception, chance or misunderstanding (happy or otherwise). This story will fit one of these...but not to wreck the ending...I'll let you decide which one when you reach it. 
 
- Note 4: Thanks to Wayne, goamz86 and Robert for editing this lengthy tale. 
+Note 4: Thanks to Wayne, goamz86 and Robert for editing this lengthy tale. 
 
- Note 5: This is a fetish story focusing on a few visual kinks: stockings, lips, painted toenails and feet. 
+Note 5: This is a fetish story focusing on a few visual kinks: stockings, lips, painted toenails and feet. 
 
- "Stocking Tales": Becoming Boss's Pet 
+"Stocking Tales": Becoming Boss's Pet 
 
- 
+bosss-pet01.jpg]In my fourth year of college, I had an interview at the most prestigious accounting firm in the city and was super excited about it. 
 
- bosss-pet01.jpg]In my fourth year of college, I had an interview at the most prestigious accounting firm in the city and was super excited about it. 
+I spent hours deciding what to wear. I didn't want to dress too professional and look like a nerd, but I also didn't want to dress too casual and not look like I was serious about the job. I had been to a few interviews and was in awe with how skanky some of the girls dressed; that said, I hadn't yet got a job so I wondered if dressing sexier was what I would have to do. Yet, it just wasn't me to pretend to be something I'm not. I wanted to get the job because of my qualifications and not superficial sexual assets that fade or sag over time. 
 
- I spent hours deciding what to wear. I didn't want to dress too professional and look like a nerd, but I also didn't want to dress too casual and not look like I was serious about the job. I had been to a few interviews and was in awe with how skanky some of the girls dressed; that said, I hadn't yet got a job so I wondered if dressing sexier was what I would have to do. Yet, it just wasn't me to pretend to be something I'm not. I wanted to get the job because of my qualifications and not superficial sexual assets that fade or sag over time. 
+So, I researched online, chatted with friends and ended up choosing a rather conservative, but professional, look. I wore a white blouse, a long blue skirt that allowed only my ankles to show, and flats (I was kind of clumsy and was worried about falling in heels). 
 
- So, I researched online, chatted with friends and ended up choosing a rather conservative, but professional, look. I wore a white blouse, a long blue skirt that allowed only my ankles to show, and flats (I was kind of clumsy and was worried about falling in heels). 
+The outfit didn't flatter my body at all, as I wanted to be taken seriously as someone they would want to hire and not another college coed with a nice body. For the record, I do have a pretty great body. I am 5'3, 105lbs, firm but small 34B breasts, with a tight ass and toned legs from hours of martial arts and yoga. 
 
- The outfit didn't flatter my body at all, as I wanted to be taken seriously as someone they would want to hire and not another college coed with a nice body. For the record, I do have a pretty great body. I am 5'3, 105lbs, firm but small 34B breasts, with a tight ass and toned legs from hours of martial arts and yoga. 
+Although my outer attire has always been conservative, I did like to dress up for the bedroom for whoever I was dating and I owned a fair amount of sexy lingerie. Although, truth be told, I hadn't gotten to wear it much as I hadn't been dating for a while, the last year of college being rather intense. 
 
- Although my outer attire has always been conservative, I did like to dress up for the bedroom for whoever I was dating and I owned a fair amount of sexy lingerie. Although, truth be told, I hadn't gotten to wear it much as I hadn't been dating for a while, the last year of college being rather intense. 
+My best assets: my legs, my outgoing personality (almost all my friends are older than me and I have always been attracted to older men) and my lips...the first compliment I receive from many men and tons of women are my lips. 
 
- My best assets: my legs, my outgoing personality (almost all my friends are older than me and I have always been attracted to older men) and my lips...the first compliment I receive from many men and tons of women are my lips. 
+bosss-pet02.jpg] 
 
- 
+I should note that my heritage, a mixture of Spanish and Irish, made me not only outgoing, but also rather blunt...something that many people either loved or hated about me. 
 
- bosss-pet02.jpg] 
+Anyways, I went to the job interview after hours of practicing the answers to questions I may get...yet completely unprepared for the questions I did receive. 
 
- I should note that my heritage, a mixture of Spanish and Irish, made me not only outgoing, but also rather blunt...something that many people either loved or hated about me. 
+I showed up half an hour early and got to see that I was indeed the most conservatively dressed candidate. At first that made me happy, but then I again realized that if the person interviewing me was a male, which it likely was, I could very well be ignored because of my lack of showcasing my assets. 
 
- Anyways, I went to the job interview after hours of practicing the answers to questions I may get...yet completely unprepared for the questions I did receive. 
+Like I already mentioned, I wanted to get the job because of who I was, not what I looked like, so I pushed away the inner demons of 'sex sells' and waited for my interview, confident in my abilities and personality. 
 
- I showed up half an hour early and got to see that I was indeed the most conservatively dressed candidate. At first that made me happy, but then I again realized that if the person interviewing me was a male, which it likely was, I could very well be ignored because of my lack of showcasing my assets. 
+I was thankful when it was finally my turn when to learn that the person interviewing me was a woman, a very pretty woman, in her early forties I guessed, who was dressed very professionally as well, although her skirt was just above her knees, making mine look incredibly conservative. 
 
- Like I already mentioned, I wanted to get the job because of who I was, not what I looked like, so I pushed away the inner demons of 'sex sells' and waited for my interview, confident in my abilities and personality. 
+"Sorry for the long wait, Ms. Lovex," she greeted, walking to me and offering her hand. 
 
- I was thankful when it was finally my turn when to learn that the person interviewing me was a woman, a very pretty woman, in her early forties I guessed, who was dressed very professionally as well, although her skirt was just above her knees, making mine look incredibly conservative. 
+"No problem," I replied," it gave me time to think." As soon as I said it I wished I could take it back, the answer sounding stupid. 
 
- "Sorry for the long wait, Ms. Lovex," she greeted, walking to me and offering her hand. 
+She said, without any sense of emotion, "Well, you already have an advantage over the other applicants." 
 
- "No problem," I replied," it gave me time to think." As soon as I said it I wished I could take it back, the answer sounding stupid. 
+"I do?" I asked. 
 
- She said, without any sense of emotion, "Well, you already have an advantage over the other applicants." 
+"Everyone else dressed trying to use their body for influence, obviously assuming they were being interviewed by a man," she continued. 
 
- "I do?" I asked. 
+Confidence quickly brimming inside me, I nodded, "I want to be seen for my abilities and what I can do for this company." 
 
- "Everyone else dressed trying to use their body for influence, obviously assuming they were being interviewed by a man," she continued. 
+"Good answer," she nodded, before pointing to a chair in front of her desk, "Please take a seat." 
 
- Confidence quickly brimming inside me, I nodded, "I want to be seen for my abilities and what I can do for this company." 
+"Thank you, ma'am," I replied, never sure what the proper name is for someone in charge in such a situation. 
 
- "Good answer," she nodded, before pointing to a chair in front of her desk, "Please take a seat." 
+"It's Mrs. Parks," she corrected warmly. 
 
- "Thank you, ma'am," I replied, never sure what the proper name is for someone in charge in such a situation. 
+"Okay," I nodded as I sat down, surprised to see her pantyhose had a black seam going up the back of her leg. 
 
- "It's Mrs. Parks," she corrected warmly. 
+Once she sat down, she asked, "What is your best asset?" 
 
- "Okay," I nodded as I sat down, surprised to see her pantyhose had a black seam going up the back of her leg. 
+The question surprised me, but I answered truthfully, "I can get along with everyone." 
 
- Once she sat down, she asked, "What is your best asset?" 
+"How so?" She asked. 
 
- The question surprised me, but I answered truthfully, "I can get along with everyone." 
+"I'm a very social person and enjoy meeting new people," I explained. 
 
- "How so?" She asked. 
+"Is that a great asset for an accounting firm?"' she questioned. 
 
- "I'm a very social person and enjoy meeting new people," I explained. 
+I realized that I was already killing my chances. Accounting is about numbers, not people. After a brief pause, I explained, "I'm a closer. I am the person you send in to close a deal with a potential client." 
 
- "Is that a great asset for an accounting firm?"' she questioned. 
+"Go on," she nodded, seemingly liking my answer. 
 
- I realized that I was already killing my chances. Accounting is about numbers, not people. After a brief pause, I explained, "I'm a closer. I am the person you send in to close a deal with a potential client." 
+"Well it's a dog eat dog world and clients are way more fickle than they used to be; so it's important to be aggressive to get and keep the big clients and my personality is perfect for attracting these clients," I explained. 
 
- "Go on," she nodded, seemingly liking my answer. 
+"How so?" She asked again, going much deeper than the usual superficial questions. She was obviously able to see through bull shit. 
 
- "Well it's a dog eat dog world and clients are way more fickle than they used to be; so it's important to be aggressive to get and keep the big clients and my personality is perfect for attracting these clients," I explained. 
+"By making accounting about people," I answered. 
 
- "How so?" She asked again, going much deeper than the usual superficial questions. She was obviously able to see through bull shit. 
+"Interesting," she nodded, writing something down. After a pause, she asked, "So how do you close a deal?" 
 
- "By making accounting about people," I answered. 
+"By convincing them of all we have to offer," I answered. 
 
- "Interesting," she nodded, writing something down. After a pause, she asked, "So how do you close a deal?" 
+"No, no," she shook her head. "Pretend I am the client and you are trying to close the deal." 
 
- "By convincing them of all we have to offer," I answered. 
+I asked, "What type of company are you?" 
 
- "No, no," she shook her head. "Pretend I am the client and you are trying to close the deal." 
+"Why does that matter?" She asked. 
 
- I asked, "What type of company are you?" 
+"Different closings based on different needs," I answered. 
 
- "Why does that matter?" She asked. 
+"Good call," she nodded. "I'm a lawyer's office." 
 
- "Different closings based on different needs," I answered. 
+"Hmmmm," I paused. I won't bore you with the details of my pitch, but once done with the lengthy spiel, I nervously waited for a verdict. 
 
- "Good call," she nodded. "I'm a lawyer's office." 
+Mrs. Parks showed no emotion. I couldn't tell if she was impressed by my pitch or ready to kick me out of the office. Finally, after a few seconds, which seemed like an eternity, she nodded, shocking me, "You're hired." 
 
- "Hmmmm," I paused. I won't bore you with the details of my pitch, but once done with the lengthy spiel, I nervously waited for a verdict. 
+"P-p-pardon," I stammered. 
 
- Mrs. Parks showed no emotion. I couldn't tell if she was impressed by my pitch or ready to kick me out of the office. Finally, after a few seconds, which seemed like an eternity, she nodded, shocking me, "You're hired." 
+"You're hired," she repeated, this time standing up and walking to me. 
 
- "P-p-pardon," I stammered. 
+I stood up in stunned shock at the reality that I got the job without really doing an interview. 
 
- "You're hired," she repeated, this time standing up and walking to me. 
+Reaching me, she explained, "I have done a plethora of interviews over the years and I know when someone is authentic and someone is full of shit." 
 
- I stood up in stunned shock at the reality that I got the job without really doing an interview. 
+"Thank you," I awkwardly replied, assuming she thought I was authentic. 
 
- Reaching me, she explained, "I have done a plethora of interviews over the years and I know when someone is authentic and someone is full of shit." 
+"But we will have to do something about this wardrobe," she said, looking at my attire. 
 
- "Thank you," I awkwardly replied, assuming she thought I was authentic. 
+I admitted, "I spent hours deciding what to wear and what not to wear." 
 
- "But we will have to do something about this wardrobe," she said, looking at my attire. 
+"Always go with your instincts," she recommended, "like you did with your pitch. You didn't have time to think and rethink, you just had to do." 
 
- I admitted, "I spent hours deciding what to wear and what not to wear." 
+"Ok, usually I'm very good on my feet," I said. 
 
- "Always go with your instincts," she recommended, "like you did with your pitch. You didn't have time to think and rethink, you just had to do." 
+Her next words were strange. "In today's business world a woman needs to be good both on her feet and off them." 
 
- "Ok, usually I'm very good on my feet," I said. 
+I joked, although I wasn't sure where she was going with this, "That's what my ex-boyfriend always said." 
 
- Her next words were strange. "In today's business world a woman needs to be good both on her feet and off them." 
+"So you're single?" She asked. 
 
- I joked, although I wasn't sure where she was going with this, "That's what my ex-boyfriend always said." 
+"I have been for a while," I admitted. 
 
- "So you're single?" She asked. 
+"Good," she nodded. "I have decided that you will be my personal assistant for the next few months, working under me." 
 
- "I have been for a while," I admitted. 
+She stressed the last three words, which I thought strange, but I was too excited to be working with the head of the company to really worry about any implications of words. 
 
- "Good," she nodded. "I have decided that you will be my personal assistant for the next few months, working under me." 
+"I'm honoured," I said, glowing with excitement, 
 
- She stressed the last three words, which I thought strange, but I was too excited to be working with the head of the company to really worry about any implications of words. 
+"As you should be," she said, always firm in her demeanour, "this is an amazing opportunity." 
 
- "I'm honoured," I said, glowing with excitement, 
+"I know," I nodded, "I can't thank you enough." 
 
- "As you should be," she said, always firm in her demeanour, "this is an amazing opportunity." 
+"Oh trust me, you will find many ways to show your thanks," she said, again her tone implying more than business. I instantly wondered if she was a lesbian, yet the fact that she was married shattered that theory. 
 
- "I know," I nodded, "I can't thank you enough." 
+"I'll do anything," I promised. 
 
- "Oh trust me, you will find many ways to show your thanks," she said, again her tone implying more than business. I instantly wondered if she was a lesbian, yet the fact that she was married shattered that theory. 
+"I know you will," she nodded, smiling slightly for the first time this whole meeting. 
 
- "I'll do anything," I promised. 
+I added, "Mrs. Parks, I can only work afternoons for the next two months though, until my degree is finished." 
 
- "I know you will," she nodded, smiling slightly for the first time this whole meeting. 
+"I know, but I will expect you to be able to work some nights and weekends," she nodded, then added, "And have a travel bag ready for last minute excursions." 
 
- I added, "Mrs. Parks, I can only work afternoons for the next two months though, until my degree is finished." 
+"Okay," I nodded, slightly overwhelmed by her expectations, but too excited about the opportunity to share that with her. 
 
- "I know, but I will expect you to be able to work some nights and weekends," she nodded, then added, "And have a travel bag ready for last minute excursions." 
+"But back to your attire. I expect my underlings to dress both sexy and professional." 
 
- "Okay," I nodded, slightly overwhelmed by her expectations, but too excited about the opportunity to share that with her. 
+I was surprised by her expectations after her earlier criticism of the other candidates. Yet, I agreed, "Of course." 
 
- "But back to your attire. I expect my underlings to dress both sexy and professional." 
+"Of course, Mrs. Parks," she corrected. 
 
- I was surprised by her expectations after her earlier criticism of the other candidates. Yet, I agreed, "Of course." 
+"S-s-sorry," I stammered, before correcting, "of course, Mrs. Parks." 
 
- "Of course, Mrs. Parks," she corrected. 
+"Good girl," she said, her word choice odd and her tone sounding as if she were my mother. 
 
- "S-s-sorry," I stammered, before correcting, "of course, Mrs. Parks." 
+"Thank you, Mrs. Parks," I nodded, feeling strangely like a little girl. 
 
- "Good girl," she said, her word choice odd and her tone sounding as if she were my mother. 
+"I have a theory that has worked for me since I was your age," she continued, as she lifted up her leg and placed her four inch heel on my leg, "Your exterior dress should show no nonsense, with just a hint of sexiness." 
 
- "Thank you, Mrs. Parks," I nodded, feeling strangely like a little girl. 
+I recalled her seamed stocking and nodded, "Thus the seamed pantyhose." 
 
- "I have a theory that has worked for me since I was your age," she continued, as she lifted up her leg and placed her four inch heel on my leg, "Your exterior dress should show no nonsense, with just a hint of sexiness." 
+"Good eye," she nodded. "It's good to notice all the little details." 
 
- I recalled her seamed stocking and nodded, "Thus the seamed pantyhose." 
+"I couldn't agree more," I smiled, feeling she really understood me. 
 
- "Good eye," she nodded. "It's good to notice all the little details." 
+"Feel my nylon-clad leg," she ordered. 
 
- "I couldn't agree more," I smiled, feeling she really understood me. 
+It was a bizarre order, yet I felt compelled to obey for two reasons. One, she had just hired me; two, there was just something compelling and alluring about her...like I physically felt compelled to obey. 
 
- "Feel my nylon-clad leg," she ordered. 
+I put my hand on her leg and let out a gasp. I had never felt nylons so soft. 
 
- It was a bizarre order, yet I felt compelled to obey for two reasons. One, she had just hired me; two, there was just something compelling and alluring about her...like I physically felt compelled to obey. 
+"Forty-five dollars a pair," she explained, "and worth every damn penny." 
 
- I put my hand on her leg and let out a gasp. I had never felt nylons so soft. 
+"I imagine so," I mindlessly nodded, as I continued to pet my new boss's leg. 
 
- "Forty-five dollars a pair," she explained, "and worth every damn penny." 
+"So as I was explaining, outer attire is business with some allure. It may be your breasts, although for you that isn't your best asset," she said, looking at my chest. "On the other hand, the right push up bra can do wonders." 
 
- "I imagine so," I mindlessly nodded, as I continued to pet my new boss's leg. 
+"So I've heard," I said, always self-conscious of my smaller than average breasts. 
 
- "So as I was explaining, outer attire is business with some allure. It may be your breasts, although for you that isn't your best asset," she said, looking at my chest. "On the other hand, the right push up bra can do wonders." 
+She continued, "No, I imagine your best asset is your legs." 
 
- "So I've heard," I said, always self-conscious of my smaller than average breasts. 
+I don't know why I said it, but I added, "I've been told my lips are my best asset." 
 
- She continued, "No, I imagine your best asset is your legs." 
+"I bet you have," she replied, implying I probably sucked a lot of cock. 
 
- I don't know why I said it, but I added, "I've been told my lips are my best asset." 
+I stammered, trying to clarify my last statement, "Not like that." 
 
- "I bet you have," she replied, implying I probably sucked a lot of cock. 
+"I don't judge," she shrugged. "but in today's world a woman has got to have the mind to impress and the body to please." 
 
- I stammered, trying to clarify my last statement, "Not like that." 
+"I suppose," I said, the conversation taking another odd turn, especially considering her earlier criticism of the other applicants for the job. 
 
- "I don't judge," she shrugged. "but in today's world a woman has got to have the mind to impress and the body to please." 
+"No suppose," she corrected, as she put her hand on my shoulder and slid her foot out of her heel. "What do you see?" 
 
- "I suppose," I said, the conversation taking another odd turn, especially considering her earlier criticism of the other applicants for the job. 
+I knew her foot wasn't the right answer, as I was supposed to be able to see the small things. I analyzed her whole foot before answering, "Your toenails and fingernails match." 
 
- "No suppose," she corrected, as she put her hand on my shoulder and slid her foot out of her heel. "What do you see?" 
+"Why?" She asked. "My heels are closed toe." 
 
- I knew her foot wasn't the right answer, as I was supposed to be able to see the small things. I analyzed her whole foot before answering, "Your toenails and fingernails match." 
+"Part of the allure," I answered, oddly wanting to massage her stocking-clad foot. 
 
- "Why?" She asked. "My heels are closed toe." 
+"Exactly," she nodded. "Never know when the heels will come off...or the skirt and blouse." 
 
- "Part of the allure," I answered, oddly wanting to massage her stocking-clad foot. 
+"Understood," I nodded, drawn in completely by this firm, sophisticated, complex, intoxicating woman. 
 
- "Exactly," she nodded. "Never know when the heels will come off...or the skirt and blouse." 
+bosss-pet03.jpg]She slipped her foot back into her shoe and moved her leg back down. For some unexplained reason, I was disappointed at no longer being able to see her perfectly manicured painted toes. She ordered, "Stand up." 
 
- "Understood," I nodded, drawn in completely by this firm, sophisticated, complex, intoxicating woman. 
+I obeyed instantly, knowing this was a woman who expects quick obedience. 
 
- 
+"Take off one of your flats," she ordered, before adding very firmly, "You will never wear flats to work. Ten year olds wear flats, women wear heels." 
 
- bosss-pet03.jpg]She slipped her foot back into her shoe and moved her leg back down. For some unexplained reason, I was disappointed at no longer being able to see her perfectly manicured painted toes. She ordered, "Stand up." 
+Although I was being scolded, ridiculed for my footwear, I nodded, as I slipped my foot out of my practical, but not remotely sexy, flat, "Yes, Mrs. Parks." 
 
- I obeyed instantly, knowing this was a woman who expects quick obedience. 
+"As expected," she sighed, "your toenails are not painted to match your fingers." 
 
- "Take off one of your flats," she ordered, before adding very firmly, "You will never wear flats to work. Ten year olds wear flats, women wear heels." 
+"Sorry, Mrs. Parks," I apologized, which was absurd, but I felt guilty for disappointing this important woman. 
 
- Although I was being scolded, ridiculed for my footwear, I nodded, as I slipped my foot out of my practical, but not remotely sexy, flat, "Yes, Mrs. Parks." 
+"You will correct this for when you start on Monday," she said. 
 
- "As expected," she sighed, "your toenails are not painted to match your fingers." 
+I was in awe that she was definitely hiring me, and that I was starting on Monday, realizing I had a lot of shopping to do this weekend. I again replied subserviently, "Of course, Mrs. Parks." 
 
- "Sorry, Mrs. Parks," I apologized, which was absurd, but I felt guilty for disappointing this important woman. 
+"You may put your shoe back on," she instructed. 
 
- "You will correct this for when you start on Monday," she said. 
+"Thank you, Mrs. Parks," I nodded, slipping my foot back into my shoe. 
 
- I was in awe that she was definitely hiring me, and that I was starting on Monday, realizing I had a lot of shopping to do this weekend. I again replied subserviently, "Of course, Mrs. Parks." 
+"You will start on Monday at one," she informed me. 
 
- "You may put your shoe back on," she instructed. 
+bosss-pet04.jpg]"Thank you, Mrs. Parks," I repeated, like a parrot. Usually, I was very comfortable in all situations and never nervous; yet, at this moment I was feeling overwhelmed by the job offer, the strange conversation and the odd butterflies in my stomach (which I usually got when I found an older man attractive). Instantly I wondered, did I find Mrs. Parks attractive? 
 
- "Thank you, Mrs. Parks," I nodded, slipping my foot back into my shoe. 
+"Now this is going to sound unorthodox, but lift up your skirt to your thigh," she ordered. 
 
- "You will start on Monday at one," she informed me. 
+Usually I would have balked at such an aggressive demand, yet I instantly obeyed, lifting up my skirt, compelled to do whatever she instructed. 
 
- 
+"As expected," she said disapprovingly. She lifted up her skirt and showed me she was wearing thigh high stockings. "This, my dear, is how a woman should dress. How I expect my underlings to dress." 
 
- bosss-pet04.jpg]"Thank you, Mrs. Parks," I repeated, like a parrot. Usually, I was very comfortable in all situations and never nervous; yet, at this moment I was feeling overwhelmed by the job offer, the strange conversation and the odd butterflies in my stomach (which I usually got when I found an older man attractive). Instantly I wondered, did I find Mrs. Parks attractive? 
+I wanted to ask why, but I just nodded, even as I pondered her word choice of 'underlings', "Of course, Mrs. Parks." 
 
- "Now this is going to sound unorthodox, but lift up your skirt to your thigh," she ordered. 
+She allowed her skirt to fall back down and said, as she walked back to her desk, "I'll see you at one o'clock Monday afternoon." 
 
- Usually I would have balked at such an aggressive demand, yet I instantly obeyed, lifting up my skirt, compelled to do whatever she instructed. 
+"Yes, Mrs. Parks and, again, thank you so much," I thanked. 
 
- "As expected," she said disapprovingly. She lifted up her skirt and showed me she was wearing thigh high stockings. "This, my dear, is how a woman should dress. How I expect my underlings to dress." 
+She didn't even look up as she said, her tone again ominous, "Oh don't worry, you will have plenty of time to thank me." 
 
- I wanted to ask why, but I just nodded, even as I pondered her word choice of 'underlings', "Of course, Mrs. Parks." 
+That weekend, I bought a whole new wardrobe, following the theory of professional with a touch of sexiness on the outside and sexy and buxom underneath. In reality, I was giddy with excitement. For one, I loved dressing up and loved wearing lingerie; for two, I really wanted to impress Mrs. Parks. 
 
- She allowed her skirt to fall back down and said, as she walked back to her desk, "I'll see you at one o'clock Monday afternoon." 
+..... 
 
- "Yes, Mrs. Parks and, again, thank you so much," I thanked. 
+bosss-pet05.jpg]On Monday, I wore a patterned sweater that I thought was super cute, a polka dot skirt that was just barely above the knees and beige thigh highs that I had purchased on the weekend...way silkier than the generic ones I had usually bought at Walmart. 
 
- She didn't even look up as she said, her tone again ominous, "Oh don't worry, you will have plenty of time to thank me." 
+I thought this balanced the professional and sexy as she described very well. I wanted to meet her expectations, yet I also wanted to look respectable and classy to my fellow co-workers. I chose comfortable one inch heels because while she hated my practical flats, I still wanted something easy to walk in. 
 
- That weekend, I bought a whole new wardrobe, following the theory of professional with a touch of sexiness on the outside and sexy and buxom underneath. In reality, I was giddy with excitement. For one, I loved dressing up and loved wearing lingerie; for two, I really wanted to impress Mrs. Parks. 
+I went to work and was surprised that I spent the whole afternoon with Elizabeth, a third year accountant. She was very nice and gave me a tour of the office, introduced me to everyone and showed me the ropes of the program I would be using. Oddly, all afternoon I looked forward to seeing Mrs. Parks, although I couldn't explain why. 
 
- ..... 
+It wasn't until four that Elizabeth's phone rang and she told me that Mrs. Parks wanted to see me. 
 
- 
+I thanked Elizabeth for all her help and headed off to see Mrs. Parks. 
 
- bosss-pet05.jpg]On Monday, I wore a patterned sweater that I thought was super cute, a polka dot skirt that was just barely above the knees and beige thigh highs that I had purchased on the weekend...way silkier than the generic ones I had usually bought at Walmart. 
+That said, I was nervous. The tour and meeting the staff made it clear my one inch heels were not going to be acceptable as every woman here was in at least three inch heels. I also had one of the longest, if not the longest, skirts of all the women I saw today. All sexy, but always business appropriate. 
 
- I thought this balanced the professional and sexy as she described very well. I wanted to meet her expectations, yet I also wanted to look respectable and classy to my fellow co-workers. I chose comfortable one inch heels because while she hated my practical flats, I still wanted something easy to walk in. 
+I entered her office and she instructed, "Close the door, Lily." 
 
- I went to work and was surprised that I spent the whole afternoon with Elizabeth, a third year accountant. She was very nice and gave me a tour of the office, introduced me to everyone and showed me the ropes of the program I would be using. Oddly, all afternoon I looked forward to seeing Mrs. Parks, although I couldn't explain why. 
+"Yes, Mrs. Parks," I replied, closing the door, for some unexplainable reason incredibly nervous, an undeniably giddy excitement, like when trying to please a man, coursing through me . I am usually a very confident woman, so this feeling was new and I didn't like it. 
 
- It wasn't until four that Elizabeth's phone rang and she told me that Mrs. Parks wanted to see me. 
+As I closed the door and turned around, I saw Mrs. Parks get up and walk towards me. 
 
- I thanked Elizabeth for all her help and headed off to see Mrs. Parks. 
+"Tell me, Lily," she began, her tone dripping with disapproval, "what is wrong with your attire?" 
 
- That said, I was nervous. The tour and meeting the staff made it clear my one inch heels were not going to be acceptable as every woman here was in at least three inch heels. I also had one of the longest, if not the longest, skirts of all the women I saw today. All sexy, but always business appropriate. 
+"It's not sexy enough," I answered, putting my head down. 
 
- I entered her office and she instructed, "Close the door, Lily." 
+"Why?" She asked. 
 
- "Yes, Mrs. Parks," I replied, closing the door, for some unexplainable reason incredibly nervous, an undeniably giddy excitement, like when trying to please a man, coursing through me . I am usually a very confident woman, so this feeling was new and I didn't like it. 
+"The skirt is too long," I admitted. 
 
- As I closed the door and turned around, I saw Mrs. Parks get up and walk towards me. 
+"Cute," she nodded, "but definitely slightly too long. What else?" 
 
- "Tell me, Lily," she began, her tone dripping with disapproval, "what is wrong with your attire?" 
+"Apparently everyone else here wears three inch heels," I answered, feeling like a child who has disappointed her mother. 
 
- "It's not sexy enough," I answered, putting my head down. 
+"Or higher," she corrected. "I'm wearing five inch heels." 
 
- "Why?" She asked. 
+My head down, I was staring at her black five inch heels wondering how she didn't kill herself in them. 
 
- "The skirt is too long," I admitted. 
+"I'm uncomfortable in heels, Mrs. Parks," I explained, finally looking up at her, before adding, trying to bring humour to this situation, "I almost killed myself at my high school grad when I wore three inch heels." 
 
- "Cute," she nodded, "but definitely slightly too long. What else?" 
+bosss-pet06.jpg]"Practice makes perfect," she shrugged. "I expect better tomorrow." 
 
- "Apparently everyone else here wears three inch heels," I answered, feeling like a child who has disappointed her mother. 
+"Yes, Mrs. Parks," I nodded, determined to indeed do better tomorrow. 
 
- "Or higher," she corrected. "I'm wearing five inch heels." 
+"Also, although your sweater is cute, it completely hides any evidence that you have breasts," she continued. 
 
- My head down, I was staring at her black five inch heels wondering how she didn't kill herself in them. 
+"Oh, okay," I nodded. I never wore outfits that showcased my breasts because they were rather small. 
 
- "I'm uncomfortable in heels, Mrs. Parks," I explained, finally looking up at her, before adding, trying to bring humour to this situation, "I almost killed myself at my high school grad when I wore three inch heels." 
+"Thigh highs?" she asked. 
 
- 
+"Yes, Mrs. Parks," I nodded, lifting up my skirt enough to showcase the top of my lace top stocking. Feeling sexy, I posed like a model, wanting to get her attention, wanting to please her. 
 
- bosss-pet06.jpg]"Practice makes perfect," she shrugged. "I expect better tomorrow." 
+"Very nice," she nodded in approval, "I see you spent the extra money and purchased a quality pair." 
 
- "Yes, Mrs. Parks," I nodded, determined to indeed do better tomorrow. 
+"Yes, they are so much silkier than the ones I have worn in the past," I agreed, still holding the pose for some reason. 
 
- "Also, although your sweater is cute, it completely hides any evidence that you have breasts," she continued. 
+"With legs like yours, Lily, you should always be wearing such silky nylons, they are definitely one of your strongest assets," she complimented, giving my legs the once over. 
 
- "Oh, okay," I nodded. I never wore outfits that showcased my breasts because they were rather small. 
+"Thank you," I nodded, finally allowing my skirt to drop back down, "I really didn't realize the impact a pair of stockings could have on both the look of the legs and the confidence it brings me wearing them." 
 
- "Thigh highs?" she asked. 
+"All part of the complete package," she agreed. 
 
- "Yes, Mrs. Parks," I nodded, lifting up my skirt enough to showcase the top of my lace top stocking. Feeling sexy, I posed like a model, wanting to get her attention, wanting to please her. 
-
- "Very nice," she nodded in approval, "I see you spent the extra money and purchased a quality pair." 
-
- "Yes, they are so much silkier than the ones I have worn in the past," I agreed, still holding the pose for some reason. 
-
- "With legs like yours, Lily, you should always be wearing such silky nylons, they are definitely one of your strongest assets," she complimented, giving my legs the once over. 
-
- "Thank you," I nodded, finally allowing my skirt to drop back down, "I really didn't realize the impact a pair of stockings could have on both the look of the legs and the confidence it brings me wearing them." 
-
- "All part of the complete package," she agreed. 
-
- "So I'm learning," I said, feeling such a rush of excitement that went directly to my pussy. I was really struggling to understand both my need for her approval and the undeniable impact her words had on me. I wasn't a lesbian, but I was beginning to think I'd be one for her. As soon as the thought popped into my head, I shook it out, thinking I needed to focus on the real reason I was here...to get a full time job at the most prestigious firm in the city.  
-
- 
-
- 
+"So I'm learning," I said, feeling such a rush of excitement that went directly to my pussy. I was really struggling to understand both my need for her approval and the undeniable impact her words had on me. I wasn't a lesbian, but I was beginning to think I'd be one for her. As soon as the thought popped into my head, I shook it out, thinking I needed to focus on the real reason I was here...to get a full time job at the most prestigious firm in the city.  
 
 ===
 
 "You okay?" she asked. 
 
- "Um, yes, fine," I said, pulling myself back to reality. 
+"Um, yes, fine," I said, pulling myself back to reality. 
 
- 
+bosss-pet07.jpg]"Let's see your foot, Lily," she ordered. 
 
- bosss-pet07.jpg]"Let's see your foot, Lily," she ordered. 
+'Damn', I thought to myself. I had forgotten to paint my toenails over the weekend. 
 
- 'Damn', I thought to myself. I had forgotten to paint my toenails over the weekend. 
+I slipped my foot out of my right heel and revealed my forgetfulness. 
 
- I slipped my foot out of my right heel and revealed my forgetfulness. 
+She looked down at my foot, said, "You may go," and waved me off as she returned to her desk. 
 
- She looked down at my foot, said, "You may go," and waved me off as she returned to her desk. 
+"Yes, Mrs. Parks," I said, slipping my foot back into my one inch black heel. 
 
- "Yes, Mrs. Parks," I said, slipping my foot back into my one inch black heel. 
+A rush of disappointment hit me as I walked out of her office, all the positives and approval shattered in one careless second. 
 
- A rush of disappointment hit me as I walked out of her office, all the positives and approval shattered in one careless second. 
+I left feeling dismissed and insignificant, a feeling I wasn't used to. I was confident in my abilities, confident in my looks and confident in my personality, yet in front of Mrs. Parks all three of those seemed to be lacking. It was so strange to not be in control of a situation or my feelings. 
 
- I left feeling dismissed and insignificant, a feeling I wasn't used to. I was confident in my abilities, confident in my looks and confident in my personality, yet in front of Mrs. Parks all three of those seemed to be lacking. It was so strange to not be in control of a situation or my feelings. 
+I also couldn't fathom why a woman twice my age was having a sexual impact on me. Besides wanting to get her approval, my panties were undeniably wet and it had me questioning my sexuality for the first time. 
 
- I also couldn't fathom why a woman twice my age was having a sexual impact on me. Besides wanting to get her approval, my panties were undeniably wet and it had me questioning my sexuality for the first time. 
+On the drive home, I went to a shoe store and bought three pairs of three inch heels, one pair of four inch heels and one pair of five inch heels. 
 
- On the drive home, I went to a shoe store and bought three pairs of three inch heels, one pair of four inch heels and one pair of five inch heels. 
+At home, I spent all night practicing walking in three inch heels. I was determined to be sure to wear them all day tomorrow. I was determined to impress Mrs. Parks. 
 
- At home, I spent all night practicing walking in three inch heels. I was determined to be sure to wear them all day tomorrow. I was determined to impress Mrs. Parks. 
+bosss-pet08.jpg] 
 
- 
+I also had a bubble bath before I painted my toenails red, wanting to impress and get the approval of my boss, replaying the immediate change in her facial expression when she saw my non-painted toenails. 
 
- bosss-pet08.jpg] 
+Then, feeling undeniably horny, I put on a sexy bra and panties, thigh high stockings, grabbed my favourite vibrator, got on my bed and began pleasuring myself. 
 
- I also had a bubble bath before I painted my toenails red, wanting to impress and get the approval of my boss, replaying the immediate change in her facial expression when she saw my non-painted toenails. 
+As I closed my eyes, I imagined Ryan Gosling, like I usually did, forcing me onto my knees and fishing out his (I pray really big) cock. 
 
- Then, feeling undeniably horny, I put on a sexy bra and panties, thigh high stockings, grabbed my favourite vibrator, got on my bed and began pleasuring myself. 
+I slowly teased myself at first, allowing my orgasm to build, as he fucks my face and tells me I'm his slut. 
 
- As I closed my eyes, I imagined Ryan Gosling, like I usually did, forcing me onto my knees and fishing out his (I pray really big) cock. 
+Then I begin pumping the vibrator in my fevered pussy faster, imagining him on top of me fucking me deep and hard. As my orgasm builds, I look up at Ryan who is smiling as he fucks me hard telling me I'm his fuck slut. Then, just as my orgasm hits, his face changes and it is Mrs. Parks fucking me. 
 
- I slowly teased myself at first, allowing my orgasm to build, as he fucks my face and tells me I'm his slut. 
+Although startled, I allow my orgasm to cascade through me, even as I look up at a smiling Mrs. Parks purring, 'that's it, my pet slut, come for me'. 
 
- Then I begin pumping the vibrator in my fevered pussy faster, imagining him on top of me fucking me deep and hard. As my orgasm builds, I look up at Ryan who is smiling as he fucks me hard telling me I'm his fuck slut. Then, just as my orgasm hits, his face changes and it is Mrs. Parks fucking me. 
+Once my orgasm was done, I shook my head knowing it had obviously been way too long since I got laid. 
 
- Although startled, I allow my orgasm to cascade through me, even as I look up at a smiling Mrs. Parks purring, 'that's it, my pet slut, come for me'. 
+I decided to stay in my sexy lingerie and did a couple hours of homework, before going to bed utterly exhausted and still in my lingerie and thigh highs. 
 
- Once my orgasm was done, I shook my head knowing it had obviously been way too long since I got laid. 
+bosss-pet09.jpg] 
 
- I decided to stay in my sexy lingerie and did a couple hours of homework, before going to bed utterly exhausted and still in my lingerie and thigh highs. 
+That night, I had a crazy wet dream that left me confused and questioning everything about the past couple of days: 
 
- 
+The dream started where I disappointed her when she looked at my non painted toes. 
 
- bosss-pet09.jpg] 
+Mrs. Parks sighed, "That's very disappointing." 
 
- That night, I had a crazy wet dream that left me confused and questioning everything about the past couple of days: 
+"Sorry, Mrs. Parks," I apologized, feeling terrible that I had disappointed my new boss. 
 
- The dream started where I disappointed her when she looked at my non painted toes. 
+"And for someone with such a high IQ, you should know that the seams of stockings should not be seen. They should be at the end of your toes and both the same." 
 
- Mrs. Parks sighed, "That's very disappointing." 
+"Oh," I said quietly, looking down at my stocking-clad feet. I had never put much thought into the seams of the stockings. 
 
- "Sorry, Mrs. Parks," I apologized, feeling terrible that I had disappointed my new boss. 
+"Take off your skirt and blouse," she ordered, surprising me. 
 
- "And for someone with such a high IQ, you should know that the seams of stockings should not be seen. They should be at the end of your toes and both the same." 
+"Pardon?" I asked, surprised by her words and looking up at her. 
 
- "Oh," I said quietly, looking down at my stocking-clad feet. I had never put much thought into the seams of the stockings. 
+"Now!" she demanded, raising her voice. 
 
- "Take off your skirt and blouse," she ordered, surprising me. 
+Startled, yet feeling the need to obey and not raise her ire any further, I began unbuttoning my blouse while avoiding eye contact. 
 
- "Pardon?" I asked, surprised by her words and looking up at her. 
+My hands trembled as I wondered why she wanted me to get undressed, but suddenly thankful that I had worn lingerie underneath the conservative attire. 
 
- "Now!" she demanded, raising her voice. 
+As I took my blouse off, she said, "Well, that is a pleasant surprise." 
 
- Startled, yet feeling the need to obey and not raise her ire any further, I began unbuttoning my blouse while avoiding eye contact. 
+bosss-pet10.jpg]"Thank you, Mrs. Parks," I replied, feeling a rush of happiness at making her less annoyed at me. 
 
- My hands trembled as I wondered why she wanted me to get undressed, but suddenly thankful that I had worn lingerie underneath the conservative attire. 
+"The skirt too," she ordered. 
 
- As I took my blouse off, she said, "Well, that is a pleasant surprise." 
+I obeyed, my hands no longer trembling, suddenly feeling more confident about myself and the situation. Yet, I was still unsure why I felt the need to obey her. I wasn't a lesbian; she was married. I wasn't sure what could possibly be the end plan for Mrs. Parks. 
 
- 
+"Matching panties," she noticed, "very nice." 
 
- bosss-pet10.jpg]"Thank you, Mrs. Parks," I replied, feeling a rush of happiness at making her less annoyed at me. 
+"It's actually a thong," I corrected, wanting to impress her. 
 
- "The skirt too," she ordered. 
+"You are more than meets the eye," she nodded, walking behind me to check. "Just like I thought when I decided to hire you." 
 
- I obeyed, my hands no longer trembling, suddenly feeling more confident about myself and the situation. Yet, I was still unsure why I felt the need to obey her. I wasn't a lesbian; she was married. I wasn't sure what could possibly be the end plan for Mrs. Parks. 
+"Thank you, Mrs. Parks." I replied, confused by my feeling the need for her to approve of me. 
 
- "Matching panties," she noticed, "very nice." 
+"Pose for me," she ordered. 
 
- "It's actually a thong," I corrected, wanting to impress her. 
+"How so?" I asked, not sure what she was expecting from me. 
 
- "You are more than meets the eye," she nodded, walking behind me to check. "Just like I thought when I decided to hire you." 
+"Show me sexy and vulnerable," she explained. 
 
- "Thank you, Mrs. Parks." I replied, confused by my feeling the need for her to approve of me. 
+I wasn't sure exactly how to do sexy and vulnerable. It was a somewhat contradictory pair of terms I thought. I gave a pose that I thought was sexy, then focused on my facial expression...on my lips. 
 
- "Pose for me," she ordered. 
+"Nice," she nodded. Again walking around me, assessing me from different angles. 
 
- "How so?" I asked, not sure what she was expecting from me. 
+Thankfully, I felt very confident about my legs, ass, hips and stomach. It was only my smallish breasts that I had insecurities about. That said, I found lingerie to be a great way to enhance my breasts and make them look fuller. 
 
- "Show me sexy and vulnerable," she explained. 
+"Do you work out?" she asked. 
 
- I wasn't sure exactly how to do sexy and vulnerable. It was a somewhat contradictory pair of terms I thought. I gave a pose that I thought was sexy, then focused on my facial expression...on my lips. 
+"Almost every day," I said proudly. "And a lot of yoga." 
 
- "Nice," she nodded. Again walking around me, assessing me from different angles. 
+bosss-pet11.jpg] 
 
- Thankfully, I felt very confident about my legs, ass, hips and stomach. It was only my smallish breasts that I had insecurities about. That said, I found lingerie to be a great way to enhance my breasts and make them look fuller. 
+"Mmmmm," she purred, her hot breath on my neck. "So you're flexible." 
 
- "Do you work out?" she asked. 
+"Very," I said back in a sultry voice, before realizing I was flirting with not only my boss, but a woman, an older woman, a married woman. 
 
- "Almost every day," I said proudly. "And a lot of yoga." 
+"Good to know," she nodded, her hands sliding down my body and to my hips. 
 
- 
+A chill went up my spine at her touch and a dampness went directly to my thong. 
 
- bosss-pet11.jpg] 
+"Let's see those hips," she continued, moving back around and standing directly in front of me. 
 
- "Mmmmm," she purred, her hot breath on my neck. "So you're flexible." 
+I put my hands behind my back and allowed my boss to see me as she wanted to. 
 
- "Very," I said back in a sultry voice, before realizing I was flirting with not only my boss, but a woman, an older woman, a married woman. 
+"Oh, to be young again," she sighed. 
 
- "Good to know," she nodded, her hands sliding down my body and to my hips. 
+"You're a very beautiful woman, Mrs. Parks," I complimented. "I hope I have as much allure and power as you when I am your age." 
 
- A chill went up my spine at her touch and a dampness went directly to my thong. 
+"Oh, you are going to be a very loyal pet," she smiled for the first time. 
 
- "Let's see those hips," she continued, moving back around and standing directly in front of me. 
+The word 'pet' sent another rush up my spine and into my panties. 
 
- I put my hands behind my back and allowed my boss to see me as she wanted to. 
+"Is your pussy wet, Lily?" she asked. 
 
- "Oh, to be young again," she sighed. 
+"A little," I admitted. 
 
- "You're a very beautiful woman, Mrs. Parks," I complimented. "I hope I have as much allure and power as you when I am your age." 
+"Why?" she questioned. 
 
- "Oh, you are going to be a very loyal pet," she smiled for the first time. 
+"I don't know," I replied. 
 
- The word 'pet' sent another rush up my spine and into my panties. 
+"I think you do," she continued. "Turn around for me, my pet." 
 
- "Is your pussy wet, Lily?" she asked. 
+"Yes, Mrs. Parks," I obeyed, turning around slowly with my hands behind my back in a submissive, obedient position. 
 
- "A little," I admitted. 
+"Very good," she continued. 
 
- "Why?" she questioned. 
+"Thank you, Mrs. Parks," I whispered, my body trembling with the unknown. 
 
- "I don't know," I replied. 
+"You want to serve me, Lily?" she asked. 
 
- "I think you do," she continued. "Turn around for me, my pet." 
+bosss-pet12.jpg]"Yes, Mrs. Parks," I nodded, still with my back to her. Even though I wasn't sure what serving her would entail, I had a hunch. 
 
- "Yes, Mrs. Parks," I obeyed, turning around slowly with my hands behind my back in a submissive, obedient position. 
+"Have you ever been with a woman?" she asked, grabbing my arm and turning me around to look at her. 
 
- "Very good," she continued. 
+"No, Mrs. Parks," I answered, looking into her eyes. 
 
- "Thank you, Mrs. Parks," I whispered, my body trembling with the unknown. 
+"But you are considering it at the moment, aren't you, my pet?" she asked, her finger moving between my breasts. 
 
- "You want to serve me, Lily?" she asked. 
+"I don't know," I responded, trembling at her touch. 
 
- 
+"Knees, my pet," she ordered. 
 
- bosss-pet12.jpg]"Yes, Mrs. Parks," I nodded, still with my back to her. Even though I wasn't sure what serving her would entail, I had a hunch. 
+I looked into her eyes, pondered the order for a brief moment in time, before slowly falling to my knees like a leaf falling off a tree. 
 
- "Have you ever been with a woman?" she asked, grabbing my arm and turning me around to look at her. 
+As she lifted up her skirt, revealing her glistening pussy, I awakened to my hand in my panties rubbing myself. 
 
- "No, Mrs. Parks," I answered, looking into her eyes. 
+I had never been with a woman sexually before, never even seriously considered it, besides making out with friends just to tease our boyfriends. Yet this dream felt like it was really happening. 
 
- "But you are considering it at the moment, aren't you, my pet?" she asked, her finger moving between my breasts. 
+As I finished getting myself off for a second time with Mrs. Parks in my head, I lay there in my own cum wondering to myself if I found Mrs. Parks more than just an impressive role model, but sexually appealing. 
 
- "I don't know," I responded, trembling at her touch. 
+Yes, she was beautiful; yes, she had a sexy allure; yes, her strong persona was attractive; yes, she knew exactly what she wanted...her confidence dripped from her every word and action; and yes, I had always been attracted to those qualities in a man. 
 
- "Knees, my pet," she ordered. 
+The reality was. although I was a strong-willed woman, called a feminist by many men who didn't like my bluntness, I was rather submissive in my sexual relationships: 
 
- I looked into her eyes, pondered the order for a brief moment in time, before slowly falling to my knees like a leaf falling off a tree. 
+-I had ridden my boyfriend in the living room while his mother made dinner in the kitchen. 
 
- As she lifted up her skirt, revealing her glistening pussy, I awakened to my hand in my panties rubbing myself. 
+-I had blown another boyfriend under a table at a bar. 
 
- I had never been with a woman sexually before, never even seriously considered it, besides making out with friends just to tease our boyfriends. Yet this dream felt like it was really happening. 
+-I had allowed a boyfriend to cum on my face in a car and then make me go into a gas station and pay for gas. 
 
- As I finished getting myself off for a second time with Mrs. Parks in my head, I lay there in my own cum wondering to myself if I found Mrs. Parks more than just an impressive role model, but sexually appealing. 
+-I had allowed a couple guys to finger fuck my even though I found no pleasure in it (but had refused allowing a cock back there) 
 
- Yes, she was beautiful; yes, she had a sexy allure; yes, her strong persona was attractive; yes, she knew exactly what she wanted...her confidence dripped from her every word and action; and yes, I had always been attracted to those qualities in a man. 
+The reality was I loved giving myself completely to someone else and got off on the thrill of potentially humiliating or high risk situations. 
 
- The reality was. although I was a strong-willed woman, called a feminist by many men who didn't like my bluntness, I was rather submissive in my sexual relationships: 
+My last boyfriend called me an enigma. 
 
- -I had ridden my boyfriend in the living room while his mother made dinner in the kitchen. 
+That all said, did I really find Mrs. Parks sexually attractive or was it just her strong personality that I found attractive? After some thought, the answer seemed to be maybe...she indeed had all the personality traits of the men I dated, yet I wasn't a lesbian and I sure wasn't going to risk this great job opportunity on one sex dream and some strange feelings of admiration. 
 
- -I had blown another boyfriend under a table at a bar. 
+.... 
 
- -I had allowed a boyfriend to cum on my face in a car and then make me go into a gas station and pay for gas. 
+bosss-pet13.jpg]On Tuesday, I wore a black dress, with a push-up bra that showcased my breasts, with black thigh highs and three inch black heels. 
 
- -I had allowed a couple guys to finger fuck my even though I found no pleasure in it (but had refused allowing a cock back there) 
+As I looked at myself in the mirror, I lifted up my skirt slightly and realized just how much hotter I looked today than I had yesterday in a much more conservative outfit. I shook my head thinking about the one I wore for my interview...I'm shocked I was even hired. 
 
- The reality was I loved giving myself completely to someone else and got off on the thrill of potentially humiliating or high risk situations. 
+I also decided to wear my hair down instead of the one braid I'd worn yesterday that had made me look more like a librarian than the sexy professional Mrs. Parks described. I wanted to look like a beautiful fetching woman, and this outfit was definitely a step in the right direction. 
 
- My last boyfriend called me an enigma. 
+I again spent the day with Elizabeth and was given my first real project to work on. 
 
- That all said, did I really find Mrs. Parks sexually attractive or was it just her strong personality that I found attractive? After some thought, the answer seemed to be maybe...she indeed had all the personality traits of the men I dated, yet I wasn't a lesbian and I sure wasn't going to risk this great job opportunity on one sex dream and some strange feelings of admiration. 
+I spent all afternoon working on the project and learned later in the day that Mrs. Parks wasn't even in the office today nor would she be later. 
 
- .... 
+I couldn't explain it, but I felt an undeniable sense of disappointment at the reality that she wasn't going to see the improvements I had made in my attire. 
 
- 
+Just as quickly, I chuckled to myself at the reality that I was disappointed. I knew then that I did indeed have a crush on my female boss. 'Shit', I sighed, realizing I was potentially screwing up a great job opportunity with a lesbian crush. 
 
- bosss-pet13.jpg]On Tuesday, I wore a black dress, with a push-up bra that showcased my breasts, with black thigh highs and three inch black heels. 
+That night, though, I again had a dream, again it was vivid and again it brought me to a fever pitch. 
 
- As I looked at myself in the mirror, I lifted up my skirt slightly and realized just how much hotter I looked today than I had yesterday in a much more conservative outfit. I shook my head thinking about the one I wore for my interview...I'm shocked I was even hired. 
+I was sitting on a chair in her office and she ordered me to lift up my skirt enough to showcase my lace top of my thigh highs. 
 
- I also decided to wear my hair down instead of the one braid I'd worn yesterday that had made me look more like a librarian than the sexy professional Mrs. Parks described. I wanted to look like a beautiful fetching woman, and this outfit was definitely a step in the right direction. 
+I stammered, "W-w-why, Mrs. Parks?" 
 
- I again spent the day with Elizabeth and was given my first real project to work on. 
+She replied, "You know why, Lily." 
 
- I spent all afternoon working on the project and learned later in the day that Mrs. Parks wasn't even in the office today nor would she be later. 
+I looked up at her as she stood in front of me and said, "Because you want to be my unconditional submissive plaything, Lily." 
 
- I couldn't explain it, but I felt an undeniable sense of disappointment at the reality that she wasn't going to see the improvements I had made in my attire. 
+"I-I-I do?" I stammered, even as my pussy got wet. 
 
- Just as quickly, I chuckled to myself at the reality that I was disappointed. I knew then that I did indeed have a crush on my female boss. 'Shit', I sighed, realizing I was potentially screwing up a great job opportunity with a lesbian crush. 
+"Don't you?" she smiled down at me from her position of power. 
 
- That night, though, I again had a dream, again it was vivid and again it brought me to a fever pitch. 
+"I don't know," I whispered, my head spinning with confusion. 
 
- I was sitting on a chair in her office and she ordered me to lift up my skirt enough to showcase my lace top of my thigh highs. 
+"Lift up your skirt, my pet," she ordered. 
 
- I stammered, "W-w-why, Mrs. Parks?" 
+bosss-pet14.jpg]Hearing the term 'my pet' had my pussy leak into my panties and I obeyed her request wordlessly. 
 
- She replied, "You know why, Lily." 
+"Good girl," she purred, looking down at me. "Did you wear those for me, my pet?" 
 
- I looked up at her as she stood in front of me and said, "Because you want to be my unconditional submissive plaything, Lily." 
+"Yes," I admitted, not making eye contact. 
 
- "I-I-I do?" I stammered, even as my pussy got wet. 
+"Look at me, my pet," she ordered. 
 
- "Don't you?" she smiled down at me from her position of power. 
+I looked up into her hazel-green eyes. 
 
- "I don't know," I whispered, my head spinning with confusion. 
+"Why did you wear such sexy thigh thighs?" she asked again. 
 
- "Lift up your skirt, my pet," she ordered. 
+"For you, Mrs. Parks," I admitted. 
 
- 
+"Why?" she asked. 
 
- bosss-pet14.jpg]Hearing the term 'my pet' had my pussy leak into my panties and I obeyed her request wordlessly. 
+"I honestly don't know," I admitted, which was true. I couldn't explain why I felt the need to obey her, to please her, to get her approval, but I undeniably did. 
 
- "Good girl," she purred, looking down at me. "Did you wear those for me, my pet?" 
+"I do," she smiled. "You're submissive and although you don't understand it yet, all your failed relationships are because you've been dating the wrong sex." 
 
- "Yes," I admitted, not making eye contact. 
+"How do you know that?" I asked, even though I had begun questioning my sexuality yesterday. 
 
- "Look at me, my pet," she ordered. 
+"I can read people," she answered, before adding, "and you are an open book." 
 
- I looked up into her hazel-green eyes. 
+"And how does my book end?" I asked, smiling up at her trying to be sultry. 
 
- "Why did you wear such sexy thigh thighs?" she asked again. 
+"That is up to you, my pet," she smiled. "I expect total obedience." 
 
- "For you, Mrs. Parks," I admitted. 
+"I'm very loyal, Mistress," I replied, calling her Mistress to clearly stress my position. 
 
- "Why?" she asked. 
+"Mmmmm, good word choice," she purred. 
 
- "I honestly don't know," I admitted, which was true. I couldn't explain why I felt the need to obey her, to please her, to get her approval, but I undeniably did. 
+"I understand what it means to give total obedience," I responded, eager to show her just how committed I was to her. 
 
- "I do," she smiled. "You're submissive and although you don't understand it yet, all your failed relationships are because you've been dating the wrong sex." 
+"And what does total obedience mean?" she asked. 
 
- "How do you know that?" I asked, even though I had begun questioning my sexuality yesterday. 
+"Obeying without hesitation any order given to me," I replied. 
 
- "I can read people," she answered, before adding, "and you are an open book." 
+"Any order?" she questioned. 
 
- "And how does my book end?" I asked, smiling up at her trying to be sultry. 
+"Without hesitation," I finished her sentence. 
 
- "That is up to you, my pet," she smiled. "I expect total obedience." 
+"Interesting," she nodded, looking at me with lengthy consideration. 
 
- "I'm very loyal, Mistress," I replied, calling her Mistress to clearly stress my position. 
+After a brief silence that seemed like an eternity, she ordered, "On your knees, my pet." 
 
- "Mmmmm, good word choice," she purred. 
+bosss-pet15.jpg]"Yes, Mistress," I obeyed, standing up off the chair and then lowering myself to my knees in front of her. 
 
- "I understand what it means to give total obedience," I responded, eager to show her just how committed I was to her. 
+"Does this feel natural, my pet? To be on your knees?" she asked, looking down at me. 
 
- "And what does total obedience mean?" she asked. 
+"Yes, Mistress," I nodded. 
 
- "Obeying without hesitation any order given to me," I replied. 
+"Why?" she asked. 
 
- "Any order?" she questioned. 
+"Some are born to be leaders and some to be followers, Mistress," I answered. "You were born to be a leader and I a follower, or more aptly put, you are the queen and I the servant." 
 
- "Without hesitation," I finished her sentence. 
+"Good girl," she bobbed with approval. "You understand your place." 
 
- "Interesting," she nodded, looking at me with lengthy consideration. 
+"As your unconditional underling," I smiled, using her word from our first meeting last week. 
 
- After a brief silence that seemed like an eternity, she ordered, "On your knees, my pet." 
+"You are a very fast learner," she again nodded. 
 
- 
+"And eager to please," I added, my mouth watering with anticipation for the order to taste her pussy. 
 
- bosss-pet15.jpg]"Yes, Mistress," I obeyed, standing up off the chair and then lowering myself to my knees in front of her. 
+"I bet you are," she smiled down at me as she lifted up her skirt to reveal she wasn't wearing any panties. 
 
- "Does this feel natural, my pet? To be on your knees?" she asked, looking down at me. 
+"Show me hunger with just your lips, my pet," she ordered. 
 
- "Yes, Mistress," I nodded. 
+I wasn't sure what hunger would look like; nor did I have a clue what I looked like as I attempted to obey the order. 
 
- "Why?" she asked. 
+bosss-pet16.jpg] 
 
- "Some are born to be leaders and some to be followers, Mistress," I answered. "You were born to be a leader and I a follower, or more aptly put, you are the queen and I the servant." 
+"You do have the sexiest lips ever," she complimented. 
 
- "Good girl," she bobbed with approval. "You understand your place." 
+"Thank you, Mistress," I replied. 
 
- "As your unconditional underling," I smiled, using her word from our first meeting last week. 
+"I bet you have often got what you wanted because of them," she continued. 
 
- "You are a very fast learner," she again nodded. 
+I shrugged, "I don't know, but I've definitely had a lot of compliments on them." 
 
- "And eager to please," I added, my mouth watering with anticipation for the order to taste her pussy. 
+"I bet you have," she nodded. 
 
- "I bet you are," she smiled down at me as she lifted up her skirt to reveal she wasn't wearing any panties. 
+I looked back down at her shaved cunt and she asked, "Is my pet's cunt shaved?" 
 
- "Show me hunger with just your lips, my pet," she ordered. 
+"No, Mistress," I admitted. I trimmed it, but found shaving it bare way too much work for the rare time a man was down there. 
 
- I wasn't sure what hunger would look like; nor did I have a clue what I looked like as I attempted to obey the order. 
+"That will change ASAP," she ordered. 
 
- 
+"I will do it tonight," I promised. 
 
- bosss-pet16.jpg] 
+"Good pet," she purred, as she grabbed the back of my head and guided me to her pussy. 
 
- "You do have the sexiest lips ever," she complimented. 
+Frustratingly, that is when I woke up, again just as I was to submit completely. 
 
- "Thank you, Mistress," I replied. 
+As I replayed the dream, I couldn't believe how real it felt. I also couldn't believe how disappointed I was to wake up and realize it was all just a dream...again. 
 
- "I bet you have often got what you wanted because of them," she continued. 
+I rolled over, set my alarm half an hour earlier, deciding I would shave my pussy in the morning just in case. If, for some unknown reason, she asked the question, I wanted to have the correct answer. 
 
- I shrugged, "I don't know, but I've definitely had a lot of compliments on them." 
+As I closed my eyes and drifted into slumber, I wondered what I would do if Mrs. Parks did really make a move on me. 
 
- "I bet you have," she nodded. 
+..... 
 
- I looked back down at her shaved cunt and she asked, "Is my pet's cunt shaved?" 
+bosss-pet17.jpg]On Wednesday, desperate to impress her (on the assumption she was at work today), I wore a tighter, sexier blouse and push up bra that greatly showcased my breasts, maybe too much, a skirt greatly above the knees that barely hid the lace top of the black thigh high stockings, and the three inch heels I had again practiced in all night. I definitely looked hot in this outfit. 
 
- "No, Mistress," I admitted. I trimmed it, but found shaving it bare way too much work for the rare time a man was down there. 
+I hemmed and hawed over the blouse. It was definitely a lot more risqué, complete night and day from the white dull blouse of my interview day, and maybe actually too risqué. Yet, my desire to impress Mrs. Parks was suddenly more important than getting judged by coworkers who may see my blouse as crossing the line. 
 
- "That will change ASAP," she ordered. 
+The skirt was also ridiculously short, only barely hiding the top of the lace top stockings when standing up. If sitting down or bent over at any angle, anyone looking would know I was wearing thigh high stockings and not pantyhose. 
 
- "I will do it tonight," I promised. 
+Then I wondered if this was advice Mrs. Parks gave to all her employees? Was Elizabeth wearing thigh highs under her outfit? Was Mrs. Parks' secretary wearing thigh highs? The rest of her philosophy was being followed: sexy business attire, with skirts above the knee, three inch heels and something slightly sexy as an accessory of sexuality. 
 
- "Good pet," she purred, as she grabbed the back of my head and guided me to her pussy. 
+For Mrs. Parks it was seamed stockings; for Elizabeth it was blouses that showcased her very large breasts, for the redhead whose name I couldn't remember it was outfits that highlighted her flaming, flowing red hair. 
 
- Frustratingly, that is when I woke up, again just as I was to submit completely. 
+In conclusion, I could assume that every woman in the firm was wearing thigh high stockings. 
 
- As I replayed the dream, I couldn't believe how real it felt. I also couldn't believe how disappointed I was to wake up and realize it was all just a dream...again. 
+bosss-pet18.jpg] 
 
- I rolled over, set my alarm half an hour earlier, deciding I would shave my pussy in the morning just in case. If, for some unknown reason, she asked the question, I wanted to have the correct answer. 
+Feeling confident and sexy, I grabbed my camera and tri-pod and took some photos of myself in a variety of sexy positions I imagined Mrs. Parks liking. 
 
- As I closed my eyes and drifted into slumber, I wondered what I would do if Mrs. Parks did really make a move on me. 
+The first photo I took was replaying the scene of my interview with Mrs. Parks when she put her stocking-clad heel on my leg. 
 
- ..... 
-
- 
-
- bosss-pet17.jpg]On Wednesday, desperate to impress her (on the assumption she was at work today), I wore a tighter, sexier blouse and push up bra that greatly showcased my breasts, maybe too much, a skirt greatly above the knees that barely hid the lace top of the black thigh high stockings, and the three inch heels I had again practiced in all night. I definitely looked hot in this outfit. 
-
- I hemmed and hawed over the blouse. It was definitely a lot more risqué, complete night and day from the white dull blouse of my interview day, and maybe actually too risqué. Yet, my desire to impress Mrs. Parks was suddenly more important than getting judged by coworkers who may see my blouse as crossing the line. 
-
- The skirt was also ridiculously short, only barely hiding the top of the lace top stockings when standing up. If sitting down or bent over at any angle, anyone looking would know I was wearing thigh high stockings and not pantyhose. 
-
- Then I wondered if this was advice Mrs. Parks gave to all her employees? Was Elizabeth wearing thigh highs under her outfit? Was Mrs. Parks' secretary wearing thigh highs? The rest of her philosophy was being followed: sexy business attire, with skirts above the knee, three inch heels and something slightly sexy as an accessory of sexuality. 
-
- For Mrs. Parks it was seamed stockings; for Elizabeth it was blouses that showcased her very large breasts, for the redhead whose name I couldn't remember it was outfits that highlighted her flaming, flowing red hair. 
-
- In conclusion, I could assume that every woman in the firm was wearing thigh high stockings. 
-
- 
-
- bosss-pet18.jpg] 
-
- Feeling confident and sexy, I grabbed my camera and tri-pod and took some photos of myself in a variety of sexy positions I imagined Mrs. Parks liking. 
-
- The first photo I took was replaying the scene of my interview with Mrs. Parks when she put her stocking-clad heel on my leg. 
-
- I remembered how soft her nylons were, how strange it felt to touch them and yet how equally erotic it was.  
-
- 
-
- 
+I remembered how soft her nylons were, how strange it felt to touch them and yet how equally erotic it was.  
 
 ===
 
 Was that the moment that I began to have feelings for Mrs. Parks? 
 
- Maybe. 
+Maybe. 
 
- There was no one moment that made me question my sexuality, yet the combination of the interview, her personality, her firm tone, her beautiful legs in nylons, the black seam going up the back of her leg, her hypnotic eyes, her confidence and strangely her treatment of me. Somehow she seemed to know I was submissive, even though in my interview I oozed confidence. Well, at least I thought I did. 
+There was no one moment that made me question my sexuality, yet the combination of the interview, her personality, her firm tone, her beautiful legs in nylons, the black seam going up the back of her leg, her hypnotic eyes, her confidence and strangely her treatment of me. Somehow she seemed to know I was submissive, even though in my interview I oozed confidence. Well, at least I thought I did. 
 
- 
+bosss-pet19.jpg]The next picture I slipped off one of my heels and did a similar pose with my stocking-clad foot on the chair. 
 
- bosss-pet19.jpg]The next picture I slipped off one of my heels and did a similar pose with my stocking-clad foot on the chair. 
+I took a few more before photos in a variety of poses before heading to school for morning classes. I got a few looks from the college boys and I think at least one professor and even a whistle from a construction worker as I waited for a taxi. 
 
- I took a few more before photos in a variety of poses before heading to school for morning classes. I got a few looks from the college boys and I think at least one professor and even a whistle from a construction worker as I waited for a taxi. 
+At work, I looked at every woman for signs of thigh high stockings, determined to prove my hypothesis correct. And although it took a while, I saw two lace tops: one on Velma, an accountant who assisted me when my computer froze, and one on a woman whom I hadn't met before who was wearing a skirt, surprisingly below the knee, but with a very generous slit down the side. I was confident that I was correct, every woman was wearing the attire Mrs. Parks expected. 
 
- At work, I looked at every woman for signs of thigh high stockings, determined to prove my hypothesis correct. And although it took a while, I saw two lace tops: one on Velma, an accountant who assisted me when my computer froze, and one on a woman whom I hadn't met before who was wearing a skirt, surprisingly below the knee, but with a very generous slit down the side. I was confident that I was correct, every woman was wearing the attire Mrs. Parks expected. 
+All day, I again waited with anticipation for the approval I was confident I would finally get from Mrs. Parks. Although I hadn't seen her, I inquired slyly to learn that she was indeed in the office. However, she would be in meetings all afternoon with clients. 
 
- All day, I again waited with anticipation for the approval I was confident I would finally get from Mrs. Parks. Although I hadn't seen her, I inquired slyly to learn that she was indeed in the office. However, she would be in meetings all afternoon with clients. 
+The day was ending, and I was again feeling utterly disappointment (like after a good date with a guy who doesn't call the next day to affirm the date went as well as you thought it did) that Mrs. Parks wasn't going to see the attire I had purposely worn just for her, when her secretary, whose name I couldn't recall even though she had been introduced to me, said that Mrs. Parks wanted to see me. 
 
- The day was ending, and I was again feeling utterly disappointment (like after a good date with a guy who doesn't call the next day to affirm the date went as well as you thought it did) that Mrs. Parks wasn't going to see the attire I had purposely worn just for her, when her secretary, whose name I couldn't recall even though she had been introduced to me, said that Mrs. Parks wanted to see me. 
+A rush of giddy excitement coursed through me. I shook my head at how silly I was acting. I was twenty-two years old, not fifteen. 
 
- A rush of giddy excitement coursed through me. I shook my head at how silly I was acting. I was twenty-two years old, not fifteen. 
+I went to her office and again she ordered, "Please close the door, Lily." 
 
- I went to her office and again she ordered, "Please close the door, Lily." 
+"Of course, Mrs. Parks," I agreed, already in the process of closing it. 
 
- "Of course, Mrs. Parks," I agreed, already in the process of closing it. 
+She said, as she pointed me to a chair, although her firm tone didn't change, "Much, much better." 
 
- She said, as she pointed me to a chair, although her firm tone didn't change, "Much, much better." 
+bosss-pet20.jpg]"Thank you, Mrs. Parks," I replied, again feeling a rush of adrenaline at getting her approval and, to my surprise, a tingle in my pussy. 
 
- 
+"Quite the blouse," she continued. 
 
- bosss-pet20.jpg]"Thank you, Mrs. Parks," I replied, again feeling a rush of adrenaline at getting her approval and, to my surprise, a tingle in my pussy. 
+"I hoped you would like it, Mrs. Parks," I responded eagerly, somehow feeling a desperate need to get her approval. 
 
- "Quite the blouse," she continued. 
+"Although a bit risqué for the office, don't you think?" she questioned. 
 
- "I hoped you would like it, Mrs. Parks," I responded eagerly, somehow feeling a desperate need to get her approval. 
+"Yes, Mrs. Parks," I nodded. 
 
- "Although a bit risqué for the office, don't you think?" she questioned. 
+"On the other hand, perfect for when we are meeting with clients," she continued. 
 
- "Yes, Mrs. Parks," I nodded. 
+"Good to know," I nodded, although I wondered how such an outfit would be perfect for a meeting with clients if it was too risqué for the office. 
 
- "On the other hand, perfect for when we are meeting with clients," she continued. 
+"Thigh highs again I assume," she asked. 
 
- "Good to know," I nodded, although I wondered how such an outfit would be perfect for a meeting with clients if it was too risqué for the office. 
+I looked down and saw that my entire thigh high stocking top was in view with my legs crossed, as was some of my white skin, but she likely couldn't see that from her sitting positon at her desk. 
 
- "Thigh highs again I assume," she asked. 
+"As instructed, Mrs. Parks," I responded, sounding completely submissive. 
 
- I looked down and saw that my entire thigh high stocking top was in view with my legs crossed, as was some of my white skin, but she likely couldn't see that from her sitting positon at her desk. 
+"Good girl," she complimented. 
 
- "As instructed, Mrs. Parks," I responded, sounding completely submissive. 
+The term 'good girl', her tone, and the anticipation of something unknown made my pussy leak slightly into my panties. 
 
- "Good girl," she complimented. 
+I uncrossed my legs and then crossed them again, feeling a gush in my panties. 
 
- The term 'good girl', her tone, and the anticipation of something unknown made my pussy leak slightly into my panties. 
+Standing up, she ordered, looking down at me, "Step out of your heels, Lily." 
 
- I uncrossed my legs and then crossed them again, feeling a gush in my panties. 
+"Okay, Mrs. Parks," I obeyed, standing up and slipping my nylon clad feet out of my heels. 
 
- Standing up, she ordered, looking down at me, "Step out of your heels, Lily." 
+bosss-pet21.jpg] 
 
- "Okay, Mrs. Parks," I obeyed, standing up and slipping my nylon clad feet out of my heels. 
+"Very good," she nodded, looking down at my painted toenails. 
 
- 
+It felt so good to get her approval, like it did the rare time I received my own mother's approval. 
 
- bosss-pet21.jpg] 
+"I couldn't decide what colour to choose," I explained, "but I decided red was both classic and sexy." 
 
- "Very good," she nodded, looking down at my painted toenails. 
+"Agreed," she nodded, "but the seams of your stockings should not be viewable on top of your feet, my dear." 
 
- It felt so good to get her approval, like it did the rare time I received my own mother's approval. 
+I couldn't believe her words, eerily similar to the ones in my earlier dream. I quietly cursed myself for not paying attention when I put my thigh high stockings on today, as I replied, looking down at my feet, "I understand." 
 
- "I couldn't decide what colour to choose," I explained, "but I decided red was both classic and sexy." 
+I immediately put my foot on the chair and fixed the seam on my left foot and then fixed the seam on my right foot. 
 
- "Agreed," she nodded, "but the seams of your stockings should not be viewable on top of your feet, my dear." 
+"Good girl," she again said, as if conditioning me to need her approval. 
 
- I couldn't believe her words, eerily similar to the ones in my earlier dream. I quietly cursed myself for not paying attention when I put my thigh high stockings on today, as I replied, looking down at my feet, "I understand." 
+"Thank you, Mrs. Parks," I again replied, becoming more and more subservient to her and more and more willing to do whatever it took to get her complete approval. 
 
- I immediately put my foot on the chair and fixed the seam on my left foot and then fixed the seam on my right foot. 
+She went to her desk and pressed the intercom, "Please bring me a pair of thigh high stockings, June." 
 
- "Good girl," she again said, as if conditioning me to need her approval. 
+"Of course, Mrs. Parks," June replied over the intercom. "What colour?" 
 
- "Thank you, Mrs. Parks," I again replied, becoming more and more subservient to her and more and more willing to do whatever it took to get her complete approval. 
+"Black," Mrs. Parks answered. 
 
- She went to her desk and pressed the intercom, "Please bring me a pair of thigh high stockings, June." 
+"Yes, Mrs. Parks," June responded. 
 
- "Of course, Mrs. Parks," June replied over the intercom. "What colour?" 
+"Tomorrow," Mrs. Parks began, moving back towards me, "we will start your training under me." 
 
- "Black," Mrs. Parks answered. 
+Although the sentence was bland and logical, I heard all the potential sexual implications that could go with it, which made my panties dampen. "I can't wait to get started under you," I replied, trying to sound eager regardless of the situation, as I flashed to last night's vivid dream of being her pet. Yet, as soon as I said the words, I scolded myself for being so forward. 
 
- "Yes, Mrs. Parks," June responded. 
+June came in and handed Mrs. Parks the package and left without a word being said by either of them. 
 
- "Tomorrow," Mrs. Parks began, moving back towards me, "we will start your training under me." 
+bosss-pet22.jpg]Mrs. Parks explained, as she handed them to me, "Tomorrow, I want you to wear these. Treat them well, they are very expensive." 
 
- Although the sentence was bland and logical, I heard all the potential sexual implications that could go with it, which made my panties dampen. "I can't wait to get started under you," I replied, trying to sound eager regardless of the situation, as I flashed to last night's vivid dream of being her pet. Yet, as soon as I said the words, I scolded myself for being so forward. 
+"I will, Mrs. Parks," I nodded, agreeing to both wearing them and to treating them with the utmost care. 
 
- June came in and handed Mrs. Parks the package and left without a word being said by either of them. 
+"I know you will," Mrs. Parks responded. "Also, I expect you in a sexy dress for tomorrow as well as your sexiest lingerie underneath." 
 
- 
+"Okay," I agreed, although my tone implied I was questioning her strange expectations of lingerie. 
 
- bosss-pet22.jpg]Mrs. Parks explained, as she handed them to me, "Tomorrow, I want you to wear these. Treat them well, they are very expensive." 
+"Okay, what?" She asked, her tone implying she didn't care about my tone and was suddenly annoyed as hell. 
 
- "I will, Mrs. Parks," I nodded, agreeing to both wearing them and to treating them with the utmost care. 
+"Okay, Mrs. Parks," I corrected, again feeling guilty for disappointing her. 
 
- "I know you will," Mrs. Parks responded. "Also, I expect you in a sexy dress for tomorrow as well as your sexiest lingerie underneath." 
+"See you tomorrow," she said, returning to her desk. 
 
- "Okay," I agreed, although my tone implied I was questioning her strange expectations of lingerie. 
+"Have a great night, Mrs. Parks," I said, as I slipped back into my shoes. 
 
- "Okay, what?" She asked, her tone implying she didn't care about my tone and was suddenly annoyed as hell. 
+"You too, Lily-girl," she responded, not looking at me. 
 
- "Okay, Mrs. Parks," I corrected, again feeling guilty for disappointing her. 
+I noticed the slight name change, but didn't say anything else as I left her office wondering what she had in store for me tomorrow. 
 
- "See you tomorrow," she said, returning to her desk. 
+That night, I tried on a few different dresses trying to decide which one would most please and entice Mrs. Parks. I tried on a red dress but felt it didn't enhance my breasts enough; I tried on a patterned sundress but that seemed too I'm-still-in-high-school; I tried on a sexy black dress but it was so short my lace top thigh highs would be in view for all to see; and I tried on a beige dress with a plunging v neckline that I was perfect...until I recalled the stockings that Mrs. Parks gave me were actually black and wouldn't go with the dress. 
 
- "Have a great night, Mrs. Parks," I said, as I slipped back into my shoes. 
+bosss-pet23.jpg]I sighed, decided to take a break and try on every set of lingerie I owned, although I didn't use the expensive thigh highs Mrs. Parks gave me, not wanting to do anything to damage them before tomorrow's training. 
 
- "You too, Lily-girl," she responded, not looking at me. 
+Tomorrow's training...what did that really mean? 
 
- I noticed the slight name change, but didn't say anything else as I left her office wondering what she had in store for me tomorrow. 
+I had a hunch, yet until the words were actually spoken I would have to just wait and see what transpired tomorrow. That said, I was willing to do whatever she asked, knowing that I was suddenly very curious to explore a new side of my sexuality. 
 
- That night, I tried on a few different dresses trying to decide which one would most please and entice Mrs. Parks. I tried on a red dress but felt it didn't enhance my breasts enough; I tried on a patterned sundress but that seemed too I'm-still-in-high-school; I tried on a sexy black dress but it was so short my lace top thigh highs would be in view for all to see; and I tried on a beige dress with a plunging v neckline that I was perfect...until I recalled the stockings that Mrs. Parks gave me were actually black and wouldn't go with the dress. 
+Looking through my lingerie for something to wear tomorrow, I even found a pair of handcuffs and wondered if Mrs. Parks would be willing to use them on me. I briefly recalled the last time I used them and the sense of helplessness that went with it. Being bound and at the will of another person was a great turn on. 
 
- 
+I briefly wondered what Mrs. Parks would do to me with handcuffs...she definitely seemed the type to use a pair in some naughty lesbian submission game. 
 
- bosss-pet23.jpg]I sighed, decided to take a break and try on every set of lingerie I owned, although I didn't use the expensive thigh highs Mrs. Parks gave me, not wanting to do anything to damage them before tomorrow's training. 
+Feeling frisky, I took some pictures of myself in a few different pieces of lingerie. 
 
- Tomorrow's training...what did that really mean? 
+I realized I had a lot of lingerie I almost never got to wear for anyone and decided regardless of how tomorrow went I was going to start wearing sexy lingerie underneath my attire and when going to bed. I was going to dress sexy for me. 
 
- I had a hunch, yet until the words were actually spoken I would have to just wait and see what transpired tomorrow. That said, I was willing to do whatever she asked, knowing that I was suddenly very curious to explore a new side of my sexuality. 
+I put on my newest lingerie and took a couple of pictures of myself before deciding I needed to get myself off. 
 
- Looking through my lingerie for something to wear tomorrow, I even found a pair of handcuffs and wondered if Mrs. Parks would be willing to use them on me. I briefly recalled the last time I used them and the sense of helplessness that went with it. Being bound and at the will of another person was a great turn on. 
+bosss-pet24.jpg] 
 
- I briefly wondered what Mrs. Parks would do to me with handcuffs...she definitely seemed the type to use a pair in some naughty lesbian submission game. 
+I grabbed my trusty good friend Mr. Blue, got on my hands and knees and tried to fuck myself from a submissive position. 
 
- Feeling frisky, I took some pictures of myself in a few different pieces of lingerie. 
+Imagining my own version of what tomorrow would bring, I got myself off again this time not picturing Ryan Gosling at all, but imagining that I was made to be the submissive pet to Mrs. Parks. 
 
- I realized I had a lot of lingerie I almost never got to wear for anyone and decided regardless of how tomorrow went I was going to start wearing sexy lingerie underneath my attire and when going to bed. I was going to dress sexy for me. 
+Content with my choices for tomorrow, I took a long bath and then again did a couple of hours of studying for a test I had on Friday, wondering if I would have a lot of time tomorrow night or would my training take up the evening. 
 
- I put on my newest lingerie and took a couple of pictures of myself before deciding I needed to get myself off. 
+Yet again, I had another wet dream, another dream of potential lesbian submission to Mrs. Parks. 
 
- 
+bosss-pet25.jpg]This time I was the one on the aggressive. 
 
- bosss-pet24.jpg] 
+I don't know how I knew her cell number, but I texted her a picture of me in lingerie and thigh highs and said: 
 
- I grabbed my trusty good friend Mr. Blue, got on my hands and knees and tried to fuck myself from a submissive position. 
+Mrs. Parks 
 
- Imagining my own version of what tomorrow would bring, I got myself off again this time not picturing Ryan Gosling at all, but imagining that I was made to be the submissive pet to Mrs. Parks. 
+Your pet is waiting for her training. 
 
- Content with my choices for tomorrow, I took a long bath and then again did a couple of hours of studying for a test I had on Friday, wondering if I would have a lot of time tomorrow night or would my training take up the evening. 
+As soon as I texted it, I felt anxiety rush through me. What if I was wrong with my assumptions? 
 
- Yet again, I had another wet dream, another dream of potential lesbian submission to Mrs. Parks. 
+I mean, I assumed I wasn't. I generally was very good at reading people. Yet, this was potentially my career. 
 
- 
+On the other hand, I couldn't handle another day of not knowing. 
 
- 
+After a couple of excruciating minutes of waiting, Mrs. Parks texted back: 
 
- 
+My pet 
 
- 
+I will be back in my office in a few minutes. I expect you on the chair kneeling and waiting for me. 
 
- bosss-pet25.jpg]This time I was the one on the aggressive. 
+Mistress Parks 
 
- I don't know how I knew her cell number, but I texted her a picture of me in lingerie and thigh highs and said: 
+My cunt leaked into my panties at the two simple sentences and one powerful word. The first being the promise that she would be back soon; the second being a submissive position that clearly implied her expectations of me; the one word, on the other hand, cleared up, without a doubt, that I was right. That one word also meant the hierarchy of the relationship that was about to transpire was Mistress and submissive...and I was obviously the submissive. 
 
- Mrs. Parks 
+I waited a few minutes, dying to touch myself, but wanting to wait and have that hopeful orgasm with Mrs. Parks, my Mistress. 
 
- Your pet is waiting for her training. 
+I knelt on the chair, assuming it was the one I usually sat on, and waited. 
 
- As soon as I texted it, I felt anxiety rush through me. What if I was wrong with my assumptions? 
+Fifteen minutes became half an hour before she walked in and said, "Are you ready to be punished?" 
 
- I mean, I assumed I wasn't. I generally was very good at reading people. Yet, this was potentially my career. 
+"Yes, Mistress Parks," I replied, even though her words and angry tone surprised me. 
 
- On the other hand, I couldn't handle another day of not knowing. 
+bosss-pet26.jpg]"I like your eagerness, my pet," she began, before adding, "but I can't have you interrupting me when I am in meetings." 
 
- After a couple of excruciating minutes of waiting, Mrs. Parks texted back: 
+"Sorry," I whispered. 
 
- My pet 
+"Sorry, what?" she questioned. 
 
- I will be back in my office in a few minutes. I expect you on the chair kneeling and waiting for me. 
+"Sorry, Mistress," I corrected. 
 
- Mistress Parks 
+"Good girl," she nodded. "Now I know you are really eager to be my lesbian plaything, isn't that right?" 
 
- My cunt leaked into my panties at the two simple sentences and one powerful word. The first being the promise that she would be back soon; the second being a submissive position that clearly implied her expectations of me; the one word, on the other hand, cleared up, without a doubt, that I was right. That one word also meant the hierarchy of the relationship that was about to transpire was Mistress and submissive...and I was obviously the submissive. 
+"Yes, Mistress," I responded, anticipation coursing through my very being. 
 
- I waited a few minutes, dying to touch myself, but wanting to wait and have that hopeful orgasm with Mrs. Parks, my Mistress. 
+"And a good pet understands that she is to wait to be called for," she continued, her hand slowly moving down my back. 
 
- I knelt on the chair, assuming it was the one I usually sat on, and waited. 
+"Yessssss, Mistress," I agreed. 
 
- Fifteen minutes became half an hour before she walked in and said, "Are you ready to be punished?" 
+"She understands that she is to be ready at a second's notice," she explained, as her hand reached my ass. 
 
- "Yes, Mistress Parks," I replied, even though her words and angry tone surprised me. 
+"Of course, Mistress," I nodded, my body trembling at her touch, "I will always be at your beck and call." 
 
- 
+"Good girl," she repeated. "You do have one fine ass, my pet." 
 
- bosss-pet26.jpg]"I like your eagerness, my pet," she began, before adding, "but I can't have you interrupting me when I am in meetings." 
+"Thank you, Mistress," I whimpered, hoping she would move her fingers to my heated pussy. 
 
- "Sorry," I whispered. 
+"Ever had a cock in that ass, my pet?" she questioned, her fingers going underneath my panties. 
 
- "Sorry, what?" she questioned. 
+"No, Mistress," I answered, a sexual act that had never appealed to me. 
 
- "Sorry, Mistress," I corrected. 
+"But you would for me?" she asked, her finger moving slowly between my ass cheeks. 
 
- "Good girl," she nodded. "Now I know you are really eager to be my lesbian plaything, isn't that right?" 
+"Yesssss, Mistress," I agreed, her touch melting me, knowing I would agree to almost anything to please her, to make her happy. 
 
- "Yes, Mistress," I responded, anticipation coursing through my very being. 
+"Good," she purred, ever so softly, her finger teasing my rosebud. 
 
- "And a good pet understands that she is to wait to be called for," she continued, her hand slowly moving down my back. 
+Just as I thought she may slide her finger in my back door, she moved her hand away and gave me a firm spank. 
 
- "Yessssss, Mistress," I agreed. 
+I yelped at the sudden burn on my ass cheeks. She explained, "You will sit in this position until I return. You will not move at all, is that clear?" 
 
- "She understands that she is to be ready at a second's notice," she explained, as her hand reached my ass. 
+"Yes, Mistress," I agreed, mixed feelings coursing through me. 
 
- "Of course, Mistress," I nodded, my body trembling at her touch, "I will always be at your beck and call." 
+She walked out of the office and I sat there for what seemed like an eternity. My pussy was wet, my knees sore and I had no idea when she would be back. 
 
- "Good girl," she repeated. "You do have one fine ass, my pet." 
+When the door opened after about fifteen minutes, it wasn't Mrs. Parks who came into the office, but Elizabeth, who ordered, "Stand up, Lily." 
 
- "Thank you, Mistress," I whimpered, hoping she would move her fingers to my heated pussy. 
+bosss-pet27.jpg]Although mortified to be seen in such a compromising position by a colleague, I obeyed assuming I was supposed to and was happy to get off my aching knees. 
 
- "Ever had a cock in that ass, my pet?" she questioned, her fingers going underneath my panties. 
+"Go over to the wall and stand there until Mrs. Parks returns," Elizabeth ordered, before leaving me alone again. 
 
- "No, Mistress," I answered, a sexual act that had never appealed to me. 
+I walked over to where she instructed, thankful that she left...still humiliated by the whole situation and instantly wondering who else may know of my predicament or who else may also be a pet to Mrs. Parks. 
 
- "But you would for me?" she asked, her finger moving slowly between my ass cheeks. 
+I felt like I was back in elementary school and being sent to the corner for punishment. 
 
- "Yesssss, Mistress," I agreed, her touch melting me, knowing I would agree to almost anything to please her, to make her happy. 
+Standing there, in only a bra and panties, I felt utterly vulnerable. I also felt cold as a cool breeze from an air vent blew down on me. 
 
- "Good," she purred, ever so softly, her finger teasing my rosebud. 
+Suddenly, the door opened again and I prayed it was Mrs. Parks. 
 
- Just as I thought she may slide her finger in my back door, she moved her hand away and gave me a firm spank. 
+"Hands together in front of you," Mrs. Parks ordered. 
 
- I yelped at the sudden burn on my ass cheeks. She explained, "You will sit in this position until I return. You will not move at all, is that clear?" 
+I quickly obeyed, thankful that it was her and thankful to hear the door close. 
 
- "Yes, Mistress," I agreed, mixed feelings coursing through me. 
+"Why were you punished?" she asked. 
 
- She walked out of the office and I sat there for what seemed like an eternity. My pussy was wet, my knees sore and I had no idea when she would be back. 
+"For not waiting for you to beckon me," I answered. 
 
- When the door opened after about fifteen minutes, it wasn't Mrs. Parks who came into the office, but Elizabeth, who ordered, "Stand up, Lily." 
+"And why did you send that text, my pet?" she asked, again right behind me. 
 
- 
+"To let you know without a doubt that I'm willing to do anything for this company and for you," I answered. 
 
- bosss-pet27.jpg]Although mortified to be seen in such a compromising position by a colleague, I obeyed assuming I was supposed to and was happy to get off my aching knees. 
+"So you would serve all the employees if instructed?" she asked. 
 
- "Go over to the wall and stand there until Mrs. Parks returns," Elizabeth ordered, before leaving me alone again. 
+"I'm your slave, Mistress," I answered, giving myself to her completely. "I'll do whatever you tell me to." 
 
- I walked over to where she instructed, thankful that she left...still humiliated by the whole situation and instantly wondering who else may know of my predicament or who else may also be a pet to Mrs. Parks. 
+"You'll suck off customers to finish off a deal?" she asked, her hands again on my ass. 
 
- I felt like I was back in elementary school and being sent to the corner for punishment. 
+"And swallow their load or take it all over my face," I answered, wanting to show her how completely submissive I was. 
 
- Standing there, in only a bra and panties, I felt utterly vulnerable. I also felt cold as a cool breeze from an air vent blew down on me. 
+"And if three men are at a deal closing?" she questioned, moving her hands up and cupping my breasts. 
 
- Suddenly, the door opened again and I prayed it was Mrs. Parks. 
+"Well, Mistress, I have three holes," I responded, even though I had never even been with two men at once. Did I want to be the centerpiece to an orgy? No. Would I do it to please Mrs. Parks? Yes. 
 
- "Hands together in front of you," Mrs. Parks ordered. 
+"Good news, my pet," she purred, kissing the back of my neck. 
 
- I quickly obeyed, thankful that it was her and thankful to hear the door close. 
+"Yes, Mistress," I moaned softly. 
 
- "Why were you punished?" she asked. 
+"I would never make you do such things," she revealed. "I just wanted to know if you would." 
 
- "For not waiting for you to beckon me," I answered. 
+"I'd do anything for you, Mistress," I replied, even as a huge sigh of relief coursed through me at not having to do the things I just promised I would do. 
 
- "And why did you send that text, my pet?" she asked, again right behind me. 
+"And you will be rewarded for such obedience," she said. "Turn around, my pet." 
 
- "To let you know without a doubt that I'm willing to do anything for this company and for you," I answered. 
+bosss-pet28.jpg] 
 
- "So you would serve all the employees if instructed?" she asked. 
+I did, a rush of adrenaline coursing through me at what might lie ahead. 
 
- "I'm your slave, Mistress," I answered, giving myself to her completely. "I'll do whatever you tell me to." 
+"On your knees, my pet," she ordered, looking me directly in the eyes. 
 
- "You'll suck off customers to finish off a deal?" she asked, her hands again on my ass. 
+Never breaking eye contact, I obeyed, lowering myself to my knees, as I replied, "Yes, Mistress." 
 
- "And swallow their load or take it all over my face," I answered, wanting to show her how completely submissive I was. 
+My arms at my sides, I waited for my next orders attempting to look eager and submissive. 
 
- "And if three men are at a deal closing?" she questioned, moving her hands up and cupping my breasts. 
+"What do you want, my pet?" she asked, looking down at me. 
 
- "Well, Mistress, I have three holes," I responded, even though I had never even been with two men at once. Did I want to be the centerpiece to an orgy? No. Would I do it to please Mrs. Parks? Yes. 
+"To lick your pussy, Mistress," I admitted. 
 
- "Good news, my pet," she purred, kissing the back of my neck. 
+"You mean my cunt?" she corrected. 
 
- "Yes, Mistress," I moaned softly. 
+I didn't love the 'C' word, but if that was what she was going to use, I would too. "Yes, Mistress, I want to lick your cunt." 
 
- "I would never make you do such things," she revealed. "I just wanted to know if you would." 
+She lifted up her dress, revealing she wasn't wearing any panties. She asked, "Is this what you want to lick, my pet?" 
 
- "I'd do anything for you, Mistress," I replied, even as a huge sigh of relief coursed through me at not having to do the things I just promised I would do. 
+"God, yes," I nodded, staring at her completely shaved pussy, I mean cunt. 
 
- "And you will be rewarded for such obedience," she said. "Turn around, my pet." 
+"Go ahead, my pet," she offered, grabbing the back of my head and guiding me to her pussy. 
 
- 
+I extended my tongue and just as I was about to lick perfection I woke up. AGAIN!!! 
 
- bosss-pet28.jpg] 
+Opening my eyes, my hand in my panties, I cursed myself. Why did I wake up every time just before the final act of submission? Looking back I now realize never having tasted her pussy, or any other pussy, before my subconscious had no reference for me to dream about it. Thus making me wake up before I licked her in my dream. 
 
- I did, a rush of adrenaline coursing through me at what might lie ahead. 
+I quickly rubbed myself, wondering what her pussy would taste like. Wondering if tomorrow these crazy, vivid, authentic dreams would finally come to fruition. 
 
- "On your knees, my pet," she ordered, looking me directly in the eyes. 
+bosss-pet29.jpg] 
 
- Never breaking eye contact, I obeyed, lowering myself to my knees, as I replied, "Yes, Mistress." 
+Coming hard in only a couple of minutes, an idea popped into my head. I knew exactly what I was going to wear tomorrow underneath my dress...even though I still wasn't sure which dress I planned to wear for my hopeful final submission. 
 
- My arms at my sides, I waited for my next orders attempting to look eager and submissive. 
+I went to my lingerie drawer and grabbed the sexy black numbers. I then grabbed the new high heels I wasn't even sure I could walk in all day. 
 
- "What do you want, my pet?" she asked, looking down at me. 
+I was definitely going to make it clear, without even a shadow of a doubt that I was willing to be her submissive plaything. 
 
- "To lick your pussy, Mistress," I admitted. 
+Happy with my choices, I returned to bed giddy with anticipation of the night that lay ahead. I closed my eyes, but honestly I didn't get the greatest sleep, my mind playing all the different possibilities of tomorrow 
 
- "You mean my cunt?" she corrected. 
+..... 
 
- I didn't love the 'C' word, but if that was what she was going to use, I would too. "Yes, Mistress, I want to lick your cunt." 
+bosss-pet30.jpg]I woke up filled with trepidation. What if I was reading the signs wrong and she didn't have any sexual interest in me? 
 
- She lifted up her dress, revealing she wasn't wearing any panties. She asked, "Is this what you want to lick, my pet?" 
-
- "God, yes," I nodded, staring at her completely shaved pussy, I mean cunt. 
-
- "Go ahead, my pet," she offered, grabbing the back of my head and guiding me to her pussy. 
-
- I extended my tongue and just as I was about to lick perfection I woke up. AGAIN!!! 
-
- Opening my eyes, my hand in my panties, I cursed myself. Why did I wake up every time just before the final act of submission? Looking back I now realize never having tasted her pussy, or any other pussy, before my subconscious had no reference for me to dream about it. Thus making me wake up before I licked her in my dream. 
-
- I quickly rubbed myself, wondering what her pussy would taste like. Wondering if tomorrow these crazy, vivid, authentic dreams would finally come to fruition. 
-
- 
-
- bosss-pet29.jpg] 
-
- Coming hard in only a couple of minutes, an idea popped into my head. I knew exactly what I was going to wear tomorrow underneath my dress...even though I still wasn't sure which dress I planned to wear for my hopeful final submission. 
-
- I went to my lingerie drawer and grabbed the sexy black numbers. I then grabbed the new high heels I wasn't even sure I could walk in all day. 
-
- I was definitely going to make it clear, without even a shadow of a doubt that I was willing to be her submissive plaything. 
-
- Happy with my choices, I returned to bed giddy with anticipation of the night that lay ahead. I closed my eyes, but honestly I didn't get the greatest sleep, my mind playing all the different possibilities of tomorrow 
-
- ..... 
-
- 
-
- bosss-pet30.jpg]I woke up filled with trepidation. What if I was reading the signs wrong and she didn't have any sexual interest in me? 
-
- On the flipside, what if she did?  
-
- 
-
- 
+On the flipside, what if she did?  
 
 ===
 
 Was I ready to be in a relationship with a woman? Would it be an actual relationship? Did I want to be in a relationship? Did I just want the submissive sex I was already fantasizing? 
 
- I could spend hours psychoanalyzing myself, but decided 'fuck it', I would just take the day as fate meant it to be. I wouldn't push to force the issue nor resist whatever Mrs. Parks had in store. 
+I could spend hours psychoanalyzing myself, but decided 'fuck it', I would just take the day as fate meant it to be. I wouldn't push to force the issue nor resist whatever Mrs. Parks had in store. 
 
- In the end, after sleeping on it, I choose a sexy dress, one so short it didn't even attempt to completely cover the lace top stockings and none of them at all if I walked or sat down. 
+In the end, after sleeping on it, I choose a sexy dress, one so short it didn't even attempt to completely cover the lace top stockings and none of them at all if I walked or sat down. 
 
- The thigh highs she gave me to wear were like silk heaven...as they not only made my legs look utterly fantastic, somehow making them look longer, but they felt so soft that I found myself petting my own legs on more than one occasion. 
+The thigh highs she gave me to wear were like silk heaven...as they not only made my legs look utterly fantastic, somehow making them look longer, but they felt so soft that I found myself petting my own legs on more than one occasion. 
 
- She said we would begin the training today...TRAINING...what a complex word with so many completely different meanings...and which one did I want to apply when my training with Mrs. Parks began? 
+She said we would begin the training today...TRAINING...what a complex word with so many completely different meanings...and which one did I want to apply when my training with Mrs. Parks began? 
 
- I was so excited and nervous about the day that I barely heard a word my profs said all morning. 
+I was so excited and nervous about the day that I barely heard a word my profs said all morning. 
 
- Instead, I kept playing in my head all the different possible scenarios that may occur this afternoon. The reality was I needed to know one way or another what Mrs. Parks expected from me because it was consuming my every waking moment. 
+Instead, I kept playing in my head all the different possible scenarios that may occur this afternoon. The reality was I needed to know one way or another what Mrs. Parks expected from me because it was consuming my every waking moment. 
 
- For the second day in a row, I got a lot of looks from the boys for my attire, dressing way sexier than anyone else on campus for morning lectures. It made me feel good and a bit slutty knowing I was also getting looks from girls who saw me as a complete skank. 
+For the second day in a row, I got a lot of looks from the boys for my attire, dressing way sexier than anyone else on campus for morning lectures. It made me feel good and a bit slutty knowing I was also getting looks from girls who saw me as a complete skank. 
 
- But I didn't care. Mrs. Parks had opened up a part of me that was usually dormant and I enjoyed the looks and the feeling of being wanted. 
+But I didn't care. Mrs. Parks had opened up a part of me that was usually dormant and I enjoyed the looks and the feeling of being wanted. 
 
- I barely ate any of my salad for lunch before getting to work early, filled with anticipation and trepidation...knowing I would soon have the answer to what her expectations were once and for all. 
+I barely ate any of my salad for lunch before getting to work early, filled with anticipation and trepidation...knowing I would soon have the answer to what her expectations were once and for all. 
 
- 
+bosss-pet31.jpg]I arrived early and waited for almost an hour for Mrs. Parks to return from lunch. She ordered, ignoring the fact that she was late, "Come in, Lily and June please hold my calls. I'm not to be interrupted this afternoon for any reason." 
 
- bosss-pet31.jpg]I arrived early and waited for almost an hour for Mrs. Parks to return from lunch. She ordered, ignoring the fact that she was late, "Come in, Lily and June please hold my calls. I'm not to be interrupted this afternoon for any reason." 
+"Of course, Mrs. Parks," June nodded. 
 
- "Of course, Mrs. Parks," June nodded. 
+I followed Mrs. Parks in and closed the door without instructions. 
 
- I followed Mrs. Parks in and closed the door without instructions. 
+She said, as she walked to her desk and took off her blazer. "You should probably lock it." 
 
- She said, as she walked to her desk and took off her blazer. "You should probably lock it." 
+Her ominous instructions sent butterflies to my stomach and made my panties instantly dampen with anticipation for something that I didn't know I had remotely wanted just a week ago. 
 
- Her ominous instructions sent butterflies to my stomach and made my panties instantly dampen with anticipation for something that I didn't know I had remotely wanted just a week ago. 
+"Of course, Mrs. Parks," I obeyed, locking the door and beginning to walk to the chair in front of her desk. 
 
- "Of course, Mrs. Parks," I obeyed, locking the door and beginning to walk to the chair in front of her desk. 
+"Stop," she ordered. 
 
- "Stop," she ordered. 
+I froze, yet somehow decided to pose wanting to showcase my curves, which this dress did a great job of showcasing. 
 
- I froze, yet somehow decided to pose wanting to showcase my curves, which this dress did a great job of showcasing. 
+"The top half of your dress is much less risqué, but every step you take I can see your lace top stockings," she pointed out. 
 
- "The top half of your dress is much less risqué, but every step you take I can see your lace top stockings," she pointed out. 
+I replied, "It was the only dress I owned I felt really matched the stockings you insisted I wear." 
 
- I replied, "It was the only dress I owned I felt really matched the stockings you insisted I wear." 
+"Fair enough," she nodded. "Take a seat." 
 
- "Fair enough," she nodded. "Take a seat." 
+I moved to the chair, sat down, suddenly feeling incredibly nervous, like I used to be on first dates in high school, as she sat behind her desk. She asked, "How has the week been so far?" 
 
- I moved to the chair, sat down, suddenly feeling incredibly nervous, like I used to be on first dates in high school, as she sat behind her desk. She asked, "How has the week been so far?" 
+I answered, surprised by the mundane question, "A bit overwhelming. There are so many people here. I didn't realize just how big the firm was." 
 
- I answered, surprised by the mundane question, "A bit overwhelming. There are so many people here. I didn't realize just how big the firm was." 
+She nodded, "We are not only the biggest in the city, but in the entire state." 
 
- She nodded, "We are not only the biggest in the city, but in the entire state." 
+"It's an honour to be a part of it," I responded, meaning that completely from the work opportunity point of view. 
 
- "It's an honour to be a part of it," I responded, meaning that completely from the work opportunity point of view. 
+"Yes, it is," she concurred. "Do you know how many people applied for the job you got?" 
 
- "Yes, it is," she concurred. "Do you know how many people applied for the job you got?" 
+"I have no idea," I admitted, knowing from waiting at least three others were interviewed. 
 
- "I have no idea," I admitted, knowing from waiting at least three others were interviewed. 
+"A hundred and ninety-five," she revealed. "From that number we did reference checks on twenty-five, did phone interviews with fifteen and brought seven in for personal interviews," she revealed. 
 
- "A hundred and ninety-five," she revealed. "From that number we did reference checks on twenty-five, did phone interviews with fifteen and brought seven in for personal interviews," she revealed. 
+A wave of pride coursed through me at the reality that out of almost two hundred applicants, I was chosen. I said, "I'm very flattered that you chose me, Mrs. Parks." 
 
- A wave of pride coursed through me at the reality that out of almost two hundred applicants, I was chosen. I said, "I'm very flattered that you chose me, Mrs. Parks." 
+"You have the potential, with some training, to be a very valuable asset to this company and to me," she continued. Her words were flattering, yet her facial expression didn't match her words, showing no emotion at all. 
 
- "You have the potential, with some training, to be a very valuable asset to this company and to me," she continued. Her words were flattering, yet her facial expression didn't match her words, showing no emotion at all. 
+"I'm willing to do anything to help this company," I replied, thinking to myself I meant both professionally and personally. So I added, "And, of course, you, Mrs. Parks." 
 
- "I'm willing to do anything to help this company," I replied, thinking to myself I meant both professionally and personally. So I added, "And, of course, you, Mrs. Parks." 
+She stood up and asked, "And just out of curiosity, what do you mean by those last words, Lily?" 
 
- She stood up and asked, "And just out of curiosity, what do you mean by those last words, Lily?" 
+I silently cursed to myself. I had decided to let whatever happened in this office this afternoon happen, yet I sure didn't want to be the one to say it. I didn't want to be wrong and humiliate myself, even though I was pretty positive I was correct. 
 
- I silently cursed to myself. I had decided to let whatever happened in this office this afternoon happen, yet I sure didn't want to be the one to say it. I didn't want to be wrong and humiliate myself, even though I was pretty positive I was correct. 
+My legs trembled with anxiety as my next words could seal my fate with this company, although what that fate would be was still to be determined. 
 
- My legs trembled with anxiety as my next words could seal my fate with this company, although what that fate would be was still to be determined. 
+"I believe in doing whatever it takes to get the job done," I finally answered, avoiding saying anything of substance at all. 
 
- "I believe in doing whatever it takes to get the job done," I finally answered, avoiding saying anything of substance at all. 
+"And what exactly does that mean?" she asked, as she moved in front of me and leaned on her desk. 
 
- "And what exactly does that mean?" she asked, as she moved in front of me and leaned on her desk. 
+I knew she would see through generic nothingness, but hoped she would at least give me an olive branch to climb on, some sign that I was right. 
 
- I knew she would see through generic nothingness, but hoped she would at least give me an olive branch to climb on, some sign that I was right. 
+I took a deep breath and rattled out rather fast before I could stop the words, "Making sure my boss is completely satisfied." 
 
- I took a deep breath and rattled out rather fast before I could stop the words, "Making sure my boss is completely satisfied." 
+"Hmmmmm," she nodded, but asked, as she hopped onto her desk, "and how does an employee make sure the boss is completely satisfied?" 
 
- "Hmmmmm," she nodded, but asked, as she hopped onto her desk, "and how does an employee make sure the boss is completely satisfied?" 
+I felt this was the olive branch, an incredibly small one, but as she slowly crossed her legs in front of me, I sensed this was the window of opportunity. 
 
- I felt this was the olive branch, an incredibly small one, but as she slowly crossed her legs in front of me, I sensed this was the window of opportunity. 
+I took a deep breath, looked up at her, risking everything, and silently dropped to my knees, exactly as I had in my dream just a couple of nights ago. 
 
- I took a deep breath, looked up at her, risking everything, and silently dropped to my knees, exactly as I had in my dream just a couple of nights ago. 
+"Sometimes a picture is worth a thousand words, they say," she began, looking down at me, before adding. "But I believe an action speaks a million." 
 
- "Sometimes a picture is worth a thousand words, they say," she began, looking down at me, before adding. "But I believe an action speaks a million." 
+"Then let me speak millions," I responded eagerly. 
 
- "Then let me speak millions," I responded eagerly. 
+"Stand up," she ordered, her tone deceivingly unemotional. 
 
- "Stand up," she ordered, her tone deceivingly unemotional. 
+I obeyed. 
 
- I obeyed. 
+bosss-pet32.jpg]"Turn around," she ordered. 
 
- 
+I again obeyed, a chill going up my spine. 
 
- bosss-pet32.jpg]"Turn around," she ordered. 
+"Lift up your dress," she instructed. "Let's see that ass of yours." 
 
- I again obeyed, a chill going up my spine. 
+The dress tight, I used both hands to slowly tug up the dress. 
 
- "Lift up your dress," she instructed. "Let's see that ass of yours." 
+"A thong," she said in an approving tone, "very, very nice." 
 
- The dress tight, I used both hands to slowly tug up the dress. 
+"Thank you, Mistress, I wore it for you," I admitted, then realized what I had said in the heat of the moment accidentally, just like I had in my dream. 
 
- "A thong," she said in an approving tone, "very, very nice." 
+"Mistress," she smiled, "I like that." 
 
- "Thank you, Mistress, I wore it for you," I admitted, then realized what I had said in the heat of the moment accidentally, just like I had in my dream. 
+"A good pet has a Master and you are mine," I said, somehow completely buying in to the odd words I was saying. 
 
- "Mistress," she smiled, "I like that." 
+"Excellent," she nodded. "You will always refer to me as Mistress when we are alone or travelling." 
 
- "A good pet has a Master and you are mine," I said, somehow completely buying in to the odd words I was saying. 
+"Of course, Mistress," I nodded, wondering where she planned to take me. 
 
- "Excellent," she nodded. "You will always refer to me as Mistress when we are alone or travelling." 
+"And those heels are incredibly sexy," she continued, before adding, "they really accentuate your legs, particularly with those thigh high stockings." 
 
- "Of course, Mistress," I nodded, wondering where she planned to take me. 
+"I completely agree, Mistress," I nodded. "Thank you for opening me up to a new fashion sense." 
 
- "And those heels are incredibly sexy," she continued, before adding, "they really accentuate your legs, particularly with those thigh high stockings." 
+"You're welcome," she replied. "As I mentioned before, a woman in the business world needs to look both professional and sexy at all times." 
 
- "I completely agree, Mistress," I nodded. "Thank you for opening me up to a new fashion sense." 
+"Understood." 
 
- "You're welcome," she replied. "As I mentioned before, a woman in the business world needs to look both professional and sexy at all times." 
+"Turn back around," she ordered. 
 
- "Understood." 
+I again obeyed, sensing the final moment of submission, the one that always was denied to me in my dreams, was almost at hand. 
 
- "Turn back around," she ordered. 
+"I have a question I didn't get to ask you during the interview because it went on quite a tangent. What are the best traits of a dog?" she asked. 
 
- I again obeyed, sensing the final moment of submission, the one that always was denied to me in my dreams, was almost at hand. 
+Although the question was undoubtedly strange, I wasn't rattled by the question at all. I instantly knew the answer she was looking for as I answered, "Loyalty and obedience." 
 
- "I have a question I didn't get to ask you during the interview because it went on quite a tangent. What are the best traits of a dog?" she asked. 
+"Very good," she nodded, before adding, "And they are trainable." 
 
- Although the question was undoubtedly strange, I wasn't rattled by the question at all. I instantly knew the answer she was looking for as I answered, "Loyalty and obedience." 
+"Although only with patience and firm discipline," I added, trying to hint at my own obedience and my willingness to do whatever it takes. 
 
- "Very good," she nodded, before adding, "And they are trainable." 
+"They are also very enthusiastic," she added. 
 
- "Although only with patience and firm discipline," I added, trying to hint at my own obedience and my willingness to do whatever it takes. 
+"If I didn't know any better I would think you are describing me," I smiled coyly. 
 
- "They are also very enthusiastic," she added. 
+"Interesting thought," she smiled for the first time, "Do you know why I picked you?" 
 
- "If I didn't know any better I would think you are describing me," I smiled coyly. 
+"No, Mistress," I replied. 
 
- "Interesting thought," she smiled for the first time, "Do you know why I picked you?" 
+"I could see the longing buried deep within you," she answered. 
 
- "No, Mistress," I replied. 
+"Really?" I asked. "To be honest, I have never considered anything like this with another female before...before...um." 
 
- "I could see the longing buried deep within you," she answered. 
+"Before me?" she finished my sentence. 
 
- "Really?" I asked. "To be honest, I have never considered anything like this with another female before...before...um." 
+"Yet, I'm guessing you definitely are submissive to your male partners," she continued. 
 
- "Before me?" she finished my sentence. 
+"Mostly," I nodded, in awe that she somehow saw all this in me during our original interview. 
 
- "Yet, I'm guessing you definitely are submissive to your male partners," she continued. 
+"I would say more than mostly," she continued. "Your eagerness to please was very clear during your interview." 
 
- "Mostly," I nodded, in awe that she somehow saw all this in me during our original interview. 
+"It was?" I asked, still bewildered by her assessment of me. 
 
- "I would say more than mostly," she continued. "Your eagerness to please was very clear during your interview." 
+bosss-pet33.jpg] 
 
- "It was?" I asked, still bewildered by her assessment of me. 
+"Crystal clear," she nodded. "Now it's inspection time, my pet." 
 
- 
+Hearing her call me her pet sent a chill up my spine and dispelled the last lingering doubt I had over what was going to happen today, although all doubt should have faded long ago. 
 
- bosss-pet33.jpg] 
+"Okay," I said, looking up at her waiting for further instruction. 
 
- "Crystal clear," she nodded. "Now it's inspection time, my pet." 
+"Take off your heels, my pet," she ordered, "I want to take a good look at your stocking-clad feet." 
 
- Hearing her call me her pet sent a chill up my spine and dispelled the last lingering doubt I had over what was going to happen today, although all doubt should have faded long ago. 
+"Yes, Mistress," I nodded, quite happy to get out of the high heels that were literally killing my feet, my ankles and my back. 
 
- "Okay," I said, looking up at her waiting for further instruction. 
+"But do it as sexily as possible," she added. 
 
- "Take off your heels, my pet," she ordered, "I want to take a good look at your stocking-clad feet." 
+I started to slowly slip out of my one heel when she stopped me. 
 
- "Yes, Mistress," I nodded, quite happy to get out of the high heels that were literally killing my feet, my ankles and my back. 
+"No, no," she said, shaking her head, "use your whole body as a weapon. Your legs, hips and lips." 
 
- "But do it as sexily as possible," she added. 
+"Oh, okay," I nodded, although I wasn't confident I could do it right. I loved dancing and wasn't remotely self-conscious on a dance floor, but both times I had attempted sexy stripteases for boyfriends I had felt like a complete fool. 
 
- I started to slowly slip out of my one heel when she stopped me. 
+I slowly slid my foot out, while holding a pose and letting out a slight moan that made my lips I hoped look sensual. 
 
- "No, no," she said, shaking her head, "use your whole body as a weapon. Your legs, hips and lips." 
+"Very nice," she nodded, "You really are a quick learner." 
 
- "Oh, okay," I nodded, although I wasn't confident I could do it right. I loved dancing and wasn't remotely self-conscious on a dance floor, but both times I had attempted sexy stripteases for boyfriends I had felt like a complete fool. 
+I smiled, one heel on, one heel off, and added, "And always eager to learn new things." 
 
- I slowly slid my foot out, while holding a pose and letting out a slight moan that made my lips I hoped look sensual. 
+"You've never been with a woman, have you?" she asked. 
 
- "Very nice," she nodded, "You really are a quick learner." 
+"No," I shook my head. 
 
- I smiled, one heel on, one heel off, and added, "And always eager to learn new things." 
+"But you are considering it now?" she asked. 
 
- "You've never been with a woman, have you?" she asked. 
+"The decision has already been made," I replied, slipping out of my other heel. 
 
- "No," I shook my head. 
+bosss-pet34.jpg] 
 
- "But you are considering it now?" she asked. 
+She looked down and said, "You do have very sexy feet." 
 
- "The decision has already been made," I replied, slipping out of my other heel. 
+"Thank you, Mistress," I nodded. 
 
- 
+"So, let's conclude the inspection," she said. "Painted toenails, check, Thigh high stockings I ordered you to wear, check. Sexy panties, check." 
 
- bosss-pet34.jpg] 
+My face flushed as I was inspected like I was a piece of property. 
 
- She looked down and said, "You do have very sexy feet." 
+"But what about the bra?" she pondered, looking directly at my breasts, still covered by my dress, "Is it as sexy as the rest of your attire?" 
 
- "Thank you, Mistress," I nodded. 
+"Do you want me to take off my dress, Mistress?" I asked, trying to be as submissive as possible. 
 
- "So, let's conclude the inspection," she said. "Painted toenails, check, Thigh high stockings I ordered you to wear, check. Sexy panties, check." 
+bosss-pet35.jpg] 
 
- My face flushed as I was inspected like I was a piece of property. 
+"Yes, my pet," she nodded. 
 
- "But what about the bra?" she pondered, looking directly at my breasts, still covered by my dress, "Is it as sexy as the rest of your attire?" 
+No longer remotely nervous, I began lifting the dress over my head. Unfortunately, because it was so tight, I really struggled and actually briefly got stuck. 
 
- "Do you want me to take off my dress, Mistress?" I asked, trying to be as submissive as possible. 
+"Need a hand?' she asked, clearly amused. 
 
- 
+"Maybe two," I joked. 
 
- bosss-pet35.jpg] 
+She assisted and finished taking my dress off for me. 
 
- "Yes, my pet," she nodded. 
+Once off, she nodded, "You really do have one tight, perfect little body." 
 
- No longer remotely nervous, I began lifting the dress over my head. Unfortunately, because it was so tight, I really struggled and actually briefly got stuck. 
+If a man said such words I would have called him a sexist pig, yet when she said them I felt flattered. 
 
- "Need a hand?' she asked, clearly amused. 
+"Thank you, Mistress," I replied. 
 
- "Maybe two," I joked. 
+bosss-pet36.jpg]"So sexy bra, check," she nodded, before moving her hand to my very damp panties. 
 
- She assisted and finished taking my dress off for me. 
+"Wet cunt, check" she announced, before asking, "Why are your panties so soaking wet, my pet?" 
 
- Once off, she nodded, "You really do have one tight, perfect little body." 
+"Enthusiasm and anticipation," I replied, trying to keep the pet analogy working. 
 
- If a man said such words I would have called him a sexist pig, yet when she said them I felt flattered. 
+"Anticipation for what?" She asked, her finger tracing my pussy lips through the panties. 
 
- "Thank you, Mistress," I replied. 
+"Submitting to you," I moaned softly, her touch driving me wild. 
 
- 
+"So you want to be my unconditional pet?" She asked, tapping her fingers on my clit. 
 
- bosss-pet36.jpg]"So sexy bra, check," she nodded, before moving her hand to my very damp panties. 
+"G-G-God, yessss," I trembled as she tapped on my clit more. 
 
- "Wet cunt, check" she announced, before asking, "Why are your panties so soaking wet, my pet?" 
+"And you understand that it will come with very clear expectations," she continued. 
 
- "Enthusiasm and anticipation," I replied, trying to keep the pet analogy working. 
+"Of course, Mistress," I nodded, "a pet needs to know her boundaries." 
 
- "Anticipation for what?" She asked, her finger tracing my pussy lips through the panties. 
+"And show me what a pet does to show she understands her boundaries," she ordered, as she moved to her desk and sat on it. 
 
- "Submitting to you," I moaned softly, her touch driving me wild. 
+I walked to her, dropped to my knees and took off her right heel and began gently massaging her foot. The silk was so soft that I wanted to splatter her leg with kisses, and feel them wrapped around me. Yet, I focused on the submissive act, waiting to be told what to do, to be guided in this journey of lesbian submission. 
 
- "So you want to be my unconditional pet?" She asked, tapping her fingers on my clit. 
+She didn't speak at all as I gently massaged her toes, foot, ankle and calf. 
 
- "G-G-God, yessss," I trembled as she tapped on my clit more. 
+Wordlessly, she uncrossed and re-crossed her legs and I took off her other five inch heel and replicated the dedicated, gentle, massage of her foot. 
 
- "And you understand that it will come with very clear expectations," she continued. 
+Once done, when she didn't give an order, I took initiative wanting to show my undying loyalty, I leaned forward and kissed the top of her foot. 
 
- "Of course, Mistress," I nodded, "a pet needs to know her boundaries." 
+"Lick the sole of my foot, my pet," she ordered, finally speaking. 
 
- "And show me what a pet does to show she understands her boundaries," she ordered, as she moved to her desk and sat on it. 
+"Yes, Mistress," I nodded, lifting her foot up and licking the sole of her foot as ordered. It was an odd mixture of sweat, leather and nylon and somehow it turned me on even more. 
 
- I walked to her, dropped to my knees and took off her right heel and began gently massaging her foot. The silk was so soft that I wanted to splatter her leg with kisses, and feel them wrapped around me. Yet, I focused on the submissive act, waiting to be told what to do, to be guided in this journey of lesbian submission. 
+"Now the other," she instructed a moment later. 
 
- She didn't speak at all as I gently massaged her toes, foot, ankle and calf. 
+I replicated the act on her other foot while she continued listing her expectations of me. "You won't date." 
 
- Wordlessly, she uncrossed and re-crossed her legs and I took off her other five inch heel and replicated the dedicated, gentle, massage of her foot. 
+I nodded, even as I wondered if this made her my girlfriend. 
 
- Once done, when she didn't give an order, I took initiative wanting to show my undying loyalty, I leaned forward and kissed the top of her foot. 
+"You will have a travel bag here ready to go at a minute's notice," she explained. 
 
- "Lick the sole of my foot, my pet," she ordered, finally speaking. 
+"Okay, Mistress," I agreed. 
 
- "Yes, Mistress," I nodded, lifting her foot up and licking the sole of her foot as ordered. It was an odd mixture of sweat, leather and nylon and somehow it turned me on even more. 
+"I'll give you a company credit card to purchase the various items you will need for excursions," she continued. 
 
- "Now the other," she instructed a moment later. 
+"Thank you, Mistress, that is very generous," I said. 
 
- I replicated the act on her other foot while she continued listing her expectations of me. "You won't date." 
+"I'm a very generous Mistress, my pet," she replied, before adding, "Now get on all fours," 
 
- I nodded, even as I wondered if this made her my girlfriend. 
+"Yes, Mistress," I said, as I got in the position she instructed. 
 
- "You will have a travel bag here ready to go at a minute's notice," she explained. 
+"Crawl to the door," she ordered, "it's time to take my pet for a walk." 
 
- "Okay, Mistress," I agreed. 
+For the first time since this whole crazy situation began, I felt massive trepidation and anxiety. Was she going to ask me to crawl out in the office like this? 
 
- "I'll give you a company credit card to purchase the various items you will need for excursions," she continued. 
+Yet, again I obeyed, walking to the door, praying that, like the declarations of complete slut-dom, this was another test. 
 
- "Thank you, Mistress, that is very generous," I said. 
+bosss-pet37.jpg] 
 
- "I'm a very generous Mistress, my pet," she replied, before adding, "Now get on all fours," 
+"I probably should get you a collar and a leash," she said, as I reached the door. 
 
- "Yes, Mistress," I said, as I got in the position she instructed. 
+Strangely, like everything else she said, it somehow turned me on. 
 
- "Crawl to the door," she ordered, "it's time to take my pet for a walk." 
+"Do you want to go for a walk, my pet?" she asked. 
 
- For the first time since this whole crazy situation began, I felt massive trepidation and anxiety. Was she going to ask me to crawl out in the office like this? 
+I didn't remotely want to go for a walk. I wanted to crawl to her and bury my face between her legs. Yet, I replied like the obedient submissive I was, "If Mistress wants to take me for a walk." 
 
- Yet, again I obeyed, walking to the door, praying that, like the declarations of complete slut-dom, this was another test. 
+"Good girl," she nodded, "You passed the final test." 
 
- 
+"I did?" I asked, still staring at the door...the only thing that separated me from complete humiliation. 
 
- bosss-pet37.jpg] 
+"You mentioned loyalty, obedience and training," she explained, "but there is also, of course, the most important of all." 
 
- "I probably should get you a collar and a leash," she said, as I reached the door. 
+"More important than loyalty?" I asked, looking back at her. 
 
- Strangely, like everything else she said, it somehow turned me on. 
+"Yes," she nodded, "it's a five letter word." 
 
- "Do you want to go for a walk, my pet?" she asked. 
+I tried to come up with a word that was only five letters long, but other than loyal, which was already covered by loyalty, I came up blank. 
 
- I didn't remotely want to go for a walk. I wanted to crawl to her and bury my face between her legs. Yet, I replied like the obedient submissive I was, "If Mistress wants to take me for a walk." 
+"Crawl back to me, my pet," she ordered. 
 
- "Good girl," she nodded, "You passed the final test." 
+I obeyed, crawling like a dog to her, even as I wracked my brain to figure out the word. 
 
- "I did?" I asked, still staring at the door...the only thing that separated me from complete humiliation. 
+Reaching her, she ordered, "Give me your sexiest pose, my pet?" 
 
- "You mentioned loyalty, obedience and training," she explained, "but there is also, of course, the most important of all." 
+"Yes, Mistress," I nodded, wondering what would be a sexy pose. I wanted to look submissive and yet seductive...I wanted her to want me. 
 
- "More important than loyalty?" I asked, looking back at her. 
+I remained on my knees knowing that is a very submissive position and while looking up at her the whole time, I allowed my bra straps to fall off my shoulders. 
 
- "Yes," she nodded, "it's a five letter word." 
+bosss-pet38.jpg] 
 
- I tried to come up with a word that was only five letters long, but other than loyal, which was already covered by loyalty, I came up blank. 
+Knowing that women get turned on by slow teasing and imagination, I then cupped my small, but firm breasts. 
 
- "Crawl back to me, my pet," she ordered. 
+I looked up at her, trying to look vulnerable and sexy. 
 
- I obeyed, crawling like a dog to her, even as I wracked my brain to figure out the word. 
+"Are your nipples hard?" she asked. 
 
- Reaching her, she ordered, "Give me your sexiest pose, my pet?" 
+"Like diamonds," I replied, my nipples getting stiff very easily. 
 
- "Yes, Mistress," I nodded, wondering what would be a sexy pose. I wanted to look submissive and yet seductive...I wanted her to want me. 
+"What are your weak spots, my pet?" she asked. 
 
- I remained on my knees knowing that is a very submissive position and while looking up at her the whole time, I allowed my bra straps to fall off my shoulders. 
+"What do you mean, Mistress?" I asked, confused by the question. 
 
- 
+"If someone wants to get you revved up and ready to fuck, what are your hot buttons?" 
 
- bosss-pet38.jpg] 
+"Before I met you?" I asked, before adding, "because I think I have some new hot buttons I didn't know existed." 
 
- Knowing that women get turned on by slow teasing and imagination, I then cupped my small, but firm breasts. 
+"That's flattering," she nodded, "but yes, before me." 
 
- I looked up at her, trying to look vulnerable and sexy. 
+"Well, I love getting my nipples sucked or nibbled," I said. 
 
- "Are your nipples hard?" she asked. 
+"But what gets you hot when you're still dressed?" she asked. 
 
- "Like diamonds," I replied, my nipples getting stiff very easily. 
+"Ohhhhh," I nodded. "Either kissing my neck from behind or the touching of my thigh when I'm in a dress or skirt. The hot breath on my neck or a hand on my thigh both instantly trigger wetness in my pussy." 
 
- "What are your weak spots, my pet?" she asked. 
+"You mean your cunt," she corrected. 
 
- "What do you mean, Mistress?" I asked, confused by the question. 
+"Yes, Mistress, my wet cunt," I corrected, somehow loving saying 'cunt', a word I found repulsive before meeting Mrs. Parks. 
 
- "If someone wants to get you revved up and ready to fuck, what are your hot buttons?" 
+"Show me more of those tits, my pet," she ordered. 
 
- "Before I met you?" I asked, before adding, "because I think I have some new hot buttons I didn't know existed." 
+bosss-pet39.jpg] 
 
- "That's flattering," she nodded, "but yes, before me." 
+My knees getting sore, I repositioned myself on just one knee as I attempted to show more. 
 
- "Well, I love getting my nipples sucked or nibbled," I said. 
+I was about to take off my bra when suddenly there was a knock at the door. 
 
- "But what gets you hot when you're still dressed?" she asked. 
+"For fuck's sake," she cursed, clearly pissed off. "I fucking told her I was not to be disturbed." 
 
- "Ohhhhh," I nodded. "Either kissing my neck from behind or the touching of my thigh when I'm in a dress or skirt. The hot breath on my neck or a hand on my thigh both instantly trigger wetness in my pussy." 
+I quickly put my bra back on, petrified to be caught in such a compromising outfit or position. 
 
- "You mean your cunt," she corrected. 
+"Crawl under my desk," she ordered. 
 
- "Yes, Mistress, my wet cunt," I corrected, somehow loving saying 'cunt', a word I found repulsive before meeting Mrs. Parks. 
+"Yes, Mistress," I nodded, grabbing my dress and heels and quickly moving under her dress. 
 
- "Show me more of those tits, my pet," she ordered. 
+She went to the door and opened it just as I was completely under her desk. 
 
- 
+"Sorry to bother you, Mrs. Parks," a female voice said. "But, Mrs. Hamilton is here and is insisting on meeting with you." 
 
- bosss-pet39.jpg] 
+"Fine, send her in," Mrs. Parks ordered. 
 
- My knees getting sore, I repositioned myself on just one knee as I attempted to show more. 
+The door closed and Mrs. Parks walked back to her desk, sat on her chair and looked down at me. "Well, this will really make for an interesting training. You will kiss every inch of my feet and legs while I meet with Mrs. Hamilton." 
 
- I was about to take off my bra when suddenly there was a knock at the door. 
+"Okay," I nodded, even though I was mortified and disappointed. Like in my dreams, every time I get close to finally submitting completely, it doesn't happen. 
 
- "For fuck's sake," she cursed, clearly pissed off. "I fucking told her I was not to be disturbed." 
+"Oh, are you pouting, my pet?" she asked. 
 
- I quickly put my bra back on, petrified to be caught in such a compromising outfit or position. 
+I didn't know I was, but likely I was. 
 
- "Crawl under my desk," she ordered. 
+"Show me your best pout," she ordered. "I imagine you have mastered the pout with lips like those." 
 
- "Yes, Mistress," I nodded, grabbing my dress and heels and quickly moving under her dress. 
-
- She went to the door and opened it just as I was completely under her desk. 
-
- "Sorry to bother you, Mrs. Parks," a female voice said. "But, Mrs. Hamilton is here and is insisting on meeting with you." 
-
- "Fine, send her in," Mrs. Parks ordered. 
-
- The door closed and Mrs. Parks walked back to her desk, sat on her chair and looked down at me. "Well, this will really make for an interesting training. You will kiss every inch of my feet and legs while I meet with Mrs. Hamilton." 
-
- "Okay," I nodded, even though I was mortified and disappointed. Like in my dreams, every time I get close to finally submitting completely, it doesn't happen. 
-
- "Oh, are you pouting, my pet?" she asked. 
-
- I didn't know I was, but likely I was. 
-
- "Show me your best pout," she ordered. "I imagine you have mastered the pout with lips like those." 
-
- I laughed to myself, because I had manipulated my dad with what he called 'the pout', I had manipulated most boyfriends with 'the pout' and had got out of more than one speeding ticket with 'the pout'.  
-
- 
-
- 
+I laughed to myself, because I had manipulated my dad with what he called 'the pout', I had manipulated most boyfriends with 'the pout' and had got out of more than one speeding ticket with 'the pout'.  
 
 ===
 
- bosss-pet40.jpg] 
+bosss-pet40.jpg] 
 
- She laughed, "That is even more adorable than I anticipated." 
+She laughed, "That is even more adorable than I anticipated." 
 
- The intercom came on and informed Mrs. Parks that Mrs. Hamilton was waiting. 
+The intercom came on and informed Mrs. Parks that Mrs. Hamilton was waiting. 
 
- Looking down at me, she smiled and promised, "Don't worry, my pet, I promise you will not leave here today until you have begun your training and if you do a good job I may even reward you with a nice hard fucking." 
+Looking down at me, she smiled and promised, "Don't worry, my pet, I promise you will not leave here today until you have begun your training and if you do a good job I may even reward you with a nice hard fucking." 
 
- "Yes, Mistress," I nodded, her words going directly to my cunt. 
+"Yes, Mistress," I nodded, her words going directly to my cunt. 
 
- As she rolled her chair in, spreading her legs, she said, "Let her in." 
+As she rolled her chair in, spreading her legs, she said, "Let her in." 
 
- She slipped back out of her heels, and put her foot to my mouth. I again kissed and licked her foot, this time splattering every inch of her foot with kisses. I wanted to move up between her legs and bury my face in her cunt, but knew that wasn't the order. 
+She slipped back out of her heels, and put her foot to my mouth. I again kissed and licked her foot, this time splattering every inch of her foot with kisses. I wanted to move up between her legs and bury my face in her cunt, but knew that wasn't the order. 
 
- The next few minutes felt like an eternity as I continued pleasuring both her feet, ankles and calves as I vaguely listened to the conversation. Mrs. Parks was very patient as she calmed down the woman, who was furious at an error made in last year's tax return. 
+The next few minutes felt like an eternity as I continued pleasuring both her feet, ankles and calves as I vaguely listened to the conversation. Mrs. Parks was very patient as she calmed down the woman, who was furious at an error made in last year's tax return. 
 
- I was moving up her leg at a snail's pace, now at her knees, when she rolled her chair away. She said, "Mrs. Hamilton, we can continue this conversation next week after I personally look through your return." 
+I was moving up her leg at a snail's pace, now at her knees, when she rolled her chair away. She said, "Mrs. Hamilton, we can continue this conversation next week after I personally look through your return." 
 
- "Good," the woman replied. 
+"Good," the woman replied. 
 
- As soon as she was gone, Mrs. Parks locked the door and ordered, "Crawl to me, my pet." 
+As soon as she was gone, Mrs. Parks locked the door and ordered, "Crawl to me, my pet." 
 
- I eagerly crawled out from underneath the desk, crawled to her as she asked, "Now where were we before we were so rudely interrupted?" 
+I eagerly crawled out from underneath the desk, crawled to her as she asked, "Now where were we before we were so rudely interrupted?" 
 
- "I was drawing you in with my sexy charm," I responded, looking up at her. 
+"I was drawing you in with my sexy charm," I responded, looking up at her. 
 
- "Well, it's working," she laughed. "By the way, you were very good underneath the desk." 
+"Well, it's working," she laughed. "By the way, you were very good underneath the desk." 
 
- "Thank you, Mistress," I replied. 
+"Thank you, Mistress," I replied. 
 
- "Next time, maybe I'll let you bury yourself between my legs," she teased. Before I could say anything, my mouth instantly watering at the possibility, she said, "So, let's continuing your training. Using the stool, give me a sexy pose that portrays your understanding of the five letter word." 
+"Next time, maybe I'll let you bury yourself between my legs," she teased. Before I could say anything, my mouth instantly watering at the possibility, she said, "So, let's continuing your training. Using the stool, give me a sexy pose that portrays your understanding of the five letter word." 
 
- 'Damn' I thought to myself, I still hadn't figured out the word. 
+'Damn' I thought to myself, I still hadn't figured out the word. 
 
- She looked down at me and spelt it out, "T-R-U-S-T." 
+She looked down at me and spelt it out, "T-R-U-S-T." 
 
- "Trust, of course,' I thought to myself, the answer so obvious now, like on Wheel of Fortune when you're missing just a few letters and can't solve the puzzle and when it is finally revealed you're like 'Oh, man was that simple'. 
+"Trust, of course,' I thought to myself, the answer so obvious now, like on Wheel of Fortune when you're missing just a few letters and can't solve the puzzle and when it is finally revealed you're like 'Oh, man was that simple'. 
 
- I stood up, pondered a pose before deciding to modify one from an earlier dream, making it even sexier, yet completely vulnerable. 
+I stood up, pondered a pose before deciding to modify one from an earlier dream, making it even sexier, yet completely vulnerable. 
 
- I put my hands on the stool, in only lingerie, one leg up on the stool and one on the floor which I felt achieved the order. 
+I put my hands on the stool, in only lingerie, one leg up on the stool and one on the floor which I felt achieved the order. 
 
- 
+bosss-pet41.jpg] 
 
- bosss-pet41.jpg] 
+My ass was on perfect display, as was the rest of my body. 
 
- My ass was on perfect display, as was the rest of my body. 
+"Very nice," she purred, before moving to me and sliding her hand down my back. 
 
- "Very nice," she purred, before moving to me and sliding her hand down my back. 
+"Thank you, Mistress," I replied, my pussy instantly tingling, her touch magical. 
 
- "Thank you, Mistress," I replied, my pussy instantly tingling, her touch magical. 
+"I think you're finally ready, my pet," she said, her hand continuing to move lower to my ass. 
 
- "I think you're finally ready, my pet," she said, her hand continuing to move lower to my ass. 
+"I'm ready for whatever you want me for, Mistress," I declared, even as my body trembled at her touch. 
 
- "I'm ready for whatever you want me for, Mistress," I declared, even as my body trembled at her touch. 
+"I know you are," she whispered, leaning forward and kissing my back as her hand went between my legs and to my wet panties. "And that is why I am about to reward you." 
 
- "I know you are," she whispered, leaning forward and kissing my back as her hand went between my legs and to my wet panties. "And that is why I am about to reward you." 
+"Yesssss, Mistress," I moaned, as her finger traced my excessively moist pussy lips. 
 
- "Yesssss, Mistress," I moaned, as her finger traced my excessively moist pussy lips. 
+"Are you ready for your treat, Lily?" she asked, using my name for the first time. 
 
- "Are you ready for your treat, Lily?" she asked, using my name for the first time. 
+Hearing my name used startled me. I had become so immersed in the submission of being Mrs. Parks' pet, that I had become 'her pet' or 'her slut'...Lily fading from existence. After a moment, I nodded, "I've never been more ready for anything in my life, Mistress." 
 
- Hearing my name used startled me. I had become so immersed in the submission of being Mrs. Parks' pet, that I had become 'her pet' or 'her slut'...Lily fading from existence. After a moment, I nodded, "I've never been more ready for anything in my life, Mistress." 
+bosss-pet42.jpg] 
 
- 
+"Once you get this treat, Lily," she continued, her tone still firm, as her finger continued to tease my pussy lips, "There is no going back. You will be mine, mind, body and soul." 
 
- bosss-pet42.jpg] 
+Although I knew she was not bluffing, and although I knew my life would be completely different from this moment forward, I knew with complete confidence it was what I wanted. I replied, "I gave you my mind, body and soul the minute you hired me, Mistress. I want to be the best employee you've ever hired, and your most obedient, loyal pet." 
 
- "Once you get this treat, Lily," she continued, her tone still firm, as her finger continued to tease my pussy lips, "There is no going back. You will be mine, mind, body and soul." 
+"Come and sit down, my pet," she ordered, as she sat on the edge of her desk. 
 
- Although I knew she was not bluffing, and although I knew my life would be completely different from this moment forward, I knew with complete confidence it was what I wanted. I replied, "I gave you my mind, body and soul the minute you hired me, Mistress. I want to be the best employee you've ever hired, and your most obedient, loyal pet." 
+Thrilled to be off my weary knees, I stood up, stretched quickly and sat down directly in front of her. 
 
- "Come and sit down, my pet," she ordered, as she sat on the edge of her desk. 
+"You've definitely passed your day one training so far," she said, opening her legs slightly. 
 
- Thrilled to be off my weary knees, I stood up, stretched quickly and sat down directly in front of her. 
+"Thank you, Mistress," I smiled, "I aim to obey." 
 
- "You've definitely passed your day one training so far," she said, opening her legs slightly. 
+"Show me sensual with those lips, my pet," she ordered. 
 
- "Thank you, Mistress," I smiled, "I aim to obey." 
+Beginning to understand what she was looking for, I pursed my lips 
 
- "Show me sensual with those lips, my pet," she ordered. 
+"That is sexy, my pet," she nodded, as she opened her legs more. 
 
- Beginning to understand what she was looking for, I pursed my lips 
+"Have you fantasized about this moment?" she asked. 
 
- "That is sexy, my pet," she nodded, as she opened her legs more. 
+"Every day this week," I admitted. 
 
- "Have you fantasized about this moment?" she asked. 
+"How did it end?" she asked, opening her legs wider so I could just get a glimpse of her pink panties. 
 
- "Every day this week," I admitted. 
+"Honestly," I said, "not well." 
 
- "How did it end?" she asked, opening her legs wider so I could just get a glimpse of her pink panties. 
+"Really? She asked. 
 
- "Honestly," I said, "not well." 
+"Yes, I always woke up just before final submission," I admitted. 
 
- "Really? She asked. 
+========================================== 
 
- "Yes, I always woke up just before final submission," I admitted. 
+AUTHOR'S NOTE::::: 
 
- ========================================== 
+From this point one there will be two parallel narratives. 
 
- AUTHOR'S NOTE::::: 
+To continue with Lily's lesbian submission continue reading. 
 
- From this point one there will be two parallel narratives. 
+If you want to read a surprise ALTERATE ENDING...go to the end of the original version or read this one to its completion and the ALTERNATE ENDING will follow. 
 
- To continue with Lily's lesbian submission continue reading. 
+END OF AUTHOR'S NOTE 
 
- If you want to read a surprise ALTERATE ENDING...go to the end of the original version or read this one to its completion and the ALTERNATE ENDING will follow. 
+========================================== 
 
- END OF AUTHOR'S NOTE 
+bosss-pet43.jpg] 
 
- ========================================== 
+"And what is final submission?" she questioned, opening her legs more. 
 
- 
+I stared between her legs, wondering what it would taste like, and smell like. 
 
- bosss-pet43.jpg] 
+I bit my lip, desperate to cross the final invisible line of complete sexual submission. 
 
- "And what is final submission?" she questioned, opening her legs more. 
+Finally I spoke, "Um, pleasing you." 
 
- I stared between her legs, wondering what it would taste like, and smell like. 
+"How?" she asked, clearly amused by my nervousness. 
 
- I bit my lip, desperate to cross the final invisible line of complete sexual submission. 
+"Licking your pussy," I answered, trying to get a better look between her legs. 
 
- Finally I spoke, "Um, pleasing you." 
+"You mean my cunt?" she corrected me again, lifting her ass up and tugging her panties down. 
 
- "How?" she asked, clearly amused by my nervousness. 
+"Yes, your cunt, Mistress," I nodded, watching her panties slide down her legs. 
 
- "Licking your pussy," I answered, trying to get a better look between her legs. 
+"Finish taking them off, my pet," she ordered. 
 
- "You mean my cunt?" she corrected me again, lifting her ass up and tugging her panties down. 
+My hands trembling again, this time with excitement, I reached over and finished taking her panties off. 
 
- "Yes, your cunt, Mistress," I nodded, watching her panties slide down her legs. 
+"Smell them," she ordered. 
 
- "Finish taking them off, my pet," she ordered. 
+bosss-pet44.jpg]I moved them to my nose and smelt the wet panties. As fantasized, her scent was exotic and it enhanced even more my desire to match the scent with the taste. 
 
- My hands trembling again, this time with excitement, I reached over and finished taking her panties off. 
+"You are such an obedient little pet," she purred. 
 
- "Smell them," she ordered. 
+"Can I taste you, Mistress?" I asked, no longer able to wait to taste her. 
 
- 
+"Beg," she ordered, moving her finger between her already very wet glistening cunt lips. 
 
- bosss-pet44.jpg]I moved them to my nose and smelt the wet panties. As fantasized, her scent was exotic and it enhanced even more my desire to match the scent with the taste. 
+I had never had to beg before. Men just shoved their cock in my mouth or pussy. I looked up at her and pleaded, "Mistress, may I please lick your beautiful cunt and become your cunt craving, pussy pleasing, slut submissive, pet?" 
 
- "You are such an obedient little pet," she purred. 
+"Mmmmmmmmm," she moaned, opening her legs wide. "Did you imagine you would ever say those words, my pet?" 
 
- "Can I taste you, Mistress?" I asked, no longer able to wait to taste her. 
+"Not in a million years," I replied, staring at her cunt, my mouth watering so much I was practically drooling with anticipation at what was about to happen. 
 
- "Beg," she ordered, moving her finger between her already very wet glistening cunt lips. 
+"Again, once you lick my cunt, I own you," she reminded me, parting her pussy lips with her finger. 
 
- I had never had to beg before. Men just shoved their cock in my mouth or pussy. I looked up at her and pleaded, "Mistress, may I please lick your beautiful cunt and become your cunt craving, pussy pleasing, slut submissive, pet?" 
+"I'm your slave, Mistress," I replied, still staring between her legs. 
 
- "Mmmmmmmmm," she moaned, opening her legs wide. "Did you imagine you would ever say those words, my pet?" 
+"Call me Mistress Katherine," she ordered. 
 
- "Not in a million years," I replied, staring at her cunt, my mouth watering so much I was practically drooling with anticipation at what was about to happen. 
+"Of course, Mistress Katherine," I obeyed, adding her first name to the dominant title somehow making this moment of submission more intimate. 
 
- "Again, once you lick my cunt, I own you," she reminded me, parting her pussy lips with her finger. 
+She moved her finger away from her pussy and towards my lips. 
 
- "I'm your slave, Mistress," I replied, still staring between her legs. 
+I immediately leaned forward and took her finger in my mouth. It was barely a sampling, but I instantly wanted to taste more. I wanted to envelope myself with her legs, smell and taste, I wanted to be on my knees, between her legs and serving her. I wanted to hear her moan, whimper and then scream with joy. 
 
- "Call me Mistress Katherine," she ordered. 
+I bobbed on her finger like it was a cock, retrieving ever last remnant from her finger, desperate to show her my insatiable hunger to taste her. 
 
- "Of course, Mistress Katherine," I obeyed, adding her first name to the dominant title somehow making this moment of submission more intimate. 
+"Go ahead, my slut, retrieve your reward for being a good pet." 
 
- She moved her finger away from her pussy and towards my lips. 
+I didn't hesitate, the words finally said, and knowing I couldn't wake up this time and be disappointed. I leaned forward, extended my tongue and gave my mind, body and soul to my Mistress. 
 
- I immediately leaned forward and took her finger in my mouth. It was barely a sampling, but I instantly wanted to taste more. I wanted to envelope myself with her legs, smell and taste, I wanted to be on my knees, between her legs and serving her. I wanted to hear her moan, whimper and then scream with joy. 
+Her scent was very strong and exotic, and her taste was equally exotic and unexplainable. 
 
- I bobbed on her finger like it was a cock, retrieving ever last remnant from her finger, desperate to show her my insatiable hunger to taste her. 
+Being between her legs felt so natural, like I was born to be there. 
 
- "Go ahead, my slut, retrieve your reward for being a good pet." 
+Unlike sucking cock, which was a task and a means to an end, licking cunt was enjoyable, exotic (I know I keep using that word, but no other word does justice to the smell, taste and feelings I was having), and intoxicating. 
 
- I didn't hesitate, the words finally said, and knowing I couldn't wake up this time and be disappointed. I leaned forward, extended my tongue and gave my mind, body and soul to my Mistress. 
+I licked slowly, parting her pussy lips and trying to get more of her wetness in my mouth. 
 
- Her scent was very strong and exotic, and her taste was equally exotic and unexplainable. 
+She moaned, "That's it, explore every inch of your Mistress's cunt." 
 
- Being between her legs felt so natural, like I was born to be there. 
+"Yes, Mistress Katherine," I responded, as I continued slowly licking. 
 
- Unlike sucking cock, which was a task and a means to an end, licking cunt was enjoyable, exotic (I know I keep using that word, but no other word does justice to the smell, taste and feelings I was having), and intoxicating. 
+"My cunt has been wet all day waiting for this moment, my slut," she continued. 
 
- I licked slowly, parting her pussy lips and trying to get more of her wetness in my mouth. 
+"Mine too," I moaned, my panties completely soaked. 
 
- She moaned, "That's it, explore every inch of your Mistress's cunt." 
+"I can't wait for all the naughty adventures we are going to have, my pet. I have searched for a long time, for the right girl." 
 
- "Yes, Mistress Katherine," I responded, as I continued slowly licking. 
+I was flattered and yet curious, why me? Yet, instead of asking, I concentrated on pleasing her. 
 
- "My cunt has been wet all day waiting for this moment, my slut," she continued. 
+"But I knew you were the one the moment you walked in here last week," she continued, her hands going through my hair. "You were my Pygmalion." 
 
- "Mine too," I moaned, my panties completely soaked. 
+I smiled, as I continued licking. Audrey Hepburn was my idol and My Fair Lady my favourite musical, although I really loved Grease as well. 
 
- "I can't wait for all the naughty adventures we are going to have, my pet. I have searched for a long time, for the right girl." 
+"Lick my asshole, my pet," she ordered. 
 
- I was flattered and yet curious, why me? Yet, instead of asking, I concentrated on pleasing her. 
+My mind in a submissive trance, I moved lower and awkwardly licked her rosebud. 
 
- "But I knew you were the one the moment you walked in here last week," she continued, her hands going through my hair. "You were my Pygmalion." 
+"That's it, my pet, make love to every inch of my downtown area," she purred. 
 
- I smiled, as I continued licking. Audrey Hepburn was my idol and My Fair Lady my favourite musical, although I really loved Grease as well. 
+I had never licked an asshole, but as I licked hers, slightly sweaty, I wanted to be the best ass licker there was. 
 
- "Lick my asshole, my pet," she ordered. 
+Yet, after only a few seconds, she pulled me back up to her pussy. "Now focus on my clit, my young pussy pleaser." 
 
- My mind in a submissive trance, I moved lower and awkwardly licked her rosebud. 
+I obeyed, moving to her clit and swirling my tongue around it. 
 
- "That's it, my pet, make love to every inch of my downtown area," she purred. 
+"Oh, yesss, that's it, my pet," she moaned, "worship my cunt." 
 
- I had never licked an asshole, but as I licked hers, slightly sweaty, I wanted to be the best ass licker there was. 
+I wanted to worship every part of her; I wanted to get her off; I wanted to taste her cum; I wanted to feel her pussy juice coat my face. 
 
- Yet, after only a few seconds, she pulled me back up to her pussy. "Now focus on my clit, my young pussy pleaser." 
+I licked hungrily now, her moans increasing. 
 
- I obeyed, moving to her clit and swirling my tongue around it. 
+"Don't stop, you hungry fucking slut," she ordered, when I took a brief pause. 
 
- "Oh, yesss, that's it, my pet," she moaned, "worship my cunt." 
+"Sorry, Mistre...." I was cut off as she grabbed my head and held it deep in her cunt. 
 
- I wanted to worship every part of her; I wanted to get her off; I wanted to taste her cum; I wanted to feel her pussy juice coat my face. 
+I eagerly licked, as she held my head. She began moving her ass, grinding on my face which turned me on more. She was using me for her personal pleasure, My face got wetter and wetter and after a couple of minutes of being face fucked by her cunt, I felt her legs stiffen beside me and suddenly felt my face get splattered with wetness. Unlike the loads of cum I took on my face, this was wetter and not as warm, but tasted way better. I lapped it up, wanting to consume her pussy juice, wanting to savour her cum. 
 
- I licked hungrily now, her moans increasing. 
+Eventually, she let go of my head, and I looked up at her with the insatiable lust that had consumed me. 
 
- "Don't stop, you hungry fucking slut," she ordered, when I took a brief pause. 
+"You look very good between my legs," she complimented. 
 
- "Sorry, Mistre...." I was cut off as she grabbed my head and held it deep in her cunt. 
+bosss-pet45.jpg] 
 
- I eagerly licked, as she held my head. She began moving her ass, grinding on my face which turned me on more. She was using me for her personal pleasure, My face got wetter and wetter and after a couple of minutes of being face fucked by her cunt, I felt her legs stiffen beside me and suddenly felt my face get splattered with wetness. Unlike the loads of cum I took on my face, this was wetter and not as warm, but tasted way better. I lapped it up, wanting to consume her pussy juice, wanting to savour her cum. 
+"I love being between your legs," I replied back. 
 
- Eventually, she let go of my head, and I looked up at her with the insatiable lust that had consumed me. 
+"And you look absolutely hot with my pussy cum on your lips," she continued. 
 
- "You look very good between my legs," she complimented. 
+I instinctively licked my lips, wanting to retrieve any pussy juice still on them. 
 
- 
+"It's hard to believe you have never munched cunt," she said, "you are not only amazing at it, but you clearly loved it." 
 
- bosss-pet45.jpg] 
+"I guess I'm a late bloomer," I smiled. 
 
- "I love being between your legs," I replied back. 
+"Better late than never," she laughed back. 
 
- "And you look absolutely hot with my pussy cum on your lips," she continued. 
+I hope to make up for lost time," I quipped back. 
 
- I instinctively licked my lips, wanting to retrieve any pussy juice still on them. 
+"Mmmmmmm," she nodded. "Is my pet's cunt wet?" 
 
- "It's hard to believe you have never munched cunt," she said, "you are not only amazing at it, but you clearly loved it." 
+"It's soaked my panties, Mistress Katherine," I admitted. 
 
- "I guess I'm a late bloomer," I smiled. 
+"Now, so you know, I don't eat cunt," she said. "But I do fuck cunt." 
 
- "Better late than never," she laughed back. 
+"You're the boss," I nodded, not remotely concerned about how I got off. 
 
- I hope to make up for lost time," I quipped back. 
+"Go lay down on the floor, my eager little lez," she ordered. 
 
- "Mmmmmmm," she nodded. "Is my pet's cunt wet?" 
+bosss-pet46.jpg] 
 
- "It's soaked my panties, Mistress Katherine," I admitted. 
+"Yes, Mistress Katherine," I obeyed, curious what she had in store for me next. Once on the ground, I tried to look as sexy as possible. 
 
- "Now, so you know, I don't eat cunt," she said. "But I do fuck cunt." 
+"Touch yourself, like you did while fantasizing about submitting to me, my little slut," she ordered. 
 
- "You're the boss," I nodded, not remotely concerned about how I got off. 
+I moved my left hand down to my wet panties, slid my hand inside them and began rubbing my fevered cunt lips. 
 
- "Go lay down on the floor, my eager little lez," she ordered. 
+"Did you fuck yourself every night this week, my slut?" she asked. 
 
- 
+"Yessssss," I moaned, my orgasm beginning to rise instantly. 
 
- bosss-pet46.jpg] 
+"Did I give you permission to come?" she asked, her playful tone suddenly firm. 
 
- "Yes, Mistress Katherine," I obeyed, curious what she had in store for me next. Once on the ground, I tried to look as sexy as possible. 
+"No, Mistress Katherine," I admitted, but tried to defend myself, "but you weren't my Mistress yet when I masturbated." 
 
- "Touch yourself, like you did while fantasizing about submitting to me, my little slut," she ordered. 
+"But you wanted me to be?" she questioned. 
 
- I moved my left hand down to my wet panties, slid my hand inside them and began rubbing my fevered cunt lips. 
+"Yes," I again admitted, before clarifying, "although the first couple days it was more confusion of my feelings than the reality that I wanted to be your submissive." 
 
- "Did you fuck yourself every night this week, my slut?" she asked. 
+"Fair enough," she nodded, looking down at me. "But from now on, you only come when I give you permission, is that clear? 
 
- "Yessssss," I moaned, my orgasm beginning to rise instantly. 
+"My pussy, no, my cunt is yours, Mistress Katherine," I declared, yet again giving myself to her completely, even as my own orgasm was building. 
 
- "Did I give you permission to come?" she asked, her playful tone suddenly firm. 
+"Stop!" she ordered. 
 
- "No, Mistress Katherine," I admitted, but tried to defend myself, "but you weren't my Mistress yet when I masturbated." 
+I obeyed. 
 
- "But you wanted me to be?" she questioned. 
+Move your hands away from that fuck box of yours," she instructed. 
 
- "Yes," I again admitted, before clarifying, "although the first couple days it was more confusion of my feelings than the reality that I wanted to be your submissive." 
+I again obeyed. 
 
- "Fair enough," she nodded, looking down at me. "But from now on, you only come when I give you permission, is that clear? 
+"Don't move," she demanded, before going to her desk. She returned a moment later with a camera. 
 
- "My pussy, no, my cunt is yours, Mistress Katherine," I declared, yet again giving myself to her completely, even as my own orgasm was building. 
+"Ready to make some photographic memories to remember forever the day you went from straight to gay and became my full-time pet?" 
 
- "Stop!" she ordered. 
+I should've been scared or worried by a camera, but having given myself to her unconditionally, I had complete trust in her. 
 
- I obeyed. 
+So I replied, like the complete submissive I had become in just one week, "I wish you would have taken some of me when I was between your legs, Mistress Katherine." 
 
- Move your hands away from that fuck box of yours," she instructed. 
+"The video cameras there, there and there, likely got it," she answered, pointing to cameras in three different corners of the office. 
 
- I again obeyed. 
+"Good," I smiled, happy my final submission was recorded for posterity. 
 
- "Don't move," she demanded, before going to her desk. She returned a moment later with a camera. 
+"Pose for me," she instructed. 
 
- "Ready to make some photographic memories to remember forever the day you went from straight to gay and became my full-time pet?" 
+bosss-pet47.jpg] 
 
- I should've been scared or worried by a camera, but having given myself to her unconditionally, I had complete trust in her. 
+I did, as she took a few pictures. 
 
- So I replied, like the complete submissive I had become in just one week, "I wish you would have taken some of me when I was between your legs, Mistress Katherine." 
+Each picture somehow turned me on more and more. Some I smiled, some I moaned and some I looked vulnerable. 
 
- "The video cameras there, there and there, likely got it," she answered, pointing to cameras in three different corners of the office. 
+"That's it," she purred, "touch yourself for me." 
 
- "Good," I smiled, happy my final submission was recorded for posterity. 
+I needed no more further instructions, as I moved my hands under my panties and to my fevered cunt. 
 
- "Pose for me," she instructed. 
+"Go slow, my pet. This isn't a race," she instructed. 
 
- 
+I obeyed, even though I just wanted to come and come now. 
 
- bosss-pet47.jpg] 
+"All good things come to those who wait," she continued. 
 
- I did, as she took a few pictures. 
+"Then this may kill me," I joked. 
 
- Each picture somehow turned me on more and more. Some I smiled, some I moaned and some I looked vulnerable. 
+"What doesn't kill you makes you stronger," she joked back, as she moved her stocking-clad foot to my crotch. "Do you need some help?" 
 
- "That's it," she purred, "touch yourself for me." 
+"Yes," I moaned as her foot put pressure on my clit. 
 
- I needed no more further instructions, as I moved my hands under my panties and to my fevered cunt. 
+"Take your panties off," she instructed. 
 
- "Go slow, my pet. This isn't a race," she instructed. 
+I didn't hesitate as I tugged them down my legs and tossed them aside. 
 
- I obeyed, even though I just wanted to come and come now. 
+"A shaved box, now that is a pleasant surprise," she approved, looking at my recently shaved cunt. 
 
- "All good things come to those who wait," she continued. 
+"I did it for you," I replied. 
 
- "Then this may kill me," I joked. 
+"I know you did," she nodded, as her foot went back to my pussy. She slowly moved her toes between my lips, which was both erotically stimulating and yet equally teasing. 
 
- "What doesn't kill you makes you stronger," she joked back, as she moved her stocking-clad foot to my crotch. "Do you need some help?" 
+I moaned softly at her touch, watching her intensely. 
 
- "Yes," I moaned as her foot put pressure on my clit. 
+"How bad do you want to come, my pet?" she asked. 
 
- "Take your panties off," she instructed. 
+"Soooooo bad," I moaned. 
 
- I didn't hesitate as I tugged them down my legs and tossed them aside. 
+She parted my pussy lips with her toes and said, "You're like a dog in heat, my pet." 
 
- "A shaved box, now that is a pleasant surprise," she approved, looking at my recently shaved cunt. 
+I don't know why I did it, but the sound came out before I had a chance to think about it, "Woof!" 
 
- "I did it for you," I replied. 
+"Hilarious," she smiled down at me, before asking, "It's obvious you're submissive, my pet, so tell me about a couple of your naughty sexual encounters." 
 
- "I know you did," she nodded, as her foot went back to my pussy. She slowly moved her toes between my lips, which was both erotically stimulating and yet equally teasing. 
+I pondered this a moment before warning, "Most of these include alcohol. I get a few drinks in me and, well, my morals drop quickly." 
 
- I moaned softly at her touch, watching her intensely. 
+"Good to know," she smiled, continuing to slowly tease my pussy. 
 
- "How bad do you want to come, my pet?" she asked. 
+"Well, last Halloween the guy I was dating dressed up as a teacher and I as a student and after a few drinks I ended up tied to his bed where he fucked me for hours, coming half a dozen times." 
 
- "Soooooo bad," I moaned. 
+"In you?" she asked. 
 
- She parted my pussy lips with her toes and said, "You're like a dog in heat, my pet." 
+"In my cunt, on my tits and mostly on my face," I admitted, "Men love coming on my face." 
 
- I don't know why I did it, but the sound came out before I had a chance to think about it, "Woof!" 
+"It's because you are so cute," she declared. 
 
- "Hilarious," she smiled down at me, before asking, "It's obvious you're submissive, my pet, so tell me about a couple of your naughty sexual encounters." 
+"And men are pigs." I added, her toes driving me wild with teasing. 
 
- I pondered this a moment before warning, "Most of these include alcohol. I get a few drinks in me and, well, my morals drop quickly." 
+"Well, yes and that," she laughed. "My husband loves coming on my tits." 
 
- "Good to know," she smiled, continuing to slowly tease my pussy. 
+"Who wouldn't, they're so big," I agreed, looking up at them and wishing she would take her blouse off. 
 
- "Well, last Halloween the guy I was dating dressed up as a teacher and I as a student and after a few drinks I ended up tied to his bed where he fucked me for hours, coming half a dozen times." 
+"Any other slutty encounters?" she asked. 
 
- "In you?" she asked. 
+"Well, I get turned on by public sex," I admitted. 
 
- "In my cunt, on my tits and mostly on my face," I admitted, "Men love coming on my face." 
+"Details," she demanded. 
 
- "It's because you are so cute," she declared. 
+"I've done it in a park in broad daylight, at a party with another couple sleeping right beside us, in an office with the door not completely shut and on a hiking trail," I admitted. 
 
- "And men are pigs." I added, her toes driving me wild with teasing. 
+"You like the thrill of getting caught, don't you?" she asked, putting her foot directly on my clit. 
 
- "Well, yes and that," she laughed. "My husband loves coming on my tits." 
+"It both turns me on and scares the crap out of me," I admitted. 
 
- "Who wouldn't, they're so big," I agreed, looking up at them and wishing she would take her blouse off. 
+"So you want to be both taken seriously as a professional and a woman, yet conversely be used and fucked as a dirty little slut," she questioned. 
 
- "Any other slutty encounters?" she asked. 
+"Yes," I nodded, "I hate myself for it once I come and settle down, but when I'm revved up like this, or have a few drinks in me, I am desperate to be someone's slut." 
 
- "Well, I get turned on by public sex," I admitted. 
+"Well, you're my slut now," she declared, moving her foot away. 
 
- "Details," she demanded. 
+"Forever," I responded, even though such a one word promise was ludicrous. 
 
- "I've done it in a park in broad daylight, at a party with another couple sleeping right beside us, in an office with the door not completely shut and on a hiking trail," I admitted. 
+"Take off your bra," she ordered. "It's time to see those titties." 
 
- "You like the thrill of getting caught, don't you?" she asked, putting her foot directly on my clit. 
+""They're pretty small," I admitted. 
 
- "It both turns me on and scares the crap out of me," I admitted. 
+"Sometimes size doesn't matter," she smiled. 
 
- "So you want to be both taken seriously as a professional and a woman, yet conversely be used and fucked as a dirty little slut," she questioned. 
+"May I sit up, Mistress?" I asked. 
 
- "Yes," I nodded, "I hate myself for it once I come and settle down, but when I'm revved up like this, or have a few drinks in me, I am desperate to be someone's slut." 
+"Briefly," she nodded. 
 
- "Well, you're my slut now," she declared, moving her foot away. 
+I sat up and took off my bra, immediately self-conscious about my small breasts. 
 
- "Forever," I responded, even though such a one word promise was ludicrous. 
+bosss-pet48.jpg] 
 
- "Take off your bra," she ordered. "It's time to see those titties." 
+"You weren't lying," she smiled, "your nipples are definitely hard as diamonds." 
 
- ""They're pretty small," I admitted. 
+"What can I say," I shrugged, "you make my whole body a dishevelled mess." 
 
- "Sometimes size doesn't matter," she smiled. 
+She reached down and pinched my nipples. 
 
- "May I sit up, Mistress?" I asked. 
+"Ohhhhhhhhh," I moaned, a mixture of pleasure and pain instantly triggered a gush that began to run down my legs. 
 
- "Briefly," she nodded. 
+As she cupped my breasts, she continued the compliment, "Your tits are perfect, my pet. Not too big, not too small." 
 
- I sat up and took off my bra, immediately self-conscious about my small breasts. 
+"But just right," I finished with a smile, as if we were reading Goldilocks and the three bears. 
 
- 
+"And I plan to test that theory in every way," she warned, giving my nipples one last pinch. 
 
- bosss-pet48.jpg] 
+I wondered what that may all include, but just nodded, "Of course, Mistress, I'm, looking forward to acing this test." 
 
- "You weren't lying," she smiled, "your nipples are definitely hard as diamonds." 
+"Lay back down," she ordered. 
 
- "What can I say," I shrugged, "you make my whole body a dishevelled mess." 
-
- She reached down and pinched my nipples. 
-
- "Ohhhhhhhhh," I moaned, a mixture of pleasure and pain instantly triggered a gush that began to run down my legs. 
-
- As she cupped my breasts, she continued the compliment, "Your tits are perfect, my pet. Not too big, not too small." 
-
- "But just right," I finished with a smile, as if we were reading Goldilocks and the three bears. 
-
- "And I plan to test that theory in every way," she warned, giving my nipples one last pinch. 
-
- I wondered what that may all include, but just nodded, "Of course, Mistress, I'm, looking forward to acing this test." 
-
- "Lay back down," she ordered. 
-
- I again obeyed, eager to find out what she planned to do to me next.  
-
- 
-
- 
+I again obeyed, eager to find out what she planned to do to me next.  
 
 ===
 
 "Rub yourself, my little slut, but don't you dare come," she ordered. 
 
- "Yes, Mistress. Thank you, Mistress," I said, as I immediately moved to my fevered pussy, no, cunt, and started rubbing. 
+"Yes, Mistress. Thank you, Mistress," I said, as I immediately moved to my fevered pussy, no, cunt, and started rubbing. 
 
- 
+bosss-pet49.jpg] 
 
- bosss-pet49.jpg] 
+I looked up and watched as she took off her blouse, revealing a sexy black lace bra. She cupped her breasts and said, "You see these are big, but a pain in the ass to carry around all day." 
 
- I looked up and watched as she took off her blouse, revealing a sexy black lace bra. She cupped her breasts and said, "You see these are big, but a pain in the ass to carry around all day." 
+"I guess soooo," I moaned, immediately feeling my orgasm beckoning. 
 
- "I guess soooo," I moaned, immediately feeling my orgasm beckoning. 
+She then took off her skirt and allowed it to drop to the floor again revealing her perfect pussy. 
 
- She then took off her skirt and allowed it to drop to the floor again revealing her perfect pussy. 
+My mouth instantly watered, wanting to taste her again, get her off again. 
 
- My mouth instantly watered, wanting to taste her again, get her off again. 
+"I think you're drooling," she accused, looking down at me. 
 
- "I think you're drooling," she accused, looking down at me. 
+"I'm like Pavlov's dog for your cunt," I playfully replied, bringing the earlier dog metaphor full circle. 
 
- "I'm like Pavlov's dog for your cunt," I playfully replied, bringing the earlier dog metaphor full circle. 
+"You're fucking adorable," she laughed. 
 
- "You're fucking adorable," she laughed. 
+"Thank yoooou," I moaned, continuing to rub myself. 
 
- "Thank yoooou," I moaned, continuing to rub myself. 
+"That's it, my slut," she purred, "get that cunt nice and wet for me." 
 
- "That's it, my slut," she purred, "get that cunt nice and wet for me." 
+"Already theeeeere," I moaned, my cunt never feeling wetter, more ready, than it did at this exact moment. 
 
- "Already theeeeere," I moaned, my cunt never feeling wetter, more ready, than it did at this exact moment. 
+"No, no, no," she clarified, "I want your cunt the wettest it's ever been." 
 
- "No, no, no," she clarified, "I want your cunt the wettest it's ever been." 
+"Toooooooo late," I moaned, knowing I could reach orgasm in an instant if given permission. 
 
- "Toooooooo late," I moaned, knowing I could reach orgasm in an instant if given permission. 
+She laughed, "No, I mean every time you think you've reached your wettest, you push for wetter." 
 
- She laughed, "No, I mean every time you think you've reached your wettest, you push for wetter." 
+"Okay," I nodded, unsure I could do that and still keep myself from having an orgasm. 
 
- "Okay," I nodded, unsure I could do that and still keep myself from having an orgasm. 
+bosss-pet50.jpg] 
 
- 
+I had to slow down to not explode, like a cannon that had already had its fuse lit. 
 
- bosss-pet50.jpg] 
+She walked over to the chair I had been sitting on, turned it around, sat down and said, "Stop." 
 
- I had to slow down to not explode, like a cannon that had already had its fuse lit. 
+I did, although my body was going crazy with the starting and stopping. 
 
- She walked over to the chair I had been sitting on, turned it around, sat down and said, "Stop." 
+"Now crawl to me," she ordered. 
 
- I did, although my body was going crazy with the starting and stopping. 
+Reluctantly, ignoring the reality that my orgasm was begging for release, I said, "Yes, Mistress Katherine." 
 
- "Now crawl to me," she ordered. 
+Reaching her, she crossed her legs and ordered, "Hump my leg, like the horny bitch you are." 
 
- Reluctantly, ignoring the reality that my orgasm was begging for release, I said, "Yes, Mistress Katherine." 
+"Okayyyy," I agreed, tentatively, unsure how to properly do the task ordered. 
 
- Reaching her, she crossed her legs and ordered, "Hump my leg, like the horny bitch you are." 
+"Straddle my foot, my slut," she instructed. 
 
- "Okayyyy," I agreed, tentatively, unsure how to properly do the task ordered. 
+"Oh, okay," I nodded happy to have instructions. I straddled her leg, moved awkwardly down, grabbed her foot and lowered my wet pussy on it. 
 
- "Straddle my foot, my slut," she instructed. 
+"Now hump my foot, you eager little slut," she demanded. 
 
- "Oh, okay," I nodded happy to have instructions. I straddled her leg, moved awkwardly down, grabbed her foot and lowered my wet pussy on it. 
+Although never overly comfortable, the act of submission, the humiliating kinkiness of it, kept me wet and excited. 
 
- "Now hump my foot, you eager little slut," she demanded. 
+"Good girl," she purred, putting her hands on my shoulders. 
 
- Although never overly comfortable, the act of submission, the humiliating kinkiness of it, kept me wet and excited. 
+I wondered as I rubbed myself on her foot, two things: could I get off this way, and could I fit her toes inside my cunt? 
 
- "Good girl," she purred, putting her hands on my shoulders. 
+"Remember slut, no coming, I've got something very special for your orgasm. Just get that hot box of yours ready," she ordered, foreshadowing even more kinkiness. 
 
- I wondered as I rubbed myself on her foot, two things: could I get off this way, and could I fit her toes inside my cunt? 
+"Okaaaaaay," I moaned, my long held-back orgasm finally, hopefully, in the near future. 
 
- "Remember slut, no coming, I've got something very special for your orgasm. Just get that hot box of yours ready," she ordered, foreshadowing even more kinkiness. 
+"Faster, my pet, I really want you to hump my foot," she ordered. 
 
- "Okaaaaaay," I moaned, my long held-back orgasm finally, hopefully, in the near future. 
+"Yes, Mistresssssss," I moaned, obeying the task, although still finding the position awkward. 
 
- "Faster, my pet, I really want you to hump my foot," she ordered. 
+After another minute or so, my knees beginning to get sore in this position, she ordered, "back on your back, my pet." 
 
- "Yes, Mistresssssss," I moaned, obeying the task, although still finding the position awkward. 
+bosss-pet51.jpg]Happy to change positions, I quickly obeyed, hoping she was finally going to allow me to reach the volcanic eruption that had been bubbling inside me forever. 
 
- After another minute or so, my knees beginning to get sore in this position, she ordered, "back on your back, my pet." 
+"Now, I like your heels, my pet, they are very cute," she complimented, reaching down and grabbing one of my high heels. 
 
- 
+"Thank you, Mistress," I nodded. 
 
- bosss-pet51.jpg]Happy to change positions, I quickly obeyed, hoping she was finally going to allow me to reach the volcanic eruption that had been bubbling inside me forever. 
+"Of course, I expect you to be in five inch heels eventually," she continued. 
 
- "Now, I like your heels, my pet, they are very cute," she complimented, reaching down and grabbing one of my high heels. 
+"I'm trying, Mistress," I replied, "I've been practicing every night." 
 
- "Thank you, Mistress," I nodded. 
+"And you will continue to do so," she nodded, kneeling down between my legs. 
 
- "Of course, I expect you to be in five inch heels eventually," she continued. 
+"Until I have it mastered, Mistress Katherine," I nodded, watching her with hunger. 
 
- "I'm trying, Mistress," I replied, "I've been practicing every night." 
+"Good girl," she smiled, moving my heel between my pussy lips. 
 
- "And you will continue to do so," she nodded, kneeling down between my legs. 
+"Ahhhhhh," I whimpered, as soon as the heel made contact. 
 
- "Until I have it mastered, Mistress Katherine," I nodded, watching her with hunger. 
+"Ready to come, my pet?" she asked, "I've been teasing you for a long, long time." 
 
- "Good girl," she smiled, moving my heel between my pussy lips. 
+"Whenever you are willing, Mistress," I moaned. 
 
- "Ahhhhhh," I whimpered, as soon as the heel made contact. 
+"Fuck yourself with your heel," she ordered. 
 
- "Ready to come, my pet?" she asked, "I've been teasing you for a long, long time." 
+Such an act was again extreme, yet I didn't hesitate, taking the shoe from her and moving the heel to my cunt. I slid the heel into my cunt and began fucking myself. As soon as I began pumping my cunt with the heel, I wished I had, in fact, worn the five inch heels so I could fill myself deeper. 
 
- "Whenever you are willing, Mistress," I moaned. 
+"Such an obedient slut," she purred. 
 
- "Fuck yourself with your heel," she ordered. 
+"Your slutttt," I declared again. 
 
- Such an act was again extreme, yet I didn't hesitate, taking the shoe from her and moving the heel to my cunt. I slid the heel into my cunt and began fucking myself. As soon as I began pumping my cunt with the heel, I wished I had, in fact, worn the five inch heels so I could fill myself deeper. 
+"I know," she nodded, moving to her desk. 
 
- "Such an obedient slut," she purred. 
+I quickly got frustrated, as the heel wasn't long enough or thick enough to get me off, instead just continuing the lengthy teasing that was now driving me crazy. 
 
- "Your slutttt," I declared again. 
+I glanced over and saw she was now putting a strap-on cock on her beautiful waist. 
 
- "I know," she nodded, moving to her desk. 
+I continued fucking myself praying that strap-on was soon going to be filling my cunt. I knew I wasn't going to make it much longer, the teasing finally pushing me too far. 
 
- I quickly got frustrated, as the heel wasn't long enough or thick enough to get me off, instead just continuing the lengthy teasing that was now driving me crazy. 
+"Stop," she again ordered. 
 
- I glanced over and saw she was now putting a strap-on cock on her beautiful waist. 
+I again obeyed. 
 
- I continued fucking myself praying that strap-on was soon going to be filling my cunt. I knew I wasn't going to make it much longer, the teasing finally pushing me too far. 
+"Stand up and bend over the desk, my pet. Time to give you the fucking you deserve," she said, standing in thigh highs and a strap-on. 
 
- "Stop," she again ordered. 
+"Yes, Mistress Katherine," I eagerly responded, squealing like a school girl. 
 
- I again obeyed. 
+bosss-pet52.jpg] 
 
- "Stand up and bend over the desk, my pet. Time to give you the fucking you deserve," she said, standing in thigh highs and a strap-on. 
+In seconds, I was bent over the desk, waiting for the fucking that was just promised. 
 
- "Yes, Mistress Katherine," I eagerly responded, squealing like a school girl. 
+I felt her hands on my hips, and without a word, she slid the plastic cock inside me. 
 
- 
+"Thank youuuuuuuuuu, Mistress," I moaned loudly, as my cunt was finally filled. 
 
- bosss-pet52.jpg] 
+"Pretty soon you may come as much as you want, my pet, but not until I say," she said, as she began pounding me. 
 
- In seconds, I was bent over the desk, waiting for the fucking that was just promised. 
+"God, yesssssss," I moaned, "so fucking good." 
 
- I felt her hands on my hips, and without a word, she slid the plastic cock inside me. 
+"I reward my pets very well," she continued. 
 
- "Thank youuuuuuuuuu, Mistress," I moaned loudly, as my cunt was finally filled. 
+"Yes, you dooooooo," I agreed, my orgasm rising at an accelerated rate. 
 
- "Pretty soon you may come as much as you want, my pet, but not until I say," she said, as she began pounding me. 
+"Beg to come, my pet," she ordered. 
 
- "God, yesssssss," I moaned, "so fucking good." 
+"Oh God, Mistress, please, please, let your sluuut, c-c-c-come," I begged, struggling to speak as the pleasure took over my body. 
 
- "I reward my pets very well," she continued. 
+"Don't come yet," she ordered. 
 
- "Yes, you dooooooo," I agreed, my orgasm rising at an accelerated rate. 
+"Okayyyyy," I moaned, knowing I wasn't going to be able to hold it back much longer. 
 
- "Beg to come, my pet," she ordered. 
+"What are you?" she asked, slamming into me so hard the desk moved. 
 
- "Oh God, Mistress, please, please, let your sluuut, c-c-c-come," I begged, struggling to speak as the pleasure took over my body. 
+"Your sluuuuuut," I screamed. 
 
- "Don't come yet," she ordered. 
+"My slave," she continued. 
 
- "Okayyyyy," I moaned, knowing I wasn't going to be able to hold it back much longer. 
+"Yessssss, your s-s-slave, p-p-pussy pleaser, whorrrrrrre," I declared, my orgasm coming in seconds either way. 
 
- "What are you?" she asked, slamming into me so hard the desk moved. 
+My breathing quickly erratic, she slapped my ass, "Come, my dirty little slut, come now." 
 
- "Your sluuuuuut," I screamed. 
+The orgasm erupted as soon as permission was given and I screamed, "Fuuuuuuuuuck, I lovvvvvve youuuuuuuuuuuu." 
 
- "My slave," she continued. 
+She kept pounding me, "Don't stop coming, my pet." 
 
- "Yessssss, your s-s-slave, p-p-pussy pleaser, whorrrrrrre," I declared, my orgasm coming in seconds either way. 
+"Okkkkkkkkkay," I agreed, as if I had any choice. The orgasm that was cascading through me was unlike anything I had ever experienced before. The pleasure was so intense I honestly wasn't sure if I was coming or peeing, my legs were getting so wet. It was like I had never really had an orgasm as the sensations were so much more intense than anything I had ever experienced before. 
 
- My breathing quickly erratic, she slapped my ass, "Come, my dirty little slut, come now." 
+Over the next couple of minutes, as the first orgasm continued to riddle me, I could feel a second following right after it, like waves coming onto the beach. 
 
- The orgasm erupted as soon as permission was given and I screamed, "Fuuuuuuuuuck, I lovvvvvve youuuuuuuuuuuu." 
+"Soooooo good," I moaned, as my body burned with pleasure. 
 
- She kept pounding me, "Don't stop coming, my pet." 
+"Do you want to come again, my little fuck toy?" she asked. 
 
- "Okkkkkkkkkay," I agreed, as if I had any choice. The orgasm that was cascading through me was unlike anything I had ever experienced before. The pleasure was so intense I honestly wasn't sure if I was coming or peeing, my legs were getting so wet. It was like I had never really had an orgasm as the sensations were so much more intense than anything I had ever experienced before. 
+"God yes, Mistresssssss," I moaned, unable to fathom how two orgasms could come back to back so quick. 
 
- Over the next couple of minutes, as the first orgasm continued to riddle me, I could feel a second following right after it, like waves coming onto the beach. 
+"Tell me what you want," she ordered. 
 
- "Soooooo good," I moaned, as my body burned with pleasure. 
+"To be you full-time slave," I declared, knowing I would do anything to have this pleasure again. 
 
- "Do you want to come again, my little fuck toy?" she asked. 
+"Come again, my slave," she ordered, spanking my ass. 
 
- "God yes, Mistresssssss," I moaned, unable to fathom how two orgasms could come back to back so quick. 
+"Oh yesssss," I whimpered, the slight burn on my ass turning me on. 
 
- "Tell me what you want," she ordered. 
+"Now, my pet," she demanded. 
 
- "To be you full-time slave," I declared, knowing I would do anything to have this pleasure again. 
+"Okayyyyyyy," I moaned, "Drill my cunt." 
 
- "Come again, my slave," she ordered, spanking my ass. 
+"Now, my slut, or I'll pull out and you don't get to come all week," she threatened. 
 
- "Oh yesssss," I whimpered, the slight burn on my ass turning me on. 
+bosss-pet53.jpg] 
 
- "Now, my pet," she demanded. 
+"Okay, yes, fuck, shit, harder, God, fuck, fuck, fuck," I babbled, as my orgasm rose and then hit me like a hammer. 
 
- "Okayyyyyyy," I moaned, "Drill my cunt." 
+"Good girl," she purred, as she kept the cock buried in me as my second orgasm coursed through me. 
 
- "Now, my slut, or I'll pull out and you don't get to come all week," she threatened. 
+"Thaaaaank you," I declared, as my body felt like a puddle of goo. 
 
- 
+"You're welcome, my pet," she replied, pulling out and instantly I felt my legs again get very wet from my own juices. 
 
- bosss-pet53.jpg] 
+She pointed the strap-on straighta me and ordered, "Come clean your juices, my slut." 
 
- "Okay, yes, fuck, shit, harder, God, fuck, fuck, fuck," I babbled, as my orgasm rose and then hit me like a hammer. 
+I struggled to stand up, my legs barely able to hold me up, and turned around, fell hard on my knees, and took the plastic cock in my mouth. 
 
- "Good girl," she purred, as she kept the cock buried in me as my second orgasm coursed through me. 
+To my surprise, I definitely tasted sweet myself. 
 
- "Thaaaaank you," I declared, as my body felt like a puddle of goo. 
+After a brief minute, she pulled the cock out of my mouth and said, "You definitely passed your first test." 
 
- "You're welcome, my pet," she replied, pulling out and instantly I felt my legs again get very wet from my own juices. 
+"I hope there will be many more," I responded, looking up at her with admiration. 
 
- She pointed the strap-on straighta me and ordered, "Come clean your juices, my slut." 
+"Oh, these tests will never end," she promised. 
 
- I struggled to stand up, my legs barely able to hold me up, and turned around, fell hard on my knees, and took the plastic cock in my mouth. 
+"Great," I smiled, my head already imaging the many different things she would make me do. 
 
- To my surprise, I definitely tasted sweet myself. 
+"You see how not allowing you to come brought you more intense orgasms," she said. 
 
- After a brief minute, she pulled the cock out of my mouth and said, "You definitely passed your first test." 
+"Yes, I can barely move," I answered. 
 
- "I hope there will be many more," I responded, looking up at her with admiration. 
+She laughed, as she grabbed her skirt, "Well, you better, I have a meeting in fifteen minutes in this office." 
 
- "Oh, these tests will never end," she promised. 
+"Oh," I nodded. I crawled to my clothing, my legs feeling too weak to walk, and awkwardly got dressed while on the floor. As I awkwardly got dressed, I said, "I don't know what you did to me, Mistress Katherine, but I think you broke my body." 
 
- "Great," I smiled, my head already imaging the many different things she would make me do. 
+She laughed out loud, "And this was just an appetizer, wait until we have a weekend retreat." 
 
- "You see how not allowing you to come brought you more intense orgasms," she said. 
+"I'm not sure my body will be able to handle it," I countered. 
 
- "Yes, I can barely move," I answered. 
+"Practice makes perfect," she quipped, seemingly always full of clichés. 
 
- She laughed, as she grabbed her skirt, "Well, you better, I have a meeting in fifteen minutes in this office." 
+bosss-pet54.jpg]"Well. I'm willing to practice night and day," I responded. 
 
- "Oh," I nodded. I crawled to my clothing, my legs feeling too weak to walk, and awkwardly got dressed while on the floor. As I awkwardly got dressed, I said, "I don't know what you did to me, Mistress Katherine, but I think you broke my body." 
+"I know you are, my pet," she nodded, sliding back into her heels. 
 
- She laughed out loud, "And this was just an appetizer, wait until we have a weekend retreat." 
+Weakly, I stood up, walked to the door, my heels in my hands, and said, "Thank you so much, Mistress Katherine, for seeing through my outer shell." 
 
- "I'm not sure my body will be able to handle it," I countered. 
+"You're welcome," she nodded, before adding, "You should probably put on your heels, we don't want the rest of the staff to know you're a submissive, pussy pleasing, pet, do we?" 
 
- "Practice makes perfect," she quipped, seemingly always full of clichés. 
+"No, likely not," I laughed, "At least not until the Christmas party." 
 
- 
+She laughed, "You and I are going to get along very, very well, my pet." 
 
- bosss-pet54.jpg]"Well. I'm willing to practice night and day," I responded. 
+"Woof!" I replied, knowing life as I knew it had officially come to an end and I wouldn't have it any other way. 
 
- "I know you are, my pet," she nodded, sliding back into her heels. 
+THE END ... 
 
- Weakly, I stood up, walked to the door, my heels in my hands, and said, "Thank you so much, Mistress Katherine, for seeing through my outer shell." 
+... 
 
- "You're welcome," she nodded, before adding, "You should probably put on your heels, we don't want the rest of the staff to know you're a submissive, pussy pleasing, pet, do we?" 
+... 
 
- "No, likely not," I laughed, "At least not until the Christmas party." 
+... 
 
- She laughed, "You and I are going to get along very, very well, my pet." 
+... 
 
- "Woof!" I replied, knowing life as I knew it had officially come to an end and I wouldn't have it any other way. 
+... 
 
- THE END ... 
+TO READ THE ALTERNATE ENDING CONTINUE READING.... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- TO READ THE ALTERNATE ENDING CONTINUE READING.... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+... 
 
- ... 
+This alternate ending begins with Lily on the chair in front of the desk and Mrs. Parks, Mistress Katherine, sitting on the desk in front of her. 
 
- ... 
+"And what are you willing to do to make this final submission a reality?" she questioned, smiling seductively at me. 
 
- ... 
+I looked up at her, believing every word I said, "Anything my Mistress wants." 
 
- ... 
+"'Anything' is a pretty wide range of possibilities," she pointed out. 
 
- ... 
+"My body is yours, Mistress," I declared, my mouth watering in anticipation of the long building that was finally about to arrive. After days of waking up just before submitting, my fantasy was about to become reality. 
 
- ... 
+"Good answer," she nodded, standing up. 
 
- This alternate ending begins with Lily on the chair in front of the desk and Mrs. Parks, Mistress Katherine, sitting on the desk in front of her. 
+bosss-pet55.jpg] 
 
- "And what are you willing to do to make this final submission a reality?" she questioned, smiling seductively at me. 
+Knowing the finale was so close I could taste it, I wondered indeed what she would taste like. 
 
- I looked up at her, believing every word I said, "Anything my Mistress wants." 
+She looked down at me and asked, "Last chance to back out, my pet." 
 
- "'Anything' is a pretty wide range of possibilities," she pointed out. 
+"Not in a million years," I replied, watching her hands go to the hem of her skirt. 
 
- "My body is yours, Mistress," I declared, my mouth watering in anticipation of the long building that was finally about to arrive. After days of waking up just before submitting, my fantasy was about to become reality. 
+"Another good answer, my pet," she purred, before adding, "Because I have another surprise for you." 
 
- "Good answer," she nodded, standing up. 
+I watched as she slowly slithered her skirt down her long lovely legs. I stared at her crotch until her pink panties were finally in view. 
 
- 
+And then.... 
 
- bosss-pet55.jpg] 
+I.... 
 
- Knowing the finale was so close I could taste it, I wondered indeed what she would taste like. 
+Gasped.... 
 
- She looked down at me and asked, "Last chance to back out, my pet." 
+There was a large bulge in her panties. 
 
- "Not in a million years," I replied, watching her hands go to the hem of her skirt. 
+Staring at what was obviously a very large cock, I was utterly speechless. 
 
- "Another good answer, my pet," she purred, before adding, "Because I have another surprise for you." 
+She asked, "Still willing to do anything?" 
 
- I watched as she slowly slithered her skirt down her long lovely legs. I stared at her crotch until her pink panties were finally in view. 
+My mind was spinning with the revelation that literally was right before my eyes. 
 
- And then.... 
+I wanted to say something, yet I was paralyzed by shock...indecision...confusion...lust. 
 
- I.... 
+"Go ahead, my pet," she ordered, her hands gently going through my hair. "Pull down my panties and release my cock which has been dying to meet those beautiful lips since the day I met you." 
 
- Gasped.... 
+Finally I spoke, stating the obvious, even though I didn't make a move to her very erect cock, "You have a cock." 
 
- There was a large bulge in her panties. 
+"Yes, my pet," she explained, "I have always had a cock. I'm a shemale, or a transsexual or a chick with a dick as those crude online porn sites say." 
 
- Staring at what was obviously a very large cock, I was utterly speechless. 
+I looked up into her eyes, went to speak, but again found myself speechless. 
 
- She asked, "Still willing to do anything?" 
+"The rest of me, my pet, is all woman," she continued. 
 
- My mind was spinning with the revelation that literally was right before my eyes. 
+Still speechless, I watched her unbutton her blouse and take it off, unclasp her bra and toss it aside, before she said, cupping her breasts, "These, my pet, are completely real." 
 
- I wanted to say something, yet I was paralyzed by shock...indecision...confusion...lust. 
+I stared at her firm large tits, which only enhanced my confusion. 
 
- "Go ahead, my pet," she ordered, her hands gently going through my hair. "Pull down my panties and release my cock which has been dying to meet those beautiful lips since the day I met you." 
+"Go ahead, my eager pet, cup them," she offered. 
 
- Finally I spoke, stating the obvious, even though I didn't make a move to her very erect cock, "You have a cock." 
+Tentatively, I reached up and cupped her large firm breasts. They felt real. 
 
- "Yes, my pet," she explained, "I have always had a cock. I'm a shemale, or a transsexual or a chick with a dick as those crude online porn sites say." 
+"Go ahead, suck on them," she ordered, 
 
- I looked up into her eyes, went to speak, but again found myself speechless. 
+I again wordlessly obeyed, leaning forward on the chair and taking her left nipple in my mouth. 
 
- "The rest of me, my pet, is all woman," she continued. 
+"Good pet," she moaned, "suck on your Mistress's nipple." 
 
- Still speechless, I watched her unbutton her blouse and take it off, unclasp her bra and toss it aside, before she said, cupping her breasts, "These, my pet, are completely real." 
+Briefly forgetting she had a cock, I lavishly pleasured her breasts. Sucking on both nipples, biting them playfully and splattering her entire tits with kisses. 
 
- I stared at her firm large tits, which only enhanced my confusion. 
+"That's it, my pet," she moaned. "Nothing has changed, the only difference is you will be sucking cock instead of eating pussy. And I imagine you have sucked a fair amount of cock." 
 
- "Go ahead, my eager pet, cup them," she offered. 
+When I didn't answer right away, she firmly demanded, "Answer me, my slut." 
 
- Tentatively, I reached up and cupped her large firm breasts. They felt real. 
+"Yes, yes, I've sucked cock," I nodded. 
 
- "Go ahead, suck on them," she ordered, 
+"A lot of cock?" she questioned. 
 
- I again wordlessly obeyed, leaning forward on the chair and taking her left nipple in my mouth. 
+"More than a few," I answered. Sucking cock was pretty much first date expectations so I had sucked quite a few, swallowed most and taken a reasonable number of facials. 
 
- "Good pet," she moaned, "suck on your Mistress's nipple." 
+"You swallow?" she questioned. 
 
- Briefly forgetting she had a cock, I lavishly pleasured her breasts. Sucking on both nipples, biting them playfully and splattering her entire tits with kisses. 
+"Of course," I nodded, beginning to get used to the idea that she had a cock, not a cunt. I mean, it was her personality that drew me in, not what was under the skirt....and I did love cock. 
 
- "That's it, my pet," she moaned. "Nothing has changed, the only difference is you will be sucking cock instead of eating pussy. And I imagine you have sucked a fair amount of cock." 
+"Now, do as you're told, my pet, and pull down my panties. I have someone who is very excited to see you." 
 
- When I didn't answer right away, she firmly demanded, "Answer me, my slut." 
+My hands trembling again, this time with a mixture of excitement and trepidation, I grabbed her pink panties and slowly tugged them down her legs. 
 
- "Yes, yes, I've sucked cock," I nodded. 
+I gasped again, this time at how big she was, easily the biggest cock I had seen in real life...porn excluded. It was easily nine inches long and utterly beautiful with a slight curve that I hoped would be able to hit my g-spot. 
 
- "A lot of cock?" she questioned. 
+"I know, it's pretty much the Picasso of dicks, isn't it?" she asked, moving her hand and beginning to stroke it. 
 
- "More than a few," I answered. Sucking cock was pretty much first date expectations so I had sucked quite a few, swallowed most and taken a reasonable number of facials. 
+"It's fucking huge," I nodded unable to take my eyes off the massive snake. 
 
- "You swallow?" she questioned. 
+"And it comes buckets," she added, moving forward slightly and tapping my lips with it. 
 
- "Of course," I nodded, beginning to get used to the idea that she had a cock, not a cunt. I mean, it was her personality that drew me in, not what was under the skirt....and I did love cock. 
+I instantly opened my mouth, already trained like Pavlov's dog, to open up when a cock was in my face, especially a delicious majestic cock like Mrs. Parks. 
 
- "Now, do as you're told, my pet, and pull down my panties. I have someone who is very excited to see you." 
+"Beg to suck it, my pet," she ordered, tracing my lips with her cock...teasing me. 
 
- My hands trembling again, this time with a mixture of excitement and trepidation, I grabbed her pink panties and slowly tugged them down her legs. 
+I no longer cared what sex she was, I wanted that cock in my mouth. I begged, "Please, Mistress, let your pet slut suck that big cock of yours." 
 
- I gasped again, this time at how big she was, easily the biggest cock I had seen in real life...porn excluded. It was easily nine inches long and utterly beautiful with a slight curve that I hoped would be able to hit my g-spot. 
+"If you take my cock in your mouth, I will expect to be able to fill any of your three holes whenever I wish," she explained. 
 
- "I know, it's pretty much the Picasso of dicks, isn't it?" she asked, moving her hand and beginning to stroke it. 
+Although the thought of being sodomized by that monster was petrifying, I answered like I had all day when I thought she had a cunt, "Yes, Mistress, all three of my fuckholes are yours." 
 
- "It's fucking huge," I nodded unable to take my eyes off the massive snake. 
+"And you will suck my cock under my desk while I am with clients," she continued adding to her expectations of me. 
 
- "And it comes buckets," she added, moving forward slightly and tapping my lips with it. 
+"If I would have known, I would have done that today, Mistress," I replied, and, of course, I would have. 
 
- I instantly opened my mouth, already trained like Pavlov's dog, to open up when a cock was in my face, especially a delicious majestic cock like Mrs. Parks. 
+"Go ahead, my pet, you deserve your bone," she quipped, which should have been hilarious, but somehow seemed the natural term at the moment. 
 
- "Beg to suck it, my pet," she ordered, tracing my lips with her cock...teasing me. 
+I leaned forward and took her cock in my mouth. 
 
- I no longer cared what sex she was, I wanted that cock in my mouth. I begged, "Please, Mistress, let your pet slut suck that big cock of yours." 
+"Good girl," she moaned. 
 
- "If you take my cock in your mouth, I will expect to be able to fill any of your three holes whenever I wish," she explained. 
+Having given a lot of oral sex, I decided to show her my whole spectrum of cocksucking ability. I swirled my tongue around her cockhead to tease her first; I then slithered my tongue down her iron shaft and to her balls; I sucked each ball into my mouth, giving each equal attention, before slithering back up to her mushroom top. 
 
- Although the thought of being sodomized by that monster was petrifying, I answered like I had all day when I thought she had a cunt, "Yes, Mistress, all three of my fuckholes are yours." 
+She groaned, "You know your way around a dick, don't you, my pet?" 
 
- "And you will suck my cock under my desk while I am with clients," she continued adding to her expectations of me. 
+"Yes, Mistress," I nodded, before taking it back in my mouth. 
 
- "If I would have known, I would have done that today, Mistress," I replied, and, of course, I would have. 
+I resumed my lengthy focus, by beginning to slowly bob back and forth, my goal to eventually take all nine inches in my mouth, something I had never done before having never sucked such a big dick. But I was, of course, up for the challenge. 
 
- "Go ahead, my pet, you deserve your bone," she quipped, which should have been hilarious, but somehow seemed the natural term at the moment. 
+"That's it, my dick smoker, worship my cock, it's going to be in your mouth daily now," she promised, which I prayed was true. 
 
- I leaned forward and took her cock in my mouth. 
+I moaned on her cock in response, wanting her to know that I was excited by the promise. 
 
- "Good girl," she moaned. 
+"Oh yes, my pet," she moaned, "you will be my personal fuck toy from now on. Although don't you worry, we will also get you trained in cunt munching. Many of our clients love a young eager pussy pleaser." 
 
- Having given a lot of oral sex, I decided to show her my whole spectrum of cocksucking ability. I swirled my tongue around her cockhead to tease her first; I then slithered my tongue down her iron shaft and to her balls; I sucked each ball into my mouth, giving each equal attention, before slithering back up to her mushroom top. 
+I again moaned, the idea of being a full service fuck toy for whoever she wanted was incredibly exciting and stimulating. 
 
- She groaned, "You know your way around a dick, don't you, my pet?" 
+I continued bobbing, each forward movement taking a little more of her amazing dick in my mouth. 
 
- "Yes, Mistress," I nodded, before taking it back in my mouth. 
+"You want it all, don't you?" she asked, watching me bob hungrily like the eager slut I was. 
 
- I resumed my lengthy focus, by beginning to slowly bob back and forth, my goal to eventually take all nine inches in my mouth, something I had never done before having never sucked such a big dick. But I was, of course, up for the challenge. 
+"Mmmmmmmmm," I moaned in response, getting almost seven inches in my mouth. 
 
- "That's it, my dick smoker, worship my cock, it's going to be in your mouth daily now," she promised, which I prayed was true. 
+"Tell me, slut, tell me how much you love my cock," she ordered. 
 
- I moaned on her cock in response, wanting her to know that I was excited by the promise. 
+I reluctantly took her cock out of my mouth, looked up at her and declared, "I love your big dick, Mistress and I want to suck it until you come down my throat or on my face." 
 
- "Oh yes, my pet," she moaned, "you will be my personal fuck toy from now on. Although don't you worry, we will also get you trained in cunt munching. Many of our clients love a young eager pussy pleaser." 
+"What about your tits?" she asked. 
 
- I again moaned, the idea of being a full service fuck toy for whoever she wanted was incredibly exciting and stimulating. 
+"Come wherever you want, Mistress," I offered, again giving myself to her completely, "my body is yours to use as you wish." 
 
- I continued bobbing, each forward movement taking a little more of her amazing dick in my mouth. 
+Her hands went through my hair and she groaned, "I'm getting close, my pet." 
 
- "You want it all, don't you?" she asked, watching me bob hungrily like the eager slut I was. 
+Hearing the words, I began bobbing faster, wanting to get her off and swallow her cum. 
 
- "Mmmmmmmmm," I moaned in response, getting almost seven inches in my mouth. 
+After a couple of more minutes, she pulled out and ordered, "On your knees, my pet." 
 
- "Tell me, slut, tell me how much you love my cock," she ordered. 
+I quickly obeyed, assuming she planned to spray my face with her cum. Although I loved the sluttiness of the act, loved the moment the warm cum hit my face, I hated trying to clean myself of the sticky goo. 
 
- I reluctantly took her cock out of my mouth, looked up at her and declared, "I love your big dick, Mistress and I want to suck it until you come down my throat or on my face." 
-
- "What about your tits?" she asked. 
-
- "Come wherever you want, Mistress," I offered, again giving myself to her completely, "my body is yours to use as you wish." 
-
- Her hands went through my hair and she groaned, "I'm getting close, my pet." 
-
- Hearing the words, I began bobbing faster, wanting to get her off and swallow her cum. 
-
- After a couple of more minutes, she pulled out and ordered, "On your knees, my pet." 
-
- I quickly obeyed, assuming she planned to spray my face with her cum. Although I loved the sluttiness of the act, loved the moment the warm cum hit my face, I hated trying to clean myself of the sticky goo. 
-
- 
-
- bosss-pet56.jpg]Used to what happened next, I opened my mouth as she stroked her cock, aimed directly at me.  
-
- 
-
- 
+bosss-pet56.jpg]Used to what happened next, I opened my mouth as she stroked her cock, aimed directly at me.  
 
 ===
 
 "You've done this many times before, my pet," she mused, looking down at me on my knees with my mouth open. 
 
- I smiled, continuing to look up at her, "Never for someone like you, though." 
+I smiled, continuing to look up at her, "Never for someone like you, though." 
 
- "You want it down your throat, on your pretty face or on those perky tits, my pet?" she asked, stroking her hard cock furiously. 
+"You want it down your throat, on your pretty face or on those perky tits, my pet?" she asked, stroking her hard cock furiously. 
 
- "Down my throat," I answered, wanting to taste her cum. 
+"Down my throat," I answered, wanting to taste her cum. 
 
- "As you wish," she nodded, sliding her cock back in my mouth and beginning to fuck my face. 
+"As you wish," she nodded, sliding her cock back in my mouth and beginning to fuck my face. 
 
- I concentrated on not gagging, as she roughly fucked my face. After a few thrusts, she grabbed my head and seconds later I felt the warm cum sliding down my throat. 
+I concentrated on not gagging, as she roughly fucked my face. After a few thrusts, she grabbed my head and seconds later I felt the warm cum sliding down my throat. 
 
- I eagerly swallowed it, loving the salty taste...I had always liked the taste (unlike most of my friends who did it reluctantly or refused entirely). 
+I eagerly swallowed it, loving the salty taste...I had always liked the taste (unlike most of my friends who did it reluctantly or refused entirely). 
 
- "Fuck, what a great mouth," she grunted, as she deposited a full load in me. 
+"Fuck, what a great mouth," she grunted, as she deposited a full load in me. 
 
- After another minute, as she slowed down to a relaxed pumping, she continued, "I saved that load since Monday for you, my pet." 
+After another minute, as she slowed down to a relaxed pumping, she continued, "I saved that load since Monday for you, my pet." 
 
- When she pulled out, I replied, "Thank you, so much," leaning forward and licking her cock to retrieve a last remnant of cum that was beginning to drip. 
+When she pulled out, I replied, "Thank you, so much," leaning forward and licking her cock to retrieve a last remnant of cum that was beginning to drip. 
 
- "Ready to get fucked?" she asked. 
+"Ready to get fucked?" she asked. 
 
- "Really?" I asked. I had fucked many men the age of Mistress and none could get it up immediately, some not even again that night. 
+"Really?" I asked. I had fucked many men the age of Mistress and none could get it up immediately, some not even again that night. 
 
- "Oh, I'll only need a few minutes," she replied. "Lie down and get that cunt of yours ready for me." 
+"Oh, I'll only need a few minutes," she replied. "Lie down and get that cunt of yours ready for me." 
 
- I obeyed quickly, my cunt burning with desire and desperate for attention. 
+I obeyed quickly, my cunt burning with desire and desperate for attention. 
 
- "Rub yourself for me, my slut," she ordered, leaning on her desk. 
+"Rub yourself for me, my slut," she ordered, leaning on her desk. 
 
- "Okayyyyy," I agreed, instantly moving my hand underneath my panties. 
+"Okayyyyy," I agreed, instantly moving my hand underneath my panties. 
 
- "Think you can take all nine inches in that little box of yours?" she asked, watching me. 
+"Think you can take all nine inches in that little box of yours?" she asked, watching me. 
 
- "I'll die tryiiiiiiing," I responded, as I imagined that big prick filling my cunt. I loved big cocks in me, the few I had, but even I wasn't confident I could take all nine inches of that thick monster inside me. That said, I was definitely up for the challenge. 
+"I'll die tryiiiiiiing," I responded, as I imagined that big prick filling my cunt. I loved big cocks in me, the few I had, but even I wasn't confident I could take all nine inches of that thick monster inside me. That said, I was definitely up for the challenge. 
 
- "I'll take it slow, my slut," she promised, before adding, "until you're begging to take it all in that hot box of yours, that is." 
+"I'll take it slow, my slut," she promised, before adding, "until you're begging to take it all in that hot box of yours, that is." 
 
- "I can't wait," I moaned, slowly rubbing myself, knowing I didn't want to come until my cunt was filled with that cock. 
+"I can't wait," I moaned, slowly rubbing myself, knowing I didn't want to come until my cunt was filled with that cock. 
 
- For a few minutes, I slowly pleasured myself while she sent a few texts, made a phone call, her big cock dangling between her legs...completely ignoring that I was on the floor, half naked, touching my cunt and yearning for her dick. 
+For a few minutes, I slowly pleasured myself while she sent a few texts, made a phone call, her big cock dangling between her legs...completely ignoring that I was on the floor, half naked, touching my cunt and yearning for her dick. 
 
- Finally, wordlessly, while chatting to her mother, yes her mother, she snapped her fingers at me and pointed to my crotch. I moved my hands away from my burning inferno and instead framed my hip area for her. I watched as she slowly moved above me, her cock dangling above my mouth like a carrot just out of reach. 
+Finally, wordlessly, while chatting to her mother, yes her mother, she snapped her fingers at me and pointed to my crotch. I moved my hands away from my burning inferno and instead framed my hip area for her. I watched as she slowly moved above me, her cock dangling above my mouth like a carrot just out of reach. 
 
- My mouth instantly opened even though I wasn't in reach of the appetizing cock, only 1/3 erect, above me. 
+My mouth instantly opened even though I wasn't in reach of the appetizing cock, only 1/3 erect, above me. 
 
- 
+bosss-pet57.jpg] 
 
- bosss-pet57.jpg] 
+"Is that what you want?" she asked, to her mother, even though it could have been to me. 
 
- "Is that what you want?" she asked, to her mother, even though it could have been to me. 
+I nodded in case the question was for me. 
 
- I nodded in case the question was for me. 
+"No, no," she continued, "is that really what you want?" 
 
- "No, no," she continued, "is that really what you want?" 
+I was still confused, as I wasn't sure if her words were for her mother or me, but I kept my mouth open wide. 
 
- I was still confused, as I wasn't sure if her words were for her mother or me, but I kept my mouth open wide. 
+Slowly, she lowered herself to her knees, and dangled her cock an inch above me. 
 
- Slowly, she lowered herself to her knees, and dangled her cock an inch above me. 
+Although awkward as hell, I leaned up, while remaining on my back, and took the mushroom head of her cock back in my mouth. 
 
- Although awkward as hell, I leaned up, while remaining on my back, and took the mushroom head of her cock back in my mouth. 
+"I got to go, Mom, I have a very important training session with a new employee," she said. After a pause, she said, as she began pumping her cock in my mouth at the strangest of angles, "Oh trust me, I won't." 
 
- "I got to go, Mom, I have a very important training session with a new employee," she said. After a pause, she said, as she began pumping her cock in my mouth at the strangest of angles, "Oh trust me, I won't." 
+After she hung up, she smiled, "My mother wants me to make sure I don't work you too hard." 
 
- After she hung up, she smiled, "My mother wants me to make sure I don't work you too hard." 
+"Oh, I hope you're going to work me fucking hard," I teased, looking up. 
 
- "Oh, I hope you're going to work me fucking hard," I teased, looking up. 
+"Take off your bra, my pet," she ordered. 
 
- "Take off your bra, my pet," she ordered. 
+"Yes, Mistress," I nodded, trying to look sexy and seductive as I unclasped my bra and tossed it aside, never once taking my eyes off her. 
 
- "Yes, Mistress," I nodded, trying to look sexy and seductive as I unclasped my bra and tossed it aside, never once taking my eyes off her. 
+bosss-pet58.jpg] 
 
- 
+"Those are great titties, my pet," she purred. 
 
- bosss-pet58.jpg] 
+"Thank you, Mistress," I nodded, before adding, "I've always been self- conscious about how small they are." 
 
- "Those are great titties, my pet," she purred. 
+"They're perfect, my pet," she complimented, "now squeeze those tits together for me." 
 
- "Thank you, Mistress," I nodded, before adding, "I've always been self- conscious about how small they are." 
+I squeezed my small, but perky, tits for her, which not surprisingly made them look bigger than they really were. 
 
- "They're perfect, my pet," she complimented, "now squeeze those tits together for me." 
+She walked to her desk and ordered, "Crawl to me, my pet." 
 
- I squeezed my small, but perky, tits for her, which not surprisingly made them look bigger than they really were. 
+I immediately rolled over onto my knees and crawled to her. Reaching her, she ordered, 
 
- She walked to her desk and ordered, "Crawl to me, my pet." 
+"Ever tit fucked a cock?" she asked. 
 
- I immediately rolled over onto my knees and crawled to her. Reaching her, she ordered, 
+"I've tried when drunk," I admitted, "but it didn't go well." 
 
- "Ever tit fucked a cock?" she asked. 
+"Well, let's see if the second time is the charm," she smiled. "Tit fuck me, my little slut." 
 
- "I've tried when drunk," I admitted, "but it didn't go well." 
+Although I wasn't sure my breasts were big enough to really tit fuck that big dick, I obeyed, leaning forward, allowing her cock to go between my breasts and began to awkwardly move up and down slowly. 
 
- "Well, let's see if the second time is the charm," she smiled. "Tit fuck me, my little slut." 
+"Lube would probably help," she concluded. "Give me a second, my pet." 
 
- Although I wasn't sure my breasts were big enough to really tit fuck that big dick, I obeyed, leaning forward, allowing her cock to go between my breasts and began to awkwardly move up and down slowly. 
+I moved back, she stood up, reached into her drawer and grabbed a bottle of lube. She sat back down, poured some lube between my tits and ordered, "Let's try this again." 
 
- "Lube would probably help," she concluded. "Give me a second, my pet." 
+I again leaned forward, took her cock between my tits and began moving up and down. It was still awkward, but with the lubricant it was easier. I'm not sure I was really giving her much pleasure, but I enjoyed it anyways. 
 
- I moved back, she stood up, reached into her drawer and grabbed a bottle of lube. She sat back down, poured some lube between my tits and ordered, "Let's try this again." 
+After a couple of minutes, she smiled, "Maybe we should just do this the old fashioned way. Straddle my cock, my eager little fuck slut." 
 
- I again leaned forward, took her cock between my tits and began moving up and down. It was still awkward, but with the lubricant it was easier. I'm not sure I was really giving her much pleasure, but I enjoyed it anyways. 
+"Yes, Mistress," I nodded, indeed eager. I stood up, straddled her legs and lowered myself on her long, thick, nine inch shaft. "Ohhhhhhhhhhh," I moaned, as her cock slowly filled me. 
 
- After a couple of minutes, she smiled, "Maybe we should just do this the old fashioned way. Straddle my cock, my eager little fuck slut." 
+"That's it, my slut," she purred, "I expect you to take it all until you are sitting on my lap." 
 
- "Yes, Mistress," I nodded, indeed eager. I stood up, straddled her legs and lowered myself on her long, thick, nine inch shaft. "Ohhhhhhhhhhh," I moaned, as her cock slowly filled me. 
+"Okkkkkkkkkkay," I whimpered, as the cock filled me unlike I had ever been before. 
 
- "That's it, my slut," she purred, "I expect you to take it all until you are sitting on my lap." 
+bosss-pet59.jpg] 
 
- "Okkkkkkkkkkay," I whimpered, as the cock filled me unlike I had ever been before. 
+"Fuck, your cunt is incredibly tight," she moaned. 
 
- 
+"Because my cunt has never had anything soooooooo big," I admitted. 
 
- bosss-pet59.jpg] 
+"Almost all in, my pet," she declared. 
 
- "Fuck, your cunt is incredibly tight," she moaned. 
+"Soooooo full," I moaned, continuing to lower myself on the massive dick. 
 
- "Because my cunt has never had anything soooooooo big," I admitted. 
+Finally, I was sitting on her lap. 
 
- "Almost all in, my pet," she declared. 
+"Good girl," she moaned, kissing the back of my neck. "You took it all like a good slut." 
 
- "Soooooo full," I moaned, continuing to lower myself on the massive dick. 
+"Can I ride you, Mistress?" I asked, wanting to fuck myself. 
 
- Finally, I was sitting on her lap. 
+"Bounce away," she replied, continuing to kiss my neck. 
 
- "Good girl," she moaned, kissing the back of my neck. "You took it all like a good slut." 
+I leaned forward, using the desk for balance, and began riding this glorious dick. I began slowly moving up and down, wanting to really enjoy this first time with her. 
 
- "Can I ride you, Mistress?" I asked, wanting to fuck myself. 
+"That's it," she moaned, after a few slow motions. "Ride my cock, my pet." 
 
- "Bounce away," she replied, continuing to kiss my neck. 
+"All dayyyyyy," I moaned, beginning to move faster, wanting to really take all her cock. Each hard bounce on her cock made it reach new depths inside me. I was in utter euphoria. 
 
- I leaned forward, using the desk for balance, and began riding this glorious dick. I began slowly moving up and down, wanting to really enjoy this first time with her. 
+With each deep downwards stroke, my orgasm began to build at an accelerated pace. "Oh fuck, I love your cock," I declared. 
 
- "That's it," she moaned, after a few slow motions. "Ride my cock, my pet." 
+"I knew you would," she responded, before she ordered, "On the floor, my little cum slut." 
 
- "All dayyyyyy," I moaned, beginning to move faster, wanting to really take all her cock. Each hard bounce on her cock made it reach new depths inside me. I was in utter euphoria. 
+"Yes, Mistress," I eagerly obeyed, moving back to the floor and spreading my legs wide, eager to have her cock buried back inside me. 
 
- With each deep downwards stroke, my orgasm began to build at an accelerated pace. "Oh fuck, I love your cock," I declared. 
+She laughed as she looked at me with my legs high up in the air, "Fuck, you're an even bigger slut than I could have imagined." 
 
- "I knew you would," she responded, before she ordered, "On the floor, my little cum slut." 
+I laughed back, "Even more so than I imagined, too." 
 
- "Yes, Mistress," I eagerly obeyed, moving back to the floor and spreading my legs wide, eager to have her cock buried back inside me. 
+bosss-pet60.jpg] 
 
- She laughed as she looked at me with my legs high up in the air, "Fuck, you're an even bigger slut than I could have imagined." 
+"Beg, slut," she demanded, as she moved between my legs. 
 
- I laughed back, "Even more so than I imagined, too." 
+"You, Goddess, Mistress, slam that big dick of yours in your slut's cunt," I begged. "I need it sooooo bad, I need to come from that enormous pecker of yours." 
 
- 
+"Pecker," she laughed, "that's a new one." 
 
- bosss-pet60.jpg] 
+"Cock, dick, boomstick, snake, dragon, fuck stick, rod, thunder stick, Johnson, hose, sausage, cum gun," I listed, the girls and I one day coming up with over a hundred such names at a sleepover back in high school. 
 
- "Beg, slut," she demanded, as she moved between my legs. 
+"You really are full of surprises," she chuckled, as she filled my cunt. 
 
- "You, Goddess, Mistress, slam that big dick of yours in your slut's cunt," I begged. "I need it sooooo bad, I need to come from that enormous pecker of yours." 
+"Yessssss, drill my cunt with your hammer gun," I screamed, instantly covering my mouth suddenly remembering it was the middle of the afternoon and I was technically at work. Then I realized something else...I was getting paid at that very moment. 
 
- "Pecker," she laughed, "that's a new one." 
+"Cup those titties, my slut," she ordered, as she began fucking me. 
 
- "Cock, dick, boomstick, snake, dragon, fuck stick, rod, thunder stick, Johnson, hose, sausage, cum gun," I listed, the girls and I one day coming up with over a hundred such names at a sleepover back in high school. 
+bosss-pet61.jpg] 
 
- "You really are full of surprises," she chuckled, as she filled my cunt. 
+"Yes, Mistress," I immediately obeyed, already feeling my orgasm building. 
 
- "Yessssss, drill my cunt with your hammer gun," I screamed, instantly covering my mouth suddenly remembering it was the middle of the afternoon and I was technically at work. Then I realized something else...I was getting paid at that very moment. 
+"I want you to come on the count of ten, my pet," she said, after a few deep hard thrusts. She then added, "not before and not after, exactly at ten." 
 
- "Cup those titties, my slut," she ordered, as she began fucking me. 
+"Okayyyy," I agreed, even though at the rate my orgasm was rising, I wasn't sure I could control it for even a few more seconds. 
 
- 
+"One," she began. 
 
- bosss-pet61.jpg] 
+"Two," she continued, counting up. 
 
- "Yes, Mistress," I immediately obeyed, already feeling my orgasm building. 
+Each number of the countdown felt like an eternity as her cock slammed into me with such deep penetration and force. 
 
- "I want you to come on the count of ten, my pet," she said, after a few deep hard thrusts. She then added, "not before and not after, exactly at ten." 
+"Three," she groaned. 
 
- "Okayyyy," I agreed, even though at the rate my orgasm was rising, I wasn't sure I could control it for even a few more seconds. 
+"Oh God, Mistress, I've never been fucked so well," I moaned, hoping talking would somehow slow down my orgasm. 
 
- "One," she began. 
+"I knew you were the one, my slut, the moment you walked into the room," she revealed to me, before adding, "four and five." 
 
- "Two," she continued, counting up. 
+"Whaaaaaaat?" I asked, confused by her declaration. 
 
- Each number of the countdown felt like an eternity as her cock slammed into me with such deep penetration and force. 
+"Your innocent, ridiculously conservative attire, yet mixed with your confident demeanor and I knew you were the perfect submissive," she explained, even as she both continued fucking me and kept counting towards the moment of euphoria. "Six." 
 
- "Three," she groaned. 
+"You could really see that?" I asked. 
 
- "Oh God, Mistress, I've never been fucked so well," I moaned, hoping talking would somehow slow down my orgasm. 
+"In a heartbeat," she replied. "Seven." 
 
- "I knew you were the one, my slut, the moment you walked into the room," she revealed to me, before adding, "four and five." 
+"So close," I moaned, my head spinning with the revelation, trying to fathom how I gave such an impression. Before I met her I didn't remotely see myself in such a light. 
 
- "Whaaaaaaat?" I asked, confused by her declaration. 
+bosss-pet62.jpg] 
 
- "Your innocent, ridiculously conservative attire, yet mixed with your confident demeanor and I knew you were the perfect submissive," she explained, even as she both continued fucking me and kept counting towards the moment of euphoria. "Six." 
+"Not yet, my fuck slut," she cautioned, as she began fucking me so hard I wasn't sure I could last another second. "Eight." 
 
- "You could really see that?" I asked. 
+"Okaaaaay," I whimpered, squeezing my breasts hard enough to leave bruises on myself as I tried to resist the orgasm that was definitely inevitable. 
 
- "In a heartbeat," she replied. "Seven." 
+"Nine," she counted, so close to the crescendo of eruption. 
 
- "So close," I moaned, my head spinning with the revelation, trying to fathom how I gave such an impression. Before I met her I didn't remotely see myself in such a light. 
+"Yes, oh God, please Mistressssss," I begged in delirium. 
 
- 
+"Nine and a quarter," she teased. 
 
- bosss-pet62.jpg] 
+"Mistressssss, nooo," I whined, clenching my teeth together in a lame attempt not to come. 
 
- "Not yet, my fuck slut," she cautioned, as she began fucking me so hard I wasn't sure I could last another second. "Eight." 
+"Nine and a half," she again teased with a wicked smile, keeping me on the cusp of heaven and yet unable to touch it. 
 
- "Okaaaaay," I whimpered, squeezing my breasts hard enough to leave bruises on myself as I tried to resist the orgasm that was definitely inevitable. 
+"Oh, can't hold baaaaaack," I whimpered. 
 
- "Nine," she counted, so close to the crescendo of eruption. 
+"Ten!" she announced. 
 
- "Yes, oh God, please Mistressssss," I begged in delirium. 
+"Oh fuuuuuuuuuck," I screamed, through clenched teeth to avoid alerting the entire building to the most intense orgasm of my entire life. 
 
- "Nine and a quarter," she teased. 
+bosss-pet63.jpg] 
 
- "Mistressssss, nooo," I whined, clenching my teeth together in a lame attempt not to come. 
+"That's it, my slut," she purred, as she continued the rough fucking as my orgasm riddled me, usurping any energy I had left in me. "Come like a racehorse." 
 
- "Nine and a half," she again teased with a wicked smile, keeping me on the cusp of heaven and yet unable to touch it. 
+"Can't stop comiiiiiiiing," I weakly retorted. 
 
- "Oh, can't hold baaaaaack," I whimpered. 
+For a couple minutes of pleasure indescribable in any remote sort of way, my mind went blank and I transcended to utopia, where pleasure was eternal and never ending, even as she continued fucking my trembling cunt. 
 
- "Ten!" she announced. 
+Suddenly she pulled out and ordered, her own sense of urgency implying she was about to come herself, "Knees, my pet." 
 
- "Oh fuuuuuuuuuck," I screamed, through clenched teeth to avoid alerting the entire building to the most intense orgasm of my entire life. 
+Although slightly dazed and confused, I quickly sat up, feeling wobbly and utterly weak as I stared at her pulsating cock. 
 
- 
+She furiously pumped her cock and this time said, "Time for you to get a nice load on those pretty lips." 
 
- bosss-pet63.jpg] 
+I opened my mouth, stared at her juicy cock and waited for her to coat my face with her cum. 
 
- "That's it, my slut," she purred, as she continued the rough fucking as my orgasm riddled me, usurping any energy I had left in me. "Come like a racehorse." 
+Wanting to talk dirty, to get her off with my words, I demanded, "Coat my face with your cum, Mistress; cover your slut with your seed; mark your property with your white goo." 
 
- "Can't stop comiiiiiiiing," I weakly retorted. 
+"Oh, fuck, you really are the one," she grunted, coming for the second time this afternoon. 
 
- For a couple minutes of pleasure indescribable in any remote sort of way, my mind went blank and I transcended to utopia, where pleasure was eternal and never ending, even as she continued fucking my trembling cunt. 
+Her cock aimed directly at my face and I felt her warm cum spray me with the force of a firehose. 
 
- Suddenly she pulled out and ordered, her own sense of urgency implying she was about to come herself, "Knees, my pet." 
+I moaned, "That's it, Mistress, cum all over your fuck slut." 
 
- Although slightly dazed and confused, I quickly sat up, feeling wobbly and utterly weak as I stared at her pulsating cock. 
+Calling myself names only enhanced my desire to please for some unfathomable reason. 
 
- She furiously pumped her cock and this time said, "Time for you to get a nice load on those pretty lips." 
+Four more streams, each less than the one before, hit my chest before I leaned forward and took her cock back in my mouth. 
 
- I opened my mouth, stared at her juicy cock and waited for her to coat my face with her cum. 
+bosss-pet64.jpg] 
 
- Wanting to talk dirty, to get her off with my words, I demanded, "Coat my face with your cum, Mistress; cover your slut with your seed; mark your property with your white goo." 
+"Retrieve every last drop, Lily," she moaned, saying my name for the first time since I can't even begin to remember when. 
 
- "Oh, fuck, you really are the one," she grunted, coming for the second time this afternoon. 
+I hungrily bobbed on her cock, doing exactly that. 
 
- Her cock aimed directly at my face and I felt her warm cum spray me with the force of a firehose. 
+Finally, she pulled out and smiled, "You even look cute with cum all over your face." 
 
- I moaned, "That's it, Mistress, cum all over your fuck slut." 
+bosss-pet65.jpg] 
 
- Calling myself names only enhanced my desire to please for some unfathomable reason. 
+"Next time I hope it's in my cunt," I said, hoping that next time may still be this afternoon. 
 
- Four more streams, each less than the one before, hit my chest before I leaned forward and took her cock back in my mouth. 
+"Oh don't you worry my little cum bucket, I still have two holes to deposit into," she answered. 
 
- 
+I wasn't sure if she meant today or someday, but I understood that I was eventually, likely very soon, going to be taking her cock in my ass. 
 
- bosss-pet64.jpg] 
+"Rub my cum all over those tits of yours, my sweet Lily." 
 
- "Retrieve every last drop, Lily," she moaned, saying my name for the first time since I can't even begin to remember when. 
+"Yes, Mistress," I nodded, moving to my tits and rubbing the sticky seed all over my chest. 
 
- I hungrily bobbed on her cock, doing exactly that. 
+She said, watching me, as she collapsed into her chair, "You definitely passed your first test." 
 
- Finally, she pulled out and smiled, "You even look cute with cum all over your face." 
+"Did I get a hundred percent?" I coyly asked, still on my knees in front of her. 
 
- 
+"Well there is always room for improvement," she smiled back, moving her foot to my breasts. 
 
- bosss-pet65.jpg] 
+"I'll work harder, Mistress," I promised, as I took her foot and moved it to my lips. 
 
- "Next time I hope it's in my cunt," I said, hoping that next time may still be this afternoon. 
+"I know you will," she nodded, before adding, "Get dressed, my pet. I have a meeting in fifteen minutes in this office." 
 
- "Oh don't you worry my little cum bucket, I still have two holes to deposit into," she answered. 
+"Can't I be under your desk, giving you a very lengthy blow job?" I asked, hungry for more. 
 
- I wasn't sure if she meant today or someday, but I understood that I was eventually, likely very soon, going to be taking her cock in my ass. 
+"Oh, you really are an eager beaver," she smiled, standing up. "You will indeed be under my desk many times, my pet, but now I want you to return to work. We don't want your fellow employees to talk." 
 
- "Rub my cum all over those tits of yours, my sweet Lily." 
+"Yes, Mistress," I nodded, feeling an undeniable sense of disappointment that this first training was over. 
 
- "Yes, Mistress," I nodded, moving to my tits and rubbing the sticky seed all over my chest. 
+"Don't worry, my little slut, today was just an appetizer, wait until we have a weekend retreat," she smiled, as she got dressed. 
 
- She said, watching me, as she collapsed into her chair, "You definitely passed your first test." 
+"I can't wait," I admitted, already imagining all the naughty things I hoped she planned to do to me. 
 
- "Did I get a hundred percent?" I coyly asked, still on my knees in front of her. 
+"I know you can't," she nodded, sliding back into her heels. 
 
- "Well there is always room for improvement," she smiled back, moving her foot to my breasts. 
+bosss-pet66.jpg]Finally dressed, my body weak, unsure how I was possibly going to work after this, I stood up, walked to the door, my heels in my hands, and said, "Thank you so much, Mistress Katherine, for seeing through my outer shell." 
 
- "I'll work harder, Mistress," I promised, as I took her foot and moved it to my lips. 
+"You're welcome," she nodded, before adding, "You should probably put on your heels, we don't want the rest of the staff to know you're a submissive, cock pleasing, pet, do we?" 
 
- "I know you will," she nodded, before adding, "Get dressed, my pet. I have a meeting in fifteen minutes in this office." 
+"No, likely not," I laughed, "At least not until you decide to have me pleasure every member here as a Christmas bonus." 
 
- "Can't I be under your desk, giving you a very lengthy blow job?" I asked, hungry for more. 
+She laughed, "You and I are going to get along very, very well, my kitty." 
 
- "Oh, you really are an eager beaver," she smiled, standing up. "You will indeed be under my desk many times, my pet, but now I want you to return to work. We don't want your fellow employees to talk." 
+"Meow!" I replied, knowing life as I knew it had officially come to an end and I wouldn't have it any other way. 
 
- "Yes, Mistress," I nodded, feeling an undeniable sense of disappointment that this first training was over. 
+As I slipped on my heels and walked out the door, a thought suddenly popped into my head, 'what about her husband?' 
 
- "Don't worry, my little slut, today was just an appetizer, wait until we have a weekend retreat," she smiled, as she got dressed. 
+THE END ... AGAIN 
 
- "I can't wait," I admitted, already imagining all the naughty things I hoped she planned to do to me. 
+..... 
 
- "I know you can't," she nodded, sliding back into her heels. 
+..... 
 
- 
+..... 
 
- bosss-pet66.jpg]Finally dressed, my body weak, unsure how I was possibly going to work after this, I stood up, walked to the door, my heels in my hands, and said, "Thank you so much, Mistress Katherine, for seeing through my outer shell." 
+..... 
 
- "You're welcome," she nodded, before adding, "You should probably put on your heels, we don't want the rest of the staff to know you're a submissive, cock pleasing, pet, do we?" 
+..... 
 
- "No, likely not," I laughed, "At least not until you decide to have me pleasure every member here as a Christmas bonus." 
+..... 
 
- She laughed, "You and I are going to get along very, very well, my kitty." 
+..... 
 
- "Meow!" I replied, knowing life as I knew it had officially come to an end and I wouldn't have it any other way. 
+..... 
 
- As I slipped on my heels and walked out the door, a thought suddenly popped into my head, 'what about her husband?' 
+EPILOGUE...just in case you thought this was finally over: 
 
- THE END ... AGAIN 
+Three month later, my private training with Mistress Katherine complete, including very thorough ass training, she told me she had a few surprises for me. 
 
- ..... 
+The first was that I was moving in with her so I could be her full-time pet. 
 
- ..... 
+The second was that we were going to be going on a week-long trip to some secluded island where apparently Mistresses and pets played. 
 
- ..... 
+The third was that it was time for me to begin my next level of training. 
 
- ..... 
+I was immediately curious what the next level could possibly entail after a full month of anal training. 
 
- ..... 
+It was after hours when she ordered me to get undressed and kneel in the middle of her office. 
 
- ..... 
+I, of course, obeyed. 
 
- ..... 
+She came behind me and put a blindfold on me. 
 
- ..... 
+A chill went up my spine. She had used handcuffs on me already on a few occasions, but this was a new development. 
 
- EPILOGUE...just in case you thought this was finally over: 
+bosss-pet67.jpg] 
 
- Three month later, my private training with Mistress Katherine complete, including very thorough ass training, she told me she had a few surprises for me. 
+"Do you trust me, my pet?" she asked. 
 
- The first was that I was moving in with her so I could be her full-time pet. 
+"With my life," I answered, meaning it completely. 
 
- The second was that we were going to be going on a week-long trip to some secluded island where apparently Mistresses and pets played. 
+Suddenly there was a knock on the door. 
 
- The third was that it was time for me to begin my next level of training. 
+"And now begins part two of your training," she said, as I heard her heels head towards the door. 
 
- I was immediately curious what the next level could possibly entail after a full month of anal training. 
+"Yes, Mistress," I whispered, wondering what my beautiful Mistress had in store for me next. 
 
- It was after hours when she ordered me to get undressed and kneel in the middle of her office. 
+"Thanks for coming," Mistress Katherine greeted. 
 
- I, of course, obeyed. 
+The voices, yes voices, which responded sent a chill up my spine.... 
 
- She came behind me and put a blindfold on me. 
+THE END 
 
- A chill went up my spine. She had used handcuffs on me already on a few occasions, but this was a new development. 
+..... 
 
- 
+..... 
 
- bosss-pet67.jpg] 
+...... 
 
- "Do you trust me, my pet?" she asked. 
+Thanks again to Lily for taking the many photos used and the many more not used that were taken specifically to make this lengthy fetish story possible. 
 
- "With my life," I answered, meaning it completely. 
+Another thanks to those of you who choose to read this lengthy tale and took the journey with Lily and I on this very unique and enjoyable ride. 
 
- Suddenly there was a knock on the door. 
+Please, let me know if you liked having two endings and, if so, which one... 
 
- "And now begins part two of your training," she said, as I heard her heels head towards the door. 
+PS: Lily and I are already at work planning a second picture story with her...so be sure to tell me what you thought of the story and my beautiful model. 
 
- "Yes, Mistress," I whispered, wondering what my beautiful Mistress had in store for me next. 
-
- "Thanks for coming," Mistress Katherine greeted. 
-
- The voices, yes voices, which responded sent a chill up my spine.... 
-
- THE END 
-
- ..... 
-
- ..... 
-
- ...... 
-
- Thanks again to Lily for taking the many photos used and the many more not used that were taken specifically to make this lengthy fetish story possible. 
-
- Another thanks to those of you who choose to read this lengthy tale and took the journey with Lily and I on this very unique and enjoyable ride. 
-
- Please, let me know if you liked having two endings and, if so, which one... 
-
- PS: Lily and I are already at work planning a second picture story with her...so be sure to tell me what you thought of the story and my beautiful model. 
-
- JASMINE MARCH 2015  
-
- 
-
- 
+JASMINE MARCH 2015  
 
 ===
 
 Summary: A teacher and an ex-student fall for each other. 
 
- Note 1: A special thanks to my beautiful girl next door model who is anything but the girl next door internet sensation both in photo and video Kelly Anderson (aka Housewife Kelly). 
+Note 1: A special thanks to my beautiful girl next door model who is anything but the girl next door internet sensation both in photo and video Kelly Anderson (aka Housewife Kelly). 
 
- Note 2: Photos from the following sets were used to create this fantasy tale: "Office Slut", "Cock Break", "Working Wife", "Real Estate Agent Fucks for a Sale", "Working Wife", and "Sex Tax Lady" and were used with permission of HOUSEWIFE KELLY. 
+Note 2: Photos from the following sets were used to create this fantasy tale: "Office Slut", "Cock Break", "Working Wife", "Real Estate Agent Fucks for a Sale", "Working Wife", and "Sex Tax Lady" and were used with permission of HOUSEWIFE KELLY. 
 
- Note 3: Thanks to MAB7991, Robert and goamz86 for editing this story. 
+Note 3: Thanks to MAB7991, Robert and goamz86 for editing this story. 
 
- Note 4: This is a 2015 Valentine's Day Contest story so please vote!!! 
+Note 4: This is a 2015 Valentine's Day Contest story so please vote!!! 
 
- "Stocking Tales": A Face Full of Cum 
+"Stocking Tales": A Face Full of Cum 
 
- 
+face-full-of-cum01.jpg]Kelly looked in the mirror as she finished getting ready for work. Although today's young teachers dressed casually, some even considering Lulu Lemon yoga pants as acceptable professional fashion, Kelly believed in the more traditional skirt, blouse, pantyhose or stockings, and heels. She strongly believed that to gain the respect of her very opinionated senior students, she had to earn it. A mixture of a strong personality, professional attire, and compassion for all, built that sense of respect or trust. She rarely had discipline problems and her students genuinely, for the most part, enjoyed being in her class, even if the students didn't always like the subject itself. 
 
- face-full-of-cum01.jpg]Kelly looked in the mirror as she finished getting ready for work. Although today's young teachers dressed casually, some even considering Lulu Lemon yoga pants as acceptable professional fashion, Kelly believed in the more traditional skirt, blouse, pantyhose or stockings, and heels. She strongly believed that to gain the respect of her very opinionated senior students, she had to earn it. A mixture of a strong personality, professional attire, and compassion for all, built that sense of respect or trust. She rarely had discipline problems and her students genuinely, for the most part, enjoyed being in her class, even if the students didn't always like the subject itself. 
+Kelly also wasn't naive...she knew that her big firm 36C breasts and her well- toned legs drew a lot of attention from the boys in her class, as well as some of the girls. She liked the attention. She also knew that many of the boys talked about fucking her in the locker room; Coach Walter had told her so many times. "You are killing my team, Ms. Anderson," he joked, "all they talk about is did you see what Ms. Anderson was wearing today or worse." 
 
- Kelly also wasn't naive...she knew that her big firm 36C breasts and her well- toned legs drew a lot of attention from the boys in her class, as well as some of the girls. She liked the attention. She also knew that many of the boys talked about fucking her in the locker room; Coach Walter had told her so many times. "You are killing my team, Ms. Anderson," he joked, "all they talk about is did you see what Ms. Anderson was wearing today or worse." 
+Kelly quipped playfully to the handsome but married football coach, "And what would the worse be?" 
 
- Kelly quipped playfully to the handsome but married football coach, "And what would the worse be?" 
+"It is not for the ears of a lady," the handsome coached smiled. 
 
- "It is not for the ears of a lady," the handsome coached smiled. 
+The sexy teacher smiled, "If you knew the real me you wouldn't call me a lady." 
 
- The sexy teacher smiled, "If you knew the real me you wouldn't call me a lady." 
+"Let's just say you are the star of many of the boys' wet fantasies," the coach revealed. 
 
- "Let's just say you are the star of many of the boys' wet fantasies," the coach revealed. 
+Kelly knew some of the boys noticed her legs, or her breasts, but she never had put much thought into them jerking because of her. It should have repulsed her, or at the very least had her dress less sexy, but instead it got her off. She started dressing more provocatively at school, not slutty by any means, but she would go without underwear, or wear thigh high stockings instead of pantyhose and had even recently purchased a pair of crotchless pantyhose. Dressing naughty underneath her professional attire was her secret rebellion against the prototype teacher stereotype. 
 
- Kelly knew some of the boys noticed her legs, or her breasts, but she never had put much thought into them jerking because of her. It should have repulsed her, or at the very least had her dress less sexy, but instead it got her off. She started dressing more provocatively at school, not slutty by any means, but she would go without underwear, or wear thigh high stockings instead of pantyhose and had even recently purchased a pair of crotchless pantyhose. Dressing naughty underneath her professional attire was her secret rebellion against the prototype teacher stereotype. 
+Putting on her glasses, Kelly looked at herself one more time, her stocking tops just barely hidden by her skirt, and headed to work feeling sexy and beautiful, slowly forgetting the recent harsh break-up with her boyfriend of over two years. 
 
- Putting on her glasses, Kelly looked at herself one more time, her stocking tops just barely hidden by her skirt, and headed to work feeling sexy and beautiful, slowly forgetting the recent harsh break-up with her boyfriend of over two years. 
+Thinking about the break-up still made Kelly sad. She had thought she was going to marry Kevin. He was handsome, had a good job, was a great provider, and had a similar ferocious sexual appetite, at least at first. But as he climbed the corporate ladder at work, he was gone more and more and eventually his priorities shifted from Kelly first to his job first. Kelly didn't notice it at first, but as the shift occurred, the sex happened less, with much less creativity and passion than their first intense year. That said, Kelly was still surprised when he said it was over. He didn't give her a good reason, just the standard, 'It's not you, it's me' line which is just the chicken-shit way of taking no responsibility for the relationship. 
 
- Thinking about the break-up still made Kelly sad. She had thought she was going to marry Kevin. He was handsome, had a good job, was a great provider, and had a similar ferocious sexual appetite, at least at first. But as he climbed the corporate ladder at work, he was gone more and more and eventually his priorities shifted from Kelly first to his job first. Kelly didn't notice it at first, but as the shift occurred, the sex happened less, with much less creativity and passion than their first intense year. That said, Kelly was still surprised when he said it was over. He didn't give her a good reason, just the standard, 'It's not you, it's me' line which is just the chicken-shit way of taking no responsibility for the relationship. 
+Kelly hadn't had sex with a man in over a month, and although her large box of toys did the job in theory, it wasn't the same as the intimacy and touch of a man. The heat of a kiss, the warmth of a body on her and the thrill of a cock inside her was not possible to recreate with any toy and she missed it immensely. She had a ferocious sexual appetite and a month felt like an eternity to her. 
 
- Kelly hadn't had sex with a man in over a month, and although her large box of toys did the job in theory, it wasn't the same as the intimacy and touch of a man. The heat of a kiss, the warmth of a body on her and the thrill of a cock inside her was not possible to recreate with any toy and she missed it immensely. She had a ferocious sexual appetite and a month felt like an eternity to her. 
+Thus, the attention from Kelly's younger students was validation of her sexuality as she went through her depressing dry spell. At thirty, the biological clock was just starting to tick, a time bomb reminder that her window for starting a family was slowly getting smaller. 
 
- Thus, the attention from Kelly's younger students was validation of her sexuality as she went through her depressing dry spell. At thirty, the biological clock was just starting to tick, a time bomb reminder that her window for starting a family was slowly getting smaller. 
+She shook her head to erase the sad memory when she arrived at work as if her head was an etch-a-sketch. Putting on her teacher persona, she took a deep breath and headed into school. 
 
- She shook her head to erase the sad memory when she arrived at work as if her head was an etch-a-sketch. Putting on her teacher persona, she took a deep breath and headed into school. 
+..... 
 
- ..... 
+Some woman eat after bad a break-up, others dive into their career, others get revenge, Kelly decided to renovate her basement, slowly attempting to eradicate any evidence of her past. 
 
- Some woman eat after bad a break-up, others dive into their career, others get revenge, Kelly decided to renovate her basement, slowly attempting to eradicate any evidence of her past. 
+Kelly called a local contractor and was to meet with him right after school. A chaotic day at school had her five minutes late for meeting him. She pulled into her driveway and saw a truck waiting for her. 
 
- Kelly called a local contractor and was to meet with him right after school. A chaotic day at school had her five minutes late for meeting him. She pulled into her driveway and saw a truck waiting for her. 
+The pretty teacher quickly got out of the car and walked over to the guy leaning against the side of the truck. She stopped a few feet away. "No way, Chris Gunnerson, is that you?" 
 
- The pretty teacher quickly got out of the car and walked over to the guy leaning against the side of the truck. She stopped a few feet away. "No way, Chris Gunnerson, is that you?" 
+A handsome young man looked up with this trademark smile. "Yes it is, Ms. Anderson, long time, no see." 
 
- A handsome young man looked up with this trademark smile. "Yes it is, Ms. Anderson, long time, no see." 
+"Indeed," Kelly said, walking over and shaking hands with a student she had taught back in her first year of teaching seven years ago. "Well, what a pleasant surprise!" 
 
- "Indeed," Kelly said, walking over and shaking hands with a student she had taught back in her first year of teaching seven years ago. "Well, what a pleasant surprise!" 
+Chris agreed. When he had gotten the call from her, a flood of memories had come flashing back to him as he reminisced about the daily stroke sessions he had back in his senior year. Besides being funny, beautiful and intelligent, she also wore pantyhose every day which was his personal fetish. The amount of times she dangled her heel while sitting on top of her desk had him constantly distracted, his cock constantly hard and his mind constantly creating naughty fantasies. 
 
- Chris agreed. When he had gotten the call from her, a flood of memories had come flashing back to him as he reminisced about the daily stroke sessions he had back in his senior year. Besides being funny, beautiful and intelligent, she also wore pantyhose every day which was his personal fetish. The amount of times she dangled her heel while sitting on top of her desk had him constantly distracted, his cock constantly hard and his mind constantly creating naughty fantasies. 
+Chris flashed back to the most constant fantasy from his past, an after school rendezvous: 
 
- Chris flashed back to the most constant fantasy from his past, an after school rendezvous: 
+"Ms. Hamilton, I just do not understand how the motivation of Hamlet is believable." I said, just finding lame excuses to spend alone time with her, clinging to the long shot that she would be into me. 
 
- "Ms. Hamilton, I just do not understand how the motivation of Hamlet is believable." I said, just finding lame excuses to spend alone time with her, clinging to the long shot that she would be into me. 
+"What exactly do you not understand, Mr. Gunnerson?" she asked, her sweet, girl next door smile making me weak at the knees. I also loved how she always called me Mr., as if we were on the same standing. 
 
- "What exactly do you not understand, Mr. Gunnerson?" she asked, her sweet, girl next door smile making me weak at the knees. I also loved how she always called me Mr., as if we were on the same standing. 
+"Well, he seems unrealistically weak," I explained, which I did believe. 
 
- "Well, he seems unrealistically weak," I explained, which I did believe. 
+"How so?" she asked, playing with her hair the same way girls my age did to hint they were interested in me. 
 
- "How so?" she asked, playing with her hair the same way girls my age did to hint they were interested in me. 
+"W-w-well," I stammered, "If my father was killed I would avenge his death instantly, not mope around like a pus..." I stopped catching myself. 
 
- "W-w-well," I stammered, "If my father was killed I would avenge his death instantly, not mope around like a pus..." I stopped catching myself. 
+"A what?" she teased, her smile widening with a hint of playfulness. 
 
- "A what?" she teased, her smile widening with a hint of playfulness. 
+"A pussy," I finished. 
 
- "A pussy," I finished. 
+"And a pussy would be?" she asked, uncrossing her legs in what felt like slow motion, her skirt riding way up. 
 
- "And a pussy would be?" she asked, uncrossing her legs in what felt like slow motion, her skirt riding way up. 
+I stared like the eighteen year old horny pervert I was, completely mesmerized by her black nylon legs. I gasped as I saw the top of her stockings and realized she was not wearing pantyhose, but thigh high stockings. 
 
- I stared like the eighteen year old horny pervert I was, completely mesmerized by her black nylon legs. I gasped as I saw the top of her stockings and realized she was not wearing pantyhose, but thigh high stockings. 
+"What is wrong, Mr. Gunnerson?" she asked, her smile dripping with knowledge of what she was doing to me. 
 
- "What is wrong, Mr. Gunnerson?" she asked, her smile dripping with knowledge of what she was doing to me. 
+I babbled, "N-n-nothing, I-um-just." 
 
- I babbled, "N-n-nothing, I-um-just." 
+"So if I am correct, you are arguing that Hamlet can't just go ahead and take control of his fate. Is that true, Mr. Gunnerson?" she asked, leaning back, revealing she was wearing a sexy bra. 
 
- "So if I am correct, you are arguing that Hamlet can't just go ahead and take control of his fate. Is that true, Mr. Gunnerson?" she asked, leaning back, revealing she was wearing a sexy bra. 
+"Y-y-yes, exactly, he doesn't go for the kill," I stammered, trying to look intelligent as I blathered on. 
 
- "Y-y-yes, exactly, he doesn't go for the kill," I stammered, trying to look intelligent as I blathered on. 
+"Could you go for the kill, if the opportunity arose?" my pretty teacher asked, now revealing way more of her body than was socially acceptable for a teacher. 
 
- "Could you go for the kill, if the opportunity arose?" my pretty teacher asked, now revealing way more of her body than was socially acceptable for a teacher. 
+"I-I-I..." I stuttered, completely overwhelmed by my teacher's sexual innuendo. 
 
- "I-I-I..." I stuttered, completely overwhelmed by my teacher's sexual innuendo. 
+"Could you take control of your fate?" she continued, as she leaned forward allowing her fluffy white breasts to almost pop out at me like a 3D movie. 
 
- "Could you take control of your fate?" she continued, as she leaned forward allowing her fluffy white breasts to almost pop out at me like a 3D movie. 
+"Y-y-yes," I replied, although I suddenly realized how Hamlet could be so indecisive. The apple was right there, ripe to bite, I could literally taste the juiciness, yet I couldn't open my mouth. 
 
- "Y-y-yes," I replied, although I suddenly realized how Hamlet could be so indecisive. The apple was right there, ripe to bite, I could literally taste the juiciness, yet I couldn't open my mouth. 
+"How long have you been considering, yet not following through, Mr. Gunnerson?" my stocking-clad fantasy teacher asked. "Even though Hamlet took a long time planning, he eventually executed it, didn't he?" 
 
- "How long have you been considering, yet not following through, Mr. Gunnerson?" my stocking-clad fantasy teacher asked. "Even though Hamlet took a long time planning, he eventually executed it, didn't he?" 
+Was she telling me I should take a big bite out of the apple? Was she challenging me to take control of this moment of intimacy? Was she willing to cross the invisible line of teacher and student? 
 
- Was she telling me I should take a big bite out of the apple? Was she challenging me to take control of this moment of intimacy? Was she willing to cross the invisible line of teacher and student? 
+Answering her question, trying to confirm without a doubt that we were talking about the same thing, like Hamlet did before following through with his full throttle revenge, I replied, "Since the first day of class and every day since." 
 
- Answering her question, trying to confirm without a doubt that we were talking about the same thing, like Hamlet did before following through with his full throttle revenge, I replied, "Since the first day of class and every day since." 
+Her smile dripping with sweet sexiness, her tone teasing with flirtatious fun, she challenged, "That is a long time to let things simmer below the surface. You know that is what Hamlet did and that didn't go so well for him did it?" 
 
- Her smile dripping with sweet sexiness, her tone teasing with flirtatious fun, she challenged, "That is a long time to let things simmer below the surface. You know that is what Hamlet did and that didn't go so well for him did it?" 
+"No," I said, frozen in indecisiveness. 
 
- "No," I said, frozen in indecisiveness. 
+"Imagine if Hamlet would have been more aggressive, maybe he could have got everything he wanted, including the girl," Ms. Anderson continued, making it clear she was willing to cross the invisible line, as she leaned back in her chair, putting her feet on her desk and allowing her breasts to break free from their blouse prison. 
 
- "Imagine if Hamlet would have been more aggressive, maybe he could have got everything he wanted, including the girl," Ms. Anderson continued, making it clear she was willing to cross the invisible line, as she leaned back in her chair, putting her feet on her desk and allowing her breasts to break free from their blouse prison. 
+I tried to make a joke. "Well, he did get Ophelia." 
 
- I tried to make a joke. "Well, he did get Ophelia." 
+"He did indeed, and could have had her over and over and over again if he would have been more aggressive in taking what he wanted." 
 
- "He did indeed, and could have had her over and over and over again if he would have been more aggressive in taking what he wanted." 
+Building a bit of confidence I countered, "Ophelia always did what she was told, did she not?" 
 
- Building a bit of confidence I countered, "Ophelia always did what she was told, did she not?" 
+"Yes, she was a very good girl, yet she wanted to be bad," Ms. Anderson retorted, her tone dripping with implication as she stood up and sauntered over to me, her breasts like two headlights coming right at me. 
 
- "Yes, she was a very good girl, yet she wanted to be bad," Ms. Anderson retorted, her tone dripping with implication as she stood up and sauntered over to me, her breasts like two headlights coming right at me. 
+Suddenly confident I wouldn't be rebuked, I replied with a question, "Is Ms. Anderson a lot like Ophelia?" 
 
- Suddenly confident I wouldn't be rebuked, I replied with a question, "Is Ms. Anderson a lot like Ophelia?" 
+"Well I am a good girl," she smiled, her hand going to my fully erect cock. "But, I also can be a very, very bad girl." 
 
- "Well I am a good girl," she smiled, her hand going to my fully erect cock. "But, I also can be a very, very bad girl." 
+Going for broke, I put my hand on her shoulders and gently lowered her onto her black stocking-clad knees. As hoped, she didn't resist but looked at me playfully from her submissive position. "And what does Hamlet want Ophelia to do?" 
 
- Going for broke, I put my hand on her shoulders and gently lowered her onto her black stocking-clad knees. As hoped, she didn't resist but looked at me playfully from her submissive position. "And what does Hamlet want Ophelia to do?" 
+"Pull out my cock, Ms. Anderson," I ordered. 
 
- "Pull out my cock, Ms. Anderson," I ordered. 
+"I love a man who knows what he wants," she smiled, fishing out my cock from my jeans. My fully erect cock ready for action, my English teacher purred, "Hmmmm, you have a very impressive sword, Mr. Gunnerson." 
 
- "I love a man who knows what he wants," she smiled, fishing out my cock from my jeans. My fully erect cock ready for action, my English teacher purred, "Hmmmm, you have a very impressive sword, Mr. Gunnerson." 
+"You know what to do with such an impressive weapon, don't you?" I questioned, my confidence growing. 
 
- "You know what to do with such an impressive weapon, don't you?" I questioned, my confidence growing. 
+"That I do," she purred, opening her mouth and extending her tongue around my cockhead. 
 
- "That I do," she purred, opening her mouth and extending her tongue around my cockhead. 
+Watching my fantasy become reality, I let out a moan as her tongue swirled around, a tempting tease. 
 
- Watching my fantasy become reality, I let out a moan as her tongue swirled around, a tempting tease. 
+"Can you deep throat my sword?" I asked, desperate to see my beautiful teacher bobbing back and forth on my fully loaded weapon. 
 
- "Can you deep throat my sword?" I asked, desperate to see my beautiful teacher bobbing back and forth on my fully loaded weapon. 
+face-full-of-cum02.jpg] 
 
- 
+"Is that a demand?" she smiled, sucking on my mushroom top and slowly moving back, a loud plop occurring as her suction-cup lips released my cock. 
 
- face-full-of-cum02.jpg] 
+"Yes, Ms. Anderson," I said. 
 
- "Is that a demand?" she smiled, sucking on my mushroom top and slowly moving back, a loud plop occurring as her suction-cup lips released my cock. 
+"Tell me, sexy, what do you want your teacher to do?" she asked, slowly flicking her tongue on my cock. 
 
- "Yes, Ms. Anderson," I said. 
+"Be a bad girl, Ms. Anderson and suck my cock like a hungry little slut" I ordered, pushing the boundary with some name-calling. 
 
- "Tell me, sexy, what do you want your teacher to do?" she asked, slowly flicking her tongue on my cock. 
+She looked up at me and asked, "You want your teacher to be your slut?" 
 
- "Be a bad girl, Ms. Anderson and suck my cock like a hungry little slut" I ordered, pushing the boundary with some name-calling. 
+"No," I said, tapping my cock on her lips, "You will be my cocksucking teacher, won't you my teacher slut?" 
 
- She looked up at me and asked, "You want your teacher to be your slut?" 
+She moaned as she agreed by taking all of my cock in her mouth. After the early tease, this time she bobbed on my cock with reckless hunger. I watched in glorified awe at the reality I was living, having my beautiful teacher becoming my personal cocksucker. 
 
- "No," I said, tapping my cock on her lips, "You will be my cocksucking teacher, won't you my teacher slut?" 
+Not surprisingly, I didn't last long as I moaned, "I'm about to come." 
 
- She moaned as she agreed by taking all of my cock in her mouth. After the early tease, this time she bobbed on my cock with reckless hunger. I watched in glorified awe at the reality I was living, having my beautiful teacher becoming my personal cocksucker. 
+face-full-of-cum03.jpg]She pulled my cock out of her mouth and pumped furiously and opened her mouth wide. "Does Hamlet want to come on Ophelia?" 
 
- Not surprisingly, I didn't last long as I moaned, "I'm about to come." 
+"God, yes," I grunted, shooting rope after rope of cum on my kneeling teacher. 
 
- 
+"Oh yes, baby," she moaned, as I coated her beautiful face. 
 
- face-full-of-cum03.jpg]She pulled my cock out of her mouth and pumped furiously and opened her mouth wide. "Does Hamlet want to come on Ophelia?" 
+Once spent, she sat up and looked up at me, our eyes meeting. I couldn't believe I had just shot my load all over my fantasy teacher. Smiling, taking her cum covered glasses off, she naughtily scooped my cum from her glasses and face and slowly put it to her mouth. "Hmmmm," she moaned as if my cum brought her to orgasm...... 
 
- "God, yes," I grunted, shooting rope after rope of cum on my kneeling teacher. 
+"I thought it might be you when we talked on the phone, but I wasn't sure," Chris replied, pushing his recurring high school fantasy aside, even though she looked as radiant and sexy as she did all those years ago. 
 
- "Oh yes, baby," she moaned, as I coated her beautiful face. 
+"Well it is me," Kelly shrugged, as she noticed just how well her ex-student had developed over the years. "Come inside and take a look at what we discussed yesterday on the phone." 
 
- Once spent, she sat up and looked up at me, our eyes meeting. I couldn't believe I had just shot my load all over my fantasy teacher. Smiling, taking her cum covered glasses off, she naughtily scooped my cum from her glasses and face and slowly put it to her mouth. "Hmmmm," she moaned as if my cum brought her to orgasm...... 
+Chris followed behind, watching his ex-teacher's ass sway so perfectly from side to side, being pulled in as if looking at a hypnotist's watch. 
 
- "I thought it might be you when we talked on the phone, but I wasn't sure," Chris replied, pushing his recurring high school fantasy aside, even though she looked as radiant and sexy as she did all those years ago. 
+Once downstairs, Kelly explained what she wanted done. Chris took notes and gave a quick appraisal of the cost. "Ms. Anderson," Chris began. 
 
- "Well it is me," Kelly shrugged, as she noticed just how well her ex-student had developed over the years. "Come inside and take a look at what we discussed yesterday on the phone." 
+"Please call me Kelly," the beautiful teacher replied. 
 
- Chris followed behind, watching his ex-teacher's ass sway so perfectly from side to side, being pulled in as if looking at a hypnotist's watch. 
+"Kelly," Chris continued, "Because you were such an awesome teacher and an inspiration, I will give you my best possible rate." 
 
- Once downstairs, Kelly explained what she wanted done. Chris took notes and gave a quick appraisal of the cost. "Ms. Anderson," Chris began. 
+Kelly smiled, wondering how she could be an inspiration based on her teaching English and him ending up in the trades. "No, no, you don't have to do that." 
 
- "Please call me Kelly," the beautiful teacher replied. 
+"I insist," Chris replied, writing down a number and handing it to her. 
 
- "Kelly," Chris continued, "Because you were such an awesome teacher and an inspiration, I will give you my best possible rate." 
+Kelly looked at the paper and said, "That's it? How are you going to make any money? That is a third of the price our construction teacher suggested it would be." 
 
- Kelly smiled, wondering how she could be an inspiration based on her teaching English and him ending up in the trades. "No, no, you don't have to do that." 
+"Is old Mr. Hammerton still there?" Chris asked, always finding it hilariously ironic that the construction teacher was named Hammerton. 
 
- "I insist," Chris replied, writing down a number and handing it to her. 
+"Yep, it's his last year," Kelly replied. 
 
- Kelly looked at the paper and said, "That's it? How are you going to make any money? That is a third of the price our construction teacher suggested it would be." 
+"Well, he would be correct, but I insist on doing this for you," Chris said. 
 
- "Is old Mr. Hammerton still there?" Chris asked, always finding it hilariously ironic that the construction teacher was named Hammerton. 
+"But you will be doing it practically for free," Kelly countered. 
 
- "Yep, it's his last year," Kelly replied. 
+"No, no, I will still be okay, but at that price I will have to do it in the evenings," Chris explained. 
 
- "Well, he would be correct, but I insist on doing this for you," Chris said. 
+"Well, if you're sure," Kelly said. 
 
- "But you will be doing it practically for free," Kelly countered. 
+"I am." 
 
- "No, no, I will still be okay, but at that price I will have to do it in the evenings," Chris explained. 
+"Then you're hired," Kelly announced, offering her hand. "When can you start?" 
 
- "Well, if you're sure," Kelly said. 
+"Tomorrow if you want," Chris said, eager to see her again and again. By doing it at night it would take longer and she would more likely be home then during the day when she would obviously be at work. 
 
- "I am." 
+"Sounds great," Kelly said. 
 
- "Then you're hired," Kelly announced, offering her hand. "When can you start?" 
+Chris would have liked to stay, but he had another job to estimate. "I would love to catch up, but I have one more estimate for the boss. I will be here around six." 
 
- "Tomorrow if you want," Chris said, eager to see her again and again. By doing it at night it would take longer and she would more likely be home then during the day when she would obviously be at work. 
+"Sure," Kelly agreed, "but don't eat first. I will make you supper before you start working." 
 
- "Sounds great," Kelly said. 
+"You don't have to," Chris said, although he loved the idea. 
 
- Chris would have liked to stay, but he had another job to estimate. "I would love to catch up, but I have one more estimate for the boss. I will be here around six." 
+"I insist," the beautiful teacher replied. "It is the least I can do. Plus, we need to catch up." 
 
- "Sure," Kelly agreed, "but don't eat first. I will make you supper before you start working." 
+Plans made, Kelly hugged Chris goodbye and Chris couldn't help but notice the firm breasts against his chest; likewise, Kelly couldn't help notice the stiff erection that brushed her leg. Both left with just a planted seed of what could be.... 
 
- "You don't have to," Chris said, although he loved the idea. 
+..... 
 
- "I insist," the beautiful teacher replied. "It is the least I can do. Plus, we need to catch up." 
+That night, Kelly lay in bed horny from a lack of sex and the realization of just how hot Chris had become. He was a handsome kid when she taught him, but he had grown into a startlingly rugged man with muscles everywhere. Her hand went to her needy cunt as she fantasized not about Chris, as he was her ex- student and thus off limits, but back to Craig, a college boyfriend, who first saw through her strong façade and pulled out her submissive side. 
 
- Plans made, Kelly hugged Chris goodbye and Chris couldn't help but notice the firm breasts against his chest; likewise, Kelly couldn't help notice the stiff erection that brushed her leg. Both left with just a planted seed of what could be.... 
+Although Kelly was a control freak and a no nonsense teacher with high expectations, she also had another side. The stress of teaching often caused her great tension, and once she got home she wanted to let go. In the bedroom, she was the submissive and her boyfriend the dominant. Although she loved getting fucked, there was nothing better than having a cock in her mouth. She loved the silent power she had when she was on her knees pleasing a man, while, ironically, still subservient to him. Although Craig fucked her sometimes, maybe once a week, (he loved to withhold orgasms from her; even though she was expected to suck his cock daily), he also loved to cum all over her pretty face before allowing her the privilege of tasting his cum. 
 
- ..... 
+As she rubbed herself, she recalled the first time he took control: 
 
- That night, Kelly lay in bed horny from a lack of sex and the realization of just how hot Chris had become. He was a handsome kid when she taught him, but he had grown into a startlingly rugged man with muscles everywhere. Her hand went to her needy cunt as she fantasized not about Chris, as he was her ex- student and thus off limits, but back to Craig, a college boyfriend, who first saw through her strong façade and pulled out her submissive side. 
+"Studying again?" Craig sighed, as he grabbed himself a drink. 
 
- Although Kelly was a control freak and a no nonsense teacher with high expectations, she also had another side. The stress of teaching often caused her great tension, and once she got home she wanted to let go. In the bedroom, she was the submissive and her boyfriend the dominant. Although she loved getting fucked, there was nothing better than having a cock in her mouth. She loved the silent power she had when she was on her knees pleasing a man, while, ironically, still subservient to him. Although Craig fucked her sometimes, maybe once a week, (he loved to withhold orgasms from her; even though she was expected to suck his cock daily), he also loved to cum all over her pretty face before allowing her the privilege of tasting his cum. 
+"I need to get a ninety on this test," I sighed, always annoyed how he didn't understand that I was a perfectionist when it came to my grades. 
 
- As she rubbed herself, she recalled the first time he took control: 
+"Well, dressed like that, it's obvious you're wanting some cock," he said, surprising me. 
 
- "Studying again?" Craig sighed, as he grabbed himself a drink. 
+"Excuse me?" I asked, surprised by his aggressive tone. We had been dating a couple of months, and he had never said anything like that before, although he was a rather blunt person. 
 
- "I need to get a ninety on this test," I sighed, always annoyed how he didn't understand that I was a perfectionist when it came to my grades. 
+"You dress like a slut, I'm going to treat you like a slut," he said. 
 
- "Well, dressed like that, it's obvious you're wanting some cock," he said, surprising me. 
+"I wore the thigh highs for you," I pointed out, knowing he loved the sexy lingerie. 
 
- "Excuse me?" I asked, surprised by his aggressive tone. We had been dating a couple of months, and he had never said anything like that before, although he was a rather blunt person. 
+"Dressing to please, like a good slut," he nodded before ordering me, "Stand up!" 
 
- "You dress like a slut, I'm going to treat you like a slut," he said. 
+Part of me wanted to slap him in the face, yet another part of me was turned on by his dominant behaviour...so I obeyed. 
 
- "I wore the thigh highs for you," I pointed out, knowing he loved the sexy lingerie. 
+He smiled, "I thought so." 
 
- "Dressing to please, like a good slut," he nodded before ordering me, "Stand up!" 
+"You thought so, what?" I asked, his smug tone pissing me off, even as my pussy began to dampen. 
 
- Part of me wanted to slap him in the face, yet another part of me was turned on by his dominant behaviour...so I obeyed. 
+"You're submissive," he accused. 
 
- He smiled, "I thought so." 
+face-full-of-cum04.jpg]"I'm not," I protested. 
 
- "You thought so, what?" I asked, his smug tone pissing me off, even as my pussy began to dampen. 
+"Lift up that skirt and show me that ass of yours," he ordered. 
 
- "You're submissive," he accused. 
+"Really?" I asked. 
 
- 
+"Now!" he firmly demanded. 
 
- face-full-of-cum04.jpg]"I'm not," I protested. 
+I again obeyed. 
 
- "Lift up that skirt and show me that ass of yours," he ordered. 
+"Now look at me," he instructed. 
 
- "Really?" I asked. 
+I did, feeling sheepish, humiliated and horny as hell. 
 
- "Now!" he firmly demanded. 
+"What are you?" he asked. 
 
- I again obeyed. 
+"Your girlfriend," I answered. 
 
- "Now look at me," he instructed. 
+"My slut," he corrected. 
 
- I did, feeling sheepish, humiliated and horny as hell. 
+"Please," I began, but he cut me off. 
 
- "What are you?" he asked. 
+"Thigh highs, no panties, red fuck me heels and a mini skirt," he listed, "you're obviously dressed to please." 
 
- "Your girlfriend," I answered. 
+"Yes, for you, baby," I admitted. 
 
- "My slut," he corrected. 
+"Knees," he ordered. 
 
- "Please," I began, but he cut me off. 
-
- "Thigh highs, no panties, red fuck me heels and a mini skirt," he listed, "you're obviously dressed to please." 
-
- "Yes, for you, baby," I admitted. 
-
- "Knees," he ordered. 
-
- "Here?" I asked, all our fucking so far being in my bedroom, except for a blow job once in his car while he drove.  
-
- 
-
- 
+"Here?" I asked, all our fucking so far being in my bedroom, except for a blow job once in his car while he drove.  
 
 ===
 
 "No, outside," he sarcastically quipped. 
 
- I dropped to my knees. 
+I dropped to my knees. 
 
- "Show me those tits," he continued. 
+"Show me those tits," he continued. 
 
- "These tits?" I smiled, as I unbuttoned my blouse, getting pulled into his sexy game. 
+"These tits?" I smiled, as I unbuttoned my blouse, getting pulled into his sexy game. 
 
- "Good, slut," he nodded, "now tell me what you want, slut." 
+"Good, slut," he nodded, "now tell me what you want, slut." 
 
- I moaned, undeniably turned on, "Hmmmm, baby, I want that big cock of yours." 
+I moaned, undeniably turned on, "Hmmmm, baby, I want that big cock of yours." 
 
- "Now look up like the cock hungry slut you are and give me your best 'I'm a cock hungry slut who wants to be face fucked' expression," he ordered, his words so nasty and yet so true. 
+"Now look up like the cock hungry slut you are and give me your best 'I'm a cock hungry slut who wants to be face fucked' expression," he ordered, his words so nasty and yet so true. 
 
- "You love sucking my cock, don't you?" he said, squeezing his cock through his jeans. 
+"You love sucking my cock, don't you?" he said, squeezing his cock through his jeans. 
 
- "Yes, baby," I purred, my mouth literally watering at the opportunity to have his big, juicy cock in my mouth. 
+"Yes, baby," I purred, my mouth literally watering at the opportunity to have his big, juicy cock in my mouth. 
 
- "Beg, slut," he demanded. 
+"Beg, slut," he demanded. 
 
- I wasn't used to this. Our sex up to now had been borderline dull, but I loved this new side of him. "Oh baby, let me suck your big cock." 
+I wasn't used to this. Our sex up to now had been borderline dull, but I loved this new side of him. "Oh baby, let me suck your big cock." 
 
- "Is that the best you got?" he asked. 
+"Is that the best you got?" he asked. 
 
- Wanting to please him, to impress him, I begged, "Oh baby, let your slutty girlfriend deep throat that cock of yours until you cum all over my face. Or maybe you want to face fuck me so your balls bounce off my chin." 
+Wanting to please him, to impress him, I begged, "Oh baby, let your slutty girlfriend deep throat that cock of yours until you cum all over my face. Or maybe you want to face fuck me so your balls bounce off my chin." 
 
- "That's better, now get to work, I got to meet the boys for a basketball game in a few," he ordered. 
+"That's better, now get to work, I got to meet the boys for a basketball game in a few," he ordered. 
 
- My inner slut awakened, I quickly unfastened his belt and fished out his semi- hard cock. I took it in my mouth and, unlike most times when I went slow and let it grow in my mouth, I sucked him like a slut. I bobbed back and forth, each forward movement taking more of his six and a half inch cock in my mouth. 
+My inner slut awakened, I quickly unfastened his belt and fished out his semi- hard cock. I took it in my mouth and, unlike most times when I went slow and let it grow in my mouth, I sucked him like a slut. I bobbed back and forth, each forward movement taking more of his six and a half inch cock in my mouth. 
 
- He groaned, "That's it, slut, suck it, take it all in those pretty cocksucking lips of yours." 
+He groaned, "That's it, slut, suck it, take it all in those pretty cocksucking lips of yours." 
 
- I moaned on his cock in response, desperately wanting to get him off, to indeed be his slut. 
+I moaned on his cock in response, desperately wanting to get him off, to indeed be his slut. 
 
- It wasn't more than two minutes before he pulled out and ordered, "Open wide." 
+It wasn't more than two minutes before he pulled out and ordered, "Open wide." 
 
- I quickly tossed my glasses aside, getting cum off them always a pain, and opened my mouth ready to taste his cum. In our brief relationship, I had quickly learned his two fetishes were nylons and facials, although apparently calling me names could now be added to his list. 
+I quickly tossed my glasses aside, getting cum off them always a pain, and opened my mouth ready to taste his cum. In our brief relationship, I had quickly learned his two fetishes were nylons and facials, although apparently calling me names could now be added to his list. 
 
- He furiously pumped his beautiful cock, as I began rubbing myself like the orgasm craving slut I had apparently become. 
+He furiously pumped his beautiful cock, as I began rubbing myself like the orgasm craving slut I had apparently become. 
 
- Soon his cum rocketed out of his missile and onto me. The first shot hit me in the eye, before getting some on my lips, chin, neck and tits. 
+Soon his cum rocketed out of his missile and onto me. The first shot hit me in the eye, before getting some on my lips, chin, neck and tits. 
 
- 
+face-full-of-cum05.jpg] 
 
- face-full-of-cum05.jpg] 
+"Lick those lips and let me see how much you love my cum," he ordered. 
 
- "Lick those lips and let me see how much you love my cum," he ordered. 
+I again obeyed, wanting to be his slut. 
 
- I again obeyed, wanting to be his slut. 
+"This is just the beginning," he promised, as he put his cock away. "And no touching that cunt of yours without permission. 
 
- "This is just the beginning," he promised, as he put his cock away. "And no touching that cunt of yours without permission. 
+I immediately stopped, even though my pussy was on fire. 
 
- I immediately stopped, even though my pussy was on fire. 
+"Good, slut," he said, smugly. "Now go back and study, I would hate for you to fail your test." 
 
- "Good, slut," he said, smugly. "Now go back and study, I would hate for you to fail your test." 
+Reluctantly, shocked he was stopping me from having an orgasm, I stood up and obeyed. 
 
- Reluctantly, shocked he was stopping me from having an orgasm, I stood up and obeyed. 
+"Yessssssssssss," Kelly screamed, as her orgasm hit her hard. 
 
- "Yessssssssssss," Kelly screamed, as her orgasm hit her hard. 
+Recovering from her orgasm, she wished she could have a fuck buddy, someone to help her with her cum withdrawal. 
 
- Recovering from her orgasm, she wished she could have a fuck buddy, someone to help her with her cum withdrawal. 
+..... 
 
- ..... 
+It was a long day for Kelly at school; she had to deal with a student who was high as a kite and refusing to admit it. She got home, poured a glass of wine just as there was a knock at the front door. In the chaos that was her day, including an after school meeting with the parents and the police, she had completely forgotten that she had planned to make dinner for her and Chris. She went to the door to let Chris in. 
 
- It was a long day for Kelly at school; she had to deal with a student who was high as a kite and refusing to admit it. She got home, poured a glass of wine just as there was a knock at the front door. In the chaos that was her day, including an after school meeting with the parents and the police, she had completely forgotten that she had planned to make dinner for her and Chris. She went to the door to let Chris in. 
+face-full-of-cum06.jpg]Chris's cock instantly hardened as she was still dressed in her school attire. He loved how she still tended to match her outfits. In a red blouse and matching heels, a short, but not too short, skirt, and tan nylons she looked amazing. He complimented, "You look very nice, Ms. Anderson." 
 
- 
+"It's just Kelly," she smiled, before adding, "and thank you." 
 
- face-full-of-cum06.jpg]Chris's cock instantly hardened as she was still dressed in her school attire. He loved how she still tended to match her outfits. In a red blouse and matching heels, a short, but not too short, skirt, and tan nylons she looked amazing. He complimented, "You look very nice, Ms. Anderson." 
+Chris followed her into the kitchen where she continued, "I'm so sorry, but I had a crazy day at school and just got home." 
 
- "It's just Kelly," she smiled, before adding, "and thank you." 
+"No worries," Chris shrugged, as he tried not to stare at her long nylon-clad legs. 
 
- Chris followed her into the kitchen where she continued, "I'm so sorry, but I had a crazy day at school and just got home." 
+"I'll order something," Kelly said, noticing that Chris was checking out her legs. 
 
- "No worries," Chris shrugged, as he tried not to stare at her long nylon-clad legs. 
+"Sure," Chris nodded, "I'll go and bring in my supplies and tools." 
 
- "I'll order something," Kelly said, noticing that Chris was checking out her legs. 
+"Pizza?" Kelly asked. 
 
- "Sure," Chris nodded, "I'll go and bring in my supplies and tools." 
+"Sure," Chris agreed. 
 
- "Pizza?" Kelly asked. 
+"What kind do you like?" Kelly asked, realizing just how good looking Chris had become. 
 
- "Sure," Chris agreed. 
+"Whatever you like," Chris replied, taking one last long gaze at his ex- teacher's perfect legs. 
 
- "What kind do you like?" Kelly asked, realizing just how good looking Chris had become. 
+Kelly ordered food and decided to stay in her teacher attire somehow liking the impact it was having on Chris. Although she wasn't considering doing anything with Chris, he was still an ex-student, it felt good to have someone checking her out. 
 
- "Whatever you like," Chris replied, taking one last long gaze at his ex- teacher's perfect legs. 
+Once the pizza arrived, and they were sitting at the table, they caught up. Kelly felt incredibly comfortable talking with him and surprisingly divulged way more information than necessary about the end of her relationship with Ben. 
 
- Kelly ordered food and decided to stay in her teacher attire somehow liking the impact it was having on Chris. Although she wasn't considering doing anything with Chris, he was still an ex-student, it felt good to have someone checking her out. 
+Chris, meanwhile, listened intently, learning early on that compliments and listening were two of the biggest keys to getting a woman in bed. And although he didn't think the odds were in his favour, the possibility was there. Thankfully, he couldn't see her nylon legs under the table so he wasn't distracted. 
 
- Once the pizza arrived, and they were sitting at the table, they caught up. Kelly felt incredibly comfortable talking with him and surprisingly divulged way more information than necessary about the end of her relationship with Ben. 
+Kelly had finished two glasses of wine since she got home, and was feeling slightly tipsy, which also meant slightly horny. The more she talked with Chris, the more she saw him as a man and not a boy and she pondered what he would look like naked. 
 
- Chris, meanwhile, listened intently, learning early on that compliments and listening were two of the biggest keys to getting a woman in bed. And although he didn't think the odds were in his favour, the possibility was there. Thankfully, he couldn't see her nylon legs under the table so he wasn't distracted. 
+"Well, I suppose I should get back to work," Chris said, after the forty-five minute meal and visit. 
 
- Kelly had finished two glasses of wine since she got home, and was feeling slightly tipsy, which also meant slightly horny. The more she talked with Chris, the more she saw him as a man and not a boy and she pondered what he would look like naked. 
+"And I should probably go have a shower and get out of my work clothes," she said, standing up and deciding to show off her legs one more time...getting excited at the thought of teasing him. 
 
- "Well, I suppose I should get back to work," Chris said, after the forty-five minute meal and visit. 
+Chris, watched her walk to the sink with her plate, his cock instantly rising at just a quick glimpse of Kelly's nylon covered legs. 
 
- "And I should probably go have a shower and get out of my work clothes," she said, standing up and deciding to show off her legs one more time...getting excited at the thought of teasing him. 
+Chris slyly adjusted himself before standing up, thanking her and heading downstairs wondering if there was any chance of bedding his beautiful ex- teacher. 
 
- Chris, watched her walk to the sink with her plate, his cock instantly rising at just a quick glimpse of Kelly's nylon covered legs. 
+Kelly, tipsy and horny, went to her washroom, locked the door, undressed and got in the shower. Deciding she needed to get off, her thoughts of Chris beginning to get very inappropriate, she grabbed her shower head and, as she often did in the shower, she used the massage head as a pleasure toy. Closing her eyes, she fantasized this evening going a little differently. 
 
- Chris slyly adjusted himself before standing up, thanking her and heading downstairs wondering if there was any chance of bedding his beautiful ex- teacher. 
+"I'll order something," I said, noticing that Chris was checking out my legs. 
 
- Kelly, tipsy and horny, went to her washroom, locked the door, undressed and got in the shower. Deciding she needed to get off, her thoughts of Chris beginning to get very inappropriate, she grabbed her shower head and, as she often did in the shower, she used the massage head as a pleasure toy. Closing her eyes, she fantasized this evening going a little differently. 
+"Actually, what I want is already here," Chris said with a confident tone. 
 
- "I'll order something," I said, noticing that Chris was checking out my legs. 
+"What's that?" I asked, acting confused. 
 
- "Actually, what I want is already here," Chris said with a confident tone. 
+Walking to me, he leaned in and whispered, "You," before kissing me. 
 
- "What's that?" I asked, acting confused. 
+I was shocked and yet his kiss sent sparks throughout my entire body, particularly my long neglected pussy. After a brief delay, I began returning the kiss with a lustful passion. 
 
- Walking to me, he leaned in and whispered, "You," before kissing me. 
+Breaking the kiss, he ordered, "Now show me those tits you have flaunted all these years." 
 
- I was shocked and yet his kiss sent sparks throughout my entire body, particularly my long neglected pussy. After a brief delay, I began returning the kiss with a lustful passion. 
+"I didn't flaunt them," I protested. 
 
- Breaking the kiss, he ordered, "Now show me those tits you have flaunted all these years." 
+"Now," he ordered, his tone suddenly firm. 
 
- "I didn't flaunt them," I protested. 
+I again protested, this time weaker, my pussy wet by his words, "But you're a student." 
 
- "Now," he ordered, his tone suddenly firm. 
+"I was a student," he corrected, "and now you're my slut." 
 
- I again protested, this time weaker, my pussy wet by his words, "But you're a student." 
+"Chris!" I gasped, at being called a slut. 
 
- "I was a student," he corrected, "and now you're my slut." 
+"Stop feigning shock," Chris said, "I know you want my cock and I know you are a hungry slut dying to be treated as such. Now, show me your tits." 
 
- "Chris!" I gasped, at being called a slut. 
+face-full-of-cum07.jpg]Turned on by his strong persona, I unbuttoned my blouse. 
 
- "Stop feigning shock," Chris said, "I know you want my cock and I know you are a hungry slut dying to be treated as such. Now, show me your tits." 
+"Now pull those titties out," he ordered. 
 
- 
+I did, my pussy on fire at obeying him. "Now bend over and show me those titties you want me to suck." 
 
- face-full-of-cum07.jpg]Turned on by his strong persona, I unbuttoned my blouse. 
+Suddenly wanting to please him, I smiled, bent over cupping my tits and asked, "Is this what you fantasized about all these years?" 
 
- "Now pull those titties out," he ordered. 
+"Fuck, yes," he groaned, having the exact impact I hoped to have when I asked the question. 
 
- I did, my pussy on fire at obeying him. "Now bend over and show me those titties you want me to suck." 
+He moved to me, pushed me back and buried his head in my tits. He sucked and nibbled, aggressively mauling my tits. My nipples super sensitive, each rough tug on my nipples sent pleasure throughout my body and made my panties damp. 
 
- Suddenly wanting to please him, I smiled, bent over cupping my tits and asked, "Is this what you fantasized about all these years?" 
+"Oh yes, suck on my tits," I moaned, as I kicked my heels off. 
 
- "Fuck, yes," he groaned, having the exact impact I hoped to have when I asked the question. 
+He put his hands on my shoulders and guided me to my knees. I didn't need instructions as I pulled his pants down quickly, tugged his boxers to his knees and gasped at his eight inch cock. 
 
- He moved to me, pushed me back and buried his head in my tits. He sucked and nibbled, aggressively mauling my tits. My nipples super sensitive, each rough tug on my nipples sent pleasure throughout my body and made my panties damp. 
+"Think you can deep-throat this?" he asked. 
 
- "Oh yes, suck on my tits," I moaned, as I kicked my heels off. 
+I looked up, smiled and, without a word, took all eight inches in my mouth. I bobbed like a hungry slut, suddenly craving cum. 
 
- He put his hands on my shoulders and guided me to my knees. I didn't need instructions as I pulled his pants down quickly, tugged his boxers to his knees and gasped at his eight inch cock. 
+He groaned, "You're just as dirty and hot as I hoped." 
 
- "Think you can deep-throat this?" he asked. 
+I moaned on his cock as I continued taking all eight inches in my mouth and down my throat. 
 
- I looked up, smiled and, without a word, took all eight inches in my mouth. I bobbed like a hungry slut, suddenly craving cum. 
+"Want to get fucked, my teacher slut," he asked. 
 
- He groaned, "You're just as dirty and hot as I hoped." 
+I took his cock out of my mouth and replied, "God, yes, I want that big cock in me." 
 
- I moaned on his cock as I continued taking all eight inches in my mouth and down my throat. 
+He pulled me up, turned me around, pulled up my skirt, tugged down my panties, bent me over and slid easily into my inferno. 
 
- "Want to get fucked, my teacher slut," he asked. 
+"Fuuuuuuck," I screamed, as all eight inches filled me completely, his being the first cock inside me in months. 
 
- I took his cock out of my mouth and replied, "God, yes, I want that big cock in me." 
+He held onto my hips and slammed into me hard, each deep thrust seemingly going deeper. 
 
- He pulled me up, turned me around, pulled up my skirt, tugged down my panties, bent me over and slid easily into my inferno. 
+"Oh, God, fuck me," I screamed. 
 
- "Fuuuuuuck," I screamed, as all eight inches filled me completely, his being the first cock inside me in months. 
+"Fuck you're tight," he grunted, as he continued fucking me. 
 
- He held onto my hips and slammed into me hard, each deep thrust seemingly going deeper. 
+"Your cock feels so fucking good," I moaned, not wanting this amazing feeling to end. 
 
- "Oh, God, fuck me," I screamed. 
+"I've wanted to fuck you since the first day of senior year," he said, as his cock slid out of me. 
 
- "Fuck you're tight," he grunted, as he continued fucking me. 
+"Nooo," I whined, "shove that big snake back in me." 
 
- "Your cock feels so fucking good," I moaned, not wanting this amazing feeling to end. 
+He laughed, "You're even more insatiable than I imagined," before filling my cunt again. 
 
- "I've wanted to fuck you since the first day of senior year," he said, as his cock slid out of me. 
+"Just pound your teacher," I demanded, loving his big cock and dominant behaviour. 
 
- "Nooo," I whined, "shove that big snake back in me." 
+"Lift your right leg up," he ordered. 
 
- He laughed, "You're even more insatiable than I imagined," before filling my cunt again. 
+I obeyed, curious, as he grabbed my ankle and continued fucking me. 
 
- "Just pound your teacher," I demanded, loving his big cock and dominant behaviour. 
+"Oh, Goddddddddddddddddd," I screamed, as this new position caused a new pleasure to course through my entire body. 
 
- "Lift your right leg up," he ordered. 
+"I want you to come on my cock, teacher slut," he demanded, as my breathing got heavier. 
 
- I obeyed, curious, as he grabbed my ankle and continued fucking me. 
+"Sooooo close," I moaned, as he hammered into me. 
 
- "Oh, Goddddddddddddddddd," I screamed, as this new position caused a new pleasure to course through my entire body. 
+"Come now, slut," he demanded, lifting my leg higher. 
 
- "I want you to come on my cock, teacher slut," he demanded, as my breathing got heavier. 
+"Oh God, fuck, yessssss," I screamed, as my long withheld orgasm cascaded through me. 
 
- "Sooooo close," I moaned, as he hammered into me. 
+"Good teacher slut," he complimented, as he continued fucking me throughout my orgasm. 
 
- "Come now, slut," he demanded, lifting my leg higher. 
+"Shiiiiiit, fucccck," I babbled incoherently, as the intensity of the orgasm continued to riddle through me. 
 
- "Oh God, fuck, yessssss," I screamed, as my long withheld orgasm cascaded through me. 
+Suddenly he pulled out, pushed me back onto my knees and shoved his cock in my mouth. I resumed bobbing hungrily, desperate to get him off and taste his cum. 
 
- "Good teacher slut," he complimented, as he continued fucking me throughout my orgasm. 
+"I'm going to come all over your pretty face," he declared, as I continued slobbering all over his stiff rod. 
 
- "Shiiiiiit, fucccck," I babbled incoherently, as the intensity of the orgasm continued to riddle through me. 
+A moment later, he pulled out and pumped his cock as I opened wide for his sweet cum. 
 
- Suddenly he pulled out, pushed me back onto my knees and shoved his cock in my mouth. I resumed bobbing hungrily, desperate to get him off and taste his cum. 
+"Close your mouth, slut," he ordered, "I want all my cum on you." 
 
- "I'm going to come all over your pretty face," he declared, as I continued slobbering all over his stiff rod. 
+"You're a dirty boy," I teased, as I obeyed. 
 
- A moment later, he pulled out and pumped his cock as I opened wide for his sweet cum. 
+face-full-of-cum08.jpg] 
 
- "Close your mouth, slut," he ordered, "I want all my cum on you." 
+Seconds later, a laser beam of cum hit me on my lips. A second stream also hit my lips, before a third stream landed on my tits and blouse. 
 
- "You're a dirty boy," I teased, as I obeyed. 
+Looking up at him, I attempted to seductively retrieve the cum on my lips. 
 
- 
+"Fuuuuuuuuuck," Kelly screamed, as she held the shower head on her clit as her orgasm hit her. 
 
- face-full-of-cum08.jpg] 
+Once her orgasm finally finished, she shook her head at how vivid and real her fantasy had been. Would she actually fuck Chris if the opportunity arose? He was an ex-student, but clearly an adult now, a very sexy adult. She finished showering, her head spinning with a mixture of emotions. 
 
- Seconds later, a laser beam of cum hit me on my lips. A second stream also hit my lips, before a third stream landed on my tits and blouse. 
+..... 
 
- Looking up at him, I attempted to seductively retrieve the cum on my lips. 
+Chris, meanwhile, worked until ten before heading home. 
 
- "Fuuuuuuuuuck," Kelly screamed, as she held the shower head on her clit as her orgasm hit her. 
+Chris replayed the day, the very subtle hints she may be interested. The honest, detailed account of her ex-boyfriend's nasty break-up and the brief looks she seemed to give him implied she may be interested. Yet, after dinner she never came downstairs, never came to check on him, which implied maybe she wasn't. 
 
- Once her orgasm finally finished, she shook her head at how vivid and real her fantasy had been. Would she actually fuck Chris if the opportunity arose? He was an ex-student, but clearly an adult now, a very sexy adult. She finished showering, her head spinning with a mixture of emotions. 
+Either way, as soon as Chris was in the shower, he began pumping his cock imagining fucking Kelly. 
 
- ..... 
+He remembered a day near the end of the school year where she kept dangling her shoe from her black stocking-clad feet. He kept waiting for the shoe to hit the floor, so he could see her toes and foot, but it never fell. As he kept stroking his cock, he imagined her in black thigh highs posing for him, like he always felt she was doing when she teased him relentlessly in high school, even if she didn't know it. 
 
- Chris, meanwhile, worked until ten before heading home. 
+Imagining her bent over, posing for him, he furiously pumped his cock. It took only a few strokes before his cum shot out of his cock as he imagined coming all over her ass, her face, and her feet. The possibilities were endless...yet at the moment that was all they were...possibilities. 
 
- Chris replayed the day, the very subtle hints she may be interested. The honest, detailed account of her ex-boyfriend's nasty break-up and the brief looks she seemed to give him implied she may be interested. Yet, after dinner she never came downstairs, never came to check on him, which implied maybe she wasn't. 
+..... 
 
- Either way, as soon as Chris was in the shower, he began pumping his cock imagining fucking Kelly. 
+The next day, Kelly had parent-teacher interviews and didn't get home until late. Although exhausted, parent-teacher interview nights always being long and tiring, she checked on Chris when she got home. She felt another tingle down below when she walked downstairs and saw Chris working without a shirt. His upper body was Adonis like and Kelly briefly imagined what it would be like to ride him while her hands were on his chest. 
 
- He remembered a day near the end of the school year where she kept dangling her shoe from her black stocking-clad feet. He kept waiting for the shoe to hit the floor, so he could see her toes and foot, but it never fell. As he kept stroking his cock, he imagined her in black thigh highs posing for him, like he always felt she was doing when she teased him relentlessly in high school, even if she didn't know it. 
+Yet, after some brief small talk, Kelly went upstairs for a long bubble bath and a glass of wine, deciding that she had to behave herself. 
 
- Imagining her bent over, posing for him, he furiously pumped his cock. It took only a few strokes before his cum shot out of his cock as he imagined coming all over her ass, her face, and her feet. The possibilities were endless...yet at the moment that was all they were...possibilities. 
+Chris watched her walk upstairs, noticing her reaction to him shirtless. He smiled, thinking that if he played his cards right he just may get her yet. 
 
- ..... 
+..... 
 
- The next day, Kelly had parent-teacher interviews and didn't get home until late. Although exhausted, parent-teacher interview nights always being long and tiring, she checked on Chris when she got home. She felt another tingle down below when she walked downstairs and saw Chris working without a shirt. His upper body was Adonis like and Kelly briefly imagined what it would be like to ride him while her hands were on his chest. 
+Things calmed down after that and it wasn't until the following week that the sexual tension increased. Kelly was reading on the couch, again staying in her teacher attire, liking the impact it seemed to have on Chris, when he came upstairs for a glass of water. 
 
- Yet, after some brief small talk, Kelly went upstairs for a long bubble bath and a glass of wine, deciding that she had to behave herself. 
+Chris walked in and asked, "Are you planning on having your television downstairs on the wall or on a TV stand?" 
 
- Chris watched her walk upstairs, noticing her reaction to him shirtless. He smiled, thinking that if he played his cards right he just may get her yet. 
+"What do you think?" Kelly asked. 
 
- ..... 
+Chris glanced down and saw her perfectly pedicured feet and got distracted, finally seeing what her feet without heels looked like after all these years. He stammered, distracted, "Well, I, um, the wall gives you more space." 
 
- Things calmed down after that and it wasn't until the following week that the sexual tension increased. Kelly was reading on the couch, again staying in her teacher attire, liking the impact it seemed to have on Chris, when he came upstairs for a glass of water. 
+Kelly noticed Chris's distraction, and uncrossed her legs and crossed them the other way. "Well, you're the expert." 
 
- Chris walked in and asked, "Are you planning on having your television downstairs on the wall or on a TV stand?" 
+"What're you reading?" Chris asked, wanting to extend his brief time with her. 
 
- "What do you think?" Kelly asked. 
+"A Nicholas Sparks book," Kelly admitted. 
 
- Chris glanced down and saw her perfectly pedicured feet and got distracted, finally seeing what her feet without heels looked like after all these years. He stammered, distracted, "Well, I, um, the wall gives you more space." 
+"I expected more from you," Chris joked. 
 
- Kelly noticed Chris's distraction, and uncrossed her legs and crossed them the other way. "Well, you're the expert." 
+"What? He writes great romances," Kelly said, always wanting to find such an unconditional love. 
 
- "What're you reading?" Chris asked, wanting to extend his brief time with her. 
+"If you say so," Chris smiled. 
 
- "A Nicholas Sparks book," Kelly admitted. 
+"Have you ever read any of his books?" Kelly asked, wiggling her toes. 
 
- "I expected more from you," Chris joked. 
+"Um," Chris began, again distracted, "No, I can't say I have. But I was forced to watch that Miley Cyrus one." 
 
- "What? He writes great romances," Kelly said, always wanting to find such an unconditional love. 
+"Well, that doesn't count," Kelly said, "that was a terrible adaptation. You need to watch A Walk to Remember or The Notebook." 
 
- "If you say so," Chris smiled. 
+"I'm not sure 'need' is the right word," Chris joked. 
 
- "Have you ever read any of his books?" Kelly asked, wiggling her toes. 
+"That's it," Kelly said, standing up. "You are taking a break from work and watching a movie with me." 
 
- "Um," Chris began, again distracted, "No, I can't say I have. But I was forced to watch that Miley Cyrus one." 
+"Seriously?" Chris asked, although he was definitely game. Watching a chick flick with a woman often led to action. 
 
- "Well, that doesn't count," Kelly said, "that was a terrible adaptation. You need to watch A Walk to Remember or The Notebook." 
+"Yes," she said, grabbing a DVD from the shelf and putting it in her DVD player. She sat back down and said, patting the couch, "Come join me." 
 
- "I'm not sure 'need' is the right word," Chris joked. 
+"All right," Chris shrugged, before pointing out, "but this isn't helping get your basement done." 
 
- "That's it," Kelly said, standing up. "You are taking a break from work and watching a movie with me." 
+"Sometimes there are more important things, like expanding a man's horizons," Kelly said, wondering if she was doing the right thing. He may think that this was an opening to something more than just watching a movie. 
 
- "Seriously?" Chris asked, although he was definitely game. Watching a chick flick with a woman often led to action. 
+Chris sat beside her and said, "So what crap are you making me watch?" 
 
- "Yes," she said, grabbing a DVD from the shelf and putting it in her DVD player. She sat back down and said, patting the couch, "Come join me." 
+"You haven't changed a bit," Kelly said, slapping his knee. 
 
- "All right," Chris shrugged, before pointing out, "but this isn't helping get your basement done." 
+"Tough to mess with perfection," Chris shrugged, acting confident like he usually was with women, even as he glanced at her nylon-clad knee just inches away from him. 
 
- "Sometimes there are more important things, like expanding a man's horizons," Kelly said, wondering if she was doing the right thing. He may think that this was an opening to something more than just watching a movie. 
+"And still overly confident, I see," Kelly smiled, before adding, "I like that." As soon as she said it, she wondered why she had. There was no doubt she found Chris hot, no doubt that he made her feel like a school girl, and no doubt that the temptation to sleep with him was growing. 
 
- Chris sat beside her and said, "So what crap are you making me watch?" 
+"Good to know," Chris responded with a nod, sensing that their relationship was beginning to change. 
 
- "You haven't changed a bit," Kelly said, slapping his knee. 
+The movie started and they watched it. Part way through, Chris, who had spent more time glancing at her nylon legs than the movie, began to daydream, imagining what might happen if he took the risk. He sensed she was submissive, even though he couldn't explain why he sensed it, and felt if he just took control of the situation he could have her. 
 
- "Tough to mess with perfection," Chris shrugged, acting confident like he usually was with women, even as he glanced at her nylon-clad knee just inches away from him. 
+"You want my cock, don't you, Ms. Anderson?" I asked, sitting on the couch. 
 
- "And still overly confident, I see," Kelly smiled, before adding, "I like that." As soon as she said it, she wondered why she had. There was no doubt she found Chris hot, no doubt that he made her feel like a school girl, and no doubt that the temptation to sleep with him was growing. 
+She was standing up, having put the movie in, and smiled, not denying it, "And what makes you think that?" 
 
- "Good to know," Chris responded with a nod, sensing that their relationship was beginning to change. 
+face-full-of-cum09.jpg]"Well, first, you didn't deny it when I just asked the question and secondly, you keep staring at my crotch," I confidently assessed. 
 
- The movie started and they watched it. Part way through, Chris, who had spent more time glancing at her nylon legs than the movie, began to daydream, imagining what might happen if he took the risk. He sensed she was submissive, even though he couldn't explain why he sensed it, and felt if he just took control of the situation he could have her. 
+"Maybe I just don't want to hurt your feelings," she countered. 
 
- "You want my cock, don't you, Ms. Anderson?" I asked, sitting on the couch. 
-
- She was standing up, having put the movie in, and smiled, not denying it, "And what makes you think that?" 
-
- 
-
- face-full-of-cum09.jpg]"Well, first, you didn't deny it when I just asked the question and secondly, you keep staring at my crotch," I confidently assessed. 
-
- "Maybe I just don't want to hurt your feelings," she countered. 
-
- "And the staring at my crotch?" I asked.  
-
- 
-
- 
+"And the staring at my crotch?" I asked.  
 
 ===
 
 "Maybe you're imagining that," she said. 
 
- "Crawl to me," I demanded, pulling out my already stiff cock. 
+"Crawl to me," I demanded, pulling out my already stiff cock. 
 
- "That's rather pretentious," she said, even as she stared at my eight inch cock. 
+"That's rather pretentious," she said, even as she stared at my eight inch cock. 
 
- "Now, Ms. Anderson," I ordered. 
+"Now, Ms. Anderson," I ordered. 
 
- After a brief hesitation, she obeyed, kneeling on the ottoman to take her glasses off. 
+After a brief hesitation, she obeyed, kneeling on the ottoman to take her glasses off. 
 
- "Keep them on," I ordered, "you look super-hot in glasses." 
+"Keep them on," I ordered, "you look super-hot in glasses." 
 
- "Okay," she shrugged. 
+"Okay," she shrugged. 
 
- "Go ahead, Ms. Anderson, suck my cock," I instructed. 
+"Go ahead, Ms. Anderson, suck my cock," I instructed. 
 
- "You want your old teacher to blow you?" she asked, smiling as her hand grabbed my cock. 
+"You want your old teacher to blow you?" she asked, smiling as her hand grabbed my cock. 
 
- "No, I want my hot teacher to beg to suck my cock," I countered. 
+"No, I want my hot teacher to beg to suck my cock," I countered. 
 
- "You bad boy," she smiled, as she stroked my cock. 
+"You bad boy," she smiled, as she stroked my cock. 
 
- "Beg," I ordered. 
+"Beg," I ordered. 
 
- "Oh please, Chris, can I suck your big hard cock?" she said hungrily. 
+"Oh please, Chris, can I suck your big hard cock?" she said hungrily. 
 
- I grabbed her head and guided her to my cock. I moaned as she engulfed my cock, slowly taking me in. 
+I grabbed her head and guided her to my cock. I moaned as she engulfed my cock, slowly taking me in. 
 
- She slowly bobbed up and down, making love to my cock. 
+She slowly bobbed up and down, making love to my cock. 
 
- 
+face-full-of-cum10.jpg] 
 
- face-full-of-cum10.jpg] 
+After a few minutes of this, I stood up, ordered her onto her knees, and began slowly fucking her face. She moaned on my cock as I took control, so I began moving faster, really fucking her face. She made loud slobbering sounds as she tried her best to continue sucking me as I used her face. Finally I pulled out and before she could even react I began coming all over her face. 
 
- After a few minutes of this, I stood up, ordered her onto her knees, and began slowly fucking her face. She moaned on my cock as I took control, so I began moving faster, really fucking her face. She made loud slobbering sounds as she tried her best to continue sucking me as I used her face. Finally I pulled out and before she could even react I began coming all over her face. 
+I hit her glasses, mouth, cheek and chin and was surprised when she looked up and said, "You could have just shot your load down my throat." 
 
- I hit her glasses, mouth, cheek and chin and was surprised when she looked up and said, "You could have just shot your load down my throat." 
+"Next time," I smiled. 
 
- "Next time," I smiled. 
+Kelly noticed that Chris wasn't really watching the movie; she also noticed a significant bulge in his pants and wondered what he was thinking about. She said, "See, isn't that sweet?" 
 
- Kelly noticed that Chris wasn't really watching the movie; she also noticed a significant bulge in his pants and wondered what he was thinking about. She said, "See, isn't that sweet?" 
+"W-what is sweet?" Chris stammered, pulled out his daydream as he returned his gaze to the television. 
 
- "W-what is sweet?" Chris stammered, pulled out his daydream as he returned his gaze to the television. 
+"He made one of her bucket list items come true," Kelly said, always finding the scene sweet. 
 
- "He made one of her bucket list items come true," Kelly said, always finding the scene sweet. 
+Chris watched just as the Mandy Moore character straddled two states at once. "That's corny," he said. 
 
- Chris watched just as the Mandy Moore character straddled two states at once. "That's corny," he said. 
+"You cold hearted bastard," Kelly quipped, again playfully hitting him. 
 
- "You cold hearted bastard," Kelly quipped, again playfully hitting him. 
+Chris slapped her leg back, getting a brief feel of her silky legs, "You romantic fool." 
 
- Chris slapped her leg back, getting a brief feel of her silky legs, "You romantic fool." 
+"We all need romance sometimes," Kelly pointed out, before adding, again saying it before she realized she had, "of course, other times we all need to just get laid." 
 
- "We all need romance sometimes," Kelly pointed out, before adding, again saying it before she realized she had, "of course, other times we all need to just get laid." 
+Chris couldn't believe she had said that. This was definitely an opening, but just before he could take advantage of it, she hastily stood up and asked, "Would you like a drink?" 
 
- Chris couldn't believe she had said that. This was definitely an opening, but just before he could take advantage of it, she hastily stood up and asked, "Would you like a drink?" 
+Chris considered replying, 'Yes, your pussy juice would be fine,' but instead answered, realizing the moment was gone as quick as it had come, "Actually, I should probably get back to work." 
 
- Chris considered replying, 'Yes, your pussy juice would be fine,' but instead answered, realizing the moment was gone as quick as it had come, "Actually, I should probably get back to work." 
+"Oh, okay," Kelly said, confused by her mixed emotions. Part of her wanted to just straddle him on the couch, while another part of her kept reminding herself that he was an ex-student...a hot ex-student, but still an ex-student. 
 
- "Oh, okay," Kelly said, confused by her mixed emotions. Part of her wanted to just straddle him on the couch, while another part of her kept reminding herself that he was an ex-student...a hot ex-student, but still an ex-student. 
+Chris worked for another hour, his balls ready to burst, while Kelly went up to her room and used her we-vibe to get herself off, again fantasizing of Chris just taking her. She knew if he made a move, she wouldn't resist. She wanted him; she wanted to get laid; she wanted to suck cock. 
 
- Chris worked for another hour, his balls ready to burst, while Kelly went up to her room and used her we-vibe to get herself off, again fantasizing of Chris just taking her. She knew if he made a move, she wouldn't resist. She wanted him; she wanted to get laid; she wanted to suck cock. 
+As she went to bed that night, Kelly decided that if he made a move, she would give in. They were both adults and he hadn't been a student of hers for years. And fuck...he was hot. 
 
- As she went to bed that night, Kelly decided that if he made a move, she would give in. They were both adults and he hadn't been a student of hers for years. And fuck...he was hot. 
+..... 
 
- ..... 
+face-full-of-cum11.jpg]Unfortunately for Kelly, Chris didn't make a move. He had felt that the abrupt end to the night they watched a movie was a pretty clear sign that she wasn't interested. Yet for the next couple of weeks, Kelly continued to dress sexier and sexier, even getting home from school and switching into even shorter skirts that revealed she was wearing thigh high stockings in an attempt to add to her allure, her sex appeal and, according to Ben back in the day, to give her man easier access to her fuck hole (his words). 
 
- 
+Kelly was getting more and more frustrated with the reality that her obvious signs of willingness were being ignored. 
 
- face-full-of-cum11.jpg]Unfortunately for Kelly, Chris didn't make a move. He had felt that the abrupt end to the night they watched a movie was a pretty clear sign that she wasn't interested. Yet for the next couple of weeks, Kelly continued to dress sexier and sexier, even getting home from school and switching into even shorter skirts that revealed she was wearing thigh high stockings in an attempt to add to her allure, her sex appeal and, according to Ben back in the day, to give her man easier access to her fuck hole (his words). 
+Finally, after two weeks of flirting and innuendo, Kelly decided that she would make the first move. It was only a few minutes after Chris arrived, that she called him upstairs. "Chris, can you come upstairs and give me a hand in my office." 
 
- Kelly was getting more and more frustrated with the reality that her obvious signs of willingness were being ignored. 
+Chris called out, "Sure, give me a minute." Chris had noticed that ever since the movie night, Kelly had been dressing sexier, always stayed in nylons, and had complimented him often. Yet, instead of taking the many windows of opportunity that had been presented, he continued to resist the temptation, not wanting to risk being wrong. He was greatly enjoying their talks and subtle flirtation, and was planning to ask her out on a date for this weekend. She loved blues music and a three day blues festival was starting in a couple days. He was confident she would say yes, yet this was a low risk attempt to move their relationship forward. If she wasn't interested in an intimate relationship, he would play the friends card. Yet, he hoped he had read all the signs correctly, as he was falling for her hard. 
 
- Finally, after two weeks of flirting and innuendo, Kelly decided that she would make the first move. It was only a few minutes after Chris arrived, that she called him upstairs. "Chris, can you come upstairs and give me a hand in my office." 
+Unfortunately, one minute became five as Chris finished the task he had started. 
 
- Chris called out, "Sure, give me a minute." Chris had noticed that ever since the movie night, Kelly had been dressing sexier, always stayed in nylons, and had complimented him often. Yet, instead of taking the many windows of opportunity that had been presented, he continued to resist the temptation, not wanting to risk being wrong. He was greatly enjoying their talks and subtle flirtation, and was planning to ask her out on a date for this weekend. She loved blues music and a three day blues festival was starting in a couple days. He was confident she would say yes, yet this was a low risk attempt to move their relationship forward. If she wasn't interested in an intimate relationship, he would play the friends card. Yet, he hoped he had read all the signs correctly, as he was falling for her hard. 
+face-full-of-cum12.jpg]Kelly was frustrated at waiting, her bold confidence when she called him up, getting weaker with each passing minute. She desperately wanted to get laid, yet she didn't want to look desperate. She felt like she was a teenager again, waiting for a boy to call. She knew he was interested, that was obvious, yet he wasn't making the move a teenage boy would make. She glanced in the mirror; she attempted to replicate an adorable teacher look, and was startled when Chris finally entered the office. She smiled, as she gave a cute pose, and asked, "What do you think?" 
 
- Unfortunately, one minute became five as Chris finished the task he had started. 
+Chris wasn't sure what the question was but he couldn't help but notice how sexy she looked as she seemed to pose for him. "About what?" Chris asked. 
 
- 
+Going for broke, deciding men were stupid and being subtle sure wasn't working. Kelly hopped onto the desk, revealing the top of her thigh high stockings, and bluntly asked the question, "Did you ever fantasize about seeing my tits when you were in my class, Chris? 
 
- face-full-of-cum12.jpg]Kelly was frustrated at waiting, her bold confidence when she called him up, getting weaker with each passing minute. She desperately wanted to get laid, yet she didn't want to look desperate. She felt like she was a teenager again, waiting for a boy to call. She knew he was interested, that was obvious, yet he wasn't making the move a teenage boy would make. She glanced in the mirror; she attempted to replicate an adorable teacher look, and was startled when Chris finally entered the office. She smiled, as she gave a cute pose, and asked, "What do you think?" 
+Chris was taken aback by the question. Her flirting had always been playful, often awkward, but this was completely different: blunt and hot. He also had indeed fantasized about her tits not only while in class, but at home and most recently last night. 
 
- Chris wasn't sure what the question was but he couldn't help but notice how sexy she looked as she seemed to pose for him. "About what?" Chris asked. 
+Kelly, enjoying his shocked reaction and stunned silence, asked, her tone dripping with sultry sweetness, "Do you want to see them, Chris?" 
 
- Going for broke, deciding men were stupid and being subtle sure wasn't working. Kelly hopped onto the desk, revealing the top of her thigh high stockings, and bluntly asked the question, "Did you ever fantasize about seeing my tits when you were in my class, Chris? 
+Chris stammered, it now being his turn to feel like a teenager, "Y-y-yes." 
 
- Chris was taken aback by the question. Her flirting had always been playful, often awkward, but this was completely different: blunt and hot. He also had indeed fantasized about her tits not only while in class, but at home and most recently last night. 
+As Kelly moved, her shoe hit the floor. Her cunt was already wet with anticipation that it would soon be filled with Chris's cock. Like Chris, she had enjoyed getting to know him better, loved his quirky sense of humour, his ability to listen and his damn great body. She didn't want to just fuck Chris, she envisioned the possibility of a relationship. Yet, at this moment, it wasn't about long term; it was about satisfying a need she had been denying for way too long. She unbuttoned her blouse, feeling sexy and wanton, as he watched with lust. 
 
- Kelly, enjoying his shocked reaction and stunned silence, asked, her tone dripping with sultry sweetness, "Do you want to see them, Chris?" 
+Chris couldn't believe it was finally happening. A fantasy he had long given up on was now becoming a reality and although he was usually a confident man with the ladies, he was tongue tied. 
 
- Chris stammered, it now being his turn to feel like a teenager, "Y-y-yes." 
+face-full-of-cum14.jpg] 
 
- As Kelly moved, her shoe hit the floor. Her cunt was already wet with anticipation that it would soon be filled with Chris's cock. Like Chris, she had enjoyed getting to know him better, loved his quirky sense of humour, his ability to listen and his damn great body. She didn't want to just fuck Chris, she envisioned the possibility of a relationship. Yet, at this moment, it wasn't about long term; it was about satisfying a need she had been denying for way too long. She unbuttoned her blouse, feeling sexy and wanton, as he watched with lust. 
+Kelly felt giddy with excitement as she pulled her blouse open and posed for Chris. Smiling, she asked, "Are they what you imagined?" 
 
- Chris couldn't believe it was finally happening. A fantasy he had long given up on was now becoming a reality and although he was usually a confident man with the ladies, he was tongue tied. 
+"They're amazing," Chris answered in awe, before adding, "You're amazing." 
 
- 
+"Come here," she ordered. 
 
- face-full-of-cum14.jpg] 
+Chris walked to her, leaned in and kissed her. 
 
- Kelly felt giddy with excitement as she pulled her blouse open and posed for Chris. Smiling, she asked, "Are they what you imagined?" 
+Kelly kissed him back, their tongues darting in and out of each other's mouths, like explorers who have finally found their treasure. 
 
- "They're amazing," Chris answered in awe, before adding, "You're amazing." 
+Chris reached with his left hand and cupped her breast. They were as firm as he had envisioned. Breaking the kiss, he leaned down and took her left nipple in his mouth. 
 
- "Come here," she ordered. 
+Kelly moaned loudly, "I've wanted this for so long." 
 
- Chris walked to her, leaned in and kissed her. 
+Chris quipped, as he swirled his tongue around her nipple, "I think I've wanted this a lot longer than you." 
 
- Kelly kissed him back, their tongues darting in and out of each other's mouths, like explorers who have finally found their treasure. 
+Kelly laughed, "Fair enough." 
 
- Chris reached with his left hand and cupped her breast. They were as firm as he had envisioned. Breaking the kiss, he leaned down and took her left nipple in his mouth. 
+Chris slid his tongue down her breasts, between her tits, before moving to her right breast. 
 
- Kelly moaned loudly, "I've wanted this for so long." 
+"Bite them," Kelly moaned, wanting more than just tender teasing. Her lust controlling her, she wanted to be used, to be fucked. 
 
- Chris quipped, as he swirled his tongue around her nipple, "I think I've wanted this a lot longer than you." 
+Chris obliged, shifting from tender to more aggressive as he pulled her nipple between his teeth. 
 
- Kelly laughed, "Fair enough." 
+"God, yessss," Kelly moaned, the pleasure she was receiving sending pulsations throughout her body. 
 
- Chris slid his tongue down her breasts, between her tits, before moving to her right breast. 
+Chris could've spent all day just playing with her tits, loving the impact it was having on her. 
 
- "Bite them," Kelly moaned, wanting more than just tender teasing. Her lust controlling her, she wanted to be used, to be fucked. 
+Yet, Kelly wanted more. She said sexily, "Let's see what you have been hiding in those jeans." She moved off the desk, dropped to her knees, and quickly fished out his cock. She had imagined it was big in her fantasies and she wasn't disappointed as she pulled out a nice, thick, stiff eight inch cock. She smiled, as she stroked it, "If I would have known you were packing this in class I would have been on my knees long ago." 
 
- Chris obliged, shifting from tender to more aggressive as he pulled her nipple between his teeth. 
+Chris groaned, looking down at her, "Well, let's make up for lost time." 
 
- "God, yessss," Kelly moaned, the pleasure she was receiving sending pulsations throughout her body. 
+"I couldn't agree more," Kelly concurred, as her lips wrapped around his cock. 
 
- Chris could've spent all day just playing with her tits, loving the impact it was having on her. 
+Chris watched in disbelief as his beautiful ex-teacher, began sucking his cock. She used her tongue to swirl around his mushroom top while simultaneously stroking him. After a couple of minutes of teasing, she began to bob back and forth. 
 
- Yet, Kelly wanted more. She said sexily, "Let's see what you have been hiding in those jeans." She moved off the desk, dropped to her knees, and quickly fished out his cock. She had imagined it was big in her fantasies and she wasn't disappointed as she pulled out a nice, thick, stiff eight inch cock. She smiled, as she stroked it, "If I would have known you were packing this in class I would have been on my knees long ago." 
+Kelly usually would tease a man for a couple of minutes, take his balls in her mouth, and then deep throat him and take his first load in her mouth or on her face, then prepare for a marathon fuck, but being their first time together, and wanting to get fucked hard and now, she said as much as she took Chris's cock out of her mouth. "Just for the record, I love sucking cock, but right now I need you in me." 
 
- Chris groaned, looking down at her, "Well, let's make up for lost time." 
+Chris had never heard a woman say they loved sucking cock. It was always a task that was expected and done usually with reluctance. He quipped, "For the record, I love eating pussy." 
 
- "I couldn't agree more," Kelly concurred, as her lips wrapped around his cock. 
+"Good to know," Kelly smiled, standing up, bending over the desk and adding, "now come and fuck me." 
 
- Chris watched in disbelief as his beautiful ex-teacher, began sucking his cock. She used her tongue to swirl around his mushroom top while simultaneously stroking him. After a couple of minutes of teasing, she began to bob back and forth. 
+"Fuck, it's so hot to hear you swear," Chris said, as he moved behind her. 
 
- Kelly usually would tease a man for a couple of minutes, take his balls in her mouth, and then deep throat him and take his first load in her mouth or on her face, then prepare for a marathon fuck, but being their first time together, and wanting to get fucked hard and now, she said as much as she took Chris's cock out of her mouth. "Just for the record, I love sucking cock, but right now I need you in me." 
+"Then wait until you're really pounding me," Kelly quipped with a smile, as she lifted up her skirt to reveal she was sans underwear. 
 
- Chris had never heard a woman say they loved sucking cock. It was always a task that was expected and done usually with reluctance. He quipped, "For the record, I love eating pussy." 
+Chris loved hearing his ex-teacher, so prim and proper, talking like a horny slut. He asked, as he positioned his cock to slide into her, "Did you teach me without underwear?" 
 
- "Good to know," Kelly smiled, standing up, bending over the desk and adding, "now come and fuck me." 
+"Maybe," Kelly smiled. 
 
- "Fuck, it's so hot to hear you swear," Chris said, as he moved behind her. 
+Chris rubbed his cock between her pussy lips, teasing her, wanting her to beg for his cock. 
 
- "Then wait until you're really pounding me," Kelly quipped with a smile, as she lifted up her skirt to reveal she was sans underwear. 
+Kelly, as if reading his mind, begged, "Now stop teasing me and shove that cock in me." 
 
- Chris loved hearing his ex-teacher, so prim and proper, talking like a horny slut. He asked, as he positioned his cock to slide into her, "Did you teach me without underwear?" 
+Chris wasn't one to ever refuse such an offer, and slid his cock into her cunt. It was incredibly warm and tight. 
 
- "Maybe," Kelly smiled. 
+"God, yesssssss," Kelly moaned, his big cock feeling as amazing as she had imagined it would. 
 
- Chris rubbed his cock between her pussy lips, teasing her, wanting her to beg for his cock. 
+Chris began slowly fucking her, wanting to enjoy his fantasy become reality. 
 
- Kelly, as if reading his mind, begged, "Now stop teasing me and shove that cock in me." 
+Kelly, meanwhile, wanted to be fucked deep and hard. After a few slow strokes, she demanded, "Come on baby, fuck me hard. Pound my cunt." 
 
- Chris wasn't one to ever refuse such an offer, and slid his cock into her cunt. It was incredibly warm and tight. 
+Chris loved hearing such nasty talk out of such a beautiful woman. He began slamming into her, creating the beautiful sound as their bodies met. 
 
- "God, yesssssss," Kelly moaned, his big cock feeling as amazing as she had imagined it would. 
+Kelly was overwhelmed with lust. Chris's massive cock filled her completely and she could feel her orgasm already building in just a couple of minutes. "Oh God, fuck my cunt," she begged. 
 
- Chris began slowly fucking her, wanting to enjoy his fantasy become reality. 
+Chris could tell she was close and decided to use his special maneuver that almost always worked in this position. He ordered, "Lift up your right leg." 
 
- Kelly, meanwhile, wanted to be fucked deep and hard. After a few slow strokes, she demanded, "Come on baby, fuck me hard. Pound my cunt." 
+"Kkkkk," Kelly obeyed, having never done this before, but recalling her recent fantasy where this exact thing happened. 
 
- Chris loved hearing such nasty talk out of such a beautiful woman. He began slamming into her, creating the beautiful sound as their bodies met. 
+Chris held her by the thigh, loving the feel of her silk-clad leg, and holding her in this position let him reach new depths. 
 
- Kelly was overwhelmed with lust. Chris's massive cock filled her completely and she could feel her orgasm already building in just a couple of minutes. "Oh God, fuck my cunt," she begged. 
+Kelly moaned and got very animated, "Oh yes, baby, pound me, fill my cunt with your big cock." 
 
- Chris could tell she was close and decided to use his special maneuver that almost always worked in this position. He ordered, "Lift up your right leg." 
+"I love hearing you talk dirty," Chris admitted. 
 
- "Kkkkk," Kelly obeyed, having never done this before, but recalling her recent fantasy where this exact thing happened. 
+"You like hearing your sweet teacher talk like a dirty sluuuuuut?" Kelly asked, loving the shift from sweet to slutty. 
 
- Chris held her by the thigh, loving the feel of her silk-clad leg, and holding her in this position let him reach new depths. 
+"God, yess," Chris groaned. 
 
- Kelly moaned and got very animated, "Oh yes, baby, pound me, fill my cunt with your big cock." 
+"Tonight, I'm your slut, baby," Kelly moaned, as her orgasm got so close. 
 
- "I love hearing you talk dirty," Chris admitted. 
+"Come for me," Chris demanded, as he fucked her so hard the desk moved. 
 
- "You like hearing your sweet teacher talk like a dirty sluuuuuut?" Kelly asked, loving the shift from sweet to slutty. 
+A couple deep thrusts later, the dam finally burst, as Kelly screamed, "Oh yes, fuck, I love your coooooock," 
 
- "God, yess," Chris groaned. 
+Chris could feel her cum on his cock and pulled out, dropped to his knees, and buried his face in her leaking cunt. 
 
- "Tonight, I'm your slut, baby," Kelly moaned, as her orgasm got so close. 
+Kelly had never had a man eat her out as she was orgasming and couldn't believe how intense it felt. "Oh shiiiiiiit," she whimpered, as she gripped the desk for dear life as all the energy in her body was sapped by the intense orgasm. 
 
- "Come for me," Chris demanded, as he fucked her so hard the desk moved. 
+Chris couldn't believe how sweet her pussy juice tasted as he eagerly licked it all up. 
 
- A couple deep thrusts later, the dam finally burst, as Kelly screamed, "Oh yes, fuck, I love your coooooock," 
+After a moment, Chris's tongue was beginning to tickle Kelly and she quickly moved around, dropped to her knees and took Chris's cock back in her mouth. She loved the taste of her own pussy on his cock and began bobbing back and forth hungrily. 
 
- Chris could feel her cum on his cock and pulled out, dropped to his knees, and buried his face in her leaking cunt. 
+It took only seconds, sadly, before Chris was ready to shoot his own load, Kelly's tight cunt and expert mouth too much to resist. "Fuck, I'm going to come," Chris warned, knowing most women didn't like to swallow. 
 
- Kelly had never had a man eat her out as she was orgasming and couldn't believe how intense it felt. "Oh shiiiiiiit," she whimpered, as she gripped the desk for dear life as all the energy in her body was sapped by the intense orgasm. 
+Kelly backed off, pumped his cock and said, "You can come in my mouth or on my face." 
 
- Chris couldn't believe how sweet her pussy juice tasted as he eagerly licked it all up. 
+face-full-of-cum15.jpg] 
 
- After a moment, Chris's tongue was beginning to tickle Kelly and she quickly moved around, dropped to her knees and took Chris's cock back in her mouth. She loved the taste of her own pussy on his cock and began bobbing back and forth hungrily. 
+Chris had never given a woman a facial and the thought of coming on Kelly was the final straw. Before he could even respond, the first stream of cum hit her directly on her nose. A second rope hit her chin, before the remainder landed on her chest. 
 
- It took only seconds, sadly, before Chris was ready to shoot his own load, Kelly's tight cunt and expert mouth too much to resist. "Fuck, I'm going to come," Chris warned, knowing most women didn't like to swallow. 
+Kelly laughed, "Well, I guess that answers that question." 
 
- Kelly backed off, pumped his cock and said, "You can come in my mouth or on my face." 
+Chris apologized, "Sorry, just hearing you say I could come on your face was all it took to make me shoot my load." 
 
- 
+Kelly, feeling cum drip off her chin and onto her tits, added, "Well, you sure had a big load in you." 
 
- face-full-of-cum15.jpg] 
+"I've been told I shoot a lot of cum," Chris admitted. 
 
- Chris had never given a woman a facial and the thought of coming on Kelly was the final straw. Before he could even respond, the first stream of cum hit her directly on her nose. A second rope hit her chin, before the remainder landed on her chest. 
+face-full-of-cum16.jpg] 
 
- Kelly laughed, "Well, I guess that answers that question." 
+"I wasn't lying," Kelly said, stroking his cock. "I love sucking cock." 
 
- Chris apologized, "Sorry, just hearing you say I could come on your face was all it took to make me shoot my load." 
+"Well, I love getting my cock sucked," Chris smiled. "So I guess we are compatible." 
 
- Kelly, feeling cum drip off her chin and onto her tits, added, "Well, you sure had a big load in you." 
+Kelly added, "Oh yes, we are very compatible." 
 
- "I've been told I shoot a lot of cum," Chris admitted. 
+Kelly leaned back and asked, looking up at him, "So, did you ever fantasize about me looking like this?" 
 
- 
+"I have fantasized about you in every way imaginable," Chris admitted. 
 
- face-full-of-cum16.jpg] 
+"So you imagined this?" Kelly asked, as she scooped up the cum on her face and put it in her mouth. "Mmmmmmm, yummy," she added. 
 
- "I wasn't lying," Kelly said, stroking his cock. "I love sucking cock." 
+"My fantasies never got quite that elaborate," Chris admitted, before adding, "but this reality far outdoes all my fantasies." 
 
- "Well, I love getting my cock sucked," Chris smiled. "So I guess we are compatible." 
+"Well, my fantasies about you are more recent, but they too have been greatly outdone by this great big cock of yours," Kelly admitted too, before leaning forward and taking his cock back into her mouth hoping to get it hard again. 
 
- Kelly added, "Oh yes, we are very compatible." 
+Chris groaned, loving looking down at this beautiful woman bobbing on his cock, "I should probably get back to work." 
 
- Kelly leaned back and asked, looking up at him, "So, did you ever fantasize about me looking like this?" 
+She took his cock out of her mouth and said, "Shut up, I'm your boss and you have some more drilling to do up here." 
 
- "I have fantasized about you in every way imaginable," Chris admitted. 
+"Well, they say the customer is always right," Chris quipped. 
 
- "So you imagined this?" Kelly asked, as she scooped up the cum on her face and put it in her mouth. "Mmmmmmm, yummy," she added. 
+Kelly took his cock back in her mouth, knowing that she wanted to get fucked again, as her second orgasm always came quicker, and she also wanted to swallow a full load, the cum she had scooped up and swallowed just a small sampling. 
 
- "My fantasies never got quite that elaborate," Chris admitted, before adding, "but this reality far outdoes all my fantasies." 
+After countless orgasms for Kelly and two more loads shot by Chris, both down Kelly's throat, Kelly keeping to her declaration that she loved sucking cock, they fell asleep. 
 
- "Well, my fantasies about you are more recent, but they too have been greatly outdone by this great big cock of yours," Kelly admitted too, before leaning forward and taking his cock back into her mouth hoping to get it hard again. 
+..... 
 
- Chris groaned, loving looking down at this beautiful woman bobbing on his cock, "I should probably get back to work." 
+The next morning, Kelly woke up late and they barely had time to say more than a good morning, no time to talk about last night's marathon sex session and the implications for more the next day. So both spent the day wondering the same thing: were they a couple? Fuck buddies? Or was it a one-time thing? Both wanted it to be more than just a one night stand, both saw it as the beginning of a potentially great relationship, yet neither knew what the other was thinking. 
 
- She took his cock out of her mouth and said, "Shut up, I'm your boss and you have some more drilling to do up here." 
+Chris couldn't believe his fantasy had become reality and could only hope that she saw things like he did...as the beginning of a relationship. 
 
- "Well, they say the customer is always right," Chris quipped. 
+That evening, Kelly decided to make it clear that she wanted more than a one night stand. She couldn't explain it, but she hadn't stop thinking about him all day. She wasn't sure it was love, but it definitely wasn't just lust. Wanting to see him again...NOW...she texted Chris that they needed to talk and to come to the spare bedroom when he arrived. Dressed only in lingerie, she eagerly awaited his arrival, her pussy dying to be filled again. 
 
- Kelly took his cock back in her mouth, knowing that she wanted to get fucked again, as her second orgasm always came quicker, and she also wanted to swallow a full load, the cum she had scooped up and swallowed just a small sampling. 
+Chris fretted about the text. Nothing good ever came from the phrase 'We need to talk'. Yet, he decided that no matter what she said, he was going to tell her exactly how he felt. That this was way more than a one night stand, this was love...or at least the potential for it. He had never really been in love, or at least he had never felt like he did now. Excited to see her, yet nervous too. When he got there, he tentatively approached the spare bedroom. When he walked in the room, he stopped dead in his tracks. 
 
- After countless orgasms for Kelly and two more loads shot by Chris, both down Kelly's throat, Kelly keeping to her declaration that she loved sucking cock, they fell asleep. 
+face-full-of-cum17.jpg] 
 
- ..... 
+Kelly smiled, "I couldn't decide how to tell you that I really enjoyed last night." 
 
- The next morning, Kelly woke up late and they barely had time to say more than a good morning, no time to talk about last night's marathon sex session and the implications for more the next day. So both spent the day wondering the same thing: were they a couple? Fuck buddies? Or was it a one-time thing? Both wanted it to be more than just a one night stand, both saw it as the beginning of a potentially great relationship, yet neither knew what the other was thinking. 
+Chris smiled back, "And I was worried you were going to tell me last night was a mistake." 
 
- Chris couldn't believe his fantasy had become reality and could only hope that she saw things like he did...as the beginning of a relationship. 
+"The only mistake we made was not doing this earlier," she smiled, spinning around off the dresser, walking to him and kissing him. 
 
- That evening, Kelly decided to make it clear that she wanted more than a one night stand. She couldn't explain it, but she hadn't stop thinking about him all day. She wasn't sure it was love, but it definitely wasn't just lust. Wanting to see him again...NOW...she texted Chris that they needed to talk and to come to the spare bedroom when he arrived. Dressed only in lingerie, she eagerly awaited his arrival, her pussy dying to be filled again. 
+The kiss lasted an eternity, as both felt the relief of knowing that the other felt the same way they did. 
 
- Chris fretted about the text. Nothing good ever came from the phrase 'We need to talk'. Yet, he decided that no matter what she said, he was going to tell her exactly how he felt. That this was way more than a one night stand, this was love...or at least the potential for it. He had never really been in love, or at least he had never felt like he did now. Excited to see her, yet nervous too. When he got there, he tentatively approached the spare bedroom. When he walked in the room, he stopped dead in his tracks. 
+Breaking the kiss, Chris looked into her eyes and said, "Kelly, I think I'm in love with you." 
 
- 
+Kelly stared into his eyes, surprised by the words and yet also surprised by the way they made her feel. "I think I love you too," she returned. After a pause, she grabbed his crotch and added, "And I know without a doubt I love this." She dropped to her knees, a position she loved to be in, fished out Chris's semi-erect cock and took it in her mouth. 
 
- face-full-of-cum17.jpg] 
+EPILOGUE: 
 
- Kelly smiled, "I couldn't decide how to tell you that I really enjoyed last night." 
+Of course, like all loves, it comes when least expected. 
 
- Chris smiled back, "And I was worried you were going to tell me last night was a mistake." 
+When they first met it was the wrong place, the wrong time. 
 
- "The only mistake we made was not doing this earlier," she smiled, spinning around off the dresser, walking to him and kissing him. 
-
- The kiss lasted an eternity, as both felt the relief of knowing that the other felt the same way they did. 
-
- Breaking the kiss, Chris looked into her eyes and said, "Kelly, I think I'm in love with you." 
-
- Kelly stared into his eyes, surprised by the words and yet also surprised by the way they made her feel. "I think I love you too," she returned. After a pause, she grabbed his crotch and added, "And I know without a doubt I love this." She dropped to her knees, a position she loved to be in, fished out Chris's semi-erect cock and took it in her mouth. 
-
- EPILOGUE: 
-
- Of course, like all loves, it comes when least expected. 
-
- When they first met it was the wrong place, the wrong time. 
-
- This time though, it was the right place, and the right time.  
-
- 
-
- 
+This time though, it was the right place, and the right time.  
 
 ===
 
- face-full-of-cum18.jpg] 
+face-full-of-cum18.jpg] 
 
- Six months later, Chris asked Kelly to marry him while they were on a weekend getaway in Niagara Falls. With the falls in the background, Kelly, of course, said yes. The two celebrated with a marathon love making session at a hotel in Niagara Falls and Kelly, as usual, ended up with a face full of cum. 
+Six months later, Chris asked Kelly to marry him while they were on a weekend getaway in Niagara Falls. With the falls in the background, Kelly, of course, said yes. The two celebrated with a marathon love making session at a hotel in Niagara Falls and Kelly, as usual, ended up with a face full of cum. 
 
- 
+face-full-of-cum19.jpg]Eight months after that, on their wedding day, they couldn't wait to consummate their marriage until after the I'dos. 
 
- face-full-of-cum19.jpg]Eight months after that, on their wedding day, they couldn't wait to consummate their marriage until after the I'dos. 
+Instead Chris snuck into Kelly's parents' home, catching his bride-to-be in the early stages of dress for her big day. 
 
- Instead Chris snuck into Kelly's parents' home, catching his bride-to-be in the early stages of dress for her big day. 
+Kelly smiled, "You just couldn't wait." 
 
- Kelly smiled, "You just couldn't wait." 
+"I just wanted to make sure that besides something borrowed, you would also have something goo," Chris quipped. 
 
- "I just wanted to make sure that besides something borrowed, you would also have something goo," Chris quipped. 
+"I think that is supposed to be something new," Kelly smiled, dropping to her knees. 
 
- "I think that is supposed to be something new," Kelly smiled, dropping to her knees. 
+"You sure?" Chris laughed, as Kelly deep-throat his cock. 
 
- "You sure?" Chris laughed, as Kelly deep-throat his cock. 
+Chris and Kelly had a quickie, even as her mother knocked on her door and Chris coated his bride-to-be's face and tits making sure their indeed was goo. 
 
- Chris and Kelly had a quickie, even as her mother knocked on her door and Chris coated his bride-to-be's face and tits making sure their indeed was goo. 
+"Make sure you wear that under your dress?" 
 
- "Make sure you wear that under your dress?" 
+"Of course," Kelly smiled, rubbing the cum on her tits. 
 
- "Of course," Kelly smiled, rubbing the cum on her tits. 
+An hour later, Kelly walked down the aisle with Chris's cum sticking to her. 
 
- An hour later, Kelly walked down the aisle with Chris's cum sticking to her. 
+Three hours later, she took another load in the limo, a sticky load in her hair...a naughty secret that she wore throughout the dinner and dancing. 
 
- Three hours later, she took another load in the limo, a sticky load in her hair...a naughty secret that she wore throughout the dinner and dancing. 
+A few hours later, they consummated their marriage for real...doing it the old fashioned way...as Chris shot his final load of the day in his new bride's cunt. 
 
- A few hours later, they consummated their marriage for real...doing it the old fashioned way...as Chris shot his final load of the day in his new bride's cunt. 
+Nine month later, they had a baby girl. 
 
- Nine month later, they had a baby girl. 
+THE END 
 
- THE END 
-
- Author's Note: Thanks again to HOUSEWIFE KELLY for the generous use of her photos.  
-
- 
-
- 
+Author's Note: Thanks again to HOUSEWIFE KELLY for the generous use of her photos.  
 
 ===
 
 Summary: Sexy submissive MILF does WHATEVER it takes to get the job. 
 
- Note 1: A great thank you goes to Vanessa for modeling for the photos (I pray I am as beautiful as you in ten years). 
+Note 1: A great thank you goes to Vanessa for modeling for the photos (I pray I am as beautiful as you in ten years). 
 
- Note 2: Another great thanks to the photographer Richard who took the pictures and created the ambience. 
+Note 2: Another great thanks to the photographer Richard who took the pictures and created the ambience. 
 
- Note 3: Thanks to Mab7991 for his editing this story and LaRacasse for plot suggestions. 
+Note 3: Thanks to Mab7991 for his editing this story and LaRacasse for plot suggestions. 
 
- * 
+* 
 
- Forty-two.... 
+Forty-two.... 
 
- Forty-fucking-two.... 
+Forty-fucking-two.... 
 
- Forty-two and going through empty nest syndrome. My twenty-one-year-old son was in Europe backpacking to, as he said in his own words, 'Find himself'. While my eighteen-year-old daughter recently graduated from high school and having received a full scholarship to Berkeley, had moved clear across the country to California to attend school there. 
+Forty-two and going through empty nest syndrome. My twenty-one-year-old son was in Europe backpacking to, as he said in his own words, 'Find himself'. While my eighteen-year-old daughter recently graduated from high school and having received a full scholarship to Berkeley, had moved clear across the country to California to attend school there. 
 
- 
+office-submission01.jpg]Forty-two and single. 
 
- office-submission01.jpg]Forty-two and single. 
+Forty-two and alone. 
 
- Forty-two and alone. 
+Forty-two and feeling like a teenager: insecure and wanting. 
 
- Forty-two and feeling like a teenager: insecure and wanting. 
+Forty-two and the last things to pleasure me were toys and sadly, craving a deep fucking, a very lengthy cucumber. 
 
- Forty-two and the last things to pleasure me were toys and sadly, craving a deep fucking, a very lengthy cucumber. 
+Forty-two and I had not been with a man intimately in over five years...not since my husband Alan died in a car accident (yes, I dated a few men, some even good guys, but I always compared them to my deceased husband and always felt I was betraying his memory by bringing a man home to meet my children or sleeping with them). 
 
- Forty-two and I had not been with a man intimately in over five years...not since my husband Alan died in a car accident (yes, I dated a few men, some even good guys, but I always compared them to my deceased husband and always felt I was betraying his memory by bringing a man home to meet my children or sleeping with them). 
+Forty-two and lost. In retrospect, I was the poster woman for stay-at-home moms. I was heavily involved with my children's lives and in many ways lived vicariously through them (especially after Alan passed). I was a chauffeur, I was a cook, I was a party planner, I was a shoulder to cry on, I was a parent volunteer and I eventually was PTA Chair. So when all those duties, all those roles disappeared, I really didn't know what to do. My life was my children and now that my life was my own I had no idea what to do. 
 
- Forty-two and lost. In retrospect, I was the poster woman for stay-at-home moms. I was heavily involved with my children's lives and in many ways lived vicariously through them (especially after Alan passed). I was a chauffeur, I was a cook, I was a party planner, I was a shoulder to cry on, I was a parent volunteer and I eventually was PTA Chair. So when all those duties, all those roles disappeared, I really didn't know what to do. My life was my children and now that my life was my own I had no idea what to do. 
+Forty-two and broke. The money from Alan's life insurance policy kept us ok for awhile, the house is paid for and so forth, but the extra money was gone and I needed a job, something I had never had before (Alan believed in being the man of the house and I the stay at home housewife). 
 
- Forty-two and broke. The money from Alan's life insurance policy kept us ok for awhile, the house is paid for and so forth, but the extra money was gone and I needed a job, something I had never had before (Alan believed in being the man of the house and I the stay at home housewife). 
+Forty-two and qualified to do everything and nothing. 
 
- Forty-two and qualified to do everything and nothing. 
+Forty-two... 
 
- Forty-two... 
+..... 
 
- ..... 
+What I learned after a month of job searching was I was qualified for absolutely nothing. Apparently over twenty years of raising children did not count as experience on a resume and even though I had planned a plethora of big events (graduation, family carnivals and an abundance of fundraisers), the job market didn't care. Although I had many transferable skills, prospective employers didn't see parenting as equivalent to, as they called it, 'real life' experience. 
 
- What I learned after a month of job searching was I was qualified for absolutely nothing. Apparently over twenty years of raising children did not count as experience on a resume and even though I had planned a plethora of big events (graduation, family carnivals and an abundance of fundraisers), the job market didn't care. Although I had many transferable skills, prospective employers didn't see parenting as equivalent to, as they called it, 'real life' experience. 
+By the time of my monthly girl's night out arrived, I was frustrated and more than a little stressed. 
 
- By the time of my monthly girl's night out arrived, I was frustrated and more than a little stressed. 
+As we drank wine at a candle party, I whined about all my unemployment problems finishing with, "And in conclusion it seems I am unemployable. Too old to be worth training and way too young to be thinking pension...I am only forty-two for Christ sake." 
 
- As we drank wine at a candle party, I whined about all my unemployment problems finishing with, "And in conclusion it seems I am unemployable. Too old to be worth training and way too young to be thinking pension...I am only forty-two for Christ sake." 
+Bella, A friend of a friend, and the youngest and newest addition to our group, said, "Not sure you are interested, but our firm is hiring a temporary secretary, as Carolyn is going on maternity leave." 
 
- Bella, A friend of a friend, and the youngest and newest addition to our group, said, "Not sure you are interested, but our firm is hiring a temporary secretary, as Carolyn is going on maternity leave." 
+"Really?" I asked, feeling a glimmer of hope. 
 
- "Really?" I asked, feeling a glimmer of hope. 
+"I can put in a good word for you," she added. 
 
- "I can put in a good word for you," she added. 
+"Please do," I said, excited about the opportunity. 
 
- "Please do," I said, excited about the opportunity. 
+"I can even give you tips on what to wear," she added, "Mr. Jackson is very particular." Her tone playful yet for some reason seemingly ominous. 
 
- "I can even give you tips on what to wear," she added, "Mr. Jackson is very particular." Her tone playful yet for some reason seemingly ominous. 
+"How so?" I asked, 
 
- "How so?" I asked, 
+"He is a leg man," Bella explained, squeezing my leg. "So dress professional, yet sexy professional." 
 
- "He is a leg man," Bella explained, squeezing my leg. "So dress professional, yet sexy professional." 
+"Sexy professional?" I questioned. 
 
- "Sexy professional?" I questioned. 
+"Yes, always wear a skirt, and always wear nylons," she explained, before adding, "sexy, but professional." 
 
- "Yes, always wear a skirt, and always wear nylons," she explained, before adding, "sexy, but professional." 
+"Oh," was all I said as I wondered what I had that would be both sexy and professional. 
 
- "Oh," was all I said as I wondered what I had that would be both sexy and professional. 
+..... 
 
- ..... 
+Two weeks later, I had an interview and I dressed to impress. I bought an outfit almost indescribable: a black blazer blouse. I didn't know such a thing existed, but it was definitely sexy and yet oddly professional. A matching black skirt, and black heels tailored the look perfectly. 
 
- Two weeks later, I had an interview and I dressed to impress. I bought an outfit almost indescribable: a black blazer blouse. I didn't know such a thing existed, but it was definitely sexy and yet oddly professional. A matching black skirt, and black heels tailored the look perfectly. 
+office-submission02.jpg]To finish the look I did what I always did, ever since I met my husband, I dressed sexy underneath my conservative attire. Whether it be a PTA meeting, supervising a dance, out for supper, or just hosting friends, I would wear a sexy bra and thigh high stockings and nothing else. I loved the thrill of going commando, of no one knowing my sexy secret, no one knowing that underneath the conservative dress, the safe make-up and sweet smile, was a slutty woman who had been utterly obedient and submissive sexually to her husband. And even after his death, I continued to go about sans underwear, except when Aunt Ruby paid her monthly visit and all my bras were bought at an expensive lingerie shop. Lastly, I didn't even own a pair of pantyhose and hadn't in years, decades even, only wearing thigh high stockings for, as Alan called it, 'easy access to my cunt'. He insisted on calling my special place a cunt and not the less nasty pussy or the politically correct vagina...it was always a cunt. A shiver went up my spine as I fondly recalled my many naughty submissive encounters with Alan. 
 
- 
+So underneath my sexy, unique and professional outfit, I went commando as usual, wore matching black thigh highs and a fun, sexy, naughty black bra. 
 
- office-submission02.jpg]To finish the look I did what I always did, ever since I met my husband, I dressed sexy underneath my conservative attire. Whether it be a PTA meeting, supervising a dance, out for supper, or just hosting friends, I would wear a sexy bra and thigh high stockings and nothing else. I loved the thrill of going commando, of no one knowing my sexy secret, no one knowing that underneath the conservative dress, the safe make-up and sweet smile, was a slutty woman who had been utterly obedient and submissive sexually to her husband. And even after his death, I continued to go about sans underwear, except when Aunt Ruby paid her monthly visit and all my bras were bought at an expensive lingerie shop. Lastly, I didn't even own a pair of pantyhose and hadn't in years, decades even, only wearing thigh high stockings for, as Alan called it, 'easy access to my cunt'. He insisted on calling my special place a cunt and not the less nasty pussy or the politically correct vagina...it was always a cunt. A shiver went up my spine as I fondly recalled my many naughty submissive encounters with Alan. 
+I wore my brown hair up and my make-up hid the few facial blemishes that come with age. Attempting for the typical secretary look I had my glasses on, even though I usually wear contacts. 
 
- So underneath my sexy, unique and professional outfit, I went commando as usual, wore matching black thigh highs and a fun, sexy, naughty black bra. 
+Truth be told for forty-two, I am still in great shape and get my fair amount of looks and second looks from boys and men. Looking in the mirror, I decided I had perfectly perfected the sexy, but professional look. 
 
- I wore my brown hair up and my make-up hid the few facial blemishes that come with age. Attempting for the typical secretary look I had my glasses on, even though I usually wear contacts. 
+..... 
 
- Truth be told for forty-two, I am still in great shape and get my fair amount of looks and second looks from boys and men. Looking in the mirror, I decided I had perfectly perfected the sexy, but professional look. 
+I arrived early as interview edict dictates and waited forty minutes, twenty- five past the scheduled interview time, also seemingly part of standard interview expectations based on my past month experience. 
 
- ..... 
+Finally, the secretary, who was so big I thought she might go into labor at any second, announced, "Mr. Jackson will see you now." 
 
- I arrived early as interview edict dictates and waited forty minutes, twenty- five past the scheduled interview time, also seemingly part of standard interview expectations based on my past month experience. 
+"Thank you," I replied, standing up and preparing myself for another potential rejection. 
 
- Finally, the secretary, who was so big I thought she might go into labor at any second, announced, "Mr. Jackson will see you now." 
+Building my confidence, the one that was strong and never wavered when I was PTA chair or running any number of complex events; the confidence that had slowly faltered rejection after rejection. 
 
- "Thank you," I replied, standing up and preparing myself for another potential rejection. 
+office-submission03.jpg]"Please take a seat," he offered, offering the chair across from his desk. 
 
- Building my confidence, the one that was strong and never wavered when I was PTA chair or running any number of complex events; the confidence that had slowly faltered rejection after rejection. 
+I froze in my tracks. His strong, husky, I am in control voice was eerily similar to my deceased husband. 
 
- 
+Suddenly rattled, I stammered, "T-t-thank you, Mr. Jackson," and took my seat, crossing my legs. I noticed also, unlike other potential employers, he made no effort to get up and greet me. Again, like my deceased husband, it was clear who was in charge. 
 
- office-submission03.jpg]"Please take a seat," he offered, offering the chair across from his desk. 
+I should have known where this may be leading by his first words, but I was so caught up in making a good impression and slightly distracted by just how much he reminded me of Alan, I had trouble focusing. 
 
- I froze in my tracks. His strong, husky, I am in control voice was eerily similar to my deceased husband. 
+"So, Amanda," he opened, also the first to use my first name in an interview, "Bella was dead on, you are the complete package." 
 
- Suddenly rattled, I stammered, "T-t-thank you, Mr. Jackson," and took my seat, crossing my legs. I noticed also, unlike other potential employers, he made no effort to get up and greet me. Again, like my deceased husband, it was clear who was in charge. 
+I caught on instantly this was a compliment and I just as instantly understood that flirtation would be an effective strategy. I replied, demurely, trying to match the sexy, yet professional, ensemble, "Well, thank you. You seem to have the complete package too." 
 
- I should have known where this may be leading by his first words, but I was so caught up in making a good impression and slightly distracted by just how much he reminded me of Alan, I had trouble focusing. 
+As soon as I said it I wished I could take it back, the sexual innuendo so obvious that I now looked like a slut using my sexual wiles to get the job, but a few things had me rattled and not thinking straight. Besides his strong, powerful voice and his clearly in charge demeanor, he was a sexy older man and I have always had a thing for sexy older men. Alan had been nine years older than me and I pegged Mr. Jackson to have about the same extra life experience as Alan had on me. 
 
- "So, Amanda," he opened, also the first to use my first name in an interview, "Bella was dead on, you are the complete package." 
+He had no reaction at all to my comment. He asked, "So I see you have no actual business experience." 
 
- I caught on instantly this was a compliment and I just as instantly understood that flirtation would be an effective strategy. I replied, demurely, trying to match the sexy, yet professional, ensemble, "Well, thank you. You seem to have the complete package too." 
+I noticed his eyes continually glance towards my stocking-clad legs and I knew I could use my sexuality to my advantage: sexy, not slutty, flirty not obvious. I defended, "No I don't as a secretary but as PTA chair for three years I ran huge events and...." 
 
- As soon as I said it I wished I could take it back, the sexual innuendo so obvious that I now looked like a slut using my sexual wiles to get the job, but a few things had me rattled and not thinking straight. Besides his strong, powerful voice and his clearly in charge demeanor, he was a sexy older man and I have always had a thing for sexy older men. Alan had been nine years older than me and I pegged Mr. Jackson to have about the same extra life experience as Alan had on me. 
+"Stop there, Amanda," he interrupted, "Based on your volunteer work, I think you are more than experienced enough to handle the menial tasks of the job." 
 
- He had no reaction at all to my comment. He asked, "So I see you have no actual business experience." 
+A sigh of relief warmed me at the thought of being judged based on my extensive volunteer work and not my choice to not get a 9 to 5 job. "Thank you, Mr. Jackson." 
 
- I noticed his eyes continually glance towards my stocking-clad legs and I knew I could use my sexuality to my advantage: sexy, not slutty, flirty not obvious. I defended, "No I don't as a secretary but as PTA chair for three years I ran huge events and...." 
+office-submission04.jpg]"It is the intensity of the job that may be an issue," he stated, my brief bubble of hope already about to burst. 
 
- "Stop there, Amanda," he interrupted, "Based on your volunteer work, I think you are more than experienced enough to handle the menial tasks of the job." 
+I noticed his constant glimpses at my heels and wondered if he was a foot guy like my husband had been. I decided to test my theory, my dangling my heel from my toes of the foot that was crossed over the other. 
 
- A sigh of relief warmed me at the thought of being judged based on my extensive volunteer work and not my choice to not get a 9 to 5 job. "Thank you, Mr. Jackson." 
+As expected, his gaze went to the tangling heel as I asked, "Intensity?" 
 
- 
+"Yes, my secretary is on call twenty-four, seven, seven days a week," he informed me, returning his gaze to my eyes. 
 
- office-submission04.jpg]"It is the intensity of the job that may be an issue," he stated, my brief bubble of hope already about to burst. 
+"Oh my," I said, surprised by the full scope of the job. 
 
- I noticed his constant glimpses at my heels and wondered if he was a foot guy like my husband had been. I decided to test my theory, my dangling my heel from my toes of the foot that was crossed over the other. 
+Another look at my dangling heel, he continued, "I travel a lot and I need someone who has the flexibility to be able to travel a lot and often with almost no warning." 
 
- As expected, his gaze went to the tangling heel as I asked, "Intensity?" 
+Again the scope was extreme, but I thought to myself that I had no current life or weekly expectations, and I loved traveling, and had not left the state since Alan passed, except for checking out Berkeley with Ellie. Allowing my heel to hit the floor I answered, "Well, I do love to travel." 
 
- "Yes, my secretary is on call twenty-four, seven, seven days a week," he informed me, returning his gaze to my eyes. 
+It was obvious this time that he was checking my stocking-clad foot. He asked, still looking down, "And the on call aspect?" 
 
- "Oh my," I said, surprised by the full scope of the job. 
+office-submission05.jpg]I reached down for my heel, but stopped as he ordered, "Leave it there, Amanda." 
 
- Another look at my dangling heel, he continued, "I travel a lot and I need someone who has the flexibility to be able to travel a lot and often with almost no warning." 
+I could sense the shift in the interview, as I obeyed sitting back on the chair. "Well, the kids are gone, so I really have no commitments." 
 
- Again the scope was extreme, but I thought to myself that I had no current life or weekly expectations, and I loved traveling, and had not left the state since Alan passed, except for checking out Berkeley with Ellie. Allowing my heel to hit the floor I answered, "Well, I do love to travel." 
+His eyes finally returned to me. "And you are widowed, correct?" 
 
- It was obvious this time that he was checking my stocking-clad foot. He asked, still looking down, "And the on call aspect?" 
+"Yes," I admitted, before adding, "Five years now." 
 
- 
+No fake condolences, like I usually received, as he pushed further. My uncovered toes clearly a distraction to him. "You will answer your cell phone no matter the time of day or night," he explained, his tone no nonsense. 
 
- office-submission05.jpg]I reached down for my heel, but stopped as he ordered, "Leave it there, Amanda." 
+office-submission06.jpg]Realizing the flavor of the interview had changed, I answered, now more flirty than professional, "That goes without saying." 
 
- I could sense the shift in the interview, as I obeyed sitting back on the chair. "Well, the kids are gone, so I really have no commitments." 
+He asked, eyebrow raised, "Are you sure you can handle this? Many have quit due to the overbearing workload." 
 
- His eyes finally returned to me. "And you are widowed, correct?" 
+Staring at him, I slowly uncrossed my legs. If he was looking closely he would notice that I was not wearing panties. After a brief delay, I readjusted, crossing my legs the other way. What should have taken two or three seconds, took fifteen or twenty as I attempted to imply my desire through my actions, my teasing. I replied, allowing my other heel to dangle, a mixture of sweetness, seductiveness and confidence, "I am capable of almost anything. I am a very determined woman who always gets the job done, no matter what it takes." 
 
- "Yes," I admitted, before adding, "Five years now." 
+office-submission07.jpg]I knew I was speaking in double-entendres, as I was both flirty and serious at the same time. Was I offering sex at the time? No. But was the thought of him fucking me in the back of my mind? Yes. He was just so much like my husband in voice, attitude and demeanor. And five years without having my needs met with a real man added to the hunger and lack of dignity that I was already feeling. 
 
- No fake condolences, like I usually received, as he pushed further. My uncovered toes clearly a distraction to him. "You will answer your cell phone no matter the time of day or night," he explained, his tone no nonsense. 
+He had watched the entire simple act of crossing my legs like it was a slow motion action scene in a movie. 
 
- 
+He finally replied, a delayed response to be sure, the first tone of something other than business in his tone, "Anything, is a pretty dangerous word." 
 
- office-submission06.jpg]Realizing the flavor of the interview had changed, I answered, now more flirty than professional, "That goes without saying." 
+office-submission08.jpg]Allowing my second heel to hit the floor, clearly on purpose, I replied, my tone no longer hiding my growing hunger. "Well, it is a very dangerous world." 
 
- He asked, eyebrow raised, "Are you sure you can handle this? Many have quit due to the overbearing workload." 
+His gaze never left my stocking-clad feet as he stood up. He didn't move towards me, just stood above me I assume implying who was in charge. 
 
- Staring at him, I slowly uncrossed my legs. If he was looking closely he would notice that I was not wearing panties. After a brief delay, I readjusted, crossing my legs the other way. What should have taken two or three seconds, took fifteen or twenty as I attempted to imply my desire through my actions, my teasing. I replied, allowing my other heel to dangle, a mixture of sweetness, seductiveness and confidence, "I am capable of almost anything. I am a very determined woman who always gets the job done, no matter what it takes." 
+I could feel wetness starting to form down below at the thought of submission to him, my hunger to regain that clear Dom-submissive relationship I once had. I felt a desire to rekindle a sex life that had long flamed out, from the grief of the death of my husband, and the fear of bringing another man into my children's life. 
 
- 
+Finally he spoke. "My secretary must not only be twenty-four seven, seven days a week, they must also be a full-service secretary." 
 
- office-submission07.jpg]I knew I was speaking in double-entendres, as I was both flirty and serious at the same time. Was I offering sex at the time? No. But was the thought of him fucking me in the back of my mind? Yes. He was just so much like my husband in voice, attitude and demeanor. And five years without having my needs met with a real man added to the hunger and lack of dignity that I was already feeling. 
+Maybe I can have my cake and eat it too I thought to myself. I looked up coyly, my voice dripping with implication, "And what does a full-service secretary entail?" The answer obvious, the question technically rhetorical. 
 
- He had watched the entire simple act of crossing my legs like it was a slow motion action scene in a movie. 
+office-submission09.jpg]Ignoring my question, he asked one instead. "You have kids correct?" 
 
- He finally replied, a delayed response to be sure, the first tone of something other than business in his tone, "Anything, is a pretty dangerous word." 
+"Yes," I answered, surprised by the 180 degree turn, before adding, "but they are both far, far away." 
 
- 
+"I hate to be blunt but after what happened with Carolyn I need to know," he started. 
 
- office-submission08.jpg]Allowing my second heel to hit the floor, clearly on purpose, I replied, my tone no longer hiding my growing hunger. "Well, it is a very dangerous world." 
+I vaguely recalled that Carolyn was his current very pregnant secretary and clarity came crystal clear. He had knocked up his, much younger and fertile, 'full-time secretary.' He was implying if I took the job he was planning on fucking me regularly. My cunt leaked more. 
 
- His gaze never left my stocking-clad feet as he stood up. He didn't move towards me, just stood above me I assume implying who was in charge. 
+My answer, I assumed, sealed our upcoming relationship. "I had my tubes tied a couple years after the birth of my second child," I revealed, before adding after a lengthy pause, "sir." 
 
- I could feel wetness starting to form down below at the thought of submission to him, my hunger to regain that clear Dom-submissive relationship I once had. I felt a desire to rekindle a sex life that had long flamed out, from the grief of the death of my husband, and the fear of bringing another man into my children's life. 
+The slightest glimmer of a smile flickered across his lips. After a lengthy pause, where time seemed to stop completely, he finally spoke. Ironically, as he sat back down, he ordered firmly,"Stand up." 
 
- Finally he spoke. "My secretary must not only be twenty-four seven, seven days a week, they must also be a full-service secretary." 
+I didn't hesitate, knowing from experience the true meaning of obedience. I obeyed without protest, without hesitation. Only through utter, complete submission can a true Domme-submissive relationship work. A true submissive gives up all control of their life to their Domme, their Master. I had done that with my late husband. 
 
- Maybe I can have my cake and eat it too I thought to myself. I looked up coyly, my voice dripping with implication, "And what does a full-service secretary entail?" The answer obvious, the question technically rhetorical. 
+"Good," his one word approval allowed the long dormant flame below to start to burn. "But be warned I expect obedience and I punish any lack of it," he stressed his eyes boring through me, seeing my need to submit. 
 
- 
+"I understand," I whispered, nervous and yet full of anticipation. 
 
- office-submission09.jpg]Ignoring my question, he asked one instead. "You have kids correct?" 
+office-submission10.jpg]"Take your skirt off," he instructed, watching my every move and reacting only with his eyes. 
 
- "Yes," I answered, surprised by the 180 degree turn, before adding, "but they are both far, far away." 
+I again obeyed, unzipping the skirt and allowing it to drop revealing so many secrets in one quick second. 
 
- "I hate to be blunt but after what happened with Carolyn I need to know," he started. 
+I saw a look of surprise on his face; clearly he wasn't expecting the fact that I was not wearing any panties. 
 
- I vaguely recalled that Carolyn was his current very pregnant secretary and clarity came crystal clear. He had knocked up his, much younger and fertile, 'full-time secretary.' He was implying if I took the job he was planning on fucking me regularly. My cunt leaked more. 
+My face felt a little red being put in such a compromising position with a relative stranger, yet deep down it just felt right. 
 
- My answer, I assumed, sealed our upcoming relationship. "I had my tubes tied a couple years after the birth of my second child," I revealed, before adding after a lengthy pause, "sir." 
+"Do you usually go without underwear?" he finally asked. 
 
- The slightest glimmer of a smile flickered across his lips. After a lengthy pause, where time seemed to stop completely, he finally spoke. Ironically, as he sat back down, he ordered firmly,"Stand up." 
+"Yes, sir," I admitted, again responding submissively. "I haven't worn underwear since college, except of course." 
 
- I didn't hesitate, knowing from experience the true meaning of obedience. I obeyed without protest, without hesitation. Only through utter, complete submission can a true Domme-submissive relationship work. A true submissive gives up all control of their life to their Domme, their Master. I had done that with my late husband. 
+"Yes, of course," he replied, a real smile crossing his face for the first time. "And the thigh highs?" he asked. 
 
- "Good," his one word approval allowed the long dormant flame below to start to burn. "But be warned I expect obedience and I punish any lack of it," he stressed his eyes boring through me, seeing my need to submit. 
+"They make me feel sexy, my deceased husband loved them and," I paused, my turn to take brief control, "he liked the, as he called it, easy access to my cunt." 
 
- "I understand," I whispered, nervous and yet full of anticipation. 
+office-submission11.jpg]"Hmmmm," he said, if a sound can be considered saying. 
 
- 
+Finally, he ordered, "Unbutton your blouse." 
 
- office-submission10.jpg]"Take your skirt off," he instructed, watching my every move and reacting only with his eyes. 
+"Yes, sir," I obeyed, slowly, seductively, my eyes never leaving his. Button by button my thrill to obey making me wetter and wetter. 
 
- I again obeyed, unzipping the skirt and allowing it to drop revealing so many secrets in one quick second. 
+He watched intently, no facial expression giving away whether he was excited or bored by my slow striptease. 
 
- I saw a look of surprise on his face; clearly he wasn't expecting the fact that I was not wearing any panties. 
+My last button undone, I smiled just enough to show my excitement that I eagerly wanted more instructions. I waited further instruction as I knew not to make presumptions that he wanted my blouse off. He would decide when I did, not me. 
 
- My face felt a little red being put in such a compromising position with a relative stranger, yet deep down it just felt right. 
+"You understand, of course, that I need to make sure you are a good fit to be a," he paused and used humour for the first time, "member of my staff." 
 
- "Do you usually go without underwear?" he finally asked. 
+My smile provocative, my tone sexy, and my posture revealing, I answered, "What do I need to do to," I paused for effect, my hand moving close to my wet cunt, "prove my worthiness?" 
 
- "Yes, sir," I admitted, again responding submissively. "I haven't worn underwear since college, except of course." 
+"You will, of course, stay with me when we travel," he explained all business, again not answering my flirty answer. 
 
- "Yes, of course," he replied, a real smile crossing his face for the first time. "And the thigh highs?" he asked. 
+"Of course, it would save on travel costs," I agreed, pointing out a sound logical reason for sharing a room. 
 
- "They make me feel sexy, my deceased husband loved them and," I paused, my turn to take brief control, "he liked the, as he called it, easy access to my cunt." 
+"And you understand at meetings you may have to do more than just dictation," he continued, giving me every opportunity to back out. 
 
- 
+I wondered if he meant I would have to please other men to seal a deal of sorts or if I would be his quickie sexual relief during long negotiations. I briefly reflected on my biggest regret that was not having made my biggest fantasy come true, to be gangbanged. Maybe he could make it come true. Regardless of his intent, I answered as expected, "I am capable of and experienced in all sorts of dick-taking." 
 
- office-submission11.jpg]"Hmmmm," he said, if a sound can be considered saying. 
+My declaration finally convincing and as blunt as possible, he said, "I think you will be an excellent addition to our firm. But first let's see if you and I have a similar definition of dictation." 
 
- Finally, he ordered, "Unbutton your blouse." 
+"What do you have in mind?" I asked, my smile devious, my intent obvious, my cunt burning and my mind spinning. 
 
- "Yes, sir," I obeyed, slowly, seductively, my eyes never leaving his. Button by button my thrill to obey making me wetter and wetter. 
+"Fall to your knees and crawl to me," he ordered. 
 
- He watched intently, no facial expression giving away whether he was excited or bored by my slow striptease. 
+office-submission12.jpg] 
 
- My last button undone, I smiled just enough to show my excitement that I eagerly wanted more instructions. I waited further instruction as I knew not to make presumptions that he wanted my blouse off. He would decide when I did, not me. 
+"Yes sir," I obeyed, gracefully falling to my knees and slowly, hopefully sexily, crawling submissively on my hands and knees to him. 
 
- "You understand, of course, that I need to make sure you are a good fit to be a," he paused and used humour for the first time, "member of my staff." 
+Once at his feet, he looked down at me and asked, "Are you sure you are ready for this?" 
 
- My smile provocative, my tone sexy, and my posture revealing, I answered, "What do I need to do to," I paused for effect, my hand moving close to my wet cunt, "prove my worthiness?" 
-
- "You will, of course, stay with me when we travel," he explained all business, again not answering my flirty answer. 
-
- "Of course, it would save on travel costs," I agreed, pointing out a sound logical reason for sharing a room. 
-
- "And you understand at meetings you may have to do more than just dictation," he continued, giving me every opportunity to back out. 
-
- I wondered if he meant I would have to please other men to seal a deal of sorts or if I would be his quickie sexual relief during long negotiations. I briefly reflected on my biggest regret that was not having made my biggest fantasy come true, to be gangbanged. Maybe he could make it come true. Regardless of his intent, I answered as expected, "I am capable of and experienced in all sorts of dick-taking." 
-
- My declaration finally convincing and as blunt as possible, he said, "I think you will be an excellent addition to our firm. But first let's see if you and I have a similar definition of dictation." 
-
- "What do you have in mind?" I asked, my smile devious, my intent obvious, my cunt burning and my mind spinning. 
-
- "Fall to your knees and crawl to me," he ordered. 
-
- 
-
- office-submission12.jpg] 
-
- "Yes sir," I obeyed, gracefully falling to my knees and slowly, hopefully sexily, crawling submissively on my hands and knees to him. 
-
- Once at his feet, he looked down at me and asked, "Are you sure you are ready for this?" 
-
- I didn't know if he meant the job or the blow job, but the answer was the same either way. Not remotely hiding my hunger to submit unconditionally, I moaned, my insatiable hunger to obey, to please, "Oh God, yes."  
-
- 
-
- 
+I didn't know if he meant the job or the blow job, but the answer was the same either way. Not remotely hiding my hunger to submit unconditionally, I moaned, my insatiable hunger to obey, to please, "Oh God, yes."  
 
 ===
 
 "Ready for your first dictation?" he asked, unbuckling his belt. 
 
- I hoped sucking cock was like riding a bike, even after not doing it for a long time you don't ever completely lose the ability. Alan loved having his cock sucked more than fucking and thus I usually received at least one daily dose of cum, often more. Yet, I hadn't sucked cock or swallowed a sweet load of jizz in over five years and my appetite was ferocious. Although I didn't miss it when I went without, the potential load waiting to be deposited in me had me craving cum like I used to. 
+I hoped sucking cock was like riding a bike, even after not doing it for a long time you don't ever completely lose the ability. Alan loved having his cock sucked more than fucking and thus I usually received at least one daily dose of cum, often more. Yet, I hadn't sucked cock or swallowed a sweet load of jizz in over five years and my appetite was ferocious. Although I didn't miss it when I went without, the potential load waiting to be deposited in me had me craving cum like I used to. 
 
- "Ready and willing," I replied, eager to see his cock, praying it was as impressive as I was already imagining in my head. I watched intently and seeing my eagerness, he took his time. 
+"Ready and willing," I replied, eager to see his cock, praying it was as impressive as I was already imagining in my head. I watched intently and seeing my eagerness, he took his time. 
 
- Finally, he pulled out his fully erect and ready to go cock out of his pants. I stared hungrily at it. It was not super big, seven inches, two inches smaller than Alan's was, yet it was the thickest cock I had ever seen. My mouth literally watered in eager anticipation of what I was about to do. 
+Finally, he pulled out his fully erect and ready to go cock out of his pants. I stared hungrily at it. It was not super big, seven inches, two inches smaller than Alan's was, yet it was the thickest cock I had ever seen. My mouth literally watered in eager anticipation of what I was about to do. 
 
- "By the look in your eyes and your open mouth, I assume you approve of the tool you will be using regularly for dictation?" he smugly smiled, his cock an erect missile ready for launch. 
+"By the look in your eyes and your open mouth, I assume you approve of the tool you will be using regularly for dictation?" he smugly smiled, his cock an erect missile ready for launch. 
 
- "It is very impressive, indeed," I replied, resisting the temptation to reach for it and feel it's warmth. "I think I have the perfect thing for it," I added. 
+"It is very impressive, indeed," I replied, resisting the temptation to reach for it and feel it's warmth. "I think I have the perfect thing for it," I added. 
 
- "What would that be?" he questioned. 
+"What would that be?" he questioned. 
 
- "My mouth sir," I replied, eagerly. 
+"My mouth sir," I replied, eagerly. 
 
- "What about your cunt?" he questioned. 
+"What about your cunt?" he questioned. 
 
- 
+office-submission13.jpg] 
 
- office-submission13.jpg] 
+"That is available too," I smiled demurely, making it clear I was completely at his sexual disposal. 
 
- "That is available too," I smiled demurely, making it clear I was completely at his sexual disposal. 
+"And your ass?" he added. "Is your sweet ass at my disposal too?" 
 
- "And your ass?" he added. "Is your sweet ass at my disposal too?" 
+I hadn't been ass fucked in years, long before Alan's death, and although I didn't love it and it never got me off, the feeling of utter submission, giving your body freely and entirely to a man was exhilarating. Again, I responded as any obedient submissive would, "Yes, sir, my tight ass is at your disposal too." 
 
- I hadn't been ass fucked in years, long before Alan's death, and although I didn't love it and it never got me off, the feeling of utter submission, giving your body freely and entirely to a man was exhilarating. Again, I responded as any obedient submissive would, "Yes, sir, my tight ass is at your disposal too." 
+A soft chuckle left his lips. "Let's start with those sexy cock-sucking lips." 
 
- A soft chuckle left his lips. "Let's start with those sexy cock-sucking lips." 
+Taking that as an order, I lifted myself up a bit, legs leaned forward and took his big thick cock in my mouth. I started slow, continually looking up at him, worshipping his cock. I used my tongue to swirl around his wide mushroom top before deep- throating his beautiful cock. His manly sweat, tangy and salty, only added fuel to the fire as I drowned in the aroma of a man. I was like a woman lost in a desert near death after being in the pounding heat for an eternity and finally seeing water; I was famished after my own eternity of thirst and I was going to fill myself up. 
 
- Taking that as an order, I lifted myself up a bit, legs leaned forward and took his big thick cock in my mouth. I started slow, continually looking up at him, worshipping his cock. I used my tongue to swirl around his wide mushroom top before deep- throating his beautiful cock. His manly sweat, tangy and salty, only added fuel to the fire as I drowned in the aroma of a man. I was like a woman lost in a desert near death after being in the pounding heat for an eternity and finally seeing water; I was famished after my own eternity of thirst and I was going to fill myself up. 
+His moans of approval also enhanced my desire to please and after a few minutes of steady slow burn teasing, I went for the sexual jugular. Using a technique I perfected after many years of swallowing load after load of Alan's addictive sweet stuff, I had him getting animated. 
 
- His moans of approval also enhanced my desire to please and after a few minutes of steady slow burn teasing, I went for the sexual jugular. Using a technique I perfected after many years of swallowing load after load of Alan's addictive sweet stuff, I had him getting animated. 
+office-submission14.jpg] 
 
- 
+"That's it Amanda, keep sucking like a good little slut," he moaned. 
 
- office-submission14.jpg] 
+I obeyed, creating a whirlpool of saliva in my mouth, a sensation I knew from experience usually led to a quick trigger from the man. 
 
- "That's it Amanda, keep sucking like a good little slut," he moaned. 
+"I'm going to come, my slut, swallow every last drop. Don't you dare waste any of my cum," he warned. 
 
- I obeyed, creating a whirlpool of saliva in my mouth, a sensation I knew from experience usually led to a quick trigger from the man. 
+I bobbed up and down, back and forth like a porn star until he inevitable grunted; followed instantly by the splash of his cum hitting the back of my throat. I continued the furious pace as a second and third stream sprayed in my mouth. I swallowed every drop as expected and as I so desperately craved. I knew the moment his salty seed entered my mouth I was hooked and would, as I had already promised, do anything and everything he asked. Job or no job, I was his; if he would take me. 
 
- "I'm going to come, my slut, swallow every last drop. Don't you dare waste any of my cum," he warned. 
+I slowed down, but didn't stop, for a couple more minutes, as I felt his cock slowly shrink in my mouth. 
 
- I bobbed up and down, back and forth like a porn star until he inevitable grunted; followed instantly by the splash of his cum hitting the back of my throat. I continued the furious pace as a second and third stream sprayed in my mouth. I swallowed every drop as expected and as I so desperately craved. I knew the moment his salty seed entered my mouth I was hooked and would, as I had already promised, do anything and everything he asked. Job or no job, I was his; if he would take me. 
+Finally, he ordered, "Well, you passed the first test." 
 
- I slowed down, but didn't stop, for a couple more minutes, as I felt his cock slowly shrink in my mouth. 
+"Thank you, sir," I replied, still on my knees subserviently at his feet, looking forward to the second test. 
 
- Finally, he ordered, "Well, you passed the first test." 
+"I need time to recover before we go to test two," he announced, before instructing me, "go crawl to the front of my desk and wait for further instructions." 
 
- "Thank you, sir," I replied, still on my knees subserviently at his feet, looking forward to the second test. 
+Although slightly humiliated, by being treated like a dog, I obeyed, crawling around his desk and sitting, half naked on the floor. The humiliation though only seemed to enhance the awakening of my long dormant arousal. 
 
- "I need time to recover before we go to test two," he announced, before instructing me, "go crawl to the front of my desk and wait for further instructions." 
+A couple of minutes later, as my mind pondered the full breadth of the situation I had just agreed to, and the act I had just committed, I heard him on the phone. "Yes, add a second first class ticket for tomorrow's flight." 
 
- Although slightly humiliated, by being treated like a dog, I obeyed, crawling around his desk and sitting, half naked on the floor. The humiliation though only seemed to enhance the awakening of my long dormant arousal. 
+I listened intently, was he booking me a ticket and if so where? Wasn't that a little presumptuous considering he hadn't officially hired me nor did he confirm my availability. Yet, in retrospect I had already confirmed my availability earlier in the interview. 
 
- A couple of minutes later, as my mind pondered the full breadth of the situation I had just agreed to, and the act I had just committed, I heard him on the phone. "Yes, add a second first class ticket for tomorrow's flight." 
+My first question was answered by his next words. "Put the ticket under the name Amanda Winston." 
 
- I listened intently, was he booking me a ticket and if so where? Wasn't that a little presumptuous considering he hadn't officially hired me nor did he confirm my availability. Yet, in retrospect I had already confirmed my availability earlier in the interview. 
+Apparently I was going on a trip. Tomorrow. 
 
- My first question was answered by his next words. "Put the ticket under the name Amanda Winston." 
+office-submission15.jpg]"Yes, have the car here to pick us up by four-thirty," he confirmed before hanging up. 
 
- Apparently I was going on a trip. Tomorrow. 
+A few more minutes ticked by as the only sound was the sound of his fingers pecking away at his keyboard. My pussy burned with anticipation that seemed a long time away as I sat obediently on the floor. 
 
- 
+Finally, he spoke but not me. "Carolyn, please bring in the Elderton file." 
 
- office-submission15.jpg]"Yes, have the car here to pick us up by four-thirty," he confirmed before hanging up. 
+"Of course, Mr. Jackson," the secretary relied over the intercom. 
 
- A few more minutes ticked by as the only sound was the sound of his fingers pecking away at his keyboard. My pussy burned with anticipation that seemed a long time away as I sat obediently on the floor. 
+Suddenly, I was mortified. It was one thing to submit to a man, or even men potentially as was foreshadowed by his earlier admissions, but being seen on the floor in such a condition was utterly humiliating. 
 
- Finally, he spoke but not me. "Carolyn, please bring in the Elderton file." 
+Time seemed to stand still as I waited for the humiliation that was about to follow. Although Alan would take me out in very revealing outfits, have me blow him under the table at a restaurant on a few occasions and even fucked me in the private balcony at Phantom of the Opera, where I was leaning over the balcony, all the patrons oblivious to the pounding I was taking, I had never been publicly humiliated like I was about to me (except the time we were in Florida on our honeymoon; after coming on my face in the car, he made me go into 7-11 with my face coated in cum and get him a Slurpee. That humiliation had me so hot, that as soon as we got to the hotel, I devoured him whole). 
 
- "Of course, Mr. Jackson," the secretary relied over the intercom. 
+The inevitable finally happened when the very pretty, much younger than me and incredibly pregnant Carolyn came into the office. As she walked in, she looked down at me on the floor and smiled. 
 
- Suddenly, I was mortified. It was one thing to submit to a man, or even men potentially as was foreshadowed by his earlier admissions, but being seen on the floor in such a condition was utterly humiliating. 
+"I see she has passed the first test?" Carolyn said, casually like she was talking about the weather. 
 
- Time seemed to stand still as I waited for the humiliation that was about to follow. Although Alan would take me out in very revealing outfits, have me blow him under the table at a restaurant on a few occasions and even fucked me in the private balcony at Phantom of the Opera, where I was leaning over the balcony, all the patrons oblivious to the pounding I was taking, I had never been publicly humiliated like I was about to me (except the time we were in Florida on our honeymoon; after coming on my face in the car, he made me go into 7-11 with my face coated in cum and get him a Slurpee. That humiliation had me so hot, that as soon as we got to the hotel, I devoured him whole). 
+"Yes, she is a very good cocksucker, you could probably learn a thing or two from her," he replied, his tone flat. 
 
- The inevitable finally happened when the very pretty, much younger than me and incredibly pregnant Carolyn came into the office. As she walked in, she looked down at me on the floor and smiled. 
+The pregnant woman looked down at me with daggers even as I felt the thrill of his words. 
 
- "I see she has passed the first test?" Carolyn said, casually like she was talking about the weather. 
+"Is there anything else, sir?" she asked. 
 
- "Yes, she is a very good cocksucker, you could probably learn a thing or two from her," he replied, his tone flat. 
+"Not now," he said. 
 
- The pregnant woman looked down at me with daggers even as I felt the thrill of his words. 
+I watched her walk away and as she reached the door, she turned back to me one last time with a glare that told me we were not friends and she was threatened by me, which made me smile. I liked being a threat sexually. 
 
- "Is there anything else, sir?" she asked. 
+office-submission16.jpg] 
 
- "Not now," he said. 
+Another fifteen minutes went by as he sat at his computer, and he chatted briefly on the phone. 
 
- I watched her walk away and as she reached the door, she turned back to me one last time with a glare that told me we were not friends and she was threatened by me, which made me smile. I liked being a threat sexually. 
+Finally, my cunt begging for attention, my mind having an eternity for me to replay the day and ponder if I should get up and leave before I fell deep into a web of sexual submission, he stood up and ordered, "Stand up, Amanda." 
 
- 
+I stood eagerly, thankful to be off the floor and hopeful for a good fucking which I longed for. The thought of my long neglected pussy being spread open by his thick cock had me in a dizzy. 
 
- office-submission16.jpg] 
+office-submission17.jpg]"Bend over my desk, Amanda." 
 
- Another fifteen minutes went by as he sat at his computer, and he chatted briefly on the phone. 
+I again wordlessly obeyed, anticipation of being fucked from behind, my favorite submissive position. I was surprised by how cold the desk was and was thankful I was still kind of wearing clothing. 
 
- Finally, my cunt begging for attention, my mind having an eternity for me to replay the day and ponder if I should get up and leave before I fell deep into a web of sexual submission, he stood up and ordered, "Stand up, Amanda." 
+"You have been a very bad girl, Amanda," he said, his hand caressing my ass. 
 
- I stood eagerly, thankful to be off the floor and hopeful for a good fucking which I longed for. The thought of my long neglected pussy being spread open by his thick cock had me in a dizzy. 
+"Sorry sir," I replied coyly, "I don't know what got into me." 
 
- 
+"Oh, I know what you want inside of you, but I am not sure you have earned that privilege," he said and before I had time to react I felt the cold hard smack of his hand meeting my ass. I let out a surprised yelp, not remotely expecting to be spanked. 
 
- office-submission17.jpg]"Bend over my desk, Amanda." 
+office-submission18.jpg]Humiliation seared through me as my pussy instantly leaked at the firm hard slap. "Do you promise to obey at all times, Amanda?" 
 
- I again wordlessly obeyed, anticipation of being fucked from behind, my favorite submissive position. I was surprised by how cold the desk was and was thankful I was still kind of wearing clothing. 
+"Yes, sir," I quickly answered, trying to ignore the burn on my ass. 
 
- "You have been a very bad girl, Amanda," he said, his hand caressing my ass. 
+A second smack echoed through his office as his hand made contact with my other ass cheek. 
 
- "Sorry sir," I replied coyly, "I don't know what got into me." 
+"I expect complete obedience, no questions ask, no hesitation at all, is that understood?" 
 
- "Oh, I know what you want inside of you, but I am not sure you have earned that privilege," he said and before I had time to react I felt the cold hard smack of his hand meeting my ass. I let out a surprised yelp, not remotely expecting to be spanked. 
+"Yes, sir," I replied, the burn on my ass a crazy mixture of pleasure and pain. 
 
- 
+"Stand up and take off your blouse," he ordered, backing up a bit to watch me. 
 
- office-submission18.jpg]Humiliation seared through me as my pussy instantly leaked at the firm hard slap. "Do you promise to obey at all times, Amanda?" 
+I turned around to face him. My hands trembled with what I assumed was perceived as nervousness, but truthfully was excitement; I had a growing lust and a desperation to please him unconditionally. 
 
- "Yes, sir," I quickly answered, trying to ignore the burn on my ass. 
+I took my blouse off and tossed it on the floor, standing now in only my bra. 
 
- A second smack echoed through his office as his hand made contact with my other ass cheek. 
+He surveyed my body in silence. "You have kept your body in great shape Amanda." 
 
- "I expect complete obedience, no questions ask, no hesitation at all, is that understood?" 
+"Thank you," I replied, before explaining, "I work out every morning." Getting a compliment from a stern man like Mr. Jackson was the ultimate form of flattery and I couldn't help but feel a glow warm my cheeks. 
 
- "Yes, sir," I replied, the burn on my ass a crazy mixture of pleasure and pain. 
+"Keep it up, I expect my employees to stay in great shape," he instructed. 
 
- "Stand up and take off your blouse," he ordered, backing up a bit to watch me. 
+"Of course, sir," I agreed. 
 
- I turned around to face him. My hands trembled with what I assumed was perceived as nervousness, but truthfully was excitement; I had a growing lust and a desperation to please him unconditionally. 
+office-submission19.jpg]Content with my answer he ordered, "And now the bra." 
 
- I took my blouse off and tossed it on the floor, standing now in only my bra. 
+I again obeyed; freeing my breasts and my body from the last piece of clothing that protected me from complete vulnerability. Releasing my breasts, which I always wished were a size bigger, always made me self-conscious. 
 
- He surveyed my body in silence. "You have kept your body in great shape Amanda." 
+"Pose for me," he ordered. 
 
- "Thank you," I replied, before explaining, "I work out every morning." Getting a compliment from a stern man like Mr. Jackson was the ultimate form of flattery and I couldn't help but feel a glow warm my cheeks. 
+Although awkward and unsure what to do, I put my hand behind my head while leaning on the desk. Suddenly I felt insecure about my body posing in such a vulnerable position. 
 
- "Keep it up, I expect my employees to stay in great shape," he instructed. 
+As if sensing my insecurity, he complimented me, "Amanda, you really are a beautiful woman." 
 
- "Of course, sir," I agreed. 
+"Thank you," I blushed, suddenly relaxed and thrilled by a compliment from a man that I assumed didn't give such moments of flattery often. 
 
- 
+"Ready for the test two of our interview?" he asked. 
 
- office-submission19.jpg]Content with my answer he ordered, "And now the bra." 
+I considering making a joke about this only being test two after the blue job, the sitting on the floor, the spanking and standing in front of him butt naked, but I refrained. Instead, I replied, "I am here to fulfill whatever need you currently have." 
 
- I again obeyed; freeing my breasts and my body from the last piece of clothing that protected me from complete vulnerability. Releasing my breasts, which I always wished were a size bigger, always made me self-conscious. 
+He began pulling off his pants as he ordered, "Bend over the desk, Amanda." 
 
- "Pose for me," he ordered. 
+"Yes, sir," I a bit too eagerly replied, quickly turning back to his desk and returning to my helpless, completely at his whim, bent over position. My nipples against the cold desk instantly perked stiff as diamonds. 
 
- Although awkward and unsure what to do, I put my hand behind my head while leaning on the desk. Suddenly I felt insecure about my body posing in such a vulnerable position. 
+"You want me to fuck you, don't you?" he asked, as I felt his hands again on my ass. 
 
- As if sensing my insecurity, he complimented me, "Amanda, you really are a beautiful woman." 
+There was no hesitation, no need to lie. "Yes, sir, I badly want you." 
 
- "Thank you," I blushed, suddenly relaxed and thrilled by a compliment from a man that I assumed didn't give such moments of flattery often. 
+A quick slap on my ass. "Is that really the best you can do?" he asked, his tone implying disappointment. 
 
- "Ready for the test two of our interview?" he asked. 
+Always being a people pleaser, I hated disappointing anyone. I quickly replied throwing out any last propriety I may have had left, "Yes sir, I am dying to feel that big thick cock of yours inside my hungry cunt." 
 
- I considering making a joke about this only being test two after the blue job, the sitting on the floor, the spanking and standing in front of him butt naked, but I refrained. Instead, I replied, "I am here to fulfill whatever need you currently have." 
+"That's better," he said, his tone shifting instantly back to calm and in control. 
 
- He began pulling off his pants as he ordered, "Bend over the desk, Amanda." 
+I felt his cock head between my ass cheeks and briefly tightened instinctively thinking maybe he was considering fucking my ass. He noticed my slight tension and laughed, "We will save that for another day." 
 
- "Yes, sir," I a bit too eagerly replied, quickly turning back to his desk and returning to my helpless, completely at his whim, bent over position. My nipples against the cold desk instantly perked stiff as diamonds. 
+I let out my breath realizing I had been holding it. I have taken a cock in my ass before, often when Alan was still alive, but Mr. Jackson's girth had me terrified of the pain that would come with a back door pounding. 
 
- "You want me to fuck you, don't you?" he asked, as I felt his hands again on my ass. 
+office-submission20.jpg]"Fuck your cunt is soaking wet," he accurately announced. "You really are a hungry slut, aren't you?" 
 
- There was no hesitation, no need to lie. "Yes, sir, I badly want you." 
+A finger slid deep in me and I moaned in agreement. "Yes, sir, I want to be your hungry eager slut." 
 
- A quick slap on my ass. "Is that really the best you can do?" he asked, his tone implying disappointment. 
+He knew how to play a woman. His finger found my g-spot and he tapped it softly. "Of course, you understand that besides being my full-service secretary, you are also under my sexual supervision." 
 
- Always being a people pleaser, I hated disappointing anyone. I quickly replied throwing out any last propriety I may have had left, "Yes sir, I am dying to feel that big thick cock of yours inside my hungry cunt." 
+"Kkkkkk," I moaned, completely unaware of what I was agreeing to and at this moment willing to agree to any fucking thing. 
 
- "That's better," he said, his tone shifting instantly back to calm and in control. 
+"You are so compliant. Such a good little slut. From now on you will only come with my permission, is that clear?" he explained and asked, his finger driving me crazy. 
 
- I felt his cock head between my ass cheeks and briefly tightened instinctively thinking maybe he was considering fucking my ass. He noticed my slight tension and laughed, "We will save that for another day." 
+I again agreed, reverting back completely to the sexual control I was under for so many years. A control I had long since craved to have taken away from me again. Only through complete submission had I ever found complete orgasmic bliss. "Yes, Master," I replied, so immersed in the sexual submission that I used the term I had only used with Alan. I immediately tensed realizing my slip of the tongue. 
 
- I let out my breath realizing I had been holding it. I have taken a cock in my ass before, often when Alan was still alive, but Mr. Jackson's girth had me terrified of the pain that would come with a back door pounding. 
+He chuckled. A knowing chuckle. "Master, hey. You really are going to be a perfect replacement for that dumb bitch out there. She is hot indeed and a great fuck, but her lack of intelligence was a real hindrance in her training and her actual job. But you have been trained already, haven't you?" 
 
- 
+A second finger slid into my cunt preparing me slowly for his width, and causing me to be completely distracted and utterly hanging on his every word. "Yes, my deceased husband trained me." 
 
- office-submission20.jpg]"Fuck your cunt is soaking wet," he accurately announced. "You really are a hungry slut, aren't you?" 
+"Trained you to be what?" he asked. 
 
- A finger slid deep in me and I moaned in agreement. "Yes, sir, I want to be your hungry eager slut." 
+I pondered the proper wording, yet answered as he wanted me, no expected me, too. "He trained me to be his sex slave." 
 
- He knew how to play a woman. His finger found my g-spot and he tapped it softly. "Of course, you understand that besides being my full-service secretary, you are also under my sexual supervision." 
+"Mmmmmmm," he moaned. "And you want to be my sex slave do you?" 
 
- "Kkkkkk," I moaned, completely unaware of what I was agreeing to and at this moment willing to agree to any fucking thing. 
+He pulled his amazing fingers out of my wanton cunt and I moaned out of frustration, but answered out of obedience, "Yes, sir, I want to be your sex slave, your slut." 
 
- "You are so compliant. Such a good little slut. From now on you will only come with my permission, is that clear?" he explained and asked, his finger driving me crazy. 
+"Sir, not Master," he asked, his tone playful, yet firm. 
 
- I again agreed, reverting back completely to the sexual control I was under for so many years. A control I had long since craved to have taken away from me again. Only through complete submission had I ever found complete orgasmic bliss. "Yes, Master," I replied, so immersed in the sexual submission that I used the term I had only used with Alan. I immediately tensed realizing my slip of the tongue. 
+"Whatever you want me to call you, Sir, Master, Dom, Daddy," I replied covering my bases, plus adding my own kink with the word 'Daddy'. 
 
- He chuckled. A knowing chuckle. "Master, hey. You really are going to be a perfect replacement for that dumb bitch out there. She is hot indeed and a great fuck, but her lack of intelligence was a real hindrance in her training and her actual job. But you have been trained already, haven't you?" 
+"Daddy?" he chuckled, before asking, "Does Amanda have Daddy issues?" 
 
- A second finger slid into my cunt preparing me slowly for his width, and causing me to be completely distracted and utterly hanging on his every word. "Yes, my deceased husband trained me." 
+I didn't answer at first, before adding, "I don't know. I just love older men who know how to please a woman." 
 
- "Trained you to be what?" he asked. 
+"I am not that much older than you," he chuckled, before returning to his authoritative personality. "When we are alone it is Master and when in public sir," he clarified, his cock again poking my ass cheeks. 
 
- I pondered the proper wording, yet answered as he wanted me, no expected me, too. "He trained me to be his sex slave." 
+office-submission22.jpg] 
 
- "Mmmmmmm," he moaned. "And you want to be my sex slave do you?" 
+"Understood, Master, I am yours to use as you see fiiiiiiiiiit," I replied, giving myself completely and moaning loud as his wide cock slid inside my cunt in one hard forward thrust. 
 
- He pulled his amazing fingers out of my wanton cunt and I moaned out of frustration, but answered out of obedience, "Yes, sir, I want to be your sex slave, your slut." 
+My body quivered with euphoria as every feeling of sexual submission came flooding back with a rush. 
 
- "Sir, not Master," he asked, his tone playful, yet firm. 
+"Fuck, your cunt is tight for such a slut," he grunted, his cock lodged deep in me and not moving. 
 
- "Whatever you want me to call you, Sir, Master, Dom, Daddy," I replied covering my bases, plus adding my own kink with the word 'Daddy'. 
+I whimpered, wanting him to fuck me hard and fast, wanting to appease him, "It's your cunt, Master." 
 
- "Daddy?" he chuckled, before asking, "Does Amanda have Daddy issues?" 
+"And you want to feel my cum coat your cunt walls?" he asked, beginning to slowly move in and out of me. 
 
- I didn't answer at first, before adding, "I don't know. I just love older men who know how to please a woman." 
+"Come wherever you want Master. Come in my cunt, on my ass, on my tits, on my face or l," I thought, adding another idea based on the thought that he had a foot fetish, "on my stocking-clad feet." 
 
- "I am not that much older than you," he chuckled, before returning to his authoritative personality. "When we are alone it is Master and when in public sir," he clarified, his cock again poking my ass cheeks. 
+"Fuck, you are going to be a good slave," he grunted, I sensed him smiling. He was now thrusting into me hard and deep, his body colliding into mine with each forward thrust. 
 
- 
+My moans increased exponentially as the fucking became harder and more furious. Minutes flew by as he pounded away in me, my orgasm bubbling at the surface, desperate to explode, but waiting for permission. 
 
- office-submission22.jpg] 
+My whimpers, moans and heavy breathing were echoing in the room, and I wasn't sure how much longer I could hold back. Finally, I begged, "May I come, Maaaaster?" 
 
- "Understood, Master, I am yours to use as you see fiiiiiiiiiit," I replied, giving myself completely and moaning loud as his wide cock slid inside my cunt in one hard forward thrust. 
+"My slut thinks she deserves to come?" he asked, not slowing down. 
 
- My body quivered with euphoria as every feeling of sexual submission came flooding back with a rush. 
+"I will do anything?" I moaned, my arms being held behind my back firmly. 
 
- "Fuck, your cunt is tight for such a slut," he grunted, his cock lodged deep in me and not moving. 
+"Anything?" he questioned. 
 
- I whimpered, wanting him to fuck me hard and fast, wanting to appease him, "It's your cunt, Master." 
+"Yeeeeeees, anything," I moaned. 
 
- "And you want to feel my cum coat your cunt walls?" he asked, beginning to slowly move in and out of me. 
+"I will allow your undeserving cunt to come if you submit to Bella for a day next weekend," he revealed. 
 
- "Come wherever you want Master. Come in my cunt, on my ass, on my tits, on my face or l," I thought, adding another idea based on the thought that he had a foot fetish, "on my stocking-clad feet." 
+His response was so out of nowhere; I didn't know how to respond. Bella had never been more than an acquaintance and had never even implied she was a dyke. Even through all my experiences as a submissive, I had never been with another woman. 
 
- "Fuck, you are going to be a good slave," he grunted, I sensed him smiling. He was now thrusting into me hard and deep, his body colliding into mine with each forward thrust. 
+He laughed, clearly able to read me so well. "You have never been with a woman have you?" 
 
- My moans increased exponentially as the fucking became harder and more furious. Minutes flew by as he pounded away in me, my orgasm bubbling at the surface, desperate to explode, but waiting for permission. 
+"No, sir, I mean Master," I admitted. 
 
- My whimpers, moans and heavy breathing were echoing in the room, and I wasn't sure how much longer I could hold back. Finally, I begged, "May I come, Maaaaster?" 
+office-submission22.jpg] 
 
- "My slut thinks she deserves to come?" he asked, not slowing down. 
+"Well, that is going to change," he foreshadowed. "You will eat cunt for me, won't you slave?" 
 
- "I will do anything?" I moaned, my arms being held behind my back firmly. 
+Although hard to fathom being with another woman, I was so hungry to obey, to please and to come I didn't care about the future consequences or expectations. I agreed, "Of course, Master, if it pleases you." 
 
- "Anything?" he questioned. 
+"So what will it be?" he asked, no longer fucking me hard, but leisurely moving in and out of my fiery cunt. 
 
- "Yeeeeeees, anything," I moaned. 
+Although the thought of submitting to Bella was shocking, suddenly I could envision it clearly and I was so far gone, so desperate to come, so eager to obey, that my answer revealed a new side of me. "Yes, Master, I will be Bella's slut for you." I added the 'for you' to highlight that I was doing it for him. 
 
- "I will allow your undeserving cunt to come if you submit to Bella for a day next weekend," he revealed. 
+"You can come when I count down to one," he announced, resuming fucking me recklessly, my body instantly starting to quiver. 
 
- His response was so out of nowhere; I didn't know how to respond. Bella had never been more than an acquaintance and had never even implied she was a dyke. Even through all my experiences as a submissive, I had never been with another woman. 
+"Thank you, Master," I moaned, excitedly. 
 
- He laughed, clearly able to read me so well. "You have never been with a woman have you?" 
+"Ten," he began, adding a firm warning and establishing a clear Domme- submissive relationship, "when you come on my cock you become my property." 
 
- "No, sir, I mean Master," I admitted. 
+"Yes, Master, own meeee," I agreed without hesitation as he let go off my arms and I grabbed the edge of the desk for support, my orgasm on the brink and knowing I would have to do everything in my power to resist the growing tide of pleasure rising inside me from crashing down before the countdown hits one. 
 
- 
+"Nine," he said, pulling my hair roughly. "Aaaaah," I screamed, surprised and turned on by the roughness. 
 
- office-submission22.jpg] 
+office-submission23.jpg] 
 
- "Well, that is going to change," he foreshadowed. "You will eat cunt for me, won't you slave?" 
+"Eight, tell me what you are," he ordered. 
 
- Although hard to fathom being with another woman, I was so hungry to obey, to please and to come I didn't care about the future consequences or expectations. I agreed, "Of course, Master, if it pleases you." 
-
- "So what will it be?" he asked, no longer fucking me hard, but leisurely moving in and out of my fiery cunt. 
-
- Although the thought of submitting to Bella was shocking, suddenly I could envision it clearly and I was so far gone, so desperate to come, so eager to obey, that my answer revealed a new side of me. "Yes, Master, I will be Bella's slut for you." I added the 'for you' to highlight that I was doing it for him. 
-
- "You can come when I count down to one," he announced, resuming fucking me recklessly, my body instantly starting to quiver. 
-
- "Thank you, Master," I moaned, excitedly. 
-
- "Ten," he began, adding a firm warning and establishing a clear Domme- submissive relationship, "when you come on my cock you become my property." 
-
- "Yes, Master, own meeee," I agreed without hesitation as he let go off my arms and I grabbed the edge of the desk for support, my orgasm on the brink and knowing I would have to do everything in my power to resist the growing tide of pleasure rising inside me from crashing down before the countdown hits one. 
-
- "Nine," he said, pulling my hair roughly. "Aaaaah," I screamed, surprised and turned on by the roughness. 
-
- 
-
- office-submission23.jpg] 
-
- "Eight, tell me what you are," he ordered. 
-
- "Your slut, your slave, your fuckatary," I declared, happy with my wit, thinking this was the longest countdown in the history of time.  
-
- 
-
- 
+"Your slut, your slave, your fuckatary," I declared, happy with my wit, thinking this was the longest countdown in the history of time.  
 
 ===
 
 "Seven, six, five," he quickly counted down, as if reading my desperation and my struggle to hold off from coming prematurely. 
 
- "Four, I'm going to want to fuck your back door," he rhymed. 
+"Four, I'm going to want to fuck your back door," he rhymed. 
 
- I let out a moan-laugh and agreed, even though I couldn't fathom how his thick cock would ever fit, "My ass is yours toooooo, Master." 
+I let out a moan-laugh and agreed, even though I couldn't fathom how his thick cock would ever fit, "My ass is yours toooooo, Master." 
 
- "Three, don't you dare come yet, you fucking slut, don't you dare," he demanded. 
+"Three, don't you dare come yet, you fucking slut, don't you dare," he demanded. 
 
- Although I knew I shouldn't say such a thing, I mumbled, "I can't hold off much looooooonger." 
+Although I knew I shouldn't say such a thing, I mumbled, "I can't hold off much looooooonger." 
 
- "No backtalk, slut," he roared slapping my ass hard as punishment, before adding, "Two, who owns you?" 
+"No backtalk, slut," he roared slapping my ass hard as punishment, before adding, "Two, who owns you?" 
 
- Almost hysterical now, I babbled, barely holding in the inevitable explosion. "You do, you do, you dooooo." 
+Almost hysterical now, I babbled, barely holding in the inevitable explosion. "You do, you do, you dooooo." 
 
- "One, my slut, so fucking close aren't you?" he teased, keeping me on the brink clearly reveling in the power he had over me. 
+"One, my slut, so fucking close aren't you?" he teased, keeping me on the brink clearly reveling in the power he had over me. 
 
- 
+office-submission24.jpg]"Soooooooooo close, Maaaaaaster," I moaned, using every ounce of my determination to resist coming before the words are said. 
 
- office-submission24.jpg]"Soooooooooo close, Maaaaaaster," I moaned, using every ounce of my determination to resist coming before the words are said. 
+"Now, slut, come now, come for your Master, come like you have never came before!" he demanded, pounding me so hard the desk moved. 
 
- "Now, slut, come now, come for your Master, come like you have never came before!" he demanded, pounding me so hard the desk moved. 
+The word given, permission granted, the invisible barrier broken, the greatest orgasm of my life, greater than any from my late husband, exploded through every pore of my body, sending fireworks to every sensory nerve. I screamed loud enough for anyone on the floor to know exactly what was happening, "Fuuuuuuuuck, yeeeeeeeeeees, Maaaasaaaaster, thank yooooooou," I bellowed. 
 
- The word given, permission granted, the invisible barrier broken, the greatest orgasm of my life, greater than any from my late husband, exploded through every pore of my body, sending fireworks to every sensory nerve. I screamed loud enough for anyone on the floor to know exactly what was happening, "Fuuuuuuuuck, yeeeeeeeeeees, Maaaasaaaaster, thank yooooooou," I bellowed. 
+He held my hips tight, his cock lodged deep inside my pulsating cunt, trembling like a never-ending earthquake. I babbled like a high schooler having her first orgasm. "Oh, oh, oh, oh, fuck, fuck, oh, oh, god." 
 
- He held my hips tight, his cock lodged deep inside my pulsating cunt, trembling like a never-ending earthquake. I babbled like a high schooler having her first orgasm. "Oh, oh, oh, oh, fuck, fuck, oh, oh, god." 
+I don't know how long I lay there, but time stood still as it was one of those rare moments where pure sexual perfection had been achieved. 
 
- I don't know how long I lay there, but time stood still as it was one of those rare moments where pure sexual perfection had been achieved. 
+Sadly, all great things need to end and my orgasm slowly simmered, and my new Master's perfect cock slipped out of me. 
 
- Sadly, all great things need to end and my orgasm slowly simmered, and my new Master's perfect cock slipped out of me. 
+He ordered, "Sit on the desk." 
 
- He ordered, "Sit on the desk." 
+My legs rubber, my body exhausted and my orgasm still coursing through me, I slowly stood up and hiked myself up onto his desk. 
 
- My legs rubber, my body exhausted and my orgasm still coursing through me, I slowly stood up and hiked myself up onto his desk. 
+office-submission25.jpg]"I think I will take you up on that foot idea," he smiled, his voice more playful than the rest of our encounter. 
 
- 
+Alan loved getting nylon-clad foot jobs, so I had become very flexible and coordinated with my feet. "Of course, Master," I obeyed, my pussy still having light quivers. 
 
- office-submission25.jpg]"I think I will take you up on that foot idea," he smiled, his voice more playful than the rest of our encounter. 
+I put my stocking-clad feet on both sides of his thick fully erect, slightly shiny with my cum, cock and began slowly using one foot to rub up and down his cock. He moaned on contact; I continued the slow, smooth up and down stroking. I teased him at first, going slow, and using my toes to tease his big mushroom top. After a couple of minutes of the teasing, I added my second foot, my legs bent leaving my still leaking cunt spread wide open, I began moving my feet up and down, giving him a steady stocking foot job. 
 
- Alan loved getting nylon-clad foot jobs, so I had become very flexible and coordinated with my feet. "Of course, Master," I obeyed, my pussy still having light quivers. 
+After a couple more minutes of slow up and down foot stroking, he demanded, clearly enjoying the foot job, "Faster slut, foot fuck me faster." 
 
- I put my stocking-clad feet on both sides of his thick fully erect, slightly shiny with my cum, cock and began slowly using one foot to rub up and down his cock. He moaned on contact; I continued the slow, smooth up and down stroking. I teased him at first, going slow, and using my toes to tease his big mushroom top. After a couple of minutes of the teasing, I added my second foot, my legs bent leaving my still leaking cunt spread wide open, I began moving my feet up and down, giving him a steady stocking foot job. 
+I obeyed, moving my legs up and down as fast as I could. I watched his face and knew he had to be close. 
 
- After a couple more minutes of slow up and down foot stroking, he demanded, clearly enjoying the foot job, "Faster slut, foot fuck me faster." 
+I was right as he grabbed my feet and began foot-fucking my stocking-clad feet furiously. I wanted to touch my cunt, already thinking about multiple orgasms, but refrained since I didn`t have permission and instead watched him fuck my feet. After a couple of minutes, he grunted and sprayed his cum all over my nylon-covered toes. 
 
- I obeyed, moving my legs up and down as fast as I could. I watched his face and knew he had to be close. 
+office-submission26.jpg]Once spent, he let go of my feet and ordered, `You are not going to waste my cum are you?" 
 
- I was right as he grabbed my feet and began foot-fucking my stocking-clad feet furiously. I wanted to touch my cunt, already thinking about multiple orgasms, but refrained since I didn`t have permission and instead watched him fuck my feet. After a couple of minutes, he grunted and sprayed his cum all over my nylon-covered toes. 
+Although the instructions were vague, I understood what was expected. I lifted my left foot up and retrieved his cum from my stocking-clad foot. Trying to be sexy, under the bizarre circumstances, I used my tongue and lips, taking my time. I replicated the retrieval on my right foot as my Master put away his beautiful fuck stick. 
 
- 
+Finally, he said, all business again, ignoring my utter nakedness on his desk. "We are flying to Paris tomorrow. Pack for a three day trip." 
 
- office-submission26.jpg]Once spent, he let go of my feet and ordered, `You are not going to waste my cum are you?" 
+Thrilled with the idea of going to a place I never have been, I asked, "What should I bring?" 
 
- Although the instructions were vague, I understood what was expected. I lifted my left foot up and retrieved his cum from my stocking-clad foot. Trying to be sexy, under the bizarre circumstances, I used my tongue and lips, taking my time. I replicated the retrieval on my right foot as my Master put away his beautiful fuck stick. 
+"Bring business attire for the day, slut attire for the evening," he replied, buckling his pants, before adding, "and bring anal lube, lots and lots of anal lube." 
 
- Finally, he said, all business again, ignoring my utter nakedness on his desk. "We are flying to Paris tomorrow. Pack for a three day trip." 
+office-submission27.jpg]"Yes, Master," I replied, still on his desk, both excited to be his fucktoy and petrified of that wide snake trying to sodomize me. 
 
- Thrilled with the idea of going to a place I never have been, I asked, "What should I bring?" 
+"Be here at nine so Carolyn can train you for your secretary role. Have your bags with you as we will leave directly from the office," he instructed, returning to his desk. 
 
- "Bring business attire for the day, slut attire for the evening," he replied, buckling his pants, before adding, "and bring anal lube, lots and lots of anal lube." 
+"Yes, Master," I agreed, already excited about the abundance of possibilities that lie ahead. 
 
- 
+"Good," he said, "now get the fuck out of here. I got work to do." 
 
- office-submission27.jpg]"Yes, Master," I replied, still on his desk, both excited to be his fucktoy and petrified of that wide snake trying to sodomize me. 
+Such bluntness felt like a slap in the face, but I got off the desk, got dressed, slipped back into my heels and began to leave, praying he was going to say something to me. Reward me with praise for my obedience. 
 
- "Be here at nine so Carolyn can train you for your secretary role. Have your bags with you as we will leave directly from the office," he instructed, returning to his desk. 
+At the door, he said, "Amanda." 
 
- "Yes, Master," I agreed, already excited about the abundance of possibilities that lie ahead. 
+"Yes, Master," I asked, turning around, excited to hear what he had to say. 
 
- "Good," he said, "now get the fuck out of here. I got work to do." 
+He laughed. I suddenly felt self-conscious. He explained, with a smile, "You may want to fix your blouse before you leave." 
 
- Such bluntness felt like a slap in the face, but I got off the desk, got dressed, slipped back into my heels and began to leave, praying he was going to say something to me. Reward me with praise for my obedience. 
+I looked down and realized in my hurry to dress I had missed a button and the whole shirt was buttoned incorrectly. I looked like someone dishevelled after a good hard fucking, which I guess was exactly what I should have looked like after having just had a good hard fucking. I quickly fixed it and being playful asked, "Is this better?" 
 
- At the door, he said, "Amanda." 
+"Much," he smiled, before adding, "Let her hair down, Amanda." 
 
- "Yes, Master," I asked, turning around, excited to hear what he had to say. 
+"Yes, Master," I obeyed, excited that he wanted to see me in a different light. 
 
- He laughed. I suddenly felt self-conscious. He explained, with a smile, "You may want to fix your blouse before you leave." 
+He looked at me for a few seconds, before saying, "Amanda, be sure to get the contract from Carolyn. Read it and sign it before you leave." 
 
- I looked down and realized in my hurry to dress I had missed a button and the whole shirt was buttoned incorrectly. I looked like someone dishevelled after a good hard fucking, which I guess was exactly what I should have looked like after having just had a good hard fucking. I quickly fixed it and being playful asked, "Is this better?" 
+"Yes, Master," I said, disappointed by the lack of acknowledgement of my look with my hair down.. 
 
- "Much," he smiled, before adding, "Let her hair down, Amanda." 
+office-submission28.jpg]"And Amanda, welcome to the firm," he smiled, adding, "you will be a welcome addition." 
 
- "Yes, Master," I obeyed, excited that he wanted to see me in a different light. 
+"Thank you," I replied, smiling, suddenly feeling important, looking into his hazel eyes and he looking into mine. 
 
- He looked at me for a few seconds, before saying, "Amanda, be sure to get the contract from Carolyn. Read it and sign it before you leave." 
+The brief moment of intimacy ended, as he waved me away. "Now get the fuck out of here, before I want to fuck you again." 
 
- "Yes, Master," I said, disappointed by the lack of acknowledgement of my look with my hair down.. 
+I almost said, 'fuck me again and again`, but refrained instead saying, "Good night, Master and thank you for the job opportunity." 
 
- 
+"You are welcome, slave," he said, not looking up from his computer. 
 
- office-submission28.jpg]"And Amanda, welcome to the firm," he smiled, adding, "you will be a welcome addition." 
+Being called slave had my cunt tingling again and I had to fight the urge to fall on my knees, crawl over to him and beg him to fuck me again. Instead, I walked out two hours from when I first arrived. Two hours and my life was forever changed. 
 
- "Thank you," I replied, smiling, suddenly feeling important, looking into his hazel eyes and he looking into mine. 
+As I closed the door, I jumped as I was face to face with Bella who was chatting with Carolyn, both of them staring at me knowingly. 
 
- The brief moment of intimacy ended, as he waved me away. "Now get the fuck out of here, before I want to fuck you again." 
+Bella smiled, moving towards me with the eyes of a predator, and said, "Welcome to the firm." 
 
- I almost said, 'fuck me again and again`, but refrained instead saying, "Good night, Master and thank you for the job opportunity." 
+"Yes, and just so you know, Bella and I share everything." Carolyn added, her smile deliciously naughty, foreshadowed a lesbian threesome. 
 
- "You are welcome, slave," he said, not looking up from his computer. 
+THE END 
 
- Being called slave had my cunt tingling again and I had to fight the urge to fall on my knees, crawl over to him and beg him to fuck me again. Instead, I walked out two hours from when I first arrived. Two hours and my life was forever changed. 
+Again a special thanks to the beautiful Vanessa for posing for the pictures. Check out the comments section to learn where you can go to Vanessa's Literotica Amateur Pictures Feedback Forum and see more pictures of her and even leave comments. 
 
- As I closed the door, I jumped as I was face to face with Bella who was chatting with Carolyn, both of them staring at me knowingly. 
-
- Bella smiled, moving towards me with the eyes of a predator, and said, "Welcome to the firm." 
-
- "Yes, and just so you know, Bella and I share everything." Carolyn added, her smile deliciously naughty, foreshadowed a lesbian threesome. 
-
- THE END 
-
- Again a special thanks to the beautiful Vanessa for posing for the pictures. Check out the comments section to learn where you can go to Vanessa's Literotica Amateur Pictures Feedback Forum and see more pictures of her and even leave comments. 
-
- Jasmine  
-
- 
-
- 
+Jasmine  
 
 ===
 
 Summary: Sweet teacher's naughty photos end up in a stranger's hands. 
 
- Note 1: Thanks to Sweet Daisy Haze for allowing her photos particularly from the following photo shoots to be used for this mammoth story: 
+Note 1: Thanks to Sweet Daisy Haze for allowing her photos particularly from the following photo shoots to be used for this mammoth story: 
 
- Mind Control App Makes Your Assistant Suck and Fuck! 
+Mind Control App Makes Your Assistant Suck and Fuck! 
 
- Daisy REALLY needs a job 
+Daisy REALLY needs a job 
 
- Pin-Up Vintage POV Eye Contact and Pretty Feet in YOUR Face 
+Pin-Up Vintage POV Eye Contact and Pretty Feet in YOUR Face 
 
- Forced Deepthroat for Hooters Shift 
+Forced Deepthroat for Hooters Shift 
 
- Note 2: Thanks to Robert, goamz86, and Wayne for editing this story. 
+Note 2: Thanks to Robert, goamz86, and Wayne for editing this story. 
 
- Note 3: This is a Halloween 2015 Contest story so please vote. That said, the focus is more on costumes than Halloween itself (although Halloween is involved at the end). 
+Note 3: This is a Halloween 2015 Contest story so please vote. That said, the focus is more on costumes than Halloween itself (although Halloween is involved at the end). 
 
- "Stocking Tales": Blackmailed Wife 
+"Stocking Tales": Blackmailed Wife 
 
- Hi, this is me. 
+Hi, this is me. 
 
- 
+blackmailed-wife01.jpg] 
 
- blackmailed-wife01.jpg] 
+This is the 'me' that my friends and family see. 
 
- This is the 'me' that my friends and family see. 
+On the other hand, this is what I wore to school yesterday, although my hair was in one ponytail at school instead of the two I changed in to once I got home. 
 
- On the other hand, this is what I wore to school yesterday, although my hair was in one ponytail at school instead of the two I changed in to once I got home. 
+Now you may wonder why I was at school yesterday. 
 
- Now you may wonder why I was at school yesterday. 
+blackmailed-wife02.jpg] 
 
- 
+I have been mistaken on occasion, although it's getting rarer, as a high school student. 
 
- blackmailed-wife02.jpg] 
+I have been mistaken constantly as a college student. 
 
- I have been mistaken on occasion, although it's getting rarer, as a high school student. 
+The reality is that I am actually a grade twelve teacher. 
 
- I have been mistaken constantly as a college student. 
+This picture was taken during one of my many role play adventures with my husband. 
 
- The reality is that I am actually a grade twelve teacher. 
+I am a teacher and look as sweet and innocent as a teacher should look. 
 
- This picture was taken during one of my many role play adventures with my husband. 
+That said, I love to be an enigma. I often go without panties at school, I often wear thigh highs underneath my conservative attire and on occasion when my hubby shoots a morning load on my tits', I go to school with dried cum on me. 
 
- I am a teacher and look as sweet and innocent as a teacher should look. 
+These secret sins of sexuality are my own way of keeping my days from the mundanity of everyday life. 
 
- That said, I love to be an enigma. I often go without panties at school, I often wear thigh highs underneath my conservative attire and on occasion when my hubby shoots a morning load on my tits', I go to school with dried cum on me. 
+And I am definitely not the prude that some students or parents may think. 
 
- These secret sins of sexuality are my own way of keeping my days from the mundanity of everyday life. 
+blackmailed-wife03.jpg] 
 
- And I am definitely not the prude that some students or parents may think. 
+At school I am firm and no nonsense. 
 
- 
+At home I am submissive and an eager slut. 
 
- blackmailed-wife03.jpg] 
+I love sucking cock. I mean I really love it. 
 
- At school I am firm and no nonsense. 
+I also love cum. I love swallowing it. I love rubbing it on my body. I even love facials... it feels so slutty, so completely different than my usual day to day life. 
 
- At home I am submissive and an eager slut. 
+When my husband Tyler isn't home for a few days, I go through withdrawal. 
 
- I love sucking cock. I mean I really love it. 
+I also love long hard fuck sessions and will sometimes on special occasions or when I've had one too many glasses of wine, take it in the ass. 
 
- I also love cum. I love swallowing it. I love rubbing it on my body. I even love facials... it feels so slutty, so completely different than my usual day to day life. 
+We have filmed a few sex videos for our own enjoyment. I somehow get even hornier when a camcorder is filming me... My inner porn star is allowed to come out to play, which is exhilarating (such a role reversal from the hours of seriousness of teaching). 
 
- When my husband Tyler isn't home for a few days, I go through withdrawal. 
+Tyler had also taken lots of photos of me in many a naughty position over the past year and a half... and it really seemed to spark our already pretty damn hot sex life. 
 
- I also love long hard fuck sessions and will sometimes on special occasions or when I've had one too many glasses of wine, take it in the ass. 
+That said, the photos and the videos all started rather innocently. I was bored one day and missing Tyler, so I sent him a sexy, slightly teasing photo as I hammed it up for the camera. Sexy smiles, puckered lips, my nerdy high school glasses, plaid skirt and sexy panties. 
 
- We have filmed a few sex videos for our own enjoyment. I somehow get even hornier when a camcorder is filming me... My inner porn star is allowed to come out to play, which is exhilarating (such a role reversal from the hours of seriousness of teaching). 
+blackmailed-wife04.jpg] 
 
- Tyler had also taken lots of photos of me in many a naughty position over the past year and a half... and it really seemed to spark our already pretty damn hot sex life. 
+This led to me posing for him when he was home one night after a few drinks. 
 
- That said, the photos and the videos all started rather innocently. I was bored one day and missing Tyler, so I sent him a sexy, slightly teasing photo as I hammed it up for the camera. Sexy smiles, puckered lips, my nerdy high school glasses, plaid skirt and sexy panties. 
+This became a regular activity for us (whether he was home or away). 
 
- 
+The photos were for teasing and were considered early foreplay for us. 
 
- blackmailed-wife04.jpg] 
+Over time, the photos got sexier... and I started to get more risqué. 
 
- This led to me posing for him when he was home one night after a few drinks. 
+I posed sexily in only a bra and panties. 
 
- This became a regular activity for us (whether he was home or away). 
+I posed bent over to showcase my fine ass. 
 
- The photos were for teasing and were considered early foreplay for us. 
+I posed cupping my breasts without a bra, but still not really showing anything. 
 
- Over time, the photos got sexier... and I started to get more risqué. 
+Then, of course, I allowed my breasts to be photographed. Tyler kept nagging me, promising he would delete them later. 
 
- I posed sexily in only a bra and panties. 
+And always wanting to please him, I reluctantly agreed. 
 
- I posed bent over to showcase my fine ass. 
+The first one was more of a tease. 
 
- I posed cupping my breasts without a bra, but still not really showing anything. 
+blackmailed-wife05.jpg] 
 
- Then, of course, I allowed my breasts to be photographed. Tyler kept nagging me, promising he would delete them later. 
+Of course... Tyler wanted more. Especially when he was stuck in a hotel. 
 
- And always wanting to please him, I reluctantly agreed. 
+And truthfully, once I posed showcasing my tits, I wanted to do more. 
 
- The first one was more of a tease. 
+I felt like a Playboy bunny as I posed in so many different positions. 
 
- 
+Feeling liberated getting my tits photographed, I even began walking around the house topless sometimes, even when Tyler wasn't home. 
 
- blackmailed-wife05.jpg] 
+It was liberating. 
 
- Of course... Tyler wanted more. Especially when he was stuck in a hotel. 
+I vacuumed the house topless; I watched television with Tyler topless; I made breakfast topless. 
 
- And truthfully, once I posed showcasing my tits, I wanted to do more. 
+blackmailed-wife06.jpg] 
 
- I felt like a Playboy bunny as I posed in so many different positions. 
+Then, feeling wild and adventurous one lonely day when rather horny, I took a selfie at home after work which was just slightly more provocative and texted it to him with a naughty message: 
 
- Feeling liberated getting my tits photographed, I even began walking around the house topless sometimes, even when Tyler wasn't home. 
+Three holes waiting for attention! 
 
- It was liberating. 
+blackmailed-wife07.jpg] 
 
- I vacuumed the house topless; I watched television with Tyler topless; I made breakfast topless. 
+Knowing he was flying home at the moment, he would get a great surprise once he got off the plane and checked his messages. 
 
- 
+As expected, it worked. He texted back profoundly: 
 
- blackmailed-wife06.jpg] 
+Holy shit! 
 
- Then, feeling wild and adventurous one lonely day when rather horny, I took a selfie at home after work which was just slightly more provocative and texted it to him with a naughty message: 
+I texted back naughtily, playing on his two word reply: 
 
- Three holes waiting for attention! 
+I hope you plan to fuck the shit out of my holes, baby. 
 
- 
+Not surprisingly, the photo worked and Jeremy indeed fucked all three of my holes that night, depositing his load in my ass after the marathon session. 
 
- blackmailed-wife07.jpg] 
+Of course, it was only a matter of time before Tyler wanted to go further and take shots of my ass. 
 
- Knowing he was flying home at the moment, he would get a great surprise once he got off the plane and checked his messages. 
+Somehow this seemed more risky and more vulnerable and at first I protested. 
 
- As expected, it worked. He texted back profoundly: 
+As he pounded me from behind one night he said, "Come on, Daisy. I need a shot of that perfect ass of yours when I'm alone at the hotel." 
 
- Holy shit! 
+My eyes went wide. "You're not deleting them?" 
 
- I texted back naughtily, playing on his two word reply: 
+"Most of them," he said, which I would later learn was a lie, "but I do have a couple of favourites to drool over while I stroke myself at night." 
 
- I hope you plan to fuck the shit out of my holes, baby. 
+"Really?" I asked, somehow feeling flattered that when he was alone in a hotel, he was jerking off to me and not to online porn. 
 
- Not surprisingly, the photo worked and Jeremy indeed fucked all three of my holes that night, depositing his load in my ass after the marathon session. 
+"Oh yeah, baby," he moaned, as he kept fucking me. 
 
- Of course, it was only a matter of time before Tyler wanted to go further and take shots of my ass. 
+He wouldn't let me come until I promised to pose for him. Being flattered and being a submissive, I eventually gave in like I always did, unable to ever say no to him. 
 
- Somehow this seemed more risky and more vulnerable and at first I protested. 
+That said, I bargained and in the end I agreed to pose wearing panties... skimpy panties, nervous to have my pussy or rosebud uncovered. 
 
- As he pounded me from behind one night he said, "Come on, Daisy. I need a shot of that perfect ass of yours when I'm alone at the hotel." 
+blackmailed-wife08.jpg] 
 
- My eyes went wide. "You're not deleting them?" 
+That was followed by a shot of me in a thong. 
 
- "Most of them," he said, which I would later learn was a lie, "but I do have a couple of favourites to drool over while I stroke myself at night." 
+blackmailed-wife09.jpg] 
 
- "Really?" I asked, somehow feeling flattered that when he was alone in a hotel, he was jerking off to me and not to online porn. 
+Al first, I hid my face, feeling this was a bit too provocative. 
 
- "Oh yeah, baby," he moaned, as he kept fucking me. 
+Then, of course, I showed my face. 
 
- He wouldn't let me come until I promised to pose for him. Being flattered and being a submissive, I eventually gave in like I always did, unable to ever say no to him. 
+That said, I need to clarify, I'm not a slut. 
 
- That said, I bargained and in the end I agreed to pose wearing panties... skimpy panties, nervous to have my pussy or rosebud uncovered. 
+blackmailed-wife10.jpg] 
 
- 
+Besides Tyler, I have only been with two other guys: losing my virginity at prom (I know, how stereotypical can I get?) and my college boyfriend of just over two years. 
 
- blackmailed-wife08.jpg] 
+That also said, I love being a slut for him. 
 
- That was followed by a shot of me in a thong. 
+Although I often protested many of his extreme sexual suggestions, I always eventually gave in. 
 
- 
+As mentioned, many of these nasty adventures were filmed or photographed. 
 
- blackmailed-wife09.jpg] 
+blackmailed-wife11.jpg] 
 
- Al first, I hid my face, feeling this was a bit too provocative. 
+Ironically, no one who knows me would possibly fathom I was anything but a typical young sweet wife and teacher... which only enhanced the thrill of being such a nasty slut for my husband. 
 
- Then, of course, I showed my face. 
+Anyway, my husband was out of town like he often is, and at a hotel when I decided to dress up in my newest costume for him, a very sexy good girl Belle, for some Skype playtime. 
 
- That said, I need to clarify, I'm not a slut. 
+I asked once we were face to face. "Horny, baby?" 
 
- 
+He laughed, "I likely can be." 
 
- blackmailed-wife10.jpg] 
+I moved the computer back and leaned back for a pose that let him see what I was dressed as. "How about now?" 
 
- Besides Tyler, I have only been with two other guys: losing my virginity at prom (I know, how stereotypical can I get?) and my college boyfriend of just over two years. 
+He smiled, "Lift off has been achieved." 
 
- That also said, I love being a slut for him. 
+"Let me see," I purred. I can't explain it but I love the look of a nice hard cock... Although I have only been with three men, I often spent my lonely nights when my hubby was gone googling cocks. I love the different lengths, different girths, the variety of colours by race, and the plethora of shapes (curved, straight, etc). Like snowflakes, no two are alike. 
 
- Although I often protested many of his extreme sexual suggestions, I always eventually gave in. 
+He pulled out his semi-erect six inch cock and asked, "Is my bride hungry?" 
 
- As mentioned, many of these nasty adventures were filmed or photographed. 
+I loved that he still called me his bride, even though we had been married for over four years. 
 
- 
+I answered, "I'm completely famished." 
 
- blackmailed-wife11.jpg] 
+He nodded, "I could use a nice long blow job." 
 
- Ironically, no one who knows me would possibly fathom I was anything but a typical young sweet wife and teacher... which only enhanced the thrill of being such a nasty slut for my husband. 
+"Too bad you're not here to fuck my face with that big dick of yours," I teased, loving talking dirty and really enjoying the slutty exhilaration of getting face fucked, especially after a full day of teaching teenagers. Although I love my job, I always have to be on at school, so sometimes I just want to be told what to do. 
 
- Anyway, my husband was out of town like he often is, and at a hotel when I decided to dress up in my newest costume for him, a very sexy good girl Belle, for some Skype playtime. 
+"Where would I shoot my cum?" He asked. 
 
- I asked once we were face to face. "Horny, baby?" 
+He shot buckets. More than almost any porn star I had ever witnessed and he loved to spray his seed as if marking his territory. 
 
- He laughed, "I likely can be." 
+Over the years he had come on almost every part of my body: I've had a plethora of facials where I literally felt I may drown in cum; I've had my tits splattered, my ass sprayed and my nylon feet coated. He has even shot his entire load on my forehead and filmed as his cum slowly meandered and dripped down my face like the slowest waterfall ever. 
 
- I moved the computer back and leaned back for a pose that let him see what I was dressed as. "How about now?" 
+Strangely, I loved it. I loved the slutty act of being covered in cum. I also loved spreading cum all over my body as if it was soap. 
 
- He smiled, "Lift off has been achieved." 
+I flashed back to one of the first times he treated me not as his girlfriend, this was before we were married, but some cheap cum slut. Shockingly, the rough treatment was what began my revelation as a submissive with a desire to please at all costs. 
 
- "Let me see," I purred. I can't explain it but I love the look of a nice hard cock... Although I have only been with three men, I often spent my lonely nights when my hubby was gone googling cocks. I love the different lengths, different girths, the variety of colours by race, and the plethora of shapes (curved, straight, etc). Like snowflakes, no two are alike. 
+He roughly fucked my face for an eternity, before shooting his load in my mouth so roughly, I gagged and had to spit it out, even as he kept spewing like a firehose trying to put out a fire with cum. 
 
- He pulled out his semi-erect six inch cock and asked, "Is my bride hungry?" 
+blackmailed-wife12.jpg] 
 
- I loved that he still called me his bride, even though we had been married for over four years. 
+I looked down and saw that my work blouse had big gobs of cum on it, even as he shot more cum on me. 
 
- I answered, "I'm completely famished." 
+"Never spit out my cum," he scolded. 
 
- He nodded, "I could use a nice long blow job." 
+"Pull out then," I quipped, annoyed at having my favourite blouse coated with cum, even as another rope hit me on the chin. 
 
- "Too bad you're not here to fuck my face with that big dick of yours," I teased, loving talking dirty and really enjoying the slutty exhilaration of getting face fucked, especially after a full day of teaching teenagers. Although I love my job, I always have to be on at school, so sometimes I just want to be told what to do. 
+He said, "No, you get used to taking it all down your throat." 
 
- "Where would I shoot my cum?" He asked. 
+"Really?" I said, half pissed at his presumptuous attitude, and yet also surprisingly turned on at being treated like a slut. 
 
- He shot buckets. More than almost any porn star I had ever witnessed and he loved to spray his seed as if marking his territory. 
+blackmailed-wife13.jpg] 
 
- Over the years he had come on almost every part of my body: I've had a plethora of facials where I literally felt I may drown in cum; I've had my tits splattered, my ass sprayed and my nylon feet coated. He has even shot his entire load on my forehead and filmed as his cum slowly meandered and dripped down my face like the slowest waterfall ever. 
+"Yes, he nodded, "Plus, you look fucking hot as hell coated in cum." 
 
- Strangely, I loved it. I loved the slutty act of being covered in cum. I also loved spreading cum all over my body as if it was soap. 
+"I feel like I got hit with a water balloon of cum," I quipped, having just taken a six day load of his seed. 
 
- I flashed back to one of the first times he treated me not as his girlfriend, this was before we were married, but some cheap cum slut. Shockingly, the rough treatment was what began my revelation as a submissive with a desire to please at all costs. 
+"Now retrieve my cum you wasted, my sexy slut," he ordered, "I would hate for any of my almost week long build up to be wasted." 
 
- He roughly fucked my face for an eternity, before shooting his load in my mouth so roughly, I gagged and had to spit it out, even as he kept spewing like a firehose trying to put out a fire with cum. 
+"That would be a shame," I agreed, as I scooped some cum of my chin. 
 
- 
+"No, no, no," he said, shaking his head. "Get the cum that is on the floor." 
 
- blackmailed-wife12.jpg] 
+"You're serous?" I asked. 
 
- I looked down and saw that my work blouse had big gobs of cum on it, even as he shot more cum on me. 
+"You should have swallowed it all," he said firmly. 
 
- "Never spit out my cum," he scolded. 
+Although again I was partly pissed at his treatment of me, my pussy was on fire and I, even though I knew I shouldn't have, lowered myself to the floor and licked up the puddle of cum that was there. 
 
- "Pull out then," I quipped, annoyed at having my favourite blouse coated with cum, even as another rope hit me on the chin. 
+I felt so dirty and cheap. 
 
- He said, "No, you get used to taking it all down your throat." 
+Yet, I also felt oddly liberated. 
 
- "Really?" I said, half pissed at his presumptuous attitude, and yet also surprisingly turned on at being treated like a slut. 
+It felt unexplainably good to just let go and obey. My day to day college life (I was in my last year of college at the time) was so structured that I didn't allow myself to really have fun. 
 
- 
+I also felt a strong desire to obey... to turn him on. 
 
- blackmailed-wife13.jpg] 
+"So fucking hot," he repeated, before adding, "and slutty." 
 
- "Yes, he nodded, "Plus, you look fucking hot as hell coated in cum." 
+"So hot and slutty," I quipped sarcastically. 
 
- "I feel like I got hit with a water balloon of cum," I quipped, having just taken a six day load of his seed. 
+"Brat," he said. 
 
- "Now retrieve my cum you wasted, my sexy slut," he ordered, "I would hate for any of my almost week long build up to be wasted." 
+I kept licking up the cum from the floor as he purred, "Good girl. Lick that floor completely clean. I don't want a single drop of my cum wasted." 
 
- "That would be a shame," I agreed, as I scooped some cum of my chin. 
+"I would never waste such a precious commodity," I replied, as I sucked up the rest of the cum, lapping the floor like a dog licking his food bowl. 
 
- "No, no, no," he said, shaking his head. "Get the cum that is on the floor." 
+When I sat back up, still on my knees, her asked, "Fuck, I think you are worthy of marrying." 
 
- "You're serous?" I asked. 
+I laughed, thinking he was kidding, "Is that an offer?" 
 
- "You should have swallowed it all," he said firmly. 
+blackmailed-wife14.jpg] 
 
- Although again I was partly pissed at his treatment of me, my pussy was on fire and I, even though I knew I shouldn't have, lowered myself to the floor and licked up the puddle of cum that was there. 
+He shrugged, "Well, since you're on your knees and asking... sure." 
 
- I felt so dirty and cheap. 
+"Are you serious?" I asked, suddenly unsure if he was joking. 
 
- Yet, I also felt oddly liberated. 
+He dropped to his knees and pulling something out of his pocket said, "I actually planned to ask you tonight at dinner, but this moment, with you coated in cum, is too hard to resist. Will you marry me?" 
 
- It felt unexplainably good to just let go and obey. My day to day college life (I was in my last year of college at the time) was so structured that I didn't allow myself to really have fun. 
+I couldn't believe it. Yet, I didn't hesitate, "Yes, yes, yes." 
 
- I also felt a strong desire to obey... to turn him on. 
+Returning to reality, I responded, in submissive mode, a mode I had been in ever since the unorthodox marriage proposal, "You're the boss. The better question is where would you shoot that cannon of cum?" 
 
- "So fucking hot," he repeated, before adding, "and slutty." 
+I could see him stroking faster and knew he was likely going to come soon. 
 
- "So hot and slutty," I quipped sarcastically. 
+"Well, you came all over my face before you left," I pointed out. 
 
- "Brat," he said. 
+"That's true," he nodded. 
 
- I kept licking up the cum from the floor as he purred, "Good girl. Lick that floor completely clean. I don't want a single drop of my cum wasted." 
+"And the time before that you shot your load up my shit hole," I said, being as nasty as I could, knowing that always accelerated his orgasm. 
 
- "I would never waste such a precious commodity," I replied, as I sucked up the rest of the cum, lapping the floor like a dog licking his food bowl. 
+"Oh God, yes," he groaned. 
 
- When I sat back up, still on my knees, her asked, "Fuck, I think you are worthy of marrying." 
+blackmailed-wife15.jpg] 
 
- I laughed, thinking he was kidding, "Is that an offer?" 
+I then repositioned myself, and pulled my tits out and posed, "Or how about my titties? Do you want to create a river of cum down the valley of tits?" 
 
- 
+"Damn baby," he moaned, "you're driving me crazy." 
 
- blackmailed-wife14.jpg] 
+Going further, I leaned close, my eager cocksucking lips now the focus as I purred, my tone as slutty sexy as I could make it, "Or do you want to give my face a new coat of cum paint?" 
 
- He shrugged, "Well, since you're on your knees and asking... sure." 
+"Fuck," he grunted, his legs stiffening, his load seconds away from eruption. 
 
- "Are you serious?" I asked, suddenly unsure if he was joking. 
+"Or would you rather just shove that cock in my mouth and face fuck me, your balls bouncing off my chin, until you deposit your protein down my throat?" 
 
- He dropped to his knees and pulling something out of his pocket said, "I actually planned to ask you tonight at dinner, but this moment, with you coated in cum, is too hard to resist. Will you marry me?" 
+"Fuck," he grunted as his cum rocketed straight up in the air. 
 
- I couldn't believe it. Yet, I didn't hesitate, "Yes, yes, yes." 
+Briefly forgetting we were hundreds of miles apart, I opened my mouth to catch his cum, banging my head on the laptop. 
 
- Returning to reality, I responded, in submissive mode, a mode I had been in ever since the unorthodox marriage proposal, "You're the boss. The better question is where would you shoot that cannon of cum?" 
+Damn, I sighed, I want that cock. I want that cum. 
 
- I could see him stroking faster and knew he was likely going to come soon. 
+I began rubbing myself, wanting to get off too. 
 
- "Well, you came all over my face before you left," I pointed out. 
+"Come for me, my slut," he ordered, always knowing exactly when to switch from sweet to dominant. 
 
- "That's true," he nodded. 
+"Yes, baby," I moaned. "I sure wish you were here to fuck all three of my holes tonight. Your slut is craving a three hole pounding. 
 
- "And the time before that you shot your load up my shit hole," I said, being as nasty as I could, knowing that always accelerated his orgasm. 
+"Maybe a deep fisting?" He questioned. 
 
- "Oh God, yes," he groaned. 
+"Right up to the elbow," I replied, frantically frigging myself. 
 
- 
+"What would your father say if he knew his only daughter was a fist taking, ass begging, cum craving, slut?" 
 
- blackmailed-wife15.jpg] 
+"Oh, God," I groaned, a naughty play on words as my father was a catholic minister. My orgasm was imminent and I begged, "Wash away my sin, baby, with a baptism by cum." 
 
- I then repositioned myself, and pulled my tits out and posed, "Or how about my titties? Do you want to create a river of cum down the valley of tits?" 
+"Now worship The Lord by releasing the devil's sin," he ordered, our most common role play with religious undertones. 
 
- "Damn baby," he moaned, "you're driving me crazy." 
+"Yes," I screamed, as my orgasm hit me. 
 
- Going further, I leaned close, my eager cocksucking lips now the focus as I purred, my tone as slutty sexy as I could make it, "Or do you want to give my face a new coat of cum paint?" 
+Once I recovered, we chatted briefly about our days before he insisted on going to bed... it was two hours later where he was. 
 
- "Fuck," he grunted, his legs stiffening, his load seconds away from eruption. 
+I got into pajamas and went and watched Netflix, like I usually did when home alone. 
 
- "Or would you rather just shove that cock in my mouth and face fuck me, your balls bouncing off my chin, until you deposit your protein down my throat?" 
+..... 
 
- "Fuck," he grunted as his cum rocketed straight up in the air. 
+I was at school, just after lunch, when I got a text. I didn't check it, as I never check my phone when I am teaching. 
 
- Briefly forgetting we were hundreds of miles apart, I opened my mouth to catch his cum, banging my head on the laptop. 
+Yet, it kept buzzing. 
 
- Damn, I sighed, I want that cock. I want that cum. 
+I told my teacher assistant I had to quickly deal with something and headed to the teacher washroom. 
 
- I began rubbing myself, wanting to get off too. 
+Once alone, I clicked the five messages: 
 
- "Come for me, my slut," he ordered, always knowing exactly when to switch from sweet to dominant. 
+Is this Daisy? 
 
- "Yes, baby," I moaned. "I sure wish you were here to fuck all three of my holes tonight. Your slut is craving a three hole pounding. 
+Daisy the high school teacher. 
 
- "Maybe a deep fisting?" He questioned. 
+The sweet innocent teacher that has a naughty secret? 
 
- "Right up to the elbow," I replied, frantically frigging myself. 
+The third message sent a chill down my spine. 
 
- "What would your father say if he knew his only daughter was a fist taking, ass begging, cum craving, slut?" 
+The fourth text was a picture of me. A playful sweet picture that I had taken for Tyler last Christmas. 
 
- "Oh, God," I groaned, a naughty play on words as my father was a catholic minister. My orgasm was imminent and I begged, "Wash away my sin, baby, with a baptism by cum." 
+blackmailed-wife16.jpg] 
 
- "Now worship The Lord by releasing the devil's sin," he ordered, our most common role play with religious undertones. 
+The last text: 
 
- "Yes," I screamed, as my orgasm hit me. 
+Cute picture. You look so wholesome and sweet, except for the dildo behind you!!! 
 
- Once I recovered, we chatted briefly about our days before he insisted on going to bed... it was two hours later where he was. 
+blackmailed-wife17.jpg] 
 
- I got into pajamas and went and watched Netflix, like I usually did when home alone. 
+I looked at the picture again. I then looked at the phone number (which was blocked). 
 
- ..... 
+I texted back: 
 
- I was at school, just after lunch, when I got a text. I didn't check it, as I never check my phone when I am teaching. 
+Who is this? 
 
- Yet, it kept buzzing. 
+After a minute, the stranger responded back with another picture (one I took a few months ago to tease my hubby), followed by a message. 
 
- I told my teacher assistant I had to quickly deal with something and headed to the teacher washroom. 
+Nice tits. I bet your high school students have fantasized about those perky tits. 
 
- Once alone, I clicked the five messages: 
+Can you take that whole sucker in your mouth, slut? 
 
- Is this Daisy? 
+Two feelings coursed through me: 
 
- Daisy the high school teacher. 
+-Anger 
 
- The sweet innocent teacher that has a naughty secret? 
+-Anxiety 
 
- The third message sent a chill down my spine. 
+I was furious at this person's name calling and smugness; yet, I also saw my career coming to a crashing end if these photos got out. 
 
- The fourth text was a picture of me. A playful sweet picture that I had taken for Tyler last Christmas. 
+I questioned again: 
 
- 
+Who is this? 
 
- blackmailed-wife16.jpg] 
+No response. 
 
- The last text: 
+I texted again: 
 
- Cute picture. You look so wholesome and sweet, except for the dildo behind you!!! 
+Please leave me alone. 
 
- 
+I returned to class stressed. Who was this? What did he want (assuming it was a he)? How did he get those pictures? 
 
- blackmailed-wife17.jpg] 
+When the bell rang for break. I called Tyler. But he didn't answer. 
 
- I looked at the picture again. I then looked at the phone number (which was blocked). 
+I sighed and left a message: 
 
- I texted back: 
+Please call me as soon as you get this. It is urgent. 
 
- Who is this? 
+I was completely stressed and with only an hour left in the school day, I went to my principal and asked if he could get someone to cover my last class as I wasn't feeling well... which was definitely true. 
 
- After a minute, the stranger responded back with another picture (one I took a few months ago to tease my hubby), followed by a message. 
+Thankfully, she found someone to cover me, and I quickly headed home. As soon as I was in my car, I received another blackmail text from the person. 
 
- Nice tits. I bet your high school students have fantasized about those perky tits. 
+Another picture. This one from a while ago, after Tyler had suggested that he would love to watch me with another woman (something I have done a few times since this picture was taken). 
 
- Can you take that whole sucker in your mouth, slut? 
+blackmailed-wife18.jpg] 
 
- Two feelings coursed through me: 
+Another message. 
 
- -Anger 
+So is this for Principal Wilson or that cute first year Chemistry teacher Ms. Hamilton? 
 
- -Anxiety 
+"Oh, God," I said to myself, Ms. Hamilton (Carrie), indeed one of the three women I had been with. It was also our first threesome (Tyler and I actually double penetrated her, which was fucking cool). 
 
- I was furious at this person's name calling and smugness; yet, I also saw my career coming to a crashing end if these photos got out. 
+Another text: 
 
- I questioned again: 
-
- Who is this? 
-
- No response. 
-
- I texted again: 
-
- Please leave me alone. 
-
- I returned to class stressed. Who was this? What did he want (assuming it was a he)? How did he get those pictures? 
-
- When the bell rang for break. I called Tyler. But he didn't answer. 
-
- I sighed and left a message: 
-
- Please call me as soon as you get this. It is urgent. 
-
- I was completely stressed and with only an hour left in the school day, I went to my principal and asked if he could get someone to cover my last class as I wasn't feeling well... which was definitely true. 
-
- Thankfully, she found someone to cover me, and I quickly headed home. As soon as I was in my car, I received another blackmail text from the person. 
-
- Another picture. This one from a while ago, after Tyler had suggested that he would love to watch me with another woman (something I have done a few times since this picture was taken). 
-
- 
-
- blackmailed-wife18.jpg] 
-
- Another message. 
-
- So is this for Principal Wilson or that cute first year Chemistry teacher Ms. Hamilton? 
-
- "Oh, God," I said to myself, Ms. Hamilton (Carrie), indeed one of the three women I had been with. It was also our first threesome (Tyler and I actually double penetrated her, which was fucking cool). 
-
- Another text: 
-
- I can leave you alone. But that will mean I am putting these pictures on the internet. Maybe creating a website.  
-
- 
-
- 
+I can leave you alone. But that will mean I am putting these pictures on the internet. Maybe creating a website.  
 
 ===
 
 God, I wish I could get a hold of Tyler. I quickly called him again as my stomach turned. Again, no answer, which only added to my frustration. 
 
- I had no idea what to say. So I didn't respond, hoping to get some time to talk to Tyler and somehow figure out who had these compromising pictures of me. 
+I had no idea what to say. So I didn't respond, hoping to get some time to talk to Tyler and somehow figure out who had these compromising pictures of me. 
 
- Another picture (from the same timeframe of the strap-on picture when I had dyed my hair pink to feel younger), another text: 
+Another picture (from the same timeframe of the strap-on picture when I had dyed my hair pink to feel younger), another text: 
 
- 
+blackmailed-wife19.jpg] 
 
- blackmailed-wife19.jpg] 
+Is this what you wore to work today? 
 
- Is this what you wore to work today? 
+I again ignored the texts as I drove home. 
 
- I again ignored the texts as I drove home. 
+I almost got into an accident when I received another text. 
 
- I almost got into an accident when I received another text. 
+I ignored it. 
 
- I ignored it. 
+Another text. 
 
- Another text. 
+I turned the radio up and focused on the road. 
 
- I turned the radio up and focused on the road. 
+Once I got home, I went in the house and called Tyler once again. 
 
- Once I got home, I went in the house and called Tyler once again. 
+When he didn't answer, I left another message: 
 
- When he didn't answer, I left another message: 
+Please, please, please call me!!! 
 
- Please, please, please call me!!! 
+Although I didn't want to, I clicked on the missed messages. 
 
- Although I didn't want to, I clicked on the missed messages. 
+Another picture and a couple messages. This photo much more recent, having been taken just last month when I did a naughty Skype video for Tyler. That said, there were no pictures taken of this. 
 
- Another picture and a couple messages. This photo much more recent, having been taken just last month when I did a naughty Skype video for Tyler. That said, there were no pictures taken of this. 
+blackmailed-wife20.jpg] 
 
- 
+'Oh, fuck!' This is a capture from a video. 
 
- blackmailed-wife20.jpg] 
+The messages: 
 
- 'Oh, fuck!' This is a capture from a video. 
+Good news, slut! My dick is bigger than your dildo and your husband. I'm sure you will love it in that cock sucking mouth of yours, that sweet inviting cunt, and that apparently willing ass. 
 
- The messages: 
+And the more you ignore me, the more likely it is I may put some of these online for the world to see. 
 
- Good news, slut! My dick is bigger than your dildo and your husband. I'm sure you will love it in that cock sucking mouth of yours, that sweet inviting cunt, and that apparently willing ass. 
+I was completely rattled. 
 
- And the more you ignore me, the more likely it is I may put some of these online for the world to see. 
+My life was potentially over. Tears streamed down my face as reality set in. 
 
- I was completely rattled. 
+Again, I wondered how this person, now clearly a male, could have these private photos. How careless had Tyler been? Or was it my fault somehow? Was my computer compromised? I grabbed a bottle of wine, poured myself a glass and downed half of it as if it was water. 
 
- My life was potentially over. Tears streamed down my face as reality set in. 
+I was about to respond, when another text and message came. 
 
- Again, I wondered how this person, now clearly a male, could have these private photos. How careless had Tyler been? Or was it my fault somehow? Was my computer compromised? I grabbed a bottle of wine, poured myself a glass and downed half of it as if it was water. 
+This may be the kinkiest picture I have ever seen. Is there anything you won't do? 
 
- I was about to respond, when another text and message came. 
+blackmailed-wife21.jpg] 
 
- This may be the kinkiest picture I have ever seen. Is there anything you won't do? 
+"Shit," I cursed to myself. 
 
- 
+This was a one-time thing (well two, actually) when I was completely drunk just a couple of months ago. Tyler, after a lengthy fucking and coming all over my tits, needed to piss and I offered him to piss in my mouth, wanting to try something new. The nasty task was exhilarating and humiliating, yet something I enjoyed... the taste even surprisingly pleasant. That said, I would never do that sober... I don't think. 
 
- blackmailed-wife21.jpg] 
+Yet, looking at the picture for the first time... I did indeed look like a dirty slut. 
 
- "Shit," I cursed to myself. 
+Fuck! 
 
- This was a one-time thing (well two, actually) when I was completely drunk just a couple of months ago. Tyler, after a lengthy fucking and coming all over my tits, needed to piss and I offered him to piss in my mouth, wanting to try something new. The nasty task was exhilarating and humiliating, yet something I enjoyed... the taste even surprisingly pleasant. That said, I would never do that sober... I don't think. 
+Fuck! 
 
- Yet, looking at the picture for the first time... I did indeed look like a dirty slut. 
+Fuck! 
 
- Fuck! 
+Another picture; another text. This one also quite recent as I tried to go back to the 1950s vintage pin-up look that Tyler loved. 
 
- Fuck! 
+blackmailed-wife22.jpg] 
 
- Fuck! 
+Why not more photos like this... in nylons. The first ones you send me better be in stockings. 
 
- Another picture; another text. This one also quite recent as I tried to go back to the 1950s vintage pin-up look that Tyler loved. 
+My eyes went wide. 
 
- 
+He was expecting me to send him pictures! 
 
- blackmailed-wife22.jpg] 
+Fuck! 
 
- Why not more photos like this... in nylons. The first ones you send me better be in stockings. 
+Fuck! 
 
- My eyes went wide. 
+Fuck! 
 
- He was expecting me to send him pictures! 
+Another picture, another text. 
 
- Fuck! 
+Like seriously, how many of these did he have? 
 
- Fuck! 
+This one was after a school girl role play where he came on me once and made me wear it on my face until he was hard again and shot a second load all over me. 
 
- Fuck! 
+blackmailed-wife23.jpg] 
 
- Another picture, another text. 
+You better respond back soon or I'll take that as an indicator you are okay with having your compromising photos all over the internet. Like this one. Seriously, how much cum does your husband shoot? 
 
- Like seriously, how many of these did he have? 
+I had no idea what to say. 
 
- This one was after a school girl role play where he came on me once and made me wear it on my face until he was hard again and shot a second load all over me. 
+My face was pale as a ghost, even though I was fuming with the hatred of a million fires inside. 
 
- 
+Fuck! Where the hell was Tyler? 
 
- blackmailed-wife23.jpg] 
+Worried he wasn't bluffing, I asked: 
 
- You better respond back soon or I'll take that as an indicator you are okay with having your compromising photos all over the internet. Like this one. Seriously, how much cum does your husband shoot? 
+What do you want from me? 
 
- I had no idea what to say. 
+He texted back with another picture and a message: 
 
- My face was pale as a ghost, even though I was fuming with the hatred of a million fires inside. 
+Isn't it obvious? My own online pet. Plus, you already have the leash and collar. 
 
- Fuck! Where the hell was Tyler? 
+I sighed. 
 
- Worried he wasn't bluffing, I asked: 
+Another compromising photo. This time of me in slight bondage as my husband actually led me around the house like a puppy. That role play was humiliating, which somehow made it equally as stimulating. 
 
- What do you want from me? 
+blackmailed-wife24.jpg] 
 
- He texted back with another picture and a message: 
+Thankfully, the picture he sent didn't have me crawling around like a dog. Although, he likely had more photos of me in this collar and leash. 
 
- Isn't it obvious? My own online pet. Plus, you already have the leash and collar. 
+Oddly, as I recalled these crazy nights of sexual submission and role playing, my pussy got wet. I shook my head as I focused on my current predicament. 
 
- I sighed. 
+I was being blackmailed. 
 
- Another compromising photo. This time of me in slight bondage as my husband actually led me around the house like a puppy. That role play was humiliating, which somehow made it equally as stimulating. 
+I had no idea by who. 
 
- 
+I had no clue how he had got a hold of all these pictures and likely video. 
 
- blackmailed-wife24.jpg] 
+I had no idea what his objective was. Being his online pet wouldn't be the end of the world, if I could guarantee he wouldn't release any of these pictures or video or any new ones he made. 
 
- Thankfully, the picture he sent didn't have me crawling around like a dog. Although, he likely had more photos of me in this collar and leash. 
+Christ. Was I really thinking I would submit to this stranger? 
 
- Oddly, as I recalled these crazy nights of sexual submission and role playing, my pussy got wet. I shook my head as I focused on my current predicament. 
+I really was stressed to the core. 
 
- I was being blackmailed. 
+Adding to the frustration was Tyler not responding to my calls. Where the hell was he? 
 
- I had no idea by who. 
+Compounding the frustration was the fact I couldn't call any of my friends. They knew nothing about this side of me. 
 
- I had no clue how he had got a hold of all these pictures and likely video. 
+Before I could respond, even though I had no idea what I was going to say, another photo and another text: 
 
- I had no idea what his objective was. Being his online pet wouldn't be the end of the world, if I could guarantee he wouldn't release any of these pictures or video or any new ones he made. 
+I think we could have some fun role playing. Your husband is gone lots and I have lots of free time to give you the attention you obviously crave and need. 
 
- Christ. Was I really thinking I would submit to this stranger? 
+I can be the prisoner who teaches a cop a lesson, for example. 
 
- I really was stressed to the core. 
+blackmailed-wife25.jpg] 
 
- Adding to the frustration was Tyler not responding to my calls. Where the hell was he? 
+Another photo from a while ago. Actually one of the first costumes I had bought to surprise Tyler when he came home after a long trip. 
 
- Compounding the frustration was the fact I couldn't call any of my friends. They knew nothing about this side of me. 
+The handcuffs were a fun touch. First on him as I sucked his cock and rode him for my own personal pleasure. Then later on me as he took turns fucking my pussy and ass, even trying something new at one point as he fisted my pussy slightly while fucking my ass. 
 
- Before I could respond, even though I had no idea what I was going to say, another photo and another text: 
+I texted back, hoping there was an easy way out: 
 
- I think we could have some fun role playing. Your husband is gone lots and I have lots of free time to give you the attention you obviously crave and need. 
+Is it money? I can pay. 
 
- I can be the prisoner who teaches a cop a lesson, for example. 
+He replied back almost immediately, with another photo, one of me with a mouthful of cum, which could have been from any number of role play nights and another message: 
 
- 
+Oh, you will pay. With those three fuck holes of yours. 
 
- blackmailed-wife25.jpg] 
+And I'll pay by depositing my load in that hungry mouth of yours. 
 
- Another photo from a while ago. Actually one of the first costumes I had bought to surprise Tyler when he came home after a long trip. 
+blackmailed-wife26.jpg] 
 
- The handcuffs were a fun touch. First on him as I sucked his cock and rode him for my own personal pleasure. Then later on me as he took turns fucking my pussy and ass, even trying something new at one point as he fisted my pussy slightly while fucking my ass. 
+You must be starving for some cum by now! 
 
- I texted back, hoping there was an easy way out: 
+I got even more worried. Was he implying even more than just online? 
 
- Is it money? I can pay. 
+Suddenly pleasing him online seemed like not only a feasible idea, but a good option. 
 
- He replied back almost immediately, with another photo, one of me with a mouthful of cum, which could have been from any number of role play nights and another message: 
+I texted back: 
 
- Oh, you will pay. With those three fuck holes of yours. 
+What would you expect of me? 
 
- And I'll pay by depositing my load in that hungry mouth of yours. 
+He responded back: 
 
- 
+Online obedience. 
 
- blackmailed-wife26.jpg] 
+I texted back: 
 
- You must be starving for some cum by now! 
+What does that even mean? 
 
- I got even more worried. Was he implying even more than just online? 
+He responded back: 
 
- Suddenly pleasing him online seemed like not only a feasible idea, but a good option. 
+You're a teacher, you understand exactly what I mean. I tell you to do something and you do it. Just imagine I am the teacher and you are the student. 
 
- I texted back: 
+I sighed to myself. 
 
- What would you expect of me? 
+What choice did I have? 
 
- He responded back: 
+Suddenly my cell rang. 
 
- Online obedience. 
+"Tyler, thank God," I greeted, frantic. 
 
- I texted back: 
+"Are you okay?" he asked. 
 
- What does that even mean? 
+"No," I replied, instantly beginning to cry. 
 
- He responded back: 
+"What's wrong?" he asked. 
 
- You're a teacher, you understand exactly what I mean. I tell you to do something and you do it. Just imagine I am the teacher and you are the student. 
+Between tears and snorts, I don't cry well, I explained everything that happened. 
 
- I sighed to myself. 
+There was a long silence at the end of the line. 
 
- What choice did I have? 
+"Well, say something," I demanded, as another text came, which I ignored. 
 
- Suddenly my cell rang. 
+"This is my fault," he said, his voice sounding broken. 
 
- "Tyler, thank God," I greeted, frantic. 
+"Tell me," I demanded, needing to know how. 
 
- "Are you okay?" he asked. 
+"When I realized I didn't have my phone this morning I assumed I left it in the hotel. Yet, now that I really think about it, my hotel room key was with my cell phone," he said. 
 
- "No," I replied, instantly beginning to cry. 
+That explains why he hadn't returned my calls. I asked, even though I knew the answer, "Please tell me you didn't have photos of me on your phone that you shouldn't." 
 
- "What's wrong?" he asked. 
+"I do," he said, his voice dripping with guilt. "But that isn't the worst part." 
 
- Between tears and snorts, I don't cry well, I explained everything that happened. 
+"What could be worse?" I asked, terrified to know. 
 
- There was a long silence at the end of the line. 
+"I will know when I get to the hotel, but I am guessing he broke into the hotel room and took my laptop," he said. 
 
- "Well, say something," I demanded, as another text came, which I ignored. 
+"Oh God," I said, completely deflated. 
 
- "This is my fault," he said, his voice sounding broken. 
+"Fuck! Fuck! Fuck!" he cursed. 
 
- "Tell me," I demanded, needing to know how. 
+"And you have lots of pictures on there of me?" I asked, again knowing the answer, the evidence pretty clear. 
 
- "When I realized I didn't have my phone this morning I assumed I left it in the hotel. Yet, now that I really think about it, my hotel room key was with my cell phone," he said. 
+"Quite a few," he whispered. 
 
- That explains why he hadn't returned my calls. I asked, even though I knew the answer, "Please tell me you didn't have photos of me on your phone that you shouldn't." 
+"Define 'quite a few'," I said, my tone terse. 
 
- "I do," he said, his voice dripping with guilt. "But that isn't the worst part." 
+"All of them," he answered. 
 
- "What could be worse?" I asked, terrified to know. 
+"Like all, all?" I asked, the terrible situation getting worse. 
 
- "I will know when I get to the hotel, but I am guessing he broke into the hotel room and took my laptop," he said. 
+"Yes," he whispered, so quiet I barely heard him. 
 
- "Oh God," I said, completely deflated. 
+"And the videos?" I asked, again assuming the obvious. 
 
- "Fuck! Fuck! Fuck!" he cursed. 
+"Yes, those too," he admitted. 
 
- "And you have lots of pictures on there of me?" I asked, again knowing the answer, the evidence pretty clear. 
+Another text. 
 
- "Quite a few," he whispered. 
+"The asshole is texting me," I said, venom in my tone now. 
 
- "Define 'quite a few'," I said, my tone terse. 
+"What is he saying now?" Tyler asked. 
 
- "All of them," he answered. 
+"I don't know, it's probably more compromising pictures or demands," I snapped, as I clicked on the update on my phone to check. 
 
- "Like all, all?" I asked, the terrible situation getting worse. 
+It was indeed another photo and a message. Two actually. 
 
- "Yes," he whispered, so quiet I barely heard him. 
+blackmailed-wife27.jpg] 
 
- "And the videos?" I asked, again assuming the obvious. 
+It was a photo of a role play earlier this year when we redid Pirates of the Caribbean. 
 
- "Yes, those too," he admitted. 
+This photo was tame compared to earlier ones sent. 
 
- Another text. 
+His texts were: 
 
- "The asshole is texting me," I said, venom in my tone now. 
+This looks like a fun role play. 
 
- "What is he saying now?" Tyler asked. 
+I'm guessing you have a lot of outfits to perform in for me. 
 
- "I don't know, it's probably more compromising pictures or demands," I snapped, as I clicked on the update on my phone to check. 
+I said to Tyler, "Another fucking picture." 
 
- It was indeed another photo and a message. Two actually. 
+"Of me in the pirate's costume," I answered. 
 
- 
+"That isn't that bad," he said. 
 
- blackmailed-wife27.jpg] 
+"He fucking sent one of me with my mouth open catching your urine," I snapped, frustrated even more by his lack of urgency. 
 
- It was a photo of a role play earlier this year when we redid Pirates of the Caribbean. 
+"Sorry, sorry, sorry," he repeated. 
 
- This photo was tame compared to earlier ones sent. 
+"Where are you?" I asked. 
 
- His texts were: 
+"At the conference, at a payphone," he answered. 
 
- This looks like a fun role play. 
+"Well, get a cab and get back to the hotel so you can find out if it's been stolen," I said. 
 
- I'm guessing you have a lot of outfits to perform in for me. 
+"Okay," he said, "I'll call you when I get back to the hotel." 
 
- I said to Tyler, "Another fucking picture." 
+"Hurry," I demanded, and hung up. 
 
- "Of me in the pirate's costume," I answered. 
+Another picture and another text. 
 
- "That isn't that bad," he said. 
+blackmailed-wife28.jpg] 
 
- "He fucking sent one of me with my mouth open catching your urine," I snapped, frustrated even more by his lack of urgency. 
+I couldn't even recall when this one was taken. 
 
- "Sorry, sorry, sorry," he repeated. 
+His text: 
 
- "Where are you?" I asked. 
+This seems to be a position you should regularly be in for me. That way all three of your fuck-holes are available for me. 
 
- "At the conference, at a payphone," he answered. 
+I texted back: 
 
- "Well, get a cab and get back to the hotel so you can find out if it's been stolen," I said. 
+You stole my husband's computer! We are going to the police. 
 
- "Okay," he said, "I'll call you when I get back to the hotel." 
+He replied back with a flurry of texts: 
 
- "Hurry," I demanded, and hung up. 
+First, your husband shouldn't leave his hotel card with his phone. 
 
- Another picture and another text. 
+Second, your husband should have a better password than 1234. 
 
- 
+Third, you probably shouldn't pose like such a slut; you likely also shouldn't film pornographic videos... although the couple I have watched have been very enjoyable. I mean, for a teacher you sure can pull off porn star. 
 
- blackmailed-wife28.jpg] 
+Fourth, if you call the cops at all, I will send these pictures and videos online and you will be an overnight porn sensation. 
 
- I couldn't even recall when this one was taken. 
+Like how would your principal and your board feel about pictures such as this one: 
 
- His text: 
+I stared at the picture. One I hadn't seen before, even though I recalled the role play encounter. I often deep throated Tyler, but this was the first time I took it all in and just held a pose. As usual, it was a slutty act, which, as usual, turned me on. 
 
- This seems to be a position you should regularly be in for me. That way all three of your fuck-holes are available for me. 
+That said, looking at the picture, which was undoubtedly me, like most of the other pictures he had already sent, I knew if any of these got out I would be unemployed instantly and not hirable in the teaching system anywhere in the city, state and, likely, country. Christ, its likely I wouldn't get a teaching job anywhere in the world. 
 
- I texted back: 
+Except maybe Van Nuys, where a majority of the porn movies were filmed (don't even ask how I know such a thing). 
 
- You stole my husband's computer! We are going to the police. 
+Another text and picture. This one another of the humiliating kind. The only other time I had drunk piss, again quite intoxicated, although this was just a couple of weekends ago, after being in the hot tub: 
 
- He replied back with a flurry of texts: 
+blackmailed-wife29.jpg] 
 
- First, your husband shouldn't leave his hotel card with his phone. 
+Or this? 
 
- Second, your husband should have a better password than 1234. 
+Then another text and picture: 
 
- Third, you probably shouldn't pose like such a slut; you likely also shouldn't film pornographic videos... although the couple I have watched have been very enjoyable. I mean, for a teacher you sure can pull off porn star. 
+blackmailed-wife30.jpg] 
 
- Fourth, if you call the cops at all, I will send these pictures and videos online and you will be an overnight porn sensation. 
+Or this? 
 
- Like how would your principal and your board feel about pictures such as this one: 
+A picture of me dressed up a little goth like and my face covered in cum, although a lot more was on the floor. Which he made me lick up after, as he pointed out I should never waste his cum. 
 
- I stared at the picture. One I hadn't seen before, even though I recalled the role play encounter. I often deep throated Tyler, but this was the first time I took it all in and just held a pose. As usual, it was a slutty act, which, as usual, turned me on. 
+The litany of pictures continued: 
 
- That said, looking at the picture, which was undoubtedly me, like most of the other pictures he had already sent, I knew if any of these got out I would be unemployed instantly and not hirable in the teaching system anywhere in the city, state and, likely, country. Christ, its likely I wouldn't get a teaching job anywhere in the world. 
+Or this? Do you like being choked? 
 
- Except maybe Van Nuys, where a majority of the porn movies were filmed (don't even ask how I know such a thing). 
+blackmailed-wife31.jpg] 
 
- Another text and picture. This one another of the humiliating kind. The only other time I had drunk piss, again quite intoxicated, although this was just a couple of weekends ago, after being in the hot tub: 
+I remembered this picture and it is the one thing that at first I didn't like. 
 
- 
+Another text, this time without a picture. 
 
- blackmailed-wife29.jpg] 
+These, of course, are just a few of the nasty ones. There are pictures of that pussy, pictures with cock in all three of your holes and even a picture of your husband, I assume its your husband, fisting you. 
 
- Or this? 
+PS: You can sure take a lot up that cunt of yours! 
 
- Then another text and picture: 
+Mortified, I texted: 
 
- 
+Please, stop. 
 
- blackmailed-wife30.jpg] 
+He texted back: 
 
- Or this? 
+I expect you in nylons and ready to Skype in five minutes or the website I discussed goes live. Be sure to check it out if you wish. I already have purchased the domain. 
 
- A picture of me dressed up a little goth like and my face covered in cum, although a lot more was on the floor. Which he made me lick up after, as he pointed out I should never waste his cum. 
+I was freaking out. 
 
- The litany of pictures continued: 
+I quickly checked my computer and typed in the url I couldn't forget... being my name and all. 
 
- Or this? Do you like being choked? 
+Sure enough it existed. 
 
- 
+With a construction sign. 
 
- blackmailed-wife31.jpg] 
+Fuck! 
 
- I remembered this picture and it is the one thing that at first I didn't like. 
+Fuck! 
 
- Another text, this time without a picture. 
+Fuck! 
 
- These, of course, are just a few of the nasty ones. There are pictures of that pussy, pictures with cock in all three of your holes and even a picture of your husband, I assume its your husband, fisting you. 
+I had no choice. 
 
- PS: You can sure take a lot up that cunt of yours! 
+He texted me back, asked for my Skype name, and I reluctantly gave it to him. 
 
- Mortified, I texted: 
+I found an outfit that I thought was sexy, yet not too edgy, and had stockings. 
 
- Please, stop. 
+I then waited with trepidation, turning my Skype on. 
 
- He texted back: 
+A chill of anxiety went up my back when the annoying Skype sound came on. 
 
- I expect you in nylons and ready to Skype in five minutes or the website I discussed goes live. Be sure to check it out if you wish. I already have purchased the domain. 
+I took a deep breath and pressed the button. 
 
- I was freaking out. 
+blackmailed-wife32.jpg] 
 
- I quickly checked my computer and typed in the url I couldn't forget... being my name and all. 
+There was no image of him, but I heard his voice... slightly distorted. 
 
- Sure enough it existed. 
+"Are you serious?" he asked. 
 
- With a construction sign. 
+"What?" I asked, not even pretending to hide my contempt. 
 
- Fuck! 
+"Are those nylons?" he questioned. 
 
- Fuck! 
+"You said stockings," I pointed out. 
 
- Fuck! 
+"No," he said, "I said nylons. Fishnets are for prostitutes. Are you a prostitute?" 
 
- I had no choice. 
+"No," I said, tersely, anger bubbling inside me quickly. 
 
- He texted me back, asked for my Skype name, and I reluctantly gave it to him. 
+"Good, because I have no intention of paying you," he said. "Although based on the toys on your bed, I'm assuming that you were getting pretty excited." 
 
- I found an outfit that I thought was sexy, yet not too edgy, and had stockings. 
+I responded, making it crystal clear that was not the case, "That was just from last night." The truth was this was the spare bedroom, where I often Skyped with Tyler at night because it's where the computer was. My laptop was so slow that it often froze up, which was why I was using it now... hoping for a bad connection. 
 
- I then waited with trepidation, turning my Skype on. 
+"Either way," he said, "I am logging off and will be back on in five minutes and I expect you in nylons." 
 
- A chill of anxiety went up my back when the annoying Skype sound came on. 
+"Fine!" I snapped, making my point. 
 
- I took a deep breath and pressed the button. 
+"Be good, Daisy, or your photos and videos go viral," he warned and logged off. 
 
- 
+"Fuck!" I cursed, as I began getting undressed. 
 
- blackmailed-wife32.jpg] 
+I went to my dresser and realized I didn't have many sheer nylons. Most were patterned, although I did have a white pair from my wedding four years ago. I also had a beige pair. 
 
- There was no image of him, but I heard his voice... slightly distorted. 
+I grabbed the beige stockings, hooked them to a garter-belt and changed into a less slutty, but sexy, outfit. I figured I had to play nice at least until Tyler called. 
 
- "Are you serious?" he asked. 
+I moved to the couch in another room, set-up my laptop and waited. 
 
- "What?" I asked, not even pretending to hide my contempt. 
+blackmailed-wife33.jpg] 
 
- "Are those nylons?" he questioned. 
+When he returned, he immediately approved. "That is much better." 
 
- "You said stockings," I pointed out. 
+"I'm happy you like," I sarcastically said, as I dangled the heel of my shoe, trying not to look at the computer. 
 
- "No," he said, "I said nylons. Fishnets are for prostitutes. Are you a prostitute?" 
+"I'd avoid the sarcasm, slut," he said firmly. "I'm a patient man, but you are already pushing my limits." 
 
- "No," I said, tersely, anger bubbling inside me quickly. 
+"Sorry," I said, deciding to play along as best I could. 
 
- "Good, because I have no intention of paying you," he said. "Although based on the toys on your bed, I'm assuming that you were getting pretty excited." 
+"Now let me see those toes," he ordered. 
 
- I responded, making it crystal clear that was not the case, "That was just from last night." The truth was this was the spare bedroom, where I often Skyped with Tyler at night because it's where the computer was. My laptop was so slow that it often froze up, which was why I was using it now... hoping for a bad connection. 
+I allowed my heel to drop and asked, "You mean these toes?" 
 
- "Either way," he said, "I am logging off and will be back on in five minutes and I expect you in nylons." 
+"Very nice," he approved, "and painted too." 
 
- "Fine!" I snapped, making my point. 
+blackmailed-wife34.jpg] 
 
- "Be good, Daisy, or your photos and videos go viral," he warned and logged off. 
+"I'm happy you like," I lied. 
 
- "Fuck!" I cursed, as I began getting undressed. 
+"Good girl," he said, not catching on to my lie. 
 
- I went to my dresser and realized I didn't have many sheer nylons. Most were patterned, although I did have a white pair from my wedding four years ago. I also had a beige pair. 
+"Are we done here?" I asked. 
 
- I grabbed the beige stockings, hooked them to a garter-belt and changed into a less slutty, but sexy, outfit. I figured I had to play nice at least until Tyler called. 
+"Not even close," he laughed. 
 
- I moved to the couch in another room, set-up my laptop and waited. 
+"I am expecting a call from my husband," I said. 
 
- 
+"I bet you are," he said, "but at the moment you should be focused on being my online pet." 
 
- blackmailed-wife33.jpg] 
+"Fine," I sighed. 
 
- When he returned, he immediately approved. "That is much better." 
+"Now let me see both of your legs and feet in those sexy nylons," he ordered. 
 
- "I'm happy you like," I sarcastically said, as I dangled the heel of my shoe, trying not to look at the computer. 
+I slipped out of my other heel and moved to show both feet. 
 
- "I'd avoid the sarcasm, slut," he said firmly. "I'm a patient man, but you are already pushing my limits." 
+"No, no, no," he said, annoyed. "Get on your back and put your feet in the air." 
 
- "Sorry," I said, deciding to play along as best I could. 
+"Fine," I said, annoyed. "Is this better?" I asked. 
 
- "Now let me see those toes," he ordered. 
+blackmailed-wife35.jpg] 
 
- I allowed my heel to drop and asked, "You mean these toes?" 
+"Very nice," he approved. "You have very sexy legs." 
 
- "Very nice," he approved, "and painted too." 
+"Thanks," I said. Although I was being blackmailed and this guy was a fucking creep, I did like compliments. 
 
- 
+"Those are some sexy nylons too," he said. 
 
- blackmailed-wife34.jpg] 
+"I wore them for a wedding last year," I said, not sure why I thought this was information he needed to know. 
 
- "I'm happy you like," I lied. 
+"I'm sure Tyler approved," he said. 
 
- "Good girl," he said, not catching on to my lie. 
+"How do you know my husband's name?" I asked. 
 
- "Are we done here?" I asked. 
+"Same way I know where you work," he answered. "Google." 
 
- "Not even close," he laughed. 
+"Yep, the internet is the perfect place to stalk," I quipped. 
 
- "I am expecting a call from my husband," I said. 
+"I suppose that is true," he chuckled softly. 
 
- "I bet you are," he said, "but at the moment you should be focused on being my online pet." 
+"Now massage one foot," he said. 
 
- "Fine," I sighed. 
+"Okay," I said, the order rather strange. 
 
- "Now let me see both of your legs and feet in those sexy nylons," he ordered. 
+blackmailed-wife36.jpg] 
 
- I slipped out of my other heel and moved to show both feet. 
+"Yes," he groaned. 
 
- "No, no, no," he said, annoyed. "Get on your back and put your feet in the air." 
+Fuck! Was he jerking off to me? 
 
- "Fine," I said, annoyed. "Is this better?" I asked. 
+Shit! Of course he was. 
 
- 
+I massaged my foot for a minute, which actually felt nice. I loved when Tyler massaged my feet. 
 
- blackmailed-wife35.jpg] 
+"Now let me see the sole of your stocking foot," he ordered. 
 
- "Very nice," he approved. "You have very sexy legs." 
+I thought 'this guy is fucked up', but obeyed as so far this Skype session was rather PG. 
 
- "Thanks," I said. Although I was being blackmailed and this guy was a fucking creep, I did like compliments. 
+"I want a better look," he said. "move your camera above you." 
 
- "Those are some sexy nylons too," he said. 
+"How?" I asked. 
 
- "I wore them for a wedding last year," I said, not sure why I thought this was information he needed to know. 
+"Put it on top of the TV stand and angle the computer down," he ordered. 
 
- "I'm sure Tyler approved," he said. 
+'How would he know that?' I thought to myself. 
 
- "How do you know my husband's name?" I asked. 
+I asked the question. "How do you know I have a TV stand there?" 
 
- "Same way I know where you work," he answered. "Google." 
+"Do you?" he asked. 
 
- "Yep, the internet is the perfect place to stalk," I quipped. 
+"Yes, but," I began, but was cut off. 
 
- "I suppose that is true," he chuckled softly. 
+"Just do it," he ordered. "I don't have all day." 
 
- "Now massage one foot," he said. 
+"Fine," I again sighed, stood up and moved the laptop to a new position. It took a couple of tries, but I got the laptop in the right position. 
 
- "Okay," I said, the order rather strange. 
-
- 
-
- blackmailed-wife36.jpg] 
-
- "Yes," he groaned. 
-
- Fuck! Was he jerking off to me? 
-
- Shit! Of course he was. 
-
- I massaged my foot for a minute, which actually felt nice. I loved when Tyler massaged my feet. 
-
- "Now let me see the sole of your stocking foot," he ordered. 
-
- I thought 'this guy is fucked up', but obeyed as so far this Skype session was rather PG. 
-
- "I want a better look," he said. "move your camera above you." 
-
- "How?" I asked. 
-
- "Put it on top of the TV stand and angle the computer down," he ordered. 
-
- 'How would he know that?' I thought to myself. 
-
- I asked the question. "How do you know I have a TV stand there?" 
-
- "Do you?" he asked. 
-
- "Yes, but," I began, but was cut off. 
-
- "Just do it," he ordered. "I don't have all day." 
-
- "Fine," I again sighed, stood up and moved the laptop to a new position. It took a couple of tries, but I got the laptop in the right position. 
-
- "Good, now show me that sole. Put your foot right up in the air."  
-
- 
-
- 
+"Good, now show me that sole. Put your foot right up in the air."  
 
 ===
 
 "Okay," I said, baffled by how this could be turning him on. 
 
- 
+blackmailed-wife37.jpg] 
 
- blackmailed-wife37.jpg] 
+"Wiggle that foot." He ordered. 
 
- "Wiggle that foot." He ordered. 
+I did. 
 
- I did. 
+"No, no," he said. "The toes, wiggle the toes." 
 
- "No, no," he said. "The toes, wiggle the toes." 
+"Oh," I said, still unsure what he really wanted. 
 
- "Oh," I said, still unsure what he really wanted. 
+"Nice," he said, as I wiggled my toes up in the air. 
 
- "Nice," he said, as I wiggled my toes up in the air. 
+"Now both feet." 
 
- "Now both feet." 
+"Both feet what?" I asked. 
 
- "Both feet what?" I asked. 
+"Show me both of your feet and your sexy toes," he ordered. 
 
- "Show me both of your feet and your sexy toes," he ordered. 
+"Okay," I again agreed, baffled by the purpose of this. 
 
- "Okay," I again agreed, baffled by the purpose of this. 
+Although it was awkward and uncomfortable, I lifted both feet up and posed them for him. 
 
- Although it was awkward and uncomfortable, I lifted both feet up and posed them for him. 
+"Now bend your knees so I can get a good close up of those toes," he ordered. 
 
- "Now bend your knees so I can get a good close up of those toes," he ordered. 
+I obeyed, which made me even more uncomfortable. 
 
- I obeyed, which made me even more uncomfortable. 
+blackmailed-wife38.jpg] 
 
- 
+"Oh yeah," he groaned. "Perfect! Now hold that pose." 
 
- blackmailed-wife38.jpg] 
+I did for a while as he didn't say a word. 
 
- "Oh yeah," he groaned. "Perfect! Now hold that pose." 
+I hoped he was jerking off and this was almost over. 
 
- I did for a while as he didn't say a word. 
+He then surprised me by saying, "Now get onto your knees." 
 
- I hoped he was jerking off and this was almost over. 
+I almost laughed. It's not like I could suck his cock. 
 
- He then surprised me by saying, "Now get onto your knees." 
+But I obeyed, baffled by this entire experience. 
 
- I almost laughed. It's not like I could suck his cock. 
+"Now look up and beg to suck my cock," he ordered. 
 
- But I obeyed, baffled by this entire experience. 
+"Seriously?" I asked, this getting silly. 
 
- "Now look up and beg to suck my cock," he ordered. 
+"Just do it," he said. 
 
- "Seriously?" I asked, this getting silly. 
+I listlessly said in a monotone voice, "May I please suck your dick?" 
 
- "Just do it," he said. 
+"You better do better than that," he said. "And, on second thought, sit on your ass, you are too close to the camera now." 
 
- I listlessly said in a monotone voice, "May I please suck your dick?" 
+"Make up your mind," I sighed. 
 
- "You better do better than that," he said. "And, on second thought, sit on your ass, you are too close to the camera now." 
+"Shut up, slut," he ordered. 
 
- "Make up your mind," I sighed. 
+I glared at him, but didn't say anything. 
 
- "Shut up, slut," he ordered. 
+"Now look up at me and make it look like you're sucking my cock," he ordered. 
 
- I glared at him, but didn't say anything. 
+I had no idea how to do such a thing, but I tried. 
 
- "Now look up at me and make it look like you're sucking my cock," he ordered. 
+blackmailed-wife39.jpg] 
 
- I had no idea how to do such a thing, but I tried. 
+"Not bad," he said, but the angle is off. "Try a different position." 
 
- 
+"Like what?" I asked. 
 
- blackmailed-wife39.jpg] 
+"On your stomach and sprawled out on your sofa," he suggested. 
 
- "Not bad," he said, but the angle is off. "Try a different position." 
+"Okay," I sighed again. "but I'll have to move the laptop." 
 
- "Like what?" I asked. 
+"Okay," he said. 
 
- "On your stomach and sprawled out on your sofa," he suggested. 
+So I repositioned the laptop to a bar chair close to the couch. 
 
- "Okay," I sighed again. "but I'll have to move the laptop." 
+I lay down and looked up at him. 
 
- "Okay," he said. 
+"All I see are your feet," he said, before adding, "not that that is a bad thing." 
 
- So I repositioned the laptop to a bar chair close to the couch. 
+blackmailed-wife40.jpg] 
 
- I lay down and looked up at him. 
+I sighed, "This is getting frustrating." 
 
- "All I see are your feet," he said, before adding, "not that that is a bad thing." 
+"Tell me about it," he said. 
 
- 
+I got up and moved the laptop again and asked, still standing, "Does this get the entire couch?" 
 
- blackmailed-wife40.jpg] 
+"Not quite," he said, "but it is close." 
 
- I sighed, "This is getting frustrating." 
+Another thirty seconds later and he said, "You have it." 
 
- "Tell me about it," he said. 
+"About fucking time," I said. 
 
- I got up and moved the laptop again and asked, still standing, "Does this get the entire couch?" 
+"Get on the couch," he ordered. 
 
- "Not quite," he said, "but it is close." 
+"Yes, sir," I sarcastically quipped. 
 
- Another thirty seconds later and he said, "You have it." 
+"Sir, I like that," he said. 
 
- "About fucking time," I said. 
+'Fuck' I thought to myself, why couldn't I keep my mouth shut? 
 
- "Get on the couch," he ordered. 
+"Now look up sexily," he ordered. 
 
- "Yes, sir," I sarcastically quipped. 
+I tried. 
 
- "Sir, I like that," he said. 
+"Is that your sexy look?" he asked. 
 
- 'Fuck' I thought to myself, why couldn't I keep my mouth shut? 
+"It is when I am being blackmailed," I replied. 
 
- "Now look up sexily," he ordered. 
+"Well, you better try harder and look like you're having fun or say goodbye to your career," he threatened. 
 
- I tried. 
+Like I faked orgasms during high school, I faked having fun. 
 
- "Is that your sexy look?" he asked. 
+blackmailed-wife41.jpg] 
 
- "It is when I am being blackmailed," I replied. 
+"Now was that so hard?" he asked. 
 
- "Well, you better try harder and look like you're having fun or say goodbye to your career," he threatened. 
+"A little," I answered truthfully. 
 
- Like I faked orgasms during high school, I faked having fun. 
+He then annoyed me again. "Actually, I want a close up of your pretty mouth. I need you to put the laptop right on the end of the sofa." 
 
- 
+"You really want me to move the laptop again?" I asked. 
 
- blackmailed-wife41.jpg] 
+"Last time. I promise," he said. 
 
- "Now was that so hard?" he asked. 
+"Better be," I said, annoyed, although thankful he hadn't made me show him my tits or pussy. 
 
- "A little," I answered truthfully. 
+I moved the laptop and he asked for the same pose. "Now look like you're sucking my cock." 
 
- He then annoyed me again. "Actually, I want a close up of your pretty mouth. I need you to put the laptop right on the end of the sofa." 
+"Okay," I said. 
 
- "You really want me to move the laptop again?" I asked. 
+After a minute, he said, "Do you have any popsicles?" 
 
- "Last time. I promise," he said. 
+"I think so," I replied. 
 
- "Better be," I said, annoyed, although thankful he hadn't made me show him my tits or pussy. 
+"Go get one," he ordered. 
 
- I moved the laptop and he asked for the same pose. "Now look like you're sucking my cock." 
+"Really?" I asked again. 
 
- "Okay," I said. 
+"Hurry up," he ordered. 
 
- After a minute, he said, "Do you have any popsicles?" 
+Why didn't I say no? 
 
- "I think so," I replied. 
+I went to the kitchen and grabbed a pink Popsicle. 
 
- "Go get one," he ordered. 
+I returned, knowing exactly what he was going to expect from me. 
 
- "Really?" I asked again. 
+"Now suck it like it's my dick," he ordered. 
 
- "Hurry up," he ordered. 
+"Are you that thin?" I asked, unable to not take the shot. 
 
- Why didn't I say no? 
+"You'll learn soon enough," he smugly replied. 
 
- I went to the kitchen and grabbed a pink Popsicle. 
+My eyes went wide. 
 
- I returned, knowing exactly what he was going to expect from me. 
+"Do you want to see it now?" he asked. 
 
- "Now suck it like it's my dick," he ordered. 
+"Not really," I answered. 
 
- "Are you that thin?" I asked, unable to not take the shot. 
+"You sure?" he questioned. "I'm told I'm rather well endowed." 
 
- "You'll learn soon enough," he smugly replied. 
+"By who?" I asked. "Other people you blackmail?" 
 
- My eyes went wide. 
+"You're my first blackmail," he said. 
 
- "Do you want to see it now?" he asked. 
+"I'm flattered," I quipped. 
 
- "Not really," I answered. 
+"Enough witty banter. Now suck, slut," he ordered. 
 
- "You sure?" he questioned. "I'm told I'm rather well endowed." 
+So I did. Bobbing slowly on the Popsicle. 
 
- "By who?" I asked. "Other people you blackmail?" 
+"Oh yeah," he groaned. 
 
- "You're my first blackmail," he said. 
+I closed my eyes and tried to forget I was being watched. 
 
- "I'm flattered," I quipped. 
+"Look at me, slut," he demanded. 
 
- "Enough witty banter. Now suck, slut," he ordered. 
+I opened my eyes and sucked on the pretend cock. 
 
- So I did. Bobbing slowly on the Popsicle. 
+blackmailed-wife42.jpg] 
 
- "Oh yeah," he groaned. 
+"Oh yeah," he groaned, "such a pretty mouth." 
 
- I closed my eyes and tried to forget I was being watched. 
+I kept bobbing, sensing he was close and this humiliating ordeal would be over soon. 
 
- "Look at me, slut," he demanded. 
+I was right. 
 
- I opened my eyes and sucked on the pretend cock. 
+"Faster, slut," he ordered. 
 
- 
+I obeyed, taking most the popsicle in my mouth. 
 
- blackmailed-wife42.jpg] 
+"Oh yeah," he groaned, "such a good slut." 
 
- "Oh yeah," he groaned, "such a pretty mouth." 
+'Come, damn it,' I thought to myself 'and end this fucking ordeal.' 
 
- I kept bobbing, sensing he was close and this humiliating ordeal would be over soon. 
+A minute later, he groaned, "Oh yes, take it all slut. Swallow my cum." 
 
- I was right. 
+Thankful it was likely over, I kept bobbing until he said, "That was awesome." 
 
- "Faster, slut," he ordered. 
+I sarcastically quipped, "Yes, I'm completely fulfilled." 
 
- I obeyed, taking most the popsicle in my mouth. 
+"Funny you should say that," he said, his tone ominous. 
 
- "Oh yeah," he groaned, "such a good slut." 
+"Why is that?" I asked, with trepidation. 
 
- 'Come, damn it,' I thought to myself 'and end this fucking ordeal.' 
+"Because someone will be over there soon to get laid," he said. 
 
- A minute later, he groaned, "Oh yes, take it all slut. Swallow my cum." 
+"Excuse me?" I questioned. 
 
- Thankful it was likely over, I kept bobbing until he said, "That was awesome." 
+I put a Craigslist ad up for you," he said. "I'll text it to you." 
 
- I sarcastically quipped, "Yes, I'm completely fulfilled." 
+"You what?" I gasped, mortified. 
 
- "Funny you should say that," he said, his tone ominous. 
+He didn't answer, but a moment later I heard my phone buzz in another room. 
 
- "Why is that?" I asked, with trepidation. 
+I got up and grabbed my phone. I nervously clicked the text which had a link to a Craigslist post. 
 
- "Because someone will be over there soon to get laid," he said. 
+Reluctantly I clicked it. 
 
- "Excuse me?" I questioned. 
+"Oh my God," I said out loud as I read the ad. 
 
- I put a Craigslist ad up for you," he said. "I'll text it to you." 
+Submissive Wife Craving Cum 
 
- "You what?" I gasped, mortified. 
+Hubby is away, 
 
- He didn't answer, but a moment later I heard my phone buzz in another room. 
+My kitty needs to play. 
 
- I got up and grabbed my phone. I nervously clicked the text which had a link to a Craigslist post. 
+Come on over and use me as a slut. 
 
- Reluctantly I clicked it. 
+I was furious. 
 
- "Oh my God," I said out loud as I read the ad. 
+I returned to my laptop and roared, "How dare you?" 
 
- Submissive Wife Craving Cum 
+"You had over forty replies in five minutes," he said. "It was actually tough to choose just one." 
 
- Hubby is away, 
+"I'm done," I roared. 
 
- My kitty needs to play. 
+"You sure?" he asked. "Here is a picture I sent to the lucky winner." 
 
- Come on over and use me as a slut. 
+blackmailed-wife43.jpg] 
 
- I was furious. 
+"Oh my God," I gasped, wondering when this was going to end. 
 
- I returned to my laptop and roared, "How dare you?" 
+"I imagine that is what he said," he chuckled. "He should be there in twenty minutes." 
 
- "You had over forty replies in five minutes," he said. "It was actually tough to choose just one." 
+"I'm not fucking some stranger," I firmly said. 
 
- "I'm done," I roared. 
+"You will do what he says and do it on film," he ordered with a sigh, "or all these pictures go viral." 
 
- "You sure?" he asked. "Here is a picture I sent to the lucky winner." 
+I didn't know what to say. 
 
- 
+He continued, "And I want you in a new sexy outfit with nylons." 
 
- blackmailed-wife43.jpg] 
+"Yeah, right," I said. 
 
- "Oh my God," I gasped, wondering when this was going to end. 
+"Actually, go change now," he ordered. 
 
- "I imagine that is what he said," he chuckled. "He should be there in twenty minutes." 
+"Whatever," I said, praying my husband would be calling soon. 
 
- "I'm not fucking some stranger," I firmly said. 
+I went to my bedroom and sighed, tears again in my eyes. I changed into the white wedding thigh highs and a cute dress that was sexy, but not really slutty. 
 
- "You will do what he says and do it on film," he ordered with a sigh, "or all these pictures go viral." 
+blackmailed-wife44.jpg] 
 
- I didn't know what to say. 
+I returned to the living room and he said, "Nice, but let's take this to the bedroom." 
 
- He continued, "And I want you in a new sexy outfit with nylons." 
+I sighed, but grabbed the laptop and returned to the bedroom. 
 
- "Yeah, right," I said. 
+"Put the laptop where I can see the whole bedroom," he ordered. 
 
- "Actually, go change now," he ordered. 
+"Put your glasses on," he ordered, "I want to see the sweet, nerdy, teacher version of you." 
 
- "Whatever," I said, praying my husband would be calling soon. 
+I grabbed them and put them on. 
 
- I went to my bedroom and sighed, tears again in my eyes. I changed into the white wedding thigh highs and a cute dress that was sexy, but not really slutty. 
+"Pose for me," he ordered. 
 
- 
+I did, even as I wondered why the hell Tyler hadn't called yet. 
 
- blackmailed-wife44.jpg] 
+"Very nice," he purred. 
 
- I returned to the living room and he said, "Nice, but let's take this to the bedroom." 
+"Can we just leave it between you and me?" I asked, not wanting to have someone come to my home. 
 
- I sighed, but grabbed the laptop and returned to the bedroom. 
+Suddenly the doorbell rang. 
 
- "Put the laptop where I can see the whole bedroom," he ordered. 
+"Not saved by the bell," he joked. "Go get it and bring him to your room." 
 
- "Put your glasses on," he ordered, "I want to see the sweet, nerdy, teacher version of you." 
+"Please don't make me do this," I pleaded. 
 
- I grabbed them and put them on. 
+"Now, slut," he said coldly, "Be a good slut and I won't send over any of the other forty plus candidates." 
 
- "Pose for me," he ordered. 
+"Fine," I said, sensing he wasn't bluffing. 
 
- I did, even as I wondered why the hell Tyler hadn't called yet. 
+I walked to my front door, nervous as hell. 
 
- "Very nice," he purred. 
+I took a deep breath, wishing I had a peep hole, and opened the door. 
 
- "Can we just leave it between you and me?" I asked, not wanting to have someone come to my home. 
+I gasped. "Jeremy." 
 
- Suddenly the doorbell rang. 
+"Hi, Mrs. Haze," he smiled. 
 
- "Not saved by the bell," he joked. "Go get it and bring him to your room." 
+Jeremy was a student who was in my class last year. A strong student, a great linebacker, who was ridiculously handsome and had flirted with me non-stop throughout the year. That said, my biggest fantasy had always been to be seduced by a student, something we often role played. Tyler even knew that I had a crush on him. 
 
- "Please don't make me do this," I pleaded. 
+"What can I do for you?" I asked, being casual and hoping this was just a major coincidence. 
 
- "Now, slut," he said coldly, "Be a good slut and I won't send over any of the other forty plus candidates." 
+"I'm here to give you the load you're craving," he answered. 
 
- "Fine," I said, sensing he wasn't bluffing. 
+"This is a mistake," I said. 
 
- I walked to my front door, nervous as hell. 
+"No, this is two years of fantasy becoming reality," he said, as he walked into my home. 
 
- I took a deep breath, wishing I had a peep hole, and opened the door. 
+"Jeremy, I," I began, my pussy burning at the reality this hot ex-student was in my home... yet I was a married woman. 
 
- I gasped. "Jeremy." 
+"Bedroom now," he ordered, with a firmness that made my pussy leak. 
 
- "Hi, Mrs. Haze," he smiled. 
+"I, um, okay," I babbled, my head spinning with lust and guilt. I led him to my bedroom and he complimented, "You're still as hot as I remember." 
 
- Jeremy was a student who was in my class last year. A strong student, a great linebacker, who was ridiculously handsome and had flirted with me non-stop throughout the year. That said, my biggest fantasy had always been to be seduced by a student, something we often role played. Tyler even knew that I had a crush on him. 
+Before I could even think, I responded, "As are you." 
 
- "What can I do for you?" I asked, being casual and hoping this was just a major coincidence. 
+"Did you ever fantasize about me, Mrs. Haze?" he asked, as he walked in front of me. 
 
- "I'm here to give you the load you're craving," he answered. 
+"I don't fantasize and tell," I joked, trying to avoid answering the question. 
 
- "This is a mistake," I said. 
+"I do," he said, "and I have shot buckets thinking about this very moment. Although, truth be told, I imagined doing this in your classroom." 
 
- "No, this is two years of fantasy becoming reality," he said, as he walked into my home. 
+Again, I don't know why I encouraged him, but I asked, talking sultry, "And what did you imagine?" 
 
- "Jeremy, I," I began, my pussy burning at the reality this hot ex-student was in my home... yet I was a married woman. 
+"Eating your pussy under your desk, having you suck me in front of the whole class and bending you over the desk and fucking you," he listed, bluntly. 
 
- "Bedroom now," he ordered, with a firmness that made my pussy leak. 
+Again, my moral compass gone, an insatiable lust replacing it, I asked, "My cunt or my ass?" 
 
- "I, um, okay," I babbled, my head spinning with lust and guilt. I led him to my bedroom and he complimented, "You're still as hot as I remember." 
+"You can't fuck one without the other," he quipped, before adding, "on that note, let's see that ass of yours." 
 
- Before I could even think, I responded, "As are you." 
+I asked coyly, "How do you want me?" 
 
- "Did you ever fantasize about me, Mrs. Haze?" he asked, as he walked in front of me. 
+"First, just pose like you are trying to get my attention in the class," he ordered, as he leaned against a wall. 
 
- "I don't fantasize and tell," I joked, trying to avoid answering the question. 
+"Mmmmm, like this?" I asked, my own fantasy playing out right in front of me. I had teased him and many other students over the past couple years with my outfits and coy poses. 
 
- "I do," he said, "and I have shot buckets thinking about this very moment. Although, truth be told, I imagined doing this in your classroom." 
+blackmailed-wife45.jpg] 
 
- Again, I don't know why I encouraged him, but I asked, talking sultry, "And what did you imagine?" 
+"Oh yeah," he groaned, "just like that, Mrs. Haze." 
 
- "Eating your pussy under your desk, having you suck me in front of the whole class and bending you over the desk and fucking you," he listed, bluntly. 
+"What else did you fantasize?" I asked, as I smiled back at him, remaining in the same sexy pose. 
 
- Again, my moral compass gone, an insatiable lust replacing it, I asked, "My cunt or my ass?" 
+"That would be a full length porn movie," he joked. 
 
- "You can't fuck one without the other," he quipped, before adding, "on that note, let's see that ass of yours." 
+"Are just you and I in this porn movie?" I asked, somehow wanting to impress him with something I had only done once, a lesbian encounter or a threesome. 
 
- I asked coyly, "How do you want me?" 
+"Oh, we could have a revolving cast, but we would be the main two characters," he said suavely. 
 
- "First, just pose like you are trying to get my attention in the class," he ordered, as he leaned against a wall. 
+"Would Sarah be in it?" I asked, his high school girlfriend. 
 
- "Mmmmm, like this?" I asked, my own fantasy playing out right in front of me. I had teased him and many other students over the past couple years with my outfits and coy poses. 
+He laughed, "Why, do you fantasize about girls too?" 
 
- 
+"I have a lot of fantasies," I replied, shrugging my shoulders, before adding, "I'm not as simple as I seem." 
 
- blackmailed-wife45.jpg] 
+"So I see," he nodded, staring at me. 
 
- "Oh yeah," he groaned, "just like that, Mrs. Haze." 
+"What else can I do for you?" I asked, with a sexy smile. 
 
- "What else did you fantasize?" I asked, as I smiled back at him, remaining in the same sexy pose. 
+"Let's see those tits, Mrs. Haze," he ordered. 
 
- "That would be a full length porn movie," he joked. 
+I stood up and lifted the dress over me, revealing I wasn't wearing a bra as I showcased my very firm breasts. 
 
- "Are just you and I in this porn movie?" I asked, somehow wanting to impress him with something I had only done once, a lesbian encounter or a threesome. 
+blackmailed-wife46.jpg] 
 
- "Oh, we could have a revolving cast, but we would be the main two characters," he said suavely. 
+"As perfect as I imagined," he said, as he seemed to practically be drooling over my firm breasts and erect nipples. 
 
- "Would Sarah be in it?" I asked, his high school girlfriend. 
+"Is your cock as big as I imagined?" I asked, as I got onto the bed. 
 
- He laughed, "Why, do you fantasize about girls too?" 
+"How big did you imagine it to be?" he asked. 
 
- "I have a lot of fantasies," I replied, shrugging my shoulders, before adding, "I'm not as simple as I seem." 
+"Big enough to make me scream," I smiled, as I moved into a seductive pose that screamed come and ravish me. 
 
- "So I see," he nodded, staring at me. 
+"I think you will be pleasantly surprised then," he quipped as he unbuckled his belt. 
 
- "What else can I do for you?" I asked, with a sexy smile. 
+blackmailed-wife47.jpg] 
 
- "Let's see those tits, Mrs. Haze," he ordered. 
+"It's like Christmas morning," I joked, as he slowly unwrapped himself. 
 
- I stood up and lifted the dress over me, revealing I wasn't wearing a bra as I showcased my very firm breasts. 
+"It's the twelve days of Christmas all wrapped up in one," he countered, as he unbuttoned his jeans slowly as if teasing me. 
 
- 
+"Come over here and let me finish unwrapping that present," I purred, excited to see how big his dick really was. 
 
- blackmailed-wife46.jpg] 
+He sauntered to the edge of the bed as he allowed his jeans to drop to the floor. He pulled them off and I could see his impressive bulge in his boxers. Instant lust washed over me as I felt both my mouth water and my pussy tingle. 
 
- "As perfect as I imagined," he said, as he seemed to practically be drooling over my firm breasts and erect nipples. 
+"Fish it out, Mrs. Haze," he ordered, once he was directly in front of me, his dick barely hidden by his boxers. 
 
- "Is your cock as big as I imagined?" I asked, as I got onto the bed. 
+Shifting to role play, I asked all nervously. "In front of the entire class?" 
 
- "How big did you imagine it to be?" he asked. 
+He nodded, "It's time you teach all these teen girls how to really suck a cock." 
 
- "Big enough to make me scream," I smiled, as I moved into a seductive pose that screamed come and ravish me. 
+I rubbed his cock through his boxers and purred, "I don't think most of these girls could handle something this impressive. This cock was made to be worshipped by an experienced woman." 
 
- "I think you will be pleasantly surprised then," he quipped as he unbuckled his belt. 
+He repeated, "Pull it out, Mrs. Haze." 
 
- 
+I obeyed and gasped. "Holy shit, it's even bigger than I could have fathomed." 
 
- blackmailed-wife47.jpg] 
+"Think it will make you scream?" he asked. 
 
- "It's like Christmas morning," I joked, as he slowly unwrapped himself. 
+blackmailed-wife48.jpg] 
 
- "It's the twelve days of Christmas all wrapped up in one," he countered, as he unbuttoned his jeans slowly as if teasing me. 
+"In ecstasy," I quipped back as I slowly stroked his impressive eight inch cock. 
 
- "Come over here and let me finish unwrapping that present," I purred, excited to see how big his dick really was. 
+"Take it in your mouth, Mrs. Haze," he ordered. 
 
- He sauntered to the edge of the bed as he allowed his jeans to drop to the floor. He pulled them off and I could see his impressive bulge in his boxers. Instant lust washed over me as I felt both my mouth water and my pussy tingle. 
+I obeyed, opening wide and taking his massive rod in my mouth. 
 
- "Fish it out, Mrs. Haze," he ordered, once he was directly in front of me, his dick barely hidden by his boxers. 
+"Oh yes," he groaned as I began slowly bobbing. 
 
- Shifting to role play, I asked all nervously. "In front of the entire class?" 
+I swirled my tongue around his thick mushroom top. I bobbed back and forth on his cock, eventually taking in all eight inches. 
 
- He nodded, "It's time you teach all these teen girls how to really suck a cock." 
+"Holy fuck," he groaned, "no one has taken all my dick in their mouth." 
 
- I rubbed his cock through his boxers and purred, "I don't think most of these girls could handle something this impressive. This cock was made to be worshipped by an experienced woman." 
+"I'm not no one," I purred, as I sat up and stroked his cock. 
 
- He repeated, "Pull it out, Mrs. Haze." 
+"Look at me, Mrs. Haze," he ordered. 
 
- I obeyed and gasped. "Holy shit, it's even bigger than I could have fathomed." 
+I looked up at him with the same lust that he was looking at me with. 
 
- "Think it will make you scream?" he asked. 
+blackmailed-wife49.jpg] 
 
- 
+"Oh yeah," he groaned, "you really want my cock, don't you Mrs. Haze?" 
 
- blackmailed-wife48.jpg] 
+"Fuck yes," I nodded, as I stroked his cock, my pussy begging for attention. 
 
- "In ecstasy," I quipped back as I slowly stroked his impressive eight inch cock. 
+"How bad?" he asked. 
 
- "Take it in your mouth, Mrs. Haze," he ordered. 
+"Just tell me what to do, Jeremy," I purred, "I'm your teacher submissive cum deposit tonight." 
 
- I obeyed, opening wide and taking his massive rod in my mouth. 
+"Oh fuck," he groaned, "get on all fours Mrs. Haze, it's time to fuck that cunt of yours." 
 
- "Oh yes," he groaned as I began slowly bobbing. 
+"Yes, sir," I moaned, wanting to be as submissive as possible with him. 
 
- I swirled my tongue around his thick mushroom top. I bobbed back and forth on his cock, eventually taking in all eight inches. 
+I got on all fours, looked back and offered, "Pick a hole, sir." 
 
- "Holy fuck," he groaned, "no one has taken all my dick in their mouth." 
+"Holy fuck," he repeated, "you're an even bigger slut than I imagined." 
 
- "I'm not no one," I purred, as I sat up and stroked his cock. 
+"For big dick studs like you, almost all women are," I replied, as he got on the bed and rubbed his cock up and down my sopping wet pussy lips. 
 
- "Look at me, Mrs. Haze," he ordered. 
+"Just slam it in, sir," I moaned. "I want to feel that huge dick of yours buried deep in me." 
 
- I looked up at him with the same lust that he was looking at me with. 
+"As you wish," he agreed, as his cock slid easily inside my inferno of lust. 
 
- 
+"Oh yes," I moaned loudly, "so fucking big." 
 
- blackmailed-wife49.jpg] 
+"So fucking hot," he groaned, as his body met mine. 
 
- "Oh yeah," he groaned, "you really want my cock, don't you Mrs. Haze?" 
+After a few slow strokes, I demanded, "Now don't make love to me, I have a husband for that. Fuck me like the teacher slut I am." 
 
- "Fuck yes," I nodded, as I stroked his cock, my pussy begging for attention. 
+Even as I mentioned my husband for the first time, thought about him for the first time since Jeremy walked in my home, I oddly didn't feel guilt. This was his fault. And if I had to fuck someone to protect my reputation, so be it. 
 
- "How bad?" he asked. 
+blackmailed-wife50.jpg] 
 
- "Just tell me what to do, Jeremy," I purred, "I'm your teacher submissive cum deposit tonight." 
+He obliged my request and began fucking me hard and fast. 
 
- "Oh fuck," he groaned, "get on all fours Mrs. Haze, it's time to fuck that cunt of yours." 
+My orgasm built quickly and I knew I wasn't going to last too long. 
 
- "Yes, sir," I moaned, wanting to be as submissive as possible with him. 
+I begged, "Oh yes, don't stop. Your dirty teacher slut is going to come." 
 
- I got on all fours, looked back and offered, "Pick a hole, sir." 
+He kept fucking me hard and sure enough my orgasm erupted through me. 
 
- "Holy fuck," he repeated, "you're an even bigger slut than I imagined." 
+"Yes," I screamed, the ecstasy I had anticipated going through in never ending waves. 
 
- "For big dick studs like you, almost all women are," I replied, as he got on the bed and rubbed his cock up and down my sopping wet pussy lips. 
+He kept pounding me throughout my orgasm, before he pulled out suddenly, put his hand on my head and positioned his cock at my ass. 
 
- "Just slam it in, sir," I moaned. "I want to feel that huge dick of yours buried deep in me." 
+"Oh yes," I moaned, liking the rough treatment, "fill my ass, sir. Fuck your teacher's asshole with that big dick." 
 
- "As you wish," he agreed, as his cock slid easily inside my inferno of lust. 
+blackmailed-wife51.jpg] 
 
- "Oh yes," I moaned loudly, "so fucking big." 
+His cock slid slowly in my ass and I moaned, a mixture of pleasure and pain (his cock thicker than my husband's), "Oh God, your cock fills my ass so much." 
 
- "So fucking hot," he groaned, as his body met mine. 
+"So fucking tight," he grunted. 
 
- After a few slow strokes, I demanded, "Now don't make love to me, I have a husband for that. Fuck me like the teacher slut I am." 
+"That dick of yours was made for my ass," I replied, feeling it fit so perfectly. Any longer, any thicker and I'm not sure I could have handled it. 
 
- Even as I mentioned my husband for the first time, thought about him for the first time since Jeremy walked in my home, I oddly didn't feel guilt. This was his fault. And if I had to fuck someone to protect my reputation, so be it. 
+"I couldn't agree more," he groaned. 
 
- 
+He slowly fucked my ass for a couple of minutes before he groaned, "I'm not going to last much longer." 
 
- blackmailed-wife50.jpg] 
+I was disappointed. I wanted this to last forever, but I offered, "You can come in my ass, sir. Or all over your teacher's face or in her mouth." 
 
- He obliged my request and began fucking me hard and fast. 
+He pulled out and ordered, "Give me a target, slut." 
 
- My orgasm built quickly and I knew I wasn't going to last too long. 
+blackmailed-wife52.jpg] 
 
- I begged, "Oh yes, don't stop. Your dirty teacher slut is going to come." 
+I quickly turned around onto my knees and purred, "You want to come all over your teacher's face in front of all these people?" 
 
- He kept fucking me hard and sure enough my orgasm erupted through me. 
+"Actually, I want you to catch every last drop in your mouth, but don't you dare swallow it. I want you to catch and savour in your mouth like a fine wine," he ordered. 
 
- "Yes," I screamed, the ecstasy I had anticipated going through in never ending waves. 
+"Oh yes," I purred, "I love a man who knows what he wants." 
 
- He kept pounding me throughout my orgasm, before he pulled out suddenly, put his hand on my head and positioned his cock at my ass. 
+"Open wide," he ordered, as he furiously pumped his beautiful dick. 
 
- "Oh yes," I moaned, liking the rough treatment, "fill my ass, sir. Fuck your teacher's asshole with that big dick." 
+I obeyed, opening wide, giving him the biggest target I possibly could, even as I moved my hand to my still burning twat. 
 
- 
+"Oh God," he groaned, "here comes my cum." 
 
- blackmailed-wife51.jpg] 
+I laughed briefly at the two very different meanings of the word 'come/cum' and waited for the first rope to hit my mouth. I had swallowed hundreds of loads, taken just as many facials, but I had never tried to catch a load and not swallow. 
 
- His cock slid slowly in my ass and I moaned, a mixture of pleasure and pain (his cock thicker than my husband's), "Oh God, your cock fills my ass so much." 
+Challenge accepted. 
 
- "So fucking tight," he grunted. 
+"Aaaaaah," he grunted, as his cum shot directly in my mouth. 
 
- "That dick of yours was made for my ass," I replied, feeling it fit so perfectly. Any longer, any thicker and I'm not sure I could have handled it. 
+Impressively, he had perfect aim as his entire load landed in my mouth. I focused on not swallowing or gagging. 
 
- "I couldn't agree more," he groaned. 
+Once he was done, he ordered, "Let's see." 
 
- He slowly fucked my ass for a couple of minutes before he groaned, "I'm not going to last much longer." 
+I kept my mouth open and showed him I had indeed obeyed his order. 
 
- I was disappointed. I wanted this to last forever, but I offered, "You can come in my ass, sir. Or all over your teacher's face or in her mouth." 
+blackmailed-wife53.jpg] 
 
- He pulled out and ordered, "Give me a target, slut." 
+"Good girl," he nodded, before adding, "you may swallow the gift." 
 
- 
+I closed my mouth and swallowed it all. 
 
- blackmailed-wife52.jpg] 
+Once done, I smiled, "Yummy." 
 
- I quickly turned around onto my knees and purred, "You want to come all over your teacher's face in front of all these people?" 
+"That was amazing," he said, as he grabbed for his jeans. 
 
- "Actually, I want you to catch every last drop in your mouth, but don't you dare swallow it. I want you to catch and savour in your mouth like a fine wine," he ordered. 
+"I concur," I smiled, watching his young body and still stiff cock. 
 
- "Oh yes," I purred, "I love a man who knows what he wants." 
+"We should do this again," he said. 
 
- "Open wide," he ordered, as he furiously pumped his beautiful dick. 
+"I concur," I said again, even though I wasn't sure I could blame blackmail for a return engagement. 
 
- I obeyed, opening wide, giving him the biggest target I possibly could, even as I moved my hand to my still burning twat. 
+"Have a good night, Mrs. Haze," he said once dressed. 
 
- "Oh God," he groaned, "here comes my cum." 
+"That already happened," I smiled, just as my phone finally rang. 
 
- I laughed briefly at the two very different meanings of the word 'come/cum' and waited for the first rope to hit my mouth. I had swallowed hundreds of loads, taken just as many facials, but I had never tried to catch a load and not swallow. 
+"Is that your husband?" he asked. 
 
- Challenge accepted. 
+"It likely is," I nodded. 
 
- "Aaaaaah," he grunted, as his cum shot directly in my mouth. 
-
- Impressively, he had perfect aim as his entire load landed in my mouth. I focused on not swallowing or gagging. 
-
- Once he was done, he ordered, "Let's see." 
-
- I kept my mouth open and showed him I had indeed obeyed his order. 
-
- 
-
- blackmailed-wife53.jpg] 
-
- "Good girl," he nodded, before adding, "you may swallow the gift." 
-
- I closed my mouth and swallowed it all. 
-
- Once done, I smiled, "Yummy." 
-
- "That was amazing," he said, as he grabbed for his jeans. 
-
- "I concur," I smiled, watching his young body and still stiff cock. 
-
- "We should do this again," he said. 
-
- "I concur," I said again, even though I wasn't sure I could blame blackmail for a return engagement. 
-
- "Have a good night, Mrs. Haze," he said once dressed. 
-
- "That already happened," I smiled, just as my phone finally rang. 
-
- "Is that your husband?" he asked. 
-
- "It likely is," I nodded. 
-
- "Well, that is definitely my cue to leave," he said, moving to me and kissing me for the first time.  
-
- 
-
- 
+"Well, that is definitely my cue to leave," he said, moving to me and kissing me for the first time.  
 
 ===
 
 Once he broke the kiss, guilt hit me, kissing somehow seeming more intimate than sucking cock, or getting fucked. 
 
- "Hi, honey," I answered. 
+"Hi, honey," I answered. 
 
- 
+blackmailed-wife54.jpg] 
 
- blackmailed-wife54.jpg] 
+"I'm sorry it took so long," he said. "It has been a nightmare to say the least." 
 
- "I'm sorry it took so long," he said. "It has been a nightmare to say the least." 
+I won't bore you with the details. But his room was broken into; the video cameras on the hallway oddly didn't show anything; and he had already done a police report. 
 
- I won't bore you with the details. But his room was broken into; the video cameras on the hallway oddly didn't show anything; and he had already done a police report. 
+I told him about my evening... leaving out the fact that it was Jeremy and that I really enjoyed it. 
 
- I told him about my evening... leaving out the fact that it was Jeremy and that I really enjoyed it. 
+He was furious and said that he would be calling the cops again to tell them this information. 
 
- He was furious and said that he would be calling the cops again to tell them this information. 
+He also added that on top of the crisis, he now had to stay until Saturday and wouldn't be home in time to go to the traditional Halloween party we always did. 
 
- He also added that on top of the crisis, he now had to stay until Saturday and wouldn't be home in time to go to the traditional Halloween party we always did. 
+This disappointed me too. 
 
- This disappointed me too. 
+I was going to be Belle from Beauty and the Beast and, of course, he was to be the Beast. Yet, instead I got dressed in my Wizard of Oz outfit since I was going stag. 
 
- I was going to be Belle from Beauty and the Beast and, of course, he was to be the Beast. Yet, instead I got dressed in my Wizard of Oz outfit since I was going stag. 
+He told me to ignore any order that was given to me, as the cops said that 95 percent of the time these blackmail situations end up being a bluff. 
 
- He told me to ignore any order that was given to me, as the cops said that 95 percent of the time these blackmail situations end up being a bluff. 
+I wasn't sure that was the best idea, but agreed to it. 
 
- I wasn't sure that was the best idea, but agreed to it. 
+When I realized Skype was still on, I asked, "Are you still there?" 
 
- When I realized Skype was still on, I asked, "Are you still there?" 
+He wasn't, so I logged out of Skype. 
 
- He wasn't, so I logged out of Skype. 
+And he was right. 
 
- And he was right. 
+I ignored the blackmailer's texts Friday and checked the website he had referred to every hour and it remained blank. Eventually I relaxed, hoping it was done. 
 
- I ignored the blackmailer's texts Friday and checked the website he had referred to every hour and it remained blank. Eventually I relaxed, hoping it was done. 
+Saturday evening I was in my Dorothy outfit, posing for Tyler, who was at the airport, when the doorbell rang. 
 
- Saturday evening I was in my Dorothy outfit, posing for Tyler, who was at the airport, when the doorbell rang. 
+blackmailed-wife55.jpg] 
 
- 
+Tyler said, "I better get going anyways. Boarding has just been called." 
 
- blackmailed-wife55.jpg] 
+"Okay," I said, before adding, "you better get to the party once you arrive." 
 
- Tyler said, "I better get going anyways. Boarding has just been called." 
+"I'll try," he said. 
 
- "Okay," I said, before adding, "you better get to the party once you arrive." 
+"You owe me," I threatened. 
 
- "I'll try," he said. 
+"Fine, fine," he said, "I'll text you as soon as I land." 
 
- "You owe me," I threatened. 
+I teased, "I'm going to be drinking and if you're not there to claim your princess, I may have to find a new beast." 
 
- "Fine, fine," he said, "I'll text you as soon as I land." 
+The doorbell rang again. 
 
- I teased, "I'm going to be drinking and if you're not there to claim your princess, I may have to find a new beast." 
+"Go get the door, I'll see you as soon I can," he said, before hanging up. 
 
- The doorbell rang again. 
+I went to the door and was surprised to see a very good looking man dressed casually, "Hi," I greeted. 
 
- "Go get the door, I'll see you as soon I can," he said, before hanging up. 
+"Hi, my slut," he said. 
 
- I went to the door and was surprised to see a very good looking man dressed casually, "Hi," I greeted. 
+"Excuse me?" I questioned, even though I already knew exactly who he was. 
 
- "Hi, my slut," he said. 
+This was my blackmailer. 
 
- "Excuse me?" I questioned, even though I already knew exactly who he was. 
+He walked into my home and said, "Ready to finish what we started online?" 
 
- This was my blackmailer. 
+"Actually, I'm just leaving," I said. 
 
- He walked into my home and said, "Ready to finish what we started online?" 
+"The question was rhetorical," he said. "And I too only have limited time." 
 
- "Actually, I'm just leaving," I said. 
+"Please, this has gone too far," I protested. 
 
- "The question was rhetorical," he said. "And I too only have limited time." 
+"Tell you what," he said. "Obey me today and I will give you back this laptop and the USB for the back-up I made." 
 
- "Please, this has gone too far," I protested. 
+"Really? You promise?" I asked. 
 
- "Tell you what," he said. "Obey me today and I will give you back this laptop and the USB for the back-up I made." 
+"Scout's honour," he said. 
 
- "Really? You promise?" I asked. 
+"Pretty sure a scout wouldn't blackmail someone," I pointed out. 
 
- "Scout's honour," he said. 
+"Touché," he said, as he walked towards the guest room, which was also a room we used for school role play. Shit, why didn't I think of that when Jeremy was here? 
 
- "Pretty sure a scout wouldn't blackmail someone," I pointed out. 
+I followed him and he asked, "Why the school desk?" 
 
- "Touché," he said, as he walked towards the guest room, which was also a room we used for school role play. Shit, why didn't I think of that when Jeremy was here? 
+"Role play," I admitted, no point in lying to him. 
 
- I followed him and he asked, "Why the school desk?" 
+"Ah, right," he said, sitting down in it. 
 
- "Role play," I admitted, no point in lying to him. 
+I asked, "So now what?" 
 
- "Ah, right," he said, sitting down in it. 
+"Knees," he ordered "and crawl to me." 
 
- I asked, "So now what?" 
+I obeyed, figuring this was the most efficient way to get this over with. Reaching him, I looked up and noticed he was wearing a wedding ring. 
 
- "Knees," he ordered "and crawl to me." 
+blackmailed-wife56.jpg] 
 
- I obeyed, figuring this was the most efficient way to get this over with. Reaching him, I looked up and noticed he was wearing a wedding ring. 
+He noticed me looking and added, "Yes, I'm married. But what she doesn't know won't hurt her." 
 
- 
+I didn't say anything as my already negative view of him only compounded more. 
 
- blackmailed-wife56.jpg] 
+"Get my cock out and start sucking, slut," he ordered. 
 
- He noticed me looking and added, "Yes, I'm married. But what she doesn't know won't hurt her." 
+Again, I just did as I was told, hoping the sooner I got him off the sooner this crazy ordeal would be over. 
 
- I didn't say anything as my already negative view of him only compounded more. 
+I got out his cock, which was thin but ridiculously long, and began sucking. 
 
- "Get my cock out and start sucking, slut," he ordered. 
+I bobbed quickly up and down, figuring he likely wouldn't last long. 
 
- Again, I just did as I was told, hoping the sooner I got him off the sooner this crazy ordeal would be over. 
+But after a minute he put his hands on my head and pushed me down on his long cock and didn't let me move, I gagged, water running down my eyes, as I tried to breathe properly. 
 
- I got out his cock, which was thin but ridiculously long, and began sucking. 
+blackmailed-wife57.jpg] 
 
- I bobbed quickly up and down, figuring he likely wouldn't last long. 
+He held me there for an eternity, before finally letting go. 
 
- But after a minute he put his hands on my head and pushed me down on his long cock and didn't let me move, I gagged, water running down my eyes, as I tried to breathe properly. 
+I coughed and snapped, "What the fuck are you doing?" 
 
- 
+"Training a slut," he answered. 
 
- blackmailed-wife57.jpg] 
+"Don't you dare fucking do that again," I demanded. 
 
- He held me there for an eternity, before finally letting go. 
+He laughed, "I told you do as I tell you today and this will be over. Is that clear?" 
 
- I coughed and snapped, "What the fuck are you doing?" 
+"Fine," I glared. 
 
- "Training a slut," he answered. 
+"Now get that slut mouth back over here," he demanded. 
 
- "Don't you dare fucking do that again," I demanded. 
+I moved back between his legs and after another moment, he again forced my head down on his cock. He held me even longer this time until I began slapping his leg. 
 
- He laughed, "I told you do as I tell you today and this will be over. Is that clear?" 
+blackmailed-wife58.jpg] 
 
- "Fine," I glared. 
+When he let go, I gasped, "Holy fuck. Do you want me to puke all over your fucking dick?" 
 
- "Now get that slut mouth back over here," he demanded. 
+"No," he laughed, "but I do expect an obedient submissive slut who can suck a cock like a porn star." 
 
- I moved back between his legs and after another moment, he again forced my head down on his cock. He held me even longer this time until I began slapping his leg. 
+"Do I look like a porn star?" I asked. 
 
- 
+"Actually," he said, "based on the many videos I have watched the past couple of days I would argue not only do you look like a porn star, but you would probably make a lot more money selling those videos than you do teaching. 
 
- blackmailed-wife58.jpg] 
+"I'm not sure I'm prepared to change careers," I said, as I tried to regain my composure. 
 
- When he let go, I gasped, "Holy fuck. Do you want me to puke all over your fucking dick?" 
+"You asked a question, I answered it," he shrugged, as he stood up. 
 
- "No," he laughed, "but I do expect an obedient submissive slut who can suck a cock like a porn star." 
+"Now what?" I asked, "Are you going to fuck me?" 
 
- "Do I look like a porn star?" I asked. 
+"You'd like that wouldn't you?" he asked. 
 
- "Actually," he said, "based on the many videos I have watched the past couple of days I would argue not only do you look like a porn star, but you would probably make a lot more money selling those videos than you do teaching. 
+Truth was, he had the longest dick I had ever seen and yes I was curious what it would feel like buried in me. 
 
- "I'm not sure I'm prepared to change careers," I said, as I tried to regain my composure. 
+Another frustrating truth was that my pussy was undeniably wet... his rough treatment was somehow turning me on. 
 
- "You asked a question, I answered it," he shrugged, as he stood up. 
+But I answered, "I just want to get this over with." 
 
- "Now what?" I asked, "Are you going to fuck me?" 
+"Keep sucking then," he ordered. 
 
- "You'd like that wouldn't you?" he asked. 
+I leaned forward and again took his cock in my mouth. 
 
- Truth was, he had the longest dick I had ever seen and yes I was curious what it would feel like buried in me. 
+blackmailed-wife59.jpg] 
 
- Another frustrating truth was that my pussy was undeniably wet... his rough treatment was somehow turning me on. 
+And again, after a few comfortable controlled bobs back and forth, he grabbed my head and held me in place, his nine inch cock buried so deep in my mouth I again thought I may puke... even though I was frustratingly turned on by the treatment. 
 
- But I answered, "I just want to get this over with." 
+Again he held me in place even longer. 
 
- "Keep sucking then," he ordered. 
+Once he let go, I again coughed. 
 
- I leaned forward and again took his cock in my mouth. 
+He said, "We are going to keep doing this until you can handle nine inches buried in that mouth of yours." 
 
- 
+"Shit, you're too big," I protested, as I reached up and began stroking his cock, praying a hand job may get him off quick. 
 
- blackmailed-wife59.jpg] 
+"I came three times already today in preparation for this moment," he revealed, "so I'm in for the long haul." 
 
- And again, after a few comfortable controlled bobs back and forth, he grabbed my head and held me in place, his nine inch cock buried so deep in my mouth I again thought I may puke... even though I was frustratingly turned on by the treatment. 
+"Awesome," I said sarcastically, as I continued fisting his dick, focusing on the head, which seemed to work so well for Tyler. 
 
- Again he held me in place even longer. 
+blackmailed-wife60.jpg] 
 
- Once he let go, I again coughed. 
+"You really are a trooper," he said, as he looked down and watched me pump his cock. 
 
- He said, "We are going to keep doing this until you can handle nine inches buried in that mouth of yours." 
+"I'll do anything to protect my career," I said, then realized I had probably just given him more ammo to use against me. 
 
- "Shit, you're too big," I protested, as I reached up and began stroking his cock, praying a hand job may get him off quick. 
+"I know you will," he nodded. "I saw that when you so willingly fucked that boy." 
 
- "I came three times already today in preparation for this moment," he revealed, "so I'm in for the long haul." 
+"You made me do that," I protested. 
 
- "Awesome," I said sarcastically, as I continued fisting his dick, focusing on the head, which seemed to work so well for Tyler. 
+"Did I?" he asked. "You completely forgot I was even there the moment you two were alone in the room." 
 
- 
+That was true. I didn't recall Skype was on until after Jeremy left and I had finished talking with Tyler. 
 
- blackmailed-wife60.jpg] 
+"I'm a good actress," I quipped. 
 
- "You really are a trooper," he said, as he looked down and watched me pump his cock. 
+"Exactly why you would make a great porn star," he quipped back, before sitting back down and snapping his finger and pointing to his cock. 
 
- "I'll do anything to protect my career," I said, then realized I had probably just given him more ammo to use against me. 
+I resented being treated like a dog, yet I moved back between his legs and again took his cock in my mouth. This time he allowed me to suck him longer and just enjoyed my mouth. 
 
- "I know you will," he nodded. "I saw that when you so willingly fucked that boy." 
+Then suddenly he grabbed my pigtails and began roughly fucking my face as he used my head like a rag doll. 
 
- "You made me do that," I protested. 
+I slobbered excessively as I focused on not gagging, thinking this may be the best way to get him off. 
 
- "Did I?" he asked. "You completely forgot I was even there the moment you two were alone in the room." 
+"Oh yeah," he groaned, "you're getting better." 
 
- That was true. I didn't recall Skype was on until after Jeremy left and I had finished talking with Tyler. 
+blackmailed-wife61.jpg] 
 
- "I'm a good actress," I quipped. 
+He kept pulling my head back and forth what seemed like an eternity, even as my pussy literally leaked into my thong. 
 
- "Exactly why you would make a great porn star," he quipped back, before sitting back down and snapping his finger and pointing to his cock. 
+"You like this, don't you?" he asked. 
 
- I resented being treated like a dog, yet I moved back between his legs and again took his cock in my mouth. This time he allowed me to suck him longer and just enjoyed my mouth. 
+I moaned on his cock in response as I focused on not gagging and kept sucking. 
 
- Then suddenly he grabbed my pigtails and began roughly fucking my face as he used my head like a rag doll. 
+He then shocked me again he pulled out and ordered, "Beg for my cock, slut." 
 
- I slobbered excessively as I focused on not gagging, thinking this may be the best way to get him off. 
+Suddenly wanting it in my mouth, wanting to finish what I started, I begged, "Please shove that big dick in my mouth." 
 
- "Oh yeah," he groaned, "you're getting better." 
+"You sure?" he asked. 
 
- 
+"Yes, dammit," I demanded, "I want that big dick now. I want that load in my mouth." 
 
- blackmailed-wife61.jpg] 
+"Or on your face?" he asked. 
 
- He kept pulling my head back and forth what seemed like an eternity, even as my pussy literally leaked into my thong. 
+"Wherever you want to put it," I offered. 
 
- "You like this, don't you?" he asked. 
+"Good," he said, pulling me back on his cock before he wrapped his legs around my head and held me again with nine inches of his meat deep in my mouth. 
 
- I moaned on his cock in response as I focused on not gagging and kept sucking. 
+"Hold it there," he demanded. 
 
- He then shocked me again he pulled out and ordered, "Beg for my cock, slut." 
+And I did. 
 
- Suddenly wanting it in my mouth, wanting to finish what I started, I begged, "Please shove that big dick in my mouth." 
+For an eternity. 
 
- "You sure?" he asked. 
+Like a frozen cocksucker, posing for a painting. 
 
- "Yes, dammit," I demanded, "I want that big dick now. I want that load in my mouth." 
+blackmailed-wife62.jpg] 
 
- "Or on your face?" he asked. 
+"Good slut," he groaned, as time stood still. 
 
- "Wherever you want to put it," I offered. 
+I held out for as long as I could before I slapped his leg in desperation, feeling light-headed and almost out of breath. 
 
- "Good," he said, pulling me back on his cock before he wrapped his legs around my head and held me again with nine inches of his meat deep in my mouth. 
+He didn't release me right away, although he did move his legs back down, allowing me to get some much needed air. 
 
- "Hold it there," he demanded. 
+"Almost done," he declared. 
 
- And I did. 
+I just kept focusing on his cock. 
 
- For an eternity. 
+He suddenly ordered, "Sit up and get ready for my cum." 
 
- Like a frozen cocksucker, posing for a painting. 
+I quickly sat up and opened my mouth. 
 
- 
+"Stick out your tongue," he demanded. 
 
- blackmailed-wife62.jpg] 
+blackmailed-wife63.jpg] 
 
- "Good slut," he groaned, as time stood still. 
+I obeyed, as I closed my eyes and prepared for the cum. 
 
- I held out for as long as I could before I slapped his leg in desperation, feeling light-headed and almost out of breath. 
+"Here it comes," he grunted a few seconds later. 
 
- He didn't release me right away, although he did move his legs back down, allowing me to get some much needed air. 
+I felt his cum hit my lips, tongue and chin. 
 
- "Almost done," he declared. 
+"Oh yeah," he groaned. 
 
- I just kept focusing on his cock. 
+I opened wider, wanting more in my mouth. 
 
- He suddenly ordered, "Sit up and get ready for my cum." 
+"You love cum, don't you, slut?" he asked. 
 
- I quickly sat up and opened my mouth. 
+I nodded, as more cum splattered my face and landed in my mouth. 
 
- "Stick out your tongue," he demanded. 
+When he was done, he asked, "Enjoy yourself?" 
 
- 
+"It was surprisingly interesting," I answered, looking up and feeling utterly spent, which was strange since I hadn't yet come. 
 
- blackmailed-wife63.jpg] 
+blackmailed-wife64.jpg] 
 
- I obeyed, as I closed my eyes and prepared for the cum. 
+Suddenly my cell rang. 
 
- "Here it comes," he grunted a few seconds later. 
+"You should answer that," he said. 
 
- I felt his cum hit my lips, tongue and chin. 
+"It's my husband," I answered, knowing it was him from the ring tone, even though that was weird as he should have been on a plane by now. 
 
- "Oh yeah," he groaned. 
+"I know," he nodded. 
 
- I opened wider, wanting more in my mouth. 
+"What?" I asked. 
 
- "You love cum, don't you, slut?" he asked. 
+"Just answer it," he said. 
 
- I nodded, as more cum splattered my face and landed in my mouth. 
+I grabbed the phone and greeted, "Hi. Where are you?" 
 
- When he was done, he asked, "Enjoy yourself?" 
+"In the living room," he answered. 
 
- "It was surprisingly interesting," I answered, looking up and feeling utterly spent, which was strange since I hadn't yet come. 
+"What?" I asked, confused. 
 
- 
+"I'm in the living room," he repeated. 
 
- blackmailed-wife64.jpg] 
+"I heard you. I don't understand," I said, confused. 
 
- Suddenly my cell rang. 
+"Come out here," he said. 
 
- "You should answer that," he said. 
+I stood up, looked up at my blackmailer and asked, "What is going on?" 
 
- "It's my husband," I answered, knowing it was him from the ring tone, even though that was weird as he should have been on a plane by now. 
+"Maybe Tyler should explain that," he said. 
 
- "I know," he nodded. 
+"You know my husband?" I asked. 
 
- "What?" I asked. 
+"We are old college buddies," he nodded. 
 
- "Just answer it," he said. 
+"What the fuck?" I questioned, as I walked out and to the living room. 
 
- I grabbed the phone and greeted, "Hi. Where are you?" 
+"Hey," he greeted. 
 
- "In the living room," he answered. 
+"What the fuck is going on?" I asked. 
 
- "What?" I asked, confused. 
+"You told me you fantasized about being forced to be a slut and, well," he shrugged, "I made your fantasy come true." 
 
- "I'm in the living room," he repeated. 
+I was shocked. 
 
- "I heard you. I don't understand," I said, confused. 
+This was all planned. 
 
- "Come out here," he said. 
+I finally asked, "There was no blackmail?" 
 
- I stood up, looked up at my blackmailer and asked, "What is going on?" 
+"No," he said. 
 
- "Maybe Tyler should explain that," he said. 
+"And you never lost your phone," I continued. 
 
- "You know my husband?" I asked. 
+"No," he admitted. 
 
- "We are old college buddies," he nodded. 
+"And who did I perform for online?" I asked. 
 
- "What the fuck?" I questioned, as I walked out and to the living room. 
+"Me," he admitted. 
 
- "Hey," he greeted. 
+Part of me wanted to strangle him; the other half was impressed. He had just given me a crazy couple of days. 
 
- "What the fuck is going on?" I asked. 
+And in truth, we had role played all these scenarios in one form or another before, I realized. The blackmail, the teacher seduced by student. 
 
- "You told me you fantasized about being forced to be a slut and, well," he shrugged, "I made your fantasy come true." 
+"I don't know whether to kill you or fuck you," I finally said, 
 
- I was shocked. 
+"How about a blow job?" he joked. 
 
- This was all planned. 
+"Yes, sir," I smiled, dropping to my knees. 
 
- I finally asked, "There was no blackmail?" 
+EPILOGUE: 
 
- "No," he said. 
+Crazy enough, the wild weekend gave me an idea. 
 
- "And you never lost your phone," I continued. 
+I would quit teaching. 
 
- "No," he admitted. 
+I would become a porn star. 
 
- "And who did I perform for online?" I asked. 
+I created my own website and started making a variety of fetish videos: 
 
- "Me," he admitted. 
+-Submissive slut videos 
 
- Part of me wanted to strangle him; the other half was impressed. He had just given me a crazy couple of days. 
+-Nasty incest videos 
 
- And in truth, we had role played all these scenarios in one form or another before, I realized. The blackmail, the teacher seduced by student. 
+-Mind control videos 
 
- "I don't know whether to kill you or fuck you," I finally said, 
+-Water sports videos 
 
- "How about a blow job?" he joked. 
+-Costume role play 
 
- "Yes, sir," I smiled, dropping to my knees. 
+- Bratty Princess videos where I domme men 
 
- EPILOGUE: 
+-And custom made videos. 
 
- Crazy enough, the wild weekend gave me an idea. 
+And I'm not going to lie... 
 
- I would quit teaching. 
+I love every second of it... I get paid to suck and fuck. 
 
- I would become a porn star. 
+Life couldn't be any sweeter than it is now. And here is one new one from my website with a plug that was just in my ass, now in my mouth. 
 
- I created my own website and started making a variety of fetish videos: 
+blackmailed-wife66.jpg] 
 
- -Submissive slut videos 
+THE END 
 
- -Nasty incest videos 
+Again a super thank you to Sweet Daisy Haze for allowing me to use her many photo sets to create this lengthy ode to the beautiful, adventurous, kinky star. 
 
- -Mind control videos 
+I used photos from many photo shoots and her twitter account, but here are the main four: 
 
- -Water sports videos 
+Mind Control App Makes Your Assistant Suck and Fuck! 
 
- -Costume role play 
+Daisy REALLY needs a job 
 
- - Bratty Princess videos where I domme men 
+Pin-Up Vintage POV Eye Contact and Pretty Feet in YOUR Face 
 
- -And custom made videos. 
+Forced Deepthroat for Hooters Shift 
 
- And I'm not going to lie... 
+Thanks again... 
 
- I love every second of it... I get paid to suck and fuck. 
+And have a naughty Halloween. 
 
- Life couldn't be any sweeter than it is now. And here is one new one from my website with a plug that was just in my ass, now in my mouth. 
-
- 
-
- blackmailed-wife66.jpg] 
-
- THE END 
-
- Again a super thank you to Sweet Daisy Haze for allowing me to use her many photo sets to create this lengthy ode to the beautiful, adventurous, kinky star. 
-
- I used photos from many photo shoots and her twitter account, but here are the main four: 
-
- Mind Control App Makes Your Assistant Suck and Fuck! 
-
- Daisy REALLY needs a job 
-
- Pin-Up Vintage POV Eye Contact and Pretty Feet in YOUR Face 
-
- Forced Deepthroat for Hooters Shift 
-
- Thanks again... 
-
- And have a naughty Halloween. 
-
- Jasmine October 2015 Report_Story 
+Jasmine October 2015 Report_Story 

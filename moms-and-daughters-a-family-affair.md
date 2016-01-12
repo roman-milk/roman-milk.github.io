@@ -2,3468 +2,3254 @@
 =================================================
 #1 
 
- 
-
- 
-
 ===
 
 CREDIT &amp; THANKS: A super special thanks to legendary artist Rebecca (of the Housewives at Play series and many more) for giving me permission to use a few of her plethora of illustrations for this story. We collaborated in 2014 on Straight Housewife Blackmailed. Also, this lengthy story is a HOMAGE to the many works of Rebecca, particularly her Housewives at Play series and her Hot Moms series. The concept is a little plot, a lot of naughty lesbian submission and very kinky pictures. 
 
- NOTE 1: Also, please note Rebecca generously gave me access to her entire gallery of photos and although not always perfect, I have tried to have the characters look identical as possible for the story. 
+NOTE 1: Also, please note Rebecca generously gave me access to her entire gallery of photos and although not always perfect, I have tried to have the characters look identical as possible for the story. 
 
- NOTE 2: All participants are at least 18-years-old. 
+NOTE 2: All participants are at least 18-years-old. 
 
- Note 3: This is a Nude Day 2015 Contest entry and my_200threleased story. 
+Note 3: This is a Nude Day 2015 Contest entry and my_200threleased story. 
 
- THANKS to Wayne, goamz86 and Robert for editing this story. 
+THANKS to Wayne, goamz86 and Robert for editing this story. 
 
- 
+a-family-affair01.jpg] 
 
- a-family-affair01.jpg] 
+0._Prologue: 
 
- 0._Prologue: 
+A_mother_and_her_two_daughters 
 
- A_mother_and_her_two_daughters 
+"Shouldn't you two at least do that in your bedroom?" Mrs. Deborah Parker asked, as she walked into the house and saw her twins doing what they always seemed to be doing since a couple months after they had turned eighteen, when she had introduced them both into the wonderful world of incestuous lesbianism. 
 
- "Shouldn't you two at least do that in your bedroom?" Mrs. Deborah Parker asked, as she walked into the house and saw her twins doing what they always seemed to be doing since a couple months after they had turned eighteen, when she had introduced them both into the wonderful world of incestuous lesbianism. 
+"You got us addicted," Chloe, the dominant one of the two, replied, as her older sister, by five minutes, licked her asshole. 
 
- "You got us addicted," Chloe, the dominant one of the two, replied, as her older sister, by five minutes, licked her asshole. 
+"I obviously created two sexual deviants," Mrs. Deborah Parker smiled. Watching her two daughters in the act of sisterly incest, memories of her own teenage years and the many sexual encounters with her next door neighbour, her mother and many others popped into her head. 
 
- "I obviously created two sexual deviants," Mrs. Deborah Parker smiled. Watching her two daughters in the act of sisterly incest, memories of her own teenage years and the many sexual encounters with her next door neighbour, her mother and many others popped into her head. 
+As she continued to watch her two daughters, shaking her head at their lustful passion for each other, she flashed back to her own lesbian beginnings: 
 
- As she continued to watch her two daughters, shaking her head at their lustful passion for each other, she flashed back to her own lesbian beginnings: 
+1._DEBORAH_LEARNS_SHE_LIKES_PUSSY 
 
- 1._DEBORAH_LEARNS_SHE_LIKES_PUSSY 
+I had just turned eighteen two days earlier, was an awkward senior, the epitome of nerd, when one day changed my life forever. 
 
- I had just turned eighteen two days earlier, was an awkward senior, the epitome of nerd, when one day changed my life forever. 
+I was just about to walk to school when Mrs. Appleton, my next door neighbour, called me over. 
 
- I was just about to walk to school when Mrs. Appleton, my next door neighbour, called me over. 
+"Good morning, Mrs. Appleton," I greeted, having babysat for her many times the past six years, she was like a second mother to me. 
 
- "Good morning, Mrs. Appleton," I greeted, having babysat for her many times the past six years, she was like a second mother to me. 
+"So you're eighteen now?" she asked. 
 
- "So you're eighteen now?" she asked. 
+"I am," I nodded. 
 
- "I am," I nodded. 
+"Do you feel like an adult now?" she questioned. 
 
- "Do you feel like an adult now?" she questioned. 
+I shrugged, "Not really." 
 
- I shrugged, "Not really." 
+"I think it's time you did," she said, her tone different from our usual conversations. "Come out back with me." 
 
- "I think it's time you did," she said, her tone different from our usual conversations. "Come out back with me." 
+"I have to go to school," I replied, not sure what she would possibly want to show me in her back yard. 
 
- "I have to go to school," I replied, not sure what she would possibly want to show me in her back yard. 
+"Have you ever skipped school?" she asked, actually taking my hand. 
 
- "Have you ever skipped school?" she asked, actually taking my hand. 
+"No," I admitted. I was a dedicated student and perhaps seen as a goody-goody by the more popular girls in school. 
 
- "No," I admitted. I was a dedicated student and perhaps seen as a goody-goody by the more popular girls in school. 
+"Well, I won't make you miss the whole day, but I do want to give you your birthday present," she continued, gently tugging my hand and leading me around the side of her house. 
 
- "Well, I won't make you miss the whole day, but I do want to give you your birthday present," she continued, gently tugging my hand and leading me around the side of her house. 
+I was confused. This was very unlike her. Yet, I wasn't going to question her anymore. I followed her to her backyard. 
 
- I was confused. This was very unlike her. Yet, I wasn't going to question her anymore. I followed her to her backyard. 
+Reaching the backyard, she asked, "I'm going to ask you some very personal questions, Deborah." 
 
- Reaching the backyard, she asked, "I'm going to ask you some very personal questions, Deborah." 
+"Okay," I nodded, confused by her odd behaviour. 
 
- "Okay," I nodded, confused by her odd behaviour. 
+"Do you find me attractive, Deborah?" she asked. 
 
- "Do you find me attractive, Deborah?" she asked. 
+"P-p-pardon?" I stammered, completely shocked by the question. 
 
- "P-p-pardon?" I stammered, completely shocked by the question. 
+"I find you very attractive," she continued, her finger going to my lips. 
 
- "I find you very attractive," she continued, her finger going to my lips. 
+I was paralyzed. Mrs. Appleton knew I was a virgin and knew that I was confused about my sexuality. I couldn't go to my Mom about the fact that I had a crush on a girl at my school, but I did ask advice from Mrs. Appleton. She explained that all girls will question their sexuality at some point and that only through experimentation will they know if they are straight, bi or lesbian. I hadn't taken her advice yet though as this was the eighties and I wasn't ready to be an even bigger outcast than I already was. 
 
- I was paralyzed. Mrs. Appleton knew I was a virgin and knew that I was confused about my sexuality. I couldn't go to my Mom about the fact that I had a crush on a girl at my school, but I did ask advice from Mrs. Appleton. She explained that all girls will question their sexuality at some point and that only through experimentation will they know if they are straight, bi or lesbian. I hadn't taken her advice yet though as this was the eighties and I wasn't ready to be an even bigger outcast than I already was. 
+"It's okay, my dear," she smiled, moving directly in front of me. "I don't bite...hard." 
 
- "It's okay, my dear," she smiled, moving directly in front of me. "I don't bite...hard." 
+My head was spinning...my legs were frozen in place...my pussy was dampening my panties. 
 
- My head was spinning...my legs were frozen in place...my pussy was dampening my panties. 
+"I want to be your first, my pet," she continued, leaning in and kissing me. 
 
- "I want to be your first, my pet," she continued, leaning in and kissing me. 
+Her lips felt so soft, so tender, my mind shut off as I returned the kiss. I had kissed a couple of boys and been felt up once, but nothing major. But this...this was different. I melted into her, forgetting that I was going to be late for school, forgetting that my mother could look out her back window and see us, forgetting that she was twenty years older than me. 
 
- Her lips felt so soft, so tender, my mind shut off as I returned the kiss. I had kissed a couple of boys and been felt up once, but nothing major. But this...this was different. I melted into her, forgetting that I was going to be late for school, forgetting that my mother could look out her back window and see us, forgetting that she was twenty years older than me. 
+When she broke the kiss, I felt empty. I had never been kissed like that and I was sad it was over. 
 
- When she broke the kiss, I felt empty. I had never been kissed like that and I was sad it was over. 
+Looking into my eyes, she whispered, "I've always known this day would come." 
 
- Looking into my eyes, she whispered, "I've always known this day would come." 
+"You did?" I asked, star-struck. Mrs. Appleton was beautiful and sophisticated, so completely different than me. 
 
- "You did?" I asked, star-struck. Mrs. Appleton was beautiful and sophisticated, so completely different than me. 
+"Of course, my dear," she smiled warmly, "like mother, like daughter." 
 
- "Of course, my dear," she smiled warmly, "like mother, like daughter." 
+"What?" I asked, shifting from star struck to confused in just four words. 
 
- "What?" I asked, shifting from star struck to confused in just four words. 
+"Your mother has been my pet for years," she revealed. 
 
- "Your mother has been my pet for years," she revealed. 
+"Your pet?" I asked, still not remotely following the conversation. 
 
- "Your pet?" I asked, still not remotely following the conversation. 
+"You're incredibly book smart, my dear, but you've got a lot to learn about the real world," she continued. 
 
- "You're incredibly book smart, my dear, but you've got a lot to learn about the real world," she continued. 
+I likely looked like a deer in the headlights as I tried to process the fact that my mother apparently was cheating on my father with another woman. 
 
- I likely looked like a deer in the headlights as I tried to process the fact that my mother apparently was cheating on my father with another woman. 
+"Now I already know what you're thinking," she continued, reading my mind, "your mother is cheating on your father, but you can't look at it that way." 
 
- "Now I already know what you're thinking," she continued, reading my mind, "your mother is cheating on your father, but you can't look at it that way." 
+"I can't?" I questioned. 
 
- "I can't?" I questioned. 
+"No," she explained, "the reality is that your mother loves your father completely, but he can't fulfill her feminine sexual desires because, well, to put it frankly, he has a cock and not a cunt." 
 
- "No," she explained, "the reality is that your mother loves your father completely, but he can't fulfill her feminine sexual desires because, well, to put it frankly, he has a cock and not a cunt." 
+"You and my mom have sex?" I finally asked, even though the answer was obvious already. 
 
- "You and my mom have sex?" I finally asked, even though the answer was obvious already. 
+"Mostly, she eats my cunt or I fuck her cunt or ass with one of my strap-ons," she answered rather matter-of-factly making this conversation even more surreal. 
 
- "Mostly, she eats my cunt or I fuck her cunt or ass with one of my strap-ons," she answered rather matter-of-factly making this conversation even more surreal. 
+"I think I need to get going," I said, overwhelmed by all I had heard and needing to get out of there. 
 
- "I think I need to get going," I said, overwhelmed by all I had heard and needing to get out of there. 
+"My dear," she smiled warmly, "but I haven't let you have your birthday present yet." 
 
- "My dear," she smiled warmly, "but I haven't let you have your birthday present yet." 
+Before I could say anything, she pulled off her sundress and tossed it aside, revealing she wasn't wearing a bra or panties. 
 
- Before I could say anything, she pulled off her sundress and tossed it aside, revealing she wasn't wearing a bra or panties. 
+I was again paralyzed. The shocking revelations had me a complete mess. I was confused, frustrated, angry and yet undeniably horny. 
 
- I was again paralyzed. The shocking revelations had me a complete mess. I was confused, frustrated, angry and yet undeniably horny. 
+"Cat got your tongue?" she asked, with a devious smile across her face, as she sat down and spread her legs, before rewording, "or more accurately, pussy got your tongue?" 
 
- "Cat got your tongue?" she asked, with a devious smile across her face, as she sat down and spread her legs, before rewording, "or more accurately, pussy got your tongue?" 
+"I-um-I-should," I struggled to formulate a complete thought as I stared at her pussy. 
 
- "I-um-I-should," I struggled to formulate a complete thought as I stared at her pussy. 
+"Come and get your birthday present, Deborah, it is one of a kind," she said, her tone so sultry, so sexy, my mind was spinning. 
 
- "Come and get your birthday present, Deborah, it is one of a kind," she said, her tone so sultry, so sexy, my mind was spinning. 
+I couldn't move. My whole innocent world had been shattered in seconds. My Mom was a lesbian? My neighbor was also a lesbian? 
 
- I couldn't move. My whole innocent world had been shattered in seconds. My Mom was a lesbian? My neighbor was also a lesbian? 
+"Come to me," she ordered, gently. 
 
- "Come to me," she ordered, gently. 
+I walked the few steps to my naked neighbour. 
 
- I walked the few steps to my naked neighbour. 
+"On your knees, my dear," she said softly. 
 
- "On your knees, my dear," she said softly. 
+It just felt natural to obey and I felt myself lower to the ground. As I put my bagged lunch on the ground beside me, I was soon on my knees, staring at Mrs. Appleton's pussy, with an unexplainable, undeniable desire to taste it. 
 
- It just felt natural to obey and I felt myself lower to the ground. As I put my bagged lunch on the ground beside me, I was soon on my knees, staring at Mrs. Appleton's pussy, with an unexplainable, undeniable desire to taste it. 
+"Go ahead, my dear, have a taste of your special birthday pie," she softly said, as she grabbed my ponytail and pulled me gently to her slightly glistening pussy lips. 
 
- "Go ahead, my dear, have a taste of your special birthday pie," she softly said, as she grabbed my ponytail and pulled me gently to her slightly glistening pussy lips. 
+a-family-affair02.jpg] 
 
- 
+I allowed her to guide me between her legs and to her pussy. 
 
- a-family-affair02.jpg] 
+A light scent enveloped me as I extended my tongue and began licking my first pussy. I really had no idea what I was doing as I licked up and down, parting her pussy lips. 
 
- I allowed her to guide me between her legs and to her pussy. 
+She let out a soft moan and said, "That's it, my dear, explore my cunt with your tongue." 
 
- A light scent enveloped me as I extended my tongue and began licking my first pussy. I really had no idea what I was doing as I licked up and down, parting her pussy lips. 
+I had never heard someone use the 'c' word, but somehow in this instance it seemed like the right time to use such a nasty word. 
 
- She let out a soft moan and said, "That's it, my dear, explore my cunt with your tongue." 
+Hearing her moan, implying I was giving her pleasure, encouraged me as I began to explore every inch of her pussy...taking my time. 
 
- I had never heard someone use the 'c' word, but somehow in this instance it seemed like the right time to use such a nasty word. 
+"Oh yes, Deborah, you're a natural pussy pleaser," she moaned, before adding, "just like I knew you would be." 
 
- Hearing her moan, implying I was giving her pleasure, encouraged me as I began to explore every inch of her pussy...taking my time. 
+I wondered how long she had been planning this, yet my main focus was getting her off. Her taste was exotic and addicting and I wanted to taste the full flood of her orgasm. 
 
- "Oh yes, Deborah, you're a natural pussy pleaser," she moaned, before adding, "just like I knew you would be." 
+"You want my cunt cum?" she moaned, after a few minutes. 
 
- I wondered how long she had been planning this, yet my main focus was getting her off. Her taste was exotic and addicting and I wanted to taste the full flood of her orgasm. 
+"Yes," I whispered, while I continued licking. 
 
- "You want my cunt cum?" she moaned, after a few minutes. 
+"Yes, what?" she asked, her hand going to my chin and pulling my face up to make eye contact. 
 
- "Yes," I whispered, while I continued licking. 
+"Yes, I want to taste your cunt cum," I declared, the first time I had ever spoken the 'c' word. 
 
- "Yes, what?" she asked, her hand going to my chin and pulling my face up to make eye contact. 
+"And you want to be my pet?" she continued her questioning, as I licked my lips to get another small taste of her cunt juice. 
 
- "Yes, I want to taste your cunt cum," I declared, the first time I had ever spoken the 'c' word. 
+I wasn't sure what being a pet completely entailed, but at the moment, now that I had had a taste of her sweet pussy, I would do anything to keep tasting it. I answered, looking directly into her brown eyes, "Yes." 
 
- "And you want to be my pet?" she continued her questioning, as I licked my lips to get another small taste of her cunt juice. 
+"Yes, what?" she again questioned, clearly enjoying her power over me. 
 
- I wasn't sure what being a pet completely entailed, but at the moment, now that I had had a taste of her sweet pussy, I would do anything to keep tasting it. I answered, looking directly into her brown eyes, "Yes." 
+"Yes, I want to be your pet," I admitted. 
 
- "Yes, what?" she again questioned, clearly enjoying her power over me. 
+"Well, come and get your treat, my pet," she smiled, letting go of my chin. 
 
- "Yes, I want to be your pet," I admitted. 
+Dying to get her off, to taste her cum, I returned to licking her. After a brief exploration, her moans increasing, I decided it was time to be more aggressive. Knowing that I got myself off by focusing on my clit when I was close, I took her clit between my lips while I simultaneously slid two fingers inside her pussy. 
 
- "Well, come and get your treat, my pet," she smiled, letting go of my chin. 
+"You baddddd girl," she moaned, as she grabbed the back of my head and pulled me deep into her cunt. 
 
- Dying to get her off, to taste her cum, I returned to licking her. After a brief exploration, her moans increasing, I decided it was time to be more aggressive. Knowing that I got myself off by focusing on my clit when I was close, I took her clit between my lips while I simultaneously slid two fingers inside her pussy. 
+I furiously finger fucked her as she began grinding her ass up and down while I hungrily licked her. It didn't take long before she screamed, likely alerting my mother to what was transpiring next door, as my face was flooded with her wetness. 
 
- "You baddddd girl," she moaned, as she grabbed the back of my head and pulled me deep into her cunt. 
+I eagerly licked the abundance of pussy juice that came out of her cunt, lapping it up as if it was the sweetest wine ever. I didn't know if I was a lesbian, or bisexual, but I knew I wasn't completely straight as I loved the taste of her cunt and just how natural it felt to be on my knees between her legs. 
 
- I furiously finger fucked her as she began grinding her ass up and down while I hungrily licked her. It didn't take long before she screamed, likely alerting my mother to what was transpiring next door, as my face was flooded with her wetness. 
+Eventually, she let go of my head, and I looked up at her, my face sticky with her pussy juice. She smiled down at me and said, "Did you enjoy?" 
 
- I eagerly licked the abundance of pussy juice that came out of her cunt, lapping it up as if it was the sweetest wine ever. I didn't know if I was a lesbian, or bisexual, but I knew I wasn't completely straight as I loved the taste of her cunt and just how natural it felt to be on my knees between her legs. 
+"Yes," I nodded, still in awe of all that had just transpired. I mean, twenty minutes ago I was walking to school like I always do, now I was on my knees, in front of Mrs. Appleton with pussy juice all over my face. 
 
- Eventually, she let go of my head, and I looked up at her, my face sticky with her pussy juice. She smiled down at me and said, "Did you enjoy?" 
+"I knew you would be a natural," she said. 
 
- "Yes," I nodded, still in awe of all that had just transpired. I mean, twenty minutes ago I was walking to school like I always do, now I was on my knees, in front of Mrs. Appleton with pussy juice all over my face. 
+I had to ask, "Mom licks your pussy?" 
 
- "I knew you would be a natural," she said. 
+"Almost daily," she shrugged, "We housewives are bored throughout the day." 
 
- I had to ask, "Mom licks your pussy?" 
+"I can't believe it," I said, stunned by both what I had willingly just done, and the reality that my Mom did it too. 
 
- "Almost daily," she shrugged, "We housewives are bored throughout the day." 
+"Oh, trust me, your mother is the most submissive pet I've ever met," she continued. "In truth, there isn't a woman on this street that hasn't had your mother between her legs." 
 
- "I can't believe it," I said, stunned by both what I had willingly just done, and the reality that my Mom did it too. 
+"No way," I gasped again, as the avalanche of shocking information just kept coming and coming. 
 
- "Oh, trust me, your mother is the most submissive pet I've ever met," she continued. "In truth, there isn't a woman on this street that hasn't had your mother between her legs." 
+"Honey, you're old enough to know the truth," she continued, pulling me up off my knees and giving me a kiss. 
 
- "No way," I gasped again, as the avalanche of shocking information just kept coming and coming. 
+I eagerly kissed her back, in complete lust with her. 
 
- "Honey, you're old enough to know the truth," she continued, pulling me up off my knees and giving me a kiss. 
+Breaking the kiss, she continued, "This whole neighborhood is full of lesbian activity." 
 
- I eagerly kissed her back, in complete lust with her. 
+"I just can't imagine it," I said, trying to envision my mom licking Mrs. Appleton or anyone else on our block. 
 
- Breaking the kiss, she continued, "This whole neighborhood is full of lesbian activity." 
+"Oh trust me, now that you're legal, you will become a very active member of the communal lesbian society," she continued. 
 
- "I just can't imagine it," I said, trying to envision my mom licking Mrs. Appleton or anyone else on our block. 
+I was officially overwhelmed. I said, "I really need to get going to school." 
 
- "Oh trust me, now that you're legal, you will become a very active member of the communal lesbian society," she continued. 
+"Yes, that is probably best," she nodded. 
 
- I was officially overwhelmed. I said, "I really need to get going to school." 
+I began to leave, everything I thought I knew about my life completely obliterated in the past half hour. 
 
- "Yes, that is probably best," she nodded. 
+"I'll call Mrs. Campbell to excuse your tardiness," Mrs. Appleton said, before adding, "she is also a pet of mine." 
 
- I began to leave, everything I thought I knew about my life completely obliterated in the past half hour. 
+I stopped and turned around. "Are you serious?" I asked. Mrs. Campbell was my principal and a very stern woman who never smiled...ever. 
 
- "I'll call Mrs. Campbell to excuse your tardiness," Mrs. Appleton said, before adding, "she is also a pet of mine." 
+"I never joke about my pets," she smiled. 
 
- I stopped and turned around. "Are you serious?" I asked. Mrs. Campbell was my principal and a very stern woman who never smiled...ever. 
+"Okay," I nodded, so many questions spinning in my head and yet no time to ask them. I walked to school knowing that my life had changed forever and unsure what lay ahead. 
 
- "I never joke about my pets," she smiled. 
+The pussy of the twin's mother was suddenly burning as the warm memory of her lifetime of licking cunt played in her head. She watched as Amanda got her sister off fingering her ass while licking her cunt. Since seducing her two daughters on their eighteenth birthday, she had created a clear hierarchy in the family. She was clearly on the top and the domme, then it was Chloe her very outgoing diva daughter and at the bottom of the sex chain was Amanda the shy academic who was literally born to please. 
 
- "Okay," I nodded, so many questions spinning in my head and yet no time to ask them. I walked to school knowing that my life had changed forever and unsure what lay ahead. 
+Once Chloe came, Mrs. Parker ordered, "Come get Mommy off quickly, Amanda, before your father gets home." 
 
- The pussy of the twin's mother was suddenly burning as the warm memory of her lifetime of licking cunt played in her head. She watched as Amanda got her sister off fingering her ass while licking her cunt. Since seducing her two daughters on their eighteenth birthday, she had created a clear hierarchy in the family. She was clearly on the top and the domme, then it was Chloe her very outgoing diva daughter and at the bottom of the sex chain was Amanda the shy academic who was literally born to please. 
+"Yes, Mommy," Amanda eagerly nodded, as she left her sister's pussy and buried her face in her mother's. Ever since she was first introduced to the unique taste of pussy she had become addicted. She often begged her sister to let her lick her and when her sister was on her period she literally went through withdrawal. 
 
- Once Chloe came, Mrs. Parker ordered, "Come get Mommy off quickly, Amanda, before your father gets home." 
+"Chloe, keep an eye on the driveway," Deborah said, "We sure don't want your father to know about our little secret." 
 
- "Yes, Mommy," Amanda eagerly nodded, as she left her sister's pussy and buried her face in her mother's. Ever since she was first introduced to the unique taste of pussy she had become addicted. She often begged her sister to let her lick her and when her sister was on her period she literally went through withdrawal. 
+"Maybe we should add him in," Chloe smiled. Unlike Amanda, who was still a virgin, very rare in 2015 for an eighteen-year-old, she was bisexual. Although she ate her mom's pussy and loved it, the reality was she loved the power she had over her sister and hoped to get other submissives to please her. 
 
- "Chloe, keep an eye on the driveway," Deborah said, "We sure don't want your father to know about our little secret." 
+"You'd probably love to fuck your father wouldn't you?" the mother moaned, as her daughter licked her cunt. "You've always been a daddy's girl." 
 
- "Maybe we should add him in," Chloe smiled. Unlike Amanda, who was still a virgin, very rare in 2015 for an eighteen-year-old, she was bisexual. Although she ate her mom's pussy and loved it, the reality was she loved the power she had over her sister and hoped to get other submissives to please her. 
+"Maybe it's time to be Daddy's slut," Chloe suggested, the idea of fucking her hot father something she had considered many times. 
 
- "You'd probably love to fuck your father wouldn't you?" the mother moaned, as her daughter licked her cunt. "You've always been a daddy's girl." 
+Deborah moaned, as her older daughter was close to getting her off, "Let's just keep this between the ladies for now." 
 
- "Maybe it's time to be Daddy's slut," Chloe suggested, the idea of fucking her hot father something she had considered many times. 
+"Okay," Chloe nodded, not really wanting her father anyway, just liking the idea of the taboo. 
 
- Deborah moaned, as her older daughter was close to getting her off, "Let's just keep this between the ladies for now." 
+"That's it, my eager cunt licker, get Mommy off," Deborah demanded, as she grabbed her daughter's head and held her deep inside her box until she exploded. 
 
- "Okay," Chloe nodded, not really wanting her father anyway, just liking the idea of the taboo. 
+Amanda eagerly licked her Mom's delicious cum, something she had become addicted to ever since that first fateful day almost a year ago. 
 
- "That's it, my eager cunt licker, get Mommy off," Deborah demanded, as she grabbed her daughter's head and held her deep inside her box until she exploded. 
+Once done coming, Deborah sighed, "Well, I guess I should make dinner." 
 
- Amanda eagerly licked her Mom's delicious cum, something she had become addicted to ever since that first fateful day almost a year ago. 
+Chloe quipped, "I think Amanda just had dinner." 
 
- Once done coming, Deborah sighed, "Well, I guess I should make dinner." 
+Amanda, still easily embarrassed by her inability to resist pussy, went beet red. She still struggled with the reality that this one part of her life was so unstructured and unpredictable. In every other aspect of her life she was disciplined, organized and planning for the future...she had already been accepted to Harvard (A goal she set in grade three). Yet, when a pussy was offered to her she couldn't resist; she also couldn't resist obeying her strong-willed sister. 
 
- Chloe quipped, "I think Amanda just had dinner." 
+Deborah looked down, smiled warmly and said, "Well like everything else in her life she excels at eating pussy." 
 
- Amanda, still easily embarrassed by her inability to resist pussy, went beet red. She still struggled with the reality that this one part of her life was so unstructured and unpredictable. In every other aspect of her life she was disciplined, organized and planning for the future...she had already been accepted to Harvard (A goal she set in grade three). Yet, when a pussy was offered to her she couldn't resist; she also couldn't resist obeying her strong-willed sister. 
+"Thank you, Mommy Mistress," Amanda replied, looking up at her mother and loving the recognition of doing well. Whether it be getting a 100% on a test, winning an award or getting someone off, she revelled in the positive reinforcement. 
 
- Deborah looked down, smiled warmly and said, "Well like everything else in her life she excels at eating pussy." 
+"Go finish your sister off upstairs," Deborah said, as she stood up. 
 
- "Thank you, Mommy Mistress," Amanda replied, looking up at her mother and loving the recognition of doing well. Whether it be getting a 100% on a test, winning an award or getting someone off, she revelled in the positive reinforcement. 
+"Yes, Mommy Mistress," Amanda nodded, her mouth already watering at the thought of eating Chloe's pussy again. 
 
- "Go finish your sister off upstairs," Deborah said, as she stood up. 
+"You're such a lesbian slut," Chloe smiled, knowing the name calling kept her sister in place. 
 
- "Yes, Mommy Mistress," Amanda nodded, her mouth already watering at the thought of eating Chloe's pussy again. 
+Amanda hated the name-calling, yet it undeniably, frustratingly, turned her on. 
 
- "You're such a lesbian slut," Chloe smiled, knowing the name calling kept her sister in place. 
+"Let's go, cunt muncher," Chloe ordered, snapping her fingers. 
 
- Amanda hated the name-calling, yet it undeniably, frustratingly, turned her on. 
+Wetness immediately gushed out of her cunt, as Amanda crawled, as expected, to her sister's bedroom. 
 
- "Let's go, cunt muncher," Chloe ordered, snapping her fingers. 
+2._AMANDA_REMEMBERS_HOW_IT_ALL_STARTED_&amp;_NAUGHTY_MOMMY_FLASHBACKS 
 
- Wetness immediately gushed out of her cunt, as Amanda crawled, as expected, to her sister's bedroom. 
+As she licked her sister's cunt, something she had done almost daily, sometimes more than once, for about a year now, she replayed the day it all started. 
 
- 2._AMANDA_REMEMBERS_HOW_IT_ALL_STARTED_&amp;_NAUGHTY_MOMMY_FLASHBACKS 
+I returned home from prom, an escort for a senior student, even though I was only a junior, quite upset that my date had tried to force me to give him head. Although I was eighteen (we started school a year late because Mom and Dad worked overseas when we were to be in kindergarten...thus making Chloe and I always a year older than our classmates, sometimes even more), I was still a virgin. My focus had always been on my studies, not boys. Yet, Chloe convinced me to be an escort because, in her words, 'I needed a social life'. 
 
- As she licked her sister's cunt, something she had done almost daily, sometimes more than once, for about a year now, she replayed the day it all started. 
-
- I returned home from prom, an escort for a senior student, even though I was only a junior, quite upset that my date had tried to force me to give him head. Although I was eighteen (we started school a year late because Mom and Dad worked overseas when we were to be in kindergarten...thus making Chloe and I always a year older than our classmates, sometimes even more), I was still a virgin. My focus had always been on my studies, not boys. Yet, Chloe convinced me to be an escort because, in her words, 'I needed a social life'. 
-
- I came home in tears and Mom comforted me.  
-
- 
-
- 
+I came home in tears and Mom comforted me.  
 
 ===
 
 Chloe came home a few minutes later and said, "Seriously, Amanda, you are the biggest prude." 
 
- I stammered, "H-h-he tried to shove his penis in my mouth." 
+I stammered, "H-h-he tried to shove his penis in my mouth." 
 
- Chloe sighed dramatically, something she should probably trademark she does it so well, "First it's a dick or a cock or a prick or a drill, not a penis, what are you, eight?" 
+Chloe sighed dramatically, something she should probably trademark she does it so well, "First it's a dick or a cock or a prick or a drill, not a penis, what are you, eight?" 
 
- "Mom!" I pleaded, shocked at Chloe's vulgar mouth. Talking disgusting wasn't new, talking disgusting in front of Mom was. 
+"Mom!" I pleaded, shocked at Chloe's vulgar mouth. Talking disgusting wasn't new, talking disgusting in front of Mom was. 
 
- Mom surprised me by saying, "Actually, Amanda, your sister may be right. You need to loosen up a bit." 
+Mom surprised me by saying, "Actually, Amanda, your sister may be right. You need to loosen up a bit." 
 
- "A fucking lot, actually," Chloe added. 
+"A fucking lot, actually," Chloe added. 
 
- "Chloe May," Mom firmly said, the use of our middle name always implying we had gone too far. 
+"Chloe May," Mom firmly said, the use of our middle name always implying we had gone too far. 
 
- "Sorry, Mommy," Chloe immediately said. I was surprised to hear Chloe say 'Mommy', although things had become different between the two of them the past couple of months. Mom and Chloe had been fighting non-stop since Chloe hit puberty, yet the past couple of months Chloe had changed completely, acting almost docile towards her. It had been a very strange turn of events, which I just concluded was Chloe finally growing up. 
+"Sorry, Mommy," Chloe immediately said. I was surprised to hear Chloe say 'Mommy', although things had become different between the two of them the past couple of months. Mom and Chloe had been fighting non-stop since Chloe hit puberty, yet the past couple of months Chloe had changed completely, acting almost docile towards her. It had been a very strange turn of events, which I just concluded was Chloe finally growing up. 
 
- Mom continued, "Amanda, you are eighteen now and its time you start to understand there is more to life than just studying." 
+Mom continued, "Amanda, you are eighteen now and its time you start to understand there is more to life than just studying." 
 
- "That's why I agreed to go out tonight," I pointed out, even though I had no interest in the boy. 
+"That's why I agreed to go out tonight," I pointed out, even though I had no interest in the boy. 
 
- "Are you a lesbian?" Mom asked. 
+"Are you a lesbian?" Mom asked. 
 
- "P-p-pardon?" I stammered, shocked completely by the question, especially from my own mother. 
+"P-p-pardon?" I stammered, shocked completely by the question, especially from my own mother. 
 
- "Do you like eating cunt?" Mom clarified, using the forbidden 'c' word. 
+"Do you like eating cunt?" Mom clarified, using the forbidden 'c' word. 
 
- "Mother!" I gasped, suddenly feeling like I was on a twisted version of candid camera. 
+"Mother!" I gasped, suddenly feeling like I was on a twisted version of candid camera. 
 
- "Kneel," Mom ordered, snapping her fingers and pointing to Chloe. 
+"Kneel," Mom ordered, snapping her fingers and pointing to Chloe. 
 
- "Yes, Mistress Mommy," Chloe immediately obeyed, while smiling at me. 
+"Yes, Mistress Mommy," Chloe immediately obeyed, while smiling at me. 
 
- "You see Amanda, it's time you knew the family secret," Mom began, as she again snapped her fingers. 
+"You see Amanda, it's time you knew the family secret," Mom began, as she again snapped her fingers. 
 
- I watched in speechless awe as my stubborn, confident sister crawled to Mom. 
+I watched in speechless awe as my stubborn, confident sister crawled to Mom. 
 
- Mom wordlessly opened her legs, and I stared as she revealed a completely shaved vagina. 
+Mom wordlessly opened her legs, and I stared as she revealed a completely shaved vagina. 
 
- "You see, Amanda, my mother taught me when I was about your age the power of lesbian sexuality," Mom revealed. 
+"You see, Amanda, my mother taught me when I was about your age the power of lesbian sexuality," Mom revealed. 
 
- "What?" I said, apparently unable to say more than one word at a time. 
+"What?" I said, apparently unable to say more than one word at a time. 
 
- "Your grandmother loves eating cunt, your mother loves eating cunt and," Mom said, as she grabbed Chloe's head and pulled her between her legs, "your sister loves eating cunt." 
+"Your grandmother loves eating cunt, your mother loves eating cunt and," Mom said, as she grabbed Chloe's head and pulled her between her legs, "your sister loves eating cunt." 
 
- "That's incest," I pointed out the obvious. 
+"That's incest," I pointed out the obvious. 
 
- "Oh honey, stop judging," Mom said, as if I was the one in the wrong here. "There's a saying 'the family that plays together, stays together'." 
+"Oh honey, stop judging," Mom said, as if I was the one in the wrong here. "There's a saying 'the family that plays together, stays together'." 
 
- "I don't think this is what they were thinking," I pointed out, even though I was unable to take my eyes off of my sister pleasuring Mom. 
+"I don't think this is what they were thinking," I pointed out, even though I was unable to take my eyes off of my sister pleasuring Mom. 
 
- "Sit down, Amanda," Mom ordered. 
+"Sit down, Amanda," Mom ordered. 
 
- "No, thank you," I began, before Mom interrupted. 
+"No, thank you," I began, before Mom interrupted. 
 
- "Now, Amanda Lynn," she demanded firmly. 
+"Now, Amanda Lynn," she demanded firmly. 
 
- I obeyed, even as my head spun with shock. 
+I obeyed, even as my head spun with shock. 
 
- "You see, my dear, your grandmother is very submissive, always willing to please, just like you," Mom continued. 
+"You see, my dear, your grandmother is very submissive, always willing to please, just like you," Mom continued. 
 
- "I'm not a lesbian," I pointed out. 
+"I'm not a lesbian," I pointed out. 
 
- "How do you know?" Mom asked. "Have you ever eaten cunt or sucked cock?" 
+"How do you know?" Mom asked. "Have you ever eaten cunt or sucked cock?" 
 
- "God, no," I said, disgusted by both. 
+"God, no," I said, disgusted by both. 
 
- "You're so adorable in your pretentious judgement," she chuckled softly, making me feel both insulted and slightly shameful; I hated being judged by my peers as a prude because I didn't drink, or get high or have sex, and yet I was apparently judging others because they did. 
+"You're so adorable in your pretentious judgement," she chuckled softly, making me feel both insulted and slightly shameful; I hated being judged by my peers as a prude because I didn't drink, or get high or have sex, and yet I was apparently judging others because they did. 
 
- She continued, "You see I was eighteen, and had been seduced by my neighbour who was your grandmother's Mistress. I also learned there was a lesbian hierarchy in the neighborhood I lived in and as the newest addition I was low slut on the totem pole per se." 
+She continued, "You see I was eighteen, and had been seduced by my neighbour who was your grandmother's Mistress. I also learned there was a lesbian hierarchy in the neighborhood I lived in and as the newest addition I was low slut on the totem pole per se." 
 
- "Mom this is way past the TMI," I pointed out. 
+"Mom this is way past the TMI," I pointed out. 
 
- "It's time you understand your family history and learn your place," she replied, before adding, "now don't interrupt me again." 
+"It's time you understand your family history and learn your place," she replied, before adding, "now don't interrupt me again." 
 
- "Yes, Mom," I nodded, even though I was mortified by the whole ordeal I was witnessing, both hearing and seeing. 
+"Yes, Mom," I nodded, even though I was mortified by the whole ordeal I was witnessing, both hearing and seeing. 
 
- "Anyways, after school one day, after pleasing her sexually every day for two weeks, Mistress Appleton walked me over to my mother and said, 'Your daughter is now your pet'". 
+"Anyways, after school one day, after pleasing her sexually every day for two weeks, Mistress Appleton walked me over to my mother and said, 'Your daughter is now your pet'". 
 
- I couldn't believe Mom was telling me this; I couldn't believe this was true; I couldn't believe Chloe was licking Mom's vagina. 
+I couldn't believe Mom was telling me this; I couldn't believe this was true; I couldn't believe Chloe was licking Mom's vagina. 
 
- 
+a-family-affair03.jpg] 
 
- a-family-affair03.jpg] 
+"Mom smiled, understanding immediately that I had been turned and trained. She said, shocking me at the time, 'I've been waiting for this moment for a long time'. Five minutes later, I was on my back, licking my Mom's cunt for the first time." 
 
- "Mom smiled, understanding immediately that I had been turned and trained. She said, shocking me at the time, 'I've been waiting for this moment for a long time'. Five minutes later, I was on my back, licking my Mom's cunt for the first time." 
+I wondered what the word 'turned' meant, but sure wasn't going to ask. 
 
- I wondered what the word 'turned' meant, but sure wasn't going to ask. 
+"Once I tasted Mom's cunt, I was addicted and it became a daily, often more than once a day, activity. Just like it is now for Chloe, isn't it, my pet?" 
 
- "Once I tasted Mom's cunt, I was addicted and it became a daily, often more than once a day, activity. Just like it is now for Chloe, isn't it, my pet?" 
+"Yes, Mistress, Mommy," Chloe nodded, while still having her face buried in- between Mom's legs. 
 
- "Yes, Mistress, Mommy," Chloe nodded, while still having her face buried in- between Mom's legs. 
+"And my sweet daughter, it's almost time for you too to have your first taste of pussy, taboo pussy," Mom revealed. 
 
- "And my sweet daughter, it's almost time for you too to have your first taste of pussy, taboo pussy," Mom revealed. 
+"I can't Mom," I whispered. 
 
- "I can't Mom," I whispered. 
+"Is your virgin cunt wet, honey?" Mom asked. 
 
- "Is your virgin cunt wet, honey?" Mom asked. 
+"No," I answered quickly, but then realized that I was lying as I felt a dampness in my panties. 
 
- "No," I answered quickly, but then realized that I was lying as I felt a dampness in my panties. 
+"Are you telling me the truth, honey?" Mom asked, always able to know when I was lying. 
 
- "Are you telling me the truth, honey?" Mom asked, always able to know when I was lying. 
+My face burned red with shame at being wet and guilt at lying. "Yes," I whispered. 
 
- My face burned red with shame at being wet and guilt at lying. "Yes," I whispered. 
+"Why is your cunt wet?" Mom asked bluntly. 
 
- "Why is your cunt wet?" Mom asked bluntly. 
+"I don't know," I answered, which was the truth. 
 
- "I don't know," I answered, which was the truth. 
+"Do you want to replace your sister?" Mom asked. 
 
- "Do you want to replace your sister?" Mom asked. 
+"No," I answered, although I was suddenly very confused. 
 
- "No," I answered, although I was suddenly very confused. 
+a-family-affair04.jpg] 
 
- 
+Mom continued, "After I ate out mother, I became the community pussy pleaser. It was expected, as part of the community initiation, that I please fourteen different women in fourteen days. So I ate out another neighbour, Mrs. Turtle, the next day, concluding without a doubt that I loved eating pussy." 
 
- a-family-affair04.jpg] 
+Mom continued her vivid retelling of her lesbian sexual awakening, "Then the following day, I was used by Mrs. Turtle's cheerleading daughter in the locker room and then by another cheerleader who caught us in the act." 
 
- Mom continued, "After I ate out mother, I became the community pussy pleaser. It was expected, as part of the community initiation, that I please fourteen different women in fourteen days. So I ate out another neighbour, Mrs. Turtle, the next day, concluding without a doubt that I loved eating pussy." 
+Mom asked Chloe, "Do you think your cheerleading teammates would have fun training your sister in the fine art of cunt munching?" 
 
- Mom continued her vivid retelling of her lesbian sexual awakening, "Then the following day, I was used by Mrs. Turtle's cheerleading daughter in the locker room and then by another cheerleader who caught us in the act." 
+a-family-affair05.jpg] 
 
- Mom asked Chloe, "Do you think your cheerleading teammates would have fun training your sister in the fine art of cunt munching?" 
+Chloe, looked back at me, her usual devious smug look on her face, "Oh, I imagine they would turn her into a full- time pussy pleasing mascot." 
 
- 
+Mom pulled Chloe between her legs and continued, her eyes never breaking contact with mine, "So then, the following day, I learned the thrilling fulfillment of the strap-on cock when my best friend at the time, Cassandra, who apparently had been eating out my mom during overnight sleepovers for a few months after I went to sleep, called me over to study French. To my surprise, the French we were studying was French kissing, followed by a unique sixty-nine style of French kissing and concluded with sucking a strap-on before she took my virginity with her long plastic cock." 
 
- a-family-affair05.jpg] 
+a-family-affair06.jpg] 
 
- Chloe, looked back at me, her usual devious smug look on her face, "Oh, I imagine they would turn her into a full- time pussy pleasing mascot." 
+I asked, still in complete disbelief, "You lost your virginity to a girl?" 
 
- Mom pulled Chloe between her legs and continued, her eyes never breaking contact with mine, "So then, the following day, I learned the thrilling fulfillment of the strap-on cock when my best friend at the time, Cassandra, who apparently had been eating out my mom during overnight sleepovers for a few months after I went to sleep, called me over to study French. To my surprise, the French we were studying was French kissing, followed by a unique sixty-nine style of French kissing and concluded with sucking a strap-on before she took my virginity with her long plastic cock." 
+"Honey, I was just like you," she answered. "I was nerdy, cute and shy. But once this world of secret lesbianism was revealed it was like the handcuffs of society's expectations and pressure dissipated. Before I knew it I was more than just the nerdy girl who answered all the questions in class, and I was no longer just the teacher's pet, although in all fairness I physically did become the teacher's pet for Mrs. Blankton one day." 
 
- 
+"You had sex with a teacher?" I asked, even though the answer was obvious. 
 
- a-family-affair06.jpg] 
+"Yes, she was an English teacher who was both firm in the classroom and when she had me under her desk licking her while talking to a colleague, or when she had me on her desk teaching me the power of a vibrator before she fucked me with her strap-on." 
 
- I asked, still in complete disbelief, "You lost your virginity to a girl?" 
+a-family-affair07.jpg] 
 
- "Honey, I was just like you," she answered. "I was nerdy, cute and shy. But once this world of secret lesbianism was revealed it was like the handcuffs of society's expectations and pressure dissipated. Before I knew it I was more than just the nerdy girl who answered all the questions in class, and I was no longer just the teacher's pet, although in all fairness I physically did become the teacher's pet for Mrs. Blankton one day." 
+Chloe added, out of the blue, "While Amanda is the teacher's pet, I have my own teacher's pet." 
 
- "You had sex with a teacher?" I asked, even though the answer was obvious. 
+"What?" I asked, hearing her words but trying to see where she was going with her declaration. 
 
- "Yes, she was an English teacher who was both firm in the classroom and when she had me under her desk licking her while talking to a colleague, or when she had me on her desk teaching me the power of a vibrator before she fucked me with her strap-on." 
+"Mrs. Walker is a very eager cunt muncher," Chloe revealed. 
 
- 
+I gasped. Mrs. Walker was my favourite teacher. Besides being my Advanced English teacher, she was my debate team coach, my role model and my teacher reference for all my scholarships. She was also married and had two young children. I said, not believing Chloe, "Bullshit." 
 
- a-family-affair07.jpg] 
+"Can I show Amanda the pictures, Mistress Mommy?" Chloe asked. 
 
- Chloe added, out of the blue, "While Amanda is the teacher's pet, I have my own teacher's pet." 
+"Yes, my pet," Mom nodded. 
 
- "What?" I asked, hearing her words but trying to see where she was going with her declaration. 
+Chloe stood up, looked at me smug as hell, and walked towards the kitchen. 
 
- "Mrs. Walker is a very eager cunt muncher," Chloe revealed. 
+Mom continued, "A couple days later, one of the cheerleaders, I can't even remember her name anymore, took my anal virginity." 
 
- I gasped. Mrs. Walker was my favourite teacher. Besides being my Advanced English teacher, she was my debate team coach, my role model and my teacher reference for all my scholarships. She was also married and had two young children. I said, not believing Chloe, "Bullshit." 
+"You took something up your bum?" I asked, wave after wave of shocking revelations hitting me like the never ending waves on an ocean shore. 
 
- "Can I show Amanda the pictures, Mistress Mommy?" Chloe asked. 
+"God, yes," Mom moaned to herself. "There is nothing like giving your entire body to the forbidden taboos that society pretends are sinful." 
 
- "Yes, my pet," Mom nodded. 
+a-family-affair08.jpg] 
 
- Chloe stood up, looked at me smug as hell, and walked towards the kitchen. 
+"Sodomy is a sin," I pointed out. 
 
- Mom continued, "A couple days later, one of the cheerleaders, I can't even remember her name anymore, took my anal virginity." 
+Chloe returned mocking me, "Sodomy is a sin. Christs sake, Amanda, the Lord gave you three holes for a reason." 
 
- "You took something up your bum?" I asked, wave after wave of shocking revelations hitting me like the never ending waves on an ocean shore. 
+Mom nodded, as if Chloe was saying something profound and undeniable, "Yes, Amanda, sex is a natural part of existence and giving and receiving pleasure is one of the most natural things in the world." 
 
- "God, yes," Mom moaned to herself. "There is nothing like giving your entire body to the forbidden taboos that society pretends are sinful." 
+"Between a man and a woman," I countered. 
 
- 
+"Sex is sex, regardless of gender. Homosexuality between men has been going on for centuries," Mom continued. 
 
- a-family-affair08.jpg] 
+Chloe added, "Your hero Shakespeare was a flaming faggot." 
 
- "Sodomy is a sin," I pointed out. 
+"You can't even read Shakespeare," I shot back. A weak retaliation, but one nevertheless. 
 
- Chloe returned mocking me, "Sodomy is a sin. Christs sake, Amanda, the Lord gave you three holes for a reason." 
+a-family-affair09.jpg] 
 
- Mom nodded, as if Chloe was saying something profound and undeniable, "Yes, Amanda, sex is a natural part of existence and giving and receiving pleasure is one of the most natural things in the world." 
+"Maybe, but I know his love sonnets are about men," she retorted, as she brought her phone towards me. 
 
- "Between a man and a woman," I countered. 
+I had read that the sonnets may be about men, but had always decided, being the romantic I was, that it was inconclusive at best and I would continue to read them as odes of love to another woman. 
 
- "Sex is sex, regardless of gender. Homosexuality between men has been going on for centuries," Mom continued. 
+"Enough," Mom said, her legs still wide open and her pussy seemingly staring at me. 
 
- Chloe added, "Your hero Shakespeare was a flaming faggot." 
+"Here's the proof that Mrs. Walker is my personal pussy pleaser," Chloe said, clearly revelling in whatever was on her phone. 
 
- "You can't even read Shakespeare," I shot back. A weak retaliation, but one nevertheless. 
+I stared at the photo of what was definitely a naked Mrs. Walker making out with an equally naked Chloe. I was speechless...again. 
 
- 
+Chloe explained, "That was at her house, while her husband took the kids swimming." 
 
- a-family-affair09.jpg] 
+Mom added, "You see Amanda, very little in life is as black and white as academia makes it. Heroes in literature are never as good in real life; science creates war; history only tells of the winners. But, of course, there are two sides to every story and every person has a plethora of intriguing secrets and desires that are bubbling just below the surface." 
 
- "Maybe, but I know his love sonnets are about men," she retorted, as she brought her phone towards me. 
+"And once I scratched Mrs. Walker's surface, I awoke a sleeping sexual libido that I don't think will ever even want to take a nap," Chloe continued, clearly enjoying tarnishing the image of my favourite teacher, my role model. 
 
- I had read that the sonnets may be about men, but had always decided, being the romantic I was, that it was inconclusive at best and I would continue to read them as odes of love to another woman. 
+a-family-affair10.jpg] 
 
- "Enough," Mom said, her legs still wide open and her pussy seemingly staring at me. 
+"I can't believe you went after Mrs. Walker," I said, angry at her. 
 
- "Here's the proof that Mrs. Walker is my personal pussy pleaser," Chloe said, clearly revelling in whatever was on her phone. 
+Mom added, "Honey, Chloe did Jasmine a favour. She undid the chains of societal expectations that had held her back from finding true pleasure." 
 
- I stared at the photo of what was definitely a naked Mrs. Walker making out with an equally naked Chloe. I was speechless...again. 
+"That's ridiculous," I said, still coming to grips with not only all the revelations, but the undeniable burning in my vagina. 
 
- Chloe explained, "That was at her house, while her husband took the kids swimming." 
+"Here is Mrs. Walker putting on a show in her classroom for Bree and me," Chloe added, showing me a second picture. 
 
- Mom added, "You see Amanda, very little in life is as black and white as academia makes it. Heroes in literature are never as good in real life; science creates war; history only tells of the winners. But, of course, there are two sides to every story and every person has a plethora of intriguing secrets and desires that are bubbling just below the surface." 
+I stared at the second photo and wondered how Mrs. Walker got tricked into doing this. "You blackmailed her," I accused. 
 
- "And once I scratched Mrs. Walker's surface, I awoke a sleeping sexual libido that I don't think will ever even want to take a nap," Chloe continued, clearly enjoying tarnishing the image of my favourite teacher, my role model. 
+Chloe shock her head, "No, I didn't have to, I offered her a bite of the apple and she ate it whole." 
 
- 
+"You're a bitch," I said, standing up. 
 
- a-family-affair10.jpg] 
+Mom intervened, "Both of you, sit down." 
 
- "I can't believe you went after Mrs. Walker," I said, angry at her. 
+We both obeyed, even as we glared at each other. Pissing me off even more was the smug look on her face. 
 
- Mom added, "Honey, Chloe did Jasmine a favour. She undid the chains of societal expectations that had held her back from finding true pleasure." 
+"Mrs. Walker is like almost every woman, Amanda. Given the chance to unleash their hidden sexual desires they will. For me, once the opportunity was given to me, even though I had no idea what I was missing, the flood gates opened wide and I have never looked back since." 
 
- "That's ridiculous," I said, still coming to grips with not only all the revelations, but the undeniable burning in my vagina. 
+a-family-affair11.jpg] 
 
- "Here is Mrs. Walker putting on a show in her classroom for Bree and me," Chloe added, showing me a second picture. 
+"What about Dad?" I asked. 
 
- I stared at the second photo and wondered how Mrs. Walker got tricked into doing this. "You blackmailed her," I accused. 
+"He knows that I have lesbian encounters and has known that since we started dating and he caught me in a rather compromising situation," Mom answered, before adding, "although he doesn't know about Chloe and I." 
 
- Chloe shock her head, "No, I didn't have to, I offered her a bite of the apple and she ate it whole." 
+"Was that the first lesbian threesome you had, Mommy?" Chloe asked. 
 
- "You're a bitch," I said, standing up. 
+Mom laughed, as if reminiscing about some great time, "Yes, I was being fucked with a hot sauce bottle by Beverly, another cheerleader, they really did like passing me around, when her older sister caught us. Eventually, she joined us and I ate one sister while the other one fucked me with a bottle and then eventually fisted me." 
 
- Mom intervened, "Both of you, sit down." 
+"Fisted?" I asked, another term, like 'turned', I had never heard of before. 
 
- We both obeyed, even as we glared at each other. Pissing me off even more was the smug look on her face. 
+"You really are clueless," Chloe said, shaking her head, "That is when a fist goes inside your cunt." 
 
- "Mrs. Walker is like almost every woman, Amanda. Given the chance to unleash their hidden sexual desires they will. For me, once the opportunity was given to me, even though I had no idea what I was missing, the flood gates opened wide and I have never looked back since." 
+"The whole fist?" I questioned, unable to fathom how that was possible. 
 
- 
+"Yep," Chloe nodded. 
 
- a-family-affair11.jpg] 
+Mom ordered, "Chloe, check if your sister is wet." 
 
- "What about Dad?" I asked. 
+"Yes, Mistress Mommy," Chloe nodded. 
 
- "He knows that I have lesbian encounters and has known that since we started dating and he caught me in a rather compromising situation," Mom answered, before adding, "although he doesn't know about Chloe and I." 
+I could have stopped her, yet I was so shocked again by Mom's words I just allowed my sister to molest me. To make matters worse, I moaned loudly the moment Chloe's fingers touched my wet panties. 
 
- "Was that the first lesbian threesome you had, Mommy?" Chloe asked. 
+"She's fucking soaked," Chloe declared. 
 
- Mom laughed, as if reminiscing about some great time, "Yes, I was being fucked with a hot sauce bottle by Beverly, another cheerleader, they really did like passing me around, when her older sister caught us. Eventually, she joined us and I ate one sister while the other one fucked me with a bottle and then eventually fisted me." 
+"Why are you so wet, Amanda?" Mom asked again. 
 
- "Fisted?" I asked, another term, like 'turned', I had never heard of before. 
+I gave the same answer. "I don't know." 
 
- "You really are clueless," Chloe said, shaking her head, "That is when a fist goes inside your cunt." 
+"I think you do, honey," Mom said softly, before continuing, "Your mind is still in protest, but your body is already giving in to the pleasure being offered to you. Even though you don't know it yet, your mind and body are negotiating and your soaked panties proves your body is winning." 
 
- "The whole fist?" I questioned, unable to fathom how that was possible. 
+"Try it once, sweetheart," Mom said. "Would I ever lie to you or make you do something that wasn't good for you?" 
 
- "Yep," Chloe nodded. 
+The answer before tonight would have been a clear no, yet now I was bewildered and indecisive. 
 
- Mom ordered, "Chloe, check if your sister is wet." 
+"Would I?" she repeated, when I didn't answer. 
 
- "Yes, Mistress Mommy," Chloe nodded. 
+"I guess not," I finally said, tentatively. 
 
- I could have stopped her, yet I was so shocked again by Mom's words I just allowed my sister to molest me. To make matters worse, I moaned loudly the moment Chloe's fingers touched my wet panties. 
+"Crawl to Mommy, my dear," Mom ordered, patting her vagina. 
 
- "She's fucking soaked," Chloe declared. 
+I don't know why. Maybe because I was so horny; maybe because I was curious; maybe it was wanting to not look like a prude in front of my sister; maybe it was the natural desire to trust and obey my mother; whatever the case, I felt myself drop to my knees and crawl to Mom's spread legs. 
 
- "Why are you so wet, Amanda?" Mom asked again. 
+"Good girl," Mom purred, as I made my way to her. 
 
- I gave the same answer. "I don't know." 
+Once there, I hesitated. I stared at her wet, glistening pussy lips. 
 
- "I think you do, honey," Mom said softly, before continuing, "Your mind is still in protest, but your body is already giving in to the pleasure being offered to you. Even though you don't know it yet, your mind and body are negotiating and your soaked panties proves your body is winning." 
+Mom softly encouraged, "Go ahead, Amanda. There is nothing more natural than returning to where you started eighteen years ago." 
 
- "Try it once, sweetheart," Mom said. "Would I ever lie to you or make you do something that wasn't good for you?" 
+Although the rationale was ridiculous in retrospect, at the moment, the theory seemed completely logical. I wordlessly leaned forward, extended my tongue and tasted my mother. 
 
- The answer before tonight would have been a clear no, yet now I was bewildered and indecisive. 
+a-family-affair12.jpg] 
 
- "Would I?" she repeated, when I didn't answer. 
+"That's it, my pet," Mommy moaned as I began tentatively licking. 
 
- "I guess not," I finally said, tentatively. 
-
- "Crawl to Mommy, my dear," Mom ordered, patting her vagina. 
-
- I don't know why. Maybe because I was so horny; maybe because I was curious; maybe it was wanting to not look like a prude in front of my sister; maybe it was the natural desire to trust and obey my mother; whatever the case, I felt myself drop to my knees and crawl to Mom's spread legs. 
-
- "Good girl," Mom purred, as I made my way to her. 
-
- Once there, I hesitated. I stared at her wet, glistening pussy lips. 
-
- Mom softly encouraged, "Go ahead, Amanda. There is nothing more natural than returning to where you started eighteen years ago." 
-
- Although the rationale was ridiculous in retrospect, at the moment, the theory seemed completely logical. I wordlessly leaned forward, extended my tongue and tasted my mother. 
-
- 
-
- a-family-affair12.jpg] 
-
- "That's it, my pet," Mommy moaned as I began tentatively licking. 
-
- Being called a 'pet' created mixed emotions. I have always been a people pleaser and loyal, traits of a good pet; yet the name clearly established a power hierarchy and I was at the bottom. I immediately recalled Mom saying she was at the bottom of her community lesbian hierarchy and wondered if that was what she expected here too. Conversely, those thoughts quickly faded from significance as the unique flavour of Mom's pussy reached my taste buds. All the lingering doubts bouncing around in my head were silenced as my brain shut off and my body took full control. The intoxicating scent, the succulent taste and the strange natural sensation all overwhelmed me as I licked Mom's vagina.  
-
- 
-
- 
+Being called a 'pet' created mixed emotions. I have always been a people pleaser and loyal, traits of a good pet; yet the name clearly established a power hierarchy and I was at the bottom. I immediately recalled Mom saying she was at the bottom of her community lesbian hierarchy and wondered if that was what she expected here too. Conversely, those thoughts quickly faded from significance as the unique flavour of Mom's pussy reached my taste buds. All the lingering doubts bouncing around in my head were silenced as my brain shut off and my body took full control. The intoxicating scent, the succulent taste and the strange natural sensation all overwhelmed me as I licked Mom's vagina.  
 
 ===
 
 Mom moaned, after a couple of minutes of my exploring, "That's it, baby, do you like tasting Mommy's cunt?" 
 
- "Yes," I whispered, as I didn't stop licking, wanting more of her wetness. 
+"Yes," I whispered, as I didn't stop licking, wanting more of her wetness. 
 
- "Yes, what?" she asked. 
+"Yes, what?" she asked. 
 
- I was confused at the question and looked up. 
+I was confused at the question and looked up. 
 
- "What am I now to be called, pet Amanda?" she asked. 
+"What am I now to be called, pet Amanda?" she asked. 
 
- So consumed with lust and the desire to please, I answered as Chloe already had, "Yes, Mistress Mommy." I couldn't believe how easily the words flowed off my tongue. 
+So consumed with lust and the desire to please, I answered as Chloe already had, "Yes, Mistress Mommy." I couldn't believe how easily the words flowed off my tongue. 
 
- "And what does my pet girl want?" Mommy asked, as her finger parted her vagina lips right in front of my eyes. 
+"And what does my pet girl want?" Mommy asked, as her finger parted her vagina lips right in front of my eyes. 
 
- "To lick you," I admitted, wanting to resume licking. 
+"To lick you," I admitted, wanting to resume licking. 
 
- "To lick my what?" Mom asked. 
+"To lick my what?" Mom asked. 
 
- I thought the questions strange, the answer was obvious wasn't it? I mean I sure as heck didn't plan on licking her elbow. Yet, I played along. "Your vagina." 
+I thought the questions strange, the answer was obvious wasn't it? I mean I sure as heck didn't plan on licking her elbow. Yet, I played along. "Your vagina." 
 
- Chloe scoffed behind me. "You're eighteen Amanda, use adult words." 
+Chloe scoffed behind me. "You're eighteen Amanda, use adult words." 
 
- Mom more patiently explained, "Your sister is right, my pet. Mommy, like all women, have a pussy or a cunt." 
+Mom more patiently explained, "Your sister is right, my pet. Mommy, like all women, have a pussy or a cunt." 
 
- I hated both those words, I felt they were derogatory and objectified women. 
+I hated both those words, I felt they were derogatory and objectified women. 
 
- Mom sensing my trepidation, continued talking softly, "My pet, they are just words and used in the right context are sensual and meaningful." 
+Mom sensing my trepidation, continued talking softly, "My pet, they are just words and used in the right context are sensual and meaningful." 
 
- Mom's finger playing with her vagina distracted me greatly. I wanted to taste her again. Reluctantly, I said the words that had never left my lips, "Mistress Mommy, I want to lick your pussy." 
+Mom's finger playing with her vagina distracted me greatly. I wanted to taste her again. Reluctantly, I said the words that had never left my lips, "Mistress Mommy, I want to lick your pussy." 
 
- "Good girl," she purred, as she grabbed my head and led me back to her sweet delicacy. 
+"Good girl," she purred, as she grabbed my head and led me back to her sweet delicacy. 
 
- When I resumed licking, I shifted from slow exploration to eagerness. I probed her pussy lips, trying to shove my tongue inside her tight hole. 
+When I resumed licking, I shifted from slow exploration to eagerness. I probed her pussy lips, trying to shove my tongue inside her tight hole. 
 
- "That's it, my pet, tongue fuck Mommy's cunt," Mom moaned, which sent a chill up my spine. I wanted to be the best pussy pleaser, I wanted to be better than Chloe. I wanted to be Mom's best pet. 
+"That's it, my pet, tongue fuck Mommy's cunt," Mom moaned, which sent a chill up my spine. I wanted to be the best pussy pleaser, I wanted to be better than Chloe. I wanted to be Mom's best pet. 
 
- "Oh yes, God, that's it," Mom moaned loudly. After a few more moments, Mom demanded, "My clit, my pet, suck on Mommy's clit." 
+"Oh yes, God, that's it," Mom moaned loudly. After a few more moments, Mom demanded, "My clit, my pet, suck on Mommy's clit." 
 
- I moved my head up slightly and took her hard clit in my mouth. 
+I moved my head up slightly and took her hard clit in my mouth. 
 
- "Yesssssss," Mom screamed instantly as she grabbed my head and seconds later my face was coated with wetness. If the subtle taste of her pussy was appetizing before she came, the full flood of her nectar was like heaven to the taste buds. I hungrily lapped up Mommy's juices, never wanting this to end. 
+"Yesssssss," Mom screamed instantly as she grabbed my head and seconds later my face was coated with wetness. If the subtle taste of her pussy was appetizing before she came, the full flood of her nectar was like heaven to the taste buds. I hungrily lapped up Mommy's juices, never wanting this to end. 
 
- Unfortunately, like all good things in life, it did. 
+Unfortunately, like all good things in life, it did. 
 
- Mom looked down at me and said, "Welcome to the club, honey." 
+Mom looked down at me and said, "Welcome to the club, honey." 
 
- "Thanks," I said, unsure what the words really meant. 
+"Thanks," I said, unsure what the words really meant. 
 
- "Is it my turn, Mommy Mistress?" Chloe asked. 
+"Is it my turn, Mommy Mistress?" Chloe asked. 
 
- Mom nodded as she said to me, "You are low pet on the totem pole, my dear." 
+Mom nodded as she said to me, "You are low pet on the totem pole, my dear." 
 
- "What does that mean?" I asked. 
+"What does that mean?" I asked. 
 
- "Chloe is your Mistress," Mom revealed. 
+"Chloe is your Mistress," Mom revealed. 
 
- "Get over here, sister slut," Chloe ordered, a polar opposite to the tenderness of Mom. 
+"Get over here, sister slut," Chloe ordered, a polar opposite to the tenderness of Mom. 
 
- "Obey, Amanda," Mom nodded. 
+"Obey, Amanda," Mom nodded. 
 
- I gave her a pleading look, before I crawled over to my sister, who was completely naked now. 
+I gave her a pleading look, before I crawled over to my sister, who was completely naked now. 
 
- "I've looked forward to this forever," Chloe said, as I reached her legs. 
+"I've looked forward to this forever," Chloe said, as I reached her legs. 
 
- Her pussy looked equally inviting as Mommy's did and I, without being told, leaned forward and began tasting my sister's pussy. 
+Her pussy looked equally inviting as Mommy's did and I, without being told, leaned forward and began tasting my sister's pussy. 
 
- "That's it, my sister slut," Chloe moaned, "eat my cunt." 
+"That's it, my sister slut," Chloe moaned, "eat my cunt." 
 
- Her terms were so much nastier than Mom's and yet, inexplicably, it turned me on. My panties were completely soaked and I desperately wanted to touch myself. 
+Her terms were so much nastier than Mom's and yet, inexplicably, it turned me on. My panties were completely soaked and I desperately wanted to touch myself. 
 
- I lapped hungrily, Chloe's taste equally exotic, yet slightly different than Mom's. "You're such a natural cunt muncher," Chloe moaned. 
+I lapped hungrily, Chloe's taste equally exotic, yet slightly different than Mom's. "You're such a natural cunt muncher," Chloe moaned. 
 
- I hated that I was being submissive to Chloe, yet I also loved the feeling of pleasing. 
+I hated that I was being submissive to Chloe, yet I also loved the feeling of pleasing. 
 
- "It's so nice to see my two girls finally getting along," Mom said from behind us. 
+"It's so nice to see my two girls finally getting along," Mom said from behind us. 
 
- Chloe added, "We will be getting along a lot more now, won't we, my sister slut?" 
+Chloe added, "We will be getting along a lot more now, won't we, my sister slut?" 
 
- "I don't know," I replied, her tone making me nervous. 
+"I don't know," I replied, her tone making me nervous. 
 
- She pushed my head away and said, "If you want to ever lick my cunt again, big sister, you will obey like a good submissive." 
+She pushed my head away and said, "If you want to ever lick my cunt again, big sister, you will obey like a good submissive." 
 
- I froze. I wanted to resume tasting her, yet I didn't like the idea of being under her control. 
+I froze. I wanted to resume tasting her, yet I didn't like the idea of being under her control. 
 
- Mom added, "Amanda, you are a natural people pleaser. You were born to make people happy." 
+Mom added, "Amanda, you are a natural people pleaser. You were born to make people happy." 
 
- I turned to Mom and asked, "What does being low slut on the totem pole entail?" 
+I turned to Mom and asked, "What does being low slut on the totem pole entail?" 
 
- "Complete obedience to all above you," Mom replied. 
+"Complete obedience to all above you," Mom replied. 
 
- "Always?" I asked, even though the answer seemed obvious. 
+"Always?" I asked, even though the answer seemed obvious. 
 
- "Without hesitation," Mom nodded. "Only through complete obedience will come complete satisfaction." 
+"Without hesitation," Mom nodded. "Only through complete obedience will come complete satisfaction." 
 
- The words seemed silly, yet the pleasure I was feeling by giving pleasure was undeniable. 
+The words seemed silly, yet the pleasure I was feeling by giving pleasure was undeniable. 
 
- "Beg to eat my cunt, Amanda," Chloe ordered. 
+"Beg to eat my cunt, Amanda," Chloe ordered. 
 
- I turned back to my sister, looked up at her and begged, getting drawn completely into the submissive I seemed to be, "Please, let your sister lick your pussy." 
+I turned back to my sister, looked up at her and begged, getting drawn completely into the submissive I seemed to be, "Please, let your sister lick your pussy." 
 
- "You mean my cunt?" Chloe corrected. 
+"You mean my cunt?" Chloe corrected. 
 
- I sighed softly, but agreed, somehow needing to please her, to impress her, "Yes, Chloe, can I please resume licking your delicious cunt." 
+I sighed softly, but agreed, somehow needing to please her, to impress her, "Yes, Chloe, can I please resume licking your delicious cunt." 
 
- "Mistress Chloe," she corrected again. 
+"Mistress Chloe," she corrected again. 
 
- I understood she was clarifying the hierarchy, making it clear who was in charge, yet my desire to please overrode the consequences of being her submissive and I nodded, "Yes, Mistress Chloe." 
+I understood she was clarifying the hierarchy, making it clear who was in charge, yet my desire to please overrode the consequences of being her submissive and I nodded, "Yes, Mistress Chloe." 
 
- She pulled me in and I returned to licking. She moaned, "That's it, my sister slut, you will be doing this every day." 
+She pulled me in and I returned to licking. She moaned, "That's it, my sister slut, you will be doing this every day." 
 
- The words should have mortified me, yet instead they excited me. As Mom had said, once the floodgates were opened the rush was impossible to stop. I was addicted, like I was to Starbucks, and I couldn't imagine not doing this again. 
+The words should have mortified me, yet instead they excited me. As Mom had said, once the floodgates were opened the rush was impossible to stop. I was addicted, like I was to Starbucks, and I couldn't imagine not doing this again. 
 
- After a couple of minutes, Mom ordered, "Look at me, my pet." 
+After a couple of minutes, Mom ordered, "Look at me, my pet." 
 
- I stopped licking and turned around. 
+I stopped licking and turned around. 
 
- Mom smiled, "This is for the scrapbook." 
+Mom smiled, "This is for the scrapbook." 
 
- I was surprised that Mom was taking pictures but didn't protest as I somehow trusted Mom, regardless of the crazy evening it had been. 
+I was surprised that Mom was taking pictures but didn't protest as I somehow trusted Mom, regardless of the crazy evening it had been. 
 
- 
+a-family-affair13.jpg] 
 
- a-family-affair13.jpg] 
+"Get back to pleasing me, my sister slut," Chloe ordered, grabbing my head. 
 
- "Get back to pleasing me, my sister slut," Chloe ordered, grabbing my head. 
+I hungrily lapped my sister, wanting to get her off. 
 
- I hungrily lapped my sister, wanting to get her off. 
+"Oh yes, my sister slut, you love my cunt don't you?" she asked. 
 
- "Oh yes, my sister slut, you love my cunt don't you?" she asked. 
+"God, yes," I moaned, indeed loving the taste of her cunt. 
 
- "God, yes," I moaned, indeed loving the taste of her cunt. 
+"And you will lick me whenever and wherever I demand?" she questioned. 
 
- "And you will lick me whenever and wherever I demand?" she questioned. 
+Although I feared the where part, I nodded, "Yes, Mistress, I'm your submissive." 
 
- Although I feared the where part, I nodded, "Yes, Mistress, I'm your submissive." 
+"God, yessss,' Chloe moaned, grabbing my head and grinding her cunt on my face. 
 
- "God, yessss,' Chloe moaned, grabbing my head and grinding her cunt on my face. 
+In seconds my face was coated for a second time. 
 
- In seconds my face was coated for a second time. 
+As she recovered, Chloe played on her phone. While she made me massage her feet, she queried, "Hey, Mom, did you know that today is Nude Day?" 
 
- As she recovered, Chloe played on her phone. While she made me massage her feet, she queried, "Hey, Mom, did you know that today is Nude Day?" 
+Mom shook her head, "No, but I think we will make sure to always celebrate Nude Day like this." 
 
- Mom shook her head, "No, but I think we will make sure to always celebrate Nude Day like this." 
+I asked, "What are we going to do next year, add Grandma?" 
 
- I asked, "What are we going to do next year, add Grandma?" 
+"Mmmmmmmm," Mom smiled, "I think we have created a deviant little pet." 
 
- "Mmmmmmmm," Mom smiled, "I think we have created a deviant little pet." 
+Chloe seemed ready to go again when she heard her father come in the house. "Damn it," she sighed. "We will have to finish this later." 
 
- Chloe seemed ready to go again when she heard her father come in the house. "Damn it," she sighed. "We will have to finish this later." 
+"Yes, Mistress," Amanda nodded, disappointed herself to not get one more full flood of the nectar she had already become addicted to. 
 
- "Yes, Mistress," Amanda nodded, disappointed herself to not get one more full flood of the nectar she had already become addicted to. 
+3._CHLOE_FANTASIZES_OF_MAKING_MOM_HER_MOMMY-SLUT 
 
- 3._CHLOE_FANTASIZES_OF_MAKING_MOM_HER_MOMMY-SLUT 
+That night, as Amanda finished what she had started a few hours earlier, Chloe told her sister her biggest fantasy, turning the tables on their mother. Although she loved her mother, she wanted to be top Mistress. She had been having the same fantasy for months and was beginning to seriously consider trying a hostile takeover. She closed her eyes, allowing the same fantasy to play in her head. 
 
- That night, as Amanda finished what she had started a few hours earlier, Chloe told her sister her biggest fantasy, turning the tables on their mother. Although she loved her mother, she wanted to be top Mistress. She had been having the same fantasy for months and was beginning to seriously consider trying a hostile takeover. She closed her eyes, allowing the same fantasy to play in her head. 
+"Mom, it's time," I say firmly as I walk into her room. 
 
- "Mom, it's time," I say firmly as I walk into her room. 
+"Excuse me?" Mom asks, naked and just about to take a shower. 
 
- "Excuse me?" Mom asks, naked and just about to take a shower. 
+"It's time for new leadership," I continue walking right toward her. 
 
- "It's time for new leadership," I continue walking right toward her. 
+"Really?" she asks, smiling at me. 
 
- "Really?" she asks, smiling at me. 
+"Knees, slut," I firmly order. 
 
- "Knees, slut," I firmly order. 
+"Or what?" she asked, still not showing any concern. 
 
- "Or what?" she asked, still not showing any concern. 
+"Or I force you onto your knees," I threaten. Having dominated MILF's and fellow students for a year, I had learned there are different strategies for different women. Just like Mom dommed me through aggressiveness and nasty talk, while she seduced Amanda through tenderness and psychological warfare. 
 
- "Or I force you onto your knees," I threaten. Having dominated MILF's and fellow students for a year, I had learned there are different strategies for different women. Just like Mom dommed me through aggressiveness and nasty talk, while she seduced Amanda through tenderness and psychological warfare. 
+"Really?" she says, raising her eyebrow at me. 
 
- "Really?" she says, raising her eyebrow at me. 
+"Now, Mommy slut," I order, not backing down. 
 
- "Now, Mommy slut," I order, not backing down. 
+"Chloe May," Mom says, using her two name firm voice card. 
 
- "Chloe May," Mom says, using her two name firm voice card. 
+Going for broke, I push her against the wall, tug my panties down and shove my ass in her face. 
 
- Going for broke, I push her against the wall, tug my panties down and shove my ass in her face. 
+Mom makes a shocked sound as I muffle her voice with my ass and cunt. 
 
- Mom makes a shocked sound as I muffle her voice with my ass and cunt. 
+a-family-affair14.jpg] 
 
- 
+"That's it, Mommy-slut get used to your new position underneath me." 
 
- a-family-affair14.jpg] 
+Mom, although surprised, begins licking my cunt. 
 
- "That's it, Mommy-slut get used to your new position underneath me." 
+"I knew you needed to get back to your submissive past, Mommy-slut," I continue, knowing that behind Mom's firm strong exterior, she was still submissive like she had been when she was younger. 
 
- Mom, although surprised, begins licking my cunt. 
+Mom licks my cunt as I wiggle my ass in her face, reveling in the moment. 
 
- "I knew you needed to get back to your submissive past, Mommy-slut," I continue, knowing that behind Mom's firm strong exterior, she was still submissive like she had been when she was younger. 
+After a couple of minutes, I move my ass away and ask, "Do you accept your new position as my Mommy-slut?" 
 
- Mom licks my cunt as I wiggle my ass in her face, reveling in the moment. 
+She looks at me with a dazed and confused look, but also a look of lust. She's silent for a moment before answering, "Yes, Mistress." 
 
- After a couple of minutes, I move my ass away and ask, "Do you accept your new position as my Mommy-slut?" 
+I smile as I move my ass back to her face. 
 
- She looks at me with a dazed and confused look, but also a look of lust. She's silent for a moment before answering, "Yes, Mistress." 
+Mom licks me eagerly, moving her head up and down as she licks. I could have come rather quickly, but I want to really enjoy this moment. Instead, I order, "Get on all fours, my Mommy-slut." 
 
- I smile as I move my ass back to her face. 
+"Yes, Mistress," Mom replies, quickly getting into position. 
 
- Mom licks me eagerly, moving her head up and down as she licks. I could have come rather quickly, but I want to really enjoy this moment. Instead, I order, "Get on all fours, my Mommy-slut." 
+a-family-affair15.jpg] 
 
- "Yes, Mistress," Mom replies, quickly getting into position. 
+It's obvious she has been craving this submission for a long time. 
 
- 
+I go and get her strap-on that she often uses on me and walk behind her. 
 
- a-family-affair15.jpg] 
+Mom, clearly horny as hell, even spreads her ass cheeks apart for me. 
 
- It's obvious she has been craving this submission for a long time. 
+I move behind her and ask, "What does my dirty Mommy-slut want?" 
 
- I go and get her strap-on that she often uses on me and walk behind her. 
+"For her Mistress to pound her wet horny cunt," Mom replies, like the submissive slut she is. 
 
- Mom, clearly horny as hell, even spreads her ass cheeks apart for me. 
+"Why have you been hiding under the façade of a dominant?" I ask, putting my hands on her hips. 
 
- I move behind her and ask, "What does my dirty Mommy-slut want?" 
+"Because I needed to stay in control," she admits. 
 
- "For her Mistress to pound her wet horny cunt," Mom replies, like the submissive slut she is. 
+"Do you want to stay in control now, Mommy-slut?" I ask. 
 
- "Why have you been hiding under the façade of a dominant?" I ask, putting my hands on her hips. 
+"No, Mistress, please take control of your submissive Mommy-slut," Mom moans as my cock teases her pussy lips. 
 
- "Because I needed to stay in control," she admits. 
+"And you will be my full-time submissive?" I ask. 
 
- "Do you want to stay in control now, Mommy-slut?" I ask. 
+"Yes, Mistress Chloe," Mom moans, moving back onto my big cock. "Now please fuck your Mommy-slut." 
 
- "No, Mistress, please take control of your submissive Mommy-slut," Mom moans as my cock teases her pussy lips. 
+"I've wanted to do this for a long time Mother," I admit, as I slide the plastic cock deep in my Mother's cunt. 
 
- "And you will be my full-time submissive?" I ask. 
+"Ohhhhh God, I've wanted this for a long time tooooooooooo," Mom moans. 
 
- "Yes, Mistress Chloe," Mom moans, moving back onto my big cock. "Now please fuck your Mommy-slut." 
+"I think I'll have to punish you for hiding your true feelings for so damn long," I say. 
 
- "I've wanted to do this for a long time Mother," I admit, as I slide the plastic cock deep in my Mother's cunt. 
+a-family-affair16.jpg] 
 
- "Ohhhhh God, I've wanted this for a long time tooooooooooo," Mom moans. 
+"Yes, Mommy has been a very, very bad girl," she admits, talking like a little girl. 
 
- "I think I'll have to punish you for hiding your true feelings for so damn long," I say. 
+"And why have you let hair grow on your slut hole?" I ask. 
 
- 
+"Your father likes some hair," Mom answers, while moaning. 
 
- a-family-affair16.jpg] 
+"But who do you listen to now?" I ask, beginning to fuck her hard. "Daddy or your daughter?" 
 
- "Yes, Mommy has been a very, very bad girl," she admits, talking like a little girl. 
+"My Mistress daughter of course," she answers. 
 
- "And why have you let hair grow on your slut hole?" I ask. 
+"Good answer, Mommy-slut," I nod, slapping her ass. 
 
- "Your father likes some hair," Mom answers, while moaning. 
+"Oh God, Chloe, it feels so good," she moans. 
 
- "But who do you listen to now?" I ask, beginning to fuck her hard. "Daddy or your daughter?" 
+I slide the cock out and without warning fill her ass with the long thick fuck- toy. 
 
- "My Mistress daughter of course," she answers. 
+"Fuuuuuuuuuuuuuuuck," Mom screams as I widen her ass. 
 
- "Good answer, Mommy-slut," I nod, slapping her ass. 
+"You didn't say 'Mistress' when you said my name," I point out as the cock disappears in her ass. 
 
- "Oh God, Chloe, it feels so good," she moans. 
+"I'm sooooo sorry, Mistress," she cries, the pain clearly searing her asshole and thus her entire body. 
 
- I slide the cock out and without warning fill her ass with the long thick fuck- toy. 
+"I know," I say, caressing her ass to contradict the burn. 
 
- "Fuuuuuuuuuuuuuuuck," Mom screams as I widen her ass. 
+"Did grandma fuck your ass?" I ask. 
 
- "You didn't say 'Mistress' when you said my name," I point out as the cock disappears in her ass. 
+"Yes," she admits. 
 
- "I'm sooooo sorry, Mistress," she cries, the pain clearly searing her asshole and thus her entire body. 
+"Did you like it?" I query, the cock now completely buried in her ass. 
 
- "I know," I say, caressing her ass to contradict the burn. 
+"Eventually," she admits. "It's the act of utter submission that is the turn on." 
 
- "Did grandma fuck your ass?" I ask. 
+"So you like having your daughter's cock buried deep in your shit hole?" I question, loving using dirty language. 
 
- "Yes," she admits. 
+"Fuck, yes," Mom admits. 
 
- "Did you like it?" I query, the cock now completely buried in her ass. 
+"Beg for me to pound that ass of yours," I order, still lodged deep in it, but not moving. 
 
- "Eventually," she admits. "It's the act of utter submission that is the turn on." 
+"Oh, please Mistress, pound your bad Mommy's tight asshole," Mom begs, which turns me on even more. 
 
- "So you like having your daughter's cock buried deep in your shit hole?" I question, loving using dirty language. 
+I oblige the request, beginning to slowly fuck her ass. 
 
- "Fuck, yes," Mom admits. 
+a-family-affair17.jpg] 
 
- "Beg for me to pound that ass of yours," I order, still lodged deep in it, but not moving. 
+"Oh, yes, Mistress," Mom moans after a couple of minutes of slow fucking. 
 
- "Oh, please Mistress, pound your bad Mommy's tight asshole," Mom begs, which turns me on even more. 
+"Does Mommy-slut want to really get ass fucked hard?" I ask. 
 
- I oblige the request, beginning to slowly fuck her ass. 
+"Yes, Mistress, use Mommy as the big ass slut she is," she replies. 
 
- 
+I flip her onto her back, lift her legs up and slam the cock back into her ass. Tears of pain roll down her cheeks, even as she declares how much she fucking loves it. "Oh Goddddddd, pound your Mommy's ass," Mom screams. 
 
- a-family-affair17.jpg] 
+"Who owns this ass?" I ask, as I roughly fuck her ass. 
 
- "Oh, yes, Mistress," Mom moans after a couple of minutes of slow fucking. 
+"You do, Mistressssss," she declares, a mixture of pleasure and pain creating a unique sensation. 
 
- "Does Mommy-slut want to really get ass fucked hard?" I ask. 
+"And who runs this house?" I continue. 
 
- "Yes, Mistress, use Mommy as the big ass slut she is," she replies. 
+"You dooooooooo," Mom whimpers, her breathing increasing as I continue pounding her ass hard. 
 
- I flip her onto her back, lift her legs up and slam the cock back into her ass. Tears of pain roll down her cheeks, even as she declares how much she fucking loves it. "Oh Goddddddd, pound your Mommy's ass," Mom screams. 
+I love watching her beautiful face make expressions of ultimate pleasure and when I am confident she is close to reaching orgasm, I lean up to her, learning she's still damn flexible, and whisper, "Come now, Mommy-slut, come for your new Mistress." 
 
- "Who owns this ass?" I ask, as I roughly fuck her ass. 
+"Sooooo close," Mom responds, as I tug roughly on her ear. 
 
- "You do, Mistressssss," she declares, a mixture of pleasure and pain creating a unique sensation. 
+a-family-affair18.jpg] 
 
- "And who runs this house?" I continue. 
+"Now, Mommy-slut." I demand, "Now or else I go and get the whole football team over here to fill all three of your fuck holes." I reminisce to when Mom told me a few months ago about one of her many cheerleader Mistresses who brought her into the basketball locker room of her college boyfriend where she had to service all thirteen members of the team. It was Mom's first of many gangbangs, something she had stopped cold turkey once she got married and pregnant with yours truly. 
 
- "You dooooooooo," Mom whimpers, her breathing increasing as I continue pounding her ass hard. 
+"Oh God, baby, call me names, tell me things you're going to make your whore of a mother do," Mom begs, getting turned on by the name calling. 
 
- I love watching her beautiful face make expressions of ultimate pleasure and when I am confident she is close to reaching orgasm, I lean up to her, learning she's still damn flexible, and whisper, "Come now, Mommy-slut, come for your new Mistress." 
+"I'm going to have you be the center of our cheerleaders' year end party," I begin, continuing to fuck her ass. 
 
- "Sooooo close," Mom responds, as I tug roughly on her ear. 
+"Oh yessss,' Mom moans. 
 
- 
+"I'm going to handcuff you to the bed at a high school party and just leave the door open for anyone who wants a piece of this cunt and ass,' I continue, although I likely wouldn't really do that. 
 
- a-family-affair18.jpg] 
+"Oh Godddd," Mom whimpers, clearly near eruption. 
 
- "Now, Mommy-slut." I demand, "Now or else I go and get the whole football team over here to fill all three of your fuck holes." I reminisce to when Mom told me a few months ago about one of her many cheerleader Mistresses who brought her into the basketball locker room of her college boyfriend where she had to service all thirteen members of the team. It was Mom's first of many gangbangs, something she had stopped cold turkey once she got married and pregnant with yours truly. 
+a-family-affair19.jpg] 
 
- "Oh God, baby, call me names, tell me things you're going to make your whore of a mother do," Mom begs, getting turned on by the name calling. 
+"I'll make you offer your services to every woman on the street, creating our own lesbian community just like you lived in back when you were my age," I continue, actually liking the idea and having already turned three of the street's MILF's into my submissive pets. 
 
- "I'm going to have you be the center of our cheerleaders' year end party," I begin, continuing to fuck her ass. 
+"Yessssssss," she screamed, as her orgasm finally hit her like a ton of bricks. 
 
- "Oh yessss,' Mom moans. 
+As her orgasm hits, I slide out of her ass and slam into her trembling cunt, wanting to bring her to the complete brink of euphoria. 
 
- "I'm going to handcuff you to the bed at a high school party and just leave the door open for anyone who wants a piece of this cunt and ass,' I continue, although I likely wouldn't really do that. 
+"No morrrre," Mom whines, as I pound her cunt even as her orgasm trembles through her. 
 
- "Oh Godddd," Mom whimpers, clearly near eruption. 
+"Good sluts come over and over and over," I point out, watching her whole body writhe in intense pleasure. 
 
- 
+a-family-affair20.jpg] 
 
- a-family-affair19.jpg] 
+"It's tooooooo good," she moans. 
 
- "I'll make you offer your services to every woman on the street, creating our own lesbian community just like you lived in back when you were my age," I continue, actually liking the idea and having already turned three of the street's MILF's into my submissive pets. 
-
- "Yessssssss," she screamed, as her orgasm finally hit her like a ton of bricks. 
-
- As her orgasm hits, I slide out of her ass and slam into her trembling cunt, wanting to bring her to the complete brink of euphoria. 
-
- "No morrrre," Mom whines, as I pound her cunt even as her orgasm trembles through her. 
-
- "Good sluts come over and over and over," I point out, watching her whole body writhe in intense pleasure. 
-
- 
-
- a-family-affair20.jpg] 
-
- "It's tooooooo good," she moans. 
-
- I keep fucking her wanting to make her orgasm twice, to make her have the most intense pleasure she has ever experienced in her whole life.  
-
- 
-
- 
+I keep fucking her wanting to make her orgasm twice, to make her have the most intense pleasure she has ever experienced in her whole life.  
 
 ===
 
 I want to not only own her body, I want to own her pleasure. 
 
- "Oh fuck, Mistress, I'm going to explodddde," she moans, a few minutes later as a second orgasm quickly builds before the first as even faded. 
+"Oh fuck, Mistress, I'm going to explodddde," she moans, a few minutes later as a second orgasm quickly builds before the first as even faded. 
 
- "Yes, Mommy," I demand, "Come again. Come like the dirty, cunt-licking, pussy munching, ass taking, slave, you are." 
+"Yes, Mommy," I demand, "Come again. Come like the dirty, cunt-licking, pussy munching, ass taking, slave, you are." 
 
- "Shiiiiiiiiiit," she screams, as her second orgasm hits. 
+"Shiiiiiiiiiit," she screams, as her second orgasm hits. 
 
- "Yessssssssss," Chloe moaned, biting her lip as to not alert her father to the incestuous act occurring in her bedroom, as her submissive, eager sister got her off. 
+"Yessssssssss," Chloe moaned, biting her lip as to not alert her father to the incestuous act occurring in her bedroom, as her submissive, eager sister got her off. 
 
- 4._MOM_RECALLS_TURNING_HER_STRONG-WILLED_DAUGHTER_CHLOE 
+4._MOM_RECALLS_TURNING_HER_STRONG-WILLED_DAUGHTER_CHLOE 
 
- Meanwhile, as Debbie was getting fucked by her husband, an act she enjoyed, but seldom got off from, she reminisced about the first time she ever turned Chloe. 
+Meanwhile, as Debbie was getting fucked by her husband, an act she enjoyed, but seldom got off from, she reminisced about the first time she ever turned Chloe. 
 
- Although I had planned on training both my daughters to be submissive lesbian pets for myself, just like my mother had done to me, I had originally planned to do it slyly and have one of my already trained lovers do the dirty work. 
+Although I had planned on training both my daughters to be submissive lesbian pets for myself, just like my mother had done to me, I had originally planned to do it slyly and have one of my already trained lovers do the dirty work. 
 
- Yet, when I was training my newest pet, Chloe's best friend, Maggie, in the art of pleasing a woman, Maggie's cell phone rang. It was a Saturday, a couple days after Chloe had turned eighteen, and she was supposed to be on a shopping spree. 
+Yet, when I was training my newest pet, Chloe's best friend, Maggie, in the art of pleasing a woman, Maggie's cell phone rang. It was a Saturday, a couple days after Chloe had turned eighteen, and she was supposed to be on a shopping spree. 
 
- Maggie had just finished getting me off with her inexperienced but eager tongue. I handed her her phone and ordered, "Answer it, but put it on speakerphone." 
+Maggie had just finished getting me off with her inexperienced but eager tongue. I handed her her phone and ordered, "Answer it, but put it on speakerphone." 
 
- "Yes, Mistress," Maggie nodded, as she moaned softly. 
+"Yes, Mistress," Maggie nodded, as she moaned softly. 
 
- "Hiiiii, Chloe," Maggie greeted. 
+"Hiiiii, Chloe," Maggie greeted. 
 
- "Hi, bitch," my sophisticated daughter greeted. "I thought you were going to call me when you got back from basketball practice." 
+"Hi, bitch," my sophisticated daughter greeted. "I thought you were going to call me when you got back from basketball practice." 
 
- "I got all tied up," she answered, which almost made me laugh, since I had her tied to my bed for almost an hour as I tested her ability to resist reaching orgasm. 
+"I got all tied up," she answered, which almost made me laugh, since I had her tied to my bed for almost an hour as I tested her ability to resist reaching orgasm. 
 
- "I'm just about home. I'm going to drop off my first shopping spree purchases and then am going to go back out," Chloe revealed. 
+"I'm just about home. I'm going to drop off my first shopping spree purchases and then am going to go back out," Chloe revealed. 
 
- Maggie's face went white as a ghost, while I simultaneously saw opportunity. 
+Maggie's face went white as a ghost, while I simultaneously saw opportunity. 
 
- I snapped my fingers and implied she was to follow me as Maggie stammered, "O- o-oh, what did you buy?" 
+I snapped my fingers and implied she was to follow me as Maggie stammered, "O- o-oh, what did you buy?" 
 
- "Get your ass to my house and you can see," she said. "I can't believe you didn't call me, it's my eighteenth birthday shopping spree, bitch!" 
+"Get your ass to my house and you can see," she said. "I can't believe you didn't call me, it's my eighteenth birthday shopping spree, bitch!" 
 
- "I really couldn't break away," Maggie said, making me laugh softly, as we reached the kitchen. 
+"I really couldn't break away," Maggie said, making me laugh softly, as we reached the kitchen. 
 
- I pointed to the counter as Chloe said, "Hey, your car is in front of the house." 
+I pointed to the counter as Chloe said, "Hey, your car is in front of the house." 
 
- Maggie hopped onto the counter and admitted, "Yes, your Mom had me come over to surprise you." 
+Maggie hopped onto the counter and admitted, "Yes, your Mom had me come over to surprise you." 
 
- "Really?" Chloe asked, as I grabbed some honey. 
+"Really?" Chloe asked, as I grabbed some honey. 
 
- Our relationship had been strained, as often was the case when daughters become teenagers. 
+Our relationship had been strained, as often was the case when daughters become teenagers. 
 
- 
+a-family-affair21.jpg] 
 
- a-family-affair21.jpg] 
+I spread Maggie's legs, pulled aside her panties, which she had just put back on, and began spreading honey all over her pussy. 
 
- I spread Maggie's legs, pulled aside her panties, which she had just put back on, and began spreading honey all over her pussy. 
+"I'm hanging up," Chloe said and did indeed hang up. 
 
- "I'm hanging up," Chloe said and did indeed hang up. 
+Maggie watched in stunned shock as I coated her cunt with honey and explained, "I think you will be her belated eighteenth birthday present." 
 
- Maggie watched in stunned shock as I coated her cunt with honey and explained, "I think you will be her belated eighteenth birthday present." 
+"Really?" Maggie asked, clearly mortified by the concept, just as the front door opened. 
 
- "Really?" Maggie asked, clearly mortified by the concept, just as the front door opened. 
+I began rubbing her clit as Chloe called out, "Hello?" 
 
- I began rubbing her clit as Chloe called out, "Hello?" 
+"We're in the kitchen," I called out, with only a slight trepidation at the risk that went along with what she might be about to say. 
 
- "We're in the kitchen," I called out, with only a slight trepidation at the risk that went along with what she might be about to say. 
+Chloe came into the kitchen and dropped her bags. "Oh my God." 
 
- Chloe came into the kitchen and dropped her bags. "Oh my God." 
+"Hi, honey," I smiled, smirking to myself at the double use of honey. 
 
- "Hi, honey," I smiled, smirking to myself at the double use of honey. 
+"What's going on here?" Chloe asked. 
 
- "What's going on here?" Chloe asked. 
+"Do you want a taste of your present?" I replied, putting my finger to my mouth. 
 
- "Do you want a taste of your present?" I replied, putting my finger to my mouth. 
+She looked at me perplexed. 
 
- She looked at me perplexed. 
+Maggie, of course, was looking down, completely mortified to be caught by her best friend. 
 
- Maggie, of course, was looking down, completely mortified to be caught by her best friend. 
+"I don't understand." 
 
- "I don't understand." 
+"Maggie is your present," I said. 
 
- "Maggie is your present," I said. 
+"What?" she asked. 
 
- "What?" she asked. 
+"It's time you learned the family secret," I continued, before turning to Maggie, "You may leave." 
 
- "It's time you learned the family secret," I continued, before turning to Maggie, "You may leave." 
+"Yes, Mistress," Maggie nodded, still not making eye contact with Chloe. 
 
- "Yes, Mistress," Maggie nodded, still not making eye contact with Chloe. 
+"Mistress?" Chloe repeated, still in awe of what she was witnessing. 
 
- "Mistress?" Chloe repeated, still in awe of what she was witnessing. 
+Once Maggie left the kitchen, to get her clothes, I continued, "You see, Chloe, since you are eighteen now, you are old enough to know the truth." 
 
- Once Maggie left the kitchen, to get her clothes, I continued, "You see, Chloe, since you are eighteen now, you are old enough to know the truth." 
+"What truth?" Chloe asked, "That my mother is a lesbian?" 
 
- "What truth?" Chloe asked, "That my mother is a lesbian?" 
+"Don't you dare give me attitude, Chloe," I firmly said, walking to her. 
 
- "Don't you dare give me attitude, Chloe," I firmly said, walking to her. 
+"Mom, I just caught you with my best friend," she began. 
 
- "Mom, I just caught you with my best friend," she began. 
+"Chloe," I interrupted. "Things are going to change here now." 
 
- "Chloe," I interrupted. "Things are going to change here now." 
+"Agreed," she nodded. 
 
- "Agreed," she nodded. 
+"Knees, Chloe," I firmly ordered. 
 
- "Knees, Chloe," I firmly ordered. 
+"Pardon?" she questioned, a complete look of surprise in her eyes, as the front door closed. 
 
- "Pardon?" she questioned, a complete look of surprise in her eyes, as the front door closed. 
+"Now, get on your fucking knees Chloe May Parker," I demanded, as I put my hands on her shoulders and gently pushed her down. 
 
- "Now, get on your fucking knees Chloe May Parker," I demanded, as I put my hands on her shoulders and gently pushed her down. 
+She still looked shocked, and her eyes never broke eye contact with mine, as she fell to her knees. 
 
- She still looked shocked, and her eyes never broke eye contact with mine, as she fell to her knees. 
+I explained, calm again, "You see, Chloe, our family history of lesbian submission to our mothers goes back generations." 
 
- I explained, calm again, "You see, Chloe, our family history of lesbian submission to our mothers goes back generations." 
+"You had sex with grandma?" she asked. 
 
- "You had sex with grandma?" she asked. 
+"Still do," I answered, although she now lived in Europe and thus we seldom saw each other. 
 
- "Still do," I answered, although she now lived in Europe and thus we seldom saw each other. 
+"Oh my God," she said. 
 
- "Oh my God," she said. 
+"Go ahead, Chloe, I already know you have had a few lesbian trysts," I said, Maggie sharing with me many stories of my daughter's wild side. 
 
- "Go ahead, Chloe, I already know you have had a few lesbian trysts," I said, Maggie sharing with me many stories of my daughter's wild side. 
+"But you're my Mom," she said, as she looked at my pussy. 
 
- "But you're my Mom," she said, as she looked at my pussy. 
+"And you're my pet," I countered, as I grabbed the back of her head and pulled her to me. 
 
- "And you're my pet," I countered, as I grabbed the back of her head and pulled her to me. 
+For a second she didn't do anything, but eventually she began licking. 
 
- For a second she didn't do anything, but eventually she began licking. 
+"That's it, my little slut, suck Mommy's cunt," I moaned, as she began lapping hungrily. 
 
- "That's it, my little slut, suck Mommy's cunt," I moaned, as she began lapping hungrily. 
+This made her suck my clit and my legs actually buckled a little. Not wanting to come yet, I pulled her away and ordered, "Get undressed, my pet." 
 
- This made her suck my clit and my legs actually buckled a little. Not wanting to come yet, I pulled her away and ordered, "Get undressed, my pet." 
+"Yes, Mommy," she nodded, her usual defiant persona gone. 
 
- "Yes, Mommy," she nodded, her usual defiant persona gone. 
+She stood up and undressed. 
 
- She stood up and undressed. 
+I explained, "Starting today, I am your Mistress and you my pet. In a little while we will add Amanda to the secret and she will be your pet." 
 
- I explained, "Starting today, I am your Mistress and you my pet. In a little while we will add Amanda to the secret and she will be your pet." 
+"Really?" she asked, a wide devious smile crossing her face. 
 
- "Really?" she asked, a wide devious smile crossing her face. 
+"You have Mistress potential Chloe, but all Mistresses need to know what it is like to be a submissive. You se,e there is always a stronger woman out there somewhere," I explained. 
 
- "You have Mistress potential Chloe, but all Mistresses need to know what it is like to be a submissive. You se,e there is always a stronger woman out there somewhere," I explained. 
+"I guess," she shrugged. 
 
- "I guess," she shrugged. 
+"Now get on the table and masturbate for me," I ordered. 
 
- "Now get on the table and masturbate for me," I ordered. 
+"Why?" she asked, "Can't we just fuck?" 
 
- "Why?" she asked, "Can't we just fuck?" 
+"We need to set a clear hierarchy," I explained. "One being you do as I fucking say without question. Now, do as you're told." 
 
- "We need to set a clear hierarchy," I explained. "One being you do as I fucking say without question. Now, do as you're told." 
+"Fine," she agreed, although you could tell she was pissed. 
 
- "Fine," she agreed, although you could tell she was pissed. 
+"Fine, Mistress Mommy," I corrected. 
 
- "Fine, Mistress Mommy," I corrected. 
+a-family-affair22.jpg] 
 
- 
+She rolled her eyes and said, "Fine, Mistress Mommy." 
 
- a-family-affair22.jpg] 
+"That's one," I counted. 
 
- She rolled her eyes and said, "Fine, Mistress Mommy." 
+"I'm not five anymore," she said, still defiant. 
 
- "That's one," I counted. 
+"Two," I said. When the girls were young if I hit three there were consequences. 
 
- "I'm not five anymore," she said, still defiant. 
+Wordlessly, she got on the table. 
 
- "Two," I said. When the girls were young if I hit three there were consequences. 
+"Now rub yourself, but you're not allowed to come," I said, as I grabbed some bread and put it in the toaster. 
 
- Wordlessly, she got on the table. 
+"You're making toast?" she asked, as she began rubbing herself. 
 
- "Now rub yourself, but you're not allowed to come," I said, as I grabbed some bread and put it in the toaster. 
+"You interrupted the afternoon snack I was about to have," I answered, 
 
- "You're making toast?" she asked, as she began rubbing herself. 
+She didn't say anything as she continued rubbing herself. 
 
- "You interrupted the afternoon snack I was about to have," I answered, 
+I watched her as I put honey on my toast. 
 
- She didn't say anything as she continued rubbing herself. 
+I watched as I ate my toast. 
 
- I watched her as I put honey on my toast. 
+I watched while I finished the milk. 
 
- I watched as I ate my toast. 
+I went and grabbed my own robe, as well as hers, and returned. 
 
- I watched while I finished the milk. 
+I watched as her breathing got more accelerated. 
 
- I went and grabbed my own robe, as well as hers, and returned. 
+I asked, "Does my little slut need to come?" 
 
- I watched as her breathing got more accelerated. 
+"Yessssss," she moaned. 
 
- I asked, "Does my little slut need to come?" 
+"Stop," I ordered. 
 
- "Yessssss," she moaned. 
+"Please, no," she whined. 
 
- "Stop," I ordered. 
+"Now, go get dressed, your sister is going to be home at any minute," I ordered, knowing that pushing a pet's limits was the best way to train a pet. 
 
- "Please, no," she whined. 
+"You're serious?" she asked. 
 
- "Now, go get dressed, your sister is going to be home at any minute," I ordered, knowing that pushing a pet's limits was the best way to train a pet. 
+"Pets earn their orgasms through obedience," I said, rather matter-of-factly. Suddenly the front door opened and I said, as I handed her the robe, "No coming until I give you permission, is that clear my little slut?" 
 
- "You're serious?" she asked. 
+"Yes, Mistress Mommy," she whispered, frustrated that she was not allowed to finish what she had started, both in licking my cunt and in getting herself off. 
 
- "Pets earn their orgasms through obedience," I said, rather matter-of-factly. Suddenly the front door opened and I said, as I handed her the robe, "No coming until I give you permission, is that clear my little slut?" 
+"And this remains a secret for now," I added. 
 
- "Yes, Mistress Mommy," she whispered, frustrated that she was not allowed to finish what she had started, both in licking my cunt and in getting herself off. 
+She nodded as she put the robe on. 
 
- "And this remains a secret for now," I added. 
+"And by the way, Maggie really is your present," I added, just as Amanda walked into the kitchen. 
 
- She nodded as she put the robe on. 
+The next morning, once Amanda and my husband were gone, I was surprised when my daughter startled me, making me drop a bowl of cereal on the floor as she pulled my robe off me, dropped to her knees and buried her face in my cunt from behind. 
 
- "And by the way, Maggie really is your present," I added, just as Amanda walked into the kitchen. 
+"Oh my," I moaned, "my daughter is rather eager for some beaver." 
 
- The next morning, once Amanda and my husband were gone, I was surprised when my daughter startled me, making me drop a bowl of cereal on the floor as she pulled my robe off me, dropped to her knees and buried her face in my cunt from behind. 
+"I've been craving it all night," she admitted, while hungrily lapping my cunt. 
 
- "Oh my," I moaned, "my daughter is rather eager for some beaver." 
+"Well, this is a very good breakfast for you," I joked. 
 
- "I've been craving it all night," she admitted, while hungrily lapping my cunt. 
+"A pussy a day keeps the doctor away," she joked. 
 
- "Well, this is a very good breakfast for you," I joked. 
+a-family-affair23.jpg] 
 
- "A pussy a day keeps the doctor away," she joked. 
+"Then I think you are going to be very, very healthy," I moaned as my orgasm began to rise. 
 
- 
+As her husband filled her cunt with cum, she moaned, faking her own orgasm, frustrated to be distracted from her memory, "Yessssssss." 
 
- a-family-affair23.jpg] 
+That night in bed, she made a crazy connection. Her mother, whom she hadn't seen in over a year, before her two daughters had become her submissives, was arriving the day before Nude Day. 
 
- "Then I think you are going to be very, very healthy," I moaned as my orgasm began to rise. 
+A devious plan forming in her head, she decided she would give each pet a task to complete before having a very special Nude Day anniversary that included a big surprise...their grandmother. 
 
- As her husband filled her cunt with cum, she moaned, faking her own orgasm, frustrated to be distracted from her memory, "Yessssssss." 
+The next day, she told her daughters, after their father had left, "Girls, Nude Day is coming up again." 
 
- That night in bed, she made a crazy connection. Her mother, whom she hadn't seen in over a year, before her two daughters had become her submissives, was arriving the day before Nude Day. 
+Chloe smiled, "That was the day you became a full time cunt muncher." 
 
- A devious plan forming in her head, she decided she would give each pet a task to complete before having a very special Nude Day anniversary that included a big surprise...their grandmother. 
+"You were one first," Amanda quipped back. 
 
- The next day, she told her daughters, after their father had left, "Girls, Nude Day is coming up again." 
+"Focus, sluts," Deborah said, annoyed that they still fought like sisters even though they were nineteen now. 
 
- Chloe smiled, "That was the day you became a full time cunt muncher." 
+"Sorry, Mistress Mommy," they both said in unison while giving each other a look. 
 
- "You were one first," Amanda quipped back. 
+"So, each of you needs to seduce at least one girl or MILF before then and be ready to share your story with us," the mother challenged. 
 
- "Focus, sluts," Deborah said, annoyed that they still fought like sisters even though they were nineteen now. 
+"Only one?" Chloe asked, loving seducing straight MILF's. 
 
- "Sorry, Mistress Mommy," they both said in unison while giving each other a look. 
+"At least one," Deborah clarified. 
 
- "So, each of you needs to seduce at least one girl or MILF before then and be ready to share your story with us," the mother challenged. 
+While Chloe loved the challenge, Amanda hated it. She wasn't a seductress like her older sister or mother, and thus this challenge brought instant anxiety. 
 
- "Only one?" Chloe asked, loving seducing straight MILF's. 
+"It's settled," the Mom nodded. "We will spend Nude Day at home as a family." 
 
- "At least one," Deborah clarified. 
+"What about Dad?" Chloe asked. 
 
- While Chloe loved the challenge, Amanda hated it. She wasn't a seductress like her older sister or mother, and thus this challenge brought instant anxiety. 
+"He's gone all that week on a business trip," she answered. 
 
- "It's settled," the Mom nodded. "We will spend Nude Day at home as a family." 
+"Can we bring pets?" Chloe asked. 
 
- "What about Dad?" Chloe asked. 
+"No," Deborah answered, "this is a special family only day." 
 
- "He's gone all that week on a business trip," she answered. 
+"Yummy," Chloe nodded, her head already thinking that would be the day that she took control of the top of the lesbian food chain. 
 
- "Can we bring pets?" Chloe asked. 
+5._CHLOE_COLLECTS_MILFS 
 
- "No," Deborah answered, "this is a special family only day." 
+Although she was planning on taking Mommy on Nude Day, she also decided to see how many new pets she could add to her growing collection in two weeks. She hadn't actually added a MILF, teacher or classmate in a couple of months, so it was time to go back on the prowl anyway. 
 
- "Yummy," Chloe nodded, her head already thinking that would be the day that she took control of the top of the lesbian food chain. 
+She decided that her first target would be the mother of a girl that she strongly disliked, a cheerleader from the other high school who had tried to steal Chloe's boyfriend a few months ago. After doing some quick intel, Chloe learned the father was a high end stock trader, and the mother a stay at home type. 
 
- 5._CHLOE_COLLECTS_MILFS 
+Chloe skipped last class, Mrs. Pennington being another of her many pets and thus turning a blind eye to her skipping, knowing that Beth, the bitch cheerleader, would be in school for at least one more hour. 
 
- Although she was planning on taking Mommy on Nude Day, she also decided to see how many new pets she could add to her growing collection in two weeks. She hadn't actually added a MILF, teacher or classmate in a couple of months, so it was time to go back on the prowl anyway. 
+She went to Beth's home, a massive isolated house just outside the city, knocked on the door and was greeted by a very pretty looking MILF. Chloe greeted all friendly, "Hi, my name is Chloe and I am a friend of Beth's." 
 
- She decided that her first target would be the mother of a girl that she strongly disliked, a cheerleader from the other high school who had tried to steal Chloe's boyfriend a few months ago. After doing some quick intel, Chloe learned the father was a high end stock trader, and the mother a stay at home type. 
+"She is still at school," the Mom answered. 
 
- Chloe skipped last class, Mrs. Pennington being another of her many pets and thus turning a blind eye to her skipping, knowing that Beth, the bitch cheerleader, would be in school for at least one more hour. 
+"I know," Chloe nodded, "I came here to talk with you." 
 
- She went to Beth's home, a massive isolated house just outside the city, knocked on the door and was greeted by a very pretty looking MILF. Chloe greeted all friendly, "Hi, my name is Chloe and I am a friend of Beth's." 
+"Okay." 
 
- "She is still at school," the Mom answered. 
+"Are you alone?" Chloe asked. 
 
- "I know," Chloe nodded, "I came here to talk with you." 
+"Yes," she nodded, sensing something was amiss. 
 
- "Okay." 
+"If I am going to be completely honest, I hate your daughter," Chloe said. 
 
- "Are you alone?" Chloe asked. 
+"Excuse me," she said, surprised by my last sentence. 
 
- "Yes," she nodded, sensing something was amiss. 
+"She's quite a bitch, actually," Chloe added. 
 
- "If I am going to be completely honest, I hate your daughter," Chloe said. 
+"Please leave," she said, getting angry, shocked at the gall of this stranger. 
 
- "Excuse me," she said, surprised by my last sentence. 
+Chloe smiled, "I can't do that." 
 
- "She's quite a bitch, actually," Chloe added. 
+"Why?" the mother asked, now annoyed and angry. 
 
- "Please leave," she said, getting angry, shocked at the gall of this stranger. 
+"I need something from you," Chloe continued, loving watching her prey go through a variety of emotions. 
 
- Chloe smiled, "I can't do that." 
+"And what is that?" the mother asked, her tone bitter. 
 
- "Why?" the mother asked, now annoyed and angry. 
+"For you to eat my cunt," Chloe frankly answered. 
 
- "I need something from you," Chloe continued, loving watching her prey go through a variety of emotions. 
+"What?" the mother gasped, shocked by what the pretentious teenager said. 
 
- "And what is that?" the mother asked, her tone bitter. 
+"Your daughter tried sleeping with my boyfriend, so I am going to sleep with her mother," Chloe explained. 
 
- "For you to eat my cunt," Chloe frankly answered. 
+"Leave," she ordered, turning around, done with this ridiculous conversation. 
 
- "What?" the mother gasped, shocked by what the pretentious teenager said. 
+Chloe grabbed her arm and said, "Look, bitch. I have pictures of your prima donna bitch eating out another girl and if you don't do as you're told I will have them go viral." 
 
- "Your daughter tried sleeping with my boyfriend, so I am going to sleep with her mother," Chloe explained. 
+"Bull shit," the Mom said, even as, for the first time, she sensed something was indeed amiss. 
 
- "Leave," she ordered, turning around, done with this ridiculous conversation. 
+"Here's a picture," Chloe said, pulling out her phone. 
 
- Chloe grabbed her arm and said, "Look, bitch. I have pictures of your prima donna bitch eating out another girl and if you don't do as you're told I will have them go viral." 
+a-family-affair24.jpg] 
 
- "Bull shit," the Mom said, even as, for the first time, she sensed something was indeed amiss. 
+The mother stared at the picture that was undeniably her daughter Beth; the other girl was one of her fellow cheerleaders, Karen. 
 
- "Here's a picture," Chloe said, pulling out her phone. 
+"Your bitch daughter looks like she was really enjoying herself," Chloe said, smugly. 
 
- 
+"What do you want?" the mother asked, suddenly very concerned. 
 
- a-family-affair24.jpg] 
+"Get naked," Chloe ordered. 
 
- The mother stared at the picture that was undeniably her daughter Beth; the other girl was one of her fellow cheerleaders, Karen. 
+"I can give you money," the mother countered, desperate to get herself and her daughter out of this situation. 
 
- "Your bitch daughter looks like she was really enjoying herself," Chloe said, smugly. 
+"Get naked," Chloe repeated, seeing the look of desperation in the older woman's eyes. 
 
- "What do you want?" the mother asked, suddenly very concerned. 
+"Please, what else can I do?" the Mom pleaded. 
 
- "Get naked," Chloe ordered. 
+"Get naked now," Chloe sighed, "Or I'll send this photo to everyone in her school." 
 
- "I can give you money," the mother countered, desperate to get herself and her daughter out of this situation. 
+"Let's go inside," the Mom suggested. 
 
- "Get naked," Chloe repeated, seeing the look of desperation in the older woman's eyes. 
+"No, here," Chloe continued to control the situation. 
 
- "Please, what else can I do?" the Mom pleaded. 
+The mother reluctantly began undressing. Even as she did, she pleaded, "Please, this is blackmail." 
 
- "Get naked now," Chloe sighed, "Or I'll send this photo to everyone in her school." 
+"Yes, it is," Chloe nodded. 
 
- "Let's go inside," the Mom suggested. 
+Once the MILF was naked, Chloe ordered, "Now undress me." 
 
- "No, here," Chloe continued to control the situation. 
+The MILF again reluctantly agreed, mortified by her current predicament. 
 
- The mother reluctantly began undressing. Even as she did, she pleaded, "Please, this is blackmail." 
+Once Chloe was naked, she ordered, "Go ahead, Mrs. Williams, lick my pussy." 
 
- "Yes, it is," Chloe nodded. 
+The mom pleaded one last time, "Please don't make me do this." 
 
- Once the MILF was naked, Chloe ordered, "Now undress me." 
+Chloe sighed, "Now, bitch." 
 
- The MILF again reluctantly agreed, mortified by her current predicament. 
+The mother wanted to slap this teenager in the face, yet instead she tasted her first pussy since her college days. 
 
- Once Chloe was naked, she ordered, "Go ahead, Mrs. Williams, lick my pussy." 
+"Good girl," Chloe moaned, watching yet another MILF submit to her. She had kept her phone in her hands the whole time and slyly took a few pictures of her newest pet. She then switched to filming. 
 
- The mom pleaded one last time, "Please don't make me do this." 
+The mother licked quickly, trying to get the bitch off as quick as possible. 
 
- Chloe sighed, "Now, bitch." 
+After a couple of minutes, Chloe moaned, "Not your first pussy munch, is it?" 
 
- The mother wanted to slap this teenager in the face, yet instead she tasted her first pussy since her college days. 
+The mother ignored, continuing to lick the teenager. 
 
- "Good girl," Chloe moaned, watching yet another MILF submit to her. She had kept her phone in her hands the whole time and slyly took a few pictures of her newest pet. She then switched to filming. 
+"Look up, slut," Chloe ordered. 
 
- The mother licked quickly, trying to get the bitch off as quick as possible. 
+The MILF did and gasped as she saw the phone that was filming her. 
 
- After a couple of minutes, Chloe moaned, "Not your first pussy munch, is it?" 
+"Please, no," she begged. 
 
- The mother ignored, continuing to lick the teenager. 
+"I already texted a few pictures to my sister for safe keeping," Chloe lied. "The video is just for my private collection." 
 
- "Look up, slut," Chloe ordered. 
+Chloe grabbed the mortified MILF's head and pulled it back into her fevered cunt. 
 
- The MILF did and gasped as she saw the phone that was filming her. 
+The mother desperately tried to figure a way out of this as she resumed licking. 
 
- "Please, no," she begged. 
+A couple more minutes of licking and Chloe was close. She held the MILF's head and grinded herself to an orgasm. 
 
- "I already texted a few pictures to my sister for safe keeping," Chloe lied. "The video is just for my private collection." 
+Once done, and Chloe let go of the MILF's head, the mother asked, "Are we done now?" 
 
- Chloe grabbed the mortified MILF's head and pulled it back into her fevered cunt. 
+"Not even close," Chloe laughed, pulling her up, spinning her around and pushing her up against the wall. 
 
- The mother desperately tried to figure a way out of this as she resumed licking. 
+"Stop," the MILF demanded, even as she felt hands go to her pussy. 
 
- A couple more minutes of licking and Chloe was close. She held the MILF's head and grinded herself to an orgasm. 
+"Why are you wet?" Chloe asked, not surprised at all. 
 
- Once done, and Chloe let go of the MILF's head, the mother asked, "Are we done now?" 
+"I don't know," the MILF whimpered, not sure herself. 
 
- "Not even close," Chloe laughed, pulling her up, spinning her around and pushing her up against the wall. 
+a-family-affair25.jpg] 
 
- "Stop," the MILF demanded, even as she felt hands go to her pussy. 
+"Do you want to come?" Chloe asked, as she began fingering the sexy MILF. 
 
- "Why are you wet?" Chloe asked, not surprised at all. 
+"Nooooo," the mom moaned, unable to control the pleasure she was feeling from the girl's fingers, unsure when she had last had an orgasm. 
 
- "I don't know," the MILF whimpered, not sure herself. 
+Chloe furiously pumped her fingers in and out of the horny MILF until she heard the voice she had been hoping to hear. 
 
- 
+"Mother!" Beth stopped in her tracks and gasped, seeing her naked mother being molested on her front porch by her arch enemy. 
 
- a-family-affair25.jpg] 
+The mother tried to move, but was completely at the whim of this seductive, strong-willed teenager who had her near the brink of eruption. 
 
- "Do you want to come?" Chloe asked, as she began fingering the sexy MILF. 
+Chloe smiled deviously, turning to a very shocked Beth, "I figured since you like munching cunt, your mother likely did too." 
 
- "Nooooo," the mom moaned, unable to control the pleasure she was feeling from the girl's fingers, unsure when she had last had an orgasm. 
+"You bitch," Beth snapped in rage, as her mother screamed. 
 
- Chloe furiously pumped her fingers in and out of the horny MILF until she heard the voice she had been hoping to hear. 
-
- "Mother!" Beth stopped in her tracks and gasped, seeing her naked mother being molested on her front porch by her arch enemy. 
-
- The mother tried to move, but was completely at the whim of this seductive, strong-willed teenager who had her near the brink of eruption. 
-
- Chloe smiled deviously, turning to a very shocked Beth, "I figured since you like munching cunt, your mother likely did too." 
-
- "You bitch," Beth snapped in rage, as her mother screamed. 
-
- "Fuccccccccck," the MILF screamed loudly and was both thankful she lived on an acreage and mortified that she was caught in such a compromising act and doubly mortified that she was now coming at the hands of her blackmailer.  
-
- 
-
- 
+"Fuccccccccck," the MILF screamed loudly and was both thankful she lived on an acreage and mortified that she was caught in such a compromising act and doubly mortified that she was now coming at the hands of her blackmailer.  
 
 ===
 
 Pulling her fingers out, Chloe winked at Beth, grabbed her sundress and said, "Now we are almost even." 
 
- "Fuck you," Beth snapped, finally walking towards Chloe enraged. 
+"Fuck you," Beth snapped, finally walking towards Chloe enraged. 
 
- Chloe whispered, "Make sure you keep her under control or the picture goes viral." 
+Chloe whispered, "Make sure you keep her under control or the picture goes viral." 
 
- As Beth reached her mother and the blonde bitch she threatened, "I'm going to kill you." 
+As Beth reached her mother and the blonde bitch she threatened, "I'm going to kill you." 
 
- 
+a-family-affair26.jpg] 
 
- a-family-affair26.jpg] 
+Chloe laughed as she quickly grabbed her arch enemy by the wrist and turned her around, and said, "Actually, you're going to be a good obedient pet like your mother, isn't she Mommy-slut?" 
 
- Chloe laughed as she quickly grabbed her arch enemy by the wrist and turned her around, and said, "Actually, you're going to be a good obedient pet like your mother, isn't she Mommy-slut?" 
+"Do as she orders, Beth," the mother ordered firmly. 
 
- "Do as she orders, Beth," the mother ordered firmly. 
+"You can't be serious," Beth said in disgust of her mother. 
 
- "You can't be serious," Beth said in disgust of her mother. 
+"No fucking lip, Beth," the mother snapped. Partly to put her in line and partly because she was pissed at her daughter for unknowingly getting her in this position in the first place. 
 
- "No fucking lip, Beth," the mother snapped. Partly to put her in line and partly because she was pissed at her daughter for unknowingly getting her in this position in the first place. 
+"Mother," Beth said, surprised by her mother's language and tone. 
 
- "Mother," Beth said, surprised by her mother's language and tone. 
+"Beth, just obey her," Mom ordered. 
 
- "Beth, just obey her," Mom ordered. 
+Chloe roughly pulled the bitch's panties down and roughly began fingering her. "Shit, slut, you're already fucking wet. Did watching me finger-fuck your mother get you off?" 
 
- Chloe roughly pulled the bitch's panties down and roughly began fingering her. "Shit, slut, you're already fucking wet. Did watching me finger-fuck your mother get you off?" 
+"Noooooo," she whimpered, furious and yet undeniably horny. 
 
- "Noooooo," she whimpered, furious and yet undeniably horny. 
+"Suuuuuure," Chloe mocked, as she molested the head cheerleader from her rival school. 
 
- "Suuuuuure," Chloe mocked, as she molested the head cheerleader from her rival school. 
+"Please stoppppp," Beth pleaded, tears beginning to stream down her face. 
 
- "Please stoppppp," Beth pleaded, tears beginning to stream down her face. 
+"Oh, I'm just getting started, bitch," Chloe said, reveling in the power she had over her. 
 
- "Oh, I'm just getting started, bitch," Chloe said, reveling in the power she had over her. 
+"Mommmmy," Beth cried, looking at her mom and begging for her protection. 
 
- "Mommmmy," Beth cried, looking at her mom and begging for her protection. 
+The Mom was helpless, knowing the evidence the blonde blackmailer had on both her daughter and now her. She shook her head and said, "You got us in this mess, you will take the punishment." 
 
- The Mom was helpless, knowing the evidence the blonde blackmailer had on both her daughter and now her. She shook her head and said, "You got us in this mess, you will take the punishment." 
+Chloe laughed, "She seems to really be enjoying the punishment." 
 
- Chloe laughed, "She seems to really be enjoying the punishment." 
+"Fuck offfffff," Beth snapped, even as her cunt got wetter and wetter as she took three fingers in. 
 
- "Fuck offfffff," Beth snapped, even as her cunt got wetter and wetter as she took three fingers in. 
+"I bet you could take my whole fist," Chloe declared, a fourth finger going inside the slut. 
 
- "I bet you could take my whole fist," Chloe declared, a fourth finger going inside the slut. 
+"Nooooo," Beth pleaded, her cunt widening unnaturally. 
 
- "Nooooo," Beth pleaded, her cunt widening unnaturally. 
+"Only one way to find out," Chloe declared as she shoved her whole fist inside. 
 
- "Only one way to find out," Chloe declared as she shoved her whole fist inside. 
+"Fuuuuuuuuuuuuuuuuuuck," Beth screamed, her cunt feeling completely full. 
 
- "Fuuuuuuuuuuuuuuuuuuck," Beth screamed, her cunt feeling completely full. 
+a-family-affair27.jpg] 
 
- 
+"Shit, you took the whole fist rather easily," Chloe said, amazed herself how easily her fist slid in. She had fisted a couple of her MILF pets but it had always been after lots of preparation. "You must have been fantasizing about being my little lesbian plaything for a while." 
 
- a-family-affair27.jpg] 
+"Never," Beth barely got out, feeling so full she thought she may pass out. 
 
- "Shit, you took the whole fist rather easily," Chloe said, amazed herself how easily her fist slid in. She had fisted a couple of her MILF pets but it had always been after lots of preparation. "You must have been fantasizing about being my little lesbian plaything for a while." 
+"Doesn't she seem to be enjoying it, Mommy-slut?" Chloe asked, turning to the mother who was watching her daughter get molested with a look of complete shock. 
 
- "Never," Beth barely got out, feeling so full she thought she may pass out. 
+The mother, trying to stay on the blonde's good side, nodded, and still furious at her daughter for being such a whore in the first place, said, "Yes, the slut really seems to be loving it." 
 
- "Doesn't she seem to be enjoying it, Mommy-slut?" Chloe asked, turning to the mother who was watching her daughter get molested with a look of complete shock. 
+"Mommmmmmm," Beth whined, shocked that her mother seemed to be choosing the bitch's side. 
 
- The mother, trying to stay on the blonde's good side, nodded, and still furious at her daughter for being such a whore in the first place, said, "Yes, the slut really seems to be loving it." 
+"You're the one that has a whole fist in your cunt," the mother pointed out. Her daughter had run the house the past couple of years and suddenly all the crappy treatment and resentment that went with it came to a head inside the Mom and she began to enjoy watching her daughter get put in place. 
 
- "Mommmmmmm," Beth whined, shocked that her mother seemed to be choosing the bitch's side. 
+"Oh God," Beth moaned, her head getting light, her orgasm building quickly. 
 
- "You're the one that has a whole fist in your cunt," the mother pointed out. Her daughter had run the house the past couple of years and suddenly all the crappy treatment and resentment that went with it came to a head inside the Mom and she began to enjoy watching her daughter get put in place. 
+"Do you want to come, slut?" Chloe asked, fist-fucking her hard. 
 
- "Oh God," Beth moaned, her head getting light, her orgasm building quickly. 
+"Noooooooo, God, yesssss dammit," Beth declared even as a tear rolled down her face, the humiliation of the treatment she was receiving causing mixed, confusing emotions. 
 
- "Do you want to come, slut?" Chloe asked, fist-fucking her hard. 
+"Come, my slut," Chloe ordered, "come from getting your dirty twat fisted." 
 
- "Noooooooo, God, yesssss dammit," Beth declared even as a tear rolled down her face, the humiliation of the treatment she was receiving causing mixed, confusing emotions. 
+"Yes, my fucking daughter slut, come now," the mother, completely drawn into the act of sexual submission and humiliation, ordered. 
 
- "Come, my slut," Chloe ordered, "come from getting your dirty twat fisted." 
+"Oh shitttt," Beth babbled, "fuck, fuck, fuck, God, yessssssssss." 
 
- "Yes, my fucking daughter slut, come now," the mother, completely drawn into the act of sexual submission and humiliation, ordered. 
+a-family-affair28.jpg] 
 
- "Oh shitttt," Beth babbled, "fuck, fuck, fuck, God, yessssssssss." 
+Chloe continued fisting her for another minute before pulling out, sitting on an outdoor chair and ordering the still trembling slut, "Now get over here and eat your new Mistress's cunt." 
 
- 
+Beth fell to the ground the moment Beth moved away from her, her legs completely weak from the orgasm. She looked at the blonde, her legs spread, and feeling completely defeated, as she glanced at her oddly smirking mother, she crawled to Chloe and began licking even as she considered the term 'Mistress'. 
 
- a-family-affair28.jpg] 
+"Such a good pet," Chloe moaned, as her arch enemy began licking her in front of her own mother. 
 
- Chloe continued fisting her for another minute before pulling out, sitting on an outdoor chair and ordering the still trembling slut, "Now get over here and eat your new Mistress's cunt." 
+a-family-affair29.jpg] 
 
- Beth fell to the ground the moment Beth moved away from her, her legs completely weak from the orgasm. She looked at the blonde, her legs spread, and feeling completely defeated, as she glanced at her oddly smirking mother, she crawled to Chloe and began licking even as she considered the term 'Mistress'. 
+The mother watched in voyeuristic awe as she was undeniably turned on watching her daughter get dominated and the idea of doing that to her herself suddenly crossed her mind. 
 
- "Such a good pet," Chloe moaned, as her arch enemy began licking her in front of her own mother. 
+Chloe glanced at the mother and saw a look in her eye. A look she recognized. The mother wanted her daughter. 
 
- 
+Chloe moaned, "You have a very eager tongue, my slut, I bet you have munched a lot of cunt." 
 
- a-family-affair29.jpg] 
+Beth indeed loved eating cunt and did so daily with a few of her fellow cheerleaders, although usually it was in sixty-nines as she both gave and received. Oddly though, Chloe's cunt had a different, more exotic, delicious, taste than her girlfriends, although she would never admit such a thing. 
 
- The mother watched in voyeuristic awe as she was undeniably turned on watching her daughter get dominated and the idea of doing that to her herself suddenly crossed her mind. 
+"Is this the first cunt you have munched today?" Chloe asked. 
 
- Chloe glanced at the mother and saw a look in her eye. A look she recognized. The mother wanted her daughter. 
+"No," she admitted. 
 
- Chloe moaned, "You have a very eager tongue, my slut, I bet you have munched a lot of cunt." 
+"Second?" Chloe asked. 
 
- Beth indeed loved eating cunt and did so daily with a few of her fellow cheerleaders, although usually it was in sixty-nines as she both gave and received. Oddly though, Chloe's cunt had a different, more exotic, delicious, taste than her girlfriends, although she would never admit such a thing. 
+"Third," Beth admitted the truth for some reason. 
 
- "Is this the first cunt you have munched today?" Chloe asked. 
+"You really are a lesbian," Chloe laughed, "why the hell were you trying to fuck my boyfriend?" 
 
- "No," she admitted. 
+"To piss you off," Beth answered, which was true. 
 
- "Second?" Chloe asked. 
+"Well, you did indeed do that," Chloe replied, "but I think the real reason was you wanted to be my pussy pleaser." 
 
- "Third," Beth admitted the truth for some reason. 
+Beth shook her head no even as she continued lapping the bitch's amazingly tasty cunt. 
 
- "You really are a lesbian," Chloe laughed, "why the hell were you trying to fuck my boyfriend?" 
+"I call bullshit," Chloe retorted, as she grabbed the redhead's face and began rubbing her pussy up and down on it. 
 
- "To piss you off," Beth answered, which was true. 
+Chloe made eye contact with the mother and never broke it as she used her daughter roughly. 
 
- "Well, you did indeed do that," Chloe replied, "but I think the real reason was you wanted to be my pussy pleaser." 
+After she came, she let go of Beth's head and asked the mother, "Do you want a turn with your daughter?" 
 
- Beth shook her head no even as she continued lapping the bitch's amazingly tasty cunt. 
+The mother should have said no, but her cunt screamed yes and she took control, ordering, "Beth, come and please Mommy." 
 
- "I call bullshit," Chloe retorted, as she grabbed the redhead's face and began rubbing her pussy up and down on it. 
+"Mom!" Beth gasped, shocked by her mother's order. 
 
- Chloe made eye contact with the mother and never broke it as she used her daughter roughly. 
+"Now!" the Mom firmly said. 
 
- After she came, she let go of Beth's head and asked the mother, "Do you want a turn with your daughter?" 
+"But that is incest," Beth pointed out, tears again beginning to form. 
 
- The mother should have said no, but her cunt screamed yes and she took control, ordering, "Beth, come and please Mommy." 
+"You're a dyke who loves munching cunt and Mommy has a cunt," the mother said, snapping her fingers and pointing to her cunt. 
 
- "Mom!" Beth gasped, shocked by her mother's order. 
+Beth couldn't believe it, but she reluctantly crawled to her mother. She paused between her legs and looked up, hoping this was all a sick test. 
 
- "Now!" the Mom firmly said. 
+"Get licking, rug muncher," the Mom ordered. 
 
- "But that is incest," Beth pointed out, tears again beginning to form. 
+Beth obeyed, leaning forward and beginning to lick her Mom's pussy. 
 
- "You're a dyke who loves munching cunt and Mommy has a cunt," the mother said, snapping her fingers and pointing to her cunt. 
+a-family-affair30.jpg] 
 
- Beth couldn't believe it, but she reluctantly crawled to her mother. She paused between her legs and looked up, hoping this was all a sick test. 
+"Fourth," Chloe updated Beth's count, in awe herself of how perfectly this had gone. Incest was the chocolate icing on an already very delicious cake. 
 
- "Get licking, rug muncher," the Mom ordered. 
+"Look at me when you eat Mommy," the mom ordered, as Chloe began getting dressed. 
 
- Beth obeyed, leaning forward and beginning to lick her Mom's pussy. 
+The mother got animated. "That's it my daughter slut, lick Mommy's box." 
 
- 
+Beth meanwhile couldn't believe what she was being made to do, nor that her mother was the one forcing her to do it or that she was committing incest in front of her arch enemy or that her own cunt was again getting wet. 
 
- a-family-affair30.jpg] 
+Chloe watched for a couple of minutes before saying, "Goodbye, sluts." 
 
- "Fourth," Chloe updated Beth's count, in awe herself of how perfectly this had gone. Incest was the chocolate icing on an already very delicious cake. 
+"Byeeeee," the Mom moaned, as her daughter's tongue did magic. 
 
- "Look at me when you eat Mommy," the mom ordered, as Chloe began getting dressed. 
+As Chloe walked to her car, she heard the MILF say, "Suck my clit, you fucking slut." 
 
- The mother got animated. "That's it my daughter slut, lick Mommy's box." 
+Chloe, who had filmed the majority of the double submission, couldn't wait to tell the story to Mom and Amanda, this easily her crowning achievement. 
 
- Beth meanwhile couldn't believe what she was being made to do, nor that her mother was the one forcing her to do it or that she was committing incest in front of her arch enemy or that her own cunt was again getting wet. 
+..... 
 
- Chloe watched for a couple of minutes before saying, "Goodbye, sluts." 
+A few days later, Chloe added her Chemistry teacher, Mrs. Pennington's, daughter to her pets. Sometimes pet additions are too easy. 
 
- "Byeeeee," the Mom moaned, as her daughter's tongue did magic. 
+Mrs. Pennington announced to class that her college daughter was going to be home for the weekend. Chloe immediately wondered if she could get her very submissive teacher to sacrifice her daughter to her. 
 
- As Chloe walked to her car, she heard the MILF say, "Suck my clit, you fucking slut." 
+After school on Friday, Chloe said, "Mrs. Pennington, I will be coming to visit you tonight around nine." 
 
- Chloe, who had filmed the majority of the double submission, couldn't wait to tell the story to Mom and Amanda, this easily her crowning achievement. 
+"But my daughter will be home," the teacher replied, immediately terrified. She had finally, after a couple of months of complete anxiety, relaxed over the fear of losing her job for having sexual relations with a student. Now, a new anxiety emerged. 
 
- ..... 
+"I know," Chloe nodded, "I'm looking forward to meeting her." 
 
- A few days later, Chloe added her Chemistry teacher, Mrs. Pennington's, daughter to her pets. Sometimes pet additions are too easy. 
+"Please, Mistress," the teacher begged, desperate to avoid her daughter learning of her affair with a student. 
 
- Mrs. Pennington announced to class that her college daughter was going to be home for the weekend. Chloe immediately wondered if she could get her very submissive teacher to sacrifice her daughter to her. 
+"You are going to help me with the seduction of your daughter," Chloe revealed. Penelope was a senior last year and the idea of getting a college girl appealed to her. 
 
- After school on Friday, Chloe said, "Mrs. Pennington, I will be coming to visit you tonight around nine." 
+"I'll do anything," the teacher began to bargain but was cut off. 
 
- "But my daughter will be home," the teacher replied, immediately terrified. She had finally, after a couple of months of complete anxiety, relaxed over the fear of losing her job for having sexual relations with a student. Now, a new anxiety emerged. 
+"I know," Chloe nodded. "See you tonight." 
 
- "I know," Chloe nodded, "I'm looking forward to meeting her." 
+The teacher begged as Chloe walked away, "Please, Mistress, she is my only daughter." 
 
- "Please, Mistress," the teacher begged, desperate to avoid her daughter learning of her affair with a student. 
+Chloe ignored the pleas, excited at the possibility of another mother and daughter team. 
 
- "You are going to help me with the seduction of your daughter," Chloe revealed. Penelope was a senior last year and the idea of getting a college girl appealed to her. 
+That night, Chloe showed up and wasn't surprised to see that Mrs. Pennington was alone. "Where's Penelope?" 
 
- "I'll do anything," the teacher began to bargain but was cut off. 
+"At the movies, Mistress," she answered, praying this would be done before her daughter returned home. 
 
- "I know," Chloe nodded. "See you tonight." 
+"Are you ashamed of me?" Chloe asked. 
 
- The teacher begged as Chloe walked away, "Please, Mistress, she is my only daughter." 
+"No, Mistress, I am ashamed of myself," the teacher answered. 
 
- Chloe ignored the pleas, excited at the possibility of another mother and daughter team. 
+"Have you ever felt freer since you let go of your inhibitions?" Chloe asked. 
 
- That night, Chloe showed up and wasn't surprised to see that Mrs. Pennington was alone. "Where's Penelope?" 
+"No, Mistress," Mrs. Pennington admitted, a heavy weight lifted off her shoulders when she let go of her many fears and submitted completely to the teenage seductress. 
 
- "At the movies, Mistress," she answered, praying this would be done before her daughter returned home. 
+"Would your daughter not enjoy the same releasing of the invisible chains that hold women back from their true submissive nature?" Chloe asked. 
 
- "Are you ashamed of me?" Chloe asked. 
+"I think that is her decision to make," Mrs. Pennington answered. 
 
- "No, Mistress, I am ashamed of myself," the teacher answered. 
+"Agreed," Chloe nodded, "but I think it's important to give her the opportunity to make that decision for herself." 
 
- "Have you ever felt freer since you let go of your inhibitions?" Chloe asked. 
+"I suppose," the widowed mother said. 
 
- "No, Mistress," Mrs. Pennington admitted, a heavy weight lifted off her shoulders when she let go of her many fears and submitted completely to the teenage seductress. 
+"Let's go to her bedroom," Chloe ordered. 
 
- "Would your daughter not enjoy the same releasing of the invisible chains that hold women back from their true submissive nature?" Chloe asked. 
+a-family-affair31.jpg] 
 
- "I think that is her decision to make," Mrs. Pennington answered. 
+The submissive teacher followed, uncomfortable with having sex in her daughter's bedroom, yet knowing any sort of protest would only make things worse. She recalled when she disobeyed Chloe by wearing panties to work and was punished by having to pose naked in her classroom after school while being molested by Chloe's sister, and her star pupil, Amanda. She was mortified hat her submissive secret was revealed to another person, especially Amanda, and then shocked (and slightly turned on) to learn that Amanda was submissive to Chloe too. 
 
- "Agreed," Chloe nodded, "but I think it's important to give her the opportunity to make that decision for herself." 
+As she walked, she prayed that Cloe was not contemplating making her commit an act of incest with her daughter. Yes, the idea turned her on that two blonde sisters had sex, but it was a totally different matter to be a part of an incestuous act herself. 
 
- "I suppose," the widowed mother said. 
+Once in the room, Chloe ordered, "Get naked, slut." 
 
- "Let's go to her bedroom," Chloe ordered. 
+"Yes, Mistress," Mrs. Pennington nodded, planning to do whatever her Mistress said without hesitation in hopes of keeping her daughter out of this sexual debauchery that she undeniably loved. 
 
- 
+"You need to be punished, my slut, for not having your daughter here," Chloe began. 
 
- a-family-affair31.jpg] 
+The MILF considered pointing out that Chloe never actually said to have her home, but she knew that was only semantics and in the early conversation such things were implied. 
 
- The submissive teacher followed, uncomfortable with having sex in her daughter's bedroom, yet knowing any sort of protest would only make things worse. She recalled when she disobeyed Chloe by wearing panties to work and was punished by having to pose naked in her classroom after school while being molested by Chloe's sister, and her star pupil, Amanda. She was mortified hat her submissive secret was revealed to another person, especially Amanda, and then shocked (and slightly turned on) to learn that Amanda was submissive to Chloe too. 
+"Yes, Mistress," the submissive teacher nodded. 
 
- As she walked, she prayed that Cloe was not contemplating making her commit an act of incest with her daughter. Yes, the idea turned her on that two blonde sisters had sex, but it was a totally different matter to be a part of an incestuous act herself. 
+Chloe undressed as well and wanting to get off first, laid down and ordered, "Come and get your late night snack, my slut." 
 
- Once in the room, Chloe ordered, "Get naked, slut." 
+The teacher, looking at the beautiful teenager with her legs spread open, immediately crawled to her and buried her face in the teen's deliciously addictive cunt. 
 
- "Yes, Mistress," Mrs. Pennington nodded, planning to do whatever her Mistress said without hesitation in hopes of keeping her daughter out of this sexual debauchery that she undeniably loved. 
+"That's it, my pet," Chloe moaned, the teacher one of the best pussy munchers she had at her disposal. 
 
- "You need to be punished, my slut, for not having your daughter here," Chloe began. 
+a-family-affair32.jpg] 
 
- The MILF considered pointing out that Chloe never actually said to have her home, but she knew that was only semantics and in the early conversation such things were implied. 
+The teacher loved being called a pet, loved to please and loved just letting go and obeying without hesitation the orders of her teen Mistress. She licked slowly at first, loving to hear the teen moan and eventually beg for more. 
 
- "Yes, Mistress," the submissive teacher nodded. 
+"That's it, right there," Chloe moaned after a couple of minutes. 
 
- Chloe undressed as well and wanting to get off first, laid down and ordered, "Come and get your late night snack, my slut." 
+Mrs. Pennington knew she was getting close and began going to her hard clit. 
 
- The teacher, looking at the beautiful teenager with her legs spread open, immediately crawled to her and buried her face in the teen's deliciously addictive cunt. 
+"That's it, my fucking teacher slut," Chloe moaned, "suck on my clit." 
 
- "That's it, my pet," Chloe moaned, the teacher one of the best pussy munchers she had at her disposal. 
+The teacher obeyed, her own cunt getting wet at the naughty words. Being a no- nonsense teacher at school was exhausting and being able to just shut off her brain and obey was completely liberating. 
 
- 
+"Don't stop," Chloe ordered, her orgasm getting close. 
 
- a-family-affair32.jpg] 
+The teacher had no intention of stopping until her face was coated with her Mistress's delicious pussy cum. 
 
- The teacher loved being called a pet, loved to please and loved just letting go and obeying without hesitation the orders of her teen Mistress. She licked slowly at first, loving to hear the teen moan and eventually beg for more. 
+"Getting closssssse," Chloe moaned, before adding, as she changed positions, "I can't wait to have your daughter between my legs as well." 
 
- "That's it, right there," Chloe moaned after a couple of minutes. 
+a-family-affair33.jpg] 
 
- Mrs. Pennington knew she was getting close and began going to her hard clit. 
+The teacher winced at the promise, but kept serving like a good pet, her own insatiable hunger to please overriding her motherly responsibilities. 
 
- "That's it, my fucking teacher slut," Chloe moaned, "suck on my clit." 
+"They say like mother, like daughter," Chloe teased. 
 
- The teacher obeyed, her own cunt getting wet at the naughty words. Being a no- nonsense teacher at school was exhausting and being able to just shut off her brain and obey was completely liberating. 
+The Mom wondered if her daughter had experimented in sex, especially lesbian sex. Being 2015, it seemed many of her female students, even her goody-goody students like Amanda, were experimenting with the same sex. 
 
- "Don't stop," Chloe ordered, her orgasm getting close. 
+"Oh yes," Chloe moaned, slapping her pet's ass. "Don't fucking stop." 
 
- The teacher had no intention of stopping until her face was coated with her Mistress's delicious pussy cum. 
+An earthquake wouldn't have made her stop lapping the addicting cunt she craved non-stop. 
 
- "Getting closssssse," Chloe moaned, before adding, as she changed positions, "I can't wait to have your daughter between my legs as well." 
+"Oh, oh, oh, Yes, yes, yesssssss," Chloe screamed, as her orgasm hit her, making her fall back onto her back. 
 
- 
+Hungry for some pussy herself, which was rare, she ordered, "Straddle me my pet, I want to taste your cunt." 
 
- a-family-affair33.jpg] 
+"Yes, Mistress," the surprised, but horny teacher agreed. In the few months of sexual submission, Chloe had never pleasured her back, except with a strap-on. 
 
- The teacher winced at the promise, but kept serving like a good pet, her own insatiable hunger to please overriding her motherly responsibilities. 
+"Hmmmmm, your cunt is very wet, my pet," Chloe teased, as her tongue slowly slithered between her pet's very wet pussy lips. 
 
- "They say like mother, like daughter," Chloe teased. 
+"Pleasing you gets me horrrrrny," the teacher admitted. 
 
- The Mom wondered if her daughter had experimented in sex, especially lesbian sex. Being 2015, it seemed many of her female students, even her goody-goody students like Amanda, were experimenting with the same sex. 
+"So I can tell," Chloe said, as she began licking her pet. She didn't plan to get her off, just get her near orgasm before stopping so she was horned up when the big surprise occurred. 
 
- "Oh yes," Chloe moaned, slapping her pet's ass. "Don't fucking stop." 
+a-family-affair34.jpg] 
 
- An earthquake wouldn't have made her stop lapping the addicting cunt she craved non-stop. 
+"Oh God, Mistress, thank you so muccccch," the teacher moaned, her cunt being licked for only the second time in a couple of years, the first being Amanda in her classroom a little while back. 
 
- "Oh, oh, oh, Yes, yes, yesssssss," Chloe screamed, as her orgasm hit her, making her fall back onto her back. 
+Chloe continued licking for a couple of minutes until the MILF's moans increased significantly. 
 
- Hungry for some pussy herself, which was rare, she ordered, "Straddle me my pet, I want to taste your cunt." 
+She then quit and ordered, "Get on all fours." 
 
- "Yes, Mistress," the surprised, but horny teacher agreed. In the few months of sexual submission, Chloe had never pleasured her back, except with a strap-on. 
+Although the teacher was near orgasm, having her orgasm refused by Chloe was nothing new. She quickly got on all fours, expecting the strap-on to come next. 
 
- "Hmmmmm, your cunt is very wet, my pet," Chloe teased, as her tongue slowly slithered between her pet's very wet pussy lips. 
+Chloe put on the strap-on and moved behind her pet teacher. As she caressed the pet's ass she declared, revealing her naughty plan to sodomize her sexy teacher, "My slut, it's time to start training your third hole. 
 
- "Pleasing you gets me horrrrrny," the teacher admitted. 
+"Please, no," Mrs. Pennington pleaded, shocked by her Mistress's true intentions, even though she was trying to be completely obedient and not raise the temper of her Mistress. 
 
- "So I can tell," Chloe said, as she began licking her pet. She didn't plan to get her off, just get her near orgasm before stopping so she was horned up when the big surprise occurred. 
+"Are you questioning me?" Chloe questioned, raising her voice. Mrs. Pennington was one of her most obedient submissives and she knew that just one firm sentence of disappointment would end the weak protest. 
 
- 
+Reluctantly, the MILF obeyed even as she prayed for a last second saviour, her ass the one thing she had never allowed anybody, including her now deceased husband, to touch. "No, Mistress," she whispered, always feeling guilty when she got her Mistress mad at her. 
 
- a-family-affair34.jpg] 
+"So you are willing to allow me to take your ass for the first time, my submissive teacher pet?" Chloe questioned, loving when the submissive willingly, albeit reluctantly, agreed to giving up her forbidden fruit. 
 
- "Oh God, Mistress, thank you so muccccch," the teacher moaned, her cunt being licked for only the second time in a couple of years, the first being Amanda in her classroom a little while back. 
+The MILF wanted to say no, she in no way wanted to be sodomized, yet she also didn't want to disobey her Mistress, partly because submission to her was the greatest turn-on and hopefully by complete obedience she would prevent her Mistress from trying to take her daughter. Instead, she responded like the loyal, obedient submissive she was, "Yes, Mistress, my asshole, like the rest of my body, is yours to do with as you please." 
 
- Chloe continued licking for a couple of minutes until the MILF's moans increased significantly. 
+Chloe loved her power and loved hearing the words of a once powerful women giving herself completely to her sexual desires. She poured lube down the teacher's crack rather generously, not wanting to tear it apart, but to indeed fuck it good. 
 
- She then quit and ordered, "Get on all fours." 
+Mrs. Pennington felt the slightly cold liquid between her ass cheeks and resigned herself to the reality she was about to willingly allow herself to be sodomized in her daughter's bedroom, by one of her students. 
 
- Although the teacher was near orgasm, having her orgasm refused by Chloe was nothing new. She quickly got on all fours, expecting the strap-on to come next. 
+"Ready, Mrs. Pennington?" Chloe asked, always enjoying reminding her pets who they really were before she took something as her own. 
 
- Chloe put on the strap-on and moved behind her pet teacher. As she caressed the pet's ass she declared, revealing her naughty plan to sodomize her sexy teacher, "My slut, it's time to start training your third hole. 
+"Yes, Mistress," the teacher tentatively agreed. 
 
- "Please, no," Mrs. Pennington pleaded, shocked by her Mistress's true intentions, even though she was trying to be completely obedient and not raise the temper of her Mistress. 
+"Here it comes," Chloe declared and watched as the long strap-on cock slowly, after a brief resistance, began disappearing in her pet's virgin ass. It was work to push hard enough to get deep in the virgin ass that desperately tried to reject the violation. 
 
- "Are you questioning me?" Chloe questioned, raising her voice. Mrs. Pennington was one of her most obedient submissives and she knew that just one firm sentence of disappointment would end the weak protest. 
+"Ohhhhhhhhhhhhh," the MILF moaned, a searing pain coursing through her as the cock went where it wasn't supposed to go. 
 
- Reluctantly, the MILF obeyed even as she prayed for a last second saviour, her ass the one thing she had never allowed anybody, including her now deceased husband, to touch. "No, Mistress," she whispered, always feeling guilty when she got her Mistress mad at her. 
+a-family-affair35.jpg] 
 
- "So you are willing to allow me to take your ass for the first time, my submissive teacher pet?" Chloe questioned, loving when the submissive willingly, albeit reluctantly, agreed to giving up her forbidden fruit. 
+Chloe allowed the cock to completely fill the whimpering pet's ass and announced, "All in." 
 
- The MILF wanted to say no, she in no way wanted to be sodomized, yet she also didn't want to disobey her Mistress, partly because submission to her was the greatest turn-on and hopefully by complete obedience she would prevent her Mistress from trying to take her daughter. Instead, she responded like the loyal, obedient submissive she was, "Yes, Mistress, my asshole, like the rest of my body, is yours to do with as you please." 
+"Thank God," the mother weakly replied, her ass burning and unsure if she could take any more. 
 
- Chloe loved her power and loved hearing the words of a once powerful women giving herself completely to her sexual desires. She poured lube down the teacher's crack rather generously, not wanting to tear it apart, but to indeed fuck it good. 
+"Now I'm going to slowly fuck your tight shit hole," Chloe announced, loving to use nasty words when dominating a pet. 
 
- Mrs. Pennington felt the slightly cold liquid between her ass cheeks and resigned herself to the reality she was about to willingly allow herself to be sodomized in her daughter's bedroom, by one of her students. 
+"Kkkkkkkkk," the MILF replied, as she prepared for more pain. 
 
- "Ready, Mrs. Pennington?" Chloe asked, always enjoying reminding her pets who they really were before she took something as her own. 
+Chloe began to slowly pump her plastic cock in and out of her pet. 
 
- "Yes, Mistress," the teacher tentatively agreed. 
+The teacher just focused on the task of obedience, which always soothed her. The pain intensified at first, but slowly dissipated over time. A great pleasure didn't emerge, but a pleasant one did gradually as she slowly got accustomed to having something in her ass. 
 
- "Here it comes," Chloe declared and watched as the long strap-on cock slowly, after a brief resistance, began disappearing in her pet's virgin ass. It was work to push hard enough to get deep in the virgin ass that desperately tried to reject the violation. 
+Chloe was amazed even after a few minutes of ass fucking, the MILF pet's ass was still super tight. 
 
- "Ohhhhhhhhhhhhh," the MILF moaned, a searing pain coursing through her as the cock went where it wasn't supposed to go. 
+Suddenly the phone rang. 
 
- 
+a-family-affair36.jpg] 
 
- a-family-affair35.jpg] 
+Mrs. Pennington eyes went wide as it was her daughter calling to say she was either on her way home or going out with her friends...she was praying the latter. 
 
- Chloe allowed the cock to completely fill the whimpering pet's ass and announced, "All in." 
+Chloe said, "Is that Penelope?" 
 
- "Thank God," the mother weakly replied, her ass burning and unsure if she could take any more. 
+"Yes, Mistress," the pet admitted, Penelope having her own special ring tone. 
 
- "Now I'm going to slowly fuck your tight shit hole," Chloe announced, loving to use nasty words when dominating a pet. 
+"Are you going to get it?" Chloe asked, even as she began fucking her pet harder. 
 
- "Kkkkkkkkk," the MILF replied, as she prepared for more pain. 
-
- Chloe began to slowly pump her plastic cock in and out of her pet. 
-
- The teacher just focused on the task of obedience, which always soothed her. The pain intensified at first, but slowly dissipated over time. A great pleasure didn't emerge, but a pleasant one did gradually as she slowly got accustomed to having something in her ass. 
-
- Chloe was amazed even after a few minutes of ass fucking, the MILF pet's ass was still super tight. 
-
- Suddenly the phone rang. 
-
- 
-
- a-family-affair36.jpg] 
-
- Mrs. Pennington eyes went wide as it was her daughter calling to say she was either on her way home or going out with her friends...she was praying the latter. 
-
- Chloe said, "Is that Penelope?" 
-
- "Yes, Mistress," the pet admitted, Penelope having her own special ring tone. 
-
- "Are you going to get it?" Chloe asked, even as she began fucking her pet harder. 
-
- "Nooooooooo," the mom answered, although it was literally impossible with hands on her hips and a cock pounding her ass.  
-
- 
-
- 
+"Nooooooooo," the mom answered, although it was literally impossible with hands on her hips and a cock pounding her ass.  
 
 ===
 
 "Should I?" Chloe questioned, a naughty idea suddenly forming in her head. 
 
- "Please, just keep fucking your slut's asshole," the submissive begged, partly because she didn't want to have Chloe speak to her daughter and partly because she had finally begun to enjoy having a cock in her ass. 
+"Please, just keep fucking your slut's asshole," the submissive begged, partly because she didn't want to have Chloe speak to her daughter and partly because she had finally begun to enjoy having a cock in her ass. 
 
- "You like getting ass fucked like a dirty porn star?" Chloe asked, now slamming the whole cock in her pet's back door. 
+"You like getting ass fucked like a dirty porn star?" Chloe asked, now slamming the whole cock in her pet's back door. 
 
- "God, yesssssss," the MLF admitted, beginning to be overwhelmed by the submissive act and the pleasure that was now growing. 
+"God, yesssssss," the MLF admitted, beginning to be overwhelmed by the submissive act and the pleasure that was now growing. 
 
- Thankfully for the mother of one, the phone stopped ringing. 
+Thankfully for the mother of one, the phone stopped ringing. 
 
- "Too bad," Chloe purred, "I was about to have a little personal conversation with your daughter." 
+"Too bad," Chloe purred, "I was about to have a little personal conversation with your daughter." 
 
- 
+a-family-affair37.jpg] 
 
- a-family-affair37.jpg] 
+The mother was about to say something when the phone started ringing again. 
 
- The mother was about to say something when the phone started ringing again. 
+Chloe taking the second call as a sign, quickly took the strap-on off and ordered, "Spread your ass cheeks wide." 
 
- Chloe taking the second call as a sign, quickly took the strap-on off and ordered, "Spread your ass cheeks wide." 
+The horrified mother obeyed, feeling suddenly empty, and then involuntarily moaned as the plastic cock was shoved back in her ass. 
 
- The horrified mother obeyed, feeling suddenly empty, and then involuntarily moaned as the plastic cock was shoved back in her ass. 
+Chloe ordered, as she went to the purse and pulled out the phone, as if speaking to a real pet, "Stay!" 
 
- Chloe ordered, as she went to the purse and pulled out the phone, as if speaking to a real pet, "Stay!" 
+The mother sighed to herself, suddenly frustrated that she wasn't being fucked anymore and yet also petrified of what Chloe may say to her daughter. 
 
- The mother sighed to herself, suddenly frustrated that she wasn't being fucked anymore and yet also petrified of what Chloe may say to her daughter. 
+"Hello," Chloe greeted. "This is pet Pennington's phone. Sorry but she can't come to the phone at the moment as she is being sodomized by her Mistress." 
 
- "Hello," Chloe greeted. "This is pet Pennington's phone. Sorry but she can't come to the phone at the moment as she is being sodomized by her Mistress." 
+The mother gasped, as Chloe continued, "At the beep, press one to join her as a submissive slut, press two if you already are a submissive or press three if you would like to have pet Pennington as your own personal pet....Beep!" 
 
- The mother gasped, as Chloe continued, "At the beep, press one to join her as a submissive slut, press two if you already are a submissive or press three if you would like to have pet Pennington as your own personal pet....Beep!" 
+Chloe quickly hit speakerphone as Penelope asked, "Mom, Mom are you okay?" 
 
- Chloe quickly hit speakerphone as Penelope asked, "Mom, Mom are you okay?" 
+Chloe ordered, loud enough to allow Penelope to hear, "Fuck your ass, my slut." 
 
- Chloe ordered, loud enough to allow Penelope to hear, "Fuck your ass, my slut." 
+"Yes, Mistress," the humiliated, yet somehow even more horny, mom obeyed as she awkwardly reached back and began fucking her own ass. 
 
- "Yes, Mistress," the humiliated, yet somehow even more horny, mom obeyed as she awkwardly reached back and began fucking her own ass. 
+"Mom, Mom, is that you?" Penelope asked over the phone, clearly confused and concerned about her mother. When there was no answer, Penelope said, "I'm coming home, Mom." 
 
- "Mom, Mom, is that you?" Penelope asked over the phone, clearly confused and concerned about her mother. When there was no answer, Penelope said, "I'm coming home, Mom." 
+After Penelope hung up, Chloe ordered, "Get yourself off, my ass slut." 
 
- After Penelope hung up, Chloe ordered, "Get yourself off, my ass slut." 
+The order given, Mrs. Pennington rolled onto her back, and began to fuck her ass while simultaneously rubbing her pussy. Her eyes closed, she moaned, "Oh God, yes, so gooooooood." 
 
- The order given, Mrs. Pennington rolled onto her back, and began to fuck her ass while simultaneously rubbing her pussy. Her eyes closed, she moaned, "Oh God, yes, so gooooooood." 
+Chloe watched as the MILF fucked herself in her ass roughly, all the while knowing her daughter was on her way home. The power of a dominant to push her submissive past the point of caring about anything else than giving and receiving pleasure was the ultimate rush. 
 
- Chloe watched as the MILF fucked herself in her ass roughly, all the while knowing her daughter was on her way home. The power of a dominant to push her submissive past the point of caring about anything else than giving and receiving pleasure was the ultimate rush. 
+"Oh God, oh, oh, oh, fuck, fuck, shit, yes, yes, fucking yesssssss," the usually eloquent and soft spoken teacher babbled as her orgasm finally rushed through her. 
 
- "Oh God, oh, oh, oh, fuck, fuck, shit, yes, yes, fucking yesssssss," the usually eloquent and soft spoken teacher babbled as her orgasm finally rushed through her. 
+Chloe ordered, "You will stay on the floor rubbing yourself until your daughter gets home, is that clear?" 
 
- Chloe ordered, "You will stay on the floor rubbing yourself until your daughter gets home, is that clear?" 
+"Yes, Mistress," the humiliated, yet satisfied mom nodded as her orgasm continued coursing through her. 
 
- "Yes, Mistress," the humiliated, yet satisfied mom nodded as her orgasm continued coursing through her. 
+"I'm going to get going, but I will be here tomorrow morning to add your daughter to my collection of pets," Chloe said. 
 
- "I'm going to get going, but I will be here tomorrow morning to add your daughter to my collection of pets," Chloe said. 
+"Yes, Mistress," the mom nodded again, knowing now was not the time for any sort of bargaining or pleading. 
 
- "Yes, Mistress," the mom nodded again, knowing now was not the time for any sort of bargaining or pleading. 
+"I expect her ready to serve me when I arrive," Chloe added, liking the idea of a mother willingly sacrificing her daughter to her...that would be the ultimate accomplishment. 
 
- "I expect her ready to serve me when I arrive," Chloe added, liking the idea of a mother willingly sacrificing her daughter to her...that would be the ultimate accomplishment. 
+"How?" the mother asked, oddly not protesting but instead trying to find a feasible approach. 
 
- "How?" the mother asked, oddly not protesting but instead trying to find a feasible approach. 
+"I'll let you figure that out, my pet," Chloe shrugged. "Although I'm sure when she catches you in her room, pleasuring yourself the conversation opportunity will be there." 
 
- "I'll let you figure that out, my pet," Chloe shrugged. "Although I'm sure when she catches you in her room, pleasuring yourself the conversation opportunity will be there." 
+"Okay," the mother nodded, knowing nothing she said would change this conversation, though she really had no idea what she was going to say. 
 
- "Okay," the mother nodded, knowing nothing she said would change this conversation, though she really had no idea what she was going to say. 
+"Here's a vibrator if you want to have another orgasm," Chloe said, tossing her pet a vibrator she found in the night stand. 
 
- "Here's a vibrator if you want to have another orgasm," Chloe said, tossing her pet a vibrator she found in the night stand. 
+"Thank you, Mistress," she said, thinking she may need some double penetration to get off from now on, her recent orgasm more intense than any she could remember. 
 
- "Thank you, Mistress," she said, thinking she may need some double penetration to get off from now on, her recent orgasm more intense than any she could remember. 
+"Try fisting yourself while keeping that plug in your ass," Chloe added, feeling incredibly devious. 
 
- "Try fisting yourself while keeping that plug in your ass," Chloe added, feeling incredibly devious. 
+"Okay," the pet nodded, although unsure how she was going to do it. 
 
- "Okay," the pet nodded, although unsure how she was going to do it. 
+Chloe added, "And you may not get off the floor until you have a second orgasm." 
 
- Chloe added, "And you may not get off the floor until you have a second orgasm." 
+The Mom didn't like the second order, as multiple orgasms took forever for her to reach, but she nodded, "Yes, Mistress." 
 
- The Mom didn't like the second order, as multiple orgasms took forever for her to reach, but she nodded, "Yes, Mistress." 
+a-family-affair38.jpg] 
 
- 
+Chloe was about to leave when she heard the front door open and Penelope call out frantically, "Mom, Mom, where are you?" 
 
- a-family-affair38.jpg] 
+Chloe quickly went out and to the mother's bedroom, just a couple of seconds before Penelope rushed up the stairs. 
 
- Chloe was about to leave when she heard the front door open and Penelope call out frantically, "Mom, Mom, where are you?" 
+"Mom, Mom," she repeated. 
 
- Chloe quickly went out and to the mother's bedroom, just a couple of seconds before Penelope rushed up the stairs. 
+Mrs. Pennington weakly called out, "In your room." Even as she continued pleasuring herself, literally unable to disobey an order from her seductive teen Mistress. 
 
- "Mom, Mom," she repeated. 
+Chloe smiled and only wished she could see the look on the daughter's face when she walked into her own bedroom and saw her mother in such a compromising situation. 
 
- Mrs. Pennington weakly called out, "In your room." Even as she continued pleasuring herself, literally unable to disobey an order from her seductive teen Mistress. 
+Seconds later, Penelope gasped, "Mom!" 
 
- Chloe smiled and only wished she could see the look on the daughter's face when she walked into her own bedroom and saw her mother in such a compromising situation. 
+The still horny MILF was frantically trying to accomplish the second orgasm task, her whole hand now in her cunt, which simultaneously pushed the plug deeper into her asshole. 
 
- Seconds later, Penelope gasped, "Mom!" 
+"Sorrrrrrry, honeyyyy," the Mom apologized, while continuing to fist herself. 
 
- The still horny MILF was frantically trying to accomplish the second orgasm task, her whole hand now in her cunt, which simultaneously pushed the plug deeper into her asshole. 
+"What are you doing? Penelope asked, stunned by what she was witnessing. 
 
- "Sorrrrrrry, honeyyyy," the Mom apologized, while continuing to fist herself. 
+The Mom admitted, "Obeying my Mistress's order," deciding to just throw it all on the table, even as she wondered where Chloe had gone. 
 
- "What are you doing? Penelope asked, stunned by what she was witnessing. 
+"You have a Mistress?" Penelope asked, still unable to comprehend what she was watching. 
 
- The Mom admitted, "Obeying my Mistress's order," deciding to just throw it all on the table, even as she wondered where Chloe had gone. 
+"You do, too," the Mom moaned, hoping Chloe was still here and hearing her words. 
 
- "You have a Mistress?" Penelope asked, still unable to comprehend what she was watching. 
+Chloe silently snuck past the unique mother-daughter conversation with a wide smile on her face. 
 
- "You do, too," the Mom moaned, hoping Chloe was still here and hearing her words. 
+"What?" Penelope asked. 
 
- Chloe silently snuck past the unique mother-daughter conversation with a wide smile on her face. 
+"Mistress expects you to be ready to serve her when she comes here tomorrow," the Mom answered, while shamelessly pleasuring herself. 
 
- "What?" Penelope asked. 
+Chloe was out of ear shot for whatever Penelope said next. 
 
- "Mistress expects you to be ready to serve her when she comes here tomorrow," the Mom answered, while shamelessly pleasuring herself. 
+Smiling, she walked out hoping to add a new pet in the morning as she headed to a party to see her boyfriend and get a good pounding herself. 
 
- Chloe was out of ear shot for whatever Penelope said next. 
+...... 
 
- Smiling, she walked out hoping to add a new pet in the morning as she headed to a party to see her boyfriend and get a good pounding herself. 
+Next morning, Chloe texted her teacher pet: 
 
- ...... 
+I'm on my way. Is my newest pet ready? 
 
- Next morning, Chloe texted her teacher pet: 
+As Chloe began driving, her pet responded: 
 
- I'm on my way. Is my newest pet ready? 
+Yes, Mistress! 
 
- As Chloe began driving, her pet responded: 
+Chloe smiled, wondering what transpired after she left. Did they have a fight? Did Penelope take control of her mother? Did her teacher pet seduce her daughter? How was she so confident of her answer just now? 
 
- Yes, Mistress! 
+Have the door unlocked my teacher slut. 
 
- Chloe smiled, wondering what transpired after she left. Did they have a fight? Did Penelope take control of her mother? Did her teacher pet seduce her daughter? How was she so confident of her answer just now? 
+Not even thirty seconds later, the pet responded: 
 
- Have the door unlocked my teacher slut. 
+Of course, Mistress. 
 
- Not even thirty seconds later, the pet responded: 
+Chloe reached the house at 10:30 and walked right in. "Slut, where are you?" 
 
- Of course, Mistress. 
+"In the living room, Mistress," the Mom called back. 
 
- Chloe reached the house at 10:30 and walked right in. "Slut, where are you?" 
+Chloe walked in and was for once shocked by what she saw. Penelope was naked and tied up. 
 
- "In the living room, Mistress," the Mom called back. 
+"I've been training my daughter all night," the mother revealed, "but she is a stubborn one." 
 
- Chloe walked in and was for once shocked by what she saw. Penelope was naked and tied up. 
+"Very well done, my pet," Chloe said, as she got out of her clothes. 
 
- "I've been training my daughter all night," the mother revealed, "but she is a stubborn one." 
+"Please, no," Penelope pleaded, even though she couldn't see the person responsible for all this. Her mother had given her multiple orgasms last night after forcing her to pleasure her. Although she ended up enjoying last night, the thought of her mother giving her to another woman was humiliating and terrifying, even though she had agreed to it last night in the heat of the moment. 
 
- "Very well done, my pet," Chloe said, as she got out of her clothes. 
+Chloe quickly got out of her clothes and asked, "Where is the strap-on, my pet?" 
 
- "Please, no," Penelope pleaded, even though she couldn't see the person responsible for all this. Her mother had given her multiple orgasms last night after forcing her to pleasure her. Although she ended up enjoying last night, the thought of her mother giving her to another woman was humiliating and terrifying, even though she had agreed to it last night in the heat of the moment. 
+"I'll get it for you," the MILF pet immediately said, going to her daughter's room where she had left it after fucking her daughter to multiple orgasms. She couldn't explain it, she loved being submissive to Chloe and yet she felt the need to dominate her daughter, to have her own pussy pleaser. 
 
- Chloe quickly got out of her clothes and asked, "Where is the strap-on, my pet?" 
+Chloe asked, "So have you eaten your mother's cunt yet?" 
 
- "I'll get it for you," the MILF pet immediately said, going to her daughter's room where she had left it after fucking her daughter to multiple orgasms. She couldn't explain it, she loved being submissive to Chloe and yet she felt the need to dominate her daughter, to have her own pussy pleaser. 
+"Fuck you," Penelope shot back through tears. 
 
- Chloe asked, "So have you eaten your mother's cunt yet?" 
+Chloe loved the defiant bitch. They always were more fun to turn into submissive playthings. Chloe quipped, "That is the plan." 
 
- "Fuck you," Penelope shot back through tears. 
+"You're sick," Penelope said. 
 
- Chloe loved the defiant bitch. They always were more fun to turn into submissive playthings. Chloe quipped, "That is the plan." 
+"No argument there," Chloe agreed, "but I'm not the one who ate out her mother last night." 
 
- "You're sick," Penelope said. 
+"Mom made me," Penelope defended herself. 
 
- "No argument there," Chloe agreed, "but I'm not the one who ate out her mother last night." 
+"She forcefully pulled your tongue out of your mouth and shoved it into her cunt?" Chloe asked. 
 
- "Mom made me," Penelope defended herself. 
+Penelope was frustrated by this bitch's attitude, feeling completely vulnerable and frustratingly horny. 
 
- "She forcefully pulled your tongue out of your mouth and shoved it into her cunt?" Chloe asked. 
+Mrs. Pennington returned, "Do you want me to put it on you, Mistress?" 
 
- Penelope was frustrated by this bitch's attitude, feeling completely vulnerable and frustratingly horny. 
+"Do you want me to fuck your daughter?" Chloe asked. 
 
- Mrs. Pennington returned, "Do you want me to put it on you, Mistress?" 
+"She's your slut, Mistress," her submissive answered. 
 
- "Do you want me to fuck your daughter?" Chloe asked. 
+"Mother!" Penelope gasped, tears again streaming down her face. 
 
- "She's your slut, Mistress," her submissive answered. 
+"Shut up, slut." The firm mother ordered. "Last night you eagerly ate Mommy's cunt, eagerly took my cock up your fuck hole and declared yourself my pet." 
 
- "Mother!" Penelope gasped, tears again streaming down her face. 
+"Yes, your pet," Penelope struggled to get out. 
 
- "Shut up, slut." The firm mother ordered. "Last night you eagerly ate Mommy's cunt, eagerly took my cock up your fuck hole and declared yourself my pet." 
+"And I made it clear that as my pet, you would also be my Mistress's pet, did I not?" the Mom continued, as she put the strap-on on her Mistress. 
 
- "Yes, your pet," Penelope struggled to get out. 
+"Yes," Penelope whispered. 
 
- "And I made it clear that as my pet, you would also be my Mistress's pet, did I not?" the Mom continued, as she put the strap-on on her Mistress. 
+"Now any more disobedience and you will be punished," The Mom threatened. 
 
- "Yes," Penelope whispered. 
+The strap-on on, Chloe said, "And trust me my pet, you won't like the punishment, at least at first." 
 
- "Now any more disobedience and you will be punished," The Mom threatened. 
+The submissive MILF added, "But eventually you will love it." 
 
- The strap-on on, Chloe said, "And trust me my pet, you won't like the punishment, at least at first." 
+a-family-affair39.jpg] 
 
- The submissive MILF added, "But eventually you will love it." 
+Chloe ordered, "Now beg for me to fuck that sweet cunt of yours." 
 
- 
+"Please don't make me," Penelope pleaded, even as she felt the head of the cock teasing her pussy lips. 
 
- a-family-affair39.jpg] 
+"Oh, I won't make you, Penelope," Chloe said, "that is not my style." 
 
- Chloe ordered, "Now beg for me to fuck that sweet cunt of yours." 
+The Mom added, "We all know you want it, Penelope. You're just like your Mommy- slut, a submissive pussy pleaser." 
 
- "Please don't make me," Penelope pleaded, even as she felt the head of the cock teasing her pussy lips. 
+"Like mother, like daughter," Chloe added, rubbing her cock up and down the submissive-to-be's wet cunt. 
 
- "Oh, I won't make you, Penelope," Chloe said, "that is not my style." 
+Penelope was getting hornier from the cock rubbing her pussy lips and unexplainably also by her mother's dirty words. She had never once heard her mother swear before last night and now she had heard her use every swear word she knew. 
 
- The Mom added, "We all know you want it, Penelope. You're just like your Mommy- slut, a submissive pussy pleaser." 
+"Do you want this cock?" Chloe asked. 
 
- "Like mother, like daughter," Chloe added, rubbing her cock up and down the submissive-to-be's wet cunt. 
+Penelope didn't answer, even though she definitely wanted it. 
 
- Penelope was getting hornier from the cock rubbing her pussy lips and unexplainably also by her mother's dirty words. She had never once heard her mother swear before last night and now she had heard her use every swear word she knew. 
+Chloe asked, "Does Mommy-slut want it?" 
 
- "Do you want this cock?" Chloe asked. 
+"God, yes, Mistress," the mother eagerly answered. 
 
- Penelope didn't answer, even though she definitely wanted it. 
+"Bend over, slut, show your daughter how a good submissive obeys," Chloe ordered. 
 
- Chloe asked, "Does Mommy-slut want it?" 
+"Yes, Mistress," the MILF agreed, moving beside her daughter on the sofa and offering up both her lower fuck-holes. 
 
- "God, yes, Mistress," the mother eagerly answered. 
+Chloe moved away from the teen pet-to-be and in one hard thrust filled the mother's cunt. 
 
- "Bend over, slut, show your daughter how a good submissive obeys," Chloe ordered. 
+"Oh yes, Mistress, fuck your submissive fuck toy," the Mother moaned, wanting to put on a show of slutty obedience for her daughter. 
 
- "Yes, Mistress," the MILF agreed, moving beside her daughter on the sofa and offering up both her lower fuck-holes. 
+"Who owns this fuck hole?" Chloe asked. 
 
- Chloe moved away from the teen pet-to-be and in one hard thrust filled the mother's cunt. 
+"You do, Mistress," the mother declared, before adding a vulgar list of terms for her pussy, "you own my box, oh yes harder, my cunt, fuck yes, my hole, oh pound teacher's pussy, my twat, oh yes I love when you fuck me, my kitty." 
 
- "Oh yes, Mistress, fuck your submissive fuck toy," the Mother moaned, wanting to put on a show of slutty obedience for her daughter. 
+"And what about your ass?" Chloe continued, as she slammed into her hard and fast. 
 
- "Who owns this fuck hole?" Chloe asked. 
+"Oh yes, you own my shit hole, too," the mother declared. 
 
- "You do, Mistress," the mother declared, before adding a vulgar list of terms for her pussy, "you own my box, oh yes harder, my cunt, fuck yes, my hole, oh pound teacher's pussy, my twat, oh yes I love when you fuck me, my kitty." 
+"You take it in the ass?" Penelope asked, this somehow even adding to the shock of the past 12 plus hours. 
 
- "And what about your ass?" Chloe continued, as she slammed into her hard and fast. 
+"Oh yes, baby, I love it in my asshole," the Mom admitted. "All good sluts understand they have three holes available for their Mistress." 
 
- "Oh yes, you own my shit hole, too," the mother declared. 
+Penelope watched her Mom get fucked, listened to her mother's moans and her nasty words, stared at Chloe's amazing body. Her mind was mush as she tried to understand why she was so turned on, so wet. What she was witnessing was sick and twisted, what happened last night was sick, twisted and illegal and yet she couldn't pull her stare away. 
 
- "You take it in the ass?" Penelope asked, this somehow even adding to the shock of the past 12 plus hours. 
+Chloe pounded the mother for a couple of minutes before the MILF declared, "I'm close, Mistress. Can your teacher cum slut have an orgasm?" 
 
- "Oh yes, baby, I love it in my asshole," the Mom admitted. "All good sluts understand they have three holes available for their Mistress." 
+"In front of your daughter?" Chloe asked. 
 
- Penelope watched her Mom get fucked, listened to her mother's moans and her nasty words, stared at Chloe's amazing body. Her mind was mush as she tried to understand why she was so turned on, so wet. What she was witnessing was sick and twisted, what happened last night was sick, twisted and illegal and yet she couldn't pull her stare away. 
+"Yes. Penelope watch Mommy come, watch how good obedience can beeeeeee," the horny MILF babbled. 
 
- Chloe pounded the mother for a couple of minutes before the MILF declared, "I'm close, Mistress. Can your teacher cum slut have an orgasm?" 
+"Come now, my slut," Chloe ordered. 
 
- "In front of your daughter?" Chloe asked. 
+a-family-affair40.jpg] 
 
- "Yes. Penelope watch Mommy come, watch how good obedience can beeeeeee," the horny MILF babbled. 
+"Oh yes, thank yoooooooou," the mother screamed, as her orgasm instantly exploded through her the moment permission was given. 
 
- "Come now, my slut," Chloe ordered. 
+Chloe pulled out, took the strap-on off her waist, roughly pulled Penelope up and began rubbing her already wet pussy. "Why are you so wet?" 
 
- 
+"I don't know," the redhead struggled to answer, tears still running down her face even as she moaned at the touch of the strong-willed Mistress. 
 
- a-family-affair40.jpg] 
+"Do you want to be my pet too?" Chloe asked, continuing to rub the confused teen's pussy. 
 
- "Oh yes, thank yoooooooou," the mother screamed, as her orgasm instantly exploded through her the moment permission was given. 
+"I don't know," Penelope answered, unable to think clearly. 
 
- Chloe pulled out, took the strap-on off her waist, roughly pulled Penelope up and began rubbing her already wet pussy. "Why are you so wet?" 
+"It's really a simple yes or no question," Chloe whispered in the girl's ear. 
 
- "I don't know," the redhead struggled to answer, tears still running down her face even as she moaned at the touch of the strong-willed Mistress. 
+The hot breath on her always sensitive ear only enhanced the horniness and confusion in Penelope, mixed with the fingers rubbing her pussy she was ready to agree to almost anything. 
 
- "Do you want to be my pet too?" Chloe asked, continuing to rub the confused teen's pussy. 
+"Yes," the horny and ready to break redhead whispered, shame and excitement bouncing inside her. 
 
- "I don't know," Penelope answered, unable to think clearly. 
+"Yes, what?" Chloe asked, as she stopped rubbing her pet-to-be. 
 
- "It's really a simple yes or no question," Chloe whispered in the girl's ear. 
+"Yes, I want to be your pet," Penelope whispered. 
 
- The hot breath on her always sensitive ear only enhanced the horniness and confusion in Penelope, mixed with the fingers rubbing her pussy she was ready to agree to almost anything. 
+"And what does that mean?" Chloe questioned, resuming rubbing the pet's pussy. 
 
- "Yes," the horny and ready to break redhead whispered, shame and excitement bouncing inside her. 
+"I obey yooooooou," she moaned, making her unable to focus. 
 
- "Yes, what?" Chloe asked, as she stopped rubbing her pet-to-be. 
+"So you'll eat my cunt?" Chloe asked, her finger parting the pussy lips of her newest pet. 
 
- "Yes, I want to be your pet," Penelope whispered. 
+"Yessssss," Penelope moaned, willing to do almost anything to come. 
 
- "And what does that mean?" Chloe questioned, resuming rubbing the pet's pussy. 
+"And you'll take my cock in all three of your holes?" Chloe questioned, pushing the limits. 
 
- "I obey yooooooou," she moaned, making her unable to focus. 
+Penelope couldn't fathom having her ass fucked, yet she was too far gone in her desire to submit to say so. She nodded, sounding like her mother, "Yes, all three of my fuck-holes are yours to use." 
 
- "So you'll eat my cunt?" Chloe asked, her finger parting the pussy lips of her newest pet. 
+a-family-affair41.jpg] 
 
- "Yessssss," Penelope moaned, willing to do almost anything to come. 
+Chloe moved away, sat down, and ordered, "Come to me, my pet." 
 
- "And you'll take my cock in all three of your holes?" Chloe questioned, pushing the limits. 
+Penelope nervously moved to her, wanting her pussy touched again. 
 
- Penelope couldn't fathom having her ass fucked, yet she was too far gone in her desire to submit to say so. She nodded, sounding like her mother, "Yes, all three of my fuck-holes are yours to use." 
+"Beg to lick my cunt," Chloe ordered. 
 
- 
+Penelope had begged to eat her mother while in the heat of the moment, and did the same thing again, "Please let me lick your cunt, Mistress." 
 
- a-family-affair41.jpg] 
+Chloe smiled as she watched another pet join the fold. "Go ahead, my pet, join your mother as one of my full-service sluts." 
 
- Chloe moved away, sat down, and ordered, "Come to me, my pet." 
+Penelope didn't like having her mother referenced, but she leaned forward and began licking. Her taste was different than her mother's and once she had one taste she wanted more. She began licking hungrily, wanting to get the full flood of her Mistress's pussy juice. 
 
- Penelope nervously moved to her, wanting her pussy touched again. 
+Chloe, horny as hell, winked at the mother. 
 
- "Beg to lick my cunt," Chloe ordered. 
+Mrs. Pennington watched her daughter submit with a mixture of emotions. She felt guilty at the implicit role she had played in turning her daughter into a cunt munching submissive, yet she also felt pride at her daughter following in her footsteps. 
 
- Penelope had begged to eat her mother while in the heat of the moment, and did the same thing again, "Please let me lick your cunt, Mistress." 
+In only a couple of minutes, Chloe felt her orgasm rising and flooded her pussy juice all over her newest pet's face. 
 
- Chloe smiled as she watched another pet join the fold. "Go ahead, my pet, join your mother as one of my full-service sluts." 
+Penelope eagerly lapped up the juices of her Mistress, wanting to savor every drop of her Mistress's tantalizing taste. 
 
- Penelope didn't like having her mother referenced, but she leaned forward and began licking. Her taste was different than her mother's and once she had one taste she wanted more. She began licking hungrily, wanting to get the full flood of her Mistress's pussy juice. 
+"Lay down, my pet," Chloe ordered, pushing her away, "time to reward my pet." 
 
- Chloe, horny as hell, winked at the mother. 
+"Yes, Mistress," Penelope eagerly agreed, no more doubts left about her sexual submission to the powerful seductress. 
 
- Mrs. Pennington watched her daughter submit with a mixture of emotions. She felt guilty at the implicit role she had played in turning her daughter into a cunt munching submissive, yet she also felt pride at her daughter following in her footsteps. 
+Chloe put the strap-on back on, and asked, as she moved to her adorably cute pet, "Does my pet want to get fucked?" 
 
- In only a couple of minutes, Chloe felt her orgasm rising and flooded her pussy juice all over her newest pet's face. 
+"So fucking baddddd," Penelope moaned, as the big plastic cock rubbed up and down her wet glistening pussy lips. 
 
- Penelope eagerly lapped up the juices of her Mistress, wanting to savor every drop of her Mistress's tantalizing taste. 
+"What are you?" Chloe asked. 
 
- "Lay down, my pet," Chloe ordered, pushing her away, "time to reward my pet." 
+"Your slut," she moaned. 
 
- "Yes, Mistress," Penelope eagerly agreed, no more doubts left about her sexual submission to the powerful seductress. 
+"And?" Chloe continued, the toy cock parting her pet's lips. 
 
- Chloe put the strap-on back on, and asked, as she moved to her adorably cute pet, "Does my pet want to get fucked?" 
+"Your pet," the pet whimpered. 
 
- "So fucking baddddd," Penelope moaned, as the big plastic cock rubbed up and down her wet glistening pussy lips. 
+"And?" Chloe questioned, pushing forward slightly, the tip of the plastic cock penetrating her whimpering slut. 
 
- "What are you?" Chloe asked. 
+"Your slaaaaaaaaaave," Penelope declared. 
 
- "Your slut," she moaned. 
+Chloe slid the entire cock deep into her new slut and began roughly fucking her. 
 
- "And?" Chloe continued, the toy cock parting her pet's lips. 
+"Oh yesssssss," Penelope moaned loudly. Her pussy had been on fire forever it seemed and she had never wanted to be fucked more in her life. 
 
- "Your pet," the pet whimpered. 
+Mrs. Pennington, horny as hell at watching her daughter submit, began rubbing herself. 
 
- "And?" Chloe questioned, pushing forward slightly, the tip of the plastic cock penetrating her whimpering slut. 
+Chloe, noticing her older pet rubbing herself, ordered, "Is Mommy-slut enjoying watching her only daughter be used like a fuck-toy?" 
 
- "Your slaaaaaaaaaave," Penelope declared. 
+"Yes, Mistress," the mother moaned. 
 
- Chloe slid the entire cock deep into her new slut and began roughly fucking her. 
+a-family-affair42.jpg] 
 
- "Oh yesssssss," Penelope moaned loudly. Her pussy had been on fire forever it seemed and she had never wanted to be fucked more in her life. 
+Chloe continued fucking her newest pet as she ordered, "Come straddle your daughter's face." 
 
- Mrs. Pennington, horny as hell at watching her daughter submit, began rubbing herself. 
+"Thank you, Mistress," the horny mother replied, quickly making the lesbian twosome a threesome. 
 
- Chloe, noticing her older pet rubbing herself, ordered, "Is Mommy-slut enjoying watching her only daughter be used like a fuck-toy?" 
+"Munch on your mother's cunt, my pet," Chloe ordered. 
 
- "Yes, Mistress," the mother moaned. 
+"Yes, Mistress," Penelope moaned, as her mother's cunt was suddenly on her face. 
 
- 
+For a few minutes there was only sex. A Mistress fucking her pet; a daughter eating from the loins that she had once come out of; and a mother enjoying the thrill of submitting to her Mistress while simultaneously getting her own pet. 
 
- a-family-affair42.jpg] 
+Finally, the mother and daughter reached orgasmic bliss at the same time. 
 
- Chloe continued fucking her newest pet as she ordered, "Come straddle your daughter's face." 
+Chloe pulled out of her pet and said, "I have a 12:30 pedicure, you two play for as long as you want." 
 
- "Thank you, Mistress," the horny mother replied, quickly making the lesbian twosome a threesome. 
+"Yes, Mistress," they both said in unison, as they pulled into a warm embrace and kissed passionately not as mother and daughter, but as two lovers. 
 
- "Munch on your mother's cunt, my pet," Chloe ordered. 
+..... 
 
- "Yes, Mistress," Penelope moaned, as her mother's cunt was suddenly on her face. 
+Chloe added a couple more pets to her collection before the pivotal upcoming Nude Day. 
 
- For a few minutes there was only sex. A Mistress fucking her pet; a daughter eating from the loins that she had once come out of; and a mother enjoying the thrill of submitting to her Mistress while simultaneously getting her own pet. 
+She added a sexy professor she met a few days later while on a college tour. Chloe was learning that she not only exuded confidence, but was also able to somehow draw straight women to her. 
 
- Finally, the mother and daughter reached orgasmic bliss at the same time. 
+After a ten minute conversation about the school, while Chloe flirted slyly, the professor offered to give her a personal tour when it started to rain. 
 
- Chloe pulled out of her pet and said, "I have a 12:30 pedicure, you two play for as long as you want." 
+After fifteen minutes of a generic tour, the professor said she needed to go to her office for a minute. 
 
- "Yes, Mistress," they both said in unison, as they pulled into a warm embrace and kissed passionately not as mother and daughter, but as two lovers. 
+a-family-affair43.jpg] 
 
- ..... 
+It ended up being about 45 minutes by the time Chloe was done training the sexy professor in the art of eating pussy and finger-fucking. 
 
- Chloe added a couple more pets to her collection before the pivotal upcoming Nude Day. 
+Then that night, they spent a couple more hours together as Chloe introduced the professor to a strap-on fucking first her cunt and then taking the professor's virgin ass in her house while her husband was out playing poker with buddies. 
 
- She added a sexy professor she met a few days later while on a college tour. Chloe was learning that she not only exuded confidence, but was also able to somehow draw straight women to her. 
+Chloe quipped, as she fucked her newest pet, "While they play poker, we'll play poke her." 
 
- After a ten minute conversation about the school, while Chloe flirted slyly, the professor offered to give her a personal tour when it started to rain. 
+The professor moaned, "I thought I had a straight." 
 
- After fifteen minutes of a generic tour, the professor said she needed to go to her office for a minute. 
+Chloe laughed, "It seems instead you had a full house," as she pounded the professor's ass. 
 
- 
+By the end of the night, Chloe had not only a new pet, but a promise that the professor would find a way to get her a full-ride scholarship to the school. 
 
- a-family-affair43.jpg] 
+Chloe also added a woman she met while in line at the DMV. 
 
- It ended up being about 45 minutes by the time Chloe was done training the sexy professor in the art of eating pussy and finger-fucking. 
-
- Then that night, they spent a couple more hours together as Chloe introduced the professor to a strap-on fucking first her cunt and then taking the professor's virgin ass in her house while her husband was out playing poker with buddies. 
-
- Chloe quipped, as she fucked her newest pet, "While they play poker, we'll play poke her." 
-
- The professor moaned, "I thought I had a straight." 
-
- Chloe laughed, "It seems instead you had a full house," as she pounded the professor's ass. 
-
- By the end of the night, Chloe had not only a new pet, but a promise that the professor would find a way to get her a full-ride scholarship to the school. 
-
- Chloe also added a woman she met while in line at the DMV. 
-
- A few minutes of chit-chat while in the snail-like line, Chloe found herself another straight but easy to seduce older MILF. The mother of four, who felt completely neglected by her husband, was an easy target and once they both eventually made their way through the DMV line, they made a straight line to the MILF's home where the mother learned the fine art of eating cunt.  
-
- 
-
- 
+A few minutes of chit-chat while in the snail-like line, Chloe found herself another straight but easy to seduce older MILF. The mother of four, who felt completely neglected by her husband, was an easy target and once they both eventually made their way through the DMV line, they made a straight line to the MILF's home where the mother learned the fine art of eating cunt.  
 
 ===
 
- a-family-affair44.jpg] 
+a-family-affair44.jpg] 
 
- And licking asshole. 
+And licking asshole. 
 
- And taking a strap-on in her cunt. 
+And taking a strap-on in her cunt. 
 
- And in her ass. 
+And in her ass. 
 
- And having multiple orgasms. 
+And having multiple orgasms. 
 
- And eating cunt some more. 
+And eating cunt some more. 
 
- Chloe finished her two week sex-fest with a fun role play session with her best friend's mom, Sally. Although not a new addition, Sally had been one of her first lesbian MILF seductions once she discovered the thrill of being a dominant, she was a regular. This time, feeling submissive and playful, she actually played the sexy submissive fulfilling the MILF pet's Star Wars lesbian fantasy. 
+Chloe finished her two week sex-fest with a fun role play session with her best friend's mom, Sally. Although not a new addition, Sally had been one of her first lesbian MILF seductions once she discovered the thrill of being a dominant, she was a regular. This time, feeling submissive and playful, she actually played the sexy submissive fulfilling the MILF pet's Star Wars lesbian fantasy. 
 
- She had called her MILF pet and ordered, "Leave work now, I'm on my way to your house." 
+She had called her MILF pet and ordered, "Leave work now, I'm on my way to your house." 
 
- "I'm in the middle of a meeting," Sally pointed out. 
+"I'm in the middle of a meeting," Sally pointed out. 
 
- "Now, slut," Chloe ordered and hung up. Sally always made an excuse when she was beckoned, yet she always ended up coming. The threat of no longer being allowed to serve the teen goddess always enough to make her find a way. 
+"Now, slut," Chloe ordered and hung up. Sally always made an excuse when she was beckoned, yet she always ended up coming. The threat of no longer being allowed to serve the teen goddess always enough to make her find a way. 
 
- Chloe arrived before her MILF pet, but had a key and went inside and got undressed and in costume, which was pretty much naked but with an iconic hairdo. 
+Chloe arrived before her MILF pet, but had a key and went inside and got undressed and in costume, which was pretty much naked but with an iconic hairdo. 
 
- Sally walked into the room and gasped. 
+Sally walked into the room and gasped. 
 
- Chloe smiled, "Was it worth leaving work for?" 
+Chloe smiled, "Was it worth leaving work for?" 
 
- "Yes, Mistress," Sally nodded. 
+"Yes, Mistress," Sally nodded. 
 
- "I'm feeling naughty today," Chloe smiled. "Why don't you come and get my ass ready for this special light sabre?" 
+"I'm feeling naughty today," Chloe smiled. "Why don't you come and get my ass ready for this special light sabre?" 
 
- "Hmmmmm," the instantly horny MILF moaned. 
+"Hmmmmm," the instantly horny MILF moaned. 
 
- Chloe got ass-fucked good, before returning the favour to her blonde pet. 
+Chloe got ass-fucked good, before returning the favour to her blonde pet. 
 
- 
+a-family-affair45.jpg] 
 
- a-family-affair45.jpg] 
+As Nude Day approached, the anticipation of finally taking control of the household by domming her mother consumed her thoughts. 
 
- As Nude Day approached, the anticipation of finally taking control of the household by domming her mother consumed her thoughts. 
+6._AMANDA_SEDUCES_A_MILF 
 
- 6._AMANDA_SEDUCES_A_MILF 
+Amanda had become cunt crazy after her submission to her mother and sister almost a year ago. She craved the feeling of submission, she craved the taste of pussy and loved eating new cunt for the first time, as she found each pussy's taste, although similar, slightly different. 
 
- Amanda had become cunt crazy after her submission to her mother and sister almost a year ago. She craved the feeling of submission, she craved the taste of pussy and loved eating new cunt for the first time, as she found each pussy's taste, although similar, slightly different. 
+Her sister had offered her up to a few of her cheerleader teammates over the year and although Amanda loved serving each and every one of them she had become particularly fond of Sarah. Unlike the other cheerleaders, Sarah cold be both naughty and sweet. 
 
- Her sister had offered her up to a few of her cheerleader teammates over the year and although Amanda loved serving each and every one of them she had become particularly fond of Sarah. Unlike the other cheerleaders, Sarah cold be both naughty and sweet. 
+Amanda recalled the first time she tasted Sarah, during a crazy evening where she ate five of the cheerleaders in one evening....Sarah being the last. 
 
- Amanda recalled the first time she tasted Sarah, during a crazy evening where she ate five of the cheerleaders in one evening....Sarah being the last. 
+a-family-affair46.jpg] 
 
- 
+The moment she tasted Sarah's cunt she knew there was something different about it. Just a subtle difference in taste that made her crave it ever since. 
 
- a-family-affair46.jpg] 
+Even as Ariel called Amanda names, Sarah just enjoyed the lesbian's expert tongue. 
 
- The moment she tasted Sarah's cunt she knew there was something different about it. Just a subtle difference in taste that made her crave it ever since. 
+Amanda spent an eternity between Sarah's legs not wanting the moment to end. 
 
- Even as Ariel called Amanda names, Sarah just enjoyed the lesbian's expert tongue. 
+Of course, it did, and Amanda tried to find ways to get back between Sarah's legs. 
 
- Amanda spent an eternity between Sarah's legs not wanting the moment to end. 
+Over time Amanda often found herself between Sarah's legs. 
 
- Of course, it did, and Amanda tried to find ways to get back between Sarah's legs. 
+Although Sarah was a lot gentler than the other cheerleaders, she had a wild side to her. 
 
- Over time Amanda often found herself between Sarah's legs. 
+Sarah liked to fuck in public, the thrill of getting caught somehow always getting her more excited. 
 
- Although Sarah was a lot gentler than the other cheerleaders, she had a wild side to her. 
+At first, Amanda hated the outdoor sex. The idea of getting caught and her good girl reputation being shattered always terrified her. Yet, her growing crush on Sarah and her inability to say no meant that she always ended up doing what she was told, risks be damned. 
 
- Sarah liked to fuck in public, the thrill of getting caught somehow always getting her more excited. 
+Plus, truth be told, she would do anything to get a taste of Sarah's divine cunt and Sarah would do almost anything to have Amanda between her legs. 
 
- At first, Amanda hated the outdoor sex. The idea of getting caught and her good girl reputation being shattered always terrified her. Yet, her growing crush on Sarah and her inability to say no meant that she always ended up doing what she was told, risks be damned. 
+It was while pleasuring Sarah in her backyard in the middle of the day, when their relationship took a change from just sex to something more. 
 
- Plus, truth be told, she would do anything to get a taste of Sarah's divine cunt and Sarah would do almost anything to have Amanda between her legs. 
+Amanda was slowly pleasing Sarah when Sarah asked, "Do you want to go to the mall this weekend?" 
 
- It was while pleasuring Sarah in her backyard in the middle of the day, when their relationship took a change from just sex to something more. 
+Amanda was surprised by the question, their relationship had mostly been Amanda lick, Sarah come....although there was no doubt there was some unspoken tension between the two. 
 
- Amanda was slowly pleasing Sarah when Sarah asked, "Do you want to go to the mall this weekend?" 
+Sarah definitely was falling for Amanda; besides being amazing at licking pussy, she was thoughtful, funny and smart...and completely different from the guys she dated and the girls she hung around with. 
 
- Amanda was surprised by the question, their relationship had mostly been Amanda lick, Sarah come....although there was no doubt there was some unspoken tension between the two. 
+a-family-affair47.jpg] 
 
- Sarah definitely was falling for Amanda; besides being amazing at licking pussy, she was thoughtful, funny and smart...and completely different from the guys she dated and the girls she hung around with. 
+"I'd love to," Amanda agreed, as she kept licking her favourite pussy. 
 
- 
+After the first trip to the mall, Sarah and Amanda, unknown to everyone else, started hanging out together a lot. They went shopping together (and Amanda licked Sarah's cunt in a Victoria's Secret changing room); they went to the movies (where Amanda was finger fucked to orgasm in a full theatre one time and Amanda ate Sarah to climax in an almost empty theatre another time); they started to have feelings for each other. 
 
- a-family-affair47.jpg] 
+They also started spending time at Sarah's house, where the relationship changed to a much more mutual one where Sarah just as regularly pleasured Amanda as Amanda did Sarah. 
 
- "I'd love to," Amanda agreed, as she kept licking her favourite pussy. 
+Sarah really got off on having sex in her room when her parents were home. The idea of either her father or mother walking in on them turned her on greatly. It terrified Amanda, but she was head over heels for Sarah and would do anything she was asked. 
 
- After the first trip to the mall, Sarah and Amanda, unknown to everyone else, started hanging out together a lot. They went shopping together (and Amanda licked Sarah's cunt in a Victoria's Secret changing room); they went to the movies (where Amanda was finger fucked to orgasm in a full theatre one time and Amanda ate Sarah to climax in an almost empty theatre another time); they started to have feelings for each other. 
+Amanda was at a sleepover at Sarah's house when she admitted, "Mom is challenging me to seduce someone before Nude Day." 
 
- They also started spending time at Sarah's house, where the relationship changed to a much more mutual one where Sarah just as regularly pleasured Amanda as Amanda did Sarah. 
+"Every day is Nude Day," Sarah countered. 
 
- Sarah really got off on having sex in her room when her parents were home. The idea of either her father or mother walking in on them turned her on greatly. It terrified Amanda, but she was head over heels for Sarah and would do anything she was asked. 
+Amanda smiled, "With you it is." 
 
- Amanda was at a sleepover at Sarah's house when she admitted, "Mom is challenging me to seduce someone before Nude Day." 
+The two began kissing, which led to hands roaming, which led to their heads buried between each other's legs in a sweaty sixty-nine. 
 
- "Every day is Nude Day," Sarah countered. 
+The sex was hot, sweaty and wild and they ended up rolling off the bed and onto the floor. 
 
- Amanda smiled, "With you it is." 
+Neither of them heard Sarah's mother declare she was home; neither heard Sarah's mother call out Sarah's name; and neither heard Sarah's mother open the door. 
 
- The two began kissing, which led to hands roaming, which led to their heads buried between each other's legs in a sweaty sixty-nine. 
+a-family-affair48.jpg] 
 
- The sex was hot, sweaty and wild and they ended up rolling off the bed and onto the floor. 
+They did, however, hear the gasp, just as both teen girl's reached simultaneous orgasms. 
 
- Neither of them heard Sarah's mother declare she was home; neither heard Sarah's mother call out Sarah's name; and neither heard Sarah's mother open the door. 
+Sarah's mother had wondered if her daughter and Amanda were more than friends and seeing the two of them entangled in-between each other's legs confirmed her suspicions. She stammered, "S-s-sorry," and quickly jettisoned out. 
 
- 
+Amanda was mortified at getting caught, while Sarah came up with a devious idea. 
 
- a-family-affair48.jpg] 
+Amanda repeated frantically, "Oh my God, oh my God, oh my God." 
 
- They did, however, hear the gasp, just as both teen girl's reached simultaneous orgasms. 
+"That's just what I was saying a few seconds ago when your tongue was fucking my cunt," Sarah teased. 
 
- Sarah's mother had wondered if her daughter and Amanda were more than friends and seeing the two of them entangled in-between each other's legs confirmed her suspicions. She stammered, "S-s-sorry," and quickly jettisoned out. 
+"What are we going to do?" Amanda said. 
 
- Amanda was mortified at getting caught, while Sarah came up with a devious idea. 
+"First, relax," Sarah instructed. "Second, get dressed. I have an idea how to kill two birds with one stone." 
 
- Amanda repeated frantically, "Oh my God, oh my God, oh my God." 
+"O-o-okay," Amanda stammered, completely horrified to be caught in such an act. 
 
- "That's just what I was saying a few seconds ago when your tongue was fucking my cunt," Sarah teased. 
+Back on the bed, and dressed, Sarah said, "So you need to seduce a MILF before Nude Day." 
 
- "What are we going to do?" Amanda said. 
+"Yes," Amanda nodded, not catching on to her lover's plan yet. 
 
- "First, relax," Sarah instructed. "Second, get dressed. I have an idea how to kill two birds with one stone." 
+"My Mom is a MILF," Sarah pointed out. 
 
- "O-o-okay," Amanda stammered, completely horrified to be caught in such an act. 
+"You're not serious," Amanda questioned. 
 
- Back on the bed, and dressed, Sarah said, "So you need to seduce a MILF before Nude Day." 
+"Deadly." Sarah nodded. "Ever since I learned that you have sex with your mother, it has been constantly in my head." 
 
- "Yes," Amanda nodded, not catching on to her lover's plan yet. 
+a-family-affair49.jpg] 
 
- "My Mom is a MILF," Sarah pointed out. 
+"Really?" Amanda asked. 
 
- "You're not serious," Amanda questioned. 
+"Sure," Sarah shrugged, "Although I want to be in charge." 
 
- "Deadly." Sarah nodded. "Ever since I learned that you have sex with your mother, it has been constantly in my head." 
+"What about your Dad?" Amanda asked. 
 
- 
+"Golf tournament," Sarah answered, before leaning in and whispering, her tone dripping with sexiness, "Now go and fuck my Mom." 
 
- a-family-affair49.jpg] 
+"Oh God," Amanda whimpered, the idea so naughty, so hot and yet so scary. 
 
- "Really?" Amanda asked. 
+"Now, sexy," Sarah ordered. 
 
- "Sure," Sarah shrugged, "Although I want to be in charge." 
+"I don't know," Amanda said, unsure what to do, or how to do it. She was used to just being told who to please, not actually seducing someone. 
 
- "What about your Dad?" Amanda asked. 
+Sarah tugged on Amanda's ear, "Will you do it for me?" 
 
- "Golf tournament," Sarah answered, before leaning in and whispering, her tone dripping with sexiness, "Now go and fuck my Mom." 
+"Yes," Amanda nodded, unable to say no to Sarah....ever. Standing up with trepidation, she said, "Well, here goes everything." 
 
- "Oh God," Amanda whimpered, the idea so naughty, so hot and yet so scary. 
+Meanwhile, Sarah's mother's head was spinning. Although the fact her daughter was a lesbian or at least bi wasn't that big a surprise, the wetness in her panties was. Somehow witnessing the two teenagers in the throes of passion had gotten her incredible excited. 
 
- "Now, sexy," Sarah ordered. 
+Deciding to cool herself down, she went to have a shower. 
 
- "I don't know," Amanda said, unsure what to do, or how to do it. She was used to just being told who to please, not actually seducing someone. 
+As she lathered up her body, the image of her daughter and Amanda with their heads buried in each other's pussies wouldn't leave and she began to use the shower head for a much different use than it was intended for, while simultaneously lathering herself up with the other. 
 
- Sarah tugged on Amanda's ear, "Will you do it for me?" 
+As she closed her eyes and enjoyed the powerful water pressure of the shower head, she imagined that it was her buried between Amanda's legs. She hadn't been with a woman since college, but those memories came flooding back, literally, as she tried to get herself off in the shower. 
 
- "Yes," Amanda nodded, unable to say no to Sarah....ever. Standing up with trepidation, she said, "Well, here goes everything." 
+a-family-affair50.jpg] 
 
- Meanwhile, Sarah's mother's head was spinning. Although the fact her daughter was a lesbian or at least bi wasn't that big a surprise, the wetness in her panties was. Somehow witnessing the two teenagers in the throes of passion had gotten her incredible excited. 
+Amanda heard the shower running and slowly snuck into the bathroom, incredibly nervous. She wanted to obey Sarah, yet she was frozen in her tracks, paralyzed with indecision. 
 
- Deciding to cool herself down, she went to have a shower. 
+It was then that Mrs. Borden, Sarah's mother, accidentally gave Amanda the confidence she needed. 
 
- As she lathered up her body, the image of her daughter and Amanda with their heads buried in each other's pussies wouldn't leave and she began to use the shower head for a much different use than it was intended for, while simultaneously lathering herself up with the other. 
+The mother was getting closer to orgasm, the water pressure stimulating her, when she moaned, imagining being between the young blonde's legs, "Oh yes, Amanda, I love your sweet cunt." 
 
- As she closed her eyes and enjoyed the powerful water pressure of the shower head, she imagined that it was her buried between Amanda's legs. She hadn't been with a woman since college, but those memories came flooding back, literally, as she tried to get herself off in the shower. 
+Amanda smiled, and moved to the shower curtain which was slightly open to get a better look, now feeling confident with the task she was about to complete. 
 
- 
+Mrs. Borden, who was the submissive in her college lesbian relationship with her older roommate continued her fantasy, as her orgasm built, "Oh yes, Amanda, I'll be your pussy pleasing slut. I don't care if my daughter is in the other room." 
 
- a-family-affair50.jpg] 
+Amanda smiled at the irony of her words, since her daughter was indeed just in the other room and she was about to indeed be a pussy pleasing slut. 
 
- Amanda heard the shower running and slowly snuck into the bathroom, incredibly nervous. She wanted to obey Sarah, yet she was frozen in her tracks, paralyzed with indecision. 
+"Oh God, I want your cunt so badddddd," Mrs. Borden moaned to herself, the fantasy so vivid in her head. 
 
- It was then that Mrs. Borden, Sarah's mother, accidentally gave Amanda the confidence she needed. 
+"How bad?" Amanda asked, walking into the shower with her. 
 
- The mother was getting closer to orgasm, the water pressure stimulating her, when she moaned, imagining being between the young blonde's legs, "Oh yes, Amanda, I love your sweet cunt." 
+a-family-affair51.jpg] 
 
- Amanda smiled, and moved to the shower curtain which was slightly open to get a better look, now feeling confident with the task she was about to complete. 
+The surprised MILF gasped, dropping the shower head. "A-A-Amanda!" 
 
- Mrs. Borden, who was the submissive in her college lesbian relationship with her older roommate continued her fantasy, as her orgasm built, "Oh yes, Amanda, I'll be your pussy pleasing slut. I don't care if my daughter is in the other room." 
+"So you want to be my pussy pleasing slut," Amanda purred, moving her arms around the wet MILF. 
 
- Amanda smiled at the irony of her words, since her daughter was indeed just in the other room and she was about to indeed be a pussy pleasing slut. 
+"Oh God, I can't believe you heard that," the mortified mother said. 
 
- "Oh God, I want your cunt so badddddd," Mrs. Borden moaned to herself, the fantasy so vivid in her head. 
+"Is it true?" Amanda asked, moving her hands up and cupping the MLF's firm breasts. "Your nipples say it is." 
 
- "How bad?" Amanda asked, walking into the shower with her. 
+"Oh Godddddd," Mrs. Borden trembled, the young girl's touch sending electric shocks of pleasure through her entire body. 
 
- 
+"Is that a yes," Amanda purred into the Mother's ear, as she pinched her nipples. 
 
- a-family-affair51.jpg] 
+"Sarah is in the other room," the MILF pointed out. 
 
- The surprised MILF gasped, dropping the shower head. "A-A-Amanda!" 
+"Yes, she is, but I recall you saying you didn't care just a moment ago," Amanda pointed out. 
 
- "So you want to be my pussy pleasing slut," Amanda purred, moving her arms around the wet MILF. 
+"But that was just fantasy," she countered. 
 
- "Oh God, I can't believe you heard that," the mortified mother said. 
+"And this is reality," Amanda replied, turning the MILF around and kissing her. 
 
- "Is it true?" Amanda asked, moving her hands up and cupping the MLF's firm breasts. "Your nipples say it is." 
+The MILF was still in shock, yet she melted into the teen's body as their tongues began exploring each other's mouths. 
 
- "Oh Godddddd," Mrs. Borden trembled, the young girl's touch sending electric shocks of pleasure through her entire body. 
+Amanda purred, when she broke the kiss, "You seem to have gotten me all wet." After a pause, as she took off her clothes, "And I mean that figuratively and literally." 
 
- "Is that a yes," Amanda purred into the Mother's ear, as she pinched her nipples. 
+The stunned mother watched her daughter's friend (girlfriend maybe?), get naked. 
 
- "Sarah is in the other room," the MILF pointed out. 
+Amanda leaned around and shut the shower off and ordered, "Come with me." 
 
- "Yes, she is, but I recall you saying you didn't care just a moment ago," Amanda pointed out. 
+The dazed MILF followed, entranced by the body, the words and the situation. 
 
- "But that was just fantasy," she countered. 
+Amanda sat on the closed toilet seat, spread her legs and ordered, "Come make your fantasy a reality, Mrs. Borden," 
 
- "And this is reality," Amanda replied, turning the MILF around and kissing her. 
+The mother paused briefly, knowing her daughter was nearby and knowing that this was her daughter's friend and yet that knowledge meant nothing as she stared at the gorgeous shaved cunt being offered to her. 
 
- The MILF was still in shock, yet she melted into the teen's body as their tongues began exploring each other's mouths. 
+a-family-affair52.jpg] 
 
- Amanda purred, when she broke the kiss, "You seem to have gotten me all wet." After a pause, as she took off her clothes, "And I mean that figuratively and literally." 
+The mother walked the few steps, dropped to her knees and extended her tongue. 
 
- The stunned mother watched her daughter's friend (girlfriend maybe?), get naked. 
+A chill went up the spine of first time seductress, having never been on the receiving end of a submission. She smiled, excited that she would have a story to tell on Nude Day. 
 
- Amanda leaned around and shut the shower off and ordered, "Come with me." 
+The mother had forgotten just how good a cunt tasted and after just one lick it all came flooding back. She lapped eagerly, exploring the blonde teen's ripe cunt, immediately thinking she should shave her pussy too. 
 
- The dazed MILF followed, entranced by the body, the words and the situation. 
+Amanda moaned at the mother's licking tongue, but having just come at the hands of the mother's daughter she knew this was going to take a while. So after a couple of minutes of slow teasing pleasure, Amanda ordered, "Let's go to your room." 
 
- Amanda sat on the closed toilet seat, spread her legs and ordered, "Come make your fantasy a reality, Mrs. Borden," 
+"Okay," the MLF nodded, somewhat disappointed at having to stop what she was doing, but eager to obey the adorably cute blonde. Thankfully, she had an adjacent door from the bathroom to her bedroom and wouldn't have to accidentally bump into her daughter. 
 
- The mother paused briefly, knowing her daughter was nearby and knowing that this was her daughter's friend and yet that knowledge meant nothing as she stared at the gorgeous shaved cunt being offered to her. 
+Her daughter; 'Did Sarah know what's going on?' the mother pondered, or was this shy sweet girl just taking the initiative on her own? As she reached her bed, she assumed that her strong-willed, devious daughter had set this up. And if that was true, what was her daughter's end game? 
 
- 
+These thoughts were pushed out of her head as Amanda playfully pushed the mother onto the bed and climbed on top of her. 
 
- a-family-affair52.jpg] 
+"Mrs. Borden, you are as hot as your daughter," Amanda said, unable to be a verbal dominant like her mother, sister or even Sarah. 
 
- The mother walked the few steps, dropped to her knees and extended her tongue. 
+a-family-affair53.jpg] 
 
- A chill went up the spine of first time seductress, having never been on the receiving end of a submission. She smiled, excited that she would have a story to tell on Nude Day. 
+"Thank you," the mother trembled at the young girl's touch, anticipation of whatever was about to happen driving her wild. 
 
- The mother had forgotten just how good a cunt tasted and after just one lick it all came flooding back. She lapped eagerly, exploring the blonde teen's ripe cunt, immediately thinking she should shave her pussy too. 
+Amanda leaned in and kissed Mrs. Borden again, this time their naked breasts were crushed together as they passionately, but slowly, kissed. 
 
- Amanda moaned at the mother's licking tongue, but having just come at the hands of the mother's daughter she knew this was going to take a while. So after a couple of minutes of slow teasing pleasure, Amanda ordered, "Let's go to your room." 
+Amanda eventually slithered her way down, spending time on each of the mother's erect nipples and firm breasts. Her tongue then slithered down the MILF's belly, around her belly button and to her wet pussy. 
 
- "Okay," the MLF nodded, somewhat disappointed at having to stop what she was doing, but eager to obey the adorably cute blonde. Thankfully, she had an adjacent door from the bathroom to her bedroom and wouldn't have to accidentally bump into her daughter. 
+Mrs. Borden hadn't had anyone, including her husband, spend even a fraction of that much time pleasuring her entire body in ages. With her husband it was a quick blow job, some rough manhandling of her tits and then usually some doggy- style fucking. Mrs. Borden couldn't remotely estimate the last time she had reached orgasm through actual sex with her husband...2010? She quietly chuckled to herself at how pathetic her love life had become...that was about to change as Amanda began licking her long neglected pussy. 
 
- Her daughter; 'Did Sarah know what's going on?' the mother pondered, or was this shy sweet girl just taking the initiative on her own? As she reached her bed, she assumed that her strong-willed, devious daughter had set this up. And if that was true, what was her daughter's end game? 
+a-family-affair54.jpg] 
 
- These thoughts were pushed out of her head as Amanda playfully pushed the mother onto the bed and climbed on top of her. 
+"Oh Godddddddd," Mrs. Borden moaned the moment the teen's tongue made contact, her whole body twitching. 
 
- "Mrs. Borden, you are as hot as your daughter," Amanda said, unable to be a verbal dominant like her mother, sister or even Sarah. 
+Amanda noticed that the taste of Sarah's mother's cunt was identical to Sarah's. Like mother, like daughter, Amanda thought to herself amusedly. 
 
- 
+"So good, Amanda," Mrs. Borden moaned, the orgasm that was building in the shower suddenly back on the rise. 
 
- a-family-affair53.jpg] 
+"You taste heavenly," Amanda complimented as she licked. 
 
- "Thank you," the mother trembled at the young girl's touch, anticipation of whatever was about to happen driving her wild. 
+Mrs. Borden was in ecstasy as she laid back and enjoyed the teen's talented tongue. 
 
- Amanda leaned in and kissed Mrs. Borden again, this time their naked breasts were crushed together as they passionately, but slowly, kissed. 
+Amanda, horny herself with her first successful seduction, decided to try something she had never done, but had seen in a porn movie she watched one night on the internet. 
 
- Amanda eventually slithered her way down, spending time on each of the mother's erect nipples and firm breasts. Her tongue then slithered down the MILF's belly, around her belly button and to her wet pussy. 
+"Let's grind our cunts together," Amanda said. 
 
- Mrs. Borden hadn't had anyone, including her husband, spend even a fraction of that much time pleasuring her entire body in ages. With her husband it was a quick blow job, some rough manhandling of her tits and then usually some doggy- style fucking. Mrs. Borden couldn't remotely estimate the last time she had reached orgasm through actual sex with her husband...2010? She quietly chuckled to herself at how pathetic her love life had become...that was about to change as Amanda began licking her long neglected pussy. 
+Mrs. Borden was again disappointed, her orgasm again denied, yet she was eager to see what the teenager meant. 
 
- 
+a-family-affair55.jpg] 
 
- a-family-affair54.jpg] 
+Although it took a bit to get in the right position, soon the MILF and the teen were pussy to pussy. "Now lift your ass up and down," Amanda ordered. 
 
- "Oh Godddddddd," Mrs. Borden moaned the moment the teen's tongue made contact, her whole body twitching. 
+"Okay," Mrs. Borden nodded, leaning back on one arm for stability. "Ooh, oh, oh," the mother moaned, as she grinded her pussy onto Amanda's. 
 
- Amanda noticed that the taste of Sarah's mother's cunt was identical to Sarah's. Like mother, like daughter, Amanda thought to herself amusedly. 
+"Oh yes," Amanda moaned back. 
 
- "So good, Amanda," Mrs. Borden moaned, the orgasm that was building in the shower suddenly back on the rise. 
+For a few minutes the only sound was the mother and teen's increasing moans until they both reached orgasm seconds apart. 
 
- "You taste heavenly," Amanda complimented as she licked. 
+"Oh yesssss, Amanda," the MILF screamed, forgetting her daughter was in the house. 
 
- Mrs. Borden was in ecstasy as she laid back and enjoyed the teen's talented tongue. 
+Amanda followed, "Yes, I'm coming toooooooo." 
 
- Amanda, horny herself with her first successful seduction, decided to try something she had never done, but had seen in a porn movie she watched one night on the internet. 
+As they both collapsed on the bed, Sarah came in and asked, as she got out of her clothes, "What about me?" 
 
- "Let's grind our cunts together," Amanda said. 
+Mrs. Borden looked at her naked daughter and was too weak to protest when she joined them on the bed, straddled her face and ordered, "Eat me, Mommy." 
 
- Mrs. Borden was again disappointed, her orgasm again denied, yet she was eager to see what the teenager meant. 
+The spent but submissive mother obeyed as she began licking her daughter. 
 
- 
+A vibrator, a strap-on and the taking of Mrs. Borden's anal virginity all followed until the overwhelmed, over-fucked mother was too weak to move. 
 
- a-family-affair55.jpg] 
+a-family-affair56.jpg] 
 
- Although it took a bit to get in the right position, soon the MILF and the teen were pussy to pussy. "Now lift your ass up and down," Amanda ordered. 
+Looking at her passed out mother, Sarah quipped, "I think we may have fucked her to death." 
 
- "Okay," Mrs. Borden nodded, leaning back on one arm for stability. "Ooh, oh, oh," the mother moaned, as she grinded her pussy onto Amanda's. 
+Amanda laughed, "That is exactly the way I want to go." 
 
- "Oh yes," Amanda moaned back. 
+"LOL" Sarah laughed, grabbing the strap-on, plans already in her head to fuck Amanda one more time tonight. 
 
- For a few minutes the only sound was the mother and teen's increasing moans until they both reached orgasm seconds apart. 
+7._DEBORAH_GETS_A_"SEDUCE_ONE,_GET_ONE_FREE_"_SUBMISSIVE_DEAL 
 
- "Oh yesssss, Amanda," the MILF screamed, forgetting her daughter was in the house. 
+Although Deborah had given the challenge to her two daughters, she had neglected to actually accomplish the deed herself in the first dozen days. Realizing she needed a story, a new seduction, she contemplated her options. 
 
- Amanda followed, "Yes, I'm coming toooooooo." 
+Running out of time, she decided to go after the woman who owned the bookstore she often went to. They had been chatting, and she had been subtly flirting for a couple of months, so Deborah figured it was time for the kill. 
 
- As they both collapsed on the bed, Sarah came in and asked, as she got out of her clothes, "What about me?" 
+Deborah had her hair dyed at the salon, something she hadn't done since college, although immediately after she did it she realized she didn't like it. She decided she would go back to blonde tomorrow...plus blondes definitely had more fun. 
 
- Mrs. Borden looked at her naked daughter and was too weak to protest when she joined them on the bed, straddled her face and ordered, "Eat me, Mommy." 
+She then headed to the as planned, Heidi, the store owner, was startled by Deborah's colour change, but greeted her warmly, "Hi Deborah, I like your new hair colour." 
 
- The spent but submissive mother obeyed as she began licking her daughter. 
+"Thanks, I may have gone too red," Deborah admitted. 
 
- A vibrator, a strap-on and the taking of Mrs. Borden's anal virginity all followed until the overwhelmed, over-fucked mother was too weak to move. 
+"I do like you better as a blonde," Heidi commented. 
 
- 
+"I'm still a blonde down below," Deborah quipped, her flirtation going into overdrive, her long range seduction plan to come to fruition today. 
 
- a-family-affair56.jpg] 
+Heidi laughed, used to Deborah's playful sexual innuendo, "I'm sadly more gray than red down there." 
 
- Looking at her passed out mother, Sarah quipped, "I think we may have fucked her to death." 
+"Might be time for a Brazilian," Deborah suggested. 
 
- Amanda laughed, "That is exactly the way I want to go." 
+"Yikes," the book store owner said. She had a hairy bush, always had. 
 
- "LOL" Sarah laughed, grabbing the strap-on, plans already in her head to fuck Amanda one more time tonight. 
+"You're coming with me," Deborah ordered. 
 
- 7._DEBORAH_GETS_A_"SEDUCE_ONE,_GET_ONE_FREE_"_SUBMISSIVE_DEAL 
+"Excuse me?" Heidi asked, surprised. 
 
- Although Deborah had given the challenge to her two daughters, she had neglected to actually accomplish the deed herself in the first dozen days. Realizing she needed a story, a new seduction, she contemplated her options. 
+"It's time for a makeover," Deborah declared. 
 
- Running out of time, she decided to go after the woman who owned the bookstore she often went to. They had been chatting, and she had been subtly flirting for a couple of months, so Deborah figured it was time for the kill. 
+"Really?" Heidi asked, the conversation going past flirting this time, although she had had a few wet dreams the past couple of months of Deborah's innuendo becoming more than just subtle word play and touches. 
 
- Deborah had her hair dyed at the salon, something she hadn't done since college, although immediately after she did it she realized she didn't like it. She decided she would go back to blonde tomorrow...plus blondes definitely had more fun. 
+"Sure," Deborah nodded, grabbing the redhead's hand sensing she was unsure. 
 
- She then headed to the as planned, Heidi, the store owner, was startled by Deborah's colour change, but greeted her warmly, "Hi Deborah, I like your new hair colour." 
+"Um, okay," Heidi said, unable to say no to this intriguing woman, "but I need to grab my purse from upstairs." 
 
- "Thanks, I may have gone too red," Deborah admitted. 
+"You live upstairs?" Deborah asked. 
 
- "I do like you better as a blonde," Heidi commented. 
+"I do, it's the only way to keep the bookstore with declining sales," Heidi explained. 
 
- "I'm still a blonde down below," Deborah quipped, her flirtation going into overdrive, her long range seduction plan to come to fruition today. 
+"Damn Amazon," Deborah said. 
 
- Heidi laughed, used to Deborah's playful sexual innuendo, "I'm sadly more gray than red down there." 
-
- "Might be time for a Brazilian," Deborah suggested. 
-
- "Yikes," the book store owner said. She had a hairy bush, always had. 
-
- "You're coming with me," Deborah ordered. 
-
- "Excuse me?" Heidi asked, surprised. 
-
- "It's time for a makeover," Deborah declared. 
-
- "Really?" Heidi asked, the conversation going past flirting this time, although she had had a few wet dreams the past couple of months of Deborah's innuendo becoming more than just subtle word play and touches. 
-
- "Sure," Deborah nodded, grabbing the redhead's hand sensing she was unsure. 
-
- "Um, okay," Heidi said, unable to say no to this intriguing woman, "but I need to grab my purse from upstairs." 
-
- "You live upstairs?" Deborah asked. 
-
- "I do, it's the only way to keep the bookstore with declining sales," Heidi explained. 
-
- "Damn Amazon," Deborah said. 
-
- "So true," Heidi nodded. She went and talked to one of her employees, before going up some back steps.  
-
- 
-
- 
+"So true," Heidi nodded. She went and talked to one of her employees, before going up some back steps.  
 
 ===
 
 Deborah followed, already deciding she was going to take her now. 
 
- Once in her apartment, Deborah moved in and kissed her newest prey. 
+Once in her apartment, Deborah moved in and kissed her newest prey. 
 
- Heidi was shocked, didn't move at first, but slowly gave in and began kissing back. Deborah's lips were so soft, and she hadn't been on a date in over a year and it had been even longer since she had any real intimacy. 
+Heidi was shocked, didn't move at first, but slowly gave in and began kissing back. Deborah's lips were so soft, and she hadn't been on a date in over a year and it had been even longer since she had any real intimacy. 
 
- Once the redhead returned the kiss, Deborah took control, beginning to unbutton Heidi's blouse while exploring her mouth. 
+Once the redhead returned the kiss, Deborah took control, beginning to unbutton Heidi's blouse while exploring her mouth. 
 
- Heidi was overwhelmed, but caught up in the moment of intimacy allowed herself to be undressed, her body trembling with anticipation. 
+Heidi was overwhelmed, but caught up in the moment of intimacy allowed herself to be undressed, her body trembling with anticipation. 
 
- Breaking the kiss, Deborah said, "Let's continue this in your bedroom." 
+Breaking the kiss, Deborah said, "Let's continue this in your bedroom." 
 
- "Okay," Heidi nodded, somehow willing to obey. 
+"Okay," Heidi nodded, somehow willing to obey. 
 
- Once in the bedroom, Deborah ordered, "Get undressed." 
+Once in the bedroom, Deborah ordered, "Get undressed." 
 
- "Okay," Heidi nodded, suddenly the only word she was able to utter. She took off her blouse and her jeans, but hesitated with her bra and panties. 
+"Okay," Heidi nodded, suddenly the only word she was able to utter. She took off her blouse and her jeans, but hesitated with her bra and panties. 
 
- "Those too," Deborah ordered, knowing the final submission of another pet was just moments away from completion. 
+"Those too," Deborah ordered, knowing the final submission of another pet was just moments away from completion. 
 
- Deborah also got undressed before reaching in her oversized purse and grabbing the strap-on she had brought in hopes of this exact moment. 
+Deborah also got undressed before reaching in her oversized purse and grabbing the strap-on she had brought in hopes of this exact moment. 
 
- Heidi stared at Deborah, stared at the plastic cock and then noticed her pussy juice beginning to leak down her leg. 
+Heidi stared at Deborah, stared at the plastic cock and then noticed her pussy juice beginning to leak down her leg. 
 
- "On the bed and on all fours," Deborah ordered, once the strap-on harness was tightly placed on her hips. 
+"On the bed and on all fours," Deborah ordered, once the strap-on harness was tightly placed on her hips. 
 
- Heidi still overwhelmed yet completely intrigued, obeyed the order getting on her own bed and getting on all fours. 
+Heidi still overwhelmed yet completely intrigued, obeyed the order getting on her own bed and getting on all fours. 
 
- "Have you ever been with a woman?" Deborah asked. 
+"Have you ever been with a woman?" Deborah asked. 
 
- "No," Heidi answered, although she had been becoming much more curious about her sexuality over the past couple of months. 
+"No," Heidi answered, although she had been becoming much more curious about her sexuality over the past couple of months. 
 
- "But you want to be right now?" Deborah questioned, as she joined her latest prey on the bed and moved behind her. 
+"But you want to be right now?" Deborah questioned, as she joined her latest prey on the bed and moved behind her. 
 
- "Yes," Heidi admitted, feeling a strong connection to this beautiful woman. 
+"Yes," Heidi admitted, feeling a strong connection to this beautiful woman. 
 
- Deborah moved her hand to the redhead's vagina and agreed, "We will indeed need to fix this, I don't eat muff pies, I eat shaved boxes." 
+Deborah moved her hand to the redhead's vagina and agreed, "We will indeed need to fix this, I don't eat muff pies, I eat shaved boxes." 
 
- "Okaaaaaaaaay," Heidi moaned, trembling at her touch. 
+"Okaaaaaaaaay," Heidi moaned, trembling at her touch. 
 
- Deborah moved her hand away, satisfied the book store owner was already wet enough, and slid her plastic cock in the wanton woman. 
+Deborah moved her hand away, satisfied the book store owner was already wet enough, and slid her plastic cock in the wanton woman. 
 
- "Oh yessssssss," Heidi screamed loudly, as the plastic cock filled her. 
+"Oh yessssssss," Heidi screamed loudly, as the plastic cock filled her. 
 
- Deborah often teased a new pet, made her beg and often refused orgasms for hours, yet this time she focused on fucking her and fucking her hard. 
+Deborah often teased a new pet, made her beg and often refused orgasms for hours, yet this time she focused on fucking her and fucking her hard. 
 
- "Oh God, fuck," Heidi moaned, "It's been so long." 
+"Oh God, fuck," Heidi moaned, "It's been so long." 
 
- "How long?" Deborah asked, curious. 
+"How long?" Deborah asked, curious. 
 
- "A couple years," Heidi admitted. 
+"A couple years," Heidi admitted. 
 
- "Well then we'd better make up for lost time," Deborah said, slamming hard into the redhead, wanting to hear her scream. 
+"Well then we'd better make up for lost time," Deborah said, slamming hard into the redhead, wanting to hear her scream. 
 
- "Fucccccccck, yes," Heidi screamed, her orgasm rising fast. 
+"Fucccccccck, yes," Heidi screamed, her orgasm rising fast. 
 
- "You like my cock in your box?" Deborah asked. 
+"You like my cock in your box?" Deborah asked. 
 
- "Soooooooo much," Heidi moaned. "Fuck me harder." 
+"Soooooooo much," Heidi moaned. "Fuck me harder." 
 
- "You like it rough, my pet?" Deborah questioned, for the first time referring to her as 'my pet'. 
+"You like it rough, my pet?" Deborah questioned, for the first time referring to her as 'my pet'. 
 
- "Just pound my cunt," Heidi whimpered, her orgasm so close. She noticed the term 'my pet', yet ignored it as she could only focus on the pleasure overwhelming her entire being, and her desperate desire to reach orgasm. 
+"Just pound my cunt," Heidi whimpered, her orgasm so close. She noticed the term 'my pet', yet ignored it as she could only focus on the pleasure overwhelming her entire being, and her desperate desire to reach orgasm. 
 
- Deborah continued hard, deep thrusts, in her newest pet and was startled when a loud gasp and the word, "Mom!" came from behind them. 
+Deborah continued hard, deep thrusts, in her newest pet and was startled when a loud gasp and the word, "Mom!" came from behind them. 
 
- 
+a-family-affair57.jpg] 
 
- a-family-affair57.jpg] 
+Heidi's orgasm hit simultaneously as she screamed, "Fuuuuuuck, yesssss," before hearing her daughter's voice and turning in mid orgasm, "Tashaaaaaaa." 
 
- Heidi's orgasm hit simultaneously as she screamed, "Fuuuuuuck, yesssss," before hearing her daughter's voice and turning in mid orgasm, "Tashaaaaaaa." 
+Deborah, thinking quickly, continued fucking the trembling bookstore owner while turning to the daughter, a younger replica of Heidi and said, "Come here, my pet." 
 
- Deborah, thinking quickly, continued fucking the trembling bookstore owner while turning to the daughter, a younger replica of Heidi and said, "Come here, my pet." 
+Tasha stammered, "P—p-pardon?" 
 
- Tasha stammered, "P—p-pardon?" 
+"Come join us on the bed," Deborah offered. 
 
- "Come join us on the bed," Deborah offered. 
+Tasha was shocked at what she had just walked in on, yet her panties were soaking wet. Without even realizing she was doing it, she was walking to the bed. 
 
- Tasha was shocked at what she had just walked in on, yet her panties were soaking wet. Without even realizing she was doing it, she was walking to the bed. 
+"Get undressed, my pet," Deborah said soothingly. 
 
- "Get undressed, my pet," Deborah said soothingly. 
+Heidi's body was still trembling and she was watching in silent awe as her daughter began getting undressed. 
 
- Heidi's body was still trembling and she was watching in silent awe as her daughter began getting undressed. 
+Deborah took her strap-on off, laid on the bed and ordered, "Come lick your mother." 
 
- Deborah took her strap-on off, laid on the bed and ordered, "Come lick your mother." 
+Heidi had rolled over onto her back to recover from her orgasm and gasped when she heard Deborah's orders. 
 
- Heidi had rolled over onto her back to recover from her orgasm and gasped when she heard Deborah's orders. 
+a-family-affair58.jpg] 
 
- 
+Tasha stammered, "Y-y-you want me to lick my mother?" 
 
- a-family-affair58.jpg] 
+"No, you want to lick your mother," Deborah corrected, seeing a completely submissive young girl, so similar to her own Amanda. 
 
- Tasha stammered, "Y-y-you want me to lick my mother?" 
+Tasha couldn't deny it, she was horny and just wanted to be a part of this. She didn't know why she obeyed, but she didn't hesitate as she crawled onto the bed, between her mother's legs, and buried her face into her cunt. 
 
- "No, you want to lick your mother," Deborah corrected, seeing a completely submissive young girl, so similar to her own Amanda. 
+The virgin pussy pleaser couldn't believe how good pussy tasted, couldn't believe how wet her own cunt got licking her mom and loved hearing the sounds her mother was making. 
 
- Tasha couldn't deny it, she was horny and just wanted to be a part of this. She didn't know why she obeyed, but she didn't hesitate as she crawled onto the bed, between her mother's legs, and buried her face into her cunt. 
+Heidi was overwhelmed again. Her first orgasm hadn't even completely finished running its course when her daughter began licking her. She couldn't believe how in less than half an hour her day had gone from a dull day at the bookstore to a lesbian tryst and committing mother-daughter incest. 
 
- The virgin pussy pleaser couldn't believe how good pussy tasted, couldn't believe how wet her own cunt got licking her mom and loved hearing the sounds her mother was making. 
+Tasha couldn't believe her mother was a lesbian or that maybe she may be too. She had never had any interest in boys, but until seeing her mother getting fucked by another woman she had never really considered her sexuality. 
 
- Heidi was overwhelmed again. Her first orgasm hadn't even completely finished running its course when her daughter began licking her. She couldn't believe how in less than half an hour her day had gone from a dull day at the bookstore to a lesbian tryst and committing mother-daughter incest. 
+Heidi moaned, "Yes, baby, suck on Mommy's pussy." 
 
- Tasha couldn't believe her mother was a lesbian or that maybe she may be too. She had never had any interest in boys, but until seeing her mother getting fucked by another woman she had never really considered her sexuality. 
+Deborah smiled as she watched an incestuous act that she had accidentally made happen. She looked forward to her own lesbian incest act with her daughters on Nude Day. 
 
- Heidi moaned, "Yes, baby, suck on Mommy's pussy." 
+Heidi asked, "Do you like licking Mommy's cunt, baby?" 
 
- Deborah smiled as she watched an incestuous act that she had accidentally made happen. She looked forward to her own lesbian incest act with her daughters on Nude Day. 
+a-family-affair59.jpg] 
 
- Heidi asked, "Do you like licking Mommy's cunt, baby?" 
+"Yes, Mommy, so much," Tasha answered, looking up at her mom with her sweet look of innocence. 
 
- 
+"I love you, baby," Heidi moaned, her head spinning with the reality of the act they were committing and how good it felt. 
 
- a-family-affair59.jpg] 
+"I love you too, Mommy," the eager pussy munching daughter replied, as her tongue tried to get inside her mom's cunt. 
 
- "Yes, Mommy, so much," Tasha answered, looking up at her mom with her sweet look of innocence. 
+Deborah decided it was time for her to get back involved and see just how submissive the cute teen was. 
 
- "I love you, baby," Heidi moaned, her head spinning with the reality of the act they were committing and how good it felt. 
+Deborah moved behind her and rubbed her plastic cock up and down the teen's already wet pussy lips. She asked, "Does my new pet want to get fucked?" 
 
- "I love you too, Mommy," the eager pussy munching daughter replied, as her tongue tried to get inside her mom's cunt. 
+Tasha's eyes went wide. She was a virgin. She stammered, "I, um, I, don't know." 
 
- Deborah decided it was time for her to get back involved and see just how submissive the cute teen was. 
+"You don't know?" Deborah asked. "I'm pretty sure you do know." 
 
- Deborah moved behind her and rubbed her plastic cock up and down the teen's already wet pussy lips. She asked, "Does my new pet want to get fucked?" 
+"I'm, I'm, I'm a virgin," Tasha admitted. 
 
- Tasha's eyes went wide. She was a virgin. She stammered, "I, um, I, don't know." 
+Heidi wasn't surprised, but Deborah was. She immediately wanted to take both the virgin's holes in one day. She purred, "Then I think it's time we change that." She slid her cock inside the teen's virgin cunt, mentally checking off one of the two holes she planned to take. 
 
- "You don't know?" Deborah asked. "I'm pretty sure you do know." 
+Tasha moaned loudly into her mom's cunt as she realized her virginity was being taken by a plastic cock and by her mother's lover. 
 
- "I'm, I'm, I'm a virgin," Tasha admitted. 
+a-family-affair60.jpg] 
 
- Heidi wasn't surprised, but Deborah was. She immediately wanted to take both the virgin's holes in one day. She purred, "Then I think it's time we change that." She slid her cock inside the teen's virgin cunt, mentally checking off one of the two holes she planned to take. 
+Heidi watched as her daughter got fucked. It was sexy and surreal, as had been the past thirty minutes. 
 
- Tasha moaned loudly into her mom's cunt as she realized her virginity was being taken by a plastic cock and by her mother's lover. 
+Deborah, didn't make love to the teen, like she had with Heidi, she fucked her. In just a few hard thrusts, the teen was moaning loudly, struggling to lick her mother's cunt. 
 
- 
+Tasha moaned, "Oh fuck," as her cunt was fucked hard. She had fucked herself with her fingers, her brush and even a cucumber, but this was so much more intense and pleasurable. 
 
- a-family-affair60.jpg] 
+Tasha's face began to get bounced into her mom's cunt and after a couple of minutes, she quit even trying to lick and focused on the pleasure growing inside her. 
 
- Heidi watched as her daughter got fucked. It was sexy and surreal, as had been the past thirty minutes. 
+Deborah wanted to get her close to eruption and then stop, determined to taker her ass, too. 
 
- Deborah, didn't make love to the teen, like she had with Heidi, she fucked her. In just a few hard thrusts, the teen was moaning loudly, struggling to lick her mother's cunt. 
+Tasha babbled, "Oh yes, so good, I'm getting close." 
 
- Tasha moaned, "Oh fuck," as her cunt was fucked hard. She had fucked herself with her fingers, her brush and even a cucumber, but this was so much more intense and pleasurable. 
+Suddenly, Deborah pulled out and ordered, "On your back, my pet." 
 
- Tasha's face began to get bounced into her mom's cunt and after a couple of minutes, she quit even trying to lick and focused on the pleasure growing inside her. 
+Tasha didn't hesitate, so close she would do anything this woman asked. 
 
- Deborah wanted to get her close to eruption and then stop, determined to taker her ass, too. 
+Deborah moved between her legs and using the teen's excessive wetness, lubed her virgin asshole. 
 
- Tasha babbled, "Oh yes, so good, I'm getting close." 
+Tasha's eyes went wide but she didn't say anything as she watched the stranger rub her finger on her rosebud. 
 
- Suddenly, Deborah pulled out and ordered, "On your back, my pet." 
+Heidi watched in shock. Was she going to fuck her daughter's ass? 
 
- Tasha didn't hesitate, so close she would do anything this woman asked. 
+The question was answered as Deborah placed the plastic cock at the teen's rosebud entrance and said, "Relax, my pet, this will sting a bit at first." 
 
- Deborah moved between her legs and using the teen's excessive wetness, lubed her virgin asshole. 
+"Kkkkkkk" a suddenly very nervous Tasha nodded. 
 
- Tasha's eyes went wide but she didn't say anything as she watched the stranger rub her finger on her rosebud. 
+Deborah slowly pushed forward. At first she was denied entry, but with a little wiggling the top of her cock slowly disappeared. 
 
- Heidi watched in shock. Was she going to fuck her daughter's ass? 
+"Oh Goddd," Tasha screamed, her asshole involuntarily opening, a sharp burn hitting her. 
 
- The question was answered as Deborah placed the plastic cock at the teen's rosebud entrance and said, "Relax, my pet, this will sting a bit at first." 
+"Keep breathing," Deborah ordered, noticing Tasha seemed to be holding her breath. 
 
- "Kkkkkkk" a suddenly very nervous Tasha nodded. 
+"Kkkkkk," Tasha grimaced through clenched teeth. 
 
- Deborah slowly pushed forward. At first she was denied entry, but with a little wiggling the top of her cock slowly disappeared. 
+The cock ever so slowly filled the teen's ass. Deborah loved watching a cock disappear into a place it wasn't supposed to go. 
 
- "Oh Goddd," Tasha screamed, her asshole involuntarily opening, a sharp burn hitting her. 
+Once all in, Deborah declared, "All in, my little ass slut." 
 
- "Keep breathing," Deborah ordered, noticing Tasha seemed to be holding her breath. 
+Being called an ass slut would have been absurd half an hour ago, and yet now that was exactly what she was. 
 
- "Kkkkkk," Tasha grimaced through clenched teeth. 
+"Fuck my ass," Tasha said, surprising both older women. 
 
- The cock ever so slowly filled the teen's ass. Deborah loved watching a cock disappear into a place it wasn't supposed to go. 
+a-family-affair61.jpg] 
 
- Once all in, Deborah declared, "All in, my little ass slut." 
+Deborah, of course, obliged as she began sliding her cock in and out of the no longer virgin ass. 
 
- Being called an ass slut would have been absurd half an hour ago, and yet now that was exactly what she was. 
+"Oh God, it hurts so good," Tasha moaned, the mixture of pleasure and pain creating such opposing feelings that she was completely overwhelmed. 
 
- "Fuck my ass," Tasha said, surprising both older women. 
+"Suck on your daughter's cunt, Heidi," Deborah ordered. 
 
- 
+Heidi pulled herself out of the voyeuristic trance, and obeyed the order, leaning over and taking her daughter's clit in her lips. 
 
- a-family-affair61.jpg] 
+"Oh fucking yes, Mommmmmmmmy," the no longer virgin screamed, as her long refused orgasm again bubbled to the surface. 
 
- Deborah, of course, obliged as she began sliding her cock in and out of the no longer virgin ass. 
+Deborah shifted to faster, harder strokes in the girl's tight asshole and watched as the teen finally reached orgasm. 
 
- "Oh God, it hurts so good," Tasha moaned, the mixture of pleasure and pain creating such opposing feelings that she was completely overwhelmed. 
+"Oh God, yessssssss, fuckkkkkkkkkkk," Tasha screamed, as her orgasm finally exploded out of her. 
 
- "Suck on your daughter's cunt, Heidi," Deborah ordered. 
+Deborah eventually pulled out and made the teen eat her cunt while her mother sucked on her tits. Once her orgasm was done, she took both her new pets to Mallory's for Brazilians, before taking them to a toy store for some toys for the two of them to play with. 
 
- Heidi pulled herself out of the voyeuristic trance, and obeyed the order, leaning over and taking her daughter's clit in her lips. 
+Deborah smiled, always feeling a rush when she initiated and completed a mother-daughter incestuous relationship. 
 
- "Oh fucking yes, Mommmmmmmmy," the no longer virgin screamed, as her long refused orgasm again bubbled to the surface. 
+8._GRANDMA_FLASHES_BACK 
 
- Deborah shifted to faster, harder strokes in the girl's tight asshole and watched as the teen finally reached orgasm. 
+Rose was surprised when she got the call from her daughter. A disagreement a couple of years earlier had led to no real communication with her daughter, although she had been keeping tabs on her grandchildren through Facebook. 
 
- "Oh God, yessssssss, fuckkkkkkkkkkk," Tasha screamed, as her orgasm finally exploded out of her. 
+The call made her wonder. Her grandchildren were nineteen now and she wondered if her daughter had given them the family talk and initiated them in the family tradition of sapphic love. 
 
- Deborah eventually pulled out and made the teen eat her cunt while her mother sucked on her tits. Once her orgasm was done, she took both her new pets to Mallory's for Brazilians, before taking them to a toy store for some toys for the two of them to play with. 
+As she packed for the long flight, hoping that maybe she would have some play time with her two very pretty grandchildren, and maybe even resume the Mistress-submissive relationship she once had with her daughter, she reminisced on that crazy year a long, long time ago where she became a full-time submissive for her daughter during her senior year of high school. 
 
- Deborah smiled, always feeling a rush when she initiated and completed a mother-daughter incestuous relationship. 
+I was supposed to be the one in charge. My great grandmother dommed my grandmother, my grandmother dommed my mom and my mom dommed me. I was, of course, supposed to domme my daughter...yet that is not what happened. 
 
- 8._GRANDMA_FLASHES_BACK 
+After Sherry Appleton had taken my daughter and trained her in the art of eating pussy, my daughter changed. She went from sweet and innocent, to a little wild and carefree. 
 
- Rose was surprised when she got the call from her daughter. A disagreement a couple of years earlier had led to no real communication with her daughter, although she had been keeping tabs on her grandchildren through Facebook. 
+And when I went to take charge of her, to make her my live-in pet, like my mother had done to me, the tables quickly turned. 
 
- The call made her wonder. Her grandchildren were nineteen now and she wondered if her daughter had given them the family talk and initiated them in the family tradition of sapphic love. 
+"I don't think so, Mother," Deborah said, shaking her head. 
 
- As she packed for the long flight, hoping that maybe she would have some play time with her two very pretty grandchildren, and maybe even resume the Mistress-submissive relationship she once had with her daughter, she reminisced on that crazy year a long, long time ago where she became a full-time submissive for her daughter during her senior year of high school. 
+"Don't get smart with me," I replied, trying to maintain my ground. 
 
- I was supposed to be the one in charge. My great grandmother dommed my grandmother, my grandmother dommed my mom and my mom dommed me. I was, of course, supposed to domme my daughter...yet that is not what happened. 
+"Mother, you're the neighborhood cunt muncher," Deborah accused, "is there a legal cunt on this block you haven't lapped up eagerly?" 
 
- After Sherry Appleton had taken my daughter and trained her in the art of eating pussy, my daughter changed. She went from sweet and innocent, to a little wild and carefree. 
+My face burned red. For one because of the way my daughter was speaking to me (three weeks ago she had no idea of my sexual deviance and was a straight A student who never talked back to me), for two because the truth was, except for my own daughter, I had indeed pleasured every legal pussy on the block (three times a girl's eighteenth birthday present was me). 
 
- And when I went to take charge of her, to make her my live-in pet, like my mother had done to me, the tables quickly turned. 
+"Answer me, slut," Deborah demanded. 
 
- "I don't think so, Mother," Deborah said, shaking her head. 
+"Only one," I whispered, suddenly retreating back to my feeble submissive self. 
 
- "Don't get smart with me," I replied, trying to maintain my ground. 
+a-family-affair62.jpg] 
 
- "Mother, you're the neighborhood cunt muncher," Deborah accused, "is there a legal cunt on this block you haven't lapped up eagerly?" 
+"Me," she smiled back at me. 
 
- My face burned red. For one because of the way my daughter was speaking to me (three weeks ago she had no idea of my sexual deviance and was a straight A student who never talked back to me), for two because the truth was, except for my own daughter, I had indeed pleasured every legal pussy on the block (three times a girl's eighteenth birthday present was me). 
+"Yes," I whispered. 
 
- "Answer me, slut," Deborah demanded. 
+"Well, I guess we should change that," my daughter said to me, as she pulled off her skirt to reveal she wasn't wearing any panties. 
 
- "Only one," I whispered, suddenly retreating back to my feeble submissive self. 
+I stared at her in shock. 
 
- 
+"Get on your knees, Mother," she ordered, "that is where you always want to be." 
 
- a-family-affair62.jpg] 
+I could have protested, or at least pretended it wasn't true, yet I dropped to the floor on my knees in front of my eighteen year old daughter. 
 
- "Me," she smiled back at me. 
+She turned around, bent over and ordered, "Get licking, Mommy-slut." 
 
- "Yes," I whispered. 
+The name sent a chill up my spine and down to my cunt as I leaned forward and began licking, in essence indeed becoming a Mommy-slut. 
 
- "Well, I guess we should change that," my daughter said to me, as she pulled off her skirt to reveal she wasn't wearing any panties. 
+She moaned, "That's it, my eager little Mommy-slut, you've wanted to do this forever, haven't you?" 
 
- I stared at her in shock. 
+Truthfully, I hadn't. I imagined that I would finally no longer be low slut on the totem pole, yet as I obeyed my daughter and licked her sweet cunt I realized that wasn't the case. I answered with what she wanted me to say, "Yes." 
 
- "Get on your knees, Mother," she ordered, "that is where you always want to be." 
+"And you will be willing and ready on your knees the minute I order," she continued. 
 
- I could have protested, or at least pretended it wasn't true, yet I dropped to the floor on my knees in front of my eighteen year old daughter. 
+I again answered, "Yes," as tears began to well in my eyes at the humiliating turn of events. 
 
- She turned around, bent over and ordered, "Get licking, Mommy-slut." 
+For a few minutes I licked my daughter while she talked dirty to me, hearing her say many inappropriate words for the first time ever. Of course, like all my submissions to women, young and old, my cunt got wetter and wetter with each derogatory name. 
 
- The name sent a chill up my spine and down to my cunt as I leaned forward and began licking, in essence indeed becoming a Mommy-slut. 
+When she came, she grabbed my head and held it between her ass cheeks as she said, "This will be your daily breakfast now, Mommy-slut," a promise she kept until she went away for college (although it resumed whenever she came home for visits). 
 
- She moaned, "That's it, my eager little Mommy-slut, you've wanted to do this forever, haven't you?" 
+Letting go of my head, she ordered, "Get undressed, Mommy-slut." 
 
- Truthfully, I hadn't. I imagined that I would finally no longer be low slut on the totem pole, yet as I obeyed my daughter and licked her sweet cunt I realized that wasn't the case. I answered with what she wanted me to say, "Yes." 
+I wordlessly obeyed, still feeling nervous and awkward in the situation I suddenly found myself. 
 
- "And you will be willing and ready on your knees the minute I order," she continued. 
+She took off the rest of her clothes too and ordered, "Stay, Mommy-slut, I will be right back. I have a present for you." 
 
- I again answered, "Yes," as tears began to well in my eyes at the humiliating turn of events. 
+I obeyed, curious and slightly nervous about what the present may be. 
 
- For a few minutes I licked my daughter while she talked dirty to me, hearing her say many inappropriate words for the first time ever. Of course, like all my submissions to women, young and old, my cunt got wetter and wetter with each derogatory name. 
+When she returned she was wearing one of Sherry's strap-ons around her petite waist. 
 
- When she came, she grabbed my head and held it between her ass cheeks as she said, "This will be your daily breakfast now, Mommy-slut," a promise she kept until she went away for college (although it resumed whenever she came home for visits). 
+"Suck my cock, Mommy-slut," she ordered, moving in front of me. 
 
- Letting go of my head, she ordered, "Get undressed, Mommy-slut." 
+I opened my mouth and sucked a cock that I had sucked many times before, but always on someone else's waist. 
 
- I wordlessly obeyed, still feeling nervous and awkward in the situation I suddenly found myself. 
+"That's it, get it nice and lubed for that box of yours," Deborah ordered. 
 
- She took off the rest of her clothes too and ordered, "Stay, Mommy-slut, I will be right back. I have a present for you." 
+I did as instructed, humiliation still burning through me. 
 
- I obeyed, curious and slightly nervous about what the present may be. 
+"Deep throat it, Mommy-slut," she demanded, "show your new Mistress what kind of dirty fuck-toy you really are. 
 
- When she returned she was wearing one of Sherry's strap-ons around her petite waist. 
+Hearing the word 'Mistress' again created mixed emotions. I loved a clear relationship where I was the submissive and someone else the Mistress, yet I wasn't sure that was a relationship I wanted with my daughter, even though I knew deep down I was way too weak to ever stand up against her. 
 
- "Suck my cock, Mommy-slut," she ordered, moving in front of me. 
+Instead, I obeyed, taking the whole cock in my mouth. I gagged slightly, but achieved the task given. 
 
- I opened my mouth and sucked a cock that I had sucked many times before, but always on someone else's waist. 
+"Fuck, Mother, you really are a dirty girl," my daughter said, grabbing my head and roughly fucking my face. 
 
- "That's it, get it nice and lubed for that box of yours," Deborah ordered. 
+Slobbery sounds echoed in my head as I tried not to gag. 
 
- I did as instructed, humiliation still burning through me. 
+When she pulled out, she ordered, "On my bed, Mommy-slut. Time to fuck my pet." 
 
- "Deep throat it, Mommy-slut," she demanded, "show your new Mistress what kind of dirty fuck-toy you really are. 
+I was thankful to be off my knees, and truthfully looking forward to getting fucked, ignoring the reality that I was the mother and she the daughter. 
 
- Hearing the word 'Mistress' again created mixed emotions. I loved a clear relationship where I was the submissive and someone else the Mistress, yet I wasn't sure that was a relationship I wanted with my daughter, even though I knew deep down I was way too weak to ever stand up against her. 
+"Such an obedient pet," Deborah purred, as she moved to the bed, spread my legs apart and slid her cock in my wanton hole. 
 
- Instead, I obeyed, taking the whole cock in my mouth. I gagged slightly, but achieved the task given. 
+"Ohhhhhh," I moaned, as the cock filled me. 
 
- "Fuck, Mother, you really are a dirty girl," my daughter said, grabbing my head and roughly fucking my face. 
+"I think you should buy me a bigger bed," she suggested, the twin not really big enough for the two of us. 
 
- Slobbery sounds echoed in my head as I tried not to gag. 
+"Okaaaaaay," I agreed, although I would have agreed to anything at the moment. 
 
- When she pulled out, she ordered, "On my bed, Mommy-slut. Time to fuck my pet." 
+She surprised me next, by leaning forward and kissing me. The shift from rough and dominant to sweet and passionate only enhanced my lust for her. 
 
- I was thankful to be off my knees, and truthfully looking forward to getting fucked, ignoring the reality that I was the mother and she the daughter. 
+a-family-affair63.jpg] 
 
- "Such an obedient pet," Deborah purred, as she moved to the bed, spread my legs apart and slid her cock in my wanton hole. 
+Our tongues danced as she pumped my cunt. 
 
- "Ohhhhhh," I moaned, as the cock filled me. 
+My orgasm didn't take long to come, as the mixture of humiliation and passion created a stimulating pleasure that made me tingle from the top of my head all the way down to my toes. 
 
- "I think you should buy me a bigger bed," she suggested, the twin not really big enough for the two of us. 
+I asked, like I would any of my thirty plus Mistresses, "May I come, Mistress?" 
 
- "Okaaaaaay," I agreed, although I would have agreed to anything at the moment. 
+"As long as you understand you are my full-time slut," she explained. 
 
- She surprised me next, by leaning forward and kissing me. The shift from rough and dominant to sweet and passionate only enhanced my lust for her. 
+"Unconditionalllllly," I agreed, willing to be her full time slut, wanting to be her full time slut. 
 
- 
+"Come now, Mommy, come for your daughter," Deborah said, no name calling, just an unspoken love and clear understanding of the new sexual hierarchy in this house. 
 
- a-family-affair63.jpg] 
+"Thank yoooooooou," I screamed a few strokes later as I wrapped my legs around her. 
 
- Our tongues danced as she pumped my cunt. 
+A week later, she was fucking me on the kitchen floor, my orgasm imminent, when the doorbell rang. 
 
- My orgasm didn't take long to come, as the mixture of humiliation and passion created a stimulating pleasure that made me tingle from the top of my head all the way down to my toes. 
+a-family-affair64.jpg] 
 
- I asked, like I would any of my thirty plus Mistresses, "May I come, Mistress?" 
+"Go get the door, Mommy-slut," Deborah said. 
 
- "As long as you understand you are my full-time slut," she explained. 
+"Like this?" I asked, mortified. 
 
- "Unconditionalllllly," I agreed, willing to be her full time slut, wanting to be her full time slut. 
+"Don't worry, it's your present for today," she said, pulling out of me. 
 
- "Come now, Mommy, come for your daughter," Deborah said, no name calling, just an unspoken love and clear understanding of the new sexual hierarchy in this house. 
+"Please don't make me," I begged. 
 
- "Thank yoooooooou," I screamed a few strokes later as I wrapped my legs around her. 
+"Now, Mommy-slut," she ordered. 
 
- A week later, she was fucking me on the kitchen floor, my orgasm imminent, when the doorbell rang. 
-
- 
-
- a-family-affair64.jpg] 
-
- "Go get the door, Mommy-slut," Deborah said. 
-
- "Like this?" I asked, mortified. 
-
- "Don't worry, it's your present for today," she said, pulling out of me. 
-
- "Please don't make me," I begged. 
-
- "Now, Mommy-slut," she ordered. 
-
- I awkwardly went to the door, and peeked through the peephole. It was Deborah's good friend Allison. I turned back to look at Deborah who ordered, "Now!"  
-
- 
-
- 
+I awkwardly went to the door, and peeked through the peephole. It was Deborah's good friend Allison. I turned back to look at Deborah who ordered, "Now!"  
 
 ===
 
 I opened the door and Allison gasped, "You weren't shitting me!" 
 
- "Mom go to your room and wait," Deborah ordered. 
+"Mom go to your room and wait," Deborah ordered. 
 
- "Yes, Mistress," I nodded, shame burning through me as my daughter decided to let her friend know of our incestuous lesbian relationship. 
+"Yes, Mistress," I nodded, shame burning through me as my daughter decided to let her friend know of our incestuous lesbian relationship. 
 
- "That's fucking hot," Allison said, as I walked away. 
+"That's fucking hot," Allison said, as I walked away. 
 
- 
+a-family-affair65.jpg] 
 
- a-family-affair65.jpg] 
+In my room, I grabbed a headband to fix my hair a bit and sat on my bed waiting for the humiliation, the submission that was bound to follow. 
 
- In my room, I grabbed a headband to fix my hair a bit and sat on my bed waiting for the humiliation, the submission that was bound to follow. 
+Oddly, I waited for over half an hour before my daughter and her friend walked into the room. 
 
- Oddly, I waited for over half an hour before my daughter and her friend walked into the room. 
+Over the next hour, I ate Allison's cunt, I ate my daughter's asshole, I watched as they used a double ended dildo on themselves and then they finished with one of them finger fucking my ass while the other fingered my cunt. 
 
- Over the next hour, I ate Allison's cunt, I ate my daughter's asshole, I watched as they used a double ended dildo on themselves and then they finished with one of them finger fucking my ass while the other fingered my cunt. 
+I came hard as they called me so many dirty names: ass slut, Mommy whore, pussy muncher, slave, cunt whore, Momma cums-a-lot, just to name a few. 
 
- I came hard as they called me so many dirty names: ass slut, Mommy whore, pussy muncher, slave, cunt whore, Momma cums-a-lot, just to name a few. 
+After the summer she graduated high school, a summer where I was a full-time twenty-four hour pussy pleaser for her and Allison, I wasn't sure what I was going to do with my life once I reclaimed it when she went to college. 
 
- After the summer she graduated high school, a summer where I was a full-time twenty-four hour pussy pleaser for her and Allison, I wasn't sure what I was going to do with my life once I reclaimed it when she went to college. 
+At the end of summer though, she took me to the town pool where I met a lifeguard named Leanne and learned she was to be my new Mistress. 
 
- At the end of summer though, she took me to the town pool where I met a lifeguard named Leanne and learned she was to be my new Mistress. 
+Leanne took me for what she called 'a test ride' that day in the shop. As I submitted to her, eating her cunt to a very wet orgasm and then getting fucked from behind, I was petrified of being caught. 
 
- Leanne took me for what she called 'a test ride' that day in the shop. As I submitted to her, eating her cunt to a very wet orgasm and then getting fucked from behind, I was petrified of being caught. 
+a-family-affair66.jpg] 
 
- 
+That transaction from daughter Mistress to Leanne, began Rose's life as a full- time pet, which eventually led her, most recently, to living in Europe for her seventh full-time Mistress, a member of royalty (albeit way down the line), Geraldine. 
 
- a-family-affair66.jpg] 
+And now, after all these years, the submissive mother was returning to her first full-time Mistress and curious why she wanted her back home. 
 
- That transaction from daughter Mistress to Leanne, began Rose's life as a full- time pet, which eventually led her, most recently, to living in Europe for her seventh full-time Mistress, a member of royalty (albeit way down the line), Geraldine. 
+9._NUDE_DAY:_A_DAY_THAT_CHANGES_EVERYTHING 
 
- And now, after all these years, the submissive mother was returning to her first full-time Mistress and curious why she wanted her back home. 
+For each of the family members, this Nude Day meant something different. 
 
- 9._NUDE_DAY:_A_DAY_THAT_CHANGES_EVERYTHING 
+For Amanda it was the anniversary of when her life changed forever. A change she wouldn't give up for anything. 
 
- For each of the family members, this Nude Day meant something different. 
+For Chloe it was the day of the sexual coup...where she would overthrow her dominant mother and became head Mistress. 
 
- For Amanda it was the anniversary of when her life changed forever. A change she wouldn't give up for anything. 
+For Deborah, it had a few purposes. It was a celebration for Amanda; also, with both girls graduating and going to different colleges at completely opposite ends of the country it was going to be a full day of family celebration of incestuous love; and lastly, she was looking forward to the big surprise, adding her submissive slut mother to the mix and in turn giving Amanda her very own pet. 
 
- For Chloe it was the day of the sexual coup...where she would overthrow her dominant mother and became head Mistress. 
+For Rose it was a chance to see her grandchildren, see her daughter and put some water under the bridge and to maybe, just maybe, be a submissive to her grandchildren. 
 
- For Deborah, it had a few purposes. It was a celebration for Amanda; also, with both girls graduating and going to different colleges at completely opposite ends of the country it was going to be a full day of family celebration of incestuous love; and lastly, she was looking forward to the big surprise, adding her submissive slut mother to the mix and in turn giving Amanda her very own pet. 
+The long flight gave Rose time to rest and time to recall last night's surprise going away lesbian orgy that was put on in her honour. 
 
- For Rose it was a chance to see her grandchildren, see her daughter and put some water under the bridge and to maybe, just maybe, be a submissive to her grandchildren. 
+a-family-affair67.jpg] 
 
- The long flight gave Rose time to rest and time to recall last night's surprise going away lesbian orgy that was put on in her honour. 
+That night, Rose was used by over a dozen women in every way imaginable and she loved every second of it. The more humiliating, the more it turned her on; the more degrading, the more it turned her on. She had long accepted that she was a complete submissive willing to obey every woman and was hoping to add two Mistresses in her two granddaughters. Exhausted from the hours of fucking, she drifted to sleep hoping to be completely refreshed in hopes of a second orgy...this one an all in the family one. 
 
- 
+On Nude Day morning, Deborah showered and looked in the mirror. The red she had tried to wash out had become a reddish brunette and although she didn't love it, it would have to do until she could get another appointment with the salon. She had tried yesterday, but Beverly was on holidays for a few days and only Beverly was allowed to touch her hair...an unfortunate perm a few years ago being the deciding factor to never go to anyone else. 
 
- a-family-affair67.jpg] 
+a-family-affair68.jpg] 
 
- That night, Rose was used by over a dozen women in every way imaginable and she loved every second of it. The more humiliating, the more it turned her on; the more degrading, the more it turned her on. She had long accepted that she was a complete submissive willing to obey every woman and was hoping to add two Mistresses in her two granddaughters. Exhausted from the hours of fucking, she drifted to sleep hoping to be completely refreshed in hopes of a second orgy...this one an all in the family one. 
+Deborah was just getting into the shower, her mother's flight due in about ninety minutes, as she flashed back to the last time she had seen her mother, a couple months before her daughter's eighteenth birthdays. 
 
- On Nude Day morning, Deborah showered and looked in the mirror. The red she had tried to wash out had become a reddish brunette and although she didn't love it, it would have to do until she could get another appointment with the salon. She had tried yesterday, but Beverly was on holidays for a few days and only Beverly was allowed to touch her hair...an unfortunate perm a few years ago being the deciding factor to never go to anyone else. 
+We had met at a hotel, the girls still too young to know that their mother and grandma were in a Mistress-submissive relationship. 
 
- 
+We fucked for hours and my mother had just finished coming from riding a strap- on cock when things fell apart. 
 
- a-family-affair68.jpg] 
+My mother, looking nervous and guilty, said, as she lay beside me, "I'm moving to Europe tomorrow." 
 
- Deborah was just getting into the shower, her mother's flight due in about ninety minutes, as she flashed back to the last time she had seen her mother, a couple months before her daughter's eighteenth birthdays. 
+"What?" I asked, surprised. 
 
- We had met at a hotel, the girls still too young to know that their mother and grandma were in a Mistress-submissive relationship. 
+"My new Mistress is making me move there with her," she admitted. 
 
- We fucked for hours and my mother had just finished coming from riding a strap- on cock when things fell apart. 
+"I'm your real Mistress," I pointed out. 
 
- My mother, looking nervous and guilty, said, as she lay beside me, "I'm moving to Europe tomorrow." 
+"Please, Deborah, I need this," my mom pleaded. 
 
- "What?" I asked, surprised. 
+I threatened, "If you go with her I'm disowning you as a pet." 
 
- "My new Mistress is making me move there with her," she admitted. 
+"Please," Mom pleaded. 
 
- "I'm your real Mistress," I pointed out. 
+The threats had always worked before, but this time they didn't. 
 
- "Please, Deborah, I need this," my mom pleaded. 
+She left the hotel and I hadn't seen her since. 
 
- I threatened, "If you go with her I'm disowning you as a pet." 
+It was definitely time to let go of her anger, yet at the same time punish her mother thoroughly for her disobedience. 
 
- "Please," Mom pleaded. 
+Chloe meanwhile called her newest pet, her mother's secretary, and order her to get over to her house ASAP. 
 
- The threats had always worked before, but this time they didn't. 
+The secretary, still in hair curlers, begged to not have to drive across down, pleaded to keep their relationship a secret, yet when Chloe threatened her with sending the photos she had taken last night to her husband, she told her husband Mrs. Parker needed her ASAP and headed out, still in a robe and curlers. 
 
- She left the hotel and I hadn't seen her since. 
+Chloe barely contained herself when Mrs. Carter arrived at her door. She nodded, "Good girl, but there will be a punishment for protesting coming in the first place." 
 
- It was definitely time to let go of her anger, yet at the same time punish her mother thoroughly for her disobedience. 
+"I don't want to be fired," the nervous secretary explained, as she walked into her employer's home for the first time. 
 
- Chloe meanwhile called her newest pet, her mother's secretary, and order her to get over to her house ASAP. 
+Chloe laughed, "Trust me, you don't have to worry about that." 
 
- The secretary, still in hair curlers, begged to not have to drive across down, pleaded to keep their relationship a secret, yet when Chloe threatened her with sending the photos she had taken last night to her husband, she told her husband Mrs. Parker needed her ASAP and headed out, still in a robe and curlers. 
+The secretary didn't understand the teen's meaning, even though her cunt was already getting wet. Last night was a revelation in what pleasure could really be like and although she felt incredible guilt at cheating on her husband and submitting to her boss's daughter, the pleasure was too good to not do again (Of course, the blackmail pictures didn't hurt either). 
 
- Chloe barely contained herself when Mrs. Carter arrived at her door. She nodded, "Good girl, but there will be a punishment for protesting coming in the first place." 
+"Follow me," Chloe said, in only a robe herself. 
 
- "I don't want to be fired," the nervous secretary explained, as she walked into her employer's home for the first time. 
+"Yes, Mistress," the nervous but horny secretary nodded. She followed the teen upstairs and then stopped when Chloe did. 
 
- Chloe laughed, "Trust me, you don't have to worry about that." 
+Chloe took off her robe in the middle of a hallway and revealed all she had on was a t-shirt and a strap-on cock. 
 
- The secretary didn't understand the teen's meaning, even though her cunt was already getting wet. Last night was a revelation in what pleasure could really be like and although she felt incredible guilt at cheating on her husband and submitting to her boss's daughter, the pleasure was too good to not do again (Of course, the blackmail pictures didn't hurt either). 
+The secretary gasped. 
 
- "Follow me," Chloe said, in only a robe herself. 
+"Get naked, slut," Chloe ordered. 
 
- "Yes, Mistress," the nervous but horny secretary nodded. She followed the teen upstairs and then stopped when Chloe did. 
+"Here?" the stunned secretary asked. 
 
- Chloe took off her robe in the middle of a hallway and revealed all she had on was a t-shirt and a strap-on cock. 
+"Unless you'd rather get fucked on my Mom's bed?" Chloe questioned, pointing to a closed door. 
 
- The secretary gasped. 
+Defeated, she took off her robe and nightie. 
 
- "Get naked, slut," Chloe ordered. 
+"Good girl," Chloe ordered, as she moved to her newest acquisition, turned her around, bent her over the railing and slid her cock inside. 
 
- "Here?" the stunned secretary asked. 
+"Ohhhhh," the MILF secretary moaned, trying to be quiet in case her boss was behind that closed door. 
 
- "Unless you'd rather get fucked on my Mom's bed?" Chloe questioned, pointing to a closed door. 
+"You love getting fucked by me, don't you?" Chloe asked, slowly fucking her Mom's secretary. 
 
- Defeated, she took off her robe and nightie. 
+"Yessss," Mrs. Carter admitted quietly. 
 
- "Good girl," Chloe ordered, as she moved to her newest acquisition, turned her around, bent her over the railing and slid her cock inside. 
+A door suddenly opened and Mrs. Carter froze. 
 
- "Ohhhhh," the MILF secretary moaned, trying to be quiet in case her boss was behind that closed door. 
+"Morning, sis," Chloe greeted. 
 
- "You love getting fucked by me, don't you?" Chloe asked, slowly fucking her Mom's secretary. 
+"Wow!" Amanda said, recognizing Mrs. Carter immediately. Amanda watched in voyeuristic awe, understanding instantly that this was a power play from her sister and she wasn't just talking about taking over the household, she meant it...and this was part one of her plan. 
 
- "Yessss," Mrs. Carter admitted quietly. 
+Chloe, meanwhile, slammed her plastic cock hard into the pet she had seduced just yesterday as a surprise for her mother and foreshadowing of what was to come. Mrs. Carter, her mother's secretary, was a mother of six, married for twenty-five years and the sweetest woman you could ever meet. That made the challenge deliciously appealing and all the more rewarding when the MILF ended up licking her pussy on her mother's desk last night. 
 
- A door suddenly opened and Mrs. Carter froze. 
+Deborah suddenly heard loud moaning coming from just outside her bedroom door as she came out of the shower. 
 
- "Morning, sis," Chloe greeted. 
+That was followed by Chloe's clear voice, "Take it all, slut." 
 
- "Wow!" Amanda said, recognizing Mrs. Carter immediately. Amanda watched in voyeuristic awe, understanding instantly that this was a power play from her sister and she wasn't just talking about taking over the household, she meant it...and this was part one of her plan. 
+Deborah chuckled to herself, 'apparently Chloe is starting the special day with a bang'. She shook her head as she towelled herself off. 
 
- Chloe, meanwhile, slammed her plastic cock hard into the pet she had seduced just yesterday as a surprise for her mother and foreshadowing of what was to come. Mrs. Carter, her mother's secretary, was a mother of six, married for twenty-five years and the sweetest woman you could ever meet. That made the challenge deliciously appealing and all the more rewarding when the MILF ended up licking her pussy on her mother's desk last night. 
+A minute later, she decided to go and watch her two daughters just as Chloe continued her verbal assault, "Beg for my cock, or I'm going to slam it in your shit hole." 
 
- Deborah suddenly heard loud moaning coming from just outside her bedroom door as she came out of the shower. 
+Yet, when Deborah opened the door she was surprised to see it wasn't her daughter Amanda being fucked, but her secretary from work, Mrs. Carter; someone she had always kept her naughty secrets from. 
 
- That was followed by Chloe's clear voice, "Take it all, slut." 
+Amanda was also watching as Chloe said to her, "I thought I'd give you a gift this Nude Day." 
 
- Deborah chuckled to herself, 'apparently Chloe is starting the special day with a bang'. She shook her head as she towelled herself off. 
+a-family-affair69.jpg] 
 
- A minute later, she decided to go and watch her two daughters just as Chloe continued her verbal assault, "Beg for my cock, or I'm going to slam it in your shit hole." 
+"Oh yes, Mistress, pound my cunt, make me your slut," the secretary begged, so consumed with pleasure she didn't hear the door open or know that her boss was now watching her get fucked by her daughter. 
 
- Yet, when Deborah opened the door she was surprised to see it wasn't her daughter Amanda being fucked, but her secretary from work, Mrs. Carter; someone she had always kept her naughty secrets from. 
+"Good morning, Mother," Chloe smiled, looking directly at her very shocked mother "I brought home you a present for Nude Day." 
 
- Amanda was also watching as Chloe said to her, "I thought I'd give you a gift this Nude Day." 
+Deborah was shocked. She had kept her work life and sex life separate, Deborah her long-time secretary and a great employee. 
 
- 
+Mrs. Carter apologized , mortified to being caught in such an act in front of her boss, as her orgasm hit, "Sorrrrrrrrrry, Mrs. Parker." 
 
- a-family-affair69.jpg] 
+Chloe pulled out and suggested, "Amanda, why don't you take our guest and either have yourself a morning orgasm or a morning snack, whatever you wish." 
 
- "Oh yes, Mistress, pound my cunt, make me your slut," the secretary begged, so consumed with pleasure she didn't hear the door open or know that her boss was now watching her get fucked by her daughter. 
+"Okay," a horny Amanda agreed, excited to have her own pet after the successful seduction of her best friend's mom. 
 
- "Good morning, Mother," Chloe smiled, looking directly at her very shocked mother "I brought home you a present for Nude Day." 
+"Go with Amanda, my pet," Chloe said, all the while still staring at her shocked mother, whose mouth was literally dropped open. 
 
- Deborah was shocked. She had kept her work life and sex life separate, Deborah her long-time secretary and a great employee. 
+Once Amanda and Mrs. Carter had disappeared into Amanda's room, Chloe said, "Let's go into your room and talk." 
 
- Mrs. Carter apologized , mortified to being caught in such an act in front of her boss, as her orgasm hit, "Sorrrrrrrrrry, Mrs. Parker." 
+"I couldn't agree more," a very angry mother nodded, looking forward to blasting her daughter even as she glanced at the door her secretary had just entered. Deciding to focus on one issue at a time, she followed her daughter. 
 
- Chloe pulled out and suggested, "Amanda, why don't you take our guest and either have yourself a morning orgasm or a morning snack, whatever you wish." 
+Once inside the room, Deborah snapped, going on a full offensive on her daughter, "How could you do that?" 
 
- "Okay," a horny Amanda agreed, excited to have her own pet after the successful seduction of her best friend's mom. 
+"Do what?" Chloe asked all innocent. 
 
- "Go with Amanda, my pet," Chloe said, all the while still staring at her shocked mother, whose mouth was literally dropped open. 
+"I made it very clear that my work life and home life were two separate things," the mother said, perturbed by her daughter's careless actions. 
 
- Once Amanda and Mrs. Carter had disappeared into Amanda's room, Chloe said, "Let's go into your room and talk." 
+"Well, I thought it was time for a rewriting of the rules," Chloe ordered, walking to her mother and ordering, "take off your robe." 
 
- "I couldn't agree more," a very angry mother nodded, looking forward to blasting her daughter even as she glanced at the door her secretary had just entered. Deciding to focus on one issue at a time, she followed her daughter. 
+"Excuse me?" Deborah asked, shocked by her daughter's tone and order. 
 
- Once inside the room, Deborah snapped, going on a full offensive on her daughter, "How could you do that?" 
+"You heard me, mother," Chloe said, now directly in front of her mother. "It's time for a change at the top." 
 
- "Do what?" Chloe asked all innocent. 
+Deborah scoffed, "You think so, do you?" 
 
- "I made it very clear that my work life and home life were two separate things," the mother said, perturbed by her daughter's careless actions. 
+"Now, Mommy-slut," Chloe ordered. 
 
- "Well, I thought it was time for a rewriting of the rules," Chloe ordered, walking to her mother and ordering, "take off your robe." 
+Deborah was shocked to hear that term as she flashed back to when she was Chloe's age, a little younger, actually, and had used that exact term on her mother. 
 
- "Excuse me?" Deborah asked, shocked by her daughter's tone and order. 
+Chloe sensed an opening, and took it, as she quickly pulled the robe off her mother. 
 
- "You heard me, mother," Chloe said, now directly in front of her mother. "It's time for a change at the top." 
+Deborah protested, "Chloe, enough!" 
 
- Deborah scoffed, "You think so, do you?" 
+"Oh, we are just getting started, Mommy-slut," Chloe countered, staying in charge. 
 
- "Now, Mommy-slut," Chloe ordered. 
+"Chloe May Parker," Deborah said, meaning business, even as she felt her cunt dampen. 
 
- Deborah was shocked to hear that term as she flashed back to when she was Chloe's age, a little younger, actually, and had used that exact term on her mother. 
+"Deborah Mommy-slut Parker," Chloe mocked back, as she put her hands on her mother's shoulders and roughly pushed her to her knees 
 
- Chloe sensed an opening, and took it, as she quickly pulled the robe off her mother. 
+As the bewildered mother went to speak, her own strap-on cock, the one she had often used to fuck Chloe, was shoved in her mouth. 
 
- Deborah protested, "Chloe, enough!" 
+Chloe smirked, as she began fucking her mother's face, stopping her from whatever protest her mother was about to make. 
 
- "Oh, we are just getting started, Mommy-slut," Chloe countered, staying in charge. 
+a-family-affair70.jpg] 
 
- "Chloe May Parker," Deborah said, meaning business, even as she felt her cunt dampen. 
+Although predominantly a domme, she had begun her lesbian life as a submissive first to Mrs. Appleton and then to many of the older women in the complex lesbian community she discovered existed. 
 
- "Deborah Mommy-slut Parker," Chloe mocked back, as she put her hands on her mother's shoulders and roughly pushed her to her knees 
+Deborah learned to be a switch when young; a submissive to many of the older women in the neighborhood and their daughters, yet a dominant to her mother. 
 
- As the bewildered mother went to speak, her own strap-on cock, the one she had often used to fuck Chloe, was shoved in her mouth. 
+As Deborah got older, she shifted mostly to her dominant side, enjoying the power of seduction, and had used only that side with her two children; yet as her daughter fucked her face she reverted to her submissive self of all those years ago. 
 
- Chloe smirked, as she began fucking her mother's face, stopping her from whatever protest her mother was about to make. 
+"That's it mother, suck all your secretary's pussy juice off my cock," Chloe ordered, revelling in the thrill of making her fantasy come true. 
 
- 
+Deborah had already forgotten her secretary as she had been overwhelmed with her own current predicament. 
 
- a-family-affair70.jpg] 
+Saliva dripped from the mother's mouth as she struggled to deal with the cock in it; usually she was on the other end of such an act. 
 
- Although predominantly a domme, she had begun her lesbian life as a submissive first to Mrs. Appleton and then to many of the older women in the complex lesbian community she discovered existed. 
+Chloe watched her mother contently, before deciding she needed to go for broke. She pulled the cock out of her mother's mouth and ordered, "On your back, Mommy-slut, it's time to fuck that cunt of yours." 
 
- Deborah learned to be a switch when young; a submissive to many of the older women in the neighborhood and their daughters, yet a dominant to her mother. 
+Deborah knew this was the moment of truth. She was forced to suck the cock, but this was an order, a test. She briefly considered her options, as her daughter pushed her. 
 
- As Deborah got older, she shifted mostly to her dominant side, enjoying the power of seduction, and had used only that side with her two children; yet as her daughter fucked her face she reverted to her submissive self of all those years ago. 
+Chloe added, "Now, Mother, we both know what you want right now, to be fucked by your Mistress." 
 
- "That's it mother, suck all your secretary's pussy juice off my cock," Chloe ordered, revelling in the thrill of making her fantasy come true. 
+Hearing her daughter call herself her 'Mistress' again sent mixed emotions through the mother, memories of long, long ago. She knew that if she willingly obeyed her daughter the whole dynamics of the household would be dramatically changed. Yet, she also couldn't deny the allure and pull of submitting to her very strong-willed daughter, a definite Mistress in the making. 
 
- Deborah had already forgotten her secretary as she had been overwhelmed with her own current predicament. 
+Chloe, sensing her mother was on the brink of submission, and wanting her mother to submit to her, said, "Now or never, Mommy-slut. I have two other pets in the next room who would willingly lay on their backs and obey." 
 
- Saliva dripped from the mother's mouth as she struggled to deal with the cock in it; usually she was on the other end of such an act. 
+Frustrated and horny, the mother felt her body getting in position even as her mind was counting the pros and cons of the decision. 
 
- Chloe watched her mother contently, before deciding she needed to go for broke. She pulled the cock out of her mother's mouth and ordered, "On your back, Mommy-slut, it's time to fuck that cunt of yours." 
+"Good, Mommy-slut," Chloe purred, watching her mother obey. She quickly got in position, spreading her mother's legs and sliding her cock in. 
 
- Deborah knew this was the moment of truth. She was forced to suck the cock, but this was an order, a test. She briefly considered her options, as her daughter pushed her. 
+Deborah moaned the instant her cunt was filled, the doubt of submission fading as the pleasure increased. 
 
- Chloe added, "Now, Mother, we both know what you want right now, to be fucked by your Mistress." 
+a-family-affair71.jpg] 
 
- Hearing her daughter call herself her 'Mistress' again sent mixed emotions through the mother, memories of long, long ago. She knew that if she willingly obeyed her daughter the whole dynamics of the household would be dramatically changed. Yet, she also couldn't deny the allure and pull of submitting to her very strong-willed daughter, a definite Mistress in the making. 
+Chloe didn't make love to her mother, she fucked her and she fucked her hard. 
 
- Chloe, sensing her mother was on the brink of submission, and wanting her mother to submit to her, said, "Now or never, Mommy-slut. I have two other pets in the next room who would willingly lay on their backs and obey." 
+The mother quickly reverted to her submissive self as her daughter took control. 
 
- Frustrated and horny, the mother felt her body getting in position even as her mind was counting the pros and cons of the decision. 
+"You like getting fucked by your daughter, Mommy-slut?" Chloe asked, even though she already knew the answer. 
 
- "Good, Mommy-slut," Chloe purred, watching her mother obey. She quickly got in position, spreading her mother's legs and sliding her cock in. 
+"Yesssssssss," Deborah moaned. 
 
- Deborah moaned the instant her cunt was filled, the doubt of submission fading as the pleasure increased. 
+"Yes, what?" Chloe asked, using her mother's style against her. 
 
- 
+"Yes, Mistresssssss," the mother easily answered, the words meaning very little after she had already spread her legs and willingly allowed her daughter in. 
 
- a-family-affair71.jpg] 
+Chloe loved hearing the declaration and, wanting to push her further, pulled out a couple of minutes later, and ordered, "On all fours, Mommy-slut." 
 
- Chloe didn't make love to her mother, she fucked her and she fucked her hard. 
+The mother quickly obeyed, assuming her daughter planned to fuck her ass as a symbolic statement of the hierarchy shift in the house. 
 
- The mother quickly reverted to her submissive self as her daughter took control. 
+a-family-affair72.jpg] 
 
- "You like getting fucked by your daughter, Mommy-slut?" Chloe asked, even though she already knew the answer. 
+Chloe, knowing her mother would assume she was going to take her in the ass, instead slid the cock back in her mother's cunt. 
 
- "Yesssssssss," Deborah moaned. 
+"Yes, fuck Mommy's cunt," Deborah moaned, her orgasm on the rise. 
 
- "Yes, what?" Chloe asked, using her mother's style against her. 
+Chloe slammed into her mother, wanting to hear her scream with pleasure. 
 
- "Yes, Mistresssssss," the mother easily answered, the words meaning very little after she had already spread her legs and willingly allowed her daughter in. 
+"Oh yessss," the mother continued, wanting to make the submission nasty and hot, "pound my cunt, the cunt you came out of nineteen years agoooooooo." 
 
- Chloe loved hearing the declaration and, wanting to push her further, pulled out a couple of minutes later, and ordered, "On all fours, Mommy-slut." 
+Chloe smiled at her mother's wicked tongue and ordered, "Tell me what you are." 
 
- The mother quickly obeyed, assuming her daughter planned to fuck her ass as a symbolic statement of the hierarchy shift in the house. 
+"Your slut, your Mommy-slut," the Mommy-slut declared. 
 
- 
+"And what does a Mommy-slut do?" Chloe questioned. 
 
- a-family-affair72.jpg] 
+"Obeyyyy," Deborah answered, her orgasm getting ready to erupt. 
 
- Chloe, knowing her mother would assume she was going to take her in the ass, instead slid the cock back in her mother's cunt. 
+"Obey who?" Chloe asked, wanting to hear her mother say it. 
 
- "Yes, fuck Mommy's cunt," Deborah moaned, her orgasm on the rise. 
+"You, Mistress," the mother admitted, now bouncing back on her daughter's cock. 
 
- Chloe slammed into her mother, wanting to hear her scream with pleasure. 
+"Are you ready to come?" Chloe asked, the question rhetorical. 
 
- "Oh yessss," the mother continued, wanting to make the submission nasty and hot, "pound my cunt, the cunt you came out of nineteen years agoooooooo." 
+"Yessssss, Mistress," Deborah moaned. 
 
- Chloe smiled at her mother's wicked tongue and ordered, "Tell me what you are." 
+"Beg to come," Chloe ordered, loving hearing her mother so obedient. 
 
- "Your slut, your Mommy-slut," the Mommy-slut declared. 
+"Please, Mistress, let your Mommy-slut come on your cock," Deborah begged. "make me your full time Mommy fuck-slutttttt." 
 
- "And what does a Mommy-slut do?" Chloe questioned. 
+"And also Amanda's Mommy-slut," Chloe added. 
 
- "Obeyyyy," Deborah answered, her orgasm getting ready to erupt. 
+"Reallllly?" Deborah asked, surprised. 
 
- "Obey who?" Chloe asked, wanting to hear her mother say it. 
+"Say it," Chloe demanded. 
 
- "You, Mistress," the mother admitted, now bouncing back on her daughter's cock. 
+"Yes, I'll be both my daughters' Mommy-slut and I'll eat your cunts, your assholes and anything else you want me to do," Deborah declared, suddenly turned on even more by becoming low slut on the totem pole. 
 
- "Are you ready to come?" Chloe asked, the question rhetorical. 
+"Come now, my pussy pleasing, ass munching, Mommy-slave," Chloe listed, continuing to pound her mother hard. 
 
- "Yessssss, Mistress," Deborah moaned. 
+Permission given, the mother submissive screamed, "Yesssssssssssss," as her orgasm rushed through her. 
 
- "Beg to come," Chloe ordered, loving hearing her mother so obedient. 
+a-family-affair73.jpg] 
 
- "Please, Mistress, let your Mommy-slut come on your cock," Deborah begged. "make me your full time Mommy fuck-slutttttt." 
+Immediately, Chloe pulled out and slammed into her mother's ass even as her mother's orgasm riddled her with pleasure. 
 
- "And also Amanda's Mommy-slut," Chloe added. 
+"Oh God, you bad girrrrrrrl," Mommy moaned, easily taking the plastic cock in her back door. 
 
- "Reallllly?" Deborah asked, surprised. 
+"You love it in the ass, don't you, Mommy-ass-slut?" Chloe questioned, as she reamed her mother's back door. 
 
- "Say it," Chloe demanded. 
+"Soooo much," Deborah admitted, always loving the utter submission of giving up her ass, just like she loved taking a virgin ass from a new pet. 
 
- "Yes, I'll be both my daughters' Mommy-slut and I'll eat your cunts, your assholes and anything else you want me to do," Deborah declared, suddenly turned on even more by becoming low slut on the totem pole. 
+Chloe continued roughly drilling her mother, wanting to see if she could get her off a second time. 
 
- "Come now, my pussy pleasing, ass munching, Mommy-slave," Chloe listed, continuing to pound her mother hard. 
+Deborah was in complete euphoria, loving being on all fours, loving being taken from behind and loving just giving in and obeying. 
 
- Permission given, the mother submissive screamed, "Yesssssssssssss," as her orgasm rushed through her. 
+Chloe began getting tired and decided she too deserved an orgasm. She pulled out and ordered, "Get on the bed, Mommy-slut." 
 
- 
+Deborah was getting close to a second orgasm, and so was disappointed, but hopeful the ass fucking would resume. 
 
- a-family-affair73.jpg] 
+Chloe took the strap-on off, grabbed a double ended dildo she often used with her sister and returned to the bed. "This is Amanda's favourite toy." 
 
- Immediately, Chloe pulled out and slammed into her mother's ass even as her mother's orgasm riddled her with pleasure. 
+"I'm sure it will be mine too," Deborah smiled, looking forward to what was about to happen. 
 
- "Oh God, you bad girrrrrrrl," Mommy moaned, easily taking the plastic cock in her back door. 
+It took a little bit of work, but soon the dildo was in both the mother and daughter and they began to fuck each other. 
 
- "You love it in the ass, don't you, Mommy-ass-slut?" Chloe questioned, as she reamed her mother's back door. 
+Chloe's cunt was on fire over her most successful seduction yet and in only a couple of minutes her orgasm was about to burst. 
 
- "Soooo much," Deborah admitted, always loving the utter submission of giving up her ass, just like she loved taking a virgin ass from a new pet. 
-
- Chloe continued roughly drilling her mother, wanting to see if she could get her off a second time. 
-
- Deborah was in complete euphoria, loving being on all fours, loving being taken from behind and loving just giving in and obeying. 
-
- Chloe began getting tired and decided she too deserved an orgasm. She pulled out and ordered, "Get on the bed, Mommy-slut." 
-
- Deborah was getting close to a second orgasm, and so was disappointed, but hopeful the ass fucking would resume. 
-
- Chloe took the strap-on off, grabbed a double ended dildo she often used with her sister and returned to the bed. "This is Amanda's favourite toy." 
-
- "I'm sure it will be mine too," Deborah smiled, looking forward to what was about to happen. 
-
- It took a little bit of work, but soon the dildo was in both the mother and daughter and they began to fuck each other. 
-
- Chloe's cunt was on fire over her most successful seduction yet and in only a couple of minutes her orgasm was about to burst. 
-
- 
-
- a-family-affair74.jpg] 0 
-
- 
-
- 
+a-family-affair74.jpg] 0 
 
 ===
 
 "Ah, ah, ah, oh, ah, fuuuuuuck," Chloe screamed, as her orgasm coursed through her. 
 
- They continued for a couple more minutes until Deborah's second orgasm hit her. 
+They continued for a couple more minutes until Deborah's second orgasm hit her. 
 
- Looking at the clock, as she recovered from her second orgasm, she realized she was going to be late picking up her mother. "Fuck," she cursed, standing up. 
+Looking at the clock, as she recovered from her second orgasm, she realized she was going to be late picking up her mother. "Fuck," she cursed, standing up. 
 
- "What, regret already?" Chloe smiled. 
+"What, regret already?" Chloe smiled. 
 
- "No, no," Deborah shook her head, as she stood up. "I have to pick someone up at the airport in thirty minutes. 
+"No, no," Deborah shook her head, as she stood up. "I have to pick someone up at the airport in thirty minutes. 
 
- "Who?" Chloe asked, intrigued. 
+"Who?" Chloe asked, intrigued. 
 
- Deborah, still trying to hold a slight amount of control, smiled, "It's a surprise." 
+Deborah, still trying to hold a slight amount of control, smiled, "It's a surprise." 
 
- Chloe shrugged, "I like surprises." 
+Chloe shrugged, "I like surprises." 
 
- "Well, you will love this one," Deborah promised, as she rushed to get dressed even as her cum leaked down her leg. 
+"Well, you will love this one," Deborah promised, as she rushed to get dressed even as her cum leaked down her leg. 
 
- ..... 
+..... 
 
- Chloe and Amanda were in a sixty-nine when Deborah returned home with her mother. 
+Chloe and Amanda were in a sixty-nine when Deborah returned home with her mother. 
 
- Deborah had kept the conversation to generic 'how is life' and so forth, her head still spinning with the consequences of what had transpired with Chloe. 
+Deborah had kept the conversation to generic 'how is life' and so forth, her head still spinning with the consequences of what had transpired with Chloe. 
 
- Rose wanted to ask about her grandchildren and the lesbian tradition and yet didn't want to broach the topic first. She got the answer to the question the minute she walked in the door and saw her grandchildren in a sixty-nine. 
+Rose wanted to ask about her grandchildren and the lesbian tradition and yet didn't want to broach the topic first. She got the answer to the question the minute she walked in the door and saw her grandchildren in a sixty-nine. 
 
- 
+a-family-affair75.jpg] 
 
- a-family-affair75.jpg] 
+Deborah cleared her throat and said, "Girls, we have a guest." 
 
- Deborah cleared her throat and said, "Girls, we have a guest." 
+Both looked up and saw their grandma in front of them. 
 
- Both looked up and saw their grandma in front of them. 
+Amanda gasped, pussy juice all over her lips, "Grandma!" 
 
- Amanda gasped, pussy juice all over her lips, "Grandma!" 
+Chloe, who assumed that grandma was the surprise, took control, and playfully ordered, "What are you two doing just standing there. It's Nude Day. Get naked." 
 
- Chloe, who assumed that grandma was the surprise, took control, and playfully ordered, "What are you two doing just standing there. It's Nude Day. Get naked." 
+Mom looked at her mother and ordered, "Get naked, Mommy-slut, it's time to make up for lost time." 
 
- Mom looked at her mother and ordered, "Get naked, Mommy-slut, it's time to make up for lost time." 
+"I couldn't agree more, Mistress Deborah," the grandma replied, quickly beginning to discard her clothes...all her questions answered. 
 
- "I couldn't agree more, Mistress Deborah," the grandma replied, quickly beginning to discard her clothes...all her questions answered. 
+"I think it is time to welcome grandma," Chloe declared. 
 
- "I think it is time to welcome grandma," Chloe declared. 
+Deborah agreed, "I couldn't agree more, Mistress Chloe." 
 
- Deborah agreed, "I couldn't agree more, Mistress Chloe." 
+Rose asked, trying to understand the hierarchy, "So who is in charge here?" 
 
- Rose asked, trying to understand the hierarchy, "So who is in charge here?" 
+"I am," Chloe ordered, "then my big sister Amanda here and then....." 
 
- "I am," Chloe ordered, "then my big sister Amanda here and then....." 
+"Then it's me and as usual, Mommy-slut, you are at the bottom," Deborah finished. 
 
- "Then it's me and as usual, Mommy-slut, you are at the bottom," Deborah finished. 
+"I wouldn't have it any other way, Mistresses," Rose nodded, now naked. 
 
- "I wouldn't have it any other way, Mistresses," Rose nodded, now naked. 
+Chloe grabbed another of her Mother's strap-on's and put it on her waist, looking forward to fucking her sexy grandma. 
 
- Chloe grabbed another of her Mother's strap-on's and put it on her waist, looking forward to fucking her sexy grandma. 
+Rose asked, "Is that for me?" 
 
- Rose asked, "Is that for me?" 
+"Do you want it to be for you?" Chloe asked. "Usually it's for Amanda." 
 
- "Do you want it to be for you?" Chloe asked. "Usually it's for Amanda." 
+Amanda blushed, watching the strange conversation. 
 
- Amanda blushed, watching the strange conversation. 
+Rose nodded, "I'd love you to fuck your ol' grandma, Mistress Chloe." 
 
- Rose nodded, "I'd love you to fuck your ol' grandma, Mistress Chloe." 
+Chloe ordered, "Knees, Grandma." She wasn't sure what to call her, 'pet grandma' and 'grandma slut' just sounded weird. 
 
- Chloe ordered, "Knees, Grandma." She wasn't sure what to call her, 'pet grandma' and 'grandma slut' just sounded weird. 
+a-family-affair76.jpg] 
 
- 
+"Yes, Mistress," Rose replied, dropping to her knees. 
 
- a-family-affair76.jpg] 
+"Suck my cock, ah," Chloe paused. 
 
- "Yes, Mistress," Rose replied, dropping to her knees. 
+"Call her Nana-slut," Deborah suggested, seeing Chloe pausing. 
 
- "Suck my cock, ah," Chloe paused. 
+"Nana-slut," Chloe nodded, "I like that." 
 
- "Call her Nana-slut," Deborah suggested, seeing Chloe pausing. 
+"Call me whatever you want, Mistress," Rose replied, before leaning forward and taking the plastic cock in her mouth. 
 
- "Nana-slut," Chloe nodded, "I like that." 
+Deborah quipped, "I used to have mother sucking my cock or eating my pussy every day when I was your age." 
 
- "Call me whatever you want, Mistress," Rose replied, before leaning forward and taking the plastic cock in her mouth. 
+"And now I will have you doing the very same," Chloe quipped. 
 
- Deborah quipped, "I used to have mother sucking my cock or eating my pussy every day when I was your age." 
+Amanda finally spoke, "Mother, get over here." 
 
- "And now I will have you doing the very same," Chloe quipped. 
+Chloe smiled, liking seeing her sister showing some gumption. "She's Mommy-slut now." 
 
- Amanda finally spoke, "Mother, get over here." 
+Amanda nodded, "Get over here, Mommy-slut." 
 
- Chloe smiled, liking seeing her sister showing some gumption. "She's Mommy-slut now." 
+"Yes, Mistress Amanda," Deborah nodded, as she went to her other daughter and buried her face between her open legs. 
 
- Amanda nodded, "Get over here, Mommy-slut." 
+Chloe watched her mother crawl between Amanda's legs before deciding it was time to fuck her grandma. She said, "Ready for your welcome back fucking, Nana- slut?" 
 
- "Yes, Mistress Amanda," Deborah nodded, as she went to her other daughter and buried her face between her open legs. 
+The Nana-slut agreed, "I'd love my beautiful grand-daughter to pound her Nana." 
 
- Chloe watched her mother crawl between Amanda's legs before deciding it was time to fuck her grandma. She said, "Ready for your welcome back fucking, Nana- slut?" 
+"Bend over," Chloe ordered, fucking a third older woman's cunt today already and it was barely lunchtime. 
 
- The Nana-slut agreed, "I'd love my beautiful grand-daughter to pound her Nana." 
+"Yes, Mistress," Rose immediately obeyed, getting on all fours. 
 
- "Bend over," Chloe ordered, fucking a third older woman's cunt today already and it was barely lunchtime. 
+Chloe glanced at her mother licking her sister as she moved behind her Nana. Even she was surprised by the incestuous lesbian orgy that was now taking place. 
 
- "Yes, Mistress," Rose immediately obeyed, getting on all fours. 
+"That's it Mommy, lick my cunt," Amanda moaned loudly. 
 
- Chloe glanced at her mother licking her sister as she moved behind her Nana. Even she was surprised by the incestuous lesbian orgy that was now taking place. 
+Rose begged, wanting to be fucked, "Please, Mistress, fuck your grandma, she has fantasized about this for a long time." 
 
- "That's it Mommy, lick my cunt," Amanda moaned loudly. 
+"Fantasized about what?" Chloe asked, intrigued. 
 
- Rose begged, wanting to be fucked, "Please, Mistress, fuck your grandma, she has fantasized about this for a long time." 
+"Of this moment," Rose admitted. "Of my granddaughters joining in on the family secret, the legacy, and hopefully understanding my need to be a complete slut for every member of the Parker family." 
 
- "Fantasized about what?" Chloe asked, intrigued. 
+"Today is definitely about slutting it up," Chloe agreed, as she slid her cock in her Nana's cunt. 
 
- "Of this moment," Rose admitted. "Of my granddaughters joining in on the family secret, the legacy, and hopefully understanding my need to be a complete slut for every member of the Parker family." 
+"Yessss, oh God," the Nana-slut moaned as her cunt was finally filled. 
 
- "Today is definitely about slutting it up," Chloe agreed, as she slid her cock in her Nana's cunt. 
+Chloe loved the power she had over every Parker girl, while Amanda loved the shift of the hierarchy that put her no longer at the bottom, while Deborah loved the rekindling of her former submissive self, while Rose just loved being used, fucked and humiliated. 
 
- "Yessss, oh God," the Nana-slut moaned as her cunt was finally filled. 
+a-family-affair77.jpg] 
 
- Chloe loved the power she had over every Parker girl, while Amanda loved the shift of the hierarchy that put her no longer at the bottom, while Deborah loved the rekindling of her former submissive self, while Rose just loved being used, fucked and humiliated. 
+"Does Nana-slut like being fucked by her granddaughter?" Chloe questioned as she slammed her cock in her still very beautiful Nana. Actually, as she fucked her she smiled knowing that even in forty years she would still be a very hot woman. 
 
- 
+"God yes, Mistress," Rose moaned, "I fucking love being a slut for all my family members." 
 
- a-family-affair77.jpg] 
+"Do you want to eat our cunts?" Chloe asked. 
 
- "Does Nana-slut like being fucked by her granddaughter?" Chloe questioned as she slammed her cock in her still very beautiful Nana. Actually, as she fucked her she smiled knowing that even in forty years she would still be a very hot woman. 
+"I want to bury my face in each and every one of you," the slutty grandma admitted, suddenly salivating at the opportunity of eating her daughter again and also tasting both her grandchildren for the very first time. 
 
- "God yes, Mistress," Rose moaned, "I fucking love being a slut for all my family members." 
+Amanda moaned, turned on greatly watching her sister fuck her grandma while her mother licked her pussy, "I call eating grandma first." 
 
- "Do you want to eat our cunts?" Chloe asked. 
+"I call getting my cunt licked by my mother first," Deborah called out, between licks. 
 
- "I want to bury my face in each and every one of you," the slutty grandma admitted, suddenly salivating at the opportunity of eating her daughter again and also tasting both her grandchildren for the very first time. 
+"And I guess I get first fuck," Chloe laughed, as she continued thrusting into her grandma. 
 
- Amanda moaned, turned on greatly watching her sister fuck her grandma while her mother licked her pussy, "I call eating grandma first." 
+"And I think I'm about to have my orgasm," Rose declared. 
 
- "I call getting my cunt licked by my mother first," Deborah called out, between licks. 
+"Come for me," Chloe demanded, "Come, my grandma whore." 
 
- "And I guess I get first fuck," Chloe laughed, as she continued thrusting into her grandma. 
+"Oh yes, Mistress," the grandma whore moaned loudly, "call your grandma dirty names." 
 
- "And I think I'm about to have my orgasm," Rose declared. 
+"Now, you fucking cunt licking slut," Chloe ordered getting turned on by calling her grandma names. The grandma that always bought them the best presents, the grandma that always called them dear, and the grandma that was now the ultimate family slut. 
 
- "Come for me," Chloe demanded, "Come, my grandma whore." 
+"Yessssss," Amanda screamed, watching her grandma getting fucked too much to resist as her orgasm hit. 
 
- "Oh yes, Mistress," the grandma whore moaned loudly, "call your grandma dirty names." 
+Seconds later, Rose followed, "Yesssssssss, aaaaaaaaaaah." 
 
- "Now, you fucking cunt licking slut," Chloe ordered getting turned on by calling her grandma names. The grandma that always bought them the best presents, the grandma that always called them dear, and the grandma that was now the ultimate family slut. 
+As soon as her daughter had come, Deborah got up, moved to her still trembling mother and shoved her cunt in her face. 
 
- "Yessssss," Amanda screamed, watching her grandma getting fucked too much to resist as her orgasm hit. 
+The submissive Rose, immediately began licking her daughter like she had so many times over the years. 
 
- Seconds later, Rose followed, "Yesssssssss, aaaaaaaaaaah." 
+a-family-affair78.jpg] 
 
- As soon as her daughter had come, Deborah got up, moved to her still trembling mother and shoved her cunt in her face. 
+"Oohhnn lick my pussy good, whore," Deborah demanded, as her mother went to work on her already very wet cunt. 
 
- The submissive Rose, immediately began licking her daughter like she had so many times over the years. 
+"Oh yes, I missed this cunt so much," Rose moaned. 
 
- 
+Chloe and Amanda both watched their mother and grandma with complete awe, the scene undeniably hot and yet surreal. 
 
- a-family-affair78.jpg] 
+Deborah whimpered, as her mother slid a finger inside her fiery box, "Oh yes, Mommy-slut, finger fuck your daughter, your Mistress." 
 
- "Oohhnn lick my pussy good, whore," Deborah demanded, as her mother went to work on her already very wet cunt. 
+The Mommy-slut obeyed, furiously pumping one and then two fingers inside her moaning daughter. She was dying to get the full flood of her daughter's cum, an addiction she had gone without satisfying for far too long. 
 
- "Oh yes, I missed this cunt so much," Rose moaned. 
+"Oh yes, you fucking bitch," Deborah said, grabbing her mother's head and roughly beginning to fuck both the fingers and her mother's face. 
 
- Chloe and Amanda both watched their mother and grandma with complete awe, the scene undeniably hot and yet surreal. 
+"That's new," Chloe said. 
 
- Deborah whimpered, as her mother slid a finger inside her fiery box, "Oh yes, Mommy-slut, finger fuck your daughter, your Mistress." 
+"Creative though," Amanda added. 
 
- The Mommy-slut obeyed, furiously pumping one and then two fingers inside her moaning daughter. She was dying to get the full flood of her daughter's cum, an addiction she had gone without satisfying for far too long. 
+"We will have to try it," Cloe nodded, as she watched her mother fuck her own mother's face. 
 
- "Oh yes, you fucking bitch," Deborah said, grabbing her mother's head and roughly beginning to fuck both the fingers and her mother's face. 
+"Yesssss, I'm comingggggg," Deborah declared. 
 
- "That's new," Chloe said. 
+Rose eagerly lapped up her daughter's pussy juice as if it was the sweetest wine, which to her it was. 
 
- "Creative though," Amanda added. 
+Chloe said, as everyone was calming down, "I think it's time for a break and some stories." 
 
- "We will have to try it," Cloe nodded, as she watched her mother fuck her own mother's face. 
+They had lunch (real food and not cunt), broke open the wine (real wine not cunt juice) and shared the tale of their seductions since the challenge was made a couple weeks ago. 
 
- "Yesssss, I'm comingggggg," Deborah declared. 
+Chloe was impressed by Amanda's seduction, which explained her sudden shift in demeanour. 
 
- Rose eagerly lapped up her daughter's pussy juice as if it was the sweetest wine, which to her it was. 
+The rest of the day was a wild adventure of incestuous lust: 
 
- Chloe said, as everyone was calming down, "I think it's time for a break and some stories." 
+Amanda craving pussy, buried her face in her grandma while both she. Chloe and Deborah filmed the activity. 
 
- They had lunch (real food and not cunt), broke open the wine (real wine not cunt juice) and shared the tale of their seductions since the challenge was made a couple weeks ago. 
+a-family-affair79.jpg] 
 
- Chloe was impressed by Amanda's seduction, which explained her sudden shift in demeanour. 
+Chloe, oddly craving a pussy snack of her own, finished the pussy pleasing of her sister that had been interrupted when Grandma arrived. 
 
- The rest of the day was a wild adventure of incestuous lust: 
+a-family-affair80.jpg] 
 
- Amanda craving pussy, buried her face in her grandma while both she. Chloe and Deborah filmed the activity. 
+Amanda, in a giving mood, ended up eating her mother's cunt and ass. 
 
- 
+a-family-affair81.jpg] 
 
- a-family-affair79.jpg] 
+And grandma took a very creative double penetration. 
 
- Chloe, oddly craving a pussy snack of her own, finished the pussy pleasing of her sister that had been interrupted when Grandma arrived. 
+a-family-affair82.jpg] 
 
- 
+The night ended with a lengthy lesbian daisy chain where there were no Mistresses, no submissives, just female Parkers pleasing each other. 
 
- a-family-affair80.jpg] 
+They repeated the incestuous lesbian orgy the next day too, each of them understanding their role in the family. 
 
- Amanda, in a giving mood, ended up eating her mother's cunt and ass. 
+10._EPILOGUE 
 
- 
+A couple months later, Nana back in Europe with a promise to return for a trip to Vegas for just the four of them, the clueless father and husband found out that things were not as he had assumed. They all agreed to make every day Nude Day when the dad/father wasn't around and even had a plan in place in case he ever came home unexpectedly. 
 
- a-family-affair81.jpg] 
+That day finally came. The father home two days early after a deal got signed incredibly quickly, he walked in the door, into the living room and found his innocent academic wallflower daughter fucking his sister, Tabitha, in the ass. 
 
- And grandma took a very creative double penetration. 
+He stammered, "A-A-Amanda, T-T-Tabitha." 
 
- 
+"Hi, Daddy, you're home early" she smiled in her usual sweet way as she continued fucking the MILF's tight asshole. 
 
- a-family-affair82.jpg] 
+The bewildered father and brother stared at the incestuous act happening in his living room. 
 
- The night ended with a lengthy lesbian daisy chain where there were no Mistresses, no submissives, just female Parkers pleasing each other. 
+Tabitha moaned, wanting to shock her brother even more, loving the look on his bewildered, pretentious face, "Yes, Mistress Amanda, pound Auntie's asshole." 
 
- They repeated the incestuous lesbian orgy the next day too, each of them understanding their role in the family. 
+'Mistress Amanda?' the father thought to himself, utterly speechless. He wanted to say something, to scold his daughter, to berate his sister, but instead stared at the incestuous lesbian action, his cock betraying him by stiffening in his trousers. Of course, like every man in the world, he had forever fantasized about seeing a live lesbian sex act, he just never imagined it would be with his daughter as one of the participants...especially his good girl, and his slutty older sister as the other. 
 
- 
+a-family-affair83.jpg] 
 
- 
+"You love it in the ass don't you, my dirty fucking ass-slut," Amanda asked, talking even dirtier to further shock her already shocked father. 
 
- 10._EPILOGUE 
+"Oh yes, Mistress, drill my shit hole, shove all eight inches in your dirty cunt munching, ass taking Auntie whore," the submissive auntie moaned, getting even more turned on knowing her brother was watching. Looking at her brother, his crotch particularly, she asked, "Is my baby brother getting hard watching his daughter ass fuck his sister?" 
 
- A couple months later, Nana back in Europe with a promise to return for a trip to Vegas for just the four of them, the clueless father and husband found out that things were not as he had assumed. They all agreed to make every day Nude Day when the dad/father wasn't around and even had a plan in place in case he ever came home unexpectedly. 
+"Where's Deborah?" the brother and father asked. 
 
- That day finally came. The father home two days early after a deal got signed incredibly quickly, he walked in the door, into the living room and found his innocent academic wallflower daughter fucking his sister, Tabitha, in the ass. 
+Amanda added, looking at her father with a sly smirk, even as she continued to literally pound the shit out of her slut, "Mommy's outside." 
 
- He stammered, "A-A-Amanda, T-T-Tabitha." 
+The bewildered father stormed out, adjusting his cock as he headed out back to talk to his wife about what he had just witnessed. 
 
- "Hi, Daddy, you're home early" she smiled in her usual sweet way as she continued fucking the MILF's tight asshole. 
+a-family-affair84.jpg] 
 
- The bewildered father and brother stared at the incestuous act happening in his living room. 
+He was about to ask how his wife could allow what was happening in their own house to happen when he saw not only his wife, but his younger sister. 
 
- Tabitha moaned, wanting to shock her brother even more, loving the look on his bewildered, pretentious face, "Yes, Mistress Amanda, pound Auntie's asshole." 
+"Deborah, Melanie!" the doubly shocked husband gasped. 
 
- 'Mistress Amanda?' the father thought to himself, utterly speechless. He wanted to say something, to scold his daughter, to berate his sister, but instead stared at the incestuous lesbian action, his cock betraying him by stiffening in his trousers. Of course, like every man in the world, he had forever fantasized about seeing a live lesbian sex act, he just never imagined it would be with his daughter as one of the participants...especially his good girl, and his slutty older sister as the other. 
+"Hi, honey," a surprised, but not embarrassed, Deborah greeted, before adding, "you're home early." 
 
- 
+The father was shocked at the words 'you're home early' as if that was the explanation for what he was witnessing. 
 
- a-family-affair83.jpg] 
+His sister smiled, "You said I should get to know my sister-in-law better. Well, I'm getting to know your wife inside and out, aren't I, my little cunt licking slut?" 
 
- "You love it in the ass don't you, my dirty fucking ass-slut," Amanda asked, talking even dirtier to further shock her already shocked father. 
+"Yes, Mistress Melanie," Deborah nodded, turning back to her husband's much younger sister. 
 
- "Oh yes, Mistress, drill my shit hole, shove all eight inches in your dirty cunt munching, ass taking Auntie whore," the submissive auntie moaned, getting even more turned on knowing her brother was watching. Looking at her brother, his crotch particularly, she asked, "Is my baby brother getting hard watching his daughter ass fuck his sister?" 
+Enraged and yet paralyzed with shock, he watched as his wife leaned forward and began kissing his sister. 
 
- "Where's Deborah?" the brother and father asked. 
+His sister broke the kiss and ordered, "Ready to eat your Mistress's cunt?" 
 
- Amanda added, looking at her father with a sly smirk, even as she continued to literally pound the shit out of her slut, "Mommy's outside." 
+"God, yes," Deborah agreed, as she playfully pushed her sister-in-law onto her back and buried her face in her cunt, even as her husband watched in shock. 
 
- The bewildered father stormed out, adjusting his cock as he headed out back to talk to his wife about what he had just witnessed. 
+He watched his wife bury her face in his sister's cunt, before turning and walking back in the house, where he heard his older sister scream, "I'm cominnnnnng." 
 
- 
+He went upstairs towards his room and got the third shock in five minutes when he walked into his own bedroom where his mother was riding a strap-on cock worn by his daughter Chloe. 
 
- a-family-affair84.jpg] 
+a-family-affair85.jpg] 
 
- He was about to ask how his wife could allow what was happening in their own house to happen when he saw not only his wife, but his younger sister. 
+"Mom!" he gasped, staring at his mother, unexpectedly living out a fantasy he had, like most boys, of seeing his mother naked. 
 
- "Deborah, Melanie!" the doubly shocked husband gasped. 
+Chloe looked at her father and ordered, "Sit down, Dad." 
 
- "Hi, honey," a surprised, but not embarrassed, Deborah greeted, before adding, "you're home early." 
+"Excuse me," he said, shocked by his daughter telling him what to do when she was just caught in the act of lesbianism with his mother, her grandmother. 
 
- The father was shocked at the words 'you're home early' as if that was the explanation for what he was witnessing. 
+"Now, Martin," his mother added, even as she continued bouncing on the strap-on cock. 
 
- His sister smiled, "You said I should get to know my sister-in-law better. Well, I'm getting to know your wife inside and out, aren't I, my little cunt licking slut?" 
+"Mother," he repeated, suddenly feeling like he was a teenager again. 
 
- "Yes, Mistress Melanie," Deborah nodded, turning back to her husband's much younger sister. 
+"Now, Martin Jeremy," the mother repeated, her tone firm. 
 
- Enraged and yet paralyzed with shock, he watched as his wife leaned forward and began kissing his sister. 
+The bewildered father and son sat on a chair in the corner, as if being punished. 
 
- His sister broke the kiss and ordered, "Ready to eat your Mistress's cunt?" 
+Chloe explained, "Daddy, I'm the woman of this house now. Amanda is second in charge and Mommy-slut is third." 
 
- "God, yes," Deborah agreed, as she playfully pushed her sister-in-law onto her back and buried her face in her cunt, even as her husband watched in shock. 
+The Mother added, "And both your sisters and I are also submissive sluts to your two daughters." 
 
- He watched his wife bury her face in his sister's cunt, before turning and walking back in the house, where he heard his older sister scream, "I'm cominnnnnng." 
+"Why?" he asked, trying to begin to understand what was currently transpiring. 
 
- He went upstairs towards his room and got the third shock in five minutes when he walked into his own bedroom where his mother was riding a strap-on cock worn by his daughter Chloe. 
+"Because only a woman really knows what a woman needs," Chloe answered. 
 
- 
+He was speechless. The six women he knew the most, the six he trusted the most, the six he loved the most had all betrayed him...yet his cock was iron hard. 
 
- a-family-affair85.jpg] 
+The mother asked, as her orgasm was building, "Is my baby boy's dick hard?" 
 
- "Mom!" he gasped, staring at his mother, unexpectedly living out a fantasy he had, like most boys, of seeing his mother naked. 
+"Yes, Mom," he admitted, his head now down in shame. 
 
- Chloe looked at her father and ordered, "Sit down, Dad." 
+"Look at your mother when you speak to her," she ordered. 
 
- "Excuse me," he said, shocked by his daughter telling him what to do when she was just caught in the act of lesbianism with his mother, her grandmother. 
+He did, although not at her eyes, but her beautiful bouncing tits. 
 
- "Now, Martin," his mother added, even as she continued bouncing on the strap-on cock. 
+"You like Mommy's tits?" his mom asked. 
 
- "Mother," he repeated, suddenly feeling like he was a teenager again. 
+"Yes," he nodded, unable to break off staring at his mother's tits, a long time fantasy coming true in the strangest of circumstances. 
 
- "Now, Martin Jeremy," the mother repeated, her tone firm. 
+"Do you want to fuck Mommy?" she continued. 
 
- The bewildered father and son sat on a chair in the corner, as if being punished. 
+"I-I-I don't know," he stammered, the answer obvious yes, yet saying such words more difficult to vocalize. 
 
- Chloe explained, "Daddy, I'm the woman of this house now. Amanda is second in charge and Mommy-slut is third." 
+Chloe said, "Be a good boy and you may just get six sexy sluts to serve." 
 
- The Mother added, "And both your sisters and I are also submissive sluts to your two daughters." 
+Such an offer was both disturbing, it was incest after all, and yet equally enthralling as his cock begged for attention. 
 
- "Why?" he asked, trying to begin to understand what was currently transpiring. 
+"Take out your cock," Chloe ordered. 
 
- "Because only a woman really knows what a woman needs," Chloe answered. 
+He obeyed his daughter's order, desperate to liberate his cock. 
 
- He was speechless. The six women he knew the most, the six he trusted the most, the six he loved the most had all betrayed him...yet his cock was iron hard. 
+Chloe, seeing her father's smallish cock, sighed, "No wonder Mommy-slut likes my cock better." 
 
- The mother asked, as her orgasm was building, "Is my baby boy's dick hard?" 
+Shame cascaded through him at the criticism of his cock, something that had always been an insecurity for him. 
 
- "Yes, Mom," he admitted, his head now down in shame. 
+The grandmother added, "Sometimes it is the size that counnnnnnnnts." 
 
- "Look at your mother when you speak to her," she ordered. 
+"Come, grandma, you dirty slut," Chloe demanded, bucking her ass up to meet the downward bounces of her grandma. 
 
- He did, although not at her eyes, but her beautiful bouncing tits. 
+"Yes, Mistresssss," the grandma moaned, before ordering, "Come Martin, come with Mommy." 
 
- "You like Mommy's tits?" his mom asked. 
+Martin began stroking his cock and in less than thirty seconds he was coming all over himself as he watched his mother get fucked. 
 
- "Yes," he nodded, unable to break off staring at his mother's tits, a long time fantasy coming true in the strangest of circumstances. 
+"Yes, yes, oh, oh, yes, Godddddddd," the grandmother screamed as she came just a few seconds after her pathetic son did. 
 
- "Do you want to fuck Mommy?" she continued. 
+"I see you have learned who sleeps in this bed now," Deborah said, walking in. 
 
- "I-I-I don't know," he stammered, the answer obvious yes, yet saying such words more difficult to vocalize. 
+He looked at his wife, confused. 
 
- Chloe said, "Be a good boy and you may just get six sexy sluts to serve." 
+"You will sleep in the basement spare bedroom," Deborah explained. "I sleep with Mistress Chloe now." 
 
- Such an offer was both disturbing, it was incest after all, and yet equally enthralling as his cock begged for attention. 
+Chloe walked over to her father and ordered, putting the strap-on cock in his face, "Clean my cock of your mother's cum." 
 
- "Take out your cock," Chloe ordered. 
+Defeated, horny and understanding he was being cuckolded by his own daughter, he opened his mouth and took the plastic cock in his mouth. 
 
- He obeyed his daughter's order, desperate to liberate his cock. 
+Deborah chuckled softly, while Amanda walked in, strap-on still on her waist, and asked, "Can I fuck Dadette first?" 
 
- Chloe, seeing her father's smallish cock, sighed, "No wonder Mommy-slut likes my cock better." 
+Chloe smiled at her sister and said, "I think we have really created a nympho in you." 
 
- Shame cascaded through him at the criticism of his cock, something that had always been an insecurity for him. 
+"Like mother, like daughter, like auntie, like niece, like grandmother, like granddaughter," Amanda shrugged. 
 
- The grandmother added, "Sometimes it is the size that counnnnnnnnts." 
+"And like sister like sister," Chloe added. 
 
- "Come, grandma, you dirty slut," Chloe demanded, bucking her ass up to meet the downward bounces of her grandma. 
+Soon all six female family members were in the middle of a lengthy lesbian orgy with dildos, strap-ons, and vibrators while the son, brother father and husband watched helplessly...the coup was complete. 
 
- "Yes, Mistresssss," the grandma moaned, before ordering, "Come Martin, come with Mommy." 
+Meanwhile, back in Europe, Rose was back in her usual position between a woman's legs. This time it was a high ranking daughter of a woman in the British government who was very good friends with her Mistress. 
 
- Martin began stroking his cock and in less than thirty seconds he was coming all over himself as he watched his mother get fucked. 
+As she licked the powerful teen, Rose wondered what her granddaughters and daughter were up to without her. 
 
- "Yes, yes, oh, oh, yes, Godddddddd," the grandmother screamed as she came just a few seconds after her pathetic son did. 
+The strained relationship of the past eighteen months was fixed and Rose had promised to return to America every four months. Plus, the plan was for Deborah, Chloe and Amanda to all come and visit her for Christmas. 
 
- "I see you have learned who sleeps in this bed now," Deborah said, walking in. 
+Rose had told her Mistress everything and she looked forward to watching, and eventually partaking in, an incestuous lesbian act. 
 
- He looked at his wife, confused. 
+Rose hungrily lapped the pussy placed above her, feeling as if this was indeed why the Lord created her...to serve pussy. 
 
- "You will sleep in the basement spare bedroom," Deborah explained. "I sleep with Mistress Chloe now." 
+a-family-affair86.jpg] 
 
- Chloe walked over to her father and ordered, putting the strap-on cock in his face, "Clean my cock of your mother's cum." 
+THE END 
 
- Defeated, horny and understanding he was being cuckolded by his own daughter, he opened his mouth and took the plastic cock in his mouth. 
+Author's_Note: 
 
- Deborah chuckled softly, while Amanda walked in, strap-on still on her waist, and asked, "Can I fuck Dadette first?" 
+One more thank you must be given to the artist, REBECCA, from the classic series Housewives at Play, Hot Moms, and Teens at Play. 
 
- Chloe smiled at her sister and said, "I think we have really created a nympho in you." 
+These series were inspirational in my starting to write and are a must read. 
 
- "Like mother, like daughter, like auntie, like niece, like grandmother, like granddaughter," Amanda shrugged. 
-
- "And like sister like sister," Chloe added. 
-
- Soon all six female family members were in the middle of a lengthy lesbian orgy with dildos, strap-ons, and vibrators while the son, brother father and husband watched helplessly...the coup was complete. 
-
- Meanwhile, back in Europe, Rose was back in her usual position between a woman's legs. This time it was a high ranking daughter of a woman in the British government who was very good friends with her Mistress. 
-
- As she licked the powerful teen, Rose wondered what her granddaughters and daughter were up to without her. 
-
- The strained relationship of the past eighteen months was fixed and Rose had promised to return to America every four months. Plus, the plan was for Deborah, Chloe and Amanda to all come and visit her for Christmas. 
-
- Rose had told her Mistress everything and she looked forward to watching, and eventually partaking in, an incestuous lesbian act. 
-
- Rose hungrily lapped the pussy placed above her, feeling as if this was indeed why the Lord created her...to serve pussy. 
-
- 
-
- a-family-affair86.jpg] 
-
- THE END 
-
- Author's_Note: 
-
- One more thank you must be given to the artist, REBECCA, from the classic series Housewives at Play, Hot Moms, and Teens at Play. 
-
- These series were inspirational in my starting to write and are a must read. 
-
- Jasmine June 2015 Report_Story 
+Jasmine June 2015 Report_Story 
