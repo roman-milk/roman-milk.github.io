@@ -1,8 +1,5 @@
 Exhibitionist Wife
 =========================
-#1 
-
-===
 
 Just a thong 
 
@@ -870,4 +867,4 @@ With a will of their own, her legs parted. It was a battle that decorum was goin
 
 She could feel herself weeping on the seat. If her husband didn't get her home soon, she would frig herself off, even with the driver watching. Maybe it would make it more exciting, and she would have a better orgasm. 
 
-Damn! How far had she fallen in the past week! Keeping her legs tight together would have been paramount a few days ago. Now she was thinking of playing with herself for an orgasm! It wasn't Philips fault, something had happened to her. She was carried away with it all, and way beyond her normal moral limits. How had this happened, she had no idea. Report_Story 
+Damn! How far had she fallen in the past week! Keeping her legs tight together would have been paramount a few days ago. Now she was thinking of playing with herself for an orgasm! It wasn't Philips fault, something had happened to her. She was carried away with it all, and way beyond her normal moral limits. How had this happened, she had no idea.  
