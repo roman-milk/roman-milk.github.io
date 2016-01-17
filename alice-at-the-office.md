@@ -1,12 +1,7 @@
 Alice At The Office
 ===================
-#1 
-
-===
 
 My husband, while he was still my boyfriend, worked for a long time to convince me that my legs were great and that I needed to show them off properly. He was the one who talked me into wearing high heels, nylons, garter belts, crotchless pantyhose and short skirts so I guess he can be considered responsible for the story I'm about to relate. 
-
-+++++++++++++++++++++++ 
 
 I'd just been laid off and I was looking for a new job. A small sales firm had an ad in the paper for a secretary/receptionist and while the pay offered was lower than what I was looking for the job did have the advantage of only being a five-minute walk from where I lived. The money I would save on downtown parking and other transportation costs made it worth looking into. 
 
