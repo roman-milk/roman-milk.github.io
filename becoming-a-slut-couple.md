@@ -1,12 +1,7 @@
-Becoming a Slut Couple (1) Martin
-=================================
-#1 
-
-===
+Becoming a Slut Couple (Martin)
+===============================
 
 I sat on the edge of the bed and looked down at her napping and wondered about the way my life had changed. I got up and staggered into the bathroom and took a whiz surprised that she had left me enough strength to hold my dick and aim it. I washed my hands and as I dried them I looked in the mirror. What I saw was a decent looking - not great - but decent looking man of thirty-five in reasonably good shape. By no means movie star quality and yet in the past six months I'd had more pussy than I could handle. And I didn't understand it; not even a little bit. I remembered the day it all started. 
-
-+++++ 
 
 "Martin, could I see you in my office please?" 
 
@@ -26,7 +21,7 @@ Like I would say no, right? In the first place I liked my job and Beth could jus
 
 "Okay Martin, the first thing I need to tell you is that your job does not depend on the outcome of this meeting. You can say no and leave this office and go back to work without fear of any repercussions. No..., that isn't quite true and I guess that complete honesty is needed here. Your job may depend on your answer to what I'm going to ask you. That isn't a threat Martin as I hope you will understand by the time I am done. 
 
-"The company is in trouble Martin. We have lost several of our good accounts because of mishandling by Keith (my regional manager) and try as I might I haven't been able to get them back. Two of he accounts we lost account for fifty percent of our billings. Quite frankly Martin, I either need to get one of those two accounts back or I need to land another one just as big and I'm not having much luck at either. But one of the two has to happen or we will probably end up turning off the lights and locking the doors." 
+"The company is in trouble Martin. We have lost several of our good accounts because of mishandling by Keith (my regional manager) and try as I might I haven't been able to get them back. Two of the accounts we lost account for fifty percent of our billings. Quite frankly Martin, I either need to get one of those two accounts back or I need to land another one just as big and I'm not having much luck at either. But one of the two has to happen or we will probably end up turning off the lights and locking the doors." 
 
 I sat there looking at her and wondering what any of that had to do with me. Oh I understood that my job was toast if things didn't get turned around, but why did she have me in her office telling me this stuff? 
 
