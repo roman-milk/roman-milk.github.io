@@ -1,8 +1,5 @@
 A Wife Comes Out
 ================
-#1 
-
-===
 
 My husband has been after me for several months now to write this story, but I have reluctant because I've never been all that good with the written word. I hope it's not so bad that you chose not to publish it as Al is so looking forward to see the story in print. 
 
