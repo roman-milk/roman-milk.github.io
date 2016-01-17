@@ -1,14 +1,5 @@
 A Fall From Grace
 =================
-#1 
-
-===
-
-NOTE 1: A special thank you goes to my two editors (Estragon and Steven B) who made this work A LOT better than it originally was...as usual. 
-
-NOTE 2: This is my Earth Day contest story. The story is a mind control, revenge, lesbian story...that also saves the environment. Enjoy and vote... 
-
-* 
 
 "Fucking oil spill," Victoria muttered, looking down from her office to the street below. "There must be 10,000 fucking protesters there. Sure, I gave the order. Sure, I fired the man who actually told me there was a problem. It's not like I expected the thing to blow and cause those deaths and this mess. Now to figure out how many more people I have to pay off." 
 
